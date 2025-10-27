@@ -1,17 +1,39 @@
-I'm writing this sitting in my room crying I hear them scratching at the door I know a door can't hold whatever is trying to get in for long this all started a few years ago when my wife had my one and only son from the second he could talk he was weird
+One of my hobbies is antiquing, and I love going to old out of the way thrift shops or garage sales to find the items that have been passed over or overlooked. It's getting harder to find interesting pieces in the age of the internet, but sometimes you can still get lucky. 
 
-He seemed to be obsessed with anything death related he loves watching horror movies when I turn away from them he leans in closer to get a better look I always chalked it up to him just being a weird kid you know it happens
+In one farm town I saw a sign for an estate sale, so I followed it and pulled in. Most of the stuff they had was the usual junk, but one item caught my eye. It was a lead tablet, about a foot square and an inch thick, and they were selling it for a little over the melt weight. Carved into it, although worn by time, were letters in a script I certainly couldn't read, and in different styles. 
 
-Sadly my wife passed away in a car crash around a year ago now that's when everything in my life took a nose dive I fell into a deep depression and started drinking often forgetting my child I slowly got better but never fully recovered but I noticed more and more weird stuff
+I had no idea what it was, but I was curious, so I bought it. 
 
-Now I've always been a believer in the supernatural but this scared me to the bones shadow figures in the corner doors slamming in the house and scratches on my back this all started happening when I started to stop paying attention to my son but calmed down once I stopped drinking
+At that point the obvious thing to do was to try to translate it, and this proved to be a challenge. AI translators were of limited help, but it turned out the text was in a variety of old, dead languages. 
 
-God I wish right there and then I put him up for adoption if only I knew my son was always closer to his mom but after she died he went from interested by death to absolutely obsessed with it this is when it became weird and creepy I grew distant and cold to him one day I walked in and saw him playing with a dead animal I snatched it from him and yelled at him
+The first portion turned out to be in Elamite cuneiform, except carved into lead rather than clay. Figuring it out was not simple, requiring a lot of the sort of study only possible by a dedicated hobbyist with a tendency to obsession. It helped when I figured out that it was supposed to rhyme. 
 
-But day after day after day he kept practicing on animals I fell back into old habits from stress from work I came home from one day and what I'm about to say may be disturbing but its the reason I'm at this point I saw him playing with a dead cat I lost it I saw red and started punching and didn't stop until he was bleeding
+The next portion was easier, as it was in ancient Greek, and explained that the text above was a ritual incantation intended to protect from... it doesn't translate well, but the Eater Within is close enough.
 
-You may say I deserve what was coming to me after that you have your own opinion but I'm sharing my story as a cautionary tale to help other people the next day the weird unexplainable stuff started happening but this time much stronger I discovered just days before my wife died she punished Jack for playing with animals that had been run over days later she died in a car crash for what seemed to be no reason
+It also provided instructions for the other requirements. I won't share the details here, but they weren't difficult to obtain, although perhaps unpleasant. I got some odd looks at the butcher shop, but it wasn't too much of a chore to get ready. 
 
-I have a feeling jack did this back to present day the things happening have turned from shadow corners apprecing out of the corner of my eye to them running at me and disappearing and scratches drawing blood on my back eventually it led to this night I woke up to banging on my door and demonic screeching I cowered in my bed then the scratching came it screamed my name in my wife's voice
+My curiosity would not allow this stone to remain unturned, and so I tried it out.  It was simple enough, and quite frankly, mostly boring and awkward in a way that made me self conscious. I was glad I was alone, it would have been embarrassing to be seen doing something so silly.  
 
-I don't know what it is but a door won't hold it back for long and I hear the door splintering this is goodbye and a warning if you ever have kids that are interested in death please don't do what i do
+Nothing apparent happened. Even though it was what I expected, it was still a little disappointing.
+
+A week later, at work, I saw it for the first time. My boss came to talk to me and I saw the shape swimming behind his eyes, and it seemed to be looking back at me. He couldn't see it. Neither could any of my coworkers. It was able to hide itself from everyone, except me. 
+
+Three weeks later, he was dead. The first signs are easy to ignore. It might be a headache. Maybe some joint pain, or just tiredness. But quickly the body is consumed by tumors that cannot be stopped. Neither chemotherapy nor radiation stops them. It's how the thing tears a body apart without shedding a single drop of blood. It's not an easy way to go, either, and morphine doesn't seem to do much for the victims. Maybe the pain is important to the creature somehow. 
+
+The next to go was the woman who worked at the convenience store down the street. One day I went in to get some milk, and I saw it again, swimming behind her eyes, looking at me with a mixture of curiosity and hatred.
+
+The warding ritual keeps it from me, but it also attracts its interest. It can't hurt me, but it stalks me, and pursues those near me. 
+
+My sister was next. We had always been fairly close, and I couldn't have been more horrified to see the shape in her eyes. 
+
+I tried to explain what was happening. I begged her to try the ritual. I can't blame her for refusing, I know how crazy it sounds. But it was heartbreaking to watch her die in the hospital, with doctors helpless to do anything, and unable to see the thing behind her eyes. 
+
+That's also how it came to kill my father. While I was close to my sister, I hadn't spoken to my father in about a decade. But when she died, he called. He apologized for some of the things in the past. So did I. We made plans to meet again, for Christmas. 
+
+Those plans never came to pass, because a month later he was dead, his body riddled with tumors. The Eater Within is stalking me, even to who I communicate with, even if they're far away.
+
+I worked to translate more of the tablet, trying to figure out a solution. There is none. All I could find is that the ritual can only protect one person at a time. If another person uses it, the protection transfers to them. 
+
+And that's why I'm sorry.  I can't keep watching people around me die, not like that. I'm putting this message out there, knowing it may lead the Eater to some of you, to maybe spare some of the people around me. People are already asking too many questions. 
+
+If it comes for you, maybe there's another copy of the ritual out there. Maybe it could save you. But think carefully first. The Eater would surely come for me, but I deserve it at this point. It is not easy to live with it stalking you, consuming those around you.
