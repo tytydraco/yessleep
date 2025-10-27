@@ -10,8 +10,6 @@
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-**\*For those who missed it, I  posted part 13 two days ago FYI**
-
 [Part 1](https://www.reddit.com/r/nosleep/comments/1mlackw/im_a_trucker_on_a_highway_that_doesnt_exist_there/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1mmsi7t/im_a_trucker_on_a_highway_that_doesnt_exist_you/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1mrcfkc/im_a_trucker_on_a_highway_that_doesnt_exist_i/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1mt083f/im_a_trucker_on_a_highway_that_doesnt_exist_dont/) | [Part 5](https://www.reddit.com/r/nosleep/comments/1mz659m/im_a_trucker_on_a_highway_that_doesnt_exist_i/) | [Part 6](https://www.reddit.com/r/nosleep/comments/1n55qbq/im_a_trucker_on_a_highway_that_doesnt_exist_i/) | [Part 7](https://www.reddit.com/r/nosleep/comments/1nazpkv/im_a_trucker_on_a_highway_that_doesnt_exist_the/) | [Part 8](https://www.reddit.com/r/nosleep/comments/1ngx170/im_a_trucker_on_a_highway_that_doesnt_exist_ready/) |[ Part 9](https://www.reddit.com/r/nosleep/comments/1nmy3y5/im_a_trucker_on_a_highway_that_doesnt_exist_there/) | [Part 10](https://www.reddit.com/r/nosleep/comments/1nswm42/im_a_trucker_on_a_highway_that_doesnt_exist_i/) | [Part 11](https://www.reddit.com/r/nosleep/comments/1nyvwua/im_a_trucker_on_a_highway_that_doesnt_exist/) | [Part 12](https://www.reddit.com/r/nosleep/comments/1o4unlr/im_a_trucker_on_a_highway_that_doesnt_exist_some/) | [Part 13](https://www.reddit.com/r/nosleep/comments/1o9d6wf/im_a_trucker_on_a_highway_that_doesnt_exist_i/)
 
 Alright then.
