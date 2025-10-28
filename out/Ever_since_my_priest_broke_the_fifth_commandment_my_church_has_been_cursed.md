@@ -156,9 +156,11 @@ Last night, I woke up to find Zack sat at the end of my bed.
 
 His face was thick with sweat, his eyes blazing with fury – and there was a lit cigarette hanging out of his mouth. In the doorway, I saw a black goat, almost as large as a man, with chains wrapped around its horns.
 
-And in Zack’s right hand, I saw that he gripped a knife – held out towards me. *I don’t want it,* I thought – and he smiled in response. 
+In Zack’s right hand, I saw that he gripped a knife – held out towards me. *I don’t want it,* I thought – and he smiled in response. 
 
-I woke up to find that my room was empty, and that Ruth was fast asleep. But I’ve written this story down because I want someone to know that if I ever break the fifth commandment, it won’t be out of choice. 
+And then he was gone, as if he’d never been there. My room was empty, and Ruth was still fast asleep. 
+
+But I’ve written this story down because I want someone to know that if I ever break the fifth commandment, it won’t be out of choice. 
 
 I’ve also written this down because I want someone to pray for me. The whole world seems dark, and I need prayer. It didn’t work for Zack, but maybe it will work for me. 
 
