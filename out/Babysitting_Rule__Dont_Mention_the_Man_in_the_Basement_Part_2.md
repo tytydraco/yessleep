@@ -1,5 +1,4 @@
-Part 1 here - [https://www.reddit.com/r/nosleep/comments/1o17av8/babysitting\_rule\_dont\_mention\_the\_man\_in\_the/](https://www.reddit.com/r/nosleep/comments/1o17av8/babysitting_rule_dont_mention_the_man_in_the/)  
-
+[Part 1](https://www.reddit.com/r/nosleep/comments/1o17av8/babysitting_rule_dont_mention_the_man_in_the/)
 
 Hey guys,
 

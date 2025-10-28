@@ -1,9 +1,7 @@
-Part 1 - [https://www.reddit.com/r/nosleep/comments/1o17av8/babysitting\_rule\_dont\_mention\_the\_man\_in\_the/](https://www.reddit.com/r/nosleep/comments/1o17av8/babysitting_rule_dont_mention_the_man_in_the/)  
-Part 2 - [https://www.reddit.com/r/nosleep/comments/1o5slx4/babysitting\_rule\_dont\_mention\_the\_man\_in\_the/](https://www.reddit.com/r/nosleep/comments/1o5slx4/babysitting_rule_dont_mention_the_man_in_the/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1o17av8/babysitting_rule_dont_mention_the_man_in_the/) [Part 2](https://www.reddit.com/r/nosleep/comments/1o5slx4/babysitting_rule_dont_mention_the_man_in_the/) 
 
-  
-Hey guys,   
-  
+Hey guys,
+
 Another update for you. I didn’t think things could get worse… but they did.
 
 I told my friend Annie about what was happening. She’s practical, skeptical, and not easily impressed. If I wanted someone to tell me I was overreacting, it would be her. Maybe that’s why I told her - part of me still wanted to believe it was all explainable, all in my head, and I thought she could help me see that.
@@ -16,8 +14,8 @@ I braced myself for ridicule, and yeah, I got it. She rolled her eyes, poked fun
 
 Her words should have calmed me. Maybe part of me wanted them to. But the memory of how I felt in that house - kept my stomach in knots.
 
-Against my better judgment, I asked her to come with me the next Friday night. I felt like having someone there like Annie, someone so skeptical and disbelieving, would make it less scary. She would be practical and explain all of the noises, and make me see that it was all in my imagination. I needed her to do that for me.  
-  
+Against my better judgment, I asked her to come with me the next Friday night. I felt like having someone there like Annie, someone so skeptical and disbelieving, would make it less scary. She would be practical and explain all of the noises, and make me see that it was all in my imagination. I needed her to do that for me.
+
 When I arrived at the house Friday night, the atmosphere was immediately different. Heavy. Charged. As soon as I stepped inside, I felt it - the house was aware of me. Something inside it was *aware*.
 
 Margaret and David were tense. 
@@ -38,29 +36,28 @@ They as always told me the 3 rules - 
 2. Jamie asleep by 9pm
 3. No talking about the man in the basement.
 
-  
-Before they left I asked would it be ok if a friend dropped over later. They seemed unsure. Normally I would have picked up their hesitation and told them it’s ok, I can see they’re not comfortable with it, and I won’t have her come round. But, I let their discomfort linger. I just needed Annie there. I have a feeling they have a tough time keeping babysitters (I wonder why), so they agreed I could bring a friend.   
-  
+Before they left I asked would it be ok if a friend dropped over later. They seemed unsure. Normally I would have picked up their hesitation and told them it’s ok, I can see they’re not comfortable with it, and I won’t have her come round. But, I let their discomfort linger. I just needed Annie there. I have a feeling they have a tough time keeping babysitters (I wonder why), so they agreed I could bring a friend.
+
 They left, and I found Jamie in the living room, small and pale. He was lying on the couch watching cartoons and, as always, seemed tense. He tried to smile back at me, but his eyes were wary. I sat down beside him and he leaned in and whispered.
 
 “It’s different now.”
 
-‘What’s different?” I asked, hoping the answer would be about his cartoon.  
-  
+‘What’s different?” I asked, hoping the answer would be about his cartoon.
+
 “The man in the basement.”
 
-I immediately felt unsettled. But I didn’t push. I just nodded. He reached out and held my hand, seeking comfort. His other hand gripped the blanket wrapped tightly around him. I looked at his little hand, cold and clammy, in mine, and felt a wave of protectiveness.  
-  
-A million thoughts ran through my mind. What was different? How was it different? What’s changed? But I knew it wasn’t fair to Jamie to question him about it. I wanted him to lose himself in the kids' world of cartoons, have a break from the heaviness of his fear, and not have to talk about something that was clearly troubling him.  
-  
+I immediately felt unsettled. But I didn’t push. I just nodded. He reached out and held my hand, seeking comfort. His other hand gripped the blanket wrapped tightly around him. I looked at his little hand, cold and clammy, in mine, and felt a wave of protectiveness.
+
+A million thoughts ran through my mind. What was different? How was it different? What’s changed? But I knew it wasn’t fair to Jamie to question him about it. I wanted him to lose himself in the kids' world of cartoons, have a break from the heaviness of his fear, and not have to talk about something that was clearly troubling him.
+
 Annie arrived and I tried to keep things normal, showing her around, joking quietly to her about the “haunted basement” and pointing out the creaks in the old floors. We then ate some snacks and Annie showed Jamie how to play a card game. She was good with him. I felt myself relaxing. Maybe Annie was right - I was a lunatic.
 
 I put Jamie to bed, then sat with Annie on the couch and chatted. It all seemed okay. The house made noises, shadows shifted, drafts blew, and Annie laughed at every sound, mocking my fear. “See? Totally explainable,” she said, rolling her eyes.
 
 Then it happened.
 
-A shadow moved across the room. Fast. Too fast to be explained. I froze, heart hammering in my chest, each beat echoing in my ears. The air around me grew icy and heavy, pressing down, making it hard to draw a full breath. I looked at Annie to see if she noticed it too, waiting for her explanation - wanting it - come on Annie, tell me it was nothing. I saw her glance out the window, to see if a passing car had created that shadow - forgetting how far we were from the road.  
-  
+A shadow moved across the room. Fast. Too fast to be explained. I froze, heart hammering in my chest, each beat echoing in my ears. The air around me grew icy and heavy, pressing down, making it hard to draw a full breath. I looked at Annie to see if she noticed it too, waiting for her explanation - wanting it - come on Annie, tell me it was nothing. I saw her glance out the window, to see if a passing car had created that shadow - forgetting how far we were from the road.
+
 Then, a scraping sound came from the basement door - faint at first, like claws dragging over old wood, then louder, sharper, like it was trying to claw its way out.
 
 Annie laughed nervously, her voice trembling just slightly. “It’s just the house, it’s fine,” she said, brushing it off with a wave of her hand, though her laugh didn’t quite reach her eyes.
@@ -102,4 +99,3 @@ She found my eyes and stared at me with scared intensity. 
 She whispered clearly:
 
 “Jamie.”
-
