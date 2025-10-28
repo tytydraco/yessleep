@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1og6gy0/fieldnotes_from_an_egyptological_disaster_pt_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 I woke up clawing madly at the air. Sweat soaked my clothes, and a half-finished scream died on my lips. I lay still for a moment, letting my heart rate settle. My cot groaned as I sat up and rubbed the pale crescents left by my fingernails from my palms. I’d had the dream again. The last time I had it was back in high school. I ran my fingers through disheveled hair, and wondered what dredged up this unpleasant memory. I took some deep breaths to calm down before checking my watch. I was late.
 
  
