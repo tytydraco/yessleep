@@ -16,7 +16,7 @@ I wanted it over as fast as possible. So I started Googling: “Advice for colon
 
 Let me back up again.     
 
-*Looking 4 the absolute purge? The elimination 2 end all eliminations? read the Reddit thread,  Tell u what u do: squeeze a few drops of liquid caffeine into your PEG solution. You’ve never SEEN an evacuation like this! Eight hours? No, you’ll be done in no time!*     
+*Looking 4 the absolute purge? The elimination 2 end all eliminations?* read the Reddit thread, *Tell u what u do: squeeze a few drops of liquid caffeine into your PEG solution. You’ve never SEEN an evacuation like this! Eight hours? No, you’ll be done in no time!*     
 
 I loved done in no time. Low commitment. Minimal effort. Those were some of my favorite words. So with Sam out the door and on his way, I got to work. I searched through the pantry, found some of his water enhancers, the energy kind, aka the *caffeine* kind. I mixed in a spurt of that and the laxative powder and a big fat gallon of water all together in the plastic jug they sent along, plopped down on the futon in my bedroom, no obligations, no plans, just a trove of unwatched movies on my Plex server, Ms. Poly Glycol, and me. I was well on my way. Destination: toilet.    
 
