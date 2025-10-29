@@ -277,3 +277,5 @@ The sound echoed down the stairwell like a gunshot.
 
 
 Darkness swallowed everything.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/KSctjQM2ud)

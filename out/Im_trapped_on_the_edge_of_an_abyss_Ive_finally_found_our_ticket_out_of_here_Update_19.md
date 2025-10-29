@@ -340,7 +340,7 @@ When I did correctly reach the email, my eyes sprinted over the words:
 
 *‘You are receiving this message as you are authorized with full administration privileges. The following information is to be kept private and is only to be known by authorized personnel:*
 
-*The central door code of your facility has been changed to* ***114080*****,** *and the previous code has been cleared from your system. If you or an authorized employee did not make this change and suspect an error, contact a head admin IMMEDIATELY to have it corrected, as foul play may be involved.’*
+*The central door code of your facility has been changed to* ***114080***\*\*,\*\* *and the previous code has been cleared from your system. If you or an authorized employee did not make this change and suspect an error, contact a head admin IMMEDIATELY to have it corrected, as foul play may be involved.’*
 
 I couldn’t believe it; it was right there. The code to the door was hidden in Shae’s email the entire time, all on the hinge of an automated system. It all made sense now why the other scientists were trying so hard to get into his laptop, or maybe they never knew to begin with and were just trying to do what we did. Whatever the case, I couldn’t help but kick myself for not being more thorough. In a place with barely any signal, I never would have thought to check something as simple as a digital inbox.
 
@@ -469,3 +469,5 @@ Harsh, gritty and loud; bones snapped and popped from within the tunnel, and the
 Time was up.
 
 Il-Belliegħa was here.
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1ni5av6/im_trapped_on_the_edge_of_an_abyss_my_time_has/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
