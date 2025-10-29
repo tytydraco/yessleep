@@ -154,5 +154,5 @@ I closed my eyes. My mind as well as body had given up. Seconds from death, I he
 
 He spotted me and ran to my side. He was soon followed by an old woman from the house whose front yard I'd dragged myself onto. They helped me to my feet, and the old woman led me into her home to wait for an ambulance. The last thing I remember clearly of that night, which claimed the lives of all my friends, just before she shut the door behind us was the teen shouting once again. 
 
-“Where did it go!?”
+“Where did it [go](https://www.reddit.com/r/nosleep/s/YhGTPw6Irh)!?”
 
