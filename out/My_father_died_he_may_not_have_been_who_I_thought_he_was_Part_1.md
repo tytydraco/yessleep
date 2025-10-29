@@ -111,3 +111,5 @@ I really did not know anything. About the book, about what had happened that day
 I knew nothing. I didn't intend to stay ignorant, though. Looking up at Adam, the book between us on the table as I sat and he paced, I caught his attention with a sigh and asked him the question that changed our lives forever, and not for the better. I wish I hadn't, but I did. Because I did, what happened after that between us was and continues to be my fault. I acknowledge that now. However, in that moment, none of that mattered. I simply wanted a friend by my side as I navigated this frightening, unbelievable, insane time in my life. I didn't have my father to rely on anymore — if I ever had in the first place — and Adam was the only person in the world that I could trust with this. So I asked him. I asked, and doomed us both to what would come next.
 
 "Do you believe in magic?"
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1oixw7c/my_father_died_my_inheritance_is_really_a_burden)
