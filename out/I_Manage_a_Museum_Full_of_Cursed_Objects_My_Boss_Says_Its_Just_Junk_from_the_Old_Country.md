@@ -28,10 +28,6 @@ He always shows up at the end of the work week, like clockwork, carrying that sa
 
 He doesn’t like talking about the museum much. I’ve tried asking him where all this stuff actually comes from, but he always dodges the question. Tourists have tried too - some get bold after a few ghost stories and ask if the place is really haunted or if he brought everything over from somewhere specific. He just chuckles, waves a hand, and says, “It’s all just junk from the old country.” Then he changes the subject before anyone can ask what country that actually is. I stopped pressing after a while. Some things here are better left unexplained.
 
-
-
-
-
 Of course, this wouldn’t be a proper haunted museum without a few rules to follow, like I mentioned earlier. The first one’s simple: every morning before opening, I have to draw a straight white line across the doorstep. Nothing fancy - just one solid stroke with a piece of chalk. Walter insists on it. Says it’s “tradition.”
 
 So, every day, I grab the old brick of chalk from the drawer and drag it across the entrance until there’s a clean, even mark. I’m not really sure what it’s for. Maybe it’s some old superstition from the “old country,” or maybe it’s just to keep the more superstitious tourists entertained. But I’ve noticed a few people stop dead the second they see it - like they suddenly remember they left the oven on or something. They turn right around and leave without saying a word. Maybe the line keeps something out. Or maybe it keeps something in.
@@ -64,5 +60,4 @@ I asked Walter about it once. He just smiled, tapped the page twice with his fin
 
 So yeah, that’s what I do for a living. Not exactly a dream job, but it pays well enough - and honestly, it’s never boring. I’m writing this down during my break, and I should probably get back to work soon before something decides I’ve been gone too long.
 
-Anyway, take care out there. And if you ever stumble across a little out-of-the-way museum filled with “haunted artifacts” and a chalk line across the front door… come say hi. Just make sure you can actually cross that line first.
-
+Anyway, take care out there. And if you ever stumble across a little out-of-the-way museum filled with “haunted artifacts” and a chalk line across the front door… come say hi. [Just make sure you can actually cross that line first.](https://www.reddit.com/r/nosleep/comments/1oji174/i_manage_a_museum_full_of_cursed_objects_my_boss)
