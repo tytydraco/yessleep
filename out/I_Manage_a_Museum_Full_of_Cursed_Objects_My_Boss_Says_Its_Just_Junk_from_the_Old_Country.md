@@ -60,4 +60,4 @@ I asked Walter about it once. He just smiled, tapped the page twice with his fin
 
 So yeah, that’s what I do for a living. Not exactly a dream job, but it pays well enough - and honestly, it’s never boring. I’m writing this down during my break, and I should probably get back to work soon before something decides I’ve been gone too long.
 
-Anyway, take care out there. And if you ever stumble across a little out-of-the-way museum filled with “haunted artifacts” and a chalk line across the front door… come say hi. [Just make sure you can actually cross that line first.](https://www.reddit.com/r/nosleep/comments/1oji174/i_manage_a_museum_full_of_cursed_objects_my_boss)
+Anyway, take care out there. And if you ever stumble across a little out-of-the-way museum filled with “haunted artifacts” and a chalk line across the front door… come say hi. Just make sure you can actually cross that line first.

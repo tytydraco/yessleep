@@ -248,3 +248,5 @@ I couldn't feel my legs. Couldn't feel anything except the ice spreading through
 I ran.
 
 But even as my feet pounded down the corridor, even as my hand fumbled for my radio, even as my mind screamed at me to move faster, faster, I couldn't shake the image burned into my brain: O'Bryon's face as that black substance poured from his mouth into Jeremiah's. The love in his eyes. The [absolute certainty.](https://www.reddit.com/r/ZJcortez/comments/1odnism/welcome/)
+
+[Read more](https://www.reddit.com/r/nosleep/comments/1ojimnu/the_angel_treatment_was_supposed_to_cure_evil/).
