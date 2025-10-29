@@ -1,4 +1,4 @@
-[Original Post](https://www.reddit.com/r/nosleep/comments/1jt33ad/im_trapped_on_the_edge_of_an_abyss_please_help_me/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[All Updates](https://www.reddit.com/user/Ink_Wielder/comments/1oivac5/im_trapped_on_the_edge_of_an_abyss_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I could barely keep up with Hope as she lumbered down the hallway, her mutated, boney hand clamped over mine. My one leg I was using to support myself certainly wasn’t enough to fight back her new, goliath form into slowing her pace either. All I could do was hop along and hope I didn’t fall, lest I let out a yelp and invoke whatever demon I’d awoken moments ago.
 

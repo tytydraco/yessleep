@@ -1,4 +1,4 @@
-[Original Post](https://www.reddit.com/r/nosleep/comments/1jt33ad/im_trapped_on_the_edge_of_an_abyss_please_help_me/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[All Updates](https://www.reddit.com/user/Ink_Wielder/comments/1oivac5/im_trapped_on_the_edge_of_an_abyss_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 The cold air of the abyss slapping my face brought me back to my senses as we flew out the back of the motel. I didn’t even remember grabbing June’s hand and sprinting for the steps after I registered what was coming for us in that crypt below. My brain was in overdrive.
 

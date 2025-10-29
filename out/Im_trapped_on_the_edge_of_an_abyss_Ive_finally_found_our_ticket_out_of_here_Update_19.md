@@ -1,4 +1,4 @@
-[Original Post](https://www.reddit.com/r/nosleep/comments/1jt33ad/im_trapped_on_the_edge_of_an_abyss_please_help_me/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[All Updates](https://www.reddit.com/user/Ink_Wielder/comments/1oivac5/im_trapped_on_the_edge_of_an_abyss_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 The wheels on our cart rattled and groaned over the weathered asphalt as we approached the compound door. It was tired from so many trips to and from this place, and I was too.
 

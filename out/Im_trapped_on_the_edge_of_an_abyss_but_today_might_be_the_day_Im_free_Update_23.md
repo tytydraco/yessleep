@@ -1,4 +1,4 @@
-[Original Post](https://www.reddit.com/r/nosleep/comments/1jt33ad/im_trapped_on_the_edge_of_an_abyss_please_help_me/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[All Updates](https://www.reddit.com/user/Ink_Wielder/comments/1oivac5/im_trapped_on_the_edge_of_an_abyss_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 In all my years on this earth, I’d never seen my father angry.
 
@@ -413,3 +413,5 @@ With one long, labored sigh, I looked around the room and the corridor beyond it
 I stared down at the key in my hand, and let the last of my tears fall onto it, then turned for the console on the catwalk above me.
 
 After all this time, I had finally given Ann a home, and it was time to return to mine.
+
+[Final Update](https://www.reddit.com/r/nosleep/comments/1ob3bf9/i_was_trapped_on_the_edge_of_an_abyss_but_i_think/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

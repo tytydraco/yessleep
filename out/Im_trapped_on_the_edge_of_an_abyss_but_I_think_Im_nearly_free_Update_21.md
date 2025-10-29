@@ -1,4 +1,4 @@
-[Original Post](https://www.reddit.com/r/nosleep/comments/1jt33ad/im_trapped_on_the_edge_of_an_abyss_please_help_me/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[All Updates](https://www.reddit.com/user/Ink_Wielder/comments/1oivac5/im_trapped_on_the_edge_of_an_abyss_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I stood in that dark corridor among the ashes of my innocence for what could have been hours. The compound was devoid of any organic sounds—no footsteps or scuffling or anything that might be another living being on approach. All that returned to my own gentle breathing was the breath from iron lungs and windpipes billowing out from grated mouths on the wall. The shallow gasp of a dying manifold.
 
