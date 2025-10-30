@@ -112,14 +112,14 @@ Without him to hold on to, I fell over again, and pulled myself closer. "What? W
 
 "I know. Trust me, I'm as upset as you-"
 
-"Oh, no you're not Cal. You're not even close. You don't get it, I would burn the world down for him." His eyes blazed with a cold fury I had never seen in him before. I backed away, wincing as my foot bumped against a rock and pain shot up my leg again. 
+"Oh, no you're not, Cal. You're not even close. You don't get it, I would burn the world down for him." His eyes blazed with a cold fury I had never seen in him before. I backed away, wincing as my foot bumped against a rock and pain shot up my leg again.
 
-"Okay, I hear you, but being reckless isn't gonna help him, okay? It's gonna get you killed. That's not gonna help him. Let's wait a bit, and try to figure out what's going on, okay?" Desperation was starting to creep into my voice. He must have heard it, because his shoulders slumped, and he turned around with a sigh, helping me up. 
+"Okay, I hear you, but being reckless isn't gonna help him, okay? It's gonna get you killed. That's not gonna help him. Let's wait a bit, and try to figure out what's going on, okay?" Desperation was starting to creep into my voice. He must have heard it, because his shoulders slumped, and he turned around with a sigh, helping me up.
 
 "Fine. But I am coming back for him."
 
 "I know. And I'll help you when we're able to make sure he's safe, okay?" He nodded, then looked down at my foot. I followed his gaze and see it covered in the same purple goop. "Eeuch." I scraped my foot against a rock to get the most of it off, gritting my teeth against the pain, and then we walked back to our houses. Wes helped me over my fence, and before I hopped down I turned to him.
 
-"Remember. Nothing reckless, okay?" He nodded, his face stormy, and then I dropped down, crying out from my foot. 
+"Remember. Nothing reckless, okay?" He nodded, his face stormy, and then I dropped down, crying out from my foot.
 
 I took like five showers and threw out my socks and shoes, but I still feel icky. And I can't feel my foot unless I put weight on it, and then it's the same burning pain shooting up my whole leg. I hate this. I called Andy, told her what happened. We've decided that the two of us will meet up tomorrow afternoon. I'll update if anything else happens. Until then, if anyone has any tips to get through this- especially if someone has gone through something similar- please give them to me because I'm beyond freaked out at this point and any help is welcome.
