@@ -28,11 +28,15 @@ A chaotic, wildly swinging camera captures only brief glimpses of a dirt road an
 
 It's silent, except the electric hum of the ugly halogen lighting. Yellow linoleum floors. Rows of half empty store shelves, some bags of what looks to be generic white bread. A colorful banner in one corner that reads, ESTERDAY, NO LONGER YESTERDAY! 
 
-Then cut to the dim interior of an ancient barn. A horse stall. Some hulking creature seems to be crouched in the far darkness, to dim to make out, and a low voice uttering things incomprehensible. 
+Then cut to the dim interior of an ancient barn. A horse stall. Some hulking creature seems to be crouched in the far darkness, too dim to make out; vaguely humanoid, it seems  to be uttering things incomprehensible, in a low unearthly tongue. Then,
 
-Over.
+It's over.
 
 The thing is, these are all places I've been. I've seen that lonesome little laundromat, that liminal and empty store with its desolate shelves.
+
+They horrify me, these scenes, but I need to know.
+
+To feel that stillness again. That out-of-timeness.
 
 Does anyone have anymore information on this place? Have you tried to go there?
 
