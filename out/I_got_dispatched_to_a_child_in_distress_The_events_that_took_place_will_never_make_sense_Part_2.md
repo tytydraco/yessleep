@@ -134,3 +134,6 @@ I froze. The light flickered once more, then steadied.
 The hallway was empty.
 
 Only my blood on the floor, and the sound of something small scurrying just out of view.
+
+
+[Part 3](https://www.reddit.com/r/nosleep/s/00Wzpi5PNv)
