@@ -277,3 +277,5 @@ Fear unlike any I had ever known before filled the entirety of my being when I c
 We made it to Adam’s cousin’s place right around sunrise. In our hurry to flee, we didn’t take either of our cell phones, so we hadn’t been able to call ahead, but Adam’s cousin, a woman just a year older than the two of us who I’d known almost as long as I’d known Adam himself, took us in without question seeing that we were both freezing our asses off in our pyjamas. We slept on the floor that morning, but that was more than good enough for us after the night we’d had. We slept the day away and even when Adam woke, as I was later told, I slept the next few days as well, recovering my strength after losing seventy-two hours to the grimoire. What more would I lose by the time this was done? Would this ever be done? Those were the thoughts and questions that fuelled my nightmares over the next week.
 
 Unfortunately for both myself and, most importantly I think, Adam, the worst for both of us was still yet to come.
+
+[Final Part](https://www.reddit.com/r/nosleep/comments/1ojt36u/my_father_died_now_ive_lost_everything_final_part)
