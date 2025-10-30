@@ -16,23 +16,23 @@ When I first searched for the little town of Esterday online, I found almost not
 
 The cameraman says, "it shouldn't be much further," and he sounds distinctly anxious. Then there's a moment in which the image seems to shatter into ugly digital bars the color of bad maths , scramble, break up, before we see something inexplicable:
 
-The camera is now peering straight down at a brown mid nineties Ford Taurus driving at unknown speeds along what appears to be the same dirt road. We are presumably ten or fifteen meters above the automobile matching its speed perfectly. A moment passes before, very slowly, the driver's bone pale face emerges from the driver's window staring straight up, directly at the camera, eyes wide and obviously filled with what seems to be horror. 
+The camera is now peering straight down at a brown mid nineties Ford Taurus driving at unknown speeds along what appears to be the same dirt road. We are presumably ten or fifteen meters above the automobile matching its speed perfectly. A moment passes before, very slowly, the driver's bone pale face emerges from the driver's window staring straight up, directly at the camera, eyes wide, and we can see that, despite the distance and unfortunate pixelation, they are filled with horror.  
 
 Then, immediately, the cameraman is back in the passenger seat, swings over to the driver, who looks at the camera and says, "did we miss it?" To which the cameraman replies, "What the fuck." 
 
 They discuss, very briefly, turning around to seek out an "Esterday city limits" roadsign. Then the footage cuts.
 
-The second video clip, from 2011, was much much stranger. I clicked on the thumbnail of a familiar looking dirt road, titled IN ESTERDAY.
+The second video clip, from 2011, was just as bizarre. I clicked on the thumbnail of a familiar looking dirt road, titled IN ESTERDAY.
 
 A chaotic, wildly swinging camera captures only brief glimpses of a dirt road and a collapsed barn before suddenly halting on the interior of what appears to be a small laundromat. At floor level, we can make out a row of celadon arsenic-green washing machines. Three of them. As we watch, the one in the center opens slowly. Darkness inside. Then another wild blur of messy unintelligible imagery until the camera fixes once again on an empty country grocery store.
 
 It's silent, except the electric hum of the ugly halogen lighting. Yellow linoleum floors. Rows of half empty store shelves, some bags of what looks to be generic white bread. A colorful banner in one corner that reads, ESTERDAY, NO LONGER YESTERDAY! 
 
-Then cut to the dim interior of an ancient barn. A horse stall. Some hulking creature seems to be crouched in the far darkness, too dim to make out; vaguely humanoid, it seems  to be uttering things incomprehensible, in a low unearthly tongue. Then,
+Then cut to the dim interior of an ancient barn. Seasick green light from an unknown source. We're looking at a cramped and dirty horse stall. Some hulking colorless creature is crouched, turned away in the far darkness, too dim to make out; vaguely humanoid, it seems  to be uttering things incomprehensible, in a low unearthly tongue. Almost a low hum, warbling some, barely consistent with any familiar speech pattern. Then,
 
 It's over.
 
-The thing is, these are all places I've been. I've seen that lonesome little laundromat, that liminal and empty store with its desolate shelves.
+The thing is, these are all places I've been. I've seen that lonesome little laundromat, that liminal and empty store with its desolate shelves. I've stood in the seasick green light of the failing barn before the cramped and dirty horse stall and I've knelt low to hear the sacred truth this wretched creature softly croons. 
 
 They horrify me, these scenes, but I need to know.
 

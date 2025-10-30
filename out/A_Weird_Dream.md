@@ -1,0 +1,13 @@
+As the letters, the bracelet, and the clay toys that someone I didn't know the name of gave me in the past burnt, I kneeled down beside them, my face lit by the warm coloured fire and close enough I could've burnt myself but it was such a beautiful sight. I got up and gulped down the can of coke I had in my hand, it had warmed up a little due to the heat, I squeezed the can and kept it near the fire. I looked up at the stars as I    took the last sip, it was a melancholic yet beautiful sky, my gaze turned to the half moon and suddenly a memory came to my mind one in which I was having a walk with a girl in late evening of winters, she didn't have a face nor she had a voice, I was telling her something...something close to my heart, it went on for a bit and suddenly I snapped out, looked at my watch, half an hour had passed and I thought
+
+*Who was she? What was I telling her? Did she had to do anything with the things I just burnt?*
+
+I couldn't answer any of that. I took a look at the fire, it was still on and I again kneeled down beside it, looking at it with my eyes wide, a wide grin came to my face making me look like a maniac*.*
+
+I stayed near it until it was over and when it did, I noticed that one of the crooked remains of the clay toys had a grin, it was a bunny, as I looked at it closely all the surrounding in my vision started curving except that bunny like I had a fisheye lens glued to my eye with the burnt bunny in focus, but I didn't shift my gaze, I got close to take a closer look, yes I was sure it had a grin and all of a sudden I started laughing, uncontrollably like a...a *maniac*
+
+I kept laughing and the world around me started slowly turning black until I was left all alone, I laughed and laughed and laughed...until I woke up, completely covered in sweat and my heart racing. I quickly got up to check my drawer, yes they were there, the letters, the bracelet, and the clay toys, they were all there, unhurt, and I know who gave it to me, how could I ever forget? It was just a bad dream, I went outside on the balcony to catch some air and a cold chill went down my spine from what I saw, there was a fire burn mark at the exact place where I burned those things in my dream and a slightly squeezed coke can near it, but how could it be possible? That mark wasn't there till yesterday evening, and what I did was in a bad dream I had, right? 
+
+ *right?*
+
+It was yesterday's morning this happened and I've not opened the balcony's door since, I don't know what I should do.
