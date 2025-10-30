@@ -275,7 +275,7 @@ I didn't realise I barely escaped that thing myself.
 
 It's been three years since that night. I've been job hopping, but managed to land a pretty good job with decent pay. I live on the other side of the country now. I don't plan on revisiting that city ever again.
 
-I had Luna's body cremated. I told them she died in a bear attack. I brought her with me. Tom, Mom, Dad, and Sofia's bodies were never found.
+I had Luna's body cremated. I told them she died in a bear attack. I brought her with me. Arthur, Mom, Dad, and Sofia's bodies were never found.
 
 I think about that night every day. What if I had been faster? What if I had paid more attention to Sofia when we were supposed to be together? How was I in the attic for two hours...?
 
