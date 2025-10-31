@@ -552,4 +552,4 @@ One last thing, now that I know what it stands for and I believe that it may be 
 
 The seven realms diner. 
 
-Because I have a feeling that this has just begun.
+Because I have a feeling that [this has just begun.](https://www.reddit.com/r/nosleep/comments/1okdk4h/the_horrors_of_house_hunting_with_a_werewolf_and/)
