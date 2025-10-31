@@ -1,4 +1,4 @@
-[Original Post](https://www.reddit.com/r/nosleep/comments/1jt33ad/im_trapped_on_the_edge_of_an_abyss_please_help_me/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[All Updates](https://www.reddit.com/user/Ink_Wielder/comments/1oivac5/im_trapped_on_the_edge_of_an_abyss_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 A numbing flame rolled up through my joints as I sat there grunting on the floor, my arms braced beneath me to hold myself up. My jaw was clenched as small grunts of pain and pressure slipped past my lips. Sweat dripped from my brow and splashed to the mats beneath me, sometimes running into my eyes and making them sting. I shut them tightly to block it out and tried to focus.
 
