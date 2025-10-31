@@ -56,7 +56,7 @@ Forcing myself to take a steadying breath I evaluated my options. This situation
 
 As you can probably guess… it didn't work… 
 
-The glass refused to shatter, the upstairs office space was locked when I made a dash up there to hide. Worry pulling taut at my muscles at the prospect of someone hearing my failed attempts at escape. I huddled by that door for a while. Chest heaving painfully the entire time. 
+The glass refused to shatter, the upstairs office space was now locked when I made a dash up there to hide. Worry pulling taut at my muscles at the prospect of someone hearing my failed attempts at escape. I huddled by that door for a while. Chest heaving painfully the entire time. 
 
 Fast forward a lot of painful time spent staring at the top of the stairs, waiting for someone brandishing a knife or something akin to one to slowly encroach upon my safety. It never did happen. 
 
@@ -87,7 +87,7 @@ I always did hate the dark.
 
 To my dismay not even a flicker of light shone down from the many decrepit bulbs littering the ceiling, and when I finally ceased my flailing. Heavy breaths pushing between parted lips. I heard it again. The noise that had stirred me from a restless sleep. A noise I had believed to have come from a dream but was now making itself known in space I couldn't deny. 
 
-There was a sickening churn of dread that twisted my insides at the thought that I could be dead. What else explains this level of fucking bat shit insane? So what, my life comes to an end one random Wednesday on my way to work? Just splat and I'm gone? Did I fall on the tracks? Get shanked on my way in? If so why can’t I remember it and why please god why am I left here? Haunting my own workplace? What kind of fucked up joke is this? 
+There was a sickening churn of dread that twisted my insides at the thought that I could be dead. What else explains this level of fucking bat shit insane? So what, my life comes to an end one random Wednesday on my way to work? Just splat and I'm gone? Did I fall on the tracks? Get stabbed on my way in? If so why can’t I remember it and why please god why am I left here? Haunting my own workplace? What kind of fucked up joke is this? 
 
 And how cliche is that? 
 
