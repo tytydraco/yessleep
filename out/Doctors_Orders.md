@@ -29,7 +29,7 @@ The day wore on, I thought more about the murder and how Dr. Waltham could placa
 
 Despite the air-conditioning in the office, I began to sweat. In the bathroom, I looked at my tongue in the mirror then pulling down my lower lid, examined his eye.  
 “I don’t even know what I am looking for.” I admitted to himself.  
-Placing fingers inexpertly on my pulse I counted his life’s rhythm until again I admitted that I didn’t know what was normal.  
+Placing fingers inexpertly on my pulse I counted my life’s rhythm until again I admitted that I didn’t know what was normal.  
 “Sinclair.” I said to the mirror. Life was terribly cheap. No! Not true. It’s expensive, hard to hang onto. Death? There’s plenty to go round. One each. No pushing, no shoving, form an orderly and you will get served in due time – and guess what folks, it’s free! Now, *that’s* cheap.
 
 Waltham’s surgery was on the top floor of a converted town house. The staircase was old and wooden, and the hallway had a permanent smell of polish about it. Reaching the stop stair, I took out my phone and logged a preamble to my visit using a memo recorder. I always did this; it’s what I do. Time, date, intention, all recorded. I put the phone back in my jacket pocket and knocked gently on the door.
