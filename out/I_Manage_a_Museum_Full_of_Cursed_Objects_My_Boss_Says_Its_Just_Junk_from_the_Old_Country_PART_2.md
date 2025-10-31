@@ -157,6 +157,10 @@ Because when I looked down… the line was broken. Smudged inward, the white dus
 
 But he did.
 
+
+
+
+
 One of them slipped through the break - moving wrong, like its bones were remembering how to exist.  
  It dragged itself across the floor, slow but deliberate.
 
@@ -201,7 +205,7 @@ The smell grew thick and sour.
 
 “Just admit it!” I yelled.
 
-“I-I’m not-”
+“I-I’m not—”
 
   
  But then, quieter:
@@ -224,7 +228,7 @@ He drops by the museum sometimes to thank me for “saving his life,” which so
 It got a little awkward explaining to Walt that no, Michel isn’t my boyfriend - and even more awkward explaining what being gay actually means to a man who keeps a jar labeled cursed toenail clippings behind the counter.
 
 Anyway, I should probably get back to the register.  
- Walt’s “keeping an eye on things,” which usually means he’s pretending to be an animatronic to scare the visitors again, and we’ve got four loud idiots demanding “spooky Halloween costume crap.”
+ Walt’s “keeping an eye on things,” which usually means he’s pretending to be a statue again, and we’ve got four loud idiots demanding “spooky Halloween costume crap.”
 
 Something tells me this night’s not over yet.
 
