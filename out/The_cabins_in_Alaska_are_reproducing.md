@@ -363,7 +363,7 @@ Amongst my regular customers, there was always a few undetermined souls. Kids th
 
 Those lukewarm naysayers were the ones I’d be drinkin’ for.
 
-I’d flaunt my charisma. Shaked my proverbial tail feathers while pickling my innards in hooch. If sung loud enough, and if I danced well enough, those formerly undetermined souls would be placing an order for our next clandestine delivery before I stumbled out the door.
+I’d flaunt my charisma. Shaked my proverbial tail feathers while pickling my innards in hooch. If I sung loud enough, and if I danced well enough, those formerly undetermined souls would be placing an order for our next clandestine delivery before I stumbled out the door.
 
 Yuka was one of those converts.
 
@@ -489,7 +489,7 @@ No movement.
 
 Ten seconds. Twenty seconds.
 
-I slammed the wheel to the left, hoping the catch them off guard.
+I slammed the wheel to the left, hoping to catch them off guard.
 
 They moved to keep the light shining on their front, but a few shimmers managed to touch their back, which was diffusely chalk-white and seemed fleshy in comparison.
 
