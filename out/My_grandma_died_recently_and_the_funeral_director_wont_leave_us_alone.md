@@ -134,7 +134,7 @@ Following a moment of unrequited silence, he lowers them, sulking.
 
 "I need to pee. Come with?"
 
-“Pablo, you’re thirteen. You don’t need me to," I then think: let my thirteen-year-old brother wander in a dance hall filled with America’s most wanted? Yeah, and let him wander through a minefield blindfolded for his fourteenth too.
+“Pablo, you’re thirteen. You don’t need me to," I then think: let my disturbed thirteen-year-old brother wander in a dance hall filled with America’s most wanted? Yeah, and let him wander through a minefield blindfolded for his fourteenth too.
 
 “Where’s Tia? Can’t she take you?”
 
@@ -166,7 +166,7 @@ Mask caught in my fingers, Guerrero flashes a pleading glare through empty socke
 
 What feels like three men rush me from behind, arms coiling around my waist. Their combined strength sends me crashing backward. A boot heel slams onto my back, twisting the flesh underneath. I try to push myself up, only to face hundreds of greasy metal barrels glinting under the lights.
 
-The singer’s mics screech with feedback. On the stage, standing next to grandma’s tomb, stands The Pakol Man, tunic decorated with soda cans linked by wires. Smoke covers its face, rising to be churned in ceiling fans. 
+The singer’s mics screech with feedback. On the stage, standing next to grandma’s tomb, stands The Pakol Man, tunic decorated with soda cans linked by wires. Smoke covers its face, rising to be churned in ceiling fans.
 
 “The Hell’s going on here?!” roars Two-Face, parting the crowd.
 
@@ -494,38 +494,38 @@ A well-timed kick from the Sinister Gringo sends Alvaro reeling into the female 
 
 Alvaro huffs, eyebrow split and gushing. "W-what are you doing here? This is holy ground!"
 
-The Sinister Gringo backhands Alvaro. "I go where I damn please! Besides," he faces me, cracking his knuckles. "Besides... I'm here for an old friend." 
+The Sinister Gringo backhands Alvaro. "I go where I damn please! Besides," he faces me, cracking his knuckles. "Besides... I'm here for an old friend."
 
 Alvaro claws at the empty air. "Leave them alone!"
 
-"Do you believe in fate, Mr. Alvaro?" 
+"Do you believe in fate, Mr. Alvaro?"
 
 "Fuck you!"
 
 "Easy tiger. Where would be the fun in that? Anyway, I do. I think fate brought us together, brought us all together. So, of course, I came prepared with my finest threads."
 
-Removing his hat, the Sinister Gringo spins it around on a finger, and there, spinning with it, sewn to the back, an ear. And dangling from it, a ruby earring. 
+Removing his hat, the Sinister Gringo spins it around on a finger, and there, spinning with it, sewn to the back, an ear. And dangling from it, a ruby earring.
 
-"After all, I couldn't let such refined taste go then, so why let it go now?" 
+"After all, I couldn't let such refined taste go then, so why let it go now?"
 
 An equally as sinister laugh erupts from the creature, its lips stretching far beyond the limits of his face; the clamor like rocks rattling in a tin can. Alvaro, given an opening, spits a gout of crimson. The glob lands in its mouth, repelling the Sinister Gringo. “¡La madre que te parió!”
 
-"That's- that's for my mother!" 
+"That's- that's for my mother!"
 
-Whites of eyes glowing between black slits, the Sinister Gringo's mouth mouth opens. Cheeks lifting and gums protruding. Molars push themselves out, making way for thread-like needs to fill their spaces. 
+Whites of eyes glowing between black slits, the Sinister Gringo's mouth mouth opens. Cheeks lifting and gums protruding. Molars push themselves out, making way for thread-like needs to fill their spaces.
 
-The female Camazotz yanks Alvaro's head back, offering his throat. Alvaro keeps his smug smirk, even while tears pour past his captors fur. The Sinister Gringo pounces, shoulders rolling; clothes filling out. Alvaro body folds, buckling on itself as the Sinister Gringo leans over him to finish. A few gulp later, he dislodges, his thread-needle-teeth stirring in the night. 
+The female Camazotz yanks Alvaro's head back, offering his throat. Alvaro keeps his smug smirk, even while tears pour past his captors fur. The Sinister Gringo pounces, shoulders rolling; clothes filling out. Alvaro body folds, buckling on itself as the Sinister Gringo leans over him to finish. A few gulp later, he dislodges, his thread-needle-teeth stirring in the night.
 
 "And here I was expecting a different taste from her."
 
 The Sinister Gringo comes closer, getting down on one knee to mock my petrified stance. "Now, now," he summons a napkin from under his sleeve, padding around his greasy mouth. "Here's the deal. Your grandma took something from me a long time ago, and I intend to now get it back."
 
-With a snap of his fingers, the female Camazotz lurches to a crawl. The Sinister Gringo stands, holding out his hand for the bat to nuzzle into. From his index, a geyser of black blood spews out. The Camazotz's tongue, a lanky appendage, laps the fluid into its mouth. 
+With a snap of his fingers, the female Camazotz lurches to a crawl. The Sinister Gringo stands, holding out his hand for the bat to nuzzle into. From his index, a geyser of black blood spews out. The Camazotz's tongue, a lanky appendage, laps the fluid into its mouth.
 
 "You have until Día de los Muertos to give me her body. For each day you don't, a tragedy will befall you and your family."
 
 Dots, bubbles of void, grow at the corners of my sight; amassing; spreading; consuming me whole.
 
-"Three days, Cecilia. Three days." 
+"Three days, Cecilia. Three days."
 
 (TO BE CONTINUED.)
