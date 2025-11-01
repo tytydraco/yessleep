@@ -296,4 +296,4 @@ That soon, you will be set free! Worthy or unworthy, we shall all return to wher
 
 It may not be tonight, or the night after that, or even before the seasons change from fall to winter, or winter to spring—but rest assured, someday, you’ll hear the drums, and you will know to rejoice.
 
-The Horse god’s procession comes at midnight, and soon, we will be [coming for you](https://www.reddit.com/r/InkWielder/comments/1ojp4xa/story_library/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button).
+The Horse god’s procession comes at midnight, and soon, we will be coming [for you](https://www.reddit.com/r/InkWielder/comments/1ojp4xa/story_library/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button).
