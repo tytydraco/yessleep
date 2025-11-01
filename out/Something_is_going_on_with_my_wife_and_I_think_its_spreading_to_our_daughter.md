@@ -53,7 +53,7 @@ She was wearing a long sleeved turtle neck but I could see a hint of stitches st
 
 "I'm really really happy. Do you want to be happy?", her voice was odd, hollow.
 
-"I'm happy as long as I'm with you both", I would hear the quiver in my voice.
+"I'm happy as long as I'm with you both", I could hear the quiver in my voice.
 
 She turned to face me fully then. She still had the odd doll like features, but her eyes.. they were different. It was almost all black, no part of her iris to be seen.
 
