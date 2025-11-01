@@ -47,7 +47,7 @@ I didn’t argue. I dropped my own pack beside him and sat down, stretching my a
 
 “Since a week ago,” he said, flashing a grin. “Figured it might come in handy.”
 
-He handed me the bottle, and I took a long drink. We sat there for a couple of minutes, recharging our energy. Charles ate another protein bar, while I absentmindedly sharpened a stick with my pocketknife. I suddenly became aware that the woods had gone dead silent. The usual background hum of wind, birds, or insects had vanished, leaving only the crunching of Charles’ chewing. If not for that, I might’ve thought I’d been struck deaf.
+He handed me the bottle, and I took a long drink. We sat there for a couple of minutes, recharging our energy. Charles ate another protein bar, while I absentmindedly sharpened a stick with my pocketknife. I suddenly became aware that the woods had gone dead silent. The usual background noise of wind, birds, or insects had vanished, leaving only the crunching of Charles’ chewing. If not for that, I might’ve thought I’d been struck deaf.
 
 That’s when I heard a faint rustle from somewhere behind us.
 
