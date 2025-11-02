@@ -6,11 +6,11 @@ I remember gazing down the lane and seeing it there, crouched and pale and turne
 
 It was a creature. Naked. Humanoid. But not human--the proportions were all wrong, the limbs too long and the shoulders hunched strangely, almost batwing-like. 
 
-But it was too far away, and when I saw it, it saw me. Stood, a giant of thing, and loped off weirdly with a cry. 
+But it was too far away, and when I saw it, it saw me. Stood, a giant of a thing, and loped off weirdly with a mournful cry. 
 
 It was very quiet in my little corner of the city. I remember I stood there for a long time, just watching the place the creature had left empty. Then I decided to follow it.
 
-I followed the sidewalk at first. Managed to catch glimpses of it as it dipped between organdy halls of fog. The big pines on the corner of Susan and St. Paul loomed over everything, watched ominously. 
+I followed the sidewalk at first. Managed to catch glimpses of it as it dipped between organdy halls of breath-blue fog while the big pines on the corner of Susan and St. Paul loomed over everything, watched ominously. 
 
 At last I came to a strange little yard out front of a strange little bungalow house. Vines up every wall, like cobwebs on the windowpanes. The creature had loped through this yard, I'd watched it go, and when I saw that the front door was half open, saw the empty darkness inside, I knew I had to follow.
 
@@ -18,9 +18,13 @@ I followed.
 
 I remember how everything changed when I got inside. How it was all dim gray light, the sickly slow misalignment of time, the way I felt as though I had to struggle through an invisible mire just to move. 
 
-The house was empty. It was silent save the hum of electricity, of ancient wiring in these drab stucco walls. When I looked for portraits of the people who lived here, in the strange little bungalow house with the strange little yard, there were none; in many places I could make out the water stains where portraits used to hang, I saw frames without their photos, and I knew that I was too late for them.
+The house was empty. It was silent save the hum of electricity, of ancient wiring in these drab stucco walls. When I looked for portraits of the people who lived here--moved among the nameless shadows and dim lurid corners--there simply weren't any. In many places I could make out the water stains where portraits used to hang, I saw frames without their photos, and I knew that I was too late for them.
 
-In the den I saw an old TV set but on the thick bowled screen someone had stuck a yellow sticky note with the words scribbled in Sharpie, NO FOUND FOOTAGE OR LOST LITERATURE FROM THE MODS. 
+In the den I saw an old TV set but on the thick glass screen someone had left a manila sticky note that read, 
+
+DON'T WATCH TH
+
+but the last letters were incomprehensible, slid off the page as though abruptly interrupted.
 
 I turned away, feeling seasick. It had already been a million years in this house. Maybe more. The light was blue gray in the windows.
 
@@ -40,11 +44,13 @@ When I walk in slow motion to peer inside, I see a family sitting down at the di
 
 Then I remember the creature. And I am frightened again.
 
-Until I see the girl. She's my age, but I remember thinking she was so pretty. She's laughing and joking with her older sister and brother. Then she looks directly at me.
+Until I see the girl. She's my age, but I remember thinking she was so pretty, laughing and cracking cheesy jokes with her older sister and brother. I feel warm standing here at the outer rim of their pastoral glow, in the residual heat of the warmth she shares with her family. Her father is always making great dad jokes, her sister is taking her driver's test tomorrow.
 
-I realize she can see me.
+Out of nowhere, the girl whirls in her seat and looks directly at me.
 
-Later on she slips away and tells me to come upstairs with her. I do. We go to her room, which is powder blue and bubblegum pink.
+I realize she can see me. I am filled with elation and a bottomless sadness.
+
+Later on she slips away and tells me to come upstairs with her. I do. We go to her room, which is powder blue and bubblegum pink. On the way upstairs I notice the portraits have returned; they seem to glow with a certain inner light.
 
 Am I... Your... Imaginary friend? I ask her. 
 
@@ -54,7 +60,7 @@ Yes. I think that's what you are.
 
 Oh, I say. But my voice is still in slow motion. I feel very much like an imaginary friend. 
 
-What... What is the pale creature, I say. Always crouched and... turned away? 
+What... What is the pale creature? I say. Always crouched and... turned away? 
 
 She says, Oh that? It's a Scudderbilge. 
 
