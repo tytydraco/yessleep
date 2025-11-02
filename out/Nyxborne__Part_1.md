@@ -77,7 +77,7 @@ She pointed to the back and followed me, probably curious or worried. I realized
 
 The D.N.A. emergency line rang long before a gravelly voice answered. “Hello?”
 
-“This is Jason Mcree. Hunter confirmation code K-R double three.”
+“This is Jason. Hunter confirmation code K-R double three.”
 
 “You were supposed to be back five hours ago. Where the hell are you?”
 
@@ -190,4 +190,3 @@ I did as he said, climbing inside and sinking against the wall. The hum of the e
 Another day. Another nightmare. Another monster down.
 
 Sleep finally took me before we hit the main road.
-

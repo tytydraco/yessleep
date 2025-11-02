@@ -332,11 +332,11 @@ The organism pulsed. Heavier. Speaking to him. To all of them. Hundreds as one.�
 
 Slave to a master that wouldn’t have him.  
 
-The converted pressed closer. Breathing as one. I could it now. Everyone linked to the organism. They were its cells. 
+The converted pressed closer. Breathing as one. I could see it now. Everyone linked to the organism. They were its cells. 
 
 “Katie.” 
 
-All their mouths. A wave of sound. Then they shifting. Clearing a path. 
+All their mouths. A wave of sound. Then they shifted. Clearing a path. 
 
 From the sixth ring, Mom stepped forward. 
 
