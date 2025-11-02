@@ -306,7 +306,7 @@ The rock around it seemed to be transforming. Sharp like stalactite. 
 
 The mountain itself was transforming. Becoming something else. 
 
-The townspeople stood in rings around it. Hundreds of them. On different levels. Old mining platforms. Carved ledges. Natural shelves of rock. All facing inward. A congregation. 
+The townspeople stood in rings around it. On different levels. Old mining platforms. Carved ledges. Natural shelves of rock. All facing inward. A congregation. 
 
 Heat shimmered in the air between them and the thing. Like fumes off concrete. They were feeding it warmth. 
 
