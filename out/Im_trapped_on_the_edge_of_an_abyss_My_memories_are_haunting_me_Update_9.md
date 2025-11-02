@@ -1,4 +1,4 @@
-[Original Post](https://www.reddit.com/r/nosleep/comments/1jt33ad/im_trapped_on_the_edge_of_an_abyss_please_help_me/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[All Updates](https://www.reddit.com/user/Ink_Wielder/comments/1oivac5/im_trapped_on_the_edge_of_an_abyss_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 If there was one positive that I could say about my old house, it was the way it so magically amplified the scent of my father’s decadent cooking. Something about the older walls and carpet mixed with the pre-established scents left behind made the smell of searing meat and sauteing vegetables ride the air in a beautiful symphony that made my mouth water. Dad had always been a great chef, especially given the few ingredients that he usually had to work with, and every night it was practically an event when we’d gather around to eat. It wasn’t just the food, though. It was just that tiny moment that me, him and Mom all got to sit and laugh together. Catch up on our days and talk about the week to come.
 

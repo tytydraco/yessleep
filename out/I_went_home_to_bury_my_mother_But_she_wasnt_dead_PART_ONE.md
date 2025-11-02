@@ -120,13 +120,13 @@ I found another letter. Water-damaged, pages stuck together. But readable.
 
 *Sheriff says I'm seeing things. But he's one of them now. Can tell by           the way he breathes. Shallow. Like he's forgotten how.*
 
-*The Hendersons went first. Then the Millers. Then the whole street.*  
+*The Hendersons went first. Then the Millers. Then the whole street.*
 
 *Won't be long before it's my turn.*
 
 I kept reading, unable to stop.
 
-*Saw Dolores next door at 3 AM. Laying in her garden. Naked. Covered in dirt. They're going back down where they shouldn't. I can feel it. The whole street can. Rumbling.* 
+*Saw Dolores next door at 3 AM. Laying in her garden. Naked. Covered in dirt. They're going back down where they shouldn't. I can feel it. The whole street can. Rumbling.*
 
 The letter dropped from my hands. Tears filled my eyes.
 
@@ -363,5 +363,4 @@ I could have sworn I heard that low rumble again. The one from the mountain.
 Closer this time.
 
 \* \* \* \* \*  
-\[PART TWO tomorrow...\]
-
+\[[PART TWO](https://www.reddit.com/r/nosleep/comments/1om3fbp/i_went_home_to_bury_my_mother_but_she_wasnt_dead/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)\]

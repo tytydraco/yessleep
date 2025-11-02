@@ -40,7 +40,7 @@ I lifted my beer and clinked the rim against his.
 
 *“Cheers to that,”* I muttered, raising my glass. Finished the last quarter of my drink in a single hearty gulp, the taste of caramel and fermentation slithering over my tongue.
 
-*“Oh don’t be sensitive. Just… I don’t know, think about it rationally, Bill. The woods all look the same blustering through the wilderness on a snowmobile. You’re probably just forgettin’ which cabins are located where.”*
+*“Oh don’t be sensitive. Just… I don’t know, think about it rationally. The woods all look the same blustering through the wilderness on a snowmobile. You’re probably just forgettin’ which cabins are located where.”*
 
 I shrugged.
 
@@ -160,7 +160,7 @@ Now, I ain't no Hemmingway, but I am perfectly capable of paintin’ a pretty pi
 
 So, moving past the shock and the horror, Yuka and I got to work.
 
-Poured half a bottle of our highest-proof spirit on the wounds, then gave him the rest to drink, which he chugged. Then, we splinted the calf bones using some gnarled sticks and a few scraps of cloth. Meanwhile, Ray was howlin’ at Yuka, berating the kid senseless, and he just took it, panic-stricken and bleary-eyed.
+Poured half a bottle of our highest-proof spirit on the wounds, then gave him the rest to drink, which he chugged. Next, we splinted the calf bones using some gnarled sticks and a few scraps of cloth. Meanwhile, Ray was howlin’ at Yuka, berating the kid senseless, and he just took it, panic-stricken and bleary-eyed.
 
 All he had to say in his defense was:
 
@@ -178,7 +178,7 @@ Wasn’t like him to give *anyone* slack, let alone the kid.
 
 Could have been high on the endorphins, could have been a faint glimmer of the bastard's withered humanity leaking through his broken exterior, but, truthfully, I think it was the setting sun that made him soft. Night was falling, dropping blanket after blanket of black satin over the desolate landscape, and he didn’t feel safe potentially dyin’ an asshole.
 
-Don’t want to be turned away from the pearly gates just for sayin’ a few nasty things you didn’t really mean.
+Don’t want to be turned away from the pearly gates just for sayin’ a few nasty things you didn’t really mean, right? 
 
 We pulled our whimpering, slightly drunk comrade away from the crash and set him at the base of the sloping hill, up against the hull of a massive pine tree. The only snowmobile that was still running was my own, so I proposed I’d travel to the nearest dry village for help, with Yuka stayin’ behind.
 
