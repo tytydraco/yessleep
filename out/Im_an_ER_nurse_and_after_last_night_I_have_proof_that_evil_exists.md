@@ -105,5 +105,3 @@ I didn’t even say anything. I couldn’t. I was too tempted. I would have let 
 So here I am. Sitting behind the steering wheel of my car in the ER parking lot. I don’t know what to do next. Do I go inside and let Emma out? Should I go find Ryan? I don’t know what to do. 
 
 If you don’t hear from me again, it means something awful has happened. And if that’s the case, let the police know that James, the ER nurse from Riverside General is probably dead — or worse. 
-
-[Part 2](https://www.reddit.com/r/nosleep/comments/1olyuwj/im_an_er_nurse_and_after_last_night_i_have_proof/)

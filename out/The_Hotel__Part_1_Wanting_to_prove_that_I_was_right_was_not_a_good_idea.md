@@ -102,11 +102,7 @@ I'm flattered by her trust in me, but I don't deserve it.  
 
 *-“I will protect you of course, but…”*   
 
-
-
 *-“Sorry Alec, it’s not negotiable!”*  
-
-
 
 This is how I ended up with a weekend plan for a one-on-one with Mia.  
 
@@ -436,3 +432,6 @@ Cries. Screams of pain and sadness. Heartbreaking words, which gradually faded a
 Then nothing but the sound of my heart breaking. I wasn't even sure I really had one until today. I don't dare talk to Mia. I can't believe what's happening. Tears are streaming down my face and I hear Mia... her shaky voice.   
 
 *-“What is this… horror…”* 
+
+  
+[Part 2](https://www.reddit.com/r/nosleep/comments/1oml2ux/the_hotel_part_2_everything_seems_empty_here_and/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
