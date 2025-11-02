@@ -100,9 +100,13 @@ They found me three hours north of the city in a tiny town called Esterday. Some
 
 These are things I was told. The police claim I was kidnapped and gone for three weeks. They also claimed the bodies of my captors had been decomposing for at least that long, but I wasn't questioned more on what occurred there, in the Cry House.
 
-I tried to go there, to Esterday. A few days ago. I finally felt ready. 
+I tried to go there, to revisit the tiny town of Esterday. A few days ago. I finally felt ready to face that history which is mine but has for so long felt like some other person's story.
 
-But when I came to the city limits, according to the GPS, there was nothing. There was no Cry House. No town at all.
+And yet, when I came to the city limits, according to the GPS, 
+
+there was nothing. 
+
+There was no Cry House. No town at all.
 
 It doesn't matter, because every night in my dreams, and they're realer than real, I am still there. In the dim empty bungalow house, with the strange little yard out front, way up in the darkened room with Sparrow, and every night the Scudderbilge takes another step closer, another step higher, and soon I will fall asleep to the creature there at the top of the landing, pale and crouched and turned away...
 

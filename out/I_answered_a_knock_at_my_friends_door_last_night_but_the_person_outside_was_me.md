@@ -50,7 +50,7 @@ From the porch came three more knocks—slower this time.
 
 Lila whispered, “What if it’s a prank? What’s that thing called-deepfake or something?”
 
-I shook my head. “He had my clothes. He even—he even talked like me. I don’t think my parents would be able to tell”
+I shook my head. “He had my clothes. He even—he even talked like me. I don’t think my parents would be able to tell.”
 
 The knocks stopped.
 
