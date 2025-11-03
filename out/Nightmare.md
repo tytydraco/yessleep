@@ -1,41 +1,29 @@
-This one is true in the sense that it's a real nightmare that woke me up in a cold sweat just now, chock full of adrenaline. One of many unfortunately. Hopefully typing this one out will help me work through it enough to be comfortable trying to sleep again.
+At the time, I was renting a studio apartment in a new building. Nothing seemed to foreshadow trouble. I lived alone, didn't have many guests, so I lived quietly and didn't bother anyone.
 
-In this dream I recently lost a friend. He was big into nature and animals and I wasn't, but I tagged along for him I guess. One day while in a type of marsh/swampland, the boat took on water for whatever reason and we had to book it. I made it to shore, but he tripped over something in the water. Whatever it was he tripped over, it made short work of him and all I could do was listen in the dark.
+But at night, I was often distracted from sleep by strange noises, as if someone were scraping their fingernails on the radiators. But who knows what's going on in the minds of neighbors.
 
-After the passing of an undisclosed amount of time, I decided to go on a trip. I needed to escape from my own thoughts for a while. I'm driving through this snowy woodland area in the morning and I find myself skidding off the road and getting stuck. Frustrated with my circumstances and still depressed from survivor's guilt, I'm screaming my lungs out and decide to leave the car running for the heat until someone finds me. 
+A bag rustling? Probably just the wind blowing it through a crack in the window. In general, there was an explanation for everything. In fact, I still consider it just a coincidence and nothing more. 
 
-This next part doesn't make sense nature-wise, but dreams never really do, so stick with me.
+I've been tormented by nightmares my whole life, and I've experienced sleep paralysis a dozen times, so these phenomena don't surprise me. But I remember one of my nightmares for the rest of my life.
 
- Evening arrives and I'm awoken by the sound of tapping on the glass. The car is practically dead now, so I don't even bother trying the windows. I get out of the vehicle to greet the stranger. In a real sinister tone of voice he mentions how it seems like I'm stuck out here all alone. 
+I went to sleep on my couch and dreamed that I was lying on my couch, and it was night outside the window. Then I heard a sound as if someone was opening the door with a key, and the door actually opened, and the light came on in the hallway. A girl came in (I had never seen her before in my life), but for some reason, when she came in, I felt so calm. She came up to me, said hello, and lay down next to me, and I lay there content, as if that was how it should be. She started hitting on me, but I turned her down because I hadn't forgotten that I was getting married in a couple of months. She immediately got up and started to leave, saying something about her cat and that she had lived here before me, but fell out of the window when she tried to catch the cat. 
 
-At this time 2 other cars are driving past and pull up next to me, one on each side of my suv. These people look significantly younger, and almost seem like they're returning from a party or small get-together of sorts. 
+She left, slamming the door loudly. So loudly that I woke up. I woke up from a strange feeling on my neck; my chain had slightly squeezed my neck. 
 
-The guy tells me "you're no fun", and asks who else did I call. I responded with a weakly, "everyone."
+I heard the noise from the bag again, so close to the sofa, and thought I'd go and see what was there. I got up and looked at the floor. And there was my chain. I reached for it, but then I remembered that I was wearing it. I even checked with my hand to make sure everything was in place.
 
-The new group gets out and start conversing among themselves and the first guy after speaking with me, trying to assess the situation and figure out how they could help. It's 3 guys and 1 girl, all looking like they could be college students.
+It turns out I wasn't awake, and I realized it in my dream. My body immediately stopped obeying me, and I fell headfirst from the sofa with my eyes open, face down on my chain. And I lay there with my head on my side. And my black cat was walking around the apartment, approaching the radiators, scratching them, chasing the bag.
 
- They're to the right of my car as I'm sitting in the passenger seat listening. My voice is gone from the yelling, and at this point I'm too drained to carry a conversation anyway.
+I was so scared at that moment that I started yelling at the cat to go away.
 
-I'm zoned out looking past the group, until the movement of something large behind their vehicle catches my attention. 
+And now I woke up for real. I woke up with wild screams throughout the apartment.
 
-It's a bear.
+I couldn't fall asleep for a long time, but I finally did. In the morning, I woke up with a huge puddle of sweat on my chest and wet hair. My temperature had risen to 39.8. I was treated at home for two weeks with antibiotics and antipyretics. Nothing helped. And I felt like I was living my last days. I had already said goodbye to everyone in my mind. But I still called an ambulance. The doctors couldn't diagnose me for a week until they found that I had severe liver damage, very close to cirrhosis. 
 
-I tried yelling but I have no voice. At this point it's noticed the group and is moving closer. I unlock the doors of my car and tried to tell "get in" but the words wouldn't come out. In a last ditch effort, I punched the guy immediately to my left and point at the bear, that was now full sprint coming from behind their vehicle. 
+But I don't drink. 
 
-I scrambled over the console and into the driver's seat faintly screaming "get in" while one guy dives into the passenger seat, and another rushes into the back. The other 2 made their way to the car on the left of mine.
+Two years have passed since then, and I still haven't recovered from my illness. Of course, I moved out of that apartment right away, because I had no money left due to my illness.
 
-Unfortunately, the last guy was the farthest away, and promptly had a chunk of his throat bitten out, but was left there on the ground as the bear turned its attention to us. It began pulling on the door handles with its mouth and rocking the car with its weight.
+I am grateful to my parents for living nearby. 
 
-After what felt like an hour of listening to the beast try and fail to get in, we climb into the back and try to wait it out. 
-
-I woke up in the dead of night to see the creepy guy from earlier. Both of our backs are against the walls and we're facing each other, while the third guy lays between us also facing me. He put his finger to his mouth and whispered
-
-"Shhh. It's back."
-
-He pointed behind me, and I heard the sound of bones crunching and flesh being eaten right out of the door. But I couldn't move. I tried to scream but my voice was obliterated and all I could do was cry. I was terrified. It was so quiet that was the only thing I could hear. But that's not what scared me the most.
-
-He was right to say that the bear came back. Standing on its back legs, paws on the glass, gazing into my soul with those black eyes looking right over his shoulder through the window. Still as a statue, not making a sound. Whatever was feasting behind me was a different threat entirely. 
-
-And all I could do was listen in the dark.
-
-This is the part where I woke up sweating with a racing heart.
+I used a translator to write this story. If there are any mistakes, please forgive me. I am Russian.

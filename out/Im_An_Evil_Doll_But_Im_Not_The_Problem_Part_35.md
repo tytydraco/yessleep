@@ -524,3 +524,6 @@ Keep your friends close.
 
 Punch.  
  
+The begining of the end
+
+https://www.reddit.com/r/nosleep/s/xFSkinqctu
