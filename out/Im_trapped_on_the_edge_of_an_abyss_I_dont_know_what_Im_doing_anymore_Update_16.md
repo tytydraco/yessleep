@@ -1,4 +1,4 @@
-[Original Post](https://www.reddit.com/r/nosleep/comments/1jt33ad/im_trapped_on_the_edge_of_an_abyss_please_help_me/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[All Updates](https://www.reddit.com/user/Ink_Wielder/comments/1oivac5/im_trapped_on_the_edge_of_an_abyss_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 Once the shock wore off, the climb back down the cliff face didn’t even register on me. It was all a blur before my blinding red vision. I vaguely remember marching back through the woods, and the harsh, unstable rattle of the catwalk as my boots stormed down it. I remember June’s panicked cries for me to slow down, afraid that I might take the structure clean off the wall, and I remember her frantic worry when I tied a rope over the rail of the catwalk and slid the entire drop down back to the concrete like a fire pole.
 
