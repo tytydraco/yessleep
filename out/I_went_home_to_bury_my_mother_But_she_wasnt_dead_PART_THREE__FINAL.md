@@ -10,7 +10,7 @@ But I couldn’t look away from her. The way she moved. The way her smile pulled
 
 “I missed you so much,” Mom said. She reached for me. I felt her arms wrap around me. And I was a little girl again. Resting my head on her shoulder. My eyes tightened and I began to cry. I didn’t care. “That’s it. That’s my girl. Just let us hold you.” 
 
-I looked up. Past George. High above us -- jutting metallic grey formation catching the dim red light. Galena. Lead ore. The miners called it a silver belly. 
+I looked up. Past George. High above us -- jutting out -- a metallic grey formation catching the dim red light. Galena. Lead ore. The miners called it a silver belly. 
 
 *– the silver belly – where crows turn their back –* 
 
