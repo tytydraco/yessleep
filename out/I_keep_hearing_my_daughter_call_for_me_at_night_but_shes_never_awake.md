@@ -99,3 +99,6 @@ I recoiled the moment my hand touched her. Intense heat radiated from her forehe
 
 
 My daughter was producing enough heat to burn my hand.
+
+
+[Part 2](https://www.reddit.com/r/nosleep/s/H0RKUl23q4)
