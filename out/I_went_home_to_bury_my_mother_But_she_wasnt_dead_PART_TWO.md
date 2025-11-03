@@ -1,4 +1,4 @@
-[PART ONE](https://www.reddit.com/r/nosleep/comments/1ol8ejo/i_went_home_to_bury_my_mother_but_she_wasnt_dead/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+\-- [PART ONE](https://www.reddit.com/r/nosleep/comments/1ol8ejo/i_went_home_to_bury_my_mother_but_she_wasnt_dead/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \--
 
 The cemetery headstones dated back to the 1800s. German names. Irish. Polish. People who came to mine Virginia metals. Mom would lie beside Dad. He'd been down there twenty years.
 
@@ -338,8 +338,6 @@ The converted pressed closer. Breathing as one. I could see it now. Everyone lin
 
 All their mouths. A wave of sound. Then they shifted. Clearing a path. 
 
-From the sixth ring, Mom stepped forward. 
+From the sixth ring, Mom stepped forward.
 
-  
-\[PART THREE tomorrow...\]
-
+\-- [PART THREE](https://www.reddit.com/r/nosleep/comments/1on53h2/i_went_home_to_bury_my_mother_but_she_wasnt_dead/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \--
