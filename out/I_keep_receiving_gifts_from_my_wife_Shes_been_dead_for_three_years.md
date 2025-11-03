@@ -139,6 +139,6 @@ I glanced around for signs of Kate. Her car wasn’t in the driveway.
 
 I’m sitting in my car now, typing this on my phone. 
 
-I’m not sure how to move forward. Part of me wants to tell Isla that her mother’s back. But another wants to keep her safe from whatever Meg has become.
+I’m not sure how to move forward. Part of me wants to tell Isla that her mother’s back. But another wants to keep her safe from whatever my wife has become.
 
 What do I do?
