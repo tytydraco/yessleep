@@ -2,6 +2,8 @@ This is the last time I am going to be writing to you all.
 
 I realise now that there never was an escape.
 
+I'm going to keep this one brief.
+
 It’s waiting for me in the kitchen. There is nowhere left to go, the faces of people I know stare at me through familiar glass. Breath hot against the window. 
 
 When I woke up I was greeted by the sight of my colleagues standing around my house. They haven't done anything yet, I don't suppose they will unless I try to leave. 
@@ -87,3 +89,7 @@ If there is a God, I have questions for you.
 And if there isn't and this is well and truly the end. I hope it's a restful sleep. I can’t even explain how tired I am. 
 
 This is Tyler Wilkins and I bid you all farewell. 
+
+[I’ve been locked inside this warehouse for 42 hours and everyone is missing (part 5)](https://www.reddit.com/r/nosleep/s/Sb8HryU43w)
+
+[I’ve been locked inside this warehouse for 42 hours and everyone is missing (part 1)](https://www.reddit.com/r/nosleep/s/YFxgiXXo1H)

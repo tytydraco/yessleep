@@ -1,0 +1,17 @@
+In England, over 60% of the land is occupied by farms. The farmers grow our crops, our cattle, our ingredients and more, and have been since the beginning of humanity. One of the hundreds of thousands of farms in England is the very one I work at – Old Sims’ Farm.  
+
+I hate working at Old Sims’ Farm. 
+
+There are only three of us committing to the husbandry of the animals, meaning we groom, feed, clean their paddocks, give them their medications or certain injections (thankfully, I’m not legally old enough or qualified to do that) and have to round them up for when they need to move to the next field due to lack of vegetation. It’s honest work, sure, but if it isn’t difficult... 
+
+Don’t get me wrong! I love animals! I have ever since I first began reading picture books about them and being taken to the zoos (even if I did fall asleep in the buggy that one time). A few years ago, I realised my dream wasn’t to be an animator or YouTuber, but to take care of the most beautiful aspect of this shitty world – nature. It’s just that the animals at Old Sims’ Farm aren’t really animals, and the people that work here might not be human. 
+
+I’ll get on with it. The land is cursed. Animals are monsters, and I’m pretty sure the forest itself worships me. It would explain all the random dead rodents on my windowsill, the roots sometimes wrapping around my feet and the patterns on my skin. More on that later.  
+
+Here at the farm, we have a whole collection of weird fucking creatures. Kids with hands (like, baby goats with human hands for hooves), sheep with heads that can split open like some sort of Demogorgon, Shire horses that are way too big and, if you touch them, you tap into their thoughts like a radio. The chickens don’t lay eggs but give birth to live chicks, and pretty much everything reproduces asexually no matter the sex. Yes, even male animals give birth. Laugh all you want, I'm dead serious. The pigs are literally cannibals (although I think that can be said for normal ones), they're bright Barbie pink and they speak perfect English in French accents. Finally, the cows have two heads and stand on their back legs. 
+
+As for the kids, I need to clarify that they shed. They shed everything. Horns, hand-hooves, fur, all the sorts. When the kids get to a certain age, they shed the hands and turn into perfectly normal goats. They’re the least weird thing here, in my opinion. In fact, they’re so sweet once you gain their trust! This one time, I was stressed out of my mind after dealing with the sheep and had to sit down for a while just outside of the paddock, soaked and covered in mud and a little bit of blood (the sheep spray blood from under their tongues to deter predators). The goats have free rein of the farm, and two of them were out of the stables despite the cold and pouring rain. They went up to me, sniffed, rubbed their horns against my shoulder and laid down with me between them like a wet, disgusting sandwich when I gave in and pet them. If only they were intelligent enough to help round up the sheep. Or maybe they are and just don't want to. 
+
+I don’t know why the farm is in this state and I don’t know why I, a lonely teenager, was chosen to work here. All I know is that Old Sims’ Farm is cursed, and I’m stuck in its clutches like a fly in a web. A complex, vast web full of mysteries, misery, malnourishment and mistreatment. And I have nowhere to run. 
+
+My name is Heath, and I hate working at Old Sims' Farm.
