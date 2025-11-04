@@ -1,5 +1,7 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1om6ow7/nyxborne_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/1onzpb1/nyxborne_part_3/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 “We got wind of missing sewer workers a few weeks back,” Nathan held the door for me as we entered the warehouse, “Three solo hunters vanished when we sent them in to see what happened.”
 
 “Any idea what it could be?” Going into a hunt blind was dangerous, obviously.
@@ -129,5 +131,3 @@ I rubbed my face in dismay, “Are you serious? I saved all our asses just now. 
 She jumped back into the water and headed for a tunnel. Jameson looked at me and shrugged. I hated being scolded, but deep down I felt her words touch something in me. Maybe I hid my choice as a tactical decision, but maybe I did run because I was scared. Maybe I didn’t want to rely on them for my safety. I slid off the concrete and wiped the thoughts from my mind.
 
 I followed Jameson down the tunnel as we began to search for a way out of the sewer.
-
-  
