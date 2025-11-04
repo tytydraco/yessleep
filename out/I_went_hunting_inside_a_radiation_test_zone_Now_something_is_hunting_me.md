@@ -66,7 +66,7 @@ Dark brown blood with an awful smell means a gut shot. A gut shot means a quick 
 
 Several beads of blood trailed into the woods. I followed, passing by the warning sign, and stepped into the forest. 
 
-I walked alongside a few more droplets, then the trail cut off. I scanned around, looking for a continuation. The red beam of my headlamp swept across trees that grew into one another, their trunks twisting into hideous formations. In front of me, a maple tree broke out with hundreds of red-capped mushrooms that erupted across its bark out like a rash. 
+I walked alongside a few more droplets, then the trail cut off. I scanned around, looking for a continuation. The red beam of my headlamp swept across trees that grew into one another, their trunks twisting into hideous formations. In front of me, a maple tree broke out with hundreds of red-capped mushrooms that erupted across its bark like a rash. 
 
 Off to the right, I spotted a leaf with several droplets of blood. I crunched in that direction for several yards and hit a second large patch of blood. 
 
