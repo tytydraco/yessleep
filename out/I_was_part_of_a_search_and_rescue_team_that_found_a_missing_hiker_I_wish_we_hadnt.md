@@ -187,19 +187,19 @@ Its torso was emaciated yet unnaturally muscular, sinews flexing under its purpl
 
 Its legs mirrored the arms in their monstrous distortion: thin yet strong. The feet were nightmarish hybrids—high arches, thick leathery soles, elongated toes, each tipped with wicked, curved claws that had scraped and gouged the floor. Veins pulsed beneath the stretched, almost reptilian-like skin, and tufts of coarse hair sprouted along the ankles and shins, connecting to powerful, twisted thighs that seemed ready to spring at any moment.
 
-Yellow eyes fixed on us, nostrils flaring as it sniffed the stagnant air of the cabin, every motion unnervingly predatory. My heart hammered in my chest, each beat deafening in the tense silence. Its upper lip curled back, exposing jagged teeth that gleamed in the dim light of the flashlights. A low, guttural snarl rumbled from deep in its throat, a sound both animal and disturbingly human.
+Yellow eyes fixed on us, nostrils flaring as it sniffed the stagnant air of the cabin, every motion unnervingly predatory. My heart hammered in my chest, each beat deafening in the tense silence. Its upper lip curled back, exposing jagged teeth that gleamed in the dim light of the flashlights. A low pitched snarl rumbled from deep in its throat, a sound both animal and disturbingly human.
 
 Then it lunged.
 
 It zeroed in on Charles first, no doubt seeing the larger man as the greater threat. Charles swung the fire poker with all his strength, but the creature twisted just out of reach. Before he could recover, Kevin slammed into him like a linebacker, sending Charles crashing against the wall with a sickening thud, the flare gun flung from his hands, flying across the cabin space.
 
-I reacted instantly, stabbing forwards with the knife, striking the beast on its upper back. It let out a guttural, pained grunt, staggering for just a moment—but then it retaliated. Its massive claws shot out in an upwards arc, raking across my chest with brutal force. The impact threw me backward, my body hitting the floor with a bone-jarring smack as pain seared through me. The beast then jumped on top of Charles, its massive bulk pinning him to the floor. Its jaws clamped down on his left shoulder with a sickening crunch. Charles screamed, thrashing wildly with the fire poker, striking Kevin in the ribs. A sharp, pained shriek echoed from the creature as it staggered back—but only briefly.
+I reacted instantly, stabbing forwards with the knife, sinking the blade into the beasts upper back. It let out a pained grunt, staggering for just a moment—but then it retaliated. Its massive claws shot out in an upwards arc, raking across my chest with brutal force. The impact threw me backward, my body hitting the floor with a bone-jarring smack as pain seared through me. The beast turned back to face Charles, and jumped on top of the big man, its massive bulk pinning him to the floor. Its jaws clamped down on his left shoulder with a sickening crunch. Charles screamed, thrashing wildly with the fire poker, striking Kevin in the ribs. A sharp, pained shriek echoed from the creature as it staggered back—but only briefly.
 
 Before he could recover, Kevin struck with lightning speed. One of its enormous claws shot down, sinking deep into Charles’s upper stomach. Then, with horrifying ease, it dragged the claws toward the man’s groin, ripping open Charles’s abdomen as effortlessly as unzipping a jacket. Blood sprayed across the floor as Charles cried out, and as if in reply, the thing lifted its head toward the ceiling, letting out an ear-shattering cry of its own. It wasn’t a wolf’s howl—no, it was something far darker, a sound like a person trying to imitate a wolf, twisted and guttural, with a bass that rattled the bones. Then, without warning, it plunged its snout into Charles’s open stomach, greedily slurping and tearing at his innards.
 
 I forced myself upright, every movement sending jagged pain through my ribs—no doubt some were cracked. My eyes locked onto a nearby object: the flare gun, barely a foot away. Salvation, my only chance. Slowly, agonizingly, I inched toward it.
 
-Through my peripheral vision I saw it twist in my direction, drawn to fresh movement, its horse breathing echoing through the room as it fixed on me. My hands closed around the flare gun just as it pounced. Its jaws snapped toward me, aiming for my neck, dripping with blood. Instinct took over—I threw my arm up to protect my throat.
+Through my peripheral vision I saw Kevin twist in my direction, drawn to fresh movement, its horse breathing echoing through the room as it fixed on me. My hands closed around the flare gun just as it pounced. Its jaws snapped toward me, aiming for my neck, dripping with blood. Instinct took over—I threw my arm up to protect my throat.
 
 The creature’s teeth clamped down on my forearm with bone-crushing force. I felt a sharp crack echo through my arm as pain exploded up my shoulder. Panic surged, but there was no time to think—only to act.
 
@@ -209,7 +209,7 @@ It yelped, releasing my arm, and clawed desperately at its eye, trying to remove
 
 Its wails grew louder, a sickening mix of human and beast, echoing off the log walls. Sparks rained down around me as the fire spread, igniting the curtains and scraps of wood. The open doorway loomed ahead—it was now or never. I hobbled forward, each step an effort, and reached the threshold. My hand gripped the doorframe, and I forced myself to glance back one last time.
 
-The place was a hellscape. Charles was on his back, dead. Huge hole in his gut, face twisted in agony, gaze fixed on the now flaming roof. The wolf thing writhed on the floor, thrashing desperately, trying in vain to extinguish the fire that had completely engulfed it now. Its anguished howls echoed through the dark woods, a terrifying symphony of fury and pain.
+The place was a hellscape. Charles was on his back, dead. Huge hole in his gut, face twisted in agony, gaze fixed on the now flaming roof. The wolf thing writhed on the floor, screaming, thrashing desperately, trying in vain to extinguish the fire that had completely engulfed it now.
 
 Smoke curled into the night air as I stepped out, gasping for fresh breath, the scent of burning hair, charred flesh, and popping fat lingering in the air. I only got a couple of feet from the cabin before I fell onto my side. I grunted in pain as I collapsed, rolling onto my back. The night sky stretched endlessly above me, the full moon hanging heavy and ominous, casting pale light over the burning structure.
 
@@ -229,7 +229,7 @@ Whatever Kevin had been inflicted with—disease, curse, I didn’t know—I now
 
  I had to die.
 
-I tried taking matters into my own hands, I found my knife buried in the ruins, I hovered it over my wrists, commanding myself to slash them open, but my body just wouldn’t listen. The thought of hanging came to mind, but regrettably I don’t know know to tie a noose.
+I tried taking matters into my own hands, I found my knife buried in the ruins, I hovered it over my wrists, commanding myself to slash them open, but my body just wouldn’t listen. The thought of hanging came to mind, but regrettably I don’t know how to tie a noose.
 
 In the distance, I heard the steady thrum of helicopter blades cutting through the morning air—a sound that made my heart race with dread. They must have followed the smoke from the hut. I couldn’t be found. I wouldn’t be found.
 
@@ -241,7 +241,7 @@ That’s when I decided to type this out on the satellite phone. The connection�
 
 I have no doubt there will be another full moon tonight. And when it rises, I’ll change—just like Kevin did.
 
-What keeps gnawing at me isn’t the if, but the how. Will I still be in here, enjoying in the carnage I cause? Or will I be shoved into the dark, locked in the passenger seat, forced to watch through the things eyes as I become nothing but hunger and teeth and claws?
+What keeps gnawing at me isn’t the if, but the how. Will I still be in here, enjoying the carnage I cause? Or will I be shoved into the dark, locked in the passenger seat, forced to watch through the things eyes as I become nothing but hunger and teeth and claws?
 
 The waiting is worse than dying.
 

@@ -1,3 +1,7 @@
+# (Title: I Don’t Believe in the Supernatural—But I Do Check My Backseat)
+
+
+
 I wish this could be a boring story. One that you skim over, shrug off, and forget.  
 Hell, I wish I could forget.
 
@@ -193,8 +197,6 @@ We both stayed at the window, even after it was gone.
 “Isn’t your burrito going to burn?” I finally asked.
 
 “Aw, shit,” he muttered, lingering by the window for a second longer before running back to the kitchen.
-
-
 
 I never burn sage like my sister and mother.  
 I don’t ask questions like my dad.  
