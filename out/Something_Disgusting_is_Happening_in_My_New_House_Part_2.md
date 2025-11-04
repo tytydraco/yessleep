@@ -66,7 +66,7 @@ That didn’t put my mind at ease, but I just stayed quiet, keeping everything i
 
 After a moment of awkward silence, Kyle continued, “Looks like he ran as fast as he could in an almost perfect straight line, for a long time. We were able to track his prints for, well I don’t have a tape measure, but about a quarter mile from the house.”
 
-We walked in silence for a long time; the air was cold and the night was oppressive. The little trees that were visible amongst the brush towered over us, like gnarled statues watching our every move against the cold moonlight. Eventually I was able to see the other officer’s flashlight in the darkness in the distance and I heard the K-9 whining, echoing against the night air. Officer Kyle shined his light down to the ground, revealing a sock, once white but now covered in dirt and the black substance. The footprints of dark ooze glistened against the harsh light.
+We walked in silence for a long time; the air was cold and the night was oppressive. The scattered trees that were visible amongst the brush towered over us, like gnarled statues watching our every move against the cold moonlight. Eventually I was able to see the other officer’s flashlight in the darkness in the distance and I heard the K-9 whining, echoing against the night air. Officer Kyle shined his light down to the ground, revealing a sock, once white but now covered in dirt and the black substance. The footprints of dark ooze glistened against the harsh light.
 
 “This is where we found the first article of clothing,” Officer Kyle said. “It seems he began to strip down as he ran. The rest is up ahead.” Kyle continued walking.
 
