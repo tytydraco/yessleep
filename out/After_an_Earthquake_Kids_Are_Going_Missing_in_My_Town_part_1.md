@@ -318,3 +318,4 @@ She looked at me with a fear in her eyes that no nine year old girl should ever 
 
 "Jessie" she said. 
 
+ [Part 2](https://www.reddit.com/r/nosleep/s/4FEkEgcS1D)
