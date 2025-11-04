@@ -1,250 +1,253 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1ol49qt/the_hotel_part_1_wanting_to_prove_that_i_was/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Partie 1](https://www.reddit.com/r/nosleep/comments/1ol49qt/the_hotel_part_1_wanting_to_prove_that_i_was/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
- We didn't sleep. That experience had been traumatic. Those noises, that voice, that atmosphere even once I'd returned, the silence couldn't dissolve their memories. They brought back deeply buried fears, a feeling of pure insecurity. Mia and I remained motionless, separated by a void, absorbed in our thoughts. I tried my best to rationalize, to find reasons, explanations, to the point of doubting I'd heard him. Him, that child, boy or girl, I don't know. I tried to deny from the depths of my being that moment, those words, his distress, his very existence. I failed.
+On n'a pas dormi. Cette expérience, elle avait été traumatisante. Ces bruits, cette voix, cette ambiance même une fois revenu, le silence, il arrivait pas à dissoudre leurs souvenirs. Ils ont ramené des peurs bien enfouies, une sensation d'insécurité pure. Mia et moi, on est restés immobiles, séparés par un vide, absorbés dans nos pensées. J'ai fait de mon mieux pour rationaliser, pour trouver des raisons, des explications, au point de douter de l'avoir entendu. Lui, cet enfant, garçon ou fille, j'en sais rien. J'ai essayé de nier du plus profond de mon être ce moment, ces mots, sa détresse, son existence même. J'ai échoué.
 
-Anguish gripped my throat, I couldn't breathe, every breath painful and in vain. That's when my mind failed me and reality cracked. I saw blood everywhere around me. Then a stab struck me right in the heart. I felt the blade pierce me. The coldness of the metal in my burning flesh. The pain as it sliced ​​my skin, scraped my ribs. Then the tip sank gently into my heart. I felt my blood drip from the wound, my body sinking, my mind shutting down. I felt death, and the dagger withdraw from my heart, cutting more and more flesh.
+L'angoisse m'a pris à la gorge, j'arrivais plus à respirer, chaque souffle douloureux et vain. C'est là que mon esprit m'a lâché et que la réalité s'est fissurée. J'ai vu du sang partout autour de moi. Puis un coup de poignard m'a frappé en plein cœur. J'ai senti la lame me transpercer. La froideur du métal dans ma chair brûlante. La douleur alors qu'elle tranchait ma peau, raclait mes côtes. Puis la pointe s'est enfoncée doucement dans mon cœur. J'ai senti mon sang couler de la blessure, mon corps s'affaisser, mon esprit s'éteindre. J'ai senti la mort, et la dague se retirer de mon cœur, coupant de plus en plus de chair.
 
-An intense pain accompanied by jolts and screams jolted me out of my stupor. Mia had slapped me, hard, so hard that she pulled me from my own death. My cheek burned, it was swollen, I could feel my blood pulsing through it.
+Une douleur intense accompagnée de secousses et de cris m'a sorti de ma torpeur. Mia m'avait giflé, fort, tellement fort qu'elle m'a arraché à ma propre mort. Ma joue brûlait, elle était gonflée, je sentais mon sang pulser à travers.
 
-I was alive.
+J'étais vivant.
 
-*-"What happened?"*
+*-"Qu'est-ce qui s'est passé ?"*
 
-*-"I don't know! You froze, your hands on your chest. You were gripping your fingers so tightly on your t-shirt that their tips turned white! You stared straight ahead with your eyes frozen, empty, your body stiff. I called you, I slapped you, several times, harder and harder, you didn't come back!"*
+*-"J'en sais rien ! Tu t'es figé, les mains sur la poitrine. Tu serrais tellement fort tes doigts sur ton t-shirt que leurs bouts sont devenus blancs ! Tu regardais droit devant avec les yeux figés, vides, le corps raide. Je t'ai appelé, je t'ai giflé, plusieurs fois, de plus en plus fort, tu revenais pas !"*
 
-She spoke quickly. Her voice trembled, oscillating between screams and sobs. Her words broke, and then she broke down in tears. I felt helpless; coming back to reality after what I had felt was trying, but I had to pull myself together for my friend.
+Elle parlait vite. Sa voix tremblait, oscillant entre les cris et les sanglots. Ses mots se brisaient, puis elle s'est effondrée en larmes. Je me sentais impuissant ; revenir à la réalité après ce que j'avais ressenti était éprouvant, mais il fallait que je me reprenne pour mon amie.
 
-*-"I must have had an anxiety attack, I guess. Shit, that was the scariest thing I've ever experienced. I'm sorry.*
+*-"J'ai dû faire une crise d'angoisse, je suppose. Merde, c'était la chose la plus flippante que j'ai jamais vécue. Je suis désolé.*
 
-*-"An anxiety attack? I don't believe it! It looked worse than that!"*
+*-"Une crise d'angoisse ? J'y crois pas ! Ça avait l'air pire que ça !"*
 
-I couldn't tell her about my experience; it was too much for her, and too much for me. Her terror would only have increased. I preferred to change the subject and try to move the discussion forward.
+Je pouvais pas lui raconter mon expérience ; c'était trop pour elle, et trop pour moi. Sa terreur n'aurait fait que s'accroître. J'ai préféré changer de sujet et essayer de faire avancer la discussion.
 
-*"Okay, okay... Um... Listen, everything's fine now, thanks for helping me. Try to calm down. We need to think about what's next? Okay?"*
+*"Ok, ok... Euh... Écoute, tout va bien maintenant, merci de m'avoir aidé. Essaie de te calmer. On doit réfléchir à la suite ? Ok ?"*
 
-*"Okay."*
+*"Ok."*
 
-She didn't look ready for this, I know. I was being harsh and cruel by not taking her emotional state into consideration, but I had no choice. We couldn't just stand there, petrified. We'd already wasted several hours in the nothingness of our minds. We had to move.
+Elle avait pas l'air prête pour ça, je sais. J'étais dur et cruel en ne tenant pas compte de son état émotionnel, mais j'avais pas le choix. On pouvait pas rester là, pétrifiés. On avait déjà gaspillé plusieurs heures dans le néant de nos esprits. Il fallait bouger.
 
 \-----------------------------------------------------------------------------------------------
 
-We decided to talk to the head waiter at the front desk about what happened during the night. If anyone knows what happened, it's definitely him. We were exhausted, but fear kept us awake and alert, so we might as well try to be productive.
+On a décidé d'aller parler au maître d'hôtel à la réception de ce qui s'était passé pendant la nuit. S'il y en a bien un qui sait ce qui s'est passé, c'est lui. On était épuisés, mais la peur nous maintenait éveillés et alertes, alors autant essayer d'être productifs.
 
-We were heading towards the elevator when I spotted her, covered in a white cape, her face hidden by a large hood, crossing the corridor, her heels clicking. I put my hand on Mia's arm to get her attention. She almost screamed when she saw her, so I quickly clapped my hand over her mouth. The woman stopped dead in her tracks; I prayed she wouldn't notice us. She stood there, staring straight ahead at the metallic blue elevator doors. We stood frozen, stopping moving, stopping breathing. I could see some of her facial features in the reflection of the doors; she looked young, but it was hard to be sure; her reflection wasn't clear.
+On se dirigeait vers l'ascenseur quand je l'ai aperçue, couverte d'une cape blanche, le visage dissimulé par une grande capuche, traversant le couloir, ses talons claquant. J'ai posé ma main sur le bras de Mia pour attirer son attention. Elle a failli hurler en la voyant, alors j'ai rapidement posé ma main sur sa bouche. La femme s'est arrêtée net ; j'ai prié pour qu'elle ne nous remarque pas. Elle est restée là, fixant droit devant elle les portes bleues métalliques de l'ascenseur. On est restés figés, arrêtant de bouger, arrêtant de respirer. Je pouvais apercevoir quelques traits de son visage dans le reflet des portes ; elle avait l'air jeune, mais c'était difficile d'en être sûr ; son reflet n'était pas clair.
 
-When the elevator dinged to announce her arrival with a high-pitched "ding," I felt relieved; this unpleasant moment was finally over. I then saw her distorted reflection turn her gaze slightly toward us. She paused, smiled, and then stepped into the elevator. When we heard the doors close, we were finally able to breathe. Both of us, doubled over, catching our breaths as if we'd run a marathon. Mia spoke first.
+Quand l'ascenseur a fait "ding" pour annoncer son arrivée, j'ai ressenti un soulagement ; ce moment désagréable était enfin terminé. J'ai alors vu son reflet déformé tourner légèrement son regard vers nous. Elle a marqué une pause, a souri, puis est entrée dans l'ascenseur. Quand on a entendu les portes se refermer, on a enfin pu respirer. Tous les deux, pliés en deux, reprenant notre souffle comme si on avait couru un marathon. Mia a parlé la première.
 
-*-"She's just a woman, right?"*
+*-"C'est juste une femme, hein ?"*
 
-*-"Obviously..."*
+*-"Évidemment..."*
 
-I heard in my voice that I wasn't so sure of myself anymore.
+J'ai entendu dans ma voix que je n'étais plus si sûr de moi.
 
-*-"So why did we react like that?"*
+*-"Alors pourquoi on a réagi comme ça ?"*
 
-*-"I don't know anything about it."*
+*-"J'en sais rien du tout."*
 
-We took a few minutes to collect our thoughts before continuing on our way.
+On a pris quelques minutes pour se ressaisir avant de continuer notre chemin.
 
-When I got to the elevator, it showed she'd gone down to -2." -2? But the rules forbid the basement, right?" "Indeed... That shouldn't apply to her."
+Quand je suis arrivé à l'ascenseur, il indiquait qu'elle était descendue au -2." -2 ? Mais le règlement interdit le sous-sol, non ?" "En effet... Ça ne devrait pas s'appliquer à elle."
 
-I don't understand what's happening, I feel strange, I have the impression that my body wants to escape, to leave, to run, far away, even if it has to do it without me and leave me here. I was lost. I can't stand being in the dark and there I was totally in the dark.
+Je comprends rien à ce qui se passe, je me sens bizarre, j'ai l'impression que mon corps veut s'échapper, partir, courir, loin, même s'il doit le faire sans moi et me laisser ici. J'étais perdu. J'arrive pas à rester dans le noir et là j'étais totalement dans le noir.
 
-Mia took my hand to reassure me. She had sensed that I was beginning to waver. I'm ashamed of myself, but the feeling of her hand in mine was the most reassuring thing I've ever experienced.
+Mia m'a pris la main pour me rassurer. Elle avait senti que je commençais à vaciller. J'ai honte de moi, mais la sensation de sa main dans la mienne était la chose la plus rassurante que j'ai jamais vécue.
 
-We went down to the lobby. The maître d' was there, at his post, classy and serious. Mia greeted him.
+On est descendus dans le hall. Le maître d'hôtel était là, à son poste, classe et sérieux. Mia l'a salué.
 
-\-" Hello Sir "
+\-" Bonjour Monsieur "
 
-\-"Good morning, Miss, Sir, was your night pleasant?"
+\-"Bonjour Mademoiselle, Monsieur, votre nuit a-t-elle été agréable ?"
 
-*-"Well, to tell you the truth, no. We didn't really sleep. We came here to talk about this. Was there an accident last night or something that would explain the deafening sound of pounding metal that echoed throughout the hotel around 2 a.m.?"*
+*-"Et bien, pour tout vous dire, non. On n'a pas vraiment dormi. On vient ici pour en parler. Y a-t-il eu un accident la nuit dernière ou quelque chose qui expliquerait le bruit assourdissant de métal martelé qui a résonné dans tout l'hôtel vers 2 heures du matin ?"*
 
-*-"Miss, I'm sorry you couldn't sleep last night. But I must say I don't know what you're talking about. Did you hear the sounds of beating metal?"*
+*-"Mademoiselle, je suis désolé que vous n'ayez pas pu dormir la nuit dernière. Mais je dois dire que je ne sais pas de quoi vous parlez. Vous avez entendu des bruits de métal martelé ?"*
 
-His surprised expression with raised eyebrows didn't convince me. It seemed fake. He hadn't cheated on Mia either, who got angry.
+Son expression surprise avec les sourcils levés ne m'a pas convaincu. Ça semblait faux. Il n'avait pas non plus berné Mia, qui s'est énervée.
 
-*-"Yes, extremely loud, really deafening. We can't be the only ones who heard it!"*
+*-"Si, extrêmement fort, vraiment assourdissant. On ne peut pas être les seuls à l'avoir entendu !"*
 
-*-"Please calm down. I'm sorry, miss, no other customer has complained about such noise, and there has been no event that would explain this."*
+*-"Calmez-vous, je vous prie. Je suis désolé, mademoiselle, aucun autre client ne s'est plaint d'un tel bruit, et il n'y a eu aucun événement qui pourrait l'expliquer."*
 
-*"But..."*
+*"Mais..."*
 
-The butler cut him off.
+Le maître d'hôtel l'a coupé.
 
-*-"Miss, perhaps you have experienced one of these paranormal phenomena? Isn't that why you are here?"*
+*-"Mademoiselle, vous avez peut-être subi l'un de ces phénomènes paranormaux ? N'est-ce pas pour ça que vous êtes ici ?"*
 
-His tone had become condescending, almost mocking.
+Son ton était devenu condescendant, presque moqueur.
 
-She had been fooled by her own beliefs, thrown right back in her face. I sensed her frustration as her hand gripped mine tightly. So I took over.
+Elle s'était fait berner par ses propres croyances, renvoyées en pleine figure. J'ai senti sa frustration alors que sa main serrait la mienne fermement. Alors j'ai pris le relais.
 
-*-"You'll excuse me, but it didn't seem like a paranormal phenomenon, it was horrible. There was this voice..."*
+*-"Vous m'excuserez, mais ça ne ressemblait pas à un phénomène paranormal, c'était horrible. Il y avait cette voix..."*
 
-The butler also interrupted me; it was definitely a habit for him. In an authoritarian voice, he rebuffed me.
+Le maître d'hôtel m'a également interrompu ; c'était décidément une habitude chez lui. D'une voix autoritaire, il m'a rabroué.
 
-*-"A voice? Isn't it part of the rules to ignore them?"*
+*-"Une voix ? Ne fait-il pas partie des règles de les ignorer ?"*
 
-*-"But there..."*
+*-"Mais là..."*
 
-*-"Just follow the rules. I'm sorry your night was so disturbed by these famous... phenomena. Unfortunately, there's nothing I can do about it. You knew what to expect; you signed up. If you don't have any further questions, I'll get back to my business. Have a good day."*
+*-"Suivez simplement les règles. Je suis désolé que votre nuit ait été aussi perturbée par ces fameux... phénomènes. Malheureusement, je ne peux rien y faire. Vous saviez à quoi vous attendre ; vous avez signé. Si vous n'avez pas d'autres questions, je vais reprendre mes occupations. Bonne journée."*
 
-I held her back one last time.
+Je l'ai retenue une dernière fois.
 
-*- "Yes, I have another question. What are these "special customers"?*
+*- "Si, j'ai une autre question. C'est quoi ces "clients spéciaux" ?"*
 
-*-"If you don't know, then you shouldn't know."*
+*-"Si vous ne le savez pas, alors vous ne devriez pas le savoir."*
 
-The butler disappeared off to who knows where, leaving us there with even more questions. We weren't hungry, so we skipped breakfast and decided to take a tour of the property.
+Le maître d'hôtel a disparu on ne sait où, nous laissant là avec encore plus de questions. On n'avait pas faim, alors on a sauté le petit-déjeuner et on a décidé de faire le tour de la propriété.
 
-We sat on benches along the tennis court. We lit a cigarette, took a deep drag, and exhaled our frustration into the smoke. 
+On s'est assis sur des bancs le long du court de tennis. On a allumé une cigarette, tiré une grosse latte, et exhalé notre frustration dans la fumée.
 
-*-"Alec... There's no denying that there are indeed some strange things here. But I don't know... how strange... or how dangerous."*
+*-"Alec... On peut pas nier qu'il se passe bel et bien des trucs bizarres ici. Mais je sais pas... à quel point bizarre... ou à quel point dangereux."*
 
-*-"That's true, I don't know. Before, I would have told you that it was a setup to make us believe in all this, in ghosts and paranormal phenomena. That the hotel is playing with mystery. They wouldn't be the first to create devices to create the illusion. But I have to admit, Mia, that even if that's the case, I'm really... uncomfortable, not to say scared... either they're really good, or I'm losing my mind."*
+*-"C'est vrai, je sais pas. Avant, je t'aurais dit que c'était une mise en scène pour nous faire croire à tout ça, aux fantômes et aux phénomènes paranormaux. Que l'hôtel joue avec le mystère. Ils seraient pas les premiers à créer des dispositifs pour créer l'illusion. Mais je dois avouer, Mia, que même si c'est le cas, je suis vraiment... mal à l'aise, pour ne pas dire effrayé... soit ils sont vraiment bons, soit je perds la tête."*
 
-*-"I understand, I'm scared too, now that I have a clear head, I'm perplexed about what's going on here... We should check some phenomena tonight."*
+*-"Je comprends, j'ai peur aussi, maintenant que j'ai les idées claires, je suis perplexe sur ce qui se passe ici... On devrait vérifier quelques phénomènes ce soir."*
 
-A shiver ran down my spine and my body trembled at the thought of spending a second night here.
+Un frisson m'a parcouru l'échine et mon corps a tremblé à l'idée de passer une seconde nuit ici.
 
-*-"I really don't want to go through that again..."*
+*-"J'ai vraiment pas envie de revivre ça..."*
 
-*-"I know, me neither, you know, but we're here and beyond our bet, I have a feeling we really have to find out what's going on here."*
+*-"Je sais, moi non plus, tu sais, mais on est là et au-delà de notre pari, j'ai le sentiment qu'on doit vraiment découvrir ce qui se passe ici."*
 
-*-"Okay, what do you suggest?"*
+*-"Ok, tu proposes quoi ?"*
 
-*-"I brought some equipment. I didn't want to take it out until I was sure it was worth it. Now I have good reasons to do so."*
+*-"J'ai apporté du matériel. Je voulais pas le sortir tant que j'étais pas sûre que ça en valait la peine. Maintenant j'ai de bonnes raisons de le faire."*
 
-So that was what the many suitcases were for. She had planned everything to verify the veracity of the phenomena. Even if she believes in the paranormal, she wouldn't accept being scammed.
+C'était donc à ça que servaient les nombreuses valises. Elle avait tout prévu pour vérifier la véracité des phénomènes. Même si elle croit au paranormal, elle n'accepterait pas de se faire arnaquer.
 
-*-"I should have known. What kind of equipment did you bring with you?"*
+*-"J'aurais dû m'en douter. Quel genre de matériel tu as ramené avec toi ?"*
 
-She looked around, checking that no one was listening. She was being cautious. We didn't know what was really going on here, and the maître d's answers made us feel that any questioning was impossible; he just had to refer us to the rules. Everything was done to prevent us from searching... or rather, from finding.
+Elle a regardé autour d'elle, vérifiant que personne n'écoutait. Elle était prudente. On ne savait pas ce qui se passait vraiment ici, et les réponses du maître d'hôtel nous donnaient le sentiment que tout questionnement était impossible ; il suffisait qu'il nous renvoie aux règles. Tout était fait pour nous empêcher de chercher... ou plutôt, de trouver.
 
-*-"I have several devices like sound recorders, temperature and magnetic field sensors, cameras obviously with infrared vision. Everything a ghost hunter could bring, the basics."*
+*-"J'ai plusieurs appareils comme des enregistreurs sonores, des capteurs de température et de champ magnétique, des caméras évidemment avec vision infrarouge. Tout ce qu'un chasseur de fantômes pourrait apporter, la base."*
 
-*-"The base? Obviously... It's great Mia, normally I would have certainly laughed, but now I have to say I'm glad you brought all this."*
+*-"La base ? Évidemment... C'est génial Mia, normalement j'aurais certainement rigolé, mais là je dois dire que je suis content que tu aies apporté tout ça."*
 
-I started to laugh, a nervous little laugh. I had released some of the pressure. I offered.
+J'ai commencé à rire, un petit rire nerveux. J'avais relâché un peu de pression. J'ai proposé.
 
-*-"We should walk around the hotel to see if we notice anything."*
+*-"On devrait se balader dans l'hôtel pour voir si on remarque quelque chose."*
 
-\- *"What are we looking for?"*
+\- *"On cherche quoi ?"*
 
-*-"Honestly? No idea... but we have nothing better to do, and we'll know what we're looking for when we find it. I think that's the reply of any good adventurer of the unknown."*
+*-"Franchement ? Aucune idée... mais on a rien de mieux à faire, et on saura ce qu'on cherche quand on l'aura trouvé. Je crois que c'est la réplique de tout bon aventurier de l'inconnu."*
 
-Mia started laughing and approved of my idea, so we started walking around the hotel.
+Mia a éclaté de rire et a approuvé mon idée, alors on a commencé à se balader dans l'hôtel.
 
-The surroundings were surrounded by fences and very high hedges, which separated us from the forest. It was like a huge green wall that prevented us from entering an even larger labyrinth. There was no one overlooking us.
+Les alentours étaient entourés de clôtures et de très hautes haies, qui nous séparaient de la forêt. C'était comme un immense mur vert qui nous empêchait de pénétrer dans un labyrinthe encore plus grand. Il n'y avait personne pour nous surveiller.
 
-The tennis court and swimming pool were perfectly clean, new, and empty, but that wasn't particularly surprising given the time of year. No scratches, no wear, always that perfection. They looked as if they had never been used, as if there was no life in them.  
-I felt as if I were visiting a life-size model, crafted with disturbing realism.  
-I also noticed the silence: the only sound I could hear was our footsteps in the gravel. Not a bird, not even a breath of wind in the leaves.  
-Silence. Emptiness. I shared my impressions.
+Le court de tennis et la piscine étaient parfaitement propres, neufs et vides, mais ce n'était pas particulièrement surprenant vu la période de l'année. Pas d'égratignures, pas d'usure, toujours cette perfection. Ils avaient l'air de n'avoir jamais été utilisés, comme s'il n'y avait aucune vie en eux.  
+J'avais l'impression de visiter une maquette grandeur nature, fabriquée avec un réalisme troublant.  
+J'ai aussi remarqué le silence : le seul bruit que j'entendais était celui de nos pas dans le gravier. Pas un oiseau, pas même un souffle de vent dans les feuilles.  
+Le silence. Le vide. J'ai partagé mes impressions.
 
-*-"We are totally isolated, and this place really gives the impression of being..."*
+*-"On est totalement isolés, et cet endroit donne vraiment l'impression d'être..."*
 
-*-"An anomaly? The feeling of not being in our place... As if it's no one's place..."*
+*-"Une anomalie ? La sensation de ne pas être à notre place... Comme si ce n'était la place de personne..."*
 
-We walked along the fence that marked the boundary of the property until we reached the back of the hotel. There, the mountain loomed, massive, barely separated from the building. As we approached, we realized: the rear facade was invisible. It was fused into the rock. The hotel seemed to spring from the mountain, as if it were part of it. No passage, no possible access. Yet, judging by the hotel's interior structure, and the corridors that formed a perfect square on our floor, something was amiss. Mia, too, seemed to understand the problem.
+On a longé la clôture qui délimitait la propriété jusqu'à arriver à l'arrière de l'hôtel. Là, la montagne se dressait, massive, à peine séparée du bâtiment. En nous approchant, on a compris : la façade arrière était invisible. Elle était fusionnée dans la roche. L'hôtel semblait jaillir de la montagne, comme s'il en faisait partie. Pas de passage, pas d'accès possible. Pourtant, à en juger par la structure intérieure de l'hôtel, et les couloirs qui formaient un carré parfait à notre étage, quelque chose clochait. Mia, elle aussi, semblait avoir compris le problème.
 
-*-"One side of the hotel doesn't have any windows? On all floors? We didn't go look in the back corridor, are there any rooms on that side? We'll have to check."*
+*-"Un côté de l'hôtel n'a pas de fenêtres ? Sur tous les étages ? On n'est pas allés voir dans le couloir arrière, y a-t-il des chambres de ce côté ? Il va falloir vérifier."*
 
-*-"Yes, you're right. The woman in white was coming from that direction earlier if I remember correctly. There are rooms without windows? This is crazy! Everything is perfectly symmetrical in this damn hotel! And there would be such an aberration! Impossible!"*
+*-"Oui, tu as raison. La femme en blanc venait de cette direction tout à l'heure si je me souviens bien. Y a des chambres sans fenêtres ? C'est dingue ! Tout est parfaitement symétrique dans cet hôtel de merde ! Et il y aurait une telle aberration ! Impossible !"*
 
-I refused to believe this nonsense, but I had no explanation. I felt fucking stupid at that moment, my ego suffered, and it didn't like that at all. We continued to wander around the hotel. We still hadn't seen another guest since the evening of our arrival, yet the parking lot was still full. Alone outside, we took the opportunity to look inside the cars. It was disturbing; it too was clean, empty, with no apparent life. Again.
+Je refusais de croire à ces conneries, mais je n'avais aucune explication. Je me sentais putain de con à ce moment-là, mon ego en a souffert, et il n'aimait pas ça du tout. On a continué à errer autour de l'hôtel. On n'avait toujours pas vu un autre client depuis le soir de notre arrivée, pourtant le parking était toujours plein. Seuls dehors, on a profité de l'occasion pour regarder à l'intérieur des voitures. C'était troublant ; lui aussi était propre, vide, sans vie apparente. Encore.
 
-Back in our room, Mia unpacked all her "ghost hunting" gear; she was pretty well equipped. She then pitched me an idea.
+De retour dans notre chambre, Mia a déballé tout son attirail de "chasse aux fantômes" ; elle était plutôt bien équipée. Elle m'a ensuite lancé une idée.
 
-*-"It's almost noon, we're going to eat at the hotel restaurant for the first time. Since we can't go there in the evening, I'm thinking of hiding a voice recorder there. We'll get it back the next day; there might be some interesting conversations to listen to."*
+*-"Il est presque midi, on va manger au restaurant de l'hôtel pour la première fois. Puisqu'on ne peut pas y aller le soir, je pense à y cacher un enregistreur vocal. On le récupérera le lendemain ; il pourrait y avoir des conversations intéressantes à écouter."*
 
-*-"They seem to maintain the hotel really well. I wouldn't be surprised if they could clean the table and chair every day, even several times. He might find it."*
+*-"Ils ont l'air d'entretenir vraiment bien l'hôtel. Je serais pas surpris qu'ils puissent nettoyer la table et la chaise tous les jours, voire plusieurs fois. Il pourrait le trouver."*
 
-*-"That's true, but... I'll try anyway. My device is very discreet, with a bit of luck it will go unnoticed. We'll also meet the "special clients"! See if they exist."*
+*-"C'est vrai, mais... je vais essayer quand même. Mon appareil est très discret, avec un peu de chance il passera inaperçu. On va aussi rencontrer les "clients spéciaux" ! Voir s'ils existent."*
 
-*-"Okay, I'll follow you."*
+*-"Ok, je te suis."*
 
-We had nothing to lose after all. I wasn't very hungry between the fatigue and the discomfort this place made me feel, but you don't fight on an empty stomach, do you?
+On avait rien à perdre après tout. J'avais pas très faim entre la fatigue et le malaise que cet endroit me faisait ressentir, mais on ne se bat pas le ventre vide, non ?
 
 \----------------------------------------------------------------------------------------------
 
-The restaurant mirrored the rest of the establishment, with round wooden tables perfectly aligned in three rows, impeccably set. The same symbol as in the entrance hall adorned the restaurant's floor, and large windows placed high up allowed natural light. It was a surprising choice, but ecologically sound. I imagine.
+Le restaurant était le miroir du reste de l'établissement, avec des tables rondes en bois parfaitement alignées en trois rangées, impeccablement dressées. Le même symbole que dans le hall d'entrée ornait le sol du restaurant, et de grandes fenêtres placées en hauteur laissaient entrer la lumière naturelle. C'était un choix surprenant, mais écologiquement correct. J'imagine.
 
-The very high ceiling had a large rectangular platform in the center. As I looked closer, I noticed that there was a mechanism to lower it. I preferred not to imagine what it might be used for.
+Le plafond très haut avait une grande plateforme rectangulaire au centre. En regardant de plus près, j'ai remarqué qu'il y avait un mécanisme pour l'abaisser. J'ai préféré ne pas imaginer à quoi ça pouvait servir.
 
-When we entered, the room was full. All the customers, as one, froze. Their heads turned toward us, synchronized, like a giant pack of meerkats. A heavy silence fell, they stared at us expressionlessly, their gazes blank. So there are indeed special customers...
+Quand on est entrés, la salle était pleine. Tous les clients, comme un seul homme, se sont figés. Leurs têtes se sont tournées vers nous, synchronisées, comme un gigantesque groupe de suricates. Un lourd silence est tombé, ils nous fixaient sans expression, leurs regards vides. Alors il y a bien des clients spéciaux...
 
-We walked between the tables, to sit in the only available place. The center.
+On a marché entre les tables, pour s'asseoir à la seule place disponible. Le centre.
 
-Once seated, the restaurant came back to life and customers started eating again.
+Une fois assis, le restaurant a repris vie et les clients ont recommencé à manger.
 
-*-"Charming welcome."*
+*-"Charmant accueil."*
 
-I whispered to Mia.
+J'ai chuchoté à Mia.
 
-*-"Yes, and a little... scary."*
+*-"Oui, et un peu... flippant."*
 
-*-"I had the same feeling."*
+*-"J'ai eu la même sensation."*
 
-Everyone in the restaurant had good manners, seemed wealthy and important. The men wore suits, the women beautiful dresses. We were almost embarrassing in our jeans and sweaters. There were no children, yet the clientele was young, in their thirties on average. I tried to strain my ears, to listen a little to the conversations of the other tables. In vain. I couldn't understand anything. They were all speaking in a language I didn't understand and didn't recognize. It sounded strange.
+Tout le monde dans le restaurant avait de bonnes manières, semblait riche et important. Les hommes portaient des costumes, les femmes de belles robes. On était presque gênants dans nos jeans et nos pulls. Il n'y avait pas d'enfants, pourtant la clientèle était jeune, dans la trentaine en moyenne. J'ai essayé de tendre l'oreille, d'écouter un peu les conversations des autres tables. En vain. Je n'arrivais à rien comprendre. Ils parlaient tous une langue que je ne comprenais pas et que je ne reconnaissais pas. Ça sonnait bizarre.
 
-I tried to speak in a low voice as much as possible, because if we didn't understand their words, it didn't mean that they didn't understand us.
+J'ai essayé de parler à voix basse autant que possible, car si on ne comprenait pas leurs mots, ça ne voulait pas dire qu'ils ne nous comprenaient pas.
 
-\- *"I've been thinking about some other strange things, we should check in outside after we eat. I don't feel like talking freely here."*
+\- *"J'ai réfléchi à d'autres trucs bizarres, on devrait vérifier dehors après qu'on ait mangé. J'ai pas envie de parler librement ici."*
 
-She nodded in agreement.
+Elle a hoché la tête en signe d'accord.
 
-I felt watched, some customers glanced over at our table, looking at me or at Mia, and nodding or waving in our direction. We were surrounded, watched, and certainly the topic of conversation at every table.
+Je me sentais observé, certains clients jetaient des regards vers notre table, en me regardant ou en regardant Mia, et en hochant la tête ou en faisant un signe de la main dans notre direction. On était entourés, observés, et certainement le sujet de conversation à chaque table.
 
-   A waiter, in a very chic uniform, black trousers and shirt, vest and red bow tie. The menu included refined dishes whose names gave no clue as to what they were made of, but also, fortunately, more classic dishes. We ordered a hamburger and fries and ate in silence.
+   Un serveur, dans un uniforme très chic, pantalon et chemise noirs, gilet et nœud papillon rouges. Le menu comprenait des plats raffinés dont les noms ne donnaient aucun indice sur ce dont ils étaient faits, mais aussi, heureusement, des plats plus classiques. On a commandé un hamburger et des frites et on a mangé en silence.
 
-  Mia stood up.
+  Mia s'est levée.
 
-*-"I need to go to the bathroom, I'll be right back, okay?"*
+*-"Je dois aller aux toilettes, je reviens tout de suite, ok ?"*
 
-I was surprised, and the idea of ​​being alone didn't appeal to me, but I wasn't going to stop it.
+J'ai été surpris, et l'idée d'être seul ne m'enchantait pas, mais je n'allais pas l'en empêcher.
 
-*-"Of course."*
+*-"Bien sûr."*
 
-I watched him walk away toward the bar. The waiters were carefully polishing their cutlery and glasses. Mia pressed herself against the counter, on tiptoe. It must be said that she's not particularly tall. She called out to one of the waiters, probably to ask for directions to the restrooms, since he gestured to show her.
+Je l'ai regardée s'éloigner vers le bar. Les serveurs polissaient soigneusement leurs couverts et leurs verres. Mia s'est collée contre le comptoir, sur la pointe des pieds. Il faut dire qu'elle n'est pas particulièrement grande. Elle a interpellé un des serveurs, probablement pour lui demander le chemin des toilettes, puisqu'il lui a fait un geste pour lui indiquer.
 
-When she returned, we left the restaurant without dessert. Unlike our starter, no one seemed to notice our departure. I was holding the restaurant door for Mia like a good gentleman when I heard her.
+Quand elle est revenue, on a quitté le restaurant sans dessert. Contrairement à notre entrée, personne ne semblait avoir remarqué notre départ. Je tenais la porte du restaurant à Mia comme un bon gentleman quand je l'ai entendue.
 
-***-*** *"Waiter please!"*
+***-*** *"Garçon s'il vous plaît !"*
 
-I turned around, surprised. I'd figured it out. The bastard had spoken our language. I caught his eye; his arm was raised to get noticed by the restaurant employee. The entire room fell silent and stared at me. Mia had left the restaurant, and I felt like prey spotted by a nest of predators. The man started speaking that strange language again, and the entire room did the same. Am I hallucinating? Is it just me, or do they all think we're fuking idiots?
+Je me suis retourné, surpris. J'avais compris. Le bâtard avait parlé notre langue. J'ai croisé son regard ; son bras était levé pour se faire remarquer par l'employé du restaurant. La salle entière s'est tue et m'a fixé. Mia avait quitté le restaurant, et je me sentais comme une proie repérée par un nid de prédateurs. L'homme a recommencé à parler cette langue étrange, et toute la salle a fait de même. Je suis en train d'halluciner ? C'est moi, ou ils pensent tous qu'on est des putains d'idiots ?
 
-Once back in the room, we debrief.
+Une fois de retour dans la chambre, on fait le débrief.
 
-*-"Did you manage to install your device?"*
+*-"T'as réussi à installer ton appareil ?"*
 
-*- "Yes, I did it. I used some tape putty. The recorder is light so it won't fall over. I installed it under the bar counter. If I put it under our table and someone found it, they would immediately know it was us."*
+*- "Oui, j'ai fait ça. J'ai utilisé de la pâte adhésive. L'enregistreur est léger donc il ne tombera pas. Je l'ai installé sous le comptoir du bar. Si je l'avais mis sous notre table et que quelqu'un l'avait trouvé, ils auraient tout de suite su que c'était nous."*
 
-*-"Great! I can't wait to hear what happens in the evening. Speaking of hearing, did you recognize the language they were all speaking?"*
+*-"Génial ! J'ai hâte d'entendre ce qui se passe le soir. En parlant d'entendre, t'as reconnu la langue qu'ils parlaient tous ?"*
 
-*-"No, not at all, it was strange, it sounded like Latin but it wasn't. In any case, it sounded like a dead language, something ancient. If he speaks like that on the recorder, we could perhaps do voice recognition with an internet translator."*
+*-"Non, pas du tout, c'était bizarre, ça ressemblait au latin mais ça n'en était pas. En tout cas, ça ressemblait à une langue morte, quelque chose d'ancien. S'il parle comme ça sur l'enregistreur, on pourrait peut-être faire de la reconnaissance vocale avec un traducteur internet."*
 
-*-"Yeah, it's still creepy, isn't it? That all the customers speak the same language."*
+*-"Ouais, c'est quand même flippant, non ? Que tous les clients parlent la même langue."*
 
-*-"That's true. Perhaps one of the conditions for being a special client?"*
+*-"C'est vrai. Peut-être une des conditions pour être un client spécial ?"*
 
-*-"Sure. Did you hear him too? The man who spoke our language when we left?"*
+*-"Sûrement. Tu l'as entendu aussi ? L'homme qui a parlé notre langue quand on est sortis ?"*
 
-*-"No, what did he say?"*
+*-"Non, il a dit quoi ?"*
 
-*-"Nothing interesting," he called the waiter. "But in our language, I'm sure they can all speak it."*
+*-"Rien d'intéressant, il a appelé le serveur. Mais dans notre langue, je suis sûr qu'ils peuvent tous la parler."*
 
-When we arrived at the hotel, one detail had struck me, but at the time I didn't think it was of any importance. Now that we had experienced all these events in barely 24 hours, I had changed my mind and decided to talk to Mia about it.
+Quand on est arrivés à l'hôtel, un détail m'avait frappé, mais sur le moment je n'avais pas pensé que ça avait une quelconque importance. Maintenant qu'on avait vécu tous ces événements en à peine 24 heures, j'avais changé d'avis et j'ai décidé d'en parler à Mia.
 
-*-"Did you notice, when we were given the room key, that there were different colored keys?"*
+*-"T'as remarqué, quand on nous a donné la clé de la chambre, qu'il y avait des clés de couleurs différentes ?"*
 
-\-"Really ?"
+\-"Vraiment ?"
 
-\- *"We got a blue key. I know it's weird, but on the key board, there were some blue ones and some red ones. You'd think each floor had its own color, but that's not the case, and they're also different in their shapes. There were plenty of blue keys available, but there were almost no red keys left."*
+\- *"Nous, on a eu une clé bleue. Je sais que c'est bizarre, mais sur le porte-clés, il y avait des bleues et des rouges. On aurait dit que chaque étage avait sa propre couleur, mais c'est pas le cas, et elles sont aussi différentes dans leurs formes. Il restait plein de clés bleues, mais il restait presque plus de clés rouges."*
 
-*-"You think "special customers" are in the rooms with the red key, if I understand correctly?"*
+*-"Tu penses que les "clients spéciaux" sont dans les chambres avec la clé rouge, si j'ai bien compris ?"*
 
-*-"Yes, that's what I think. These rooms must be different from ours."*
+*-"Oui, c'est ce que je pense. Ces chambres doivent être différentes des nôtres."*
 
-*-"Alec... At the restaurant there were only "special customers", I had started to consider it but I hoped that wasn't the case. That means we are the only two people here who aren't special."*
+*-"Alec... Au restaurant il n'y avait que des "clients spéciaux", j'avais commencé à l'envisager mais j'espérais que ce ne soit pas le cas. Ça veut dire qu'on est les deux seules personnes ici qui ne sont pas spéciales."*
 
-*-"I'm not sure. There are a few blue keys missing besides ours. But I'm like you, I haven't seen anyone else like us. So where are they?* 
+*-"J'en suis pas sûr. Il manque quelques clés bleues en plus de la nôtre. Mais je suis comme toi, j'ai vu personne d'autre comme nous. Alors ils sont où ?*
+
+  
+[Part 3](https://www.reddit.com/r/nosleep/comments/1oob42v/the_hotel_part_3_im_missing_something_and_she/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
