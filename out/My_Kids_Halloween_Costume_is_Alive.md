@@ -110,18 +110,18 @@ Despite my trepidation, I fake-laughed, hoping to lighten the mood, then I gathe
 
   
 
-Work was hectic. I spent all day doing maintenance – which in itself is a nightmare – so I was busy, busy, busy. That afternoon, I received a platoon of texts from Amy, who runs their daycare. Fortunately (or unfortunately, depending on how you look at it), I was too busy to check my phone, so I didn’t read them until I was parked in her driveway. And by then, it was too late.
+Work was hectic. I spent all day doing maintenance – which in itself is a nightmare – so I was busy, busy, busy. That afternoon, I received a platoon of texts from Amy, their babysitter. Fortunately (or unfortunately, depending on how you look at it), I was too busy to check my phone, so I didn’t read them until I was parked in her driveway. And by then, it was too late.
 
  
 
-When I entered the daycare, I smelled feces. No wonder. It was spread across the living room walls, like chunky brown paint. I  gagged.
+When I entered her home, I smelled feces. No wonder. It was spread across the living room walls, like chunky brown paint. I  gagged.
 
  
 
 Amy was red-faced and furious. “DO SOMETHING ABOUT THAT BOY!”
 
 
-The boy was chasing kids around the house, throwing poop at them. The kids seemed terrified. 
+The boy was chasing some kid around the house, throwing poop at him. The kid seemed terrified. 
 
  
 
@@ -132,7 +132,7 @@ Edith rushed over and hugged me; her face was withered from bawling.   
 “Daddy,” she sniffled, “Nick is being bad.”   
 
 
-Nick – still in his robot costume – had some poor kid in a full-nelson (a wrestling move he’d recently learned). He picked the kid up over his head and started spinning him. The poor kid was wailing. 
+Nick – still in his robot costume – had the kid in a full-nelson (a wrestling move he’d recently learned). He picked the kid up over his head and started spinning him. The poor kid was wailing. 
 
 
 “Nick!” I shouted. “Knock it off!”  
@@ -145,7 +145,7 @@ The robot-boy growled, “Do NOT touch me again.” His eyes were blinking non-s
 
   
 
-“Pardon me?” I was furious. Before he could reply, I picked him up over my shoulder and carried him to the door, despite the dripping kid-crap. Everyone applauded, especially Amy, who was completely disheveled.   
+“Pardon me?” I was furious. Before he could reply, I picked him up over my shoulder and carried him to the door, despite the poop leaking from his hands. 
 
   
 
@@ -157,7 +157,7 @@ The shocks came like rapid fire – ZAP, ZING, ZOING. Every nerve in my body was
 
   
 
-The drive home felt like forever. Nick wouldn’t let up: he insulted me, his sister, the kids at school, the kids at daycare, and especially Amy, who had the audacity to scold him. 
+The drive home felt like forever. Nick wouldn’t let up: he insulted me, his sister, the kids at school, the kids at the babysitters, and especially Amy, who had the audacity to scold him. 
 
 
 I sent him to his room.   
@@ -234,7 +234,7 @@ Later that night, I dreamed the robot-boy murdered the entire neighborhood. The 
 
   
 
-I was up at the crack of dawn, preparing a special Halloween breakfast for the kids. (Thankfully, the power was back on.) Their school was closed for the day, and I didn’t dare bring them back to Amy’s, so I took the day off work. I had them all to myself.   
+I was up at the crack of dawn, preparing a special Halloween breakfast for the kids. (Thankfully, the power was back on.) Their school was closed for the day (PA Day), and I didn’t dare bring them back to Amy’s, so I took the day off work. I had them all to myself.   
 
   
 
