@@ -2,6 +2,8 @@
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/1onzpb1/nyxborne_part_3/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
+[Part 4](https://www.reddit.com/r/nosleep/comments/1oox59j/nyxborne_part_4/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 The sunlight bleeding through the blinds dragged me out of what little sleep I’d managed to get. Morning again. I stared at the ceiling for a few seconds before forcing myself to sit up. My body wanted more rest, but the world wasn’t gonna wait. Stay still too long, and something out there catches up.
 
 The cabin sat deep in the woods, far from towns, roads, and people. I built it myself after a few years of hunting. Quiet, sturdy, and mine. I’d earned it after my first job for the Department of Nocturnal Affairs. The payout was big enough to disappear, and that’s exactly what I did. Out here, the noise dies before it reaches the trees. No phones. No neighbors. Just me and the wind.
