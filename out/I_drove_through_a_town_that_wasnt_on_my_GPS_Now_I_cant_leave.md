@@ -1,4 +1,4 @@
-I’ve been working the same job for six years and haven’t missed a single day. Not one. When my boss told me to take two weeks off before I burned out completely, I didn’t argue. I packed my bag that night, threw it in the back seat, and left before sunrise.
+I’ve been working the same job for six years and haven’t missed a single day. Not one. When my boss told me to take two weeks off before I burned out completely, I didn’t argue. I’d already been a dick yo all my co-workers the last month. I packed my bag that night, threw it in the back seat, and left before sunrise.
 
 I hadn’t taken a real vacation since college. The plan was simple—drive a few states over, visit my parents, clear my head, and remind myself that life existed outside fluorescent lights and inbox notifications.
 
