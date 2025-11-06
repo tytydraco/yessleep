@@ -123,3 +123,5 @@ When I finally pulled into a gas station, the world looked normal again. Real su
 My lock screen had changed. It was a photo of me, standing in front of the diner. Only this time, I wasn’t smiling.
 
 Behind me, through the window, I could see the other version of myself sitting at the counter, waving.
+
+I kept thinking about him—the other me. The one who walked down the street like he’d been born there. He moved with this calm, unhurried ease, smiling when people called his name, laughing at things I couldn’t hear. The way Edna leaned toward him at the diner window, the way Hank clapped him on the shoulder—it was all so natural, like it had always been that way. I realized then that the town hadn’t been trying to keep me there. It had been trying to make me there. Each loop, each morning, every detail it learned about me was just another stitch, sewing me into its memory until I belonged. And now that it had what it wanted, I can’t stop thinking about why.
