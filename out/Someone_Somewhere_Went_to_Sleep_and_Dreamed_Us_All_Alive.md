@@ -20,7 +20,7 @@ We don't need to take this. We don't need to justify our existence straddling tw
 
 Last time. Last time I made a small mistake. 
 
-Last time I went to the window and the window was open and that meant to go downstairs the curtains were breathing in the white-solar breeze like shredded white flags and there were creatures in the crab apple tree watching us wretched ones with perfect eyes perfect souls always hungry though for the schism of the waking dream when body stills and mind reiterates into the liminal place the between and I went downstairs into the toolshed and there was the ax and there were the bright ones behind the shed watching urging
+(Last time I went to the window and the window was open and that meant to go downstairs the curtains were breathing in the white-solar breeze like shredded white flags and there were creatures in the crab apple tree watching us wretched ones with perfect eyes perfect souls always hungry though for the schism of the waking dream when body stills and mind reiterates into the liminal place the between and I went downstairs into the toolshed and there was the ax and there were the bright ones behind the shed watching urging)
 
 "Are you safe right now?" That's what the good doctor asked me next. In that so-over-this-shit tone of the professionally inclined.
 
@@ -84,11 +84,17 @@ I told them that it--it being this creature with goat eyes crouched in the corne
 
 I'm in my hospital room at this moment. It's like a nightmare in here. People mutilated, shrieking, everywhere the cry of the wounded. The ambulance plowed right through a crowd, they told me.
 
-But all of this is true, and a time is coming when the great dream of us is unspooled from the center, unwound from time. And the true nature of our terrible reality--unceasing entropy--will be revealed to all. 
+(In this world right now yes in this very world right now there exists a being from outside the dream that is our shared mind the oneness the brahma that we call consciousness and when this critter critter critter crawls crawling through the crag the clayey clay of creation and at long last it finds a seam it will nay it must unseam that seam and split the world wide open yes an apocalypse a cosmic abortion the beginning of when it all ends)
 
-As for my shredded ankles, there was no major loss of blood. Which the doctors, the good doctors, agreed was completely impossible.
+But all of this is true, and a time is coming when the great dream of us is unspooled from the center, unwound from time. And the true nature of our terrible reality--unceasing entropy--will be revealed to everyone.
+
+Yes, I will survive. As for my shredded ankles, there was no major loss of blood. Which the doctors, the good doctors, agreed was completely impossible.
 
 But that's the point, I assured them. This is just the first of the signs, that what's real is no longer real.
+
+As with all doctors, in any field, their worldview prevented them from seeing what was right in front of them. They told me I am in shock, that it's normal to be in shock after that kind of trauma. In the chaos and confusion, my miracle is already overlooked. 
+
+This is predictable.
 
 L*&** claims this is my attempt to "spread my delusion to arbitrary unconsenting victims", but if you are all victims, so am I.
 
