@@ -56,7 +56,7 @@ Bree answered efficiently. “Hey! Are you on the way?”
 
 “Yeah. You’re right. I’ll see you soon.”
 
-As I opened the door to tell the man the news, the man’s phone rang. I knew I remembered that song. Jaunty. Sweet. But I couldn’t place it.
+As I opened the door to tell the man the news, the man’s phone rang. I knew I remembered that song. Slow. Sweet. I knew it was a lullaby, but I couldn’t place it.
 
 *If you’re not feeling happy today,*
 
@@ -158,6 +158,8 @@ With an earnest attempt at earnestness, I pivoted. “And the debate’s Friday?
 
 “Right…” Bree said as if she were asking herself for permission to continue. “But I’ll do the walkthrough of the venue on Thursday.”
 
-Bree haltingly continued to the financial section of her report, and I remembered. The song is called “Put on a Smiling Face,” and it is from *Sunnyside Square*. I think it was my favorite show as a kid. But, after I heard the song in my office and then in Bree’s, I texted a few friends about it. No one remembers it.
+Bree haltingly continued to the financial section of her report, and I remembered. She used to sing the song to me before bed. It is called “Put on a Smiling Face,” and it is from *Sunnyside Square*. I think it was my favorite show as a kid.
 
-Does anyone here? It aired in Mason County in the 90s, and that was the theme song. I don’t remember anything else right now. Writing this, I hear the music starting up from the apartment behind me. I live at the end of the hall.
+I couldn't ask Bree about it. Not with the way she looked at me. But, after I left her office, I texted a few friends. No one remembers it. Does anyone here? The show aired in Mason County in the 90s, and the lullaby was its theme song. I don’t remember anything else right now.
+
+Writing this, I hear the melody starting up from the apartment behind me. I live at the end of the hall.

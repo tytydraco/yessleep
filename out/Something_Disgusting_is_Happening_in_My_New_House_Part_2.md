@@ -1,6 +1,6 @@
 (Part 1: [https://www.reddit.com/r/nosleep/comments/1omptj4/something\_disguting\_is\_happening\_in\_my\_new\_house/](https://www.reddit.com/r/nosleep/comments/1omptj4/something_disguting_is_happening_in_my_new_house/))
 
-As of today, It’s been a little more than two weeks since Jason went missing. The night that everything happened I ended up calling 911 in a blind panic. The poor operator had to decipher my words through my panicked yelling.
+It’s been a little more than 72 hours since Jason went missing. The night that everything happened I ended up calling 911 in a blind panic. The poor operator had to decipher my words through my panicked yelling.
 
 “911, what’s the location of your emergency?”
 
