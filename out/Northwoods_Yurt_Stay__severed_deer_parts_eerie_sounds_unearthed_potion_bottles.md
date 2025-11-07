@@ -1,10 +1,10 @@
-Almost a year ago, December 2024, my partner and I decided to spend a weekend in a yurt in west/central Minnesota near Sandstone for her birthday. We chose this location because a "hot tub" was included as an amenity (little did we know it was a claw foot tub with a campfire beneath). 
+Almost a year ago, December 2024, my partner and I decided to spend a weekend in a yurt in western central Minnesota near Sandstone for her birthday. We chose this location because a "hot tub" was included as an amenity (little did we know it was a claw foot tub with a campfire beneath). 
 
 We drove up from Chicago and made our usual small-town grocery run before descending on our spot. The road to the yurt was primitive, winding, not easily located on a map and remote. As soon as we arrived we noticed a cabin where the owners usually stayed (they were out at the time) and a couple yurts. We were alone and the air was cold and dry. We breathed in and out, relishing the solitude away from the noise of the city. At this time a truck pulls up in the muddy roundabout, slows down, stops for a moment and quickly pulls away. Not the owners.
 
-Since we arrived we'd been hearing shotguns firing in the background and shrugged it off as hunters in the area (this was the north woods after all). We made ourselves at home in the yurt, cracked a couple beers and decided to explore. 
+Since we arrived we'd been hearing shotguns firing in the background and shrugged it off as hunters in the area (this was the Northwoods, after all). We made ourselves at home in the yurt, cracked a couple beers and decided to explore. 
 
-We walked towards the cabin and followed a trail to the nearby frozen lake. We noticed something hanging from the trees and as we approached we found severed deer parts dangling in the air. Legs and torso with bloody cartilage, veins and all. We looked down and saw the deer head staring straight at us, tongue hanging from its mouth, sitting atop a wood shed looking in the direction of our yurt. My partner, a vegetarian and animal lover, looked away horrified. We looked at each other, heard more gun shots and made some sense of it (it was the Northwoods, afterall).
+We walked towards the cabin and followed a trail to the nearby frozen lake. We noticed something hanging from the trees and as we approached we found severed deer parts dangling in the air. Legs and torso with bloody cartilage, veins and all. We looked down and saw the deer head staring straight at us, tongue hanging from its mouth, sitting atop a wood shed looking in the direction of our yurt. My partner, a vegetarian and animal lover, looked away horrified. We looked at each other, heard more gun shots and made some sense of it (Northwoods).
 
 We texted the owners, it took them a while to respond. They assured us it was their backwoods neighbors ("every country home has em, I suppose"). We felt reassured, but nevertheless a bit uncomfortable, unfamiliar and isolated. We were still the only folks on the whole property. We returned to the yurt, drank some whiskey, warmed up and went to bed exhausted. The yurt had no lock, but folks are friendly up here.. right?
 
@@ -24,7 +24,7 @@ Along came more noises, it sounded like a 3 gallon bucket just rolling and rolli
 
 My eyes were wide for what felt like forever. I must've managed to fall asleep at some point because I woke up to daylight and I never felt so relieved. I looked outside and there was the 3 gallon bucket sitting upright where we had left it, nothing touched or moved from the night before.
 
-\--
+—
 
-These were some of the creepiest woods I have encountered. There's something about that part of the country in the cold, dead of winter that makes you feel a little alone and empty, but like someone or something is always watching. I left the archeological dig findings behind, naturally.
+These were some of the creepiest woods I have encountered. There's something about that part of the country in the cold, dead of winter that makes you feel a little alone and empty, but like someone or something is always watching. I left the archeological findings behind, naturally.
 
