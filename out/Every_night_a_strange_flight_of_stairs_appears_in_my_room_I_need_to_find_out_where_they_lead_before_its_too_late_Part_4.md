@@ -1,4 +1,4 @@
-[Part 3.](https://www.reddit.com/r/nosleep/comments/1o723e2/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 3.](https://www.reddit.com/r/nosleep/comments/1o723e2/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 5.](https://www.reddit.com/r/nosleep/comments/1oql3ep/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 The first thing I did after standing up, was to walk back to the door and open it again. I knew it was a long shot, but I had to try. Sure enough, the effort was in vain, and the stairs were gone. The empty hallway of the house was all that greeted me.
 

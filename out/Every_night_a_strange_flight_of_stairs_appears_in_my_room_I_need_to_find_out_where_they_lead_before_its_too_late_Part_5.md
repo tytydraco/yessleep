@@ -1,0 +1,55 @@
+[Part 4.](https://www.reddit.com/r/nosleep/comments/1oc6dqh/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+I crossed back through the threshold into the familiar sight of the spiraling steps. To my relief the spot I had arrived in was devoid of anything that wanted to kill me, or worse.Though my relief was short lived. After taking only a few cautious steps upward, I caught the scent of something fetid and coppery. The smell grew stronger as I ascended, and then I saw it, a massive form sprawled across three steps, its skinless limbs contorted at unnatural angles.
+
+A dead grabber, the largest one I had seen so far. Its throat had been punctured with surgical precision, the respiratory pouch Sherrie had mentioned deflated and oozing black ichor. The killing wound wasn't ragged or desperate, it was calculated, a single devastating strike that had dropped the monster where it stood.
+
+I kept looking around the scene to see if there was any trace of Sherrie.That's when I noticed it, a dark, glistening smear on the wall just beyond the dead grabber. I was startled at first when I saw a message that was not drawn with the usual chalk.
+
+It was blood and still wet in places, trailing across the stone in Sherrie's unmistakable handwriting.
+
+The blood scrawled message began in jagged, hurried strokes, almost rendering it illegible.
+
+"Sorry, had to move higher, grabbers everywhere, something worse is hunting them now. Please be careful, the curse can affect anything."
+
+Then her writing transformed, each letter suddenly looping with the elaborate flourishes she used when composing poetry, the crimson lines thickening where she'd pressed harder in rhythm.
+
+"A curse that follows. A curse, a curse, it's something worse. Nothing is worse than a curse. Calm your spirit and heed this verse. Strength of arm and rage renewed, will cost you more when payments due. Whispers calm and fury thru, ends with me, and ends with you." There was a break in the message and her writing returned to normal, or at least as normal as bloody smears on the wall could be.
+
+"Follow the spiral up past the chamber of echoes where whispers crawl. I think I found an overlay there. The whispers can help, they can remove the curse if it follows you. Please remember yourself. I will try and meet you there, it is closer to the pinnacle than I have been in a while. I will...."
+
+The message ended in a violent streak that scraped deep into the stone, trailing off into nothingness. I knelt to examine the droplets spattered near the wall. Unlike the tar like ichor that had oozed from the grabber's wound, these glistened bright crimson under my flashlight beam, still wet enough to reflect light. My stomach twisted as I touched one with my fingertip, it was warm, and left a scarlet smear across my skin that looked like fresh human blood.
+
+I tried not to despair, but the sight was unnerving. I had hoped she had been able to escape. But the fact she was still climbing... that meant she was alive, if wounded, and it meant I would keep moving. 
+
+My leg throbbed. I could still feel the echo of the tentacles' grip, an aching numbness that cycled from the skin inward, as if some parasite was nibbling at my marrow. I ignored it and pressed on. The stench of the dead grabber faded, replaced by a new, sharp chemical tinge as the air grew denser and more humid the higher I went.
+
+I followed the bloody trail. Sometimes it was only a rusty fingerprint or a streak left where fingertips had scraped along the wall. My foot slipped in a fresh, sticky puddle of blood, forcing my hand out for balance. The stone felt warm. As I steadied myself, a vibration jolted through the wall, an arrhythmic hammering, so deep it rattled my skull before my ears could name it. The shock registered an instant before the sound: a bellow, not the shriek I'd come to dread but something lower, more animal and furious, as if stripped of all communication and left only with the raw scream of nerve endings on fire.
+
+Some dim instinct of nearby danger allowed me to duck just before the thing crashed into the wall a yard above me. It missed my head by inches and sent shards of stone and viscera in every direction. The bulk of it plowed through the staircase with such force that the spiral shook, the ancient mortar raining in grains onto my neck and shoulders. It was another grabber, or something that had once been one, but this one was mutilated, chunks of muscle missing, half its chest caved in and the exposed lungs billowing in and out like obscene bellows. Its mouth had lost the geometry of a jaw and instead yawned open, vertical and lipless, a ring of new teeth grown in concentric whorls around the wound.
+
+The thing’s forearm was bent backward, like it had been broken badly. Strangely it seems like it was from impact and the blood that covered it was disturbing, like it had kept using its mangled limb as a weapon, heedless of the damage it suffered. It lunged at me again, this time leading with the ruined arm, and the wet snapping sound of bone splintering echoed as the useless limb caught against my chest. It was trying to encircle my torso, to drag me in with the blunt mass of what remained. I dodged, my body acting before mind, scraping raw the side of my face and tearing a sleeve as its claws raked past. The monster staggered, the pain fueling it on some primal circuit, and before the next charge I saw it pause to slap the wall savagely with what was left of its hand. Blood and yellowish lymph sprayed the stone.
+
+The sickening spectacle was enough to paralyze me for a moment, but the thing capitalized immediately. It barreled forward, swiping its mutilated arm in broad, heedless arcs meant to smash rather than snare. I backpedaled, tripping over the corpse of the first grabber, and instinct drove my left hand down. My fingers landed on a splintered bone shard, slick with gore, razor sharp at the edge. The creature's ruined face loomed above me, mouth gaping as if to swallow my head whole, and in a panic I jammed the improvised shiv upward, right through the snout of its decomposing mask. The bone punch slid in with no resistance. A geyser of noxious black blood exploded across my hand and face, reeking and almost hot enough to scald. It splattered my eyes, blinding me, and as I thrashed to wipe my vision clear, I felt the whole stairwell convulse around the creature’s death spasm.
+
+The mutant grabber shrieked, but the sound was deeper now, hollow and ragged, the call of a wind instrument that had been left to rot in a swamp. It jerked itself backward, impaling even more of the bone fragment into its own face. The rest of it slipped away, crashing into the opposite wall with a sickening oozing sound. The body thudded down the steps, cartwheeling through bloody arcs, until it finally came to rest twitching and leaking fluids that pooled in irregular stains. My own hands shook as if the vibration of violence had passed into me by osmosis. I staggered upright, blinking the oil clot blood from my eyes and spitting the coppery  taste of it from my mouth.
+
+There wasn’t time to process the kill. Already, the deeper parts of the stairwell were picking up the signal, reverberations and death pheromone. I started to run, but I felt sick. I tried to force my body to comply, but I fell down.
+
+I was wracked with some type of seizure which froze my entire body and made my muscles burn. The pain was so intense I was afraid I might black out. I managed to pull through and once I was able to stand, the screams of more grabbers became louder.
+
+Yet the strangest thing, was that in that moment I had no desire to flee. Instead I stood up and waited, I waited for them to come. They did not keep me waiting long.
+
+First, the tapping, softer than before, echoing up from somewhere just below, as if the monsters were coordinating a flank. They moved with a hive intelligence, but also with the raw, monstrous instinct of something losing its domain. The spiral around me narrowed, the walls sweating and trembling with every reverberating step. The familiar dread should have come, but there was only an insistent, slow-boiling anger that filled the vacancy instead, a pull from some marrow level that said: "You could leave, but you won't. You will destroy them and empty this staircase of its nightmares."
+
+I saw the first one approach. It moved along carefully, pausing to regard the smears of blood from the mutant grabber. It seems to recoil at the scent as if it knew something was wrong. For some reason the deference and passive nature of the thing made me angry, irrationally angry. I half ran, half slid down the steps and jumped at it and my falling bulk managed to knock the thing over.
+
+I seized the opportunity and in a move that surprised even myself. I bent down and tore the creatures neck out with my own teeth.
+
+The grabbers black ichor splashed my face but I was unfazed, even as two more screeched warning to each other and moved to attack me.
+
+The next few minutes dissolved into a chaos of limb and tooth and a haze of hot, metallic breath. The grabbers came on fast, driven more by confusion and some desperate urge to reclaim the stairwell than anything like hunger or malice. Their coordination frayed; they broke ranks, tripping over the splayed torsos of their dead kin, each blinded by the violence that had painted the steps in streaks of black and red.
+
+I don’t remember fighting the third one. I remember only the aftermath, my own hands embedded in its throat, fingers dug so deep that I’d splintered something vital. I’d never been a brawler, and yet I’d brought down three skinless giants in less than a minute, each kill more savage than the last. My arms were trembling from the adrenaline, but also from the dawning horror that I could feel a new resonance in my chest, a kind of raw, animal exultation I’d never known before. My body ached for more, not out of need, but compulsion. It wanted, no, I wanted to wipe the stairs clean of them. To be the last thing alive on the blood stained steps.
+
+As the echoes of the fight died, a numbing calm fell over the hallway. I stood chest to chest with the corpse of the last grabber, I pushed the thing away in horror and remembered Sherrie’s words. I remembered the warnings of a curse of rage and knew I had to try and find the a way to clear my mind. She had mentioned a chamber of whispers, I began moving up the stairs again, leaving the carnage of my actions behind me and shuddering at what this curse might do to me yet.
