@@ -406,5 +406,4 @@ Ps, the ghost doesn’t want me to share his name, so I’m respecting his wishe
 
 Oh, and tomorrow is Halloween. I’m sure nothing bad ever happens in Monsterville on Halloween. 
 
-Right? RIGHT?
-
+[Right? RIGHT?](https://www.reddit.com/r/nosleep/comments/1oqwu95/the_seven_realms_diner_what_actually_happened_on/)
