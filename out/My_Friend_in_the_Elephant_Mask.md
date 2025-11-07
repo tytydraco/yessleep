@@ -530,3 +530,4 @@ CLAP, CLAP.
 The sound snapped me out of thought with a boom to my eardrum. I shrieked and tried to run but his hands quickly crushed my upper arm. He dragged me behind him through the water. I struggled to get my mouth above the water for air. Drowning became my biggest worry until I heard the thud of his boot hit a stair through the splashes. He hoisted me out of the water like I weighed nothing. The hinges squealed again and just before he threw me into the unknown I caught a glimpse of Lucas as he pulled Abigail back into the moonlit library.
 
   
+[Part 2](https://www.reddit.com/r/nosleep/s/yM4U1lN447)
