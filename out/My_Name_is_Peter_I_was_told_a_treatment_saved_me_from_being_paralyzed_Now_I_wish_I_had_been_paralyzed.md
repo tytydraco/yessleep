@@ -8,7 +8,7 @@ I’m not in control. I’m just the passenger—but the only people who know th
 
 You see—
 
-Before the accident, everyone always commented on how polite I was. I’d even garnered the local nickname “Polite Peter.” That is, until a random Tuesday in July. I saw a package fall off of a truck as it pulled away. I went to pick it up and woke up in a hospital bed hooked up to all sorts of weird technology, wearing almost the same outfit I had on earlier that day but brand new, and to my horror, I couldn’t move a single part of my body. 
+Before the accident, everyone always commented on how polite I was. I’d even garnered the local nickname “Polite Peter.” That is, until a random Tuesday in July. I saw a package fall off of a truck as it pulled away. I went to pick it up and woke up in a hospital bed hooked up to all sorts of weird technology, wearing almost the same outfit I had on earlier that day but brand new, and to my horror, I couldn’t move a single part of my body.
 
 Despite being unable to control my body, I was shocked when my body sat up—with me in tow. My eyes opened and closed at a rate similar to blinking, but when I tried to choose when to blink, I couldn’t. Nor could I hold my eyes shut. I was thinking about this when my body turned to face the door, reacting to the sound of it opening. Through the door, my family doctor walked in with a group of other doctors I didn’t recognize behind him. They stayed on the other side of the room, far from me by the door, studying me anxiously.
 
@@ -30,8 +30,10 @@ One by one, they all tried to leave, and one by one, they were brutally murdered
 
 For a moment, my body seemed like it was going to let her live—the woman who was too afraid to leave—but this was a trick. I tried to will my body to leave, and to my surprise, it seemed like the AI was responding as it made its way toward the door. I felt a huge sense of momentary relief as my body unlocked and stepped through the door. A relief that unfortunately wouldn’t last, because as soon as the door closed behind my body, my body stepped to the side and stood motionless.
 
-I thought I was going to leave, to let her get away—that I had some semblance of control over this form—but I was wrong. My body wasn’t leaving; it was pretending to have left and waiting for her to fall into my hands. It could have been ten minutes or three hours later when I heard the door slowly creak open*.* She carefully started making her way out of the room when my hands found her. Her perfume smelled nice, I thought to myself, as I wrapped around her from behind and choked the life out of her. I wanted so badly to stop, to let her leave, but my body had other plans.
+I thought I was going to leave, to let her get away—that I had some semblance of control over this form—but I was wrong. My body wasn’t leaving; it was pretending to have left and waiting for her to fall into my hands. It could have been ten minutes or three hours later when I heard the door slowly creak open\*.\* She carefully started making her way out of the room when my hands found her. Her perfume smelled nice, I thought to myself, as I wrapped around her from behind and choked the life out of her. I wanted so badly to stop, to let her leave, but my body had other plans.
 
 I was imagining that I let her go when I felt her body stop moving, and she fell lifelessly to the floor. I wanted to stop and mourn—to feel the weight of the moment I had just endured, the pain I had inflicted on these poor people who dared make the mistake of trying to save me—but unfortunately, my body had no intention of stopping, as it walked me smoothly toward the exit of the hospital only a few halls away, silently weeping with dry eyes that betrayed my emotions.
 
-The Automatic doors at the entrance opened for me as I walked through them. 
+The Automatic doors at the entrance opened for me as I walked through them.
+
+What Happened next " [My name is Peter, and I did something awful to my small town. : r/nosleep](https://www.reddit.com/r/nosleep/comments/1ora79i/my_name_is_peter_and_i_did_something_awful_to_my/)"
