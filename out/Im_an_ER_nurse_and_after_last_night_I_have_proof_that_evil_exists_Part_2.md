@@ -59,7 +59,7 @@ Someone was watching me. I could feel them. I turned slowly, checking every dire
 
 Then another faint whisper drifted through the aisles.
 
-I continued on. The scent of stale mildew and old clothes hung in the air. I stopped at a pair of shoes. A white tag, hanging from them, caught my eye. Scrawled in black sharpie were the words: “William: 10/21/21”. 
+I continued on. The scent of stale mildew and old clothes hung in the air. I stopped at a pair of shoes. A white tag, hanging from them caught my eye. Scrawled in black sharpie on the tag: “William: 10/21/21”. 
 
 Right then something moved on the clothing rack across from me. I caught a glimpse of what looked like a shadow between the clothes.
 
