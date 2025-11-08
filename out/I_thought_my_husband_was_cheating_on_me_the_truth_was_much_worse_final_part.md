@@ -152,7 +152,7 @@ Madam Morrigan didn’t look up. “Good. Let her listen.”
 
 She quickly scrawled the last of the words into the book and then, began to read.
 
-Constance Arthur, hear these words,
+Constance, hear these words,
 
 Chains once forged are now disturbed.
 
@@ -226,7 +226,7 @@ With one last push, he was out, caught just in time by Ethan. His cries pierced 
 
 The shadow pressed harder, the salt line sizzling and sparking, flecks landing in the candle flames and turning them a violent orange.
 
-“Constance Arthur of Corvus Vale, granter of wishes and keeper of oaths, you may not enter!” Morrigan barked.
+“Lady Constance of Corvus Vale, granter of wishes and keeper of oaths, you may not enter!” Morrigan barked.
 
 The baby wailed in my arms.
 
