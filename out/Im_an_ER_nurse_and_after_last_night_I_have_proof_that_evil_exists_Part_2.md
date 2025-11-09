@@ -25,7 +25,7 @@ I lifted the phone to my ear and Emma’s voice came through the line. She was t
 
 I shouted into the phone, demanding Ryan tell me where he was. “He can’t hear you,” she raised her voice above mine as their conversation continued through the phone. “Be quiet and listen.” 
 
-“Drop the lighter fluid." She told him. 
+“Drop the lighter fluid." She told him.
 
 “Why should I listen to you?” Ryan’s voice crackled through the speaker.
 
@@ -67,7 +67,7 @@ I told her a half-truth, coming up with the best story I could: that Emma had be
 
 “Do you remember selling it?” I asked. 
 
-“A jacket made her sick?” She seemed very skeptical. 
+“A jacket made her sick?” She seemed very skeptical.
 
 “Yes,” I said. Holding her gaze.
 
@@ -103,9 +103,9 @@ I frantically felt my jaw, searching for the wound. 
 
 “That death wasn’t yours,” Agatha said. She picked the overcoat off the ground and read aloud. “It was Michael’s.” She turned the tag around for me to see: “Michael: 06/21/71”
 
-“What was that? What’s happening?” I was terrified and confused. 
+“What was that? What’s happening?” I was terrified and confused.
 
-“Thank God you got it off in time, otherwise it would’ve bound itself to you,” Agatha said. 
+“Thank God you got it off in time, otherwise it would’ve bound itself to you.”
 
 A fierce burn ran across my chest. I lifted up my shirt and my skin was scraped raw in several places.
 
@@ -117,7 +117,7 @@ A fierce burn ran across my chest. I lifted up my shirt and my skin was scraped 
 
 Maybe I didn’t need Emma’s jacket, maybe I just needed Agatha. “Can you help me see Hannah again?”
 
-“No,” she said. 
+“No.”
 
 “But the Old Man told me he could,” I said.  
 
