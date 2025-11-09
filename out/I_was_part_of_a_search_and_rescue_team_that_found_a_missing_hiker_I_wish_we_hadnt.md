@@ -11,7 +11,7 @@ Two days into the search, the camp was discovered, or what was left of it. The t
 
 We’d been combing these woods ever since, and every day that passed made it harder to believe we’d find the boy alive.
 
-Today had been no different. We’d been hiking since 7 am, our legs burning, eyes scanning everywhere for a hint of movement. My search partner, Charles, chewed absently on a protein bar as we went, crumbs falling into the brush. By the time the sun began to dip past the treeline, it was close to 5 p.m., and still no sign of the boy.
+We’d been hiking since 7 am, our legs burning, eyes scanning everywhere for a hint of movement. My search partner, Charles, chewed absently on a protein bar as we went, crumbs falling into the brush. By the time the sun began to dip past the treeline, it was close to 5 p.m., and still no sign of the boy.
 
 “I really don’t think we’re going to find this kid,” mumbled Charles, his voice muffled by the protein bar still in his mouth. “And if we do, it’ll be a corpse.”
 

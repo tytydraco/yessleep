@@ -83,7 +83,7 @@ I blinked and the store was gone. 
 
 In its place: a narrow hallway, walls yellowed and peeling. I had been transported somewhere, somehow. 
 
-I immediately heard faint cries nearby. I started toward the sound. I thought to myself, *I should stop*. But my legs wouldn’t obey. My mind screamed to stop, but my body moved on. It was as though my body and mind were disconnected. I was like a puppet on a string.
+I heard faint cries nearby. I started toward the sound. I told myself, *I should stop*. But my legs wouldn’t listen. I was not in control of myself, like a puppet on a string.
 
 As I passed a mirror, I caught my reflection. My stomach dropped. It wasn’t my reflection looking back at me, but a man I didn’t recognize. The only familiar thing was the overcoat Agatha had put on me.
 
@@ -91,7 +91,7 @@ I continued on against my own will. I turned the corner where the cries were com
 
 A man was standing over a woman, his hands clenched around a butchers knife. He brought it down again and again into her chest, the sound dull and wet, like a shovel striking mud.
 
-I wanted to scream, to run, but I couldn’t. My feet were rooted to the spot.
+I wanted to to run, but I couldn’t. My feet were rooted to the spot.
 
 Then the man stopped and lifted his head. No face. Just smooth featureless skin where features should have been, like someone had erased them. Even without eyes, I could feel him staring at me. I stumbled back, trying to get away. But before I could, he was on me. The knife swung upward, driving into my jaw. A rush of heat and pain flooded through me.
 
@@ -101,25 +101,23 @@ Agatha stared down at me, mocking me she said, “So the jacket made her sick?�
 
 I frantically felt my jaw, searching for the wound. 
 
-“That death wasn’t yours,” Agatha said. She picked the overcoat off the ground and read aloud. “It was Michael’s.” She turned the tag around for me to see: “Michael: 06/21/71”
+“Don't worry" she said calmly, "that death wasn’t yours, your jaw is fine.”  She picked the overcoat off the ground and read aloud. “It was Michael’s.” She turned the tag around for me to see: “Michael: 06/21/71”
 
-“What was that? What’s happening?” I was terrified and confused.
+I stared at the racks. Hundreds of tags swaying gently though the air was still. “What is this?”  
 
-“Thank God you got it off in time, otherwise it would’ve bound itself to you.”
+“These clothes" She started, "need a new home. I’m here to facilitate a way for them to live on."
 
 A fierce burn ran across my chest. I lifted up my shirt and my skin was scraped raw in several places.
 
-“These clothes need a new home. I’m here to facilitate a way for them to live on.” She continued, “None of them are priced. They're tagged with names and dates. Just as Emma’s jacket was.” A chill washed over me. 
+"Thank God you got it off in time, otherwise it would’ve bound itself to you.”
 
-“Why is this happening?” I asked. 
+I must have looked scared, hell I was, I still am because the next thing she said was: “This doesn't have to involve you, James. But I think you want it to.”
 
-“Because it does,” she said simply. “It doesn’t have to involve you. But I think you want it to.”
-
-Maybe I didn’t need Emma’s jacket, maybe I just needed Agatha. “Can you help me see Hannah again?”
+And she was right. None of this needed to involve me. This was a choice. My own curiosity, my grief, led me here. And I thought: Maybe I didn’t need Emma’s jacket, maybe I just needed Agatha. I asked, “Can you help me see Hannah again?”
 
 “No.”
 
-“But the Old Man told me he could,” I said.  
+“The Old Man told me he could,” I said.  
 
 “Well then that’s the deal he made with you. I don’t make the decisions, I balance the books.”
 
