@@ -36,4 +36,6 @@ I was imagining that I let her go when I felt her body stop moving, and she fell
 
 The Automatic doors at the entrance opened for me as I walked through them.
 
-What Happened next " [My name is Peter, and I did something awful to my small town. : r/nosleep](https://www.reddit.com/r/nosleep/comments/1ora79i/my_name_is_peter_and_i_did_something_awful_to_my/)"
+( Looking For What Happened Next? [My name is Peter, and I did something awful to my small town. : r/nosleep](https://www.reddit.com/r/nosleep/comments/1ora79i/my_name_is_peter_and_i_did_something_awful_to_my/) )
+
+( Looking To See How This Ends? [My name is Peter, and I'm about to enter a bar full of my friends. : r/nosleep](https://www.reddit.com/r/nosleep/comments/1os5c4u/my_name_is_peter_and_im_about_to_enter_a_bar_full/) ) 

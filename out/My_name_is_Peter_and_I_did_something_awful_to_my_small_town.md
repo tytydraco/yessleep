@@ -54,4 +54,6 @@ The casual way my body walked down the street made me sick, I knew in my heart t
 
 The walking went on for quite some time, and I was really appreciative for the break from the intense dread, and fear, even if it was short lived, because as calming as the walk was for my frayed nerves, The fear and dread came back tenfold when I stopped walking, and I smelled something I recognized. I Knew this part of town. Immediately my heart sank, before I even looked up i knew where I was from the smell alone. I stood poised in an aggressive position as I stared across the street at my best friend's bar, and judging from the cars in the parking lot, all of my closest buddies were drinking inside.
 
-(If this didn't make sense, or you want to read what came before, check out this link " [My Name is Peter; I was told a treatment saved me from being paralyzed. Now I wish I had been paralyzed. : r/nosleep](https://www.reddit.com/r/nosleep/comments/1oqetax/my_name_is_peter_i_was_told_a_treatment_saved_me/) ")
+(Looking for What Happened first? [My Name is Peter; I was told a treatment saved me from being paralyzed. Now I wish I had been paralyzed. : r/nosleep](https://www.reddit.com/r/nosleep/comments/1oqetax/my_name_is_peter_i_was_told_a_treatment_saved_me/) )
+
+(Looking For What Happens Next? [My name is Peter, and I'm about to enter a bar full of my friends. : r/nosleep](https://www.reddit.com/r/nosleep/comments/1os5c4u/my_name_is_peter_and_im_about_to_enter_a_bar_full/) )

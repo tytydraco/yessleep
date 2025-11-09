@@ -13,9 +13,7 @@ I walked back in and, after a few moments, noticed a faint humming. Amid the noi
 
 Out of context, that song might not mean anything to you. But it’s the song that Hannah’s dad used to sing to her when she was a baby. 
 
-I kept on toward Emma’s room. The closer I got, the louder the humming grew, needling into my skull.
-
-I turned the corner into her room and Emma’s eyes met mine. She sat upright,  perfectly still, her gaze fixed on me. “Ryan’s planning on burning the jacket. He’s buying lighter fluid right now.”
+I kept on toward Emma’s room. The closer I got, the louder the humming grew, needling into my skull. I turned the corner into her room and Emma’s eyes met mine. She sat upright,  perfectly still, her gaze fixed on me. “Ryan’s planning on burning the jacket. He’s buying lighter fluid right now.”
 
 “How do you know that?” I asked.
 
@@ -27,7 +25,7 @@ I lifted the phone to my ear and Emma’s voice came through the line. She was t
 
 I shouted into the phone, demanding Ryan tell me where he was. “He can’t hear you,” she raised her voice above mine as their conversation continued through the phone. “Be quiet and listen.” 
 
-“Drop the lighter fluid,” her words pointed. 
+“Drop the lighter fluid." She told him. 
 
 “Why should I listen to you?” Ryan’s voice crackled through the speaker.
 
@@ -43,11 +41,9 @@ I stood there, a dozen questions lodged in my throat. I asked anyway, “Where i
 
 Then she leaned forward, the restraints binding her to the bed taut, catching her against her own weight. “Put the jacket on, don’t fight it,” she rasped, “and you’ll see her again.” She stayed in place, her stare pinned me where I stood. 
 
-The sterile white lights above flickered wildly. The heart monitor crackled and screamed static. In between the burst of lights I saw Emma changing. 
+The sterile white lights above flickered wildly. The heart monitor crackled and screamed static. Inbetween the burst of lights I saw Emma changing. One moment, Emma. The next, an Old Man. His skin looked wet, riddled with gooey open sores. Folds of flesh hung loose on his face, like a snake shedding its skin. The sour metallic stench of decay filled the air and my stomach churned. With every flicker of the light, she switched back and forth until the room went dark.
 
-One moment, Emma. The next, an Old Man. His skin looked wet, riddled with gooey open sores. Folds of flesh hung loose on his face, like a snake shedding its skin. The sour metallic stench of decay filled the air and my stomach churned. With every flicker of the light, she switched back and forth until the room went dark.
-
-There were a few seconds of silence, then I realized someone was right next to me, breathing in my ear, their hot breath brushing my face. I jumped as the lights flickered back on. Emma was in the bed, her restraints still taut against her wrists. Hidden Gems. That’s where I had to go.
+There was a few seconds of silence, then I realized someone was right next to me, breathing in my ear, I felt their hot breath on my face. I jumped as the lights flickered back on. Emma was in the bed, her restraints still taut against her wrists. Hidden Gems. That’s where I had to go.
 
 —
 
@@ -71,13 +67,11 @@ I told her a half-truth, coming up with the best story I could: that Emma had be
 
 “Do you remember selling it?” I asked. 
 
-“A jacket made her sick?” She said skeptically. 
+“A jacket made her sick?” She seemed very skeptical. 
 
 “Yes,” I said. Holding her gaze.
 
 She reached for a long overcoat hanging nearby and walked toward me. “That sounds pretty unbelievable, if you ask me.” Before I could respond, she draped the heavy coat over my shoulders. “Feel sick yet?” she teased.
-
-I felt crazy—but I knew I wasn’t. I knew what I’d seen.
 
 Then the coat tightened. A faint vibration rippled across my chest. Agatha’s expression changed. Her lip curled, exposing brown rotting teeth, something I hadn’t noticed before.
 
@@ -91,9 +85,7 @@ In its place: a narrow hallway, walls yellowed and peeling. I had been transport
 
 I immediately heard faint cries nearby. I started toward the sound. I thought to myself, *I should stop*. But my legs wouldn’t obey. My mind screamed to stop, but my body moved on. It was as though my body and mind were disconnected. I was like a puppet on a string.
 
-As I passed a mirror, I caught my reflection. My stomach dropped.
-
-It wasn’t my reflection looking back at me, but a man I didn’t recognize. The only familiar thing was the overcoat Agatha had placed on my shoulders. 
+As I passed a mirror, I caught my reflection. My stomach dropped. It wasn’t my reflection looking back at me, but a man I didn’t recognize. The only familiar thing was the overcoat Agatha had put on me.
 
 I continued on against my own will. I turned the corner where the cries were coming from and froze.
 
@@ -101,19 +93,17 @@ A man was standing over a woman, his hands clenched around a butchers knife. He 
 
 I wanted to scream, to run, but I couldn’t. My feet were rooted to the spot.
 
-Then the man stopped and lifted his head. No face. Just smooth featureless skin where features should have been, like someone had erased them. Even without eyes, I could feel him staring at me.
-
-I stumbled back, trying to get away. But before I could, he was on me. The knife swung upward, driving into my jaw. A rush of heat and pain flooded through me.
+Then the man stopped and lifted his head. No face. Just smooth featureless skin where features should have been, like someone had erased them. Even without eyes, I could feel him staring at me. I stumbled back, trying to get away. But before I could, he was on me. The knife swung upward, driving into my jaw. A rush of heat and pain flooded through me.
 
 The lights flickered and I was suddenly back in the thrift store, trembling on the ground as I ripped the overcoat off. My skin stung as I yanked it away from my body.
 
-Agatha stared down at me. “So the jacket made her sick?” she mocked. 
+Agatha stared down at me, mocking me she said, “So the jacket made her sick?”
 
 I frantically felt my jaw, searching for the wound. 
 
 “That death wasn’t yours,” Agatha said. She picked the overcoat off the ground and read aloud. “It was Michael’s.” She turned the tag around for me to see: “Michael: 06/21/71”
 
-“What was that? What’s happening?” I demanded.
+“What was that? What’s happening?” I was terrified and confused. 
 
 “Thank God you got it off in time, otherwise it would’ve bound itself to you,” Agatha said. 
 
