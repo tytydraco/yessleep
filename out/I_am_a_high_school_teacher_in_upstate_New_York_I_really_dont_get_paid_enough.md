@@ -1,3 +1,5 @@
+[Part two](https://www.reddit.com/r/nosleep/s/oMP9EB7n2P)
+
 I was breathing heavily, my legs pounding through the forest.
 Branches slapped against my arms as I ran, heart hammering, lungs burning.
 
