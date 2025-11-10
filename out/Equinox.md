@@ -140,7 +140,7 @@ Suddenly, Dad snapped out of whatever trance he was in, his paralysis shifting t
 
 "Keep your eyes closed, Kit-Kat!!" Dad yelled fast and loud into my ears as I bounced in his arms with every bounding step. "It's okay!"
 
-An even louder, inhuman shriek sounded from inside the bedroom before I heard the door slam open. It sounded like screams, as much as it did winds and croaking like old wood.
+An even louder, inhuman shriek sounded from inside the bedroom before I heard the door slam open. It sounded like screams, as much as it did howling winds and croaking like old wood.
 
 I squeezed my eyes shut as the dull glow of the TV came and went in less than a second. I clutched as much to my Dad as I did to Nellie. I heard the panicked jangling of keys, and felt the cold autumn air on the back of my neck and the jumping down of porch steps from wood to gravel to tell me we were outside. I heard the unlocked clicking and opening of the car door and my Dad depositing me into the front seat over the console. All the while, I heard him loudly whispering, "Okay, okay, okay..."
 

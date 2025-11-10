@@ -200,7 +200,7 @@ I followed the pull.
 
 I stumbled outside. The night was quiet. Frozen ground crunched under my feet as I approached the neighboring mobile home. I slammed my fist into the door, over and over until a shirtless Mr. Peterson swung it open.
 
-He was salacious, violent drunk on the best of days: not someone I’d wake up at a quarter past eleven looking for a free meal.
+He was a salacious, violent drunk on the best of days: not someone I’d wake up at a quarter past eleven looking for a free meal.
 
 And yet, there I was.
 
@@ -250,7 +250,7 @@ Though I was never quite sure *what* she wanted from me in the grand scheme of t
 
 On the whole, She left me to my own devices. I lived my life as I pleased.
 
-Every so often, I would feel her influence. The pulling. The magnetic sensation in my gut, driving me to an unknown destination.
+Every so often, I would feel Her influence. The pulling. The magnetic sensation in my gut, driving me to an unknown destination.
 
 When I was fourteen, she dragged me to a pediatrician’s office. The overworked medical assistant managing the front desk asked me if I had an appointment and where my parents were.
 
@@ -274,7 +274,7 @@ I quietly thanked my God for her kindness and her wisdom and promptly moved on.
 
 Truthfully, I liked being a prophet.
 
-I always thought it was a curious use of the word\*,\* though.
+I always thought it was a curious use of the word, though.
 
 Typically, I imagined a prophet as an oracle of the divine. Someone who could predict the future based on an understanding of God's will, but that wasn’t *really* what I was doing. Everything I said would come true, yes, but only because I forced it so.
 
@@ -324,7 +324,7 @@ Other times, the demand would be a little stranger:
 
 *“Bury your daughter at Pine Vale Memorial Grounds - plot 732A. Make sure she's placed facedown in the casket and make sure it is made of sandalwood. Do not have her embalmed. Do not close her eyes.”*
 
-When the time came, the right words would just leak out. I’d never know what I was going to say in advance.
+I’d never know what I was going to say in advance. When the time came, the right words would just leak out.
 
 All the while, the cemetery grew.
 
@@ -344,7 +344,7 @@ Traffic stalled. The light turned. We approached each other on the crosswalk. As
 
 *“Go lie down on the railroad tracks. Do not get up.”*
 
-My jaw hit the asphalt.
+I was stunned. Felt like my jaw hit the asphalt.
 
 Guilt detonated like a grenade in my chest.
 
@@ -434,7 +434,7 @@ The email arrived yesterday.
 
 I considered waiting until seven to open it, but I couldn't.
 
-Body shaking, mind spinning, I sat down at my kitchen table and clicked the attached link.
+Body shaking, mind spinning, I sat down at my kitchen table with my laptop and clicked the attached link.
 
 It started out normal. Showed me putting the pill-camera to my mouth.
 
