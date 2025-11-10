@@ -114,7 +114,7 @@ I slammed the door and stayed in, curled into a ball with Nellie on my bed, hold
 
 I woke up in a cold sweat from a nightmare I didn't remember, and the warm air emanating from the space heater. I could think or feel in that moment was how unbelievably dry my throat was. I touched my feet to the cold woodboards and zombie marched to the bathroom. At end of the long hallway, the TV in the living room was glowing with whatever show and I saw my Dad's jeans and boots slumped into the recliner. I drank from the faucet for as long as I felt I could, and wiped the cold water from my chin, walking back to my room. I opened the door, and there was my bed, Nellie saving my place to sleep, the window, the bright full moon,  the field, and an empty post.
 
-What felt was like lightning inside of me, waking me up. I rubbed my eyes and ran onto the bed, hands against the cold window pane, fogging it with my hysterical deep breaths. It was gone! The fields were empty, completely empty except that lone post, like a cross with twine of rope hanging from its arms. I grabbed Nellie and ran out of the room, out of the hall, to the living room. Dad was asleep in his chair as static played on the TV. I shook his body and screamed, "Daddy, the scarecrow! The scarecrow's gone!"
+What I felt was like lightning inside of me, waking me up. I rubbed my eyes and ran onto the bed, hands against the cold window pane, fogging it with my hysterical deep breaths. It was gone! The fields were empty, completely empty except that lone post, like a cross with twine of rope hanging from its arms. I grabbed Nellie and ran out of the room, out of the hall, to the living room. Dad was asleep in his chair as static played on the TV. I shook his body and screamed, "Daddy, the scarecrow! The scarecrow's gone!"
 
 He jolted awake, eyes wide at my screams. My throat stung again with just how loud I was, and my eyes did too as I felt tears welling in them. He rocked forward in his chair, rubbing his eyes and his head. He was still barely awake as I kept tugging at his sleeve. "Katie... what?"
 
@@ -148,7 +148,7 @@ It's easy to realize now he was as much trying to calm himself down as he was me
 
 He said as much, "You're okay."
 
-I remember the look on his face, a moment of calm and respite, looking at me. He had the look he always got before he was about to smile. I remember that... and I remember a long, curved glint of light that shimmered over his head for less than a second, for the rusty blade of a sickle erupted from his chest. I'll never forget his screams of pain, as he leaned forward over the seat, his blood pouring down and off the tip of red-stained blade.
+I remember the look on his face, a moment of calm and respite, looking at me. He had the look he always got before he was about to smile. I remember that... and I remember a long, curved glint of light that shimmered over his head for less than a second, before the rusty blade of a sickle erupted from his chest. I'll never forget his screams of pain, as he leaned forward over the seat, his blood pouring down and off the tip of red-stained blade.
 
 And I could see it behind him. Its rotting face. The straw falling from its long arms. It looked at me with its hollow eyes, and as my Dad struggled to hold himself upright, it turned and pulled, pulling him with it. Its movements stiff and awkward like a puppet on strings, the thing walked back toward the house, dragging my Dad on the gravel behind it. I couldn't move from where I was no matter how much I wanted to, to do something, to do anything. I heard him groan as the sickle at the end of a long stick arm dragged him back. With one leg, it cleared the porch steps, but my Dad used one hand to grab onto the railing. All of his last strength.
 
@@ -186,11 +186,11 @@ I felt his hand in my hair before he pulled me into a hug, squishing my new bear
 
 "What's Mommy's name?"
 
-Nellie's never left my side, no matter what. I always took her with me to every house, every school, every field trip we weren’t allowed to bring our dolls -- I brought Nellie. The numbers of fights I got into with all those other girls in school, trying to take her away from me... It's actually the reason I carry a knife now.
+Nellie's never left my side, no matter what. I always took her with me to every house, every school, every field trip we weren’t allowed to bring our dolls -- I brought Nellie. The numbers of fights I got into with all those other girls who tried to take her away from me... It's actually the reason I carry a knife now.
 
 It's surprisingly easy to not give a shit about others, even guardians, telling you you're too old for that kinda thing. When you've lived a life like mine, you grow to learn that what others call "superstition," you call "reason."
 
-That's especially true when you find yourself driving up the same gravel road you ran for your life down so many years ago. I have a truck now, like he did, and I like driving like he did. I even think about my mom when I light a cigarette on the way up. Despite that, I *hate* stopping at gas stations, so I always keep six cans tied down in the bed. Nellie rides passenger, belted like always.
+That's especially true when you find yourself driving up the same gravel road you ran for your life down so many years ago. I have a truck now, like he did, and I like driving like he did. I even think about my mom when I light a cigarette on the way up. Despite that, I *hate* stopping at gas stations, and I always keep six cans tied down in the bed. Nellie rides passenger, belted like always.
 
 Before I know it, I'm face to face with that old, gray house I spent those sleepless nights in. The land, as desolate as it was when I left. No one's here. No one's lived here in years, no thanks to the police. I park and step out, and zip Nellie up into a blue backpack I sling over my shoulders. How ugly, and abandoned, and cold this place is.
 
@@ -212,7 +212,7 @@ With the last slice of my pocket knife across the straw, the scarecrow's mouth h
 
 Two canines a bit sharper than usual, and two crooked front teeth, like they were fighting for each other's place. I knew. All along, I knew this, I feared this, woke up in the night screaming of this. All those years, I never wanted to believe it. But now I see. Now I know. And that's enough.
 
-Today's the day. The equinox. Whatever's special about this day, whatever makes it happen, it'll happen again tonight. Or rather, it would've. As the storm from miles away slowly rolls in, I split three cans evenly between the house and the field, and I watch it all burn. I remember that space heater my Dad put in my room for me, and I think of him. The sun hasn't set yet, and I see the rising flames start to crawl and spread along the four corner of that post, engulfing what's on it.
+Today's the day. The equinox. Whatever's special about this day, whatever makes it happen, it'll happen again tonight. Or rather, it would've. As the storm from miles away slowly rolls in, I split three cans evenly between the house and the field, and I watch it all burn. I remember that space heater my Dad put in my room for me, and I think of him. The sun hasn't set yet, and I see the rising flames start to crawl and spread along the four corners of that post, engulfing what's on it.
 
 Then I finally put that place behind me. On the open road, I look in the rear-view mirror to see the black clouds of smoke rise in the sky, as if begging for the coming rain. I'm shaking now and I don't really know what to say.
 
