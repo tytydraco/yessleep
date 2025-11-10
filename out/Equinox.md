@@ -148,21 +148,21 @@ It's easy to realize now he was as much trying to calm himself down as he was me
 
 He said as much, "You're okay."
 
-I remember the look on his face, a moment of calm and respite, looking at me. He had the look he always got before he was about to smile. I remember that... and I remember a long, curved glint of light that shimmered over his head for less than a second, before the rusty blade of a sickle erupted from his chest. I'll never forget his screams of pain, as he leaned forward over the seat, his blood pouring down and off the tip of red-stained blade.
+I remember the look on his face, a moment of calm and respite, looking at me. He had the look he always got before he was about to smile. I remember that... and I remember a long, curved glint of light that shimmered over his head for less than a second, before the rusty blade of a sickle erupted from his chest. I'll never forget his screams of pain, as he leaned forward over the seat, his blood pouring down and off the tip of the red-stained blade.
 
 And I could see it behind him. Its rotting face. The straw falling from its long arms. It looked at me with its hollow eyes, and as my Dad struggled to hold himself upright, it turned and pulled, pulling him with it. Its movements stiff and awkward like a puppet on strings, the thing walked back toward the house, dragging my Dad on the gravel behind it. I couldn't move from where I was no matter how much I wanted to, to do something, to do anything. I heard him groan as the sickle at the end of a long stick arm dragged him back. With one leg, it cleared the porch steps, but my Dad used one hand to grab onto the railing. All of his last strength.
 
-The scarecrow struggled for a moment to get him up, to move him, and with the last pull of sickle, I saw its head fall from its shoulders, smashing onto the deck. Then headless, it dragged my Dad the rest of the way in, closing the door behind it.
+The scarecrow struggled for a moment to get him up, to move him, and with the last pull of sickle, I saw its pumpkin head fall from its shoulders, smashing into moldy pulp onto the deck. Then headless, it dragged my Dad the rest of the way in, closing the door behind it.
 
-It felt like I was frozen in that carseat forever, but it was still hours before the sun came up. Hours I spent running, walking, crying down the only road out of that place. A girl in her pajamas, barefoot, walking for her life on a dirt road, clinging to her teddy bear. I wandered onto some access road some time before the sun started to rise, when a car slowed to a stop next to me. A man, a woman, two kids, and their dog. A family on a road trip.
+It felt like I was frozen in that carseat forever, but it was still hours before the sun came up. Hours I spent running, walking, crying, down the only road out of that place. A girl in her pajamas, barefoot, walking for her life down a dirt road, clinging to her teddy bear. I wandered onto some access road some time before the sun started to rise, when a car slowed to a stop next to me. A man, a woman, two kids, and their dog. A family on a road trip.
 
-They asked a bunch of questions I was too tired, too scared, too weak to answer. They took to the nearest town and I spent the next few nights in a police station where they asked me all the same questions. With time, I was able to answer some, and even ask a few. Police went to the farm, and came back saying they found nothing. No dad, no blood, no pumpkin.
+They asked a bunch of questions I was too tired, too scared, too weak to answer. They took me to the nearest town and I spent the next few nights in a police station where they asked me all the same questions. With time, I was able to answer some, and even ask a few. Police went to the farm, and came back saying they found nothing. No dad, no blood, no pumpkin.
 
-They asked me who my mom was and what number they could call. Then it was a social worker, telling me about somewhere new. Three nights in a police station and twelve years in the foster system. My only next of kin was considered unfit, and that's never really changed. Neither have I, for that matter, except for the worse. Every August with the start of the school year, in a new town, in a new school, with a new family, I'd always freeze and scream and shout at the sight of any pumpkin, any scarecrow. I'd throw whatever I could at the TV when someone had on Wizard of Oz. I'd never go out on Halloween and always be the shut-in freak to my so-called "siblings." I'd be the problem child who'd never outgrown her teddy bear to my pretend "parents." All six of them.
+They asked me who my mom was and what number they could call. Then it was a social worker, telling me about somewhere new. Three nights in a police station and twelve years in the foster system. My only next of kin was considered unfit, and that's never really changed. Neither have I, for that matter, except for the worse. Every August with the start of the school year, in a new town, in a new school, with a new family, I'd always freeze and scream and shout at the sight of any pumpkin, any scarecrow. I'd throw the nearest heavy object at any TV playing Wizard of Oz. I'd never go out on Halloween and always be the shut-in freak to my so-called "siblings." I'd be the problem child who'd never outgrown her teddy bear to my pretend "parents." All six of them.
 
 I couldn't have been out of the house faster the day I turned 18. Two days before the fall equinox this year and about as long a drive from Dad's old farm. I found it. And I thought about going back myself for a long, long time. Find what they missed, what was right in front of their eyes. Find *something,* I don't know... Or find nothing at all.
 
-I used to have my own room in the old apartment, but I'd always wake up in the middle of the night, scared of the sounds I'd hear, the shadows I'd see, even if it was nothing. I'd sneak out of my bedroom into Mom and Dad's to sleep between them, and feel safe. But when Mom got worse, when I'd start to cough and complain of the smell in there room, one night I snuck down the hall to their bedroom door and opened it to see my Dad, kneeling down on the other side, waiting for me. Fully awake, fully prepared for me.
+I used to have my own room in the old apartment, but I'd always wake up in the middle of the night, scared of the sounds I'd hear, the shadows I'd see, even if it was nothing. I'd sneak out of my bedroom into Mom and Dad's to sleep between them, and feel safe. But when Mom got worse, when I'd start to cough and complain of the smell in their room, one night I snuck down the hall to their bedroom door and opened it to see my Dad, kneeling down on the other side, waiting for me. Fully awake, fully prepared for me.
 
 "Hey Kit-Kat."
 
@@ -178,7 +178,9 @@ I used to have my own room in the old apartment, but I'd always wake up in the m
 
 Even in the low light, I remember seeing him nod, leaning forward. "You know, I have someone to keep you safe..."
 
-I hadn’t even noticed his hands where behind his back, so I look down to see, or mostly feel, a soft, plush, stuffed teddy bear, half my size in his hands. "This is for you," he whispered, "I gave her that special power Mommy and I have to keep the monsters away. You keep her close and take her to your room... and you sleep."
+I hadn’t even noticed his hands where behind his back, so I look down to see, or mostly feel, a soft, plush, stuffed teddy bear, half my size in his hands.
+
+"This is for you," he whispered, "I gave her that special power Mommy and I have to keep the monsters away. You keep her close and take her to your room... and you sleep."
 
 "But what if the monsters come for you?"
 
@@ -188,7 +190,7 @@ I felt his hand in my hair before he pulled me into a hug, squishing my new bear
 
 Nellie's never left my side, no matter what. I always took her with me to every house, every school, every field trip we weren’t allowed to bring our dolls -- I brought Nellie. The numbers of fights I got into with all those other girls who tried to take her away from me... It's actually the reason I carry a knife now.
 
-It's surprisingly easy to not give a shit about others, even guardians, telling you you're too old for that kinda thing. When you've lived a life like mine, you grow to learn that what others call "superstition," you call "reason."
+It's surprisingly easy to not give a shit about others, even guardians, telling you you're too old for that kinda thing. When you've lived a life like mine, you grow to learn that what others call "superstition," you call reason.
 
 That's especially true when you find yourself driving up the same gravel road you ran for your life down so many years ago. I have a truck now, like he did, and I like driving like he did. I even think about my mom when I light a cigarette on the way up. Despite that, I *hate* stopping at gas stations, and I always keep six cans tied down in the bed. Nellie rides passenger, belted like always.
 
@@ -200,7 +202,7 @@ The door gives way with no effort at all, and the house is as empty as ever. But
 
 I'd imagined the moment I'd see it again, over and over, in my dreams. Wondered if it'd found some other molding jack-o-lantern to wear as a head. If I'd see my Dad's dried blood on its sickle-hand. I turn around the back of the house, and I see it. Sure enough, a thing on its post. Almost.
 
-You never forget something like that. The rotting smile and eyes bleeding with pumpkin guts. Its overalls and green shirt. But that isn't what I see, any of it.  A red shirt and blue jeans, covered in dust, weathered and tattered with time. Straw seeps out of a gash in the center of his chest. The head is a cross-stitched sack of thatch with the eyes and mouth sewn shut. And little brown hat sits on his downturned head. The closer I get, the more I see just how tall he is, stretched out on the post. Crows pecking at his ears and rubber nose fly away at my approach.
+You never forget something like that. The rotting smile and eyes bleeding with pumpkin guts. Its overalls and green shirt. But that isn't what I see, any of it.  A red shirt and blue jeans, covered in dust, weathered and tattered with time. Straw seeps out of a gash in the center of his chest. The head is a cross-stitched sack of thatch with the eyes and mouth sewn shut. A little brown hat sits on his downturned head. Even the sickle's on the wrong hand. The closer I get, the more I see just how tall he is, stretched out on the post. Crows pecking at his ears and rubber nose fly away at my approach.
 
 I look up to see him facing down, one head length over me as I look. And the more I look, the more I *feel* what happened. More than remember, I still hear his screams. And mine. And that monster's. But it wasn't the same now. I look at his leathery face, and the stitches across its mouth, as something in me forces me to stay, to look closer. Part of me knew, but I needed more. I reach into my pocket and flip open my knife. One arm grabs onto his soft shoulder while the small blade wrenches into the scarecrow's mouth. Through the thatch, through the stitch-string and straw, I cut.
 
