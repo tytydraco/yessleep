@@ -1,4 +1,4 @@
-My parents had me when I was very young. Like very young, right out of high school. When you're that age, I guess it feels like everything matters and your choices will last the rest of your life. I just wish they'd lasted more than a few years. It wasn't until I was much older that I realized just how much they were children, unprepared for their own children... but here we are.
+My parents had me when they were very young. Like very young, right out of high school. When you're that age, I guess it feels like everything matters and your choices will last the rest of your life. I just wish they'd lasted more than a few years. It wasn't until I was much older that I realized just how much they were children, unprepared for their own children... but here we are.
 
 Mom especially wasn't. I had no idea how much she struggled every single day, why she always looked tired and sick whenever I saw her. Why she breathed funny and never showed her teeth when she smiled. I used to be mad at her for being so absent from my life. But now I understand just how hard she tried. Every single day. 
 
