@@ -1,3 +1,5 @@
+[Part one](https://www.reddit.com/r/nosleep/s/LQXqFGNouK)
+
 It was the end of the school day, and the halls were finally quiet. Papers graded, lights off, another day done. Outside, the dark had settled in — that thick kind of dark that even a seasoned hunter has to squint through.
 
 That damn comment from last night still lingered in the back of my head — something about running myself ragged, about instincts, and family interest. It shouldn’t have stuck with me, but it did. Maybe because they weren’t wrong.
