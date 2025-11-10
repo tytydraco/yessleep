@@ -2,7 +2,7 @@ Just before my eleventh birthday, my grandfather had invited me along for a two-
 
 That morning couldn’t have been better. The sky was pale blue, and the air crisp enough to sting a bit when you breathed deep. We walked slowly down the trail, taking turns with the binoculars to look at birds. He’d point out their names like he was listing old friends. Around noon, we found some late-season lingonberries and filled a small tin cup before moving on. 
 
-Not long after, we met another hiker coming down the trail. My grandfather greeted him by name. He was an older man with a red jacket and a face that looked weathered but kind. They started talking about local fishing spots and timber prices, things I had no interest in at the time. 
+A few hours later we met another hiker coming down the trail. My grandfather greeted him by name. He was an older man with a red jacket and a face that looked weathered but kind. They started talking about local fishing spots and timber prices, things I had no interest in at the time. 
 
 The sun was already approaching the horizon, casting orange light through the branches. I remember thinking it’d be nice to find a place to camp before dark. So, being young and impatient, I told them I’d go ahead a little to look for a spot. My grandfather just nodded and said not to go too far. 
 
