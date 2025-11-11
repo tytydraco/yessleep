@@ -412,9 +412,7 @@ That's when the water around us began to glow.
 
 The luminescence rose from the depths like we'd seen before, but this time it was brighter, more intense. And in that growing light, I could see the true scale of what lay beneath the water.
 
-It wasn't a lake at all. It wasn't a lake. It went down forever. An eye, a well, a portal, an abyss eternal and bottomless. Vast and deep. Alien light. Forever and ever.
-
-I screamed. I know I screamed because my throat was raw afterward, but I couldn't hear the sound over the roar of blood in my ears. Chester was screaming too, or maybe laughing, I couldn't tell which.
+The lake wasn't a lake. It was an eye and it was a portal and both in ways that made my brain hurt to hold. It went down forever but the bottom was right there, close enough to touch and impossibly distant. The water was looking at us, not looking up through water, the water itself was the looking, and I could feel it seeing backward through my life, through time that stretched behind and ahead simultaneously. Chester was screaming something about it coming out and going in, and he was right, it was moving in both directions at once, rising and sinking, emerging and submerging, present and absent.
 
 The eye blinked.
 
@@ -424,9 +422,9 @@ This shook Chester out of his fugue.
 
 We both dug our paddles into the glowing surface, fighting against currents that felt more like muscle contractions than water flow.
 
-As we stumbled out of the boat onto the shore, I made the mistake of looking back.
+As we stumbled out of the boat onto the shore, Chester made the mistake of looking back.
 
-The eye was there, staring up at us through bottomless layers of water that should have blocked any light. And in that ancient gaze, I saw recognition. It saw us. It saw into us and though us. Something in Chester's mind shattered. I could see it in his eyes. I grabbed him and dragged him down the tunnel.
+Chester's eyes went grey and cloudy and distant. Something in him changed, something had broken. I grabbed him and dragged him down the tunnel.
 
 We abandoned the raft and ran for the passage, leaving our carefully gathered equipment scattered on the cavern floor. Up through the elevated passage, down the ladder we didn't even bother to retrieve, through the cave system toward the blessed light of day.
 

@@ -74,7 +74,7 @@ It has been fifteen years since. I live on my own now, far away from my hometown
   
 
 
-But my father was right. *I feel the Hunger*, a few years after, I started to feel it, the intense hunger pains, the drive for blood and meat. Food started tasting less nourishing, more like nothingness, and more and more, *I crave b*lood. I don’t remember when it started; it just did, like something inside me awoke and is never going back to sleep. So far, I have survived off draining animal blood from nearby farms, things most people chaulk up to wild animals, but it is not enough, something inside me always tells me *I want more, fresh human blood.* I can only hope it won’t come to that.
+But my father was right. *I feel the Hunger*, a few years after, I started to feel it, the intense hunger pains, the drive for blood and meat. Food started tasting less nourishing, more like nothingness, and more and more, *I crave b*lood. I don’t remember when it started; it just did, like something inside me awoke and is never going back to sleep. So far, I have survived off draining animal blood from nearby farms, things most people chalk up to wild animals, but it is not enough, something inside me always tells me *I want more, fresh human blood.* I can only hope it won’t come to that.
 
 
 
