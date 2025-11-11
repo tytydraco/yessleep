@@ -170,7 +170,7 @@ I met Uncle for the first time at my mother’s wake.
 
 He was a tall, beady-eyed man, with an unrepaired cleft lip that whistled as he talked. Despite living in a trailer park on the outskirts of town, he arrived at the proceedings dressed in a lavish, brick-colored three-piece suit.
 
-As I stood over the casket, vacantly tracing swirls in the wood with my eyes, he walked over and placed a skeletal, ring-covered hand on my shoulder. After introducing himself, he reluctantly informed me that I’d be returning home with him. He did not express condolences.
+As I stood over the casket, vacantly tracing swirls in the wood with my eyes, he walked over and placed a slim, ring-covered hand on my shoulder. After introducing himself, he reluctantly informed me that I’d be returning home with him. He did not express condolences.
 
 I had my doubts about him, but the truth of his identity seemed irrelevant.
 
