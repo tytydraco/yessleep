@@ -237,3 +237,9 @@ The Sun is hurting people, and I don’t know how much longer I’ve got until i
 •
 
 The sun finally set, I think I’m going to leave. If I don’t make it, don’t expect an update.
+
+•
+
+-Update-
+
+Sun’s back up again. I wasn’t able to get home in time. 
