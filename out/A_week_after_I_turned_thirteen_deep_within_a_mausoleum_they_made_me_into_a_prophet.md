@@ -60,7 +60,7 @@ Should I run?
 
 Should I hide?
 
-Should I panic? Wail and thrash and bawl until I finally break this fever dream, waking up safe and sound at home with Mom?
+Should I panic? Wail and thrash and bawl until I finally broke this fever dream, waking up safe and sound at home with Mom?
 
 Or should I just keep going?
 
