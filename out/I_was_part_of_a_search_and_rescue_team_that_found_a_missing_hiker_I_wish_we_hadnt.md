@@ -135,7 +135,7 @@ The porch groaned under our weight as we stepped onto it, loose boards threateni
 
 We pulled up a couple of stools and sat at the leaning table, opening a few cans of beans for a small dinner. Kevin ate slowly, each spoonful a struggle, his body trembling with every bite. Occasionally, a mouthful would set off a coughing fit that had him doubled over, hacking and sputtering, but he kept going, insisting he was ok.
 
-After supper, we tried to distract ourselves with a game of cards. The cabin creaked around us, the wind rattling the windows, but inside, for a little while, it felt calm—almost normal. We laughed softly at a botched hand or a lucky draw, and the world outside, with its dangers and horrors, seemed to fade. Replaced instead by the illumination of our flashlights and the faint scent of damp wood.
+After supper, we tried to distract ourselves with a  couple games of cards. The cabin creaked around us, the wind rattling the windows, but inside, for a little while, it felt calm—almost normal.
 
 “Well, that was fun,” Charles said, then reached into his pack and pulled out the flare gun. He spun it playfully in his hand, grinning. “Alright, gentlemen — who’s up for a round of Russian roulette?”
 
@@ -143,15 +143,16 @@ We all laughed. The tension of the day slipped away for a moment, replaced by th
 
 Outside, the full moon hung high, its pale light cutting through the grime-smeared window and spilling across Kevin’s back. He suddenly stopped mid-laugh and his smile melted into a blank expression. His eyes went glassy and unfocused. Then he pitched forward, retching violently.
 
-The first wave hit the floor with a wet splash, splattering across his cards and the worn planks of the hut. The sour stench of half-digested beans filled the cramped space almost instantly.
+The first wave hit the table with a wet splash, splattering across his cards. The sour stench of half-digested beans filled the cramped space almost instantly.
 
 “Ah, shit!” I yelped, scooting back hard off the chair to avoid the spray.
-“You good, man?” Charles asked, his voice caught somewhere between concern and disgust, shuffling back with me.
+“You good, man?” Charles asked, also shuffling backwards, his voice caught somewhere between concern and disgust. 
+
 “I… I think so,” Kevin wheezed, wiping his mouth with the back of his hand. “Not sure why that happ—”
 
 He didn’t finish. His chest lurched, and another violent convulsion wracked his frame. The second eruption was worse than the first—his remaining teeth shot free of his mouth with the bile, bouncing and scattering across the cabin’s floorboards like thrown dice.
 
-Kevin gagged, then wrenched forward a third time. This time it wasn’t beans, but a thick, dark-red spray that gushed out in a pulsing arc, splattering across the table, pooling on the already slick floor until the whole place stank of iron and bile.
+Kevin gagged, then wrenched forward a third time. This time it wasn’t beans, but a thick, dark-red spray that gushed out in a pulsing arc, pooling on the already slick floor until the whole place stank of iron and bile.
 
 And then the convulsions hit. His arms snapped tight against his chest, then flailed outward, legs kicking spasmodically as though he were a puppet jerked by tangled strings. His thin body bowed unnaturally, the sound of joints straining audible.
 
