@@ -1,0 +1,19 @@
+This experience happened to me at the tail end of my first year of college. My roommates and I were planning on going to a steampunk fair together. However, at the last minute, I realized that my finals would conflict with the date and time we had set. Long story short, I told them not to change anything for me, so I decided to go to the fair separately by myself. 
+
+As I wandered around the fair in my costume and checked out the vendors, I found myself joining a casual, fun conversation with a security guard and a vendor. We were all enjoying ourselves, and everything genuinely seemed normal. After about half an hour of chatting, the security guard leaves, and I continue chatting with the vendor. Needless to say, things got weird very quickly. By this point, I'm feeling pretty comfortable talking to this vendor guy, so when he starts discussing bizarre personal things immediately after the security guard leaves, I feel internally shocked.
+
+For context, I was 19 at the time. I honestly don't remember the specifics of how things escalated so quickly. Still, he ended up talking about how he does a lot of "fun" things with other men my age, and that he likes to "kidnap" them after his concerts and do "fun" things to them in his basement. Mind you, this guy had told me he was married beforehand and had a family.
+
+As someone who had never been put in a situation like that before, I obviously felt highly uncomfortable. However, I didn't want to let him know that, so I continued with the same friendly and casual tone so he wouldn't suspect anything. 
+
+I kept my responses short and looked for an out multiple times during the conversation, but he just kept going. One thing led to another, and he ended up showing me his phone gallery. Long story short, there were a lot of men my age tied up in sexually provocative poses, fully naked and wearing blindfolds. He told me to pay no attention to them as he quickly scrolled past them to show me pictures of his concerts. He then said that I could visit him at a location in New York to see a concert of his next weekend, and afterward he would "kidnap" me in his car. (I am not joking, he said that part so casually that it immediately stuck with me)
+
+By this point, I was internally screaming. I never thought I would ever be in a situation like this in my life. The final straw occurred when he told me to share my number with him, and I was so scared that I just went along with it. Now, don't get me wrong, I'm aware that I never should have done this. However, at the moment, I was so freaked out, and I could sense the conversation was ending. Like I said, I did not want him to suspect anything from me, so I just decided to play it as cool as possible. 
+
+After I gave him my number, opportunity struck, and I acted accordingly, leaving him immediately. Once I got away from him, I immediately decided to leave the fair and drove back to campus. 
+
+He ended up texting me the following weekend, asking if I would be at his next concert, and I didn't even open the message. If you're asking why I never blocked or deleted his number, I was considering using it as proof in the rare case things escalated further. 
+
+Again, thankfully, after ignoring his message, nothing more came from this experience, and I just moved on without telling anyone. It's been over 3 years since this incident happened, and I have never gone to a fair since. I still do have a desire to attend more in the future, but never by myself again. 
+
+In hindsight, it is very ironic that the security guard had no idea the person he was sharing pleasantries with was a total monster. Honestly, part of me wonders if I should have found him afterward and explained what had happened; however, in the moment, I just wanted out. 
