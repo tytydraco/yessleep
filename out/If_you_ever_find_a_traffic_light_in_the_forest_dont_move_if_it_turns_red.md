@@ -36,4 +36,6 @@ Somewhere far off, a bird called, breaking the silence. My grandfather suddenly 
 
 As we walked back to the trail, my grandfather had his arm wrapped around me and told me to keep my eyes closed. I wasn’t supposed to look, but I did, a quick glance as we passed the remains of what had once been a person. A pile of clothes lay on the ground, charred, with thin wisps of smoke rising from them. The surrounding grass was stained dark red. 
 
-Our trip was obviously cut short, and we made our way back to the car in the dark. Since then, I’ve asked my grandfather multiple times over the years about what he saw after the light changed to red, but he has refused to speak of it. As far as I know, the man we met on the trail that day is still listed as missing by the police. I think my grandfather knows more than he lets on about what we found. I’ve thought about going back there for years to see if it’s still there, but I haven’t dared. Not yet. 
+Our trip was obviously cut short, and we made our way back to the car in the dark. Since then, I’ve asked my grandfather multiple times over the years about what he saw after the light presumably changed to red, but he has refused to speak of it. As far as I know, the man we met on the trail that day is still listed as missing by the police. 
+
+I think my grandfather knows more than he lets on about what we found. I’ve thought about going back there for years to see if it’s still there, but I haven’t dared. Not yet. 
