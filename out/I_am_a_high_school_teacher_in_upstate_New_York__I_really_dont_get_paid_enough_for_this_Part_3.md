@@ -1,5 +1,7 @@
 [Part two](https://www.reddit.com/r/nosleep/s/xEGIGeDnqx)
 
+[Part four](https://www.reddit.com/r/nosleep/s/YI7YKcfibv)
+
 To the people helping me keep going, I’ll answer a few questions. The reason I live in New York is that I used to live somewhere else—where, I’d rather not say. But after what happened to my father… and what happened to me… I had to move.
  
 If I’m being honest, I was scared. Scared my mother would take me out the way she did any other monster. That wouldn’t have been unexpected for a Hemmings. Hatred runs deep in our bloodline—old, deliberate, inherited. We were raised to believe monsters didn’t deserve mercy.

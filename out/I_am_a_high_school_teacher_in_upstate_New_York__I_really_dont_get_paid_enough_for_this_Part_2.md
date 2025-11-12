@@ -1,5 +1,7 @@
 [Part one](https://www.reddit.com/r/nosleep/s/LQXqFGNouK)
 
+[Part three](https://www.reddit.com/r/nosleep/s/aja03N1Tqe)
+
 It was the end of the school day, and the halls were finally quiet. Papers graded, lights off, another day done. Outside, the dark had settled in — that thick kind of dark that even a seasoned hunter has to squint through.
 
 That damn comment from last night still lingered in the back of my head — something about running myself ragged, about instincts, and family interest. It shouldn’t have stuck with me, but it did. Maybe because they weren’t wrong.
@@ -60,7 +62,7 @@ I didn’t answer. Just shoved the knife in again — deeper, until its breath h
 
 For a long time, I just stood there, panting, listening to the faint ring in my ears. My side burned, and I pressed a hand to it — warm blood against cold skin.
 
-When I looked down, the werewolf’s body was already starting to change. Fur thinning, bones shifting. A man lay where the creature had fallen. His face was young. Too young.
+When I looked down, the werewolf’s body was already starting to change. For thinning, bones are shifting. A man lay where the creature had fallen. His face was young. Too young.
 
 The smell still lingered, though — that same copper tang. The same one that haunted me every time I dreamed of the forest.
 
