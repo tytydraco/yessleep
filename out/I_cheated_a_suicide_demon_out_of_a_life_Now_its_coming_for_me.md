@@ -340,4 +340,4 @@ Now I’m sitting on the edge of a skyscraper with my feet hanging off the edge.
 
 This entity is real. I know it is, because it's inside the heads of my entire family. It’s torturing me. Tearing me down by using the people I love the most. 
 
-It feeds on my pain and suffering. And it wants me to make a choice. After careful consideration, I think I’ve reached one.
+It feeds on my pain and suffering. And it wants me to make a choice. After careful consideration, I think I’ve reached [one](https://www.reddit.com/user/ElliotPryce/).
