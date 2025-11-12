@@ -304,7 +304,3 @@ The family had moved away while I was in the hospital, so abruptly and so thorou
 
 At times, I thought I imagined them all. I had told so many lies that fact and fiction began to blur together. Maybe, for all my censure of imaginary friends, I had created one so vivid that it haunts me even now. Maybe the scars on my hand really are from a possum. But then again, that wouldn't align with what my nurse told me back then, when she slipped into my room when my parents were gone to ask me what had really happened. She never managed to wrench the truth out of me, but she did let slip why she was asking. Apparently, the teeth marks in my skin were less consistent with the jaw of a possum, and more so with one of an adult human. 
 
-
-
-I'm sorry, Lady, and I'm sorry, Cooper. I hope that wherever you are now, you're alright, and that you forgive me for not believing you about your imaginary friend. 
-
