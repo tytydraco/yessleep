@@ -1,5 +1,7 @@
 [Part Three](https://www.reddit.com/r/nosleep/s/k0Klf2zMut)
 
+[Part Five](https://www.reddit.com/r/nosleep/s/nLjsfZ16E4)
+
 After meeting that ancient, godlike ancestor of my species, something inside me finally quieted. The animal part—the one that never stopped growling beneath my skin—felt calmer, almost at peace. For the first time in months, I got real sleep. A week of it, full nights without the twitching, the nightmares, or the restless pacing.
 
 It did wonders for my mind. I could think clearly again, breathe. The chaos that usually sat in my chest finally felt… manageable.

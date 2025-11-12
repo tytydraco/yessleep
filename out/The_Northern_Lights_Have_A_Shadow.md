@@ -6,7 +6,13 @@ Maybe ten or fifteen miles off the highway and a mile outside of Sister Bridges 
 
 It was my first time. I was in awe. If you've witnessed this miracle, you've sensed the sublime.
 
-Pulled over on the side of the road I watched. There didn't seem to be anyone out tonight. I hadn't noticed any headlights in the better part of an hour. So I stood there in a swampy landscape of shorewillow and sedge and naked cottonwoods and I watched. After so long, however, the shapes began to *change*. The curtains seemed to give way to a domelike structure, a dome that ascended higher into the zenith until the roiling emeralds and ghostly white tendrils at last broke through.
+Pulled over on the side of the road I just watched. There didn't seem to be anyone out tonight. I hadn't noticed any headlights in the better part of an hour. So I stood there, stupefied, in a swampy landscape of shorewillow and sedge and naked cottonwoods and I drank my eyes full. Those deep magentas. 
+
+After so long, however, the shapes began to *change*. 
+
+It was almost gradual at first. For a moment.
+
+The curtains seemed to give way to a domelike structure, a dome that ascended higher into the zenith until the roiling emeralds and ghostly white tendrils at last broke through.
 
 Abruptly, something was cast to the earth. Beneath the enormous coil of plasma, a black so black I could hardly look at it. I blinked in the blue silver darkness, rubbed my eyes.
 
