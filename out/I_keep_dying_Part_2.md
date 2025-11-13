@@ -1,4 +1,4 @@
-[(1)](https://www.reddit.com/r/nosleep/s/OxzhfWF1WW)
+[(Part 1)](https://www.reddit.com/r/nosleep/s/OxzhfWF1WW)
 
 I still couldn't really attend class, but I made sure to text mom and dad to tell them not to worry. I weighed the options of shutting off the other three phones, but decided to text my parents on each, telling them I would be going camping and out of service. I didn't understand what would happen if the other parents went too long without hearing from me. I didn't need the police showing up to discover the bodies piling up in my laundry room. 
 

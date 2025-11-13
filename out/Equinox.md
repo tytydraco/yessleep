@@ -206,17 +206,17 @@ You never forget something like that. The rotting smile and eyes bleeding with p
 
 I look up to see him facing down, one head length over me as I look. And the more I look, the more I *feel* what happened. More than remember, I still hear his screams. And mine. And that monster's. But it wasn't the same now. I look at his leathery face, and the stitches across its mouth, as something in me forces me to stay, to look closer. Part of me knew, but I needed more. I reach into my pocket and flip open my knife. One arm grabs onto his soft shoulder while the small blade wrenches into the scarecrow's mouth. Through the thatch, through the stitch-string and straw, I cut.
 
-The crows caw, and the sky darkens. My grip tightens and I cut more frantically, breathing heavier with every sawing motion I make. The dark inside the scarecrow's head starts to give way. A black widow spider crawls out from the corner of his mouth.  I cut. I don't know what I'm thinking, but there has to be something I know there is. 
+The crows caw and the sky darkens. My grip tightens and I cut more frantically, breathing heavier with every sawing motion I make. The dark inside the scarecrow's head starts to give way. A black widow spider crawls out from the corner of his mouth.  I cut. I don't know what I'm thinking, but there has to be something. I know there is. 
 
-The low rumble of distant thunder, cut. More crows, cut. The creaking of the post, cut!
+I hear the low rumble of distant thunder, and I cut. More crows start circling overheard, cut. The creaking of the post gets louder with each movement, cut.
 
 With the last slice of my pocket knife across the straw, the scarecrow's mouth hangs open, and I see it. Teeth.
 
 Two canines a bit sharper than usual, and two crooked front teeth, like they were fighting for each other's place. I knew. All along, I knew this, I feared this, woke up in the night screaming of this. All those years, I never wanted to believe it. But now I see. Now I know. And that's enough.
 
-Today's the day. The equinox. Whatever's special about this day, whatever makes it happen, it'll happen again tonight. Or rather, it would've. As the storm from miles away slowly rolls in, I split three cans evenly between the house and the field, and I watch it all burn. I remember that space heater my Dad put in my room for me, and I think of him. The sun hasn't set yet, and I see the rising flames start to crawl and spread along the four corners of that post, engulfing what's on it.
+Today's the day. The equinox. Whatever's special about this day, whatever makes it happen, it'll happen again tonight. Or rather, it would've. A storm from miles away gets closer and I split three cans each between the house and the field, and I watch it all burn. I remember that space heater my Dad put in my room for me, and I think of him. The sun hasn't set yet, and I see the rising flames start to crawl and spread along the four corners of that post, engulfing what's on it.
 
-Then I finally put that place behind me. On the open road, I look in the rear-view mirror to see the black clouds of smoke rise in the sky, as if begging for the coming rain. I'm shaking now and I don't really know what to say.
+Then I finally put that place behind me. On the open road, I look in the rear-view mirror to see the black clouds of smoke rising in the sky, as if begging for the coming rain. I'm shaking now and I don't really know what to say.
 
 I guess... I guess this has all been for you, Daddy. You loved me. And you saved me. And I miss you. I miss you so much...
 
