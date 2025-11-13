@@ -5,11 +5,11 @@ Even the previous night’s events couldn’t stop me from sharing a secret smil
 
 “I still think it’s rubbish, you lot getting to open the burial chamber while I’m stuck in the communications tent all day.”
 
-As it turned out, the Ministry of Antiquities had little interest in interfering with a determined young woman’s desire to remain on site, no matter what James had to say. Unfortunately, it did fall within his purview what duties she performed. For the time being, Sam was tasked with sending and monitoring emails, maintaining records, and other administrative tasks.  
+As it turned out, the Ministry of Antiquities had little interest in interfering with a determined young woman’s desire to remain on site, no matter what James had to say. Unfortunately, it did fall within his purview what duties she performed. For the time being, Sam was tasked with sending and monitoring emails, maintaining records, and other administrative tasks.
 
 “Take it easy, Sammy.” Jorge grinned as Sam crinkled her nose. She hated that nickname. “At least they’re lettin’ you stay.”
 
-“Oh yes, I can’t believe my luck. I’ve always wanted to be someone’s secretary!”  Sam threw her hands up in disgust, and I caught a glimpse of the purple veins and dark bruise peeking around the bandage covering her hand. Jorge must have seen it too, because he got that smartass look on his face.
+“Oh yes, I can’t believe my luck. I’ve always wanted to be someone’s secretary!” Sam threw her hands up in disgust, and I caught a glimpse of the purple veins and dark bruise peeking around the bandage covering her hand. Jorge must have seen it too, because he got that smartass look on his face.
 
 “You know, Sammy. I think you’re lucky. There’s these people that pay for bee stings. Supposedly it jump-starts the nervous system or whatever. Maybe scorpion stings do the same kinda’ thing. And just think, you got yours for free.”
 
@@ -157,13 +157,39 @@ I took the first step down the stairs, careful to soften each footfall on the st
 
 I looked back at Jorge. His expression was stoic, but his eyes betrayed something bordering on fear. The scent of fresh incense mingled with the tomb’s musty odor. It occurred to me the first time this idiot playing Egyptian Priest might actually be using some of the resins we found in the store room for this ridiculous ritual. I was getting impatient waiting for the R.O.V., but I had to restrain myself. Once we had video evidence, we could rush into the chamber and put a stop to this.
 
-I knew whatever was going on in the chapel was nothing but new age hokum, ancient practices cherry-picked and mixed with modern spiritualism, but something about the rise and fall of the chanting and the shadows playing over the walls and floor made me shudder. We were halfway to the chapel, near the middle set of buttresses, when Jorge nudged me on the shoulder. I stopped in my tracks and stood next to him, looking at the spinning greyscale camera footage as the R.O.V.’s forward infrared camera unstowed itself. Jorge zoomed in and switched to video.
+I knew whatever was going on in the chapel was nothing but new age hokum, ancient practices cherry-picked and mixed with modern spiritualism, but something about the rise and fall of the chanting and the shadows playing over the walls and floor made me shudder. We were halfway to the chapel, near the middle set of buttresses, when Jorge nudged me on the shoulder. I stopped in my tracks and stood next to him, looking at the spinning greyscale camera footage as the R.O.V.’s forward infrared camera un-stowed itself. Jorge zoomed in and switched to video.
 
-Orange flames licked the air from oil lamps set at the four corners of the room, casting polygonal shadows from the pelican cases strewn across the floor. They didn’t offer much light, but they gave off enough to give us a glimpse of James, kneeling behind a reed mat in front of the serdab, encircled by a thin cloud of smoke from the incense burning in a brass bowl. I don’t know how long we stared at the screen in disbelief as he chanted, rocking gently back and forth in time with his speech. Glowing red eyes peered through the cloud of smoke from the serdab, growing brighter with the rising intensity of James’ voice. My blood ran cold when an inhuman screech reverberated down the passageway, carried on the wings of an icy breeze flowing past us. All the color drained from Jorge’s face. He locked eyes with me for a split second before shutting the controller case. No words passed between us as we got to our feet and backed into the shadows at the bottom of the passageway before we ran from that place. We threw caution to the wind once we reached the stairs outside and ran for camp. We didn’t try hiding in the shadows; we ran across the empty space in the middle of the ring of tents until we got back to Sam’s tent.
+Orange flames licked the air from oil lamps set in the corners of the room, casting polygonal shadows of the pelican cases strewn across the floor. They didn’t offer much light, but they provided enough to give us a glimpse of James, kneeling behind a reed mat in front of the serdab, encircled by a thin cloud of smoke from the incense burning in a brass bowl.
 
-We must have sounded half-crazy when she let us in. Recounting James’ ritual, the noises we heard, and the wind flowing from the tomb had the same effect as reliving these events. My heart raced. Jorge ‘needed’ a cigarette.
+I don’t know how long we stared at the screen in disbelief as he chanted, rocking gently back and forth in time with his speech. An aura of red light poured over James’ face, rising and falling with the intensity of his voice. The way the camera was placed, I couldn’t tell where this light was coming from. My thoughts raced to the Ka Statue.
 
-“You’re sure it was James?” Sam asked.
+"Can you get a view of the inside of the serdab? I want to check something out." I whispered.
+
+"Not unless you want me to move the R.O.V.."
+
+I thought of the noised it made earlier that day navigating the empty chamber, it's rubber caterpillar treads squeaking over the floor, servo motors whining, mechanical brakes clicking. It wasn't an option. I glanced at the red glow, advancing and receding down the passageway like the tide coming in. My curiosity got the better of me, and I found myself being drawn up the passageway.
+
+“Hey, are you nuts or something?” Jorge hissed under his breath. “Derrick, get back here!”
+
+My actions felt like someone else’s. I was dimly aware of something in the back of my mind causing me to walk up the center of the passage. I wasn’t trying to hide, but I don’t think I needed to. James was too entranced to notice me as I neared the top of the passageway, bringing the chamber into view. My heart pounded in my chest, sending blood that had turned to ice through my veins as I looked through the haze of smoke into the glowering eyes of the Ka statue. They were almost hypnotic. I felt lightheaded as I made eye contact with those shifting red eyes. My world spun.
+
+I was back in the nightmare, the one I thought I’d stopped having. The one where all I can hear is her haunting voice calling out for me as I fight the river’s current. I can see her, drifting further underwater, about to be ripped away from me. Sunken snags reach up for her from the river floor with rotting, blackened limbs. I dive after her shadowy form, reaching helplessly back for me.
+
+This is usually the part I clasp her hand in mine and clamp down on it with all my strength, not wanting her to slip away again. This time, the sight of another figure, rowing an ancient boat along the river bottom scares me so bad I stop short. I recognize it from the chapel mosaic, only now it has the same glowing red eyes as the ka statue. Its silhouetted form reaches out with sharp, angular limbs, summoning her to join it. I fight the current with renewed fury, lungs burning, but I pay no attention. I’ve dreamed this nightmare enough times not to care about drowning, not when she’s so close. I almost have her hand in mine when I’m caught in the forked branches of a submerged tree. They wrap tighter and tighter around my chest. My vision blurs and lungs burn with an intensity I’ve never experienced. I inhale filthy river water tasting like death and decay a second before I’m ripped back to reality.
+
+Jorge squeezed my chest from behind and I vomited water from my lungs onto the floor. My vision swam with bright dots and I gradually became aware of the fact I was no longer in the chapel. Jorge muttered something as I coughed up the rest of the earthy water onto the stairway to the tomb.
+
+“Get up man, we can’t stay here!” The R.O.V. controller shook in his terrified hands as he half-dragged me up the stairs. A gust of air ripped from the mouth of the tomb, carrying a muffled, inhuman screech. Airborne mites of sand scratched at my eyes as we struggled to the top of the stairway and ran back to camp.
+
+"What the hell was that, Derrick? What the hell happened to you?" He panted, a bit too loud for comfort. I didn’t know what to tell him. I felt a strange sense of guilt for the trance I was lured into. I didn’t want him or Sam to question my mental state.
+
+“I just had to know,” I started, not sure how to end the sentence. “I had to find out about the Ka statue’s eyes.”
+
+“We’re just damn lucky you didn’t get us caught,” Jorge said, his sidelong glance betraying his skepticism.
+
+We must have sounded half-crazy when Sam let us in her tent. Recounting James’ ritual, the noises we heard, the thing we saw. My heart raced. Jorge ‘needed’ a cigarette. He refrained from mentioning my trance, but I registered uneasiness in his expression when he looked at me.
+
+“You’re sure it was James?” Sam asked us for the fifth time.
 
 “I know that creep when I see him,” Jorge said, exhaling smoke with his words. We caught him red-handed, doing whatever that was.”
 
@@ -191,4 +217,6 @@ Sam glanced upward, searching through her memory for someone, anyone who might b
 
 “Naw,” Jorge shook his head. “They get stored on a hard drive inside Rover. I’d have to download ‘em. It wouldn’t take me more than a few minutes.”
 
-“Here’s what we need to do,” I said. “Tomorrow, we’ll get the video files off the R.O.V. We’ll email Ossendorf first thing. Hopefully, he can help us before James ruins disrupts anything else on site.”
+“Here’s what we need to do,” I said. “Tomorrow, we’ll get the video files off the R.O.V., We email Ossendorf first thing. Hopefully, he can help us before James disrupts anything else on site.”
+
+ 
