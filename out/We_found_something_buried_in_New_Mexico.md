@@ -35,6 +35,6 @@ They were down there for just twenty minutes or so. I pulled Cara up out of the 
 	“They were like… barrels.” She whispered, not looking me in the eye.
 	I felt her trembling. It was the last time I saw her whole.
 
-Cara, Mandelson and the rest of the team died shortly after. Their symptoms were all the same. Vomiting, burns… they rotted as their hearts kept beating. The site was shut down, covered up. Officially, it never existed. The researchers who spent their summer their aren’t to talk about it, aren’t to make contact with anyone else involved. I haven’t left Michigan since Returning home. I don’t know what that thing was out there. I don’t want to know. I want it to stay buried.
+Cara, Mandelson and the rest of the team died shortly after. Their symptoms were all the same. Vomiting, burns… they rotted as their hearts kept beating. The site was shut down, covered up. Officially, it never existed. The researchers who spent their summer there aren’t to talk about it, aren’t to make contact with anyone else involved. I haven’t left Michigan since returning home. I don’t know what that thing was out there. I don’t want to know. I want it to stay buried.
 
 I miss you, Cara.
