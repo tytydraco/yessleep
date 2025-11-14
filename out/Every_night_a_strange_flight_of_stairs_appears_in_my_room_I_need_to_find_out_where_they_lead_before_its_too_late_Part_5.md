@@ -1,4 +1,4 @@
-[Part 4.](https://www.reddit.com/r/nosleep/comments/1oc6dqh/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 4.](https://www.reddit.com/r/nosleep/comments/1oc6dqh/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 6.](https://www.reddit.com/r/nosleep/comments/1own10t/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I crossed back through the threshold into the familiar sight of the spiraling steps. To my relief the spot I had arrived in was devoid of anything that wanted to kill me, or worse.Though my relief was short lived. After taking only a few cautious steps upward, I caught the scent of something fetid and coppery. The smell grew stronger as I ascended, and then I saw it, a massive form sprawled across three steps, its skinless limbs contorted at unnatural angles.
 
@@ -20,7 +20,7 @@ Then her writing transformed, each letter suddenly looping with the elaborate fl
 
 The message ended in a violent streak that scraped deep into the stone, trailing off into nothingness. I knelt to examine the droplets spattered near the wall. Unlike the tar like ichor that had oozed from the grabber's wound, these glistened bright crimson under my flashlight beam, still wet enough to reflect light. My stomach twisted as I touched one with my fingertip, it was warm, and left a scarlet smear across my skin that looked like fresh human blood.
 
-I tried not to despair, but the sight was unnerving. I had hoped she had been able to escape. But the fact she was still climbing... that meant she was alive, if wounded, and it meant I would keep moving. 
+I tried not to despair, but the sight was unnerving. I had hoped she had been able to escape. But the fact she was still climbing... that meant she was alive, if wounded, and it meant I would keep moving.
 
 My leg throbbed. I could still feel the echo of the tentacles' grip, an aching numbness that cycled from the skin inward, as if some parasite was nibbling at my marrow. I ignored it and pressed on. The stench of the dead grabber faded, replaced by a new, sharp chemical tinge as the air grew denser and more humid the higher I went.
 
