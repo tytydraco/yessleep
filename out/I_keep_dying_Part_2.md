@@ -23,3 +23,5 @@ Just then, something clapped my shoulder. Before I could yelp, a gloved hand cov
 “Feeling self important, are we?” Sawyer quipped. “I already stated how far worse tests are underway here, under this roof. Pretty sure the localized black hole downstairs has most of the researchers pretty captivated at the moment.”
 
 My brows raised, alarmed yet slightly comforted at the outrageous suggestion.
+
+[(Part 3)](https://www.reddit.com/r/nosleep/s/vKmHkUvocx)
