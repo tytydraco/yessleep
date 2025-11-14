@@ -1,0 +1,45 @@
+Hey there,
+
+I am posting this here, because I want to vent a little bit. I know, normally you do this with family or friends, but the former is already worried enough about me moving to a new city for a job, and the latter, frankly, doesn’t really exist, at least not in a way that I could talk with them about the following.
+
+Roughly two years ago I moved from my hometown in the southern part of my country to a Metropolis on the outskirts of the big mountains that shape the eastern border to the neighboring land. Whereas my home village has icy winters and blazing hot summers, the climate in this new city is pretty much constant all year round. If one were to sleep for a long time and wake up without any clue on the date, they wouldn’t know which season prevailed, as the sky always has this grey overcast and the temperature constantly falls in between 10-15 degrees Celsius (which is 50-59 degrees Fahrenheit for you Americans out there). The coldish springs are passing the reign to damp summers, then the summers give them over to the wet falls and the muddy winters, where the cycle would start anew. The great unifier of the seasons however is the rain. As a national champion, my city generously offers between 210-230 rainy days a year. And it’s not the light sizzle I know from my hometown, not a refreshing mist on a hot summer day. The Rain here is heavy. Heavy and wet. Wet rain, original I know, but there’s no other way to describe it. It’s a kind of rain that soaks you completely after a couple of minutes, a kind of rain that cools you down to your bones and leaves you shivering, even after you sat in front of a hot stove for an hour or two. It has a quality to it, that drains you out.
+
+Even right now as I’m typing this, the droplets are tapping at my windows, begging to be let in. However, that’s not the only thing I hear. There is my old Computer wheezing for air, and my cat Flora snoring softly on my bed behind me. There is the old fridge in the kitchen humming quietly and the noise from the traffic eight floors below me. Lastly, I can hear the muffled argument of the couple above me. I hear her screams and his shouts. Then the crash of dishes thrown against the wall. After that, more shouting. It starts every day at the same time, 11 pm sharp, and it always lasts for exactly 23 minutes. Afterwards there is silence most of the time. I say most of the time, because every once in a while, there is this, I don’t know, whimper? I can’t tell if it’s coming from the man or the woman, as it’s so faint.
+
+The unintelligible sound is coming directly from above my apartment, which is impossible, because I live on the top floor of this building. They are shouting right now, and I swear by God, it comes from there. When I leave my flat the sound cuts off abruptly and only the creaking of the building is left. Before you press send on your comment: yes, I did look if the sound is coming from any air-vent in my flat. And yes: I did investigate the roof (crazy they leave the door to that unlocked), but there was nothing to see besides puddles and nesting birds. And the birds didn’t seem to have any marital quarrels, as far as I could observe. Hell, I even checked in with the weird old guy on my floor (the rest of the apartments up here are empty, because the whole building is a shithole), but he said he didn’t hear anything. He looked at me weirdly though. Dude gives me the creeps. When I came back, I locked the door, put the door-chain on and scanned the hallway though the peephole. Thankfully I was only greeted by the red light of the light switch on the wall across the corridor.
+
+All this could be explainable though. It could be a weird auditory phenomenon. An architectural quirk in which the building sends sounds from one apartment to another via vibration. Or maybe it’s some elaborate prank from Mr. Weirdo down the hallway. He doesn’t strike me as that kind of Prankster though. He seems more like a I’m-gonna-chase-you-with-an-axe kind of Prankster.
+
+Honestly, it would have been fine for me if I hadn’t found the second staircase.
+
+Last night, at the normal time of the spousal disagreement, I was on my way to bring the trash to the trash chute down the hallway. To get there I just need to go around the corner to the right and then to the end of the corridor. After I sent the trash bag on its way downwards, I saw this door I never noticed before. First, I never use the stairs to get to my floor, I just take the rundown elevator on the other end of the hallway. And if I would use the stairs, I would go for the ones right next to the elevator. It was possible I never became aware of these ones. What puzzled me was the look of the staircase and even the door leading to it. You see, all of my building is lovingly decorated with graffiti and tags from local artists and delinquents. This, combined with a certain “patina” gives the building a recognizable interior, if I can put it that way. The whole thing is grayish, and yeah, just dirty.
+
+But this door just stood out from everything. There were no tags smeared on it and a fairly clean (and unbroken) window showed an equally clean staircase. It was just too tidy. Almost hypnotized I reached my hand out, grabbed the door handle and opened it, just a little. Golden light flooded through the slit down on the dingy hallway and past the threshold was a clean, tiled Floor. I heard the voices again, arguing, just like in my apartment. Maybe a little louder this time. I peeked my head through the door and glanced upwards. Above me the staircase seemingly continued endlessly without a ceiling in sight. As I looked down it was the same. It continued bottomless into nowhere. I became dizzy.
+
+Suddenly I heard a Door slamming above me, and then heavy footsteps stampeding down the stairs. In that second the timer of the corridor light went off.
+
+The sudden plunge into darkness broke me out of my frozen state and I quickly turned around and ran back to my apartment. I closed and locked my front door. On the other side of the peephole was nothing besides the darkness and the little red glow from the light switch in the hallway. There weren’t any sounds anymore as well, no menacing footsteps and also no arguing above. A glance on my clock in the kitchen said it was 11:25.
+
+ That night I didn’t get any sleep in. This weird staircase fucked with my head too much. It wasn’t the first time I used the trash chute, so how didn’t I noticed it before? I pushed away an emerging theory and planned to check the stairway again in the safety of the daylight to see, if my eyes played a trick on me. Maybe there were Mirrors on ceiling of this weirdly neat staircase and my brain didn’t process that. 
+
+Today I went to check it out before work.
+
+IT.
+
+WASN’T.
+
+THERE.
+
+Did I have a psychotic break last night? Did I dream this? I don’t think so, but my brain is completely fried trying to give an answer to what happened. There wasn’t much time to ponder on this in the moment, because I already ran late to my shift. I work as a waitress in a busy restaurant, so I was able to take my mind of the situation for a while.     
+
+In the evening after my shift, I was in my Kitchen doing the dishes while nervously glancing at the clock, waiting for it to strike 11. After the arguing started I went back to the bedroom with the lights out. It felt safer that way, knowing that no light is pouring out under the slit of my front door. On the way I looked cautiously through the peephole. Only blackness greeted me. Same as in my flat, the hallway of the building was soaked in darkness. But something was off. It was almost unnoticeable, a little shift of weight, a little creak of the floorboards. Then I realized it. Normally I can see the little red glow of the light switch from across the hall? There is no power outage, the little lamp above my kitchen counter worked just a minute ago.
+
+I couldn’t see the light, because something was blocking the view.
+
+The hair on my arms stood up as my eye was glued to the door. I did not dare to move a muscle, afraid of making a sound. Frozen, I waited till the 23 Minutes passed. Shortly before the arguing above me stopped, the huge form in front of my door moved away into the direction of the weird staircase and I saw the red light again. When I dared to move again my back hurt and I slid down the door and cried for some time.
+
+I don’t know how to continue from here on. I can’t move out, I don’t really have the money for that. Calling the police also doesn’t seem like a good idea, because what the hell should I tell them? That the ghost-neighbors from their ghost-apartment above me keep argue every evening at 11:00 for exactly 23 Minutes? And that a phantom door appeared last night and then vanished again the next day? That’s a good way to get an appointment for a psychological evaluation.
+
+I'm at a loss. If you have any idea what this could be, please tell me.
+
+Lots of Love
