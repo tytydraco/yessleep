@@ -24,8 +24,6 @@ Ryn’s reaction was fairly predictable. She let out a weary sigh and shook her 
 
 I answered with an exaggerated eye roll and a playful shove. It wasn’t the first time she’d compared me to the Fae. Honestly… I wouldn’t even be surprised if my great-grandma had been right about our heritage in that regard.
 
-
-
 We spent the next couple of days resting and cleaning up the RV, settling into our new temporary home base. We’ve got a lot of belongings and still haven’t figured out the best system to keep things stable while on the move. I do my best, but there’s always a mess to deal with after we’ve driven any real distance.
 
 You think groceries yeeting themselves across your backseat is bad? Try moving your entire house.
@@ -43,8 +41,6 @@ I offered a quiet apology to the trees, and we finished up by lantern light befo
 The next day, I made an offering of honey in the same spot where I’d seen the entity, along with another apology for the generator noise from the night before. A warm, comforting feeling spread through my bones, and I took that as a sign that my offering had been accepted. I’d read up on folklore, which said such spirits were receptive to honey, and it seemed like the least harmful way to leave something in the woods.
 
 A few days later, we ended up getting back to the RV much later than planned. The closest town was about an hour away, so it took time to get home, and we usually dash fairly late anyway. By the time we arrived, it was nearly one in the morning. I made sure to keep the pups quiet while transferring them from the SUV to the RV, and a few hours later, I made another honey offering, paired with a soft apology.
-
-
 
 The Lady wasn’t the only entity we encountered at our campsite. One night, when we went to let the dogs out, they absolutely refused to step a paw outside. Not even blind and feeble Nova. Hela especially was shaking. She looked genuinely terrified. This was the doberman who didn’t hesitate to lunge at demons, so I took her seriously.
 
@@ -64,8 +60,6 @@ I didn’t tell Ryn what I’d seen until we were back home. She wasn’t impres
 
 Before anyone gets the wrong idea, I’m not particularly brave. Certainly not braver than Ryn. My fear response is just… kind of broken. Ryn says I have the self-preservation instincts of a wet tissue. But I can stay calm in almost any situation, and Ryn has the instincts to know when we need to skedaddle. Together, we make a great team, and we’ve got plenty of gear to keep us and our pups safe.
 
-
-
 Fast forward a few days, and we were running low on water. I’d miscalculated and washed a bunch of dishes. We weren’t heading back into town for a couple of days, so we were trying to figure out how to make our remaining water last that long.
 
 Half-joking, I asked if the Lady knew of any nearby water sources. To my surprise, she beckoned. I leashed Kyra to give myself an extra pair of eyes and ears and set off into the woods with an empty jug. Kyra usually walks calmly by my side, never pulling or trying to lead, but this time… she had other ideas. She seemed to be tracking something.
@@ -79,8 +73,6 @@ The trek uphill was harder, at least in theory, but somehow we had fewer issues 
 Aside from Ryn, I kept the experiences with the Lady mostly to ourselves. I knew most people wouldn’t believe me. I returned to the creek sometime later and refilled more containers with water, which lasted until we could make it back to town. I trusted that the creek was fairly clean, but I still filtered it through clean dishcloths over a pitcher, held in place with bungee cords. Then I boiled the water before using it. We all ate well that night, and our next DoorDash shift went smoothly. Things were looking calm and good on the homefront… until they weren’t.
 
 It was the Lady who first warned me that Blue and Yellow had found us again. Her tone carried that same quiet gravity it always did when danger was close. She told me she and the forest were acting as a buffer, keeping them from getting too close. But they could still mess with us, and trail the car whenever we left the forest’s safety. We’d need to be careful. Very careful.
-
-
 
 Not even a day after her warning, things started going wrong. The generator sputtered, coughing out weakly before dying altogether. It only worked about half the time we needed it. The SUV began stalling for no reason, gauges flickering.
 
@@ -128,8 +120,6 @@ The other dogs ultimately fell asleep, but ourselves and Hela maintained a stead
 
 If anyone has ideas about what that thing was, I’m open to suggestions. I’m still a little disappointed I didn’t catch any footage, but whatever it was, it reminded me of Shy Guy. Or maybe the Rake. Either way, it was absolutely ugly. I think it was trying to lure someone.
 
-
-
 On a particularly warm day, I decided to go down to the creek for a swim. I brought some saffron-infused honey for a third offering, as thanks for protecting us, and donned my SCP hat before heading into the woods. I didn’t take any of the dogs this time. Ryn stayed behind, absorbed in Pokémon on her Nintendo Switch.
 
 By now, I could navigate the woods easily, having memorized the trail to the creek. It usually took about half an hour to climb downhill, and roughly forty-five minutes to climb back up. I left around five p.m. to give myself plenty of time before dark, which was around seven. Thankfully, it was really overcast, so I didn’t have to fear the sun.
@@ -174,7 +164,7 @@ A faint tug brushed the back of my mind, a compulsion to leave another honey off
 
 The whispers started then. Soft, indistinct voices that flitted just out of range, accompanied by faint shapes darting at the edge of my vision. Every time I turned, they ducked behind the trees again. The air felt thick, humming with static.
 
-That’s when the buzzing in my ears began. Not loud, but constant, like the world itself had started vibrating. And for the first time, I understood the saying about tension you could cut with a knife. It felt eyes boring into me from everywhere. You know that feeling when someone is staring at you? Multiply it, and you’ll have the faintest idea.
+That’s when the buzzing in my ears began. Not loud, but constant, like the world itself had started vibrating. And for the first time, I understood the saying about tension you could cut with a knife. I felt eyes boring into me from everywhere. You know that feeling when someone is staring at you? Multiply it, and you’ll have the faintest idea.
 
 I turned and started walking, slow and careful, following a pull that I could feel deep in my chest. It was like a magnet lodged behind my ribs was tugging me somewhere specific. It just *felt* right, and that alone was unsettling.
 
@@ -194,13 +184,11 @@ I found myself emerging from a different campsite much farther up the road. A fa
 
 I turned onto the dirt road that linked all the campsites and started the long trek back to the RV. Somehow, the sun still hadn’t set. Ryn had to be out of her mind with worry by now, wondering where I’d gone. There was no cell reception anywhere in the woods, so I couldn’t call to reassure her.
 
-When I finally got back, I unpacked my phone and blinked at the screen. It was only a little past 5:30. Barely thirty minutes had passed in all that time. That… wasn’t possible. Even walking straight to the creek and back should have taken double that. Even using Naismith’s rule for hiking, it would’ve been at least thirty minutes one way, and another thirty or forty-five back. And that's just straight there and back.
+When I finally got back, I unpacked my phone and blinked at the screen. It was only a little past 5:30. Barely thirty minutes had passed in all that time. That… wasn’t possible. Walking straight to the creek and back should have taken double that. Even using Naismith’s rule for hiking, it would’ve been at least thirty minutes one way, and another thirty or forty-five back. And that's just straight there and back.
 
 I laughed out loud at the absurdity of it all. Ryn, ADHD as she is, hadn’t even noticed I’d left. Hela, though, was fascinated by my new treasure. She kept sniffing it and trying to steal it right out of my hand. The brat.
 
 If anyone has ideas about what that place was, or what might’ve happened, I’d love to hear your theories. It’s been bugging me ever since.
-
-
 
 We eventually were forced to seek another location, as we’d stayed too long. Oops. Thankfully, the deep puddles all dried up, so we could safely pass. I thanked the Lady once more, and gave her a heartfelt farewell. We were sad to go. I playfully imagined shadowy creatures loping alongside the SUV and RV as we made our exit in the middle of the night. At least, I’m *pretty* sure they were just my imagination. Either way, I’m sure Blue and Yellow weren’t far behind.
 
