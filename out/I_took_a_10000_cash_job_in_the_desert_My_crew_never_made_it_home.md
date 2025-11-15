@@ -32,25 +32,25 @@ The guy was sitting in a back booth, and dude, he was off. Like, seriously off. 
 
 He leaned forward, and I swear the temperature dropped ten degrees. "Desert work. Manual labor. You and a small crew will drive out to a remote location, spend one night camping, complete a job, and return. The pay is ten thousand dollars."
 
-My brain practically short-circuited. Ten grand? For one night of work? I was making maybe three hundred a week when I was lucky. This job had more red flags than a Chinese parade, but for ten grand? I was in.
+My brain practically short-circuited. Ten grand? For one night of work? I was making maybe two hundred a week if I was lucky. It might not sound like a lot to you, but for a homeless teenager twenty years ago this was like hitting the lottery. This job had more red flags than a Chinese parade, but for ten grand? I was in.
 
 "What's the catch?" I asked because I wasn't totally stupid.
 
 "No catch. Just hard work in difficult conditions. You'll need to be prepared for the heat." His pale eyes fixed on mine, and I felt like a bug under a microscope. "Can you handle the heat?"
 
-The way he said it made my skin crawl, but for ten thousand dollars? Man, that was like hitting the lottery.
+The way he said it made my skin crawl, but for ten thousand dollars?
 
-"Yeah, I can handle anything," I lied.
+"Yeah, I can handle anything."
 
 He slid a business card across the table. It was blank except for an address. "Tomorrow morning, seven AM sharp. Don't be late."
 
 And just like that, he stood up and walked out, leaving me sitting there wondering what the hell I'd just signed up for.
 
-The next morning, I walked up to this warehouse on the industrial side of town, the kind of place that looks abandoned but has too many fresh tire tracks in the dirt to actually be empty. The sun was already making the asphalt shimmer, and it wasn't even eight o'clock yet.
+The next morning, I walked up to this warehouse on the industrial side of town, the kind of place that looks abandoned but has too many fresh tire tracks in the dirt to actually be empty. The sun was already making the asphalt shimmer, and it wasn't even eight o'clock yet. It didn't help we were in the middle of a historic heat wave.
 
 There was a white box truck parked outside, and three other guys standing around looking about as confused as I felt.
 
-"Orale. This is some serious hardware," said this stocky Hispanic dude with tattoos covering his forearms. He stuck out his hand. "Pedro."
+"Órale. This is some serious hardware," said this stocky Hispanic dude with tattoos covering his forearms. He stuck out his hand. "Pedro."
 
 "Jay," I said, shaking it. His grip was solid, calloused from real work.
 
@@ -92,7 +92,7 @@ I started joking around with Pedro and Xavier, trying to lighten the mood, but K
 
 "Stow that shit and stay focused," she snapped. "This is serious business. People have died out here for being careless."
 
-Something in her tone caught my attention. This wasn't just about moving some rocks or digging holes. 
+Something in her tone caught my attention. This wasn't just about moving some rocks or digging holes.
 
 And I was about to find out what.
 
@@ -174,9 +174,9 @@ Pedro was already working on getting a fire started, stacking mesquite branches 
 
 "What you gonna do with your cut, Jay?" Xavier asked, settling down on his sleeping bag and pulling off his work boots. His feet were pale and wrinkled with sweat.
 
-I was chugging my dozenth bottle of water of the day, trying to replace what felt like half my body weight in lost fluids. "Dude, I'm gonna get an apartment with an air conditioner the size of a Buick and never leave. Maybe get a little refrigerator just for beer. Live like a king in climate-controlled comfort."
+I was chugging my dozenth bottle of water of the day, trying to replace what felt like half my body weight in lost fluids. "Dude, I'm gonna get an apartment with an air conditioner the size of a Buick and never leave. Maybe get a little refrigerator just for beer. Live like a king in climate-controlled comfort. Get my life back on track."
 
-"Ten grand goes fast," Red said quietly. He'd been even more withdrawn since we'd uncovered the sarcophagus, sitting apart from the group and staring at that tarp-covered shape like it might sprout legs and walk away. "Hope it's worth pissing off the feds."
+"Ten grand goes fast," Red said quietly. He'd been even more withdrawn since we'd uncovered the sarcophagus, sitting apart from the group and staring at that tarp-covered shape like it might sprout legs and walk away. "Hope it's worth the risk of pissing off the feds."
 
 "Come on, hermano," Pedro said, getting the fire going properly. The flames cast dancing shadows across the black volcanic rock. "This is easy money."
 
@@ -236,7 +236,7 @@ I sat up in my sleeping bag, rubbing my eyes, thinking maybe I was still dreamin
 
 Everyone except Pedro.
 
-"Pedro?" I whispered. His sleeping bag was empty.
+"Pedro?" I whispered. His sleeping bag was thrown open like he'd gotten up in a hurry.
 
 That's when I heard it. A grinding sound, like stone scraping against stone, coming from under the tarp. Slow, deliberate, like something heavy being moved by something that didn't care about making noise.
 
@@ -288,7 +288,7 @@ Red was already moving, sprinting toward the truck. I tried to follow, but my le
 
 I stumbled after Red, tripping over volcanic debris. He had maybe a twenty-foot head start when the shadow caught him.
 
-I saw it happen in my peripheral vision - this massive dark shape flowing over the ground like a liquid nightmare. Red didn't even have time to scream before it wrapped around him and yanked him sideways into the darkness. There was a wet, tearing sound, like shredding meat, then nothing.
+I saw it happen in my peripheral vision, a massive dark shape flowing over the ground like a liquid nightmare. Red didn't even have time to scream before it wrapped around him and yanked him sideways into the darkness. There was a wet, tearing sound, like shredding meat, then nothing.
 
 That got me moving faster than I'd ever moved in my life.
 
@@ -320,7 +320,7 @@ Something dark and impossibly strong reached in from above through the broken gl
 
 "Jay!" she screamed, her face appearing in the truck's lights for just a second. Blood covered her features like a crimson mask, her eyes wide with absolute terror. "Help!"
 
-Then something jerked her back into the darkness, and the screaming started in earnest. High and desperate at first, then dissolving into those same inhuman sounds of abject terror and pain I'd heard from the others. The sounds of being torn apart by something that took its time.
+Then something jerked her back into the darkness, and the screaming started in earnest. High and desperate at first, then dissolving into those same inhuman sounds of abject terror and pain I'd heard from the others. The sounds of being torn apart by something that was enjoying it.
 
 I lay there in the overturned truck, listening to Kate die, too broken and terrified to move. The headlights were still on, pointed at crazy angles, illuminating patches of volcanic rock and shadow. And in those shadows, something moved. Something big. Something hungry.
 
@@ -346,37 +346,33 @@ I walked for two hours in the desert heat before a state trooper found me, half-
 
 I told them we'd had an accident. Vehicle rollover. The others had wandered off in the dark, looking for help, and never came back. Search and rescue found the truck, but never found any bodies. They never found the box either, or at least they didn't say.
 
-Then, just as they were getting ready to haul me to a county jail cell, *he* showed up. The pale man from the diner. He walked into my hospital room wearing a crisp black suit in defiance of the desert heat. He didn't say a word to me, instead pulling the lead detective into the hallway. I saw him quietly show the detective some kind of identification in a leather wallet. The cop, who had been ready to charge me with four homicides, just went pale himself and nodded.
+Then, just as they were getting ready to haul me to a county jail cell, *he* showed up. The pale man from the diner. He walked into my hospital room wearing a crisp black suit in defiance of the desert heat. He didn't say a word to me, instead pulling the lead detective into the hallway. I saw him quietly show the detective some kind of identification in a leather wallet. The cop, who had been ready to throw me in jail, just went pale himself and nodded.
 
 A minute later, the detective came back in, told me I was free to go, and that my story of a "tragic camping accident" had been corroborated. He couldn't get out of the room fast enough.
 
-The pale man stepped in as the cops left, his icy blue eyes fixing on me. He tossed a roll of cash on the bed.
+The pale man stepped in as the cops left, his eyes fixing on me. He set a white envelope down on the bed beside me.
 
-"Five hundred for your time," he said, voice like gravel scraped from the bottom of a well. "The job wasn’t completed."
+"Five hundred for your time," he said, voice like gravel scraped from the bottom of a well. "The job was... not completed."
 
-"Completed?"I croaked, trying to sit up."They’re dead. They’re *all* dead. What the hell was in that box?"
+"Completed?"I croaked, trying to sit up."They’re dead. They’re *all* dead. What the hell was that?"
 
-He didn’t blink. "Risk was part of the deal. You thought ten grand was for a camping trip?"
+He sighed, and looked toward the window, not meeting my gaze. "Risk was part of the deal. You thought ten grand was for a camping trip? I'm sorry about your team, but why do you think we hired a bunch of broke locals?"
 
 My mouth was dry, throat raw."What was it? Who are you? What *is* this?"
 
-His expression darkened. "Too many questions."
+His expression darkened for a brief moment. "Too many questions."
 
-He took a step toward the door.
+His hand found my shoulder, and when he spoke again, his voice was quieter. "I've got a mess to clean up," he said, quieter now, almost to himself. "And you don’t want any of it landing on you."
 
-"I’ve got a mess to clean up," he said, quieter now, almost to himself. "And you don’t want any of it landing on you."
-
-I stared at him. I was broken, confused, terrified. He paused, hand on the knob, and for the briefest second, something like pity flickered across his face.
+I stared at him. I was broken, confused, terrified. He took a deep breath, and for the briefest second, something like pity flickered across his face.
 
 "Take the money. Leave town. Don’t look back. Find somewhere to go, kid. Don’t *think* too much."
 
 Then he was gone, leaving nothing but the antiseptic stink of the hospital and the weight of everything he didn’t say.
 
-I used the money to buy a Greyhound ticket to Portland, as far from the desert as I could afford to get. I never got my ten grand, but I got something else - the knowledge that there are things in the dark places of this world that make death look like a mercy.
+I used the money to buy a Greyhound ticket to Portland, as far from the desert as I could afford to get. I never got my ten grand, but I got something else, the knowledge that there are things in the dark places of this world that make death look like a mercy.
 
 And sometimes, when the sun is setting low and orange and those clouds are lit up like cotton candy, I still have the dreams. Dreams about symbols that glow with colors that don't exist, about blood-covered faces in the dark, and about the sounds people made when something ancient and hungry takes them.
-
-Survivor's guilt is a bitch.
 
 I never went back to New Mexico. Never will.
 
