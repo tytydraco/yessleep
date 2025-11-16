@@ -206,3 +206,5 @@ I think I understand now why he never looked scared.
 Maybe my dad believes in the paranormal after all.  
 He just isn’t afraid of doors closing on their own.  
 **Because he’s seen worse.**
+
+[Pt2](https://www.reddit.com/r/nosleep/s/Gk95iFav7E)
