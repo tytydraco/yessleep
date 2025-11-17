@@ -220,15 +220,15 @@ Then everything went black.
 
 I'm sitting in my study right now, looking at a printout of that photo. Ten years later, and it's still the only proof I have that any of this really happened.
 
-The image quality is terrible - you can barely make out the creature's outline through the grass, and the six legs just look like shadows and vegetation to most people. I've shown it to cryptozoologists, wildlife biologists, and even posted it on forums dedicated to unknown species. The response is always the same: "Obviously Photoshopped," or "Camera artifact," or my personal favorite, "Nice try, but we can spot a fake from a mile away."
+The image quality is terrible - you can barely make out the creature's outline through the grass, and the six legs just look like shadows and vegetation to most people. I've shown it to crypto-zoologists, wildlife biologists, and even posted it on forums dedicated to unknown species. The response is always the same: "Obviously Photo-shopped," or "Camera artifact," or my personal favorite, "Nice try, but we can spot a fake from a mile away."
 
 I don't blame them. If someone had shown me this picture before my trip to Romania, I would have said the same thing.
 
-I roll up my pant leg and look at the scars. Four puncture marks, two on each side of my calf, exactly where I remember them. The skin around them is still slightly discolored, like old bruising that never quite faded. Sometimes, when the weather changes, the whole area aches with a deep, bone-level pain that reminds me exactly how close I came to never making it home.
+I roll up my pant leg and look at what's left. My leg now ends slightly below the knee, the rest is a steel and plastic prosthetic. Sometimes, when the weather changes, my knee aches with a deep, bone-level pain that reminds me exactly how close I came to never making it home.
 
-The hospital records from [Redacted] are pretty sparse. I was there for six days, apparently, though I only remember fragments - IV drips, doctors speaking in rapid Romanian, someone asking me questions in broken English about what had bitten me. When I tried to explain about the creature, about the camouflage and the six legs, they just nodded politely and wrote something down that probably translated to "patient is delusional from venom exposure."
+The hospital records from \[Redacted\] are pretty sparse. I was there for six days, apparently, though I only remember fragments - IV drips, doctors speaking in rapid Romanian, someone asking me questions in broken English about what had bitten me. When I tried to explain about the creature, about the camouflage and the six legs, they just nodded politely and wrote something down that probably translated to "patient is delusional from venom exposure."
 
-The flight back to the States is mostly a blur, too. I was still pretty messed up, running on whatever cocktail of antibiotics and antivenoms they'd pumped into me. But I made it home, and after a few months of physical therapy, I was almost back to normal.
+The flight back to the States is mostly a blur, too. I was still pretty messed up, running on whatever cocktail of antibiotics and antivenom they'd pumped into me. But I made it home, and after a few months of physical therapy, I was almost back to normal.
 
 Almost.
 
