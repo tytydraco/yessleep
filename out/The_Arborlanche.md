@@ -103,7 +103,7 @@ In the end, for whatever reason, my home was one of the few spared. The fire had
 The clean-up was slow and gruesome. Many had been making their commute when the leafstorm fell over our town. Mr. Ratley, the pseudo-botanist from before, was found with his head trapped in the jamb of his car door. The coroner thinks he was trying to climb out when the weight shifted and pinned him. 
 
 
-Many others were found trapped in untrue cars, dead of apparent asphyxiation. 
+Many others were found trapped in their cars, dead of apparent asphyxiation. 
 
 
 As I assisted those of us who were left in pulling body after body from the derelict vehicles, unbuckling safety belts and carseat straps alike and looking into countless, lifeless eyes, I could only think one thing. 
