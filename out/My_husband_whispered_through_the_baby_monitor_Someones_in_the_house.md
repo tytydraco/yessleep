@@ -28,7 +28,7 @@ Then the intruder crawled under the blanket. A warm body pressed against my back
 
 On the bedside table, the baby's crying crackled through the monitor.
 
-Fingers slid through my hair, and the intruder’s lips brushed my neck. A deep voice whispered, “*Wake up, Alley. It's your turn.”*
+Fingers slid through my hair, and the intruder’s lips brushed my neck. A deep voice whispered, “*Wake up, April. It's your turn.”*
 
 I screamed and threw myself off the bed, slamming against the wall. The bedsheets crinkled as the intruder crawled across the bed toward me.
 
