@@ -1,0 +1,93 @@
+I’ve read that a body can take over a year to fully decompose, so I guess I’m just really good at it. Every single day, another piece of me seems to loosen or open up or fall off. I can’t even scratch an itch anymore without losing chunks of flesh from the simple friction of my nails against my skin. I don’t know how much longer I have, or what will happen when the final pieces of rot slide off my skeletal frame. Will I “die?” I’m already dead, at least I think I am. Will I still be conscious? Even when I’m nothing but a pile of slimy bones, unable to move or do anything at all? I deserve this.
+
+Last month I got off work and walked home like I always do, stopping at the pita shop that I stopped at every single day. I got my normal, but they fucked up my order and let me keep it anyway, so I had two gyros. It sounds stupid but that genuinely felt like a shining piece of good luck and I hardly ever get anything like that, so my day had gone from bland to absolutely glowing in an instant. The little things in life, right?
+
+On the walk home there was a homeless guy on the street corner, leaned up against the brick wall. He didn’t have a sign or anything, but he smelled bad, I could actually smell him from several dozen feet. It was like rotten eggs, and the closer I got the worse it was. I tried my best to keep my distance from him but of course the light changed as soon as I got to the cross walk, and I had to stand there awkwardly as I waited for the walk sign to come back on. 
+
+“You ain’t gon’ eat all that.” 
+
+At first I didn’t even know he was talking to me, his voice sounded closer than he was sitting, so I looked over my shoulders to try and figure out who was speaking. He was the only person near me, and he asked me again. His voice was gravely, and he had a southern accent. I looked down at the bag of food in my hand, which was a brown paper bag so he shouldn’t have even known how much food was in it. I ignored him and turned to face the crosswalk again, but then he said it again. 
+
+“You ain’t gon’ eat all that.” His voice was louder, angrier, more direct. 
+
+“It’s for my girlfriend” I snapped back, lying to him. I honestly don’t know why I lied, it’s not like he could know what was even in the bag. I just felt like I had to defend myself in a strange way, like I owed the guy some explanation of why I wasn’t giving him my food. Now, looking back on it, I think the messed up order was not a stroke of good luck. 
+
+The lights changed and I almost ran across the street to get away from that man. I pushed it from my mind and tried to recapture the positivity that I had before the stranger spoke to me, but in my efforts to relax I found myself absent minded. I never saw it coming, I still don’t even know what kind of car it was, but it felt like a bus. 
+
+It hit me on my left side and my vision instantly went black. I couldn’t see or hear, but I could feel. It was like every bone in my body was shattered into pieces, and the little shards stabbed into every part of me from beneath my flesh. I felt my feet get ripped from the asphalt, I felt my body weightless in the air before slamming back into the ground, wrapping itself around what I can only assume was a stopping or telephone pole. Nothing ceased, aside from my lack of vision and hearing, I was *present*, I could feel and think and realize. 
+
+Every single minute that I laid there, I felt it. I felt the cold ground beneath me, the warmth of the blood leaving my body and pooling under me. I remember the way it felt when I was finally lifted up, the nearly coagulated blood sticking to me, like tape being peeled. I remember the way my legs felt as they swayed back and forth, the way the arms held me up. I can’t stress how long it took, from scraping me off the sidewalk to dumping me in that shallow grave. They carried me for what felt like hours, and every single minute I was trying to snap out of it and wake up. Until I finally did.
+
+The first thing I remember was how cold I felt, the morning dew had glazed my flesh and almost frosted over. The coldness was numbness though, so initially the only part of my body I dared to move was my eyes. The moon, the trees above me, the stars, that was all that existed for a brief moment. That’s all I could see. When I finally gained the courage to move, the *pain* started instantly. Every part of me was sharp and jagged, like the mere thought of movement was enough to paralyze me in pain. 
+
+I lifted my head from the wet dirt and lifted my left arm. It was worse than it felt, the bone was entirely exposed, and the worms had already began their grisly task. I never thought about seeing my own bones before, but the pain had overshadowed the shock of it all. I could see the details, the pours, the way the worms wriggled and the slight tickle that they offered me to dull the burn of the wounds. The most fascinating part was that I could see, with my own eyes, where my wrist connected to my hand as well as all the little veins and intricate structures that existed between the hard parts. 
+
+When I gained the strength to lift my body from the earth, I realized just how bad my condition truly was. My body was caked in dirt and dried blood, several bones were shattered and I could feel them floating around like foreign objects beneath the skin. My first thought was just how lucky I was to have survived such a traumatic incident, but I didn’t survive it. 
+
+I carried myself on aching bones all the way back to my apartment. It was still so early that nobody was out and about, if they had been in certain they would have fainted at the sight of me. I went to my bathroom and looked into the mirror, and what stared back at me was not me. Or, it was less of me than I remembered. 
+
+My skin was grey, almost green around the edges, like rotted meat laced with infection. The worms had already taken my left ear, which made sense because the left side of my body was covered in open wounds and protruding bone. I turned my head and looked at the festering hole where my ear once was and I could see deep into it, the ivory color of bone just visible. My *skull.* I felt sick, my stomach turned and my head felt light and swimmy. The writhing worms had to go, so I turned on my shower head and detached it from the wall, spraying the open flesh with both of the knobs turned on as high as they could go. 
+
+The sound of the maggots tapped against the shower floor like rain, and black and red gunk washed out of the cavities in my body. In less than 30 seconds, the dirt and the worms and the slime had clogged my shower drain. Before long, I was up to my ankles in a soup of rot and decay, a tarry black sludge that rippled with wriggling worms. No matter what I did or how much I scrubbed, more worms kept falling from the shattered arm. I felt so disgusted with myself that I could hardly breathe, scraping handfuls of the things off my body and into the putrid stew at my feet. 
+
+Finally, after half an hour of spraying myself down, I had gotten what I thought was the last of them off me, but then I had the tub to contend with. I couldn’t even see the drain anymore. The fluid was entirely opaque to the point that it was reflecting my own rotted visage back up to me. I kneeled down and reached where I knew the drain was and plunged my finger into it. A thick, paste like substance swallowed my finger as I hooked and pulled. That tell-tale sound of the drain giving way echoed against the white shower walls. 
+
+The swamp of decomposition began to swirl like a diseased tornado, clogging itself back up. Each time the flow of the drain stopped, I ripped another handful of disgust from the drain and tossed it onto the floor outside the tub. Eventually the bathtub drained, and I fell onto my back into it. I pressed both hands against my temples and tried as hard as I could to relax, but it was nearly impossible. Despite the fact that I had drained most of the “water,” the tub was still decorated in dark clumps of worms and dirt. 
+
+My bathroom was entirely wrecked, but naturally I felt that there were more pressing matters at hand, so I forced myself out of the tub and into the kitchen and pulled my cellphone from the rot covered jeans that I had hastily kicked off. The screen was shattered and the battery was dead, but it miraculously still worked well enough to see the dead battery icon. I plugged it in and waited. My first idea was to call the police, but naturally I hesitated because I wouldn’t even know what to say. Then I thought of calling my doctor, the office opened early enough that he might have already been there. Again though, I didn’t know what to say or how to explain the situation that I was going through. 
+
+Finally, the phone buzzed and the screen lit up. I was shocked to see dozens of missed calls and texts from just about every person that knew me. “Are you okay???,” “I miss you! “I hope you’re safe.”
+
+A week. I had been gone for a week. Rotting in the shallow grave for a week. Being food for worms for a week. A week. 
+
+I felt like crying, but the tears didn’t come. It was like my eyes were dry and tacky, like marbles, but I could still see clearly. I unlocked the phone with the passcode, already knowing that the facial recondition would falter at the sight of me. The first and only person I wanted to call was my girlfriend, Mercy. 
+
+I went to my recent calls and clicked on her name. The phone rang, the muffled sound vibrating through my skull. Once, twice, three times. Finally, she answered.
+
+“Baby! Oh my god where are you? We’ve been worried sick, the police have been looking for you all week!”
+
+Her voice was the first moment of peace I’d felt all morning. It was soft and sweet and I could literally hear how much she cared about me. It was like a warm hug wrapping my entire body into a bundle and holding me until the rot washed away. I opened my mouth, eager to speak to her, but nothing came out. It was like the moment in a nightmare where you’re so close to something but your hand doesn’t quite reach it. The only noise that manifested from my throat was a stringy groan, so quiet and subtle that she probably heard nothing at all on the other line. 
+
+“Baby?” She asked with a disappointed panic.
+
+I hung up, instantly, trying not to panic her more than I already have. Obviously, despite my inability to formulate words audibly, I still could type so I texted her.
+
+“Please come over as soon as you can. Will explain.”
+
+As soon as my thumb tapped the send button, my stomach turned again. This time it was a different kind of ache, an empty ache. A hunger. It was debilitating, like the walls of my stomach closing in and constricting against itself. It was more painful than the wounds, more painful than the shattered bones in my broken limbs. My body curled like a shrimps, shrinking in agony to reduce the otherworldly sting. 
+
+I lumbered on awkwardly smashed legs to my refrigerator, grasping the handle and yanking the door open. I grabbed a plastic packet of shredded cheese and poured the contents into my mouth, shaking every piece out. I tour open a package of raw bacon and shoved each slice into my throat desperately. I hadn’t eaten in a week, so I guess the hunger had finally caught up. After the bacon, I ripped open a carton of eggs and grabbed one whole, biting down on it like an apple. The sticky mess was repulsive in taste but the hunger was so strong that I would have eaten anything. 
+
+The pain hadn’t subsided though, not even for a moment. In fact the hunger was growing. The food that I had swallowed seemed to cause a reaction inside me, like a cheap science fair experiment. An excruciating pain radiated from deep within me, and the contractions of my stomach pulsated, eventually sending everything that I had eaten back out. 
+
+Every piece of raw bacon and cheese and eggshell sprayed again the refrigerator door. I looked down at the mess I had made and noticed that within the mixture were clumps of worms and bugs. The rot was far deeper than I’d originally suspected. Still, the hunger consumed me, so I went for more, grabbing a jar of olives and swallowing several whole, but it *still* didn’t work. Everything that I put in me, immediately came back out. It was like my body was rejecting sustenance. 
+
+I staggered to my bed, still unmade from a week previous, and I curled up on-top of the unkempt sheets, wrapping myself in the blankets that used to offer a tinge of comfort. I agonized there in the fetal position, trying with everything in me to ignore the rupturing feeling of my insides revolting against me. Then, from the other room, a knock. 
+
+Mercy. I knew it was her, I knew her knock like the back of my hand, or at least when my hand still had a back to it. The mere thought of her ceased the ache, as if love was the cure for my ailment. She always made me feel that way, despite us only having dated for about 4 months before all of this. She knew me, she knew how to calm me, she knew how to save me. 
+
+I lunged from my bed, leaving a greasy stain in my place. I ran to the door and grabbed the handle, pulling it open with more excitement than I’d felt since I died. There she was, standing in the door frame in all her beauty. Her blonde hair was curled and bouncy. Her makeup was immaculate, I assumed she must have just gotten ready for work before I disturbed her. Her blue eyes ripped the pain from my flesh like novocaine. But her smile… wasn’t there.
+
+No, instead she looked like she’d seen a ghost. Her skin was pale and clammy, her mouth open in fear. I could see the slight give in her knees as she looked at me, like she might have fainted before catching herself at the last minute. I tried to say her name, I tried to tell her how much I love her, but when I tried to speak a mass of worms and raw meat regurgitated from my mouth and onto the floor in front of her. She screamed. 
+
+I didn’t know what to do, but my instincts took over. I grabbed her by her shoulders and pulled her into my apartment, slamming the door behind her. The whole reason I called her was to avoid the attention of the police or doctors or other strangers. She’s the only one I wanted to speak to. She tried to back away from me, but her foot landed on a clod of meat and bugs and she slipped. I heard her head hit the corner of the kitchen island, a loud cracking sound that I could feel in my bones. Despite the incessant pain I was feeling, I just *knew* that had to hurt.
+
+She was dazed but still mostly conscious. I reached for her to comfort her, wanting to hold her, but she kicked me in the stomach and I stumbled back. Despite her fall, she managed to climb back to her feet, and she grabbed a long knife out of the knife block on the island. I couldn’t believe she wanted to hurt me, especially after all I’d been through. I thought she’d be excited to know I was okay. 
+
+Before I could react, she plunged the knife into my chest. It hurt, badly, but the pain had been dulled and numbed by the plethora of other wounds that had covered my entire frame. She let go of the knife and I stumbled back further, my back hitting against the door. In that moment, like something entirely new came over me, the hunger returned. 
+
+The very same hunger that had driven me to devour an entire fridge of raw food had gripped me again, but it was clearer. I knew what I needed to consume. I loved that girl more than anything, but the feeling in my stomach was far stronger than the feeling in my heart. She ran toward the bathroom, and I chased after her. She got inside before me and slammed the door, but my hand had just entered the threshold as well. The heavy door crashed against the fingers on my right hand, severing them like a guillotine. She screamed from inside the bathroom, but the hunger had drowned out any sense of feeling inside me. 
+
+I kicked the door once and the cheap knob gave way nearly instantly, breaking and clanking against the bathroom floor. She was on the ground, looking up at me. My mouth watered, or at least it felt like it did but I doubt saliva was present. Without thinking I pulled the knife from my chest and turned toward her. She was scared but I was hungry, and that came first. She put her arms over her head to block the blade but I stabbed and stabbed and stabbed. 
+
+It didn’t take long until she stopped moving, maybe 50 or 60 stabs. As soon as the life escaped her eyes, I couldn’t resist the hunger and indulged. My teeth sunk into the flesh of her throat, just above her collarbone. The taste of her skin was intoxicating, so I closed my jaw and ripped. I kept shearing chunks of her flesh off with my teeth until her head was entire separated from her shoulders, and only then did the pain of hunger subside. I looked down at her, covered in crimson and segmented like a twisted puzzle. She was still beautiful. 
+
+It felt poetic. I loved her so much, and now she was inside me, a little piece of her to follow me around wherever I go. It felt warm and comforting. I was glad she showed up. 
+
+I stayed inside the apartment for several days, only visiting Mercy’s remains when the hunger came. The pain of the rot on my own body grew with each passing day. The open flesh felt like a cold sore, or a fever blister but even more intense. Like the edges were tender and hot with a stinging kind of pain, like salt in a wound. Every part of me weeped with discolored discharge. I was, and still am, walking rot. At one point I noticed that the wound from the knife was sort of peeling, like the punctured skin had flayed open slightly, and my curiosity took over. I pinched the edge of skin, like the corner of a paper, and pulled it. A long, thick sliver of flesh peeled from my torso, like a cuticle that hangs on too long. 
+
+I can’t leave this apartment, I know I can’t. If anyone were to see me, they’d take me away somewhere, so I’ve resorted to rotting here for the foreseeable future, scrolling around on the internet to pass the time. I still don’t know what happens when the rot finally takes me, but I supposed I’ll find out soon enough. 
+
+Oh, and before I go, I almost forgot to mention another little detail. When I went into the bathroom for another meal, I noticed the strangest thing. There was a note laying on top of what was left of Mercy, which was incredibly strange because I didn’t write it and nobody had come into my apartment. I unfolded it and read it to myself.
+
+“You ain’t gon’ eat all that.”
