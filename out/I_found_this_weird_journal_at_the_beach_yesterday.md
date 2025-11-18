@@ -2,7 +2,7 @@ Hey everyone, I was out on a walk with my dad yesterday and I stumbled upon this
 
 March 6, 2025
 
-I woke up on the sore today, my head hurts. I don't remember much about how I got here or much about myself either. I think I was out fishing with my dad and we got caught in bad weather. I know I'm 20 years old but I don't remember my name or what my face even looks like. It's very foggy around here, I think I'll wander into the woods nearby, hopefully I find some place to stay.
+I woke up on the shore today, my head hurts. I don't remember much about how I got here or much about myself either. I think I was out fishing with my dad and we got caught in a storm. I know I'm 20 years old but I don't remember my name or what my face even looks like. It's very foggy around here, I think I'll wander into the woods nearby, hopefully I find some place to stay.
 
 I wandered into the woods for a bit and then I found this young man, around my age. He said his name was John. John lives in a nearby town, apparently it's so small it doesn't even have a name. I explained my situation to him and he was so eager to help me, I'm so glad I stumbled upon such a good person. We got into his mustang and drove to the city, I love his car.
 
@@ -12,7 +12,6 @@ Dr Stevens examined me and he said I had a concussion. He gave me some painkille
 
 I think I'll go to sleep now, I'm very tired.
 
-  
 March 7
 
 I woke up feeling a lot better today, I went to the toilet to wash up but there was no mirror in there, that was weird. I decided to go out to the town and explore a bit, I'd also like to find a way to go back home, I don't remember where my home was however... Maybe I'll pass by Dr Stevens to ask about my missing memory too.
@@ -25,7 +24,6 @@ On our way to the motel I asked John about a way to return home, he said that th
 
 After John left, I went back to my room to sleep.
 
-  
 March 8
 
 My back was killing me when I woke up, I must've stayed in bed for hours. Honestly I didn't feel like doing anything today, I was starting to get depressed with my situation...
@@ -36,11 +34,10 @@ When I got to the hospital a new doctor was there, his name was Dr Willson. I as
 
 Dr Willson examined me and he said that I didn't have a concussion anymore but that he didn't know when I would get my memories back. The trauma I received was probably pretty severe... I thanked him and left to do some exploring, I didn't get to do that yesterday.
 
-As I walked down the streets I met Stella but she was dressed in black and crying, a little girl was holding her hand, a child from her a previous marriage? I guessed, she looked about 10 years old. I asked Stella if she was okay and she told me John died this morning, he had lung cancer, he's been battling it for years but finally succumbed to it. I felt crushed, John had been so kind to me and I just learned that he died like that... I offered her my condolences. The little girl looked at me and asked me if I knew her daddy but I said no. Stella gave me a nasty look... Was John raising her and she saw him as her dad? 
+As I walked down the streets I met Stella but she was dressed in black and crying, a little girl was holding her hand, a child from her a previous marriage? I guessed, she looked about 10 years old. I asked Stella if she was okay and she told me John died this morning, he had lung cancer, he's been battling it for years but finally succumbed to it. I felt crushed, John had been so kind to me and I just learned that he died like that... I offered her my condolences. The little girl looked at me and asked me if I knew her daddy but I said no. Stella gave me a nasty look... Was John raising her and she saw him as her dad?
 
 I got back to my motel after some more walking and went to sleep again.
 
-  
 March 9
 
 I think I'm balding. I went to scratch my head and my hairline has been receeding a lot, is it because of my anxiety?? I also found a few grey hairs too. I really need to find a way to get out of here.
@@ -51,7 +48,6 @@ It was already dark when I got back to the town and very foggy, I felt like I wa
 
 I hurried to my motel because the situation honestly freaked me out... I decided to go to sleep and maybe investigate tomorrow
 
-  
 March 10
 
 I woke up with a very blurry vision today, I got so scared that I rushed to the hospital.
@@ -60,13 +56,12 @@ Dr Willson looked older than I remember him, what the stress of being a doctor d
 
 On my way back to the motel I met a homeless man, he looked familiar... He told me that I didn't belong here and that I should leave. What does he know anyway? I'm trying to do that exact thing you know...
 
-I waited until it got dark today and went to investigate the streets. My whole body was hurting for some reason. 
+I waited until it got dark today and went to investigate the streets. My whole body was hurting for some reason.
 
 I saw them again, the people, something very weird is going on. I saw the homeless man, now that I actually noticed his face, he was very old, he was running away from them. They weren't chasing him, just walking. People came from the street in front of him and behind him too. I hid behind a dumpster and watched as they circled him. It was dark so I couldn't see much, just hear his muffled screams.
 
 I raced back to the motel and I made up my mind. Tomorrow I was leaving.
 
-  
 March 11
 
 I woke up gathered all my belongings and went straight to the sore, I thought I'd find a boat there. It was already noon when I started, I slept in at the worst day possible...
@@ -83,6 +78,4 @@ I circled the lake but there is nowhere else to go, I'm tired, I see a lot of pe
 
 I'll throw this journal into the lake, if you find this run, run, run while you're still young enough to do it. Get out of this town.
 
-  
 There's only these six entries on the journal. I don't really know what this is but it's a bit creepy... Tell me your thoughts down in the comments although I will probably not read them until tomorrow. Right now I'm preparing to go fishing with my dad on his boat.
-
