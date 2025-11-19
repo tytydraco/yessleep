@@ -218,7 +218,7 @@ I banged into walls in my sprint slamming my knee and shoulders into countless o
 
 Gavin grabbed my shoulders tight. “Dude what happened, are you okay!?” I looked up to see the five of them standing there nervous as to what happened.
 
-“Dude this better not be a prank like we thought…” Rob said his hands gripping the hem of his hoodie. 
+“Dude this better not be a prank like we thought…” Rob said his hands gripping the hem of his jacket. 
 
 Lynn looked at me with worried eyes, “Yeah, what happened?” she said, concerned. Ethan looked anxious to find out if I was okay, and Kirsten was shaken badly clinging to her shoulders bundling herself in her own arms.
 
