@@ -32,7 +32,7 @@ But then I read the rules.
 
 Rule 1: Write your full name on a piece of paper. Add one drop of your blood. Place it in front of your front door.
 
-Rule 2: Exactly at 12:00 AM, knock on your own door 22 times. The final knock must land whilst the clock is still 12:00
+Rule 2: Exactly at 11.59 AM, knock on your own door 22 times. The final knock must land whilst the clock is still 12:00
 
 Rule 3: Open the door, then blow out your candle and close the door again. You have just invited the Midnight Man inside.
 
