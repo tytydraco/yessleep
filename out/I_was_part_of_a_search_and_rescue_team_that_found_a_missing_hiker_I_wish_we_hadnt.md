@@ -116,6 +116,7 @@ After what felt like an eternity of trudging through mud and tangled roots, we f
 The porch groaned under our weight as we stepped onto it, loose boards threatening to snap. A faint smell of damp wood and mildew wafted out as we opened the door, and the inside was barely larger than a single room. Dust motes swirled in the air, and cobwebs hung from the low ceiling. A single, rickety table leaned precariously in the corner, and an old stove stood cold against one wall, a fire poker resting against it, both rusted and unused for decades. It wasn’t much, but it would do for a night—if it didn’t fall apart around us first.
 
 We pulled up a couple of stools and sat at the leaning table, opening a few cans of beans for a small dinner. Kevin ate slowly, each spoonful a struggle, his body trembling with every bite. Occasionally, a mouthful would set off a coughing fit that had him doubled over, hacking and sputtering, but he kept going, insisting he was ok.
+
 After supper, we tried to distract ourselves with a game of cards. The cabin creaked around us, the wind rattling the windows, but inside, for a little while, it felt calm—almost normal. We laughed softly at a botched hand or a lucky draw, the horrors of the world seemed to fade for a moment.  
 
 “Well, that was fun,” Charles said, then reached into his pack and pulled out the flare gun. He spun it playfully in his fingers, grinning. “Alright, gentlemen — who’s up for a round of Russian roulette?”
@@ -126,12 +127,12 @@ Outside, the full moon hung high, its pale light cutting through the grime-smear
 The first wave hit the table with a wet splash, splattering across his cards and the worn planks of the hut. The sour stench of half-digested beans filled the cramped space almost instantly.
 
 “Ah, shit!” I yelped, scooting back hard off the chair to avoid the spray.
-“You good, man?” Charles asked, also backing up a few steps, his voice caught somewhere between concern and disgust,.
+“You good, man?” Charles asked, also backing up a few steps, his voice caught somewhere between concern and disgust.
 
 “I… I think so,” Kevin wheezed, wiping his mouth with the back of his hand. “Not sure why that happ—”
 
 He didn’t finish. His chest lurched, and another violent convulsion wracked his frame. The second eruption was worse than the first—his remaining teeth shot free of his mouth with the bile, bouncing and scattering across the cabin’s floorboards like thrown dice.
-Kevin gagged, then wrenched forward a third time. This time it wasn’t beans, but a thick, dark-red spray that gushed out in a pulsing arc, splattering across the table, pooling on the already slick floor until the whole place stank of iron and bile.
+Kevin gagged, then wrenched forward a third time. This time it wasn’t beans, but a thick, dark-red spray that gushed out in a pulsing arc, pouring across the table, pooling on the already slick floor until the whole place stank of iron and bile.
 
 Then the convulsions hit. His arms snapped tight against his chest, then flailed outward, legs kicking spasmodically as though he were a puppet jerked by tangled strings. His thin body bowed unnaturally, the sound of joints straining audible.
 
@@ -144,7 +145,7 @@ At the same time, his frail frame began to swell. The vomit-soaked clothes clung
 His skin changed from pale to an unnatural shade of mottled purple, veins bulging like black cords beneath the surface. His fingers spasmed, curling and stretching as the bones lengthened, the nails splitting, thickening, and hardening into curved talons that scraped grooves into the wood beneath him.
 
 Charles shouted something, but the sound barely registered over the thunder of snapping bones. The boy’s body no longer looked frail, no longer human—every convulsion brought him closer to something else, something that belonged out in the silent woods we’d been walking through.
-Kevin’s body shuddered once more, his chest heaving with ragged, unnatural breaths, each one rattling like wind through broken glass. The thing that had forced itself from his mouth—the wet, snarling muzzle of a beast—hung there, trembling. His original, human jaws remained split unnaturally wide, the angles impossible for any person, the flesh around his lips stretched white and splitting. Kevin let out an awful sound, half belch, half scream, as he looked at me for a moment, pleading confused horror in his big brown eyes.
+Kevin’s body shuddered once more, his chest heaving with ragged, unnatural breaths, each one rattling like wind through broken glass. The thing that had forced itself from his mouth—the wet, snarling muzzle of a beast—hung there, trembling. His original, human jaws remained split unnaturally wide, the angles impossible for any person, the flesh around his lips stretched white and splitting. Kevin let out an awful sound, half gurgle, half scream, as he looked at me for a moment, pleading confused horror in his big brown eyes.
 Saliva and blood dripped from the new, canine mouth now extended a good six inches from Kevin’s human one, the brow of the thing slowly becoming visible. The hound’s maw was snarling as it emerged with each heave. His entire body convulsed with every inhale, ribs straining with the effort.
 
 Charles and I pressed ourselves against the cabins wall, cowering like a pair of tiny rabbits trapped by a predator. I held my knife tightly with trembling hands, Charles wielded the fire poker with one hand, and the flare gun in the other—both of us, eyes wide with horror. Kevin was blocking the only exit. We were trapped.
@@ -170,7 +171,7 @@ It zeroed in on Charles first, no doubt seeing the larger man as the greater thr
 
 I reacted instantly, stabbing forwards with the knife, sinking the blade into the beasts upper back. It let out a pained grunt, but then it retaliated. Its massive claws shot out in an upwards arc, raking across my chest with brutal force. The impact threw me backward, my body hitting the floor with a bone-jarring smack as pain seared through me. The beast spun, and leapt on top of Charles, its massive bulk pinning him to the floor. Its jaws clamped down on his left shoulder with a crunch. Charles screamed, thrashing desperately with the fire poker, striking Kevin in the ribs. A sharp, pained shriek echoed from the creature as it staggered back—but only briefly.
 
-Before he could stand, the thing struck with lightning speed. One of its enormous claws shot down, sinking deep into Charles’s upper stomach. Then, with horrifying ease, it dragged the claws toward the big man’s groin, ripping open Charles’s abdomen as effortlessly as unzipping a jacket. Blood sprayed across the floor as Charles cried out, and as if in reply, the thing lifted its head toward the ceiling, letting out an ear-shattering cry of its own. It wasn’t a wolf’s howl—no, it was something far darker, a sound like a person trying to imitate a wolf, twisted and guttural, with a bass that rattled the bones. Then it plunged its snout into Charles’s open stomach, greedily slurping and tearing at his innards.
+Before my friend could stand, the thing struck with lightning speed. One of its enormous claws shot down, sinking deep into Charles’s upper stomach. Then, with horrifying ease, it dragged the claws toward the big man’s groin, ripping open Charles’s abdomen as effortlessly as unzipping a jacket. Blood sprayed across the floor as Charles cried out, and as if in reply, the thing lifted its head toward the ceiling, letting out an ear-shattering cry of its own. It wasn’t a wolf’s howl—no, it was something far darker, a sound like a person trying to imitate a wolf, twisted and guttural, with a bass that rattled the bones. Then it plunged its snout into Charles’s open stomach, greedily slurping and tearing at his innards.
 
 I forced myself upright, every movement sending jagged pain through my ribs—no doubt some were cracked. My eyes locked onto a nearby object: the flare gun, barely a foot away. Salvation, my only chance. Slowly, agonizingly, I inched toward it.
 Through my peripheral vision I saw it twist in my direction, drawn to fresh movement, bloody chunks of intestines dripping from its teeth as it fixed on me. My hands closed around the flare gun just as it pounced. Instinct took over—I threw my arm up to protect my throat.
@@ -182,18 +183,19 @@ It yelped, releasing my arm, and clawed desperately at the flare, to remove the 
 
 Its wails grew louder, a sickening mix of child and beast, echoing off the log walls. Sparks rained down around me as the fire spread, igniting the curtains and scraps of wood. The open doorway loomed ahead—it was now or never. I hobbled forward, each step an effort, and reached the threshold. My hand gripped the doorframe, and I forced myself to glance back one last time.
 
-The place was a hellscape. Charles was on his back, dead. Huge hole in his gut, face twisted in agony, gaze fixed on the now flaming roof. The wolf thing writhed on the floor, screaming, thrashing desperately, trying in vain to extinguish the fire that had completely engulfed it now. Its anguished howls echoed through the dark woods, a terrifying symphony of fury and pain.
+The place was a hellscape. Charles was on his back, dead. Huge hole in his gut, face twisted in agony, gaze fixed on the now flaming roof. The wolf thing writhed on the floor, screaming, thrashing desperately, trying in vain to extinguish the fire that had completely engulfed it now.
 
 Smoke curled into the night air as I stepped out, gasping for fresh breath, the scent of burning hair, charred flesh, and popping fat lingering in the air. I only got a couple of feet from the cabin before I fell onto my side. I grunted in pain as I collapsed, rolling onto my back. The night sky stretched endlessly above me, the full moon hanging heavy and ominous, casting pale light over the burning structure.
 
 My vision blurred, pain radiating through my body, and slowly, I felt myself slipping away. All that remained was the oppressive roar of flames and the eerie stillness of the forest beyond, pressing in from all sides as I succumbed to blissful unconsciousness.
+
 It was morning when I stirred awake. For a moment, disorientation clouded my mind—I didn’t know where I was. Then reality hit me like crashing wave.
 
-I moved slowly, expecting pain, but to my astonishment, there was none. My arm, where the beast had bitten me, had a huge bite mark, nearly identical in shape to Kevin's, and like his, it looked nearly completely healed, as if months had passed. Tentatively, I pulled up my shredded shirt and examined the deep claw marks across my chest. Even those injuries, which I remembered as raw and agonizing, but this too looked months old.
+I moved slowly, expecting pain, but to my astonishment, there was none. My arm, where the beast had bitten me, had a huge bite mark, nearly identical in shape to Kevin's, and like his, it looked nearly completely healed, as if months had passed. Tentatively, I pulled up my shredded shirt and examined the deep claw marks across my chest. Even those injuries, which I remembered as raw and agonizing, looked months old.
 
 A gnawing hunger gripped me, sharper and more insistent than anything I had ever felt before. My stomach churned, aching, demanding to be sated. I hadn’t realized how ravenous I truly was until now. I forced myself to my feet and surveyed the cabin. The roof had collapsed in places, walls reduced to smoldering beams, the entire structure a blackened ruin. Amazingly, the fire hadn’t spread to the surrounding forest; the flames had somehow consumed themselves and died out, leaving an eerie silence in their wake.
 
-I moved cautiously toward the scorched remains, scanning for any sign of life. My gaze fell on something large sprawled among the embers. Canine jaws, now completely blackened, jutted grotesquely from a twisted body contorted in the agony of death. Smoke curled around it, carrying the acrid stench of burnt flesh, making my stomach grumble with hunger. I continued surveying the ruins when my eyes fell on another figure. Charles still lay on his back, his face completely burned away, arms resting limply at his sides. I wanted to kneel, to bury him properly, to mourn my friend, but my body’s gnawing hunger forced my attention elsewhere. Survival demanded that I search for food before grieving the dead.
+I moved cautiously toward the scorched remains, scanning for any sign of life. My gaze fell on something large sprawled among the embers. Canine jaws, now completely blackened, jutted grotesquely from a twisted body contorted in the agony of death. Smoke curled around it, carrying the acrid stench of burnt flesh, making my stomach grumble with hunger. I continued surveying the ruins when my eyes fell on another figure. Charles still lay on his back, his face and clothes completely burned away, arms resting limply at his sides. I wanted to kneel, to bury him properly, to mourn my friend, but my body’s gnawing hunger forced my attention elsewhere. Survival demanded that I search for food before grieving the dead.
 
 I sifted through the debris, desperate for anything to devour—a morsel, a crumb, anything. I lifted a charred beam of wood, and beneath it, I spotted a backpack. The one that belonged to Charles. As I hoisted it up, the bag ripped open in the process, spilling its contents across the blackened floor. GPS, satellite phone, and a granola bar. Driven by hunger, ripped open the packaging on the bar and shoved it into my mouth. A sharp, stabbing pain shot through my jaw. I yanked the bar free and stared in shock: two of my teeth were embedded in it. I lifted my hand to my mouth, feeling the gaping void where two upper teeth had been. My eyes widened, and my pulse raced uncontrollably. I ran my fingers through my hair, trying to steady myself—and to my horror, a large clump came loose in my hand, tumbling to the scorched floor.
 
@@ -201,7 +203,7 @@ Whatever Kevin had been inflicted with—disease, curse, I didn’t know—I now
 
 I had to die.
 
-I tried taking matters into my own hands, I found my knife buried in the ruins, I hovered it over my wrists, commanding myself to slash them open, but my body just wouldn’t listen. The thought of hanging came to mind, but regrettably I don’t know to tie a noose.
+I tried taking matters into my own hands, I found my knife buried in the ruins, I hovered it over my wrists, commanding myself to slash them open, but my body just wouldn’t listen.
 
 In the distance, I heard the steady thrum of helicopter blades cutting through the morning air—a sound that made my heart race with fresh dread. They must have followed the smoke from the cabin. I couldn’t be found. I wouldn’t be found.
 
@@ -209,12 +211,12 @@ Gripping the satellite phone tight in my hands, I turned and ran, crashing throu
 
 After what felt like forever—thirty minutes, maybe more—I finally stopped. My chest heaved, breath rasping in my throat, sweat slicking my skin. I could still feel the faint hum of the phone in my grip. They’d trace the signal eventually, but out here, in the deep woods, they’d never be able to land.
 
-I knelt beside a shallow pool, hoping, praying, it might be drinkable. I cupped my hands, scooped up a small sip, and brought it to my mouth. The moment the water touched my tongue, I knew I’d made a mistake. It hit the back of my throat like battery acid, searing a path straight down my esophagus. I gagged instantly, eyes watering, every muscle in my body screaming to vomit it back up. I clamped a hand over my mouth, swallowing hard, forcing the burning liquid to stay down. The pain rippled through my chest like someone dragging hot wire through my insides. I cant imagine Kevin doing this for 3 weeks.
+I knelt beside a murky shallow pool, hoping, praying, it might be drinkable. I cupped my hands, scooped up a small sip, and brought it to my mouth. The moment the water touched my tongue, I knew I’d made a mistake. It hit the back of my throat like battery acid, searing a path straight down my esophagus. I gagged instantly, eyes watering, every muscle in my body screaming to vomit it back up. I clamped a hand over my mouth, swallowing hard, forcing the burning liquid to stay down. The pain rippled through my chest like someone dragging hot wire through my insides. I cant imagine Kevin doing this for 3 weeks.
 
-That’s when I decided to type this out on the satellite phone. The connection’s garbage and pecking it out letter by letter is agonizingly slow, but it’s not like I have anything better to do.
+Im sitting here next to the shallow pool, in a small nest of my own loose hair. My back against a mossy fallen tree, typing this out on the satellite phone. The connection’s garbage and pecking it out letter by letter is agonizingly slow, but it’s not like I have anything better to do.
 
 I have no doubt there will be another full moon tonight. And when it rises, I’ll change—just like Kevin did.
-What keeps gnawing at me isn’t the if, but the how. Will I still be in here, enjoying in the carnage I cause? Or will I be shoved into the dark, locked in the passenger seat, forced to watch through the things eyes as I become nothing but hunger and teeth and claws?
+What keeps gnawing at me isn’t the if, but the how. Will I still be in here, thrilled with the carnage I cause? Or will I be shoved into the dark, unable to control my own body? locked in the passenger seat as I’m forced to watch through the things eyes as I become nothing but hunger and teeth and claws?
 
 The waiting is worse than dying.
 
