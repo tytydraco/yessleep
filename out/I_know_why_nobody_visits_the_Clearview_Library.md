@@ -1,5 +1,3 @@
-[All Parts](https://www.reddit.com/r/MattBenjamin/comments/1p1itsv/clearview_master_post/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
-
 In the town of Clearview, nobody ever visits the library. That's not hyperbole.
 
 While the marquee outside the building changes, inviting citizens to events, and while each resident gets a calendar of library happenings in their mailbox every month, nobody ever visits the library.
@@ -70,7 +68,7 @@ Flyers for the "summer reading program" spangled the painted cinderblock walls, 
 
 She stopped half-way down one of the aisles and grabbed my face, thrusting her lips onto mine. And for a brief moment, my concern about being in the library faded under a different sort of urgency.
 
-We kissed passionately for a minute or so until Beth pulled away from my lips and kissed her way over to my right ear. 
+We kissed passionately for a minute or so until Beth pulled away from my lips and kissed her way over to my right ear.
 
 When she got there, she whispered, "There's no friend like a good book."
 
@@ -162,6 +160,8 @@ First, I got my certificate for a free meal at Frank's Diner in the mail that sa
 
 Second, I ventured to request a book from the library, just to see what would happen. And when it arrived, it had Beth's signature 'heart' on the top right corner of the first page.
 
-I missed Beth. 
+I missed Beth.
 
 But that wasn't the last time I would see her.
+
+[All Parts](https://www.reddit.com/r/MattBenjamin/comments/1p1itsv/clearview_master_post/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
