@@ -371,3 +371,5 @@ It was a lot to take in and process. But we felt it best to just listen to her.
 So we began moving back up the stairs.
 
 I think I’ll stop it there for now. I still have a lot to tell you all but I’ve gotten a bit tired typing this all out. I’ll update when I can.
+
+UPDATE: [https://www.reddit.com/r/nosleep/comments/1p0t4v1/a\_few\_weeks\_ago\_i\_agreed\_to\_enter\_an\_experimental/](https://www.reddit.com/r/nosleep/comments/1p0t4v1/a_few_weeks_ago_i_agreed_to_enter_an_experimental/)
