@@ -1,5 +1,3 @@
-[Advertise on Reddit](https://ads.reddit.com/register?utm_source=web3x_consumer&utm_name=nav_cta)
-
 Every day I just want to call in sick, to tell my boss that i have some kind of stomach problem and I simply cannot work today. Its a thought I'd had every day before this happened and id always stuffed it down. I knew my parents wouldn't like me skipping work, they always tell me i need to be doing something if I'm not going to college yet.
 
 I have to drive to work at four in the morning on unpaved, snowy roads, after scraping the snow off my shitty car which was not made for this weather. All i could think was how the hell did it start snowing all of a sudden? Just yesterday it was sunny, and dry, in a cold winterey sort of way. There wasn’t a cloud in the sky.  But when my alarm rang, I was greeted with a serene coat of white covering the world outside. I looked out at the serene beauty of nature with nothing but dread. My younger brother will almost certainly spend the whole day watching Minecraft videos on YouTube, since school will give him the day off due too the dangerous conditions. But unfortunately for me, my boss doesn’t care if I die.  
