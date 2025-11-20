@@ -1,7 +1,10 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1om6ow7/nyxborne_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)  
+[Part 1](https://www.reddit.com/r/nosleep/comments/1om6ow7/nyxborne_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 [Part 2](https://www.reddit.com/r/nosleep/comments/1on3bgr/nyxborne_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/1oox59j/nyxborne_part_4/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/1p2h065/nyxborne_part_5/)
 
 The world around me never stopped moving, no matter how much I wished it would. People rushing to work, cars screaming down highways, the constant noise of living. I hated it. Keeping up with that pace felt like treading water in a storm, every day a little harder than the last. If I didn’t stop to breathe, I’d drown.
 

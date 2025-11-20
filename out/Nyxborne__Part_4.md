@@ -4,6 +4,8 @@
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/1onzpb1/nyxborne_part_3/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
+[Part 5](https://www.reddit.com/r/nosleep/comments/1p2h065/nyxborne_part_5/)
+
 I woke up in my bed. A sluggish fog flowed through my memory. Last I remembered, I was on the floor of my basement, bleeding out. I craned my neck, trying to get a glimpse of the window, but none was there. I wasn’t in my cabin, but at a hotel. The ugly wallpaper created a cage around me.
 
 My phone buzzed and I felt myself pick it up, as if I wasn’t in control of my body. The screen lit up, and the date crossed my eyes. Twelve years in the past. The date sent a shiver down my spine. The day everything went wrong.
@@ -103,4 +105,3 @@ My eyes opened, and the same hospital room was around me, like a recurring night
 I leaned back into bed. My body was nearly healed. As much as I wanted change, I knew there wouldn’t be any. I would leave, I would kill, I’d return to their HQ and collect my bounty, and I’d repeat the process over again.
 
 And I’d do that until I died.
-
