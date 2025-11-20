@@ -33,7 +33,7 @@ My co-worker, Jenny: wobbling on a stepstool while pinning decorations to the br
 My neighbor, Mr. Carver: watering his plants, then clawing at his chest as his pacemaker failed during a storm.
 My sister. My wonderful sister. 
 She was brushing her hair at my kitchen table, complaining about a guy she was seeing, and then, for a split second, she was lying broken in a ditch, her phone just out of reach, headlights fading in the distance.
-I begged her not to drive that night.
+I begged her not to go out that night.
 She just laughed and told me not to be silly. 
 
 Now the visions don’t wait for people to cross my path. They come unprovoked. Unwanted. They tear through me like seizures. It feels like people die in my head every time I blink - crashes, falls, drownings, fires, suicides, murders. God, the murders.
