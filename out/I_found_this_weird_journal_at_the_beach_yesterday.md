@@ -64,11 +64,11 @@ I raced back to the motel and I made up my mind. Tomorrow I was leaving.
 
 March 11
 
-I woke up gathered all my belongings and went straight to the sore, I thought I'd find a boat there. It was already noon when I started, I slept in at the worst day possible...
+I woke up gathered all my belongings and went straight to the shore, I thought I'd find a boat there. It was already noon when I started, I slept in at the worst day possible...
 
 I saw Dr Willson on the street, he was trying to tell me something but I ignored him. After some more walking I met two women, one was an old grandma while the other was in her 40s. Both of them looked like Stella, John's wife. They also tried approaching me but I ignored them.
 
-I got to the sore but there is no fog today... What is this?? It's not the sea... It's a lake...
+I got to the shore but there is no fog today... What is this?? It's not the sea... It's a lake...
 
 I looked down at the water and saw an old man looking back at me, wtf is going on? He wore glasses similar to the ones I wore. He had a balding head and his face was all wrinkled. Wait is that me?
 
