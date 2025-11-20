@@ -41,3 +41,6 @@ As I stood up, I saw the glaring ceiling light in the office staring at my face.
 “Yea, I just had a nightmare.” I said. Reggie shrugged and walked out. 
 
 I’m writing this post now at four in the morning. I have a raging headache as I type it out. I don't remember when it started, my brain's a mess. I know what I saw. I know how my body felt. I remember everything so vividly. It’s too clear and too detailed to chalk up to a nightmare or a hallucination. I need to keep this job, at least till I find another one. I can’t afford to quit now. And I don’t know if I want to come in for work tomorrow. I have no clue what the hell is going on. If you guys know anything, please contact me. I think I’ll ask my manager for a day off tomorrow.
+
+  
+UPDATE (21st November 2025): Things have been wild for the past week or so, but I believe the worst is behind me. I'll make a post when I'm ready to. Thank you for all your feedback and support.
