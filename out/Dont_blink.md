@@ -20,7 +20,7 @@ It didn’t taper off. It stopped dead, like a wall.
 
 I stepped out of the cool shade of the forest and into the valley. This was the "black spot" on the map.
 
-The valley was bowl-shaped, surrounded on all sides by high, steep ridges that probably messed with radio signals. The sky above was a flat, heavy sheet of gray stratus clouds, diffuses light so there were almost no shadows.
+The valley was bowl-shaped, surrounded on all sides by high, steep ridges that probably messed with radio signals. The sky above was a flat, heavy sheet of gray stratus clouds, diffusing light so there were almost no shadows.
 
 It was farmland. But it was wrong.
 
@@ -104,7 +104,7 @@ All twenty of the "children" scarecrows were now standing.
 
 My blood went cold. I swear, my heart stopped beating for a full three seconds. A moment ago, they had been seated at the desks. Now, they were standing, their stick-legs awkwardly braced against the metal chair legs. And every single painted face was turned toward me.
 
-I didn't move. I couldn't breath. I stared at them, eyes wide, burning.
+I didn't move. I couldn't breathe. I stared at them, eyes wide, burning.
 
 Nothing happened. They stood there, inanimate. Bundles of hay and cloth.
 
@@ -188,7 +188,7 @@ I heard the swish of something heavy swinging through the space where my head ha
 
 I scrambled up, eyes snapping open.
 
-The Father was twisted around, his waist contorted unnatural 180 degrees, looking down at where I had been. His gloved hand was buried up to the wrist in the soil.
+The Father was twisted around, his waist contorted an unnatural 180 degrees, looking down at where I had been. His gloved hand was buried up to the wrist in the soil.
 
 I ran.
 
@@ -220,11 +220,15 @@ I didn't open them immediately. I lay there, gasping, trying to suck in air.
 
 And I felt them.
 
-I felt the sun block out. I felt them standing over me. I heard the creaking of wood straining against fabric.
+I felt the sun block out. I felt them standing over me. I heard the creaking of wood straining against fabric. I smelled the rot. It was suffocating.
 
-I smelled the rot. It was suffocating.
+I felt a sharp, crushing pain clamp onto my right calf.
 
-I waited to die. I waited for those white gardening gloves to close around my neck, or for a wooden stake to be driven through my back.
+I screamed, trying to kick out, but the grip was like iron. Five rigid, unyielding fingers squeezed my leg, grinding the muscle against the bone. It felt cold—a stinging, dry cold that burned through my denim jeans. Something clawed at my boot, dragging me backward across the dirt, away from the tree line.
+
+"No!" I shrieked, thrashing blindly. My boot connected with something hard and wooden, sending a jarring shock up my leg, but the grip only tightened, pinching so hard I felt something in my leg pop.
+
+I waited for the end. I waited for those white gardening gloves to close around my neck.
 
 But then... I felt a cool touch on my cheek.
 
@@ -232,13 +236,13 @@ It was a breeze.
 
 Whish.
 
-The leaves in the forest ahead rustled. The high grass hissed.
+The hand on my leg went limp. The impossible strength vanished instantly.
 
-The wind was back.
+The leaves in the forest ahead rustled. The high grass hissed. The wind was back.
 
 I scrambled to my hands and knees, coughing, and looked up.
 
-They were all there. A semi-circle of nightmare figures standing over me. The Father was in the center, his hand extended, inches from my hair. The "Teacher" from the school was there, holding his ruler like a dagger. The little girl in the pink dress was standing by my leg.
+They were all there. A semi-circle of nightmare figures standing over me. The Father was in the center, his hand extended, inches from my hair. The little girl in the pink dress was collapsed on the ground behind me, her white-gloved hand still resting loosely on my bruised ankle.
 
 But they were swaying. The wind was pushing against them, and they were just... dolls. Floppy, lifeless dolls responding to physics. The malice was gone, replaced by the mindless motion of the breeze.
 
@@ -262,7 +266,9 @@ I quit the next day. I told them it was family issues.
 
 I've been living in the city since then. Somewhere with streetlights. Somewhere with constant noise. Traffic. People. Movement.
 
-But I’m writing this because I checked Google Earth this morning. I don't know why. morbid curiosity, maybe.
+The doctors tell me the deep purple bruising on my calf is just a hematoma from the fall, but I know better. The bruise is shaped perfectly like a small handprint. It hasn’t faded in three weeks. If anything, it's getting darker, turning a distinct shade of dead-leaf brown.
+
+I’m writing this because I checked Google Earth this morning. I don't know why. Morbid curiosity, maybe.
 
 The glitch is gone. The pixelated blur over the valley has been updated with a new, high-res image.
 
