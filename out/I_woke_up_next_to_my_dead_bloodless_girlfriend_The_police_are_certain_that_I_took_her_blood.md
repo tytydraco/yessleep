@@ -8,7 +8,7 @@ But God, no - I didn’t kill her.
 
 It *may* look like we were alone, like no one broke in, but it’s a cruel trick. My fingerprints *may* be the only ones that were found on her body, but they didn’t need to lift a single finger to bleed her out.
 
-So, I implore you - same as I’ve implored countless cops and detectives- don’t write me off because it’s easy. Don’t send me upriver for the rest of my life because it’s convenient. 
+So, I implore you - same as I’ve implored countless others - don’t write me off because it’s easy. Don’t send me upriver for the rest of my life because it’s convenient. 
 
 Read what I have to say. Then, consider the blood.
 
