@@ -128,3 +128,4 @@ Without a word, he restarted the engine, leaving the young man stranded at the d
 
 As the bus rolled into the night, I braced myself for whatever lay ahead, fully aware that there was no turning back now.
 
+[Part2](https://www.reddit.com/r/nosleep/comments/1p2v8jl/i_was_investigating_a_missing_girl_who_took_the/)
