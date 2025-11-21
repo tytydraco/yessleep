@@ -472,7 +472,7 @@ I step back, stumbling over loose papers on the floor. The corners of Danica’s
 
 *“My one niece - Rossa - she’s a nasty, voracious little thing. I’ve seen her proboscis grow miles long, and boy, has she developed a taste for you.”*
 
-I still have the knife pointed at her, and yet, she feels safe enough to turn away. She flicks the her fake appliance back on and begins tinkering with settings.
+I still have the knife pointed at her, and yet, she feels safe enough to turn away. She flicks her fake appliance back on and begins tinkering with settings.
 
 *“Your blood is different, she claims.”* Danica snaps her fingers. She’s trying to recall the word Rossa used.
 
