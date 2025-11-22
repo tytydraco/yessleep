@@ -331,15 +331,24 @@ No response again
 It felt like Rosco was trying to mess with me by staying quiet; the idea of him crawling back up the ladder at any moment, screaming to the very heavens to just scare me, was present in my mind. The only sound that came out of the trapdoor was the echo of my voice every time I spoke. I couldn’t even hear him climbing down the louder anymore. Like if light and sound ceased to exist the very moment that it crossed the physical boundaries of this mysterious trapdoor.
 
 “Rosco, if you don’t climb your ass back up here right the fuck now–”
+
 Rosco would interrupt me, flying back up out of the trapdoor as if he had been launched up by a cannon to next land on me like a sack of rocks, and god he was heavy. If you have had a 210+ pound man thrown on top of you all of a sudden, not even suddenly, at any moment in time, understand it feels like your entire body is just crushed. Not in the sense that I was a fine paste now, or I wouldn’t be telling this story, but it was a certain type of pain that I wish most of you will never experience.
+
 The next thing I knew, I was flat on my back a foot away from the trapdoor, with my blurry vision returning to see Rosco slamming the door shut, fiddling with the key I had left in the lock. He almost looked fearful, maybe horrified, which was a stretch, but it was something I wasn’t familiar with when it came to Rosco. For him to be serious is one thing, for him to be scared is entirely something different.
+
 “FUCK YOU!”
+
 Rosco yelled at the trapdoor once he had locked it and removed the key. I would have asked what was going on, if I didn’t have to stop him from swallowing my entire ring of keys. Nearly slugged him in the face in the process of re-acquiring it.
 Rosco, for the next 3 or so minutes, would try to grab the key from me, yelling.
+
 “I need to get rid of it...”
+
 “You don't understand, it needs to go!"
+
 and
+
 “Abs!!"
+
 I tried my best as I held it as far as I could away from him, till his hand smack pressed against the side of my face. If he hadn’t done that, I wouldn’t have noticed the elephant in the room.
 
 “Where’s the trapdoor?”
