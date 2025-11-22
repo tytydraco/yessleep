@@ -232,3 +232,4 @@ I sat there for five minutes before I could move.
 
 I owed them a debt.
 
+[Masterlist](https://www.reddit.com/user/lex_kenosi/comments/1p17crp/masterlist_im_a_search_and_rescue_officer_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
