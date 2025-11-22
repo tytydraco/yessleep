@@ -1,4 +1,4 @@
-The title of this post is something I have whispered to myself for over a decade, but never dared to type out. People worry about your mental health when you talk about ghosts. They worry even more when you tell them you are living with one.
+My name is Céline. The title of this post is something I have whispered to myself for over a decade, but never dared to type out. People worry about your mental health when you talk about ghosts. They worry even more when you tell them you are living with one.
 
 But I’m thirty-six now. I’m established, I’m stable, and I’m far enough away from the event to look at it clearly. I need to get this down, because I looked at her this morning—really looked at her—and I realized the truth is undeniable.
 
