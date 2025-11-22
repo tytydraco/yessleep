@@ -1,671 +1,576 @@
-I’m not looking for advice or comfort.
+I’m not looking for advice or sympathy.
 
-I just need someone to tell me this sounds like something a human brain could actually experience and still function afterward.
+I just want to know if this sounds like something a person’s brain can go through and still work afterward.
 
-I’ve already done the checklist. Carbon monoxide, black mold, sleep deprivation, stress, misremembered details. I went down every branch of “rational explanation” until all that was left was this ugly little knot in the middle.
+I already did the boring rational checklist.
+Gas leak. Mold. Not enough sleep. Too much stress. Memory screw-ups. I actually wrote them all out in a notes app and tried to make each one fit.
 
-I know what I saw. I know what I heard. And I know what isn’t here anymore.
+None of them explain what I remember. None of them explain what’s missing now.
 
-You can say I’m wrong. That’s fine.
+I remember what I saw. I remember what I heard. And I remember a person who was right next to me for hours.
 
-Just don’t tell me I imagined it.
+You can say I’m misreading it. Fine.
+
+Just don’t tell me it was all in my head.
 
 It started with a screenshot.
 
-My friend Liam sent it in our group chat at two in the morning—just a grainy image of a concrete hallway with peeling green paint and a line of doors, no handles, each with a black number stenciled above it.
+My friend Liam dropped it in our group chat around two in the morning. It was low-res, all blocky pixels. Concrete hallway. Green paint on the walls. Doors down both sides. The doors didn’t have handles. Above each one, there was a black number stenciled onto the wall.
 
-Beneath it was a caption:
+Under the screenshot, someone had written:
 
 “South annex, Building D. Stairs go down three more floors than the blueprints say. Do NOT go past the second landing. You’ll know why.”
 
-The username was blurred out. The site was some dead urbex board, archived and scraped. The original thread was gone when I tried to find it. Only that screenshot, floating around in reposts and image dumps.
+The username in the screenshot was blurred out. The image came from some dead urbex forum. When I tried to find the original thread, every link I clicked led to a broken archive page or a scraped copy missing half the posts. I never found where that caption was first posted.
 
-Liam lives for that kind of thing.
+This is exactly Liam’s thing.
 
-Abandoned hospitals, half-finished overpasses, flood tunnels—the kind of places that smell like rust and wet drywall. I’m usually the one who says, “We should not be here, we’re going to get arrested or fall through something,” and he’s the one who laughs it off and keeps going.
+He spends weekends in abandoned hospitals and parking structures and service tunnels. If a place is empty, off-limits, and smells old, he wants to walk around in it. I’m usually the one warning him about trespassing and rotten floors and security cameras.
 
-This time I didn’t say no.
+That night, I didn’t say no.
 
-I told myself it was because the place was local. Forty-five minutes outside town, out near an industrial park that never really took off. Most of the shells out there got turned into storage, or just sat empty with For Lease banners sagging off the facades.
+I told myself it was because the place was close. About a forty-five minute drive from town, just off the highway, near an industrial park that never filled properly. Most of the buildings out there turned into storage or stayed “For Lease” until the banners faded.
 
-Liam had done his homework.
+Liam did his usual digging beforehand.
 
-“The address used to be a small research lab,” he said, riding shotgun while I drove. “Defense contractor spin-off, closed in the eighties. Officially they did materials testing. Unofficially, there’s a bunch of rumors about human factors stuff. Sleep deprivation, sensory experiments, you know.”
+“Used to be a research lab,” he said in the car. He was in the passenger seat scrolling, I was driving. “Spin-off from a defense contractor. Closed sometime in the eighties. Official paperwork says ‘materials testing.’ Old posts say ‘human factors.’ Sleep trials, sensory stuff, that kind of thing.”
 
-I kept my eyes on the road. “Rumors from where?”
+I kept my attention on the road. “Old posts where?”
 
-He shrugged. “Old forum. Most of the links are dead. That’s the fun part.”
+“Forum nobody moderates anymore,” he said. “Half the threads are bots. Screenshots look like they were taken on a potato. That’s how you know it’s good.”
 
-He said “fun” like normal people say “mildly concerning.”
+He sounded relaxed. Too relaxed, honestly.
 
-It was overcast that afternoon—bright but flat, the sky the color of old receipts. The industrial park looked wrong in a way I can’t quite explain. Too much empty concrete. Too many loading docks with no trucks. The kind of place that felt like it was built for a future that never happened.
+The sky was just a flat gray slab that day. When we pulled into the industrial park, the whole place felt wrong in a way I didn’t have a neat word for. Big rectangles of concrete and brick, too many parking spaces, not enough people or vehicles. It looked like the tail end of a half-built future.
 
-Building D didn’t have a sign.
+Building D didn’t have a nameplate.
 
-Just a two-story slab of faded brick with blacked-out windows and a chain-link fence sagging in front. A rusted padlock hung through the gate, closed but not actually latched. Someone before us had cut the link and then looped it back through to make it look secure.
+Just a two-story brick block with dark windows and a sagging chain-link fence around the front. A rusted padlock hung on the gate. The link right next to it had been cut, and somebody had looped the loose chain back through the lock so it looked sealed at a glance.
 
-Liam grinned, then sobered when he saw my face.
+Liam saw that and smiled. When he looked over and saw my face, the smile faded a little.
 
-“We can always bail,” he said. “Walk around, take some photos, go home.”
+“We can still bail,” he said. “Walk the outside, peek in, get food. No big deal.”
 
-“Let’s just see the first floor,” I said.
+“Let’s at least see the first floor,” I heard myself say.
 
-I still don’t know why those words came out of my mouth.
+That answer didn’t match how I actually felt.
 
-Inside, the air was stale and dry, like a building that had been sealed too long. Dust lay thick on everything. The lobby had that late-70s institutional feel—tan tile, metal-framed glass doors, a front desk with a dead computer still sitting on it.
+Inside, the air felt dead. No draft, no movement. Dust lay on every surface. The lobby looked like generic late-70s office space: square tan tiles, glass doors in metal frames, a long front desk with an old CRT monitor sitting dark on top.
 
-Someone had spray-painted a crude smiley face on one wall, black on beige.
+There was a black spray-painted smiley face on one wall. Nothing else. No tags.
 
-We stepped through a doorway behind the desk and into a long corridor. Most of the offices were gutted—wires hanging, ceiling tiles missing, stains on the carpet that had no business still being damp.
+We went through a door behind the front desk and stepped into a corridor. Most of the rooms off it had been stripped. Ceiling grids open, tiles missing, wires hanging down. The carpet was stained in big irregular patches. A couple of those stains still had darker edges that looked too fresh for a place that had been empty for decades.
 
-“Smell that?” Liam asked.
+“Do you smell that?” Liam asked.
 
-I did. Something metallic and sharp underneath the dust. Not quite blood. Not quite chemical. Just wrong.
+Under the dust, there was a sharp metallic scent and something chemical that didn’t match mildew or old building smell.
 
-“This is probably where they did testing,” he said, sticking his head into a room with a one-way mirror. “Cool, right?”
+“This is probably where they did the tests,” he said, leaning into a room that had a one-way mirror built into the far wall. “Observers on one side, subjects on the other.”
 
-“Sure.” My voice sounded thin. “Where’s the annex?”
+“Great,” I said. “So, south annex?”
 
-He pulled his phone out. “The screenshot said south annex. That should be… that way.”
+He checked his phone again. “If the blueprint I found is right, the annex should be that way.” He pointed deeper into the building.
 
-He pointed down the hallway.
+We kept going.
 
-We walked.
+Some of the doors had room numbers stenciled above the frame. 112. 114. 116. Then a jump to 120. Then 126. Then one door with no number at all. The next one after that had 118, which didn’t line up with the sequence at all.
 
-Every few yards, there was a door with a room number stenciled on it. 112. 114. 116. The numbers jumped sometimes. 120 straight to 126. A door with no number. Then 118 where it shouldn’t be.
+I decided they must’ve remodeled the floor at some point and changed the layout without updating everything.
 
-I chalked it up to renovations, or offices being repurposed.
+At the end of the corridor was a plain metal door with an EXIT sign above it. The plastic on the sign was faded. The light inside it was off.
 
-At the end of the corridor there was a plain metal door with a faded EXIT sign above it, unlit.
+Liam pushed the door open.
 
-Liam pushed it open.
+The hallway from the screenshot was on the other side.
 
-On the other side was that hallway from the screenshot.
+Concrete floor with a narrow strip of worn material down the center. Green painted walls. Doors on both sides spaced exactly the same distance apart. Above each door, a black number.
 
-Same dull green paint, flaking off in strips. Same narrow strip of linoleum down the middle. And the doors—maybe a dozen of them on each side, evenly spaced, each with a small black number above it.
+All of them were 0.
 
-But in person, the numbers were wrong.
+First door: 0.
 
-The first one read 0.
+Second door: 0.
 
-The next was 0.
+Third door: 0.
 
-Then 0 again.
+Our footsteps landed on the floor and stopped. No echo.
 
-Our footsteps sounded too loud.
+“This is it,” I said.
 
-“Okay,” I whispered without meaning to. “That’s—”
+Liam stepped up close to one of the zeros. “They painted over the real numbers,” he said. “Look close.”
 
-Liam walked ahead, head tilted, studying the digits. “They painted over them,” he said. “Look. You can see the edges underneath.”
+He was right. Up close, you could see faint outlines under the zeros. Shapes like 101, 103, 105, just a little off-center. The new black 0s sat on top of them.
 
-He was right. The black 0s were crisp, but around the edges you could see the faint ghosts of other numbers, darker against the paint. 101, 103, 105, all slightly offset under the zeros like something had tried to erase them and given up halfway.
+At the far end of the hallway, another EXIT sign glowed red.
 
-At the far end of the hall, a red EXIT sign glowed faintly.
+“There’s no power in this building,” I said. “We didn’t see any other lights on.”
 
-“No power in here, but that’s on,” I said.
+“Emergency line,” he said. “Separate wiring. Or some old battery that should’ve been dead years ago and isn’t.”
 
-“Emergency battery, maybe,” Liam said. “Old buildings sometimes keep those separate.”
+His voice didn’t carry the way it should have. It seemed to just stop a few feet away.
 
-His voice sounded muted, like someone had put a blanket over his mouth.
+Halfway down the hall, I noticed I was breathing harder. The air felt heavier in my chest. Not warmer. Just dense.
 
-Halfway down the hall, I realized the air felt thicker. Not humid, exactly. Just heavy, like every breath had to squeeze through something.
+We stopped at one of the doors with a 0 above it.
 
-We stopped at one of the 0s.
+No handle, no lock, no hinges on our side. Just a door with a narrow vertical slot at eye level.
 
-The door underneath it had no handle, no lock, no hinges on this side. Just a rectangular slot at eye level, like a mail slot turned vertical. Liam bent down and peered through.
+Liam bent forward to look through the slot.
 
-“Don’t,” I hissed.
+“Don’t,” I said.
 
-He ignored me. “It’s just dark,” he said. “Can’t see anything.”
+He stayed there. “It’s just black,” he said. “Can’t see anything.”
 
-He lifted his phone, turned on the flashlight, and angled it toward the slot.
+He turned on his phone flashlight and angled the beam at the slot.
 
-The beam didn’t go anywhere.
+The light hit the opening and didn’t go anywhere beyond it. No reflection, no faint surface, nothing. Just the beam cutting off.
 
-It hit the opening and just… stopped. Like the light itself was being swallowed. No reflection. No dust motes. Just a hard cutoff.
+Liam’s face tightened. “Yeah, that’s not how this should work,” he muttered.
 
-Liam frowned and pulled back. “Weird. Might be angled weird inside.”
+A sound came from further down the hall.
 
-There was a sound down the hall.
-
-Soft. A kind of dry shuffle. No echo.
+Something dragging. Dry. Slow.
 
 We both froze.
 
-“Probably a raccoon,” Liam murmured, but his eyes looked wrong.
+“Probably a raccoon,” he said. It didn’t sound like he believed it.
 
 The sound came again.
 
-Not closer. Not farther. Just there.
+Same volume, same distance. There was no echo, no way to tell direction. The hallway might as well have absorbed it in place.
 
-I realized I couldn’t tell which direction it came from. Left, right, above—it all felt the same. The hallway had no acoustics. Like it was designed to keep noise from bouncing.
+“Let’s just find the stairs,” I said. “We see them, then we leave. That’s it.”
 
-“Let’s find the stairwell,” I said. “See it, then bounce. Deal?”
+He hesitated, then nodded once. “Okay. Stairs, then gone.”
 
-He hesitated, then nodded. “Deal.”
+We moved on.
 
-We kept walking.
+The EXIT sign at the end of the hallway didn’t seem to get closer. My body said we were walking. My eyes said we were staying in the same spot. I checked my watch. We walked for about a minute and the sign looked exactly the same.
 
-The EXIT sign at the far end never seemed to get closer. It stayed the same size, the same distance away, no matter how many steps we took.
+“Wait,” I said. “This—”
 
-I checked my watch without thinking about it. We walked what felt like a full minute. The sign didn’t move.
+The EXIT sign flicked off.
 
-“Okay,” I said. “That’s—”
+When it came back on, it was right above the door in front of us.
 
-“Perspective,” Liam cut in quickly. “This hall’s just longer than it looks. The paint lines—”
+We hadn’t crossed that distance.
 
-The EXIT sign flickered.
+Liam let out a short, shaky laugh. “All right,” he said. “That’s… something. Old construction messing with perspective.”
 
-Once, like a blink.
+That dragging noise came again. One drawn-out pull and then a single, clear tap on the floor.
 
-When it came back on, it was closer.
+“I’m done,” I said. “Stairs, then out. I mean it this time.”
 
-Not a little. A lot.
+He opened the door.
 
-One step away, hanging right over the door.
+The stairwell looked ordinary at first glance.
 
-I hadn’t seen the walls move. I didn’t remember walking further. But there it was.
+Square landings, concrete steps, metal railings. Black stenciled numbers on the walls at each landing.
 
-Liam laughed once, high and strained. “Trippy,” he said. “Just a trick of—”
+The level we were on had a 1.
 
-The sound came again.
+One flight down was marked 0.
 
-That dry shuffle. This time followed by a faint tap, like something hard touching the floor, once.
+Another flight down was marked -1.
 
-I was done.
+The first -1 we saw had a line scratched through it, like someone had dug a key or a nail across it.
 
-“Stairs, then out,” I said. “That’s it.”
+There were no stairs going higher than 1. No roof door.
 
-He pushed the door open.
-
-The stairwell looked normal at first glance.
-
-Concrete steps. Metal handrail. The kind of institutional stair tower you see in parking garages and schools. The walls were bare except for small black numbers stenciled at each landing:
-
-1 at the top,
-
-0 one level down,
-
--1 under that.
-
-Someone had scratched a line through the -1 with something sharp.
-
-There was no up. No roof access. Just down.
-
-“You saw the screenshot,” Liam said, his voice soft. “He said the stairs go down farther than the building should allow. And not to go past the second landing.”
+“You read the caption,” Liam said. “Stairs go lower than they should. Don’t go past the second landing. That’s the warning.”
 
 He put his hand on the rail.
 
-“Second landing and we leave,” he said. “Scout’s honor.”
+“Second landing and we’re out,” he said. “For real. I just want to see how far it goes.”
 
-“You were never a scout.”
+“You always say that,” I said.
 
-“Good. Those dudes would hate this.”
+“Yeah, and sometimes I mean it,” he said.
 
-He started down.
+We started down.
 
-The air grew colder with each step.
+The air grew colder with each flight. By the time we reached the landing with 0, my fingers were numb on the rail. There was a door there. Metal, blank, no window.
 
-By the time we reached the landing marked 0, my hands were shaking and I couldn’t tell if it was fear or temperature. I wiped my palm on my jeans. The sweat left a darker streak than it should have.
+“Leave it alone,” I said.
 
-There was a door at that landing. No number. No window.
+He did, which surprised me.
 
-“Don’t,” I said when he reached for it.
+“One more,” he said. “We hit -1, confirm the pattern, then we’re done.”
 
-He actually stopped.
+The next landing down had -1 on the wall again. This stencil didn’t have a scratch through it. The door here had a black 0 above it, just like the hallway doors.
 
-“One more flight,” he said. “Just to see if the numbering keeps going.”
+“We saw it,” I said. “That’s the second landing. Your little rule is met. Time to go back up.”
 
-I didn’t move.
+The stairwell lights shut off.
 
-He looked back up at me. “We already came in here,” he said. “If someone’s gonna yell at us, that ship sailed. Two landings and we bounce. Come on.”
+It wasn’t dramatic. No popping glass. Just a tiny electrical noise and then only our flashlights.
 
-The landing under that was stenciled -1 again.
+His phone beam and my headlamp made two small islands of light. Beyond those, nothing.
 
-No scratch through this one.
+“Tell me that was a timer,” I said. “Please say there’s some stupid motion sensor.”
 
-The door at this level had a black 0 above it.
+“That wasn’t me,” he said, and I believed him.
 
-The same 0 as in the hallway. Same stencil. Same thickness.
+Something moved below us.
 
-“Okay,” I said. “We’ve seen it. You said second landing. Let’s—”
+Not footsteps. Not any animal noise I recognized. It was a slow, steady shift, like a heavy coil of something being rearranged.
 
-The stairwell lights went out.
+Liam aimed his light downward.
 
-Every bulb popped in the same instant—not loud, just a flat little crackle.
+We didn’t see the familiar pattern of stairs fading into a darker distance. The light hit a gray space that refused to show depth or shape.
 
-Then there was only the thin beam of Liam’s phone flashlight, and the smaller circle of my headlamp.
+My eyes started to sting again.
 
-They didn’t reach far.
+“We’re going now,” I said. “Up.”
 
-“Not funny,” I said. My voice sounded muffled, swallowed by the concrete. “Liam.”
+He nodded.
 
-“That wasn’t me,” he said quietly.
+We climbed.
 
-Somewhere below us, something shifted.
+We went up one full flight.
 
-Not feet. Not an animal. More like a heavy piece of fabric unfurling. Dry. Slow.
+The landing number said -1.
 
-Liam turned his light downward.
+He stopped.
 
-We didn’t see anything.
+“No,” he said. “That’s not right.”
 
-We didn’t see darkness, either. Not in the way you’re supposed to. The light just… met a flat gray, like he was shining it on fog that refused to show its depth.
+“We started at 1,” I said. “Then 0. Then -1. We came down to this one. We just went up one. This should be 0. It’s not.”
 
-My eyes started to water.
+As we looked at it, the number changed.
 
-“Up,” I said. “Now.”
+The paint didn’t smear. The wall didn’t shift. It was the same marks. My brain just suddenly read them as -1 again instead of 0. No transition. Just a new fact.
 
-He nodded and turned to climb back.
+Liam’s breathing went uneven. “We misread it before,” he said quickly. “It’s fine. We’re just panicking. That’s all.”
 
-We went up one flight.
+He climbed three more steps.
 
-When we reached the landing, the stencil above it read -1.
+There was no landing up there.
 
-Liam stopped.
+The stairs continued in the same downward direction in front of him. When he turned and looked behind, those also went down. The landing we thought we were leaving didn’t exist on either side.
 
-“That’s not possible,” he said.
+He stared at me.
 
-“There were only two levels,” I said. “We started at 1, then 0, then -1. We went down to -1. We’re back at 0. That’s—”
+“Stop moving,” I said. “Stay right where you are.”
 
-The number on the wall changed.
+We stood in that same section of stairwell for several seconds.
 
-We were both watching when it happened.
+A new sound started.
 
-The 0 didn’t smear or get repainted—it just wasn’t a 0 anymore. The paint stayed exactly where it was, but my brain suddenly recognized a different shape. Like someone had flipped a switch in my head.
+Short, hard taps. Not random. In groups. Tap tap tap. Pause. Tap. Longer pause. Tap tap.
 
-It read -1.
+It took me a few cycles to notice it matched my breathing.
 
-Liam’s breathing picked up. “We miscounted,” he said. “It’s fine. It’s—”
+Every time I inhaled, there was a quick cluster. When I held my breath, it stopped. When I exhaled, it picked back up a moment later.
 
-He took three steps up.
-
-There was no landing there.
-
-Just more stairs going down.
-
-Same direction.
-
-Same walls.
-
-He turned around, slowly, still holding onto the rail.
-
-The steps behind him went down too.
-
-We were in the same vertical slice of space, over and over.
-
-“Stop moving,” I said. My throat hurt. “Just stop.”
-
-We stood there.
-
-There was no sound for a moment.
-
-Then we heard it.
-
-Not the shuffle from the hallway.
-
-This was a tapping. Light, precise, like nails on glass. It started below us, above us, all around at once. Not random. A pattern.
-
-Tap tap tap. Pause. Tap. Longer pause. Tap tap.
-
-It took me a second to realize it was matching our breathing.
-
-When I inhaled, it did.
-
-When I held my breath, it did too.
-
-When I exhaled, it followed a half-second later.
-
-“Do you hear that?” I whispered.
+“Do you hear that?” I asked.
 
 Liam didn’t answer.
 
-I looked at him.
+He was staring at the wall where the -1 was painted.
 
-He wasn’t looking at the stairs anymore. He was staring at the wall in front of us, where the -1 had been.
+New marks had appeared above the number. Thin vertical strokes grouped together. Tallies.
 
-The paint wasn’t plain there anymore.
+Two groups. A narrow gap under the second group, where one more line could have fit.
 
-Tiny black marks had appeared—just above eye level, a cluster of faint vertical lines, almost like tally marks. They hadn’t been there a second before.
+He reached out and pressed his fingers against the blank space under that gap.
 
-There were two groups of them, side by side.
+Gray dust stuck to his skin.
 
-One had a gap underneath it, like a missing line.
+“Stop touching it,” I snapped. “Seriously. Don’t do that.”
 
-Liam reached out, hand shaking, and touched the wall under the emptier group.
+“It’s a count,” he said. “There’s one missing.”
 
-His fingertips came away with gray dust on them that hadn’t been there before.
+He wiped his fingers on his shirt.
 
-“Don’t touch it,” I snapped. “What are you doing?”
+The gray didn’t fully rub off. You could still see it on his skin.
 
-“It’s counting,” he said. His voice sounded far away. “There’s one missing.”
+I needed something that was ours, something I could verify.
 
-He wiped his hand on his shirt.
+I pulled a black Sharpie out of my pocket. Same one I’d used that morning for paperwork. I went to the nearest clear bit of wall and drew a thick arrow pointing toward the direction I still believed was “up.”
 
-A small gray streak remained on his palm, like someone had pressed fingers of concrete into his skin.
+“If we see this again, we’ll know we looped,” I said. “No more guessing. No more trusting our sense of direction. If we pass this arrow twice, we stop and figure it out.”
 
-We needed a reference point.
+He gave me a small, tight nod.
 
-I pulled a Sharpie from my pocket—the same one I’d used to sign forms at work that morning—and, with my hand shaking, I drew a big, stupid, obvious arrow on the wall, pointing to the stairs.
+We started climbing again.
 
-“Even if it rotates or whatever, we’ll know we’ve been here before,” I said. “We follow it. If we loop back and see the arrow again, we stop.”
+I kept my hand on the rail the whole time. The tapping kept matching our breathing. It didn’t grow louder or softer, just adjusted as we did.
 
-Liam gave a tight nod.
+We passed another landing.
 
-We started moving.
+The stencil here read -2.
 
-Up, I think.
+My thighs burned. My chest hurt. The air stayed thin and cold.
 
-The stairs didn’t feel like they went either way anymore. There was just motion and concrete and that tapping sound, always hovering at the edge of hearing, adjusting to our lungs.
+The arrow never reappeared.
 
-We passed a landing.
+After several more flights, my legs started to shake so badly I couldn’t trust my footing.
 
-The stencil above it read -2.
+“I need a second,” I said. “Just one second.”
 
-My legs started to burn. My chest hurt. The arrow never appeared. The walls all looked the same.
+Liam stopped above me.
 
-After what felt like ten flights, my legs started shaking so badly I had to stop.
+The wall at this landing had changed again.
 
-“I can’t,” I panted.
+The tallies above the number now had no gap. The missing line was there.
 
-Liam stopped a step above me. “Okay. Okay. Let’s…” He trailed off.
+“There,” he said quietly. “Now it’s all there.”
 
-The wall at the landing beside us had changed again.
+His voice broke on the last word.
 
-The tally marks now had more lines.
+“‘All’ what?” I asked.
 
-One cluster. No gap.
+He looked down at me like he was trying to line up my face with something in his head.
 
-“There,” he said, and his voice broke completely. “There it is. Filled in.”
+“Ever feel like a place is keeping track of you?” he asked. “Not just visitors. You. Personally.”
 
-“Filled what in?” My mouth was dry.
+I didn’t answer.
 
-He looked at me like he was only just realizing I was there.
+The tapping stopped.
 
-“You ever feel like a place is expecting you?” he whispered.
+Silence in that stairwell wasn’t clean. Under it, a slow, steady rasp came in. It sounded like air being moved through a long, narrow space. It didn’t come from above or below. It came from the walls.
 
-Before I could answer, the tapping stopped.
+My teeth hurt. My fingers cramped around the rail.
 
-All at once.
+My body moved before I finished thinking about it.
 
-The silence that followed was worse.
+I grabbed his wrist again and ran.
 
-Because underneath it, you could hear something else.
+I honestly couldn’t tell you which way we went. Up, down, sideways—none of it meant anything. My feet kept hitting concrete. Landings flashed past. -3. Blank. Another -1. A 0 in the wrong place. Numbers that didn’t connect to each other.
 
-A faint rasp, like air being pulled through a long, narrow space. Not from below or above. From behind the walls. From inside them.
+The rasping noise stayed at the same volume the whole time, no matter how fast or slow we moved.
 
-I felt it in my teeth.
+At one landing, my heel sank just enough into the surface to feel it. The concrete gave under my weight briefly and then firmed again. The wall beside us pushed inward once, then relaxed.
 
-I didn’t decide to move. My body just did.
-
-I grabbed Liam’s wrist and ran.
-
-I don’t know if we went up or down. My feet hit concrete, over and over, and the rails burned my palm. The landings flashed past, numbers smearing together, -3, -4, a blank one, another 0, all wrong, all out of order.
-
-The rasp grew louder.
-
-At one landing, I felt the floor dip slightly, like the concrete had softened, just enough for my heel to sink a fraction of an inch. The wall to my right rippled, just once, like something behind it had pressed closer.
-
-“Don’t stop,” I gasped.
+“Don’t stop,” I said. “Just keep going.”
 
 We didn’t.
 
-At some point, light appeared above us.
+Eventually, a different kind of light showed up above us.
 
-Not the flat fluorescent of the stairwell. Actual daylight. Weak, cloudy, but real.
+Pale, gray daylight seeped through a doorway at the top of yet another run. Not the harsh stairwell bulbs. Real outside light.
 
-I couldn’t tell you how far away it was. It felt close and impossibly distant at the same time. But it was a direction.
+“There,” I said. “That has to be the way out.”
 
-“Up,” I said. “There. That’s up.”
+We sprinted.
 
-We ran.
+One last landing with no number. A door hanging open. A short corridor. Broken safety glass in window frames. Grass and cracked asphalt beyond.
 
-The rasping stayed with us, matching our speed, never closer, never farther. There was one last landing, unmarked, with a door hanging half open. Beyond it, a short hallway, then smashed-out windows, then a strip of grass and old asphalt.
+We went through and out.
 
-We burst through like we were breaking the surface of water.
+The outside air hit hard. Real wind, real street noise, real world. My knees gave out and I ended up on the pavement, leaning on my hands, breathing like I’d just finished a sprint.
 
-The air outside hit my lungs like a punch.
+For a while there was only that. Our breathing. Distant cars. Wind.
 
-I fell to my knees on the cracked pavement.
+Then I realized I only heard myself.
 
-For a long time, the only sound was us breathing. Real echo, real wind, real distant hum of the highway.
+I turned.
 
-Then I realized Liam wasn’t making any noise.
+Liam was still standing in the doorway.
 
-I looked up.
+He was halfway in shadow, one hand braced on the frame, the other hanging at his side. His body faced me. His feet were still partly on the indoor flooring.
 
-He was still inside the doorway.
+“Come on,” I said. “We’re out. Get over here.”
 
-Standing perfectly still, one hand on the frame, the other hanging limp at his side. The light from outside cut across his face in a hard line, leaving his eyes in shadow.
+He tilted his head a few degrees. Slow. Controlled.
 
-“Come on,” I said. “Liam. Let’s go.”
+His fingers flexed once and then went still again.
 
-He tilted his head.
+The hair on my arms stood up.
 
-Just a fraction. Not a natural angle. Too slow.
+“Liam,” I said.
 
-His fingers flexed once, like he was remembering the motion.
+He stepped out.
 
-Every hair on my body stood on end.
-
-“Liam,” I said again.
-
-He stepped forward.
-
-Something was wrong with his posture.
-
-He moved like his limbs had been put back together by someone who had read the instructions but never seen the finished product. Too deliberate. Every joint a half-second late.
+His body moved the way a body is supposed to move, but the timing was off. His joints seemed to catch and then continue. No casual shift of weight, no little adjustments you don’t usually notice. Every step was deliberate.
 
 He stopped in front of me.
 
-Up close, his face looked mostly normal. A little pale. A little drawn. His eyes were dilated, which made sense given the light change.
+Up close, his face looked washed out. Pupils wide. His eyes were locked on mine and didn’t flick around to anything else.
 
 Then he smiled.
 
-Liam has a crooked smile. One side of his mouth hooks higher than the other. It’s one of the first things people notice about him.
+His smile has always been a little crooked on one side. This one wasn’t. Both corners of his mouth went up the same amount.
 
-This smile went up evenly.
+I felt my stomach drop.
 
-Everything in me recoiled.
+“You okay?” I asked. The words came out too loud.
 
-“You okay?” I asked, my voice coming out too loud.
-
-He blinked. Once. Slowly.
+He blinked once. The blink lasted a fraction longer than normal.
 
 “We made it out,” he said.
 
-His tone was right. The words were right. But the rhythm was just… off. Like he was reading from a line with no idea what it meant.
+The words were right. The pronunciation was right. The spacing between the words was just slightly wrong, like he was repeating a line he’d practiced.
 
-Behind him, the stairwell door eased closed on its own.
+Behind him, the stairwell door swung toward the frame on its own. It didn’t latch. It just moved until it almost touched and then stopped.
 
-I didn’t hear it latch. I didn’t hear anything at all from inside. No rasping. No tapping. Just a flat, swallowed silence.
+Near the hem of his shirt, I saw a tiny strip of white.
 
-Something white was stuck to his shirt, near the hem.
+It sat flush under the fabric. Not lint, not dust. A thin band pressed against his skin, the way a hospital wristband hides under a sleeve.
 
-It looked like dust at first. When he shifted, it slid a little. Not powder. A thin strip of something, embedded just under the fabric, the way a hospital wristband sits under a cuff.
+Without thinking, I reached toward it.
 
-I reached toward it without thinking.
-
-He stepped back so fast I barely saw the movement.
+He jerked back so fast it didn’t look natural.
 
 “Don’t,” he said.
 
-His voice didn’t sound wrong that time.
+That single word sounded completely normal.
 
-We stared at each other.
+We stood there, just looking at each other.
 
-“Okay,” I said. “Okay. Let’s just… go home.”
+“Okay,” I said finally. “I won’t. Let’s just go home.”
 
-Driving back, he stared out the window the whole time. He didn’t check his phone, didn’t put music on, didn’t make any of his usual stupid jokes about how I baby the brakes.
+On the way back, he didn’t touch his phone. No music, no scrolling, no complaining about my driving. He stared out the passenger window the whole ride.
 
-At one point, I thought I saw faint gray smudges on his fingers, the same color as the concrete dust from the tally marks.
+At one red light, I glanced down at his hands.
 
-When I dropped him off at his apartment, he turned to look at me.
+The same faint gray dust clung around his fingers. It hadn’t rubbed off.
+
+When we pulled up outside his building, he turned toward me.
 
 “You should delete the photos,” he said.
 
-“We didn’t take any.”
+“We didn’t take any,” I said.
 
-He nodded, slowly, as if that made sense.
+He looked at me for a second, then nodded slowly.
 
 “Right,” he said. “Good.”
 
-Then he went inside.
+He got out and went inside.
 
-I sat there in the car for a while, engine ticking as it cooled, feeling like I’d just skipped a scene somehow.
+I stayed in the car for a while with my hands still on the steering wheel and the engine off, just staring at the windshield. It felt like a scene was missing somewhere between the stairwell and dropping him off.
 
-At home, I locked the door, took a shower that ran out of hot water, and still couldn’t shake the sensation of stairwell air clinging to my lungs.
+When I finally went inside my own place, I locked the door, checked the deadbolt twice, then took a shower until the hot water ran out. I still couldn’t shake the feeling of the stairwell air sitting in my lungs.
 
 I didn’t sleep that night.
 
-Or the next.
+The second night I lay in bed with the lights on, watching the ceiling.
 
-Part of it was adrenaline. Part of it was this low-level dread that if I closed my eyes, I’d open them again on a landing with a number that shouldn’t exist.
+By the third night, I gave in and tried to call him.
 
-By the third night, I caved and tried to call Liam.
+The call didn’t ring. An automated voice said the number wasn’t in service.
 
-His number went straight to a generic “This line is not in service” message.
+I texted him anyway.
 
-I tried texting anyway.
+The message failed instantly.
 
-The message bounced.
+I opened our group chat.
 
-I checked our group chat.
+All the old messages were still there. The memes, the photos, the plans, everything. At the top, where his name should’ve been, there was just a gray “Unknown.” No profile picture. No contact info.
 
-Every message he’d ever sent—the memes, the photos, the plans—were still there. But his name at the top of the thread was gone. Just a gray bubble that said “Unknown.”
+I checked my phone’s contact list.
 
-The saved contact in my phone had turned blank. No name. No number. Just an empty field and a little spinning circle that never resolved.
+There was an entry sitting there with no name and no number. Every time I tried to edit it, the app spun and then flipped me back to the list.
 
 I checked social media.
 
-Nothing.
+No profile. No posts. No old photos. Comments people had clearly written to him were still there, but now they looked like one-sided arguments with nobody.
 
-Not his profile. Not pictures. Not tagged posts. Old comments people had made to him were still there, but their replies made no sense now—half a conversation with a missing half.
+I called our friend Jenna.
 
-I called another friend, Jenna, who’d known him longer than I had.
+“Hey,” I said. “Stupid question. When’s the last time you talked to Liam?”
 
-“Hey,” I said, trying to sound casual. “Question. You talked to Liam lately?”
+“Who?” she asked.
 
-There was a pause.
+“Liam,” I said. “Tall, dark hair. He came with us to that flea market in July. You bought that ugly lamp? He kept roasting you for it.”
 
-“Who?” she said.
-
-“Liam,” I repeated. “Tall, black hair, the guy who dragged us to that stupid flea market in July?”
-
-“Are you okay?” she asked slowly.
+“I went with you,” she said slowly. “There wasn’t a third person.”
 
 I hung up.
 
-I know how that looks.
+I know exactly how that sounds reading it back.
 
-Memory can be weird. People slip through the cracks. Maybe I conflated two friends. Maybe I’d been more stressed than I realized. That’s what I told myself for about thirty seconds.
+I sat on the couch staring at my phone, trying to rearrange names and faces in my head. Nothing lined up.
 
-Then someone slid something under my apartment door.
+Then I heard something at my front door.
 
-I heard the soft scrape against the tile. That was it. No footsteps. No knock. Just that one quiet sound.
+A soft scrape across the floor, like something thin sliding under the gap. No knock. No footsteps.
 
-I stared at the door for a good minute before moving.
+I watched the bottom of the door for a while, then forced myself to get up.
 
-There was no one in the hall when I opened it.
+The hallway outside was empty. No one at the elevator. No doors closing. Just the usual building hum.
 
-No elevator sound. No closing doors. Just the faint hum of the building AC.
+On the floor inside my door was a narrow strip of plastic.
 
-On the floor in front of the threshold was a strip of plastic.
-
-The size and shape of an old-fashioned label. Off-white, edges slightly curled, one side faintly sticky like it had been peeled off a surface and reapplied a few times.
+It was the size of an old label. The surface was off-white and a little glossy. The edges curled up slightly. One side felt faintly sticky, as if it had already gone on and off a few things.
 
 I picked it up.
 
-On one side, there were small black marks.
+One side had tallies on it, drawn in neat, thin black lines.
 
-Tally lines.
+Five lines, a small gap, five more, and so on. At the end of the last group the ink had dragged a little.
 
-Five, then a space, then another cluster of five, then another, all in a neat row. Someone had drawn them with something fine and precise. At the end of the last group, there was a faint smear, like the pen had hesitated.
+Underneath the tallies, in very small block letters, was a name:
 
-Underneath the tallies, in tiny block letters, was a single word.
+LIAM
 
-LIAM.
+The lines of the letters were clean, with a bit of bleed into the plastic.
 
-The ink had bled slightly into the plastic.
+I turned it over.
 
-On the back was something else.
+The other side had a symbol.
 
-It wasn’t any symbol I recognized, but it didn’t scream “mystical rune” either. Just three short horizontal lines stacked on top of each other, with a single vertical line cut cleanly through the middle—like a logo from some company I’d never heard of, except the proportions felt off in a way I couldn’t put into words.
+Three short horizontal lines stacked with equal spacing. A single vertical line went straight down through all three. The ink was dark and solid. It didn’t match any logo or alphabet I recognized, but it looked deliberate.
 
-There were more shapes beneath that. Smaller, tighter together. They could’ve been letters from some other alphabet, or just someone doodling with a fine-point pen. When I looked at them too long, my eyes started to cross, like my brain was trying to read them and failing.
+Staring at it gave me the same pressure in my head I’d felt in the stairwell when the number shifted meaning.
 
-At the very bottom, in letters that were slightly more jagged, like the hand writing them wasn’t used to this alphabet, there was a sentence.
+Below the symbol, the rest of the space was crowded with very small marks. Too tight to make out clearly. My eyes kept trying to turn them into letters and failing.
 
-Four words.
+At the bottom, in a less steady hand, was a short sentence:
 
-“YOU WERE SUPPOSED TO SEE.”
+YOU WERE SUPPOSED TO SEE.
 
-The T in “to” was a little off, like whoever wrote it had almost made a different shape first.
+The T in “to” had a faint extra line starting in the wrong direction.
 
-My hands shook so hard I nearly dropped the strip.
+My hand shook enough that I almost dropped the strip.
 
-I checked the hallway again.
+I opened the door again.
 
-Empty.
+The hallway was still empty.
 
-I checked the locks. Twice.
+I shut the door, locked it, then locked it again even though I knew that didn’t do anything extra. I sat down with my back against it and put the label on the coffee table where I could see it.
 
-Then I sat down on the floor with my back against the door and tried to breathe normally.
+I know the normal checklist of what I’m supposed to do.
 
-I know what you’re thinking.
+Burn it. Throw it away. Call the cops and sound insane. Book a therapist. Ask a doctor if I’m having a break with reality. Hand the label to someone else and see if they feel anything staring at it.
 
-If this is real, I should burn the label. Move. Tell someone. Call the cops. Get a psych evaluation. Something.
+I haven’t done any of that.
 
-I haven’t done any of that yet.
+The label is in the top drawer of my nightstand. Every time I think about taking it out and getting rid of it, I hear that old tapping pattern in my head, matching my breathing, and I close the drawer again.
 
-Because every time I think about taking it out of the drawer where I hid it, I hear that tapping again.
+I haven’t gone back to Building D.
 
-Soft, precise, just on the edge of hearing.
+I pulled it up on satellite imagery instead. The industrial park is there. The footprint of Building D is there. The section where the south annex should be is just a little smeared on every set of images, like the file glitched.
 
-Keeping time with my breath.
+One afternoon I got in the car and started driving toward the highway exit that would take me there.
 
-I haven’t been back to Building D.
+As I approached it, my hands locked on the wheel. My chest tightened. I couldn’t move my foot to hit the turn signal. I took the next exit to a gas station, parked, and sat there until it was dark, then drove home using a different route.
 
-I checked satellite images. The industrial park is still there. The brick shell is still there. When I zoomed all the way in on satellite view, the south side of the building turned into a smear of gray pixels. Could just be a bad image stitch or compression artifact, but it bothered me more than it should have.
+I think about the tallies on that stairwell wall all the time.
 
-I tried to drive out there once.
+Two groups. A gap. One missing. Later, no gap. Everything filled.
 
-I made it as far as the highway exit before my hands locked on the steering wheel and my vision tunneled. I pulled into a gas station, sat there shaking until the sun went down, then drove home without ever getting off.
+Whatever that place is, it was tracking something. It knew there was an empty line.
 
-I keep thinking about the tally marks on the wall.
-
-How there was one gap.
-
-And how it wasn’t there later.
-
-Whatever lives in that stairwell knew exactly how many people belonged to it.
-
-Then it let me walk out.
+It let me walk out anyway.
 
 I don’t know why.
 
-Maybe it needed someone to carry the memory. To keep the shape of that place alive outside of it. To drag other eyes back to the idea of a staircase that doesn’t go up or down the way it should.
+Maybe it needed someone to remember its layout. Maybe this is how it stays open—by sitting in the back of someone’s mind and then getting written down like this. Maybe the label is just its way of marking that I still belong on that count.
 
-Maybe that label was a reminder.
+I’m not writing this because I think it’s a cool story.
 
-Or a receipt.
+I’m writing it because I can’t stop counting now. Breaths. Steps in the hallway. Heater clicks. The little green flash from the router. Whenever anything repeats, my brain tracks it automatically.
 
-I’m not writing this for entertainment.
+I keep waiting for something external to line up perfectly with it.
 
-I’m writing it because I can’t stop counting breaths now. Mine. Other people’s. The rhythm of footsteps in the hallway, the ticks of the radiator, the blink of the router light.
+Sometimes around three in the morning, I wake up with my hand clenched like I’m holding a cold rail. My arm muscles feel tired. My lungs feel like they’ve been working harder than they should for someone lying still.
 
-I keep waiting for something to fall into sync.
+For a few seconds, my bedroom feels thin and the memory of those stairs feels solid.
 
-Sometimes, around three in the morning, I wake up with the exact sensation of my hand on a cold metal rail.
+On nights when the building is quiet and there’s no traffic outside and the heater stops, I hear something else in the background of my thoughts.
 
-Like I never stopped climbing.
+Not tapping. Not scraping.
 
-Like I’m still on that landing somewhere, staring at a wall that doesn’t say what it’s supposed to.
-
-And sometimes, when the building is quiet and there’s no traffic outside, I swear I hear it again.
-
-Not the tapping.
-
-Not the rasping.
-
-Just the soft, deliberate sound of something counting, just out of sight, one floor at a time.
+Just a calm, steady sense of something keeping count, floor by floor, and never running out of numbers to say.
