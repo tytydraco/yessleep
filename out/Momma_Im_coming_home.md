@@ -32,6 +32,7 @@ She looked down at her plate the way she used to when she was embarrassed.
 She pushed a piece of food around with her fork, then asked, too casually, “Do you ever think about when you were younger?”
 
 The question punched straight into my gut. I set my fork down carefully so she wouldn’t see my hand trembling. “Yeah,” I said quietly. “Sometimes.”
+
 She nodded like she expected that answer, but her breathing went uneven. “I’ve been thinking about it a lot lately,” she said. “I… I haven’t always been a good mother.”
 
 A rush of old sensations hit me—the sound of a slammed cabinet, the sting in my ribs, her voice breaking into a growl when she was overwhelmed. The memories felt too close, like sitting across from her had pulled them up from the floorboards.
@@ -141,6 +142,7 @@ The air in the room thickened, pressing against my lungs. I kept glancing at the
 When I finished wrapping myself, I sat on the edge of the bed, shaking, trying to breathe through the pounding in my head.
 
 I told myself it had to be something rational. Stress. Old wounds reopening. A nightmare I half-remembered. Anything but what it looked like.
+
 Anything but the thing I used to feel standing behind me when Mom’s eyes went dark and she’d raise her hand like she was being guided.
 
 I lay back down, exhausted and terrified, and stared at the ceiling until sunrise. I didn’t sleep again. I just waited for morning, waited for movement in the hallway, waited for some hint that I wasn’t losing my mind.
