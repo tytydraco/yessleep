@@ -51,9 +51,7 @@ She rubbed her palms together, staring at them like they belonged to someone els
 
 I could taste metal in the back of my mouth. My scars tingled under my shirt, like they remembered her hands before I did.
 
-She took a shuddering breath. “I know I hurt you. I know I scared you. I know some things don’t heal just because time passes. I wish I could explain why I was like that. I wish I could say I was sick or depressed or anything that makes it make sense, but I don’t know what was wrong with me. 
-
-I’d wake up some mornings and feel like the house was angry before I even opened your door. Like there was already something inside me waiting.”
+She took a shuddering breath. “I know I hurt you. I know I scared you. I know some things don’t heal just because time passes. I wish I could explain why I was like that. I wish I could say I was sick or depressed or anything that makes it make sense, but I don’t know what was wrong with me. I’d wake up some mornings and feel like the house was angry before I even opened your door. Like there was already something inside me waiting.”
 She stopped, realizing how that sounded, and shook her head quickly.
 
 “No—no, I don’t mean like an excuse. I just mean… I had all this anger that didn’t feel like mine. It scared me. I scared me.”
