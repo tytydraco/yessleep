@@ -213,6 +213,7 @@ Kneeling down on my good knee, I could see there was minor damage done to the co
 I looked up at Rosco, who now stood on my left.
 
 “Pffffttt, ya think I would have done this if I couldn’t?”
+
 I gave Rosco a look that I thought would let him know that I fully agreed with his statement, which in turn, made him smile, thinking that I agreed about how capable he is. He got the wrong idea, or simply wouldn't acknowledge my lack of faith.
 Looking back at the trapdoor, I noticed something I hadn’t before; a subtle outline of a keyhole next to the pull handle. Covered in a gentle layer of rust.
 “Hey, Mitts?”
