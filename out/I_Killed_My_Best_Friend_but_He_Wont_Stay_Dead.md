@@ -142,8 +142,8 @@ She pressed a kiss to my neck, soft and hesitant. “Yes. Please, Tommy. You're 
 
 She didn’t continue, letting me fill in the blanks for myself, and it did the job to convince me.
 
-This all led me to the decision to kill John, because what else could I possibly do?   
-  
+This all led me to the decision to kill John, because what else could I possibly do?
+
 It was easier than anticipated. A bullet to the back of his head did the job just fine. I had hesitated at first, and in retrospect I would’ve loved to have one last chat with him, but I knew I’d get sentimental. I stored his body in my car while I cleaned the blood off his mahogany floor. Dahlia was somewhere in the house. My plan was to clean up, bury John, and get her out of town. I’d find a motel before we could settle somewhere else, maybe in the place Dahlia was originally heading to.
 
 I drove my car through the depths of the woods where we’d often frequented. I drove over the uneven ground, leaning on the steering wheel as the branches caressed the hood of the car, until I couldn’t drive further. I continued on foot, dragging John’s heavy body along and stopping ever so often to stretch my arms. Eventually, I got to a small clearing behind some thicket. The ground was hard from the cold, but I managed to dig a grave, not terribly deep, but not shallow enough to raise immediate suspicion, *if* anyone even managed to stumble upon it. With a nudge, John’s body was inside, limp and mangled with his face looking up, and a couple minutes later he was covered. I sprinkled some leaves and branches over the disturbed ground and covered my footprints on the way back. The further I drove away, the more I relaxed into the seat. I felt like I was leaving behind a burden that had clung to me for the past thirty years. I couldn’t help but feel conflicted, wondering if I was supposed to grieve him, but I couldn’t will myself to. I hummed along to the quiet sound of the radio and got out of the car without the usual anxiety when I approached John’s home. It was dusk already. Now to get Dahlia. I hastened up the steps to the house and unlocked the door with a smile on my face. My momentum was thwarted when, upon entering, I saw John sitting on the sofa in the living room, watching TV. 
@@ -183,3 +183,5 @@ I made my way back to my car and drove off. My mind was only half on the road, h
 “Yeah, uhm…” I tried to recall the lie I had told when leaving. “The thing solved itself. It wasn’t that important afterall.” I plopped down in the armchair next to them, having hung up my jacket. I grabbed a lukewarm beer from the table and took a long swig, swallowing quicker than usual. John had his arm around Dahlia, grasping her thigh until her flesh turned white. John, who was buried in the woods half-an-hour from his home. John, who was supposed to be dead - and who *was* dead, but not really.
 
 As I sat in the armchair, and as Dahlia begrudgingly cuddled against him, she gave me an almost longing look that made me wonder if she noticed the dead man walking, or at least had heard the gunshot.
+
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1p484bz/i_killed_my_best_friend_but_he_wont_stay_dead/)
