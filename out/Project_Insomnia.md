@@ -312,13 +312,13 @@ The reason why, is that certain actions carry a weight. One that’s too heavy t
 
 It leaves that sliver of doubt that maybe you didn’t really do anything.  It’s how most members of a firing squad sleep at night. 
 
-If you make that phone call, it’s only going to make things harder for you. Cling to that doubt, cling to it like a life raft. “, Nathan explains. 
+If you make that phone call, it’s only going to make things harder for you. Cling to that doubt, cling to it like a life raft. “, Adrien explains. 
 
 “What are you saying?”, I ask. Panicked. 
 
 “As little as possible, for your sake. 
 
-And I have to remind you, using your device to communicate is against the rules of your contract and will be dealt with.”, Nathan threatens. 
+And I have to remind you, using your device to communicate is against the rules of your contract and will be dealt with.”, Adriene threatens. 
 
 I feel like I’m on the edge of a cliff. On one hand, I know this is all just some game. Spooking me out is the point. 
 
