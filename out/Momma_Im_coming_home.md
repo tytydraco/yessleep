@@ -1,150 +1,177 @@
-I just got a message from my mom.
+[Part I](https://www.reddit.com/r/nosleep/s/jOQiGyMBwE)
 
-It was short—just “Can you come home? I’m not feeling well.” No details. No punctuation. No follow-up. 
+———
 
-For most people, that would trigger immediate concern, but for me it felt like someone had reached into my gut and twisted. I hadn’t been back to that house in years, not since I moved out the moment I turned eighteen. 
+Morning came slowly, a gray, suffocating kind of light that made everything in the room look faded. I must have dozed for minutes at a time, but it wasn’t sleep. It was more like sinking into shallow water and jolting back to the surface before anything could pull me under. 
 
-Even now, even after all the distance and therapy and the angry, exhausted explanations I’ve offered to the handful of people who ever asked about my childhood, going back felt like willingly walking into a place that had once tried to break me. 
+When I finally stood, the bandages tugged tight across my arms and ribs, already stained through. I changed into a fresh shirt so my mother wouldn’t see, and for a second I caught my reflection in the mirror—pale, unsteady, like someone visiting a place he’d sworn never to return to. For a moment, the face didn’t even look like mine.
 
-But she was alone, and despite everything she’d done, a part of me still reacted the way it always had: take care of her, keep her calm, don’t make her angry. So I packed a bag, drove the three hours back, and pulled into the same gravel driveway I used to sprint across barefoot as a kid. 
+The hall smelled exactly the way it used to in the mornings, that mix of stale coffee and dust and something metallic I never could identify. The house was quiet—too quiet. 
 
-The house hadn’t changed. The paint still peeled in the same places. The porch light still buzzed. The windows still had that dull, clouded look like they were tired.
+I paused at the end of the hallway, listening the way I used to as a kid before deciding whether it was safe to come out. I hated myself for doing it, but the instinct was too old and too deeply wired to suppress. No footsteps. No voices. Just the low hum of the refrigerator and the soft ticking of the kitchen clock.
 
-Mom greeted me at the door with a weak smile. She looked older than I expected—smaller somehow, like years had pressed down hard enough to fold her inward. 
+She was at the stove when I walked in, stirring something in a pot with her shoulders hunched like she’d been standing like that for a long time. She glanced over her shoulder and smiled, but it didn’t reach her eyes. 
 
-Her voice had softened too, though when she said my name I could still hear that old edge underneath, the one that used to make my shoulders tighten automatically. But she hugged me, tentative and fragile, and for a moment I let myself imagine this might be one of those stories where people really do change. 
+“Did you sleep at all?” she asked. Her voice was hoarse, and her hands trembled slightly as she pushed her hair back from her face.
 
-She made dinner while I brought in my bag, and the whole time I moved through the house, little flashes kept hitting me: the spot on the wall where she once shoved me hard enough my head cracked the drywall; the hallway where she’d grab my arm and drag me across the ground when she was in one of her moods; the bathroom mirror where I’d quietly cry because crying anywhere she could hear it meant trouble. 
+“Some,” I lied. My gaze drifted to the kitchen table. A glass sat there that I didn’t remember her using the night before, filled halfway with water that looked too still, like it hadn’t been touched in hours. 
 
-It was like every room breathed those memories back at me.
+She followed my eyes to it and frowned as if seeing it for the first time. Then she moved it to the sink with a haste that didn’t match her exhaustion.
 
-She kept moving things on the table—adjusting her napkin, refilling my glass even though it was already full, straightening the salt shaker until it lined up perfectly with the pepper. 
+We ate in a quiet far heavier than anything from dinner. She kept searching my face, studying me like she was waiting for me to confirm a suspicion she hadn’t said aloud yet. 
 
-Her hands wouldn’t stay still. That alone told me this wasn’t just a dinner. She’d been rehearsing something.
+At one point she reached out and brushed something from my sleeve—a small flake of dried blood I’d missed—and when she saw what it was, her entire expression faltered. 
 
-I tried to keep eating even though I could hardly taste anything, because the silence between us felt too sharp. 
+Her fingers lingered for a moment before she pulled her hand back to her lap, gripping her own knuckles tight enough that her skin went white.
 
-Finally she cleared her throat and said, “I’m glad you came. I wasn’t sure you… you’d want to.”
-“I always do,” I said, even though it wasn’t true in the way she meant.
+“Do you ever feel strange here?” she asked suddenly. Her voice was too soft, like she was worried the air itself might carry the words somewhere she didn’t want them to go.
 
-She looked down at her plate the way she used to when she was embarrassed. 
+I looked at her for a long moment before answering. “What do you mean?”
 
-She pushed a piece of food around with her fork, then asked, too casually, “Do you ever think about when you were younger?”
+She stared down at her hands, rubbing her thumb over the faint crescent-shaped scars on her left palm—the ones she got during one of her worst nights, when she’d hit the wall so hard her rings somehow cut into her skin. 
 
-The question punched straight into my gut. I set my fork down carefully so she wouldn’t see my hand trembling. “Yeah,” I said quietly. “Sometimes.”
+She almost never acknowledged that they existed. 
 
-She nodded like she expected that answer, but her breathing went uneven. “I’ve been thinking about it a lot lately,” she said. “I… I haven’t always been a good mother.”
+“I don’t know,” she whispered. “It’s hard to explain. Sometimes this house feels… full. Like there’s more in it than just us. Like it remembers things I don’t want to remember.” 
 
-A rush of old sensations hit me—the sound of a slammed cabinet, the sting in my ribs, her voice breaking into a growl when she was overwhelmed. The memories felt too close, like sitting across from her had pulled them up from the floorboards.
+She hesitated, then added, “You used to be so scared all the time. It felt like that fear lived here even when you weren’t in the room.”
 
-“You were doing your best,” I said automatically, because it was the only script I knew. The safe one.
-She flinched at that. Actually flinched.
+The words hollowed something out inside me, not because they were cruel or accusatory, but because she sounded genuinely confused, like she had spent years trying to make sense of something intangible pressing against her without form or name. 
 
-“No,” she whispered. “I wasn’t.”
+Before I could respond, the light above the sink flickered twice, slow and deliberate, the way it used to during storms. Except the sky outside the window was clear.
 
-Something in my chest tightened.
+After a moment she said, too lightly, “I was thinking, after I get off work today… maybe we could go get coffee? Or lunch somewhere? That diner by the highway is still open. You used to like it, remember?”
 
-She kept her eyes on her plate, her voice barely above a murmur. “I remember yelling too much. Grabbing you too hard. Getting angry over nothing. I remember you looking at me like you didn’t know which version of me you were going to get.”
+I didn’t answer at first. Something knotted in my gut. That word—remember—felt heavy in the air after what the house had shown me last night.
 
-I swallowed hard. My throat felt like it was closing.
-She rubbed her palms together, staring at them like they belonged to someone else. “There were nights I’d hear myself shouting and… I don’t know. It’s like I wasn’t fully there. Like something was moving through me faster than I could stop it. And afterward, I’d sit on the floor outside your room and just… hate myself.” Her voice cracked on the last words. “You were a child. You didn’t deserve any of that.”
+She seemed to notice my hesitation and rushed on, her words tripping over themselves.
 
-I could taste metal in the back of my mouth. My scars tingled under my shirt, like they remembered her hands before I did.
+“I just mean—if you want. We don’t have to. I just thought it might be nice. You and me. To talk, or… not talk. Just spend time.”
 
-She took a shuddering breath. “I know I hurt you. I know I scared you. I know some things don’t heal just because time passes. I wish I could explain why I was like that. I wish I could say I was sick or depressed or anything that makes it make sense, but I don’t know what was wrong with me. I’d wake up some mornings and feel like the house was angry before I even opened your door. Like there was already something inside me waiting.”
-She stopped, realizing how that sounded, and shook her head quickly.
+She twisted her fingers together under the table. A nervous tic I didn’t remember from childhood.
 
-“No—no, I don’t mean like an excuse. I just mean… I had all this anger that didn’t feel like mine. It scared me. I scared me.”
+“I’m trying,” she said quietly. “I know that doesn’t fix anything. But I’m trying.”
 
-I stared at her, stunned. She had never said anything like this. Not even close. Growing up, she pretended most of it never happened. As an adult, I’d learned not to bring it up.
+She looked at me then—really looked—and there was nothing defensive in her expression. Just tiredness. Regret. A hope so small it looked afraid to exist.
 
-I didn’t know what to do with her honesty.
+I stabbed a piece of egg I didn’t want and forced myself to meet her eyes.
 
-She wiped her eyes with her sleeve. “You were such a quiet kid. You never fought back. You just… folded into yourself. And I took advantage of that. I hate myself for that. I hate what you must think of me.”
+“Yeah,” I said. “Lunch is fine.”
 
-My chest burned. “I don’t hate you,” I said, too fast.
-That made her cry harder, quietly, her shoulders shaking even as she tried to hide it behind her hand.
+Her face softened in this cautious, trembling way—as if she didn’t want to smile too widely and ruin the moment.
 
-“I wish I could take it all back,” she whispered. 
+“Good,” she said, barely above a whisper. “Good.”
+For a second, it felt… almost normal.
 
-“Every time I scared you. Every time I grabbed you too hard. Every time I hit you so hard you fell down. Every time I cut you or drew blood. Every time you flinched when I walked into the room. I see it so clearly now, all the ways I broke something in you. And I don’t think I’ll ever be able to fix it.”
+But then she glanced toward the corner of the room, quick and subtle, like checking that something wasn’t listening. The motion was so fast I almost missed it, but not fast enough to pretend it wasn’t there.
 
-The words hit like someone had driven a knife straight under my sternum. I felt fourteen again, sitting on the edge of this same table, stomach twisting while I tried not to breathe too loudly.
+I followed her gaze out of instinct.
 
-“I lived in fear of you,” I said before I could stop myself. My voice was unsteady. 
+Nothing was there. Just the empty corner where the paint was peeling.
 
-“Every day. Every night. I was afraid of waking you up from a bender. Afraid of disappointing you. Afraid of the look in your eyes when you were… like that. High, drunk, incoherent.”
-Her face crumpled.
+Still, something in the air felt aware. As if the house was leaning closer.
 
-“But I know you weren’t always like that,” I added, softer. 
+She stood abruptly, gathering plates even though I was still eating. “I should get dressed,” she said. “Traffic’s bad on weekdays. But—what time should I pick you up? Is around 3 or 4 okay?”
 
-“I know you were lonely. I know you were overwhelmed. I know you were trying, even when it didn’t look like it.”
+I swallowed my food, throat tight.
 
-She shook her head, tears streaking down her cheeks. “I don’t deserve your forgiveness.”
+“Whenever,” I said.
 
-“I didn’t say you had it,” I whispered, surprising both of us.
+She nodded. But when she turned away, I caught a flicker—some shadow or expression she didn’t mean to show. Not fear, exactly. More like she was asking the house permission to leave me alone in it.
 
-She froze.
+The kitchen door clicked shut behind her.
 
-Then nodded, slowly, heartbreakingly.
+And for the first time since I arrived, I realized she wasn’t the only one trying to reconnect.
 
-“Fair.”
+The house was too.
 
-We sat in silence long enough that I heard the refrigerator hum across the room. She reached for her water glass with trembling hands. Her eyes were red and tired when she finally met mine.
+After breakfast, I walked down the hall toward the living room, telling myself I was just stretching my legs, just retracing old territory to ground myself. The boards under my feet creaked in that familiar uneven pattern, like someone matching my steps half a beat behind. 
 
-“I want to be better now,” she said. “I want you to feel safe here. I want you to sleep in this house without feeling like you’re ten years old again.”
+The air shifted in temperature as I passed each doorway, growing slightly warmer near the bathroom then cooler near the coat closet. These were changes I remembered from childhood, but back then I always thought it was just the house being old. 
 
-I didn’t know how to answer that, because part of me already felt like I was ten again. Every shadow in the corner was too thick. Every creak in the hallway sounded like her footsteps from back then. My scars ached like old bruises.
+Now the pattern felt almost intentional.
 
-But I forced myself to nod. “Okay.”
+When I pushed open the living room door, the world around me stuttered.
 
-She gave a small, fragile smile. “Thank you for listening. I… I really needed to say all that.”
+It wasn’t immediate, not like a jump scare or a sudden hallucination. It was gradual, like reality rearranged itself one forgotten detail at a time. 
 
-And I really needed to hear it, even though it felt like she had reached into my chest and twisted something that had never healed properly.
-Dinner ended quietly, gently, but the heaviness lingered.
+The light changed first—turning harsher, yellowed, the way it used to when the old lamp near the sofa gave off that buzz before dying. 
 
-The kind of heaviness that sticks to your ribs.
+The rug on the floor blurred at the edges, then sharpened into the pattern we’d replaced years ago. The smell in the air shifted too, sour and sharp, the remnants of a spoiled smoothie she once threw at me because I forgot to take out the trash.
 
-The kind that follows you down the hall to your childhood bedroom.
+I didn’t move. I couldn’t. Every breath felt weighted.
+A figure appeared near the far wall—my mother, but not her. Younger. Shoulders drawn back the way they were when anger rolled through her like a storm she couldn’t outrun. 
 
-For a second, it felt almost healing. Not fixed, not forgiven, but acknowledged. And that mattered more than I expected. 
+Her face wasn’t clear; it flickered at the edges, the features refusing to settle—never showing a clear expression. 
 
-I nodded, not trusting myself to speak, and we finished dinner in silence. It wasn’t comfortable, but it wasn’t hostile either. Just two people sharing a table with too many ghosts sitting between them.
+She crossed the room with those short, furious steps I remembered too vividly, her hand raised not to strike but to emphasize something she was yelling so passionately about.
 
-She gave me fresh sheets for the old twin bed in my childhood room. Everything was smaller than I remembered—the ceiling lower, the window cramped, the closet door still warped at the bottom. 
+I could hear her voice, muffled, warped, repeating the same sentence in a loop that didn’t match her mouth. The sound was low, almost subterranean, like someone speaking underwater.
 
-Lying there in the dark, I tried replaying the conversation, telling myself it was good, that something had shifted. 
+Then I saw him.
 
-But as the house settled around me, old muscle memories stirred: the tension in my ribs, the way my heart sped up whenever I heard footsteps, the sense that something was watching me even when no one was there. 
+The boy stood near the sofa, small and thin, shoulders curled inward. He didn’t look up. His hair fell across his face in the same uneven way mine did at ten years old. 
 
-I told myself it was just being home again. Just old wiring firing up. Just nerves.
+His hands were tucked against his stomach—bruises along the left side of his face, one arm clutching the wrist of the other—a protective posture I remembered without wanting to. He wasn’t exactly solid. His outline flickered, bending in and out of the room’s lighting like a shadow caught between frames of a film.
 
-I must’ve drifted off at some point, because the next thing I knew, something snapped me awake. Not a sound—more like a sensation, a heavy pull deep beneath the surface of my skin. 
+The air around me constricted. My chest ached with a pressure that wasn’t panic but something deeper, older, ingrained into the muscle memory of childhood fear.
 
-I sat up, confused, and felt something warm trickling down my arm. When I turned on the lamp, my breath caught.
+The woman’s voice grew sharper—harsher—the sound flattening into a jagged tone that didn’t belong to any language. The boy flinched without moving. The room darkened at the corners, shadows pooling and stretching until they pressed against the edges of the scene like hands pushing through thin fabric.
 
-My scars were open.
+Then the memory warped.
 
-Thin, white lines I’d carried for years—some from where she’d scratched, some from where she’d grabbed me too hard, some from accidents that weren’t accidents—were split open like fresh wounds. Blood seeped down my forearms in narrow rivers. 
+The woman’s head snapped toward me—not quickly, but with a dragging, unnatural slowness, like something pulling a body through thick mud. 
 
-The cuts didn’t sting the way they should have. They just throbbed, a slow, rhythmic pulse that made my vision blur. More opened across my ribs, my shoulders, even the thin ones behind my knee. It was like my body was remembering everything at once.
+Her face was still obscured, but something beneath the blur leaned forward, sharpening into an intent rather than a feature. Her arm lifted again, but instead of pointing at the boy, it pointed at me.
 
-Panic hit me so hard I nearly stumbled getting to my bag. I grabbed the roll of gauze I’d tossed in on instinct before leaving the apartment, like some part of me already knew I’d need it. 
+The sound in the room cut out. Every noise. Every hum. Even my breath.
 
-My hands shook as I wrapped my arms, my sides, anywhere blood kept slipping through my fingers. No matter how tightly I wrapped them, the stains kept spreading.
+She kept eye contact as she grabbed the boy by the ear. She shook him around while yelling furiously before shoving him as hard as she could. The boy’s head cracked against the wall before he fell on the floor, unconscious.
 
-The house creaked. Not the normal old-house settling, but something slow and deliberate, like weight shifting from one foot to another. 
+Something pressed against my chest—not physically, but from the inside, the pressure of a feeling recognizing itself. The scene froze. Then it shattered in an instant, the room snapping back into the present with a crack that echoed through the floorboards like something heavy falling upstairs.
+The living room was ordinary again—quiet, dim, unchanged.
 
-The air in the room thickened, pressing against my lungs. I kept glancing at the doorway, expecting—dreading—my mother to be standing there with that blank, distant look she used to get. But the hall stayed empty.
+Except the wall behind me had a dent in it.
+A small, round impact at the exact height of a child’s head.
 
-When I finished wrapping myself, I sat on the edge of the bed, shaking, trying to breathe through the pounding in my head.
+I stared at it until the air around me started to vibrate with that low, pulsing hum I remembered from nights when everything felt too loud to be silent. The house seemed to exhale, slow and satisfied, like it had shown me something it needed me to see.
 
-I told myself it had to be something rational. Stress. Old wounds reopening. A nightmare I half-remembered. Anything but what it looked like.
+The living room was ordinary again—quiet, dim, unchanged.
 
-Anything but the thing I used to feel standing behind me when Mom’s eyes went dark and she’d raise her hand like she was being guided.
+But I wasn’t.
 
-I lay back down, exhausted and terrified, and stared at the ceiling until sunrise. I didn’t sleep again. I just waited for morning, waited for movement in the hallway, waited for some hint that I wasn’t losing my mind.
+My legs felt hollow, like they were remembering how it felt to go weak under her grip. I stood there staring at the empty spot where the boy had hit the wall, and my body reacted before my mind did. 
 
-Tomorrow, I think, I’ll figure out what the hell is happening.
+My knees locked. My breathing shortened. My palms went numb. A whole childhood of learned responses waking up all at once, like a survival instinct I hadn't even realized I still carried.
 
-But deep down, I think I already know
+I didn’t need to tell myself it was real. I knew it. I knew it the way you know the taste of blood in your mouth or the sound of your own name being screamed. Seeing it again didn’t rewrite anything—it just took the seal off a memory I had kept boxed up so tightly I’d convinced myself it was smaller than it was. 
+
+But watching it play out in front of me, watching her hand in the boy’s hair, the way she shook him, the way his head cracked against the wall… there was no minimizing that. No distancing it. It was like seeing a crime scene you were a witness to and finally allowing yourself to admit it counted.
+
+My stomach twisted. I pressed a hand over it and felt myself fold forward slightly, like the pressure might keep everything inside me from spilling out. The room was too quiet. Sickeningly quiet. I could almost hear the echo of her shouting in the corners, a sound that still lived somewhere in the drywall whether the house wanted to admit it or not.
+
+I backed away until I felt the edge of the coffee table hit the back of my leg, then sank down onto it because standing felt wrong, like I was taking up too much space in a room that still remembered how small I used to be. I rubbed my hands together, trying to ground myself, but they kept shaking. 
+
+It wasn’t fear of the house. It wasn’t fear of whatever the fuck happened. It was the simple, humiliating fear of being a child again in a place that made me one.
+
+I lifted my head and looked around the living room—the real one, the present one—and suddenly every object felt loaded with history. The lamp she’d knocked over during an argument. The rug she’d once dragged me across. The uneven scuff on the baseboard where my heel had hit when she shoved me. 
+
+Nothing supernatural about any of it in the moment. Just the truth of a place where bad things happened.
+
+I swallowed hard. My throat felt scraped raw, like I’d been screaming even though I hadn’t said a single word.
+
+The heater kicked on suddenly, loud and mechanical, but the noise didn’t comfort me. It only reminded me how loud the house could get when it wanted to drown everything else out. I pressed my fingertips to my temples, trying to think, trying to breathe past the thick feeling in my chest.
+
+“This is what happened,” I whispered to no one, just to hear it out loud.
+
+Saying it didn’t make it easier.
+
+But it felt honest.
+
+And honesty in this house felt dangerous.
+
+I looked back toward the spot where the boy—where I—had fallen. The room was calm again, still as a photograph. But something in the silence felt charged, like the house wasn’t just showing me a memory.
+
+It was reminding me.
+
+Reminding me that it remembered everything, even the worst.
