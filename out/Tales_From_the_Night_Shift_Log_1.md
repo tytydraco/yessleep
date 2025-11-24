@@ -272,8 +272,7 @@ Though something clicked in my head. Something that he had said put the last pie
 
 It was odd, not because a trapdoor older than me by a lifetime had spontaneously appeared out of nowhere, but for how modern the keyhole was. To me, this was a stupid thought; a dumb and weird idea, if I could call it anything else.
 
-I fished in my back pocket to pull out a small keyring, instantly flipping to one of them, holding it near the keyhole. To me, this was again stupid. Then again, the key looked like it could fit; it looked the right shape. Though I don’t know how I was going to get through the rust if Rosco wasn’t able to. I mumbled
- to myself, “Worth a shot”, as I inserted the key into the trapdoor. The rust caved into the keyway as I placed the key further in.
+I fished in my back pocket to pull out a small keyring, instantly flipping to one of them, holding it near the keyhole. To me, this was again stupid. Then again, the key looked like it could fit; it looked the right shape. Though I don’t know how I was going to get through the rust if Rosco wasn’t able to. I mumbled to myself, “Worth a shot”, as I inserted the key into the trapdoor. The rust caved into the keyway as I placed the key further in.
 
 Hearing Rosco to my side say, “well shit on a bun, you could’ve opened it the entire time?”.
 
