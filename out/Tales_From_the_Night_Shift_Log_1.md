@@ -283,7 +283,7 @@ With an irritated tone I said, “How the fuck was I post to know that, I just l
 
 I turned back to the trapdoor while I twisted the key. The key, not struggling at all to turn while in the keyhole, I heard the rusted over door’s internal locking mechanism coming to life for a moment and dying once again. Before I could even let go of the key, Rosco’s hand pounced forward to the trapdoor’s handle, then I swiftly shoved my palm into the side of his face as his hand was inches away from gripping the handle.
 
-Rosco said in a muffled but coherent voice, “wht nw?”, his body stuck in my mid-motion. “Let’s take a minute dumbass, the door is rusted to hell;, let’s at least take the basic precaution to use a glove or even a rag to grip the handle, and maybe get a weapon before we jump into imminent danger.” I said while I gave him the -Are you this much of a fucking idiot- stare.
+Rosco said in a muffled but coherent voice, “wht nw?”, his body stuck in my mid-motion. “Let’s take a minute dumbass, the door is rusted to hell; let’s at least take the basic precaution to use a glove or even a rag to grip the handle, and maybe get a weapon before we jump into imminent danger.” I said while I gave him the -Are you this much of a fucking idiot- stare.
 
 Rosco gave me the “oh” look, as he stood up straight, pulling a pair of green latex gloves from the back pocket of his work pants, then lifted his shirt up to pull a sizable hunting knife out from the waist of his pants. He gestured for me to move out of the way while he put on the gloves, standing up to move to the side as he crouched in front of the trapdoor. In an instant, he grabbed the handle and pulled; his other hand held the knife up, ready to swing if something were to pop up.
 
