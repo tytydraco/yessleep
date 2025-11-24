@@ -52,7 +52,7 @@ He dropped me down onto my feet, in such a way that I almost lost my balance onc
 
 I could feel a particular soreness form on my back, probably a bruise. While I silently mourned the stool that is only a splintered set of legs now, I could see a visible shallow crack streaked across the body of the wooden seat. 
 
-It was a useless piece of crap now. I could try using duct tape, and super glue, but the chances of that working would be like slapping a bandaid on a decapitation with a thumbs up. The need to just have it thrown out was there and I knew just the numb skull to do it. HIs punishment for breaking my favorite stool, along with my new bruises. “Guess who’s gonna— ”.
+It was a useless piece of crap now. I could try using duct tape, and super glue, but the chances of that working would be like slapping a bandaid on a decapitation with a thumbs up. The need to just have it thrown out was there and I knew just the numb skull to do it. His punishment for breaking my favorite stool, along with my new bruises. “Guess who’s gonna— ”.
 
 I would be interrupted mid sentence by the feeling of Rosco roughly planting the tip of his index finger on my nose. The smell of beef jerky and whiskey flooded my nostrils the second he did. Was it unpleasant? Definitely. Have I smelled worse things in the last few days? Unfortunately, yes. His dried meat alcohol finger doesn’t even make it to the top 10 of the most horrid smells from the last 7 days. Loudly whispering to me, with a playful tone, “Boop, shhhhh, not it”. 
 

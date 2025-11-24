@@ -1,4 +1,4 @@
-[Part 5.](https://www.reddit.com/r/nosleep/comments/1oql3ep/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 5.](https://www.reddit.com/r/nosleep/comments/1oql3ep/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 7.](https://www.reddit.com/r/nosleep/comments/1p57y1s/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I walked up the steps in a red haze. My hands were still trembling with a dull anger and they still flexed and twitched involuntarily. Each footfall brought a contradictory surge of emotion. Fury and despair. Fury at my parents for their silence about this hidden nightmare in our home, then crushing despair that perhaps they'd tried to warn me in their own inadequate way and I would never see them again.
 
