@@ -1,0 +1,26 @@
+I’m no ordinary thief; I took only what shined, glowed, or glittered. Gold, silver, anything that caught the light and promised value, those things always called out to me. I searched homes with elderly owners or places left empty during family vacations, drifting along quiet streets with that familiar, guilty thrill in my chest. When the moment appeared, I whispered, “Voila,” as if the universe itself had opened a door just for me. I lived on the outskirts of the city, two miles from the nearest soul, and that loneliness always felt like protection. My bedroom smelled of stale air, stolen liquor, and nights that pressed into each other until I forgot where one ended and the next began. Most nights, I drifted to sleep with old heist films flickering on my screen, their glow mixing with the dust in the air.
+
+I never had a girlfriend; I never wanted one, at least that’s the lie I liked to believe. Call girls were easier. I never paid them. Blackmailing them was effortless, collecting things about their families and boyfriends until they were trapped. My personal philosophy hung on the wall, framed behind cracked glass: **The world belongs to everyone equally. There’s nothing that’s yours or mine. It’s all ours**. 
+
+I lived by that more than any moral code. As a child, I used to steal my father’s glittering old coins, and he always blamed my mother. Their arguments became the soundtrack of my early years. While they fought, I slipped away to the cafeteria nearby, eating burgers and drinking coke, pretending that warm places could drown out cold voices. 
+
+My mother once told my father, “He’s a liar, he traps you in his lies.” And my father had replied, **“If you’re right, don’t worry. The one who traps will be trapped.”** Maybe they were both talking about each other. Maybe about me.
+
+I left home at seventeen. A few years later, a friend who occasionally joined my thefts told me my parents had died in a car crash. I didn’t cry. I rushed to the house only to sell everything valuable I could lay my hands on, including the wrecked car. But my parents had outsmarted me in the end; they had left everything to a science project, not to their only son. Someone once asked me if I thought my parents had wronged me. I shrugged like it meant nothing. “I don’t care. I know how to make money.”
+
+That day, while roaming around to take what I felt the world owed me, I saw a large isolated house. The place looked deserted, unnaturally quiet, and its silence felt like an invitation. I circled it, saw no movement inside, then walked to the back door. I took out my tools, licked my chisel the way I always did, and crafted keys. The lock gave up instantly, almost too willingly, like the house wanted me inside.
+
+The interior was strange. Manuscripts, scientific equipment, stacks of notes, all boring things. But the house felt wrong. My own room was a dusty swamp; this place was impossibly clean, aggressively organized. Dust didn’t dare settle anywhere. Even the table looked polished moments ago. On the far wall hung a quote framed under warm lights: **Anything belongs to anyone only when earned**. I rolled my eyes and wandered further. I found a few coins, a couple lighters, some leftover food. I ate immediately and prepared to leave.
+
+Then something thudded behind me.
+I turned, and there it was, a Rubik’s cube lying on top of a document titled Quantum Research: Project: Cubed. It gleamed in a way that felt almost alive. I grabbed it, stuffed everything into my bag, and got out.
+At home, I tossed the cash onto the refrigerator, sending up a cloud of dust so thick I sneezed five times. The cube slipped out of my hand. It shimmered. I sat on my bed, picked it up again, twisted it once, and the room leaned to one side in a slow, drunken tilt. I laughed and twisted again.
+
+That’s when everything went mad.
+The world spun with a force that snatched me off the bed, hurled me into the wall, then the ceiling, then the floor. The room rotated around me like I was trapped inside a washing machine. But the real horror wasn’t the spinning, it was the realization that everything in the room was spinning too, and aiming for me. The refrigerator tore itself loose and rotated toward me with a deep metallic growl. The television floated upward, flipping over and over like it was waiting for the right angle to strike. Chairs spun like bladed wheels. Glass bottles burst mid-air, shards orbiting like angry insects. Every object had weight, intention, violence.
+
+I dodged one, got hit by another. A chair slammed into my side; I crashed against the corner. A bottle shattered above my head. My entire room stormed around me in a deadly circle. And in the center, completely untouched, hovered the Rubik’s cube, turning softly, calmly, as if it controlled the room’s rhythm with each click.
+
+I lunged for it once, missed, tumbled. I lunged again, fingers grazing its edge. The spinning yanked me away. On the third attempt, either by desperation or mercy, I caught it. 
+
+**And now I believe I need to solve the cube while afloat and my room still revolving.**
