@@ -31,27 +31,16 @@ I opened the brochure and found the section labeled "Hospital—St. Agnes," my h
 The instructions were very clear:
 
 1. Park your car on the loading dock at the back of the building. Never use the main entrance.
-
 2. Enter through the service door. The door is open. If the door is locked, leave immediately and report to the dispatch center.
-
 3. Use the stairs to go to the second floor (do not use the elevator, even if it appears to be working).
-
 4. On the second floor, find room 666. Knock thirteen times. Wait silently for thirty seconds.
-
 5. Find room 333. Knock thirteen times. Wait silently for thirty seconds.
-
 6. Return to the stairwell. You will find a new staircase leading upstairs that wasn't there before. Don't be surprised. Don't look back at the corridor you just left.
-
 7. Go up this staircase. It will be completely dark inside. Do not use a flashlight or your phone's light. Walk steadily upwards. You might hear breathing sounds that aren't yours. Keep going.
-
 8. You'll feel a noticeable drop in temperature. When you see your breath condense in front of you, you're almost there.
-
 9. At the end of the stairs is a door marked with the number 13. Open that door.
-
 10. Place the delivery bag on the floor inside the threshold. The floor might feel strange under your feet—soft, warm, and slightly pulsating. This is normal. Don't investigate it.
-
 11. Put the bag down and leave immediately. Don't look into the room. If anything speaks to you, don't respond. Run down the stairs as quickly as possible.
-
 12. Once you reach the second floor, the stairs behind you will disappear. Leave the building immediately.
 
 I read the instructions three times, hoping to understand something. It still didn't work. The delivery bag contained only one meal: a nearly raw steak, soaking in blood. The smell made me nauseous.
@@ -107,25 +96,15 @@ At 11:47 p.m., the phone rang. Blackstone Castle, door-to-door delivery.
 I opened the brochure with trembling hands and found the relevant section.
 
 1. Head to the warehouse stables. Yes, we have horses. Choose the gray mare named "Patience." She knows the way.
-
 2. Load the goods into the saddlebags. The castle cannot be reached by car. You must ride a horse.
-
 3. Follow the path behind the warehouse. It will lead you through the woods. The entire journey will take approximately forty minutes. Do not stray from the path.
-
 4. You may see figures in the woods. They will call to you, and sometimes you will recognize their voices. Do not respond. Do not look directly at them. Pay attention to Patience's ears.
-
 5. The castle gates will open. Ride through the gates into the courtyard.
-
 6. The well is located in the center of the courtyard. Dismount, but do not tether Patience. She will wait for you.
-
 7. Approach the well. You will hear various sounds coming from it—voices, music, and laughter. These are echoes of the castle's history; they are harmless.
-
 8. Throw the delivery bags into the well. You will not hear the bags hitting the bottom. This is normal.
-
 9. There will be a response from the bottom of the well. It could be talking, singing, or screaming. Don't try to understand what it's saying. Don't look into the well.
-
 10. Return to Patience immediately. She will gallop back to the barn. Hold on tight and don't look back at the castle.
-
 11. If you see lights on in the castle windows, ride faster.
 
 The barn and stables are behind a door I hadn't noticed before, marked only by a small horseshoe. The air inside smells of hay and horses, a surprisingly normal, almost comforting scent.
@@ -140,7 +119,7 @@ The offering is simple: a covered pot, radiating warmth and the aroma of herbs a
 
 The trail began, as described in the brochure, as a narrow dirt road winding into the dense forest behind the warehouse. As soon as Pattynes ​​stepped onto this path, the city lights went out, and we were surrounded by thick trees, unable to see even the stars.
 
-Pattynes ​​moved with steady steps, her hooves softly pressed down on the soft earth. My gaze remained fixed on her ears, watching them turn, listening to the sounds of the surrounding forest.
+Patience ​​moved with steady steps, her hooves softly pressed down on the soft earth. My gaze remained fixed on her ears, watching them turn, listening to the sounds of the surrounding forest.
 
 Ten minutes into the ride, the first sound came.
 
@@ -215,29 +194,17 @@ The theater delivery was different.
 The section about this delivery in the brochure is longer and more detailed than the others, with appendices and footnotes in different handwriting, as if several deliverymen have added warnings over the years.
 
 1. The Theater District subway station has six platforms. Platform 7 is only open between 2:00 AM and 4:00 AM. You must complete the delivery within this timeframe.
-
 2. Enter through the main entrance on 7th Street. Station staff will not assist you. This is normal.
-
 3. Purchase a token from the machine. Tokens are required; debit cards are not accepted. The machine only accepts cash. Insert exactly $2.75.
-
 4. Go down to Platform 1. Walk to the end, which is at the tunnel entrance. There is a door marked "Employee Only - Platform 7." This door will be open during delivery hours.
-
 5. The stairs behind this door are deeper than usual. Count the steps. If there are more than 127, you've gone too far. Return to the top and start again.
-
 6. Platform 7 is empty. It is always empty. If you see anyone else on platform 7, leave immediately and report to the dispatch center. Do not deliver goods.
-
 7. Walk to the center of the platform. You will see a bench that is different from the other station furniture. It is older, ornately decorated, made of dark wood, and has brass fittings. Place your delivery items on this bench.
-
 8. A train will arrive in three minutes. This train is not on the timetable and is not a regular subway train.
-
 9. There may be passengers in the carriage. Do not make eye contact with anyone in the carriage. If they talk to you or gesture to you, do not respond.
-
 10. The doors will not open. This is intentional. Passengers will take packages from the bench in some unknown way. You do not need to know the specific method.
-
 11. After the train departs, wait a full sixty seconds, then return the way you came. Do not run. Running will attract attention.
-
 12. Deliveryman J.M.'s tip: Trains sometimes stop at the wrong spot. If the door coincides with where you are standing, close your eyes and count to thirty. Don't open your eyes, no matter what you hear or feel.
-
 13. Deliveryman D.R.'s tip: I heard someone calling my name in the train car. I accidentally responded. Three days later, I heard the same sound coming from my closet. I moved. I suggest you strictly follow the rules.
 
 The package was a white cardboard box, sealed with red tape. It was heavier than it looked, and the contents made a wet, slippery sound when I picked it up. The box was cold, colder than a warehouse freezer.
