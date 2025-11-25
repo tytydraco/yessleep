@@ -128,6 +128,4 @@ The cart stopped back in the auditorium, and I got out, hardly able to stand on 
 
 I was led back to my dad’s cubicle, where he met me with a relieved sigh. But never said anything else about it.
 
-I sat next to his desk for the rest of the day, watching him move numbers around a spreadsheet. And that was fine with me.
-
-[All Parts](https://www.reddit.com/r/MattBenjamin/comments/1p1itsv/clearview_master_post/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+I sat next to his desk for the rest of the day, watching him move numbers around a spreadsheet. And that was fine[ with me.](https://www.reddit.com/r/MattBenjamin/comments/1p1itsv/clearview_master_post/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

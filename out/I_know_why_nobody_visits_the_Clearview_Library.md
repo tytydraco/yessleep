@@ -162,6 +162,4 @@ Second, I ventured to request a book from the library, just to see what would ha
 
 I missed Beth.
 
-But that wasn't the last time I would see her.
-
-[All Parts](https://www.reddit.com/r/MattBenjamin/comments/1p1itsv/clearview_master_post/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+But that wasn't the last time I would [see her.](https://www.reddit.com/r/MattBenjamin/comments/1p1itsv/clearview_master_post/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
