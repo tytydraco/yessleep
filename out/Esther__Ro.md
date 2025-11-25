@@ -128,6 +128,4 @@ Beth drove me to Clearview Regional Hospital, where they kept "Esther antivenom"
 
 I asked around after the incident, but nobody found Ro's body in the park the next day.
 
-I played it safe and kept away for a long while after that.
-
-[All Parts](https://www.reddit.com/r/MattBenjamin/comments/1p1itsv/clearview_master_post/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+I played it safe and kept away for a long while [after that.](https://www.reddit.com/r/MattBenjamin/comments/1p1itsv/clearview_master_post/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
