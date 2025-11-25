@@ -1,3 +1,5 @@
+| [Part 2](https://www.reddit.com/r/nosleep/comments/1p6iuxb/my_probation_consists_on_guarding_an_abandoned/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 A dead guy called me. That’s the only explanation. Okay, too abrupt, let me start at the beginning.
 
 Once you get out of prison, there is no reintegration, just a different cage. A lonely, abandoned island where I am supposed to take care of a ruined long-unused Asylum. One day I was expecting a resolution for my probation request, and suddenly I was heading in a mostly rotten boat to a piece of land not even the government gives a shit about.
