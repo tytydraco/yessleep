@@ -50,7 +50,7 @@ I blinked hard to clear away the haze of sleep. I slowly dipped my head to see w
 
 
 
-The dead girl giggled with her raspy voice and I dropped her, letting out a shriek of terror. She hit the floor floorboards with a thud, then hopped to her feet and scurried out the door into the darkness, giggling as she went. I listened to her tiny footsteps fade away down the hall.
+The dead girl giggled with her raspy voice and I dropped her, letting out a shriek of terror. She hit the floorboards with a thud, then hopped to her feet and scurried out the door into the darkness, giggling as she went. I listened to her tiny footsteps fade away down the hall.
 
 
 
