@@ -831,3 +831,5 @@ Elenor’s eyes followed me as I climbed back into bed. “You sure it wasn’t 
 We didn’t touch. The air between us felt thick—watched.
 
 As I sat awake and watched the door fade into shadow, I swore I could still hear breathing softly through the wood, like the cabin itself had learned the rhythm of our sleep, and was keeping time.
+
+[Part Two >](https://www.reddit.com/r/nosleep/comments/1p5ytud/stillwater_farms_part_two/)
