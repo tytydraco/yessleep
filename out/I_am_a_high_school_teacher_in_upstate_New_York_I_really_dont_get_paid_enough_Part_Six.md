@@ -1,3 +1,7 @@
+[Part Five](https://www.reddit.com/r/nosleep/s/k1pElPRcLJ)
+
+[Part Seven](https://www.reddit.com/r/nosleep/s/4LYJvcNeUT)
+
 Ace is already geared up when I step into the briefing room. He’s tightening the last strap on his vest, head down, jaw flexed. Everything about him is controlled — not calm, not relaxed, just… contained. Like a knife that knows it’s a knife.
 
 He doesn’t look up right away. When he does, it’s the smallest nod possible.

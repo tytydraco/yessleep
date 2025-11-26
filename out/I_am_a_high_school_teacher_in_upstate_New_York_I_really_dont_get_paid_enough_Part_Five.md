@@ -1,5 +1,7 @@
 [Part four](https://www.reddit.com/r/nosleep/s/5e03VcyMaQ)
 
+[Part Six](https://www.reddit.com/r/nosleep/s/T7neCL667g)
+
 The Hollow Tap was loud tonight. It’s never quiet, not really, but tonight had a pulse to it. Every sound — laughter, whispers, glass clinking — stacked on top of the next until it turned into something alive. You could almost feel the heartbeat of the place.
 
 A dozen species crammed into one dim room pretending they could coexist: nagas with their slow, flicking tongues between bursts of laughter; witches murmuring in Latin over wine that shimmered faintly in the light; a vampire ranting about fae glamour taxes to a banshee who looked one scream away from ending the conversation permanently.

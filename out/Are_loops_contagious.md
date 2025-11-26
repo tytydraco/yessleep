@@ -1,4 +1,4 @@
-I’m a 27 y/o male living in Michigan and I think my best friend, Theo, might be sick with a disease that’s been plaguing my town, supposedly since the year 2000.
+I’m a 27 y/o male living in Michigan and I think my best friend, Theo, might be sick with a disease that’s been plaguing our community, supposedly, since the year 2000.
 
 You’ve probably never heard of my town, Clawson. The only thing we're famous for is that the Comedian Richard Donovan was born here. Everyone knows all about Flint, and their terrible water supply. It’s true, what they say. I personally know people have died because of it. It’s really a terrible thing. But I can’t help but feel that its shadow has made the rest of the world, even citizens of our own town, myself included, unaware of this Clawson born virus.
 
@@ -55,8 +55,6 @@ My instincts took over, my body a step ahead of my mind as I scrambled towards t
 Then I saw something peculiar, Theo’s father lifted his right sleeve, exposing his right upper arm. And on it, was a red ring. A seemingly perfect circular loop of red irritated flesh. I didn’t think much of it. “A rash or… a tattoo maybe” I thought. 
 
 I now know it wasn’t… it was “Loops”.
-
-
 
 The next day at school I remember Theo seeming rattled from the night before. That wasn’t unusual for him. It was actually quite often that he would be randomly sullen or non-social. I always just chalked it up to him being a ‘moody’ kid. My big sister always said he probably had bi-polar or something. But after last night, I felt I understood my friend a lot more now. 
 
@@ -150,10 +148,10 @@ I spent the next hour in the bathroom checking my whole body over. I found a few
 
 I’m in a cafe now, just down the street from our hotel. I can’t explain it… but I’m just terrified to go back now. That’s why I’ve just typed this out. I was hoping it could help me make sense of all this. Frankly, I don’t know that it has.
 
-It’s clear this disease is dangerous; seemingly making normal people lash out… if anyone here has heard or knows anyone who’s been through something similar I’d really appreciate hearing from you. 
+It’s clear this disease is dangerous; seemingly making normal people lash out… if anyone here has heard or knows anyone who’s been through something similar I’d really appreciate hearing from you.
 
-Especially if you know for a fact if its **contagious.** 
+Especially if you know for a fact if its **contagious.**
 
 If anything additional happens, I’ll update here, if anyone cares to hear more.
 
-Thanks.
+[Thanks.](https://linktr.ee/shadowturtleinc)

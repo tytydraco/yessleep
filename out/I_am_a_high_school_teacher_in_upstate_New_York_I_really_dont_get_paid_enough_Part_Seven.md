@@ -1,3 +1,5 @@
+[Part Six](https://www.reddit.com/r/nosleep/s/T7neCL667g)
+
 It’s been nearly a week since my first day on the job, and somehow I’m still sore in places I didn’t know existed. The slash across my shoulder hasn’t healed. Not really. There’s a crawling pull under the skin, like the wound remembers the thing that made it.
 
 Sometimes when the building settles, the ache answers back.
