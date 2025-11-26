@@ -1,5 +1,5 @@
 
-
+ATTENTION: FORMAT IS EDITED BY CHATGPT, STORY IS REAL
 I’ve never shared this online before.
 Not because I’m scared of being judged… but because even today, I have no logical explanation for what I saw.
 
