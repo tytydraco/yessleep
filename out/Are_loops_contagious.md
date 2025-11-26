@@ -1,4 +1,4 @@
-I’m a 27 y/o male living in Michigan and I think my best friend, Theo, might be sick with a disease that’s been plaguing our community, supposedly, since the year 2000.
+I’m a 18 y/o male living in Michigan and I think my best friend, Theo, might be sick with a disease that’s been plaguing our community, supposedly, since the year 2000.
 
 You’ve probably never heard of my town, Clawson. The only thing we're famous for is that the Comedian Richard Donovan was born here. Everyone knows all about Flint, and their terrible water supply. It’s true, what they say. I personally know people have died because of it. It’s really a terrible thing. But I can’t help but feel that its shadow has made the rest of the world, even citizens of our own town, myself included, unaware of this Clawson born virus.
 
