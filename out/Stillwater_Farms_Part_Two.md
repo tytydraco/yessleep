@@ -421,3 +421,5 @@ She laughed softly, eyes closed. “I love it here.”
 I turned off the lamp. Rain whispered against the window. My body was heavy, my mind even heavier. For a while, I thought maybe I’d dream of the music, or of El dancing, or of nothing at all.
 
 But when I woke in the middle of the night, the door was open. Just a crack.
+
+[Part Three >](https://www.reddit.com/r/nosleep/s/lJc5vCgYsc)
