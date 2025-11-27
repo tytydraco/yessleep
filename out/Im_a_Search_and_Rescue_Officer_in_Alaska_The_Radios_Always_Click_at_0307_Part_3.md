@@ -114,8 +114,6 @@ Dale was standing there, smiling. That same warm, vacant smile I'd seen on my fa
 
 "I was checking the nets. Caught some nice char today." He gestured toward the third shack. "Want to see?"
 
-I looked back at Thomas. He'd gone pale, his eyes fixed on something behind me. When I turned back to Dale, I saw it.
-
 His shadow was wrong.
 
 The sun was low, casting long shadows across the snow. Mine stretched out beside me, a normal human silhouette. But Dale's was too tall, too thin, stretching back toward the shack in a shape that didn't match his body.

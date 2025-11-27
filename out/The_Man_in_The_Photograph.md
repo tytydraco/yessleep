@@ -105,3 +105,7 @@ My next move was to try and call James. I picked up my phone and went to his con
 I only got a message.
 
 “*The person you’re trying to reach is not available. Please try again later.*”
+
+-EDIT-
+
+I burned the photograph. Still haven’t heard from James…
