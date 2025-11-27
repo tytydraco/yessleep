@@ -1,5 +1,3 @@
-Theres something in the corner of my room.
-
 Its 3am, I cant sleep. I dont think ill be able to until morning at this rate. 
 
 I think its watching me, but its hard to tell.
