@@ -7,25 +7,15 @@ Okay, I think I have some excuses. Around my first year on the job, I started ha
 Anyway, this is the fourth story. I opened the manual and found the entry. My heart sank when I saw how brief it was. Those complicated delivery assignments had pages of rules and step-by-step instructions, and if followed strictly, they'd be safe. Short instructions were different. Short instructions meant almost no one could help.
 
 1. Deliver to 1247 Carpenter Street between 7 and 8 p.m.
-
 2. Ring the doorbell. Wait.
-
 3. An elderly man will open the door. He will invite you in. You must accept.
-
 4. He will pour you tea. Accept the tea, but don't drink it.
-
 5. He will tell you a story. Listen to it completely without interrupting.
-
 6. After the story, give him the item.
-
 7. He will give you something in return. Accept it gladly.
-
 8. Leave through the front door. Don't look back at the house.
-
 9. Deliveryman M.K.'s note: The story I heard was different each time. The one I heard was about a woman who drowned her child. I still dream about it.
-
 10. Deliveryman P.L.'s message: He gave me a photo. The person in the photo is me, taken from my own apartment. I don't know when the photo was taken. I've changed all the locks. I've started sleeping with the lights on.
-
 11. Deliveryman T.H.'s message: Keep whatever he gives you. I tried throwing mine away, but it came back. It always comes back.
 
 The package was a glass container containing a small plant I didn't recognize. When I wasn't looking at it directly, the plant moved; I could see it moving out of the corner of my eye, its leaves spreading out like fingers.
@@ -118,31 +108,22 @@ Then I wanted to tell you a nice story, to give myself a break while typing; aft
 
 At 3:33 PM, the phone rang. I almost didn't want to look. But the contract bound me like chains.
 
-The address was just two words: "Garden."
+The address was just one word: "Garden."
 
 No street, no house number. Just those two words.
 
 When I opened the booklet and found that entry, it was different from the others. The handwriting was older and more refined, as if someone had carefully written every letter.
 
 1. When you receive the package sent to the "Garden," you've received a precious gift. Cherish this good fortune.
-
 2. Drive north on Highway 888 until you see a dirt road marked with white stones. There are no road signs. You'll recognize it when you see it.
-
 3. Drive 7.7 miles along this road. Even if the distance seems off, your odometer reading will still be accurate.
-
 4. Park at the end of the road. Walk through the gate. The gate will be open.
-
 5. The path in the garden is obvious. Follow the path to the center of the garden, where you'll see someone tending to the plants.
-
 6. This person will talk to you. Listen carefully. They may know something about you that others don't.
-
 7. Important: They may offer you something—food, drinks, rest, comfort, or even answers. You can accept food and drinks. You can rest if invited. You can listen for answers. However, you must absolutely not accept any physical goods or gifts, nor touch anything offered to you, except for food or drink offered directly to you.
-
 8. This rule is absolutely valid. Whatever is offered, no matter how much you want it, you must refuse any physical goods except food and drink.
-
 9. You will know after the meeting. Return the way you came.
-
-12. Messenger A.M.'s message: Whatever you do, follow rule 7. My previous messengers did not follow it. They found his car at the end of the dirt road, the driver's side door open, and the engine still running. They never found him. But sometimes, delivery requests still come from "The Garden," and the customer's name is his.
+10. Messenger A.M.'s message: Whatever you do, follow rule 7. My previous messengers did not follow it. They found his car at the end of the dirt road, the driver's side door open, and the engine still running. They never found him. But sometimes, delivery requests still come from "The Garden," and the customer's name is his.
 
 This delivery was special: a simple brown paper bag, like the kind for lunch. Inside were freshly baked bread, still warm, and a bottle of unlabeled wine. The aroma of the bread was intoxicating; the fragrance of yeast was flawless.
 
