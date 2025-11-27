@@ -540,3 +540,5 @@ I looked at Hailey sitting up in the bed, Elenor still breathing in a soft sleep
 She nodded once. “Go.”
 
 We slipped into the hallway, then into the night.
+
+[Part Four >](https://www.reddit.com/r/nosleep/comments/1p7qbtx/comment/nqzis7z/)
