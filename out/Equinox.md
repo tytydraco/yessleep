@@ -50,7 +50,7 @@ I spent the next two hours talking his ear off, asking him every single animal I
 
 I was devastated. I asked quieter, "Could we have a little dragon...?"
 
-He stopped and took the keys out of the ignition, leaning over ans back to me in his seat. Dead serious.
+He stopped and took the keys out of the ignition, leaning over and back to me in his seat. Dead serious.
 
 "I'll tell you what. You get to keep any little dragon you find at this farm. But! You gotta clean up all the fire, all the ash, all the dragon poop. Got it?"
 
@@ -64,7 +64,7 @@ I jumped outside and looked around. The most overwhelming feeling I had was disa
 
 Dad walked around the truck and stooped down to meet my eyeline. "The animals'll be here. We just gotta grow the food for them first. Just like -- " he scooped me up and sat me on his arm, " -- I gotta whip something up for you."
 
-I could never help to share in his smile. His front teeth were a bit crooked, like one was always fighting to get in front of the other, and their constant fight led to a chip on the inside of the front one. I know that wasn't how it happened, but that's what my imagination dictated. I never found out the real reason they were like that, if there was any.
+I could never help but to share in his smile. His front teeth were a bit crooked, like one was always fighting to get in front of the other, and their constant fight led to a chip on the inside of the front one. I know that wasn't how it happened, but that's what my imagination dictated. I never found out the real reason they were like that, if there was any.
 
 I looked out to the field of short, brown stalks of what must've been corn. Long out of any farmer's care, left to the rats and crows and the cruel elements of summer. We had a lot of work ahead of us to make this place livable again, for the animals. And then I saw it.
 
