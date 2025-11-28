@@ -1,35 +1,17 @@
-I moved into my new apartment a few months ago. It wasn’t much—just a small studio on the third floor of an old building—but it was mine. The rent was cheap, and it was close enough to work that I could walk. The first few weeks were uneventful. I settled in, bought some furniture, and started to get used to living alone for the first time in my life.
+When The Midnight Caller (1997) first aired, seven people died. By its final episode ('Hard to Say Goodbye' dir. Ralph Derrickson), the official count was seventy three. At the time, authorities saw no correlation between the midnight airings of the show and the many deaths. The bodies, in their varying stages of decomposition, were generally not found until days later. For others, it was weeks. Some were never found. 
 
-One night, I was woken up by the sound of my phone ringing. I groggily reached for it, squinting at the bright screen in the darkness. It was 2:47 AM, and the caller ID was unknown. I hesitated for a moment before answering, wondering who would be calling at this hour.
+The town was small, but not close knit. The shadow that lay over it that summer did not foster a sense of community, but instead fed on paranoia. By the third episode ('The Feast', dir. Sophia Carpenter) and twelve unsolved deaths, doors were locked, lights stayed on, and whatever heart once lay in that community ceased to beat. 
 
-“Hello?” I mumbled, my voice thick with sleep.
+Autopsies were conducted on the first batch of bodies around the time the second episode ('Becoming' , dir. Emily Worthington) aired. Four bodies had been discovered; one would not be found for another week, left rotting and bloating. The second undiscovered body's cause of death remains unknown, as her four cats had found her before the neighbours reported the smell. The third body was never found. Drops of him had solidified in the sofa, peppering the floor as the house was emptied three months later. 
 
-For a few seconds, there was only silence on the other end. Then, just as I was about to hang up, I heard a faint whisper. It was so quiet that I almost didn’t catch it, but the words sent a shiver down my spine.
+The police station was in tatters. After the fourth episode ('The Girl in Red', dir. Joseph Stand), the deaths could no longer feasibly be ruled as suicide. The police station, consisting of one secretary, one part-time cleaner, and three police officers bore the brunt of the fear and anger consuming the town. Yet, it was only three days before the fifth episode aired ('The Culling', dir. Jenna Moore), when Police Constable Steven Myers was hit by a brick thrown through the police station's front window and into its small kitchen, that he uncovered something new: Why is everybody so angry, he had said to his colleagues as they treated the gash on his forehead, nobody even knows these people. 
 
-“I see you,” the voice whispered.
+And it was true. There was no evidence that any victim had been with somebody at the time of death. They had been alone, in the early hours of Sunday morning. This was the only piece of evidence linking the cases. The police force's limited connections to neighbouring towns had brought up nothing. As far as they understood, this issue was isolated to their town. 
 
-I sat up in bed, now fully awake. “Who is this?” I demanded, my heart pounding in my chest.
+The causes of death were broad. Susie Rogers, aged 43, was found asphyxiated, clumps of her own greying hair found in her throat, lungs and behind her eyes. Derek Peterson, aged 37, was found with severe chest trauma, his heart and ribcage intertwined. A homeless man, known only as 'Scoot', was found alongside his trolley containing two sleeping bags, three tins of beans and a small, portable black and white TV. His extremities had suffered severe frostbite. His eyes and tongue were not recovered at the scene. 
 
-The line went dead.
+The causes of death were never the same, until the fifth episode aired. According to several police reports, around ten small 'explosions' had been heard in different parts of the town, at around 12.30am. It was only when neighbours had investigated the houses without curtains that they saw into the houses, a grim red light spilling out. Litres of blood and viscera clung to the windows, the walls and the ceilings. No accelerant or explosive devices were discovered. 
 
-I tried to tell myself it was just a prank call, but I couldn’t shake the feeling of unease that settled over me. I double-checked that my door was locked, then climbed back into bed, pulling the covers up to my chin. Eventually, I drifted back to sleep, though it was fitful and filled with uneasy dreams.
+One piece of evidence that was not released to the public until this report was that of the televisions present at every crime scene. Glass from the screens littered the floors of every home. Overlooked at the time by a broken and overwhelmed police force, the television screens had been smashed outwards. None of the televisions remain today for examination. 
 
-The next night, it happened again. The same unknown number, the same whisper: “I see you.”
-
-This time, I didn’t even respond. I hung up immediately and blocked the number. But even though I had blocked it, the calls kept coming. Every night, at exactly 2:47 AM, my phone would ring, and I would hear that same chilling whisper: “I see you.”
-
-I started to dread the nights. I’d lie in bed, staring at my phone, waiting for the call. I tried turning my phone off, but it would somehow power back on, the screen lighting up with that dreaded unknown number. No matter what I did, I couldn’t escape it.
-
-Then one night, the call didn’t come. I waited, tense and sleepless, but 2:47 AM passed without incident. I felt a wave of relief wash over me. Maybe it was finally over.
-
-The next morning, I woke up feeling more rested than I had in weeks. I got up, showered, and started getting ready for work. As I was brushing my teeth, I noticed something in the bathroom mirror that made my blood run cold.
-
-Written in the steam on the glass were the words: “I see you.”
-
-I bolted out of the bathroom, my heart hammering in my chest. I didn’t know what to do, so I called the police. They came and searched the apartment, but they didn’t find anything. No signs of forced entry, nothing out of place. They told me it was probably just someone messing with me, but I could tell they didn’t really believe me.
-
-After that, the calls stopped. But the feeling of being watched never went away. I started noticing things out of the corner of my eye—shadows that shouldn’t be there, movements that were too quick to catch. I started hearing faint whispers even when my phone wasn’t ringing. I tried to tell myself it was just my imagination, but deep down, I knew it wasn’t.
-
-A few weeks later, I was packing to move out. I couldn’t stay there anymore—I needed to get away, to find somewhere new, somewhere safe. As I was taping up the last box, I heard my phone buzz from across the room. I froze, staring at it. It was 2:47 AM.
-
-The screen lit up with an unknown number.  
+There are no official records of The Midnight Caller (1997). No broadcast station or television channel has claimed ownership of the show. Even television programmes (the 'TV Times' and 'What's on TV?') from March to September have no mention of the show. Details about the contents of the show (including episode names and directors) come from thirty-three anonymous sources who claim to have witnessed partial episodes. Of those thirty-three witnesses, only one claims to have seen the premiere episode: 'The Contract'. 
