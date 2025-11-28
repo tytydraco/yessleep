@@ -311,3 +311,5 @@ A voice called out, calm and almost kind. Mae. 
 I turned toward the sound.
 
 Something heavy hit the side of my head. The world split open: bright, then black, then nothing.
+
+[Part Five >](https://www.reddit.com/r/nosleep/s/QtjD9FDmG4)
