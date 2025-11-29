@@ -188,7 +188,7 @@ I felt his hand in my hair before he pulled me into a hug, squishing my new bear
 
 "What's Mommy's name?"
 
-Nellie's never left my side, no matter what. I always took her with me to every house, every school, every field trip we weren’t allowed to bring our dolls -- I brought Nellie. The numbers of fights I got into with all those other girls who tried to take her away from me... It's actually the reason I carry a knife now.
+Nellie's never left my side, no matter what. I always took her with me everywhere I went. Every house, every school, every field trip we weren’t allowed to bring our dolls -- I brought Nellie. The number of fights I got into with all those other girls who tried to take her away from me... It's actually the reason I carry a knife now.
 
 It's surprisingly easy to not give a shit about others, even guardians, telling you you're too old for that kinda thing. When you've lived a life like mine, you grow to learn that what others call "superstition," you call reason.
 
