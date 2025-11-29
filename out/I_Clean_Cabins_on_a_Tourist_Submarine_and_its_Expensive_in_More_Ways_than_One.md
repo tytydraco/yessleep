@@ -92,7 +92,7 @@ Pipes spat out steam as I skulked towards the hulking generators, light shifted 
 
 It shot out like vines, wrapping itself around the hanging lights, inside the turbines, and around my legs. When it touched me, I felt the whole ship, I could see everything it saw.
 
-Married women with married men, expensive champagne, photos of vacationing children. It wanted things to be right, its version of right. My legs grew weak and I fell to the floor. 
+Married women with married men, expensive champagne, photos of vacationing children. It wanted things to be right, its version of right. My legs grew weak, and I fell to the floor. 
 
 "Why!?" I demanded.
 
@@ -100,7 +100,7 @@ Married women with married men, expensive champagne, photos of vacationing child
 
 "No... I didn't--"
 
-Then the shadows erupted into a waterfall.
+Then, the shadows erupted into a tidalwave. 
 
 My wife's muffled cries filled my head. I remembered the feeling of her cheek under my foot and the weight of the garden shears in my hand.
 
@@ -122,7 +122,7 @@ I pushed myself up and made for the utility closet, clamping the large pair of b
 
 "Some people don't know what's important anymore," I said, the words drawn out of me.
 
-The creature's joy settled in my ribs, it's purpose seemingly fulfilled. 
+The creature's joy settled in my ribs, its purpose seemingly fulfilled. 
 
 I smiled, but it felt forced. 
 
