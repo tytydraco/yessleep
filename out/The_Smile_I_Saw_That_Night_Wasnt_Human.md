@@ -1,0 +1,15 @@
+I don’t usually talk about my dreams, mostly because they fade the moment I wake up. But there's this one dream!!!!! one nightmare that never left me Even now, years later, I can recall every detail as clearly as the night it happened....
+
+I was an architecture student back then, and of course my sleep schedule was completely Fucked up. I had a jury coming up, and I hadn’t slept for two straight days. I finished all my work around 4 AM, and on that same morning I had to go to college for exams. I went downstairs and told my mom to wake me exactly at 7 AM. She nodded quietly she had just woken up and started her morning routine. My father was still asleep in their bedroom. I walked past my mom and went to the guest room to sleep. I lay down, closed my eyes… and immediately knocked out.
+
+Suddenly, I woke up!!!
+
+I got out of bed, walked to the same hall, and looked at the wall clock to check the time I felt like I had slept for a bit and wanted to be sure I wasn’t late. But the time was still 4:15 AM. I was confused. My mom was still sitting in the hall, but this time I could feel her looking at me. I turned to look at her...... and my mom was standing at the end of the hall, wearing a black burka. I called out, “Mom… are you going somewhere now?” She didn’t reply. She just stared straight at me with a blank, empty face no emotion, nothing...... just eyes looking straight through me. I'm just standing there like WTf.....
+
+I kept calling her, “Mom… mom… MOM, ARE YOU OK?”
+
+Then she took one step forward. The moment she moved, my whole body froze. I stepped back. And that’s when she started smiling. Not a normal smile a slow, eerie, unnatural smile. FUCK!!!!!!!! I stepped back again. My eyes were tearing up, and she looked like she enjoyed it. Her smile grew wider, showing her teeth… like she couldn’t control it. I almost shit myself. I saw my parent's bedroom door still closed meaning my dad was still asleep. I stepped toward the door and started knocking frantically, crying and shouting for my dad. She kept walking toward me, turning her face slightly while passing the spot where I had just been sleeping.
+
+My hands were shaking, but I managed to turn the doorknob and fall inside the room. I saw both my mom and dad sleeping peacefully. That’s when it hit me THE THING OUTSIDE WASN'T MY MOM !!!!!!!!!!!!! I turned back toward the guest room… and she was standing there at the doorway, still smiling that horrible smile that even now gives me chills. I was on the floor, staring at her, calling my dad louder until he woke up…....... And then My real mom was shaking me awake.
+
+I opened my eyes and realized it was a dream. I hugged her immediately and burst into tears. She told me I was making noises in my sleep, that’s why she woke me. Feeling her warmth made me understand it wasn’t real… but I was still terrified to close my eyes again, scared I would see that face again.....
