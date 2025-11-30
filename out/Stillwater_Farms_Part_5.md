@@ -611,3 +611,5 @@ For the first time since the cellar door closed behind us, he met my eyes withou
 We didn’t smile. We didn’t celebrate. We didn’t speak again.
 
 We just kept widening the gap, our fingers bled as we worked. Two starved brothers carving an exit into the belly of the land that had swallowed us whole.
+
+[Part Six >](https://www.reddit.com/r/nosleep/comments/1pa3swo/stillwater_farms_part_6/)
