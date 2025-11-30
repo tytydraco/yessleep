@@ -24,7 +24,7 @@ He missed Thanksgiving with the family last week, so on Friday morning, I went b
 
 Once again, I let myself inside of our family home, and once again, my dad was in his office talking, but he was whispering this time. When I opened the door, my dad jumped and fumbled around as he tried to turn off his screen.
 
-His face was different from the face I had always known. Drawn and gaunt. He looked like he hadn’t slept or eaten in days. There was a brief flash of a primal rage in his eyes that scared me.
+His face was different from the face I had always known. Drawn and gaunt. He looked like he hadn’t slept or eaten in days. There was a brief flash of a primal rage in his eyes that scared me. For a moment, I actually thought he was going to hurt me, but then his face changed back to the one I have always known.
 
 It wasn’t my mother he was talking to this time. It was a young woman that I didn’t know. Her hair and her makeup looked like it was from the 1970’s. I caught a brief glimpse of her before the monitor went black.
 
