@@ -1,18 +1,18 @@
 I'm writing this from my apartment, and I need you to understand something before I explain what happened. I need you to know that the Minnesota Starvation Experiment was real.
 
-In 1944, at the University of Minnesota, Dr. Ancel Keys conducted what would become one of the most disturbing psychological studies in American history. Thirty-six conscientious objectors, men who refused to fight in World War II, volunteered to be starved. For six months, they were fed approximately 1,800 calories per day while performing hard labor. Then, for three months of "rehabilitation," they were slowly refed.
+In 1944, at the University of Minnesota, Dr. Keys conducted what would become one of the most disturbing psychological studies in American history. Thirty-six conscientious objectors, men who refused to fight in World War II, volunteered to be starved. For six months, they were fed approximately 1,800 calories per day while performing hard labor. Then, for three months of "rehabilitation," they were slowly refed.
 
 The results were horrifying. The men became obsessed with food, collecting recipes, licking their plates, some even contemplating cannibalism. They experienced severe depression, self-mutilation, and personality changes so profound that several never fully recovered. One man, it's documented, cut off three of his own fingers with an axe, though he couldn't remember if it was deliberate or not.
 
-The experiment was designed to help understand how to refeed starving populations in post-war Europe. It was conducted in the basement of the University of Minnesota's Stadium Village, in a nondescript building that still stands today.
+The experiment was designed to help understand how to refeed starving populations in post-war Europe. It was conducted in the basement of the University of Minnesota's laboratory, in a nondescript building that still stands today.
 
 I know all of this because I'm a demolition consultant. Was. Was a demolition consultant.
 
-Three weeks ago, the University finally approved the teardown of the old Laboratory of Physiological Hygiene—the building where the experiment took place. Most of it had been abandoned since the 1980s, deemed too outdated and too expensive to renovate. My job was to survey the structure, identify any hazardous materials, and map out the safest way to bring it down.
+Three weeks ago, the University finally approved the teardown of the old laboratory—the building where the experiment took place. Most of it had been abandoned since the 1980s, deemed too outdated and too expensive to renovate. My job was to survey the structure, identify any hazardous materials, and map out the safest way to bring it down.
 
 I went in on a Tuesday morning, alone.
 
-The building smelled wrong from the moment I entered. Not the usual mildew and rot you get in abandoned buildings. This was sharper, more organic. Like the rendering plant I'd surveyed outside Saint Paul, but with an undernote of something vinegary and sick.
+The building smelled wrong from the moment I entered. Not the usual mildew and rot you get in abandoned buildings. This was sharper, more organic. Like the rendering plant I'd surveyed a few years back, but with an undernote of something vinegary and sick.
 
 The main floors were standard, with stripped offices, empty labs, and the accumulated dust of decades. My footsteps echoed too much. The architectural plans showed four stories, but when I checked the stairwells, I found markings for a sub-basement that wasn't on any of my documentation.
 
@@ -142,9 +142,9 @@ But I'm so hungry.
 
 And my lease is up next month. I don't think I'm going to renew it.
 
-If you're reading this, stay away from the old Laboratory of Physiological Hygiene on the University of Minnesota campus. Don't go near it. Don't try to investigate. They've sealed it now, but seals can be broken. 
+If you're reading this, stay away from the old laboratory of the University of Minnesota campus. Don't go near it. Don't try to investigate. They've sealed it now, but seals can be broken. 
 
-And whatever you do, if you're ever anywhere near Stadium Village and you hear scratching sounds coming from underground, if you smell that rendering plant smell mixed with vinegar and wrongness, run.
+And whatever you do, if you're ever anywhere near that place and you hear scratching sounds coming from underground, if you smell that rendering plant smell mixed with vinegar and wrongness, run.
 
 Because they are still hungry.
 
