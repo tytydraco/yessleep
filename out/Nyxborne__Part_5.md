@@ -6,6 +6,8 @@
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/1oox59j/nyxborne_part_4/)
 
+[Part 6](https://www.reddit.com/r/nosleep/comments/1pb3sec/nyxborne_part_6/)
+
 Clinking of metal echoed through the basement as I pressed fresh shells into the reloader, one after another, the rhythmic sound almost ritualistic. Every cartridge I built was packed with finely shaved silver pellets, measured by weight, polished, and sealed with the same precision a jeweler reserves for diamonds. I wasn’t simply making ammunition; I was constructing insurance, in case something else decided to show up at my window. If safeguarding my home meant spending entire days underground forging shells of blessed metal, then so be it. The basement would become my factory. 
 
 The process became methodical. I laid out every component of a shell, primer, casing, powder, and that vital payload, the silver. Materials purchased from a gun store, with silver that needed to be imported from the official D.N.A. Armory.
@@ -90,8 +92,8 @@ He was old, gray hair only growing in patches across his nearly bald head. His c
 I raised a hand to block the beam. “Easy. I’m with the D.N.A., doing a wellness check. The people who live here haven’t been seen in a few days.”
 
 “The ‘D.N.A?’” There was a pause. Then his voice hardened.  
- “We’re fine.”  
- The way he said it was too quick, it snapped every nerve in my body to attention.
+“We’re fine.”  
+The way he said it was too quick, it snapped every nerve in my body to attention.
 
 “You’re Mr. Miller?” I asked.
 
@@ -154,7 +156,7 @@ His lips curled slowly into a smile.
 The lantern light revealed the room, chains, hooks, slabs of flesh. A table covered in surgical tools and half-melted steel. This wasn’t a barn. It was a slaughterhouse, a workshop. The door behind me split in half, and the monstrous thing crawled in, its many heads twitching. Trapped souls inside flesh, reaching, snarling, weeping silently. Miller stepped beside it with pride.
 
 “Their agony in death allowed them to stay,” he said softly. “I made them stronger. I made them beautiful. My modern Frankenstein..”  
- He leaned close as his creation lurched toward me, seemingly intent on watching my death play out. I struggled as a hand made of arms reached for me. A madman had killed his own family in the most agonizing way possible, then attached the phantoms he’d created to a monster of his design.
+He leaned close as his creation lurched toward me, seemingly intent on watching my death play out. I struggled as a hand made of arms reached for me. A madman had killed his own family in the most agonizing way possible, then attached the phantoms he’d created to a monster of his design.
 
 An idea filled my head as I escaped the grasp of the poor souls. My running was limited as its other arm crashed into my chest. I hit the wooden wall next to Miller, wood splintering along my back. He grabbed me by the mouth, looking me in the eyes.  
 “They could use another friend there.”
@@ -196,5 +198,3 @@ Nathan stood there, framed in the snow. Frost laced his hair, his breath misting
 “We have an issue…” he said.  
 His eyes locked onto mine.  
 “In Alaska.”
-
-  

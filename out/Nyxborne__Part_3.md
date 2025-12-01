@@ -6,6 +6,8 @@
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/1p2h065/nyxborne_part_5/)
 
+[Part 6](https://www.reddit.com/r/nosleep/comments/1pb3sec/nyxborne_part_6/)
+
 The world around me never stopped moving, no matter how much I wished it would. People rushing to work, cars screaming down highways, the constant noise of living. I hated it. Keeping up with that pace felt like treading water in a storm, every day a little harder than the last. If I didn’t stop to breathe, I’d drown.
 
 Luckily, the D.N.A. wasn’t the kind of organization that demanded constant loyalty. They only cared about results. I could turn down hunts when I needed to. As long as I got the job done, they didn’t ask questions, which was fine by me.

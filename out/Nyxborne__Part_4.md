@@ -6,6 +6,8 @@
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/1p2h065/nyxborne_part_5/)
 
+[Part 6](https://www.reddit.com/r/nosleep/comments/1pb3sec/nyxborne_part_6/)
+
 I woke up in my bed. A sluggish fog flowed through my memory. Last I remembered, I was on the floor of my basement, bleeding out. I craned my neck, trying to get a glimpse of the window, but none was there. I wasn’t in my cabin, but at a hotel. The ugly wallpaper created a cage around me.
 
 My phone buzzed and I felt myself pick it up, as if I wasn’t in control of my body. The screen lit up, and the date crossed my eyes. Twelve years in the past. The date sent a shiver down my spine. The day everything went wrong.

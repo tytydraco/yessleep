@@ -6,6 +6,8 @@
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/1p2h065/nyxborne_part_5/)
 
+[Part 6](https://www.reddit.com/r/nosleep/comments/1pb3sec/nyxborne_part_6/)
+
 “We got wind of missing sewer workers a few weeks back,” Nathan held the door for me as we entered the warehouse, “Three solo hunters vanished when we sent them in to see what happened.”
 
 “Any idea what it could be?” Going into a hunt blind was dangerous, obviously.
