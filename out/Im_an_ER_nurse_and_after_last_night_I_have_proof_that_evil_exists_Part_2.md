@@ -134,3 +134,5 @@ And I did. 
 I can’t tell you the rest of what happened. Not here. But what I can say is that none of this is my fault. It was self defense. And everything I’ve done, everything I’m going to do, is for Hannah. 
 
 What I will tell you is this: I have the jacket now.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1pawukc/im_an_er_nurse_and_after_last_night_i_have_proof/)
