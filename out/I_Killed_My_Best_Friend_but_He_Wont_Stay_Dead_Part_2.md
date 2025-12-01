@@ -86,7 +86,7 @@ It was only natural to process stress through dreams. How often have my teeth fa
 
 This time wasn’t as well planned as the last. Despite my newfound clarity, I hesitated longer than in my dream. It was only a second or two, but John had enough time to turn around and offset my aim. I had aimed square at his chest, but the bullet bore into his shoulder and the impact knocked him against the kitchen island. I cursed under my breath and before John could even say anything above a raspy gasp, another bullet shot through his head and he collapsed. Bits of brain and skull splattered the white marble. I grimaced at the mess getting in the gaps and crevices of the kitchen and considered whether a deep cleaning would be necessary. 
 
-Before the blood could spread I packaged up John’s body in a couple black bags. I couldn’t get to the blood as I noticed Dahlia by the doorframe when I straightened back up. She stood by it, eyes glued to the blood on the counter, then looked at me. 
+Before the blood could spread I packaged up John’s body in a couple black bags. I couldn’t get to the blood as I noticed Dahlia by the doorframe when I straightened back up. She stood by it, eyes glued to the blood on the counter, then looked at me.
 
 “Ah-” I opened my mouth to speak, but didn’t know what to say. She shrunk away when I walked towards her, making me stop. My hands were stained with blood, so I ran them under cold water in the sink. “Hey, it’s alright.”
 
@@ -96,7 +96,7 @@ I approached her again and this time she let me lay a hand on her arm. It left t
 
 Dahlia nodded, but her body became heavier in my arms for a few seconds before she regained consciousness. “Yeah, y-yeah, I’m… sorry, all the blood…” 
 
-I led her to John’s bedroom, setting her on the bed. “Are you gonna throw up?” I asked, worried by her unsteady breathing and refusal to speak. I gave her a moment in which she just sat and tried to compose herself, staring at nothing in particular. Eventually, Dahlia shook her head. 
+I led her to John’s bedroom, setting her on the bed. “Are you gonna throw up?” I asked, worried by her unsteady breathing and refusal to speak. I gave her a moment in which she just sat and tried to compose herself, staring at nothing in particular. Eventually, Dahlia shook her head.
 
 "N-no, I don't... think so."
 
@@ -123,3 +123,5 @@ I hesitated at the door, and as I reluctantly pressed my ear against it, I heard
 “Very.”
 
 I didn’t go home that day. I stayed for dinner, of which I didn’t eat any. The memory of the bits of brain and blood clinging to the counter killed my appetite. I agreed to watch a movie with them while trying to push down the despair that was starting to set in. Dahlia had definitely noticed it. She was shooting me glances, and the ones I managed to catch looked like she was silently asking if I was okay. I just gave a subtle nod in return, a forced smile before I returned to my tense posture. John was blissfully unaware.
+
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1pbpnfr/i_killed_my_best_friend_but_he_wont_stay_dead/)

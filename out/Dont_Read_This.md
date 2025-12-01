@@ -1,6 +1,6 @@
 I received a strange package in the mail today. It had no return address and no stamp.
 
-My wife handed it to me. She had received an identical package. We opened them and found a small book inside each. The same book. We never ordered these, but they were addressed to each of us specifically, so it can't be a mistake.
+My wife handed it to me. She had received an identical package. We opened them and found a small book inside both. The same book. We never ordered these, but they were addressed to each of us specifically, so it can't be a mistake.
 
 The book is titled "*Don't Read This*". The title is in bold red letters on a black cover. Nothing on the back. No author or anything. It feels kind of leathery and high-quality. Probably expensive.
 
@@ -44,7 +44,7 @@ When she flipped to the last page, she started screaming. It made me jump with h
 
 I got laughed at by my wife when I jumped. She must enjoy these kinds of things but I didn't think it was funny at all. She joked about my reaction and tried to get me to laugh at the "bad acting", but I can't get the horror on that lady's face out of my head.
 
-My wife asked if we should just read "the Please Don't Do This book" and get it over with. Wait, why did she call it that? I'll look at her book tomorrow. Anyways I told her it was an absolutely terrible idea, at least until we know more. I really don't want to take any risks.
+My wife asked if we should just read "the *Please Don't Do This* book" and get it over with. Wait, why did she call it that? Her book clearly had the same title as mine, but I'll look at it again tomorrow. Anyways I told her it was an absolutely terrible idea, at least until we know more. I really don't want to take any risks.
 
 Has anyone here actually read the book? I'm getting spooked after watching that video.
 
