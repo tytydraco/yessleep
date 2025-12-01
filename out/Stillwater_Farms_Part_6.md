@@ -421,3 +421,5 @@ We weren’t escaping.
 Not yet.
 
 Not without Elenor.
+
+[Part Seven >](https://www.reddit.com/r/nosleep/comments/1paze5k/stillwater_farms_part_7/)
