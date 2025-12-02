@@ -40,7 +40,7 @@ As we hurried past the Strawberry Bear, I could feel her grip tightened. Somethi
 The bear stood still. 
 
 
-Days gone by, no leads on the disappeared kids, and I grew bored walking Emma home. I missed playing soccer with my buddies, and some days if I was lucky, I would be seeing Alex on the bench, too. She’s a nice girl, I guess. I find myself staring at her short, fluffy, strawberry-blonde hair more than I’d like to admit. Sam was the first of my friends to recognize that.
+Days gone by, no leads on the disappeared kids, and I grew bored walking Emma home. I missed playing soccer with my buddies, and some days if I was lucky, I would be seeing Alex on the bench, too. She’s a nice girl, I guess. I find myself staring at her short, fluffy, strawberry-blonde hair more than I’d want to admit. Sam was the first of my friends to recognize that.
 
 
 “Hey, you ain’t coming to the match today?” He asked during recess. “Alex will be there.”
