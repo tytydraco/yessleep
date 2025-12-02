@@ -1,13 +1,14 @@
 I clicked the pen in my hand nervously, waiting for the real estate agent to finish her review of the stack of papers between us. My hands were damp and cold, leaving condensation patches on the black desk in the office we sat in. I swiped them away as discreetly as I could.
 
+The room itself was musky and smelled too much like whatever my agent must have doused herself in that morning, but there was something else too. Something I couldn’t quite name that vaguely reminded me of eggs and dirt.
+
 The office was gorgeous yet bizarrely antiquated. The ceiling, walls, and floor were made from wood so dark it looked black. Oddly, everything in the room was made of wood, and that meant literally everything. Strange-looking boxes littered the wooden shelves along with figurines, blocks, and a large dream catcher made entirely of wood. Surprisingly, even the pen in my cold hand was sleek and wooden with just the smallest metal nib.
 
-It was a stark difference from the outside of the office space she must rent from, which was as nondescript as they came.
+It was a stark difference from the outside of the office space they must rent from, which was as nondescript as they came.
 
-The building was a large gray concrete monstrosity that housed hundreds of small office rooms. Walking to find hers had filled me with a sense of dread so strong that I felt weak. In the back of my mind I began to question if I would ever make it there or end up lost in the seemingly unending maze of doors and hallways. I had the feeling of being watched and at one point thought I heard the sound of music along with someone laughing.
+The building was a large gray concrete monstrosity that housed hundreds of small office rooms. Walking to find hers had filled me with a sense of dread so strong that I felt weak. 
 
-
-The room itself was musky and smelled too much like whatever my agent must have doused herself in that morning, but there was something else too. Something I couldn’t quite name that vaguely reminded me of eggs and dirt.
+In the back of my mind I began to question if I would ever make it there or end up lost in the seemingly unending maze of doors and hallways. I had the feeling of being watched and at one point thought I heard the sound of carnival music along with someone laughing.
 
 ⸻
 
@@ -32,16 +33,13 @@ After thirty or so minutes and a few odder questions-
 “Are you imaginative?”
 
 I was then given an address for a home, shockingly in my budget and only an hour away.
-
 ⸻
 
-When I walked into the initial showing three months ago, I was met by a statuesque woman. She was nearly six feet tall and inadvertently leaned over me with a wiry, bony frame. She looked like she could snap in half at any moment yet somehow seemed unbreakable.
+Currently, as I sat at the desk, my agents eyes were flickering along one of the contracts as she chewed on what looked to be a stick. Id had a terrible nightmare the night prior and felt a sense of déjà vu. 
 
-Her skin was coarse and haggard but always had a thick smear of foundation plastered haphazardly across it. She had a nose that was two sizes too small, which led to her mouth appearing too low on her face. And her mouth was, quite frankly, very large and painted in an always-smeared ruby red lipstick. The skin on her face sagged with age but also like it had been stretched one too many times.
+She was a statuesque woman. She had to be over six feet tall and she inadvertently leaned over me  even while seated with a wiry, bony frame. She looked like she could snap in half at any moment yet somehow seemed unbreakable.
 
-⸻
-
-Currently, as I sat at the desk, her eyes were flickering along one of the contracts as she chewed on what looked to be a stick. Id had a terrible nightmare the night prior and felt a sense of déjà vu. 
+Her skin was coarse and haggard but always had a thick smear of foundation plastered haphazardly across it. She had a nose that was two sizes too small, which led to her mouth appearing too low on her face. And her mouth was another thing. Her mouth was too big for her face and painted in an always-smeared ruby red lipstick. The skin on her face not only sagged with age but looked like it had been stretched against her bones then relaxed loose.
 
 As I continued anxiously watching her, she finally looked up at me with a flash of a grin.
 
@@ -71,8 +69,6 @@ I could taste her musky, sulfurous breath on my tongue and started to feel sick.
 
 This was not part of my plan. I was angry, shocked, and nauseous, but I was left with no choice as she got up from her squeaking chair and ushered me out of her room. My arms were promptly filled with loose papers and another copy of her agent card, on top of a single folder labeled “Previous Owner’s Additional Information.”
 
-Her arm brushed against my shoulder and I jumped as her nails lingered for a moment on the small of my back. For a second, I swore it felt like my sweater was caught in thin spindly branches.
-
 With a slight push I was out, and the door then shut behind me with a resounding thwack. The immediate sound of a lock being turned echoed down the unending corridor to both the left and right of me. I ambled my way out of the building feeling foggy and unsettled. 
 
 This is not how I wanted to start my first day in my new home.
@@ -81,7 +77,7 @@ This is not how I wanted to start my first day in my new home.
 
 The rest of the afternoon was a complete and utter blur. I rushed back to my apartment to find a large moving truck with six bizarrely tall men outside. They could have been brothers, or maybe they were brothers and were related to Dunia. There was an eerie resemblance.
 
-Their eyes watched me wearily, and I swear one of them almost looked they were smirking. My roommates were gone thankfully, but I felt a pang of guilt. Even though we weren’t close, I would have preferred to say bye.
+Their eyes watched me wearily, but I swear one of them almost looked they were holding back a smile. My roommates were gone thankfully, but I felt a pang of guilt. Even though we weren’t close, I would have preferred to say bye.
 
 Before I knew it, my apartment was devoid of all my things, albeit for the mouse droppings on the floor and my landlord’s eclectic posters he had plastered on the walls when I moved in.
 
@@ -105,11 +101,25 @@ On the last ring he finally answered.
 
 “Hey, yeah, I’m all good. Well, sort of all good. I’m actually on my way to the house. It’s a long story.” I groaned on the last syllable. Damn you, Dunia.
 
-Steve perked up immediately. “Dude, what?! I thought next week. I took the day off and everything to help you. Ok, I mean, I was going to call out regardless, but do you need me to come by? Text me the address, I still don’t have it. I can swing by tomorrow morning.”
+Steve perked up immediately. “Dude, what?! I thought next week. This whole things been kind of crazy I mean the house was fine but I’m surprised you’d go for it in the first place! It looks like my old house.”
+
+I interrupted him in shock cutting off his next sentence. “What are you talking about? Your house was blue and had three floors Steve”
+
+Steve laughed, “Yeah that’s what this house looks like but I mean I know you’ll paint it. You always gone for those gothic looking ones even as kids”
+
+I scoffed. “Steve it’s literally an almost black house and it’s two floors. You saw it with me.”
+
+Steve was silent for a second. 
+
+“Yeah I don’t know Pursie, I don’t think i’m remembering it wrong. I only saw it for a few last I dropped you off but I guess we’ll see. I took the day off and everything to help you next week. Ok, I mean, I was going to call out regardless, but do you still need me to come by? Text me the address again. I can swing by tomorrow morning.”
 
 I let out the breath I must have been holding since I left Dunia’s wooden nightmare of an office. “Yeah, please, honestly. I’ll text you the address when I get there.”
 
-I hung up and placed my phone face-down in the cupholder. The highway signs blurred past me, green slabs of metal bending into each other like soft shapes. I kept thinking about Dunia, her voice echoing through my skull like it had left a print. Her lipstick smeared teeth gnashed in my head.  I could still smell her on my sweater-her scent failing to be masked by whatever perfume she had layered on so heavily. The déjà vu was growing stronger by the second, passing fields in my vision seemed to blur into one endless infinite stretch of green. I shook my head.
+⸻
+
+I hung up and placed my phone face-down in the cupholder. Odd he didn’t remember it right, I was sure I had gushed about it to him and he saw it in person. 
+
+I let the thought linger as I stared out against the road. The highway signs blurred past me, green slabs of metal bending into each other like soft shapes. I kept thinking about Dunia, her voice echoing through my skull like it had left a print. Her lipstick smeared teeth gnashed in my head.  I could still smell her on my sweater-her scent failing to be masked by whatever perfume she had layered on so heavily. The déjà vu was growing stronger by the second, passing fields in my vision seemed to blur into one endless infinite stretch of green. I shook my head.
 
 Move-in today. No choice. No plan. Just motion.
 
@@ -151,11 +161,11 @@ Suddenly my eyelids felt like they were being weighed down with cinder blocks. I
 
 My gaze lazily wandered over to the movers again. Oh wow, they’re all moving so fast. That’s One, and that’s number Two, out comes Four. No, Four just went to the truck. Or was that number Six? Maybe it was One again. Are there six of them? I swear I just… I saw seven. How are they moving so fast… There’s number Five. I swear he’s staring at me… She needs to fix her lipstick. He needs to fix his lipstick? 
 
-My breathing had slowed considerably. I tried to unbuckle my seatbelt but my arms felt useless and weak. I gave up, and as my arms fell back to my sides, my hand brushed my pants and there I felt it. 
+My breathing had slowed considerably. I tried to unbuckle my seatbelt (when did I put my seatbelt on?) but my arms felt useless and weak. I gave up, and as my arms fell back to my sides, my hand brushed my pants and there I felt it. 
 
 My phone in my pocket. 
 
-A moment of alarm cut through the haze. I tried to gasp but my lungs were filled with the stink of rot instead of air. When I looked back up sleep was overcoming by body- but why were all of the movers staring at me and smiling?  My fears were rapidly disregarded as my eyes closed and I drifted into sleep.
+A moment of alarm cut through the haze. I tried to gasp but my lungs were filled with the stink of rot instead of air. When I looked back up, sleep was overcoming my body- but why were all of the movers staring at me and smiling?  Why did their smiles look so wide? My fears were rapidly disregarded as my eyes closed and I drifted into sleep.
 
 ⸻
 
@@ -254,6 +264,8 @@ My fear alarmingly evaporated like mist.
 
 And something inside me whispered, “It’s beautiful, isn’t it?” and I agreed.
 
+⸻
+
 A swing set appeared ahead of me. Rusted chains, sun-bleached wood, but it swayed even without wind, as if it remembered being played on. When I blinked, it shimmered and changed, becoming the swing from my childhood home. My mother pushing me. Her laughter real enough that I could almost touch it.
 
 My imagination was leaking into reality. I was going crazy. This couldn’t be real yet—
@@ -298,7 +310,7 @@ Dread clutched my heart. I tried to empty my mind, I was understanding far too l
 
 I saw it.
 
-Far at first. A silhouette. Tall. Thin. Wrong. Spindly arms and too many fingers. It was neither male nor female.
+Far at first. A silhouette. Tall. Thin. Wrong. Spindly arms and too many fingers. It was neither male nor female. It looked like a horrible cross between a willow tree and a human, gone horrifically wrong. Wood overlayed with parts of human skin.
 
 Then I smelled it.
 
@@ -308,8 +320,7 @@ My eyes were streaming. With every blink it was closer. One moment distant. The 
 
 It didn’t walk. It just arrived.
 
-Its  face was human only in the vaguest way. Teeth long enough to scrape its lower jaw. They were stained red, not
-lipstick but blood. A grin so wide it split it’s cheeks into raw red fissures. Eyes black and swirling like liquid night.
+Its  face was human only in the vaguest way. Teeth long enough to scrape its lower jaw. They were stained red, not lipstick but blood. A grin so wide it split it’s cheeks into raw red fissures. Moss grew through chunks of sinewy flesh and twig growths in bands of muscle. Eyes black and swirling like liquid night.
 
 It’s  voice wasn’t spoken. It bloomed inside me, pressing against the edges of my mind like something trying to hatch through bone.
 
