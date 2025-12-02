@@ -2,7 +2,7 @@ I clicked the pen in my hand nervously, waiting for the real estate agent to fin
 
 The room itself was musky and smelled too much like whatever my agent must have doused herself in that morning, but there was something else too. Something I couldn’t quite name that vaguely reminded me of eggs and dirt.
 
-The office was gorgeous yet bizarrely antiquated. The ceiling, walls, and floor were made from wood so dark it looked black. Oddly, everything in the room was made of wood, and that meant literally everything. Strange-looking boxes littered the wooden shelves along with figurines, blocks, and a large dream catcher made entirely of wood. Surprisingly, even the pen in my cold hand was sleek and wooden with just the smallest metal nib.
+The office was gorgeous yet bizarrely antiquated. The ceiling, walls, and floor were made from wood so dark it looked black. Oddly, everything in the room was made of wood, and that meant literally everything. Strange-looking boxes littered the wooden shelves along with figurines, blocks, a large ornate wood framed mirror and a dream catcher made entirely of wood. Surprisingly, even the pen in my cold hand was sleek and wooden with just the smallest metal nib.
 
 It was a stark difference from the outside of the office space they must rent from, which was as nondescript as they came.
 
@@ -26,7 +26,7 @@ At the time, to be honest, I thought it was odd, but not odd enough to pass down
 
 I was peppered with standard questions like my income (which was okay), credit (slightly less than okay), and family living situation (definitely less than okay, seeing as I was an only child with no immediate family around or a partner).
 
-After thirty or so minutes followed by a few stranger questions- 
+After thirty or so minutes I was asked  a few stranger questions- 
 
 “Do you consider yourself to be superstitious?” 
 “What are your religious beliefs?” 
@@ -51,7 +51,7 @@ I smiled, finally feeling relieved.
 
 Dunia stared at me for a long moment before answering, her eyes seemingly moving from mine to my mouth. A smile cracked her face in half. Strings of spit were strewn across her gums. I unintentionally recoiled then immediately righted myself. 
 
-“Oh yes, of course yes. Well, I should say yes, but I did receive a call from the city and, with this being a foreclosure and all, we’re actually able to get you in a bit sooner. Yes, of course much sooner, actually. You’re able to move in as soon as today, now that we have this pretty little print.” She pointed a long finger at one of my lopsided signatures on a page in front of us.
+“Oh yes, of course yes. Well, I should say yes, but I did receive a call from the city and, with this being a foreclosure and all, we’re actually able to get you in a bit sooner. Yes, of course much sooner, actually. You’re able to move in as soon as today, now that we have this pretty little print.” She pointed a spindly finger at one of my lopsided signatures on a page in front of us.
 
 My heart picked up pace. I was never good with abrupt changes, always having things scheduled down to the minute. This news would have excited most, but it sent prickles of anxiety crawling through my chest. I again thought of my nightmare, and remembered something about the house and a field.
 
@@ -89,7 +89,7 @@ The metal sliding door was shut just forty-five minutes later and we were off.
 
 ⸻
 
-I anxiously began the drive, I had just enough gas to get there and an hour to spare. As I rode, uneasy thoughts began to fill my head and a sense of wrongness I couldn’t seem to shake hung over me. I rang one of my only friends to help fill the time as the ever growing sense of doom was surely going to climax if not. 
+I anxiously began the drive, I had just enough gas to get there and an hour to spare. As I rode, uneasy thoughts began to fill my head and a sense of wrongness I couldn’t seem to shake hung over me. I decided I’d ring one of my only friends to help fill the time as the ever growing sense of doom was surely going to climax if not. 
 
 I picked up my phone.
 
@@ -101,19 +101,21 @@ On the last ring he finally answered.
 
 “Hey, yeah, I’m all good. Well, sort of all good. I’m actually on my way to the house. It’s a long story.” I groaned on the last syllable. Damn you, Dunia.
 
-Steve perked up immediately. “Dude, what?! I thought next week. This whole things been kind of crazy I mean the house was fine but I’m surprised you’d go for it in the first place! It looks like my old house.”
+Steve perked up immediately. “Dude, what?! I thought that was next week. This whole things been kind of crazy-I mean the house was fine but I’m surprised you’d go for it in the first place! It looks like my old house.”
 
-I interrupted him in shock cutting off his next sentence. “What are you talking about? Your house was blue and had three floors Steve”
+I interrupted him, cutting off his next sentence. “What are you talking about? Your house was literally bright blue, had three floors and looked like something out of Martha Stewart’s catalogue”
 
-Steve laughed, “Yeah that’s what this house looks like but I mean I know you’ll paint it. You always gone for those gothic looking ones even as kids”
+Steve laughed, “Yeah, well thank you Martha but  that’s what this house looks like. I mean I know you’ll paint it but you’ve always gone for those gothic looking ones, even as kids”
 
-I scoffed. “Steve it’s literally an almost black house and it’s two floors. You saw it with me.”
+I scoffed. “Steve it’s literally an almost black house with genuine ivy crawling on the exterior. You saw it with me.”
 
 Steve was silent for a second. 
 
-“Yeah I don’t know Pursie, I don’t think i’m remembering it wrong. I only saw it for a few last I dropped you off but I guess we’ll see. I took the day off and everything to help you next week. Ok, I mean, I was going to call out regardless, but do you still need me to come by? Text me the address again. I can swing by tomorrow morning.”
+“Yeah I don’t know Pursie, I don’t think I’m remembering it wrong. I only saw it for a few last time I dropped you off but I guess we’ll see.”
 
-I let out the breath I must have been holding since I left Dunia’s wooden nightmare of an office. “Yeah, please, honestly. I’ll text you the address when I get there.”
+Another pause then Steve cleared his throat,  “I took the day off and everything to help you next week. Well I mean, I was going to call out then, but do you still need me to come by? Text me the address again. I can swing by tomorrow morning instead.”
+
+I let out the breath I must have been holding since I left Dunia’s wooden nightmare of an office. “Yeah, please, honestly. I’ll send the address when I get there.”
 
 ⸻
 
@@ -183,7 +185,9 @@ My stomach twisted in anticipation as I began to read.
 
 Basement:
 
-Be careful going into the basement. There are numerous entrances and exits. You will find yourself getting lost. You won’t believe it, but it will happen. I tried to destroy it, but it didn’t work. It won’t let you. It’s bigger than it seems. It’s not what it seems. If something is too good to be true there’s a reason for it. Steel your mind, you’ve been here before. No matter what don’t fall asleep down there.
+Be careful going into the basement. There are numerous entrances and exits. You will find yourself getting lost. You won’t believe it, but it will happen. I tried to destroy it, but it didn’t work. It won’t let you. It’s bigger than it seems. It’s not what it seems. If something is too good to be true there’s a reason for it. You’ve been here before. It steals from you and traps you. 
+
+No matter what don’t fall asleep down there.
 
 
 ⸻
@@ -262,11 +266,11 @@ I felt myself falling for six breaths, which wouldn’t be possible except it wa
 
 The basement was gone.
 
-In its place, stretching endlessly under the house like space inverted, was one of the fields from my nightmare. Or it looked just like it. Only this time, it was real. I could smell it, sweet grass and distant rain. I could feel it, warm wind lifting strands of my hair. I could hear it, a low hum like the earth itself was thinking.
+In its place, stretching endlessly under the house like space inverted, was one of the fields from my nightmare.The crashing déjà vu washed over me, this was the field I played soccer in as a child. Or it looked just like it. 
 
-My fear alarmingly evaporated like mist.
+Unlike my dream this time, it was real. I could smell it, sweet grass and distant rain. I could feel it, warm wind lifting strands of my hair. I could hear it, a low hum like the earth itself was thinking.
 
-And something inside me whispered, “It’s beautiful, isn’t it?” and I agreed.
+Something beside me whispered, “It’s beautiful, isn’t it?” and all my sense left me. I agreed.
 
 ⸻
 
@@ -274,13 +278,19 @@ A swing set appeared ahead of me. Rusted chains, sun-bleached wood, but it swaye
 
 My imagination was leaking into reality. I was going crazy. This couldn’t be real yet—
 
-“This world listens.” The words entered my mind abruptly.
+“This world listens. This place remembers.” The words came from somewhere in the distance again abruptly.
 
-An odd sense of glee took over. I felt myself giving in to my hysteria. I thought of a theme park, and rides surged into existence. Rollercoasters glittered like chrome serpents. The smell of popcorn burned my nostrils. A carousel spun with painted horses whose eyes gleamed wet like something alive. Voices rose, distant cheers, childhood shrieks of joy, music that felt familiar enough to hurt.
+An odd sense of glee took over. My eyes glossed over. A smile was on my lips but why was my face wet and my eyes burned.
 
-I walked forward without thinking,  smiling, until I noticed something wrong.
+I felt myself giving in to hysteria. A brief memory flitted through my mind of a theme park, and immediately rides surged into existence. Rollercoasters glittered like chrome serpents. The smell of popcorn burned my nostrils. A carousel spun with painted horses whose eyes gleamed wet like something alive. Voices rose, distant cheers, childhood shrieks of joy, music that felt familiar enough to hurt.
 
-I looked again at the  blurring people around me. Those who were there yet not there, like dreamy visions. The faces on the riders weren’t faces.
+I walked forward without thinking,  smiling with a piercing headache. I felt robotic in my movements until there under the popcorn, I smelt it so lightly, sulfur. 
+
+A stake felt like it was wedged through my skull. Finally I felt my eyes focus.
+
+I looked again at the  blurring people around me. Those who were there yet not there, like dreamy visions. Now I could see but something was wrong. 
+
+The faces on the riders weren’t faces.
 
 Just wide mouths. Too wide. Smiling. Always smiling. No eyes. Only teeth like polished bone. And on those teeth were the faintest smudges of red.
 
@@ -288,50 +298,39 @@ My pulse surged.
 
 I took a step back, and the field moved with me like it didn’t want me to leave. Grass wound around my ankles, soft at first then tight enough to bruise. The music grew dissonant. The smell of popcorn went sour. And the laughter turned into groans. 
 
-I stumbled, and as I fell, reality shifted and it slid, revealing a wooden square hatch on the grass below my feet.
-
-The metal latch clicked on its own. Once. Twice. Then swung open.
-
-Darkness yawned beneath it.
-
-I should have run, but I was suspended, falling again. A sense of morbid curiosity overrode terror the way hunger overrides reason. I leaned in. Something glowed far below, a pulsing red light like a heartbeat inside the earth.
-
-And that’s when I fell through.
-
-The hatch swallowed me whole.
-
-No sensation. No falling. Just a sudden stop and the crack of bone against stone. Pain blossomed in my skull like a slow-blooming bruise. My vision blurred at the edges. Then everything went white.
+I stumbled against the force at my legs. I fought as hard as I could to free myself remembering the note from before. Wood twined around my limbs and with a wrench I fell through the ground, being pulled sharply. There was a brief sensation of falling until a sudden stop and the crack of bone against stone. Pain blossomed in my skull like a slow-blooming bruise. My vision blurred at the edges. Then everything went white.
 
 ⸻
 
-I woke in the grass.
+I woke in the grass again but now the field was empty and dark. Long billowy trees seemed to sprout far in my peripheral.
 
-Not lying, but standing, as if my body had risen without me.
+I wasn’t lying, but standing, as if my body had risen without me.
 
-The field was darker now. The sky black and glossy like oil. The moon hung too close, swollen and veined like an eye that watched without blinking. 
+The sky black and glossy like oil. The moon hung too close, swollen and veined like an eye that watched without blinking. 
 
-Dread clutched my heart. I tried to empty my mind, I was understanding far too late that my emotions and desires seemed to influence what was around me but it was too late. 
+Dread clutched my heart. I tried to empty my mind, but it was too late. 
 
 I saw it.
 
-Far at first. A silhouette. Tall. Thin. Wrong. Spindly arms and too many fingers. It was neither male nor female. It looked like a horrible cross between a willow tree and a human, gone horrifically wrong. Wood overlayed with parts of human skin.
+Far at first. A silhouette. Tall. Thin. Wrong. Spindly arms and too many fingers. It was neither male nor female. It looked like a deathly cross between a willow tree and a human, gone horrifically wrong. Wood overlayed with parts of human skin.
 
 Then I smelled it.
 
-Pure sulfur. I retched and heaved as the scent invaded every aspect of my senses.
+Pure sulfur. I retched and heaved as the scent invaded every aspect of my senses. I tried to turn my head or close my eyes but my body was frozen and unyielding. 
 
 My eyes were streaming. With every blink it was closer. One moment distant. The next ten feet away. Then five. Then one.
 
 It didn’t walk. It just arrived.
 
-Its  face was human only in the vaguest way. Teeth long enough to scrape its lower jaw. They were stained red, not lipstick but blood. A grin so wide it split it’s cheeks into raw red fissures. Moss grew through chunks of sinewy flesh and twig growths in bands of muscle. Eyes black and swirling like liquid night.
+Its  face was human only in the vaguest way. Teeth long enough to scrape its lower jaw. They were stained red, not lipstick but surely blood. A grin so wide it split it’s cheeks into raw red fissures. Moss grew through chunks of sinewy flesh and twig growths in bands of muscle. Eyes black and swirling like liquid night.
 
-It’s  voice wasn’t spoken. It bloomed inside me, pressing against the edges of my mind like something trying to hatch through bone.
+It’s  voice wasn’t spoken. It bloomed inside me, pressing against the edges of my mind like something trying to hatch through bone. Faces flickered through my memory- Dunia, the movers, and shockingly the coworker who had recommended Angor.
 
-Pain feeds me.
-Wonder feeds you.
+Memories feed me.
+Life feeds you.
 We are mirrors.
 We are one.
+I live in others pasts but through you I experience the present.
 
 My legs locked. A white-hot ache shot through them like molten metal filling bone. I crumpled, screaming through clenched teeth as grass wove itself around my calves like tendrils growing from the earth. 
 
@@ -339,8 +338,8 @@ Every breath was agony as that rotting smell seemed to permeate my lungs.
 
 It bent down, face inches from mine, smile stretching impossibly wider.
 
-You imagined me.
-You made me.
+You remembered me.
+You made me from your past, your nightmares, your memories, your fears.
 Every owner does.
 
 My vision flickered.
@@ -367,7 +366,7 @@ But one detail chilled my spine:
 
 My reflection in the smiling crowd was the only one that had red stained teeth.
 
-Other Purcilla reached toward me from inside the field like a second version of myself pulling at the edges of my consciousness.
+In front of my eyes the being morphed. Changing as skin grew flush over wood and in horror I realized It had become me. An awful mirror image of myself. 
 
 You fell. You dreamed.
 Now we will finish what your mind began.
