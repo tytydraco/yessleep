@@ -29,4 +29,6 @@ I ran into the managers office and shut and locked the door behind me. My phone 
 
 
 The police arrived shortly after. They informed me that the man had committed familial homicide before coming to find me. He has not yet been apprehended.
+
+
 Sorry I got a bit off track with all that, is a 5 dollar pay bump normal for night shifts?
