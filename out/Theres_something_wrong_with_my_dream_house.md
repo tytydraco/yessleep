@@ -12,9 +12,9 @@ In the back of my mind I began to question if I would ever make it there or end 
 
 ⸻
 
-It was my first time in her office. We normally met at either the new home or at local coffee shops around the area. My agent herself was also a bit odd, but I couldn’t really place why. Although it didn’t matter to me, she was quite old, maybe in her late 60s to early 70s if I had to guess.
+It was my first time in her office. We normally met at either the new home or at local coffee shops around the area. My agent herself was also a bit odd, but I couldn’t really place why. At first I thought it was due to the age difference, she was quite old and a bit eccentric, maybe in her late 60s to early 70s if I had to guess.
 
-I had gotten her contact information from a now ex-coworker. We weren’t close, but she was subject to my complaints over my roommates, landlord, and horrible apartment complex I’d been living in since I graduated eight years ago. A few months back, after the third microwave fire that week, she turned to me in our office and asked why I hadn’t “just” moved out yet. I didn’t really have an answer other than the standard: I had some money saved, but not enough for anything nice.
+I had found out about her firm from a now ex-coworker. We weren’t close, but she was subject to my complaints over my roommates, landlord, and horrible apartment complex I’d been living in since I graduated eight years ago. A few months back, after the third apartment microwave fire that week, she turned to me in our office and asked why I hadn’t “just” moved out yet. I didn’t really have an answer other than the standard: I had some money saved, but not enough for anything nice.
 
 She told me she knew of a friend of a friend who had gone through a real estate agency working on foreclosed homes at a steal. My interest was immediately piqued.
 
@@ -24,9 +24,9 @@ At the time, to be honest, I thought it was odd, but not odd enough to pass down
 
 “This is Angor, where we bring your dreams at a fraction of the cost!”
 
-I was peppered with standard questions like my income (which was okay), credit (slightly less than okay), and family living situation (definitely less than okay, seeing as I was an only child with no immediate family around or a partner) along a few others. 
+I was peppered with standard questions like my income (which was okay), credit (slightly less than okay), and family living situation (definitely less than okay, seeing as I was an only child with no immediate family around or a partner).
 
-After thirty or so minutes and a few odder questions- 
+After thirty or so minutes followed by a few stranger questions- 
 
 “Do you consider yourself to be superstitious?” 
 “What are your religious beliefs?” 
@@ -35,13 +35,13 @@ After thirty or so minutes and a few odder questions-
 I was then given an address for a home, shockingly in my budget and only an hour away.
 ⸻
 
-Currently, as I sat at the desk, my agents eyes were flickering along one of the contracts as she chewed on what looked to be a stick. Id had a terrible nightmare the night prior and felt a sense of déjà vu. 
+Currently, as I sat at the desk, my agents eyes were flickering along one of the contracts as she chewed on what looked to be a stick. Id had a terrible nightmare the night prior and felt a shuddering sense of déjà vu watching her.
 
 She was a statuesque woman. She had to be over six feet tall and she inadvertently leaned over me  even while seated with a wiry, bony frame. She looked like she could snap in half at any moment yet somehow seemed unbreakable.
 
-Her skin was coarse and haggard but always had a thick smear of foundation plastered haphazardly across it. She had a nose that was two sizes too small, which led to her mouth appearing too low on her face. And her mouth was another thing. Her mouth was too big for her face and painted in an always-smeared ruby red lipstick. The skin on her face not only sagged with age but looked like it had been stretched against her bones then relaxed loose.
+Her skin was coarse and haggard but always had a thick smear of foundation plastered haphazardly across it. She had a nose that was two sizes too small, which led to her mouth appearing too low in comparison to her other features, nearly hanging off. And her mouth was another thing. Her mouth was too big for her face and painted in an always-smeared ruby red lipstick. The skin on her face not only sagged with age but looked like it had been stretched against her bones then relaxed loose.
 
-As I continued anxiously watching her, she finally looked up at me with a flash of a grin.
+As I continued anxiously watching her, she finally looked up at me with a subtle smirk.
 
 “Well, congratulations are in order, Ms. Vigil! All signatures are completed and you can proudly say you are now a new homeowner!”
 
@@ -65,9 +65,9 @@ I stared at her incredulously as she continued on.
 
 My jaw dropped as my mouth gaped in surprise. I could hear her breath whistling through her clenched red teeth and quickly clamped my jaw shut. 
 
-I could taste her musky, sulfurous breath on my tongue and started to feel sick.
+I now tasted her musky, sulfurous breath on my tongue and started to feel sick.
 
-This was not part of my plan. I was angry, shocked, and nauseous, but I was left with no choice as she got up from her squeaking chair and ushered me out of her room. My arms were promptly filled with loose papers and another copy of her agent card, on top of a single folder labeled “Previous Owner’s Additional Information.”
+This was not part of the plan. I was angry, shocked, and newly nauseous, but I was left with no choice as she got up from her squeaking chair and ushered me out of her room. My arms were promptly filled with loose papers and another copy of her agent card, on top of a single folder labeled “Previous Owner’s Additional Information.”
 
 With a slight push I was out, and the door then shut behind me with a resounding thwack. The immediate sound of a lock being turned echoed down the unending corridor to both the left and right of me. I ambled my way out of the building feeling foggy and unsettled. 
 
@@ -75,9 +75,9 @@ This is not how I wanted to start my first day in my new home.
 
 ⸻
 
-The rest of the afternoon was a complete and utter blur. I rushed back to my apartment to find a large moving truck with six bizarrely tall men outside. They could have been brothers, or maybe they were brothers and were related to Dunia. There was an eerie resemblance.
+The rest of the afternoon was a complete and utter blur. I rushed back to my apartment to find a large moving truck with six bizarrely tall men outside. They could have been relatives, or maybe they were brothers and were related to Dunia. There was an eerie resemblance to her.
 
-Their eyes watched me wearily, but I swear one of them almost looked they were holding back a smile. My roommates were gone thankfully, but I felt a pang of guilt. Even though we weren’t close, I would have preferred to say bye.
+Their eyes watched me almost hungrily, but I swear one of them looked they were holding back a smile. My roommates were gone thankfully, but I felt a pang of guilt. Even though we weren’t close, I would have preferred to say bye.
 
 Before I knew it, my apartment was devoid of all my things, albeit for the mouse droppings on the floor and my landlord’s eclectic posters he had plastered on the walls when I moved in.
 
@@ -179,16 +179,20 @@ I never fell asleep in the middle of the day, let alone at a new house surrounde
 
 I unbuckled myself and was about to exit until I remembered the stack of papers on the seat. I peeked over and saw the manila folder from earlier. Now was as good a time as ever. I opened it to find just one single sheet titled “Basement.”
 
+My stomach twisted in anticipation as I began to read.
+
 Basement:
 
-Be careful going into the basement. There are numerous entrances and exits. You will find yourself getting lost. You won’t believe it, but it will happen. I tried to destroy it, but it didn’t work. It won’t let you. It’s bigger than it seems. It’s not what it seems. If something is too good to be true there’s a reason for it. Steel your mind and be pure with your intentions. Don’t fall asleep down there.
+Be careful going into the basement. There are numerous entrances and exits. You will find yourself getting lost. You won’t believe it, but it will happen. I tried to destroy it, but it didn’t work. It won’t let you. It’s bigger than it seems. It’s not what it seems. If something is too good to be true there’s a reason for it. Steel your mind, you’ve been here before. No matter what don’t fall asleep down there.
 
 
 ⸻
 
-A laugh bubbled out of my lips. I started laughing harder and before I knew it I was having an actual laughing fit. I stopped after a short minute then shook my head. 
+A laugh bubbled out of my lips. I started laughing harder and before I knew it I was having an actual laughing fit. For the first time all day I felt a sense of relief. My laughter stopped after a short minute then shook my head. 
 
 I had seen the basement already during one of my tours and it was more of a hole than a “basement”. The house had been around since the 1800s and the basement was used basically as a refrigerator. It was somewhat finished with walls, a floor, and a ceiling but was no bigger than a walk-in closet.
+
+This had to be some type of joke or the last owner was just a little senile.
 
 I gathered myself, then opened the door to the car. I checked the time, 1:08 am. Wonderful.
 
@@ -368,15 +372,15 @@ Other Purcilla reached toward me from inside the field like a second version of 
 You fell. You dreamed.
 Now we will finish what your mind began.
 
-I woke screaming in the real world, sprawled in the basement dirt, heart hammering like it was trying to escape.
+I woke screaming in the real world, sprawled in the basement dirt, heart hammering like it was trying to escape. It was over, a nightmare. I was still in the house- I had fallen and passed out but I was okay.
 
 Only one thing was different.
 
 In my mouth,
 wedged between my teeth,
-was a stick.
+was a small stick. 
 
-Wet. Fresh. Tinged with my own blood.
+I pulled it out with a shaking hand and it made a shlurping pop. Wet. Fresh. Tinged with my own blood.
 
 From a field that shouldn’t exist.
 
@@ -398,4 +402,5 @@ And one voice, my own voice, echoed down the stairs, soft and cruel:
 
 You thought it was the house’s dream.
 It was yours.
-And now we’re awake.
+And now I’m awake. 
+And here you will dream. 

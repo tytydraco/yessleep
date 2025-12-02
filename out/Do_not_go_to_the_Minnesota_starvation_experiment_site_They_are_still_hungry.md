@@ -14,13 +14,13 @@ I went in on a Tuesday morning, alone.
 
 The building smelled wrong from the moment I entered. Not the usual mildew and rot you get in abandoned buildings. This was sharper, more organic. Like the rendering plant I'd surveyed a few years back, but with an undernote of something vinegary and sick.
 
-The main floors were standard, with stripped offices, empty labs, and the accumulated dust of decades. My footsteps echoed too much. The architectural plans showed four stories, but when I checked the stairwells, I found markings for a sub-basement that wasn't on any of my documentation.
+The main floors were standard, with stripped offices, empty labs, and the accumulated dust of decades. My footsteps echoed too much. The architectural plans showed four stories, but when I checked the stairwells, I found markings for a sub-basement that wasn't on any of my documentation, except a small note at the back.
 
 Professional curiosity is a liability in my line of work. I should have left it alone.
 
 The stairs down were narrow, institutional concrete that had been painted gray years ago. My flashlight caught something on the walls as I descended—scratches. Deep ones, running parallel down the concrete in sets of five. Like someone had dragged their fingernails down the walls hard enough to gouge the stone.
 
-The sub-basement was a long corridor lined with small rooms. Cells, really. Each had a narrow bed frame, a small desk, and a single bare bulb overhead. My documentation said this level had been used for "extended observation" during various studies. The rooms still had numbers stenciled on the doors: S1 through S36.
+The sub-basement was a long corridor lined with small rooms. Cells, really. Each had a narrow bed frame, a small desk, and a single bare bulb overhead. The note on my documentation said this level had been used for "extended observation" during various studies. The rooms still had numbers stenciled on the doors: S1 through S36.
 
 Thirty-six rooms.
 
