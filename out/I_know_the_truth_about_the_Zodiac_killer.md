@@ -20,7 +20,7 @@ I told her it was perfect. Tapes, letters, creepy sketches, suspects for days. T
 
 I promised I wouldn’t. I was already mentally choosing fonts.
 
-Social media makes "research" look cute. That cute girl with a latte and the open laptop, fake reading in perfect lighting? Yeah. That’s not it.
+Social media makes "research" look glamorous. That cute girl with a latte and the open laptop, fake reading in perfect lighting? Yeah. That’s not it.
 
 Real research is fluorescents, dust, and your spine turning into a question mark over a microfilm machine.
 
@@ -84,7 +84,7 @@ What stuck with me wasn’t who he thought did it.
 
 It was what he told me not to do.
 
-He asked me if I’d ever read the letters out loud. I told him no, because I hadn't. Not awake, anyway.
+He asked me if I’d ever read the letters out loud. I told him no, because I hadn't. 
 
 He told me not to. He said there were patterns they couldn’t put in reports because they sounded crazy. Guys who worked the case too long got strange. One had what the department called a psychotic episode. One killed himself. A clerk who handled the letters developed night terrors about a man in a hood at the corner of his bed.
 
@@ -168,7 +168,7 @@ By the time she did, it was just our courtyard, glass and dark.
 
 She told me, quietly, that she thought she saw someone too.
 
-I didn’t sleep that night. When I finally drifted off just before dawn, I dreamed he was standing at the foot of my bed, exactly where she’d said her night terrors guy stood. Hood, symbol, nothing behind the eyeholes but layers of dark.
+I didn’t sleep that night. When I finally drifted off just before dawn, I dreamed he was standing at the foot of my bed. Hood, symbol, nothing behind the eyeholes but layers of dark.
 
 He lifted his hand and touched the tip of a pen to the center of my chest.
 
