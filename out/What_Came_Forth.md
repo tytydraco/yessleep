@@ -172,9 +172,9 @@ Field Report #3 - Turpentine River Source - October 20th, 2025
 General Observations: No visible flowing water. The dirt of the former riverbed is dry and dusty. A mine entrance was found blocked by several boulders. They were subsequently removed for further exploration. Several wooden support beams were found along the passageways.  After traveling to an estimated 1,000 ft.  depth, a breach created via explosives created in the bedrock reveals an interconnected network of vast and empty caves. The walls are smooth, suggesting water erosion. The floor is composed of compacted sand and silt with distinguishable ridges, suggesting immense pressure and flow. The dome of the cave consists of iron rich mineral deposits and fragile stalactites, some of which appear to be broken. Each detail, as pointed out by the caving team, suggests that the cave was a former pressurized aquifer.
 
 Additional Notes: Samples were collected by the caving team for further testing. Samples consist of:
-Silt taken from the cave floor
-Stelactite remnant from the cave ceiling
-Rock chipping removed from the cave wall
+- Silt taken from the cave floor
+- Stalactite remnant from the cave ceiling
+- Rock chipping removed from the cave wall
 
 ***
 
