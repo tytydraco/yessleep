@@ -94,7 +94,7 @@ Once again I'm holding it. "*Don't Read This*" stands out in red on the small, p
 
 I open it.
 
-*I received a strange package in the mail today. It had no return address and no stamp.*
+***I received a strange package in the mail today. It had no return address and no stamp.***
 
 My hands shake. I start flipping through pages. This is impossible.
 
@@ -138,11 +138,11 @@ Three sentences, in the center of the second-to-last page. There's nothing else 
 
 ---
 
-*I read the last page.*
+***I read the last page.***
 
-*I finally understand.*
+***I finally understand.***
 
-*Don't read this.*
+***Don't read this.***
 
 ---
 

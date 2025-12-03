@@ -66,7 +66,7 @@ There was something in the gap.
 
 Tall. Blocky. Hooded.
 
-I whipped around fast enough that my chair squealed. The closet was just clothes—my dresses on one side, Sophie’s seventies shirts and fringe and chaos on the other. No hood. No symbol.
+I whipped around fast enough that my chair squealed. The closet was just clothes—my dresses on one side, Sophie’s 70s shirts and fringe and chaos on the other. No hood. No symbol.
 
 When I looked back at the monitor, my reflection lagged a half-second. The closet door in the reflection was closed.
 
@@ -84,7 +84,7 @@ What stuck with me wasn’t who he thought did it.
 
 It was what he told me not to do.
 
-He asked me if I’d ever read the letters out loud. I told him no, because I hadn't. 
+He asked me if I’d ever read the letters out loud. I told him no, because I hadn't.
 
 He told me not to. He said there were patterns they couldn’t put in reports because they sounded crazy. Guys who worked the case too long got strange. One had what the department called a psychotic episode. One killed himself. A clerk who handled the letters developed night terrors about a man in a hood at the corner of his bed.
 
