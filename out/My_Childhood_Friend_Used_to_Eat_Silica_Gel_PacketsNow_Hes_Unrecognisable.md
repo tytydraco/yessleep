@@ -36,15 +36,15 @@ In the middle of watching TV in my apartment one evening, a news report came on 
 
 It was about *silica gel packets*. 
 
-They were being discontinued. Specifically, the brand that had been in all our snacks and treats throughout our school days, which is why it was the only brand of silica that Ellis had eaten. According to the news report, the brand—Cryztel—were being discontinued due to severely toxic substances present in them. The news reporter’s words chilled me to my core.
+They were being discontinued. Specifically, the brand that had been in all our snacks and treats throughout our school days, which is why it was the only brand of silica that Ellis had eaten. According to the news report, the brand—Cryztel—were being discontinued due to severely toxic substances present in them. The news reporter’s words chilled me to my core:
 
-*“They’re a simple part of food packaging designed to keep our food dry. But the question is: are they truly safe? Not those from this local producer of them.
+*“They’re a simple part of food packaging designed to keep our food dry. But the question is: are they truly safe? Not those from this local producer of them.*
 
-It is being alleged that Cryztel silica gel packets were created with scientific waste products, which were not thoroughly understood by researchers at the time.
+*It is being alleged that Cryztel silica gel packets were created with scientific waste products, which were not thoroughly understood by researchers at the time.*
 
-Fortunately, foods stored with the packets were protected from this substance by the plastic packaging. It is also not harmful in trace quantities. 
+*Fortunately, foods stored with the packets were protected from this substance by the plastic packaging. It is also not harmful in trace quantities.*
 
-However, we urge anyone who has accidentally consumed this silica gel and is experiencing health issues to contact 9 News.”*
+*However, we urge anyone who has accidentally consumed this silica gel and is experiencing health issues to contact 9 News.”*
 
 Switching off the TV, my blood ran cold for Ellis. That surely didn’t bode well for his health—that poor kid had eaten several of those sachets everyday for his entire childhood. If they were worried about someone eating an odd packet here or there, what would all *that* do to him?
 
