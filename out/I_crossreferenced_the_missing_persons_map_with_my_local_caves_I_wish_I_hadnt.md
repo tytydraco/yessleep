@@ -1,22 +1,22 @@
-You’ve probably seen this map too, it pops up on Reddit every few months, usually on r/creepy or r/MapPorn. It shows two images: one is a map of missing persons  and the other is a map of America’s subterranean cave systems. The overlap is practically identical. The caverns  match the disappearances almost 1:1.  
-  
-Most people look at it, go "huh, creepy," and scroll past. I used to, too.  
-  
-But this time I zoomed in.  
-  
-I live in a rural stretch of Kentucky, deep in the foothills. I noticed a dense cluster of red dots right in my county, sitting directly on top of a "minor" cavern system called the Blackwood Sinkholes. It wasn't a tourist trap like Mammoth Cave. It was a jagged scar in the woods that even locals didn’t bother with.
+You’ve probably seen this map too, it pops up on Reddit every few months, usually on r/creepy or r/MapPorn. It shows two images: one is a map of missing persons  and the other is a map of America’s subterranean cave systems. The overlap is practically identical. The caverns match the disappearances almost 1:1.
 
-I showed it to my girlfriend, Jess. Calling Jess outdoorsy would be putting it lightly. She’s the kind of girl who owns three different types of hiking boots and thinks a weekend without dirt under her fingernails is a wasted one. I’m the opposite; I stay up until 3 AM reading about unsolved murders and just generally being a vampire.  
-  
+Most people look at it, go "huh, creepy," and scroll past. I used to, too.
+
+But this time I zoomed in.
+
+I live in a rural stretch of Kentucky, deep in the foothills. I noticed a dense cluster of red dots right in my county, sitting directly on top of a "minor" cavern system called the Blackwood Sinkholes. It wasn't a tourist trap like Mammoth Cave. It was a jagged scar in the woods that even the locals didn’t bother with.
+
+I showed it to my girlfriend, Jess. Calling Jess outdoorsy would be putting it lightly. She’s the kind of girl who owns three different types of hiking boots and thinks a weekend without dirt under her fingernails is a wasted one. I’m the opposite; I stay up until 3 AM reading about unsolved murders and just generally being a vampire.
+
 "It’s a match, see?" I pointed at the screen. "Nobody goes missing here because they get lost. They fall in. Or..." I waggled my eyebrows, "Something pulls them in."
 
-Jess rolled her eyes but grinned. "You want to go ghost hunting?"  
-  
-"I want to go debunking," I corrected. "We hike out, set up camp near the sinkholes, cook some actual food and drink some bourbon and see if the Mothman shows up.” 
+Jess rolled her eyes but grinned. "You want to go ghost hunting?"
+
+"I want to go debunking," I corrected. "We hike out, set up camp near the sinkholes, cook some actual food and drink some bourbon and see if the Mothman shows up.”
 
 It was supposed to be fun. A mix of her love for nature and my morbid curiosity. We packed the Jeep on Friday. Tents, sleeping bags, and a heavy cooler filled with marinated short ribs and ice for the whiskey.
 
-The hike to the Blackwood sinks was only about three miles from the nearest logging road, but the terrain was brutal. The trees grew thick and wrong here, their roots twisting over the limestone ground like arthritic fingers. By the time we found the main entrance, the sun was already dipping below the ridge.
+The hike to the Blackwood sinks was only about three miles from the nearest logging road, but the terrain was brutal. The trees grew thick and wrong here, their roots twisting over the limestone ground like arthritic fingers. By the time we found the main entrance I was ready to drop dead.
 
 The cave mouth was a horizontal slash in a limestone cliff face, about ten feet high and thirty feet wide. It looked like a mouth held open in a silent scream. A steady, cold breeze flowed out of it, smelling of wet rock and old copper.
 
@@ -24,7 +24,7 @@ The cave mouth was a horizontal slash in a limestone cliff face, about ten feet 
 
 I loved this girl.
 
-We set up camp about fifty yards from the entrance, just far enough to avoid the draft but close enough to stare into the darkness. I got the fire going while Jess prepped the grill grate over the coals. We were doing this right, slow-cooked sticky ribs, slathered in a spicy bourbon sauce.
+We set up camp about fifty yards from the entrance, just far enough to avoid the draft but close enough to stare into the darkness. I got the fire going while Jess prepped the grill grate over the coals. We were doing this right, slow-cooked sticky ribs slathered in a spicy bourbon sauce.
 
 Heat from gentle coals licked at the meat and the smell was intoxicating. Anyone who loves BBQ knows what I’m talking about. Smoke, fat, sugar, and char. Jess was walking back from the tent with the drinks when a downdraft caught the smoke, pulling the plume low across the ground and sucking it into the mouth of the cave.
 
@@ -32,13 +32,13 @@ Heat from gentle coals licked at the meat and the smell was intoxicating. Anyone
 
 "Hope they like ribs" I laughed.
 
-We ate as the sunset turned to twilight and then drank as twilight gave way to pitch black. Jess put her hand on my shoulder. I was thought I was going to get lucky then she told me to shush. That’s when I heard the silence. All day there was a symphony of crickets, cicadas, and rustling leaves. But now  the silence was thick, heavy and oppressive. It felt like the forest was holding its breath.
+We ate as the sunset turned to twilight and then drank as twilight gave way to pitch black. Jess put her hand on my shoulder. I was thought I was going to get lucky but then she told me to shush. That’s when I heard the silence. All day there was a symphony of crickets, cicadas, and rustling leaves. But now  the silence was thick, heavy and oppressive. It felt like the forest was holding its breath.
 
 And then the cave moaned. At first you could probably mistake it for the wind, it was too low and too long of a groan to come from any human lungs. Then it got louder and closer.
 
 Jess whispered low, "Did you hear that?" And it took me everything I had to not tremble.
 
-She shone her flashlight toward the cliff. The beam cut through the darkness, but the cave mouth swallowed the light. 
+She shone her flashlight toward the cliff. The beam cut through the darkness, but the cave mouth swallowed the light.
 
 "Probably a coyote. Or a bear. We should pack the food up tight." I murmured back, more to myself than her.
 
