@@ -1,8 +1,5 @@
 This happened a year ago when I went hiking alone in a state park. I'm writing it down because I still have nightmares about it, and my therapist says it might help to get it out. I don't know if that's true, but here it is.
 
-  
-
-
 The ridge must have washed out sometime in the last couple of weeks. I stood at the edge of the trail where runoff had carved a gully through the packed earth, exposing tree roots twisted through the dirt. Murky water still pooled at the bottom.
 
 I could backtrack. Add an hour, maybe two. Or I could cut through the trees, parallel the trail for a few hundred yards, rejoin it past the damage. Honestly it would be quicker just to go overland and cut out the switchback entirely, it was probably less than a mile.
@@ -373,10 +370,7 @@ I managed a nod. The smallest movement.
 
 The person stayed next to me. I could hear them breathing. Beyond the parking lot the forest was dark, but the blanket was warm and I was still alive.
 
-  
-
-
-I spent eight days in the hospital. They had to do three surgeries to clean out the wound and repair what they could. The tibia had a hairline fracture. Muscle damage was extensive. Nerve damage worse.
+I spent eight days in the hospital. They had to do three surgeries to clean out the wound and repair what they could. The bone was badly fractured. Muscle damage was extensive. Nerve damage worse.
 
 I still walk with a limp. My calf is mostly scar tissue now, numb in places, hypersensitive in others. I can't run anymore. 
 
@@ -387,4 +381,3 @@ They checked my car situation. Turns out I had parked at the trailhead. A ranger
 The guy who found me was a logger heading home after a late shift. Right place, right time. The doctors said if I'd been out there another hour, I probably would have bled out or gone into complete shock.
 
 Sometimes I still dream about crawling. I wake up, and my arms are moving, pulling at the sheets, and for a second I'm back in that forest with the rain coming down and no idea which direction I'm going.
-
