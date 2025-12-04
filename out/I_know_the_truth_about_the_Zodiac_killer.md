@@ -66,7 +66,7 @@ There was something in the gap.
 
 Tall. Blocky. Hooded.
 
-I whipped around fast enough that my chair squealed. The closet was just clothes—my dresses on one side, Sophie’s 70s shirts and fringe and chaos on the other. No hood. No symbol.
+I whipped around fast enough that my chair squealed. The closet was just clothes—my dresses on one side, Sophie’s 70s shirts and fringe and chaos on the other. 
 
 When I looked back at the monitor, my reflection lagged a half-second. The closet door in the reflection was closed.
 
