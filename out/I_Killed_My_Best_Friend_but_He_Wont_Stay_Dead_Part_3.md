@@ -12,7 +12,7 @@ I came home to John, wet with rain and sick with a rock at the bottom of my stom
 
 “‘Sup?” He asked. I should've expected to meet an oblivious version of John, but still, it shot a pain down my spine that almost made me lash out before I shut up completely. 
 
-I decided to speak when he turned around after he didn't receive an answer. When I opened my mouth, instead of the excuse I'd revised in my car, I croaked out a disgusting sob that made my throat burn. I clasped my hand over my mouth, but it had been done and I could no longer hold back the tears. John came over to me, supporting me by my arms while I steadied my back against the door. Between gasps and pained moans I didn't manage to answer what was wrong. I didn't manage to look him in the eyes either. He was the last person I wanted to see, and still I found myself grasping his biceps. I locked eyes with Dahlia instead, who was standing by the kitchen, but I looked away immediately. He led me to the guest room and guided me to sit on the bed. Almost simultaneously, he sat next to me letting me cling to his body. I gasped and choked on my breakdown until I almost threw up, and continued wringing out apologies and pleas, during which John stroked my back and told me it was okay. It wasn't, and he was assuring me without even knowing what it was about. For the first time in my life, his confidence did nothing but make my anger boil. 
+I decided to speak when he turned around after he didn't receive an answer. When I opened my mouth, instead of the excuse I'd revised in my car, I croaked out a disgusting sob that made my throat burn. I clasped my hand over my mouth, but it had been done and I could no longer hold back the tears. John came over to me, supporting me by my arms while I steadied my back against the door. Between gasps and pained moans I didn't manage to answer what was wrong. I didn't manage to look him in the eyes either. He was the last person I wanted to see, and still I found myself grasping his biceps. I locked eyes with Dahlia instead, who was standing by the kitchen, but I looked away immediately. He led me to the guest room and guided me to sit on the bed. Almost simultaneously, he sat next to me letting me cling to his body. I gasped and choked on my breakdown until I almost threw up, and continued wringing out apologies and pleas, during which John stroked my back and told me it was okay. It wasn't, and he was assuring me without even knowing what it was about. For the first time in my life, his confidence did nothing but make my anger boil.
 
 “I’m sorry, I’m sorry, oh God, I’m sorry-”
 
@@ -100,8 +100,8 @@ I shrugged, trying to look as surprised as I could. “Don't look at me...”
 
 “No?” He took on a defensive tone and I could tell he was about to argue. If my life had been normal, I would’ve argued back, maybe even started the argument. I felt bad for lying, but I obviously couldn’t tell him the truth. “Dahlia!” He called into the house and a moment later she sheepishly peered in from the hallway, just like she had when I had stabbed him. John didn’t have to tell her what he wanted. The blood immediately caught her attention and she pressed a hand to her mouth and nose to block out the stench. He went over to her to check for injuries and I heard them discuss the mysterious blood. I stood back, staring at it until John came back.
 
-“And?”  
-  
+“And?”
+
 “She’s fine. She said she didn’t hear anything...” He was staring at me, surprisingly unsure of the situation, and somehow himself. “Have you-?”
 
 “*When*, John? I just got here.” My irritation was visible, and I was grateful for once. It helped me act more natural. John looked at the blood again, huffing. “Maybe you seriously just… forgot to clean up?” I offered again.
@@ -111,3 +111,5 @@ I shrugged, trying to look as surprised as I could. “Don't look at me...”
 “Yeah, but-” I stopped myself from letting the conversation continue. “Whatever, we should take care of it.”
 
 I ended up helping him get rid of the carpet. We talked about it while I feigned ignorance, but at some point he thankfully let it go. I stayed over that night again, this time sleeping on the couch.
+
+[\[Part 4\]](https://www.reddit.com/r/nosleep/comments/1pdk8so/i_killed_my_best_friend_but_he_wont_stay_dead/)
