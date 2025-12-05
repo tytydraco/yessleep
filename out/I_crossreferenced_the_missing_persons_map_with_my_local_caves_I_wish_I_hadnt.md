@@ -50,7 +50,7 @@ Then a voice. Or, something trying to be a voice.
 
 "Come..."
 
-Maybe it wasn't English. Maybe my mind was trying find meaning where there weren’t none. It sounded like two stones grinding together.
+Maybe it wasn't English. Maybe my mind was trying find meaning where there weren’t any.
 
 Jess dropped the cooler lid. "What the hell was that?"
 
@@ -110,4 +110,8 @@ I’d thought the maps overlap because people fall into holes.
 
 It’s not.
 
-The cave systems aren't just holes in the ground. They’re ventilation shafts. And when we play and laugh and cook barbecue, we’re ringing the dinner bell.
+I'd thought the sinks were just holes in the ground.  
+  
+They aren't.  
+  
+They’re ventilation shafts... and when we play and laugh and cook barbecue, we’re ringing the dinner bell.
