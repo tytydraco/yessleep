@@ -28,7 +28,7 @@ They were wrong.
 
 Misidentification happens. I’d heard that before. Teeth records are incomplete. DNA takes time. Fires are chaos. Somewhere, in a hospital I hadn’t checked, she’d woken up confused and bruised and alone, and now she’d come home because where else would she go?
 
-She was standing in the doorway when I lifted my head, still wearing the black dress from the funeral. Mine. I’d watched her put it on that morning with shaking hands.
+She was standing in the doorway when I lifted my head,  wearing clothes she must’ve got from the hospital because they didn’t fit her. 
 
 She smiled at me like she always did when she wanted me to stop asking questions.
 
