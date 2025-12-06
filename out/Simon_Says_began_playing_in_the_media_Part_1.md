@@ -186,4 +186,6 @@ I gathered myself and made a similar call to my dad. I knew he would not believe
 
 That night, I finally managed to get some sleep. It was not full of nightmares like I thought it would be. It was a restless, empty pit of darkness. I woke up feeling as exhausted as I did the day before. The following days were similar, though I slowly managed to live my life as normally as I could again. I still avoided the news as much as I could, not willing to see or hear anything about what had happened.
 
-I need time to recall exactly what happened after that, but I will give everyone an update once I'm done writing it down. Please bear with me. 
+I need time to recall exactly what happened after that, but I will give everyone an update once I'm done writing it down. Please bear with me.
+
+[Click here for part 2](https://www.reddit.com/r/nosleep/comments/1pfeycv/simon_says_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) 
