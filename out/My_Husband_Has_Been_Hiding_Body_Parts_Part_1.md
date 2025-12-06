@@ -245,3 +245,6 @@ The door swung open, (of course I had forgotten to lock it) Gaige stood just at 
 I stared at his contorted face while he loomed over me, staring deeply into my soul.
 
 A tear rolled down his cheek and then he turned away, tossing some clothes back into a bag and storming out of the apartment, leaving me alone, still lost, still afraid, crying, weeping on the bathroom floor; sobs breathing in short gusts of coppery, blood scented air.
+
+  
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1pfllky/my_husband_has_been_hiding_body_parts_part_2/)
