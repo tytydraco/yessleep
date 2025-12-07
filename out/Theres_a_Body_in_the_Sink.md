@@ -1,6 +1,6 @@
 My grandmother used to tell me to be kind to houses.
 
-They cradled you in their bellies, kept you safe within the walls of their stomachs, let you find comfort in the intestinal tracts of their corridors. She used to talk about them like they were alive, a part of the family as much as a mother, or a sister, or a father. *“Greet them when you enter, say goodbye when you go.”—*that was the kind of respect she used to painstakingly impress on me.
+They cradled you in their bellies, kept you safe within the walls of their stomachs, let you find comfort in the intestinal tracts of their corridors. She used to talk about them like they were alive, a part of the family as much as a mother, or a sister, or a father. *“Greet them when you enter, say goodbye when you go.”*—that was the kind of respect she used to painstakingly impress on me.
 
 My grandmother died when I was nine, so the habit never really stuck. It turned faded and blurry like most childhood lessons tended to, eroded by time to make room for the bare-minimum habits and reckless coping mechanisms of adulthood. It didn’t help that I had no love for my childhood home either; it was a rickety old house that held too many unpleasant memories, and all I ever wanted to do was run away from it.
 
