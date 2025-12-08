@@ -40,7 +40,7 @@ Joey, Ayla, and I trailed after them. When we reached the porch, Joey whispered 
 
 “No way…”
 
-“Sis and I heard him talking to someone out there. When we tried getting a closer look, whoever it was heard us and got away. We figured with the three of us, we could try and see what’s in the woods.”
+“Sis and I heard him talking to someone out there. When we tried getting a closer look, whoever it was heard us and got away. We figured with the three of us, we could try and see what he’s up to.”
 
 ***
 
