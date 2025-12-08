@@ -274,7 +274,7 @@ A hundred feet or so from the cabin, Billy had set up a pile of all the biggest,
 
 I gave him a big hug, thanking him for the best night of my life so far, then we laid behind a fallen tree and I took aim.
 
-The explosion ripped across the forest, shaking snow from the closest trees. I wasn’t the biggest boom, but big enough, and all the fireworks starting blasting off. Colors whizzed and screamed through the trees, rockets wheeled crazily in the sky. It was like some Star Wars shit.
+The explosion ripped across the forest, shaking snow from the closest trees. It wasn’t the biggest boom, but big enough, and all the fireworks starting blasting off. Colors whizzed and screamed through the trees, rockets wheeled crazily in the sky. It was like some Star Wars shit.
 
 For nearly a minute, explosions clapped off all around us, sparks sparkling in every color of the rainbow.
 

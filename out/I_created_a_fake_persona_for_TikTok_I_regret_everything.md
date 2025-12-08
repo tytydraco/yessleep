@@ -110,7 +110,7 @@ My stomach plummeted.
 
 Hands shaking, I opened the video.
 
-Me--*her--*was standing in the dark.
+She was standing in the dark.
 
 In front of a row of townhouses.
 

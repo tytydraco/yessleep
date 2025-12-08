@@ -1,0 +1,21 @@
+In May of this year I had a vision of the future. It wasn't my first time experiencing that. In the last five years I've had to relive sections of my life in short bursts. There were stretches of three to six months I'd relived three times all slightly different. If I ever tried to alert anyone or ask for help. 
+
+The world would darken around me as if God dimmed the lights. I'd feel this wrongness build up inside me. It's as if I was supposed to go through it all alone. I was trapped over and over again, but life goes on. Mentally I've been stretched so thin I feel as I if I may go catatonic. My body is young, but my mind is so old. 
+
+It's all built up now. The accumulation of every mistake I've ever made. Every traumatic event in my life. It's all piled up on my soul like a hoarder's house, full of a bunch of painful memories. All of those memories preserved in garbage. This year was different however. I was finally beginning to find a semblance of control. I wasn't reliving anything against my will anymore.
+
+I was able to see hundreds possibilities of tomorrow become just one or two. I was beginning to feel time's gentle expiration without the fear of repetition. I was finally free from endless cycles of torture reliving my failures and betrayals. Unfortunately I'm selfish. I'm genuinely so goddamn selfish it's disgusting. 
+
+In May of this year. I had a vision of the future. In that vision I lost everything. My home, my wife, my friends. It all crumbled in front of me. It was so vivid that I felt the sting of months worth of pain in that moment all at once. I panicked and told my wife everything. I told my friends and my family. 
+
+They didn't believe me. They didn't listen and then by October everything had come true. I lost everything I had. My wife left me. My friends hated me. My family wouldn't speak to me. I was truly alone. It was the accumulation of thousands of little selfish actions. I'd become detached from the present because I was obsessed with the future. 
+
+This is a confession. I finally figured out how to relive parts of my life on purpose. That taste of the past became my first opiate. I tried in so many ways to find the perfect outcome for my life. I could fix my marriage but then I still lost everything else. I'd maintain my friends but then I still lost everything else. I manipulated the past again and again in little ways. 
+
+I chained everyone around me to my temporal prison. I wouldn't let them go until everything was right. I had to fix everything I broke. Everytime I fail and try again. I waste away more and more inside. I give a piece of my soul with every attempt. I can't change anything really. I can try forever to fix the past, but eventually it all comes to fruition anyway. This life I've curated so carefully through trial and error always crumbles in the end. 
+
+I was able to keep my wife from leaving me and keep my friends. I was able to do right by my family. I was able to finally live in peace. I finally made everything right with the gift God gave me. That was until yesterday. The world dimmed around me. My chest became so tight I thought my heart had finally given out. I knew everything I worked for was about to be taken away. It all fell away at once. Like a spontaneous explosion right in my bedroom. One by one I lost it all in a worse way this time. My friends revealed how much they hated me for my selfishness. My wife told me she never loved me and knew i was changing the past. Everyone in my life called, texted or found me. They all told me they knew what I did and didn't know how. Even after doing everything right. 
+
+I lost it all anyway. I'm sitting here alone in a motel typing this so I don't collapse under the weight of my actions. I'm telling you all this so that anyone who can do what I do doesn't make the same mistakes. I prayed to God and asked what the purpose of my powers were if not to fix my mistakes. 
+
+God answered for the first time since cursing me with this fate. God told me, "Give up". I knew what he meant. I couldn't change certain things, because they weren't meant to be my choice. I'm still selfish though. I'm gonna try one more time. Wish me luck. I hope none of you are getting deja vu.
