@@ -1,4 +1,4 @@
-[Part 6.](https://www.reddit.com/r/nosleep/comments/1own10t/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 6.](https://www.reddit.com/r/nosleep/comments/1own10t/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Final Part](https://www.reddit.com/r/nosleep/comments/1ph4b91/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I followed the glowing nimbus of light that always seemed just out of reach in the distance. I walked on for what felt like hours, never stopping though my body felt exhausted. I just knew I had to reach the top.
 
@@ -52,7 +52,7 @@ The chalk was cold, like holding a piece of ice. Behind my eyelids, I felt wet l
 
 My hand moved on its own, scrawling on the stone above:
 
-"**N A E R Z E**"
+"**N E A R Z E**"
 
 When I finished writing the darkness spoke. It shuddered and tore open, then there was light.
 

@@ -301,4 +301,4 @@ He’s standing just a few feet in front of me now.
 
 I’m going to die tomorrow night.
 
-I need ideas, anything to help. I’ll try anything. Please.
+I need help. Anything. Please.
