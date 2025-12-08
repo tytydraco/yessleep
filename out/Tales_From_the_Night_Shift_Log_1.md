@@ -110,7 +110,7 @@ Rosco leaned towards me, crouching slightly, being that there was a bit of a sig
 
 “HA, no. I wish I did. It would have been cool to meet a talking lion. Thooougghh, I did find a door.”
 
-My interest was slightly peaked, but Rosco stopped talking as the grin on his face grew somehow without dropping the joint resting between his lips. He was definitely excited.
+My interest was slightly piqued, but Rosco stopped talking as the grin on his face grew somehow without dropping the joint resting between his lips. He was definitely excited.
 
 “Well? Did you open the door?” I asked with a bit of actual curiosity lingering in my voice.
 
@@ -174,7 +174,7 @@ Joyous that he managed to get me to at least follow him along to see this myster
 
 “LET’S GET GOIN ABBERS!”
 
-Was I getting tired of his attempts at creating a permanent nickname for me? Yes, but at this point he wasn’t going to listen if he didn’t the last 4 times. I followed him to the back of the store, as I looked behind myself to look out the front door windows to see whether or not there were any people in the parking lot. Didn’t want any potential customers simply walking into an empty store. There weren’t. I turned my head back to see that Rosco had already reached the storage room door, waiting for me, holloring.
+Was I getting tired of his attempts at creating a permanent nickname for me? Yes, but at this point he wasn’t going to listen if he didn’t the last 4 times. I followed him to the back of the store, as I looked behind myself to look out the front door windows to see whether or not there were any people in the parking lot. Didn’t want any potential customers simply walking into an empty store. There weren’t. I turned my head back to see that Rosco had already reached the storage room door, waiting for me, hollering.
 
 “COME ON SLOW POKE, YA WAITING FOR ME TO CARRY YOU THERE?!”
 
@@ -399,6 +399,6 @@ When The Day Manager walked in through the front doors, Rosco sped past him out 
 
 He nodded, then walked to the register to count my till before I left. I watched Rosco drive off in that ridiculous van of his while I waited.
 
-I guess that’s where I leave the story off at, not too interesting, though one thing bothers me about it all. It wasn’t the trapdoor or Rosco’s reaction after he was thrown out, it was..just how the key I used was my apartment key. Weirder has happened, but I can’t really explain it, and I don’t think asking how or why will do any good.
+I guess that’s where I leave the story off at, not too interesting, though one thing bothers me about it all. It wasn’t the trapdoor or Rosco’s reaction after he was thrown out, it was just how the key I used was my apartment key. Weirder has happened here, but I can’t really explain it, but trying to explain a probable paranormal event can be like that, and I don’t think asking how or why will do any good in the first place.
 
 I’m still compiling tales of my time here. Plenty of others to tell as the days go by. I’ll keep this updated, I guess. I have to get ready for another shift.
