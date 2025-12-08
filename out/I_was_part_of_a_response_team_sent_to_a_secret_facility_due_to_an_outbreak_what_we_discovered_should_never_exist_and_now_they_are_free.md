@@ -8,7 +8,7 @@ We touched down just after dawn, the fog sat low and heavy, swallowing sound bef
 
 Coleman informed us about the mission before we entered.
 
-"We are to rescue any survivors, figure out what happened, find the generator room place charges down and escape the facility through the tunnel within the generator room that leads out to the woods," Coleman explained, "The door is locked with a code which I was given, once out the charges should detonate destroying the facility and everything it."
+"We are to rescue any survivors, figure out what happened, find the generator room place charges down and escape the facility through the tunnel within the generator room that leads out to the woods," Coleman explained, "The door is locked with a code which I was given, once out the charges should detonate destroying the facility and everything in it."
 
 when Coleman finished we headed Inside, the power was down. Emergency lights washed the hallways in a suffocating red haze. There was no sound except for the soft hum of our gear and the occasional hiss of steam from broken pipes. The deeper we went, the worse the smell got — burnt flesh, blood, rot, and something chemical that clawed its way into the back of my throat.
 
