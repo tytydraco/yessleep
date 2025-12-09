@@ -1,6 +1,6 @@
 He was just a guy. A regular guy. You probably wouldn’t have noticed him if you passed him on the street.
 
-When I looked at him, though, I could see he was an angel, a sweet fruit that god made just for me. He had the kind of warmth that could make everyone feel comforted and safe just by walking into the room. Getting hypnotized by those soft, blue eyes was like floating in a warm pool filled with cuddly otters while you're being served cake and ice cream on your birthday. Every single person felt like the center of his attention when he was around and it seemed so effortless for him to be adored.
+When I looked at him though, I could see he was an angel, a sweet fruit that god made just for me. He had the kind of warmth that could make everyone feel comforted and safe just by walking into the room. Getting hypnotized by those soft, blue eyes was like floating in a warm pool filled with cuddly otters while you're being served cake and ice cream on your birthday. Every single person felt like the center of his attention when he was around and it seemed so effortless for him to be adored.
 
 That’s why I deserve what happened to me after I killed him.
 
