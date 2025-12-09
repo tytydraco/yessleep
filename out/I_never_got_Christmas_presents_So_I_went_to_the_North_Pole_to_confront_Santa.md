@@ -1,10 +1,13 @@
-When I was twelve, I didn’t get anything for Christmas. I hung a sock by the fireplace like every other kid, heart pounding with hope. I was a good kid that year. Hell, I even saved an ant from drowning that same afternoon. Thought maybe that counted for something. I went to bed dreaming of presents, certain Santa would finally show up. Had a list of what I wanted burning in my head. Next morning, I shot out of bed earlier than ever and sprinted to the living room. That was my first taste of disappointment.. The sock hung there, untouched. Exactly how I left it. My mom shrugged, said maybe Santa got lost. I accepted it. What choice did I have? No crying. No tantrums. I promised myself to be extra good next year. I cleaned my room obsessively. Helped my little sister with her homework like a saint. Didn’t bully a single kid for three months straight. That Christmas, I left out Swiss imported milk and cookies. fancy shit, the kind that costs extra. Nothing.
+When I was twelve, I didn’t get anything for Christmas. I hung a sock by the fireplace like every other kid, heart pounding with hope. I was a good kid that year. Hell, I even saved an ant from drowning that same afternoon. Thought maybe that counted for something. I went to bed dreaming of presents, certain Santa would finally show up. Had a list of what I wanted burning in my head. Next morning, I shot out of bed earlier than ever and sprinted to the living room. That was my first taste of disappointment.. The sock hung there, untouched. Exactly how I left it. My mom shrugged, said maybe Santa got lost. I accepted it. What choice did I have? No crying. No tantrums. I promised myself to be extra good next year. I cleaned my room obsessively. Helped my little sister with her homework like a saint. Didn’t bully a single kid for three months straight. That Christmas, I left out Swiss imported milk and cookies. fancy shit, the kind that costs extra. 
+
+Nothing.
 
 By fourteen, I started to take it personally. Fifteen? I was angry. I wanted to burn it all down.. While other kids bragged about their bikes and consoles, I stood with an empty tree and the bitter thought: Santa is a fucking fraud. That Christmas night, I wrote my own list. Much shorter than Santa’s. Little more personal. In fact, It only had one name on it.
 
-1. The Fat Red Bastard.
+The Fat Red Bastard.
 
-I stopped pretending after that.  
+I stopped pretending after that.
+
 While people strung up lights and sang carols, I did push-ups in a Christmas hat the color of blue.. I didn’t put up a Christmas tree that year. I planted a bamboo pole in the living room and called it “Santa’s wife’s stripping pole.” I made my own holiday sweater that read: “FUCK CHRISTMAS.” Friends stopped inviting me to their parties after I started inviting them into my Anti-Christmas Squad. I didn’t care. I knew I could do this alone. After all, why would they join? They got shit every Christmas.
 
 At seventeen, I’d had enough. I booked a flight to the North Pole with money I stole from Christmas trees. Three years. Living off raw fish. Sleeping in the same ratty tent. Same clothes, same cold, same curse in my head. And then I found it. Nothing but abandoned factories. A dead wreath on a rusted fence. One light still flickering in Toy Assembly Line B. I walked those halls like a detective at a crime scene if the crime was emotional neglect and the perp wore red velvet. Then I saw it: A stack of redirected mail and overdue electricity bills. Forwarded to Las Vegas. That fat bastard. While I froze my ass off eating like a raccoon, he was out there sipping cocktails and sleeping with hookers in AC suites. It didn’t take long to track him after that. The bills, the letters, the old forwarding addresses all of them led south. Way south.
@@ -13,7 +16,7 @@ Turns out, Santa had gone off-grid five years ago. Liquidated the reindeer stabl
 
 The man hadn’t just vanished. He had retired.
 
-I followed the trail through cargo ships, duty-free customs slips, sketchy motel check-ins, and one very drunk elf in Bangkok who swore he saw “the boss” dancing at a strip club called *Tinsel Tits.*
+I followed the trail through cargo ships, duty-free customs slips, sketchy motel check-ins, and one very drunk elf in Bangkok who swore he saw “the boss” dancing at a strip club called Tinsel Tits.
 
 And then there it was. A tip from a disgruntled reindeer wrangler.
 
@@ -23,7 +26,7 @@ I stared at the address for a long time.
 
 This was it.
 
-The journey. The frostbite. Three years in the goddamn Arctic Circle for this.
+The journey. The frostbite. Three years in the goddamn Arctic Circle for this.
 
 I got on a red-eye with nothing but my coat and a Christmas hat soaked in spite. Stepped off the plane, walked through the neon haze of the Strip, and took the elevator up six floors.
 
