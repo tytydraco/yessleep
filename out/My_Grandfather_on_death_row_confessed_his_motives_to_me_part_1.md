@@ -108,7 +108,7 @@ He clenched his fists as if testing to make sure the joints still worked. Then h
 
 “You’re my grandkid,” he said. 
 
-“No. Frank McCallan was your grandkid. I have a new last name because googling that alone shows a crime scene photo of your back yard.”
+“No. Frank M*****  was your grandkid. I have a new last name because googling that alone shows a crime scene photo of your back yard.”
 
 “Blood is blood, Frank.”
 
@@ -125,10 +125,15 @@ I felt my stomach drop, but didn’t understand why. I thought I’d be happy to
 “But I didn’t know you meant-” I stopped myself and breathed. “What time?”
 
 He leaned back in his chair as far as the cuffs would let him and sighed. “My date with the chair is at 6 today….” It was 4:15 when I came in. “Last meal is right after this. I get to have prime rib, mashed potatoes, and my favorite wine. Do you like Chianti? It’s excellent stuff. I had it once with your grandmother when we were in-”
+
 “Wait. Stop! Just stop! I….” I couldn’t even find the words. “What the fuck are you even saying right now?” 
+
 “Language, Frank.”
+
 “Are you kidding me?” 
+
 “Listen, Frank-”
+
 “No, you listen.” I leaned in close to the table and whispered at the loudest possible volume. “It’s been a decade since I saw you last, and longer since you were a meaningful part of my life. Do you know what it’s like to have your father sit you down at the age of twelve and repeat your new last name to you over and over again until you're scared to even think of your old one? When most kids turn 16, they get a car and a girlfriend. Instead of that, I got the nerve to search up your crime scene photos, see exactly what you did!”  He stopped trying to defend himself and looked at me with an unnatural pity. “I mean, killing people, chopping them up… What sick bastard burns his victims with acid? Can you tell me that? How can a man go from picking up his grandkid from youth group and then take him for ice cream when he knows there are bodies in his backyard? Can you tell me that?”
 
 My grandfather sat in silence for a long while before he finally received a tap on the shoulder from one of the guards. 
