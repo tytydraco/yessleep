@@ -71,7 +71,7 @@ Of course, my girlfriend came after me and tried to calm me down, I could barely
 
 I was starting to believe her when I looked down and noticed my girlfriend’s nails were going black and looked dead, her hair dry and breaking off, the opposite of how she usually cares for it. She looked different but the same, like a twin but who had been in the dark her whole life. I knew we needed to get out of here and fast, but I couldn’t convince her. I was worried whatever had taken up residence in my wife would act out, hurt her. So, I compromised on the next morning, just had to get through one more night.
 
-I went to bed scared, scared for my wife and very scared of her, I know she was still in there so I tried to be patient and get us out of here as soon as I could without triggering anything. Slowly through exhaustion, I fell asleep.
+I went to bed scared, scared for my girlfriend and very scared of her, I know she was still in there so I tried to be patient and get us out of here as soon as I could without triggering anything. Slowly through exhaustion, I fell asleep.
 I woke up suddenly, as if someone has thrown water over me. To find Emma not next to me, maybe she was thirsty or went to get something to eat, she hasn’t eaten much since we’ve been here. I stood up to go and find her to make sure she was okay, as I bent down to put on my slippers I thought about earlier that day, how uncanny it had been, there was no way it was a coincidence. 
 
 I had the exact dream and then it came true. I’m not sure what that meant but it freaked me out, a thought flashed through my mind, of a dream I had the night before.
