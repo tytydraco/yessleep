@@ -140,4 +140,4 @@ I did as he asked and we sat down in a booth.
 
 Soon after, the memories came back to him and I learned just what he saw that day. And as it turns out, it was quite a bit weirder than the gargoyles.
 
-It was also how I discovered that our town has a cult.
+[It was also how I discovered that our town has a cult.](https://www.reddit.com/r/nosleep/comments/1pje6b3/i_work_at_a_strange_ice_cream_parlor_my_coworkers/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
