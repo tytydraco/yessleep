@@ -1,175 +1,62 @@
-The nigh day-long bicycle ride through the backcountry to my uncle’s reclusive seaside cabin was a pleasant one, though its conclusion wasn’t lost on me. The wind that July day was the kind that went straight through you, caressing your insides and leaving you a bag of brittle bones in its wake. By the time I arrived at the door my hands had long since gone white, and drowsiness beckoned warmly.
 
-I lingered outside on the porch for a while nonetheless, so that I might take in the lighthouse by the water in all its splendor, and bask in rays of sunshine now ephemeral, the dissipation of their delicate heat into my skin no doubt soon to be thwarted by the incoming evening storm creeping over the horizon.
+Everything hurts. I've long since left the bright, trembling hysteria of pain behind in favor of an opiate blurred acceptance. It pulses under my skin like an abscess with every reluctant contraction of my ventricles. When it's time for my pills, I ask Joey *The Question* again. I even say, "Please?"
 
-Finding the moment just, I decided to give my uncle a call, if only to thank him for lending me the property for my weekend getaway. I spoke to him of the things I’d seen on the way, recounting rolling flowery fields and cotton candy-looking clouds that floated idly by. It was when I made mention of the lighthouse, and how beautiful it was, that he went eerily silent.
+Joey doesn't answer.  His eyes, once bright with laughter are now as blue and vacuous as a cloudless sky. He says, "Sshh," and gives me something through my IV. As I begin to slip into a restless semi-consciousness, I hope that it's enough. Hope. A redundancy that still sparks uselessly between my fried synapses. An involuntary spasm of my wasted heart. 
 
-“R-really?” he finally sputtered.
+Joey pushes the tray table away and closes the laptop where I compile glimpses of my fickle memory during breif moments of clarity. Try to make sense of the senseless. My hands slide away from the keyboard and tumble into my lap. My breathing slows, but not enough, as memories rise like vapors in the swirling darkness behind my eyelids.
 
-“What: *really?*” I asked lightheartedly.
+*Joey's honey-blonde curls are dyed dark like mine, in this one. Junior year, then. He is sitting in the grass holding a guitar and laughing. His hand rests on the slender thigh of a young girl swallowed in the folds of his letterman jacket. Evelyn. The unlikely envy of every bubblegum smacking, glossy-lipped blonde who ever scrawled my brother's name in fervent loops of gel pen pink.*
 
-There followed a lengthy pause. My uncle’s voice was monotone when he answered.
+*Evelyn is smiling. Her overbite dents the pink swell of her bottom lip. Her densely freckled features are mostly obscured by an enormous pair of glasses that she pushes up the slant of her nose every couple of minutes. Joey touches the frizzy halo of mouse-brown hair and kisses her cheek. He presses his thumb and index finger into his palm, pinches the skin, pulls a rose from the drop of blood that forms there.*
 
-“Are you outside, watching it as we speak?”
+*Joey was always good at magic tricks. Taught himself, he'd boast. Evelyn laughs and clutches the thornless rose to her chest. Joey shows her his unmarked palm. I'm getting closer to them. Joey looks at me and smiles, opens his mouth to say-*
 
-“Why, yes,” I replied. “The view truly is something, is it not?”
+"Hey, brother," I slur without opening my eyes. I am swathed in blankets, anesthetic and memory. I wonder if Evelyn can hear me, now. Can any of them hear me? I graze the surface of consciousness but am soon soothed back under, only just,  by the whisper of the ventilators, the murmur of the regeneration tanks, and, of course, the drugs. Another memory rises through the fog of medication, this one's later. Senior year. 
 
-“Describe it to me.”
+*Red and blue lights flicker over Joey's heaving back as he crouches, pleading with god, over a smoldering, shapeless mass crumpled and oozing on the asphault. The air smells of charred meat, burnt rubber, gasoline, ozone.*
 
-“Describe wh-”
+*A man is vomiting in front of a ruined pickup. I'm getting closer. The man is Charlie, Joey's best friend. Blood is running down his forehead from a wound hidden beneath a thick shock of dark hair glittering with tiny shards of broken glass from the shattered windshield of his truck.  He's sobbing desperate apologies, choking on them, as Joey rises and goes to him. At first, I think my brother will embrace his friend, ease his agony. I realize my mistake as he draws back a clenched fist.*
 
-“The lighthouse. Describe it.”
+*I begin to run towards them. The smell of burning hair and sizzling fat makes me queasy. My gorge rises as I notice that the smoking thing on the road is twitching. A whistling sound issues from it, like the air being let slowly out of a balloon. I think I knew then that the charred hunk of meat on the road was Evelyn. Knew it even before I saw the burnt out husk of her Pontiac in the ditch. Even though I've always been bigger, I can't pull Joey off of his friend by myself. The cops have to help me.*
 
-I opted to disregard his sudden peculiar state and play along.
+My body jerks in the bed and my eyes fly open. Someone is screaming over the ventilator. I think it's Mom. I know it's a scream, although it doesn't sound like one at all. Lacks the volume, the vitality of a true scream. This sound is not unlike the one Evelyn made lying on the pavement that night. A series of beeps rise over the sound as Joey presses buttons on the pump, adjusting the drugs. The whistling stops. I don't try to turn my head to look. I can't. Not now. I squeeze my eyes shut and surrender to the dark. Out of it blooms another memory.
 
-“It’s a quaint little thing, light yellow with a tiny window in the midd-“
+*Joey pacing in the hospital waiting room. His skin and clothes are decorated in blood and ash. He clenches and unclenches his swollen hands. I come up behind him, put a reassuring hand on his shoulder. He shrugs me off, whirls around, eyes wild. This night has made the world his enemy. "Don't fucking-" he begins, but is cut off by the double doors swinging open. His head swings around as if it were similarly hinged. The doctor steps in, looks around at each of us and shakes his head in silent apology.*
 
-“With a red cupola and gallery atop the tower?”
+*I remember hearing later that Evelyn's body never made it to the morgue. Disappeared right out of the body bag, according to the hospital transporter. He said he felt the weight of it leave the cart. There one minute, gone the next. Now you see it, now you don't.*
 
-“Um, yeah?”
+*Joey was always good at magic tricks. Taught himself, he'd be glad to tell you, once upon a time.*
 
-“You see it too?”
+When I wake next, it is to the sound of someone crying. Slowly, I realize that it's me. "Sshh," Joey says. He is standing over me holding a syringe. "It's alright, brother," he murmurs from behind his surgical mask. His gloved hand is cold on my shoulder, squeezing, but not to comfort me, not really. Then there's the pinch of the needle, the sting of the drug and I'm floating through the ether of another memory. 
 
-“Of course I see it,” I said, uncertain whether my amusement ought to be concern. “It’s *there*.”
+*Charlie standing in front of a podium in his cap and gown. He clears his throat and smiles but his eyes are empty. Charlie is Valedictorian, now, since Joey stopped going to class, after what happened with Evelyn. He is expected to give a speech. He opens his mouth, and shuts it again. He looks down at his burn-scarred hands. "I-" he begins. His voice is tremulous. Someone in the crowd cheers encouragment and applause ensues. Everyone knows it wasn't Charlie's fault. It was an accident. Almost everyone knows that, anyway.*
 
-Another pause, longer.
+*Joey is next to me. It is the first time I've seen him in weeks. Although he stopped attending classes and extracurriculars, he seems to have found other activities to keep him busy and away from home. My brother remains standing, clapping slowly long after everyone else has sat down. I try to pull him back to his seat but he shrugs me off.  He stops clapping but doesn't sit.*
 
-“Alice... *Normal* people don’t see it.”
+*Charlie seems to shrink into the silence. Finally, he raises his eyes and, I think, he only sees one person in the room. "Joey," he says into the microphone, "I just want to say I l-"*
 
-“You mean, they don’t *notice* it?”
+*There is the shrill keen of feedback, some rogue signal interfereing, just before Charlie slams his own face into the podium. Blood fountains from the ruins of his nose when he straightens his spine. "Joey..." he croaks before he slams his head into the wood again. Someone screams. Ragged, bleeding mouth slack with wonder, Charlie stares at the scatter of his own teeth and blood across his notes, but only for a moment before the next impact.*
 
-“No,” he sighed deeply. “I mean they *can’t* see it. It doesn’t *exist*. I mean it *does*, just not to *them*.” When he felt my confusion he added: “I know this is your first time visiting my cabin, but I can assure you there isn’t supposed to be any lighthouse there. There never was for me until very recently.”
+*Many are screaming now. Myself among them. I am the only one, however, screaming for Joey to stop. Please. Stop. A few move to help but find themselves tossed backwards like dolls. Joey was always good at magic.*
 
-I chuckled to myself.
+*By the time Charlie slumps forward, his face is a pulpy jigsaw puzzle of flesh and blood marinated in the vitreous humor of the exenterated globes that were once a pair of warm, brown eyes. As a riot of bone fragments, teeth and silver globs of wobbling brain tissue tumble from the fractured skull of his one-time friend, Joey finally sits down and smiles.*
 
-“Perhaps they built it over the winter,” I offered. “After all, you only just opened up the shack for summer last week. You’ve been away in the city the remainder of the year.”
+*Charlie never made it to the morgue, either. Abra fucking cadabra.*
 
-“No no. Nobody ever built it. It doesn’t *really* exist!”
+Pain, a shreiking phantom, yanks me into a rare lucidity, a reality scintillating with white hot agony. My eyes open to the pale sterility that is my home, now. Then my mouth opens, screaming. A true scream. Not a whisper, not a whistle. The vacancy that my legs and pelvis once occupied is filled with invisible razors, needles, knives. Every sharp, mean, unfeeling thing. I shreik helplessly at the jumble of tubes that snake out of my limbless abdomen, collecting my waste, filtering my blood. 
 
-“I’m *not normal* then, am I not? Seeing as I’m seeing it...”
+For me, it was an accident at my construction job. The temp agency crane operator was strung out, that day. I wasn't quick enough to dodge the fumbled support beam that crushed my lower half.
 
-“Well, you’re the only other person I know who has.”
+For Mom, cancer. Tumors. Her lunatic cells continue to divide in the bed next to mine. Her flesh is kudzu, climbing over the edges of the mattress, trailing along the floor. Perhaps Joey sees potential there, for the things in the regeneration tanks. 
 
-“Uncle Barry, is everything okay? You’re scaring me.”
+In one, whats left of Charlie bobs like a cork in a viscous, pale green stew. It would seem that Joey was able to salvage enough of his friend's gray matter so that he screams forever. Toothless. Soundless, with the liquid and glass buffer of the tank he is suspended in as he regrows his skin over and over. Although, when it's time for him to come out, to be burned again, then, we hear him. Joey needs the skin to be perfect. Nothing less than perfection for her. 
 
-Was this some attempt at a ruse? I’d never known my uncle as being much of a trickster.
+In the second tank, the tangle of sinew that once was a girl with frizzy, mouse-brown hair and an overbite, sleeps, skinless, at the bottom. She waits for Joey to teach himself the magic of medicine. Of stem cells, of stolen skin, of rebirth. 
 
-“Further, the family came along with me last week,” he persisted as though I hadn’t spoken.
+Joey's gloved hand is cold on my forearm as he pushes the medicine into my IV. 
 
-“Pardon?”
+"Joey," I say, and then I ask him *The Question*. "Will you let us go? Please?" I suppose it is a euphemism, but he knows very well what I mean. 
 
-“The lighthouse, it isn’t new, in fact it’s surprisingly old. My family, they were with me.”
+"Sshh," Joey says. "It's alright,brother."
 
-I shook my head.
-
-“And what did they have to say about this?” I queried sternly.
-
-“Oh, God forbid they ever find out about the lighthouse!”
-
-“So you’ve not talked to them about it at all?” I exclaimed.
-
-“Most certainly not. I was... *prepared*. Quite serendipitously so too.”
-
-“Prithee, tell me why not,” I responded sarcastically, frustrated by his seemingly purposeful lack of clarity.
-
-“It’s best they not find out about it, lest the lighthouse reveals itself to them as well. We were all present, yet the lighthouse only became visible to me, the sole individual who knew about it beforehand.”
-
-Waves crashed and washed away rhythmically off in the distance, severing my uncle’s words and rendering them more incoherent than they already were.
-
-“How can one have knowledge pertaining to something no one has seen?”
-
-“As I said, I was somewhat prepared, hence me not telling them about it.”
-
-“I don’t imagine seeing a lighthouse is the most special of events, and could see seeing one not cropping up in conversation. How are you to know your family didn’t see it?”
-
-“They didn’t.”
-
-I felt exasperated, the migraine that had pestered me since dawn now exacerbated by a discussion resembling more a merry-go-round than it did an actual discussion.
-
-“You fear telling your family, yet here I stand, beholding a lighthouse I knew nothing of. How can your theory thus possibly hold?”
-
-“Listen, I get that you’re ups-“
-
-“And whatever would you be trying to achieve in the first place, sparing their eyes from something as innocuous as a lighthouse?”
-
-“I really can’t explain...”
-
-“Then *try*.”
-
-It felt to me he was beating around the bush, stalling, like there was something more.
-
-“I probably shouldn’t.”
-
-“Fine,” I said. “I think it’s time I went to bed...”
-
-My uncle sighed again, clearly ambivalent about something.
-
-“Alice, you see, the hut’s been in the family for centuries. For generations it’s been the place where our ancestors spent their summers. And of them all only one ever wrote about a lighthouse in a dusty journal I happened upon in the attic. A lighthouse that appeared overnight, one that only he could perceive. He said everyone thought he’d gone mad.
-
-“Naturally I didn’t believe a word of it either, but studied the entries regardless, and from those unknowingly gathered enough to be prepared for when I would eventually see it for myself, not that I expected I ever would.”
-
-“I’m... I’m not sure I follow...” I began. Nonsensical and lackluster though my uncle’s postulations were, there was a seriousness underlying them that simply couldn’t be ignored.
-
-“That written account is precisely a hundred years old, but that’s not all. I found a discarded painting, caked in cobwebs, predating the journal by another hundred years. It’s a depiction of a lighthouse. *The* lighthouse. It reoccurs periodically. So it appears.
-
-“I need to know now, the door at its base, is it open? Is the entrance open?”
-
-Asking why he took interest in something as mundane as a door was pointless. I didn’t much care. I simply peered at the lighthouse, at the doorway facing me.
-
-“It is indeed, happy?” I said. Had it been open from the start? I’d been outside for so long I could no longer remember.
-
-“Oh. I see.”
-
-“What?” I pressed.
-
-“Well.”
-
-“Will you quit keeping things from me!” I snapped.
-
-“The Keeper.”
-
-“Huh??”
-
-“The Keeper’s coming for you. Once the door is open, it means the Keeper’s seen you.”
-
-“Who?”
-
-“*The lighthouse keeper.*”
-
-“Who’s that?”
-
-“It’s what inhabits the lighthouse. A curse that runs in our bloodline. Alice, I’m so terribly sorry, but there’s absolutely nothing you or I can do anymore. It was meant to be me, but I ran, managed to get away in time.
-
-“I’d understood from reading the journal that the door isn’t always open. Once it is however, that’s really all she wrote. Our ancestor’s writings spanned over a handful of days, time during which he described the lighthouse and unsettling visions he was having. In his final entry, he stated that something had changed: the door had mysteriously been opened.”
-
-“What’s any of that got to do with me?” I blurted out after fruitless reflection.
-
-“Granted few and far between, it’s well known within the family that over the years there have been... acciden- *No*, fuck this, I can’t...” My uncle stopped, audibly overcome with emotion.
-
-The sun suffocated in a thick veil of grey then, and the cold swooped down on me with great fervency.
-
-“*Uncle Barry?*”
-
-I waited anxiously, the questions swirling around in my head plenty.
-
-This seemed real enough. The lighthouse was, wasn’t it? I mean, obviously it was real. After all, there it was, right? Right *there*. But was it *real* real, the type of real my uncle propounded it was? The type that wasn’t *really* real for most but for some was? Was that really what it was?
-
-Was the Keeper *real* too? And what if the Keeper was?
-
-I didn’t want to talk to any keeper. I didn’t want to be disturbed while on my solo break. I didn’t wa-
-
-“I didn’t want it to be one of my children,” Barry continued. “I knew it was merely a matter of time before it revealed itself to someone else, given that I would never return. So I sent you there under the pretense of spending a nice relaxing weekend. *Fuck*. I’m so- I- Fuck, fuck, fuck, fu- *What the hell have I done?*“
-
-His breaths were heavy. Short. Almost mimicking the ocean’s to-and-fros.
-
-A sniffle. Another sniffle. More sniffles.
-
-Quiet. How I detested that. In it I tried drawing some semblance of sense from the mess my uncle had laid out before me, to no avail.
-
-“I hope you can find it in you to forgive me,” were his parting words, and swiftly he hung up, leaving me alone with the wind and its hardly comforting touch, on a beach with a lighthouse bearing some degree of existence.
-
-&nbsp;
-
-&nbsp;
-
-I didn’t know just what to do then, and so frantically I wrote, before darkness swallowed the world and I was unable to see the lighthouse and its gaping door anymore.
+My breathing slows, but not enough. Before my eyelids become heavy with sedation, I watch him approach Evelyn's tank. His shoes crush the dessicated plant matter that surrounds it. He pulls a rose from the palm of his hand, and lets it fall. He kisses the glass.
