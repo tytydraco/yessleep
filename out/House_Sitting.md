@@ -1,137 +1,18 @@
-I'm a broke college student. The master's program I'm in is really demanding so trying to work at the same time is impossible. Instead of having a set schedule I house sit, pet sit, and dog walk for cash. 
-
-A couple of weeks ago I was asked to house sit for what was basically a small rural farm. The couple that reached out had goats, rabbits, dogs, cats, and reptiles and wanted to know if I would be comfortable house and pet sitting for two weeks. We discussed the particulars (money, dates, etc.) and before I knew it, I was getting my tour around the property. 
-
-The wife (let's call her Cristy) explained feeding instructions and each animal's preferences as we walked the property. I also had incredibly detailed, handwritten instructions in case I forgot anything. Cristy was a bit fussy, but I could tell she was just nervous. 
-
-"I'm sorry I'm being so... specific with everything." Cristy said, apologetically "We havn't been able to take a vacation in a long time and I always worry about leaving the animals. The last girl we hired was horrible! We left for a week, and she only came twice! I couldn't believe it! If we didn't have cameras we never would have known!"
-
-I agreed that that was horrible, thinking maybe the person they hired was just a teenager or something. I let Cristy know that wouldn't happen, and if she checked her footage, she would see me. 
-
-"Oh, I know, I feel better about you than the last one. It helps that you had a pile of positive reviews I could read, and re-read, and read again." She laughed awkwardly as she said this. 
-
-After the tour I was given the keys, tons of emergency numbers, and orders to call her if I needed anything. Since where they lived had little to no cell service, she told me I would likely have to use the landline. 
-
-The first couple of days went off without a hitch. Wake up, feed animals, clean up after animals, study for class. Rinse and repeat. It was when Monday rolled around that things started getting a little strange. 
-
-The morning was normal, when it was time for me to leave for class, I followed the instructions I had been given. Put the dogs in their kennels with a treat, make sure the cat is locked in the bathroom, put on music for them, ect. Then I locked all doors, closed the gate behind me and headed out. 
-
-I got back in around 6, not quite dark yet but the sun was on its way down. I hurried to feed the outdoor animals while there was still light then I headed into the house. I let the dogs out then moved over to the stairs, thinking I'd change into my pajamas before doing anything else, but when I turned to face the stairs, I noticed a light was on in one of the rooms. I feel something icy stab at my heart. 
-
-I didn't leave any lights on. At least I don't think I did. 
-
-I grab one of the dogs, the bigger of the two, a tall, lanky black dog (Kana), and I head upstairs; certain that when I rounded the corner into the bedroom someone would be standing there waiting for me. 
-
-When I entered the room, it looked the same as how I had left it; except that one of the lamps in a far corner was turned on. I walk over to turn it off and realized it was a touch lamp, meaning it can only be turned off or on by a living thing touching it. I tap it until it turns off.
-
-Scared, I pulled out my phone and call my boyfriend. The call doesn't go through, it can't connect, I have no signal out here. 
-
-I grab the house phone off the dresser and dial the number, my heart pounding. 
-
-Do do do! "We are sorry, you are now required to dial an area code, even for local calls. Please hang up and dial the full 10-digit number."
-
-I hang up and try again, punching in all 10 digits. I get the same message. I think about calling 911, decide I'm being dramatic, and I set the phone down hard into the receiver. 
-
-"Ok, nothing has really happened yet, it's just a light on. It's fine. You're fine." I say, trying to give myself a pep talk but knowing that something feels off. 
-
-I decide to search the house. It didn't take me long. The downstairs is one large room that includes kitchen, dining, and living rooms with a bathroom scrunched under the stairs. The upstairs has only two rooms, a "man-cave" like room with a projector and surround sound and the room I was staying in, the master with its on-suit bathroom. 
-
-I move through the house, checking everywhere I can think to look and there's nothing. Not even a sign that someone had been there other than me. 
-
-I tell myself I've over-reacted and start Googling how a touch lamp could malfunction or turn itself on. A lot of the sites tell me one of the dogs must have touched it without me knowing, but they were still in their crates when I got home, and I know I checked that all the lights were off before leaving. Nothing on Google makes me feel any better.
-
-I did not want to go to sleep that night, I've seen way too many horror movies and had convinced myself there was someone hiding in a crawl space, waiting to kill me. Or that more likely someone else had a key to the house and could come in any time they wanted, like when I'm asleep and helpless. 
-
-I stayed awake as long as I could but must have drifted off at some point as I was woken suddenly by the sound of something pounding on wood. 
-
-The room was dark, had I turned off the lights? I sat bolt upright in bed and looked over to the double doors that separated me from the on-suit bathroom. They were moving... or tremoring would be a better word. 
-
-They were pocket doors, the type you slide into the wall to open. I noticed then that there was tape holding them shut at the top. The bottom corners of the door alternated in and out at me. It sounded like someone was pounding on them, hard, and the wood was shaking violently like it might splinter. Like the doors may fly off the tracks.
-
-I froze in place, thoughts coming fast, "Oh God, I was right! Someone's in here with me." I screamed in my head. 
-
-Then I heard what sounded like "Hello"
-
-I screamed and hurled my body out of bed flicking on the lights and pressing my back to the wall, when the voice rang out again, this time sounding more like "Mellow" then "Mell" then "Mew"
-
-It was the cat. It sounded like the cat. Had it always sounded like the cat??? As the mewing continued, I caught my breath. 
-
-The pounding on the door stopped. The doors stood silent and still. 
-
-I shouldn't have opened the door. Anything could have been behind it. It was stupid to open the door, but something compelled me to, like I had to prove to myself that it was just the cat. That all my terror had just spilled over from a dream I'd been having. It was just a cat who wanted to be let out. A cat that wanted attention.
-
-I peeled the tape securing the top of the door slowly off, took a deep breath, and slid one of the two doors open. 
-
-The cat darted out, leaving only a pool of darkness behind it.
-
-I turned the bathroom light on, but just like with the lamp earlier there was nothing to see. No one there. No reason for me to be afraid. 
-
-The cat must have just...forced its way in... despite the tape holding the doors shut. Despite the fact that it couldn't get itself back out. Despite the fact that I distinctly remember closing her in the downstairs bathroom for the night. The other bathroom having a normal door with a round handle that she couldn't possibly have turned. 
-
-I closed the doors, put the tape back, and spent the rest of the night in the middle of the bed, sat up, hugging my knees, with every light in the room on. 
-
-When morning came, I couldn't get out of that house fast enough. Again, nothing substantial had happened to me but I was beyond freaked out. Was this why the other girl had left so soon? Did something worse happen to her?? 
-
-As soon as the sun was up, I fed all the animals, locked everything up and went to class. I arrived 6 hours early, but the day still managed to slip through my fingers, and before I knew it, I was sat in my car trying to think of excuses to not go back. After turning it over and over in my head I realized if I waited any longer, I wouldn't get back until after dark. Not only would that make it harder to feed everyone (they didn't have much outdoor lighting) but the light of day just felt...safer. 
-
-When I get to the house I start with the outdoor animals again, then stood at the front door fidgeting with the keys, not wanting to go inside. 
-
-Things seemed normal this time. Everything was how I had left it, no lights on, no animals in places they shouldn't be. I turned on every light in the house and tried to busy myself making dinner. 
-
-I was standing at the stove, when out of the corner of my eye I see a shape. A person is sitting on the couch. A tall, thin, black shadow is just in the periphery of my sight. I jump back, yelp, and turn to face the thing. 
-
-It turns its head slowly to meet my gaze. 
-
-It's the dog. It was Kana. 
-
-"You scared me, Kana!" I said aloud, clutching my heart and taking a breath. 
-
-She smiled at me then. Like a dog would "smile" but it seemed to stretch too far. There were too many teeth. Her tung lulled out the front of her mouth, and she continued to grin at me. Feeling uneasy I turned away. 
-
-"She's just a dog" I thought "What the hell is wrong with me."
-
-After dinner, I'm getting ready for bed when I start to hear a tapping noise. A thunk, like someone gently tossing rocks at a window, or like hail hitting a skylight. 
-
-It's faint at first, and then louder as I move through the house looking for its source. I look in the master bedroom last, thinking of the previous night and not wanting to go in. 
-
-I flicked on the lights and found a little brown bird on the windowsill, a sparrow maybe? It was badly injured, one wing bent at an unnatural angle, legs limp and useless, blood smeared all over the sill and the window. It was throwing itself against the glass, frantically, over and over. Like if it flailed hard enough it would escape. Like it knew it was still in danger and needed out of the room. 
-
-How had it gotten in? Its winter, I hadn't opened a single window, hadn't left any doors open. I look around the room for a blood trail. Evidence that this might just be the cat again but there was nothing. It was like it had been mangled somewhere else and then plopped in front of the window. 
-
-I tried to pick the bird up, tried to be gentle, as it flicked blood across my face. I didn't know what I would do with it, but I had to do something. Then all at once its body gave out, the pulsing of its chest stopped, the flailing stopped, and it lay there. Motionless. Quiet. 
-
-I took the bird to the outside trash, dogs jumping and trying to get at it the whole way. Kana trying to lap the blood off my face. As I walked, I thought about the cameras. There was only one that I could see in the house, but maybe something was on it. Maybe there were more I didn't know about. Maybe they caught something that could tell me I was really being crazy. That a person hadn't come into the house just to turn on a lamp, lock a cat in a bathroom, and leave a dying bird on a windowsill. 
-
-Reluctantly, I walk back into the house and call Cristy. When she answers she sounds terrified. 
-
-"Is everything okay?!" are her first words. I steady my voice and explain that everything is fine, all the animals were doing well. I was just calling because the cat had managed to get out of the bathroom somehow. I was certain I had closed the door properly and wondered if I could take a peek at the camera footage to see how she had escaped. "Or if you could look at it" I back peddled, realizing that a loose cat didn't sound like a good enough justification for me to look at their security footage. 
-
-'At least if she looks at it and sees some weirdo in the house, she can tell me, and I could call the cops.' I thought.
-
-"Oh, that's so weird! she's never gotten out before." Cristy said, "You probably just didn't shut the door all the way. Did you find her chewing on anything weird?"
-
-I reiterated that I was sure I had closed the door, and that the other reason I wanted the footage looked at was to make sure she hadn't eaten anything she shouldn't have. "Really, even if you would just take a look at it..." I started to say, but she cut me off, saying it was fine and gave me all the information I would need to access the footage on their laptop. 
-
-I thanked her and told her I'd call back if I found anything. 
-
-I booted up the laptop on the dining room table, followed the steps I had been given and opened to several recordings of footage. I started with the day I had come home to see the lamp on. The footage came up in two separate boxes, showing me a view of the living room and another of the driveway. The footage started at midnight, and I began to fast forward. I saw myself come downstairs, start the day, get ready for class, put the animals away. As soon as I saw my car back out of the driveway, I slowed the footage down a bit and waited. 
-
-Time passed, no one came up the driveway, I watched the dogs chew on their toys... Wait. The dogs. Something's wrong. 
-
-I brought the footage down to normal speed and squinted at Kana's kennel, it was large but entirely made of small metal bars so I could see every move she made. Her body twisted unnaturally. A leg jutted out at an angle it shouldn't have been able to. Her head snapped back. Fully back, to lay flat against her spine. 
-
-I exited out of the driveway footage and made the living-room full screen. Kana was...writhing now. Her small, lanky frame seeming to boil and expand. The inky blackness of her fur filled every inch of the kennel. 
-
-Then a long, thin, black arm sprang out from the front bars. It fiddled with something on the front of the cage, then Kana, or what had been Kana, came spilling out of the container. 
-
-The footage wasn't amazing, but even with the cheap camera I could tell that whatever came out of that kennel was too big. Too full. Impossible angles and blackness were all that could be seen of what was once a dog. It moved forward, a large mass of black being pulled by long spindly arms. They reached straight out the front of it, dragging a plump body behind. Furniture skidding out of the way as it pulled itself past. 
-
-It moved to the stairs, and then it was gone from view. 
-
-I start to fast forward the footage again when I start to notice a sound. A cracking. A snapping like a bone being broken in two. Then more snapping. Something was growing behind me, blocking out the light, casting an enormous shadow over me. Over the laptop. I heard the skid of furniture across the hardwood floor as the shape grew.
-
-I scrambled up from the chair, flinging myself away, towards the front door. Heart pounding in my ears, whole body shaking. I looked in the center of this... thing... of Kana. She was grinning at me again. This time teeth migrated horizontally across the entire length of her. The enormous, smiling mouth opened and its tongue came rolling out, long and looking impossibly red against the pitch-black background.
-
- I ripped the front door open as fast as I could and slammed it behind me. Backing away I can see the shape pressing into the window over the door, tongue dragging back and forth and teeth clanking against the glass.
-
-My keys are still in the house. I don't know what to do.
+A couple of weeks ago I saw an advertisement online for a house sitting job, it was 200 dollars for a single night. This seemed like an easy enough job, I wasn’t short on cash but 200 dollars for such a minuscule task was too good to pass up. I sent the poster a DM and I got the job. He sent me his address, it was on reservation land in a small collection of houses. It was about an hour drive from where I lived. I had brought a toothbrush, some toothpaste, my phone, a charger, and my wallet. Just the bare essentials. When I arrived at the house I made sure to double check the address, it was a nice area, the house was reasonably large with a flat roof and a nice patio. It was a bit separated from the rest of the neighborhood by about 300 feet. I parked my truck in front of the house, an old red Toyota pickup I had gotten from my Grandfather when I was 16. While looking at the truck the homeowner came out of the house, catching me off guard. He was a short elderly gentleman with greying black hair, he looked around 70 or so. He said hello and beckoned me inside. I told him that I saw his Ad and was here to house sit, he looked confused for a moment and then laughed, “ah yes, I thought you’d have come later, I’m going to be gone until around 8:30 tomorrow morning, feel free to help yourself to anything in the house.” He paused and sat up. He walked over to his bedroom and then came back out into the living room. He handed me a box of incense, “lavender,” he said. “Just as a little gift, they smell very nice, I’d prefer you not light them in the house though.” I looked at him with a smile and thanked him. I wished him a nice night and he left shortly after.
+By now it was about 5:30 PM, I started exploring the house, I’ll try to describe it to the best of my ability here; it was probably around 4000 square feet. The front door opened to an expansive living room with no television but lots of seating and a nice wood coffee table in the center. On the left was a small kitchen with a sink, refrigerator, stove, and a microwave that looked older than time itself. It had a small table with two chairs and no tablecloth. On the right of the living room was the main bathroom and next to that bathroom was a large walk in closet. To the right of the kitchen was a hallway that led into two small bedrooms with twin sized beds, I only went in once to explore that area and it was pretty dull. Now when you open the front door into the living room there is a wall, there are two doors on that wall and they both lead into the master bedroom, one is near the hallway and the other is near the closet. This is where he told me to sleep. Now these doors were interesting, not only were they half doors (two small doors that fit into one doorway) but the distance between them and the floor was pretty large, I want to say 3 inches off the ground, I couldn’t tell if it was a design choice or served some purpose, regardless this is important. In that master bedroom there are four paned windows that look like they hadn’t been opened in ages, they swing out into what they overlook; a tall grassland with the occasional pine tree cluster, it was beautiful. On the left there was a very small bathroom with only a toilet and a small sink, the door could be locked from the outside by the house key.
+After my little exploration, at around 6:00 I decided to eat. I looked through the fridge and nothing really stood out, he had some bread, milk, a few different meats, exedera. I ended up making a few BLTs for dinner. It was at this point that I finally went on my phone and to my disappointment there was no service whatsoever, not even the “SOS” icon which was frustrating. I really just messed around with offline games until about 10:00 PM and then finally went to bed.
+4:32 AM. I very vividly remember the time. It was dark outside and the only light in the room was faint moonlight and the alarm clock. I stirred and the incense box that the homeowner had given me rolled underneath the door to my right. It took me a second to register what just happened and I shot up instantly. I stared at the box. That was impossible. I had left it on the coffee table. Was someone in the house? 
+I debated on what to do and ended up pushing it back underneath the door carefully. This was a test, if there was someone in the house they already knew I was in the room which is why they would’ve pushed the box under the door in the first place, they’d either leave, push the box back, or breach in and shoot me in the face. Nothing happened and I obviously couldn’t sleep now. I sat on the bed staring at the crack under the door.
+4:55 AM and I’m still staring when I hear a faint noise behind me… breathing? I shoot around and it’s a dog. It’s a medium sized, black, hairy dog. It could have been a coyote but its fur suggested otherwise. Did the dog push the incense under the door? Wait how did it get in? It looked at me, neither of us moved, I had explored the whole house there was no dog. It looked unnatural in a way… like it was straining. Its mouth opened slightly revealing teeth that were… wrong. I tackled it, it made no sound, we thudded to the ground. It didn’t react. I put it in a rear naked choke and it went out cold. I moved it into the bathroom and locked it with the house key. I sat in the bed in a mix of confusion and fear. It was at this point in time that I noticed scratches on the windows, it looked like someone had scraped knives against the glass. Why? Was this a Strangers situation, was I being messed with just to be killed?
+20 minutes had passed. What could I even do? I had to get to the car, my gun was in the car, hell I didn’t even need the gun I could just run, this wasn’t worth 200 dollars… did the old man know? Was this him? If I went out the window would- the incense was pushed back under the door. I stared at it for what seemed like forever. 
+I leaned off the bed and reached for the box. A black cat ran out from under the bed, I recoiled instantly. Just like the dog, it sat and stared. Unlike the dog it seemed… predatory. 
+It jumped at me, I ducked. I heard the thud behind me. I turned. It was… gone. “what the hell” I whispered. I got up out of bed completely and grabbed my phone, yes I’d call the police! No signal.
+I sat on the bed and stared at the creamy white wall illuminated by the moonlight. I began to break down. Was I hallucinating? What was happening, this wasn’t a normal break in situation. I thought for a moment then remembered the bathroom! I could go out the bathroom window and get to the truck, get to my gun! But the “dog” was in the bathroom wasn’t it? I peeked under the door crack, actually the dog was not in the bathroom which was actually worse. How is that possible?
+As I am laying belly down on the floor peeking into the bathroom, I heard a scratch on the window just a few feet away. I froze. After around thirty seconds I bolted up with my hands at waist height, there were more scratches but this time, to my horror they were on the inside. I looked around, then moved over to the window and  put my face up to the glass. It was cold. I felt something hit my foot, I jumped. It was the incense. “SH*T DUDE WHAT THE HELL!” I screamed.  This wasn’t an intruder, no normal person is feasibly capable of what was happening in that house. I ran over to the nightstand and ripped my wallet and car keys from the wood. I stuffed them hastily in my pocket and kicked down the bathroom door. Nothing in it, no trace of the “dog”. I climbed up on the toilet and ripped the mesh off the window, throwing it onto the ground behind me. It was tight, I might not fit. I took a deep breath and hoisted myself through the window, landing with a thud into the grass.
+I collected my bearings, it was dark as hell but I was not by any means going to turn my phone light on. I began crouch walking through the grass towards the front of the house. “Come on, come on, come-“ my whispering was interrupted by a horrifying screeching sound followed by what must have been ten others. My hair stood up and I sprinted, I had never run so fast in my life.
+I smacked into my truck and unlocked just the driver seat door. I clambered in and locked the door behind me. I opened the armrest and grabbed the gun, a Springfield Armory M1911 in .45 auto, I left it on my lap, I wasn’t convinced it would stop whoever… whatever, was after me. I started the car, I didn’t even turn the lights on I just backed up in the dark. I got into the main area of the neighborhood, more screeching from the grass in the distance. “PLEASE GOD OH PLEASE GOD,” I floored it. I sped 95 miles per hour out of the residential area and onto the main road.
+I finally turned the lights on and constantly checked behind me on my way home. I made no stops and drove far over the legal limit the entire way. I still can’t wrap my head around it even now. By the time I got home it was 6:40 AM or so. I hastily unlocked the apartment door and triple locked it behind me, lock, chain, and bolt. My girlfriend walked out of our room, drowsy. “What the hell, I thought you were doing a thing,” she yawned.
+I broke. I ran right to her and put her in a tight hug. She was surprised but embraced me shortly after.
+I didn’t sleep the next night, or the one after. 
+I had sent the old guy an email, I did not detail the events, just that I was unable to complete the task and that I was willing to compensate him for the broken bathroom window, he never responded.
+Like I said it’s been a few weeks at this point. I’m unsure whether I’m safe or not. I still can’t explain the events of that night. I never called the police and I never heard back from the old man, everything has been normal since, but I think I’m done taking odd jobs now.
