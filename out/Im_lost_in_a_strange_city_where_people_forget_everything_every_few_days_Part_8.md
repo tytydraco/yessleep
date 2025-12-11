@@ -66,7 +66,7 @@ I don’t really remember much after that for a little while — just the most b
 
 At first, I almost thought he was dead. When I checked him, though, he was breathing, so I did the only thing I could: I grabbed the umbrella, and then I rushed him to the hotel, before I risked anyone finding us at the scene.
 
-After that, he just laid there on my couch. He looked exactly like that woman did — eyes open, blinking, breathing, but saying nothing, not even watching me with his eyes if I moved. Just laying there. I can’t get the image out of my head, no matter how hard I try. I tried to snap him out of it every way I could, but nothing worked. 
+After that, he just laid there on my couch. He looked exactly like that woman did — eyes open, blinking, breathing, but saying nothing, not even watching me with his eyes if I moved. Just laying there. I can’t get the image out of my head, no matter how hard I try. I tried to snap him out of it every way I could, but nothing worked.
 
 And then the exhaustion set in. I tried to fight it, to fight the reset, but it was useless just like always, and I woke up in my bed this morning, and when I went to look for him on the couch, he was gone. Of course.
 
@@ -78,4 +78,4 @@ I’ve feel like I’ve replayed the conversation we had in my head a million ti
 
 It’s almost noon. I really shouldn’t be posting now, but I feel like I need to get this out there. One day I’ll just have to combine days of my writing again so I can get my allowed submission time a little earlier in the day.
 
-I know this post isn’t like most of the others; it’s not as well written, it’s not as detailed, and it’s not as organized, and I’m sorry about that. I know a lot of people here probably look forward to that in my posts, but I can’t focus right now— not enough to do things the way I usually do. As it is, I’ve had to rewrite this at least four times just to try to make it more coherent. I’m worried. I’m scared, and even though I know what I need to do, I don’t know how I’ll live with myself if it turns out that he isn’t alright anymore — if I don’t get the chance to tell him I’m sorry. 
+I know this post isn’t like most of the others; it’s not as well written, it’s not as detailed, and it’s not as organized, and I’m sorry about that. I know a lot of people here probably look forward to that in my posts, but I can’t focus right now— not enough to do things the way I usually do. As it is, I’ve had to rewrite this at least four times just to try to make it more coherent. I’m worried. I’m scared, and even though I know what I need to do, I don’t know how I’ll live with myself if it turns out that he isn’t alright anymore — [if I don’t get the chance to tell him I’m sorry.](https://www.reddit.com/user/SoLostInAStrangeCity/)
