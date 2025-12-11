@@ -284,11 +284,11 @@ And I saw her.
 
 She was standing in a corner that shouldn't exist. A fold in space where the walls met at an angle that violated geometry. She was old—impossibly old—but her eyes were young. Bright. Aware.
 
-"You brought him," she said. Her voice came from everywhere and nowhere. "The latest candidate."
+"You brought her" she said. Her voice came from everywhere and nowhere. "The latest candidate."
 
-"He wants out," Miriam said. "He wants to keep his humanity."
+"She wants out," Miriam said. "She wants to keep her humanity."
 
-Dvorah looked at me. Through me. Into me. "No, he doesn't. He wants the power. He wants to matter. He wants to be more than human."
+Dvorah looked at me. Through me. Into me. "No, she doesn't. She wants the power. She wants to matter. She wants to be more than human."
 
 "That's not true," I said.
 
@@ -316,11 +316,11 @@ Miriam grabbed my arm. "Don't. Please. You're not thinking clearly. The essence 
 
 "How do you know? You've known me for six months. You don't know who I was before. You don't know what I've always been."
 
-Dvorah smiled. It was sad. Understanding. "He's already chosen. The moment he absorbed the first piece of essence, he chose. Everything after that has just been momentum."
+Dvorah smiled. It was sad. Understanding. "She's already chosen. The moment she absorbed the first piece of essence, she chose. Everything after that has just been momentum."
 
 "There has to be another way," Miriam said.
 
-"There is. But he won't take it. Because it requires sacrifice. Real sacrifice. Not the kind where you give up something you don't want anyway. The kind where you give up everything you've ever wanted and become less than you are."
+"There is. But she won't take it. Because it requires sacrifice. Real sacrifice. Not the kind where you give up something you don't want anyway. The kind where you give up everything you've ever wanted and become less than you are."
 
 She looked at me. "I can make you human again. But you'll remember what you were. You'll remember the power, the perception, the ability to stand before gods. And you'll spend the rest of your life knowing you gave it up. Knowing you chose weakness over strength. Can you live with that?"
 
