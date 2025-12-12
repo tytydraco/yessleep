@@ -78,8 +78,6 @@ He walked over and bent down to look at me, Daisy following close behind. I coul
 
 *What the fuck is a familiar?* Before I could hear any more, everything went black.
 
-
-
 I woke up to fluorescent lights and the sound of a beeping monitor. The metallic taste of blood still hung in my acrid mouth. Looking around, I realized I was in a hospital bed. There was a large bandage on my neck, right where Daisy had bitten me. Someone came up to me and handed me my glasses. Once I put them on, I realized, to my horror, who the person was.
 
 “Good afternoon,” said Lord Cyrus. “Mr. Grant, is it?”
@@ -128,3 +126,4 @@ Of course I said yes. What other choice did I have? 
 
 Seven years later, and I still cannot put into words how desperately I wanted to scream.
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/1pkj08k/my_bosses_arent_just_insufferable_theyre_not/)
