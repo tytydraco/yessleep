@@ -78,6 +78,4 @@ If anyone who knows me sees this, please don’t tell Lacey. I wouldn’t want h
 
 I’ll let you all know what I find.
 
-(Next part: [https://www.reddit.com/r/nosleep/s/M2U3w37EdW](https://www.reddit.com/r/nosleep/s/M2U3w37EdW))
-
-(Previous part: [ https://www.reddit.com/r/nosleep/s/SglAbYz1rh ](https://www.reddit.com/r/nosleep/s/SglAbYz1rh))
+(Previous part:  [ https://www.reddit.com/r/nosleep/s/SglAbYz1rh ](https://www.reddit.com/r/nosleep/s/SglAbYz1rh) )
