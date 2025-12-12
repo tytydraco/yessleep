@@ -224,7 +224,7 @@ He stands between me and Ana. Between me and the thing wearing her face.
 
 "Take me," Charlie shouts. "Take me, not her."
 
-"No!" I scream, scrambling to my feet. "Charlie please don't" 
+"No!" I scream, scrambling to my feet. "Charlie please don't"
 
 "Meg, you have a lot to live, I need to do something right. I need to save at least one Megan, you, my Megan" He does not look back. His shoulders square, his body trembling violently. "I mean it. Take me. I'll go inside. I'll do whatever you want. Just leave her alone."
 
@@ -310,7 +310,7 @@ Her head twitches sharply, the crack so loud it echoes down the driveway. "Megan
 
 Our parents? Did they try to reach out and found the house?
 
-She steps forward—and the creature follows.
+She steps forward and the creature follows.
 
 Every step it takes makes the earth tremble. The porch groans, the windows rattle, the entire frame of the mansion shivers in anticipation, like it is excited. Like it is starving.
 
@@ -368,9 +368,9 @@ The house creaks again, sucking the air inward, pulling at my hair, my clothes, 
 
 I close my eyes "I love you, Ana," I whisper.
 
-She blinks at my sentence, for a second it looks actually like Ana, my sister who I deeply regret not going after, the woman who taught me a lot about life, the woman who I didn't reach out for five years because I was too petty to be the fist one to reach out. Now I feel all of the regret. 
+She blinks at my sentence, for a second it looks actually like Ana, my sister who I deeply regret not going after, the woman who taught me a lot about life, the woman who I didn't reach out for five years because I was too petty to be the fist one to reach out. Now I feel all of the regret.
 
-Something warm drips onto my forehead, one of her tears "Sorry Megy, they are forcing.." she chokes and starts to put her hands on her own throat as if she was choking on a piece of meat as she is getting away from me, running towards the house. The last thing I hear is the door slamming shut. 
+Something warm drips onto my forehead, one of her tears "Sorry Megy, they are forcing.." she chokes and starts to put her hands on her own throat as if she was choking on a piece of meat as she is getting away from me, running towards the house. The last thing I hear is the door slamming shut.
 
 Then everything goes black.
 
@@ -388,7 +388,7 @@ It's him my Charlie.
 
 His skin is pale, drained of everything warm, everything human. His jaw hangs slightly open, his eyes glossy and empty. He stares at me through the glass, not blinking, not moving just like Ana did. It makes bile rise in my throat, he lifts one hand and presses it against the glass.
 
-His mouth stretches into a smile "Megan," he whispers. 
+His mouth stretches into a smile "Megan," he whispers.
 
 Even through the closed window, I can hear it perfectly as if he was next to me.
 
