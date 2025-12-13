@@ -2,7 +2,7 @@ I really need to write all this down while I still can. While I'm still sure of 
 
 About five weeks ago I packed everything I owned into my beat up Dodge Ram and drove from Lenox, Massachusetts to Stagwell, Maine for a delivery driver position at a big distribution center. The pay was way better than what I was making and rent was half the cost. I was tired of choosing between groceries and gas. At the time, it seemed like the right move.
 
-The company closed two days before my start date.
+The company closed before my start date.
 
 I found out when I showed up and the building was locked. Not weekend closed. Abandoned. The loading docks were empty and there was a bank notice taped to the front door about some kind of asset seizure. I sat in my truck in that parking lot for over an hour trying to figure out what to do. I called the manager who hired me and the number was disconnected. I called the HR line and got a recording saying the mailbox was full.
 
@@ -28,7 +28,7 @@ It doesn't help my nerves. It's old and makes all the sounds old houses make. Fl
 
 I've never met my landlord by the way. Everything was done through email. I dropped the check in the mailbox on the front door like he asked. Never got a response. Never got a receipt. The check cleared though so I guess that's something.
 
-I tried making conversation at the post office two days ago. Asked the clerk if there were any places hiring. Any restaurants or shops that needed help. She stared at me for a long time before answering.
+I tried making conversation at the post office a few days ago. Asked the clerk if there were any places hiring. Any restaurants or shops that needed help. She stared at me for a long time before answering.
 
 "You should stay close to home. Especially with the festival coming."
 
