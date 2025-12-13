@@ -24,8 +24,8 @@ I nodded and John slowly but swiftly got the group’s attention. He announced w
 
 “No, you didn’t give me one either.”
 
-He groaned loudly, but it held no genuine annoyance. It was more like a game to him and his questions kept him entertained throughout the drive.   
-  
+He groaned loudly, but it held no genuine annoyance. It was more like a game to him and his questions kept him entertained throughout the drive.
+
 “Do I know them?”
 
 “Mh… yeah, you do.” I mumbled, the question being more uncomfortable than I thought. John took a drag of the cigarette and exhaled the smoke. “Light me one too.”
@@ -38,8 +38,8 @@ He did and I took it from him to ease my nerves. We arrived at the road that led
 
 He snorted. “Sure, promise.” 
 
-“I’m serious.”  
-  
+“I’m serious.”
+
 “I won’t freak, don’t worry.” He stayed for a moment, tilting his head. “What'd you do? You don't usually sound *this* serious.”
 
 “I can't tell you.”
@@ -124,14 +124,14 @@ She let me take her hand in mine and I watched my own thumb rub over her fingers
 
 I hoped the lie would satisfy her, slowly getting up again as I let her hand slip out of mine. 
 
-“Okay, okay that’s good.” Dahlia smiled at me, then quickly continued. “Did you guys figure out where that blood came from?”  
-  
+“Okay, okay that’s good.” Dahlia smiled at me, then quickly continued. “Did you guys figure out where that blood came from?”
+
 “What? Uh… not really, no.” It had already slipped my mind.
 
 “It was really scary... I almost fainted when I saw it. What do you think was up with it?”
 
-“John just probably…” I was already by the door again, tapping my fingers on the doorknob. “I don’t know, he probably dragged someone in and just didn’t bother cleaning up after.”  
-  
+“John just probably…” I was already by the door again, tapping my fingers on the doorknob. “I don’t know, he probably dragged someone in and just didn’t bother cleaning up after.”
+
 “But he looked really confused, no?” I breathed out, shrugging again and opening the door. “I finished the book, by the way.”
 
 “Yeah?” I glanced back at her, seeing her expectant smile. “I’ll get you a new one tomorrow.” I forced a smile in return. “I’ll see you later, okay? I really have to go now. You know how John gets when he has to wait."
@@ -145,3 +145,6 @@ I gripped the steering wheel tightly as I sped down the cracked asphalt road tow
 As I sat down he introduced me to some of the new people among our usual group of friends. I remembered them from before, but they were seeing me for the first time. Like before, I didn’t bother remembering their names. I just gave a forced smile while trying to stifle my labored breathing. I sat closer to John, to the point where my shoulder was touching his. He allowed me to grab his whiskey with a shaky hand and down it in one go while he ordered another round for the table. 
 
 I relied on the alcohol to get through the night and regretted it deeply in the morning. The nausea that forced me awake was nothing compared to the fact that I had reached a dead end once again, but that this time I was completely lost on how to proceed.
+
+  
+[\[Part 5\]](https://www.reddit.com/r/nosleep/comments/1pik6lg/i_killed_my_best_friend_but_he_wont_stay_dead/)
