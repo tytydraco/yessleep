@@ -58,4 +58,4 @@ My hands, feet, and head are the only parts of my body that exist in the world n
 
 I'm scared.
 
-Please help me, I don't want to fade away.
+Please help me, I don't want to fade [away](https://www.reddit.com/u/leadraine/s/xL1Wfj7Lu2).
