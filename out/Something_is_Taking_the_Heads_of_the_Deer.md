@@ -1,3 +1,5 @@
+[Part Two](https://www.reddit.com/r/nosleep/comments/1pl1ve5/something_is_taking_the_heads_of_the_deer_part_two/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 **Entry 1:**
 
 Something odd has been happening to the deer. Someone or some individuals have been taking their heads. You would think they’re only taking prize bucks to mount on their walls, not even caring about harvesting the meat. But the thing is, they’re not just killing large bucks, they’re killing younger males, and even doe. I don’t entirely know the reason or motivations for this, but it’s been off putting. I’m beginning to think this isn’t the work of any normal animal but maybe of some sick and twisted person.
