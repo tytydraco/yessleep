@@ -1,6 +1,8 @@
-I had the distinct impression that this was the kind of place I would have found a shotgun in my face if I hadn’t been invited. 
+**PART 1** — [PART 2](https://www.reddit.com/r/nosleep/comments/1pmhqgd/garden_joe_redneck_wizard_part_24/) — PART 3 — PART 4
 
-I was in a community of three double-wide trailers sat in a semi-circle in a clearing, bordered on all sides by forest so thick you’d need a chainsaw to cut a path through it. It’s a large parcel of land down a long private, dirt driveway off a back road that was itself  far from any major arteries. That’ll give you the proper impression of the Greenhill estate and how isolated it is. Solar panels sat on the roofs of the trailers, right next to Starlink satellite dishes. A diesel generator roared somewhere nearby. To the north was a steep drop-off into a ravine, and to the east was a gentle decline into a gravel pit. Near the ravine was an old arts-and-crafts style house, burned and partially collapsed. 
+I had the distinct impression that this was the kind of place I would have found a shotgun in my face if I hadn’t been invited.
+
+I was in a community of three double-wide trailers sat in a semi-circle in a clearing, bordered on all sides by forest so thick you’d need a chainsaw to cut a path through it. It’s a large parcel of land down a long private, dirt driveway off a back road that was itself  far from any major arteries. That’ll give you the proper impression of the Greenhill estate and how isolated it is. Solar panels sat on the roofs of the trailers, right next to Starlink satellite dishes. A diesel generator roared somewhere nearby. To the north was a steep drop-off into a ravine, and to the east was a gentle decline into a gravel pit. Near the ravine was an old arts-and-crafts style house, burned and partially collapsed.
 
 Timothy—the scrawny man who had driven me from town in a worn-out old ’94 dodge that rattled when he geared up—waved me to follow him back around behind the trailers. “Right this way, professor,” he said in that rural drawl I would have found endearing if he would have stopped speaking for even just a moment on our two hour journey. Along and in between the trailers there were gardens of corn, tomatoes, carrots, and many different kinds of flowers. I passed beneath a rattan arch, thin vines growing up and over it. It was an impressive display of a dedicated horticulturalist.
 
@@ -34,7 +36,7 @@ I did, and as the milky cloud thing began to dissipate I noticed what had taken 
 
 “Sure thing, teacher-man,” Joe said, and sang that low hum again. Once more he vibrated for a moment before stopping and pointing his index finger at a different spot, this time where an old wooden sandbox sat neglected and muddy, out front of the old house. “Alcatraz!" The same milky puff of not-quite-smoke shot from his fingertip and covered the sandbox. When it had vanished a small forest of life had overgrown the structure, including fully mature trees and and dense ground vegetation.
 
-Joe turned around with a wide grin of pride on his face, displaying the gaps in his teeth. 
+Joe turned around with a wide grin of pride on his face, displaying the gaps in his teeth.
 
 "Tell me how," I said.
 
@@ -46,11 +48,9 @@ Joe turned around with a wide grin of pride on his face, displaying the gaps in 
 
 “Why do you think that?”
 
-He shrugged. “Don’t know, just a feelin’.” He sniffed. “You thirsty?” 
+He shrugged. “Don’t know, just a feelin’.” He sniffed. “You thirsty?”
 
 “Sure,” I said.
-
----- 
 
 "All started in 2012," Joe explained with his face stuck in the fridge inside his trailer. I had sunken myself into the old sofa beside Timothy, but it wasn't just the three of us—a large woman weighing in excess of 350lbs was sprawled out on a bed at the back of the trailer, ignoring us while she watched something on an old Panasonic with the volume low. Joe snapped up three beers and passed them out to us. The can was cold and wet in my hand. “Timothy will remember this because it was when we met and became friends at the Mayan Convention.”
 
@@ -58,7 +58,7 @@ Timothy nodded. "That's right. Remember when you laid out ol' Corchester with on
 
 "Hey, hush now, Timothy. I've got a story to tell the professor." But the man was in no rush; he pushed himself up on top of the kitchen counter, the top of his head nearly scraping the ceiling, and searched his pockets. Joe pulled out some rolling papers and a dimebag, carefully sprinkling its contents out onto one of the papers before expertly rolling it up with one hand. “Grow it myself,” he said when he noticed me watching. “Finest in the land.” He ran his nose along the joint and sniffed. “I had just gotten back from deployment, professor. They were dischargin’ me on account of ol’ stubby here.” He waved the stump of his arm and cleared his throat. "Anywho, aunty said I should take up gardening, keep my head busy while it dealt with all the trauma and tried to fix itself."
 
- "Were you ever diagnosed with anything?"
+"Were you ever diagnosed with anything?"
 
 He nodded, slow and serious. “Well, certainly: PTSD… Pretty Tall Substantial Dick disorder!” The two friends burst into laughter. I waited patiently for them to finish and for Joe to continue his story. He stuck the freshly-rolled joint between his teeth and grinned at me, then blindly searched the cluttered shelf behind him, fishing out a lighter. “Don’t trust doctors.”
 
@@ -72,13 +72,13 @@ He regarded me, joint in his mouth, lighter clasped just beneath it. “You ain�
 
 Timothy whooped, smaller this time, I couldn’t help but clap. It was a decent party trick.
 
-Joe shrugged as he sucked back on the joint, as if it were all no big deal. "So anyway," he said, exhaling. "I noticed that things grow real fast when I'm gardening. Like, faster than they have any right to. But I don't know much about it so I don't see anything wrong with it 'till it's pointed out to me." He leaned across to offer me the joint and I turned him down. 
+Joe shrugged as he sucked back on the joint, as if it were all no big deal. "So anyway," he said, exhaling. "I noticed that things grow real fast when I'm gardening. Like, faster than they have any right to. But I don't know much about it so I don't see anything wrong with it 'till it's pointed out to me." He leaned across to offer me the joint and I turned him down.
 
-Timothy cackled. "And he weren’t even—he weren’t even tryin' to grow *tomatas!*” 
+Timothy cackled. "And he weren’t even—he weren’t even tryin' to grow *tomatas!*”
 
 Joe laughed along with him. “I thought it was normal to have plump tomatoes after three days! I thought they was just *easy to grow!* Like weeds or somethin’! As time went by, I got better and better  at it.” He passed the joint to Timothy and transitioned back to drinking his beer. Over the next 20 minutes, three beers and two joints, he told me a meandering tale of growing plants, starting a gardening and landscaping business, getting cheated out of his half of it by his business partner, and trashing that guy’s house to send a message.
 
-It had remarkably little to do with the occult. 
+It had remarkably little to do with the occult.
 
 “You don’t know why you are the way you are,” I summarized.
 
@@ -88,7 +88,7 @@ He tapped the beer can to the side of his head and winked at me. “Maybe it’s
 
 “Huh,” was all Joe could say.
 
-“Garden Joe, you are perfect just the way you are,” Timothy declared, then turned to me. “The Greenhill family and the Blackthorpe family go way, way back. Like ancient times back, more than a hundred years! They are *evil*, those Blackthorpes.” 
+“Garden Joe, you are perfect just the way you are,” Timothy declared, then turned to me. “The Greenhill family and the Blackthorpe family go way, way back. Like ancient times back, more than a hundred years! They are *evil*, those Blackthorpes.”
 
 Feuding, back country families? Generational clashes stretching back to the 1800’s like the Hatfields and McCoys? I wanted to ask more about this but Joe was already moving on.
 
@@ -100,7 +100,7 @@ I cleared my throat, gave my own Coors a careful sip. "Well," I said after swall
 
 An uncomfortable silence, then Timothy spoke. "Ya know, they say the fruit Adam and Eve ate in the garden of Eden wasn't an apple at all, because they didn’t have no apple trees back then. It was a fig tree."
 
-"Timothy, that's the smartest thing I ever heard come out from between those big lips of yours.” Joe glanced between us, excitment growing on his face. “You fella’s wanna go shoot some guns?” The two of them left for outside, yipping and hollering. I chose to stay behind; I had some questions for the woman in the back. 
+"Timothy, that's the smartest thing I ever heard come out from between those big lips of yours.” Joe glanced between us, excitment growing on his face. “You fella’s wanna go shoot some guns?” The two of them left for outside, yipping and hollering. I chose to stay behind; I had some questions for the woman in the back.
 
 “You’re Joe’s aunt?” I asked her
 
@@ -156,15 +156,13 @@ She waved the idea away. “Blackthorpes are bad, but they’re not *kidnapping-
 
 She smiled a self-satisfied smile. “Well, before the white people got to these lands it was the Indians that lived here. And they cultivated the forests in a way that ensured there were always fruit trees, and nut trees, and plants that animals liked to eat. It was like a garden, just not one us white people could recognize. They looked right through the forest and only saw the trees and shrubs.” She reached for the cigarette and brought it to her mouth, searching around for something to light it with.
 
-“Allow me,” I said, bringing forward Joe’s lighter. 
+“Allow me,” I said, bringing forward Joe’s lighter.
 
 She accepted, and breathed the cig’s smoke in deeply, nearly finishing it one go. She cleared her throat and coughed, then stubbed the thing out on the tray, still not completely finished. Still good for another day. “And now the Indians are all gone and the forest is too overgrown to cut through. Can’t find anything in that thick bush. Joe did that, ya know? When he gets it into his head that he’s gonna do something there’s no convincing him otherwise. Things get crazy around here and I just ride myself into town and stay at a friend’s for a few days. I disappear, just like the Indians.”
 
 I nodded. “Joe said your family has Indian blood in it?”
 
 She shrugged. “Might as well. Been here long enough.”
-
----- 
 
 That evening, we had a BBQ with many of the Greenhills that lived on and off the property. I met a lot of ‘cousins’ and ‘uncles’, many of whom brought their kids. Joe seemed pleased as hell to be cooking for them all, throwing on ribs and brisket and hotdogs for the children, but I never saw him eat any of the meat. The only thing he consumed was roasted corn and beer, with a small salad prepared from the fresh ingredients of his garden.
 
@@ -176,7 +174,7 @@ When night fell we moved to the gravel pit for a bonfire. Garden Joe had his arm
 
 "You ain't got nothin' to worry about, Garden Joe!" one of the girls called out from across the bonfire. Several people cheered in response.
 
-“Gosh,” Joe said. "Everyone always cheers me up. I know can always count on the good folk livin' here. Good, proper, red-blooded Americans! I know you people have my back, and we’d go to war for each other, wouldn’t we?” The group whooped and hollered. Joe did his hum-vibrate maneuver and pointed his hand at the base of the bonfire. I braced myself, stepping back a bit, unsure what a drunk wizard could do. 
+“Gosh,” Joe said. "Everyone always cheers me up. I know can always count on the good folk livin' here. Good, proper, red-blooded Americans! I know you people have my back, and we’d go to war for each other, wouldn’t we?” The group whooped and hollered. Joe did his hum-vibrate maneuver and pointed his hand at the base of the bonfire. I braced myself, stepping back a bit, unsure what a drunk wizard could do.
 
 “Shaboozy!” he shouted. The flames shot upward, licking higher than any other fire I had seen before, lighting up the whole gravel pit. I stepped stumbled backward from the intense heat on my face. The crowd cheered and clapped at the magic, lifting their whiskey cups to honor Joe.
 
@@ -186,7 +184,7 @@ When night fell we moved to the gravel pit for a bonfire. Garden Joe had his arm
 
 "Timothy, if I had the capability, I'd have made you into a woman, just like you asked for. You deserve *anything* in the world that you want.” I thought it was a mean-spirited joke but there were real tears rolling down Joe’s cheeks. "But I can't change things, I can’t alter life! I can only *create* it!” He collapsed to his knees and cried into his friend's shirt. "By the grace of god, I can create life but I can't change anything for the better!"
 
-He was a blubbering mess, and Timothy, cheeks scarlet with embarrassment, held his friend while he cried it out. The rest of the party continued on, but quieter, not as raucous. 
+He was a blubbering mess, and Timothy, cheeks scarlet with embarrassment, held his friend while he cried it out. The rest of the party continued on, but quieter, not as raucous.
 
 When I thought it appropriate, somewhere between my second and third whiskey, I slipped away from the fire and toward the ’94 dodge. I passed by the big, old house and it loomed up out of the dark, half burned and ready to turn to dust. It was like a monument to better times for the family, when they were more prosperous, when money flowed in more easily. With the closure of the mines there had been very little work available here, and I suspect most people had moved off the property even before the house became unlivable. It really seemed like this was all they had left.
 
