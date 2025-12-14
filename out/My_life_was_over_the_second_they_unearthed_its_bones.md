@@ -16,11 +16,11 @@ By my estimate, the building’s electrical issues originated at the very back o
 
 There was nowhere else the problem could be. 
 
-“Open it.” 
+*“Open it.”* 
 
 My order was followed by an array of childish antics. 
 
-The youngest of the bunch was the first to raise his sledgehammer. Smiling, Vijay heaved the tool over his broad shoulder with a reckless gusto. A man with white eyebrows and thick, bottle-cap glasses had to duck out of the hammer's arc to avoid getting his skull caved in (even though this technically occurred yesterday, I no longer remember his name - time’s funny like that, no?).
+The youngest of the bunch was the first to raise his sledgehammer. Smiling, Vijay heaved the tool over his broad shoulder with a reckless gusto. A man with white eyebrows and thick, bottle-cap glasses had to duck out of the hammer's arc to avoid getting his skull caved in (even though this *technically* occurred yesterday, I no longer remember his name - time’s funny like that, no?).
 
 Kamal, my assistant foreman, began nervously rubbing the silver idol of St. Michael he always wore as a necklace between his fingers, brown eyes darting about the dimly lit room, frantically whispering the Lord’s Prayer as if those threadbare words could actually protect him. 
 
@@ -60,7 +60,7 @@ The process reminded me of squid’s ink spreading through clear water: a gelati
 
 The handheld radio fastened to my belt crackled to life. 
 
-“Ravi - we need you back here, over.” 
+*“Ravi - we need you back here, over.”* 
 
 I pulled the receiver to my lips with a wet, trembling hand. The tip of a finger crept onto the push-to-talk, waiting for further instruction from my sizzling brain, but I couldn’t peel my eyes and my thoughts away from the invasive gloom. It was churning now. The sky was writhing like gray water brought to boil. 
 
@@ -68,7 +68,7 @@ Finally, I clicked the button. I attempted to speak, but the words couldn’t es
 
 Precipitation began to fall from the sky, but it wasn't rain.
 
-There was no pitter-patter of droplets against the warehouse exterior. No accumulation of moisture on the skylight. Whatever the precipitation was made of, it was thinner than water, and it seemed to melt upon contact with the glass. A blizzard of soot composed of fragile, charcoal-tinted snowflakes. 
+There was no *pitter-patter* of droplets against the warehouse exterior. No accumulation of moisture on the skylight. Whatever the precipitation was made of, it was thinner than water, and it seemed to melt upon contact with the glass. A blizzard of soot composed of fragile, charcoal-tinted snowflakes. 
 
 The radio slipped from my hand. 
 
@@ -104,19 +104,19 @@ Of all the rooms in the back half of the warehouse, it was the only one with a d
 
 I pushed it open and plodded inside. All eight of them hushed in unison while turning their flashlights, blinding me. 
 
-“The hell's going on back here?” I bellowed, hands raised, attempting to shield my eyes.
+*“The hell's going on back here?”* I bellowed, hands raised, attempting to shield my eyes.
 
 There was a pause. My crew began lowering their flashlights, but said nothing. My relief curdled. The fear in my throat began to mutate into a hot, mind-numbing rage. 
 
-“Oh for the love of...why the fuck are you all just standing there? Where is the goddamned electricity?” 
+*“Oh for the love of...why the fuck are you all just standing there? Where is the* ***goddamned*** *electricity?”* 
 
 They really couldn’t do anything right without me.
 
-“Actually, you know what? Never mind about the job - “ 
+*“Actually, you know what? Never mind about the job - “* 
 
-(The stockiest shadow, Kamal, swung his flashlight towards the back of the room and flatly whispered: “Look.”  I ignored him at first, focused on underplaying what I witnessed through the skylight. It was a lie, but if we all believed the lie, reality would have no choice but to follow suit, right?)
+(The stockiest shadow, Kamal, swung his flashlight towards the back of the room and flatly whispered: *“Look.”*  I ignored him at first, focused on underplaying what I witnessed through the skylight. It was a lie, but if we all believed the lie, reality would have no choice but to follow suit, right?)
 
-“ - something's going on outside. Maybe a storm, maybe a wildfire, I’m not sure, but we really need to...”
+*“ - something's going on outside. Maybe a storm, maybe a wildfire, I’m not sure, but we really need to...”*
 
 My gaze followed Kamal’s beam, and my voice trailed off, disintegrating under the sheer weight of what had been concealed behind that brick wall. I’ve taken to labeling it a sculpture in hindsight, but that’s not how I thought about it back then. 
 
@@ -140,13 +140,13 @@ The skeleton looked to be kneeling. Praying, even. 
 
 The wires that led us there rested uselessly below it. There was no hidden circuit breaker; they snaked under the brick wall through those small, crescent-shaped tunnels to no discernible end. 
 
-“Why...why did you all light that candle?” 
+*“Why...why did you all light that candle?”* 
 
-“We didn’t. It was...like that.” Vijay replied, his tone deflated, sapped of its usual eagerness. 
+*“We didn’t. It was...like that.”* Vijay replied, his tone deflated, sapped of its usual eagerness. 
 
 Kamal was feverish with worry. I’d suffered him long enough to sense an episode coming on, feeling his anxiety rub against my skin like static portending a storm. Before long, his panic bloomed in earnest. A hackneyed invocation began flooding from his lips. Pointless, piercing whispers. 
 
-“Lord, I ask You to surround me with Your hedge of protection. Cover me with the precious blood of Jesus and let no evil, no darkness, no scheme of the - “
+*“Lord, I ask You to surround me with Your hedge of protection. Cover me with the precious blood of Jesus and let no evil, no darkness, no scheme of the - “*
 
 The jaundiced flame erupted, from a neon wisp to a sickly bonfire to an outright inferno.
 
@@ -184,7 +184,7 @@ Not until Vijay’s limp body collided with the wall.
 
 He flew through the air; propelled nearly twenty feet by the silent, savage force. 
 
-There was the concise, fleshy crunch of his body breaking against the metal, followed by the heavy slam of the door snapping shut, followed by the dull thump of his contorted frame landing on the floor, and then, mercifully, there was nothing.
+There was the concise, fleshy *crunch* of his body breaking against the metal, followed by the heavy *slam* of the door snapping shut, followed by the dull *thump* of his contorted frame landing on the floor, and then, mercifully, there was nothing.
 
 We were alone for a little while. 
 
@@ -204,7 +204,7 @@ He’d developed patches of swollen flesh, hideously tense, shimmering, and drai
 
 His body was tilted forward and to the right when he tried to leave. 
 
-Everywhere the dust had touched him, this was the result. 
+Everywhere the dust had touched him, *this* was the result. 
 
 Someone else attempted to escape after witnessing Vijay. I didn’t bother warning them. It was better for the rest of the crew to see it for themselves. Much simpler than explaining. They weren’t as fortunate as Vijay. As they opened the door, the vast majority of their head became dust-kissed (within hours, the swelling evolved, consuming their visage entirely, leaving a moist pillar of white-yellow meat where their head used to reside).
 
@@ -232,11 +232,11 @@ But that was at least an hour ago. 
 
 A wild, ravening howl bubbled up my throat, perching on my vocal cords, but before I could slip completely into madness, I heard something. A faint noise from the receiver of my cell phone. 
 
-“Hello?” - there was a woman on the other line. 
+*“Hello?”* \- there was a woman on the other line. 
 
 Frantic with hope, I slammed the phone back against my ear and began rambling. 
 
-“Hello?? Hello?? Are you there?? I need help - ” The remaining crew scampered over to me, eyes wide. “ - I mean, we need help - we need an ambulance to a warehouse outside of city limits. The address is \[xxxxxxxxxxxxx\].” 
+*“Hello?? Hello?? Are you there?? I need help - ”* The remaining crew scampered over to me, eyes wide. *“ - I mean,* ***we*** *need help - we need an ambulance to a warehouse outside of city limits. The address is \[xxxxxxxxxxxxx\].”* 
 
 “...”
 
@@ -244,19 +244,19 @@ No response. 
 
 Sweat gushed down the sides of my neck. My gaze flickered over to Vijay, propped up listlessly against the wall a few yards away, eyes glassy but fixed on me with intent. A lonesome anguish stirred in the abyss of his dilated pupils. His breathing was labored. The swelling on the right side of his face had begun to grow over his mouth, narrowing his airway. 
 
-“Hello???” I shrieked, voice cracking, tears welling. The sight of Kamal thumbing the silver saint around his neck nearly sent me over the brink. 
+*“Hello???”* I shrieked, voice cracking, tears welling. The sight of Kamal thumbing the silver saint around his neck nearly sent me over the brink. 
 
-“Oh dear...” the voice muttered. Her tone was sympathetic but tinged with condescension. A mother gently scolding a child for being impatient, masking her contempt beneath a honey-sweet veneer. 
+*“Oh dear...”* the voice muttered. Her tone was sympathetic but tinged with condescension. A mother gently scolding a child for being impatient, masking her contempt beneath a honey-sweet veneer. 
 
 Something horrible fizzled between the cracks of my brain. 
 
-“...well, have you fixed it yet, Ravi?” 
+*“...well, have you fixed it yet, Ravi?”* 
 
 My heart collapsed in on itself like a dying star. 
 
 I recognized her voice. 
 
-“I mean, you were hired to fix what’s inside that warehouse, were you not?” she continued. The pleasant clamor of someone cooking a meal could be heard in the background. The rushing of water from a sink head. A knife connecting with a cutting board. Beeps from the dashboard of a stovetop. 
+*“I mean, you were hired to fix what’s inside that warehouse, were you not?”* she continued. The pleasant clamor of someone cooking a meal could be heard in the background. The rushing of water from a sink head. A knife connecting with a cutting board. Beeps from the dashboard of a stovetop. 
 
 The crew stared at me expectantly. I watched in real time as their brittle hope began to shatter. Little by little, despair burrowed through their skin like a swarm of parasitic worms, causing their flesh to quiver, their expressions to tremble. 
 
@@ -264,9 +264,9 @@ I couldn’t speak. The words just never arrived. 
 
 That was OK. 
 
-Our employer didn’t mind. 
+Our employer didn’t seem to mind. 
 
-“Suppose what I’m saying is...well...it’s disrespectful to leave without putting in a full day’s work. So! You promised you’d fix the current. That was the deal. I suggest you do just that.” 
+*“Suppose what I’m saying is...well...it’s disrespectful to leave without putting in a full day’s work. So! You promised you’d fix the current. That was the deal. I suggest you do just that.”* 
 
 The line clicked dead. 
 
@@ -306,7 +306,7 @@ Damnation,
 
 [inexorably sealed.](https://www.reddit.com/r/unalloyedsainttrina/)
 
-\- - - - - 
+\- - - - -
 
 ￼(Need to keep moving. Will continue when safe.)
 
