@@ -1,0 +1,15 @@
+I always have been followed. Not by one which could be called monstrous by any means. At least that’s my hope. The sidewalk feels like a never ending flood of humans, and I was only focused on one. If it were grotesque, then someone would stop to scream or to gawk. The rest of humanity would show some semblance of seeing this entity. I would hear the hitting of cars and gunshots ringing from squad cars. No. I am being followed by someone so close to being human; it irks me. They carry my own face. 
+
+The orange hued hand halted my journey. My own hands lazily grip the weathered handle of my well-worn umbrella. Rain beat the ground in an almost beautiful pattern. Each drop splattered to the ground to crash into another. The glossy ground is covered by the clear liquid. No. It was not clear. It was filled with the colors of passersby. There’s a blurred sense to reality reflected in each drizzle. My own vibrate polka dot umbrella’s colors mixed within the transposed space.I find myself staring into such a puddle until I catch a glimpse of my mirror. 
+
+The splashing of feet distorts the image, but I know it’s there. My eyes divert from the beauty back to the walking man sign. I cannot stop. It doesn't stop. However, it is always there.
+
+It’s not an exact mimic of me. In fact, it has taken many forms of myself throughout my life. Each time there’s a feature that feels so singular that I hold dear. Some days, it is the same shirt. Other days, it is the same hair clip. One day it was my own fingernails. Today, it took my face. It was almost as if I was looking at a twin. 
+
+But I can’t look at it. I can only find a single tinge in the wet rain. I catch glimpses of it. Glimpses found in the mirroring rain or when I look over my shoulder.  While it may seem unnoticeable, there’s little things to your own face that make up you. The only reason I know that it took my face today was the smile lines and scars from a bump in my childhood over my left eye brow. I only saw it for a second but knew that it was following me. 
+
+There were some days that I would think I had some reprieve of this entity. There were days where I couldn’t feel anyone’s eyes on me. It became a dull feeling almost like silence is in a filled room. 
+
+I’ve gotten over the feeling of being followed many, many years ago. It’s my shadow. I hold it dearly; yet, it sends prickles down my spine at every contact. They never pass me. If I am still, so are they. I ride in a car; they are only a few cars down in the car seat of a young child.
+
+It is an empty husk of someone, and I know it is following me. Today has been one of the most demanding of the entity. It has followed so closely that I feel my umbrella brushing against it. A hand could wrap itself around my throat and choke each desperate scream for it to leave me alone. All would be meaningless. It has no purpose but to follow me. I am being followed. I wish I knew what it was and why it was following me. 

@@ -8,11 +8,7 @@ I did, eventually. But that’s not the story—the story is the house I landed 
 
 Here is a house, here is a sink, here is the water:
 
-
-
 \-
-
-
 
 Let’s start with another memory: my mother used to tell me I was a born runner.
 
@@ -24,11 +20,7 @@ Manila was miles and cultures and dialects away from Cebu. The accent there was 
 
 Selfish, too, maybe, for not speaking to my mother before I left. She didn’t even know I was leaving.
 
-
-
 \-
-
-
 
 It took two nights of sleeping off travel fatigue before I felt enough like a person to decide what to do. First order of business was to find myself a job. I had enough savings to tide me over for a few months, but a childhood plagued with sickness and death in my family taught me never to test my luck on how quickly resources could run out. I applied for everything I was qualified for and some things I wasn’t, and snagged a post as a cashier at a local minimart.
 
@@ -44,7 +36,7 @@ I’d grown up seeing heritage estates around town—they were scattered all ove
 
 “I can’t afford a heritage estate,” I said.
 
-“It’s not *heritage—*not with a capital H that’s gonna get the government on your ass, anyway. It’s just one of those heirloom houses. My aunt’s husband’s family has one of those; old thing dates back a decade or so before the Americans jacked our shit. He loves talking about it during family reunions, annoying bastard.” Leslie huffed. “Point is, the Villafloreses got the interior of theirs renovated so they could rent it out by unit. Doing it for dead cheap too.”
+“It’s not \*heritage—\*not with a capital H that’s gonna get the government on your ass, anyway. It’s just one of those heirloom houses. My aunt’s husband’s family has one of those; old thing dates back a decade or so before the Americans jacked our shit. He loves talking about it during family reunions, annoying bastard.” Leslie huffed. “Point is, the Villafloreses got the interior of theirs renovated so they could rent it out by unit. Doing it for dead cheap too.”
 
 That made me eye her skeptically. “Dead cheap?”
 
@@ -54,11 +46,7 @@ I tapped the screen and zoomed into the photo, then dragged the image around to 
 
 I fished my phone out my jeans and handed it to her. “Alright.”
 
-
-
 \-
-
-
 
 When I called her, Mrs. Villaflores told me six out of the seven units available had already been snatched up, so I wouldn’t have much of a choice on which apartment I was getting. I told her that was fine since all I needed was a place to stay. She invited me for a tour around the estate on the weekend.
 
@@ -74,11 +62,7 @@ Like Mrs. Villaflores said, the house’s interior did look better. There were n
 
 I didn’t sleep until three in the morning, when my exhaustion finally overtook my anxiety of being somewhere new, somewhere my body wasn’t quite used to existing in.
 
-
-
 \-
-
-
 
 I met the rest of the tenants over the course of my first week in the house. Dominic from next door had a whole shelf full of vinyl records. Charles and Leo were coworkers; IT guys at a nearby call center. Anika hosted her prayer group’s Bible study every Thursday afternoon.
 
@@ -100,11 +84,7 @@ He motioned to the sky, heavy with clouds, then to the mist wrapped around the e
 
 I could never see the sun from Bonifacio Grove.
 
-
-
 \-
-
-
 
 Three months into my stay at the house, Charles and Dominic found the sink backed up with inch-deep black water. Since Anika and I were on dish duty the day prior, they approached us about it.
 
@@ -126,11 +106,7 @@ Startled, I turned—but the dark pool was still. Strangely, my reflection looke
 
 Something skittered unpleasantly in my gut.
 
-
-
 \-
-
-
 
 Mrs. Villaflores was several cities away at her new residence, but she called a plumber for us. He—Mr. Quijano—arrived with a rusty toolbox that looked like it had one handle in the scrap yard and the other desperately clinging to useability. He tutted as he looked at the sink.
 
@@ -146,11 +122,7 @@ I hadn’t called her since I moved here. I didn’t hate her or anything, it wa
 
 And I could. I was born for it, all long-limbed and lean.
 
-
-
 \-
-
-
 
 When I returned, the sink was fixed. Sam and Elise were rinsing and drying plates, and laughing about a fistfight they saw somewhere in town. Dominic was dozing off in the living room while the TV played the evening news. Charles and Leo were sharing a Red Horse bottle on the back porch. Anika was curled up by the landline and murmuring into the phone: “It’s just a test—for He knows the plans He has for us, remember? Plans to prosper us and not to harm us…”
 
@@ -202,11 +174,7 @@ The excuse was another thing that was nauseatingly familiar. The more things cha
 
 When I was twenty-one, my father died without offering explanations; without saying what haunted him, what ghosts made him leave welts on his wife’s face, what rage troubled him so terribly he fractured my arm and made the bone rip through skin.
 
-
-
 \-
-
-
 
 “Sounds like an asshole,” Leslie said the next day, after I told her why I was short two hours of sleep and looked dead on my feet. “Maybe you can tell your landlady about it and get him kicked out.”
 
@@ -266,11 +234,7 @@ I leaned back in my chair and craned my head back to stare at the ceiling. She w
 
 Henry tapped a beat on his lunch box, expression thoughtful. “Maybe most of the archipelago is content to slumber the pain away,” he said. “But that house is awake enough to drown in its grief.”
 
-
-
 \-
-
-
 
 Weeks later, the sink was clogged again. There was two inches of water in the basin this time. Dominic was luckily out of the house—hanging out with his coworkers and wouldn’t be home until later—so nobody was yelling about the flooded sink. Anika and I washed the dishes under the garden tap while the others waited for Mr. Quijano drop by. He arrived in an hour and fixed the issue in less. Everyone went to bed without a fuss. It was sad, in a way, how much more peaceful and reasonable the house was with one less member.
 
@@ -328,14 +292,11 @@ I stumbled back, heart beating wild with fear, but there was only so much lit ar
 
 I looked up. The twin lights ahead of me blazed brighter as the rifle angled down toward my face.
 
-“I feel it every time I aim my gun at something like you” — something clicked; the safety, *it was the rifle’s safety!* I had to move — “and *pull—my—****TRIGGER!”***
+“I feel it every time I aim my gun at something like you” — something clicked; the safety, *it was the rifle’s safety!* I had to move — “and \*pull—my—\****TRIGGER!”***
 
 I—
 
-  
 \-
-
-
 
 —jolted awake covered in sweat, blinding pain between my eyes. Spots of bright light assaulted my vision and rendered me blind. I scrambled out of bed, and put my hands out to feel the floor, the walls, anything to guide me to the bathroom. The back of my right hand hit a doorknob—I wrenched it open and stumbled inside.
 
@@ -372,3 +333,5 @@ It took a week for the water to recede. Two for the rescuers to make it through 
 I managed to snag a look at her before people ushered me away.
 
 Face to face with her again, years after we’d buried her, I screamed.
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/1pmtmmp/theres_a_body_in_the_sink_part_two/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
