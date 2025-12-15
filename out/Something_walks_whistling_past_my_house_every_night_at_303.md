@@ -44,7 +44,7 @@ At exactly 3:03 we heard the whistling.
 
 It came and it went just like our neighbors said. The whistling returns each night and we never look and we enjoy our million little blessings every day. Nola breathes on her own and she’s grown into a strong, clever girl. My dad even joined the Welcoming Committee. We don’t get new neighbors often, why would anyone want to leave? But when a new family moves in, my dad and the committee bring them macaroni casserole, a gift basket, and the manila folder. I can always tell by the look on my dad’s face when he comes back if the family took the committee seriously or if we’d be getting new neighbors again very soon.
 
-Not long ago a family moved in directly next to us. The previous owner, Ms. Maddie, passed away at age 105. She’d lived a good, long life. Our new neighbors seemed like they’d fit in just fine. They believed the Welcoming Committee, took my dad’s advice about the locking shutters since they had a young child of their own. Whatever newspaper clippings were in that manila envelope, whatever evidence, my dad never let us see. But I imagine it must have been awfully convincing since our neighbors got along with no issues for the first month.
+Not long ago a family moved in across the street from us. The previous owner, Ms. Maddie, passed away at age 105. She’d lived a good, long life. Our new neighbors seemed like they’d fit in just fine. They believed the Welcoming Committee, took my dad’s advice about the locking shutters since they had a young child of their own. Whatever newspaper clippings were in that manila envelope, whatever evidence, my dad never let us see. But I imagine it must have been awfully convincing since our neighbors got along with no issues for the first month.
 
 One night, when our new neighbors had to leave town, they sent their son, Holden, to stay with us. He was 12, a year under me in school. I didn’t know him well before that night but as soon as his parents dropped him off after dinner I could tell it was going to be a bad time.
 
@@ -230,8 +230,8 @@ I think Holden’s parents must have looked, either to comfort him if they didn�
 
 We still live in that house, in that neighborhood. We still hear our whistler walking past every night. The blessings, the luck, the good things here are too good to leave. But we’re careful. We don’t have friends over to spend the night anymore. And my dad hides the key to the blinds very, very well. Not that I’ve gone looking. Some things you just don’t need to look for.
 
-&#x200B;
+
 
 [GTM](https://www.reddit.com/r/Grand_Theft_Motto/comments/emzy3b/the_stories/)
 
-[Hello](https://travisbrownwriting.com)
+[Hello](http://tbwrites.com)

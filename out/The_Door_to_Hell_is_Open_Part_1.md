@@ -301,3 +301,5 @@ George walked over and stood next to me as he slowly turned his head in every di
 "What is it this time—" Jack stopped cold as he emerged.
 
 Silence, as we looked out over Hell.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/qGJzcU7rcT)
