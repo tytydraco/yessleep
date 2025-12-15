@@ -1,6 +1,6 @@
-[Part Two](https://www.reddit.com/r/nosleep/comments/1pl1ve5/something_is_taking_the_heads_of_the_deer_part_two/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+Part Two
 
-**Entry 1:**
+Entry 1:
 
 Something odd has been happening to the deer. Someone or some individuals have been taking their heads. You would think they’re only taking prize bucks to mount on their walls, not even caring about harvesting the meat. But the thing is, they’re not just killing large bucks, they’re killing younger males, and even doe. I don’t entirely know the reason or motivations for this, but it’s been off putting. I’m beginning to think this isn’t the work of any normal animal but maybe of some sick and twisted person.
 
@@ -38,11 +38,11 @@ Something about it was a bit odd though.
 
 Although I could only see the buck from the neck onward, it appeared a lot shorter than the size of a usual 8-point buck. Maybe it was just a short deer or was bending its knees. I don’t know, I’m not a wildlife biologist.
 
-The deer didn’t move a muscle; it just continued to stare at me. I just assumed it chose fright instead of flight. *This dumbass is gonna get himself killed if he does this in front of a hunter,* I thought to myself as I briskly walked into my house.
+The deer didn’t move a muscle; it just continued to stare at me. I just assumed it chose fright instead of flight. This dumbass is gonna get himself killed if he does this in front of a hunter, I thought to myself as I briskly walked into my house.
 
  
 
-**Entry 2:**
+Entry 2:
 
 Fast forward to this morning; I was leaving my house at about 6:30 am in the pitch dark and walking the 20 feet to my car. I suddenly kicked something soft, because I was in a hurry I was walking somewhat fast. This led me to trip over whatever I kicked, falling face first into the ground next to it. Scrambling onto my knees to grab my phone I shone my flashlight on what I tripped over.
 
@@ -62,31 +62,31 @@ Once safely back in my house I took a moment to catch my breath and gather my wi
 
 There was no way my mind played a trick on me seeing that deer in my yard. I came in contact with it and clearly felt that it was the soft torso of an animal.
 
-W*as that the same deer?* I asked myself. The scar looked like the exact one I noticed last night on the deer I nearly hit. Regardless, I’ve come to the conclusion that someone or something is targeting me, killing deer, removing their heads, and placing the carcasses where they know I will see them. And now they know where I live. For all I know they could have been watching me since they placed the deer in my yard. They may still be watching my house as I sit on my kitchen floor typing this with all the lights off.
+Was that the same deer? I asked myself. The scar looked like the exact one I noticed last night on the deer I nearly hit. Regardless, I’ve come to the conclusion that someone or something is targeting me, killing deer, removing their heads, and placing the carcasses where they know I will see them. And now they know where I live. For all I know they could have been watching me since they placed the deer in my yard. They may still be watching my house as I sit on my kitchen floor typing this with all the lights off.
 
 I’ve decided I’m going to go outside and see if I can find anything. I know this may be a stupid idea, but the sun is peaking out, and I will bring one of my guns with me.
 
-I will update you guys again as soon as I can, and if I don’t, well I guess you can figure something happened to me. No one will hear me scream if something goes wrong, but I can’t sit idly by while someone or *something* stalks me in my home.
+I will update you guys again as soon as I can, and if I don’t, well I guess you can figure something happened to me. No one will hear me scream if something goes wrong, but I can’t sit idly by while someone or something stalks me in my home.
 
  
 
  
 
-**Entry 3:**          
+Entry 3:          
 
 I think I am losing my mind. It’s now midday, I haven’t gone to work, I’ve just been pacing around my house and periodically looking out my windows for any sign of movement.
 
-Flash back to this morning to the whole deer in my yard fiasco. After finally mustering up enough courage to exit my front door, I cautiously stepped into the unknown. I had my handgun I keep in a drawer and a big flashlight with me although it was continuing to get brighter outside by the minute. As I scanned my yard and the surrounding woods there was nothing in my yard or around it. The deer carcass had been removed or taken, *how could this happen?* I thought to myself.
+Flash back to this morning to the whole deer in my yard fiasco. After finally mustering up enough courage to exit my front door, I cautiously stepped into the unknown. I had my handgun I keep in a drawer and a big flashlight with me although it was continuing to get brighter outside by the minute. As I scanned my yard and the surrounding woods there was nothing in my yard or around it. The deer carcass had been removed or taken, how could this happen? I thought to myself.
 
 I slowly made my way to the fateful spot where I tripped over the deer. On approaching it, I could easily see where the deer had lain; the patchy native grass had a clear spot where the grass had been pushed into the damp, cold soil. And as you may guess, it was about the size of the deer.
 
 What’s leaving me scratching my head as I pace around my house and taking breaks to type this out; is the fact that there are no sets of tracks besides mine from when I walked into the deer and subsequently toppled over it. No tracks coming from the woods in any direction. There is no indication of anything walking up to place the deer there or to take it away. I have a bit of an eye for tracking as I grew up in the great north woods, every season me, my dad, and my grandfather would be out deer hunting. They imparted a thing or two about tracking various game to me; I got pretty good at it too. Mainly because I was forced to go out with them, I never particularly enjoyed the process of hunting or the act of killing an animal. I’m more of a hike through nature and read at a scenic spot type of guy.
 
-*Could something have flown to place the deer in my yard only to retrieve it later?*
+Could something have flown to place the deer in my yard only to retrieve it later?
 
 Or
 
-*Maybe someone is fucking with me and used a drone to place and retrieve that deer from my yard.* But I didn’t hear anything when the deer was taken back.
+Maybe someone is fucking with me and used a drone to place and retrieve that deer from my yard. But I didn’t hear anything when the deer was taken back.
 
 I sound like some crazy conspiracy theorist that thinks he’s being gang stalked by the government. I just don’t know what to think. The most logical explanation is that I’m just hallucinating or perceiving my reality wrong. It’s a plausible explanation.
 
