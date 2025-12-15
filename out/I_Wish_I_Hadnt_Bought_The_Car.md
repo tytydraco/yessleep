@@ -18,10 +18,10 @@ After an eight-hour work shift, I was whistling as I entered my car and began dr
 
 When I pressed the accelerator, the car didn’t move. I tried changing gears. Nothing happened. His eyes locked onto mine. I couldn’t look away. My body began to feel weak. I watched his grey hair turn black, his wrinkles smooth away, his frame grow strong. At the same time, my own body shrank, my hands thinning, my muscles wasting, my vision dimming. Darkness crept in.
 
-Before I lost consciousness completely, he pressed a pair of sunglasses into my hand. "Here,” he said softly. “Put these on. They’ll let you live the few days you have left." I slid them on. He leaned closer. “Don’t remove them,” he warned. “If you do, they’ll make you see what you shouldn’t.” Then, almost as an afterthought, he added, "People don’t last long once they stop riding, That’s all I know."
+Before I lost consciousness completely, he pressed a pair of spectacles into my hand. "Here,” he said softly. “Put these on. They’ll let you live the few days you have left." I slid them on. He leaned closer. “Don’t remove them,” he warned. “If you do, they’ll make you see what you shouldn’t.” Then, almost as an afterthought, he added, "People don’t last long once they stop riding, That’s all I know."
 
 I’m on the bus right now. I typed all of this from here. The woman is sitting beside me again, showing me a selfie she once took at a gas station while refuelling. I’m in the background of a few of those photos. I had unknowingly ruined her selfies. Now we sit here, holding hands, sobbing together.
 
-A while ago, my sunglasses slipped off. And I saw them. Countless people, screaming, crying, sitting silently throughout the bus. Faces stacked upon faces, lives trapped in reflection. I realized then that without the glasses, we see through the driver’s eyes. The mirror is not for watching the road. It records everything.
+A while ago, my spectacles slipped off. And I saw them. Countless people, screaming, crying, sitting silently throughout the bus. Faces stacked upon faces, lives trapped in reflection. I realized then that without the glasses, we see through the driver’s eyes. The mirror is not for watching the road. It records everything.
 
 The driver slowly turns his head completely around and smiles at us. His head has no eyes. They are fixed inside the rear-view mirror. And I know what’s going to happen next.
