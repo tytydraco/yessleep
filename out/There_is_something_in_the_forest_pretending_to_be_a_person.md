@@ -1,6 +1,6 @@
 The bus ride out was long and quiet. I spent most of it either staring out the window or drifting in and out of sleep. I was the last one aboard after a few passengers trickled off in small rural towns.  
 
-The bus suddenly came to a halt, and a distraught man got aboard. He stumbled down the aisle sat across from me, and began to scribble intently into a battered, leather-bound book. He looked older, maybe in his sixties, tired looking, wearing well-worn and dirty hiking gear. He spent the whole ride either writing or flipping through the pages.  
+The bus suddenly came to a halt, and a distraught man got aboard. He stumbled down the aisle, sat across from me, and began to scribble intently into a battered, leather-bound book. He looked older, maybe in his sixties, tired looking, wearing well-worn and dirty hiking gear. He spent the whole ride either writing or flipping through the pages.  
 
 About an hour before my stop, the bus driver called out, “Reinheim National Park Ranger Station”. The man abruptly stood up and rushed to the front of the bus. He searched his pockets frantically, then slapped some loose change onto the fare counter before darting off without saying a word.  
 
