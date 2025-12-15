@@ -1,3 +1,7 @@
+Grandma always said, don’t turn back when someone taps your shoulder on Ghost Festival. I wish I’d listened.
+
+
+
 Last night, I had the dream again. A nightmare—its setting was identical to my bedroom, so much so that the second I opened my eyes, I couldn’t tell if I was still in the dream or awake.
  
 I dreamed the door I’d locked from the inside swung open again. That person had effortlessly unlatched the several bolts I fastened every night, then lay down unapologetically on my left side, flat on their back.
