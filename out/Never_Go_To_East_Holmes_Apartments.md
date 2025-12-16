@@ -398,4 +398,3 @@ Just know this.
 
 Never go to East Holmes Apartments.
 
-[Part 2 Account](https://www.reddit.com/r/TalesFromTheCreeps/comments/1pnw4gu/my_vision_is_blurry_and_i_am_scared_of_what_lies/)
