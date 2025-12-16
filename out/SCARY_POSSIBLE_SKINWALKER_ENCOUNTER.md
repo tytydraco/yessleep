@@ -1,0 +1,33 @@
+It was the summer of 25 and me and my friend (Both girls, 18 and 19) live in a small city in Latvia, the area which my friend lives in has a low population and there isn’t much around. The area is surrounded by forests, lakes and fields, its a semi-rural area with one small shop with mostly old buildings. My friend lives in a apartment complex which is a really old house that was used as sleeping quarters for a barons servants right next is a small castle like building which is now a school but used to be lived in by the baron.
+
+This summer i was staying at my friends place and we got into a habit of late night walks which lasted up into the early hours between 3-5AM, at first these were just casual walks and us goofing around just talking and listening to music until one night we started to get a really uneasy feeling on our walks, we felt like there was another presence around watching our every move like hawks, with most of the area being pitch black as there were barely any lanterns around we couldn’t really see much. On this one particular night we started being accompanied by a orange cat.
+
+This orange cat (who we jokingly named Alfred) seemed to know exactly when we would start our late night walks and would be waiting for us outside her door and would only appear at night and with the area being so small we would have seen the cat before. Alfred would accompany us and follow our every step which would of been something we just brushed off if it wasn’t for the fact that he would always keep his eyes on something or someone and would follow it around to every direction it moved. He would sit in front of us almost like he was trying to protect us or warn us about some sort of presence which we strongly felt.
+
+Alfred staring into the dark distance terrified us but we tried to brush it off as him maybe watching mice since there is a lot of big open fields but the uneasy feeling never left us. This one particular night the feeling of fear overwhelmed us and we decided to head home earlier than usual, walking back to her place we started to notice a black silhouette behind the trees following us as we walked up a sidewalk but we tried to ignore it and get home as fast as possible thinking maybe our minds are just playing tricks on us out of fear and paranoia.
+
+Alfred stopped following us from where the apartment complex starts and couldn’t take his eyes off of the silhouette sitting in the middle of the road staring into the deep darkness. The next day i had made my way back to my own apartment which is in a different area about a few kilometres away which is when the real horror started.
+
+it was late at night and I was just chilling on my couch watching TV when my friend texted me in a panic, terrified telling me that something really weird is going on outside her window it was around like 1:20 am, she lives on the first floor and she had told me that her window is open while her blinds are closed.
+
+She started by telling me that she could hear footsteps walking, stomping and running right under her window but that’s not the worst part as she proceeded to tell me that it sounded like someone was right in her window deliberately making really weird sounds with their mouth which were really just gruesome and unexplainable and sounded really human.
+
+At first I thought these sounds had some explainable reason behind them like it being the wind or some sort of stray animal until i got to hear them myself the very next day…
+
+The next day i came over to stay at my friends place again, as she was a little scared that it would happen again. As the day went on we totally forgot all about it and even laughed about the sounds. Until later that night, we were just laying in bed scrolling on our phones, until we heard the unusual footsteps again as if whatever or whoever was there wanted to be heard, (the window was still open by the way as the summer was really hot) we glanced over at the window slightly scared, we suddenly froze, as we came to a realisation it was around the same time as last night, i even scrolled back to the messages to check what time my friend sent them.
+
+Then the sounds began. They were human like, but wrong, too close. It sounded as if someone had pressed their mouth directly against the window, soft clicking noises, tongue against teeth, against the roof of the mouth but wet, slippery like saliva stretching and snapping, like someone drowning and trying to breathe quietly, it wasn’t just a noise, it felt intentional as  whatever was making it knew we were listening.
+
+It didn’t sound human, more like something pretending to be… and this time i heard it too. Then in the middle of that terror we noticed something else, the blinds, they were no longer hanging straight, one section was pushed outward, bent away from the window as if fingers were curled around it from the other side, holding it, testing it just enough to let us know we weren’t alone, but not enough to be seen. Just to let you know there was no wind, no animals, etc… 
+
+After that we didn’t dare to make a single sound or move a single muscle, as we were too scared to even let out a single breath. The air felt heavy, and then it happened… 
+
+The noise. This time it came from INSIDE in the hallway, right outside her bedroom door, we heard it crystal clear as the door was wide open. We shot up in a panic, wanting to be further from the door, but not closer to the window. We sighed in relief when we heard my friends mum go to the bathroom which we used as an opportunity to bolt out of my friends bedroom and tell her mum. 
+
+At first she looked slightly afraid, but then she went to the window in her room to check outside, as its right next to my friends, then she proceeded to laugh and told us its nothing there and not to worry as she didn’t see a thing outside, but we know for sure, it wasn’t our imagination.
+
+After calming down we went to sleep. The next morning we woke up prepared, we spent the day researching ways to capture any evidence, as it has happened for the last two days. Sitting on the balcony having breakfast we came up with the idea of using one of our phones to record the sound and when the evening came we were sure we would get some proof.
+
+As the night approached we obsessively checked the time waiting for 1AM to arrive. To our disbelief… Nothing.
+
+If you had an explanation for this we would be overjoyed and extremely grateful for extra opinions on this to ease our minds.
