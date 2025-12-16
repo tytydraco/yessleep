@@ -116,7 +116,7 @@ I stood there for a good minute, noticing that not only was the apartment empty,
 
 I started to step back out of the apartment. "Hey kid-" I turned to see nobody standing there. Just a long, empty path leading back to the stairs. My arm was twitching, both from pain and an uneasiness. I wished this was just a very elaborate prank, but nothing made any sense. I felt something brewing within me. My lungs. I was hyperventilating.
 
-Lights from the neighbors turned on. In a brief daze, I felt like moving was impossible. Then I heard a voice, "Hey is everything alright out there?" I panicked. I bolted down the stairs, running as fast as I could across the street over to my building and ran back up into my apartment, locking the door and slamming my back into it. 
+Lights from the neighbors turned on. In a brief daze, I felt like moving was impossible. Then I heard a voice, "Hey is everything alright out there?" I panicked. I bolted down the stairs, running as fast as I could across the street over to my building and ran back up into my apartment, locking the door and slamming my back into it.
 
 As I slid down, sitting there in silence, my cat came over to me. Still trying to process everything that had just happened, I hadn't even noticed that he was meowing his long, weird humming meow and had put a paw on my leg.
 
@@ -397,3 +397,5 @@ I don't know what they're going to do to me and I don't know how long I have lef
 Just know this.
 
 Never go to East Holmes Apartments.
+
+[Part 2 Account](https://www.reddit.com/r/TalesFromTheCreeps/comments/1pnw4gu/my_vision_is_blurry_and_i_am_scared_of_what_lies/)
