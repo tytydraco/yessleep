@@ -42,7 +42,7 @@ Her head leaned forwards before she lifted it smashing the back of her skull aga
 
 “Mom! F..Fuck!”
 
-I tried to stop her, holding her neck, her head, anything. The clicking growing louder as I focused on the cracks that could be heard coming from the back of her head every time she had bashed her head against the wooden frame. I placed my hand behind her head trying to stop her but she continued, my hand being pulverized by the sheer force of her head against the wood over and over for what felt like hours, then nothing.
+I tried to stop her, holding her neck, her head, anything. The clicking growing louder as I focused on the cracks that could be heard coming from the back of her head every time she had bashed it against the wooden frame. I placed my hand behind her head trying to shield her but she continued, my hand being pulverized by the sheer force of the bashing against the wood over and over for what felt like hours, then nothing.
 
 She moved herself down slowly and adjusted her head onto the pillow falling asleep. Afterwards my hands were bruised, shaking, strained and bloodied and all I could do was stare at my mom as the pain set in; Wondering if she’d be better off.
 
