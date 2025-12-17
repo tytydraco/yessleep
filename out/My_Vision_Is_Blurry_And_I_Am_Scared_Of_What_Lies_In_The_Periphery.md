@@ -20,7 +20,7 @@ I can't go down there. Everything is telling me not to go down there. It just do
 
 The call ended. I looked at my phone. It was fully charged. Maybe I'm just getting bad service because of the rain? I don't know how cellphones work, but I tried calling them again. After it rang once or twice, it just hung up again.
 
-There's no way they're actually hanging up on me. I literally just told them about a little boy lost in the woods... This is an emergency for goodness sake! I thought to myself. I shoved my phone back into my pocket and looked down to where the boy was at. He was still standing there.
+*There's no way they're actually hanging up on me. I literally just told them about a little boy lost in the woods... This is an emergency for goodness sake!* I thought to myself. I shoved my phone back into my pocket and looked down to where the boy was at. He was still standing there.
 
 I brought my finger to my lips and started chewing on it anxiously, looking around for someone, anyone to help. I DON'T want to go down there, but I can't live with myself if this is actually just a little boy who needs help. I kicked my foot down onto the pavement like a frustrated horse.
 
@@ -98,7 +98,7 @@ I sniffled as I wiped my eyes. "Are you actually going to send someone this time
 
 He nodded.
 
-"Alright," I continued, "I live at East Holmes Apartments. The fores-" 
+"Alright," I continued, "I live at East Holmes Apartments. The fores-"
 
 He let out a small cough. Then he coughed again as if he was choking on something. However, the look on his face made it seem like he was about to shout something and held it back, forcing out a wheezing, dry cough instead. I leaned forward a bit. Just as I was about to ask him if he was ok, he raised his hand up.
 
@@ -112,7 +112,7 @@ He put his finger in each one of those weird hole things and pulled them across,
 
 "Yes, this is officer Rick..." It was so hard to hear. I think he gave out his whole name and badge number before continuing. "East Holmes sir... A woman... Close to her mid 30's..."
 
-I'm only 28, pendejo, I thought to myself.
+*I'm only 28, pendejo*, I thought to myself.
 
 "... -e step in?... -ear (something?) forest... No, where (division?) 7 was-... "
 
@@ -170,7 +170,7 @@ I fought with every ounce of strength not to, but the salty tears felt like they
 
 But I blinked.
 
-Only for a moment. 
+Only for a moment.
 
 And the figure that was reflecting off of the fish tank in my periphery was no longer there.
 
@@ -182,7 +182,7 @@ I grabbed the blanket and immediately threw it on top of me as I curled up into 
 
 Just then, I felt something touch my shoulder. I whimpered as it pressed down hard, digging what I felt I could best describe as muddy, cold talons into me. The cushions of my comfortable couch felt like they weren't pushing into me as hard anymore.
 
- was pull me up slowly.
+was pull me up slowly.
 
 I was so terrified that when I tried to cry out, all that escaped me was a squeak of air. A mouse caught by a cat.
 
