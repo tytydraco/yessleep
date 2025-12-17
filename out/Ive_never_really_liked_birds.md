@@ -1,12 +1,12 @@
 It's hard enough to lose your job, try moving into my cousin, Chris' basement. He promised he would clear out the old stuff my aunt and uncle had be collecting for what seemed like centuries. He hadn't but considering all and all, I wasn't going to complain.
 
-I arrived around 5pm and in the middle of December, so it may have well been midnight with how dark it was outside. At least the basement was warm. Chris showed me the door to downstairs and handed me the key to door that led outside. "You can use the upstairs door for most things, but I'm required by the Fire Marshall to give you this in case of a fire. Also use the room with a window for your bedroom and the other for storage."
+I arrived around 5pm and in the middle of December, so it may have well been midnight with how dark it was outside. At least the basement was warm. Chris showed me the door to downstairs and handed me the key to door that led outside. "You can use the upstairs door for most things, but I'm required by the Fire Marshall to give you this in case of a fire. Also, for fire safety, use the room with a window for your bedroom and the other for storage."
 
-I nodded, half in a daze. It had been a 4 hour drive and I was ready to make any four walls a bedroom and any flat surface a bed. I took the key and dragged my measly duffel bag down the stairs with me. It was a standard basement, large room at the end of the stairs with two doors on the back wall leading to bedrooms. The door on the side let up a set of stairs to the outside.
+I nodded, half in a daze. It had been a 4 hour drive and I was ready to make any four walls a bedroom and any flat surface a bed. I took the key and dragged my measly duffel bag down the stairs with me. It was a standard basement, large room at the end of the stairs with two doors on the back wall leading to bedrooms. The door on the side led up a set of stairs to the outside.
 
-I'm sure the decor was chic in the 70s but now the burnt orange carpet, wood and brick feel ominous, especially with the dim incandescent lights. I settled onto the cream couch with brown print pastoral scenes and a plastic covering to protect it. The plastic crinkled under my weight. My eyelids met for but a second. The sound of gun fire in rapid succession jolted me awake. I thought my cousin lived in a fairly safe neighborhood. I ran upstairs.
+I'm sure the decor was chic in the 70s, but now the burnt orange carpet, wood and brick felt ominous, especially with the dim incandescent lights. I settled onto the cream couch with brown print pastoral scenes and a plastic covering to protect it. The plastic crinkled under my weight. My eyelids met for but a second. The sound of gun fire in rapid succession, like a machine gun, jolted me awake. I thought my cousin lived in a fairly safe neighborhood. I ran upstairs.
 
-My cousin sat at the kitchen table working on a puzzle. He looked at me equally puzzled. "You ok?" He asked.
+My cousin sat calmly at the kitchen table working on a puzzle. He looked at me equally puzzled. "You ok?" He asked.
 
 I fidgeted."Yeah, did you hear that?"
 
@@ -22,7 +22,7 @@ I could tell from the way he was looking at me, he assumed my losing my job was 
 
 "Alright then." And he went back to his puzzle and I back down stairs.
 
-To pass the time while I moved around his parent's old stuff. To prevent myself from dozing I softly sang to myself the comfort song of my childhood. *"I know you, I walked with you once upon a dream"* my voice filled the empty space with a slight echo.
+In order to make room for my bed, I moved around his parent's old stuff. To prevent myself from dozing I softly sang to myself the comfort song of my childhood. *"I know you, I walked with you once upon a dream"* my voice filled the empty space with a slight echo.
 
 I found an old photograph peeping out of one box. It was of a tall handsome man with long flowing hair, one I didn't recognize. His appearance neither fit the 1970s nor any particular time period. He felt so out of place but I couldn't put my finger on why. He didn't quite feel, human, to me for reasons I could not articulate.
 
@@ -98,6 +98,6 @@ I sobbed in terror.
 
 "Yes." I replied.
 
-"Good. Farwell. Sister."
+"Good. Farewell. Sister."
 
 I drove away and never saw my cousin again. I ended up moving in with my father and found a new job. A few years later I got a Christmas Card, my cousin and me, smiling happily in matching dinosaur sweaters. Only, something about my face didn't look quite human enough.
