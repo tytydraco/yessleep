@@ -154,7 +154,7 @@ When the cultists finished encircling me, they went to their knees, put their ha
 
 Silence. None of them moved.
 
-I was sitting nervously in the stone chair as they presumably 'damned' me, trying to remember and follow the rules I was told.
+I was sitting nervously in the stone chair as they presumably "damned" me, trying to remember and follow the rules I was told.
 
 *Don't look behind me.*
 
