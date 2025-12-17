@@ -25,3 +25,5 @@ The worst part was that it just stayed there. That close to me. Unmoving, but br
 That was this morning. It's almost night again. I don't know what I'm going to do. I can't sleep here tonight. But I don't want to leave it alone with the people I live with and I know I'm going to sound crazy if I try to explain what I experienced. But I know what I know.
 
 I know that it's there.
+
+EDIT: \[Continued [here](https://www.reddit.com/r/nosleep/comments/1pp85ls/something_is_in_my_room_while_i_sleep_cont/).\]
