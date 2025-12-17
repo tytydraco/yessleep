@@ -398,3 +398,4 @@ Just know this.
 
 Never go to East Holmes Apartments.
 
+[Witness Account #2](https://www.reddit.com/r/nosleep/comments/1porrh6/my_vision_is_blurry_and_i_am_scared_of_what_lies/)
