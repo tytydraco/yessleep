@@ -10,7 +10,7 @@ Sitting in the quad one day, two particularly creepy upperclassmen walked by me 
 
 Lyco helped me adjust to the regional culture and always had questions about America- a place he wanted to visit but for some reason wasn’t allowed to, which I never understood.
 
-During senior year, I did something a couple things I regretted.  Lyco lent me money before my flight back to NYC, which I promised I’d send back immediately, but neglected to when I returned to the states.  And worse, I slept with his sister, Ilissa, after a Carnival party.  I was never sure if Lyco needed to know this though; Ilissa was an adult, she even said herself it was best not to say anything.  I never saw her again after that; her strawberry blonde hair and vivid blue eyes made it hard to forget her.  I was secretly hoping I’d see those eyes again on this trip.
+During senior year, I did a couple things I regretted.  Lyco lent me money before my flight back to NYC, which I promised I’d send back immediately, but neglected to when I returned to the states.  And worse, I slept with his sister, Ilissa, after a Carnival party.  I was never sure if Lyco needed to know this though; Ilissa was an adult, she even said herself it was best not to say anything.  I never saw her again after that; her strawberry blonde hair and vivid blue eyes made it hard to forget her.  I was secretly hoping I’d see those eyes again on this trip.
 
 However, I did bring Lyco his money, with interest, and gave him my best Canon video camera as a gift.  Lyco seemed pleased, so I relaxed.  I had to bite my tongue though; I desperately wanted to know where Ilissa was.  She sent me letters over the years, the last one was a postcard that came with a warning to *not come back* *to Greece*, no matter how badly we wanted to see each other.  I begged her to come to NYC, but nothing.  We stayed off social media to not raise any suspicion.
 
@@ -46,7 +46,7 @@ Tears streaming down my face, I slammed the brakes, I had to go back and get Lyc
 
 It grabbed onto the spare tire, ripping if off the back of the Jeep entirely.  I had no choice but to speed out of there.
 
-Back at the house, I couldn’t figure out how to call for help, nobody was at home.  
+Back at the house, I couldn’t figure out how to call for help, nobody was at home. 
 
 "The police don't even know." echoed in my head, causing me to hesitate calling 911, or whatever it is out here.
 
