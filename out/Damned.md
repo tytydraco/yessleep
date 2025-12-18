@@ -112,7 +112,7 @@ He latched the briefcase—dampening my barely restrained avarice—and closed t
 
 Darkness and shadow enveloped me as the door closed, and I took in my surroundings for the first time.
 
-Immediately, I realized that the entire building was one hollow shell, containing one vast, featureless room.
+Immediately, I realized that the entire building was a hollow shell; containing one vast, featureless room.
 
 Its walls, ceiling, and floor were solid stone. The only lights were functionally placed candelabras—of course it would be candles—and I could barely see in the gloom.
 
