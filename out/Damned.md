@@ -148,7 +148,7 @@ I walked around the chair and took a seat. It was cold and a bit uncomfortable, 
 
 All of the cultists moved at the same time and immediately began to encircle me. They weren't that close, but regardless, I almost jumped from my chair. Apparently, they were giving me no warning.
 
-It was time to be 'damned'.
+It was time to be "damned".
 
 When the cultists finished encircling me, they went to their knees, put their hands on the floor, and bowed their heads toward the ground.
 
