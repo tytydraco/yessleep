@@ -16,7 +16,7 @@ It started with the placement of a simple jack-o-lantern on Billy's porch. When 
 
 At first, they were perplexed. The initial reaction was that Billy had simply neglected to throw out his jack-o-lantern from a few months ago. But the pumpkin was new and fresh. To this day, I can't imagine where he got it from. It showed no signs of decay, no mold, no nothing. It was orange and plump and good enough to make into a pie.
 
-I can't remember exactly, but once it became apparent that Billy (and possibly also his aunt) were having a late Halloween, the murmurings turned from reasonable calls of "he should throw that old pumpkin out" to half-amused, half-suspicious remarks about how "someone must *really* like Halloween."
+I can't remember exactly, but once it became apparent that Billy (and possibly also his aunt) were having a late Halloween, the murmurings turned from reasonable calls of "he should throw that old pumpkin out" to half-amused, half-suspicious remarks about how "someone must really like Halloween."
 
 But then it got worse.
 
@@ -46,23 +46,23 @@ Several people marched up to Billy's house to confront him. But they were appall
 
 It was Christmas Eve at this point, and the neighborhood arranged a meeting at the house of the neighborhood's richest resident (the pastor at my church). I was in attendance because my mother had dragged me along. Up to that point, she hadn't been bothered by Billy. But as any admittedly sensible person would do, she drew a line when Billy stepped onto our property and started vandalizing our Christmas lights.
 
-We all agreed we would confront Billy together, and if he refused to cease and desist with his Halloween nonsense, we'd demand to speak to his aunt. And if she did nothing to stop Billy, then we'd involve the police. We had reason to believe that the boy had been stalking around our yards, after all. And trespassing, unlike celebrating Halloween a few months late, was *definitely* a crime.
+We all agreed we would confront Billy together, and if he refused to cease and desist with his Halloween nonsense, we'd demand to speak to his aunt. And if she did nothing to stop Billy, then we'd involve the police. We had reason to believe that the boy had been stalking around our yards, after all. And trespassing, unlike celebrating Halloween a few months late, was definitely a crime.
 
-We all marched to the house, the pastor leading the way, tightly clutching a Bible, his face screwed up in righteous fury and determination. No one was going to insult the most holy day of Christmas with a pagan holiday, he'd declared to us. I remember thinking him calling Halloween "pagan" sounded wrong. But we no one corrected him. We all were too ignorant. Back then, we have all the information in the world at our fingertips, and not many people sought out information at a library or museum. But hell, even now, readily available access to facts won't stop someone from believing any crazy thing they damn well mean to.
+We all marched to the house, the pastor leading the way, tightly clutching a Bible, his face screwed up in righteous fury and determination. No one was going to insult the most holy day of Christmas with a pagan holiday, he'd declared to us. I remember thinking him calling Halloween "pagan" sounded wrong. But no one corrected him. We all were too ignorant. Back then, we didn’t have all the information in the world at our fingertips, and not many people sought out information at a library or museum. But hell, even now, readily available access to facts won't stop someone from believing any crazy thing they damn well mean to.
 
 Billy opened the door the minute we'd stopped at his porch, as if he'd been awaiting our arrival. I remember he looked perfectly calm--stoic, even.
 
-"God will *not* be mocked, son," the pastor told Billy viciously through his teeth. He had his Bible open in his hand and was leaning forward like he was preparing to charge into the house and perform an exorcism.
+"God will not be mocked, son," the pastor told Billy viciously through his teeth. He had his Bible open in his hand and was leaning forward like he was preparing to charge into the house and perform an exorcism.
 
 Billy merely smirked in response.
 
 "This Halloween nonsense has got to stop!" someone cried.
 
-"It isn't right!" another agreed. "You can't just *move* holidays around!"
+"It isn't right!" another agreed. "You can't just move holidays around!"
 
 I'll never forget the smooth, almost cocky certainty in Billy's voice when he responded to the crowd. "Oh," he said cryptically, his eyes bulging and wild, "you won't have to worry for much longer now...."
 
-"Certainly we *won't!*" the pastor spat. "So, are you going to *stop* blaspheming, or do we need to have a talk with your *aunt*?"
+"Certainly we won't!" the pastor spat. "So, are you going to stop blaspheming, or do we need to have a talk with your aunt?"
 
 For a moment, Billy looked worried; I think it was at that moment that I realized he was far gone (in the head, that is). If he weren't crazy, then that little flicker of primal fear in his face wouldn't have been so jarring. But in a flash, Billy's mad jack-o-lantern grin returned, and when he didn't say anything, the crowd lost all patience. Led by the pastor, they forced their way inside.
 
@@ -86,7 +86,7 @@ Most people in the neighborhood opted to move as soon as they were able. My moth
 
 The incident with Billy's aunt wasn't widely publicized, and I can't find any reference to it online. After no family members showed up to claim the aunt's body, I suspect the police had the story killed. Probably, they were embarrassed that they'd never investigated Billy's behavior despite some of his neighbors calling about it. Coverups like that were common back then. Hell, they're still pretty common now.
 
-Now that I have a foot in the grave and am regarded as senile by most of my caretakers and family, I have no scruples telling all this tell to random strangers online. I've had a complicated relationship with Christmas since the incident with Billy. I've been going through the motions each year, for the sake of my grandchildren and great grandchildren, putting on a happy face.
+Now that I have a foot in the grave and am regarded as senile by most of my caretakers and family, I have no scruples telling all this to random strangers online. I've had a complicated relationship with Christmas since the incident with Billy. I've been going through the motions each year, for the sake of my grandchildren and great grandchildren, putting on a happy face.
 
 But I don't really believe in Christmas's promise of life after death. Or Halloween's for that matter. We all die. We all turn to dust. I've accepted that. Seeing Billy's aunt maybe put that attitude in me--that there was no actual dignity in death, nothing special or holy about it. Don't let the holidays fool you.
 
