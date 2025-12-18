@@ -1,4 +1,4 @@
-[PART 1 ](https://www.reddit.com/r/nosleep/comments/1plactn/garden_joe_redneck_wizard_part_14/)— **PART 2** — PART 3 — PART 4
+[PART 1 ](https://www.reddit.com/r/nosleep/comments/1plactn/garden_joe_redneck_wizard_part_14/)— **PART 2** — [PART 3 ](https://www.reddit.com/r/nosleep/comments/1ppcddh/garden_joe_redneck_wizard_34/)— PART 4
 
 It was maybe a week after my first visit when Timothy contacted me, calling on my office phone, begging me to come out to the Greenhill property. He told me that Garden Joe had gotten drunk, rounded up a posse of cousins, and they were planning on marching down to the Blackthorpe house to “raise hell”. He thought I could talk some sense into him and I disagreed.
 
