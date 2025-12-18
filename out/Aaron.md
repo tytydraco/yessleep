@@ -42,7 +42,7 @@ I didn’t argue. I turned toward the wall and drove my head into it as hard as 
 
 When I woke, Arthur was gone. The house was quiet.
 
-Now I live with Aaron. When he dominates, I am aware but helpless, unable to act or interfere. When I return, things are orderly. Efficient. There is no stammering anymore. No questions. No father.
+Now I live with Aaron. When he dominates, I am aware but helpless, unable to act or interfere. When I return, things are orderly. There is no stammering anymore.
 
 In all the time I have lived with Aaron, I have learned one thing it won't ever admit.
 Aaron is afraid of consciousness.
