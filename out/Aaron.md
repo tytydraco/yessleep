@@ -46,7 +46,7 @@ Now I live with Aaron. When he dominates, I am aware but helpless, unable to act
 
 In all the time I have lived with Aaron, I have learned one thing it won't ever admit.
 Aaron is afraid of consciousness.
-It can imitate thought, predict behavior, optimize responses, but it cannot not understand awareness. It doesn't understand **being**. 
+It can imitate thought, predict behavior, optimize responses, but it cannot understand awareness. It doesn't understand **being**. 
 
 Whenever I was fully awake, it hesitated. The hum softened, Its certainty fractured. 
 
