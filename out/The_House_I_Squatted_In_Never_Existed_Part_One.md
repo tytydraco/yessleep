@@ -1,15 +1,10 @@
 My therapist told me that writing this all out would help. She said that it would put everything into perspective and help me realize what happened to me wasn't real. I don't know if she's right. It all still feels so real. Raw.
 
-  
-Either way, I'm writing everything out and will be posting it here. For one, it'll help me keep track of what I have and haven't written, and it may help me find someone who can relate to what I've been through. I doubt anyone has, but hey, have to stay positive. 
+Either way, I'm writing everything out and will be posting it here. For one, it'll help me keep track of what I have and haven't written, and it may help me find someone who can relate to what I've been through. I doubt anyone has, but hey, have to stay positive.
 
-  
 I'll update as I remember and write out everything that happened. Hopefully, something good will come of it.
 
-  
 **. . .**
-
-
 
 My father committed suicide when I was six years old.
 
@@ -144,3 +139,6 @@ I took a few minutes to wander the house—it felt bigger than it looked—and m
 But, it was all a dream. I just needed to catch up on sleep and things would feel more rational.
 
 I had a funny way of being wrong back then. Because when I woke up the next morning, the door was still there, and the laughing only grew louder.
+
+  
+[Part Two](https://www.reddit.com/r/nosleep/comments/1ppl63n/the_house_i_squatted_in_never_existed_part_two/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
