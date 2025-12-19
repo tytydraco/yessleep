@@ -66,9 +66,11 @@ A series of dull, sluggish thuds emanated from the hallway, quieter and quieter 
 
 My bulging eyes remained fixed on the moon-touched darkness spilling in from the cracked doorway.
 
-I shifted forward. The wood was cold on the balls of my heels, biting at the exposed skin. I stood. A long, shuddering moan exploded from the plank bowing under my weight.
+I shifted forward. The wood was cold on the balls of my heels, biting at the exposed skin. I stood. A long, shuddering moan exploded from the plank bowing beneath my weight.
 
 My entire body tensed. Psychic pain ran dizzying laps along the length of my spine, up and down, up and down.
+
+*God...they must have heard that.* 
 
 I listened.
 
@@ -80,7 +82,7 @@ A razor-sharp vacuum of sound.
 
 Then, from a further distance: the knocks. Same pattern. *My* pattern: tainted, defiled, bastardized.
 
-Then, the thuds resumed.
+The thuds resumed.
 
 I bent over, drew an aluminum baseball bat from under my bed, and crept towards the door. Pearly moonlight trickled across the room, filtering through the pines outside my second-story bedroom window, manifesting a dancing panorama of ghostly shapes as the branches wavered in the wind.
 
