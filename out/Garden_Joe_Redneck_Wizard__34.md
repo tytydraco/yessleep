@@ -1,6 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1plactn/garden_joe_redneck_wizard_part_14/) — [Part 2](https://www.reddit.com/r/nosleep/comments/1pmhqgd/garden_joe_redneck_wizard_part_24/) — **Part 3**  — Part 4 (unpublished)
-
-
+[Part 1](https://www.reddit.com/r/nosleep/comments/1plactn/garden_joe_redneck_wizard_part_14/) — [Part 2](https://www.reddit.com/r/nosleep/comments/1pmhqgd/garden_joe_redneck_wizard_part_24/) — **Part 3**  — [Part 4](https://www.reddit.com/r/nosleep/comments/1prjoi3/garden_joe_redneck_wizard_part_44/) 
 
 “Professor?” Joe’s voice came through the tinny speakers of my office phone. “I’ve gone and done somethin’ tremendously stupid. Respectfully, I may need your help again.”
 

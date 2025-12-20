@@ -1,4 +1,4 @@
-**PART 1** — [PART 2](https://www.reddit.com/r/nosleep/comments/1pmhqgd/garden_joe_redneck_wizard_part_24/) — [PART 3](https://www.reddit.com/r/nosleep/comments/1ppcddh/garden_joe_redneck_wizard_34/) — PART 4
+**PART 1** — [PART 2](https://www.reddit.com/r/nosleep/comments/1pmhqgd/garden_joe_redneck_wizard_part_24/) — [PART 3](https://www.reddit.com/r/nosleep/comments/1ppcddh/garden_joe_redneck_wizard_34/) — [Part 4](https://www.reddit.com/r/nosleep/comments/1prjoi3/garden_joe_redneck_wizard_part_44/)
 
 I had the distinct impression that this was the kind of place I would have found a shotgun in my face if I hadn’t been invited.
 
