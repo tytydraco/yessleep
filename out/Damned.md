@@ -292,4 +292,4 @@ Flipping to the other side reveals three words, printed in bone-white letters:
 
 ---
 
-A black robe fills the rest of the box.
+A black robe fills the rest of the [box](https://www.reddit.com/u/leadraine/s/Tw51JF5Qtr).
