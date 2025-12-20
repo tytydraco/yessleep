@@ -1,83 +1,98 @@
-I think something went wrong when I was born.  My parents tell me it was fine, other than being so close to Christmas.  They didn’t want a child born near Christmas because they were afraid it would be overshadowed by the holiday.  They let me do whatever I wanted for my birthday and if that meant that I wanted a slumber party with twenty of my friends, so be it.
+[Previous Year's Post](https://www.reddit.com/r/nosleep/comments/1hicdd6/i_was_born_twelve_minutes_after_midnigh)
 
-I learned from an early age that the night before my birthday was special, however.  It was a time for me and me alone.  I couldn’t let anyone else know about the twelve minutes after midnight, those twelve minutes leading up to the moment of my birth.  Twelve minutes in which I didn’t exist - the day of my birth, but not yet the *moment*, a strange void in which I was and was not.
+Tom has been unstoppable.  *I* feel unstoppable.  I also maybe want to vomit because I’m so nervous and so scared, but you know, it’s all a balancing act.  Gotta psych myself up enough to go through with this.  Because this year… I’m not running.
 
-I can’t explain where I got that idea.  It’s something that’s always been in my head, from the moment I could form memories.  I think I tried talking about it with my classmates once, along with everything else that happens in those twelve minutes, and I quickly learned that I was the strange one and I shouldn’t tell this story, because I would be laughed at.
+I’m getting a little ahead of myself.  I was born twelve minutes after midnight, or at least, that’s what my birth certificate says.  The truth is that I was born at midnight, dead, until the doctor that delivered me pulled me out of death’s grip and brought me back to my parents.  Literally.  Literally pulled me out of a void and back into the world of the living.  But there are consequences to defying the natural order of things, though.  Every year, on my birthday, during those twelve minutes in which I was dead, the void gets a chance to drag me back in.
 
-It started small, but profoundly terrifying for a small child.  My earliest memory is of a dark, claustrophobic space and the weight of the blankets I was hiding under.  The heat of my own body and the stale air that I desperately tried to not breath, too afraid they would hear me, even though I knew it was too late, for I held the edge of the blanket down with both hands even as they gently pried at it, trying to lift it up and reveal me cowering underneath.
+It’s been getting stronger.  For years I thought it was because I was getting older but… I met the doctor that saved me, just as he’d been saved himself as a child.  And he told me - before he gave himself up to oblivion - that the death that followed me was so much bigger than the one that had followed him.
 
-It felt like it went on all night.  Now that I am older, I know it only lasted twelve minutes.
+And now, thanks to my friends Tom and Susan, we’re one step closer to understanding why that is.
 
-As I got older, hiding under the blanket was not enough.  I was in third grade the first time they pulled me out from under there.  They lifted it up just enough to reach a hand through and even in the darkness I could see that it was human, but too angular; the swell of joints and the curve of skin was entirely absent.  It was like a cutout of a hand.  There was no color, either, and no depth.  It did not reflect the light, scant as it was.
+Tom and Susan are both nurses at the hospital where I was born.  Last year, Tom had an idea that I wouldn’t just outrun the void, but that I’d let it catch up and in the last few seconds before it vanished, I’d pull someone out.  It was terrifying.  It was an idiotic risk.  And it worked.  I seized someone, a young father who had been in the room below mine when I was born and died for no reason other than the proximity to the void, and dragged him out.  We got him home and it was like he’d never died.  Like he’d never even been gone.  Just as reality had written people out of existence, it at least was willing to write this person back in.  I gave him his life back.  Then Tom, flush with victory, proposed Phase 2 of his plan.
 
-It grabbed my wrist and it was so cold that I cried out, but weakly, because terror was wrapped around my throat and I was choking on it.  I could barely move.  It pulled and drew me out and I stumbled as I fell onto the floor and I saw all around me the darkness had covered the walls of my bedroom and was stretched across the floor.  I was alone on a narrow strip of carpet with my bed behind me and it was like everything ended at that edge, vanishing into an empty gulf.  The hands came from that darkness, dozens of them, stretching out along the floor to grab at my wrists and ankles.
+He’d had it in the back of his head, from the moment he met me.  And after the holidays wound down, we all met up at his apartment to talk through about what had happened.  The person I’d rescued from the void was not among us.  Susan had reached out, but he’d declined to have anything more to do with us.  With… *this.*  None of us blame him.  He has a family, he has a newborn to worry about.  That’s enough.  I can’t really expect himself to put his life on the line when he had nothing to do with this other than being unfortunate enough to be sitting close enough for the vortex to reach out and snag.  No, the people that will be risking themselves to… stop this thing… will be us.
 
-I dug in my heels, grabbed hold of my bed frame, and the hands could move me no further.  They tried, but they were weak, and I remained where I was until my clock’s minute hands reached twelve and I was alone in my bedroom.
+Because Tom does want to stop it.
 
-I screamed for my parents.  Sobbing, I told them what happened and my father investigated the house and told me all the windows and doors were locked, nothing had gotten in, and it was probably a nightmare.
+*I* want to stop it.  I just haven’t thought that was possible until now.
 
-And like with my classmates, I learned to not talk about it.  I guess as a kid I interpreted that their evasiveness about the circumstances of my birth meant they knew about those twelve minutes and wouldn’t do anything about it.
+“We know there’s a multitude of people inside that vortex,” Tom said, after we’d all settled at the kitchen table with our hot cocoa.  “And they’re people that it has swallowed that perhaps shouldn’t have died when they did.”
 
-In eighth grade I learned to fight back.  Holding my ground wasn’t enough.  I was getting bigger, but they were getting stronger.  By then I’d learned that hiding wasn’t enough and so I’d sit on the edge of my bed, watching the clock tick towards midnight.
+“What I don’t understand is why some people vanish,” Susan said.  “Like the doctor.  And your friend.”
 
-“Happy birthday,” I whispered to myself as December 20th began and the darkness started to crawl in across the walls, starting at the corner of my vision.
+I’d told them what happened to my friend, all those years back when she went running with me.  How it was like she’d never existed at all.
 
-The twelve minutes in which I didn’t exist and the void came to claim me.
+“I think it has to do with me,” I said.  “It erased the doctor back to the point of when he was *supposed* to die.  And it’s trying to erase me as well, and in my case it’s at the point of my birth. So when it took my friend in my place… it erased her like she’d never been born at all.”
 
-They surrounded me and I stood to confront them.  I felt cold fingers close on my legs, on my arms, and I braced myself as they began to tug, to drag me towards the void.  And my front foot gave a step.  Another.  I stumbled and panic welled up in my chest.  I was losing.  They were dragging me forwards, inch by inch, and I wondered what would happen when I reached the edge of the floor - would I fall?  Would I die?  Would I cease to exist?  My breath felt like fire in my lungs and my chest heaved in tiny, hysterical gasps.
+Everyone else had just been caught up in its radius, like the new father I’d rescued just a few weeks prior.  We were quiet for a moment, considering this.  It’d taken so many people over the years, all of them from that one hospital, in its pursuit of me.  I won’t lie that I’ve struggled with this.  Sometimes, late at night, I think that maybe I should just… stop.  Stop running.  Stop fighting.  That people are dying because of my selfishness.
 
-And in my panic I slapped one of the hands, then I closed my fingers into a fist and I hit it at the wrist and it shattered.
+Tom and his crazy optimism is what keeps me from doing just that.
 
-Just like that.  Shattered, like glass, and fell into splinters on the floor.
+“Based on what the doctor said before he died, it should only be concerned with you,” Tom said.  “It’s *your* death.  So why is it swallowing up other people?”
 
-So I fought them off for ten long minutes and when they vanished I went to my bed and sat there, shaking, for hours.
+“Proximity-” I began, but Tom quickly cut me off.
 
-I didn’t take it very well, realizing I had to fight for my life now.  I got shingles soon after - the reactivation of chickenpox that the doctor said was due to stress - and my first ever D on my report card.  My parents assumed it was because we’d just moved to another state and grounded me until my grades improved.  I resented them for that and decided I wouldn’t tell them anything ever again.
+“Yeah, but was the doctor’s death swallowing up bystanders?  Yours was so much bigger than his, remember?  That’s what he said.  So I think not.  I think this year we need to find out why your death is taking other people.”
 
-In my sophomore year of highschool those splinters cut my skin when I shattered the hands.  The next year I wrapped my hands with medical tape in the minutes leading up to midnight.
+I laughed harshly.  I said something sarcastic, I think, about how sure we’ll just stroll up and ask it, I’m not entirely sure.  I was just trying to mask the pounding of my heart and how my mouth went dry at the thought of doing anything other than running and running and running from that void.  Pulling someone out had worked but I was so scared.  So very scared.
 
-In my freshman year of college I bought a baseball bat and smuggled it into my old bedroom.  Classes were out and part of me was relieved because my roommate wouldn’t be involved, but part of me was also sad because I wanted to know if anyone else could see the darkness too.  I still don’t know.  I’ve never married and I’ve never had anyone around at midnight on my birthday.  I keep people at a distance.  I think I’m cursed.
+“You’ve been inside the void before,” Susan said.  “When you first met me.”
 
-You see, my parents kept telling me that my birth was normal and I finally stopped asking.  Don’t get me wrong - despite what I said earlier, I have a healthy relationship with my parents.  I grew out of the teenage angst and I haven’t told them what happens every night on my birthday because I don’t think they can help me and I think it would destroy them to know I’ve spent all these years fighting for my life all on my own.  But they have their secret as well.
+“I try not to think about that,” I muttered.
 
-My birth was not normal.  Something went wrong.
+“But I think that it’s important.  You were at the hospital.  The place where it all started.  You were inside, but it wasn’t pulling you in, and you were able to walk out.”
 
-I’d long suspected this and a couple years ago, after a particularly vicious fight with the intruders (they pulled my feet out from under me and I was at the very edge of the floor, I could feel the cold of the void on my back, and then it was twelve minutes and I was safe) I decided that I was going to figure out exactly what happened.  I’d start with the only documentation easily available to me - my birth certificate.
+“No, it tried to drag me back in,” I said uncomfortably.  I really didn’t like thinking about that incident.  I don’t like thinking about any of this, if I’m being perfectly honest.
 
-I went to my parent’s house one day while they were out of town on a trip.  They keep all their important documents in a lockbox and I got this out and opened it up.  Inside were their passports, their birth certificates, copies of our social security cards.  Underneath that were personal things, letters and photos and other irreplaceable mementos.  I made sure to set everything aside in order but I quickly lost track, as I had to dig through far more than I thought I would.  My birth certificate was at the very bottom, the second-to-last document in the box.  I wondered why they’d buried it there, when all the other identifying documents were within easy reach.  I took it out, unfolded it, and read my birthplace.  The time of birth (12:12 am).  Then I folded it and started to put it back in the box.
+“Yeah, at the border.  You didn’t like… insta-die.  It kind of makes me wonder if it was the proximity to the hospital.  Like stretching a rubber band - the further you get, the stronger the pull is.”
 
-My glance fell on the document underneath.  Only one thing left inside, a yellowed envelope.  On a whim, I picked it up.  I’d already snooped through everything else, what was one more envelope, right?
+“So do you think it’ll be easier to escape closer to the hospital?”
 
-Inside was a death certificate.
+I was skeptical, but intrigued.  As it turned out, no, that wasn’t the idea.  Tom had an entirely different plan altogether.
 
-Same town.  Same date.  My name.  12 am.
+“I think,” Tom said, “we should use the hospital to get a good look around inside the void.”
 
-Was I stillborn?  Was my soul fighting for the right to existence in those twelve minutes, just as I fight every year since?
+Our strategy meeting broke up shortly after that because I had a panic attack.  Normally I’d say I had a sorta-panic attack or a quasi-panic attack but both Tom and Susan are nurses and have seen them before and both agreed: I had a panic attack.  Susan also threw around the word “trauma” a few times but we’re going to worry about that when this is all over.
 
-I don’t know.  I have my answer, I guess, but I don’t know what to do with it.  I have to keep thinking of how to stay ahead of the void that comes to claim me.
+Despite the rocky start, they had all year to convince me.  Though perhaps ‘convince’ isn’t the right word.  It wasn’t like they were trying to coerce me into doing something I didn’t want to.  More like they were presenting a couple different options on how to get through my birthday this year and one of them was a bit more risky than the others.
 
-Fighting them off is getting harder.  There’s too many of those hands and I can’t shatter them all, so I started prioritizing.  I keep my center of gravity low to maintain my balance and aim for the ones that are trying to grab my arms first, so that I can keep swinging my weapon.  Then I try to knock off the ones grabbing my legs next.
+What finally convinced me though was the other people we saved this year.  Yes.  Plural.
 
-Two years ago one grabbed my throat.
+The surprise deaths in the hospital happened at midnight, coinciding with mine.  Maybe, Tom suggested, if I hung around the area the deaths occurred in during that time of night, I could reverse them.  I could pull them out just as the doctor had pulled me out.
 
-I dropped the bat on instinct - stupid, I know - and tried to pry its fingers off my neck.  I couldn’t breath.  It was crushing me.  I couldn’t break its grip and I remember slipping into darkness right as the clock ticked over to eleven minutes after midnight.  When I woke up it was thirteen minutes after midnight and I’d been moved a full two feet from where I last remembered.  I wonder how close they’d gotten my unconscious body to the void.
+I agreed.
 
-Last year I fought like a wild beast.  My careful stance and preparations were forgotten.  I couldn’t simply hold my ground, not with the memory of that thing choking the breath out of me burned into my memories.  I felt their fingers grazing my skin and it was like I was being burned as I thrashed wildly, desperate to shake them off.  The pain was too much and I put my head down and I ran instead, because the darkness had not yet consumed the room and the door was still there, and the hallway beyond it, and I thought - this was it.  This was the solution.  I would flee instead of fight.
+We have a twelve minute window.  There’s a coffee shop nearby that’s open until two in the morning and I wait there for their call.  The vast majority of the time, there’s nothing, and twelve minutes after midnight I leave and go home.  But three times this year… three times they’ve called and I’ve sprinted to the hospital.
 
-They followed.  I made it to the car in the driveway and backed out into the street and floored the gas.  The darkness came with me, it seeped in around the edge of the windshield, covering it like frost and then peeling off into fingers and reaching for my face.  I spun the wheel in panic, sliding the car into a streetlight.  Then I ripped the door open and fell out into the street, just as their hands closed on my shirt and they began to drag me backwards and the color was draining out of the world - everything was fading into gray - and then it was twelve minutes after midnight.
+The first time it was a grandparent, visiting their daughter who had given birth just a few hours prior to midnight.  They were in the hallway.  The team that had responded to try to resuscitate were about to give up.  Tom, standing nearby with his cellphone, was watching me as I approached.  His face was pale and his eyes blazed with determination.  I looked past him, at the inky darkness that yawned just a few yards away, and at the old man that was halfway inside, clawing at the linoleum in a desperate attempt to escape, to drag himself back to his body that lay all too far away from him.
 
-I lay on my stomach in the street.  My car was badly dented, but no significant damage from the impact.  I drove it back home and stood in the shower, watching the blood from the cuts on my back where their fingers had pierced my skin run down the drain.
+My breath caught in my throat.  That old familiar terror flooded my nose and mouth, a sour taste, and my muscles twitched, ready to turn and run.  To run and run and run because that was all I could do, I was so helpless and no matter how much I ran someday it wouldn’t be enough-
 
-I think I understand what is happening.  A friend’s kid once made a smart remark to us, after she said she was eleven and a half and someone told her that her half year didn’t count towards her age.  She said that “grown-ups don’t count half years because we’re closer to dying.”  Which is dark and hilarious but also true.  I *am* closer to dying.  Every year, I’m closer to death.
+There was a touch on the back of my wrist.
 
-And every year, my visitors have gotten stronger.
+“Go,” Tom breathed.  “*Go.*”
 
-I guess we’re all trying to stave off death, in our own way.  My fight is just… a little more literal.  I was dead in those twelve minutes after midnight and something brought me back.  Perhaps I fought my way out.  But I think I was meant to stay dead and perhaps this is just the grave’s window of opportunity, once a year, trying to drag me back to where I belong.
+Not to run.  But to go save him.
 
-It’s getting so hard.  Twelve minutes is a very long time when you’re fighting for your life.
+With shaking legs and a trembling heart, I forced myself to step forward.  One.  Two.  I felt the void pulling at me, like the wind of a storm, drawing me toward it.  The sounds of the hospital, the voice of someone pronouncing the time of death all faded away.  No one noticed me.  It was like I wasn’t there, half a ghost already, floating past them as I confronted my death.
 
-I took up running this year.  I’ve been working for speed more than endurance.  I only need to keep going for twelve minutes, after all.  Hiding stopped working and now fighting is not enough, so I’m going to try flight.  I’m going to run like death itself is on my heels - and it is - and maybe I can keep running every year after this until my body begins to fail with age and oblivion doesn’t seem so unjust anymore.
+I knelt.  And with trembling hands, I grabbed hold of the old man, and I pulled him back.  I pulled him free and he dissolved and his body gave a gasp, people started yelling, and I slipped away in the commotion as he returned to the life he should never have lost in the first place.
 
-I’ve got my running clothes on already.  My running shoes.  I’m terrified and there’s still hours to go.  Wish me luck.  And if you don’t hear from me tomorrow… then I guess I wasn’t fast enough.
+There were two more like this.
 
-[Next year](https://www.reddit.com/r/nosleep/comments/kgotw0/i_was_born_twelve_minutes_after_midnight/)
+And that brings me to tonight.
+
+I want to *live*.  Not just survive.  I have few friends and no family of my own because I’d never allowed myself to commit to anything, knowing that in less than a year it could be gone.  *I’d* be gone.  And it just wasn’t right to make those long-term plans that everyone else got to make, because one day I’d falter and fall and death would swallow me up.  Younger me thought it wouldn’t be fair to make too many people grieve.  Now I know that if my death catches me, it’ll be like I died in that hospital room so many years ago.  I’m not sure which is worse for those left behind - that they are left with my absence, or that they are left with a life rewritten to account for me never having been in it.
+
+Regardless, I am tired of being afraid to plan ahead.  I want to live like I’d have two years, three, maybe even ten after that.  When we saved those three people this year, it was hope dangled in front of me and I snatched at it, finally admitting to myself that I was desperate to actually have a life worth living.
+
+Maybe I didn’t have to run.  Maybe we could figure out why this was happening and reverse it.
+
+Tonight there won’t be running.  I’m going into the void.  Tom and Susan got me close to the room they think I was born in.  When the void opens, I’ll see what’s there.  And then, like Theseus escaping the labyrinth, I’ll follow the rope tied to a climbing harness I’m wearing back to them.
+
+The best part of the plan (according to Tom) is that if I don’t emerge from the edge of the void in time, they’ll just start pulling on the rope.  Considering I escaped via a stairwell last time, I think that sounds like a great way to break my leg, but hey, at least I’ll already be in the hospital, right?
+
+So yeah.  That’s the plan.  I’m hiding out in one of the rooms.  I can barely breath I’m so nervous.  But maybe tonight we’ll find out why this is happening.  I’m going to shut the laptop now and brace myself for the void’s arrival.  I’ll tell you what happened when it’s over… and if I don’t make it… Susan will update you all in my stead.
+
+Wish me luck… and wish me a happy birthday.
+
