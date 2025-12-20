@@ -1,3 +1,5 @@
+CW: Child labor, bullying
+
 The truth is, I was a bad kid. Not just mischievous, but calculatingly cruel. I chose easy targets whose suffering I could measure. There was a boy in my class, Thomas, short and scrawny, always wearing clothes that looked too big or too small. He came from a family so poor, the school waived his lunch fees, and everyone knew it. I thought he was pathetic. 
 
 I still remember his face on the day of the class Secret Santa. He opened his gift and pulled out a cheap football. He held it like it was solid gold, his eyes shining with pure joy. That football was likely the best gift he would receive that Christmas. 

@@ -96,3 +96,54 @@ So yeah.  That’s the plan.  I’m hiding out in one of the rooms.  I can ba
 
 Wish me luck… and wish me a happy birthday.
 
+Okay I’m going to update REAL FAST here and then Tom and Susan and I are going for celebratory drinks.  Susan knows of a Tiki bar, she says.  That sounds great to me.  *Everything* sounds great right now.  I’m alive.
+
+When midnight rolled around, the void opened up all around me.  The world dissolved into darkness and although I could feel the floor beneath me, it felt like I was suspended in nothing, an open, endless expanse with not even stars to relieve the darkness.  It felt like I was falling.  My chest seized up with fear and I had to shut my eyes.  I took a few breaths to steady myself, like Susan had taught me, and then I stood up.  I shuffled forward, hands outstretched, and I found a wall.  I followed it until I found a door.  And then I forced myself to open my eyes, to see the utter nothingness all around me, and I stepped out into the hallway.
+
+None of us thought we’d find the room I was born in.  This wing of the hospital had been rennovated multiple times by now and even though we looked, we just couldn’t find any kind of layout from around when I was born.  I kept one hand on the wall and walked along it, my fingers trailing over door after door, and nothing changed.  I had a watch on my arm but even when I tapped it, I couldn’t see the lighted face of it to know how much longer I had in the void.  My heart was pounding painfully fast in my chest.  I was starting to panic, I knew I was panicking, but it felt like there was nothing I could do to stop it. My thoughts ran wild - this was stupid - I shouldn’t had listened to Tom - I’d gotten myself killed for nothing-
+
+I turned around.  I went the other direction.  Lost in the dark as I was, without a sense of time or distance, I’m not sure how far I walked.  I shuffled along, painfully slow, knowing that I was making very poor progress but it was like my limbs were half-frozen.  All these years running and now I was too scared to even move.  I wanted to laugh and just as that hysteria that I’d been running from my whole life threatened to break free, something made me pause.  There was a touch against my face, like the stirring of air.  And I stopped, my hand against a wall, and I felt something brush against me again.  Cold as ice.  Steady.  Rhythmic.  Like the pulse of blood.
+
+I knelt and with a piece of chalk I’d brought for this exact purpose, I marked the floor.  Susan’s idea.
+
+There was a tug on the rope tied to my harness.  I’d taken too long.  It was time to go.  My friends were pulling me back, before the void closed.  I turned and gripped the rope with both hands, letting it pull me forward.  I stumbled, moving slowly, and the pulling grew more insistent.  They were practically dragging me along, but I couldn’t see - I didn’t know what was ahead of me - but we were running out of time -
+
+I stumbled into a run, my hands out in front of me, choking and crying on my fear and I ran, just as I’ve run for so many years, except this time I was running blindly, pulled along by the desperation of my friends, reeling me in and drawing me out of the void.
+
+The only reason I didn’t fall down the stairs was because that was where I reached the border of the void.  I emerged from it, my arms and head shoving out into the flickering incandescence of the stairway, and Tom and Susan release the rope and seized my hands instead.  
+
+And all around me were people, clawing, grasping. The hands of the people trapped inside were grabbing my arms and shoulders, their touch was cold as ice, and around my wrist were Tom and Susan’s hands and I felt the heat of their grip, so hot it felt like my skin was burning.  I heard the roar of the void in my ears like an endless wave in the ocean, and underneath that I heard the frantic yelling of my friends - to pull - to pull me back.  And I drifted there, like time slowed, because there wasn’t much I could do to save myself except push forward, strain against those grasping hands like a dog on a leash, and I could only wait to see if I lived or died.  
+
+That was when I noticed something.  The hands.  The hands that I’d fought against for years and years, ever since I was old enough to realize that I needed to fight, to escape them, that I’d die if I didn’t.
+
+They weren’t pulling me in.  They were trying to pull themselves *out*.
+
+I felt it in the way they clawed at my arms.  The hands sought to stretch further towards the light, towards *life*, inching their way forward using my body as purchase.  And I felt some of them slip, give, sliding backward against a current that tugged at my skin and my hair, that roared at me to join it in oblivion.
+
+Death’s time was growing short, so it was coming for me.  It wouldn’t let me escape.  It wouldn’t let *any* of us escape.
+
+I saw it.  At the very back.  Black on black, darkness within darkness, but I still *saw* it.  A maw, a throat, waiting to swallow up those that couldn’t fight the current any longer.
+
+This void wasn’t death.  It was the prelude.  An in-between space.  *That* was death.  That was what we *all* were running from.
+
+And still drifting in those few seconds of time where I didn’t know if I would live or die and there was a strange tranquility to it all, like I couldn’t feel the pounding of my own heart of taste the bitter stench of fear in my nose and mouth, I stretched out my hands and someone grabbed them.  I clamped down on their wrists, they did the same to mine, and we remained locked together like that when Tom finally got his feet underneath him and they *pulled,* all of them, and we all tumbled backwards out of the void.
+
+I saw it close.  Like a curtain descending.  But the edges were tattered, and the people inside fell away, scattering, leaving behind only that presence that trashed and struggled but it did not disappear.  It remained.  I felt it, even as I was losing my footing and falling, the whisper of that current.  Like it was just on the other side of a sheet of glass.
+
+Then we all landed in a heap of bodies and limbs at the base of the stairs.  The person I’d pulled out was a woman, younger than me, and she looked around wildly and then began sobbing uncontrollably.  Susan gathered her up and we all ushered her outside.
+
+“I’ll take her… somewhere,” Susan said, after managing to bundle the nearly-hysterical woman into her car.  “Figure out where she needs to go and we’ll get her there.  I guess… reality rewrote itself last year for the person we pulled out, right?  Hopefully it’ll do the same here.”
+
+She drove off, leaving Tom there to take me home, because we all agreed that I was going to be enough of a nervous wreck that I shouldn’t be driving.
+
+“Do you still want to get tiki drinks?” he asked.
+
+“I marked a spot in chalk,” I said.  “We need to make sure we know where it is before it gets cleaned up.”
+
+He volunteered to go find out.  I could wait in the car, he said, and catch my breath.  Sit, wait for my heart to stop pounding, and update you all on what happened.
+
+And there’s one more thing I want to say.  Something I’m going to share with Tom and Susan as well.  The void.  The vortex.  And that current that followed me to its edge, that sought to drag us all into its maw.  Something that dwells inside but isn’t the entirety of the void.
+
+I think it’s wedged open.  I was pulled out but I don’t think that in-between space closed behind me. I think its been sitting open this entire time and people are falling in and some of them are getting claimed by the death roaming inside, seeking to swallow up anyone that isn’t fast enough to escape.  And once a year, in those twelve minutes, it stretches out in an attempt to grab me and drag me back.  Like that rubber band in Susan’s analogy, except it won’t break, it can’t be released, and it just stretches and stretches and stretches.
+
+We need to find a way to snap it [shut](https://www.reddit.com/r/goatvalleycampgrounds/).
