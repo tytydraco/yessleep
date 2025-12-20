@@ -24,7 +24,7 @@ I feel oddly disgusted for admitting how I ate the man, and each time I take a b
 
 I ripped into his body, first ripping his throat open and eating down to his spine to the point that the space from his collar bone and his jaw bone was bare, and he was most definitely dead by then.
 
-Then, I began ripping an arm off from his elbow before I used my nails and teeth to peel his skin off. Its texture is disgusting. Once done peeling, I ate all the mussel, fat, veins, everything, down to the bone while letting myself get covered in the blood, interstitial fluid, everything, like an animal. 
+Then, I began ripping an arm off from his elbow before I used my nails and teeth to peel his skin off. Its texture is disgusting. Once done peeling, I ate all the muscles, fat, veins, everything, down to the bone while letting myself get covered in the blood, intestinal fluids, everything, like an animal. 
 
 I'm not sure how long it took me to eat his neck, arm, some shoulder meat down to the bone, and then most of his side to where his ribs were visible and a few of his organs were trying to fall out before I finally stopped, but I kept wanting to eat despite being full because of the weird thrill I get for doing something so disgusting.
 
