@@ -270,9 +270,7 @@ But maybe I truly am the enemy. After all, I am responsible for the corpses outs
 
 The real Alex is dead, and even though it was not me who pulled the trigger, his blood is on my hands. Maybe Anna was right; he was going to die anyway. 
 
-And about Anna… I couldn't bring myself to end her. It took her far too long to die. 
-
-She carried with her a map and, more importantly, a card. *Access to the city gates*, it says.
+Anna carried with her a map and, more importantly, a card. *Access to the city gates*, it says.
 
 The twitching has gotten worse; it's almost uncontrollable now. And there is a certain hunger growing within me, though I don't know what it is or what it wants. Is this the *infection* the book spoke of?
 
