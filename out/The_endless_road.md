@@ -1,0 +1,14 @@
+Good morning, good afternoon, and good evening. Hello, my name is Pietro. I was traveling by pickup truck with my wife, two friends, and a female friend in the interior of the state of Maranhão, Brazil.
+
+ It was our first time in this state. Since it was midnight, we didn’t know the area at all, which caused us to get lost in a very rural region. The ground was dirt, few streets had streetlights, and the only sources of light were the car’s headlights and the moon. All the houses had barbed wire fences to keep intruders away.
+
+We drove for hours and couldn’t find a way out of that area. Then we saw a house with the door slightly open and a yellow light on. I got out of the car and asked if anyone was home, saying that I needed help. At that moment, the door and the light closed immediately. I got goosebumps. On my way back to the car, I saw a doll with black eyes tied to the fence. I was very scared and quickly got back into the car.
+Another strange thing is that my friends noticed that, throughout all the roads we had passed, there was no cell phone signal.
+We continued driving and still couldn’t get out of that rural area. On another road, we came across a large rock formation, and there was a giant doll, like a scarecrow. The strangest part was that it seemed to be the same doll we had seen earlier, but now much larger. I began to feel a heavy, ominous energy and a sense of danger. My girlfriend was crying, and my friends were in shock.
+
+As we crossed the rock formation, at its end there was a large cross with a woman tied to it. She was speaking jumbled words in a deep, grave tone, shaking her head violently, pale, with blood stains on her face and dress, and her arms had a greenish color. Our friend fainted from fear. I was completely frozen in shock, unable to react. When I looked in the rearview mirror, I saw several people in black hoods coming toward us. I immediately accelerated until we were far from that area.
+
+We entered a calmer area and had to park the car to save gasoline, planning to try to leave when daylight came. We couldn’t sleep, so we talked to pass the time.
+As soon as it dawned, I started driving, hoping to find someone who could guide us. Strangely, we found the way out quickly.
+
+When we reached the city, the cell phone signals came back. Our friends tried to locate the area on the internet, but we couldn’t find anything about it. The people in the nearby town also had no knowledge of the rock formation, the hooded figures, or anything strange we had seen, as if none of it had ever existed. To this day, we remain curious, but we prefer not to go through that experience again.
