@@ -1,3 +1,5 @@
+[Click here to see all chapters.](https://www.reddit.com/u/shriekingsiren/s/ESZuyNROTe)
+
 CW: Child death, implied suicidality 
 
 I’m so glad you all enjoyed learning about Charlie. He’s with me here and now as I write down what I am about to share, consuming as much of my pain as he can. Because today’s story is not one of my guests, but one of Cassandra’s. I like to imagine it’s one of her most important guests, too, but… well, you will see what I mean, I promise. 
