@@ -1,7 +1,5 @@
 I don’t know if you’ll ever see this but here it is.
 
-
-
 The fire had grown, roaring away. The logs and branches we had tossed inside were snapping and popping, as the fire consumed them. Its warmth kept the cold at bay, melting the matted down snow around the fire pit.
 
 “How long do we have to wait again?” I asked, watching my hotdog roll in a slow circle on a weiner stick. My friend rolled his eyes from across the fire.
@@ -65,4 +63,6 @@ My mind racing I lunged up and bit Ted’s neck. He jerked suddenly and let me g
 The song still plays in my head. The police questioned me to no end. I didn’t tell them about the hands, they would have never believed me. Instead I lied. Told them he ran into the woods, and I had tried to stop him. Then he drowned. His death was ruled a suicide, his parents glares told me who they blamed.
 
 That was almost four months ago now. Even as I sit alone in my room, I hear the whistling. It follows me everywhere. Nothing about the story said anything about whistling, and nobody said anything about how many people went missing in those woods. I don’t know what telling this will accomplish. But I’m going back out there. The whistling is calling me, and I can’t resist it.
+
+[https://www.reddit.com/r/nosleep/comments/1prxouh/come\_to\_our\_church/?utm\_source=share&utm\_medium=web3x&utm\_name=web3xcss&utm\_term=1&utm\_content=share\_button](https://www.reddit.com/r/nosleep/comments/1prxouh/come_to_our_church/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
