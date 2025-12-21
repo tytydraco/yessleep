@@ -134,7 +134,7 @@ My heart thundered and its beat roared in my ears.
 
 I heard another voice near the door to my room.
 
-"hE's nOT In hERE," it said. Its voice was inhuman, alien.
+"hE's nOT In hERE," it said. Its voice was unnatural, alien.
 
 The limbs stopped moving. The edge of my arm had been exposed. The thing had almost touched me.
 

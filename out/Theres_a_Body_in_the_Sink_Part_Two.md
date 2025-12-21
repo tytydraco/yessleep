@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1pfnvm7/theres_a_body_in_the_sink/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[All Parts](https://www.reddit.com/user/Naetharia/comments/1pgdxxx/writing_masterlist/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | [Part 1](https://www.reddit.com/r/nosleep/comments/1pfnvm7/theres_a_body_in_the_sink/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 In the few months I had been in Bonifacio Grove, I had barely filled my room with the detritus of daily life. That made it easy to pack everything I owned back into my two suitcases and lug those into the hallway. I nearly bumped into Elise as I descended the stairs; she squeaked and scurried back from our almost-collision, clutching the strap of her duffel bag tight as she did.
 
@@ -86,11 +86,7 @@ In the bus interior’s sickly blue light, my blood looked black. I shakily scru
 
 “It’s fine,” I lied. “I must have hit my head somewhere on our way out. We were in a hurry.”
 
-
-
 \-
-
-
 
 The rain came shortly after the bus began its lonely glide out of Bonifacio Grove’s neighborhood. Since I sat at a window seat at the very back, I pulled my window closed before I could get drenched by the downpour. The others sitting scattered rows away from me did the same to theirs; Sam stood and closed the rest of the unused windows.
 
@@ -146,11 +142,7 @@ He straightened abruptly, then looked at each of us with a feverish terror in hi
 
 I swallowed and dug my nails into the meat of my hands. The cut of keratin against flesh hurt—as it should, because I was alive, I was real, I wasn’t some ghost blindly wandering, dreaming that it was still alive.
 
-
-
 \-
-
-
 
 The others and I stopped by five inns before we found one with a vacancy. A singular one with two beds, but nobody protested when I suggested we all sleep at whatever spot we could snag. Even Dominic just grunted and followed everyone to the room.
 
@@ -164,11 +156,7 @@ In my periphery, Elise brought a hand to her mouth to muffle a sob.
 
 *“For thine is the kingdom, and the power, and the glory…”*
 
-
-
 \-
-
-
 
 We marched out of the house to find someplace else to stay three more times. Each time, we reached an inn, got a room, piled inside—and the moment the door closed behind us, we were back in Bonifacio Grove. After the third time, none of us bothered to pick up our luggage. Instead, we all sat on the couches and exhaustedly spaced out. I picked a window to target my thousand-yard stare at.
 
@@ -224,11 +212,7 @@ Then, she violently smashed her mouth against mine.
 
 I screamed as the stench of decay assaulted my nose and rotting flesh pressed against my face—a mistake, as Mary parted her lips and vomited slimy, decaying blood down my throat. I coughed and beat my palms against her shoulders to push her away, but she remained immovable, and my thrashing only caused the blood to spill from my mouth and onto my shirt, my jeans, my shoes—
 
-
-
 \-
-
-
 
 I sat up from the couch I was sleeping on, eyes wide, sweat beading down my face. My mouth hurt and my throat burned; I could still feel the wet, slippery texture of half-coagulated blood sliding against my gums, could taste the sour rot of it on my tongue. I gagged.
 
@@ -255,3 +239,7 @@ Leo and I stared at each other awkwardly for a minute or so. Eventually, the man
 He stiffened, abruptly, like he’d just had cold water thrown on him and it’d shocked him awake. He took a long sip of his drink.
 
 “Sorry.” He grimaced. “I don’t know why I said that. That made it sound like this place is alive.”
+
+\-
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/1psjgaa/theres_a_body_in_the_sink_part_three/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
