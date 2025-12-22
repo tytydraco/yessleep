@@ -1,3 +1,7 @@
+*I’ve been a long-haul trucker for years, and I wouldn’t be writing this if I hadn’t made it back. Some roads don’t behave the way they should...*
+
+---
+
 Being a trucker was never something I considered. But in those days, I couldn’t find a decent job with decent pay, and I had planned on doing it only for a few months before moving on to something better.
 
 When I commenced, the routes were different each time. I was frequently assigned jobs that led to new locations, never the same ones twice. I was often labelled the human GPS, because I could remember long-distance routes with extreme precision, exact spots where the dividers were slightly broken, the exact number of gas stations along the way, exact tyre repair centres. You name it.
