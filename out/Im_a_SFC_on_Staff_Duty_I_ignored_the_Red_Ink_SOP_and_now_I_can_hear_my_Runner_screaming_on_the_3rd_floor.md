@@ -28,3 +28,15 @@ I looked over at the side office, hoping to see him sitting there, but his chair
 I’m an SFC. I’m supposed to look after my soldiers. That’s the oath I took. But I’m looking at that manila folder, and then at the dark stairwell leading to the third floor, wondering if "Miller" is really the one calling for me.
 
 I have nine hours left on shift. Gods help me.
+
+------
+
+UPDATE: Off-shift. NSTR.
+
+I’m finally off the desk. My replacement is signed in, and I’ve sanitized the official DA Form 1594. On paper, it was just another 24-hour shift with a "medical incident".
+
+Miller is at the clinic. The medics are calling it shock, but they didn’t see what I saw. He’s physically present, but the way he looks at me... it’s like looking at a photo of a person rather than the person themselves. And his name tape? It’s in cursive, and none of the medical staff seemed to have noticed the regulation violation.
+
+I’m headed to my off-post apartment now. I’ve got his waiver paperwork in my passenger seat—I'm trying to protect his career, but I'm starting to wonder if the PFC Miller I'm protecting is still in there.
+
+I’m going to try to sleep. But I can still hear the floor buffer, and I'm not in the building anymore.
