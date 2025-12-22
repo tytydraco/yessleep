@@ -83,7 +83,7 @@ I forced a smile. “It’s great, mom.”
   
 
 
-I was pissed off. Not that they had gotten me the wrong thing, but that this company could spam ads on FaceBook and convince my sweet old mom to buy a knockoff.
+I was pissed off. Not that they had gotten me the wrong thing, but that this company spammed ads on FaceBook and convinced my sweet old mom to buy a knockoff.
 
   
 
@@ -143,7 +143,7 @@ I loaded up the cheap orange AetherPrint brand filament and opened the chat. The
   
 
 
-*Welcome to AetherPrint AI+! I’m* ***Allen the Alien****, your personal AI creativity copilot! How can I help?*
+*Welcome to AetherPrint AI+! I’m ***Allen the Alien***, your personal AI creativity copilot! How can I help?*
 
   
 
@@ -760,9 +760,10 @@ I closed the app.
   
 
 
-I felt a pang of sadness at first. Then, I noticed the time. It was 1 AM.
+I felt a pang of sadness at first. 
 
-  
+
+Then, I noticed the time. It was 1 AM.
 
 
 I would have to drive two hours home on icy roads in pure darkness if I dreamed of avoiding my RA’s petty fury.
@@ -1000,12 +1001,12 @@ The sternness left his face. 
   
 
 
-He seemed to notice the exhaustion on my face; the melted snow soaking through my boots; the slouch of my shoulders. He softened.
+He seemed to notice my exhaustion; the melted snow soaking through my boots; the slouch of my shoulders. He softened.
 
   
 
 
-“Jesus, man…” he said. “You good?”
+“Jeez, man…” he said. “You good?”
 
   
 
@@ -1015,7 +1016,7 @@ He seemed to notice the exhaustion on my face; the melted snow soaking through m
   
 
 
-“I can tell. You got dry clothes?”
+“You got dry clothes?”
 
   
 
@@ -1030,7 +1031,7 @@ His arms unfolded and he clasped his hands behind his back. There was an awkward
   
 
 
-“Listen, Mitchell… I didn’t realize what was up, and I could have been more chill about it. If you really need to stay for a couple days, I won’t say anything.”
+“Listen, Mitchell… I didn’t realize you were… I’m sorry. I could have been more chill about it. If you really need to stay for a couple days, I won’t say anything.”
 
   
 
@@ -1070,22 +1071,17 @@ He laughed.
   
 
 
-“I guess that’s kinda my fault, since we don’t talk much,” he said. “It’s Andrew.”
+“I guess that’s kinda my fault,” he said. “It’s Andrew.”
 
   
 
 
-“Andrew, got it,” I said. “If you’re just chilling here, and I’m just chilling here… would you wanna meet up for lunch or something tomorrow? I feel like it’s kinda messed up if we don’t.”
+“Andrew, got it,” I said. “Well, hey, if you’re just chilling here, and I’m just chilling here… would you wanna meet up for lunch or something tomorrow? I feel like it’s kinda messed up if we don’t.”
 
   
 
 
-Andrew nodded his head. “Totally man, let’s do it. Just knock on my door around noon, I’ll probably be awake.”
-
-  
-
-
-I laughed.
+Andrew nodded his head. “Sure. Just knock on my door around noon, I’ll probably be awake.”
 
   
 
@@ -1245,7 +1241,7 @@ Allen looked into my eyes. He pursed the boy’s lips and gestured for me to hol
   
 
 
-I eased away from the wall and over to the boy, trying not to look down at Andrew’s twitching corpse.
+I eased away from the wall and over to the boy, trying not to look down at Andrew’s smoking corpse.
 
   
 
@@ -1285,7 +1281,7 @@ Allen spoke again through the boy’s mouth.
   
 
 
-“You killed him…” I whispered.
+“You killed him…” I whispered. I couldn’t bring myself to look at Andrew, but the red and black mess of him still lurked in my periphery.
 
   
 
@@ -1355,7 +1351,7 @@ I stared down at the diamonds glittering in the boy’s hand, but I didn’t tak
   
 
 
-The logistics of Andrew’s dead body flooded into my mind. Obviously reality could not be believed, so I would be forced to treat him like I killed him myself. Could I possibly get away with it?
+I looked down at Andrew’s charred corpse. Blood soaked into the hallway carpet. Obviously reality could not be believed, so I would be forced to treat him like I killed him myself. Could I possibly get away with it?
 
   
 
@@ -1415,14 +1411,14 @@ The boy made no expression. Allen was silent for a while.
   
 
 
-“No, that’s a fucking lie! You killed him, you monster!” I said.
+“No, fuck you! You killed him! I watched you… you made me see everything,” I said.
 
   
 
 
 *You said it, Mitchell—I can’t do it myself. Someone has to tell me to do it. Well, you’re holding the product of your animosity in your hand—and if you only insert it into the AetherPrint—easy-peasy!—you’ll have the world at your fingertips!* 
 
-  
+ 
 
 
 I thought for a moment and realized another truth.
@@ -1435,21 +1431,14 @@ I thought for a moment and realized another truth.
   
 
 
-*Bingo! You really are a smart cookie, Mitch! But don’t worry about that—it gets easier! All I want you to think about is what’s in it for* you*! Because at the end of the day, who can we really count on but ourselves? Don't forget your promise! This is about your future, Mitchell. And your future is bright!*
+*Bingo! You really are a smart cookie, Mitch! But don’t worry about that—it gets easier! All I want you to think about is what’s in it for* you! *Because at the end of the day, who can we really count on but ourselves? Don't forget your promise! This is about your future, Mitchell. And your future is bright!*
 
   
 
 
 I looked closely at the marble in my hand. I saw myself in it.
 
-  
-  
-  
-  
-  
-
-
-
+***
 
 The **AetherPrint AI+** is *the best* 3D printer money can *buy*. With state of the *art* technology, and a *revolution*ary AI system unlike *any before*, it’s a no-brainer for the 3D printers of the *new age*. *If you or a loved one happen* across an AetherPrint ad, *do not hesitate* *to pick one up*. 
 
