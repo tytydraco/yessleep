@@ -4,11 +4,11 @@ I shut off the faucet, dried my hands, briefly adjusted my tie in the mirror, an
 
 It didn't make much sense.
 
-*“*Very funny...*”* I muttered, chuckling. The words simply reverberated around the empty men’s room. 
+“Very funny...” I muttered, chuckling. The words simply reverberated around the empty men’s room.
 
-I twisted my neck side to side - nobody. 
+I twisted my neck side to side - nobody.
 
-I peeked under each stall, figuring I’d catch Tim squatting on a toilet, suppressing a wolfish giggle, but found no one. 
+I peeked under each stall, figuring I’d catch Tim squatting on a toilet, suppressing a wolfish giggle, but found no one.
 
 It was a strange prank, undeniably, but that wouldn’t exactly be out of the norm at *Happy Harlot Advertising.* 
 
@@ -16,7 +16,7 @@ It was a strange prank, undeniably, but that wouldn’t exactly be out of the no
 
 Did that explanation make sense? No, not at all. I mean, if that was the case, why didn’t I hear the hinges of the bathroom door creaking? Why didn’t I catch a glimpse of someone in the mirror? Or, better yet, a glimpse of the note flying through the air? 
 
-But I ignored those nagging questions and tugged at the thread. 
+But I ignored those nagging questions and tugged at the thread.
 
 The note unfurled. I dragged my fingers across the paper. Whoever wrote it did so with force; so much force that they created tiny indents in the looseleaf.   
 
@@ -24,15 +24,15 @@ In jagged blue letters, it read: 
 
 *“HE IS TRYING TO STEAL WHAT IS YOURS”* 
 
-*“*Who? Tim?*”* I whispered.
+“Who? Tim?” I whispered.
 
 My heart began to gallop. My thoughts grew feverish, imagining myself being fired for what felt like the millionth time. Visions of being replaced by Tim, a younger, smarter, more passionate version of myself: the inevitable upgrade. Pressure built along my skin. Hostile gravity threatened to crush me like a soda can disappearing under the wheel of a steamroller. 
 
 I crumpled the note into a ball before it could do the same to me and launched it into a trash can. 
 
-The thread, however, was harder to dispose of. Not only did it feel nice running between my fingertips, but, strangely, it made me feel safer in a way that's difficult to put to words. Same sort of safety you'd feel carrying around a lucky charm, I guess. I felt protected.  
+The thread, however, was harder to dispose of. Not only did it feel nice running between my fingertips, but, strangely, it made me feel safer in a way that's difficult to put to words. Same sort of safety you'd feel carrying around a lucky charm, I guess. I felt protected.
 
-And as long as I ignored one final question, that sense of protection would remain firm. 
+And as long as I ignored one final question, that sense of protection would remain firm.
 
 *Why does this feel like hair...?*
 
@@ -54,15 +54,15 @@ I slumped back in my chair, faking a grin, toying with the hair in my pocket. Wh
 
 Afterwards, Fox pulled me into his office and closed the door. 
 
-*“*So - what’d you think? Pretty stellar work, no?*”* 
+“So - what’d you think? Pretty stellar work, no?” 
 
 I paced around his office, avoiding eye contact, thumbing the hair in my pocket. Could Tim really be gunning for my position? It wasn’t the first time I had considered the possibility; the man’s a wolf. 
 
 Every man’s a wolf. 
 
-*“*Uh...Pete?*”* 
+“Uh...Pete?” 
 
-*“*Hmm?*”* I stalled my hectic pirouettes, unaware that Fox had sat down behind his desk. He gestured towards a nearby chair. 
+“Hmm?” I stalled my hectic pirouettes, unaware that Fox had sat down behind his desk. He gestured towards a nearby chair. 
 
 I winced; lowering myself into the seat forced my hands out into the open. 
 
@@ -70,7 +70,7 @@ Reluctantly, I let go of the hair, spinning my fidget ring to compensate. A seri
 
 The CFO’s eyes narrowed. 
 
-“*“*Right! Right...sorry.*..*Tim’s presentation...” 
+“Right! Right. You asked me about Tim's presentation..."
 
 I trailed off, distracted. Jagged letters scribbled in blue ink rocketed to the front of my skull. 
 
@@ -108,7 +108,7 @@ Much to my horror, I encountered Tim in the parking lot the following morning.
 
 He stomped past me, face flushed the bright red of a bell pepper, twitching, mumbling under his breath as he wrenched his car door open. The man sped away and he never came back. 
 
-Later, I learned that when Fox confronted him about his presentation, he completely flew off the handle. Screamed his innocence loud enough that the damn whole office heard it. Even went so far as to hurl a coffee mug in the CFO’s general direction. It’s unclear whether he *intended* to hit Fox or not. Regardless, he had to duck out of the way to avoided being pelted by it. The mug shattered against the wall, leaving a pile of ceramic shrapnel in its wake. 
+Later, I learned that when Fox confronted him about his presentation, he completely flew off the handle. Screamed his innocence loud enough that the damn whole office heard it. Even went so far as to hurl a coffee mug in the CFO’s general direction. It’s unclear whether he *intended* to hit Fox or not. Regardless, he had to duck out of the way to avoided being pelted by it. The mug shattered against the wall, leaving a pile of ceramic shrapnel in its wake.
 
 And that was that. 
 
@@ -138,7 +138,7 @@ The hair was blond that time. 
 
 Over the next week, I decided the thing in the pipes needed a name. It's not that I was talking to Arden about it - God no - it’s more that names make things safe. 
 
-*“*Rattle*”* seemed as good as any other. 
+*“Rattle”* seemed as good as any other. 
 
 The more messages I opened, the more I received. The more I received, the more I was able to perceive the thing in the pipes. No matter where I was, I’d hear it: a dull, shaking rattle, like a pool ball clanking around the inside of a washing machine, radiating from the walls, or from the floor, or from deep within the earth. It wasn't continuous. If I heard the noise, that meant a delivery was imminent. 
 
@@ -302,12 +302,12 @@ The doctor let loose a nervous chuckle and assured me that sound was simply due 
 
 “Almost like grinding metal?” 
 
-She nodded again. I breathed a long, heavy sigh of relief. Best I figured, if she could hear it too - the fidget ring spinning inside the pipes in the walls - that meant I wasn't insane. 
+She nodded again. I breathed a long, heavy sigh of relief. Best I figured, if she could hear it too - the fidget ring spinning inside the pipes in the walls - that meant I wasn't insane.
 
-It also meant Rattle was still following me. 
+It also meant Rattle was still following me.
 
 “Why do you ask? What do you think it is?” 
 
 I laid back, flipped away from her, dragged the blanket over my head, and shut my eyes tight. 
 
-[“A wolf.”](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/) 
+[“A wolf.”](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
