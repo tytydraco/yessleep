@@ -30,7 +30,7 @@ Would’ve been even *more* incredible if Theo and Yasmin had the decency to f
 
 I couldn’t focus on taking good pictures. 
 
-There was Yasmin and her oral fixation with sunflower seeds, audibly shattering the shells between her teeth, sometimes spitting a red-tinged glob of spit into a napkin if one of the shards jabbed her gums and drew blood. When she finished a bag, she always had another. Theo often joked that if we were to get lost, rescuers could just follow the trail of blood, spit, and empty plastic bags to our exact location. 
+There was Yasmin and her oral fixation with sunflower seeds, audibly shattering the shells between her teeth, sometimes discharging a red-tinged glob of spit into a napkin if one of the shards jabbed her gums and drew blood. When she finished a bag, she always had another. Theo often joked that if we were to get lost, rescuers could just follow the trail of blood, spit, and empty plastic bags to our exact location. 
 
 Not to say he was any better. 
 
@@ -144,7 +144,7 @@ Cross-legged, catatonic, Theo turned to me and asked:
 
 I didn’t have an answer for him. 
 
-Frantically, Theo leapt into his car and jammed his keys into the ignition. Tried to turn on his car for nearly half an hour, to no avail. There was gas in the tank, and he could flick the headlights on and off, but the engine was stubbornly dead. The machinery refused to even make a sound. 
+All of a sudden, Theo leapt into the Jeep and jammed his keys into the ignition. Tried to resurrect his car for nearly an hour, to no avail. There was gas in the tank, and he could flick the headlights on and off, but the engine was stubbornly dead. The machinery refused to even make a sound. 
 
 At some point, exhaustion put us all to sleep. 
 
