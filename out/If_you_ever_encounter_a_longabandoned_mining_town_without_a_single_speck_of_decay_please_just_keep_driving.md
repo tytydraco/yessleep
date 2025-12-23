@@ -172,7 +172,7 @@ I waited, seemingly unable to do anything else.  
 
 As dawn crested over the horizon, Theo woke up. 
 
-He rubbed his eyes and saw me first: petrified, motionless, upright. Incrementally, I witnessed a gut-wrenching fear take hold of him. Eventually, he turned over, and he was greeted by Yasmin’s bloated corpse bathed in a golden sunrise. 
+He rubbed his eyes and saw me first: petrified, motionless, upright. Incrementally, I witnessed a gut-wrenching fear take hold of him.  He turned over, and was greeted by the sight of Yasmin’s bloated corpse bathing in a golden sunrise. 
 
 Theo sprang to his feet. 
 
@@ -180,7 +180,7 @@ His mouth opened wide like he was about to say something, chastise me for my ind
 
 The fear evaporated, his one eye bulged, and only then did he begin. 
 
-It was the single loudest scream I’d ever heard. 
+It was the single loudest scream I had ever heard. 
 
 And, God, to my abject horror, it just kept going. 
 
