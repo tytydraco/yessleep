@@ -102,7 +102,7 @@ Hailey’s anger vanished. 
 
 Her arms became limp. 
 
-The expression on her face turned vacant; every muscle relaxed, except the ones that controlled her eyes. Both were bulging, practically exploding from their sockets. One eyelid retracted from view, rising so high that I couldn’t see it anymore, disappearing somewhere inside her skull. The other hung halfway down. There was an indent above her lashes; a crescent from how hard her iris was pushing against the inside of the lid. 
+The expression on her face turned vacant; every muscle relaxed, except the ones that controlled her eyes. Both were bulging, practically exploding from their sockets. One eyelid retracted from view, rising so high that I couldn’t see it anymore, disappearing somewhere within her skull. The other hung halfway down. There was an indent above her lashes; a crescent from how hard her iris was pushing against the inside of the lid. 
 
 There was a pause. 
 

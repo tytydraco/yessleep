@@ -1,6 +1,4 @@
-
-
-Ever since I was a little girl, I wanted to be a midwife. There was something magical about being there when new life came into the world. I loved everything about it. Not even the night shifts, rude patients, or distant fathers could ruin it for me. But everything changed the night a heavily pregnant woman walked into our delivery room. She had no ID and wore a worn tracksuit. She said her name was Greta. I still don't know if that was her real name. 
+Ever since I was a little girl, I wanted to be a midwife. There was something magical about being there when new life came into the world. I loved everything about it. Not even the night shifts, rude patients, or distant fathers could ruin it for me. But everything changed the night a heavily pregnant woman walked into our delivery room. She had no ID and wore a worn tracksuit. She said her name was Greta. I still don't know if that was her real name.
 
 She looked pale and underfed, with bloodshot eyes. Her cervix was already five centimeters dilated, so Emma, our doctor on duty, decided to admit her. Her vitals were normal. Over the next few hours, labor progressed and we induced delivery. Everything seemed fine at first. Then Greta's body seized up. Her eyes rolled back and thick veins bulged across her belly. I'd never seen anything like it and called for help. But by the time the senior doctor arrived, Greta had calmed down. Soon after, she gave birth to a healthy baby without any problems. We examined the baby right there in the delivery room. Then I went to the nurses' station to log everything in our system. When I came back, Greta and her baby were gone. We told the hospital administration, but since Greta seemed stable and the baby appeared fine, they did nothing. My warnings that something might be wrong were ignored. The hospital was already overwhelmed. They didn't need more problems.
 
@@ -28,18 +26,17 @@ They came to our planet. Not to attack us, but to hide. They're being hunted. Th
 
 Suddenly everything went white. Blinding light. My head throbbed. I tried to scream but nothing came out. The pain spread through my whole body. For a moment, I felt like I was breaking apart. Like a crab thrown into boiling water.
 
-When the light faded, I was standing in a hallway. I recognized it. It was our delivery ward. I looked down.  
-  
-I was pregnant.  
-  
+When the light faded, I was standing in a hallway. I recognized it. It was our delivery ward. I looked down.
+
+I was pregnant.
+
 "Can I help you?" someone said behind me.  
 It was Emma. But she didn't recognize me. She looked concerned.  
 "Come with me."  
 She touched my arm gently and led me 
 
-into an exam room.  
-  
-"What's your name?"  
-  
-I didn't answer right away. Then I said: Greta.
+into an exam room.
 
+"What's your name?"
+
+I didn't answer right away. Then I said: [Greta](https://www.reddit.com/r/Howtoscream/).
