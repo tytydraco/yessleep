@@ -28,7 +28,7 @@ It was a task exchange like the ones we had done before. I took his assignment i
 The next time I was assigned the same route Martin had been covering for me, I called him to ask if he wanted to swap again. He didn’t answer the phone, and when I tried later, it rang without response.
 Around the same time, the company owner found out about our exchanges and immediately imposed strict restrictions on swapping assigned routes.
 
-That made it my third time on the same stretch of highway. After a three-week halt between assignments, something felt off, though I hadn’t noticed it earlier. Perhaps I had been too anxious about finishing the job on time to pay attention to anything else.
+That made it my third time on the same stretch of highway. After a three-week halt between assignments, something felt off, though I hadn’t noticed it earlier. The trouble wasn’t just that I disliked the route; it was that things kept happening there that never happened anywhere else. Minor injuries, the kind you dismiss at first. Once, after setting the handbrake near the toll, I stepped down to grab my tools and the truck rolled forward anyway, crushing my foot before stopping on its own. Another time, the rear-view mirror cracked without impact, and a shard flew loose and struck my cheek, missing my eye by inches. I wrote it all off as fatigue, bad luck, coincidence, anything but the road itself. Perhaps I had been too anxious about finishing the job on time to pay attention to anything else.
 
 There was a toll plaza on that route that I don’t wish to name. To an ordinary, worn-out driver, there was nothing strange about it at first glance. The wrongness was subtle and easy to miss, and it usually took at least two trips along the same route before anyone noticed anything unusual. 
 
@@ -50,5 +50,7 @@ The next time, it was raining heavily. I halted the truck at a lay-by and lit a 
 That was when I saw Lane 7 come into existence out of nowhere. It appeared like a flickering tube light struggling to turn on, flashing a few times before stabilizing completely. It hadn’t been there moments earlier, just six ordinary lanes, and now a seventh stood beside the sixth, solid and undeniably wrong. I wanted to leave immediately, so I pushed the accelerator and entered the booth area of Lane 3.
 
 At that exact moment, Lane 3 flickered in unison. The moment I entered, everything froze around me. The booth attendants froze mid-motion. I stared through the windshield and saw the rain droplets stop, suspended in place. All I could faintly move were my eyelids, while my vision began to fade.
+
+Before time resumed, something crushed inward inside my head, dense and soundless pressure that left me blind with pain for a heartbeat too long. When the world moved again, there was no trace of it left behind. Only silence that felt deliberate.
 
 Then everything moved again, and I entered an empty highway.
