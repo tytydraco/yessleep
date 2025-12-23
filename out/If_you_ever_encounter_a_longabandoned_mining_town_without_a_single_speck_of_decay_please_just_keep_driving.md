@@ -102,7 +102,7 @@ Hailey’s anger vanished. 
 
 Her arms became limp. 
 
-The expression on her face turned vacant; every muscle relaxed, except the ones that controlled her eyes. Both were bulging, practically exploding from their sockets. One eyelid retracted from view, raising so high that I couldn’t see it anymore. The other hung halfway down. There was an indent above her lashes; a crescent from how hard her iris was pushing against the inside of the lid. 
+The expression on her face turned vacant; every muscle relaxed, except the ones that controlled her eyes. Both were bulging, practically exploding from their sockets. One eyelid retracted from view, rising so high that I couldn’t see it anymore, disappearing somewhere inside her skull. The other hung halfway down. There was an indent above her lashes; a crescent from how hard her iris was pushing against the inside of the lid. 
 
 There was a pause. 
 
@@ -164,7 +164,7 @@ She was eating anything that was in front of her. 
 
 And I watched her do it. 
 
-It was mostly sand. Handfuls upon handfuls of grainy sediment. That said, Yasmin held no culinary discriminations; nothing was off the menu. Sagebrush. A line of ants. A few beetles. One small rodent I had trouble identifying before she shoved it into her waiting maw. Hell, I even saw her take a bite out of a tarantula. The injury wasn’t fatal. It skittered away on its remaining legs before she could deliver the killing blow. 
+It was mostly sand. Handful after handful of grainy sediment. That said, Yasmin held no culinary discriminations; nothing was off the menu. Sagebrush. A line of ants. A few beetles. One small rodent I had trouble identifying before she shoved it into her waiting maw. Hell, I even saw her take a bite out of a tarantula. The injury wasn’t fatal. It skittered away on its remaining legs before she could deliver the killing blow. 
 
 Her throat swelled. Her stomach expanded. I think I heard a muted *pop*. Minutes later, she fell onto her back, mercifully still, finally full. 
 
