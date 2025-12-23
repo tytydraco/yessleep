@@ -22,7 +22,7 @@ I slung my camera around my neck. With the midday sun beating waves of dry heat
 
 The town wasn’t much, but even from a distance, I could tell it was surprisingly pristine. As Yasmin, Theo, and I walked down Wasichu’s singular street, a sense of awe embedded itself deep into my gut. 
 
-The Saloon’s porch was weathered, sure, but none of it was outright rotten. No holes, no obvious termites chewing through the wood, not one plank out of place. The schoolhouse windows were caked with dust, but none of them were broken. We could even read the signs denoting which building was which. By my estimation, the paint had to be more than a century old. 
+The Saloon’s porch was weathered, sure, but none of it was outright rotten. No holes, no obvious insects chewing through the wood, not one plank out of place. The schoolhouse windows were caked with dust, but none of them were broken. We could even read the signs denoting which building was which. By my estimation, the paint had to be more than a century old. 
 
 It was incredible. 
 
@@ -132,7 +132,7 @@ He dove, but missed her waist. 
 
 His arms wrapped around her shins. 
 
-Hailey tripped, and the ball of her left ankle slammed into the hard sand. A sickening crunch radiated through the atmosphere. It barely slowed her down. She ran on the mangled appendage like it was the most natural thing in the world. After Theo's attempt, Hailey changed her trajectory. She sprinted into the darkness, straight forward, full steam ahead. 
+Hailey tripped, and the ball of her left ankle slammed into the hard sand. A sickening crunch radiated through the atmosphere. It barely slowed her pace. She ran on the mangled appendage like it was the most natural thing in the world. After Theo's attempt, Hailey changed her trajectory. She sprinted into the darkness, straight forward, full steam ahead. 
 
 The rhythmic snaps of shredding tissue got quieter, and quieter, and eventually, we couldn’t hear anything at all. 
 
