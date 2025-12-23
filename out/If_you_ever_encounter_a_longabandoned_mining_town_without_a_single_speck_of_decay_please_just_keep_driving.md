@@ -156,7 +156,7 @@ My eyes were already open. 
 
 I could tell that Theo was still sleeping, but I wasn’t looking at him. 
 
-In the dim light of the waning fire, I could see Yasmin on her knees, hunched over, spine curled. Both hands were darting between her mouth and the ground, over and over again. The scalding pressure against my chest returned. An endless series of gritty *squeaks* emanated from her churning jaw. The noise was hellish, but it was quiet. Wasn’t loud enough to wake Theo on its own. 
+In the dim light of the waning fire, I could see Yasmin on her knees, hunched over, spine curled. Both hands were darting between her mouth and the ground, over and over again. The scalding pressure against my chest returned. An endless series of gritty *squeaks* emanated from her churning jaw. The noise was hellish, but quiet. Wasn’t loud enough to wake Theo on its own. 
 
 Yasmin’s eyes were bulging. One was half-concealed behind a paralyzed eyelid. The rest of her face was loose, abandoned, a mask that obscured everything but her eyes. 
 

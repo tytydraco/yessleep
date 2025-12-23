@@ -52,7 +52,7 @@ Another breath.
 
 Then a word, pushed out on warm air, low and soft, like it’s meant only for me.
 
-“Sleep.”
+“Here.”
 
 I try to call out. My throat doesn’t move.
 
