@@ -208,4 +208,4 @@ I haven't slept since. Even the darkness of closing my eyes brings terror. I onl
 
 I don't know what happened to me, but please, don't let it happen to you.
 
-Keep your lights on.
+Keep your lights [on](https://www.reddit.com/u/leadraine/s/yNONkb7UvV).

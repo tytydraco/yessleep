@@ -10,7 +10,7 @@ There were four of us: Hailey, Yasmin, Theo, and me. We were an unlikely bunch. 
 
 We were young, we were healthy, and we all loved visiting abandoned places. 
 
-Our destination that morning was an abandoned mining town located in southwest Nevada. Just a mile from the nearest highway, nestled snuggly in the valley between a pair of red rock mountains, there it was:
+Our destination that morning was an abandoned mining town located in southwest corner of our state. Just a mile from the nearest highway, nestled snuggly in the valley between a pair of red rock mountains, there it was:
 
 Wasichu. 
 
@@ -30,7 +30,7 @@ Would’ve been even *more* incredible if Theo and Yasmin had the decency to f
 
 I couldn’t focus on taking good pictures. 
 
-There was Yasmin and her oral fixation with sunflower seeds, audibly shattering the shells with her teeth, sometimes spitting a red-tinged glob of spit into a napkin if one of the shards jabbed her gums and drew blood. When she finished a bag, she always had another. Theo often joked that if we were to get lost, rescuers could just follow the trail of blood, spit, and empty plastic bags to our exact location. 
+There was Yasmin and her oral fixation with sunflower seeds, audibly shattering the shells between her teeth, sometimes spitting a red-tinged glob of spit into a napkin if one of the shards jabbed her gums and drew blood. When she finished a bag, she always had another. Theo often joked that if we were to get lost, rescuers could just follow the trail of blood, spit, and empty plastic bags to our exact location. 
 
 Not to say he was any better. 
 
@@ -40,9 +40,7 @@ The man couldn’t shut his damn mouth.
 
 Always chattering, always joking, always filling the air with some sort of meaningless drivel. When Hailey’s mom passed, he couldn’t even keep his lips sealed for the whole funeral sermon. He just *had* to comment on the shape of her coffin. Not even a quarter of the way through, he leaned over to me, whispering about how the edges were "weirdly round". Like they were burying her inside a hollowed out torpedo. 
 
-Before long, I’d reached my limit. Told Theo and Yasmin I was going to splinter off on my own for a while. 
-
-They were disappointed, but that was their business, not mine. I knew I’d jogged far enough ahead once I couldn’t hear the incessant chewing or the relentless jabbering anymore. 
+Before long, I’d reached my limit. Told Theo and Yasmin I was going to splinter off on my own for a while. They were disappointed, but that was their business, not mine. I knew I’d jogged far enough ahead once I couldn’t hear the incessant chewing or the relentless jabbering anymore. 
 
 I couldn’t hear anything at the end of the street, actually. 
 
@@ -74,7 +72,7 @@ A campfire below a clear night sky. 
 
 Theo’s voice booms into focus. 
 
-“Jesus Christ, Hailey! Do you recall what Valentina said when she circled this place on our map?”
+“Jesus Christ, Hailey! Remember what Valentina said when she circled this place on our map?”
 
 Yasmin was curled into a ball on the opposite side of the fire, knees tucked against her chest, head buried in her thighs. Theo was on his feet, gesturing wildly at Hailey, who was pacing so furiously that she was kicking up small clouds of sand in her wake. 
 
@@ -84,7 +82,7 @@ Yasmin was curled into a ball on the opposite side of the fire, knees tucked aga
 
 Hailey threw her hands in the air. 
 
-“What? You *really* think the land is...what...cursed? *That’s* why your car won’t start? You sure it isn’t your complete lack of responsibility? Your *absolute* failure to *ever* take good care of anything? I mean, give me a break, Theo.”
+“You *really* think the land is...what...cursed? *That’s* why your car won’t start? You sure it isn’t your complete lack of responsibility? Your *absolute* failure to *ever* take good care of anything? I mean, give me a break, Theo.”
 
 His pupils fell to the sand. Nascent tears shimmered against the roaring fire. 
 
@@ -92,7 +90,7 @@ His pupils fell to the sand. Nascent tears shimmered against the roaring fire. 
 
 My eyes swung back to Hailey. Guess she could feel my gaze on her, because her attention flipped to me. 
 
-\*“\*I’m sorry - something you’d like to add?”
+“I’m sorry - something you’d like to add?”
 
 I shook my head *no*.
 
@@ -134,7 +132,7 @@ He dove, but missed her waist. 
 
 His arms wrapped around her shins. 
 
-Hailey tripped, and the ball of her left ankle slammed into the hard sand. A sickening crunch radiated through the atmosphere. It barely slowed her down. She ran on the mangled appendage like it was the most natural thing in the world. Hailey changed her trajectory. She sprinted into the darkness, straight forward, full steam ahead. 
+Hailey tripped, and the ball of her left ankle slammed into the hard sand. A sickening crunch radiated through the atmosphere. It barely slowed her down. She ran on the mangled appendage like it was the most natural thing in the world. After Theo's attempt, Hailey changed her trajectory. She sprinted into the darkness, straight forward, full steam ahead. 
 
 The rhythmic snaps of shredding tissue got quieter, and quieter, and eventually, we couldn’t hear anything at all. 
 
@@ -160,9 +158,9 @@ I could tell that Theo was still sleeping, but I wasn’t looking at him. 
 
 In the dim light of the waning fire, I could see Yasmin on her knees, hunched over, spine curled. Both hands were darting between her mouth and the ground, over and over again. The scalding pressure against my chest returned. An endless series of gritty *squeaks* emanated from her churning jaw. The noise was hellish, but it was quiet. Wasn’t loud enough to wake Theo on its own. 
 
-Yasmin’s eyes were bulging. One was half-concealed behind a paralyzed eyelid. The rest of her face was loose, abandoned, a mask that obscured everything except her eyes. 
+Yasmin’s eyes were bulging. One was half-concealed behind a paralyzed eyelid. The rest of her face was loose, abandoned, a mask that obscured everything but her eyes. 
 
-She was eating everything in front of her. 
+She was eating anything that was in front of her. 
 
 And I watched her do it. 
 
@@ -172,7 +170,7 @@ Her throat swelled. Her stomach expanded. I think I heard a muted *pop*. Minute
 
 I waited, seemingly unable to do anything else.  
 
-As the dawn crested over the horizon, Theo woke up. 
+As dawn crested over the horizon, Theo woke up. 
 
 He rubbed his eyes and saw me first: petrified, motionless, upright. Incrementally, I witnessed a gut-wrenching fear take hold of him. Eventually, he turned over, and he was greeted by Yasmin’s bloated corpse bathed in a golden sunrise. 
 
