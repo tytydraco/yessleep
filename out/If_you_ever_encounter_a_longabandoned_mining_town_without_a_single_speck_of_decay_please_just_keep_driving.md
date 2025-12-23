@@ -78,7 +78,7 @@ Yasmin was curled into a ball on the opposite side of the fire, knees tucked aga
 
 “Yes, Theo, of course I do - “ 
 
-“Then why the fuck did you sprint into town when we got here? Valentina specifically said, ‘Look, don’t touch.’ That was the plan. We all agreed! We’ll stop, get a few pictures - from a distance - and enjoy the fucking scenery.”
+“Then why the fuck did you sprint into town when we got here? Valentina specifically said: ‘Look, don’t touch.’ That was the plan. We all agreed! We’ll stop, get a few pictures - from a distance - and enjoy the fucking scenery.”
 
 Hailey threw her hands in the air. 
 
