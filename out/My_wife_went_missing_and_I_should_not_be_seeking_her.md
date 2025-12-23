@@ -1,12 +1,10 @@
-
-
-I experienced a pretty dark day. My wife went missing after staying with me for 15 years, and just disappeared when she took a walk with her dog, Fortune. But she never came back. One hour, three hours passed, and the whole night passed. 
+I experienced a pretty dark day. My wife went missing after staying with me for 15 years, and just disappeared when she took a walk with her dog, Fortune. But she never came back. One hour, three hours passed, and the whole night passed.
 
 I began to worry about her getting lost, but her car key and car were still on the table, and it was supposed that the wolves’ habitat was still 50 km away from this peaceful town where we knew each other well. I thought of a kidnapper. I tried to call 911, but the police just dismissed it after they searched for 3 days. Later, they marked it as simply a missing person case.
 
 Other nice people in town also tried to help me, but we couldn't find any remains of my unfortunate woman, a pitiful woman with a warm heart, or the dog. My heart was not only broken, but also shattered beyond repair. At that instant, I felt I had lost the idea to live, almost.
 
-I began to search around my town. I took the torchlight, followed the memories, the places she might love to walk alone. At this time, I still had the lightest hope that she might have just gone missing by herself, still waiting for me somewhere outside town. 
+I began to search around my town. I took the torchlight, followed the memories, the places she might love to walk alone. At this time, I still had the lightest hope that she might have just gone missing by herself, still waiting for me somewhere outside town.
 
 I knew about the forest and the trails around town very well, perhaps. I was calling her name when I went deeper and deeper into the forest outside town.
 
@@ -22,7 +20,7 @@ But at the end of the path, among the line of classrooms, there was one that did
 
 When I entered the broken door of that classroom, I found it had been totally smoked, as if by fire. I was stunned. The inside of it seemed never changed, totally new, no mold, no plants, no sign of any living things might have come after it had been abandoned.
 
-Although I felt strange, I still kept entering, kept exploring. The power source seemed already broken. The switches were just gone. But… but light. Were they on? The lights seemed to work. 
+Although I felt strange, I still kept entering, kept exploring. The power source seemed already broken. The switches were just gone. But… but light. Were they on? The lights seemed to work.
 
 “It is impossible!” I thought. “What was the power source for this light? It had already been abandoned for at least 15 years!”
 
@@ -34,11 +32,11 @@ There were just notes, symbols, and very rough drawings, childish. Perhaps this 
 
 I found a piece of paper which seemed surprisingly new, not covered in any dust. Wait, but I never saw it before when I found this deck of paper, I thought. It was strange.
 
-I began to read it. At the start of the note on this paper, it was written in a mess style, but seems familiar: 
+I began to read it. At the start of the note on this paper, it was written in a mess style, but seems familiar:
 
 “I love you so much! We used to be here. We cleaned this classroom for you. We can stay together! We are staying here, always, when you are reading this. We are watching you. We used to watch you.”
 
-“What the heck is this? Someone loved to sit here, perhaps just some messy stuff left by the boring guys who visited here, but why was the writing similar to my wife” I murmured. 
+“What the heck is this? Someone loved to sit here, perhaps just some messy stuff left by the boring guys who visited here, but why was the writing similar to my wife” I murmured.
 
 “Are you sure?” A voice suddenly appeared in the darkness behind me, hoarse, but scary enough to make me freeze and unable to move anymore. I felt my blood run cold. I began to turn my head, slowly, painfully, to my back.
 
@@ -62,10 +60,20 @@ I still closed my eyes, then opened them again, but nothing happened. That human
 
 I checked myself. I was already covered in sweat from the escape and fear. But at least everything had ended, perhaps. But was it that I really heard my wife’s voice from that creature? Did that creature swallow my wife? I thought.
 
-When I passed the wooden door that seemed illuminated by light without a power source, I entered a classroom. It was dark, but my torchlight didn’t find anything that looked weird, except a light that was on, with a power source supposed to have died very long ago. Was anyone still living here and keeping the power source? I thought.
+When I passed the wooden door that seemed illuminated by light without a power source, I entered another classroom. I tried to look for another exit, but failed. I was trapped here.
+
+I thought about calling someone. Maybe I could stop anyone else from coming here.
+
+I took out my phone, my fingers shaking. I needed to warn someone. Anyone.
+
+Suddenly, my torchlight went dark. I pressed the button again and again. It didn’t work.
+
+Then the surrounding area became bright again. It wasn’t my torchlight. A light appeared on the upper floor, without any power source.
 
 “Are you sure?”
 
 The question felt comforting. Reassuring.
 
-“Help,” I said into the phone. “We’re here. Please come. Rescue”
+“Help,” I said into the phone. “We’re here. Please come.”
+
+# 
