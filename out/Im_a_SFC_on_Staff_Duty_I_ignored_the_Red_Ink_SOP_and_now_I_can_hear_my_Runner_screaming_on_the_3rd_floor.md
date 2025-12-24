@@ -38,3 +38,5 @@ Miller is at the clinic. The medics are calling it shock, but they didn’t see 
 I’m headed to my off-post apartment now. I’ve got his waiver paperwork in my passenger seat—I'm trying to protect his career, but I'm starting to wonder if the PFC Miller I'm protecting is still in there.
 
 I’m going to try to sleep. But I can still hear the floor buffer, and I'm not in the building anymore.
+
+***I have more to update in regards to this matter.*** [***You can find it here***](https://www.reddit.com/r/nosleep/comments/1ptny99/i_was_warned_never_to_ignore_the_red_ink_rules_on/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)***.***
