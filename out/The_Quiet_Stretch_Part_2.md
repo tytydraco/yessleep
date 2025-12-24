@@ -26,7 +26,7 @@ Something within me was quite certain now that asking again wouldn’t be a good
 
 It was taking me more than courage to live through all that. I was constantly cursing my decision of having become a truck driver. It felt like I was lured into that job by the universe itself, as though this road had been waiting for someone like me to notice it.
 
-Just how a normal trucker would, I looked to my right, not out of curiosity, but because I needed to know whether the road truly had rules, and whether they could be tested. What happened next made me keep my head straight ahead for the rest of the route.
+Just how a normal trucker would, I looked to my right. What happened next made me keep my head straight ahead for the rest of the route.
 
 Looking to my right, I could see a road being built in real time. It stretched far beyond what my eyes could follow. A truck, moving with the speed of a jet, came hurling towards me. Terror seized me, and I immediately looked ahead again, accelerating fully. To my surprise, my head movement caused the approaching truck to disappear, along with the road itself.
 
@@ -44,11 +44,11 @@ I looked at the hitchhiker. He was still staring ahead, as if waiting for me to 
 
 I lit it. The smoke didn’t drift. It remained static, suspended in place. Then the hitchhiker moved. His body resisted itself, as though something unseen dictated how far and how fast he was allowed to go.
 
-He snatched the cigarette from my hand. The gesture stirred something in me—an echo of familiarity I couldn’t place. I knew I had seen that movement before, but the memory refused to surface, leaving behind only unease.
+He snatched the cigarette from my hand. The gesture stirred something in me, an echo of familiarity I couldn’t place. I knew I had seen that movement before, but the memory refused to surface, leaving behind only unease.
 
 He stepped out and began running towards the truck parked at the other end of the gas station, the cigarette still in his hand.
 
-Immediately, another truck came hurling out of the darkness. The hitchhiker tried to make way, but at an impossible speed, the truck struck him. He was thrown upward, still rotating slowly in the air, suspended rather than falling. A powerful hum followed, one that lingered far longer than it should have, vibrating through my bones.
+Immediately, another truck came hurling out of the darkness. The hitchhiker tried to make way, but at an impossible speed, the truck struck him. He was thrown upwards, still rotating slowly in the air, suspended rather than falling. A powerful hum followed, one that lingered far longer than it should have, vibrating through my bones.
 
 The truck vanished into the darkness as abruptly as it had appeared. The body did not fall. It remained floating, rotating gently, as if held there by the same force that governed the road.
 
