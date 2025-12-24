@@ -122,9 +122,11 @@ My steps carried me closer.
 
 It had to be done. I would make sure they were remembered forever as a hero. Someone who saved the world.
 
+*Just do it. Keep walking.*
+
 My heart was aching, tearing itself apart.
 
-*Just do it. Keep walking. Get there. Pull the trigger...*
+*Get there. Pull the trigger...*
 
 My legs were so heavy.
 
@@ -148,7 +150,7 @@ It was too much.
 
 I couldn't kill someone. Someone innocent. For a world they would never see.
 
-The decision was made.
+My decision was made.
 
 I would not pull the trigger.
 
