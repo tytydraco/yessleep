@@ -168,4 +168,4 @@ They couldn't find the stranger I had been talking to.
 
 They did, however, find someone in the alley.
 
-Someone holding a gun, waiting for me.
+Someone holding a gun, waiting for [me](https://www.reddit.com/u/leadraine/s/gxw2fPmIsN).
