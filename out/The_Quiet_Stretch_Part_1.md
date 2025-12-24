@@ -54,3 +54,5 @@ At that exact moment, Lane 3 flickered in unison. The moment I entered, everythi
 Before time resumed, something crushed inward inside my head, dense and soundless pressure that left me blind with pain for a heartbeat too long. When the world moved again, there was no trace of it left behind. Only silence that felt deliberate.
 
 Then everything moved again, and I entered an empty highway.
+
+[Part Two](https://www.reddit.com/r/nosleep/s/4KDounGKs0)
