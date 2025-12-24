@@ -12,7 +12,7 @@ I stepped out of my Ute with the headlights still on as I gathered myself. I fel
 
 I saw my decimated vehicle in the middle of the road, looking like crumbled up wrapping paper. It remember my first time seeing it vividly, because it essentially just behind my Ute, as the faint red glow of my rear lights revealed it in an ominous glow. I didn’t need to get too close to see my body torn in half, splayed over the bonnet and steering wheel like a doll. My bones protruded out of my arms, legs and torso, while my head looked partially caved in. 
 
-From the way it looked, I have to think that I swerved into a truck coming in the opposite lane. My hypothesis was based on how my Ute went from looking like a terrier to a pug, with a noticeable amount of damage present to the frame that couldn’t be the result of a hatchback or a sedan collision. Though in all honesty, I haven’t no idea what exactly happened. Just that I hit some cunts’ vehicle, and that I died while he survived. 
+From the way it looked, I have to think that I swerved into a truck coming in the opposite lane. My hypothesis was based on how my Ute went from looking like a terrier to a pug, with a noticeable amount of damage present to the frame that couldn’t be the result of a hatchback or a sedan collision. Though in all honesty, I have no idea what exactly happened. Just that I hit some cunts’ vehicle, and that I died while he survived. 
 
 Something that I realised quickly was that my truck didn’t require fuel. Not only that, as long as I kept it on the road and avoided hitting the living roadkill and other hazards, my Ute can keep going forever. I didn’t need food, but anything I found that I could eat comforted me, despite not feeling hungry or full afterwards.
 
