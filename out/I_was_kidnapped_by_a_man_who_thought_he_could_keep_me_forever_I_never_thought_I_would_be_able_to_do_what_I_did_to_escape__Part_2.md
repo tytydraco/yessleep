@@ -1,4 +1,4 @@
-Part 1
+[Part 1](https://www.reddit.com/r/nosleep/comments/1pte1tg/i_was_kidnapped_by_a_man_who_thought_he_could/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 CW: Abusive content
 
