@@ -113,3 +113,5 @@ As my vision fell to black, I felt cold, sharp metal pushing into my throat.
 “Go to sleep now. I don’t need any surprises.” He said, his words warbling in my ears as my body finally gave in to a deep, paralyzing sleep.
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/1pubn83/i_was_kidnapped_by_a_man_who_thought_he_could/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1pv4xla/i_was_kidnapped_by_a_man_who_thought_he_could/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
