@@ -32,7 +32,7 @@ The air was filled with a metallic smell, like corroded pennies.
 
 A breeze ran through the cave, carrying with it an orchestral symphony of agony. 
 
-I began to walk deeper when I walked on something that clinked. It was a set of keys with a tag that read apartment building 426 followed by an address. 
+I began to walk deeper when I walked on something that clinked. It was a set of keys with a tag that read 'Apartment Building 426' followed by an address. 
 
 From a city that I knew did not exist.
 
@@ -64,7 +64,23 @@ They both erupted in agonizing wails.
 
 It was the sound of two people who’d had the last of their hope stripped away from them. An animalistic pained sobbing that echoed on the cavern's walls. 
 
-I got the fuck out of there and called the police. 
+His arm shot up clamping down on my leg painfully.
+
+"You have to get me out, I can't go back. Please. Don't let me go back."
+
+I grabbed his arm and his skin shifted under my grip like wet clay.
+
+I pulled but he would not budge.
+
+I pulled
+
+And pulled.
+
+His arm's socket popped wetly as it dislocated, and his arm tore off like wet paper.
+
+When his arm gave way I fell backwards, smashing my head against a stone and passing out. 
+
+I woke up and the cave was silent. I was the only one there. So I climbed out and called the police. 
 
 Park rangers met me at the hole and told me the police had deferred the situation to them. 
 
