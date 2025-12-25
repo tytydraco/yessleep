@@ -57,3 +57,5 @@ I walked towards the parked truck. The moment I climbed inside, I didn’t need 
 I didn’t know what to do. I couldn’t understand why Martin hadn’t spoken, or why he never looked at me. I didn’t understand the hum, or whether it had been him, or the road, or both.
 
 The next moment, I looked into the rear-view mirror of Martin’s truck. It showed a truck speeding towards me. And I understood, with a certainty that made my chest tighten, that the road was not finished with me yet.
+
+[Part Three](https://www.reddit.com/r/nosleep/s/AWXUB1pIKn)
