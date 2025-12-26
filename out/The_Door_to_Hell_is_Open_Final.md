@@ -496,4 +496,4 @@ There are only two things we know for sure:
 
 The door to Hell is open.
 
-And the whispers are back.
+And the whispers are [back](https://www.reddit.com/u/leadraine/s/2yzYv3vYRm).

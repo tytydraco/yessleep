@@ -122,4 +122,4 @@ Today, the police contacted me. With dental records, they'd made an identificati
 
 Laura. A librarian.
 
-She died in 1921.
+She died in [1921](https://www.reddit.com/u/leadraine/s/2yzYv3vYRm).
