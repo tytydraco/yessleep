@@ -168,7 +168,7 @@ I ran my hands across its smooth, metal surface. Hardly any ash was sticking to 
 
 I knocked on the door and waited. No answer.
 
-I grabbed the handle and turned it. "HELLO?" I shouted through the dark opening. "IS ANYONE IN THERE?" No answer.
+I grabbed the handle and turned it. *"HELLO?"* I shouted through the dark opening. *"IS ANYONE IN THERE?"* No answer.
 
 Something felt off about the other side of the door, but it couldn't have been worse than the wasteland surrounding me.
 
