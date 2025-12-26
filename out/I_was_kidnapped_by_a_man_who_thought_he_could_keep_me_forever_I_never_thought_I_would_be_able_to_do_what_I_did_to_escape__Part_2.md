@@ -99,3 +99,5 @@ It sounded gentle, but I could hear the darkness behind it, the threat buried un
 I now knew what he was capable of. I’d seen the way his eyes darkened the moment the knife appeared. I saw the way he looked at me, not like a person, but like a thing, something to be broken. Twisted. Owned.
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/1pv4xla/i_was_kidnapped_by_a_man_who_thought_he_could/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1pvvkbi/i_was_kidnapped_by_a_man_who_thought_he_could/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
