@@ -1,7 +1,4 @@
-[Part One](https://www.reddit.com/r/nosleep/s/l9tcBKf8co)
-
-[Part Two](https://www.reddit.com/r/nosleep/s/kJrUcpoWC1)
-
+[Part One](https://www.reddit.com/r/nosleep/s/l9tcBKf8co) | [Part Two](https://www.reddit.com/r/nosleep/s/kJrUcpoWC1)
 
 The upcoming truck was still visible in the rear-view mirror of Martin’s truck.
 It wasn’t getting closer, It wasn’t moving away either. It simply remained there, fixed in place.
@@ -56,3 +53,5 @@ I was expelled forward, meanwhile sound returned all at once violently. Thought 
 Men surrounded my truck, voices overlapped. Then the highway patrol approached... It was too much to process all of a sudden...too many sounds that were too sharp..too loud for my ears that had not heard anything for hours. They collided inside my head without order, I couldn’t process any of it.
 
 My eyes drifted upwards, caught on the billboard ahead. The language on it was foreign. I stared at it longer than I should have, knowing without understanding that whatever had been taken from me hadn’t returned whole.
+
+[Part Four](https://www.reddit.com/r/nosleep/s/MQ4vN3cIP9)
