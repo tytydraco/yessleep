@@ -135,3 +135,5 @@ After a few tense moments, the door creaked open again, and this time he was the
 He didn’t speak a word. He just stood there staring at me. After a while, he reached in and grabbed the door handle, never letting his eyes leave mine. A twisted smile slowly spread across his face as he pulled the door shut, leaving me alone once more.
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/1pvvkbi/i_was_kidnapped_by_a_man_who_thought_he_could/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/1pwosot/i_was_kidnapped_by_a_man_who_thought_he_could/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
