@@ -376,6 +376,6 @@ I stayed there all night. That’s where I began to write this story, moving onl
 
 I’m not scared anymore. Writing this has relieved my fear. I’ve accepted my fate or maybe I’m too tired to fight. Either way…..
 
-Everything was almost normal, except, it’s wasn’t. It’s night time and….
+Everything felt normal, except, it’s wasn’t. It’s night time and….
 
 Downstairs I smell eggs, bacon, and maple. The smell is drawing me to the kitchen, the siren’s call to my sailor. I don’t want to, but I feel the need to go downstairs. I can hear them laughing.
