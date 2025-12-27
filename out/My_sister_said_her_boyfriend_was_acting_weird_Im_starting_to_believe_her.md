@@ -40,7 +40,7 @@ My sister let out an excited squeal.
 
 The next day it was business as usual. Everything was normal. Everything was the way it should be. Me, Gina, and Preston pilled into my Toyata 4Runner. The air was familiar, a smell I had grown accustomed to from book bags filled to the brim with spray paint mixed with smell of the twine that built the rope we used for climbing. I couldn’t tell where one smell began and the other ended. There was an excited energy in the car as Gina pointed out the directions. Left, left, right at the light, left on the side street, right down a street that looked more like an alley, drive to the end of the field.
 
-Preston was right. This was a cul de sac, with a huge empty warehouse at the end. Decrepit. Over-grown. The trees draped over the building like bags on the eyes of a man who’s lived way past his prime. Graffiti lined the building, reminding me of the faded tattoos on my skin. I know this may not make any sense, but the building —- the building almost seemed alive. Sad. Forgetting.
+Preston was right. This was a cul de sac, with a huge empty warehouse at the end. Decrepit. Over-grown. The trees draped over the building like bags on the eyes of a man who’s lived way past his prime. Graffiti lined the building, reminding me of the faded tattoos on my skin. I know this may not make any sense, but the building —- the building almost seemed alive. Sad. Forgotten.
 
 I parked. We got out the car, book bags, smiles on Preston and Gina.
 
@@ -50,7 +50,7 @@ I parked. We got out the car, book bags, smiles on Preston and Gina.
 
 “I’m not”….
 
-I was lying. I didn’t know why, but I didn’t want to go in. Maybe it was intuition. Maybe I watched too many scary movies. I don’t know, but I found myself standing there alone. Preston and Gina, already in the building, beckoning me forward.
+I was lying. I didn’t know why, but I didn’t want to go in. Maybe it was intuition. Maybe I watched too many scary movies. I don’t know, but I must’ve zone out. I found myself standing there alone. Preston and Gina, already in the building, beckoning me forward.
 
 Each step was heavy, boulders tied to my feet. I took a deep breath and thought to myself. “Man up, you’ve walked into a hundred abandoned buildings. This one’s no different. This isn’t a movie, it’s real life.”
 
@@ -376,6 +376,6 @@ I stayed there all night. That’s where I began to write this story, moving onl
 
 I’m not scared anymore. Writing this has relieved my fear. I’ve accepted my fate or maybe I’m too tired to fight. Either way…..
 
-Everything felt normal, except, it’s wasn’t. It’s night time and….
+Everything felt normal, except, it’s wasn’t. Things were different, but ever so slightly. It’s night time and….
 
 Downstairs I smell eggs, bacon, and maple. The smell is drawing me to the kitchen, the siren’s call to my sailor. I don’t want to, but I feel the need to go downstairs. I can hear them laughing.
