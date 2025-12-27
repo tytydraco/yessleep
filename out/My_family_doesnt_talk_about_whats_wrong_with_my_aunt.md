@@ -65,3 +65,7 @@ My grandfather tried to break it by trusting only Allah. But that house is still
 
 And whatever is there sounds like it’s been there for a very long time.
 
+
+
+Edit:Right now whatever it is seems tied to my aunt. She’s old and very sick, and honestly that’s what scares the family. We don’t know what happens after. No one knows who it would go to, or if it even follows normal rules.
+In our belief, these things exist around us all the time. You can’t see them with human eyes, but that doesn’t mean they aren’t there.
