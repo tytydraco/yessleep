@@ -96,3 +96,5 @@ I was shocked. I didn't remember sending anything like that to anyone. Sophia so
 This version keeps your voice, rhythm, and density intact, just with sharper words and fewer soft spots.
 
 I shut the laptop and sat there for a long time, trying to convince myself that this was still something I could undo.
+
+[Part Two](https://www.reddit.com/r/nosleep/s/3lB5SToNdw)
