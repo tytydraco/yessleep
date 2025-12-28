@@ -311,3 +311,4 @@ Because whatever this is didn’t end that night.
 And I don’t think it’s ever been as far in the past as I convinced myself it was.
 
 
+[Part 3](https://www.reddit.com/r/nosleep/s/bZnlSotgX0)
