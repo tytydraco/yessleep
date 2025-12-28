@@ -64,4 +64,6 @@ I just woke up again, and I needed to write this down. This entire day was fucki
 
 The festival is canceled. But not from the mass hysteria or anything. There’s now an open investigation for embezzlement on the planning committee. And get this… The plaza is totally untouched. The gazebo is fine. No scorched piles of something. No people laying in the grass. All the ash and soot and everything is gone and sparking clean. But I’m still missing a goddamn nail. I don’t know what’s happening.
 
-[https://www.reddit.com/r/consignmentshoponmain/s/Nj9Y5i760j](https://www.reddit.com/r/consignmentshoponmain/s/Nj9Y5i760j)
+[https://www.reddit.com/r/nosleep/s/QiZfXqC8UE](https://www.reddit.com/r/nosleep/s/QiZfXqC8UE)
+
+[ https://www.reddit.com/r/consignmentshoponmain/s/Nj9Y5i760j ](https://www.reddit.com/r/consignmentshoponmain/s/Nj9Y5i760j)
