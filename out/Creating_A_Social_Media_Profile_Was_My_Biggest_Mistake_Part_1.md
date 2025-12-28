@@ -84,7 +84,7 @@ There were more requests, more “People you may know,” and more message reque
 
 I was a complete dumbass when it came to social sites, and I barely understood how they worked. I assumed the platform had censored or altered what I wrote earlier. Perhaps the site didn’t allow people to be openly unwelcoming.
 
-Five hours later, at home, I was talking to a friend when I heard the notification tone from my laptop. I continued the conversation briefly, then picked it up.
+Five hours later, at home, I was talking to a friend when I  got a notification on the site.
 
 I checked a few new message requests and deleted them. But it wasn't the requests that unsettled me; it was a chat, already opened; with someone named “Sophia.” It read:
 
