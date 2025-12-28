@@ -15,7 +15,7 @@ The rules were printed and laminated on the desk:
 4. If someone asks you to let them out, do not respond.
 5. If you see yourself on the cameras, log the time and look away.
 
-I laughed at that last one. The first night was quiet, too quiet. No deliveries, no staff, no cleaning crews. The cameras showed hallways, stairwells, and rooms full of shelves covered in white sheets. At 9:07 p.m. on my fourth night, I heard footsteps, they came from behind me. Slow, bare, careful.
+I laughed at that last one. The first few nights were quiet, too quiet. No deliveries, no staff, no cleaning crews. The cameras showed hallways, stairwells, and rooms full of shelves covered in white sheets. At 9:07 p.m. on my fourth night, I heard footsteps, they came from behind me. Slow, bare, careful.
 
 I remembered rule number 2 and stared straight ahead, forcing my eyes to stay on the monitors. The sound stopped directly behind my chair. I felt breath against my neck, cold, dry, patient.
 
