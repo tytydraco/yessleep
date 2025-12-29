@@ -303,3 +303,5 @@ Just before they stepped out, he paused, turning to look back at me, as if savor
 The door closed hard behind them, leaving the room steeped in a suffocating silence. From the darkness of Lilith’s cage, her voice whispered, weak and strained.
 
 “Run, Emily… before he learns how to break you.”
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/1pyd4ym/i_was_kidnapped_by_a_man_who_thought_he_could/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
