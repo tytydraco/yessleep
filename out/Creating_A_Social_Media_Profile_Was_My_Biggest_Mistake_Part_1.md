@@ -93,7 +93,7 @@ I checked a few new message requests and deleted them. But it wasn't the request
 “Fun sounds good. Let's meet tomorrow at [REDACTED] Area, house number: [REDACTED] by 11 pm.”
 
 I was shocked. I didn't remember sending anything like that to anyone. Sophia sounded like an escort, but what truly concerned me was my reply. The address was mine, and it was 9 am when I read it.
-This version keeps your voice, rhythm, and density intact, just with sharper words and fewer soft spots.
+.
 
 I shut the laptop and sat there for a long time, trying to convince myself that this was still something I could undo.
 
