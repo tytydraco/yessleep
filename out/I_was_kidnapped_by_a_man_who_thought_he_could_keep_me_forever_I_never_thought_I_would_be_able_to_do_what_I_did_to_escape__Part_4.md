@@ -131,3 +131,5 @@ She was just another victim. Another piece of his twisted puzzle. And I was just
 [Part 5](https://www.reddit.com/r/nosleep/comments/1pwosot/i_was_kidnapped_by_a_man_who_thought_he_could/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 [Part 6](https://www.reddit.com/r/nosleep/comments/1pyd4ym/i_was_kidnapped_by_a_man_who_thought_he_could/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Final Part](https://www.reddit.com/r/nosleep/comments/1pz96ek/i_was_kidnapped_by_a_man_who_thought_he_could/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
