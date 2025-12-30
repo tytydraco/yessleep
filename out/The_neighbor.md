@@ -1,75 +1,123 @@
-About 12 years ago, my boyfriend at that time and I ended up finding a cheap, quiet studio to rent for practically free! Of course, we had to maintain the three properties there and help our landlord out with his meals, or just drive him out to eat, where you were also treated for taking him out. The studio that we were moving into needed a decent amount of renovations to be comfortable and livable.
 
-It was pretty quiet and isolated on top of that hill. Besides our studio, there was a neighbor across our driveway, about 150 ft away. Plus our landlord, who owned all three homes, located about three quarters of a football field to the right of our studio. The landlord's girlfriend lived in an apartment above the landlord's garage. The landlord was extremely cool, so we got free cable, water and power. We only had to pay for propane for heat and hot water. That bill was to be split with the neighbor across the driveway from us, since we shared the large propane tank.
 
-We didn't officially meet our new neighbor until a few weeks after moving in. We all introduced ourselves and had a normal conversation. I got a chance to really talk to her however, a couple of weeks after our initial meeting. We stood around outside talking for almost an hour. When my renovations got brought up, I wanted to show her our great work, so we headed inside my place for a small tour. It was a studio, as mentioned, so you pretty much got the whole house tour just stepping in the front door. That's where the weirdness truly began though.
 
-The actual first words she spoke upon stepping through my front door were "is that a used mattress?" while pointing at our bed. Now, if you know me, then you know that when it comes to my beds, I keep them really clean! I mean like I straight up use a waterproof mattress cover to keep my mattresses pristine with no stains and white still and I only use good, clean sheets and blankets. So her question really threw me as I stared at our bright white clean mattress edge that was exposed, as a result of me making the bed earlier that morning. All I could manage to say was "no, I got it brand new."
 
-We all had our varying work schedules, so I really didn't see her for another few weeks after that. But then, the landlord's girlfriend pulled me aside one day with something pretty interesting to say. She told me that my neighbor had been telling her and the landlord that my boyfriend and I were known to have burgled houses! I was blown away! I wondered why she would say that, neither my boyfriend nor I had even known anyone capable of that, let alone us being capable of that! The neighbor's daughter turned out to be a new cop and she still worked in the jail for her first year. Supposedly, that's how the neighbor knew what she didn't even know! All I could really say to the landlord and his girlfriend was the obvious fact that we weren't even capable and couldn't even prove it but we had clean criminal records. So we just dismissed it for the time being.
+We were just kids playing basketball in the cracked alley behind our apartment complex. Me, my older brother Ray, Jasmine, and Joel. We were best pals and we rarely spent time apart. 
 
-After that, we started noticing dirty looks from her here and there. So naturally, it was pretty awkward when I had to go over and knock at her door in order to collect her half of the propane bill. She gave me a check and when I read her name aloud and looked into her eyes, I remembered who she was.
+Every afternoon after school we were out there, being our usual dorky selves.
 
-When I was about 16, so about like 12 years or so before moving in next door to her, I ended up at her house with my high school boyfriend for thanksgiving. My boyfriend at the times' parents were friends with her and her husband and they had a daughter who was our age also at that time. My boyfriend and I hung out with the daughter while the adults hung out and got drunk as they prepared dinner.
+Everyone called us losers and weirdos for liking comic cons and cosplaying, but together nothing else mattered. 
 
-I barely remember even interacting with any of the adults, except for of course, at dinner. Yet, after that evening, I was told by my boyfriend from his parents that I was no longer welcomed back at his parent's' friend's house. Neither my boyfriend nor I could possibly think of why. I found out a couple of months later why though.
+If being cool meant acting bland, boring and judgmental like everyone else in school, then we would rather stay weird. In a cold world like this, it felt good to find people who liked you for being yourself.
 
-Let's just say that I hit puberty puberty early and wasn't exactly flat chested, unfortunately. That got me plenty of unwanted attention from guys, even older ones. My boyfriend's dad at that time, enjoyed staring at my chest and was pretty open about it. So no surprise that on Thanksgiving that night, as both men were at the very least pretty buzzed on the beers, they noticed my chest. Obviously, word got back to the women and they weren't happy.
+The city had already put a curfew in place. Too many kids gone missing.
 
-Add to that, the fact that shortly before I moved in next door to her years later, her husband had divorced her and she was quite bitter about it. I laughed at first, upon reading the name on that check and asked her if she was of the same last name that I had known in high school. She gave me a sideways smile and told me that she indeed remembered exactly who I was. That, combined with the fact that the landlord's girlfriend had told me that I was the only tenant that she had ever had a problem with, told me that the worst was yet to come.
+ Too many fliers taped to light poles. But as long as we stayed in the alley where the parents could see us, nobody yelled.
 
-It was just small things at first that we started to notice. Like, when I'd get home, I'd always hit the "lock" button on my key fob to lock my car, which would make the horn honk once to confirm it was locked. Every single time I would do that though, she'd always have to hit her key fob from inside her house and make her car honk as well!
+And always, she was there.
 
-Then, the landlord informed us that she requested that my boyfriend and I stay completely off her property and to not even knock on her door. But then right after, she turned around and had our landlord ask us if we could go into her house while she was gone to set up a treadmill for her! She just left her front door unlocked for us to do it!
+The woman in Apartment 3B.
 
-One day, we had a friend stop by for a visit. He had a really weird look on his face as he came up our walkway though, so naturally my boyfriend and I looked at each other and then asked him "why the face?" "Well," he said is he sat down on our porch, "your neighbor, some woman, took a picture of my license plate as soon as I parked, then she wanted to know if I was going to be spending the night here?" In shock and bewilderment, we asked him what she looked like just to make sure it was her and yep, it surely was! She even took pictures of our license plates after that!
+She never came out. Or at least, I never saw her outside.
 
-She got real petty after that! She started trying to keep track of whenever one of us would even step over the line to her half of the driveway. If she felt that one of us drove up the driveway in front of her house too fast, she would scream at whoever it was. That got me up in her face yelling at her one time! She even threatened to sue us once because according to her, one of our cats was on her car and scratched her new car's paint when she scared it off of her car. I used a squirt bottle when I noticed the same cat on my similar dark colored newer car one day and no way were the scratches like she had said! I mean, you could see on the clear coat where the cat's nails were, but it rubbed right off just by using my finger!
+ Her place looked like a hoarder’s cave. If you squinted through her living room window you could see clutter stacked behind her like a crooked wall.
 
-I started to worry about my  three cats my with her around, especially after one of my nosy, ditzier cats wandered into her house after she left her front door open for a while! Whenever that cat would wander towards her house after that, I'd call him back if I happen to see him doing it. That cat dissapeared shortly thereafter. My boyfriend and I smelled something dead around the property a couple months later after searching tirelessly for him, but we can never locate the source of that smell.
+Most days she just watched. Hidden behind those faded floral curtains.
 
-Tensions between the three of us and even the poor landlord and his girlfriend were pretty high at that point. But it got worse one afternoon, when I happened to catch her on our property. I was around the back side of our house, talking to my boyfriend. But when I went to walk back around to our front door, I caught her! She was crossing back over the driveway toward her own house with this stupid, childlike guilty look on her face. Believe it or not, it actually took a couple minutes for it to dawn on me that she had been sneaking around to the side of our house to eavesdrop on us! Come to think of it, that's about the time I started to hear strange noises outside our windows at night.
+ You would not notice her at first, not until your eyes adjusted and the narrow gap in the fabric revealed the pale sliver of her face.
 
-Our mail situation was a bit strange at that place because there was only one mailbox for our address which the three houses on that property shared. There was only one key to the mailbox, which the landlord had. The landlord and his girlfriend didn't drive anymore, so usually my neighbor lady would get the mail from the box for everyone and drop it off over at the landlord's house so we could go and get it from him. So one fine day, I trotted over to the landlords to see if my check had come in the mail. He said it hadn't come and I could tell just by looking at the mail pile it wasn't there. It was a state check, so it looked kind of obvious amongst regular mail. On the way out of my landlord's house, she was coming up the stairs on her way back in, so I asked her if she happened to have seen it and that I thought maybe that's why she was heading back into the landlord's house, maybe because she forgot to give it to him. But boy did she explode on me! She started yelling at me that she had no idea what I was even talking about! I didn't understand her reaction at all until a couple months later.
+“She is probably just lonely,” Jasmine said once.
 
-I had started noticing that I wasn't receiving certain important things that I was expecting in the mail. Like my new driver's license, vehicle tags for registration and some pretty important Social Security paperwork. So, I hatched a plan and informed the landlord first. The second person I clued in was our mailman, since it was a locked mailbox. Since there was only one key to said mailbox, my theory should have been easy to prove and it was.
+“She is a witch,” Ray said. “I swear I heard her arguing with her fridge.”
 
-My plan was to address an envelope as if it were important and coming in the mail for me. I only planned to give it to the mailman at our mailbox, so it would be missing the postmark, but I hoped she'd overlook that small detail. After the mailman deposited it into our mailbox, I just had to wait for her to bring the mail to the landlord and see if she left it in with the rest of the mail like she was supposed to.
+We laughed, but whenever I turned to take a shot and found her staring down at us, my stomach dropped like I had missed a step.
 
-Sure enough, when I went to the landlord's to pick up our mail, it wasn't there! Excited to finally be able to make her face some consequences for her crappy actions, I immediately called the postmaster to report the mail theft. But unfortunately, being the beginning of the recession back then, the post offices were far to understaffed to even explore the case. I also tried calling the sheriff, but mail theft is federal territory.
+Everything changed one Thursday.
 
-I started to notice that the noises  outside my windows at night were happening more frequently. Not only that, but I started waking up during the night with severe stomach pains and diarrhea that would usually be gone by morning. That would happen at least twice a month while living there.
+I came home late, just a few minutes before curfew. Great. I really hoped there was no patrol car nearby. I rounded the corner to our building and froze.
 
-Then, one day as I went out into my front yard to talk on my cell phone, (there was zero service inside the house) the neighbor lady suddenly appeared on her front porch and faced me, while holding her cell phone out towards me. I couldn't figure out if she was like eavesdropping on my phone call somehow or maybe filming me? But after that, she would do it every time she was home and I went out to make a phone call.
+Flashing lights washed the walls in red and blue.
 
-On top of all that, it got worse when Miss worries about everyone else's company being legit, recommended some lady friend of hers's daughter and her boyfriend move into the landlord's above garage apartment. Apparently, the landlord's girlfriend had suddenly moved out, leaving the apartment vacant. Now, you would think that a nosy neighbor like that monitoring our guests would choose nice and safe people to live on our property with us right? WRONG!!
+Two cruisers.
 
-The young couple definitely wreaked havoc, I'll tell you! At first, they got into the landlord's house while we were all out to dinner one night. They stole what they assume to be the landlord's cell phone from his living room, but it was actually my recently deceased mother's cell phone that I had lent to him, since the cell phone had about a year left on the contract agreement. Also, some of the last pictures of my mother and I were on that cell phone.
+Aww crap, I was down on my luck, I tried to think of an excuse on the spot if they would question me.. but they weren’t noticing me at all..
 
-I didn't actually find out the phone was stolen, until my boyfriend told me as soon as our landlord told him. I remember that I was out in my field doing some tracking for a peeping tom (whole other story!) when he came out to tell me. I immediately yanked my phone out of my pocket and called the stolen phone. A younger sounding girl answered, but hung up after hearing me ask "who is this??" We both left my other house right away and headed to our studio so I could confront the young couple at their apartment.
 
-My boyfriend and I quietly crept up the stairs in the garage that led up to their apartment. As I stood quietly outside the apartment door, I texted the phone that I thought they had stolen. I did that because that particular brand of phone had a certain text tone, exclusive to that type of phone only and I knew that my mom had the phone set to that text tone. Sure enough, I heard it go off inside their apartment! So, I calmly knocked on the door and waited for them to answer. 
 
-When the young girl answered the door, I calmly asked her about the phone. Before she could answer me though, I explained to her that the phone that had been stolen was my mother's and she had just recently died. I also explained that the phone had a few of the last pictures of my mom and I in it. She denied even having the phone, of course.
 
-For all of you out there reading this, I just have to say that I tried, people, I tried. But.. I kind of lost it right then. I yelled at her "bull sh.t, I just texted it before I knocked and I heard the f****** text tone the phone has go off in your apartment!"My boyfriend, who was standing behind me the whole time, tried to pull me back, as it was the landlord's house after all. As all that was going on, her boyfriend happened to walk into their living room area behind her, but as soon as he saw and heard me, he took right back off out of the area! She kept a denying it and I just kept getting angrier and angrier, whilst yelling louder and louder! Eventually, my boyfriend had to step in and basically pull me back down the stairs.
+I looked around and Officers were expecting the trunk of an unmarked car.
 
-Next, I called the cops, since I had proof via the phone's location on a family share map proving where it was and also my online account had all their phone activity recorded on it. The cops even sneaked up the stairs to listen for my phone while I texted and called it! As I found out from the officers that night, the couple were both searchable because of one being on parole and the other on felony probation! Although they ended up searching for over an hour in the small apartment, they didn't get my phone back.
+And then I saw her.
 
- You know, I even told her that if she just emailed me the pics from the phone of my mom and I, that she could just keep the phone and I wouldn't call the cops or do anything else to them. But, no I ended up with neither.
+The woman from 3B, handcuffed and pushed into the back of a cruiser.
 
-The young couple didn't stop there though! Thanks neighbor lady, all taking pictures of my guests' license plates for security and you saying that we were the risk! 
+She sat completely still. Her eyes had no tears, no remorse for whatever she got arrested for..
 
-For their next performance, the young couple again broke into the landlord's house, but stole his car keys and car that time! As you know, our landlord couldn't even drive himself, so that was the vehicle that we used to take him out and around. The landlord's car was gone for 4 days or so and the cops eventually found it ditched in a nearby Canyon. Since the landlord couldn't receive the call to inform him of the discovery of his car, they had to take it to impound to store it, costing almost $3,000!
+She was not watching the officers. She was not looking at the ground.
 
-After all that crap, I still had to live there part time since my Mom's house that I had inherited had no kitchen due to renovations. During that time, the neighbor for some stupid reason, let her huge German Shepherd out of its fenced area as soon as my 4-year-old son exited my car there. It was a new dog to her, so I was appalled when it ran up toward my son barking and growling! How would she know how the dog would react around strangers let alone kids? Thankfully, I moved into my other house as soon as the renovations were done.
+She stared straight ahead.
 
-After I moved out of that place and got away from her, my intermittent diarrhea stopped completely. The landlord even told me that she had calmed way down after I left, even though my boyfriend still lived there. Nice peaceful ending, right? Well, not the hell as far as I was concerned it wasn't! Because one night, I got a wild hair for some petty revenge!
+Until she saw me.
 
-You see, there was a gate about halfway at the long, winding driveway. I had noticed that there was also a chain on the pole that the gate would close to and that gave me an idea. I took an old combination lock that I had around the house and straight up locked her ass in the yard with that gate and the chain! Since the landlord couldn't drive himself out and I had already taken him into town to get what he needed earlier that day, I knew that he'd be fine and well enough. Plus, I knew he'd laugh his ass off when he heard of my little misdeed!
+Her head moved slowly. Our eyes locked.
 
-I didn't get to see her stupid face when she realized that she couldn't leave for work the next morning, but I'll bet it was a classic! From what I heard a little later, she reversed her car back up the windy driveway to fume to the landlord after she first realized that she was locked in. 
+Her face did not change at all. No fear, no confusion, no shame. Just that flat, glassy stare that made me feel like she was memorizing my face.
 
-He said it was hilarious, by the way. Even more hilarious was the fact that it took her like 4 hours to get someone up there to cut the lock off so she could finally go to work!
+I gasped, like her glare froze me on the spot, Her eyes grew lightly but never turned away even when the cop car started moving.
 
-My life went back to normal after I moved out, thankfully. The only thing any of us could come up with was that she must have been jealous of me after the things that her husband had said about my body back when I was like 16 years old. Either way though, that was definitely an experience!
+I backed away slowly.. forcing my legs to move and I hurried home.
+
+The cruiser rolled forward a moment later and she disappeared behind the lights.
+
+I closed the door behind me and I screamed when I felt a shadow..
+
+It was Ray pointing at the clock, “ Dude where have you been? you were almost too late “ He scolded..
+
+“Sorry.. It’s just that.. the weird lady I saw her getting arrested” I stuttered.
+
+Ray eyed me and moved towards the door locking it.
+
+The next day her stare was still burned behind my eyes. I listened from the hallway while Ray watched the news.
+
+A neighbor had taken the interview.
+
+Mrs. Spillthebeans said she saw the woman drop something on the sidewalk while juggling her groceries. Something tiny.
+
+A small shoe.
+
+Blue, with a little rocket ship on the side.
+
+It belonged to one of the missing kids from the next block. The police searched her apartment after that.
+
+The reporter’s tone reveals her disgust despite remaining collected and professional.
+
+They found remains. Bone fragments. Something wrapped and stored like food. A jar filled with teeth. 
+
+And according to the detective, index cards with children’s names and dates written on them.’ The reporter said.
+
+Joel barely spoke after hearing the news.
+
+We still played ball often, but only when adults stayed close.
+
+Whenever the curtains in 3B fluttered from a passing breeze, every one of us froze.
+
+The apartment has been empty ever since.
+
+Or at least, that is what everyone keeps saying.
+
+But sometimes, when I walk with my puppy before dark, I catch myself looking up at that window. 
+
+It is just a habit by now, something my nerves do before my brain decides anything.
+
+And sometimes, only for an instant, I am sure I see someone shift behind the curtain.
+
+For that moment I feel her eyes again. Watching every move I make.
+
+I even called the police department last month, begging them never to let her move back here. I told them about the night she was arrested. How she turned her head toward me, as if it was a silent vow she might come for me next..
+
+
+
+
+
+
+
