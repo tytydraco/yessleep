@@ -226,9 +226,12 @@ I opened it.
 
 The first few pages were dated so far back the ink had turned brown. Each entry was short, careful, written in the same elegant hand:
 
-*Ruth \[redacted\] — Water given, age 37.*  
-*Jonah \[redacted\] — Water given, age 29.*  
-*Silas \[redacted\] — Water given, age 18.*  
+*Ruth \[redacted\] — Water given, age 37.*
+
+*Jonah \[redacted\] — Water given, age 29.*
+
+*Silas \[redacted\] — Water given, age 18.*
+
 *Abel \[redacted\] — Water given, age 56.*
 
 Each line clean, deliberate. 
@@ -513,7 +516,7 @@ I tipped my head toward the dark window—toward the fields, the treeline. “Yo
 
 He swore under his breath and crossed the room in three quick steps. “You’ve wound Hailey up. Now you’re sneaking out? Jesus, man.”
 
-“I heard them last night,” I said. “At the barn. Silas. Harlan. Skinning animals into something that wasn’t one animal anymore. And they said something about being ready for ‘tomorrow night.’ That’s tonight.”
+“I heard them yesterday,” I said. “At the barn. Silas. Harlan. Skinning animals into something that wasn’t one animal anymore. And they said something about being ready for ‘tomorrow night.’ That’s tonight.”
 
 Nick rubbed a hand over his face. “You don’t know what you heard.”
 
