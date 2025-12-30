@@ -1,49 +1,43 @@
-The last thing I remembered before I got to Scott’s house was the phone call I got as I stepped into my car. He was in a panic but he wouldn’t tell me why. All he would say was “you need to come over here.” I explained to him that I had to go meet my girlfriend at her house but he didn’t care. He continued asking, so I eventually gave in—like the good friend I am.
+The sound paralysed me. I can’t say for how long I lay in my bed - well, frankly, I wasn’t lying; I was stiff as a board. It wasn’t long before the sweats came and I was just staring at my ceiling.
 
-I waited in front of Scott’s house in my idling car fifteen minutes later. Scott’s house was in the woodsy mountains—the only neighbours he had was at least ten miles. The path leading up to his house had deep forests going for miles on both sides of the road.
+Believe me, the urge to flee was there - but it was overpowered, not for seconds but for long minutes. Too long. Enough for whatever was down there to enjoy a cup of tea before popping up for a quick meal.
 
-An animal cried out from the woods, a sound that reminded me of a loon. *Would they even be out here?* I thought, still looking out the windshield. Inside the house, a figure rushed past the window inside the dining room. A dark figure. The same sound echoed out from the woods, the same loon sound—it sounded like it came from behind me, further back down the path. I looked away from the house for a second to look behind me through the rear windshield. There was nothing there, just the trees. In the treeline at the side of the road, fireflies buzzed around the treeline. *At least I thought they were fireflies*.
+The creature was said to be no larger than a man, smaller even. And, importantly, dormant. The awakening was not to occur for centuries, when what was left of me was ravaged by maggots. But then there was the dreadful, muffled sounds of tapping, rapping, ticking; the raspy, laboured breathing which escaped the basement as though there was no foundation of wood and concrete between us. The rebirthing had begun.
 
-“Trent!” A voice yelled out, coming from the house.
+A small voice of courage asserted itself, and I reclaimed control of my body. I went first to the rifle, recalling the tales of the beast’s power. Very little had remained of the last fellow, scattered about the basement floor, and he was better armed than me. The ammunition shrunk in my hands.
 
-I recognized it as Scott’s voice. I turned around and looked through the windshield. He was standing on the house’s front porch. I could make out his silhouette, including the Colorado Avalanche cap he always wore. I rolled down the window and stuck my head out, still looking at Scott.
+My resolution the day prior that I would have no such end seemed laughable now. I knew that the creature’s awakening could be neither stalled nor stifled. 
 
-“What’s wrong!?”
+I collected the liquids, then approached not an atom closer to the basement door than required. The creature’s dissonant, almost musical wheezing threatened to stopper my heart before its infamous stalagmite claws had the chance.
 
-“You have to come look at this!”
+I steadily poured out the contents of the first tankard, then the second, then the third. They disappeared beneath the door and hopefully down the steps into the darkness in which the creature writhed away centuries of sleep. In its harsh effusions, I detected pain, even breathlessness, and a hope sprouted in me. Perhaps something had gone wrong with the awakening - one of the ritual pieces was out of place - and the creature had been birthed only to die from some technical failure. But hope was dangerous, so I discarded it. 
 
-Scott turned around and walked back into the house, leaving the door open, not letting me say anything else. I put my head back into the car, rolled up the window, shut off the car, got out of the car, and shut the car door behind me. I walked closer to the front door but stopped. Inside the house, through the opened front door, I could see the living room. At the back wall of the living room was a window, a window that covered the entire wall. Scott was standing next to a lamp, lighting the corner of the room. He just *stared* at me. He motioned with his hand for me to come closer, so I did. I jogged the rest of the way into his house—leaving the door open. When I was finally in the living room, I stopped in the doorway to catch my breath, all the while Scott looked at me.
+The last of the petroleum dripped from the third tankard, and I allowed myself a sigh of relief. I threw some clothing and prewrapped victuals out the window to land safely on the soft, cold grass - enough to make the slow passage to the next town.
 
-When I stopped panting, I walked closer to Scott. “What do you want to show me?”
+I winced violently at an agonised shriek from the creature which startled the horse outside to a panicked whinny, and almost froze me once more. 
 
-“This thing,” Scott pointed out the window into the backyard.
+‘Stay, Suzy,’ I said. ‘Calm, now! It’s okay.’ My skin went cold when I realised my mistake, and I listened like the dead for the creature’s sounds. A naked silence chilled me.
 
-I leaned over and looked through the glass. In the backyard, lit by two floodlights that Scott had turned, something stood at the treeline in the back. They *looked* like deer but were taller, with what looked like claws instead of hooves. In the center of the backyard was the body. From what I could tell, someone had been skinned and what was inside of them lay out on the grass. I turned and looked away from the window, trying to forget what I had just seen—trying not to throw up.
+My fingers shook as I flailed between my kitchen drawers until they wrapped around the matches. The drumming I felt was that of my heart, for I knew no other living soul was nearby.
 
-“What was that thing?” I asked, still avoiding the sight through the window. I looked through the front door, at my car.
+Suzy and I crossed the porch, limping into the engulfing darkness on her maimed leg. The creature was powerful, I was sure, but of its speed I had heard nothing. Could it catch an old, injured horse? 
 
-“I don’t know, it looked like a deer but if it was it couldn’t have done that. Maybe it’s a bear.” Scott said.
+It took three nervous tries to set the trail aflame. I lay a hand on Suzy’s mane. ‘There’s a good girl.’ Then I threw the match.
 
-I turned and looked at him, he was still looking out the window. At whatever that thing had done. “Do you know whose body that is?”
+It had been a beautiful home, and generations of families had warmed it. But the evil that had brewed below was cosmic, and for its ultimate expiry this price was cheap. 
 
-“It’s my brother,”
+The fire burned high, the sparks leaping out in luminous arcs. My heart finally began to slow when the creature’s rasping was overtaken by the whirl of the flames and the crackling, snapping timbers. The giant flame flickered in Suzy’s fearful eyes, and again I ran my hands across her neck, quieting her frightened blowing. 
 
-“Where are your parents?”
+By then, the creature below the house must have been burning. It mattered not what it was made from, for flame was the Lord’s equalizer. It’s true we’re commanded to use it sparingly, but this was such an occasion that called for it, I thought. To stay an unholy demon not of His creation.
 
-“They’re off for a date night and left me in charge of him. He went outside to go get a closer look at the *animal* and it got him. I didn’t know what happened, I was in here reading.” Scott started to cry, tears flowing down his heat-flushed cheeks.
+I released a long, deep sigh I had held captive since waking. I closed my eyes and focused on slowing the resurging drumming of my heart. I saw the contents I had thrown out the window, and thought to attach them to the horse’s side. I took a single step towards them when a pained, inhuman cry pierced the air. I stumbled, fighting a wave of dizziness. Somehow, I turned to face the flames.
 
-I patted him on the back. “It’s alright, I understand. It’s not your fault, you would have stopped it if you could have.”
+The silhouette of a gangly creature, almost humanoid, staggered across the lawn towards us. Its blackened body bore the marks of my efforts. 
 
-From the backyard came another noise. A fast *whoosh* sound. Like something *moving*. We both turned, almost in sync, and looked out the window. The animal that was once on the treeline was now gone. My eyes darted around the backyard. The body—or what remained of the body—was still there, but the creature was nowhere to be found.
+*Not enough*, *then*. 
 
-“Do you see the *thing*?” Scott asked.
+I steadied myself and pulled the rifle from my back. The creature, as though healing from its injuries, drew itself to a less staggering gait, and approached with greater speed. It unleashed another blood curdling shriek that filled every space of the night air. It rejoiced in finding its prey. The horse beside me cantered on the spot, pulling at her reins, urging flight. She let out another panicked whinny. I ruffled her mane a last time and loaded the rifle. 
 
-“No, no I don’t.”
+‘Calm now, Suzy. There’s a good, brave girl.’ 
 
-Another noise came from behind us. A growl. We both turned and looked at the opened front door. The animal stood there. It's haunches back. Its spit-shined teeth were exposed. The animal charged at Scott. Before he could escape, the animal bit into his neck. Scott fell to the floor, shaking, bleeding from his neck. The creature continued chewing on his neck before finally stopping. I ran to the front door, relieved from the shock I was once in. The animal followed quickly after me. Eventually stopping me by biting into my ankle. I fell face-first onto the hardwood floor as the animal started to bite into my calf. All I could feel were warm teeth sinking into my flesh as well as warm blood flowing out from the wound. The pain hadn’t come yet. *Yet.*
-
-The animal eventually pulled their fangs out from my calf and walked out of the house. It walked past me, still laying on the floor. The animal’s nails hit the floor as it walked out of the house.
-
-I watched as it walked off from the porch and down the path. It continued walking, walking and walking. Eventually, it disappeared on the path.
-
-It was heading for town.
+There were two bullets, and two of us. That worked out quite well, actually.
