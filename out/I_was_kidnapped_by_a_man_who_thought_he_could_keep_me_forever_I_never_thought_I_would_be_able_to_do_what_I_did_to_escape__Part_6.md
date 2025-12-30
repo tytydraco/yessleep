@@ -105,3 +105,5 @@ Mara’s gaze lingered on me for a moment, studying me, weighing my resolve. The
 I didn’t want to follow. I didn’t want to look at them anymore. Every face, every empty stare, every trembling breath felt like fingers wrapping around my heart, squeezing until I could barely move. But the newfound spark inside me, that small, stubborn, growing flame, refused to let me turn away. Not now. Not knowing that they were all still trapped here. Not when they needed someone to fight for them.
 
 I had to survive… Not just for me, but for them.
+
+[Final Part](https://www.reddit.com/r/nosleep/comments/1pz96ek/i_was_kidnapped_by_a_man_who_thought_he_could/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
