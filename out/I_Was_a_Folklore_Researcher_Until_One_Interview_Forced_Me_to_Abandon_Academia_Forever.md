@@ -8,7 +8,7 @@ When my taxi arrived in the small town, the streets were empty. Every window was
 
 The tavern I was to be accommodated at was empty too. The owner seldom spoke, provided the keys to my room, and informed me that the food would be served in two hours.
 
-As I picked up my bags and headed to the staircase, he asked me what the purpose of my visit was. I answered that I would be interviewing Lord Edmund Ashford this evening, the Baron who lived in an old Gothic mansion above the town.
+As I picked up my bags and headed to the staircase, he asked me what the purpose of my visit was. I answered that I would be interviewing Lord E. Ashford this evening, the Baron who lived in an old Gothic mansion above the town.
 
 The owner's eyes widened with fear, and he quickly excused himself to the kitchen.
 
@@ -20,7 +20,7 @@ The lunchroom area was empty, save for an older man eating alone in the back. I 
 
 We quickly got to talking; he was a charming and funny man, telling me stories about the town and his time growing up here. He asked about the purpose of my visit. 
 
-When I informed him that I would be interviewing Lord Edmund Ashford later this evening, he almost choked on his food.
+When I informed him that I would be interviewing Lord E. Ashford later this evening, he almost choked on his food.
 
 “Mr. Herring, I’ve seen what they’ve done to this town before.”
 
@@ -78,7 +78,7 @@ He let me into his study, and on the way, he spoke of his many achievements. The
 
 “After one of the blacksmith’s daughters disappeared too, the people grew restless and walked up to our old mansion to set it ablaze. My family barely escaped that day.”
 
-“It was only my grandfather who decided to return.” He pointed to a painting on a wall; the man bore a near-perfect resemblance to Lord Edmund Ashford. 
+“It was only my grandfather who decided to return.” He pointed to a painting on a wall; the man bore a near-perfect resemblance to Lord E. Ashford. 
 
 “He built the beautiful mansion you’re sitting in right now and hired a local militia to fight off any attempts on our lives. I’m sure the people in town tried to warn you away from me.”
 
@@ -137,8 +137,6 @@ The mansion was silent. 
 My hands shook so badly I couldn’t stand.
 
 At first, I couldn’t get up, but then I heard faint footsteps somewhere in the mansion.
-
-“Edmund?” Someone called in the hallway with the same high-pitched gurgling voice.
 
 I got up, jumped out of the window, and ran all the way back to town.
 
