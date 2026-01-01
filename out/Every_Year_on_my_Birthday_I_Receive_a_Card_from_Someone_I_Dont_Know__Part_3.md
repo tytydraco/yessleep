@@ -512,4 +512,6 @@ I’m posting this now because it’s the last moment I have to do it on my own 
 
 If I don’t come back, at least someone will know why.
 
+[Part 4](https://www.reddit.com/r/nosleep/s/LlFM023FMs)
+
 
