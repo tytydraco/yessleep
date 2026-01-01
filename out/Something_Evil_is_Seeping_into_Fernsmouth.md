@@ -22,7 +22,7 @@ I was surprised to see her back in the building. She had kept her head down in t
 
 “Breath, Heather please just breathe, you can tell me here, you know that.” She clung to me with hands of iron, skinny fingers digging into my arms with all the ferocity of a tiger. 
 
-“Larry killed Dave Sanders, and we all just watched.” Her eyes shot wide open, looking into mine with a fear that made me pale.
+“Larry killed Dave , and we all just watched.” Her eyes shot wide open, looking into mine with a fear that made me pale.
 
 “You watched?” I asked. I started to drag her to her feet. “We need to go to the station right now, and tell the officers!”
 
@@ -42,7 +42,7 @@ The station wasn’t far from the church, and the interior was warm, the smell o
 
 “Father Owen, how can I help you today?” She ran a finger over a silver ring. 
 
-“Hello Leslie, this is a lot to dump on you, but Heather Strude just showed up at the church out of the blue.” Leslie raised an eyebrow. 
+“Hello Leslie, this is a lot to dump on you, but Heather the missing woman just showed up at the church out of the blue.” Leslie raised an eyebrow. 
 
 “Really? She’s been missing for awhile now, what did she say to you?” I relayed the story, watching her brows raise higher and higher as it went on. She leaned back when I finished furrowing her brow. “The chief will want to know about this. He’ll probably want to go with you. Wait here please Father.” I sat down in one of the uncomfortable chairs in the lobby and tapped my feet. I felt like a schoolboy waiting for the principal. 
 
@@ -53,8 +53,6 @@ The chief came into the lobby with another officer, Desmond, a local of the town
 “I wish I could take the credit sir, but she came to mass today. She needs help.” He nodded grimly.
 
 “So I’ve heard, Desmond and I will follow you back to the church, and take her in. Good chance she’ll know where the other missing people are.” he motioned to the door. “After you Father.”
-
-
 
 The door to the church creaked open, Heather was nowhere to be found. I turned back to Chief Greg. “There’s a good chance she’ll be down near the kitchen. There’s a spare bed down there.” I stopped again. “She’s also very on edge, I’ll go down first just to calm her.” The men nodded, as I pushed a door open into a small hallway. The kitchen was small, the stove light on, a bed not far from it just barely visible in the pale yellow light. “Heather?” I called warily. My footsteps creaked on the floor.
 
@@ -72,7 +70,7 @@ Hands grabbed me as I stepped further into the room, something sharp was against
 
 “Hands now!” The two officers had their guns pointed at Heather, eyes locked onto the woman. Using the distraction I pushed from her grasp, as Desmond rushed in and tackled her, ripping the knife from her hand. She screamed, flailing and crying as he cuffed her. 
 
-She screamed all the way as they drug her out into the daylight towards the muddy police vehicle. The RCMP logo covered with a layer of brown filth.
+She screamed all the way as they drug her out into the daylight towards the muddy police vehicle. The logo covered with a layer of brown filth.
 
 “You killed me Father, you killed me!” she howled like a banshee, some onlookers watching with horrified expressions. The two men wrestled her into the car, slamming the door. Her cries were muffled. Greg let out a sigh.
 
@@ -84,15 +82,13 @@ She screamed all the way as they drug her out into the daylight towards the mudd
 
 “Beat it!” I yelled at them. They froze heads snapping up. Their eyes were wide mouths agape with sharp yellow teeth. One snarled, and I leapt back a hand on my throat. What was I thinking? They could maul me if they wanted to. Instead they barked loudly before tearing off into the neighbourhood. Grumbling, I stuffed my garbage back and wearily stepped into my home.
 
-
-
 The tv hummed away, I couldn’t even remember what I had thrown on. I felt restless, as Heather's words rang in my head. Guilt made my insides boil. Though I didn’t know why. Praying had offered little consolation. If the lord was listening, he offered no signs. I shut off the tv, the silence deafening. Every creak of the house seemed so much louder than it had before. My clock ticked and tocked, an unceasing marching beat. 
 
 The sound was just audible enough that I had to stop several times, to make sure it was real. It was coming from my backyard. Slowly I crept towards my backdoor, the glass window fogged up from the night air. I tried in vain to look through it, but I could just barely make out the shapes in my backyard. The blurry forms of my garden beds, and a table I had left out were just visible. The sound was wet, occasionally a snap would accompany the sound of something being torn. Slipping on my shoes, I grew bold and opened the backdoor. 
 
 Yellow light flooded the backyard, showing nothing. The sound stopped. From where I stood, I could see over the fence that hemmed in my yard. Three sets of glowing eyes peered back at me. The shapes were lithe just visible in the dark. They started growling. I leapt back looking at what must have been the three dogs from earlier, or coyotes. I had no idea of knowing. I opened my mouth to yell at them, when a fourth shape rose from the dark.
 
-It moved slowly in a fluid motion, its eyes glowing in the dark.Then it moved forward. A long pale hand with sharp yellow nails, rested on the top of my fence. The fingers were covered in a dark red. Some tiny voice in my head told me it was blood. The light shone on the torso of the figure, revealing the ends of snow white hair, and a long slender neck. The jaw of the figure was matted in blood. The dogs began barking, yapping in a loud frenzy. The figure raised another blood covered hand in a wave. The lips began moving a hissing sound coming from them. Like they were trying to talk. 
+It moved slowly in a fluid motion, its eyes glowing in the dark. Then it moved forward. A long pale hand with sharp yellow nails, rested on the top of my fence. The fingers were covered in a dark red. Some tiny voice in my head told me it was blood. The light shone on the torso of the figure, revealing the ends of snow white hair, and a long slender neck. The jaw of the figure was matted in blood. The dogs began barking, yapping in a loud frenzy. The figure raised another blood covered hand in a wave. The lips began moving a hissing sound coming from them. Like they were trying to talk. 
 
 I didn’t wait to listen. I slammed the door shut, watching as the figure leapt over the fence and started walking straight towards the backdoor. I screamed and burst out of my front door, into the cold night. Something slammed behind me, glass broke. My keys were still in the house, so I sprinted down the sidewalk, screaming the entire way. I could hear the figure behind me, footsteps getting closer, the dogs growling and yapping. 
 
@@ -110,11 +106,9 @@ Greg stood with two other officers behind the fence. They had scanned the house,
 
 “Alright then, we’ll keep an eye on your house for a few times Owen, best I can do.” He waved a hand around the house. “We’ll even set you up with some security alarms to help you feel safe again. Just try to sleep tonight.” He gave me one last concerned look before leaving. I stayed awake the entire night.
 
-
-
 Even though I knew it was a mistake, I left my house. Some men came by early to install my security alarms. One of them had a silver ring on. Heather’s warning echoed in my mind. The hands. People in the grocery store were wearing them. Seemingly only a few at first, but the number grew. I counted five at least. The cashier waved at me and told me to have a good day. Her ring glinting in the sun. Three more people wore them. I drove straight back to my house, she had been right the entire time.
 
-The alarms were installed on my house, a guide was tucked underneath my welcome mat. They were easy to turn on, seemingly normal. I knew better than to trust these. Both of those men might have also had rings as well. Did this mean some sort of group had invaded Fernsmouth? What was their goal? I closed my blinds and rooted through my house like a rat. I found two cameras. Small bug eyed things, one on my tv sensor, and one concealed behind some books in my room. 
+The alarms were installed on my house, a guide was tucked underneath my welcome mat. They were easy to turn on, seemingly normal. I knew better than to trust these. Both of those men might have also had rings as well. Did this mean some sort of group had invaded the town? What was their goal? I closed my blinds and rooted through my house like a rat. I found two cameras. Small bug eyed things, one on my tv sensor, and one concealed behind some books in my room. 
 
 They had already invaded my home. Time passed in a slow crawl, as I jolted at every sound. I didn’t even know if I could trust my neighbours. Lord I had turned Heather right over into their hands. She was as good as dead for all I knew. The police force was compromised to an extent. If only I had looked at their hands, the only one so far was Leslie. But what about Greg himself, or Desmond, or the other officer that had shown up last night? The sun sank beneath the horizon and the shadows crept back in. 
 
@@ -136,7 +130,4 @@ Scrambling I bolt for the door, slamming into my kitchen table, and spiraling in
 
 The front door bursts open. I watch Larry look up in confusion at the light from outside, displaying a feral looking man, his shoulder a deep dark red. The next moment his fleshy throat explodes into pulp, his left eye explodes, as a part of his skull goes with it. Greg rushes over me, his words ringing as he tries to say something to me, but oblivion takes me.
 
-
-
 My arm is shattered making it rather difficult to type all of this. Larry almost killed me, a man I considered a friend. I’m grateful Greg was there to save me. I’m in the hospital right now, some of the staff are wearing silver rings. I can’t be here for much longer. Something evil has seeped into my town, and I need to find out what.
-
