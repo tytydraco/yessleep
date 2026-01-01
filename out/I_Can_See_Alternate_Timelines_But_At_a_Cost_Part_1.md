@@ -16,7 +16,7 @@ At school, whenever bullies harassed me, timelines would appear, and the doors w
 
 At the same time, I began to feel something deeply unsettling. I would find myself present somewhere else while frozen in the real world. The first time I helped Mom, I had been frozen only until I chose the door. But from the second time onwards, things changed drastically. I would remain frozen for minutes, my body locked in place.
 
-Once while driving a car, I had almost gotten off the cliff. But then the timelines appeared, and then the doors. Choosing the one in which I survived left me frozen for an hour or more. While driving off, I saw an oncoming truck, the driver had grey eyes.
+3 Years later while driving a car, I had almost gotten off the cliff. But then the timelines appeared, and then the doors. Choosing the one in which I survived left me frozen for an hour or more. While driving off, I saw an oncoming truck, the driver had grey eyes.
 
 During those times, I was never present as myself in the real world. I was somewhere else entirely. I remembered things I had never lived, experienced events that had never happened to me, and did things that weren’t humanly possible.
 
