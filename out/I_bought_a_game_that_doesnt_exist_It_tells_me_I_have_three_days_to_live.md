@@ -20,7 +20,7 @@ I leaned over the dining table chair. “*I went to a garaaaaage sale.*”
 
 “It was on my bucket list!” 
 
-“Why do you have a bucket list? You’re like—a baby.” 
+“Why do you have a bucket list? You’re like—a baby.”
 
 “Because like—*life*. It’s fleeting. And like, the human experience, or whatever.”
 
@@ -505,3 +505,5 @@ I pocketed it, still reeling. Connor showed up behind me.
 “I’m guessing you wanna go hom—”
 
 “Yes.” 
+
+[Next Part.](https://www.reddit.com/r/nosleep/comments/1okggo8/i_bought_a_game_that_doesnt_exist_it_tells_me_i/)
