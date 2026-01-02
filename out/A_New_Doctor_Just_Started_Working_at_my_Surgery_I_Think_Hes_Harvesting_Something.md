@@ -92,7 +92,7 @@ I smiled politely, and looked back at the screen.
 Check Hb, ferritin, protein markers, CRP, prion exposure and micronutrient balance.
 BMI, BP and pulse check please.*
 
-I frowned and looked at Michael. He was 29, fit and healthy, and I could see no prior medical history on his notes. Was this a research thing I didn't know about?
+I frowned and looked at Michael. He was 29, fit and healthy, and I could see no prior medical history on his notes. *Was this a research thing I didn't know about?*
 
 Michael looked back at me disdainfully. 
 
@@ -197,7 +197,7 @@ I scanned the notes to see if there was any explanation for what had just happen
 Completed tissue sampling, well tolerated. Safetynetting discussed: avoid NSAIDs/alcohol today. Reconnect directly with Dr Skinner if concerned re. vomiting blood, black stools, dizziness.
 Please arrange bloods and follow up.*
 
-My heart thudded in my chest. What the fuck had he done to her? What was I supposed to do now?
+My heart thudded in my chest. *What the fuck had he done to her? What was I supposed to do now?*
 
 I decided all I could do was finish my notes truthfully. I couldn't go running into Becky's office accusing a doctor of killing a patient; I'd seen nurses scapegoated for less.
 
@@ -472,7 +472,7 @@ He walked over to the processor, and carefully placed the pots inside.
 
 The incision was bleeding more than it should. Helen was pale, frightened.
 
-I muttered some soothing nonsense as I applied pressure to the wound. I looked at the monitor: BP 90/60. 
+I muttered some soothing nonsense as I applied pressure to the wound. I looked at the monitor: *BP 90/60.*
 
 "Dr Skinner?"
 
