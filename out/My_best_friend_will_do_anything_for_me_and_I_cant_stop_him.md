@@ -4,7 +4,7 @@ It’s not every day you meet someone who’ll change the entire course of your 
 
 These days, I quite literally have all the time in the world.
 
-When Alix and I met, it was my first day in a new school in a new neighborhood: my family had moved in just before the semester started, and I, a scrawny first-grader with no confidence, was completely adrift at a new school where everyone in my class seemed bigger than me. No bullies had targeted me yet, but that was only because I was so low on the food chain that they hadn't even noticed me, and the same went for everyone else in class: they were too busy chatting about the big truck crash that had happened just outside school that morning.
+When Alix and I met, it was my first day at a new school in a new neighborhood: my family had moved in just before the semester started, and I, a scrawny first-grader with no confidence, was completely adrift in a strange place where everyone in my class seemed bigger than me. No bullies had targeted me yet, but that was only because I was so low on the food chain that they hadn't even noticed me, and the same went for everyone else in class: they were too busy chatting about the big truck crash that had happened just outside school that morning.
 
 I must’ve looked like I was about to start crying, because the teacher, Mrs Fuller, came to my rescue.
 
