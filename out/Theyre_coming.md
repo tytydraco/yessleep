@@ -1,0 +1,15 @@
+Heyy, my name's Ann and I moved into my current house a few months ago. Maybe two, maybe three. I don't know. I inherited this house after my mom passed away. But strange stuff's been happening. At first, I thought it was just the usual adjustment stress- the new job, new city, sleep deprivation. You know, the usual. But then the nightmares started. For a week I had the same nightmare. In this dream I'd wake up.. I'd get out of bed half asleep to get a glass of water. When I get to the kitchen, I'd stop dead in my tracks- noticing this guy in my kitchen. A guy I've never seen before, yet he'd be standing in my kitchen like he owns the place, with his back towards me. I'd approach him, asking him who he was. He'd always turn around and look at me. Staring at me with those pitch black eyes. I'd wake up drenched in sweat, gasping for air. Again, I wrote it off as stress.
+
+God, how I wish it were only that...
+
+Life went on and the nightmares eventually stopped bothering me. I had other things to worry about. My job was putting a *​*lot of pressure on me and eventually, after quite some time, I got a day off. I took this as an opportunity to do a little cleaning. I went up to the attic. I sneezed like 100 times due to the dust, lol. I got to cleaning and that's when I noticed these boxes, tucked away in a corner. Curiosity got the better of me. I picked up the boxes and took them downstairs to the lounge. I sat down and looked at the box. It was labelled "Mom's old stuff". It was in my handwriting. Well, that's strange cuz I don't remember writing *​*that. But maybe I did; maybe I just forgot. Right? Anyways, I went through the contents and at the bottom of the box I found letters. It was addressed to me. I opened the first one. It read: "*You'll see him soon*".
+
+I laughed. I actually laughed. It must've been my older brother who's messing with me. I didn't bother reading the rest. Instead, I put the box back where it came from and went on with my day.
+
+I really should've seen the signs..
+
+Last night I woke up at 2:37 a.m. Not because of the nightmares. No. I woke up cuz I heard my bedroom door creaking. I swear to god that it was locked. I looked out into the hallway, which was way darker than it should've been. I heard a sound. I wrote it off as the house settling. But I heard it again, clearer this time. It was a voice, my voice, whispering: "*They're coming*". Ok, so at this point I was like "*what the fuck?"*. Cuz who's coming? And why did I just hear my own voice? Nothing was making sense anymore. But I was too tired, so I just went back to sleep.
+
+This morning when I woke up, my front door was open. It was locked last night.
+
+It's 11 p.m right now and I'm typing this from my boyfriend's house. I should feel safe but to be honest, I don't. I think... I think it followed me. Cuz 5 minutes ago I awoke to someone whispering: "*I'm here*"
