@@ -192,7 +192,7 @@ And then Mrs Fuller had ordered Alix to look after me, unwittingly programming h
 
 When the grey-suited handlers had arrived to return Alix to the base for reprogramming, my new bodyguard had complied… right up until his keepers let it slip that Alix wouldn’t be allowed to see me again.
 
-That was when Alix had started killing: he'd killed the three handlers, the security guards assisting them, the marines sent in as reinforcements, the scientists who could reprogram them, and finally, the base commander, along with anyone trying to activate the self-destruct sequence. He'd even dismantled the bomb behind the self-destruct. He hadn’t stopped killing until everyone else had evacuated and Alix had the entire base to himself.
+That was when Alix had started killing: he'd killed the three handlers, the security guards assisting them, the marines sent in as reinforcements, the scientists who could reprogram him, and finally, the base commander, along with anyone trying to activate the self-destruct sequence. He'd even dismantled the bomb behind the self-destruct. He hadn’t stopped killing until everyone else had evacuated and Alix had the entire base to himself.
 
 And then he'd returned to my side.
 
