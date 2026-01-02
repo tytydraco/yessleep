@@ -1,0 +1,15 @@
+I work as a maintenance tech at a sub-aquatic research facility located somewhere in the Pacific. My contract is simple: keep the air scrubbers running and don't ask about the "biomatter" clogging the pipes. The station is a maze of pressurized titanium and thick acrylic, miles beneath the reach of sunlight. Most of the researchers are decent, but there’s a level—Level 7—that isn't on the main elevator panel.
+
+I only found it because the Level 6 drainage system backed up with something that smelled like old iron and rotting kelp. I had to crawl through a ventilation shaft that led straight down into a part of the facility that looked like it hadn't been touched since the sixties. There were no high-tech labs here, just a single, heavy steel door marked with a fading yellow circle.
+
+Inside was a room filled with hundreds of glass jars stacked on metal shelves. Each jar contained a different human organ, but they weren't preserved in formaldehyde; they were floating in a glowing, neon-blue liquid that seemed to be breathing. As I moved my flashlight over the jars, the organs began to twitch in unison, creating a wet, rhythmic pulsing sound that vibrated through my very teeth.
+
+In the center of the room sat a woman in a tattered lab coat. She was staring at a wall of monitors that showed live feeds of the ocean floor, but the creatures on the screens weren't fish. They were massive, pale humanoid shapes with elongated limbs, slowly dragging heavy chains across the seabed. The woman didn't turn around, but her voice crackled over the room's intercom, sounding like dry parchment being torn.
+
+"The pressure down here doesn't just crush bone," she whispered, her head tilting at an impossible angle. "It crushes souls until they become liquid, and we need that liquid to keep the station anchored." I saw her reflection in one of the monitors—she didn't have a face, just a smooth surface of pulsating blue veins.
+
+Suddenly, the station’s alarm began to blare, but the sound didn't come from the speakers; it came from the jars. Every organ in the room began to scream a high-pitched, discordant note that shattered the glass. The blue liquid flooded the floor, and I felt it starting to dissolve my boots, turning the rubber into a soft, organic slime.
+
+I scrambled back into the vent, my heart hammering against my ribs so hard I thought they would snap. I could hear the "researcher" dragging herself into the shaft behind me, her movements sounding like a squid moving over dry concrete. I barely made it back to the Level 6 airlock, slamming the hatch shut just as a pale, multi-jointed finger tried to slide through the gap.
+
+I’m back in my bunk now, but the water in my sink has turned neon-blue. When I look in the mirror, I can see my own veins starting to glow under my skin. I tried to call the surface, but the only thing I hear on the line is the sound of the deep-sea chains scraping against the hull of the station. They aren't trying to keep the station down; they’re trying to pull it under.
