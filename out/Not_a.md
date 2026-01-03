@@ -46,7 +46,7 @@ I made a couple observations. She didn’t have any makeup on, and there was not
 
 We called in the cavalry. As I mentioned, things like this don’t happen where I grew up. Accidents, yes, but this was no accident. Couldn’t be. We got a whole bunch of cars out there in less than an hour. We sectioned off a part of the farmlands to check for further body parts. We got the cadaver dogs, we called to prep for an autopsy, and we had crime scene investigators on-site by late afternoon. I’d never seen that kind of mobilization.
 
-Now I’m sure they wanted to bring in some expert from Sioux Falls, but time was of the essence. We needed an early call on whether this death was the result of an accident, animal, or tool. Yes, it all pointed to a murder, but we couldn’t know for sure. That wasn’t our job. Before anything, we needed an initial statement. We had a coroner and a medical examiner ready. Problem was, these were local guys, and they weren’t prepared. Not in the least. Me and Russel were sent along to get them up to speed as a sort of go-between. We were the first to get there, after all. We got the pictures and the initial statements. Also, we knew these people. That’d make things easier.
+Now I’m sure they wanted to bring in some expert from Sioux Falls, but time was a factor. We needed an early call on whether this death was the result of an accident, animal, or tool. Yes, it all pointed to a murder, but we couldn’t know for sure. That wasn’t our job. Before anything, we needed an initial statement. We had a coroner and a medical examiner ready. Problem was, these were local guys, and they weren’t prepared. Not in the least. Me and Russel were sent along to get them up to speed as a sort of go-between. We were the first to get there, after all. We got the pictures and the initial statements. Also, we knew these people. That’d make things easier.
 
  
 
@@ -156,7 +156,7 @@ I stepped in front of her, and she ran straight into me. She knocked herself to 
 
 “Coreen!” Russel yelled. “You hear me?”
 
-I was already calling for another squad car. Time was off the essence. We had a missing head, and Daly wasn’t around. I prayed to God he’d just overslept, but I had this sinking feeling in my gut that he hadn’t. There was something about the way he’d lingered the other night that made me think he might’ve done something he shouldn’t.
+I was already calling for another squad car. Time was of the essence. We had a missing head, and Daly wasn’t around. I prayed to God he’d just overslept, but I had this sinking feeling in my gut that he hadn’t. There was something about the way he’d lingered the other night that made me think he might’ve done something he shouldn’t.
 
  
 
