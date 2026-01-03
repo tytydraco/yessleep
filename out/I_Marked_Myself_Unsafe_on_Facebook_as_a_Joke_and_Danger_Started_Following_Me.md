@@ -58,7 +58,7 @@ It was maybe a millimeter or two bigger at this point, and could be seen on the 
 
 My mind could barely focus during my first classes. On my walk to first period, I’d kept my head trained on the crack as I’d walked and—for the first time—I’d seen the unthinkable: the crack cross-crossing across the ground in real time, in my stead.
 
-This mysterious crack in the ground was stalking me before my very eyes.
+This mysterious crack in the ground was *stalking* me before my very eyes.
 
 I dashed ahead to my class to get a jump on the crack—but sitting at my desk, while my geography teacher droned on, I had a front row view of its return. Like the tortoise catching up the hare, that unstoppable crack split its way under the classroom door and across the floor in my direction. It took place over the course of minutes, so I was the only one to notice it. But it was clear as day.
 
@@ -112,7 +112,7 @@ So, I sped my way onto the exit highway for San Bernadino, a curving road boxed 
 
 Then came a notification beep from my phone. 
 
-One-handed—wasn’t like the situation could be any unsafer—I opened my iPhone and saw the Facebook notification.
+One-handed—the situation couldn’t be any unsafer—I opened my iPhone and saw the Facebook notification.
 
 *“Are you safe from the San Bernadino Downfall now?”*
 
@@ -128,7 +128,7 @@ Or so I thought.
 
 Suddenly, a crumbling sound louder than any before rang out across the landscape. Had the crack lulled me into false security by stopping? No. Instead, before me, the very silhouette of the town I’d looked down on began to sink downwards. In one solid piece, the building, roads and people began to fall into the ground itself—like a paper cutout someone had cut around the outline of.
 
-My insides seized with horrified understanding worse than ever today. The exit road to the town had wrapped around the town itself due to surrounding terrain. In my panicked escape, I’d inadvertently led the chasm around the town in my truck, destroying its foundations and letting it be swallowed up like I thought I’d be.
+My insides seized with horrified understanding worse than ever today. The exit road to the town had wrapped around the town itself due to surrounding terrain. In my panicked escape, I’d inadvertently led the chasm around the town in my truck, destroying its foundations and letting it be swallowed up like I feared I’d be.
 
 Nowadays, a deep crater is all that remains of San Berardino. No survivors—not my parents, not my friends—were ever found in the rubble. The town where nothing happened had *this* happen.
 
