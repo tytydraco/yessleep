@@ -16,7 +16,7 @@ Next, I drove off towards the ruins. I passed the tallest tree that seemed to kn
 
 While the road felt too calm and too silent. I could hear the tyres gliding against the asphalt. It didn't look like the road I knew well.
 
-As a usual habit, I unfolded the vanity mirror and looked at myself. My eyelids stretched wide in confusion. For a few seconds, it felt like I had seen someone else. I immediately stopped the car, turned the dome light on, and sighed in relief.
+Out of habit, I unfolded the vanity mirror and looked at myself. My eyelids stretched wide in confusion. For a few seconds, it felt like I had seen someone else. I immediately stopped the car, turned the dome light on, and sighed in relief.
 
 After a mile or two, I was greeted by a diversion. The barricades were still dripping with mud, as if they had been installed moments ago. The road past the diversion had nothing blocking it, no accident, no landslide. A large arrow pointing left was cut into one of the barricades. The fog swayed around it like a snake coiled on a branch.
 
