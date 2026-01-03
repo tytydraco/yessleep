@@ -1,3 +1,7 @@
+*Part 1 - Current*
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1q378fv/welcome_to_2026_weve_already_done_this_thirtysix/)
+
 I slowly opened my eyes, unwilling to face the day to come. The first rays of sunlight dared to shine through the window, gently lighting up my messy bedroom. If not for the implications of starting a new year yet again, it would have been a comforting sight, but with the knowledge of what was to come, I dreaded every minute of the year 2026.
 
 A knock on the door caught my attention. It was something I had been expecting, but it still shook me awake. Olivia would be waiting outside, and though we had shared a good moment the day before that I had fooled myself into believing would change things, as I woke up to another morning, I immediately realized that it had all been for naught.
