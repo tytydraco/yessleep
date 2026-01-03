@@ -25,4 +25,4 @@ I asked him what the hell he meant by that but he never answered me. He just kep
 
 Looking back, I’m less disturbed by the possibility that there were ghosts in the room than by the sense that my father understood why they were there. Or worse, the thought that maybe he wanted them there.
 
-RIP to my daddy... aka the man in the dark.
+RIP to my daddy... aka the man in the dark and the monster under my bed.
