@@ -98,7 +98,9 @@ The street was quiet, since most of the shops on this block closed by eight, and
 
 First, I passed the closed diner, the darkened dry cleaner, and the insurance office with its venetian blinds pulled shut. Then I approached the electronics store, Patterson's, which always left its display window running overnight. A dozen TV screens glowed in the darkness, all of them usually tuned to the same channel.
 
-I slowed down, drawn in by the light and movement, and approached the window; the news was on. A woman reporter, Alice Murphy, if I recall correctly, was standing outside a suburban house, the banner at the bottom reading **BREAKING: TWO MORE CHILDREN MISSING.**
+I slowed down, drawn in by the light and movement, and approached the window; the news was on. A female reporter, Alice Murphy, if I recall correctly, was standing outside a suburban house, the banner at the bottom reading:
+
+**BREAKING: TWO MORE CHILDREN MISSING**
 
 I could hear the faint audio through the glass.
 
@@ -230,7 +232,7 @@ The knife was an inch from my chest and my arms were giving out. I couldn't hold
 
 The gunshots were deafening in the enclosed space. Michael’s body jerked, his grip on my throat relaxed, and the knife clattered to the floor. He took a step back, his face an expression of shock and confusion, released his grip on my throat, and slumped to the floor hard. I began coughing uncontrollably, desperately trying to find air to breathe.
 
-I looked up to the light coming from across the room. Lara stood in the front doorway, in her work scrubs, her purse on her shoulder, both hands holding her late father’s revolver – the one she always kept nearby for personal protection. I never thought I’d ever see her have to use it.
+I looked up to the light coming from across the room. Lara stood in the front doorway, in her work scrubs, her purse on her shoulder, both hands holding her late grandfather’s revolver – the one she always kept nearby for personal protection. I never thought I’d ever see her have to use it.
 
 I could see the smoke curling from the barrel and her hands were shaking, the gun wavering in her grip.
 
@@ -294,7 +296,7 @@ Everything started to blur and fade out and I could feel myself swaying on my fe
 
 While my wounds were being treated and a police officer took my statement and asked questions, my eyes didn’t leave the front door of our apartment. I was in disbelief of everything that had occurred and was so zoned out that I only vaguely remember hearing “area cordoned off,” and “from the knife block in your kitchen,” and “conduct a full sweep of the neighborhood.”
 
-They kept me in the hospital for two days – mostly for observation for psychological concerns as the wounds weren’t as bad as they felt. The one on my back needed twelve stiches, the one on my arm only needed six, and I didn’t suffer a concussion. There was no permanent damage, though the doctor warned I would be sore for a while.
+They kept me in the hospital for two days – mostly for observation for psychological concerns as the wounds weren’t as bad as they felt. The one on my back needed twelve stitches, the one on my arm only needed six, and I didn’t suffer a concussion. There was no permanent damage, though the doctor warned I would be sore for a while.
 
 The police hadn’t found Michael Garrison, though their search continued. They searched his apartment; the lease was in his name and the rent was paid through the end of the month. They found newspapers with articles circled, some stories about the sex worker murders, some about the missing children. Neither were connected to him, but he’d been following them closely for some reason. There were maps of the city with some routes marked, and one of them went past the video store I worked at, and one past my house.
 
@@ -302,7 +304,7 @@ The detective assigned to the case said they had alerts out at every hospital an
 
 They hadn’t.
 
-Lara stayed with me at the hospital and she barely slept. Dave had my Nissan’s battery replaced and parked it outside my apartment and brought the keys by the hospital. When they discharged me on the second day, she insisted on driving me home even though she was supposed to visit her parents that weekend.
+Lara stayed with me at the hospital and she barely slept. Dave had my Nissan’s battery replaced and parked it outside my apartment and brought the keys by the hospital. When they discharged me on the second day, Lara insisted on driving me home even though she was supposed to visit her parents that weekend.
 
 “I should stay,” she said, for the tenth time, as we pulled up to the house, “I shouldn’t leave you alone.”
 
