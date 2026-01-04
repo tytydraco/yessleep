@@ -187,5 +187,3 @@ I'm about to enter my friend's resort now. I'll probably get nagged about being 
 I'll write more later.
 
 **See you.**
-
-[Read Part 2 here](https://www.reddit.com/r/nosleep/comments/1q3nk8t/i_took_a_shortcut_to_a_new_years_party_in/)
