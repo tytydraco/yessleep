@@ -1,7 +1,5 @@
 # A lot of people might think I'm crazy, or worse. But honestly, I think I actually am crazy.
 
-
-
 Hi, my name is Aom. I'm Thai and I live in this country's overcrowded capital city. Older generations love to say that Gen Z is too demanding, can't handle hard work, won't fight through tough times. But let me ask you seriously - who could put up with this country's work system? Your boss dumps work on you right before closing time, no overtime pay whatsoever. When you finish, the boss takes all the credit.
 
 *Ridiculous.*
@@ -37,8 +35,6 @@ I soaked in the bathtub thinking about school and work. I work part-time at a fa
 That night I had a very strange dream. I dreamed I was in some kind of tunnel, like a railway tunnel but not quite - it looked much narrower. Something was chasing me desperately. I kept running and running until the path ahead was blocked, and I saw crates of red candy stacked at the dead end.
 
 *Am I high on glue or something?*
-
-
 
 **Seven days later.**
 
@@ -92,8 +88,6 @@ The old man was staring at me from behind. I saw two things in his eyes:
 
 *Fear and worry.*
 
-
-
 The road became desolate and forest began covering the area. The street turned to gravel, indicating the typical budget embezzlement by politicians in this country.
 
 *Fucking corrupt politicians.*
@@ -103,8 +97,6 @@ Forest covered both sides of the road. There were wide rice fields on either sid
 I was about to turn on some music, but instinct told me to read the paper.
 
 The paper was extremely old. It was covered in lots of dark yellow stains and looked like it had been folded over a hundred times. And this was the message inside:
-
-
 
 # ̷R̷U̷L̷E̷S̷ ̷F̷O̷R̷ ̷U̷S̷I̷N̷G̷ ̷T̷H̷E̷ ̷S̷H̷O̷R̷T̷C̷U̷T̷
 
@@ -135,8 +127,6 @@ The paper was extremely old. It was covered in lots of dark yellow stains and lo
 **13. D̴̡̢̛̳̗̰̣̈́͊̓̽̚O̴͚̭͉̮͛̎̌̿͜ ̸̨̧̱̹̫̾̐̽̚N̵͎̮̺̐̏̈́O̴̧̜͙̮̐̌T̵̢̛̩̘͖̐̊̐̊ ̴̢̻̖̳̄̈E̴̡̧̢̙̊̑̈́͘̕Ā̸̢̬̘̻̔́̚T̵̰̺̼͒̌̍ ̶̧̨̱̱̫̎͊̚T̶̨̨̙̦̏̑̂H̴̡̨̛̗͎͌̏̿́Ę̴͎̱͍̓̆̀ͅ ̷̧̼̪̋̈́̋̃̚R̶̛̯̙͍̀͛Ę̶̛̹̥̼̐͊̇̚D̶̨̟̹̈́̈́̑͋͜ ̸̨̙̗̫̈̀̍Ç̶̯̺̠̄͝A̵̙̙̞͗̆͜N̴̨̡̯̺̓D̷̨̡̩̯͊͑̎̕Y̷̛̠̼̘͔̓̓̎**
 
 *Thank you for reading. Good luck.*
-
-
 
 *What the hell?*
 
@@ -182,8 +172,6 @@ And I snuck a glance behind me - I saw the pretas. There were about five of them
 
 *What the fuck?*
 
-
-
 I drove fast until I reached my friend's resort.
 
 The entire time I was driving on that road, I felt strangely spaced out. My consciousness started returning when I saw my friend's resort in the distance. I drove up and noticed the area the old man mentioned - the one with rich people's houses. There were many mansions that looked uninhabited.
@@ -199,3 +187,5 @@ I'm about to enter my friend's resort now. I'll probably get nagged about being 
 I'll write more later.
 
 **See you.**
+
+[Read Part 2 here](https://www.reddit.com/r/nosleep/comments/1q3nk8t/i_took_a_shortcut_to_a_new_years_party_in/)
