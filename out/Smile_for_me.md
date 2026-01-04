@@ -1,5 +1,3 @@
-*GADHIC Archive entry, submitted by mail. Received 02/13/2020. Please note that names have been changed to protect individuals.*
-
 He knew he was putting me in a tight spot, one even a good flossing couldn’t reach.  
 “I know it may seem like a lot–”
 
@@ -92,6 +90,4 @@ Once I heard his car pull from the parking lot I quickly shut off the gas, my gu
 
 Dr. Horner paid for my sick leave and dentures in entirety. His demeanor towards me has completely changed. The guilt in his eyes shows up every time we interact. Sometimes he just stares at me sadly during work hours and offers to take me out for lunch or buy me something. Sometimes I accept, sometimes I don’t.
 
-Since that day, my eyes are wide open. I no longer blindly trust those with titles or power. I fight against the muscle memory of trust for society. Not only has it made me a better dentist, but also a better mother. 
-
-[Previous Archive entry](https://www.reddit.com/r/nosleep/comments/1psgaqu/because_of_the_implication/)
+Since that day, my eyes are wide open. I no longer blindly trust those with titles or power. I fight against the muscle memory of trust for society. Not only has it made me a better dentist, but also a better mother.
