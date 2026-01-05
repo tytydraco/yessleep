@@ -58,4 +58,4 @@ Marlene comped the meal and laid bus tickets on their table before the driver ev
 
 Nothing bad happened yesterday. That’s the part that always sounds like a lie when I say it out loud.
 
-I’m writing this down because when you work somewhere like that, the strange parts blur together unless you keep track of them. 
+I’m writing this down because when you work somewhere like that, the strange parts blur together unless you keep track of them.
