@@ -24,7 +24,7 @@ I stared at the enigmatic bud, but no genus came to mind. Could something rise 
 
 The clouds burst like an infected cyst, spewing a deluge. Rain pelted my body. The entire village scrambled to get inside.
 
-Fuck this climate, fuck this village, and, most of all, fuck Omar. 
+*You know what? Fuck this climate, fuck this village, and, most of all, fuck Omar.* 
 
 I sprinted home, drenched clothes slapping an irritating rhythm against my wet skin. Left the water jugs lying in the dirt. 
 
@@ -116,7 +116,7 @@ Rain was *always* coming. 
 
 “My lord - anybody seriously hurt?” Eli asked, back turned, stirring a pot of soup. 
 
-“Eh, a few broken ribs, some cuts, some bruises - nothing a little Gada and Betel Leaf wouldn’t fix.” A burst of lightning flashed through a nearby window, aggravating my concussion, causing my skull to pulse. I massaged the back of my neck. The muscles were like hardening concrete under my fingertips, rigid and obstinate. 
+“Eh, a few broken ribs, some cuts, some bruises - nothing a little Gada and Betel Leaf wouldn’t fix.” A burst of lightning flashed through a nearby window, aggravating my concussion, causing my skull to pulse. I massaged the back of my neck. The muscles were like hardening cement under my fingertips, rigid and obstinate. 
 
 I sniffed. The kitchen smelled of dew and ozone. 
 
@@ -238,7 +238,7 @@ Immediately, he seemed to register my panic. 
 
 He furrowed his brow. 
 
-“Who’s Eli - “ he started, but in the blink of an eye, his expression swapped to one of recognition. His facial muscles did not move - the change was immediate, instantaneous, impossible. 
+“Who’s Eli - “ he started, but in the blink of an eye, his expression snapped to one of recognition. His facial muscles did not move - the change was immediate, instantaneous, impossible. 
 
 “Oh! Eli? He’s back the other way.” 
 
@@ -254,13 +254,13 @@ I slinked forward, widening my stance. Figured I’d lunge for his balls or eyes
 
 The location of Eli. The beads.
 
-For whatever reason, I wanted the beads. 
+I wanted the beads.
 
-All of them. 
+All of them.
 
 The color drained from his face. 
 
-Omar leapt around and bolted into a nearby alleyway. In his haste, a dozen or so beads slipped from his hands and fell to the earth. I wasted no time collecting my spoils, plucking the burgundy-tinted beads from the soil and shoving them in my pocket.  
+Omar leapt around and bolted into a nearby alleyway. In his haste, a dozen or so beads slipped from his hands and fell to the earth. I wasted no time collecting my spoils, plucking the burgundy-tinted trinkets from the soil and shoving them in my pocket.  
 
 I stood tall, puffing my chest, smiling.
 
@@ -312,7 +312,7 @@ Clarity - that word was a beacon. I concentrated on it, kept repeating it in my 
 
 One day, it worked.
 
-*Clarity, clarity, I needed clarity...what helps with clarity?*
+*Clarity, clarity, I need clarity...what helps with clarity?*
 
 *Gotu Kola is good.*
 
