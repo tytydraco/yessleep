@@ -33,7 +33,7 @@ I sat at the edge of the lake, on a sandbank, and watched that devastated landsc
 Out of politeness, I waved back, but avoided holding eye contact; his figure was far too strange. Even so, he remained there, wearing old clothes that had once been white.
 
 I decided to ignore him. I was about to stand up when I heard:  
-“Lucas, young Lucas! Don’t you remember me?”
+“Marco, young Marco! Don’t you remember me?”
 
 The voice was rough, aged, worn through, and it came from that man.
 
@@ -47,7 +47,7 @@ I looked back and found that man trying to make his way toward me. He moved with
 
 I smiled faintly, imagining it was some kind of joke.
 
-“How so? I carried you in my arms? I think you must be mistaken. My name is Lucas, but I don’t think I’m the Lucas you know. It must have been a strange coincidence.”
+“How so? I carried you in my arms? I think you must be mistaken. My name is Marco, but I don’t think I’m the Marco you know. It must have been a strange coincidence.”
 
 The old man smiled, showing the three teeth he still had, and went on:
 
