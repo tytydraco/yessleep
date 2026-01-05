@@ -18,7 +18,7 @@ It wasn’t long before I heard a large crash and ran out to see pots and pans s
 
 After about an hour of messing around I again heard a large thud. This time it wasn’t just pots. I begrudgingly stepped out of my room and made my way back downstairs hoping the mess wouldn’t be too large. It was not a mess. 
 
-Amir lay seizing violently on the living room floor. A guttural sound wracked through his little body, then intense shrieking. I ran to him, my hands picking his head up off the floor. His whole body shook like a leaf. Against my wishes I put him down and sprinted to my room to grab my cell phone, calling the police while running back to my brother. My heart pounded in chest, and in the chaos I barely noticed the soft spot on his head trembling and splitting until blood oozed from it, then something else.
+Amir lay seizing violently on the living room floor. A guttural sound wracked through his little body, then intense shrieking. I ran to him, my hands picking his head up off the floor. His whole body shook like a leaf. Against my wishes I put him down and sprinted to my room to grab my cell phone, calling the police while running back to my brother. My heart pounded in my chest, and in the chaos I barely noticed the soft spot on his head trembling and splitting until blood oozed from it, then something else.
 
 Something was prodding at the surface of the bump, looking for the opening. I screamed, clutching my brother tighter to me. His body shook even harder, as if trying to expel it itself. A lump, looking akin to discarded meat split through skin and slithered out, barely an inch long. It didn’t break through skull, it passed through a space that was its own, a home made in my baby brother’s head. 
 
