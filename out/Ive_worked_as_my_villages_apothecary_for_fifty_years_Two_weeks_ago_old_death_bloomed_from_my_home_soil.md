@@ -1,6 +1,6 @@
 The rainforest is a lush, living slaughterhouse.
 
-The animals wants to kill you. The insects want to kill you. Hell, even *the humidity* wants to kill you. 
+The animals want to kill you. The insects want to kill you. Hell, even *the humidity* wants to kill you. 
 
 Borneo’s air is like breathing molasses. Felt like I was being strangled from the inside out that afternoon, heaving glass jugs filled with river water a mile uphill while forcing gulps of muddy atmosphere down my throat.
 
