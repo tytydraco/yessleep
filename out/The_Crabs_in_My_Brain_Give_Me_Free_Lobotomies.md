@@ -1,0 +1,85 @@
+I was nobody special. Just a guy who sat in a cubicle five days a week, staring at columns of numbers that decided whether strangers got their roofs fixed or their chemo paid for. I was good at spotting the one wrong digit in a sea of them, quiet and dependable, the kind of employee who never made waves and never got invited to drinks after work. I liked it that way. My life was small, neat, predictable: black coffee in the morning, turkey sandwich at noon, the 6:17 train home to an apartment that smelled like clean laundry and nothing else.
+
+There was a winter, a few years back, when everything felt heavier than usual. A woman I thought I’d spend my life with, packed her bags one January night and left without a fight. After that, I didn’t sleep much. I’d wander down to the old pier district where the fishing boats tied up, places the health inspectors never bothered to visit. The raw bars stayed open late, and when they closed, the fishermen sold whatever hadn’t made it to the restaurants. Buckets of blue crabs still alive, claws snapping, going cheap for cash. I’d buy a dozen, sit on the sea wall with the wind cutting through my coat, and crack them open with whatever I had in my pocket. The meat was cold, sweet, briny; the salt stung the little cuts inside my cheeks. I ate until my fingers bled and my stomach ached, chasing it down with something I couldn’t name. Those nights tasted like being alive, even if only for an hour. I miss it. 
+
+The headaches started sometime after that. Nothing dramatic, just a dull pressure behind my eyes after too many hours in front of screens. I blamed the job, the fluorescent lights, the breakup. I bought stronger coffee, took longer showers, ignored the faint metallic taste that sometimes lingered on my tongue when I woke up. I never once thought about those crabs, about the tiny scratches their shells left inside my mouth, or about anything small and patient that might have crawled in through the cracks when I wasn’t paying attention.
+
+I’m a normal guy, with a normal job. Or I used to be. 
+
+I first heard the clicking at two in the morning, trapped inside the hollow of my skull. I was lying in bed, trying to convince myself that the pain behind my eyes was just a migraine, when the sound started: a dry, rhythmic skitter, like hundreds of jagged fingernails scraping and tapping on slick bone from the inside, each click sending a tiny vibration that hummed through the marrow and into the wet, pulsing folds of my brain. Click-click-scratch. Pause. Scuttle-slurp. It wasn’t in my ears; it was deeper, resonating through the cranial plates.
+
+I sat up too fast and the room tilted violently. Something shifted with me it was slimy, heavy, alive. A soft, liquid rustle, like a swarm of maggots squirming through rotting pulp, only the pulp was my gray matter, warm and spongy. I pressed my palms to my temples until the skin split under the pressure and the bones groaned in protest, but the movement didn’t stop. It adjusted with a glide. Settled with a faint, sucking pop. Waited, breathing in rhythm with my ragged gasps.
+
+The nosebleeds came without warning.
+
+Thick, clotted spouts that tasted of rancid copper, briny seawater, and the foul rot of decaying shellfish, coating my tongue with a  film that made me gag. I’d feel the warmth erupt under my nostrils, a hot bloom that crawled over my upper lip in sticky trails, dripping onto my chest in fat, dark splatters that soaked through fabric with a warm, spreading dampness. The blood was viscous and stringy, laced with pale, translucent shards with cracked exoskeleton fragments that crunched between my teeth if I swallowed wrong. Occasionally a single jointed leg, still twitching feebly, no longer than a grain of rice, clinging to the crimson strands like a drowning insect, its barbs hooking into my lip before I spat it out. I told myself it was allergies. A simple sinus infection. I didn’t want to believe it then but I knew they were crabs. 
+
+I couldn’t read anymore. Words on screens fractured into chaos, letters skittering sideways across the display like panicked insects fleeing a flame, their edges blurring into wet smears. I’d stare at a sentence and watch the meaning dissolve mid-clause, letters rearranging into jagged, meaningless glyphs that pulsed and throbbed before crawling off the edge of the monitor in inky trails. Thoughts arrived already mutilated. I’d reach for a memory, my own name, the color of my childhood bedroom and find only a raw, pinching void, as though something had delicately snipped the synapse and scuttled away with the severed strand dangling from its pincer, leaving a stinging gap that burned like acid.
+
+The itching was unbearable.
+
+Not on the skin. Inside. A frantic, bone-deep tickle that started behind my forehead and burrowed deeper with every heartbeat, writhing along the optic nerves like hot wires twisting through jelly, coiling into the my temporal lobes with a grinding scrape, scraping against the tender underside of my prefrontal cortex in relentless, feathery strokes. It gnawed and groomed and fed, sending shivers of electric revulsion that made my eyeballs quiver in their sockets. I raked my scalp with broken, jagged nails until the skin tore open in long, ragged strips, hot blood sheeting down my neck in sticky rivers that cooled and crusted against my collar, but the relief lasted only heartbeats before the sensation tunneled further, deeper, with a wet, burrowing suck that echoed in my sinuses.
+
+My sense of taste vanished, replaced by a  metallic sweetness laced with the putrid tang of spoiled meat, like sucking on a penny soaked in seawater, bile, and festering pus. Food became obscene, every bite turning to ash and slime in my mouth. I stopped eating. The weight in my skull grew denser, dragging downward with a constant, nauseating pull, stretching the delicate membranes until they felt like overripe fruit skins about to split, leaking clear fluid that trickled down the back of my throat in bitter drops. My eyes protruded grotesquely, pushed forward by the swelling mass.  A throbbing ache like twin thumbs grinding into the globes, threatening to pop them from their sockets with a moist, explosive squelch.
+
+I tried to see a doctor. Sat in the waiting room beneath humming fluorescents for hours. Only for the doctors to give me extra strength ibuprofen. 
+
+The first blackout happened in the kitchen.
+
+I surfaced standing over the sink, both forearms submerged to the wrists in ice-cold water turned a murky pink, blood swirling in lazy, clotting spirals that smelled of iron and decay. On the cutting board lay a long, dripping ribbon of skin. My skin, peeled from the inside of my left forearm in one continuous, perfect strip, the pale outer layer curling at the edges like wilting parchment, the underside raw and glistening like fresh, bloody steak marbled with yellow fat. The edges were scalloped in tiny, irregular semicircles, as though gnawed by hundreds of microscopic shears working in a frenzied concert. 
+
+I don’t remember starting.
+
+But I remember the hunger.
+
+Not in my stomach. Higher. A hollow, clicking void behind my brow that throbbed with insatiable need.  My hands moved without consent, lifting the warm, juicy strip. It was still alive with residual twitches, fat globs trembling like gelatinous dew, capillaries oozing tiny beads of blood that traced slow, viscous paths across the underside of the skin strip, it dripped in fat plops onto the counter. I brought it to my mouth, inhaling the metallic, meaty stench up close.
+
+The texture was obscene, a velvet delight sliding across my tongue like warm silk, then the tougher chew of dermis yielding with a soft, fibrous rip that echoed in my jaw, fat bursting in hot, oily pops between molars, releasing a gush of greasy fluid that coated my palate and dribbled down my chin in warm rivers. It tasted of salt, iron, deep ocean decay, and the faint, burn of exposed nerves firing their last signals. Each bite sent a wave of ecstasy through my skull; the crabs leaned forward in unison, their pincers working in a tiny applause that vibrated through my bones. The clicking softened to a greedy, sucking rustle—slurp-click-slurp—while I chewed slowly, deliberately, savoring the slick slide of connective tissue tearing apart, the faint crunch of severed nerve endings like rice krispies in blood, the warm gush of serum and plasma flooding my throat in thick, choking swallows that made me cough.
+
+When the strip was gone I started on the right arm.
+
+This time I watched, mesmerized.
+
+I sat at the kitchen table beneath the bare bulb, sleeves shoved high, the air thick with the coppery reek of fresh wounds. My right hand took the paring knife, steady, practiced, the blade’s edge glinting with a smear of my own blood. The left arm lay palm-up on the scarred wood, veins pulsing livid blue beneath the translucent skin, already slick with drying serum. I pressed the blade just below the elbow crease and drew a shallow horizontal line, feeling the skin part with a hiss, blood welling instantly in a perfect crimson bead that swelled and burst, running hot down my arm in a stream.
+
+Then I slid the tip beneath the epidermis, angling parallel to the surface, and began to lift, the knife’s edge catching and tearing through the layers with a wet, grating rasp. I sawed gently, feeling hundreds of tiny fascial threads snap in rapid succession, each pop a miniature detonation of sharp pain and illicit pleasure that shot up my nerves like fireworks. The skin peeled upward in a flawless sheet, exposing the glistening yellow-white fat marbled with fine red vessels. Blood seeped, then poured running in warm lines down my forearm to pool on the table in a sticky puddle that reflected light. 
+
+When I had a rectangle eight inches long and four wide, thin enough to hold to the light and see the bulb glowing through it, I hooked two fingers under the free corner, nails digging into the raw underside, and pulled with deliberate force. The remaining attachments gave with a wet, tearing chorus—rip-pop-rip-pop—like bubble wrap made of living flesh, each snap sending a jolt of agony-ecstasy that made my vision blur and my breath hitch. The sheet came free entirely. The exposed muscle beneath twitched involuntarily, raw and gleaming like wet silk stretched over quivering meat, the air hitting it with a stinging burn. 
+
+I held the skin up, close to my face. It was a beautiful pearlescent, veined faintly blue, still spasming with dying nerve signals that made it flutter.
+
+Then I folded it lengthwise, rolled it tight like a fruit leather soaked in blood, and bit down hard.
+
+The flavor detonated: richer, deeper, the fat melting instantly into hot oil that coated my mouth, while the dermal layer required real work. The fibers separating between molars with a stringy resistance that pulled and stretched before snapping. Blood and lymph flooded my mouth in a thick, salty wave, mixing with saliva into a frothy slurry that bubbled at the corners of my lips. I chewed slowly, luxuriously, feeling the crabs gorge on the echo, their pincers working in ecstatic rhythm that vibrated through my skull. With each swallow the clicking grew softer, warmer, almost loving, a rolling wave of alien satiation that made my exposed muscles quiver and contract, the raw wounds pulsing in time with my heartbeat, oozing fresh blood. 
+
+I worked through the entire sheet, bite by deliberate bite, licking the sticky juices from my lips, sucking the last shreds from between my teeth with loud smacks. When it was gone I stared at the matching rectangles of flayed meat on both forearms the muscle glistening under the light, tendons shining white and taut, fat congealing in yellow, lumpy clumps that trembled with each breath. The pain was distant, muffled, almost erotic, a deep throb that radiated heat. 
+
+I felt them spreading.
+
+Deeper than sinuses now, through the cribriform plate with a crunching bore, into the olfactory bulb where they gnawed on scent memories until everything smelled of rot, along every tract that carried memory, identity, the fragile scaffolding of self, clipping with wet snips that left dripping ends. Every mouthful I fed them bought them time, supplied protein in bloody chunks, quieted their frantic industry just long enough for them to tunnel further, to clip and prune and hollow with relentless, slurping efficiency.
+
+The clicking is constant now, a busy sound like a thousand tiny mouths gnawing through cartilage and sinew, the vibrations making my teeth chatter. My forehead bulges visibly, skin stretched drum-tight and shiny over angular ridges that shift and grind when I turn my head, the movement accompanied by a faint crackle. My thoughts arrive in fragments spoken in a voice that is no longer mine. 
+
+I keep the paring knife within reach, its blade crusted with drying blood.
+
+The hunger never fades. It only grows.
+
+I strip naked and begin again, this time on my thighs I cut long, sweeping sections from hip to knee that part the flesh with a thick, sucking rip, peeling back vast, steaming sheets of skin that come away in heavy, slapping panels, the subcutaneous fat beneath quivering like pale, bloody custard as arterial blood jets in hot, rhythmic spurts, cascading in steaming sheets down my legs to pool warm and slick around my bare feet, the metallic reek choking the air. I tear into the sheets raw, teeth sinking deep through layers of epidermis and dermis, fat exploding in greasy, scalding bursts that splatter my chest and face, dripping from my chin in thick, viscous ropes while I chew with frantic, wet crunches, swallowing chunks half-masticated that bulge in my throat before sliding down in painful, bloody lumps.
+
+Then the abdomen: I drive the blade deep, carving a wide Y from sternum to pubis, the skin and fat folding back like wet curtains to expose the glistening coils of intestine that steam in the cold air, pulsing and writhing. I reach in with both hands, pulling out loops of gut slick with peritoneal fluid, biting into them while they still twitch, the hot, rubbery tubes bursting between my teeth in sprays of bile and half-digested slime that burns my tongue and floods my mouth with the stench of my own insides. I devour yards of it, stuffing slick ropes into my maw until my cheeks distend and blood-flecked viscera spills over my lips, the crabs thrumming in delirious, frenzied approval as the clicking becomes a roaring chorus.
+
+The chest follows: ribs cracked open with the knife’s handle used as a lever, each snap echoing wetly as cartilage tears, the sternum pried apart with a sickening pop to reveal the pounding heart and deflating lungs. I plunge my face into the cavity, teeth ripping into the warm, spongy lung tissue that collapses in frothy, blood-filled bursts, then the heart itself, still beating weakly as I bite, the tough muscle resisting before tearing in hot, coppery gushes that fill my mouth to overflowing, dribbling down my neck in pulsing rivers while the organ spasms its last against my tongue.
+
+The back is agony and ecstasy, twisting to flay long, ragged strips that slap against the floor in bloody heaps, gathered and crammed into my gullet in fistfuls until I choke on the mass, vomiting up chunks only to force them back down, the taste now pure rot and ecstasy.
+
+I save the face and skull for last.
+
+The knife traces my hairline, down the temples, across the cheeks in deep, loving gashes that part the flesh to the bone with a wet, grating slide. The facial skin lifts with a final, sucking sigh, peeling away in one translucent, bloody mask. The lips, eyelids, ears still attached. It revealed the raw, twitching muscles and the white gleam of skull beneath, blood pouring into my ruined orbits in blinding crimson torrents. I bring the mask to my shredded mouth and eat voraciously, chewing through my own lips and tongue as they dangle from the sheet, the cartilage of nose and ears crunching like gristle while hair matts in bloody clumps between my teeth.
+
+Then the cranium itself: I wedge the blade into the sutures, prying with manic strength until the bone cracks in a wet, splintering explosion, fragments embedding in the exposed brain as gray matter oozes out in pinkish folds. I scoop it with bare hands, shoving fistfuls of my own pulverized cortex into my mouth, the soft, custard-like tissue squelching between fingers and teeth, tasting of salt and electricity as the last sparks of thought fire and die. The crabs swarm outward at last, pouring from the breached skull in a clicking, skittering tide that covers my flayed remains, burrowing into the devoured cavities while I chew and swallow the final scraps of what was once me.
+
+They give the lobotomies for free.
+
+And now there is nothing left to feed them but what’s left of me. Until everything is gone.
+
+Help me. 
