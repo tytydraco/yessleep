@@ -14,7 +14,7 @@ That’s when the show came up.
 
 I’d be lying if I said I didn’t look down on reality TV at the time. Most of us did. Among “real” actors—and yes, we used that word unironically—reality TV was considered beneath us. Something you did if you couldn’t act, or if you were willing to embarrass yourself for exposure, or as a very, *very* last resort. 
 
-The pitch was simple: twelve women living together in a house, filmed constantly, competing in challenges about ambition and honesty. No scripts. No characters. Just us. This was the 90s—no smart phones to confiscate, no internet to miss, no magazines. We were only allowed clothes and toiletries. The producers didn’t forbid any of it. They just discouraged distractions. They wanted us present. Focused.
+The pitch was simple: twelve women living together in a house, filmed constantly, competing in challenges about ambition and honesty. No scripts. No characters. Just us. This was the 90s—no smart phones to confiscate, no internet to miss, no magazines. We were only allowed clothes and toiletries. Producers wanted no distractions. They wanted us present. Focused.
 
 The contract was thick. The NDA thicker. Initial here. Here. And here.
 
@@ -89,7 +89,7 @@ This time there was no pretending. It was unmistakable. A slab cut carelessly, s
 I gagged.
 
 They told me it wouldn’t be filmed.  
- They told me this was the last step.
+They told me this was the last step.
 
 I asked what would happen if I refused.
 
@@ -131,4 +131,3 @@ The NDA expired last night. No one called. No one threatened me.
 Because the people who made that show already got what they wanted..
 
 And I was the only one willing to finish the meal.
-

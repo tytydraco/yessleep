@@ -1,4 +1,4 @@
-I (24F) live with one roommate, “Jenna” (25F). We’ve been friends since college and moved in together about six months ago. Overall, things are fine. We split chores evenly, get along well, belong to the same social circles, work in similar fields, and usually spend time together without any tension. We’re close enough that moving in together felt like a natural next step, not a risk.
+I live with one roommate, I'll call her “Jenna” for privacy purposes. We’ve been friends since college and moved in together about six months ago. Overall, things are fine. We split chores evenly, get along well, belong to the same social circles, work in similar fields, and usually spend time together without any tension. We’re close enough that moving in together felt like a natural next step, not a risk.
 
 About two months ago, Jenna started “sleepwalking.”
 
