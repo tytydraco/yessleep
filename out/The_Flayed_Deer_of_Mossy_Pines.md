@@ -14,7 +14,7 @@ After an experience like that, I'm glad I didn't do investigations often. I've s
 
 However, what I experienced recently has left me shaken to say the least. I received a phone call back in November from, well, let's just keep it anonymous, but if you really want to look for where it is, you might find what you're looking for in Appalachia. The call came from a woman who asked if I'd like to come investigate something that she said was the explanation. It was a Sunday afternoon, and I was tired, so I replied with a snarky comment that I admit wasn't the kindest,
 
-"Listen, I'm a cryptozoologist, not a paranormal investigator. If yoy wanna get Zach Baggins, be my guest."
+"Listen, I'm a cryptozoologist, not a paranormal investigator. If yoy wanna get Zach Bagans, be my guest."
 
 As I said, I sounded like a grumpy asshole. But she was kind enough to respond and give me more grace than I deserved,
 
@@ -86,7 +86,7 @@ This small outburst gained looks from some of the patrons for a brief moment, bu
 
 "Have you ever, in your field of work, heard of the Flayed Deer?"
 
-In my years as an expert on the unnatural animals and myths in the United States, I don't think I've ever heard something with a name quite like that. I've come across many different and unique cryptids that I've studied. The Giant Ambling Skeleton, Fresno Nightcrawlers, The Pope Lick Monster, Thunderbird, the Ozark Howler, Frogman, and many other illustrious names. Never heard of The Flayed Deer before. I was legitimately stumped. 
+In my years as an expert on the unnatural animals and myths in the United States, I don't think I've ever heard something with a name quite like that. I've come across many different and unique cryptids that I've studied. The Giant Ambling Skeleton, Fresno Nightcrawlers, The Pope Lick Monster, Thunderbird, the Ozark Howler, Frogman, and many other illustrious names. Never heard of The Flayed Deer before. I was legitimately stumped.
 
 "I'm sorry, but I've never heard of it."
 
@@ -122,7 +122,7 @@ This was certainly something new and unsettling to me. I looked at my forearm an
 
 "It doesn't kill you right away, it just lingers around, waits until everyone you love dies, and then it'll just start tormenting you. It may not have lips or vocal cords, but it speaks to you. Whenever you get old, like me, that's when the voices start."
 
-When I heard the mention of voices, I felt sadness wash over me. Had I traveled all of this way and started listening to a woman who may be suffering from mental illness? She mentioned her mother was mentally unwell, so it tracks. In her eyes, she was telling the truth, I could tell, but it was the truth as she saw fit. Whenever someone is suffering from psychosis or schizophrenia, they believe every word that they're spewing. I didn't let her in on my skepticism and just played along. 
+When I heard the mention of voices, I felt sadness wash over me. Had I traveled all of this way and started listening to a woman who may be suffering from mental illness? She mentioned her mother was mentally unwell, so it tracks. In her eyes, she was telling the truth, I could tell, but it was the truth as she saw fit. Whenever someone is suffering from psychosis or schizophrenia, they believe every word that they're spewing. I didn't let her in on my skepticism and just played along.
 
 "What are the voices you hear?"
 
@@ -142,7 +142,7 @@ She looked at me with tired eyes, she looked at her empty mug of coffee, and sho
 
 "Yep," he grunted,
 
-He wandered over and filled the mug to the top. The steam rose into the air, she blew on it, and then sipped some of the coffee. 
+He wandered over and filled the mug to the top. The steam rose into the air, she blew on it, and then sipped some of the coffee.
 
 "The voices say they want me to come to the woods."
 
@@ -160,7 +160,7 @@ By the time my biscuits and gravy arrived at my table, I didn't feel so hungry a
 
 Defeated, I put my wallet back into my pocket and ate my breakfast. It was tasty but overwhelmingly fattening; I think I had a week's worth of calories. After breakfast, I told Janice that I'd meet her back at her house to discuss what to do going forward. Before she left, I asked her,
 
-"One more thing." 
+"One more thing."
 
 "Yes?"
 
@@ -168,7 +168,7 @@ Defeated, I put my wallet back into my pocket and ate my breakfast. It was tasty
 
 "I tried. It followed me. I figured that I'd rather face it in my own home."
 
-I nodded, thanked her, and she was gone. I sat in the booth, going over what to do in my head. Janice was honest, and she believed in every word she said. However, I may be dealing with someone who may have mental issues. The story that she told me, this creature she claims to see, doesn't have any concrete origin, and I've never heard of it in my entire career. I was troubled. On the one hand, I was giving this woman closure, putting her at ease with something she's claimed to have seen, but on the other hand, was I exploiting this woman? I sat there mulling it over in my head until I got up and made my decision. 
+I nodded, thanked her, and she was gone. I sat in the booth, going over what to do in my head. Janice was honest, and she believed in every word she said. However, I may be dealing with someone who may have mental issues. The story that she told me, this creature she claims to see, doesn't have any concrete origin, and I've never heard of it in my entire career. I was troubled. On the one hand, I was giving this woman closure, putting her at ease with something she's claimed to have seen, but on the other hand, was I exploiting this woman? I sat there mulling it over in my head until I got up and made my decision.
 
 I drove to Janice's house, which was deep in the woods, and the road was nothing more than gravel and dirt. The house itself was a nice, albeit plain, two-story house that had seen better days. The paint was chipped, the windows were opaque, and the lawn was wild but not to the level of some of the abandoned houses I'd come across. Janice sprang from the house and rushed to give me a hug. It was stronger than I anticipated.
 
@@ -182,7 +182,7 @@ I drove to Janice's house, which was deep in the woods, and the road was nothing
 
 "You have my full permission, now get inside, it's cold out there."
 
-The inside of the house was beautiful, and it seemed that every room had this feeling that a life was lived well there. Portraits of families on the wall that span decades, old furniture that was worn down from years of use, and paperback books with withered spines. The house smelled damp and dusty, but it was at least very warm compared to the chilliness of the November weather. 
+The inside of the house was beautiful, and it seemed that every room had this feeling that a life was lived well there. Portraits of families on the wall that span decades, old furniture that was worn down from years of use, and paperback books with withered spines. The house smelled damp and dusty, but it was at least very warm compared to the chilliness of the November weather.
 
 My room was upstairs, like she said, but she never let me know that it used to be a child's bedroom. It was faded pink, the bed was big enough but noticeably smaller than I wanted, and there were little drawings pinned on the walls. The drawings were attributed to a girl named Sarah, whose name was in the corner of each piece of paper. One of them stood out to me, one of the drawings, as crude as it was, was unmistakably a deer skeleton. It sent a chill down my spine and made me feel uneasy, because it made Janice's story feel a little more real. I grabbed my things and hauled them upstairs. Janice stopped me once and asked,
 
@@ -202,7 +202,7 @@ The first night yielded no results, much to my disappointment. I very rarely got
 
 ".....Can you see me.....I can see you...."
 
-Then it ran off, leaves crunching beneath its feet, and I just sat there frozen in my room because the voice that I heard belonged to my grandmother, who has been dead for nearly thirty years. 
+Then it ran off, leaves crunching beneath its feet, and I just sat there frozen in my room because the voice that I heard belonged to my grandmother, who has been dead for nearly thirty years.
 
 That morning, I walked to the sight of where this thing might've been standing, looking at one of my cameras. Janice shouted from the porch,
 
@@ -234,13 +234,13 @@ Night four was another dud, nothing at all. I took a walk around the house in th
 
 "Peter!"
 
-"Yes?!" 
+"Yes?!"
 
 I heard nothing and yelled louder,
 
 "Yes?!"
 
-Nothing, 
+Nothing,
 
 "What do you want, Janice?!"
 
@@ -266,7 +266,7 @@ The last night I was there, I stared at the monitors from the laptop in Sarah's 
 
 I brushed the crust from my eyes and looked at the camera feed to see something on the edge of the forest. The moonlight showed the outline of a deer with two large antlers. Smoked bellowed from its nostrils as it snorted in the cold air. I heard the voice coo again,
 
-"Mama, it's cold outside!" 
+"Mama, it's cold outside!"
 
 I ran to the door to try to tell Janice, but found it locked. I jiggled the knob, shook the door, and even tried to shoulder it. But Janice's voice spoke to me in an eerie calm,
 
@@ -288,10 +288,10 @@ How do I describe what happened next? I have the footage, but I've erased the me
 
 "Are you watching, Peter?"
 
-It let out another high-pitched bugle, and Janice's suffering ceased. Her body, well, there's no easy way to say it. Her body seemingly exploded. Her flesh and bones shot in every direction, and the blood splattered the cameras, obscuring the image. Shortly after the decimation of her body, I heard the wet slaps of meat beating against the house as well as the ground outside. I stared at the laptop in shock, and through the smear of blood, I saw the Flayed Deer trot back into the dark woods. 
+It let out another high-pitched bugle, and Janice's suffering ceased. Her body, well, there's no easy way to say it. Her body seemingly exploded. Her flesh and bones shot in every direction, and the blood splattered the cameras, obscuring the image. Shortly after the decimation of her body, I heard the wet slaps of meat beating against the house as well as the ground outside. I stared at the laptop in shock, and through the smear of blood, I saw the Flayed Deer trot back into the dark woods.
 
 I didn't sleep. I eventually kept trying for the door until I broke it off its hinges. I took my things and haphazardly threw them into my car. I walked by the pulpy red stain that used to be Janice, and that's when I lost it. I drove away in tears. I was effectively having a panic attack as I drove out of Mossy Pines. I kept driving for hours until I saw that the gas was dangerously low. I fueled up at a gas station, grabbed some shitty gas station food, and kept driving on until I was home. When I came back, I think I slept for a full twelve hours.
 
-I awoke, reviewed the footage, and instead of submitting the footage to my colleagues and friends. I removed the chips from the cameras and burned them. I figured the best way I could document this was to write about it. I wonder if this was how my grandfather felt all those years ago when he allegedly encountered something he couldn't explain? All I know is that I've gone from a healthy skeptic to a weary believer. I wish that the story ended in Mossy Pines, but I've been hearing voices at night recently. Family and friends from my past, and sometimes I'll hear Janice, too. They all say the same thing, too. They're cold, they want something to warm them up, and they always politely ask for my skin. 
+I awoke, reviewed the footage, and instead of submitting the footage to my colleagues and friends. I removed the chips from the cameras and burned them. I figured the best way I could document this was to write about it. I wonder if this was how my grandfather felt all those years ago when he allegedly encountered something he couldn't explain? All I know is that I've gone from a healthy skeptic to a weary believer. I wish that the story ended in Mossy Pines, but I've been hearing voices at night recently. Family and friends from my past, and sometimes I'll hear Janice, too. They all say the same thing, too. They're cold, they want something to warm them up, and they always politely ask for my skin.
 
 The Flayed Deer is waiting for me.
