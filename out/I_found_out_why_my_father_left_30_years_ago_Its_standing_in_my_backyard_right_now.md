@@ -123,3 +123,5 @@ But I'm looking at it right now through my window.
 I'm in bed with my phone.
 
 What should I do?
+
+\[[Read Part 2 Here](https://www.reddit.com/r/nosleep/comments/1q687at/update_i_found_out_why_my_father_left_30_years/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)\]
