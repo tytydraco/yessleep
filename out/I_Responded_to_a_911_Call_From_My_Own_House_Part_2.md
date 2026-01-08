@@ -1,5 +1,10 @@
+I was standing in my basement, staring at the breaker box, trying to understand how a 911 call had been routed through my house.
 
-[Part 1](https://www.reddit.com/r/nosleep/s/CCbXcbVzeF)
+No forced entry. No sign anyone had been inside.
+
+Just a single sentence left where only I would find it.
+
+“I needed you to hear the call.”
 
 The breaker snapped back into place with a sharp click.
 
@@ -140,4 +145,4 @@ A man’s voice came through. Low. Gravelly.
 
 “Do you remember now?”
 
-The call disconnected.
+The call [disconnected](https://www.reddit.com/u/StaticVoicesYT/s/AloOjcNyHH).
