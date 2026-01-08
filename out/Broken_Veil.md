@@ -138,3 +138,5 @@ I know because the forest is silent. The air a crisp stillness without a single 
 Its here.
 
 Only now, theres two predators in these woods.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/mev6Ddzpga)
