@@ -106,7 +106,7 @@ I did as she said and went up, but I still listened through. More yelling. Somet
 
 *"Get the fuck off me!"*
 
-The yelling and footsteps just got louder, alongside crashing sounds from the kitchen. Things breaking, things hitting the wall, glass breaking. They'd never fought like this. They'd never fought, ever but here I heard them banging on the walls. Screaming like I'd never heard before.
+The yelling and footsteps just got louder, alongside crashing sounds from the kitchen. Things breaking, things hitting the wall, glass breaking. They'd never fought like this. They'd never fought, ever, but here I heard them banging on the walls. Screaming like I'd never heard before.
 
 I ran onto their bed and under their covers, pulling them up closer to me. All I did, all felt I could do was stare at the light under the door. No matter how loud they got, how much crashing there was downstairs, I felt deep down that it'd all be over soon.
 
