@@ -18,9 +18,8 @@ This is what they deserve. I smiled. It has been twenty three hours and fifty mi
 
 At least, that is what I learned would happen when a nuclear bomb goes off. I wondered how close she was to the epicenter. Or would she get cancer and slowly die a painful death later? I smiled. 
 
-The military assured me this box would protect me. It was barely large enough to fit my chair, a desk, a monitor/keyboard and a big red button. I assume the computer is inside the wall or something. Above me is a large hatch door with a valve latch. I was instructed that once I pressed the button, after 24 hours the military would send a team to retrieve me.   
-  
-  
+The military assured me this box would protect me. It was barely large enough to fit my chair, a desk, a monitor/keyboard and a big red button. I assume the computer is inside the wall or something. Above me is a large hatch door with a valve latch. I was instructed that once I pressed the button, after 24 hours the military would send a team to retrieve me.
+
 As the ten minutes started ticking away, I pulled up reddit and started posting. I giggled in excitement at all the bots who would like and comment on my post without ever knowing what it was. 
 
 EDIT:
@@ -59,7 +58,7 @@ I stepped away from the monitor. The entire room is five feet in diameter. Just 
 
 “I didn’t kill them. If it wasn’t me, the military would have used someone else.”
 
-“But you could have chosen not. You could have stood for something.”
+“But you could have chosen not to. You could have stood for something.”
 
 “I did stand for something” I screamed. “I survived.”
 
