@@ -1,3 +1,5 @@
+Part 2: [If You Wake Up in a Shed and Hear Something Dragging… Don’t Move. It’s Already Too Late...](https://www.reddit.com/r/nosleep/comments/1q6oete/if_you_wake_up_in_a_shed_and_hear_something/)
+
 “Cold,” I murmur, wincing as the icy metal presses against my back.
 
 The chill seeps into me like an unwelcome intruder, settling deep in my bones and making itself comfortable. The air smells like old piss, rot, and something faintly metallic. Real ambiance. Five stars. Would not recommend.
@@ -130,7 +132,7 @@ I glance down at my shaking hands. Dark. Sticky. Gleaming faintly in the moonlig
 
 I refused to believe it.
 
-The smell hits next—iron, sharp, unmistakable. Blood. My stomach tightens as panic claws up my spine. 
+The smell hits next—iron, sharp, unmistakable. Blood. My stomach tightens as panic claws up my spine.
 
 I look at Trust Issues. He’s frozen, eyes wide, locked on something above me. I follow his gaze.
 
@@ -148,7 +150,7 @@ I don’t say anything after that.
 
 Talking feels unsafe. Like the room is watching us. Like if I speak too loud something will answer.
 
-Instead, I grab Trust Issues by the sleeve and yank him sideways, dragging him behind one of the massive support pillars. He’s shaking hard now, retching into the dirt, folded in on himself like a newborn deer that already knows it won’t survive the winter. I put a hand on his back, instinctively trying to calm him. 
+Instead, I grab Trust Issues by the sleeve and yank him sideways, dragging him behind one of the massive support pillars. He’s shaking hard now, retching into the dirt, folded in on himself like a newborn deer that already knows it won’t survive the winter. I put a hand on his back, instinctively trying to calm him.
 
 The wood presses rough and damp into my shoulder, stained black where old blood has soaked so deep it feels permanent. Not spilled. *Absorbed.*
 
@@ -210,7 +212,7 @@ Except it isn’t a search page.
 
 It’s Reddit.
 
-Specifically: r/nosleep 
+Specifically: r/nosleep
 
 No posts. No comments. No usernames. Just a blank screen and a single button at the center.
 
