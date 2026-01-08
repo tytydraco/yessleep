@@ -109,7 +109,7 @@ There was no finale. No broadcast. No celebration. Just a check, a ride home, an
 
 The show was completed, but last thing I heard it was simply never released.
 
-I quit acting and modeling afterwards. Went back to college, got a degree, a normal job. Met my husband, had kids.
+I quit acting afterwards. Went back to college, got a degree, a normal job. Met my husband, had kids.
 
 I learned to cook in ways that hid texture. I avoided red meat for years without explaining why.
 
