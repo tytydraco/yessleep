@@ -36,7 +36,7 @@ When the shift ended, Gary offered to drive me home.
 
 “Thanks for the ride, dude,” I said as I got out.
 
-“You're,” he replied, leaning out the window. “Just me a beer tomorrow.” He laughed.
+“You're welcome,” he replied, leaning out the window. “Just me a beer tomorrow.” He laughed.
 
 “Deal. We’re watching the game tommorrow, remember?”
 
@@ -178,11 +178,11 @@ I noticed a man in a suit sitting alone at a table. He kept putting his phone to
 
 “Just watch him,” I replied shortly and headed to the kitchen to pick up food orders.
 
-As soon as I entered the kitchen, the young assistant cook, Enrique, came running and crashed into me.
+As soon as I entered the kitchen, the young assistant cook, Henry, came running and crashed into me.
 
 “Watch it, kid,” I said.
 
-“Sorry, Steve,” Enrique replied cheerfully and ran off. He was clearly in a hurry.
+“Sorry, Steve,” Henry replied cheerfully and ran off. He was clearly in a hurry.
 
 Everything in the dining area seemed normal. The man in the suit was gone. I found Gary.
 
@@ -192,7 +192,7 @@ Everything in the dining area seemed normal. The man in the suit was gone. I fou
 
 “Okay,” I said, nodding.
 
-“By the way, what’s up with Enrique?” Gary asked.
+“By the way, what’s up with Henry?” Gary asked.
 
 “No idea. He just ran out of the kitchen.”
 
@@ -214,12 +214,12 @@ Everything in the dining area seemed normal. The man in the suit was gone. I fou
 
 I kept working, serving the guests. New faces came and went, and I searched for the culprit among them. Paranoia had taken hold of me.
 
-I noticed Enrique returning to the kitchen.
+I noticed Henry returning to the kitchen.
 Suddenly, the power went out, and total darkness fell over the restaurant. Panicked screams echoed from the guests.
 
 “Please stay calm,” Gary called out, trying to settle everyone down. “A minor power outage. It’ll be fixed soon.”
 
-I headed toward the storage room next to the kitchen. I ran into Enrique as he was coming out. He had most likely shut off the power.
+I headed toward the storage room next to the kitchen. I ran into Henry as he was coming out. He had most likely shut off the power.
 
 “What did you do?!” I grabbed him by the collar, furious.
 
@@ -235,11 +235,11 @@ Through the back door, I saw two people quietly and cautiously enter. I grabbed 
 
 “Great. You?”
 
-We headed back into the dining area, where Enrique had pulled out a gun and was firing into the ceiling. “Give me all the money!” he shouted at the guests.
+We headed back into the dining area, where Henry had pulled out a gun and was firing into the ceiling. “Give me all the money!” he shouted at the guests.
 
 There was a loud crash from the kitchen, and the two intruders came out, guns in hand, taking hostages.
 
-Suddenly, a cold wind swept through the room, and a dark silhouette began racing around. First it took down Enrique, then it went after the other two, who dropped the hostages.
+Suddenly, a cold wind swept through the room, and a dark silhouette began racing around. First it took down Henry, then it went after the other two, who dropped the hostages.
 
 “This is it,” I said to Gary. “The shadow we saw. It’s visited me many times. It’ll protect all of us.”
 
@@ -247,7 +247,7 @@ Suddenly, a cold wind swept through the room, and a dark silhouette began racing
 
 The two intruders fired around wildly, but it was useless, they couldn’t shoot the silhouette.
 
-Then the silhouette began dragging them, along with Enrique across tge floor, and toward the front entrance, just as the police arrived.
+Then the silhouette began dragging them, along with Henry across tge floor, and toward the front entrance, just as the police arrived.
 
 The police too care of the assistant cook amd his two friends as the silhouette appeared across the street, just watching. It pulled its staff out and sat on the sidewalk, proudly. The job was done.
 
