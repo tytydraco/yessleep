@@ -1,3 +1,4 @@
+[Part1](https://www.reddit.com/r/nosleep/s/ZV6d4o1mA9)
 
 Not sure where to begin with this. I wasn't even sure what I was looking for, at first. It took some digging but this post was forwarded around enough that it got my attention. I recognize the story, the writing style and how you speak about the forest. 
 
@@ -205,6 +206,3 @@ This just got stranger. This could easily go south, and I'm not ready to turn th
 I will update when we have some answers. 
 
 Right now there's too many holes in this puzzle, too many breadcrumbs with no trail. Whoever took Ethan might still be out there, watching. But so am I, and I will hunt this down.
-
-
-[Part1](https://www.reddit.com/r/nosleep/s/ZV6d4o1mA9)

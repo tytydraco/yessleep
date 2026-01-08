@@ -434,3 +434,4 @@ I shined the light over it and felt my chest tighten as I read the single line w
 
 
 
+[Part 2](https://www.reddit.com/r/nosleep/s/5K35KGY4tX)
