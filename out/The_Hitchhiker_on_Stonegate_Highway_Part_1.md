@@ -52,3 +52,5 @@ Then it happened...
 The hitchhiker entered me, like a soul slipping into a body.
 
 A sharp pain struck the back of my head. My body jerked violently. My skull felt like it was about to burst.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/XgJPbF3QP1)
