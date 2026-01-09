@@ -51,3 +51,5 @@ She got upset and said that makes her feel accused and unsafe, and that I’m tr
 I honestly don’t know what to think anymore. I’m exhausted, I’m second-guessing my own memory, and I dread going to sleep.
 
 All I know is that tonight, I’m locking my door and I’m scared of how she’ll react when she notices.
+
+Find the update \[[here](https://www.reddit.com/r/nosleep/comments/1q8i8jd/update_locking_my_door_did_not_help/)\]
