@@ -1,0 +1,35 @@
+This happened in the early 1990s, when I was around eight and my little sister was four. My grandfather had a good friend who'd recently passed away, and he'd agreed to look after the man's house for the family. It was an older place that was actually demolished a few years ago. Sometimes, maybe to give my mother a break, my grandfather would take us there to play. We would bring our dog along too, a Shetland sheepdog that we loved dearly. 
+
+One thing I remember is that our dog would never come into the house with us. He would just growl at the door and nip at us if we tried to bring him in, his fur standing straight up along his back. So we always had to leave him chained up outside whenever we went in.
+
+The house was two stories. Downstairs, one of the rooms had this really cool piano, along with old 8-track tapes and records we could listen to. We spent hours in there, just playing the piano and listening to music. Sometimes my grandfather would give us a bucket of pastel crayons in the living room and we'd draw and color. There was also an older computer from the early 90s that had solitaire and a paint program I liked to mess around with.
+
+The upstairs room was where something was off. I remember the feeling of going up there—not necessarily scary, but uneasy. Sometimes I would go up alone just to feel it, though I didn't quite understand what I was experiencing. Looking back now, I know something was terribly wrong.
+
+One day we went over and my grandpa left us in the house while he went outside to cut the grass. I was playing with the paint program on the computer next to the staircase, and my little sister was coloring with pastels like we normally did. Then I heard her talking to someone. I looked over and she was standing at the bottom of the staircase, looking up and talking to someone I couldn't see.
+
+I asked her who she was talking to, and she said, "The lady upstairs." I got up and looked, but I didn't see anyone. When I told my sister there wasn't anyone up there, she insisted that a woman in a red dress was standing at the top of the stairs.
+
+I remember feeling it again. That unease. Not scared, but not right either. I was a child, so I don't think I could process it properly. Anyway, I went upstairs and my sister followed me. I opened the door to the upstairs room that was already half-open, and there she was. A woman in a red dress, standing right next to a small door in the wall. That door led to the attic. She looked right at me and said, "There's a toy train and some tracks you could play with through that door."
+
+She looked like she was from the 1950s or something. Her hair looked like she'd just gotten it done, and she wore long white gloves that went up almost to her elbows. She sort of looked like a pageant queen. She was very pretty.
+
+I opened the small attic door and she pointed to where the toy train was. It was in an old wooden box. I went into the attic and got it. When I came out, my sister was showing her the artwork she'd created with the pastels. I looked at the woman and told her, "I got it!" For whatever reason, I just carried on like this was normal. I knew she was a stranger, but I didn't react the way I should have. Maybe I was just too young to understand, or maybe it was because she seemed so nice and pretty. I don't know.
+
+She helped me set up the train and turn it on. It worked. I could tell it was an older toy, but I thought it was really cool. We stayed up there with her for probably half an hour. Then we heard my grandpa come back in the house and call for us. The woman stood up and said, "Well, I need to get going. You two run along and we can play again some other time." She had a big smile on her face. I can still see it as I write this. She walked over to the little attic door and went inside. I remember telling her that it was hot in there. She just waved and closed the door behind her.
+
+My sister and I went downstairs and met my grandfather. He made us some sandwiches and we told him about the lady and how she'd shown me where the train set was. He assured us that there was no lady in the attic and that I shouldn't go in there without him because it was too hot. I don't think he thought much of it. He probably assumed she was an imaginary friend.
+
+I remember going back upstairs that day one more time before we left to see if she'd come back. I even checked the attic. She wasn't there. I remember going home and just forgetting about it.
+
+We went back to the house a couple of weeks later. The first thing I did was go upstairs to see if she was there. The train was still there, along with the artwork my sister had brought up to show the woman, but there was no sign of her.
+
+I remember my sister and I playing the piano and listening to 50s music on an old 8-track tape that day, like we normally did. I tried to get my dog to come into the house with us, like I always did. And I played with the paint program on the computer, like usual.
+
+That day, as I was painting one of my masterpieces, something caught the corner of my eye. It was the woman. She was on the staircase, about halfway down from the upstairs room. She motioned for me to come meet her, and I did without hesitation. She was wearing the exact same red dress, same hairstyle, everything. I felt the urge to go tell my grandpa that she was back, but I followed her upstairs first.
+
+When I got up there, my little sister was already there with her. She'd shown my sister where some little dolls were in the attic. The attic door was open. She asked me if I could get something for her from inside. I told her that my grandpa didn't want me to go in there because it was too hot. She assured me that I would be ok and pointed to a beige bag a few steps in and over to the left. I thought about it, but I didn't want to upset my grandfather. So I told her I had to go ask him if I could get it. She just smiled at me. At that moment, I started to go down the stairs, but I felt like I needed to take my sister with me. I guess the big brother in me was talking. I told her to come with me to get my grandfather.
+
+I told the woman that we would be right back and then I could get her bag for her. My sister and I went downstairs and into one of the bedrooms where my grandfather was watching a football game. We told him about the woman again and how I needed to get something for her in the attic. He assured us that no one was up there, but he came up with us anyway.
+
+When we got up there, she was gone. My grandfather was a little upset about the attic door being open and more old toys being brought out, but he told me I could get one more thing. Before I went into the attic, I looked around for the woman and called for her, realizing I didn't know her name. My grandfather once again reassured me that no one else was up there. I went into the attic and got that beige bag she'd wanted me to get. It had a coat hanger hooked through it. I brought it to my grandpa and he unzipped the bag and pulled something out of it. It was the woman's red dress.
