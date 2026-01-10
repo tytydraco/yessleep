@@ -1,4 +1,4 @@
-My wife is the smartest and most put together person I’ve ever had the pleasure of knowing, and it baffles me how an angel such as her could settle for a mess like me. And not only did she agree to put up with me for the rest of her life, but she also decided we should have a child.
+My wife is the smartest and most put together human being I’ve ever had the pleasure of knowing, and it baffles me how an angel such as her could settle for a mess like me. And not only did she agree to put up with me for the rest of her life, but she also decided we should have a child.
 
 This amazing person who fucking killed it in university and ran her own business that was successful enough to keep more than two dozen people comfortable, wanted to procreate with a cunt who barely even finished his GCSEs. It never made sense.
 
@@ -6,11 +6,11 @@ But the thing about Sarah is she’s a stubborn bitch. Once she’s made her min
 
 And while I was busy shitting enough bricks to build us a house too big for us to afford, she planned out every single thing down to the most minute details. Her diet, how she’d exercise, how the birth would go down, what the kid’s bloody room would look like. All was decided before the test even came back positive. It was a little emasculating to be frank. My only job was to bring my dick along and I’m sure I almost fucked that up.
 
-She was kind enough to let me take care of her to the best of my abilities during the pregnancy. With all her planning, she’d forgotten to take into account the human person she’d have in her belly during it all, and the difficulties that’d come with it.
+She was kind enough to let me take care of her to the best of my abilities during the pregnancy. With all her planning, she’d forgotten to take into account the human person she’d have growing in her belly during it all, and the difficulties that’d come with it.
 
 It truly was one of the most terrifying things I’ve ever experienced. Feeling that anticipation build over the months until I could barely breathe. Sarah did her best to sooth me, but it felt silly to go whining to her about being nervous when she was the one doing the hard work. But when Alfie was born, all those nerves blinked away, the jumbled puzzle pieces of the world suddenly clicked together to finally form the picture I’d been looking for.
 
-Before becoming a father, it was like I’d been standing in one of those halls of mirrors, unable to figure which way was forward, having to rely on Sarah’s hand guiding me. But when I held him in my arms for the first time, I was suddenly on a straight open path. The purpose I’d never been able to find for my entire life was suddenly right in front of me. And that feeling even survived him immediately releasing more shit from his arse than I think I’d ever seen before all down the front of my clothes. Clothes I then had to go home wearing.
+Before becoming a father, it was like I’d been standing in one of those halls of mirrors, unable to figure which way was forward, having to rely on Sarah’s hand to guide me. But when I held him in my arms for the first time, I was suddenly on a straight open path. The purpose I’d never been able to find for my entire life was suddenly right in front of me. And that feeling even survived him immediately releasing more shit from his arse than I think I’d ever seen before all down the front of my clothes. Clothes I then had to go home wearing.
 
 I’m not going to pretend I was some kind of natural. Fucking things up is my number one talent and I was still doing plenty of it. I was permanently exhausted. But I grew up spending entire weeks sleepless while grinding for rare gear in various video games. So, I was trained to resist the weight of fatigue. But I turned out to be pretty damn good at being a dad.
 
@@ -20,7 +20,7 @@ I had my son, nothing else mattered.
 
 My wife had a harder time. She learned quickly that being a mother isn’t like running a company. That the primary directive of all children is to shatter any and every plan their parents concoct. With all her research and preparation with the physical side, I don’t think she ever guessed the kind of toll giving birth would take on her mental health. Some days she couldn’t even get herself out of bed. Feeling tired all the time, she couldn’t work. I love Sarah, but if there’s one thing she’s terrible at, it’s sitting still. So, while trying to recover from having her insides ripped out, she was beating herself up for resting instead of single-handedly holding up the sky.
 
-I often found myself holding her, telling her she was a good mum, reminding her how badass she was while she felt like she was failing. It broke my heart to see my smart confident wife crumble apart like that. I felt so fucking useless not knowing the right words to say. Though, and it shames me to admit to it, it felt good to be the one comforting *her* for once, even if I was shite at it.
+I often found myself holding her, telling her she was a good mum, reminding her how badass she was while she felt like she was failing. It broke my heart to see my smart confident wife crumble apart like that. I felt so fucking useless not knowing the right words to say. Though, and it shames me to admit to it, it felt good to be the one comforting *her* for once, even if I was shite at it.
 
 My mother suggested that maybe Sarah was suffering from some kind of postpartum depression. She explained what it was, telling me about how she’d gone through something similar after I was born. I managed to convince my wife to start seeing a shrink which helped. She still had her moments, but the colour was returning to her and she was able to get out of bed more, even leave the house.
 
@@ -32,11 +32,11 @@ After calming her down, and putting Alfie to bed, I got the full story from her:
 
 She took her eyes off him. It was a tiny, insignificant amount of time that turned out to be a travesty. She’d stepped away for maybe a minute to quickly grab something, and when she returned, he was gone. A frantic few minutes proceeded where she searched desperately, eventually finding him still in his pram not too far away. I soothed her as she cried, telling her that one mistake didn’t mean she had failed as a mother. But part of me thinks she never forgave herself for it.
 
-The story didn’t quiet sit right with me, with the pram rolling off all by itself. But I didn’t want to interrogate her too much. My son was fine. That was what mattered. I just assumed the wheels on the pram hadn’t locked or something. Maybe the wind blew or something had bumped it.
+The story didn’t quiet sit right with me, with the pram rolling off all by itself. But I didn’t want to interrogate her too much. My son was fine. That was what mattered. I just assumed the wheels on the pram hadn’t locked properly or something. Maybe the wind blew or something had bumped it.
 
 But now I know the truth, that that was when it happened. That was the moment my life began to fall apart.
 
-Sarah started watching Alfie much more closely after that. A mother’s guilt weighing heavy on her shoulders. She’d go running to him at any and every sound he made. I’d find her hovering above his crib, sometimes late into the night, watching him sleep. I noticed Alfie crying a lot more than he used to. He was never quiet by any means, but now it was almost constant. Sarah explained it to be hunger, but I swear some days she was feeding him every half hour.
+Sarah started watching Alfie much more closely after that. A mother’s guilt weighing heavy on her shoulders. She’d go running to him at any and every sound he made. I’d find her hovering above his crib, sometimes late into the night, watching him sleep. I noticed Alfie crying a lot more than he used to. He was never quiet by any means, but now it was almost constant. Sarah explained it to be hunger, that he was just growing, but I swear some days she was feeding him every half hour.
 
 One day when I’d managed to convince Sarah to get some rest. I sat with Alfie in my arms, rocking him slowly, listening to his breathing. It was much deeper than before, much more strained, like the air scratched the inside of his throat on each exhale. I watched his chest move up and down with each laboured breath, wondering just how a baby could eat so much yet still look so skinny.
 
@@ -92,7 +92,7 @@ Sarah was sat on the sofa rocking back and forth as she cried, her hands balled 
 
 She shook her head rapidly. “I can’t do it, Jack. I don’t know what to do. I don’t know how to fix it. I- I- I wanted to hurt him.”
 
-“But you didn’t” I cut her off. “He’s f-” I caught myself, because *fine* was the last word I’d used to describe any of this. “He’s not hurt.” I didn’t know what else to say. Sarah was the capable one. Sarah was the one with the answers. What the fuck could *I* do?
+“But you didn’t” I cut her off. “He’s f-” I caught myself, because *fine* was the last word I’d used to describe any of this. “He’s not hurt.” I didn’t know what else to say. Sarah was the capable one. Sarah was the one with the answers. What the fuck could *I* do?
 
 Eventually I found the words. I suggested that maybe we needed some time to ourselves. I could call my mum and ask her to watch Alfie for a bit and we could go out together, or stay in, or do anything we wanted. Feel like people again.
 
@@ -104,7 +104,7 @@ Trying to think of something else, I realised that in all the stress of looking 
 
 A few days that melded together later and Sarah had a meeting with her shrink. I encouraged it but also dreaded having to be alone with my infant son. His screams bursting through my eardrums as I mixed formula until my fingers ached. But much to my surprise, a little bit after Sarah left, Alfie was quiet.
 
-It took me a bit to realise, my fatigued body in autopilot. But at some point, I realised the screaming I was hearing was just the echoes in my head, and Alfie was laying in his crib perfectly tranquil.
+It took me some time to realise, my fatigued body in autopilot. But at some point, It hit me that the screaming I was hearing was just the echoes in my head, and Alfie was laying in his crib perfectly tranquil.
 
 It terrified me at first. I thought he was sick or hurt, but when I picked him up, he was fine.
 
@@ -126,13 +126,13 @@ What I would give to go back and change that decision. Maybe we could’ve worke
 
 She watched me feed Alfie and put him to bed, and when I pushed through my worry and expressed amazement in how he was still quiet, she just shrugged.
 
-She volunteered to watch over him that night to make up for leaving me alone and encouraged me to get some sleep. I suggested that maybe she come to bed too. That maybe whatever it was that was wrong is now over. Maybe it *was* just colic. That he’s quiet now, and we’d be able to get some real rest. I was halfway begging. I just wanted to share a bed with my wife again.
+She volunteered to watch over him that night to make up for leaving me alone and encouraged me to get some sleep. I suggested that maybe she come to bed too. That maybe whatever it was that was wrong is now over. Maybe it *was* just colic. That he’s quiet now, and we’d be able to get some real rest. I was halfway begging. I just wanted to share a bed with my wife again.
 
 She shook her head, her dispassionate eyes analysing our son’s skinny yellow body as his prominent ribcage slowly rose and fell. Her arms crossed tight over her chest, her face struggling to keep the sneer suppressed.
 
 Apprehensively, I relented, recognising the look of stoic resignation that she’d put on when making a tough decision. And knowing that that look meant she’d made her choice. Sarah was always a stubborn bitch. Once she made her mind up about something, it was impossible to talk her out of it.
 
-So I went to bed, but even with the now months’ worth of sleep dept I’d accumulated, sleep was distant. I had this terrible sensation churning in my gut, an alien buzzing in my brain. An intuition. Even now I don’t think I could say for certain what it was, some nebulous sensation. But it made the echoes of Alfie’s cries in my head become deafening.
+So I went to bed, but even with the now months’ worth of sleep debt I’d accumulated, sleep was distant. I had this terrible sensation churning in my gut, an alien buzzing in my brain. An intuition. Even now I don’t think I could say for certain what it was, some nebulous sensation. But it made the echoes of Alfie’s cries in my head become deafening.
 
 I listened as Sarah went downstairs, a heaviness in her steps. I listened to the banging as she rooted around the piled-up dishes and bottles in the kitchen. I listened as she marched back upstairs, each thump making my breath hitch. That horrible stir roiling in my stomach like rocks in a washing machine.
 
@@ -176,7 +176,7 @@ My wife was gone. Now all I had was my son. Nothing else mattered.
 
 After trying to explain to the police the same things she told me, Sarah was put into a psychiatric facility.
 
-I tried to visit her a few times, but all she’d do was scream at me. Pleading to find Alfie and kill the “thing that stole his place”. Eventually it became too painful to see her. So, I stopped going.
+I tried to visit her a few times, but all she’d do was scream at me. Pleading to find Alfie and kill “that thing that stole his place”. Eventually it became too painful to see her. So, I stopped going.
 
 I abandoned her in there. I betrayed my vows by abandoning the person who showed me what it was like to live.
 
@@ -204,7 +204,7 @@ I pushed myself up and sat against the sofa, my bones throbbing as I watched my 
 
 I knew I should go to the doctor, but again, the idea fought me. The prospect of describing my situation to anyone made me angrier than I’d ever been before, strings of violence tugging at my mind. Thinking back to when we’d taken Alfie to the hospital made me hate my wife even more than I’d grown to.
 
-I cried, feeling almost completely alone in the world. Completely alone with my son.
+I cried, feeling almost completely alone in the world. Completely alone with only my son.
 
 I finally found the strength to stagger upstairs, finding Alfie in his crib. When he saw me, he giggled and reached up a thin yellow hand to me. I looked down upon his frail skeletal frame, his rubbery jaundice skin, his bloodshot yellow eyes with black irises. And for a moment I was disgusted by the creature before me. But it was only for a moment.
 
@@ -222,7 +222,7 @@ I hissed when a sharp pain cut into my finger, I pulled it from his mouth and wa
 
 I blinked several times wondering if maybe I’d hit my head harder than I thought. Maybe I was still dreaming. But it was when I noticed how he was looking at me that the world went silent.
 
-His face was cold, stony. His eyes were filled with contempt. An expression an infant was not created to display.
+His face was cold, stony. His eyes were filled with contempt. An expression an infant was not meant to display.
 
 “Alright mate. Let’s put you back to bed” I said with forced cheer and a chuckle that I had to squeeze out of my diaphragm.
 
@@ -238,7 +238,7 @@ I closed myself in my bedroom in a panic. It couldn’t be real. I must’ve bee
 
 That was my son. My fucking blood. My flesh. Part of me. He was just teething. That had to be it. Wasn’t he about that age? I couldn’t remember. Why couldn’t I remember how old my son was? I couldn’t remember anything. I couldn’t remember my friends’ names. I couldn’t remember my mother’s address. I couldn’t even remember where I’d bought the formula I’d been feeding him.
 
-Feeding *it*.
+Feeding *it*.
 
 No, this was insane. I was sleep deprived. And stressed from having my wife try to kill me and my son. I was having some kind of mental health crisis and needed to finally get some help.
 
@@ -246,7 +246,7 @@ I searched around for my phone, eventually leaving my room to search the house, 
 
 Moving back upstairs, I peeked into Alfie’s room. He was sat upright in his crib, watching me plainly, curiously. He had never sat up before then. And I had a nasty realisation settle in my gut.
 
-It knew. It knew that I knew. Like Sarah knew.
+It knew... It knew that I knew. Like Sarah knew.
 
 I closed myself in my bedroom again and blocked the door, remaining hidden away until the sun rose the next day. Alfie started crying at some point but after a while he realised I wasn’t coming and stopped, remaining silent for the rest of the night.
 
@@ -256,7 +256,7 @@ And when daylight turned the outside world into a blinding wasteland, reminding 
 
 Once I had everything together, I made my way back to Alfie’s room. He was laying in his crib, his skeletal chest pulsating with shallow breaths. I drifted through the room, very hesitantly turning my back on him as I laid everything out on the changing table. Then I began.
 
-I opened the carton and plucked up the first egg, cracking the shell on the side of the pot before dumping the contents onto the floor beside my feet. I then placed the shells into the pot and began to stir. I did it again, and again. On the third egg Alfie laughed making me freeze as I listened to the creaking of the crib as he moved. I repeated the absurd action until the contents of nearly a dozen eggs covered the floor, my socks soaked with yolk. I then placed the empty carton on my head and took the pot in both hands to begin tossing the eggshells like you would an omelette. Alfie laughed again, and then it happened.
+I opened the carton and plucked up the first egg, cracking the shell on the side of the pot before dumping the contents onto the floor beside my feet. I then placed the shells into the pot and began to stir. I did it again, and again. On the third egg Alfie laughed making me freeze while I listened to the creaking of the crib as he moved. I repeated the absurd action until the contents of nearly a dozen eggs covered the floor, my socks soaked with yolk. I then placed the empty carton on my head and took the pot in both hands to begin tossing the eggshells like you would an omelette. Alfie laughed again, and then it happened.
 
 “Why are you doing that?” A strained harsh gravelly voice cut through the silence like a lightning bolt.
 
@@ -266,7 +266,7 @@ Sarah was right. She was right and I didn’t fucking listen.
 
 My entire body trembling with fear, I placed the pot filled with eggshells onto the changing table. I didn’t look at it. I just as calmly as I could manage, walked out of the room and into my bedroom, piling half the furniture in front of the door to give me the time to type this up.
 
-Alfie has been crying louder than he ever had before, the noise like sandpaper raking my brain. But now he’s suddenly stopped, and I’m not sure if I’m just losing it, but I’m certain I just heard the doorhandle jostle. There’s an occasional creak now, in the wall, on the stairs, the floorboards, as if it’s moving around the house, trying to be quiet. Waiting for me.
+Alfie has been crying louder than he ever had before, the noise like sandpaper raking my brain. But now he’s suddenly stopped, and I’m not sure if I’m just losing it, but I’m certain I just heard the doorhandle jostle. There’s an occasional creak now, in the wall, on the stairs, the floorboards, as if it’s moving around the house, trying to be quiet. Waiting for me to come out.
 
 I’m not sure exactly sure why I’m writing this. Maybe someone could use this to see the signs I missed. Maybe I just hope at least one person in the world won’t think I’m an evil piece of shit for what I’m about to do. Maybe I’m just using this to delay the inevitable.
 
