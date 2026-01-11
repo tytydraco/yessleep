@@ -83,3 +83,5 @@ But I slept through all of it.
 Why would they come into my home just to do this to me?
 
 Does anyone have any idea what could have happened? I’m going out of my mind.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1q9qykz/i_dont_feel_safe_in_my_apartment_anymore_part_2/)
