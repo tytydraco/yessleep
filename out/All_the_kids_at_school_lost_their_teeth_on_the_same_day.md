@@ -131,11 +131,11 @@ Every teacher in the school received a paper brown bag that night.
 
 The teachers with Ring doorbells revealed someone dropping these bags off. The man had on a long black trenchcoat and sported a bowler hat. His face was covered with sunglasses and white cloth wrapping, like that old Invisible Man movie.
 
-The media dubbed him the ‘Tooth Fairy’. It wasn’t long until statewide search for this man was held.
+The media dubbed him the ‘Tooth Fairy’. It wasn’t long until a statewide search for this man was held.
 
 The district was in outcry.
 
-No abnormalities were found in the children’s bodies, but the news still spun the story that this Tooth Fairy might’ve drugged the kids, or somehow used radiation to make them lose their teeth. How he got them from the classrooms, no one knows. None of the cameras in the school caught him in the halls.
+No abnormalities were found in the children’s bodies, but the news still spun the story that this Tooth Fairy might’ve drugged the kids, or somehow used radiation to make them lose their teeth. How he got the teeth from the classrooms, no one knows. None of the cameras in the school caught him in the halls.
 
 My mom texted me, and sent me the link of me on the news.
 
@@ -183,6 +183,8 @@ I just stood there in shock, and ran out of the auditorium.
 
 I heard more screams from behind the closed doors. These weren’t pain. It was confusion. Desperation. Parents yelling out for their kids.
 
+I didn’t see what happened in there, but I quickly found out.
+
 They closed down the school after that night. 
 
 No one knew where they went. 
@@ -193,7 +195,7 @@ We didn’t know how to grieve on such a scale. Two hundred and ninety kids ran 
 
 The Tooth Fairy’s pictures and videos were spread everywhere. I saw him online every day for weeks. 
 
-People in town made up stories Possession. A mass Pagan ritual planned by the students. Some said the devil got them. The missing children’s posters were rapidly covered with the faces missing pets.
+People in town made up stories about possession. A mass Pagan ritual planned by the students. Some said the devil got them. The missing children’s posters were rapidly covered with the faces missing pets.
 
 I stayed put. My wife had such a great job in town, and I couldn’t take that away from her. 
 

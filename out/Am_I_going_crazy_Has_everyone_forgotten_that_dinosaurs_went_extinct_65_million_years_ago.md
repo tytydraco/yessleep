@@ -22,7 +22,7 @@ But the joke never came.
 
 
 
-Mr. Henderson continued. “President Skiles, S-C-A-L-E-S (make sure you spell it right on the test), was elected by a landslide in 1974. His campaign slogan, ‘Solve modern problems with prehistoric solutions,’ resonated with Americans weary of the political system.”
+Mr. Henderson continued. “President scales, S-C-A-L-E-S (make sure you spell it right on the test), was elected by a landslide in 1974. His campaign slogan, ‘Solve modern problems with prehistoric solutions,’ resonated with Americans weary of the political system.”
 
 
 
@@ -30,7 +30,7 @@ I looked around. Everyone was taking notes. Taking notes.
 
 
 
-My friend Jessica was highlighting in her textbook. There was an entire chapter about a dinosaur president. I leaned over to look; there were pictures. Several pictures. President Skiles shaking hands with Gerald Ford. President Skiles throwing the first pitch in a baseball game. President Skiles giving his inaugural address, his tiny Tyrannosaurus Rex arms barely reaching the microphone.
+My friend Jessica was highlighting in her textbook. There was an entire chapter about a dinosaur president. I leaned over to look; there were pictures. Several pictures. President scales shaking hands with Gerald Ford. President scales throwing the first pitch in a baseball game. President scales giving his inaugural address, his tiny Tyrannosaurus Rex arms barely reaching the microphone.
 
 
 
@@ -50,7 +50,7 @@ The whole class turned to look at me as if I’d asked something completely absu
 
 
 
-Mr. Henderson frowned. “I don’t understand, Connor. We’re studying the history of the Skiles era, it’s standard curriculum.”
+Mr. Henderson frowned. “I don’t understand, Connor. We’re studying the history of the scales era, it’s standard curriculum.”
 
 
 
@@ -98,7 +98,7 @@ So I went outside and completely broke down in the hallway. I pulled out my phon
 
 
 
-I typed in “President Skiles Dinosaur.”
+I typed in “President scales Dinosaur.”
 
 
 
@@ -106,7 +106,7 @@ The search results appeared.
 
 
 
-Wikipedia entry: Skiles (1920-2003) was an American politician who served as the 38th President of the United States, from 1974 to 1982. As a member of the Dinosaur Democratic Party, Skiles was the first theropod dinosaur to be elected president…
+Wikipedia entry: scales (1920-2003) was an American politician who served as the 38th President of the United States, from 1974 to 1982. As a member of the Dinosaur Democratic Party, scales was the first theropod dinosaur to be elected president…
 
 
 
@@ -114,7 +114,7 @@ There were many pictures. Really many. Some black-and-white photos, seemingly ta
 
 
 
-My hands trembled as I flipped through these materials, one entire section dedicated to the “Skiles Era.” This section recounted several key achievements of his presidency:
+My hands trembled as I flipped through these materials, one entire section dedicated to the “scales Era.” This section recounted several key achievements of his presidency:
 
 
 
@@ -122,7 +122,7 @@ The Dinosaur-Human Reconciliation Act of 1975, the establishment of the Departme
 
 
 
-I found the video, real footage of President Skiles giving a speech. His voice sounded hoarse, and he was a huge reptile. His press conferences were insane because reporters had to use specially made tall microphones to accommodate his height, and this happened several times. He accidentally knocked them over with his tail.
+I found the video, real footage of President scales giving a speech. His voice sounded hoarse, and he was a huge reptile. His press conferences were insane because reporters had to use specially made tall microphones to accommodate his height, and this happened several times. He accidentally knocked them over with his tail.
 
 
 
@@ -130,7 +130,7 @@ There's video footage of him trying to sign bills with a specially made extended
 
 
 
-Back in the classroom, I couldn't concentrate at all. Mr. Henderson was talking about the "Velociraptor Rights Movement" and the "1976 Brontosaurus Labor Dispute," and also mentioned Skiles' nomination of the first Stegosaurus to the Supreme Court.
+Back in the classroom, I couldn't concentrate at all. Mr. Henderson was talking about the "Velociraptor Rights Movement" and the "1976 Brontosaurus Labor Dispute," and also mentioned scales' nomination of the first Stegosaurus to the Supreme Court.
 
 
 
@@ -150,7 +150,7 @@ After class, he made me stay.
 
 
 
-“That’s right, because there really were dinosaur presidents in history. In fact, there were several, but Skiles was undoubtedly the most popular. The Velociraptor president took office in the late 90s, though his term was more controversial.”
+“That’s right, because there really were dinosaur presidents in history. In fact, there were several, but scales was undoubtedly the most popular. The Velociraptor president took office in the late 90s, though his term was more controversial.”
 
 
 
@@ -218,13 +218,13 @@ Thursday, things got worse.
 
 
 
-Mr. Henderson was sick. Probably because the students' denial of basic facts was putting too much pressure on him, we got a substitute teacher for history class. The substitute teacher, Mr. Garcia, continued teaching the unit on President Skiles.
+Mr. Henderson was sick. Probably because the students' denial of basic facts was putting too much pressure on him, we got a substitute teacher for history class. The substitute teacher, Mr. Garcia, continued teaching the unit on President scales.
 
 
 
-"Today we're going to see some footage from President Skiles' term," he said, pushing an old-fashioned television on a trolley. "This is a news report from 1976." "
+"Today we're going to see some footage from President scales' term," he said, pushing an old-fashioned television on a trolley. "This is a news report from 1976." "
 
-The video began to play. The picture was rough, old, but absolutely real. Or at least, as real as the fake moon landing video, only this video looked more real. Walter Cronkite sat at his desk, discussing President Skiles' approval ratings. Then the scene switched to Skiles at a press conference.
+The video began to play. The picture was rough, old, but absolutely real. Or at least, as real as the fake moon landing video, only this video looked more real. Walter Cronkite sat at his desk, discussing President scales' approval ratings. Then the scene switched to scales at a press conference.
 
 
 
@@ -232,7 +232,7 @@ What truly shocked me was how real the video looked. Really, incredibly real. Hi
 
 
 
-A reporter asked him about the economy, and Skiles replied in a deep, resonant voice: 'The American people, whether human or lizard… deserve better treatment than economic stagnation. That was the policy of the previous administration. That's why I proposed the Midlife Marshall Plan…'
+A reporter asked him about the economy, and scales replied in a deep, resonant voice: 'The American people, whether human or lizard… deserve better treatment than economic stagnation. That was the policy of the previous administration. That's why I proposed the Midlife Marshall Plan…'
 
 
 
@@ -344,7 +344,7 @@ Dad pulled into the driveway and turned off the engine. He looked at me in the r
 
 
 
-That's when I made a mistake. I took out my phone, intending to show them the "real" Wikipedia I remembered. But when I opened it, the content was exactly the same as what I'd seen before. President Skiles. Dinosaur Democrats. The Dinosaur-Human Reconciliation Act.
+That's when I made a mistake. I took out my phone, intending to show them the "real" Wikipedia I remembered. But when I opened it, the content was exactly the same as what I'd seen before. President scales. Dinosaur Democrats. The Dinosaur-Human Reconciliation Act.
 
 
 
@@ -488,7 +488,7 @@ By the seventh day, I broke down.
 
 
 
-"Okay," I said. "Okay. You were right. I was wrong. The dinosaurs survived. They evolved. President Skiles was real."
+"Okay," I said. "Okay. You were right. I was wrong. The dinosaurs survived. They evolved. President scales was real."
 
 
 
@@ -536,7 +536,7 @@ Mr. Henderson called me aside before class. 'Connor, it's good to see you back. 
 
 
 
-'Good. This week we'll finish the Skelles administration and then move on to the Reagan era. If you need any help keeping up, just let me know.'
+'Good. This week we'll finish the scales administration and then move on to the Reagan era. If you need any help keeping up, just let me know.'
 
 
 
@@ -544,11 +544,11 @@ I sat down. Jessica gave me a sympathetic smile. Brad nodded at me as if we were
 
 
 
-Mr. Henderson began his lecture. 'As we've discussed, President Skelles' economic policies, though controversial, were ultimately successful.'" "The Jurassic Jobs Program got millions of Americans, including humans and dinosaurs, back to work after the recession..."
+Mr. Henderson began his lecture. 'As we've discussed, President scales' economic policies, though controversial, were ultimately successful.'" "The Jurassic Jobs Program got millions of Americans, including humans and dinosaurs, back to work after the recession..."
 
 
 
-I took notes, highlighting key points in my textbook. I looked at photos of President Skiles at various state events, his tiny Tyrannosaurus Rex arm shaking hands with foreign dignitaries, his tail carefully positioned so as not to knock over the antique furniture in the White House.
+I took notes, highlighting key points in my textbook. I looked at photos of President scales at various state events, his tiny Tyrannosaurus Rex arm shaking hands with foreign dignitaries, his tail carefully positioned so as not to knock over the antique furniture in the White House.
 
 
 
@@ -572,11 +572,11 @@ We were having tea in her living room when she suddenly brought something up tha
 
 
 
-"Have you heard?" she asked, dipping a cookie into her tea. "The Skiles family is considering running again." I froze. "What?"
+"Have you heard?" she asked, dipping a cookie into her tea. "The scales family is considering running again." I froze. "What?"
 
 
 
-"Well, not President Skiles himself. It's his grandson, Skiles III, who will become the first third-generation politician in the presidential family. How exciting!" “Grandma?”
+"Well, not President scales himself. It's his grandson, scales III, who will become the first third-generation politician in the presidential family. How exciting!" “Grandma?”
 
 
 
@@ -628,7 +628,7 @@ I Googled "Vietnam War dinosaurs."
 
 
 
-The search results were page after page. Pentagon documents included sections on "Operation Thunder ." There were photos，blurry color photographs from the 60s and 70s of soldiers in helicopters with pterosaurs flying around them. News reports about the controversy. Veterans' testimonies of fighting alongside dinosaurs.
+The search results were page after page. Pentagon documents included sections on "Operation Thunder Lizard." There were photos，blurry color photographs from the 60s and 70s of soldiers in helicopters with pterosaurs flying around them. News reports about the controversy. Veterans' testimonies of fighting alongside dinosaurs.
 
 
 
@@ -653,3 +653,4 @@ What I want to know is:
 
 
 Does anyone remember that dinosaurs went extinct 65 million years ago?
+
