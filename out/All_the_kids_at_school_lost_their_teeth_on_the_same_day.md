@@ -189,7 +189,7 @@ No one knew where they went.
 
 We looked for months. Hell, the whole country looked.
 
-We didn’t know how to grieve on such a scale. Two hundred and ninety kids missing. 
+We didn’t know how to grieve on such a scale. Two hundred and ninety kids ran out of the auditorium, missing. 
 
 The Tooth Fairy’s pictures and videos were spread everywhere. I saw him online every day for weeks. 
 
