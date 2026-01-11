@@ -23,7 +23,7 @@ It worked—until it didn’t.
 One afternoon, I ran into a classmate named Robert outside his office. I told him Professor James had emailed me saying he wouldn’t be holding office hours.
 
 Robert frowned.  
- “That’s strange,” he said. “He specifically asked me to stop by.”
+“That’s strange,” he said. “He specifically asked me to stop by.”
 
 Before I could respond, I saw Professor James approaching. He tapped Robert on the shoulder and walked past me without a glance.
 
@@ -44,7 +44,7 @@ When I entered his office, Professor James was already watching me. He pointed t
 “I’m sorry,” I said. “I don’t know what I was thinking.”
 
 He smiled.  
- “Nothing to apologize for. I admire ambition.”
+“Nothing to apologize for. I admire ambition.”
 
 “You want my reference,” he continued. “And you know how selective it is.”
 
@@ -85,10 +85,10 @@ He slid three envelopes across the desk.
 “Once opened, participation is mandatory.”
 
 Robert laughed nervously.  
- “This is a joke, right?”
+“This is a joke, right?”
 
 Professor James smiled.  
- “No. This is your future.”
+“No. This is your future.”
 
 He handed each of us a paper.
 
@@ -106,7 +106,7 @@ The task was simple.
 
 Vandalize a property.
 
-That night, I pulled on an old Halloween mask and slipped into the quiet streets. I chose a small car wash on the edge of town. My hands shook as I sprayed one word across the wall.
+That night, I pulled on an old Halloween mask and slipped into the quiet streets. I chose a small car wash on the edge of town. My hands shook as I sprayed two words across the wall.
 
 *Mens Rea.*
 
@@ -131,35 +131,35 @@ That was when I realized the game had already been watching me.
 I headed to Professor James’ office early the next morning. He handed me the second envelope. “Excellent work. Best of luck on the next round.”
 
 As I left, I saw Robert pacing at the end of the hall.  
- “Don’t open it,” he warned. “The next round is just… fucked up.”  
- I smirked, “Trying to limit competition, huh?”  
- He shook his head, holding back tears.  
- “No. This isn’t a game. It has real consequences.”  
- I reassured him he didn’t have to participate.  
- “You don’t understand,” he shouted. “Everything I worked for is gone. The professor controls admissions completely.”
+“Don’t open it,” he warned. “The next round is just… fucked up.”  
+I smirked, “Trying to limit competition, huh?”  
+He shook his head, holding back tears.  
+“No. This isn’t a game. It has real consequences.”  
+I reassured him he didn’t have to participate.  
+“You don’t understand,” he shouted. “Everything I worked for is gone. The professor controls admissions completely.”
 
 I opened the second envelope as soon as I got home.
 
 Round Two: Silence.  
- Task: Steal Robert’s laptop and destroy all evidence of the game.
+Task: Steal Robert’s laptop and destroy all evidence of the game.
 
 I waited outside his dorm until he stepped out, frantic and pacing. I smashed a window, slipped inside, and grabbed his laptop and the envelopes. I left quickly, careful not to be seen. Before I left, I saw the same black SUV driving off. 
 
 Back home, I destroyed the laptop, burned the first envelope, and held the second in my hands. Curiosity and dread shot through me. Robert had been tasked with obstruction—planting evidence against another student to remove them from the competition.
 
 Buzz.  
- Round Two complete.
+Round Two complete.
 
 A text followed: Round Three will start in one week. 3:00 A.M. — address attached.
 
 The next day at class, Robert was missing. The woman sat in the back, hands over her face. After the lecture, Professor James announced casually:  
- “Class, one of your fellow students, Robert, is apparently missing. Let’s hope he’s just on a bender. If you have any information, refer it to the school or county police.”
+“Class, one of your fellow students, Robert, is apparently missing. Let’s hope he’s just on a bender. If you have any information, refer it to the school or county police.”
 
 My heart sank. I knew. The professor had made sure consequences were met.
 
 I caught up to the woman afterward.  
- “Hey, sorry, I never caught your name—”  
- “Please leave me alone,” she interrupted. “We shouldn’t be talking. This isn’t a game anymore. Something bad happened last night, and we both know it.”
+“Hey, sorry, I never caught your name—”  
+“Please leave me alone,” she interrupted. “We shouldn’t be talking. This isn’t a game anymore. Something bad happened last night, and we both know it.”
 
 I stopped in my tracks as she walked off into the distance.
 
@@ -192,7 +192,7 @@ A knife clattered onto the floor between us.
 The crowd leaned forward.
 
 The woman looked at me, tears streaking her face.  
- “I’m sorry,” she whispered.
+“I’m sorry,” she whispered.
 
 She lunged.
 
@@ -213,7 +213,6 @@ I graduated at the top of my class. I work in criminal law now. I win cases. Peo
 Last night, I received a text from an unknown number.
 
 Final verdict delivered.  
- Prepare your own evaluations.
+Prepare your own evaluations.
 
 I haven’t slept since.
-
