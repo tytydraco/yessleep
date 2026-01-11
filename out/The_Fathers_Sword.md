@@ -382,7 +382,7 @@ The door that was thirty feet tall.
 
 I stared in horror at the armored giant towering over me. The axe they currently held in one hand was almost as large as a city bus, and its mirrored crescent blades, each easily as tall as I was, vaguely resembled an eye that—I quickly tore my eyes away from the axe.
 
-Suddenly the giant *SLAMMED* the bottom of his axe to the floor so hard it split solid marble and shook the ground under my feet.
+Suddenly the giant *SLAMMED* the bottom of their axe to the floor so hard it split solid marble and shook the ground under my feet.
 
 ***"KNEEL."***
 
