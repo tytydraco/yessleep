@@ -1,5 +1,5 @@
-\[Find my first post [here](https://www.reddit.com/r/nosleep/comments/1q6of0a/i_think_my_roommate_is_sleepwalking_now_shes_mad/)\]  
-  
+\[Find my first post [here](https://www.reddit.com/r/nosleep/comments/1q6of0a/i_think_my_roommate_is_sleepwalking_now_shes_mad/)\]
+
 I didn’t expect my first post to get as much attention as it did. I posted it mostly to get it out of my head and maybe hear that I wasn’t overreacting. I read every comment, even the ones that sounded a little conspiracy theory-ish. I wish I’d listened more closely to the people telling me to leave.
 
 To answer the most common question: yes, I installed the lock the same day.
@@ -34,13 +34,13 @@ I didn’t answer. The chair didn’t move. The lock didn’t rattle. After a fe
 
 The next morning, Jenna was furious.
 
-She accused me of “changing things without talking to her” and said the lock made her feel unsafe in her own home. She asked me why I was acting like she was dangerous. When I reminded her of what happened the night before, she went pale and said I was doing it again, that I was "putting things in her head," and "making her question herself." 
+She accused me of “changing things without talking to her” and said the lock made her feel unsafe in her own home. She asked me why I was acting like she was dangerous. When I reminded her of what happened the night before, she went pale and said I was doing it again, that I was "putting things in her head," and "making her question herself."
 
-Maybe some of you are right and she is the one gaslighting me. 
+Maybe some of you are right and she is the one gaslighting me.
 
 She asked me if I was sleeping at all.
 
-That question stuck with me. I don't know anymore. 
+That question stuck with me. I don't know anymore.
 
 Since then, things have escalated in smaller, stranger ways. Jenna has started waking up exhausted, with bruises she can’t explain. Doors are sometimes open in the morning that I know I closed. This morning I woke up to find my bedroom light on even though I always turn it off.
 
@@ -51,3 +51,5 @@ I’m looking for a new place. I really am. But every time I try to imagine leav
 Tonight, I’m keeping the lock. And the chair. And the bin.
 
 I don’t think she likes that.
+
+\[Find my final update [here](https://www.reddit.com/r/nosleep/comments/1qb3vki/final_update_i_dont_think_the_door_was_the_problem/)\]
