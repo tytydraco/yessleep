@@ -18,11 +18,11 @@ I was looking for a flashlight in the basement this morning when I saw a corner 
 
 I’m going to transcribe the entries that broke me.
 
->
+***August 14th*** *The brakes screamed. That’s the last thing I heard before the oak tree split the car in half. I watched Marcus’s head hit the dashboard—it sounded like a ripe melon dropping on concrete. My own legs were… somewhere else. I felt the cold coming for us. But then He appeared. The Man in the Grey Suit. He stood in the wreckage and whispered that a family shouldn't be torn apart. He gave us the Soil. He said as long as we keep the 'vessels' full of fresh life, we can stay. It tastes like old pennies and bile, but I can hold Marcus’s hand again. Even if his hand is a little loose at the wrist.* 
 
->
+***September 20th*** *Marcus’s skin is starting to slip. I had to use the industrial staple gun on his lower back today to keep the 'suit' from sagging. He laughed, but a puff of grey dust came out of his mouth. We need more than just squirrels and crows now. The Man says we need 'vitality.' We’re waiting for Leo. Our sweet Leo. He’s coming home on Friday. He’ll be the anchor. We just need to make sure he stays.* 
 
->
+***October 31st*** *Leo noticed the smell. I told him it was the compost, but it was really the neighbor’s Golden Retriever, Goldie, rotting in the crawlspace. We couldn't use all of her at once. The marrow keeps our eyes clear. Marcus says he misses the feeling of a heartbeat. I told him to be patient. Once Leo joins us, we won't have to pretend to breathe anymore. It’s so exhausting, the pretending.* 
 
 After reading that, I ran upstairs, my head spinning. I burst into the kitchen. Mom was standing at the counter, "preparing" dinner.
 
