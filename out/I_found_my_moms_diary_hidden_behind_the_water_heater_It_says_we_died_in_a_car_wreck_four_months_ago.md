@@ -58,7 +58,7 @@ I remembered the car ride. August 14th. I was in the backseat. I remember the tr
 
 I looked at my own throat in the mirror. There was a thin, jagged line running all the way around my neck. I picked at it with a trembling finger.
 
-The skin didn't hurt. It just**...**unzipped.
+The skin didn't hurt. It just\*\*...\*\*unzipped.
 
 Inside the wound, there wasn't a windpipe or veins. There was only a thick, black twine, neatly stitching my head to my shoulders. And there, packed into the gap, was the same dark, graveyard soil.
 
@@ -71,3 +71,13 @@ The scratching has stopped.
 I’m looking at the window. It’s a long drop. But if I jump, will I even break? Or will I just burst apart like a dropped bag of groceries?
 
 **I dont know what to do What do I do? Do I jump? Or do I let her sew me back together?**
+
+# Update:
+
+I’m losing my mind. Mom just slid a six-inch upholstery needle under the door. It’s dripping with that black, oily sludge, and she’s whispering through the wood about how "loose" my neck looks. She says she just needs to "tack me down" so I don't wander off.
+
+The sound from the hallway has changed. Dad isn’t using his hands to knock anymore—it sounds like he’s just swinging his head against the door. Every time he hits it, I hear a wet, squelching sound, like a bag of mud hitting a wall.
+
+I’m standing on the toilet now, reaching for the window latch. My hands are grey, and when I move my wrist, I can hear the dirt shifting inside like a sandbox. I’m going to jump. It’s a twelve-foot drop to the driveway. If I hit the pavement and I don't break... or if I don't bleed... I guess I'll have my answer.
+
+If my phone survives the fall, I'll update you.
