@@ -104,13 +104,13 @@ I followed an old game trail through the trees and realized I was closer to the 
 
 Chalk.
 
-Drawn into the hopscotch squares. His face. His fucking face… The kids were hopping back and forth on it, chanting Naidne’s rhyme.
+Drawn into the hopscotch squares. His face. His fucking face… The kids were hopping back and forth on it, chanting Nadine’s rhyme.
 
 “Staring at kids like that might get you in trouble.”
 
 The voice came from behind me. A woman - early thirties, warm eyes, cardigan over a frayed dress. “Holly Rogan” she said. “I’m the teacher here.” I introduced myself. Flashed the badge. She didn’t bother to look at it. Of course she knew who I was. The whole town probably did by now.
 
-I gestured to the hopscotch. “I don’t remember me and friends growing up playing tag around a chalk drawing of Wayne Williams”
+I gestured to the hopscotch. “I don’t remember me and my friends growing up playing tag around a chalk drawing of Wayne Williams”
 
 She looked at the kids, smiling. “Would you rather they sit at home, scared?” she said. “They’re kids. Didn’t you play Bloody Mary as a kid?”
 
