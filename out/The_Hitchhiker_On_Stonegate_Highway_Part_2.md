@@ -53,3 +53,5 @@ Then I was struck from behind.
 **A sharp blow to the head.**
 
 I remained conscious while my body fainted.
+
+[Part 3](https://www.reddit.com/r/nosleep/s/Bynw8HyWJm)
