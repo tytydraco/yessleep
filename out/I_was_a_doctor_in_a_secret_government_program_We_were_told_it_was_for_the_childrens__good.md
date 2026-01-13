@@ -4,7 +4,7 @@ They will say these are the delusions of an old man. They always do. But if I wa
 
 I barely understand how the internet works. My grandson showed me this place a few months ago. He said it was the best place to leave something behind. I hope he was right.
 
-When I was selected to join **Project Young Homeland Initiative**, I couldn’t contain my excitement.
+When I was selected to join **Project Young Homeland**, I couldn’t contain my excitement.
 
 For a medical resident like me, being invited into something so secretive was beyond anything I could have imagined. It wasn’t open to the public. It wasn’t even acknowledged to exist. That secrecy made me feel important. It also kept me blind to the horror I had stepped into.
 
