@@ -81,7 +81,7 @@ Things changed after the **March of the Family with God for Liberty**.
 
 We all knew the president Goulart was about to be overthrown. The project had started before the coup, so it felt normal to us.
 
-But there was nothing of God about what we really did. Even less freedom.
+But there was nothing Godly about what we really did. Even less freedom.
 
 During the week of March 13, a new group of children arrived.
 
@@ -91,7 +91,7 @@ We were instructed to mix a new compound into their morning milk and observe if 
 
 To this day, I don’t know what that compound was.
 
-The children said the milk now tasted like chalk.
+The children said the milk tasted like chalk.
 
 The following week, **Subject 147-A** was brought into my office.
 
@@ -112,7 +112,7 @@ That night, they placed him in an observation room separated from the others and
 By then, this wasn’t the first time something felt wrong. 
 He wasn't the first to complain of a toothache. 
 
-None of us were comfortable anymore. By that time were less doctors and more like... morticians. But we weren’t allowed to leave.
+None of us were comfortable anymore. By that time we were less doctors and more like... morticians. But we weren’t allowed to leave.
 
 Subject 147-A was when I realized something was truly broken. 
 
