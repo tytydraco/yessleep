@@ -89,3 +89,5 @@ I saw one comment on my previous post suggesting this might not be a someone, bu
 I don’t know how you explain something like this to building management. I don’t know how you investigate it.
 
 All I know is that I’m terrified to leave the apartment, but I don’t even feel safe staying here.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1qbhaoc/i_dont_feel_safe_in_my_apartment_anymore_part_3/)
