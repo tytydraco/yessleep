@@ -1,22 +1,24 @@
 Henry and I were born six weeks early. 
 
-Mom says we came out looking like a pair of grapes. Our lips and skin were dyed a dull bluish-purple, and she could almost fit both of us in the palm of her hand. That’s an outrageously gentle way of describing two suffocating babies, but I guess that’s Mom for you. 
+Mom says we came out looking like a pair of grapes. Our lips and skin were dyed a dull bluish-purple, and she could almost fit both of us in the palm of her hand. It's an outrageously gentle way of describing two premature babies in the process of suffocating, but I guess that’s Mom for you. 
 
-Put more bluntly, Henry and I were born on death's door. 
+Put more bluntly, Henry and I were born on death's door.
 
 We couldn’t breathe, not on our own, not with the equipment that God loaned us. Machines were tasked with breathing for us in the neonatal ICU. Tubes as thin as coffee straws pumped microscopic gulps of fresh air down our throats, offloading our immature lungs, giving them space to rest and develop. For a little while, it seemed like the worst was over. Seemed like we both would live. Seemed like we’d both be normal.    
 
 Then, I bled into my brain. 
 
-The vessels were too young, too fragile. One of them snapped. Blood pooled quickly, crushed whole sections of my brain against the inside of my skull before they could release the pressure. The surgeons told Mom I had a fifty percent chance of survival, but I’d almost certainly be damaged goods if I did survive. 
+The vessels were too young, too fragile. One of them snapped. Blood pooled quickly, crushing whole sections of my brain against the inside of my skull. The surgeons told Mom I had a fifty percent chance of survival, but I’d almost certainly be damaged goods if I did pull through. 
 
-When tempers flare, Henry likes to speculate on whether Dad would have stuck around if I *hadn’t* survived. Maybe he wouldn’t have gotten so overwhelmed. Perhaps he could have tolerated the burden of a single, normal kid. Forces me to remind him that Dad bolted for the border the day we were born, a full week before my brain bled. He sprinted from the delivery room at the mere sight of us - his grape-skinned, breathless, keychain babies.
+When our tempers flare, Henry likes to speculate.
 
-Cerebral palsy and deafness aren’t the worst cards to hold. 
+He thinks that if I *hadn't* survived, Dad may have decided to stick around. Maybe he wouldn’t have gotten so overwhelmed. Perhaps he could have stomached the burden of a single, normal kid. Forces me to remind him that Dad bolted for the border the day we were born, a full week before my brain bled. He sprinted from the delivery room at the mere sight of us - his grape-skinned, breathless, keychain babies.
+
+That said, cerebral palsy and deafness aren’t the worst cards I could've been dealt.
 
 So what if my ears don’t work? So what if my muscles aren’t perfect? It is what it is. If we’re to blame for Dad’s abandonment, then so be it, but I won’t shoulder the blame alone. I mean, that’s what twins do, right? We split the world down the middle and share it equally, including the shitty parts? *Especially* the shitty parts?
 
-Anyway. 
+Anyway...
 
 Last week, for the first time in fifteen years, I heard something.
 
@@ -54,7 +56,7 @@ And what did *this* noise feel like, this thrumming below my temples?
 
 Well, I was rummaging through the attic last year, digging through winter clothes, hunting for a lost sweater. When I finally found it and held it up, something shifted near the collar. A massive, black cockroach leapt out from the inside of that sweater. It landed on my cheek and skittered down the side of my neck before falling to floor and disappearing into the shadows. 
 
-Chaotic. 
+Chaotic.
 
 Impulsive.
 
@@ -66,7 +68,7 @@ Unpredictable, restless, and willing to eat anything, exactly like a cockroach.�
 
 ***10 hours before they arrived:***
 
-Henry shoved a forkful of roast beef into his mouth before he started complaining to Mom. Talking and chewing at the same time made it difficult for me to read his lips: it was all too sloppy. Henry loved pretending like he'd forgotten that fact. 
+Henry shoved a forkful of roast beef into his mouth before he started complaining to Mom. Talking and chewing at the same time made it difficult for me to read his lips: it was all too sloppy. Henry loved pretending like he'd forgotten that fact.
 
 I didn’t catch everything he said. 
 
@@ -116,13 +118,13 @@ When I looked back at my plate, I realized Grandpa wasn’t eating. He was stari
 
 “Dirty little - - - squishing around - - - tangled, tangled - - - disgusting, tiny, tangled strings” 
 
-I did catch one phrase for certain. It was the last thing he muttered before becoming silent. 
+I did catch one phrase for certain. It was the last thing he muttered before becoming silent.
 
 “I see you.” 
 
 \- - - - -
 
-***30 seconds before they arrived****:*
+***30 seconds before they arrived***\*:\*
 
 As we drove through town, the cryptic pressure in my head burst unexpectedly. Reminded me of popping an inflamed zit. There was a blip of pain, yes, but it was followed by rush of blissful relief. 
 
@@ -164,7 +166,7 @@ My breathing became ragged. A deluge of adrenaline flooded through my veins. 
 
 The pressure hadn't left me.
 
-Suddenly, it was coming back, and it was coming back different. 
+Suddenly, it was coming back, and it was coming back different.
 
 When Henry and I were young, before he was fed up with my existence, before he saw me as this loathsome, pitiable burden, we loved the arcade. It was a place where we were equal, despite my brokenness. Every afternoon, we would scour the house for quarters, hoping against hope we would find a cache of loose change between some couch cushions or in a pair of Grandpa’s pants. If we were successful, we’d celebrate by shaking handfuls of coins as if our closed fists were macarenas. 
 
@@ -172,7 +174,7 @@ The pressure was like *that*. 
 
 Rapid, rhythmic clinking. 
 
-And, God, it was pressing in on me from every direction. 
+And, God, it was pressing in on me from every direction.
 
 Grandpa leapt from the passenger’s seat and onto the sidewalk. He twisted around in manic circles, batting at the empty air around his legs, saliva dripping down the corner of his mouth, repeating the same word so violently that even I could tell what he was saying. 
 
@@ -182,7 +184,7 @@ Grandpa leapt from the passenger’s seat and onto the sidewalk. He twisted arou
 
 **“WORMS.”**
 
-Henry dug his nails into my flesh. 
+Henry dug his nails into my flesh.
 
 Mom dropped the phone from her ear. She stood by the bumper, dumbstruck, panic setting in thick. Her head kept darting between the car and Grandpa. I didn’t understand. I pointed wildly towards Grandpa, desperate to focus her attention. In his frenzy, he was getting closer and closer to the end of the one-way. He was going to spill out onto the busy road, and then, who knows? The man was basically blind without his glasses. 
 
@@ -216,9 +218,9 @@ The world was silent once more. 
 
 I gripped the edge of the broken window and threw my head out. Glass dug into my palms, but I barely felt any pain. 
 
-I needed to see that Mom was OK. 
+I needed to see that Mom was OK.
 
-Relief surged out of in a single, shaky breath. 
+Relief surged out of in a single, shaky breath.
 
 She was kneeling on the narrow sidewalk, stunned, trembling, but intact. What was left of the man lay in front of her. 
 
@@ -226,11 +228,11 @@ He wasn’t dead. Dead isn’t the right word. 
 
 The man shattered like a ceramic pot. 
 
-The collision had tossed him into the brick wall of the nearby building, and the impact had broken him into two large pieces - one from the chest-up, the other from the waist-down. Dozens of other, smaller pieces were scattered around him: thin, rattling shards of dry human pottery. 
+The collision had tossed him into the brick wall of the nearby building, and the impact had broken him into two large pieces - one from the chest-up, the other from the waist-down. Dozens of other, smaller pieces were scattered around him: thin, rattling shards of dry human pottery.
 
 He was empty on the inside. No guts, no blood, no heart: nothing at all. 
 
-The worms had hollowed him out. 
+The worms had hollowed him out.
 
 Mom turned, looked me in the eyes, and shot me a weak, world-weary smile. Somehow, she knew. If she stayed still, she could buy us time. She could make damn sure we got away. 
 
@@ -244,7 +246,7 @@ I pushed him back. 
 
 The clinking was upon her. She screamed, I think. Her mouth grew wide, her jaw became slack. They were infiltrating her. Hollowing her body until there was nothing left. 
 
-Enough of her lingered to sign six final words. 
+Enough of her lingered to sign six final words.
 
 *Take care of your brother, Felix.* 
 
@@ -258,7 +260,7 @@ Retract. **Clink.** 
 
 For maybe the first time in our lives, Henry followed my lead. 
 
-I shoved him out of the far door. 
+I shoved him out of the far door.
 
 He put his arm around me, and we left.
 
@@ -270,11 +272,15 @@ or hollowed out and somehow still alive. 
 
 \- - - - -
 
-For now, it seems like we're safe. 
+For now, it seems like we're safe.
 
 I was able to guide us out of town, avoiding the worms like landmines. They seem to cluster together and wait for victims, hiding in plain sight, but the only time they stop moving appears to be right before they leave or enter a host. Otherwise, they're always moving, which means I can hear them.
 
-We passed by hundreds of tire-sized holes in the ground. I threw a quarter down one of them. Henry said he never heard it hit the bottom. 
+Everyone’s gone. The entire town is empty.
+
+We passed by hundreds of tire-sized holes in the ground. I threw a quarter down one of them. Henry said he never heard it hit the bottom.
+
+I think the hollowed-outs slid down those holes. Don’t know where else they would’ve gone.
 
 I don’t know why they’ve awakened from their dormancy deep within the earth, but I suppose it doesn’t matter. They’re here now. 
 
@@ -284,7 +290,7 @@ Only the blind can see them.
 
 Only the deaf can hear them. 
 
-Nests of them writhed across my town's streets, through layers of salt deposited for a snowstorm that never came. They clinked up a storm - twisting and squirming and tangling in on themselves - but the salt never shifted. Indirect detection doesn't seem like a viable strategy. 
+Nests of them writhed across my town's streets, through layers of salt deposited for a snowstorm that never came. They clinked up a storm - twisting and squirming and tangling in on themselves - but the salt never shifted. Indirect detection doesn't seem like a viable strategy.
 
 Want my advice? 
 
