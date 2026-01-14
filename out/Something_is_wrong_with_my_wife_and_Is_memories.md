@@ -1,6 +1,6 @@
 ***
 
-I live up near the Berkshires in Massachusetts with my wife, whom I've been married to for 4 years. We met in college, freshman year, and have been through all the highs and lows, as expected in growing relationships. During the first year of our relationship, we were practically aimless and constantly bickered, making up things to be upset about. The main reason for this is because this was the first time either of us had been in a serious relationship. At first, we struggled to find common ground during arguments but we've learned how to communicate since then. We've been very patient with each other in every possible scenario we come across and I have always tried to be there for her during our rough patches. With all of that said, let me explain why I've come on  here to share the events of the past few nights or so.
+I live up near the Berkshires in Massachusetts with my wife, whom I've been married to for 4 years. We met in college, freshman year, and have been through all the highs and lows, as expected in growing relationships. During the first year of our relationship, we were practically aimless and constantly bickered, making up things to be upset about. The main reason for this is because this was the first time either of us had been in a serious relationship. At first, we struggled to find common ground during arguments but we've learned how to communicate since then. We've been very patient with each other in every possible scenario we come across and I have always tried to be there for her during our rough patches. Which is why I've come on  here to share the events of the past few nights or so.
 
 For context, my wife loves to mess with me and tease me, which is usually lighthearted and funny for the both of us. However, recently something's been happening that goes beyond her usual antics.
 
@@ -52,7 +52,7 @@ This can’t be a symptom of Hypnopompic Hallucinations because I had been awake
 
 ***
 
-Needless to say, we’re tucked away in the New England. When you’re experiencing something like this in say a city or a densely populated town, you could maybe chalk it up to someone getting inside your house and fucking with you then calling the police to inform them there’s an intruder in your home. That’s not the case here. I’m great friends with all my neighbors and I know for a fact none of them would do something as deranged as this. I don’t even think they could do something like this at all, such as sneaking into my office and grabbing my phone without alerting me. Nothing else happened for the rest of the day, but while I was searching online I had music playing along with the TV on to help myself from freaking out.
+Needless to say, we’re tucked away in New England. When you’re experiencing something like this in say a city or a densely populated town, you could maybe chalk it up to someone getting inside your house and fucking with you then calling the police to inform them there’s an intruder in your home. That’s not the case here. I’m great friends with all my neighbors and I know for a fact none of them would do something as deranged as this. I don’t even think they could do something like this at all, such as sneaking into my office and grabbing my phone without alerting me. Nothing else happened for the rest of the day, but while I was searching online I had music playing along with the TV on to help myself from freaking out.
 
 After Jaslyn got home, the house blaring with noise and seeing me crashed out  on the couch finally asleep, she barged inside with a kind of anger to the likes I’ve never seen from her before, waking me up. She said,
 
@@ -85,3 +85,6 @@ So now I’m writing this to ask for some sort of advice on what to do. I’m re
 ***
 
 Also, I called the HVAC company in my area to check for mold and carbon monoxide. I'll let you know if they find anything.
+
+***
+edit: noticed I used the wrong grammar in the title, update will have this corrected.
