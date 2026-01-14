@@ -84,13 +84,11 @@ Shame writhed like a serpent stuck in my gut. I looked to Grandpa. He was scoopi
 
 “Your glasses?” Grandpa furrowed his brow. Then, there was a burst of recognition, a *Eureka!* moment. I could practically see the dusty light bulb flicker dimly above his head. 
 
-“Oh! Right, right, right...” A pair of thick glasses rested on his sternum, hanging from his neck via a gold chain that connected to each arm. Mom made sure he was always wearing the necklace, but he would often take off the glasses and forget they were there.
-
-He patted his shirt until his hand stumbled upon the glasses, then slid them on. His face broke into a warm, genuine smile, finally able to see us.
+“Oh! Right, right, right...” A pair of thick glasses rested on his sternum, hanging from his neck via a gold chain. Mom made sure he was always wearing the necklace, but he would often take off the glasses and forget they were there anyway. He patted his shirt until his hand stumbled upon the glasses, then slid them on. His face broke into a warm, genuine smile, finally able to see us.
 
 *How was your day, Grandpa?* \- I signed. 
 
-*Pretty good! Another beautiful afternoon to be delivering mail. Just between us, I think Miss. Hudson has the hots for me - don’t tattle to her husband, though, alright?* 
+*Pretty good! Another beautiful afternoon to be delivering mail. Just between us, I think Miss. Hudson has the hots for me - don’t tattle to her husband, though, alright?* - he signed back. 
 
 He blew imaginary smoke from a pair of finger guns and winked at me. I forced a grin and nodded. Henry's face contorted into a scowl, gaze fixed on his mashed potatoes, stirring them harshly. 
 
@@ -104,11 +102,11 @@ All day, the pressure had been sharpening, accelerating, intensifying. I looked 
 
 Try as I might, I couldn’t buy my own story, and Mom could smell the panic burning beneath my skin.
 
-*Are you okay? How’s your head?* 
+*Are you okay? How’s your head?*  \- she signed. 
 
 I pointed a half-hearted thumbs-up in her direction. How could burden her with the truth?
 
-Hadn't she suffered enough already?
+Hadn't she suffered enough at the hands of my dysfunction for one lifetime? 
 
 *See? He’s fine. He’s strong. Quit worrying.* \- Henry signed. 
 
@@ -140,7 +138,7 @@ Mom told me he was feeling under the weather. He didn’t look sick, though. He 
 
 And he was still muttering nonsense under his breath.
 
-Our beat-up sedan lurched to a clunky stop at a red light. I racked my brain, coming with ways I could support Henry. 
+Our beat-up sedan lurched to a clunky stop at a red light. I racked my brain, coming up with ways I could support Henry. 
 
 I could make sure he stays hydrated? 
 
@@ -154,7 +152,7 @@ Old coffee cups flew from their cupholders, drenching the dashboard in stagnant 
 
 We’d stopped at the end of a narrow, one-way street hemmed in by two monolithic brick buildings. The right bumper was tilted down, and the tire was stuck. 
 
-Mom turned and signed: *STAY.* She stepped out to check the damage. My body trembled, nearly convulsing from the shock.
+Mom turned and signed: *STAY.* She stepped out to check the damage. My body trembled, nearly convulsing from the surprise of it all.
 
 Henry grabbed my hand. 
 
@@ -168,7 +166,7 @@ The pressure hadn't left me.
 
 Suddenly, it was coming back, and it was coming back different.
 
-When Henry and I were young, before he was fed up with my existence, before he saw me as this loathsome, pitiable burden, we loved the arcade. It was a place where we were equal, despite my brokenness. Every afternoon, we would scour the house for quarters, hoping against hope we would find a cache of loose change between some couch cushions or in a pair of Grandpa’s pants. If we were successful, we’d celebrate by shaking handfuls of coins as if our closed fists were macarenas. 
+When Henry and I were young, before he was fed up with my existence, before he saw me as this loathsome, pitiable burden, we loved the arcade. It was a place where we were equal, despite my brokenness. Every afternoon, we would scour the house for quarters, hoping against hope we would find a cache of loose change between some couch cushions or in a pair of Grandpa’s pants. If we were successful, we’d celebrate by shaking handfuls of coins in the air, making our closed fists rattle like macarenas. 
 
 The pressure was like *that*. 
 
@@ -220,7 +218,7 @@ I gripped the edge of the broken window and threw my head out. Glass dug into my
 
 I needed to see that Mom was OK.
 
-Relief surged out of in a single, shaky breath.
+Relief surged out of me in a single, shaky breath.
 
 She was kneeling on the narrow sidewalk, stunned, trembling, but intact. What was left of the man lay in front of her. 
 
@@ -278,9 +276,7 @@ I was able to guide us out of town, avoiding the worms like landmines. They seem
 
 Everyone’s gone. The entire town is empty.
 
-We passed by hundreds of tire-sized holes in the ground. I threw a quarter down one of them. Henry said he never heard it hit the bottom.
-
-I think the hollowed-outs slid down those holes. Don’t know where else they would’ve gone.
+We passed by hundreds of tire-sized holes in the ground. I threw a quarter down one of them. Henry said he never heard it hit the bottom. I think the hollowed-outs slid down those holes. Don’t know where else they would’ve gone.
 
 I don’t know why they’ve awakened from their dormancy deep within the earth, but I suppose it doesn’t matter. They’re here now. 
 
@@ -290,7 +286,7 @@ Only the blind can see them.
 
 Only the deaf can hear them. 
 
-Nests of them writhed across my town's streets, through layers of salt deposited for a snowstorm that never came. They clinked up a storm - twisting and squirming and tangling in on themselves - but the salt never shifted. Indirect detection doesn't seem like a viable strategy.
+Nests of them writhed across my town's streets, through layers of salt deposited for a snowfall that never came. They clinked up a storm - twisting and squirming and tangling in on themselves - but the salt never shifted. Indirect detection doesn't seem like a viable strategy.
 
 Want my advice? 
 
