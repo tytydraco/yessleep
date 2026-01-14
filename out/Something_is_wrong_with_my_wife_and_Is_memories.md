@@ -4,7 +4,7 @@ I live up near the Berkshires in Massachusetts with my wife, whom I've been marr
 
 For context, my wife loves to mess with me and tease me, which is usually lighthearted and funny for the both of us. However, recently something's been happening that goes beyond her usual antics.
 
-Last night, Jaslyn, my wife, sat up facing the bedroom window in our two story house at around 3:30 in the morning. I'm a very deep sleeper and tend to wake up halfway whenever my wife gets in or out of bed. This also means that until Jaslyn returns back to bed and to her very tired husband, I can't fall back asleep (she does not know this).
+Last night, Jaslyn, my wife, sat up facing the bedroom window in our two story house at around 3:30 in the morning. I'm a very deep sleeper but tend to wake up halfway whenever my wife gets in or out of bed. This also means that until Jaslyn returns back to bed and to her very tired husband, I can't fall back asleep (she does not know this).
 
 Sometimes, Jaslyn will get up to use the bathroom after a dinner that most definitely did not sit well with her, during these kinds of events I  just lay there waiting for her to finish up, burning the midnight oil. When Jaslyn arose, she sat up, stiff as a board, and walked out into the hallway.
 
