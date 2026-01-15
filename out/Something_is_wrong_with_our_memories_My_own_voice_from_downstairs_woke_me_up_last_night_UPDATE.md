@@ -40,7 +40,7 @@ So as I put one foot onto the spots that I prayed to God hadn't developed their 
 
 *nnk...*
 
-Like the sound of adjusting in a leather office chair. That feeling I had whenever this would happen to me as a kid, and the tension and feeling of doom when wondering if my mom had heard me and was about to yell down to ground me, was amplified by 1000. About 15 seconds passed after this nearly unnoticeable sound was conceived when the *thing* made another petrifying mimicry.
+Like the sound of adjusting in a leather office chair. That feeling I had whenever this would happen to me as a kid, the tension of impending doom when wondering if my mom had heard me and was about to yell down to ground me, was amplified by 1000. About 15 seconds passed after this nearly unnoticeable sound was conceived when the *thing* made another petrifying mimicry.
 
 It whispered,
 
@@ -52,7 +52,7 @@ It went silent. I was in an almost mannequin-like position, the ball of my foot 
 
 *If I'm going to die, I at least want to see what killed me.*
 
-So I planted my other foot on the stair, somehow not causing another creak, and peered over the small opening in my stairwell's hall that gives a full view of the living room. It wasn't a full moon, so other than the small, variously colored power indicators emanating from our electronics, I couldn't see much until my eyes adjusted. When they did, I saw the shape of a man, maybe a woman.
+So I planted my other foot on the stair, somehow not causing another creak, and peered over the small opening in my stairwell's hall that gives a full view of the living room. It wasn't a full moon, so other than the small, variously colored power indicators emanating from our electronics, I couldn't see much until my eyes adjusted. When they did, I saw the shape of a man, maybe a woman, standing in the middle of our living room.
 
 Remember when I said that the voices sounded *kind of* like my wife? Well, imagine your father, your mother, friends, or any faces you've seen in your life that your brain has a sort of "snapshot" of. Thing is, the snapshot of those faces isn't 100% accurate; it's your brain using memories to build a face in your mind, but it's never completely perfect. That's the best way to describe what I saw. Its face was everyone I knew, at once, faces I had in my memory, crudely put together to try and form a good depiction. It was almost like those creepy police sketches. Its body looked disproportionate in every area, yet solid, almost as if they had been assembled from memory rather than intentional anatomy. The sensation I felt is one I can't even begin to describe, and my brain couldn't begin to process seeing more than one face on someone. I just stared at it, and it stared at me. I was terrified but also perplexed.
 
@@ -64,9 +64,9 @@ In my Mother's voice. Only, it sounded like it was over a phone speaker. My mom 
 
 Its or their mouths didn't move when speaking, when it uttered,
 
-*"Be grateful for your gir...l...girlfriend. You're lucky to have him—You make me so happy, Jaslyn."*
+*"Be grateful for your gir...l...girlfriend. You're lucky to have her—You make me so happy, Jaslyn."*
 
-In the voice of my fucking psychology teacher, Mr. Wenzel. Then it shifted to *my* voice. I recognized that phrase from my old professor when I was coming to him to ask him how to be less anxious about Jaslyn when we first started dating. The second phrase, my phrase, was something I say to my wife frequently to show appreciation for the love she's given me these past 9 years.
+First, in the voice of my fucking psychology teacher, Mr. Wenzel. Then it shifted to *my* voice. I recognized that phrase from my old professor when I was coming to him to ask him how to be less anxious about Jaslyn when we first started dating. The second phrase, my phrase, was something I say to my wife frequently to show appreciation for the love she's given me these past 9 years.
 
 *"Staying up this late every night is eventually gonna kill you, Reid."* Voice of my dad.
 
