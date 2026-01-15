@@ -36,9 +36,9 @@ He just stared. Then chuckled like I was messing with him. “Friday? Is that li
 
 Shocking.
 
-I tried Hillary next. Same thing.
+I tried Brianna next. Same thing.
 
-Robert, the developer guy. Supriya. My boss. The barista in the Main Street café (we call the lobby floor area Main Strete for some reason).
+Ryan, the developer guy. Priya. My boss. The barista in the Main Street café (we call the lobby floor area Main Strete for some reason).
 
 None of them knew what Friday was. None of them knew Saturday. None of them knew Sunday.
 
