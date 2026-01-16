@@ -130,7 +130,7 @@ With the lantern safely on the ground, I put my hands on my knees and panted wit
 
 I could tell almost exactly where he had spoken from.
 
-Without hesitation, I snatched the lantern from the floor and sprinted. My lungs hadn't recovered, but I needed to get him. There was no choice but to play his game, and I was going to win.
+Without hesitation, I snatched the lantern from the floor and sprinted. My lungs hadn't recovered, but I needed to get him. If there was no choice but to play his game, I was going to win.
 
 When I turned into his tunnel, I thought I saw him at the edge of my light, but he had disappeared around another corner far away. The lantern's beam was noticeably dimmer than it had been before.
 

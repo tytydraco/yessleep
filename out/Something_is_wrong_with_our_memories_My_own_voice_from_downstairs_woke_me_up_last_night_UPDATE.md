@@ -108,7 +108,7 @@ I looked over and saw that my wife was on her iPad, our Roku streaming season 4 
 
 ***
 
-After about 30 minutes of trying to manage, giving a garbled recollection of what just happened in the stairwell, I finally calmed my nerves and explained in detail. I think it goes without saying that my wife was horrified by my recount.
+After about 30 minutes of trying to give a garbled recollection of what just happened in the stairwell, I finally calmed my nerves and explained in detail. I think it goes without saying that my wife was horrified by my recount.
 
 "Well. The way it looked to me, you had your arm around me while we were watching TV and you said you were 'going to use the bathroom real quick.'"
 
@@ -168,7 +168,7 @@ The technician awkwardly cleared his throat and said, "Well! I suppose you're fi
 
 ***
 
-On my drive to work, I kept going over it in my head. Maybe it was just a symptom, but that doesn't make sense because my phone number disappeared from his logs entirely, the same way, and he hadn't ever stepped foot in my house until today, eliminating the possibility he was somehow hallucinating as well. He also said I called him last night, way before he came in contact with the house. I kept trying to reason that he was just drunk and that maybe he *thought* I called him. I thought that maybe this would pass after the cause of our issues was removed from our home, and my life would go back to normal. After my morning lecture, while I was in my office, the HVAC technician called my cell during my student visit office hours, and after jokingly telling me I did a really shit job of remodeling since it just looked like an average dank basement with pink fiberglass. I replied,
+On my drive to work, I kept going over it in my head. Maybe it was just a symptom, but that doesn't make sense because my phone number disappeared from his logs entirely and he hadn't ever stepped foot in my house until today, eliminating the possibility he was somehow hallucinating as well. He also said I called him last night, way before he came in contact with the house. I kept trying to reason that he was just drunk and that maybe he *thought* I called him. I thought that maybe this would pass after the cause of our issues was removed from our home, and my life would go back to normal. After my morning lecture, while I was in my office, the HVAC technician called my cell during my student visit office hours, and after jokingly telling me I did a really shit job of remodeling since it just looked like an average dank basement with pink fiberglass. I replied,
 
 "Yeah, haha, whatever. Why are you calling? Did you find something?"
 
