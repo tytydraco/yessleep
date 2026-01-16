@@ -28,7 +28,7 @@ I texted her. *I swear I bought baby cukes last night, but they’re already gon
 
 *I did. But I’ve got to get back to work now, so I guess I’ll just buy some more later. Then maybe I’ll phone the GP because I feel like I’ve lost my bloody mind.*
 
-I was incredibly flustered when I returned to the shop to buy a third bag of baby cucumbers (*or the first bag*, I considered; see, I did momentarily worry that I might be developing early-onset dementia like my late mother, as she imagined she’d done things when she hadn’t).
+I was incredibly flustered when I returned to the shop to buy a third bag of baby cucumbers (*or the first bag*, I considered; see, I did momentarily worry that I might be developing early-onset dementia like my late grandmother, as she imagined she’d done things when she hadn’t).
 
 I came home, put Bag Number 3 next to the tub of margarine in the fridge, and stood there for a moment. I took a mental snapshot, storing that image for the memory bank. I let the neural film develop. The photo was in my noggin. Clear as day. There was no denying it: a bag of baby cucumbers was sitting in the fridge.
 
