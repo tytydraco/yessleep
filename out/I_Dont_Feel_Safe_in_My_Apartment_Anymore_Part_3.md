@@ -131,3 +131,5 @@ Every time my thoughts soften, every time my focus slips, even for a moment, I f
 Because whatever this is…
 
 …it doesn’t need me to be asleep anymore.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1qe1uhw/i_dont_feel_safe_in_my_apartment_anymore_part_4/)

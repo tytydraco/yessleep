@@ -169,3 +169,5 @@ We made it back to Joey’s quickly, my tires crunching in the gravel driveway. 
 I took the little jewelry box in my hands, and walked into the house.
 
 (End Part 1)
+
+[Part 2](https://www.reddit.com/user/godzillhoe/comments/1qe21sv/dont_go_looking_for_lost_childhood_trinkets_pt_2/)
