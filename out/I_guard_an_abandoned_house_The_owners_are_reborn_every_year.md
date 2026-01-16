@@ -80,15 +80,13 @@ Picture the scene at the bar: the latest intruder ready to share another tall ta
 
 And then something about them changes in a way that usually only they notice at first:
 
-Perhaps their clothes seem a size too big for them, enough to make their shoes simply slip off their feet; or maybe their shirts are suddenly tight across the shoulders, as if meant for a much smaller wearer; perhaps they notice grey hairs that weren’t there a moment ago; maybe they find that they’d gained weight in odd places; maybe their stomachs are suddenly very sensitive, enough to make them vomit after a single beer; more upsettingly, they might themselves shedding clumps of hair… or even losing teeth.
+Perhaps their clothes seem a size too big for them, enough to make their shoes simply slip off their feet; or maybe their shirts are suddenly tight across the shoulders, as if meant for a much smaller wearer; perhaps they notice grey hairs that weren’t there a moment ago; maybe they find that they’d gained weight in odd places; maybe their stomachs are suddenly very sensitive, enough to make them vomit after a single beer; more upsettingly, they might find themselves shedding clumps of hair… or even losing teeth.
 
 More than once, I’ve seen a happy treasure hunter suddenly cough a bloody molar into their hand and be left staring in horror at it, paralyzed with fear and confusion.
 
 As soon as they notice something’s seriously wrong, the victims either bolt or go into hiding.
 
-
-
- By itself, this isn’t much of a problem; most only last an hour or so before they’re fully converted, and few last longer than a day… but in that time, there’s always the risk of them hurting someone, or worse, revealing the truth about Koel House to more respectable tourists.
+By itself, this isn’t much of a problem; most only last an hour or so before they’re fully converted, and few last longer than a day… but in that time, there’s always the risk of them hurting someone, or worse, revealing the truth about Koel House to more respectable tourists.
 
 So, it’s the gamekeeper’s job to track them down.
 
@@ -200,7 +198,7 @@ Maybe you’ve seen films and TV shows that try to make rejuvenation look wonder
 
 And Harker got to experience it on a loop.
 
-But even after I told Harker that there was no chance of cure, the ghost hunter didn’t give up… until his wedding ring slipped off his finger.
+But even after I told Harker that there was no chance of a cure, the ghost hunter didn’t give up… until his wedding ring slipped off his finger.
 
 I still remember the howl of anguish he let out as he lunged for it, scrabbling in the gutter for the ring as it rolled towards the stormwater drain, watching helplessly as his last link to his old life plunged out of sight. When he looked up at me, his eyes were full of tears, and I could tell at once that the last ember of hope in him had just been extinguished.
 

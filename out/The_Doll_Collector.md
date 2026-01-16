@@ -1,0 +1,19 @@
+I ’m a collector. Not of stamps, not of coins, but of antique dolls. Some people find them creepy. I find them beautiful, tiny echoes of the past. One day, scrolling through Craigslist, I saw it: a listing for an entire collection of rare, French bisque dolls. The price? A steal. Too good to be true, honestly. The seller, a 'Mr. Blackwood,' said he just wanted them gone. No pick-up, though. He insisted on meeting at his house – 'far from prying eyes,' as he put it. I should have seen the first red flag then, but the lure of the collection was too strong.
+
+The address led me deep into the countryside, miles from any main road. The house was… unsettling. Old, paint peeling, surrounded by trees that seemed to lean in, watching. The front door was ajar, a sliver of darkness beckoning me inside. I called out, 'Mr. Blackwood?' No answer. Just the creak of the floorboards as I stepped inside.
+
+The house was filled with dust and shadow. And dolls. Thousands of them. Staring from every shelf, every table, every corner. They weren't just antique; some looked… recent. Too new for the house. The air was thick and smelled of old wood and something vaguely metallic. A chill ran down my spine. This wasn't just a collection; it felt like an obsession. I found a note on a dusty table: 'Wardrobe in the master bedroom. Please find your selection.' My heart started pounding. Why a wardrobe? And why did it feel like I wasn’t alone in the house?
+
+I pushed open the master bedroom door. It was even darker in there. The window was boarded up from the inside. In the center of the room stood a single, massive, antique wardrobe. Its dark wood was polished, not dusty like the rest of the house. And from inside, I heard it – a faint, almost rhythmic scraping sound. Like something trying to get out.
+
+I hesitated, my hand trembling as I reached for the brass handle. What if Mr. Blackwood was playing a cruel joke? What if the sound wasn't… a doll? I took a deep breath and yanked the doors open. Inside, it wasn't a collection. It was a single doll. Life-sized. Dressed in modern clothes. Its eyes were wide, vacant, but somehow… pleading. It was tied to a cross-beam, its arms outstretched, its mouth slightly open in a silent scream. And around its neck, a small, handwritten tag: 'Property of Mr. Blackwood. Do Not Touch.' My blood ran cold.
+
+My scream caught in my throat. I stumbled backward, away from the wardrobe. The sound of the door slamming shut behind me echoed like a gunshot. Click! The lock engaged. I was trapped. The room was almost completely dark now, but the doll in the wardrobe… its eyes seemed to glow faintly. And that faint, metallic smell was stronger here. Like fresh blood.
+
+Then, from the shadows in the corner, a voice. A low, gravelly whisper that sent shivers down my spine. 'Looking for a bargain, dear?' Mr. Blackwood. He emerged from the darkness, a grotesque smile on his face, holding a roll of thick rope. 'I told you, no pick-up… because sometimes, the best pieces… they need to be delivered.' He took a step closer, his eyes glinting in the faint light. 'And you, my friend… you're a perfectly sized, perfectly preserved antique. A true collector's item. I remember the ropes. I remember the pain. But mostly, I remember the feeling of cold porcelain replacing my skin. The scent of drying paint. The terror as my vision faded, replaced by the hollow stare of a doll.
+
+Mr. Blackwood was right. I was a beautiful antique. And now, I’m part of his collection. I sit here in this house, silent, perfectly preserved, waiting. Waiting for the next collector to come looking for a bargain. Waiting for the next person to walk through that open door.
+
+Because you see, Mr. Blackwood never leaves the door closed. He wants the next collector to find the perfect piece. He wants them to come inside. And when they do, they’ll notice the new addition to his masterpiece collection. A truly unique piece.
+
+Me.
