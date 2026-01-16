@@ -190,7 +190,7 @@ Have you ever seen the aurora borealis? What about fireworks? Now combine those 
 
 We spent hours watching it, walking and talking beneath the shining lights. Every so often, a pang of guilt prickled at me for wanting to leave my best friend behind.
 
-But even good things have to come to an end, and our friendship was the best of things. it was a pity that now it had to end.  
+But even good things have to come to an end, and our friendship was the best of things. it was a pity that now it had to end.
 
 We walked silently back to the clearing, following a path that unfurled before us with each step. It was halfway there when I foolishly decided that I needed to have a memento of this trip. 
 
@@ -508,4 +508,4 @@ And why they hurt me my whole life.
 
 Now I need answers. 
 
-And I know that leaving won't provide them for me.
+And I know that leaving won't provide them [for me.](https://www.reddit.com/r/nosleep/comments/1qb0yp3/seven_realms_diner_the_wizard/)
