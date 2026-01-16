@@ -64,7 +64,7 @@ A few seconds passed and I looked up. It was gone. I broke down and sobbed into 
 
 Maya ran into the room and turned on the lights. The bed sank as she sat and quietly consoled me. I looked up and met her face, written with confusion and sympathy. I sunk into her arms for a while, but deep down I wasn’t convinced it was really gone. It must be hiding somewhere for me, waiting for me to be alone for it takes my life.
 
-Pushing myself off of Maya, I first looked around the room, then searched around the house. Maya followed closely behind, trying to get me to open up about what happened. I didn’t say a word. I didn’t see anything behind the house.
+Pushing myself off of Maya, I first looked around the room, then searched around the house. Maya followed closely behind, trying to get me to open up about what happened. I didn’t say a word. I didn’t see anything around the house.
 
 When the adrenaline died down, I realized that my sixth sense had gone with it. The gut instinct that kept me up every night, telling me I was going to die. A newfound sense of calmness washed over me, and with it all the exhaustion that I accumulated over the past few days. I went back into the guest bedroom and collapsed.
 

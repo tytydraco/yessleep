@@ -131,7 +131,9 @@ I tried not to listen, and even though I couldn’t understand any of it, it sti
 My mom gripped the edge of the chair as she cried. “Then why won’t he do anything?”
 
 “We’re seeing electrical activity on the EEG. Basic cortical function is present. Reflexes are intact. Pupillary response is normal. But he isn’t producing any form of purposeful movement or speech.”
-“So he’s in a coma?” my mom asked.
+
+“So he’s in a coma?”
+
 The doctor shook her head. “Not exactly. He’s awake. His eyes are open. Sleep-wake cycles are present. What’s missing is meaningful interaction with the environment.”
 
 She paused, choosing her words carefully.
