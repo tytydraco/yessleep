@@ -18,7 +18,7 @@ Before I talk about what happened next, you’ll need to know more. More than ju
 
 So, it turns out I like eating mushrooms. Odd? Not particularly. But near the start of all of this, we had a Sunday family dinner which was tradition after I came back from my regular weekend hunting trips.
 
-When the kids brought the plates over, Lillian and the kids had mushroom gravy over their steak and potato whilst I didn’t. I was confused by this as my mouth was watering looking at them. I stood up and took my plate over to the pot. Maggie the family dog had been strange since I’d gotten home so she was hiding behind the island bench. She yelped, showed me her teeth and fled to the living room. This was sadly the first signs of the prgressively more aggressive behavioural changes that she exhibited over the next few months. More on that later. 
+When the kids brought the plates over, Lillian and the kids had mushroom gravy over their steak and potato whilst I didn’t. I was confused by this as my mouth was watering looking at them. I stood up and took my plate over to the pot. Maggie the family dog had been strange since I’d gotten home so she was hiding behind the island bench. She yelped, showed me her teeth and fled to the living room. This was sadly the first signs of the prgressively more aggressive behavioural changes that she exhibited over the next few months. More on that later.
 
 I helped myself to some gravy which earned me expressions of incredulity from my family which I didn’t understand. I looked askance at Lilly and she gestured to the delicious looking pile of brown mushroom gravy now coating my steak and asked “Since when?”
 
@@ -34,9 +34,9 @@ Naturally after that I had to spend more time at home looking for work, and it w
 
 I wasn’t sad when she went to sleep on that cold stainless-steel counter, which was strange. Maggie had always been my dog first and the family dog second, and yet I found no tears coming even as Lillian comforted the children. I think that day I saw Luke looking at me with hatred in his eyes, and that hurt me more than the death of a dumb animal ever could.
 
-Which brings us back to last night I guess. 
+Which brings us back to last night I guess.
 
-I found my intruder in the living room crying in front of Maggie’s urn on the mantlepiece. Before confronting him, I'd retrieved my hunting rifle and ammunition from the safe. It occured to me that I needed to clean it. I hadn't felt it's weight in my hand since the last time I came home from a hunting trip, nearly 12 months ago. It felt strange and unfamiliar in my hands, which was odd, but not entirely unsurprising seeing as for some reason I hadn't felt like hunting for around a year. 
+I found my intruder in the living room crying in front of Maggie’s urn on the mantlepiece. Before confronting him, I'd retrieved my hunting rifle and ammunition from the safe. It occured to me that I needed to clean it. It felt strange and unfamiliar in my hands, which was odd, but not entirely unsurprising seeing as for some reason I hadn't felt like hunting for around a year.
 
 I left the lights off but could somehow see him clearly in the dark. He was my height but there was something *wrong* about him. One moment he was a man wearing ragged and worn out hunting gear and the next moment he was a tall white furred figure with sweeping majestic antlers touching the roof.
 

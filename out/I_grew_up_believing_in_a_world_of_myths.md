@@ -125,3 +125,5 @@ She brushed off my concerns, noting that the car won’t be *that* hot in a *for
  
 
 Eh, as well go catch some Zs.
+
+[Next Part](https://www.reddit.com/r/nosleep/comments/1qe8yc5/i_grew_up_believing_in_a_world_of_myths_part_2/)
