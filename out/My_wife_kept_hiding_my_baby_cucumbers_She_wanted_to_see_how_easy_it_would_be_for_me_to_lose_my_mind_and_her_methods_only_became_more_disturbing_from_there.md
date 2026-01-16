@@ -156,7 +156,7 @@ I was going to ring her as soon as I got home, but that thought fluttered away w
 
 “And now, here you are, having driven home drunk,” she said, nodding at the water flask in my hand. “Putting yourself and others in danger.”
 
-I refuted this, of course, so Jade suggested a test with her breathalyser. I was so smug when I took it, but I should’ve focused more on that knowing look in her eyes. The result came in. Nearly 1.4% BAC. I was over the legal drinking limit.
+I refuted this, of course, so Jade suggested a test with her breathalyser. I was so smug when I took it, but I should’ve focused more on that knowing look in her eyes. The result came in. Nearly 0.14% BAC. I was over the legal drinking limit.
 
 *Impossible*, I thought. The only thing I’d drunk that morning was the remainder of my flask of cola in the car.
 
