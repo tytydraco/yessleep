@@ -88,7 +88,7 @@ Shame writhed like a serpent stuck in my gut. I looked to Grandpa. He was scoopi
 
 *How was your day, Grandpa?* \- I signed. 
 
-*Pretty good! Another beautiful afternoon to be delivering mail. Just between us, I think Miss. Hudson has the hots for me - don’t tattle to her husband, though, alright?* - he signed back. 
+*Pretty good! Another beautiful afternoon to be delivering mail. Just between us, I think Miss. Hudson has the hots for me - don’t tattle to her husband, though, alright?* \- he signed back.
 
 He blew imaginary smoke from a pair of finger guns and winked at me. I forced a grin and nodded. Henry's face contorted into a scowl, gaze fixed on his mashed potatoes, stirring them harshly. 
 
@@ -102,11 +102,11 @@ All day, the pressure had been sharpening, accelerating, intensifying. I looked 
 
 Try as I might, I couldn’t buy my own story, and Mom could smell the panic burning beneath my skin.
 
-*Are you okay? How’s your head?*  \- she signed. 
+*Are you okay? How’s your head?*  \- she signed.
 
-I pointed a half-hearted thumbs-up in her direction. How could burden her with the truth?
+I pointed a half-hearted thumbs-up in her direction. How could I burden her with the truth?
 
-Hadn't she suffered enough at the hands of my dysfunction for one lifetime? 
+Hadn't she suffered enough at the hands of my dysfunction for one lifetime?
 
 *See? He’s fine. He’s strong. Quit worrying.* \- Henry signed. 
 
@@ -316,4 +316,4 @@ we may have to shift our perspective,
 
 on what it means
 
-to[ be broken. ](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
+to [be broken.](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
