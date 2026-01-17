@@ -18,7 +18,7 @@ After some time, the sorority heads reveal the hoax to the pledges and then bond
 
 Stacy called me the next morning freaking out that she couldn’t find the box.  I said, “Chill out, you probably just took too much molly last night.  Where are you by the way?”
 
-“I’m here at the lab with Colin, he needs to put it back now or he’ll could get in trouble.  This is serious.”
+“I’m here at the lab with Colin, he needs to put it back now or he, he could get in trouble.  This is serious.”
 
 Fuck!!  I ran downstairs and scanned the house, asking anyone if they’ve seen the UPS box.  Of course nobody did.
 
@@ -70,7 +70,7 @@ Everyone was distracted by this, and it started to affect our studies, plus the 
 
 The holidays came and went, and we didn’t hear a word about the missing cadaver or hand specimen. 
 
-Maybe nobody really knows and Colin is just paranoid.  Other medical students could be pranking *him*, he did say he heard about it from another student.  Medical students love to do this shit.  
+Maybe nobody really knows and Colin is just paranoid.  Other medical students could be pranking *him*, he did say he heard about it from another student.  Medical students love to do this shit. 
 
 Or possibly the staff is embarrassed that the security system is so outdated.  There is nothing to go on. And Colin isn’t an idiot; he wouldn’t leave fingerprints at the scene, and the lab is usually left unlocked, nobody wants to go in there, including me.
 
