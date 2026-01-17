@@ -1,37 +1,41 @@
-Toilet doors in the lobby have been kicked in again. Probably just the kids from the trailer park behind the diner, but I was already in a foul mood when I started my rounds.
+The bathroom doors in the lobby were kicked in again. Probably just the kids from the trailer park behind the diner, but I was already in a foul mood when I started my rounds.
 
-I have worked the night shift at this Motel 6 for three years. Usually my biggest headache is cleaning up after a tweaker or arguing with some guy about a pet deposit. But last night I am pretty sure I watched a man get deleted.
+I’ve worked the night shift at this Motel 6 for three years. Usually, my biggest headache is cleaning up after a tweaker or arguing over a pet deposit. But last night, I’m pretty sure I watched a man get deleted.
 
 It started with Room 114.
 
-The guy checked in around 4 PM. He looked like a surveyor. Boots caked in Mojave dust. Sunburned neck. Hands shaking so badly he could barely hold his ID. He did not even ask for a key card. Just asked if the lobby PC still worked.
+The guy checked in around 4 PM. He looked like a surveyor boots caked in Mojave dust, sunburned neck, hands shaking so badly he could barely hold his ID. He didn't even ask for a key card; he just asked if the lobby PC was still connected to the local exchange.
 
-I told him it was ancient and barely online. He nodded like he expected that and sat down anyway. He stayed there for hours. Did not eat or drink. Just hammering the keyboard like he was racing something.
+I told him it was ancient and barely online. He just nodded and sat down anyway. He stayed there for six hours. He didn’t eat or drink. He just hammered at the keyboard like he was racing a timer.
 
-I would not have noticed him leave if it was not for the woman.
+The auditor arrived at 2 AM. She didn’t wear a dress or heels; she wore a charcoal pantsuit and carried a tablet. She looked like a corporate inspector from the home office. She didn't glance at the desk, she just walked straight past me toward the 100-block.
 
-She came into the lobby a little after 2 AM. Red dress, heels, hair done. Nice, The kind of person who does not end up at a budget motel in Kingman by accident. Thought a Pro for a second, but no way.
+I called out that she needed to register, but she didn't turn around. She just tapped her stylus against the tablet click, click, click and vanished around the corner.
 
-I stood up to greet her, but she did not even glance at the desk. Walked straight past me toward the hallway.
-
-I called out that she needed to register. She vanished around the corner of the vending machines.
-
-When I went to follow her, the lobby was dead silent. The surveyor was gone. His truck was still in the lot. I went over to the PC to log him out and saw a Reddit thread he had left open. It was about a ghost station and a passenger list. I thought it was fiction until I saw the view count.
+When I followed her, the hallway was silent. The surveyor was gone, but his truck was still in the lot. I went to the lobby PC to log him out and saw the Reddit thread he’d left open. It was a post about a "loud lamp" and a passenger list. I thought it was a joke until I saw the view count.
 
 Seventy thousand. Not an estimate. Seventy thousand flat.
 
-I went to Room 114. The door was propped open with a Bible from the nightstand. I thought maybe she was in there. The room was off. It smelled like iron and flowers. Like a funeral home in the middle of a car crash.
+I went to Room 114. The door was propped open with a heavy brass plate wedged in the frame. The room didn’t smell like a motel; it smelled like a server room that had lost its cooling hot copper and burnt plastic.
 
-The bed had not been slept in. But right in the middle of the duvet was a pile of white chips. I picked one up. It was not ceramic. It was warm. Felt like a thick fingernail, the curve of a human rib. No blood, no mess. Just bone dry shards left on the polyester spread.
+The bed hadn't been slept in. In the center of the duvet was a pile of white, curved shards. I picked one up. It wasn't ceramic. It was warm and felt like a thick fingernail, or the curve of a human rib. It was bone-dry. No blood. Just a man reduced to calcium and lime.
 
-I tried to call my manager, Dave, but the phone lines were dead. When I finally found him in the back office, he would not even look at me. He was staring at the security monitors. The screens were just static. He kept saying, “The numbers have to balance, Pete. Do not look at the list.”
+I tried to call the manager, Dave, but the lines were dead. When I found him in the back office, he was staring at the security monitors. The screens weren't showing the lot. They were showing a scrolling list of names and technical data.
 
-I splashed water on my face and looked in the mirror. My eyes looked wrong. Every blink made a clicking sound, like a camera. The routers were making a noise on the dashboard. Not just traffic. Seventy thousand pings coming back into this building like a circuit.
+“The numbers have to balance, Pete,” he whispered. He didn't look at me. “Don’t look at the list. If you see your name, the count is finished.”
 
-My teeth were vibrating so hard I thought they would crack. The floor shook. There were no tracks, but I could hear the whistle. The smell of flowers was everywhere. I could not breathe. It was like petals in my lungs.
+I went to the bathroom to splash water on my face. My reflection was wrong. Every time I blinked, I heard it a faint, mechanical shutter sound inside my skull. Click.
 
-Tap your wrist. Do it now. If it sounds like stone or if you hear a camera click when you blink, you are on the list.
+The routers on the wall were screaming. Not just traffic, but seventy thousand pings per second hitting this building like a circuit.
 
-The counter hit seventy thousand and one. There was a man in the hall. He wore our uniform, but his skin was white like the plate in the room. He carried a tray. A card hung from his neck. The name tag said seventy thousand and one.
+My teeth were vibrating so hard I thought they would crack. I could hear a low whistle, like a train, but there are no tracks for twenty miles. I checked the lobby PC one last time. The view count hit 70,001.
 
-He is coming to the desk. I cannot lock the door. He is coming to check me out.
+There is a man at the front desk now. He’s wearing my uniform, but his skin has the same matte-white texture as the bone shards in Room 114.
+
+He isn't moving.
+
+He’s just holding a tray with a single brass plate on it.
+
+He is waiting for me to check him in.
+
+But I think he’s actually here to check me out
