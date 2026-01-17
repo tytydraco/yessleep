@@ -64,7 +64,7 @@ My mom made stew that night. I still remember how delicious it was. How I miss t
 
 “Cause that means war.” He looked so happy as he threw chunks of beef at us. My mother was quick to scold all three of us. She wasn't angry despite her trying to seem like it and they both smiled.
 
-They're smiles, they're happiness and warmth. 
+Their smiles, their happiness and warmth. 
 
 I think that's what I miss most about them. 
 
