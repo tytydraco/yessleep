@@ -1,12 +1,12 @@
-I met my wife, Katelyn, when she was 20. I was 40. She was a singer in my band, and I was lead guitar. I guess it’s important to mention that I was also married when I met her. I was married for quite a while after I met her. Anyway, back to how we met. She was singing in random bars with another band when my friend, Mark, introduced us. He said she’d be the perfect fit for us, and boy was she. 
+I met my wife, Katelyn, when she was 20. I was 40. She was a singer in my band, and I was lead guitar. I guess it’s important to mention that I was also married when I met her. I was married for quite a while after I met her. Anyway, back to how we met. She was singing in random bars with another band when my friend, Mark, introduced us. He said she’d be the perfect fit for us, and boy was she.
 
-From the moment I laid eyes on her, I was hooked. It also didn’t help that my wife was never around. She never came to a show, so the main person I talked to was Katelyn. Hell, the only people I was close to were her, Mark, and the other guys in the band. She was just something special. 
+From the moment I laid eyes on her, I was hooked. It also didn’t help that my wife was never around. She never came to a show, so the main person I talked to was Katelyn. Hell, the only people I was close to were her, Mark, and the other guys in the band. She was just something special.
 
 About 5 years after meeting her, the band all started to gradually go our separate ways. She moved off to go to college, and I was still stuck in our dump of a town with a woman I didn’t love. Sure, Katelyn kept in touch, but communication got slimmer and slimmer until we didn’t speak at all. I still saw her in everything. Every good moment, bad moment, anything, I wished so badly I could tell her about it. She got some douchebag boyfriend and that was the end of it, or so I thought.
 
-I’ll never forget it. It was a random Tuesday night in May. I was sitting in the living room watching God knows what with my wife. Just sitting in silence as usual, until the sound of my phone ringing ripped through the air. Nothing could prepare me for the name showing on my screen. 
+I’ll never forget it. It was a random Tuesday night in May. I was sitting in the living room watching God knows what with my wife. Just sitting in silence as usual, until the sound of my phone ringing ripped through the air. Nothing could prepare me for the name showing on my screen.
 
-“It’s work, I’ve got to take this,” I said to my wife walking out the door. 
+“It’s work, I’ve got to take this,” I said to my wife walking out the door.
 
 “Kate?” I asked, as though it couldn’t possibly be her. “What’s up?”
 
@@ -28,7 +28,7 @@ To put it simply, she said she loved me, too. We started meeting once a week, ju
 
 This affair went on for a year before she called me and told me to get my shit and come home. Within 6 months I was divorced and living with her. Another 6 months later, we were married. She was finally Mrs. Katelyn Hall.
 
-I had all I’d ever wanted. It was everything I’d dreamed it would be. We’d stay up late watching movies, talking, laughing, loving each other. Every morning, I’d reach over and put my fingers in her hair. 
+I had all I’d ever wanted. It was everything I’d dreamed it would be. We’d stay up late watching movies, talking, laughing, loving each other. Every morning, I’d reach over and put my fingers in her hair.
 
 “You’re not real,” I’d tell her. Every single morning, and every single morning she’d kiss me, look at me with those beautiful brown eyes and say, “John, I’m real.”
 
@@ -42,7 +42,7 @@ I was running my fingers through that long blonde hair of hers. Just studying he
 
 And for the first time in a year, she said nothing. She rolled out of bed and went to the bathroom. The only thing I heard that morning was her footsteps to the bathroom, a period of silence, then the bathtub faucet being turned on.
 
-I had no idea what the fuck was going on. Sure, we fought from time to time, but hardly ever after we got married. I had done nothing to warrant the cold shoulder. 
+I had no idea what the fuck was going on. Sure, we fought from time to time, but hardly ever after we got married. I had done nothing to warrant the cold shoulder.
 
 I got up to make coffee and listened to silence. I guess she just needed to relax. Maybe she was getting depressed again. I could handle anything. I could help her through this if that was the case.
 
@@ -72,7 +72,7 @@ Nothing
 
 Nothing.
 
-I turned the door knob, but it was locked. 
+I turned the door knob, but it was locked.
 
 “Katelyn! I’m going to break this door down. I’ve tried to be patient all morning, but you’re scaring me.” All I could think about was that phone call on a Tuesday in May a few years back.
 
@@ -98,11 +98,11 @@ While my back was against the wall, they restrained me. I didn’t understand. T
 
 When I wake up, I’m in a blank white room, restrained to a bed. At this point I’m terrified and beyond confused, so I just start screaming.
 
-“Wha the fuck did you do to me?!”
+“What the fuck did you do to me?!”
 
 Nothing.
 
-I screamed a few more times until a nurse came in. 
+I screamed a few more times until a nurse came in.
 
 “John, it’s okay. You’re at Trenton Psychiatric Hospital. It’s 2024.”
 
@@ -114,9 +114,9 @@ I screamed a few more times until a nurse came in.
 
 And then it hit me.
 
-It was Tuesday, May 10, 2022. I was sitting in the living room watching God knows what with my wife. Just sitting in silence as usual, until the sound of my phone ringing ripped through the air. 
+It was Tuesday, May 10, 2022. I was sitting in the living room watching God knows what with my wife. Just sitting in silence as usual, until the sound of my phone ringing ripped through the air.
 
-It was Mark. He was probably high and just wanted to shoot the shit. I went to the bathroom to get some privacy. 
+It was Mark. He was probably high and just wanted to shoot the shit. I went to the bathroom to get some privacy.
 
 “Hey man, what’s up?”
 
@@ -124,25 +124,25 @@ It was Mark. He was probably high and just wanted to shoot the shit. I went to t
 
 My blood ran completely cold.
 
-“She left a note,” he told me. “Said she was doing the world a favor by being gone. That she couldn’t live life knowing someone could possibly love her.”
+“She left a note,” he told me. “Said she was doing the world a favor by being gone. That she couldn’t live life knowing someone couldn’t possibly love her.”
 
-The woman I was madly in love with had killed herself not know how loved she was. If I had just told her, she’d probably still be alive. 
+The woman I was madly in love with had killed herself not knowing how loved she was. If I had just told her, she’d probably still be alive.
 
 Mark went on to tell me he’d find out funeral arrangements, apologized because he knew how close we were, and got off the phone.
 
-I was so numb and so heartbroken all at the same time. I ran a hot bath and sunk down into the tub. 
+I was so numb and so heartbroken all at the same time. I ran a hot bath and sunk down into the tub.
 
-I had dreamt of this woman since the day I met her. I had never loved a would like I did her, and she was gone. My wife’s razor sat on the edge of the tub. I was able to break it open and retrieve a blade from it. I ran it up my left arm, then my right. As a my eyes got heavy, the last thing I heard was my wife screaming.
+I had dreamt of this woman since the day I met her. I had never loved a woman like I did her, and she was gone. My wife’s razor sat on the edge of the tub. I was able to break it open and retrieve a blade from it. I ran it up my left arm, then my right. As a my eyes got heavy, the last thing I heard was my wife screaming.
 
-“John?” The nurse said touching my hand. “Are you remembering?” 
+“John?” The nurse said touching my hand. “Are you remembering?”
 
 I looked up at her and nodded slowly.
 
-“This happens sometimes. It’s good you’re remembering. Do you think we’re good to remove the restraints?” 
+“This happens sometimes. It’s good you’re remembering. Do you think we’re good to remove the restraints?”
 
 I nodded again.
 
-She freed my arms and legs and left me to “rest” whatever that was supposed to mean. I looked around the room and the emptiness of the space. My mind was going 90 to nothing trying to catch up to time. Out of the corner of my eye, I noticed a figure, and turned sharply to my right. 
+She freed my arms and legs and left me to “rest”, whatever that was supposed to mean. I looked around the room and the emptiness of the space. My mind was going 90 to nothing trying to catch up to time. Out of the corner of my eye, I noticed a figure, and turned sharply to my right.
 
 There she was, my beautiful blonde haired, brown eyed love of my life, smiling at me.
 
