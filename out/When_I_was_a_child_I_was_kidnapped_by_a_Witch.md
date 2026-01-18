@@ -14,7 +14,7 @@ It all started when I was eight years old. The haze of memory is thick and some 
 
 
 
-It was back in the eighties. My dad was driving too fast down the motorway while mum and I sang along to \*Everybody wants to rule the world\*. Well, mum sang, I really only knew the chorus. Dad tapped the beat on the steering wheel and I was so sure this was going to be the best holiday ever. 
+It was back in the eighties. My dad was driving too fast down the motorway while mum and I sang along to *Everybody wants to rule the world*. Well, mum sang, I really only knew the chorus. Dad tapped the beat on the steering wheel and I was so sure this was going to be the best holiday ever. 
 
 
 
@@ -34,11 +34,11 @@ That night was quiet. We ate lamb chops and boiled veg and it felt like a feast.
 
 
 
-I felt so special getting my own room on holiday. There was a little desk with a lamp and I sat there until almost ten o’clock reading \*Voyage of the Dawn Treader\* which I’d received as an Easter present. Normally mum didn’t approve of fantasy, but she made an exception for Narnia. 
+I felt so special getting my own room on holiday. There was a little desk with a lamp and I sat there until almost ten o’clock reading *Voyage of the Dawn Treader* which I’d received as an Easter present. Normally mum didn’t approve of fantasy, but she made an exception for Narnia. 
 
 
 
-I could feel myself dozing. Desperate to read more, but needing to reread each sentence three or four times to take it in as my eyes glazed and my mind wandered. That’s when I heard the noise. Quiet at first, distant. A dull, scraping sound. Stone on stone. Always in pairs, a scrape-scrape noise like the beating of a stone heart. \*Scrape-scrape\*. \*Scrape-scrape\*. It was getting louder; closer. Suddenly, I didn’t feel so drowsy.
+I could feel myself dozing. Desperate to read more, but needing to reread each sentence three or four times to take it in as my eyes glazed and my mind wandered. That’s when I heard the noise. Quiet at first, distant. A dull, scraping sound. Stone on stone. Always in pairs, a scrape-scrape noise like the beating of a stone heart. *Scrape-scrape*. *Scrape-scrape*. It was getting louder; closer. Suddenly, I didn’t feel so drowsy.
 
 
 
@@ -46,11 +46,11 @@ My aunt had lived in a bungalow. She’d suffered from a degenerative condition 
 
 
 
-In my mind I anticipated a great stone man cresting a hill, like a scene from \*The Neverending Story\*. That was one my mum didn’t approve of. The scraping finally stopped and there was nothing. I breathed a sigh; of relief or disappointment I wasn’t sure. Then I saw Her.
+In my mind I anticipated a great stone man cresting a hill, like a scene from *The Neverending Story*. That was one my mum didn’t approve of. The scraping finally stopped and there was nothing. I breathed a sigh; of relief or disappointment I wasn’t sure. Then I saw Her.
 
 
 
-She didn’t move into view. One moment I was staring at an empty field, the next a horrific visage. Even now, forty years on, I can see that face in excruciating detail. Swollen skin, so blue it was nearly purple, with one sagging cheek as though whatever inflated her face had burst there and the skin, stretched beyond repair, now drooped nearly to Her chin. Her eyes bulged, eager to be free of their sockets. The whites were grey and lumpy, like snow at the edge of a road. And Her teeth. Chunks of granite roughly hewn into molar, incisor, and canine. She stared into my eyes and Her jaw worked left to right, left to right. \*Scrape-scrape\*. \*Scrape-scrape\*. Bulbous lips cracked and peeled back in a mockery of a smile. 
+She didn’t move into view. One moment I was staring at an empty field, the next a horrific visage. Even now, forty years on, I can see that face in excruciating detail. Swollen skin, so blue it was nearly purple, with one sagging cheek as though whatever inflated her face had burst there and the skin, stretched beyond repair, now drooped nearly to Her chin. Her eyes bulged, eager to be free of their sockets. The whites were grey and lumpy, like snow at the edge of a road. And Her teeth. Chunks of granite roughly hewn into molar, incisor, and canine. She stared into my eyes and Her jaw worked left to right, left to right. *Scrape-scrape*. *Scrape-scrape*. Bulbous lips cracked and peeled back in a mockery of a smile. 
 
 
 
