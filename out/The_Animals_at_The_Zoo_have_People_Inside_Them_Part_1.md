@@ -56,7 +56,7 @@ Again, I look round to see if anyone else notices. The crowd continues to aimles
 
 Until my gaze locks with another's. The glimmering eyes of an ape. Chimpanzee, according to the sign. 
 
-He smiles at me. His legs dangle from the tree branch he's sat upon. His hairless, clearly human feet swing back and forth like a child's. 
+He smiles at me. His legs dangle from the tree branch he's sat upon. His pale, smooth, clearly human feet swing back and forth like a child's. 
 
 I need to sit down; I need water. There should be a drinking fountain in the reptile house over there. Doesn't look like there's anyone else inside right now either. That's good; I need a break from all this. 
 
