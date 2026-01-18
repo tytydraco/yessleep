@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1q88tii/i_dont_feel_safe_in_my_apartment_anymore/) [Part](https://www.reddit.com/r/nosleep/comments/1q9qykz/i_dont_feel_safe_in_my_apartment_anymore_part_2/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1q88tii/i_dont_feel_safe_in_my_apartment_anymore/) [Part 2](https://www.reddit.com/r/nosleep/comments/1q9qykz/i_dont_feel_safe_in_my_apartment_anymore_part_2/)
 
 Sorry, I haven’t posted an update for a couple of days. I tried to act on the suggestions you all made to work out what was going on.
 
@@ -132,4 +132,4 @@ Because whatever this is…
 
 …it doesn’t need me to be asleep anymore.
 
-[Part 4](https://www.reddit.com/r/nosleep/comments/1qe1uhw/i_dont_feel_safe_in_my_apartment_anymore_part_4/)
+[Part 4](https://www.reddit.com/r/nosleep/comments/1qe1uhw/i_dont_feel_safe_in_my_apartment_anymore_part_4/) [Part 5](https://www.reddit.com/r/nosleep/comments/1qfv181/i_dont_feel_safe_in_my_apartment_anymore_part_5/)

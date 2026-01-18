@@ -90,4 +90,4 @@ I don’t know how you explain something like this to building management. I don
 
 All I know is that I’m terrified to leave the apartment, but I don’t even feel safe staying here.
 
-[Part 3](https://www.reddit.com/r/nosleep/comments/1qbhaoc/i_dont_feel_safe_in_my_apartment_anymore_part_3/) [Part 4](https://www.reddit.com/r/nosleep/comments/1qe1uhw/i_dont_feel_safe_in_my_apartment_anymore_part_4/)
+[Part 3](https://www.reddit.com/r/nosleep/comments/1qbhaoc/i_dont_feel_safe_in_my_apartment_anymore_part_3/) [Part 4](https://www.reddit.com/r/nosleep/comments/1qe1uhw/i_dont_feel_safe_in_my_apartment_anymore_part_4/) [Part 5](https://www.reddit.com/r/nosleep/comments/1qfv181/i_dont_feel_safe_in_my_apartment_anymore_part_5/)

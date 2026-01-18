@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1q3gt5v/life_of_a_maze_man/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | Part 2
+[Part 1](https://www.reddit.com/r/nosleep/comments/1q3gt5v/life_of_a_maze_man/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | Part 2 | [Part 3](https://www.reddit.com/r/nosleep/comments/1qfu62z/life_of_a_maze_man_3/)
 
 The job finished pretty quickly; it was basically a straight shot to the spot. I lucked out and got to be the mule that day, carrying the supplies, though it always does a number on my back when I gotta do it. 
 
