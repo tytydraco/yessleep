@@ -1,153 +1,262 @@
-I didn’t grow up thinking there was anything strange about the cabin. It was just one of those places families own for no real reason, a leftover from some distant relative who died before I was born. 
+[Part I](https://www.reddit.com/r/nosleep/s/Af45GWwVsl)
 
-We only went up in the summers, usually for a weekend or two, and even then the adults acted like the place was more trouble than it was worth. 
+———
 
-My dad always complained about the road washing out and the plumbing freezing every winter, and my mom said the lake was too cold to bother swimming in. I assumed they just didn’t like nature much, or maybe they were tired of the maintenance, because every September they packed everything up with this silent tension that felt out of place in the fresh air. 
+I barely slept in the motel.
 
-They always left by the first week of the month. No exceptions. As a kid I thought it was just because school started, but even then my parents seemed more anxious than busy, like the calendar itself was turning into something with teeth.
+Calling it sleep at all feels wrong. It was more like falling in and out of shallow black water, every dream carrying that same dragging sound from under the cabin floor. Every time I jolted awake, my first instinct was to check the door, the windows, the corners.
 
-The cabin sat on the north side of the lake closest to our house, I’m keeping the name of the lake off this post, hidden behind a curtain of pines that swallowed most of the light. 
+The room never felt warm. Not once.
 
-The water there was darker than the rest of the lake, almost black even on sunny days, and colder than any freshwater I’d ever stepped in. Even in July it carried this deep chill that surprised me every time I let it touch my ankles. 
+When I finally sat up for good—around 6 a.m., though the digital clock kept flickering like it was losing power—the cold was still in my bones. Not the kind of cold from bad insulation or autumn air. This was the lake’s cold. That deep bite that feels like it comes from below you.
 
-My dad used to joke that the lake was fed by “the world’s oldest refrigerator,” but he never laughed after saying it. He’d just check his watch and tell me to stay where he could see me, which annoyed me back then because there was never anything around. The place was too remote for other families, too uncomfortable for tourists, and too quiet for anyone who didn’t grow up loving silence.
+And when I stood up, I noticed something I didn’t remember from the night before.
 
-My uncle used to come with us when I was young, before he stopped showing up. He wasn’t really the fun kind of uncle who brought gifts or played games, but he was the type of adult who made the world feel bigger. 
+There were granules of lake mud on the motel carpet.
 
-He had this way of looking out over the lake like he was waiting for something, and even when I didn’t understand it I could tell he saw more than the rest of us. 
+Small, dark flecks, smeared near the foot of the bed. I stared at them for a long time, trying to convince myself I’d tracked them in without noticing. But I had kicked my shoes off at the door, and they were bone-dry. No mud on the soles. Nothing on the doormat.
 
-He taught me how to tie fishing knots and how to read the weather by watching the treeline, and he always walked down to the water at dusk, no matter how tired he was. I followed him a few times, but he never let me go past the first few planks of the dock. 
+When I grabbed my uncle’s journal from the nightstand, my stomach twisted.
 
-He’d stand at the edge staring into the water for a long time, then walk back without saying what he saw. I didn’t notice he was slipping out of our lives until one year he simply didn’t come to the cabin with us. My dad said he was busy with work. The next year he said he’d moved away. After that my parents didn’t say much at all.
+It was damp.
 
-I didn’t think about him for a long time. Life has a way of pushing old memories into the part of your mind that feels like a dream you half-remember. I went to school, started working, moved out, and only visited my parents when I had to. 
+Not wet enough to drip.
 
-The cabin started coming up less and less, and I hadn’t been there since I was fifteen. The whole place faded into nostalgia until last month, when I stopped by my parents’ house to borrow a toolbox and found something jammed behind the spare tire in the garage. 
+Just… cool. And soft around the edges. Like it had been sitting in humidity. Or held by someone with wet hands.
 
-It was a beaten-up leather notebook with a cracked spine and dirt embedded into the creases, the kind of thing someone carries everywhere for years.
+I didn’t want to think about either possibility.
+I went to the bathroom, splashed my face, and tried to tell myself the night before was a shock reaction, panic, adrenaline mixing with childhood memories of the lake. My mind kept forming rational explanations out of habit.
 
-There was no name on the cover, but I knew it belonged to my uncle the moment I picked it up. The way he wrote his dates—tiny numbers in the upper right corner—showed up on the first page. The first entry was from twelve years ago, though the paper looked much older.
+But then I tried to call my parents.
 
-The entries started out normal. Notes about the weather, observations about the trees, complaints about mice chewing through pantry boxes. There were sketches of the cabin floor plan and measurements written along the walls, which struck me as strange because he’d never mentioned doing repairs up there. 
+Straight to voicemail.
 
-But the entries took a turn somewhere around the second week of September that same year. His handwriting got tighter, the lines more cramped like he didn’t want to spill ink outside the margins. He wrote about hearing noises under the cabin at night, soft dragging sounds like something heavy was being pulled across the dirt. 
+Not ringing first. Not a weak signal. Straight to that blunt automated message.
 
-He described finding wet footprints on the porch before dawn, footprints he insisted weren’t human. By the fourth week the entries were just short fragments that looked more like warnings than journal entries. Fog rolled in too early tonight. Don’t stay past sundown. Something brushed the dock again. Don’t come here after September. It knows our blood.
+Something about it felt wrong, like the phone wasn’t off—it was unreachable.
 
-The last entry stopped mid-sentence. It was dated October 3rd, exactly twelve years ago. 
+My uncle’s number did the same.
 
-“It came back up through the water tonight. I think it saw me this time. I think—“
+By the third attempt, I stopped trying, because the motel room felt smaller every time the call failed.
+I decided to get moving. My plan was simple: drive home, tell someone—maybe a park service officer—what I saw, and let professionals handle the rest.
+The parking lot was empty when I stepped outside. My car sat alone beneath a buzzing streetlamp, early sunshine barely cutting through the haze. 
 
-The pen dug into the page, leaving an indent that trailed off into nothing.
+Every step felt heavier the closer I got to the driver’s side door.
 
-I must have read the journal three times before the sun even set that night. Each time it chipped away at the version of my uncle I remembered, replacing the calm man with a stranger I didn’t recognize. 
+When I opened the car, the first thing I noticed was the smell.
 
-I didn’t tell my parents what I found because I knew they’d take it away from me, and I couldn’t explain why but I felt like losing that journal would be worse than anything I’d find inside it. 
+Not rot. Not mold.
 
-I barely slept that night, and when I did, my dreams were filled with cold water and something shifting beneath it. By morning I had already made up my mind. I took the journal, packed a bag, and got in my car.
+Lake water. Cold and metallic.
 
-I told myself I was going up to the cabin because I needed closure, because I wanted answers about a man I hadn’t seen in years, but the truth was simpler. Something was wrong up there, and I couldn’t shake the feeling that if I didn’t go now, I’d never understand why my family abandoned that place every fall or why my uncle kept going back. 
+I sat there for several minutes, keys in hand, waiting for the fear to settle.
 
-I drove most of the day, taking the familiar roads I hadn’t seen since I was a teenager. The trees grew thicker the deeper I went, their branches knitting together overhead until the sunlight broke apart into thin beams that followed the car like searching fingers. I didn’t realize how isolated the area was until I checked my phone and saw there hadn’t been service for nearly twenty miles.
+It didn’t.
 
-The cabin appeared over a rise in the dirt road, looking smaller and older than I remembered. The wood was gray and the roof sagged slightly at one corner, but the windows were intact and the front steps didn’t look rotten. 
+But I drove anyway, because the last thing I wanted was to stay still long enough for anything from the cabin to catch up.
 
-I parked beside the old stump where my uncle used to chop firewood and got out slowly, expecting the air to feel crisp or familiar. Instead it carried an unexpected chill that clung to my skin even though it was still early fall. 
+I told myself I was leaving for good.
 
-The trees seemed too still, like they were listening, and the lake behind the cabin was silent in a way that felt deliberate. I walked toward the porch with the uneasy feeling that something had been waiting for me.
+I meant it.
 
-As soon as I stepped onto the wood, I knew someone had been there recently. The boards were damp, not from rain but from something dripping. A faint trail of wetness led from the corner of the porch toward the door, drying into pale streaks that looked too narrow to be footprints but too erratic to be anything natural. The door wasn’t locked. When I pushed it open the hinges gave a quiet groan that echoed a little too long in the still air.
+But something pulled me back.
 
-Inside, the cabin smelled faintly of smoke and old cedar. Dust coated most surfaces, but not evenly. Someone had cleared off the table in the center of the room, where a lantern sat beside a stack of folded blankets. 
+The farther I got from the lake, the more guilt gnawed at me.
 
-A mug with dark residue dried at the bottom sat beside the sink, as if someone had sipped from it not long ago. The sight unsettled me in a way I couldn’t explain. The place should have felt comforting after so many years, but instead it gave the impression of a house holding its breath.
+I left my uncle.
 
-I set my bag down and walked through each room slowly, trying to find some sign of my uncle. The bedroom looked untouched except for the bedspread, which had been pulled back as if someone had slept there recently. In the bathroom, a towel with faded stripes hung over the door, still slightly damp. 
+I watched him disappear toward the trees and then nothing.
 
-The only room that looked exactly the way I remembered was the small storage closet near the back, where my dad kept tools and fishing equipment. Everything else felt recently lived-in, except no one should have been here.
+I ran until the woods blurred together and didn’t stop until I reached the parking lot, lungs screaming, legs numb. I didn’t even try to look for him once I reached the road.
 
-When I stepped back into the main room, I noticed something I’d missed before. On the floor, near the woodstove, faint shapes had been drawn onto the floorboards in a dull gray material. The markings were circular and interlocking, almost like runes but more chaotic, as if someone had tried to copy something they barely understood. 
+I told myself it was survival.
 
-They covered a small section of the floor, almost like a boundary or seal. I knelt to get a closer look and saw that the material was ash mixed with something darker. 
+But every mile between me and the lake made the truth feel uglier.
 
-There were smudges near the edges, like the person who drew them had done it in a hurry or with shaking hands. I reached out to touch the markings, but a sudden creak behind me made me pull back sharply.
+The creature could have chased me.
 
-I turned, expecting an animal or maybe a loose board settling under its own weight. Instead, a shape stood in the doorway—tall, thinner than I remembered, shoulders slightly hunched. 
+It didn’t.
 
-For a moment I couldn’t move. The lantern on the table cast just enough light to reveal the outline of a man, his hair longer and streaked with gray, his clothes clinging to him like he’d stepped out of water. He stared at me with eyes that looked too tired to be surprised.
+Which means something stopped it.
 
-My uncle said my name like he wasn’t sure it was real.
+Or someone.
 
-For a second I thought I was dreaming him into place, dragging an old memory into the doorway because I wanted answers too badly. 
+I pulled into a rest stop and opened the journal again, willing it to give me something rational, something that made leaving him behind acceptable.
 
-He looked thinner than I remembered, almost gaunt, his clothes clinging to him with the heavy droop of fabric that had been soaked and dried too many times. His cheeks were hollow, his eyes darker, as if something behind them had been worn down to its last thread. 
+Instead, I found the page with the circled coordinates. A rough sketch of the lake, wobbly lines marking the shoreline. A spot on the northern inlet circled so many times the ink bled through the paper.
 
-He didn’t move toward me, didn’t blink, didn’t even shift his weight. He just stood there with the posture of someone who had forgotten how to share space with another person. 
+Below it, written in ink darker than the rest:
+“It rises here first.”
 
-The light from the lantern trembled slightly, casting a sheen across his hair, and I realized parts of it were stiff with frost or salt or something that made the strands clump together like kelp washed ashore. I said his name before I even meant to, the word spilling from me with a shock that made my throat tighten, but he flinched like the sound hurt. 
+I stared at the words until my chest hurt.
 
-He didn’t look angry or startled—just fragile, like he was afraid the moment would crack if he acknowledged it too quickly.
+I tried to imagine leaving. Driving home. Pretending none of this mattered.
 
-My mind scrambled for the usual questions—where he’d been, why he left, how long he’d been at the cabin—but the silence between us made every thought feel microscopic compared to the weight pressing against the walls. 
+But the image that kept returning was my uncle’s hand gripping my arm, ice-cold and trembling.
 
-The cabin felt smaller with him standing there, the air too still, the temperature dropping almost imperceptibly as if something had followed him in. He took a breath, shallow and uneven, the kind of breath someone takes when they haven’t spoken aloud in a long time. 
+I couldn’t leave without knowing what happened to him.
 
-“You shouldn’t be here,” he murmured, voice low and hoarse enough that it seemed dragged up from deep inside him. The words didn’t sound scolding or harsh—they sounded scared. Not of me, but for me. His gaze flicked to the floor, then the windows, then toward the lake as though checking if something had slipped inside behind me. 
+So I turned the car around.
 
-The way he moved his eyes made my skin crawl; it wasn’t the frantic scanning of a paranoid person, but the practiced vigilance of someone who had lived with a threat long enough to memorize its rhythm.
+Back to the lake. In daylight this time.
 
-When he stepped forward, the floorboards groaned under a weight that wasn’t entirely his, a groan too deep for a single footstep. He noticed my reaction and stopped immediately, pressing a hand to the doorframe as though steadying himself. His fingertips left faint smudges of dampness against the wood. 
+It didn’t help.
 
-“You need to leave,” he whispered again, but quieter, like he was trying not to wake something sleeping in the rafters. I felt a cold ripple go down my arms, the same sensation I used to get as a kid when the lake water reached my knees—an instinctive warning that the chill didn’t come from weather. 
+If anything, the sunlight made everything worse.
+Daylight removes excuses.
 
-I forced myself to keep my voice steady as I asked him what happened to him, expecting him to look at me, to offer something human in response, but instead his gaze dropped to the ashes on the floor. His expression tightened.
+You can’t blame fear on shadows or tricks of the night.
 
-“That’s not for you,” he said, voice barely audible. “Those keep it out.” He pointed to the markings, the spirals and strokes that suddenly seemed less like frantic scratches and more like a map someone had copied from a place no one should visit. 
+But the woods were utterly still.
 
-My stomach twisted, not at the words themselves but at the emphasis he placed on it, like the shape of the world narrowed into that single pronoun. I asked what it was, and for the first time his eyes met mine directly. It was like staring into a reflection cast by deep water—distant, distorted, and carrying something heavy beneath the surface. 
+No movement.
 
-“You need to go before dark,” he said, voice breaking. “I can’t stop it anymore.”
+No birds.
 
-I wanted to believe he was unstable, or traumatized, or suffering from years of isolation, but something in the room pushed back against that explanation. The cold wasn’t fading. 
+Not even the hum of insects.
 
-The air felt thick, like breath fogged even without exhalation. And somewhere beneath the floorboards, deep under the cabin where the pilings met the earth, I heard a faint, deliberate sound. A drag. A slow pull. Something shifting just enough to let the knowledge settle that we were not alone. 
+The cabin looked… empty. In a hollow, staged way. 
 
-My uncle stiffened, shoulders rising, head turning toward the back wall with a dread so practiced it looked almost routine. When he spoke again, it was a whisper meant only for me. 
+Like the set of a play after everyone has gone home. But I knew something had moved through since I fled.
 
-“It remembers blood.”
+There were damp prints leading from the treeline toward the porch. Not footprints—more like smears. As if something wet had dragged itself along the ground.
 
-He moved then—not toward me, but past me, heading for the door with a limping urgency that made fear knot in my stomach. He grabbed my arm with a grip that felt colder than his skin should’ve been. “If you stay,” he said, barely forming the words, “it will come out of the water again. It always does when the family returns.” 
+The porch boards were warped, buckled slightly outward. The front door hung partially open.
 
-Before I could respond, a soft thump echoed from beneath the cabin, then another, followed by the unmistakable shift of something climbing. My uncle’s eyes widened, pupils dilating in a way that made him look momentarily feral with terror. He pushed me toward the exit with shaking hands.
+Inside, the ash markings on the floor—the ones my uncle said kept it out—were smudged in several places. Not blurred by feet. Disturbed. Distorted. Like something uncertain of its shape had pressed against them.
 
-“Get off the porch,” he whispered, voice threadbare. “Don’t let it see your feet.”
+The air in the cabin was cold enough that my breath fogged.
 
-And then the cabin floor creaked again—slow, searching, like a wet palm dragging itself upward.
+I didn’t stay long.
 
-I stumbled off the porch, nearly tripping over the warped boards, my heart hammering so hard I thought it might burst through my chest. The chill in the air wasn’t just cold—it pressed against me, invasive, like the fog itself had mass, and the sound from beneath the cabin grew sharper, wetter, more deliberate. 
+The trees behind the cabin told me one thing:
+my uncle didn’t get far.
 
-Each thump carried a dragging, gurgling echo, a rhythm that didn’t belong to anything natural. My uncle didn’t move behind me, didn’t call my name. He was frozen in place, staring down at the shadows stretching along the edge of the cabin like black tendrils. I could feel the weight of his fear without him needing to speak it.
+It didn’t take long to find signs of him.
 
-Then I saw it. The first glimpse was brief—a shadow separating itself from the moss on top of the lake as it sauntered to the shore, moving with a sickening grace that no animal should possess. Its legs bent in impossible angles, thin and angular like the deer I had chased in childhood dreams, but the limbs were far too long, far too crooked. It didn’t run; it stalked, fluid and patient, stepping across the damp ground as if the earth itself yielded to its weight. 
+A torn scrap of his jacket snagged on a bramble.
+Heavy drag marks carving shallow lines through the moss.
 
-I tried to scream, but my voice lodged in my throat, and all I could do was freeze and watch it approach the cabin’s corner. Its head lifted, glistening wet and unrecognizable, and the faint glimmer of teeth caught what little light spilled from the cabin. My stomach lurched violently. The shape of its body was partly submerged in the mist, partly visible—muscles and sinew pulsing unnaturally, scaled or slick like it had emerged from the lake itself.
+And a deep depression in the ground, like someone had knelt there—or been forced down.
 
-My uncle finally moved, a stiff, shuffling retreat toward the treeline behind us. He grabbed my arm again, dragging me backward, muttering fragments I couldn’t parse, a litany of warnings that slipped in and out of coherence. “Do not step in the water… never let it see you… the mist… it follows footprints…” 
+No blood.
 
-His breath hitched with every word. I barely registered the meaning before a wet slap against the porch made me spin. The creature had reached the boards. Its limbs were grotesquely long; claws—or something like claws—scratched across the weathered planks. 
+That somehow made it worse.
 
-The wood groaned under its touch, small pieces flaking off with a damp, sucking sound. I felt the vibration through my feet, through my bones, and a cold wave of nausea swept over me.
+On the next page of the journal, written almost frantically:
 
-The air thickened around us, and the mist swirled unnaturally, almost as if the creature was tugging at it like a cloak, drawing it in closer to hide itself. My uncle’s face twisted in terror, and for a fleeting instant I thought he might speak some final warning, but the sound never formed. 
+“It doesn’t always kill. Sometimes it keeps.”
 
-The creature paused, head cocked, jaws parting slightly to reveal teeth that glinted in a faint, sickly way, too jagged, too numerous to be normal. It made a sound then—a wet, gurgling hiss that seemed to vibrate through the cabin, through the trees, through me. My chest tightened, and I felt my knees weaken.
+My hands shook too badly to close the book properly.
 
-“Run,” my uncle gasped, finally, his voice raw. He shoved me harder toward the treeline, forcing me to stumble across uneven ground, away from the porch. The moment I left the cabin, the thudding underfoot ceased. The mist rolled outward, parting just enough to let me see the dark figure retreating into the fog, gliding over the wet grass like it had no weight at all. 
+I followed the shoreline using his sketches. All roads led to the same spot.
 
-The air stayed cold, too cold, and the silence that followed was unnatural, thickened by anticipation. I didn’t dare look back. My uncle’s hand slipped from mine, and he disappeared into the treeline almost immediately, leaving me standing alone on the damp, trembling ground, clutching the notebook I hadn’t even realized I’d kept with me.
+The circled inlet was a narrow pocket of water where the lakebed dropped sharply.
 
-I didn’t stop running until I reached the edge of the woods where the road curved back toward the main highway. Even then, I could feel it in my peripheral vision, the mist lingering like it was alive, curling around the treetrunks as though waiting for me to let my guard down. 
+The water was unnatural for mid-day—too still, too dark.
 
-I’m posting here because I don’t know what else to do. I’m in a roadside motel, too far from the lake to see it, and I can’t stop thinking about what I saw at the cabin. The lake, the footprints, the markings on the floor, my uncle… and something else, something in the water that shouldn’t exist. I don’t know what it is or what it wants, but it’s patient, and it knows me. 
+On the bank, I found a rope tied around a pine, the end frayed violently. Something had pulled it apart.
 
-I’m writing this while it’s still fresh, before I try to sleep, because I need someone—anyone—to know what’s happening.
+And in the mud, half-faded in the sun:
+
+Wet prints.
+
+Not shaped like feet. Not paws.
+
+They looked… improvised. Like something changing shape, adjusting to land, relearning how to move.
+I wanted to run again.
+
+But something under a cluster of rocks caught my eye—a bundle wrapped in waterproof plastic.
+Inside were sketches. Pages and pages of my uncle’s drawings.
+
+Anatomy of the creature.
+
+Studies of its limbs.
+
+———
+
+“The body is mostly fish—slick hide, no scales, skin that looks boiled and then re-hardened. But the legs… the legs don’t belong to anything that swims. Jointed like a deer’s but wrong in the angles, like something imitating a deer after only hearing it described once.”
+
+“Teeth like a piranha’s, but too many rows. When it closes its mouth the jaw doesn’t hinge the way a jaw should. It slides. Looks like it’s for stripping, not chewing. Strange.”
+
+“It shouldn’t be able to climb with those legs, but it somehow makes it work. The sound is the worst part—hooves on wet rock, like something trotting up from the bottom.”
+
+“The eyes never shine. Light hits them and disappears. Blacker than the lake.”
+
+———
+
+Notes on how it emerges from the water. One sequence was labeled:
+
+“When it leaves the water.”
+
+The shapes didn’t match what I’d seen exactly.
+Some of the drawings looked like earlier versions.
+
+Like it grows.
+
+Adapts.
+
+Learns.
+
+Then I heard it. A voice drifted across the water.
+
+Soft. Calm.
+
+Calling my name.
+
+It sounded like my uncle, but the cadence was wrong.
+
+Not panicked. Not strained.
+
+Conversational.
+
+The echo didn’t match the distance.
+
+And after a few seconds, the voice repeated the exact same phrase, with the exact same timing:
+
+“Come down to the dock. I need to tell you what’s going on.”
+
+My stomach dropped.
+
+My uncle never let me go past the first planks of the dock.
+
+And he sure as hell wouldn’t use that voice.
+
+I didn’t answer.
+
+I didn’t move.
+
+The voice tried again, same words, same tone.
+I could practically feel the water waiting.
+
+I made my choice.
+
+I wouldn’t go to the dock.
+
+I wouldn’t go near the water.
+
+If my uncle escaped, he’d have gone uphill. Away from the shoreline. Away from the lake’s pull.
+I started backing toward the ridge when something broke the water’s surface.
+
+Not the creature.
+
+An object.
+
+A flashlight—my uncle’s—still flickering underwater, like someone had turned it on recently and placed it gently beneath the surface.
+
+Waiting to be seen.
+
+I felt something watching me. Close.
+
+I stepped back too quickly, and the journal slipped from my hand, falling open on the damp ground.
+It didn’t fall to the last page.
+
+It fell to a page I swear I hadn’t read.
+
+The handwriting wasn’t my uncle’s.
+
+The ink was darker. Fresher. Wetter.
+
+It said:
+
+“I told you not to come in the fall. It’s awake now, and it remembers you.”
