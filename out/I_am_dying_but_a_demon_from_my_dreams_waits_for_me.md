@@ -1,6 +1,6 @@
 I am writing this to explain to whoever finds my body that what I did, what I have done, was all because I had no other choice. The thing haunts me still, and death appears to be the only escape. The mind and its unique properties continues to perplex and pose questions asked by many. However, there are certain influences, entities that the human psyche shall not bear to comprehend, that threatens the weak and malleable mind. The safety of ignorance appears tolerable as opposed to the horror of the truth. What that truth may be, I hope to never fully know. But I am distraught at the fact that I caught a glimpse of it, and I fear that I may never unsee that unfathomable truth; that of which now leaves me restless. Fortunate for me that I will not be alive to endure any more...
 
-The highlands that loom ominously over the west, are contrasted only by the endless blue abyss from the east. There lay densely packed regions bushland and forest that co-exists with both modern and antiquated buildings. I myself live in a house passed down from generation to generation, which still stands after over a century on the decaying, red earth. These old walls hold within them timeless secrets and ancient whispers that come only after the sun sleeps beneath the mountains. I am now the last of my kind, with no children to inherit this place. Though I once regarded this a curse, I now find it a blessing, as I alone will pass and take these unknowable horrors with me as I die in these hallowed halls.
+The highlands that loom ominously over the west, are contrasted only by the endless blue abyss from the east. There lay densely packed regions of bushland and forest that co-exists with both modern and antiquated buildings. I myself live in a house passed down from generation to generation, which still stands after over a century on the decaying, red earth. These old walls hold within them timeless secrets and ancient whispers that come only after the sun sleeps beneath the mountains. I am now the last of my kind, with no children to inherit this place. Though I once regarded this a curse, I now find it a blessing, as I alone will pass and take these unknowable horrors with me as I die in these hallowed halls.
 
 I alone foolishly walked home late one night; I remember the air was cool and whistled through the leafless branches above. The new moon hung low in the sky as silence strangled the leaf-speckled roads and buzzing streetlamps. A solemn stream stirred quietly beneath me as I crossed an aging timber bridge that groaned amidst the deep-rooted trees. This place has seen little change in the near two centuries since it was raised from calloused hands, and evokes the fleeting sense of familiarity to a time long since passed. It was there in the dead of night that I saw something amidst the grass on the other side. It was large, stone-like, as if a sculpture of some abstract, abominable artwork. It was only then, when the thing rose tall; rivalling the trees that stood stoically alongside it that it proved itself to possess life. I remember standing still,  my eyes gored by the menacing presence. I was paralysed, shivering and trembling while fixated on the eyes… those damnable eyes… bright, bestial and bewitching.
 
@@ -9,12 +9,6 @@ It lumbered into the dense trees, lurking in the woods as I began to quickly run
 I remember distinctly it was a late afternoon on a rainy weekend when I asked him…
 
 “Why do you not stay in that vacant building?”
-
- 
-
- 
-
- 
 
 His eyes would flash with something that could not be easily conveyed through human tongue. His consciousness and speech wandered aimlessly as he motioned me to follow him to the alley, which lay in ruin due to isolation. To say I was hesitant was an understatement. Despite our acquaintance, I did not fully trust him. I gave in to morbid curiosity, as the faint skittering of rats could be heard from beyond the rotting, boarded doors. He sat me by a stack of faintly weathered newspapers utilised as a makeshift stool, It was there and then that he recounted to me his story as rain hit the weathered roof above us, and why he dared not enter that abode, for he knows there remains nothing for him in there now.
 
@@ -28,7 +22,7 @@ I should have left; I should have ran, I should have done something. But my pryi
 
 “What did you see…?” I asked cautiously. To which he coughed and gagged, spitting into a nearby drain before continuing.
 
-“A night terror, a lumbering beast, dark, depraved…” He stopped, and coward with his face covered in his dirtied, bandaged hands. His reaction seemed excessive to me at the time.
+“A night terror, a lumbering beast, dark, depraved…” He stopped, and cowered with his face covered in his dirtied, bandaged hands. His reaction seemed excessive to me at the time.
 
 “I don’t understand, how did it ruin your life?” I asked. To which he snapped at me.
 
@@ -57,12 +51,6 @@ It was after that encounter that I was awoken from my drowse. Cold sweat, drippi
 Besides that singular and most unsettling interaction with Edmond before his passing, there had been no instigators for these nightmarish visions. Yet, these revulsion filled reveries continue to plague me, as being stuck in the crumbling lineage of my ancestors only worsened this. Somehow, between my uncles passing and the inner machinations of my mind has brought forth this entity of unknown origin; a daemon forged from the darkest nightmares that only a diseased fancy such as myself could conjure. Though was it I who truly brought this lowly dream dweller into reality? Or was it passed onto me like a curse from my estranged uncle? How many others in my family saw this wretched thing on their deathbeds? The implication stirred within me before I made a decision. With my limited inheritance, I organised a trip to the local doctor to ease my suffering as I stumble upon death’s door.
 
 Dr Richmond de-Lange was a chiselled man, a strong jaw and stubble in addition to his urbane glasses gave him this signature superiority that followed him. I felt that he was a good fit to aid me during this spontaneous condition, which he would prove by handing over well-worn medical documents and a prescription. He described the causes to similar infirmities may be associated with psychological disorders, or may happen with no evidence of comorbid psychopathology. He explained that nightmares are contributed with disease and that the resulting isolation affects an individual either socially or psychologically, causing a feed-back loop that degrades the person mentally and physically. All of which was indeed proven by my own personal experience.
-
- 
-
- 
-
- 
 
 Those words that he said, at the time provided some solemnity, yet it would not last. Dr de-Lange would request a self-report of nightmares and a prospective log of current dreams. As I provided these, his professional demeanour changed to of obsession, objective horror, and intrigue. With detailed descriptions of this specific being haunting me, I can swear on the crumbling grave of my mother that he de-Lange sensed second-hand dread through my eyes, and his gaze seemed to linger not on myself, but at something behind me. I was prescribed with Valium, and ordered to ingest it daily, he asked me to come back in a month’s time for an assessment on the drugs’ effectiveness.
 
