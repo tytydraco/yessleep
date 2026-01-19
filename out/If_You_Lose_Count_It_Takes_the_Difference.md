@@ -1,12 +1,12 @@
 Something is wrong with the count.
 
-I'm awake before I know why, hand already on the knife at my belt, breath held tight in my chest. Above me, my tarp ripples in a wind I don't feel. The forest is silent—not quiet, *silent*—and in that absence of sound, I understand what woke me.
+I'm awake before I know why, hand already on the knife at my belt, breath held tight in my chest. Above me, my tarp ripples in a wind I don't feel. The forest is silent—not quiet, silent—and in that absence of sound, I understand what woke me.
 
 The acorns stopped falling.
 
 Let me back up.
 
-My day job is management consulting. Boutique firm, mid-size clients, the kind of work where you spend sixty hours a week staring at spreadsheets and crafting deliverables that will sit unread in someone's inbox. I'm good at it. I've built a career on helping companies make sense of chaos, on finding patterns in data, on *counting things* that matter.
+My day job is management consulting. Boutique firm, mid-size clients, the kind of work where you spend sixty hours a week staring at spreadsheets and crafting deliverables that will sit unread in someone's inbox. I'm good at it. I've built a career on helping companies make sense of chaos, on finding patterns in data, on counting things that matter.
 
 But a decade ago, I was burning out. The kind of slow-motion collapse where you don't realize how far gone you are until you're snapping at baristas and lying awake at 3 AM running mental models on client retention rates. I needed something that wasn't screens and spreadsheets. Something real.
 
@@ -28,15 +28,15 @@ The first acorn hit my tarp around 11 PM.
 
 I smiled. Squirrels cache aggressively this time of year, and the oaks were heavy with mast. Nothing unusual about a territorial red squirrel expressing displeasure at my presence in its territory. I'd had them throw sticks at me before, chatter at me for hours. Part of the job.
 
-But the acorns kept coming. One every few minutes. Always on my tarp. Never on the ground beside me, never on my hammock—always that distinctive *tap* against the nylon above my head.
+But the acorns kept coming. One every few minutes. Always on my tarp. Never on the ground beside me, never on my hammock—always that distinctive \*tap\* against the nylon above my head.
 
 Around midnight, I flicked on my headlamp and aimed it up into the canopy. Nothing. The branches were empty, or at least empty of anything my light could find. I told myself the squirrel had moved. I turned off the lamp.
 
-*Tap.*
+\*Tap.\*
 
 I did a mental check of my students. Seven small fires glowing in the darkness, seven shelter silhouettes. Everyone accounted for. I let my eyes close.
 
-*Tap. Tap. Tap.*
+\*Tap. Tap. Tap.\*
 
 I don't know exactly when I started counting. Somewhere around 2 AM, probably, when sleep deprivation begins to play tricks on pattern recognition. But once I noticed, I couldn't un-notice.
 
@@ -46,7 +46,7 @@ I sat up, and the pattern stopped.
 
 I lay back down.
 
-*Tap. Tap. Tap.* Pause. *Tap. Tap. Tap.*
+\*Tap. Tap. Tap.\* Pause. \*Tap. Tap. Tap.\*
 
 I checked my watch. Timed the intervals. Thirty-seven seconds between sets. I waited. Thirty-seven seconds. Exactly.
 
@@ -66,7 +66,7 @@ I watched the glow fade from orange to red to nothing, waiting for the telltale 
 
 No answer. Probably deep asleep. I'd give them a few minutes, then go check—
 
-*Tap.*
+\*Tap.\*
 
 But this one was different. Heavier. The sound it made against the tarp wasn't the dry rattle of an acorn. It was... wet. Muffled.
 
@@ -76,13 +76,13 @@ When I finally pointed my headlamp down at what had landed beside my hammock, I 
 
 Another bone fell. Different this time. Longer. Too long for a rodent.
 
-Too clean. No pellet residue. No fur. Just smooth white bone, gleaming wet in my lamplight. And at the end of it—I didn't want to see this, but I saw it—a joint. The kind of joint that bends. The kind of joint that belongs to something with *fingers*.
+Too clean. No pellet residue. No fur. Just smooth white bone, gleaming wet in my lamplight. And at the end of it—I didn't want to see this, but I saw it—a joint. The kind of joint that bends. The kind of joint that belongs to something with fingers.
 
 They were landing in the same spot. Precisely. Exactly. As if placed.
 
-As if *presented*.
+As if presented.
 
-I checked the shelters. All seven students present, all breathing—I watched long enough to see the rise and fall of chests, the subtle shift of bodies seeking warmth. But something was off. One of them, shelter six, was sleeping *outside* their structure. Curled up in the leaf litter maybe ten feet away, like they'd crawled out in the night and just... stopped.
+I checked the shelters. All seven students present, all breathing—I watched long enough to see the rise and fall of chests, the subtle shift of bodies seeking warmth. But something was off. One of them, shelter six, was sleeping outside their structure. Curled up in the leaf litter maybe ten feet away, like they'd crawled out in the night and just... stopped.
 
 "Hey." I shook her shoulder gently. "Emily. Emily, wake up."
 
@@ -112,11 +112,11 @@ In fifteen years of consulting, I've never miscounted anything that mattered. Nu
 
 I got her fire rebuilt, got her settled back inside her shelter, and returned to my hammock.
 
-The moment I lay down: *tap.*
+The moment I lay down: \*tap.\*
 
 I looked at what fell. A tooth. Human molar. Fresh enough that I could see the root, pink with tissue.
 
-I should have woken everyone. I know that now. But I'd built my reputation on being unshakeable—the guy who *knows* these woods, who's slept in them hundreds of times, who tells nervous students that the scariest thing out here is hypothermia and their own panic. Admitting something was wrong meant admitting I'd lost control of my own territory.
+I should have woken everyone. I know that now. But I'd built my reputation on being unshakeable—the guy who knows these woods, who's slept in them hundreds of times, who tells nervous students that the scariest thing out here is hypothermia and their own panic. Admitting something was wrong meant admitting I'd lost control of my own territory.
 
 Pride kept me in that hammock. Pride, and something else—a desperate need to understand the rules before I made a move. In consulting, you never act until you understand the system. You observe. You gather data. You find the pattern.
 
@@ -128,17 +128,17 @@ Nothing fell.
 
 I closed my eyes—just for a second, just to rest them—
 
-*Tap.*
+\*Tap.\*
 
 Eyes open. Nothing.
 
 Eyes closed.
 
-*Tap. Tap.*
+\*Tap. Tap.\*
 
 I understood then. It knew when I was watching. It only moved, only acted, when my attention lapsed. When I wasn't looking.
 
-Or maybe—and this thought came slower, colder—it wasn't about seeing at all. Maybe it could tell when I stopped *counting*. When my mind drifted. When I lost track.
+Or maybe—and this thought came slower, colder—it wasn't about seeing at all. Maybe it could tell when I stopped counting. When my mind drifted. When I lost track.
 
 I counted the shelters again. Seven. Counted the students, checking each sleeping form. Seven.
 
@@ -156,15 +156,15 @@ I'd shut it down. Bad practice to tell ghost stories before an overnight, especi
 
 But now, lying in my hammock with a human tooth in the leaves beside me, I wished I'd let him finish.
 
-*Something about a counting game.*
+Something about a counting game.
 
 Marcus was in shelter three. I could see his outline from here, motionless in sleep. I thought about waking him, asking him what he'd read.
 
-*Tap.*
+\*Tap.\*
 
 I closed my eyes without meaning to.
 
-*Tap. Tap. Tap.*
+\*Tap. Tap. Tap.\*
 
 Three. Always three.
 
@@ -178,7 +178,7 @@ His sleeping bag was still warm. He'd been there minutes ago.
 
 "Marcus?" I kept my voice calm, projected but not shouting. "Marcus, if you can hear me, call out."
 
-Nothing. The forest had that silence again, that *wrong* silence, like the night itself was holding its breath.
+Nothing. The forest had that silence again, that wrong silence, like the night itself was holding its breath.
 
 I found him fifty yards out, sitting against an oak tree, staring at nothing. His eyes were open but unfocused, his hands folded in his lap like a child waiting to be called on in class. His lips were moving.
 
@@ -202,7 +202,7 @@ I helped him up, helped him back to his shelter. The walk felt longer than it sh
 
 And then I saw the shelters, and there were eight of them.
 
-Eight. Definitely eight. I could see them all clearly in the faint moonlight filtering through the canopy. Seven that my students had built—and one more. Set apart from the others. Made of debris, yes, branches and leaves and deadfall, but the proportions were *wrong*. The angles were wrong. Like something had seen a shelter, understood the concept of a shelter, but didn't quite understand what a shelter was *for*.
+Eight. Definitely eight. I could see them all clearly in the faint moonlight filtering through the canopy. Seven that my students had built—and one more. Set apart from the others. Made of debris, yes, branches and leaves and deadfall, but the proportions were wrong. The angles were wrong. Like something had seen a shelter, understood the concept of a shelter, but didn't quite understand what a shelter was for.
 
 And it was breathing. The whole structure, rising and falling, slow and rhythmic.
 
@@ -216,7 +216,7 @@ I didn't answer. I got him back to his own shelter, rebuilt his fire, and return
 
 The drops were faster now. Frantic, almost.
 
-*Tap tap tap tap tap—*
+\*Tap tap tap tap tap\*
 
 I didn't close my eyes. I didn't dare. But even with my eyes open, watching, I could see movement at the edge of my vision. The eighth shelter. Something shifting inside it. Or around it. Or—
 
@@ -224,7 +224,7 @@ Don't look directly. The thought came from nowhere, but I knew it was true. I kn
 
 But it wanted me to look. The drops slowed when my gaze stayed fixed on the tarp. Sped up when my attention drifted toward that wrong shape at the edge of the clearing.
 
-*It wanted me to count it.*
+It wanted me to count it.
 
 A scream.
 
@@ -242,7 +242,7 @@ The fire was normal again. Orange. Warm. Crackling softly like fires do.
 
 "What?"
 
-"I heard it counting. But the numbers were wrong. They were too high. And it was counting—" He stopped. Looked at me with something I hadn't seen from him all night: real fear. "It was counting *us*. But it got to a number higher than seven. Way higher. Like there were more of us than there are. Like there have *always* been more of us."
+"I heard it counting. But the numbers were wrong. They were too high. And it was counting—" He stopped. Looked at me with something I hadn't seen from him all night: real fear. "It was counting us. But it got to a number higher than seven. Way higher. Like there were more of us than there are. Like there have always been more of us."
 
 I didn't ask what he meant. I didn't want to know what he meant.
 
@@ -262,11 +262,11 @@ From somewhere in the darkness, I heard whispering. Soft. Rhythmic. Counting.
 
 But the numbers were wrong. Too high, Jake had said, and now I understood what he meant. The counting went past any number my students could have reached. Past any number that made sense. It was counting things that shouldn't be countable. Things that didn't exist.
 
-Or things that *had* existed. Things that used to be here. Things that had been *taken*.
+Or things that had existed. Things that used to be here. Things that had been taken.
 
 I realized then what I'd been doing wrong all night. I'd been counting shelters. Counting students.
 
-*It* was counting something else. Something cumulative. A running total.
+It was counting something else. Something cumulative. A running total.
 
 I thought about all the classes I'd taught in these woods. All the students. Hundreds of them, over the years.
 
@@ -278,7 +278,7 @@ Dawn comes slowly in fall, gray light seeping through the canopy like water thro
 
 I looked at the eighth shelter.
 
-In the pre-dawn dimness, I could see it clearly now. Not a shelter. A *shape*. Built of debris, yes—sticks and leaves and things I didn't want to identify—but there was nothing inside it. No hollow space for a body to shelter. It was solid. Dense. Like something that had tried to build a shelter but didn't understand that shelters are empty.
+In the pre-dawn dimness, I could see it clearly now. Not a shelter. A shape. Built of debris, yes—sticks and leaves and things I didn't want to identify—but there was nothing inside it. No hollow space for a body to shelter. It was solid. Dense. Like something that had tried to build a shelter but didn't understand that shelters are empty.
 
 Except it wasn't entirely solid. Near the base, I could see shapes pressed into the debris. Impressions. Like faces pushing against the inside of a mask, mouths open, frozen mid-count.
 
@@ -318,7 +318,7 @@ I tried not to look. I told myself not to look.
 
 I looked.
 
-Inside, arranged in careful spirals, were thousands of acorns. Sorted by size. Organized by some system I couldn't comprehend. Counted, I realized. They had been *counted*.
+Inside, arranged in careful spirals, were thousands of acorns. Sorted by size. Organized by some system I couldn't comprehend. Counted, I realized. They had been counted.
 
 And sitting among them, placed precisely in the center, were seven objects.
 
@@ -330,127 +330,115 @@ I didn't stop. I didn't let my students stop. We walked until the trees thinned 
 
 But the parking lot had seven cars in it. And I could only count six students.
 
-Search and rescue found *a* student three miles from our campsite. Hypothermic but alive. 
+I called search and rescue from the trailhead. Gave them the GPS coordinates. Told them I had a missing student.
 
-They said he matched the description.
+They asked for a name. I couldn't give them one.
 
-But when I visited him in the hospital, something was wrong.
+They asked for a description. I couldn't give them that either.
 
-He answered to the right name. He had the right face. But his eyes kept drifting to the corners of the room, and his lips moved silently. Counting. Always counting.
+I sat in my car while I waited for them to arrive and called Marcus. He answered on the third ring, sounding exhausted.
 
-"Do you remember the class?" I asked him.
+"The counting game," I said. "What you mentioned last night. Where did you read about it?"
 
-He looked at me. Through me. "I wasn't in your class," he said. "I've never been in your class. I was already in the woods when you arrived."
+Silence on the line. Then: "I don't... I'm not sure I know what you're talking about."
 
-I felt the floor tilt beneath me. "What do you mean?"
+"At the campfire. You said you'd read something about these woods. Local history. A counting game."
 
-"I've been in the woods for a very long time," he said. His voice was flat. Rhythmic. "I was counting before you got there. I'll be counting after you're gone."
+"I don't remember saying that." He sounded genuinely confused. "Are you okay? You sound—"
+
+I hung up.
+
+I sat there staring at my phone, and then I did what anyone would do. I started searching.
+
+"Western Massachusetts woods counting legend." Nothing useful. Hiking blogs. Trail reviews.
+
+"New England folklore counting game." Creepypasta results. Reddit threads about made-up games.
+
+"Massachusetts forest disappearances counting." Missing persons databases. News articles about hikers who wandered off trail. Nothing that matched.
+
+I tried different combinations. Added "colonial." Added "settler." Added "German immigrants" because something in my memory said the words should be German, though I didn't know why.
+
+Forty minutes of searching. SAR was arriving. I was about to give up.
+
+Then I found a single forum post from 2008. Some local history board, barely active, the kind of place where amateur genealogists argue about cemetery records.
+
+The post was asking if anyone had information about "der Zähler" or "the counting tradition" referenced in Hampshire County church records from the 1890s. No responses. The user who posted it had been inactive since 2009.
+
+But in the post, they'd quoted a fragment from something—a letter, maybe, or a sermon: "It counts what we cannot. Every error in our count becomes an entry in its ledger. The debt is always collected."
+
+That was all. No source. No context. Just those three sentences, quoted by someone who'd been looking for the same answers sixteen years ago and apparently never found them.
+
+I screenshot it. I don't know why. I don't know what good it does me.
+
+The debt is always collected.
+
+Search and rescue found a student three miles from our campsite. Hypothermic but alive. They said he matched the description.
+
+I hadn't given them a description.
+
+I went to the hospital that afternoon. I don't know what I expected. Closure, maybe. Confirmation that this was over.
+
+He was awake when I walked in. He had the right face—I thought he did, anyway. I couldn't quite remember what the missing student looked like, so how would I know?
+
+His eyes kept drifting to the corners of the room. His lips moved silently.
+
+"Do you remember the class?" I asked.
+
+He looked at me. Through me.
+
+"I wasn't in your class," he said. "I've never been in your class. I was already in the woods when you arrived."
+
+"What?"
+
+"I've been in the woods for a very long time." His voice was flat. Rhythmic. Like someone reciting numbers. "I was counting before you got there. I'll be counting after you're gone."
 
 He smiled. His gums were empty where two teeth should have been.
 
 "You miscounted," he said. "You always miscount. That's why it likes you."
 
-I left. I didn't look back. In the hallway, I passed a nurse who asked if I was family. I said no.
+I left. I didn't run, but I wanted to. In the hallway, a nurse asked if I was family.
 
-"Strange case," she said. "No ID. No records. It's like he didn't exist before we found him."
+"No," I said. "I don't know who he is."
 
-I didn't answer. I walked to my car and sat in the parking lot for an hour, counting my own heartbeats until they stopped shaking.
+"Neither do we." She looked back at his room. "No ID. No records. It's like he didn't exist before today."
 
-I didn't mention the eighth shelter. When I went back with the SAR team to collect our gear, it was gone. Just a pile of leaves and sticks that could have been anything. Natural debris. Nothing worth noting.
+I went back to the woods with the SAR team that evening to collect our gear. I told myself I needed to. The shelters, the equipment, the students' belongings—someone had to pack it out.
 
-Except for the impression in the center of the pile. Body-shaped. Body-sized. Like something had been lying there, curled up, waiting.
+The eighth shelter was gone. Just a pile of leaves and sticks that could have been anything. Natural debris. A windfall. Nothing.
 
-And the acorns. Scattered everywhere. Thousands of them. Far more than could have fallen from the trees above.
+But there was an impression in the center. Body-shaped. Body-sized.
 
-One of the SAR team picked one up, turned it over in his hand. "Weird," he said. "This one has marks on it. Like tally marks."
+And acorns. Thousands of them, scattered in patterns I couldn't read. One of the SAR guys picked one up, turned it over.
 
-I didn't look. I already knew what they were counting.
+"Huh," he said. "This one has marks on it. Like little scratches. Tally marks, almost."
 
-After that night, I did what I should have done during the campfire. I looked up what Marcus had read.
+I didn't look. I didn't want to count them.
 
-It took weeks of digging through local historical archives—the kind of primary source work I used to do for fun, back when colonial history was just an academic interest and not a survival manual. Newspaper clippings from 1892, brittle and faded, about settlers in these woods. Letters from a minister to his congregation warning them about walking the forest at night.
+We packed out the gear. I drove home. I sat in my apartment and I stared at the wall and I tried to make sense of what happened.
 
-They called it *Wald-Zähler*. The Forest Counter.
+I'm still trying.
 
-The accounts were fragmentary. Contradictory. But certain details appeared again and again.
+That was yesterday.
 
-It was attracted to groups. It tested them by adding to their number—one more shadow at the edge of the firelight, one more voice in the darkness, one more shape that didn't belong. If you counted wrong—if you accepted the addition, if you failed to notice the extra—you confirmed something about yourself.
-
-You confirmed you couldn't be trusted to notice what was missing.
-
-And that's when it started subtracting.
-
-The minister's letter was the clearest. "It counts what we cannot," he wrote. "It keeps a tally we dare not examine. And every error in our count becomes an entry in its ledger. The debt is always collected. The difference is always taken."
-
-The letter was dated November 1892. The minister vanished two weeks later. His congregation reported that on the night he disappeared, they counted thirteen people at evening service.
-
-There had only ever been twelve members of that church.
-
-I thought about those 18th century settlers I used to read about. The ones who kept meticulous records of everything—births, deaths, livestock, supplies. I used to admire their precision. Now I wonder if they were counting for the same reason I count now.
-
-Not to track what they had.
-
-To track what they were losing.
-
-I should have stopped teaching after that. I know that. Any reasonable person would have walked away.
-
-But these are my woods. I've given a decade of my life to them—every weekend I could spare from client calls and deliverables, every vacation day I could justify. The woods were supposed to be my escape from the spreadsheets, from the endless counting that defined my professional life. Instead, they've become the place where counting matters most.
-
-So I keep teaching. Keep running courses. Keep sleeping in my hammock under my tarp while students tend their fires.
-
-But I count differently now.
-
-I count obsessively. Every student, every shelter, every acorn that falls on my tarp. I count the trees at the edge of the clearing. I count my own heartbeats. I count because I understand now what I didn't understand before.
-
-That night, something was counting too.
-
-And I'm not sure I got the number right.
-
-Here's the thing about numbers, the thing I've learned in fifteen years of consulting: a count is only as good as your methodology. If you don't know what you're counting, the number means nothing. I thought I was counting students. Counting shelters.
-
-But it was counting something else. Something I couldn't see. And every time I miscounted—every time my attention slipped—the difference between its count and mine became *real*.
-
-Became *taken*.
-
-Last week, I took another overnight class to those same woods. Seven students this time. Seven shelters. I counted before sleep, and the count was right.
-
-But this morning, I woke to an acorn on my tarp.
-
-And when I counted the shelters in the gray pre-dawn light, I counted eight.
-
-I counted my students. Six.
-
-There's a seventh car in the parking lot. It's been there since we arrived. I don't know whose it is. None of my students recognize it.
-
-I've been counting all day. Everything. Everyone. I can't stop. I don't dare stop.
-
-Because I think if I ever lose count—if my attention lapses, if I let a number slip—
-
-It gets to take the difference.
-
-And lately, I've started hearing something in the walls of my apartment. Soft. Rhythmic.
-
-*Tap. Tap. Tap.*
-
-I don't think the woods are the only place it lives anymore.
-
-I don't think the woods were ever the point.
-
-It was always about the counting. About the gap between what we think is there and what's actually there. About the space where things can be added—or subtracted—without anyone noticing.
-
-I went through my class records last night. Rosters going back ten years. Names and numbers. I counted them against my memory.
+I've been sitting here for hours now, going through my records. Class rosters. Signed waivers. Emergency contacts.
 
 The numbers don't match.
 
-There are names on those rosters I don't recognize. People I have no memory of teaching. And there are gaps—classes where I remember seven students but only six names are written down. Classes where the headcount in my notes doesn't match the signatures on the waivers.
+I have seven signed waivers from that class. Seven emergency contact forms. But my roster only shows six names. And when I try to remember the seventh person—the one who signed a waiver but isn't on my roster—I can't. I can't picture their face. I can't remember their voice.
+
+I checked older classes. The same thing. Small discrepancies. A waiver with no matching roster entry. A roster name I don't recognize. A headcount in my notes that doesn't match the number of signatures.
 
 I've been miscounting for years.
 
-The difference has been taken. Again and again and again. And I never noticed because you can't miss what you never knew was there.
+And I never noticed.
 
-I need to stop writing now. I need to count something.
+Because you can't miss what you don't remember.
 
-But before I go, I want you to do something for me. Go back to the beginning of this story. Count how many students I said were in my class.
+I need to post this. I need someone else to see it, to tell me I'm not losing my mind.
+
+But before I do, I need you to do something for me.
+
+Go back to the beginning of this story. Count how many students I said were in my class.
 
 I said eight.
 
@@ -458,8 +446,28 @@ I've been saying seven this whole time.
 
 I don't remember the eighth student. I can't picture their face. I don't know their name.
 
-But they were there. They must have been there. I *wrote* eight.
+But they were there. They must have been there. I \*wrote\* eight.
 
-So where did they go?
+Unless I didn't.
 
-And how long before the count changes...
+I'm looking at the sentence now. "Eight students ranging from college kids to a retired accountant."
+
+But the longer I stare at it, the less sure I am that it always said eight. The number looks strange somehow. Foreign. Like it doesn't belong there.
+
+I've been hearing something since I got home. Soft. Rhythmic. I told myself it was the pipes, the building settling, something outside.
+
+\*Tap. Tap. Tap.\*
+
+But there's nothing outside my window. I checked.
+
+\*Tap. Tap. Tap.\*
+
+It's coming from inside the apartment. I don't know where. Every time I move toward the sound, it stops. Every time I sit back down, it starts again.
+
+\*Tap. Tap. Tap.\*
+
+I keep counting things. I can't stop. The books on my shelf. The tiles on my ceiling. My own heartbeats. I count because I'm terrified of what happens if I lose track. If my attention slips. If I let a number go wrong.
+
+The debt is always collected.
+
+I don't know what I owe.
