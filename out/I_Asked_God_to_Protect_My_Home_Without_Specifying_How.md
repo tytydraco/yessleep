@@ -4,7 +4,7 @@ The sirens started just after dinner, that long wounded-animal howl that makes y
 
 We live on the edge of town, south side, where the fields open up and the sky feels bigger than it should. Missouri’s like that. Faith runs thick here. So does weather. I’d preached on storms before—how God sends rain on the just and unjust, how He’s a refuge. I believed it. I still do. 
 
-The cellar door groaned like it always did. The steps were damp. I flicked on the light and the bulb buzzed. We filed down: the kids first—Eli fourteen, Ruth eleven, Caleb seven—then Karen, then me, pulling the door closed. I latched it. I could feel the pressure change in my ears already.
+The cellar door groaned like it always did. The steps were damp. I flicked on the light and the bulb buzzed. We filed down: the kids first—Eli seven, Ruth eleven, Caleb fourteen—then Karen, then me, pulling the door closed. I latched it. I could feel the pressure change in my ears already.
 
 The radio crackled. Tornado warning. Rotation confirmed. Take shelter immediately.
 
