@@ -19,3 +19,5 @@ and then I saw the hitchhiker leaving me and entering him. The fog thickened, th
 The looping didn't last longer, it came to a halt and was followed my an ominous weeping inside my head, it was a strong echo of someone crying, someone constantly crying within me.
 
 Meanwhile I could feel a part of me alive somewhere else as well, somewhere I couldn't understand. Before I could reason without the situation, a voice echoed somewhere, somewhere my other self was present at...**"Yeah...Where are we going?"**
+
+[Part 4](https://www.reddit.com/r/nosleep/s/vFsI3VdnWU)
