@@ -4,7 +4,7 @@ I found something in my tool bag. 
 
 V issues our bags, and i’ve used the same one for the entire 6 years I’ve worked here, so I know exactly what’s supposed to be in it.
 
-A few hours ago, I was digging through the bag looking for a specific hex key for the Kit48 dining set, when my fingers hit something bulky at the bottom. It was rectangular and hard, but it was *into* the lining of the bag. 
+A few hours ago, I was digging through the bag looking for a specific hex key for the Kit48 dining set, when my fingers hit something bulky at the bottom. It was rectangular and hard, but it was sewn *into* the lining of the bag.
 
 I’ve never felt it there before.
 
@@ -22,11 +22,11 @@ It said things like, the coffee table must be placed at the exact intersection o
 
 I didn’t know what any of that meant. But it had been a really weird week and clearly I was feeling reckless, so I decided to follow what the book said. 
 
-I used a laser level to line up the sofa, a compass on my phone to find magnetic North for the lamp, and I set the oven ‘frequency’ just like it said. 
+I used a laser level to line up the sofa, a compass on my phone to find magnetic North for the lamp, and I set the oven ‘frequency’ just like it said.
 
 It took about an hour to get it all right. 
 
-But nothing happened. It was pretty anticlimactic actually. 
+But nothing happened. It was pretty anticlimactic actually.
 
 I carried on with the stage as I normally would, and as I added the finishing touches, I started to feel weird. My vision started to lag, and when I turned my head to look from the kitchen to the living room, the furniture seemed to take a microsecond to appear. 
 
@@ -76,8 +76,8 @@ I expected her to laugh at that. We both know V doesn’t spend money on anythin
 
 She went quiet for a few seconds, then said:
 
-“What did you see?”  
-  
+“What did you see?”
+
 That threw me, because that's a a really odd response to that question. So I didn’t say anything.
 
 In the exact same cadence and tone, she repeated:
@@ -96,4 +96,4 @@ Something doesn’t feel right. 
 
 I’m going to see what I can find on the V employee portal. If these IDs link to people, I want names. And if this manual was stitched into my bag, I think someone wanted me to find it.
 
-No time lost today. As far as I know. 
+No time lost today. As far as I know.
