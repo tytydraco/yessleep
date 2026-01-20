@@ -1,10 +1,10 @@
-The sirens started just after dinner, that long wounded-animal howl that makes your spine tighten even if you’ve heard it a hundred times. I was washing dishes at the sink. Karen, was wiping the table. The kids were arguing about who’d taken the last roll.
+The sirens started just after dinner, that long wounded-animal howl that makes your spine tighten even if you’ve heard it a hundred times. I was washing dishes at the sink. My wife, Karen, was wiping the table. The kids were arguing about who’d taken the last roll.
 
 “Cellar, now!” I said. Not loud. Just firm. We practiced this.
 
 We live on the edge of town, south side, where the fields open up and the sky feels bigger than it should. Missouri’s like that. Faith runs thick here. So does weather. I’d preached on storms before—how God sends rain on the just and unjust, how He’s a refuge. I believed it. I still do. 
 
-The cellar door groaned like it always did. The steps were damp. I flicked on the light and the bulb buzzed. We filed down: Karen, then the kids—Eli fourteen, Ruth eleven, Caleb seven—then me, pulling the door closed. I latched it. I could feel the pressure change in my ears already.
+The cellar door groaned like it always did. The steps were damp. I flicked on the light and the bulb buzzed. We filed down: the kids first—Eli fourteen, Ruth eleven, Caleb seven—then Karen, then me, pulling the door closed. I latched it. I could feel the pressure change in my ears already.
 
 The radio crackled. Tornado warning. Rotation confirmed. Take shelter immediately.
 
@@ -84,7 +84,7 @@ I turn to a page I don’t remember marking. Job, thin paper whispering.
 
 “The Lord gave, and the Lord has taken away...”
 
-Below it, I saw another verse: “Shall we accept good from God, and not trouble?”
+Below it, I see another verse: “Shall we accept good from God, and not trouble?”
 
 I close the book.
 
