@@ -22,7 +22,7 @@ I glanced at the kids huddled on the bench, eyes wide.
 
 We bowed our heads. I asked God to cover our home, to put His hand between us and the storm. I said we trusted Him. I meant it. The wind began to scream overhead, a freight train sound like the old folks say, only louder than any train I’ve ever heard.
 
-Something hit the house. The walls shuddered. Dirt sifted from the ceiling and dusted our shoulders. Ruth started to cry. I kept praying. I prayed louder.
+Something hit the house. The walls [shuddered](https://www.reddit.com/r/PageTurner627Horror/comments/1pnmwq7/december_took_everything_part_1/). Dirt sifted from the ceiling and dusted our shoulders. Ruth started to cry. I kept praying. I prayed louder.
 
 Then, as sudden as it came, the sound pulled away. The pressure eased. The radio said the cell had lifted, jogged east, spared the town center. By morning, we climbed out to broken branches and a torn-up fence. No roof gone. No walls down. Praise God.
 
