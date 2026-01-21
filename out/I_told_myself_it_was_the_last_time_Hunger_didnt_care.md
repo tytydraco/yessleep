@@ -1,3 +1,6 @@
+Privious part: https://www.reddit.com/r/nosleep/s/RkDfjqJtVI
+
+
 I sat beside my father’s body until the sky started to lighten again.
 
 Not because I was honoring him.

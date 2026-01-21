@@ -140,7 +140,7 @@ After seven years of speaking with optics, I had learnt to read the emotion in t
 
 *This is what Caligula needs*, said Aristotle.
 
-He was right. That totalitarian’s radical ideas were catching the attention of young and impressionable citizens who did not care for history or ethical teachings; they cared only for the her and now. They were starving of oxygen and nutrients, and someone had solutions. That was all.
+He was right. That totalitarian’s radical ideas were catching the attention of young and impressionable citizens who did not care for history or ethical teachings; they cared only for the here and now. They were starving of oxygen and nutrients, and someone had solutions. That was all.
 
 Caligula blamed overpopulation. He was cunning in his deception, dressed in a truth. There weren’t enough nutrients to go around for all 13,000 optics. But overpopulation was not the cause of the problem. It simply exacerbated things.
 
