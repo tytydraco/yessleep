@@ -178,7 +178,9 @@ The headless thing struggled for a moment to get him up, to move him, and with t
 
 It felt like I was frozen in that carseat forever, but it was still hours before the sun came up. Hours I spent running, walking, crying, down the only road out of that place. A girl in her pajamas, barefoot, walking for her life down a dirt road, clinging to her teddy bear. I wandered onto some access road some time before the sun started to rise, when a car slowed to a stop next to me. A man, a woman, two kids, and their dog. A family on a road trip.
 
-They asked a bunch of questions. I was too tired, too scared, too weak to answer. They took me to the nearest town and I spent the next few nights in a police station where they asked me all the same questions. With time, I was able to answer some and even ask a few. Police went to the farm and came back saying they found nothing. No dad, no blood. His truck was there, but all that was on the seat or the floor was hay. All they found on the roundabout was crows pecking at a pile of pumpkin guts. Nothing in the house, except more hay. They didn't say anything about the scarecrow.
+They asked a bunch of questions that I was too tired, too scared, too weak to answer. Then they gave me a ride, squeezed into the back while the mom held onto their dog who wouldn't stop growling at me. I just hugged Nellie and crouched into the seat corner. The boy, the one nearest to me kept staring daggers at me, until eventually he asked if I was a ghost.
+
+They took me to the nearest town and I spent the next few nights in a police station where they asked me all the same questions. With time, I was able to answer some and even ask a few. Police went to the farm and came back saying they found nothing. No dad, no blood. His truck was there, but all that was on the seat or the floor was hay. All they found on the roundabout was crows pecking at a pile of pumpkin guts. Nothing in the house, except more hay. They didn't say anything about the scarecrow.
 
 They asked me who my mom was and what number they could call. Then it was a social worker, telling me about somewhere new. Three nights in a police station and twelve years in the foster system. My only next of kin was considered unfit, and that's never really changed. Neither have I, for that matter, except for the worse.
 
@@ -220,7 +222,7 @@ That's especially true when you find yourself driving up the same gravel road yo
 
 Before I know it, I'm face to face with that old, gray house I spent those sleepless nights in. The land, as desolate as it was when I left. No one's here. No one's lived here in years, no thanks to the police. I park and step out, and zip Nellie up into a blue backpack that I sling over my shoulders. How ugly, and abandoned, and cold this place is.
 
-I walk up to the turnaround, the very spot he was killed, and dragged into the night. Remembering a moment, exactly as it happened and where, with no trace left behind on the pure white ground. It's like looking at a ghost. I walk the same path he was dragged through, up the old creaky steps. I look on the deck at where the scarecrow's head fell off. Nothing.
+I walk up to the turnaround, the very spot he was killed, and dragged into the night. Remembering a moment, exactly as it happened and where, with no trace left behind on the pure white ground. It's like looking at a ghost. I walk the same path he was dragged through, up the old creaky steps. Nothing.
 
 The door gives way with no effort at all, and the house is as empty as ever. But I feel the heaviness in the air. The sharp, cold sting that keeps me from taking one more step inside. Only one last thing. One last place I've yet to look.
 

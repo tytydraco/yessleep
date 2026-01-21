@@ -109,4 +109,4 @@ And it didn’t seem to be waiting for me to leave.
 
 It looked like it had already moved on.
 
-[Part 6](https://www.reddit.com/r/nosleep/comments/1qgqmdw/i_dont_feel_safe_in_my_apartment_anymore_part_6/)
+[Part 6](https://www.reddit.com/r/nosleep/comments/1qgqmdw/i_dont_feel_safe_in_my_apartment_anymore_part_6/) [Part 7](https://www.reddit.com/r/nosleep/comments/1qik5w8/i_dont_feel_safe_in_my_apartment_anymore_part_7/)

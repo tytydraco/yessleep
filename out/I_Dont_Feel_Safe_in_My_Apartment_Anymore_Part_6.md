@@ -272,3 +272,5 @@ The unit would still be occupied.
 The records would still balance.
 
 That was the moment I understood that as far as the system was concerned, I was already replaceable.
+
+[Part 7](https://www.reddit.com/r/nosleep/comments/1qik5w8/i_dont_feel_safe_in_my_apartment_anymore_part_7/)
