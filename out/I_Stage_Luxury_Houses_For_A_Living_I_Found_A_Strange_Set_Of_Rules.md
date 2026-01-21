@@ -97,3 +97,5 @@ Something doesn’t feel right. 
 I’m going to see what I can find on the V employee portal. If these IDs link to people, I want names. And if this manual was stitched into my bag, I think someone wanted me to find it.
 
 No time lost today. As far as I know.
+
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1qjd8kc/i_stage_luxury_houses_for_a_living_i_think_im/)

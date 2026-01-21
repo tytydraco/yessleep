@@ -93,3 +93,5 @@ I'm genuinely asking, does this make sense to anyone?
 I’m heading back to Maine in the morning, but I’m going to inventory my entire kit tonight to see if anything else has decided to duplicate. I really hope I don’t lose anymore time. 
 
 [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1qhjl6l/i_stage_luxury_houses_for_a_living_i_found_a/)
+
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1qjd8kc/i_stage_luxury_houses_for_a_living_i_think_im/)
