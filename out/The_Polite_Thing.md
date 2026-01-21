@@ -26,8 +26,8 @@ Mrs. D’Souza recently moved into 6B, the very apartment abruptly vacated by Ke
 
 “Good morning, dear. Hope you’re doing well.”
 
-She always said it with a smile too wide for her small face. Always the same words. Always in the same spot near the stairs.  
-  
+She always said it with a smile too wide for her small face. Always the same words. Always in the same spot near the stairs.
+
 The next was Mr. Collins from 6A, another recent tenant. Always hustling and in a hurry to get to work. He only ever slowed down if he was on a business call—and even then, it was because the cell reception was spotty in the building.
 
 Being who he was, he would often rush into the elevator ahead of others, closing the doors quickly if it meant arriving sooner. But he too eventually changed, to the point that he now held the elevator door for people, even when it meant missing it himself. He would also apologize if someone else bumped into him.
@@ -348,65 +348,6 @@ I picked up the old, weathered belt and stepped closer to him. In one practiced 
 
 **A young boy stands alone by the lakeside at night. Lost in thought, he stares at the moonlit water, a severed head dangling from his hand. He tosses it into the lake before slowly making his way back home.**
 
-
-
-
-
-  
 \*\*\*\*\*\*\*\*\*\*
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
 
  
