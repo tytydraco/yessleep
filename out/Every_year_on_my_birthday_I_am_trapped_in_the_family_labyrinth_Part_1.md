@@ -1,3 +1,5 @@
+[Part 2.](https://www.reddit.com/r/nosleep/comments/1qignu2/every_year_on_my_birthday_i_am_trapped_in_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 Every family has traditions; some might be stranger than others. I find myself reflecting on my own family's traditions as the date approaches again. You see in my family, on someone's birthday, after they turn sixteen, something unique happens. They are taken to a special place, to the family labyrinth.
 
 It always happens, we are taken there and not by choice. Yet no one physically brings us there, it's not some prison or punishment that our elders inflict on us, rather we just.... end up there.
@@ -53,8 +55,6 @@ He did not know exactly. But he told me that many years ago someone once saw a s
 It is comforting to think there could be a secret to help keep our family safe and end the nightmare we have endured all these years. But I have never seen such a room, no one else, at least in my generation has either. I know I cannot count on finding it, I know I have to do what I did the last few years and just survive.
 
 I push the glimmer of hope for a possible end to the curse away for now. I know it's no use, all I can do is prepare myself, physically and mentally, for what comes next. My birthday is in forty eight hours and I don’t think I’m ready, how could anyone ever be ready?
-
-
 
 As I consider my preparation, I am reminded of my cousin Jamie. His eighteenth birthday was two days ago and he has not come back yet. My brother Jake and I have a job to do. It's our turn to watch the mausoleum. We are hoping to see Jaime emerge soon. We watch and watch, and when we grow tired our father and uncle Ken will take over. I pray that Jaime is alright, people have returned after longer than two days, but for most, if they cannot return within the first twenty four hours, they never return.
 
