@@ -1,4 +1,4 @@
-Look, I know how this is going to sound. I really do. But when you have too much [disposable](https://www.reddit.com/r/PageTurner627Horror/comments/1pnmwq7/december_took_everything_part_1/) income and not enough common sense, curiosity turns into bad decisions fast. That’s how I ended up buying a supposedly real Egyptian mummy off the dark web at three in the morning, half-drunk and fully convinced I was invincible.
+Look, I know how this is going to sound. I really do. But when you're a venture capitalist with too much [disposable](https://www.reddit.com/r/PageTurner627Horror/comments/1pnmwq7/december_took_everything_part_1/) income and not enough common sense, curiosity turns into bad decisions fast. That’s how I ended up buying a supposedly real Egyptian mummy off the dark web at three in the morning, half-drunk and fully convinced I was invincible.
 
 The seller was evasive but confident. Claimed it was the genuine remains of a 15th Dynasty princess named Shariti. Included grainy photos, a shaky “provenance,” and just enough historical jargon to feel convincing. The price? Twelve thousand dollars. Honestly, I’d spent more on furniture I barely liked. This at least came with a story.
 
@@ -8,19 +8,33 @@ So I threw an unwrapping party at my Manhattan penthouse.
 
 I leaned hard into the aesthetic. Candles everywhere. Low lighting. Frankincense and myrrh burning in shallow brass dishes. I even curated a playlist—slow, ominous instrumental stuff that made everyone feel like they were part of something forbidden and important. The sarcophagus sat lengthwise on my living room table, displacing weeks of mail and one unfortunate houseplant.
 
-My guests filtered in: a mix of history nerds, thrill-seekers, and friends who just wanted wine and gossip with a side of morbidity. Phones were out. Jokes were made about curses and hauntings. Someone asked if I’d taken out extra life insurance. Everyone laughed.
+My guests filtered in: a mix of history nerds, thrill-seekers, and friends who just wanted wine and gossip with a side of morbidity. Phones were out, taking selfies for Instagram.
 
-The mummy looked the part. Ornate coffin. Linen wrappings yellowed with age, brittle and layered, folded with what looked like reverence. It was stiff, regal, heavy in a way that suggested significance.
+“Alright,” I said, smiling like this was a totally normal thing to do on a Friday night. "If anyone here believes in ancient curses... last chance to back out."
 
-I made a show of it. Raised a glass. Thanked everyone for coming. Then, with exaggerated ceremony, I took a pair of scissors and made the first cut.
+That got a couple nervous laughs.
 
-The linen parted easily. Too easily, maybe, but I ignored that. We peeled back layers slowly, narrating like amateur archaeologists. Someone joked about Indiana Jones. Someone else dared me to eat a piece of linen. I obliged as a good host should.
+I wedged the crowbar into the seam of the lid. The old wood groaned, then gave with a crack. The smell that wafted out was dry and dusty. Everyone leaned in.
+
+Inside, she lay there. A tightly wrapped, slender form, the linen bandages stained a deep amber with resins. There was a crude, stylized cartonnage mask placed over her face, the gilt flaked away to reveal grey plaster beneath. The painted eyes, black and oversized, stared blankly at my ceiling.
+
+Then, with exaggerated ceremony, I took a pair of scissors and made the first cut.
+
+The linen parted easily. Too easily, maybe, but I ignored that. I peeled back layers slowly, narrating like an David Attenborough.
+
+Someone—probably Mark, who once ate a live goldfish on a bet, shouted, “Hey Rhett, I dare you to eat a piece!”
+
+A chorus of “oh my gods” and laughter followed. As a good host, I obliged. I snipped a small, brittle scrap from the inner layer near the foot.
+
+“To your health, Princess,” I said, and popped it in my mouth.
+
+It tasted like moldy paper and stale spices. It turned to a gritty paste on my tongue. I forced it down with a swig of Cabernet as everyone cheered and gagged.
 
 A few layers in, the mood shifted.
 
 The linen smelled… wrong. Not dusty or dry, but faintly chemical in places, like a thrift store or a hospital hallway. The texture varied—some sections fragile, others oddly sturdy.
 
-“Hey Rhett, does that look stitched to you?” Greg asked. He crouched closer, squinting. Greg had taken exactly one Egyptology class in college and never let anyone forget it.
+“Does that look stitched to you?” Greg asked. He crouched closer, squinting. Greg had taken exactly one Egyptology class in college and never let anyone forget it.
 
 He tugged at an edge. “Yeah, that’s machine stitching. No way this is ancient.”
 
