@@ -16,7 +16,7 @@ That got a couple nervous laughs.
 
 I wedged the crowbar into the seam of the lid. The old wood groaned, then gave with a crack. The smell that wafted out was dry and dusty. Everyone leaned in.
 
-Inside, she lay there. A tightly wrapped, slender form, the linen bandages stained a deep amber with resins. There was a crude, stylized cartonnage mask placed over her face, the gilt flaked away to reveal grey plaster beneath. The painted eyes, black and oversized, stared blankly at my ceiling.
+Inside, she laid there. A tightly wrapped, slender form, the linen bandages stained a deep amber with resins. There was a crude, stylized cartonnage mask placed over her face, the gilt flaked away to reveal grey plaster beneath. The painted eyes, black and oversized, stared blankly at my ceiling.
 
 Then, with exaggerated ceremony, I took a pair of scissors and made the first cut.
 
