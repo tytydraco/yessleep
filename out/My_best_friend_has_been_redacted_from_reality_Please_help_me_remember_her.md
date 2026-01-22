@@ -82,4 +82,6 @@ Later that night, I stood on the porch of my parents' house. When the door opene
 
 They warmed up some leftovers and sat me down at the kitchen table, eager to hear about my first months at the university and my life in the city. As I ate, I listened to them gossip about the neighbors, their voices full of blissful ignorance. 
 
-I have decided to write this down because I am the only one left who remembers her. I don’t know what Nora did to warrant being labeled an error, but I know that she is alive somewhere. I believe that as long as her memory survives, as long as someone, somewhere remembers, she is not truly gone. By reading this, you are helping to keep her real. But I must warn you: if the Eraser returns to finish its work, it will follow the thread of her memory to everyone who holds it. 
+I have decided to write this down because I am the only one left who remembers her. I don’t know what Nora did to warrant being labeled an error by the universe, but I know that she is alive somewhere. I believe that as long as her memory survives, as long as someone, somewhere remembers, she is not truly gone. 
+
+By reading this, you are helping to keep her real. But I must warn you: if the Eraser returns to finish its work, it will follow the thread of her memory to everyone who holds it. 
