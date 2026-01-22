@@ -20,7 +20,7 @@ Inside, she laid there. A tightly wrapped, slender form, the linen bandages stai
 
 Then, with exaggerated ceremony, I took a pair of scissors and made the first cut.
 
-The linen parted easily. Too easily, maybe, but I ignored that. I peeled back layers slowly, narrating like an David Attenborough.
+The linen parted easily. Too easily, maybe, but I ignored that. I peeled back layers slowly, narrating like David Attenborough.
 
 Someone—probably Mark, who once ate a live goldfish on a bet, shouted, “Hey Rhett, I dare you to eat a piece!”
 
