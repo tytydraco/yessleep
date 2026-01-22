@@ -4,7 +4,7 @@ The seller was evasive but confident. Claimed it was the genuine remains of a 15
 
 And stories are meant to be shared.
 
-So I threw an unwrapping party.
+So I threw an unwrapping party at my Manhattan penthouse.
 
 I leaned hard into the aesthetic. Candles everywhere. Low lighting. Frankincense and myrrh burning in shallow brass dishes. I even curated a playlist—slow, ominous instrumental stuff that made everyone feel like they were part of something forbidden and important. The sarcophagus sat lengthwise on my living room table, displacing weeks of mail and one unfortunate houseplant.
 
@@ -38,11 +38,19 @@ Just above it, clear as day beneath the thinning linen, was a tattoo. Black ink.
 
 The room went quiet.
 
-“What the hell,” My friend Lisa whispered. “Is that… My Chemical Romance?” 
+“What the hell,” My laywer friend Lisa whispered. “Is that… My Chemical Romance?”
 
 I stared at her. “The band?”
 
 She nodded slowly. “Yeah... that’s the Black Parade art. That album came out in, what, 2006?”
+
+I blinked at her. Once. Twice.
+
+“2006… **BC?**” I asked, grasping desperately for dignity.
+
+She gave me a look—the kind you give a grown adult who just asked if Wi-Fi existed in ancient Rome.
+
+“No,” she said. “2006 **AD.** I was in high school. I had that album on my iPod.”
 
 My mouth went dry, but I didn’t stop. I don’t know why. Maybe shock. Maybe denial. Maybe the awful need to know how bad it really was.
 
