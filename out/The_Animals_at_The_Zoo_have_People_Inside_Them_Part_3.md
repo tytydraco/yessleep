@@ -63,3 +63,8 @@ A jumble of cloth and rubber, all neatly sewn together. The rubber is oddly soft
 It's another flesh-suit. 
 
 And this one looks just like me.
+
+[Part 1](https://www.reddit.com/r/nosleep/s/9KeSC2fOIB)
+[Part 2](https://www.reddit.com/r/nosleep/s/9P3VWQpjRJ)
+[Part 4](https://www.reddit.com/r/nosleep/s/yHcbQb5OpU)
+

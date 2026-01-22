@@ -91,3 +91,8 @@ I don't care if it's some kind of big zoo conspiracy or just a prank by kids; I 
 I've made up my mind. 
 
 I'm going back. 
+
+
+[Part 2](https://www.reddit.com/r/nosleep/s/9P3VWQpjRJ)
+[Part 3](https://www.reddit.com/r/nosleep/s/69cqfrVLoO)
+[Part 4](https://www.reddit.com/r/nosleep/s/yHcbQb5OpU)

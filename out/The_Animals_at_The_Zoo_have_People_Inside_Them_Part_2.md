@@ -83,3 +83,8 @@ Why did we have to reconnect here of all places? While I'm having a public meltd
 I can't be seen like this. Overflowing with embarrassment, I shamble to the exit and leave without a word. Andy doesn't say anything either. Why would he? 
 
 I despise myself too.
+
+[Part 1](https://www.reddit.com/r/nosleep/s/9KeSC2fOIB)
+[Part 3](https://www.reddit.com/r/nosleep/s/69cqfrVLoO)
+[Part 4](https://www.reddit.com/r/nosleep/s/yHcbQb5OpU)
+

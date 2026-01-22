@@ -101,3 +101,13 @@ Something beautiful.
 Something pure. 
 
 I've never been happier.
+
+
+[Part 1](https://www.reddit.com/r/nosleep/s/9KeSC2fOIB)
+
+[Part 2](https://www.reddit.com/r/nosleep/s/9P3VWQpjRJ)
+
+[Part 3](https://www.reddit.com/r/nosleep/s/69cqfrVLoO)
+
+
+
