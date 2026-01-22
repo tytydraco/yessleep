@@ -1,4 +1,4 @@
-Look, I know how this sounds. I really do. But when you have too much [disposable](https://www.reddit.com/r/PageTurner627Horror/comments/1pnmwq7/december_took_everything_part_1/) income and not enough common sense, curiosity turns into bad decisions fast. That’s how I ended up buying a supposedly real Egyptian mummy off the dark web at three in the morning, half-drunk and fully convinced I was invincible.
+Look, I know how this is going to sound. I really do. But when you have too much [disposable](https://www.reddit.com/r/PageTurner627Horror/comments/1pnmwq7/december_took_everything_part_1/) income and not enough common sense, curiosity turns into bad decisions fast. That’s how I ended up buying a supposedly real Egyptian mummy off the dark web at three in the morning, half-drunk and fully convinced I was invincible.
 
 The seller was evasive but confident. Claimed it was the genuine remains of a 15th Dynasty princess named Shariti. Included grainy photos, a shaky “provenance,” and just enough historical jargon to feel convincing. The price? Twelve thousand dollars. Honestly, I’d spent more on furniture I barely liked. This at least came with a story.
 
