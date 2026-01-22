@@ -24,7 +24,7 @@ The linen parted easily. Too easily, maybe, but I ignored that. I peeled back la
 
 Someone—probably Mark, who once ate a live goldfish on a bet, shouted, “Hey Rhett, I dare you to eat a piece!”
 
-A chorus of “oh my gods” and laughter followed. As a good host, I obliged. I snipped a small, brittle scrap from the inner layer near the foot.
+A chorus of “oh my gods” and laughter followed. As a good host, I obliged. I snipped a small, brittle scrap of linen from the inner layer near the foot.
 
 “To your health, Princess,” I said, and popped it in my mouth.
 

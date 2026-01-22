@@ -1,3 +1,6 @@
+Part 2 : https://www.reddit.com/r/nosleep/s/ytJhJGOuKb
+
+
 I didn’t believe in rules lists.
 
 That’s the first thing you need to understand.
@@ -264,3 +267,4 @@ And I didn’t move.
 
 
 ---
+
