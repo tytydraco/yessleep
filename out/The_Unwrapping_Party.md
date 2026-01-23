@@ -66,7 +66,7 @@ She nodded slowly. “Yeah... that’s the Black Parade art. That album came out
 
 I blinked at her. Once. Twice.
 
-“2006… **BC?**” I asked, grasping desperately for dignity.
+“2006… **BC?**” I asked, grasping desperately at straws.
 
 She gave me a look—the kind you give a grown adult who just asked if Wi-Fi existed in ancient Rome.
 
