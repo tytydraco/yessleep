@@ -14,6 +14,8 @@ The sarcophagus sat lengthwise on my living room table, displacing weeks of mail
 
 My guests filtered in: a mix of history nerds, thrill-seekers, and friends who just wanted wine and gossip with a side of morbidity. Everyone dressed the part: linen tunics, bejeweled collars, and too much eyeliner. Phones were out, taking selfies for Instagram.
 
+I came out last, wearing a tailored tan suit with a gold and blue stripped headdress—my idea of a modern pharaoh. 
+
 “Alright,” I said, smiling like this was a totally normal thing to do on a Friday night. "If anyone here believes in ancient curses... last chance to back out."
 
 That got a couple nervous laughs.
@@ -56,7 +58,7 @@ Just above it, clear as day beneath the thinning linen, was a tattoo. Black ink.
 
 The room went quiet.
 
-“What the hell,” My lawyer friend Lisa whispered. “Is that… My Chemical Romance?”
+“What the hell,” my lawyer friend Lisa whispered. “Is that… My Chemical Romance?”
 
 I stared at her. “The band?”
 
