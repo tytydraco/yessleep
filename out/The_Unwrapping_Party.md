@@ -52,7 +52,7 @@ Just above it, clear as day beneath the thinning linen, was a tattoo. Black ink.
 
 The room went quiet.
 
-“What the hell,” My laywer friend Lisa whispered. “Is that… My Chemical Romance?”
+“What the hell,” My lawyer friend Lisa whispered. “Is that… My Chemical Romance?”
 
 I stared at her. “The band?”
 
