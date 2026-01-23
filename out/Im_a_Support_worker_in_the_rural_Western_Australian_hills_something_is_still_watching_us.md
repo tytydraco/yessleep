@@ -1,4 +1,4 @@
-Link to last part: https://www.reddit.com/r/nosleep/s/BfukrQ6IAC
+Link to last part: https://www.reddit.com/r/TalesFromTheCreeps/s/Os7oKNFWZK
 
 Hello all,
 
