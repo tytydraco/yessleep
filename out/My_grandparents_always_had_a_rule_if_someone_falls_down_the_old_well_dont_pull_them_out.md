@@ -168,4 +168,4 @@ My grandparents are sleeping upstairs. How the fuck did he know there would be f
 
 As I'm typing this, he is begging me to open the door.
 
-Should I? Or should I let him die, like I let Dina die? [Is he even alive?](https://www.reddit.com/r/nosleep/comments/1qhhjkl/my_grandparents_always_had_a_rule_if_someone/) 
+Should I? Or should I let him die, like I let Dina die? Is he even alive?

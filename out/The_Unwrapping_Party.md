@@ -6,9 +6,13 @@ And stories are meant to be shared.
 
 So I threw an unwrapping party at my Manhattan penthouse.
 
-I leaned hard into the aesthetic. Candles everywhere. Low lighting. Frankincense and myrrh burning in shallow brass dishes. I even curated a playlist—slow, ominous instrumental stuff that made everyone feel like they were part of something forbidden and important. The sarcophagus sat lengthwise on my living room table, displacing weeks of mail and one unfortunate houseplant.
+I’ve always had a weakness for tasteful nonsense, so I went all in on the faux-Egyptian decor—golden scarabs from a SoHo boutique, hieroglyphic papyrus prints I absolutely overpaid for, a borrowed ankh statue made of epoxy.
 
-My guests filtered in: a mix of history nerds, thrill-seekers, and friends who just wanted wine and gossip with a side of morbidity. Phones were out, taking selfies for Instagram.
+I even curated a playlist—slow, ominous instrumental stuff that made everyone feel like they were part of something forbidden and important.
+
+The sarcophagus sat lengthwise on my living room table, displacing weeks of mail and one unfortunate houseplant.
+
+My guests filtered in: a mix of history nerds, thrill-seekers, and friends who just wanted wine and gossip with a side of morbidity. Everyone dressed the part: linen tunics, bejeweled collars, and too much eyeliner. Phones were out, taking selfies for Instagram.
 
 “Alright,” I said, smiling like this was a totally normal thing to do on a Friday night. "If anyone here believes in ancient curses... last chance to back out."
 
