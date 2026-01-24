@@ -109,3 +109,5 @@ I don’t know what that means yet.
 But sitting there, listening to the quiet settle back into place, I realised something I couldn’t explain away anymore.
 
 Whatever this was, it didn’t seem new. Everything around it already knew what to do.
+
+[Part 8](https://www.reddit.com/r/nosleep/comments/1ql8wqe/i_dont_feel_safe_in_my_apartment_anymore_part_8/)
