@@ -106,6 +106,6 @@ Was this rhyme talking about me and Eroica? Ignoring the “lover” part, I gla
 
 “Signed Talya.”
 
-Was this Talya’s revenge? My questions are still stirring in my head even now. Why would she send my Eroica’s heart? How and why did she get the heart in the first place? And why is the heart still beating? I don’t know what to do. Should I dispose of the heart? Should I confront Talya about this? I’m scared I’m being watched right now. I might update this, but I might not. Personal lives and all that.
+Was this Talya’s revenge? My questions are still stirring in my head even now. Why would she send me Eroica’s heart? How and why did she get the heart in the first place? And why is the heart still beating? I don’t know what to do. Should I dispose of the heart? Should I confront Talya about this? I’m scared I’m being watched right now. I might update this, but I might not. Personal lives and all that.
 
 Until then, if ever.
