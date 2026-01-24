@@ -173,3 +173,5 @@ He wildly slapped his free hand all over the counter in search of purchase while
 Sam rose from the sink next. I stumbled back up to help him out. He got his bearings faster than Leo—we lifted Charles out next together, then Anika, then Dominic. Our last man hit the floor like dead weight, but despite his near-immobility from fatigue, he was still shouting curses at everybody in the room. Leo had swam too slow for his liking. Charles had accidentally elbowed him in the face while in the water. Sam and I had taken too long in hoisting him up.
 
 I slumped to the floor with a hysterical laugh. My voice broke into sobs by the end of my mad laughter.
+
+[Part Four](https://www.reddit.com/r/nosleep/comments/1ql7lte/theres_a_body_in_the_sink_part_four/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
