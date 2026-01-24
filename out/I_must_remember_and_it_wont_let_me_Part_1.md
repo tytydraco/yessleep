@@ -1,5 +1,3 @@
-[Part 2](https://www.reddit.com/r/nosleep/s/1tqlqXGdWu)
-
 I do not recognize the man in the mirror. Sure, he looks human, and I understand that he’s supposed to be me, but I’ve been banging my head against the wall for the past few hours trying to remember who the fuck I am.
 
 To give a bit of context, I woke up this morning at around 7:00 a.m. That’s what my alarm was set to. I absentmindedly got out of bed, stretched, and headed toward the bathroom. It’s that lucid state right after you wake up, where you don’t realize you’ve started your day yet.
