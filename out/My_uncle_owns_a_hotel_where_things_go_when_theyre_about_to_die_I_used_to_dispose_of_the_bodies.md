@@ -12,7 +12,7 @@ If there’s a leak in the hotel roof, he fixes it himself. If a guest complains
 
 That doesn't, however, mean that he's my favorite anything.
 
-Not after he turned out to be a murder.
+Not after he turned out to be a murderer.
 
 But let’s back up.
 
