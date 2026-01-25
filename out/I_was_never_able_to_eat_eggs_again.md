@@ -69,3 +69,5 @@
 *The phone then cut off.*
 
 *What the hell was that? Why did he say that? He just told me to come and help and … and now he doesn’t even want me home? No.. if Amber is behind my dad acting this way, then I need to get her away from him.*
+
+*PART TWO: *[*https://www.reddit.com/r/nosleep/s/HjvYD6eOAm*](https://www.reddit.com/r/nosleep/s/HjvYD6eOAm)
