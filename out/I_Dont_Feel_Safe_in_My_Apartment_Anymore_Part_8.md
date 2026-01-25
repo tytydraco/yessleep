@@ -150,3 +150,5 @@ Because whatever the building thinks is happening in Unit 2B…
 …it’s still happening inside my apartment.
 
 And it doesn’t need me to do it.
+
+[Part 9](https://www.reddit.com/r/nosleep/comments/1qm5hwk/i_dont_feel_safe_in_my_apartment_anymore_part_9/)
