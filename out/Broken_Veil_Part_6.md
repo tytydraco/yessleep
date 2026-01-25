@@ -148,8 +148,6 @@ He clapped his hands together
 
 "It fired a pulse of energy so powerful that it split the sky." 
 
-  
-
 Noah was hanging on the edge of his seat. So was I. 
 
 “Tesla didn’t just hit the Earth’s natural frequency,” he said. “He rung it like a bell." 

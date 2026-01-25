@@ -144,7 +144,7 @@ Lucy,
 
 It’s been just over 10 months since I started this journey. I think I’ve made a lot of strides in coming to terms with Annie’s and Mom’s deaths. There are only a few of us left up here at the cabin. The counselor says that I’m almost ready to go back into the world! We’ll be taking our field trip soon. 
 
-She told me in private that she takes each of her patients to visit the focal point of their grief. So that we can face it, or something like that. But it means I’m coming home! Or at least to Mom’s place. I know it’ll probably just be any empty shell of a house if you guys haven’t sold it yet. 
+She told me in private that she takes each of her patients to visit the focal point of their grief. So that we can face it, or something like that. But it means I’m coming home! Or at least to Mom’s place. I know it’ll probably just be an empty shell of a house if you guys haven’t sold it yet. 
 
 See you soon,
 
