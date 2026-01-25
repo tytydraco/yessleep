@@ -174,7 +174,7 @@ The demon looked behind herself, taking a few steps back to crouch onto her own 
 
 From my position on the floor I felt compelled to respond, “It’s fine.”
 
-She continued. “I have been trapped in these Nephilim bodies for millennium, just because I gave you humans a gift.” “Our lord felt that interaction with humans was a bit uncouth.” She looked wistfully at the ceiling. “I will say, it feels a bit hypocritical since he did all that boat stuff a few hundred years later.” “Didn’t get us though.” She covered an eye with her hand, as though she was simulated a wink.
+She continued. “I have been trapped in these Nephilim bodies for millennium, just because I gave you humans a gift.” “Our lord felt that interaction with humans was a bit uncouth.” She looked wistfully at the ceiling. “I will say, it feels a bit hypocritical since he did all that boat stuff a few hundred years later.” “Didn’t get us though.” She covered an eye with her hand, as though she was simulating a wink.
 
 Callum sat forward in his chair. Although his pale face was puffy and dripping with sweat he seemed to have a certain vitality in his voice. “You want to be released?”
 
