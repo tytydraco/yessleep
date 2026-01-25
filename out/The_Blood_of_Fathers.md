@@ -194,13 +194,13 @@ Ben's head flopped back loosely as he spun, revealing his torn open throat and
 
 I stumbled back in shock, falling to the floor. Ben's head leaned so far back that the remaining flap of skin stretched until it snapped. His head fell to the floor with a wet thud.  
 
-Suddenly the jukebox blared to life. I turned to see him. His back to me as he leaned over the jukebox. His burnt clothes hanging on him like rags. His sickly gray skin covered in fresh burn scars. He tapped his charred boot to the beat as Garth brooks, friends in low places began to echo through the room. The vampire turned to face me, licking blood from his fingernails. 
+Suddenly the jukebox blared to life. I turned to see him. His back to me as he leaned over the jukebox. His burnt clothes hanging on him like rags. His sickly gray skin covered in fresh burn scars. He tapped his charred boot to the beat as he turned to face me, licking blood from his fingernails. 
 
 “Jimmy, Jimmy, Jimmy.” He laughed, “My how you've grown. What's it been? 20 years?” 
 
 I tried to move but I was paralyzed with fear, struggling to even drag in a breath. 
 
-“Oh, but you didn't see me back then, did you? No, just good ol mom.” He laughed again as he took one of Ben’s Stetsons off the wall and placed it on his head before two stepping across the floor towards me.  
+“Oh, but you didn't see me back then, did you? No, just good ol mom.” He laughed again as he took one of Ben’s Stetsons off the wall and placed it on his head before starting across the floor toward me.  
 
 I leapt to my feet and ran for the door; the vampires laugh following me all the way. “Where ya runnin to Jimmy boy?” He called after me.  
 
