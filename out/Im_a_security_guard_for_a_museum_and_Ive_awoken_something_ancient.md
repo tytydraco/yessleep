@@ -20,7 +20,7 @@ Then I noticed the hand, it had the same exact crack. And another along its arm.
 
 I went home later that morning and laid down to sleep. The statue crossed my mind again. I peeked out of my shut eyes to make sure it hadn’t appeared in my room. There was something awfully disturbing about it. I finally decided I was overreacting and went back to bed.
 
-As I got ready for work at 6:00 pm I grabbed my taser and gun which eased my nerves. Later I walked up to the front doors of the Museum. Dillon and I greeted each other briefly as we passed by. Quickly I turned to ask Dillon “You didn’t see anything strange last night did you?”, he snorted and said “No man, just the usual stuff like Anne Boleyn and Queen Elizabeth coming out of the painting to fingerbang one another”. I returned a glance of amazement at his sarcastic reply. “Alright man whatever” I said.
+As I got ready for work at 6:00 pm I grabbed my taser and gun which eased my nerves. Later I walked up to the front doors of the Museum. Dillon and I greeted each other briefly as we passed by. Quickly I turned to ask Dillon “You didn’t see anything strange today did you?”, he snorted and said “No man, just the usual stuff like Anne Boleyn and Queen Elizabeth coming out of the painting to fingerbang one another”. I returned a glance of amazement at his sarcastic reply. “Alright man whatever” I said.
 
 I moved into the lobby and began my shift. Right away I noticed that the other statue was no longer in sight. Maybe the day workers moved it elsewhere?
 
@@ -62,6 +62,6 @@ When suddenly the sun rose. The statue turned to look at the blinding light on t
 
 I took my shirt and wrapped it around my severed leg making a tourniquet. I had no idea if I would even last by the time EMS got to me. I felt myself fading as I went unconscious.
 
-I’m in the hospital now, writing this. I have no idea what that thing was. Nurse Mathers said Dillon and two others called the ambulance and police. Nurse Mathers told me some men wanted to come speak with me. She told me that they were happy to wait until I was comfortable. After I have finished uploading this I will talk to the men. I have no idea who they are. I’m worried what my life will look like from now on being disabled. My life is ruined and I blame the Museum. I hope those men are coming to pay for this damn hospital bill.
+I’m in the hospital now, writing this. I have no idea what that thing was. Nurse Mathers said Dillon and two others called the ambulance and police. Nurse Mathers told me some men wanted to come speak with me. She told me that they were happy to wait until I was comfortable. After I have finished uploading this I will talk to the men. I have no idea who they are. I’m worried about what my life will look like from now on being disabled. I feel like my life is ruined. I hope those men are coming to pay for this damn hospital bill because what the fuck was that? How could I even explain this whole situation without looking insane?
 
-Anyways thank you for reading, I will update you all soon.
+Anyways thank you for reading, I will update you all soon on my recovery journey.
