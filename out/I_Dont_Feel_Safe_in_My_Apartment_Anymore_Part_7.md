@@ -110,4 +110,4 @@ But sitting there, listening to the quiet settle back into place, I realised som
 
 Whatever this was, it didn’t seem new. Everything around it already knew what to do.
 
-[Part 8](https://www.reddit.com/r/nosleep/comments/1ql8wqe/i_dont_feel_safe_in_my_apartment_anymore_part_8/) [Part 9](https://www.reddit.com/r/nosleep/comments/1qm5hwk/i_dont_feel_safe_in_my_apartment_anymore_part_9/)
+[Part 8](https://www.reddit.com/r/nosleep/comments/1ql8wqe/i_dont_feel_safe_in_my_apartment_anymore_part_8/) [Part 9](https://www.reddit.com/r/nosleep/comments/1qm5hwk/i_dont_feel_safe_in_my_apartment_anymore_part_9/) [Part 10](https://www.reddit.com/r/nosleep/comments/1qn2ibd/i_dont_feel_safe_in_my_apartment_anymore_part_10/)
