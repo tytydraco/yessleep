@@ -12,15 +12,15 @@ Between the pines on the far hill, something shifted. At first I thought it was 
 
 That’s when I saw the horns.
 
-They were too tall. That’s the only way I can describe it. Antlers branch. Goat horns curl. These were long, smooth arcs that rose straight up, appearing like black silhouettes against the starry night. Below them I saw the rough figure of a deers face, obscured by the distance and dark.
+They were too tall. That’s the only way I can describe it. Antlers branch. Goat horns curl. These were long, smooth arcs that rose straight up, appearing like black silhouettes against the starry night. Below them I saw the rough figure of a deer-like face, obscured by the distance and dark.
 
 It took me a long time to fall asleep again, and the next morning I wonder if it was a dream. I went about my day, exploring the woods, albeit now with a certain degree of caution, reading books by the fireplace, and playing games till twelve o’ clock. The next night, my theory was disproven when I heard the guttural roars yet again.
 
-They weren’t constant. They came in intervals, spaced just far enough apart that my body never relaxed enough to fall intothe comforting embrace of sleep. Instead, I found myself holding my breath, wide awake, waiting for the next road.
+They weren’t constant. They came in intervals, spaced just far enough apart that my body never relaxed enough to fall intothe comforting embrace of sleep. Instead, I found myself holding my breath, wide awake, waiting for the next roar.
 
-I shut off all the lights and didn’t dare to look out the windows for a long, long time. I gathered up the courage to look outside yet again only when the roars stopped. Tonight, the horned beast seemed to be moving. I could see the thing moving aimlessly along the treeline, until I saw it turn it heads in the direction of the cabin. My heart raced as it crawled up my neck. It almost stopped beating when I thought I noticed it lock eyes with me. I closed the curtains then and there, turning my back to the walls and burying my face in my knees, wishing my heart would calm the hell down.
+I shut off all the lights and didn’t dare to look out the windows for a long, long time. I gathered up the courage to look outside yet again only when the roars stopped. That nigh, the horned beast seemed to be moving. I could see the thing moving aimlessly along the treeline, until I saw it turn it heads in the direction of the cabin. My heart raced as it crawled up my neck. It almost stopped beating when I thought I noticed it lock eyes with me. I closed the curtains then and there, turning my back to the walls and burying my face in my knees, wishing that I  could calm the hell down.
 
-I packed my stuff in the car before sunset today. I threw things in the back with haste and determination. I’d planned to spend the whole week here, so it took a while for me to pack up all of my fishing gear, hiking stuff, clothes, etcetera, even when racing against the clock. I kept telling myself I’d leave at first light. I didn’t want to drive those roads at night, not with that damn fog already thickening, let alone the fact that my my hands were still shaking from pure adrenaline and booze coursing through my blood vessels.
+I packed my stuff in the car before sunset today. I threw things in the back with haste and determination. I’d planned to spend the whole week here, so it took a while for me to pack up all of my fishing gear, hiking stuff, clothes, etcetera, even when racing against the clock. I kept telling myself I’d leave at first light. I didn’t want to drive those roads at night, not with that damn fog already thickening, let alone the fact that my hands were still shaking from the pure adrenaline and booze coursing through my blood vessels.
 
 That was the mistake. I assumed distance mattered. I assumed whatever it was stayed in the hills, stayed out there. It wouldn’t needlessly pass it’s territory, right? I delusioned myself with this mantra.
 
@@ -31,7 +31,6 @@ I didn’t dare to go outside. I didn’t look out the windows. I shut the curta
 The sound neared.
 
 It was loud. Louder than anything I’d ever heard. My ear was threatening to burst. It was closer in a way that made my skin crawl, the sense of impending doom overtaking me. Heavy footfall and the crunching of leaves added to that. It was strong. The ground shook with each step it took. Something scraped against the cabin’s exterior, sharp claws scratching loudly against the wood. 
-
 
 
 Even through the curtains, I could see the shadows. Long, changing silhouettes covered the small bedroom. Through the gap in the curtains, I could see a bit. Oh god. I could see it’s abdomen, hidden by the shadows. The windows were more than six feet above the ground. It was tall.

@@ -118,273 +118,139 @@ When he was done he wouldn’t even look at me. He just stared straight ahead at
 
 A few minutes later, as I laid in bed and tried not to put too much weight on my butt, I heard more loud whacks of Dad’s belt. Then, Jonathan came in and climbed up to his bed. As I tried to sleep, I could hear him quietly crying.
 
-
-
 In the weeks following that night, none of us mentioned The Room. However, it was on my mind almost constantly, and more than once I found Jonathan standing in the hallway, staring at the locked door. As much as Dad scared us that night, he only made us more interested in The Room. What could be so bad that simply asking about it made Dad act like that? I wanted so badly to know, but I couldn’t risk asking again.
-
-
 
 Still, I couldn’t get it out of my head. I was distracted at school, and Jonathan and I were both less talkative at home. Dad began to act distant. He was less interested in our days, and oftentimes our dinner was peanut butter and jelly sandwiches instead of a home-cooked meal. I began to think that we crossed a line that we couldn’t uncross, and that things would never be the same again.
 
-
-
 I started having this recurring dream about The Room. I’d wake up in the middle of the night, and there would be this red glow coming from under the door. I’d step into the hallway and see that The Room’s door was open. I’d walk inside and the door would close behind me, so hard that a gust of wind would knock me on my ass.
-
-
 
 All of a sudden the walls would lower themselves into the ground, revealing a stadium full of spectators. That’s when I’d realize that the room had turned into a stage. Everyone was pointing at me and laughing. I’d get up and try to run but now the door was gone and I was hundreds of feet in the air. The laughter would get louder and louder until I had to cover my ears and scream.
 
-
-
 I’d wake up sweaty and breathless. Sometimes, I’d go check to make sure that the door to The Room was still closed. In the faint glow of the hallway's blue nightlight, I could almost imagine that I was looking into the darkness of The Room. Other times, I’d lay awake in bed until morning.
-
-
 
 The first few times it happened, Jonathan asked me if I was okay. But after a while, he stopped bothering. He wasn’t sleeping too well either. More than once, I’d woken up to him crying. Sometimes his eyes were bloodshot in the morning. He played hooky on a few of those days.
 
-
-
 As scary as these dreams were, during the waking hours they only reassured me that whatever was in The Room was important. They only made me more curious, like The Room was calling to me. One day, in the middle of the night, I heard Jonathan gasp awake. 
-
-
 
 “Are you okay?” I asked.
 
-
-
 He was quiet for a moment, then he took a deep breath. “Nightmare.”
-
-
 
 “Was it about The Room?”
 
-
-
 “Yes,” he said. “There’s a monster in there. A dragon… it breathed fire and it… it was going to eat me.”
-
-
 
 “Nothing’s going to eat you. Maybe we should go see what’s really in there. It can’t be that bad. Dad wouldn’t let it stay if it was… he’d do something about it. He’d protect us.”
 
-
-
 “Dad would kill us!”
-
-
 
 “We can get in without Dad knowing. We just need the right plan.”
 
-
-
 So we stayed up for the rest of the night bouncing ideas off each other.
-
-
 
 Our first idea was to sneak into Dad’s room while he was sleeping. We’d grab the key, then Jonathan and I would unlock the door to The Room, go in, take a look around, and put the key back before Dad realized it was missing.
 
-
-
 The problem was the risk. We’d have to open the door without waking Dad up. Then, without any light, we’d have to sneak around searching for the key, which could be anywhere. We might trip over something, Dad might hear us opening a drawer… most likely, we’d end up getting spanked and grounded. Then Dad would be even more careful about keeping us out of The Room.
-
-
 
 We had a few more stupid ideas like pick-pocketing the key and putting it back in Dad’s pocket before he noticed or picking the lock with toothpicks and Q-tips. Everything seemed either too risky or too ridiculous. 
 
-
-
 I was half asleep and had about given up when I finally had a real eureka moment. “Jon,” I said. “I think I got it.”
-
-
 
 One thing Dad always got on to Jonathan and I for was not playing outside enough. He said that we were missing out on “what childhood is supposed to be like.” In an effort to fix this, he’d bought us a trampoline one summer. We played on it every now and then, and sometimes Dad would join us. Whenever he did, he always emptied his pockets and put everything on the grass in front of the trampoline. All we had to do was get him on the trampoline, and one of us could grab the key while he was distracted. Then, we could go unlock the door, peek inside, and put the key back before he noticed.
 
-
-
 The only problem was that, since one of us would have to stay on the trampoline with Dad, we wouldn’t both be able to see The Room.
-
-
 
 Jonathan pitched in with the solution. He said that he’d seen the key to The Room before. According to him, the mail key and the key to The Room were almost identical. If we could switch them out, Dad would be none the wiser until he tried to use one of the keys.
 
-
-
 So the final plan was simple. Jonathan would ask Dad to go play on the trampoline with us. While Dad and Jonathan were going outside, I’d say that I needed to use the bathroom. Then, I’d grab the mail key, go outside, and switch it out for the key to The Room. Because we’d make sure to ask him to the trampoline *after* he checked the mail, Dad wouldn’t notice the key had been switched until the next day. This would give us all night to look around The Room. After we were done exploring, we’d put the key back in the drawer where the mail key was kept. Whenever Dad noticed the keys were mixed up, he would assume that it was his mistake. 
-
-
 
 After dinner the next day, Dad went to check the mail while Jonathan and I tag-teamed the dishes.
 
-
-
 “What if we get caught?” Jonathan asked. “We’ll be in big trouble.”
-
-
 
 He was squirming around and his face was turning red. I started to fear that he was going to get us busted.
 
-
-
 “We’re gonna be fine,” I said. “Don’t worry. I’m the one taking all the risk. All you have to do is play on the trampoline. Even if we get caught, I’ll take all the blame.”
-
-
 
 That calmed him down, and by the time Dad came back in with the usual bills and junk mail, Jonathan was fine. I watched as Dad put the mail key back in the drawer. 
 
-
-
 A few minutes later, Jonathan asked Dad if he wanted to go play on the trampoline. Dad’s eyes lit up. I could tell that he was tired, but he also wanted to encourage us. He said he’d play for a few minutes.
-
-
 
 I almost felt bad as I stood in the bathroom and waited to hear the sound of the back doors closing. But when they did, I put my game face on.
 
-
-
 I walked to the kitchen, fished the mail key out of the drawer, and dropped it into the right zip-up pocket of my sweatpants. I peeked out the back doors to see that Dad and Jonathan were already jumping on the trampoline and throwing a football back and forth. Dad’s stuff was in a haphazard pile in the grass.
-
-
 
 I stepped outside and walked to the trampoline. I’d strategically worn my tall lace-up vans to give myself an excuse for taking so long to untie my shoes. When I reached Dad’s pile, I bent down and began sorting through it.
 
-
-
 From the angle of the trampoline, Dad wouldn’t be able to see me unless he walked right up to the edge and looked straight down. Even so, I was terrified as I looked through his things. I felt that he was going to look down at me any second. Every time a bounce was a little too close, I was sure he was about to bust me.
-
-
 
 I went through everything: I checked underneath his wallet, to the left and right of his phone, but the key didn’t seem to be in the pile. I began to panic. I was reaching a hand into each of his shoes when I heard the rattle of the trampoline poles. Someone had crashed into the net above me. I looked up expecting to see Dad, but instead I caught sight of Jonathan as he stood up from making a diving catch. He jumped back toward the middle of the trampoline, and I breathed a sigh of relief.
 
-
-
 I put my head in my hands and tried to control my breath. Where else could the key be? I only had another few seconds before Dad would get suspicious and I’d have to get up. I was shifting through everything one last time when an epiphany hit me so hard I almost slapped myself in the face. *His wallet! I haven’t checked his wallet!*
-
-
 
 I opened the wallet and immediately felt the bulge of the key. I dug my fingers into the pockets until I felt the cool metal. I pulled it out with one hand and reached into my own pocket for the mail key with the other.
 
 Looking at the keys next to each other, they weren’t as identical as Jonathan had led me to believe. They were both a yellowish grey and roughly the same size, but the key to The Room was darker, a little rusty, and much heavier. I was sure that Dad was going to notice the difference immediately. For a moment, I considered giving up on the plan, but I told myself that, even if Dad noticed right away, he’d probably blame himself. 
 
-
-
 I put the key in my pocket, zipped it shut, and inserted the mail key into the wallet. I loosened my shoes as quickly as I could and climbed up on the trampoline.
-
-
 
 When we were done playing, Dad watched a movie on the couch while Jonathan and I played War with a deck of cards in our room. We played in almost complete silence. When I won my third game in a row, I didn’t brag, and Jonathan didn’t even complain or accuse me of cheating. 
 
-
-
 “I can go in alone if you want,” I said after a while.
-
-
 
 “No! I want to see The Room.”
 
-
-
 “Are you scared?”
-
-
 
 “No,” he said, but he wouldn’t look me in the eyes.
 
-
-
 “Are you scared of Dad finding out, or are you scared of what’s in there?”
-
-
 
 “I don’t know.”
 
-
-
 Around 9:00 PM, Dad told us to get ready for bed. As instructed, Jonathan did his usual complaints and asked for a few extra minutes. Dad shut him down, and Jonathan gave up without much of a fight. That was fine, Dad seemed exhausted anyway.
-
-
 
 We took showers, brushed our teeth, and got into bed. Around 9:30 we heard Dad go into his room. Jonathan wouldn’t stop fidgeting above me. A few times he was so loud that I expected Dad to open the door and tell us to cut it out. 
 
-
-
 Jonathan asked about a dozen times if we could go yet, but I was firm and insisted on waiting until midnight. By then, Jonathan was sitting on the floor next to my bed.
-
-
 
 “Okay,” I said. “Let’s go.”
 
-
-
 “Okay,” he said with a shaky breath.
-
-
 
 I opened our door as quietly as I could and stepped into the hallway. When I stopped to take a peek at Dad’s room, Jonathan bumped into me and I gasped in surprise.
 
-
-
 “Shh,” he said. “You’re gonna wake him up.”
-
-
 
 “Shut up.”
 
-
-
 I walked up to Dad’s room and put my ear against his door. He was snoring.
-
-
 
 “He’s asleep,” I said. “Let’s go.”
 
-
-
 I took the key out of my pocket and approached The Room. I was about to unlock the door when Jonathan put a hand on my arm.
-
-
 
 “The door knob,” he whispered.
 
-
-
 “What?”
-
-
 
 “It might be hot, remember… the dragon…”
 
-
-
 “Yeah,” I said. “Okay.”
-
-
 
 I went to feel it with the back of my hand, but at the last second Jonathan pulled me away and softly touched the knob himself. 
 
-
-
 “It’s okay,” he said.
-
-
 
 “Why’d you have to feel it?” I asked.
 
-
-
 He tilted his head at me. “So you wouldn’t get burned.”
-
-
 
 “Okay,” I said, and smiled. “Let’s do this.”
 
-
-
 I put the key into the knob and was surprised at how easily it unlocked. I’d expected something to happen at the last minute. That Dad would come storming out of his room and stop us, or that we had the wrong key, or that the room simply wouldn’t open, but no… there was the click of the lock, and then the door was open. The Room was ready to be entered.
 
-
-
 I nodded at Jonathan and, finally, pushed the door open.
-
-
 
 The nightlight revealed only the closest edge of The Room, but from the little I could see, it appeared as though The Room was much older than the rest of the house. The carpet was a yellower, uglier shade of grey. There was the same white-textured wall, but it was chipped at places, revealing light brown splotches of old plaster.
 
@@ -494,3 +360,5 @@ Dad said, sitting in the hallway outside of The Room, that Janice was not happy 
 
 “I–” his eyes fell to the floor, and for the first time I thought that he looked like an old man. “It doesn’t matter,” he said, and forced a smile. [“We are a lucky, happy family.”](https://www.reddit.com/user/ConnorIsaacWriter/comments/1poetct/thanks_for_reading/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
+  
+[Part 2.](https://www.reddit.com/r/nosleep/comments/1qn4zyq/dear_god_i_never_should_have_entered_the_room/)
