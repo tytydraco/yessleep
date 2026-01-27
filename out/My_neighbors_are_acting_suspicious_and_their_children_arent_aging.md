@@ -142,7 +142,7 @@ Rhea wanted freedom.
 
 She explained as much in her notes and begged me for help. She told me she just needed me to sneak into the house after everyone was asleep and copy a few pages of her mother’s grimoire, just enough to control her own age and force Valentina into a compromise.
 
-Once Rhea and Billy were chained down and sedated for the night, Valentina was in the habit of leaving the grimoire out of its safe in the study, especially if she'd had few glasses of wine during her nightly research.
+Once Rhea and Billy were chained down and sedated for the night, Valentina was in the habit of leaving the grimoire out of its safe in the study, especially if she'd had a few glasses of wine during her nightly research.
 
 If Rhea left the bathroom window unlocked for me, it’d be easy for me to sneak in – or so she said.
 
