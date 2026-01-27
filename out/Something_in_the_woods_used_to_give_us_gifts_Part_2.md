@@ -1,5 +1,7 @@
 [First part](https://www.reddit.com/r/nosleep/comments/1ql83h7/something_in_the_woods_used_to_give_us_gifts/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
+(edit: this post is part of a removed series and is no longer active.)
+
 My dreams are getting worse. The figure in the window is closer. I can see it now. I can see *her* now. A woman with long, matted hair and a face hidden mostly in shadow. I can faintly see her mouth moving in a way that looks like she’s speaking, but I can’t hear her. I can’t hear anything at all. Just like that day when we found the house, when Sophie went missing. Silence. That’s how it usually is lately. But last night, in my dream, I did something different. I leaned closer to the window to hear what she was saying. My breath fogged the cold glass. 
 
 BANG. Her hand slammed against the glass, her face inches from mine, eyes wild, mouth open in a silent scream. I screamed and stumbled backwards, waking up as I hit the ground both in the dream and in my real life. I looked up from the floor of my room towards my window and for just a second, I could’ve sworn I saw her silhouette looking back at me. I blinked and she was gone. 
@@ -12,4 +14,4 @@ I climbed up to the attic and unearthed one of the boxes labeled “Rick”. The
 
 I picked up a photo of someone I didn’t recognize. She had dark hair cut short, framing her round face. Her smile was so wide that her eyes were nearly closed. In her arms was a baby wearing a bib with the number one on it. I flipped it over and read my mom’s handwriting on the back. *Eli’s first birthday, 2008*. That baby was me? Who was the woman holding me? She looked nothing like my mom. I thought about bringing the photo to my mom and asking, but it was in Dad’s box, and I knew she still struggled to talk about anything related to him, so I just placed it in the box with the other things I planned to take with me to my dorm. I moved on to looking through the other boxes, trying to ignore the weird feeling I got from that photo. 
 
-Sometime this weekend, I want to go looking for that trailer. I think if I can find that house and prove that it’s just an abandoned trailer, maybe I can make the nightmares stop. I’m not really sure what else to do. 
+Sometime this weekend, I want to go looking for that trailer. I think if I can find that house and prove that it’s just an abandoned trailer, maybe I can make the nightmares stop. I’m not really sure what else to do.

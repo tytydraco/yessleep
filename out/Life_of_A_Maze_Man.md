@@ -1,4 +1,4 @@
-Part 1 | [Part 2](https://www.reddit.com/r/nosleep/comments/1qafzml/life_of_a_maze_man_2/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1qfu62z/life_of_a_maze_man_3/)
+Part 1 | [Part 2](https://www.reddit.com/r/nosleep/comments/1qafzml/life_of_a_maze_man_2/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1qfu62z/life_of_a_maze_man_3/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1qoaj1r/life_of_a_maze_man_4/)
 
 “Skies oddly white today, ain’t it Jim?” That was the last thing one of my groupies that day said to me before he got cut in half. Couldn’t tell you what did it, ain’t nobody see nothing. There was no sound. No warning whatsoever. While his top half fell to the cold concrete ground pretty quickly, his legs remained upright. They stood resolute, spoutin’ blood everywhere like a broken faucet. The worst part about the whole thing is, my name ain’t even Jim. 
 
