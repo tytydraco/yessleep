@@ -470,3 +470,5 @@ Because it didn’t need me to survive.
 They just need someone to take my place.
 
 And they already know who comes after me.
+
+[Part 11](https://www.reddit.com/r/nosleep/comments/1qo1y7s/i_dont_feel_safe_in_my_apartment_anymore_part_11/)
