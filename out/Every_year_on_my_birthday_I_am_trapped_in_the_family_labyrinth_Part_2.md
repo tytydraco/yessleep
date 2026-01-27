@@ -1,4 +1,4 @@
-[Part 1.](https://www.reddit.com/r/nosleep/comments/1qcdik5/every_year_on_my_birthday_i_am_trapped_in_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 1.](https://www.reddit.com/r/nosleep/comments/1qcdik5/every_year_on_my_birthday_i_am_trapped_in_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 3.](https://www.reddit.com/r/nosleep/comments/1qolzr4/every_year_on_my_birthday_i_am_trapped_in_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I had another nightmare last night. After everything I had just seen it was not surprising. Less than a day left now. I wish there was some way to escape. I don't want to go back, but I know that there’s nothing I can do to stop it. I try and calm my mind as best I can and prepare myself for what's to come, but the memory of seeing the mutilated form of Jaime emerging from the mausoleum shattered my resolve.
 
