@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/s/m7dDVUAmLg)
+
 My name is Gary and I work as a security guard for a mid sized Museum in Chicago. I got the gig about a year ago. The pay is good but the work, well the work can get spooky.
 
 The museum put me on night duties a couple months ago and well I’ve seen some things that wake me when I sleep. Sometimes you’ll see the occasional mouse that the exterminators seemed to have missed, spiders in corners, and once I even found a raccoon that somehow snuck in the woolly mammoth display.
