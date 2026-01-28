@@ -320,7 +320,7 @@ I shook my head and tried to walk towards them. “It’s ok. I’ll try another
 
 “Just shoot the damn thing already!” The counselor shouted at me.
 
-“Ok!” I yelped nervously. I hastily knocked an arrow while in a cold sweat, hands shaking the whole time. The string left my wet fingers at such a violent speed, and the arrow soared majestically forward. But I had critically fumbled. The arrow completely missed the target, and landed with a dull thud. Some of the girls screamed, others cried. My arrow had pinned the head of a squirrel to a tree. Its body lay holding an acorn nearby.
+“Ok!” I yelped nervously. I hastily nocked an arrow while in a cold sweat, hands shaking the whole time. The string left my wet fingers at such a violent speed, and the arrow soared majestically forward. But I had critically fumbled. The arrow completely missed the target, and landed with a dull thud. Some of the girls screamed, others cried. My arrow had pinned the head of a squirrel to a tree. Its body lay holding an acorn nearby.
 
 For the briefest moment I thought I had seen something, just in the corner of my eye—past the scene of death. A dark shroud dissolving into the foliage. Of course, it easily could have been shadows of leaves dancing under the summer sun. But I didn’t get to ponder it for long.
 
