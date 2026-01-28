@@ -55,3 +55,5 @@ I can’t say that what was happening frightened me very much. There were days w
 If before that people had somehow endured what was happening, unwilling to abandon their settled lives, the deaths of children were the last straw. By that time my mom had given birth to my little brother, and it was decided to move for the baby’s safety. It took more than a year, though, and for a long time we were still tormented by boys knocked down by the Volga, walking the streets after their funerals and calling my little brother out to play. But eventually we managed to leave that place.
 
 I can say that the events described didn’t affect my mental health. At seventeen, thanks to certain benefits and my fairly good grades, I managed to enroll in a university on a state-funded place and was given a room in a city dormitory. Over time my father found a decent job in the same city, so my parents and little brother soon followed. Grandpa, unfortunately, is no longer alive, but according to Grandma, it’s hardly noticeable. She still sometimes sees him sleeping in the yard or walking down the street outside the window, so she isn’t lonely.
+
+By Sasha P.
