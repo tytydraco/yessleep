@@ -16,7 +16,7 @@ It’s a single motion. I lift myself up and throw the CPAP off my face. My eyes
 
 My arm rises. My knuckle taps the control panel on my headboard. The lights flick on. I’m alone. The rain continues, its crispness dulled by the whoosh of my nasal mask.
 
-I turn off the CPAP, shut off the rain, and stand at my apartment door, listening for voices. Maybe it’s neighbors in the hall—late-night conversations softened by insulation into something that almost sounds like a whisper meant for me. 
+I turn off the CPAP, shut off the rain, and stand at my apartment door, listening for voices. Maybe it’s neighbors in the hall—late-night conversations softened by insulation into something that almost sounds like a whisper meant for me.
 
 There is nothing. Nobody. My building feels lifeless. The lights in the hall set to dim without presence.
 
@@ -65,3 +65,5 @@ But I’m begging you. If anyone out there knows how to isolate this, how to det
 And I need to know whether that voice is really there.
 
 Edit: To those who reached out, thank you. I got it downloaded now and I think this stem splitter program should do all the work for me.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1qmvzag/a_few_nights_ago_i_asked_if_anyone_else_heard/)

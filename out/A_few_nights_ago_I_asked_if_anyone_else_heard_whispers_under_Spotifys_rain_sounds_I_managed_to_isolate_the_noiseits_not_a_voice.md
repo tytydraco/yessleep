@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1qk3h76/ive_been_falling_asleep_to_rain_sounds_on_spotify/)
+
 I didn’t love the skepticism from my friends, but they weren’t wrong to question me. They all know I spend my evenings riding a potent weed gummy from the nearby res. Still, I hadn’t hallucinated the sound. I’d just given it too much meaning.
 
 I dumped the track into Spleeter. It spat out a folder of WAVs. Vocals, drums, bass, other. The rain scattered itself across the last three, highs, lows, and a smeared hiss.
@@ -118,5 +120,4 @@ The clicks in my headphones felt closer now. Not louder. Closer.
 
 Mark shrugged. “Or someone else was already recording out there.”
 
-  
-The previous part here: [https://www.reddit.com/r/nosleep/comments/1qk3h76/comment/o187fl0/?sort=old](https://www.reddit.com/r/nosleep/comments/1qk3h76/comment/o187fl0/?sort=old)
+[Part 3](https://www.reddit.com/r/nosleep/comments/1qpopk5/i_found_coded_coordinates_hidden_under_the_rain/)
