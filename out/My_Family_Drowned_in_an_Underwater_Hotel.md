@@ -60,7 +60,7 @@ As we rolled into the second week of the vacation and the itinerary became more 
 
 With just a few nights left of our trip, we had our most action-packed day yet—first being sent hiking across a nearby thick jungle, then ziplining over the canopy in a whirl of green, and finally kayaking our way between islands back to the hotel. We returned to our room that evening after dinner, thoroughly exhausted but satisfied with how much we’d gotten to experience the tropical locale. The novelty of our blue, subterranean ocean room had almost worn off at this point.
 
-When the light cyan beyond the glass darkened to an inky black with the sunset, you couldn’t make out the sea life anymore anyway. Climbing into bed that night, I remember looking up at the night-coloured dome above and feeling safe and warm. A cozy, modern, waterproof submarine to recharge in.
+When the light cyan beyond the glass darkened to an inky black with the sunset, you couldn’t make out the sea life anymore. Climbing into bed that night, I remember looking up at the night-coloured dome above and feeling safe and warm. A cozy, modern, waterproof submarine to recharge in.
 
 That was the moment it happened.
 
