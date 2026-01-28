@@ -96,7 +96,7 @@ I grabbed the broom from the storeroom and struck the screen. It answered with a
 
 What came out of the machine could only be described as a distorted grunt. It spoke my name, first, middle, last, slowly, like it was reading from an old report card. Then it said my mother’s name, the way she used to when I was little and in trouble. Soft. Disappointed. The air thickened with the smell of it, powdery, metallic scratchoff foil, undercut by something wetter. Like coins left too long in a corpse’s pocket.
 
-I froze. I clamped my hands over my ears, desperate to shut out the lie. It didn’t sound like her, but I recognized it. Her*.* It*.* The noise swelled anyway, forcing its way through the gaps between my fingers. I squeezed my eyes shut, bracing for something terrible. Light burned through my eyelids, searing white. I gave in to the weight of my body and folded forward, burying my head between my knees. This was it.
+I froze. I clamped my hands over my ears, desperate to shut out the lie. It didn’t sound like her, but I recognized it. Her. It. The noise swelled anyway, forcing its way through the gaps between my fingers. I squeezed my eyes shut, bracing for something terrible. Light burned through my eyelids, searing white. I gave in to the weight of my body and folded forward, burying my head between my knees. This was it.
 
 Then it stopped. The light. The sound. I opened my eyes slowly.
 
@@ -108,7 +108,7 @@ The cops gave me a warning and left it at that. No charges. No paperwork. Just l
 
 I told myself I was grateful.
 
-Word spread fast. It always does in towns like this. Night Boy lost it*.* People started asking if I was okay, the way you ask someone with a rash if it’s contagious. Mr. Jones stayed too calm. Customers complained about the missing machine. He told them it was “under repair.”
+Word spread fast. It always does in towns like this. Night Boy lost it. People started asking if I was okay, the way you ask someone with a rash if it’s contagious. Mr. Jones stayed too calm. Customers complained about the missing machine. He told them it was “under repair.”
 
 It never came back.
 
