@@ -497,3 +497,5 @@ Dinner with Gabs. I never thought we would go there, certainly not like this. A 
 He smiled and Nodded, "Don't worry, I've got your back. We all do." 
 
 I returned his smile. There's a lot riding on this dinner date. Not just cracking open an encrypted file, but hopefully convincing her we all hadn't gone crazy when we tell her why. But I'm feeling confident, despite my jitters. Especially knowing my team is right beside me every step. 
+
+[Part 7](https://www.reddit.com/r/TheMidnightArchives/s/lB21RPW5XJ)

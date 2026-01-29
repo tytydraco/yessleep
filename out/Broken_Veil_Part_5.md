@@ -406,3 +406,5 @@ The guy's testimony told me something though. This has been going on longer than
 I wondered just how big this operation really was. Small detachments like us couldn't be the only ones out there if there were things that could wipe whole towns off the map. For now though, my mind was settled in that I now have a new job, with a new perspective from the other side of the coin. My bank account has been padded, thanks to Sam. And I've got myself what appears to be a capable team, a merry band of misfits if I've ever seen one 
 
 Maybe this isn't all for nothing. Maybe we really can close up the Veil here and keep more unfortunate souls from slipping through the cracks. Going from recovery to prevention is a nice change of pace from spinning my wheels on dead ends. Who knows, maybe I'll take Sam's advice too. For the first time in a while now, things are starting to look a bit brighter in this bleak little city.
+
+[Part 6](https://www.reddit.com/r/TheMidnightArchives/s/CCGHUBGV4j)

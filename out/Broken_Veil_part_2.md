@@ -206,3 +206,5 @@ This just got stranger. This could easily go south, and I'm not ready to turn th
 I will update when we have some answers. 
 
 Right now there's too many holes in this puzzle, too many breadcrumbs with no trail. Whoever took Ethan might still be out there, watching. But so am I, and I will hunt this down.
+
+[Part3](https://www.reddit.com/r/TheMidnightArchives/s/GeuaM9IgPM)

@@ -643,3 +643,5 @@ I dialed Gabriella. It rang and went to voicemail.
 I paused 
 
 "Listen... I'm not done with this. Not yet. I can't..  Not after Paul..." I paused, "Maybe sometime I'll have something more I can bring you. Maybe just a coffee with that apple pastry you like. But don't worry about me.. I'll be fine.. I'm still on the hunt."
+
+[Part 4](https://www.reddit.com/r/TheMidnightArchives/s/XucRYmMEzE)

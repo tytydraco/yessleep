@@ -401,3 +401,5 @@ Chris tapped my shoulder as he walked by, "You can ride shotgun."
  It had been a point of interest before for me, back when I was working the trails and cases out in the parks for the department. Now I felt like the new kid on the block, the rookie ready to be tossed into the deep end of some new adventure into the unknown. 
 
  This time however, I felt like I had a sense of direction, not just lost at dead ends. This time I had fresh eyes and a different perspective that hopefully will render the forest's secrets from the quiet pines at the edge of my little world.
+
+[Part 5](https://www.reddit.com/r/TheMidnightArchives/s/PnqH8tgVT2)
