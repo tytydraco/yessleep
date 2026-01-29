@@ -6,13 +6,13 @@ I wasn't angry about it. I don’t think I was, anyway. I wasn't angry at women 
 
 What wore me down was how much work it all took.
 
-With women, everything felt indirect. Like there were rules everyone else understood that I kept missing. Don't text too soon but don't wait too long either. Be interested but not *too* interested. 
+With women, everything felt indirect. Like there were rules everyone else understood that I kept missing. Don't text too soon but don't wait too long either. Be interested but not *too* interested.
 
 With men, it had never really been like that.
 
 I'd hooked up with guys before. Nothing secretive or tortured about it. It just happened sometimes. It was straightforward. You wanted someone, you said it. If it worked, great. If it didn’t, you moved on. No one pretended it was deeper than it was.
 
-So after one especially dull tinder date that ended with a polite hug and a "text me when you get home" that we both knew meant nothing, I came back to my apartment, kicked my shoes off, sat on the edge of my bed, and downloaded Grindr.
+So after one especially dull Tinder date that ended with a polite hug and a "text me when you get home" that we both knew meant nothing, I came back to my apartment, kicked my shoes off, sat on the edge of my bed, and downloaded Grindr.
 
 I told myself I was just curious.
 
@@ -119,4 +119,3 @@ I sat down hard on the couch and read the article. Then I read it again.
 No signs of foul play. I sat there with my phone in my hand and felt something settle in my chest that didn’t feel like fear yet.
 
 That night, the breathing came back.
-
