@@ -67,3 +67,49 @@ I was sitting in my classroom, talking to my friend. I told him how I live, etc.
 "Who are you?" How did you end up here?! – the teacher asked me.
 
   Now I'm sitting in the principal's office, waiting for the police and trying to explain what happened, my surprised parents are sitting next to me. I also quickly figured out what had happened to me. It's been 45 minutes for them, but 3 years and 9 months for me.
+
+
+Update: 
+
+ I'm the kind of person who lost 3 years and 9 months of his life in 45 minutes, but then I lost 45 minutes of my life in 3 years and 9 months. I thought it was over, but it's not. I'm writing the second part.
+  I stopped my story by saying that I was in the director's office and waiting for the police. When the police arrived, they started questioning me. I told you everything that happened to me: all my guesses about the anomaly I got into, what I did while time was passing slowly, and how I wanted to walk to another city, but fell ill. The police officers looked at me like I was crazy. Although, in their eyes, I am like that. 
+"Do you know him?" – the employee turned to my parents. I looked at them. 
+- It seems to be our son, but on the other hand, a stranger. Our son was a teenager, but this guy looks a lot like him, only older.  My father replied. 
+- So, how am I supposed to believe that you are mentally healthy? So, Ekaterina Dmitrievna, what do you say? – the employee turned to the director.
+"I'd better show you."  She turned on the video from the camera. Where it was obvious that I was missing, the teacher and the students didn't even notice (except for my friend). Then the director rewound the recording 45 minutes ahead. The video showed me suddenly appearing out of nowhere in the middle of the class. 
+- Okay, I see. I want to interview all the witnesses. – said the employee.
+  As a result, the police interviewed my classmates, and they answered almost the same way: "He appeared out of nowhere, like our classmate, but he was a teenager." I was nervous, and no one believed me. My parents still said that I was not their son. As a teenager, they announced that I was missing. 
+  The result is this: I was taken to the hospital for an examination of my mental state, in short, am I crazy or not. The police have put forward a theory that I abducted myself as a teenager. They drove me in a police car. Fortunately, my hands weren't in handcuffs. I did not expect such a turn of events.
+
+  It took me about 20 minutes to get to a simple hospital (thank God it wasn't a psychiatric hospital). They sent me to a doctor, accompanied by a police officer. The problem was that I was 18, and the passport was that of a 14-year-old teenager. Okay, I wasn't thinking about it at the time. 
+  The hospital had five floors, and the doctor I was referred to was on the fifth floor. The employee and I entered the elevator, he pressed the "5" button. The elevator moved. Everything was fine, but unexpectedly for me and the employee, the elevator shook, rattled and stopped between the 3rd and 4th floors. 
+  The employee pressed the "5" button again, but without success. Then the employee pressed the dispatcher's call button. The result is nothing. There were no reactions. We're stuck in the elevator. I took out my phone. The time was 10:00. There was no connection. Strange.
+- Do you have a connection?  I asked.
+- what?
+- Is there a phone connection?  The employee took out his phone. 
+"Not really?" – He replied.
+  I looked at the time again out of habit, it was 10:01. While I was standing there thinking about what was happening, the employee kept pushing buttons. There was no camera in the elevator, just buttons and a door. 5 minutes have passed, the time is 10:06. The employee gave up.
+- In short, now they'll notice that you didn't come to the reception. Well, they'll be looking for us, they'll check the elevator, they'll realize it's broken, and that's it. – He told me. 
+  I sat on the floor and started playing on my phone, and so did he. We sat there for 14 minutes. The time was 10:20. The employee got up and started pressing the buttons again.
+"I think we've been here a long time."  I said. He turned to me and said. - Why did you kidnap that kid and impersonate him, and tell this amazing fantastic story. You're probably mentally ill, though. – It made me angry. 
+- I am that kid, I am not a mentally ill person. I even kept a diary, it's in my backpack, which is in your car!  I shouted at him. 
+- Don't yell at the employee! "Stop it!" he shouted back. 
+  We went back to our phones. After 5 minutes, he told me.
+"Okay, I'm sorry. My name is Dmitry. Dmitry Vladimirovich. – unexpectedly for me, he decided to say the name. Then he held out his hand, and I reached out in return, and we shook. The time was 10:25 a.m.
+  We started talking, and he told me various stories from his life and service. I realized that it was very interesting to spend time with this person. I was telling you what I did when time passed slowly. Then I remembered the photos I was trying to take while I was in this anomaly. I went into the gallery… And I found a lot of photos of me as a teenager and how I spent my time. I showed all the photos to Dmitry Vladimirovich. And in the end, he believed me. I don't know how many minutes passed. And when I looked at the time, it was 10:45 on the phone. 
+  Abruptly, the elevator creaked and started working again. We felt the elevator go up. Then he stopped on the 5th floor and his doors opened.  We got out of it.
+- Mmm, okay, let's go to the doctor, I still need to take you there for a check. – Said Dmitry Andreevich. We went to the doctor's office. When we reached it, an employee knocked on the door, opened it and looked into the office. A middle-aged male doctor was sitting at the computer in the office. – Hello, we have an appointment. Sorry we're half an hour late. 
+- Hello, what's the appointment? There were no appointments for the next 2 hours. – said the doctor. The employee looked at the doctor in surprise.
+- Well, did the district police officer call you today? 
+- No, you probably got the wrong day.
+  - Okay, I'm sorry. – Dmitry Andreevich wanted to leave. – By the way, your elevator broke down, we sat in it for 45 minutes and no one answered. 
+"Young man, I rode this elevator here five minutes ago. Maybe you need to get checked out? 
+- Strangely, no. I'm fine. Sorry, goodbye.
+"Good-bye."
+Dmitry Andreevich went out. He looked at me. 
+"That's strange. It's very strange. We need to get back to ours. – He told me. 
+  We went down the stairs. And it felt like something had changed. We went through the reception desk and went outside. The car we arrived in wasn't there. And there was that feeling again, something was wrong.
+- So, where is it? They're supposed to be waiting for us.  Dmitry Vladimirovich said. 
+  We went to the bus stop, where we stood and waited for the bus. I still can't let go of that feeling. I started looking around, and the date for the announcement "November 20, 2025" caught my eye. Like, it was 2021. I pointed out the date to the employee, and it was obvious from his eyes that he was in shock. We even asked passersby, and they told us it was 2025. We started to panic, and I started to guess. We hurried to the police station. When we arrived, it turned out that Dmitry Vladimirovich and I had been missing for at least 3 years and 9 months.… 
+  It was very strange. We told how we got stuck in the elevator. Now my guess has finally been confirmed. While we were sitting in the elevator for 45 minutes, 3 years and 9 months passed outside. I've fallen into this anomaly again, but I'm not alone. Dmitry Vladimirovich and I were taken back to the hospital to watch on surveillance cameras. 
+  An hour later, we were standing next to the monitor and watching a three-year-old video from surveillance cameras. Here we enter the elevator, it goes, we look at another camera that is hanging on the 5th floor. The elevator opens and it's empty… How? Why? I, no one could answer that question. Now we're all sitting in the precinct officer's office and wondering what kind of anomaly it is.
