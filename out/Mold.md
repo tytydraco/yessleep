@@ -12,27 +12,27 @@ I’m a carpenter who grew up in a big city, Few years back I moved across the c
 
 Jobs are few and far between starting out in a new place. So I took what I could get.
 
-About 2 months ago 
+About 2 months ago
 
 ——
 
-I don’t really know anymore trying to grasp at time is like holding out your hand to stop the pouring of sand in an hourglass from the side that’s already spent. 
+I don’t really know anymore trying to grasp at time is like holding out your hand to stop the pouring of sand in an hourglass from the side that’s already spent.
 
-Doesn’t matter if I catch it. 
+Doesn’t matter if I catch it.
 
 it’s already on this side—it’s far too late and I can’t get past the rushing of new sand burying every grain below
 
 ——
 
-I had an urgent call come in. It was demo and repair of some water damaged drywall, easy enough. I had done it at least 100 times before. I figured while Cam was doing demo I would go grab the materials since we would have to drive by the site anyway to get to the hardware store. 
+I had an urgent call come in. It was demo and repair of some water damaged drywall, easy enough. I had done it at least 100 times before. I figured while Cam was doing demo I would go grab the materials since we would have to drive by the site anyway to get to the hardware store.
 
-Whatever happened at that house… whatever crawled up from the depths of the earth and consumed the part of me that once held my own thoughts was not pure. Nobody in this town thinks ill of the hold it has on them, but for fleeting moments I have clarity and in that clarity I am reaching out to whoever may read this. Whether this thing is worldwide or just here I do not know. People go missing around here and never turn up, everyone just forgets about them after about a week and goes on with their “lives” until the next one. 
+Whatever happened at that house… whatever crawled up from the depths of the earth and consumed the part of me that once held my own thoughts was not pure. Nobody in this town thinks ill of the hold it has on them, but for fleeting moments I have clarity and in that clarity I am reaching out to whoever may read this. Whether this thing is worldwide or just here I do not know. People go missing around here and never turn up, everyone just forgets about them after about a week and goes on with their “lives” until the next one.
 
-This is not a cry for help, but a warning. 
+This is not a cry for help, but a warning.
 
-There is more to earth than we thought. The biological world runs deeper than we ever knew. Somewhere out there people went digging where they shouldn’t have looking for wealth and instead unleashed the wrath of a long dormant evil. I lost my best friend in his attempt to bring his findings to the authorities. 
+There is more to earth than we thought. The biological world runs deeper than we ever knew. Somewhere out there people went digging where they shouldn’t have looking for wealth and instead unleashed the wrath of a long dormant evil. I lost my best friend in his attempt to bring his findings to the authorities.
 
-If you are ready this whether in a fleeting moment of clarity or in a place where the puppeteers strings do not hold. 
+If you are reading this whether in a fleeting moment of clarity or in a place where the puppeteers strings do not hold.
 
 Please never come to Nova Scotia
 
@@ -114,7 +114,7 @@ As I reach out to use the old iron knocker with a shit eating grin the door crac
 
 I catch myself wearing my stupid smile and try to reset to my customer service face letting out a small ahem and a brief frown, unintentionally showing my disgust at the woman and the heavy stench of rot pouring from the now open door so strong almost as if the air itself had spoiled.
 
-So badly I wanted to take our tools back to the truck and save my friend from entering that god forsaken branch of hell. If I could go back I would have and we would burn that place to the ground together, but when you’re there and you’ve agreed to do a job now face to face with the person, there’s a level of guilt and shame that looms behind the idea of leaving them on the notion that they are a disgusting rotting sack waste. 
+So badly I wanted to take our tools back to the truck and save my friend from entering that god forsaken branch of hell. If I could go back I would have and we would burn that place to the ground together, but when you’re there and you’ve agreed to do a job now face to face with the person, there’s a level of guilt and shame that looms behind the idea of leaving them on the notion that they are a disgusting rotting sack waste.
 
 Respectfully.
 
@@ -346,7 +346,7 @@ But instead I said
 
 And drove on through.
 
- Opening the bed of my truck, the bags of drywall had changed overnight.
+Opening the bed of my truck, the bags of drywall had changed overnight.
 
 Some bags painted black from the inside as the mold within tried to claw its way out.
 
@@ -434,7 +434,7 @@ Instead he said,
 
 “I’m alright man just woke up feeling a little rough but I’m better now”
 
-His voice too chipper to be that of the same man I watched have his soul contorted like a balloon animal yesterday 
+His voice too chipper to be that of the same man I watched have his soul contorted like a balloon animal yesterday
 
 Usually if he was in a good mood he’d come out and talk, but not today.
 
@@ -738,4 +738,6 @@ I guess I must have accidentally locked Morty down there.
 
 Oh well!
 
-I’m not really in the mood to deal with all the mold in Cam’s room, so we’ve got some restoration guys coming in the morning to fix it all up.
+I’m not really in the mood to deal with all the mold in Cam’s room, so we’ve got some restoration guys coming in the morning to fix it all up. It really is a shame to see it go — the way it creeps up the wall, a soft embrace to a cold hard surface. Clusters of elegant spores forming rolling hills along the wall. None in competition with one and other just an equal desire to spread its roots far and wide for its species survival. It’s mesmerizing to look at its beautiful innocence. it’s not hurting us we’re just sharing our vessels, but as with the hag before us…
+
+our turn is up.
