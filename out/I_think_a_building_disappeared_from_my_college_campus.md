@@ -111,3 +111,5 @@ Cole paused on the ladder for a second while I stayed up top, “Hey man you com
 “What, you really want to stick around until security finds us? They already don’t like doing their job. Pulling up a secret hatch is bound to get us in a world of trouble.”
 
 I looked around for a moment before following everyone down the ladder. I paused for a moment while the one guy in the group held me steady so I could seal the hatch again. Being plunged into darkness I could only help but think that I should have just gone to bed earlier.
+
+[\[Next\]](https://www.reddit.com/r/nosleep/comments/1qraysd/i_think_we_found_the_missing_building_on_my/)
