@@ -1,0 +1,17 @@
+I sleep talk.  A lot.  I know that I sleep talk a lot because when I wake up in the morning my wife’s first words of her mouth are “You were talking again last night, this time it was about trying to cross a bridge made of rubber or something.”  Most of the time it’s harmless stuff like that, nonsensical ramblings said with utmost urgency.  
+
+Every once in a while, especially after I’ve experienced something really stressful I’ll get night terrors, meaning that I sleep talk with body movements as well.  One time I was dreaming we were in an avalanche and in the middle of the night I threw myself on top of my wife screaming “WATCH OUT FOR THE SNOW.”  Needless to say she was not thrilled that I woke her up, even if it was for the right reasons.  Other times it was more serious, like I dreamed there was an intruder and so jumped out from underneath the covers, yelling “GET OUT GET OUT GET OUT.”
+
+I’m sure by now you can tell that my wife’s sleep is not the most consistent and it’s kind of my fault, at least partially.  People get mean when they’re sleep deprived and it started to become an issue in our marriage.  How can you get mad at someone’s unconscious thoughts?  After a couple weeks I agreed to go to a sleep specialist and try to find a solution.  To my surprise sleep therapy was very similar to regular therapy, including talking through problems, dream journaling, mindfulness meditation, etc.  
+
+However, the one thing that was different versus regular therapy is that my therapist asked me to use an app to record myself when I sleep.  The idea is that in addition to tracking your diet and caffeine intake, the app turns up your phone’s microphone sensitivity to record any talking, moving, snoring, etc.  After a couple weeks the app said that it should be able to give me insights into what is giving me night terrors.  Up until last night the data collection was going really well.  
+
+I went through my usual bedtime routine.  Brushed my teeth, flossed, put in my night guard, plugged in my phone and started reading my book to drift off to sleep.  My phone is automatically set to always record between 10pm and 7 am, and as long as the speaker is pointed near my head it has no problem picking up what I say.  
+
+The next morning I noticed that my phone has a lot more snippets of talking than usual.  The first clip is the sound of me rolling over.  The next one is a sample of my wife’s snoring.  The third was me.
+
+“Mmmm no I don’t trust that one it’s going to explode,” I mumbled.  The fourth one was also me, “Nonononono I don’t think that’s right.”
+
+The fifth snippet was a voice I did not recognize. It was hard to make anything out but it was low, deep and gravely, humming a tune I could not place.  I listened to it over and over again to make sure and everytime the humming voice came through crystal clear.
+
+My wife thinks it might have been me doing a character voice from my D&D game but I have never done that in any of my previous sleep talking episodes and I can’t make my voice sound baritone and gravely.  I’m not really sure how else to explain it but needless to say, I’m going to be extra sure that my phone is recording again tonight.  I know it’s probably nothing but I can’t shake this feeling that something is wrong.  I have this feeling like I am anticipating that I am going to be watched while I sleep.
