@@ -76,7 +76,7 @@ I didn't want to look. I didn't want to know what kind of weather required a sou
 
 I reached for the paper, my fingers trembling. The heat coming off it felt like a fever. I smoothed it out on the desk and leaned into the microphone. My voice felt thin, a fragile thread of sound in the sudden, heavy silence of the station.
 
-"Attention, listeners," I began, my eyes scanning the jagged text. "Update for the overnight hours. We’re looking at a sudden temperature inversion. A thick, localized fog will begin rolling in from the tree line starting at 10:00 PM. Expect near-zero visibility."
+"Attention, listeners," I began, my eyes scanning the jagged text. "Update for the overnight hours. We’re looking at a sudden temperature inversion. A thick, localized fog will begin rolling in from the tree line starting at 6:00 PM. Expect near-zero visibility."
 
 I paused. The next line wasn't about barometric pressure or wind shear. It was printed in a larger, shakier font.
 

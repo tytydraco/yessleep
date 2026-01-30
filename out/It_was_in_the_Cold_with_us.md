@@ -6,7 +6,7 @@ Above me, the steel scaffolding rose like the skeleton of a dead cathedral, labe
 
 The voice belonged to Bo, the night crew’s oldest relic. It cut through the mechanical hum like a jagged blade.
 
-“Sorry, Bo! Hit a patch of black ice,” Travis called back. He was a young buck, still eager, still wearing that "new-guy" coat of sweat that I knew would eventually freeze into resentment.
+“Sorry, Mister Bo! Hit a patch of black ice,” Travis called back. He was a young buck, still eager, still wearing that "new-guy" coat of sweat that I knew would eventually freeze into resentment.
 
 “Travis, I told ya to stop calling me 'Mister.' I’m yer coworker, not yer damn priest. Now get these peas off the floor before they freeze to the concrete.”
 
@@ -84,7 +84,7 @@ My teeth began to chatter, a tiny, frantic *click-click-click* that sound. I cla
 
 I shook my head violently, trying to force my mind to trick itself. Make it believe I didn’t see anything, but I acted like a fool. I walked forward. I figured Travis must have worked his way to the office. So I moved through the darkness as best I could hoping I would hear Bos raspy voice boom out from somewhere. But the only sound was the heavy coolers above me, and my own boots. My mind must have been messing with me, stitching together random shadows and the flicker of dying bulbs into a monster that didn't exist. I was a grown man jumping at ghosts in a glorified refrigerator.
 
-I forced one foot in front of the other, stepping away from the spilled peas and the abandoned shovel. He was probably there now, leaning against Bo’s desk, laughing about how the "new guy" got spooked by a blackout. 
+I forced one foot in front of the other, stepping away from the spilled peas and the abandoned shovel. He was probably there now, leaning against Bo’s desk, laughing about how the "new guy" got spooked by a blackout.
 
 I moved through the darkness, my pace quickening. I kept my eyes fixed straight ahead, refusing to look up at the steel spires or the dark gaps between the pallets. I was listening for Bo. I wanted that raspy, tobacco-stained voice to boom out from the gloom, to call me an idiot, to break the spell of this suffocating silence.
 
@@ -142,7 +142,7 @@ The thing above me didn't hesitate. It uncoiled with a sickening fluidity, its l
 
 I tried to scream. I opened my mouth to heave out a warning, but my throat was a desert. My vocal cords felt frozen together, or perhaps the sheer, primal terror had simply severed the connection between my brain and my lungs. I stood there, a silent witness, as the shadow of my own voice disappeared into the orange haze to kill the only friend I had left.
 
-I didn't follow. God help me, I didn't even try. I turned and ran the other way, my boots skidding on the frost-slicked floor as I scrambled toward Section 5. 
+I didn't follow. God help me, I didn't even try. I turned and ran the other way, my boots skidding on the frost-slicked floor as I scrambled toward Section 5.
 
 I rounded the corner of the poultry stacks, desperate to get far away but I tripped. I went down hard, my palms stinging as they slapped the ice. As I scrambled to get my footing, I looked up.
 
@@ -201,4 +201,3 @@ It didn't step into the heat. It just loomed. Its neck was an impossible, telesc
 I buckled, hands on my knees, coughing up the last of the freezer’s frost. I glanced at my watch: 3:36 AM. The numbers blurred through my sweat.
 
 When I looked up, the monster was gone. The dark doorway was no longer a mouth to a tomb. It was flooded with a sudden, violent beam of the primary lights, that pure white glow. I stared into the empty doorway, realizing too late that the hole in its face wasn't for eating; it was a vacant socket, perfectly shaped for the parts of me it wasn’t able to get.
-
