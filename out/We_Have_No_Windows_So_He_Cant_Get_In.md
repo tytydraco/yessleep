@@ -54,7 +54,7 @@ The rescue team arrived about forty minutes later. I contacted them so I could m
 
 “Dispatcher, this house… it has no windows. No doors. None at all. It’s like a sealed wooden cube.”
 
-My stomach twisted. What scared me wasn’t so much the structure itself, but the realization that someone - *a child -* was inside that “capsule.” I checked the status of the call. It was still connected.
+My stomach twisted. What scared me wasn’t so much the structure itself, but the realization that someone - *a child -* was inside that "capsule". I checked the status of the call. It was still connected.
 
 “So you’re saying you don’t have windows?”
 
