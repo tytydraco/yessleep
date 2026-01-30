@@ -1,6 +1,6 @@
 I was safer on the street.
 
-The stranger wasn’t outwardly ‘off’; not some six-feet-tall string bean of a man with repugnant facial features and the scent of perished Brie. Yes, that was oddly specific. During my ten years sleeping rough, I met so many men who fit that exact description. Their insides were just as spoilt as their outsides.
+The stranger wasn’t outwardly ‘off’; not some six-feet-tall string bean of a man with repugnant facial features and the scent of perished Brie. Yes, that was specific. During my ten years sleeping rough, I met so many men who fitted that exact description. Their insides were just as spoilt as their outsides.
 
 But this particular man was a tall and handsome fellow in Oxford Brogues, tailored trousers, and a puffer jacket with a fleece lining around the hood. He was warm, and clean, and comfortable, and ordinary. He was entirely out of place in that alleyway I called home, filled with homeless folks of different backgrounds: junkies, runaways, and the mentally unwell; being manic depressive, I fell into the final category.
 
