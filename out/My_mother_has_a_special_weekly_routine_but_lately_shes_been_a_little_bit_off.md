@@ -174,8 +174,4 @@ My palms wouldn’t stop sweating and my head started racing like crazy. This wh
 
 She looked at me, a reflection of my own fear and confusion.
 
-"I have absolutely no idea. It must have somehow lured us in there [and made us forget."](https://www.reddit.com/r/Likeeyedid/)
-
-&#x200B;
-
-[tcc](https://www.reddit.com/r/TheCrypticCompendium/)
+"I have absolutely no idea. It must have somehow lured us in there and made us forget."
