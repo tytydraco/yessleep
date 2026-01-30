@@ -1,8 +1,8 @@
-I’m writing this because my wife is packing our car.
+I’m writing this because my wife is packing.
 
-In less than twelve hours, we’re driving to my parents’ house for the first time since I left. She thinks it’s overdue. I’ve run out of excuses that don’t make me sound cruel or insane. 
+In less than twelve hours, we’re driving to my parents’ house for the first time since I left. She thinks it’s overdue. I’ve run out of excuses that don’t make me sound cruel or insane.
 
-I've told her I had a difficult childhood. My family and I aren’t close. 
+I've told her I had a difficult childhood. My family and I aren’t close.
 
 I did *not* tell her the truth.
 
@@ -30,21 +30,21 @@ Every day it got a bit stronger. Warmer. And the light of life started to reappe
 
 I remember feeling proud. Like we were doing something good.
 
-But it became louder. 
+But it became louder.
 
-One night, I went to check on Whiskers. I wish I hadn’t. 
+One night, I went to check on Whiskers. I wish I hadn’t.
 
 I wish we had left him in the snow, because whatever death waited for him there would have been gentler than the one that followed.
 
 I checked the entire shed, with no sign of the cat. I returned into the warm embrace my home gave but before I went upstairs, I heard a meow. Then a crunch.
 
-Sounded like chewing. Careful chewing. 
+Sounded like chewing. Careful chewing.
 
 Wet and rhythmic, like someone taking their time with something they didn’t want to waste.
 
 I followed the sound to the kitchen.
 
-My father was standing at the counter, back to me. The overhead light was on. His shoulders were too wide, sloping strangely, like something heavy was hanging beneath his skin. 
+My father was standing at the counter, back to me. The overhead light was on. His shoulders were too wide, sloping strangely, like something heavy was hanging beneath his skin.
 
 As I watched, his head… separated. Not snapped or broke... it *unfolded*. The face split vertically, skin drawing back in thick, muscular layers, revealing rows of pale, flexible teeth that worked inward instead of up and down.
 
@@ -84,7 +84,7 @@ When I tried telling kids at school, just once, in middle school, they laughed. 
 
 I never told anyone again.
 
-I left for college the moment I could. Different city. Different life. I didn’t come back for holidays. I had excuses ready. 
+I left for college the moment I could. Different city. Different life. I didn’t come back for holidays. I had excuses ready.
 
 Finals. Work. Money. Distance.
 
