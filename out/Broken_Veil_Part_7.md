@@ -631,3 +631,5 @@ He looked at us one last time.
 The door sealed shut with a metallic clang.
 
 The locks finished squeaking closed as the wheel turned, and the chamber settled into a new silence, leaving just me and Ethan alone together. I had finally found him, and ended up sealed away myself in the process, with no way out and no way to call for help.
+
+[Part 8](https://www.reddit.com/r/TheMidnightArchives/s/jjt9T3psuq)

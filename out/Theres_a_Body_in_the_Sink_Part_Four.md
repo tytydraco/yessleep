@@ -371,3 +371,5 @@ The barrel of a rifle emerged from the shadows behind him, rising in an arc as t
 I lurched forward in alarm—in that moment, I didn’t think about how Dominic had just killed a man in front of me. All I saw was a little boy. But my legs wouldn’t work, and all I managed to do was uselessly pitch my torso forward a few inches. I threw my hand out in a desperate attempt to reach for the child. His terrified eyes snapped toward me.
 
 The gun went off.
+
+[Part Five](https://www.reddit.com/r/nosleep/comments/1qs202v/theres_a_body_in_the_sink_part_five/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
