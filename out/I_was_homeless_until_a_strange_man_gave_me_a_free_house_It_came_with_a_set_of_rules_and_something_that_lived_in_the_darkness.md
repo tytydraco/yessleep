@@ -1,3 +1,5 @@
+**Part I** \- [Part II](https://www.reddit.com/r/nosleep/comments/1qrsou3/i_was_homeless_until_a_strange_man_gave_me_a_free/)
+
 I was safer on the street.
 
 The stranger wasn’t outwardly ‘off’; not some six-feet-tall string bean of a man with repugnant facial features and the scent of perished Brie. Yes, that was specific. During my ten years sleeping rough, I met so many men who fitted that exact description. Their insides were just as spoilt as their outsides.
@@ -78,33 +80,31 @@ We left the alley and went to a local eatery, and I read through Mark’s contra
 
 I should’ve realised I was wrong before signing the contract.
 
-*> You, the new owner of the Property, agree to the following conditions:*
+>*You, the new owner of the Property, agree to the following conditions:*
 
-***> You will not enter the dining room.***
+>***You will not enter the dining room.***
 
-***> You will vacate the Property if you see the dining room door standing open.***
+>***You will vacate the Property if you see the dining room door standing open.***
 
-***> You will vacate the Property if a guest uses any of the following phrases:***
+>***You will vacate the Property if a guest uses any of the following phrases:***
 
-* “***There’s nothing in the doorway.”***
-* “***The eleventh time.”***
-* “***I should stay.”***
+>
 
-***> You will lock yourself in your bedroom whilst you sleep.***
+>***You will lock yourself in your bedroom whilst you sleep.***
 
-***> You will not look at the sources of anomalous shadows.***
+>***You will not look at the sources of anomalous shadows.***
 
-***> You will report all anomalous events to your Agency liaison.***
+>***You will report all anomalous events to your Agency liaison.***
 
-*> Violation of any one of the above conditions may render this contract null and void, thereby returning the title deed for the Property to the Agency.*
+>*Violation of any one of the above conditions may render this contract null and void, thereby returning the title deed for the Property to the Agency.*
 
-*> By signing this contract, you forfeit the right to sell the property until the Agency’s initial 12-month research period has passed.*
+>*By signing this contract, you forfeit the right to sell the property until the Agency’s initial 12-month research period has passed.*
 
 I signed it.
 
 On an ordinary February afternoon, a few hours after sleeping rough in an alleyway, a stranger drove me to my new home in the suburbs. The whole thing was a fever dream.
 
-Footing a long cul-de-sac was Rosewood House, which seemingly held dominion over the rows of properties leading up to it; not only because it sat at the head of the table, but because it sat a storey taller than its neighbours, shading them from the low afternoon sun. Shading them with a darkness that felt alive to me. A darkness that ruled. It sat upon the house; its Victorian throne of rosewood-red bricks and grey gables. The shadow owned not only the property, but the entire cul-de-sac.
+Footing a long cul-de-sac was Rosewood House, which seemingly held dominion over the rows of properties leading up to it; not only because it sat at the head of the table, but because it sat a storey taller than its neighbours, shading them from the low afternoon sun. Shading them with a darkness that felt alive to me. A darkness that ruled. It sat upon the house; its Victorian throne of rosewood-red bricks and grey gable roofs. The shadow owned not only the property, but the entire cul-de-sac.
 
 It owned me.
 
@@ -124,17 +124,17 @@ Life was much better. *I* was so much better. My depression remained, but to a l
 
 But now, in retrospect, I think I may have ignored things.
 
-***> You will not look at the sources of anomalous shadows.***
+>***You will not look at the sources of anomalous shadows.***
 
 Maybe I’d become so accustomed to manic depression that I’d learnt the art of dismissing that darkness which creeps inwards from the periphery of one’s visions and thoughts. You see, I often saw the strange shadows cast across the walls of Rosewood House.
 
-***> You will not look at the sources of anomalous shadows.***
+>***You will not look at the sources of anomalous shadows.***
 
 And I didn’t, but I knew that each one of those shapes, often with extremities like those of malformed limbs, did not stem from trees in the garden or the setting sun hitting Rosewood’s interior at new angles. My eyes didn’t have the trace the long shadows back to their sources.
 
 They always came from the dining room.
 
-***> You will report all anomalous events to your Agency liaison.***
+>***You will report all anomalous events to your Agency liaison.***
 
 But I didn’t. I hadn’t wanted to let go of this perfect life. I had ignored the darkness, choosing bliss instead. Choosing to maintain this better life off the streets, as I owed it to Amelia, who I viewed as a separate entity from myself. One night in December, however, something happened that proved impossible to ignore.
 
@@ -142,7 +142,7 @@ I woke around one in the morning with eyes already on the door. The door I had d
 
 The *open* door.
 
-***> You will lock yourself in your bedroom whilst you sleep.***
+>***You will lock yourself in your bedroom whilst you sleep.***
 
 My heartbeat hit a rapid rhythm; rapid enough for each pump to leap through my chest.
 
@@ -152,7 +152,7 @@ That was the lie I told myself, but I felt the truth of it all, just as I had on
 
 Something in Rosewood House was alive.
 
-***> You will lock yourself in your bedroom whilst you sleep.***
+>***You will lock yourself in your bedroom whilst you sleep.***
 
 *I’m not asleep, so I’ve not voided the contract. Besides, how will Mark know? Come on. He’s a good man. He’s not watching you at all times. You’d know if he were a creep. You’d know.*
 
@@ -162,7 +162,7 @@ I left the my swaddling duvet and crept over to the open door, then strolled out
 
 As I padded softly downstairs to the lobby, I squinted through the dark at that forbidden room on my right-hand side. My body jellied when I reached the bottom step and realised my eyes were playing no tricks on me.
 
-***> You will vacate the Property if you see the dining room door standing open.***
+>***You will vacate the Property if you see the dining room door standing open.***
 
 Much like my bedroom door, there it stood: ajar.
 
@@ -174,7 +174,7 @@ There came the voice and then the blubbering of a boy, wispy and meek, from the 
 
 There was nothing in the doorway.
 
-***> “There’s nothing in the doorway.”***
+>***“There’s nothing in the doorway.”***
 
 That strange wording from the contract filled my head, but I shoved it away and reached out for the front door handle; and the moment I wrapped my fingers around it, the stairs creaked. I’d almost known they would. Almost foreseen it.
 
@@ -255,3 +255,5 @@ Mark paused. “Amelia, there should be nothing but a bed, a side table, and a w
 My gut fell away. I knew I’d recognised Richard’s blue woolly jumper. I’d seen it every night, buried in amongst the dozen or so bulky stuffed toys. His corpse had been hiding there all that time.
 
 The shadow had been sitting in that rotting body and watching me sleep every [night](https://www.reddit.com/r/dominiceagle).
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/1qrsou3/i_was_homeless_until_a_strange_man_gave_me_a_free/)
