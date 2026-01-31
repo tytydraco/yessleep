@@ -72,9 +72,9 @@ As we approached my chest began pounding and I broke out in a cold sweat, almost
 
 “Uh oh, did you drink enough water today? When’s the last time you ate?” He asked, his hands steadying me and easing my anxiety simultaneously. 
 
-I regained my balance and took a moment to recover. “Yeah I guess not since this morning, I’ll eat when I’m home and I’ll be fine” I made an effort to put him at ease, sliding my pack off my shoulder and pulling out a fresh water bottle. I fumbled with the cap, my long acrylic nails and shaky anemic hands giving me trouble. 
+I regained my balance and took a moment to recover. “Yeah I guess not since this morning, I’ll eat when I’m home and I’ll be fine” I made an effort to put him at ease, sliding my pack off my shoulder and pulling out a fresh water bottle. I fumbled with the cap, my long acrylic nails and shaky anemic hands giving me trouble as usual.
 
-Joey, eager to be helpful and already fully accustomed to needing to open cans and whatnot constantly for me, gently took the bottle out of my hand and uncapped it before handing it back. It was a little ritual of ours, just something small he could do for me everyday to feel and be chivalrous to me. After a few sips I felt okay enough to keep going. It was only a few more steps before we were stopped in front of the stack of stones. 
+Joey, eager to be helpful and already fully accustomed to this reoccurring quirk of mine, gently took the bottle out of my hand and uncapped it before handing it back. After a few sips I felt okay enough to keep going. It was only a few more steps before we were stopped in front of the stack of stones. 
 
 Finally, there it was, placed on the stones- my little jewelry box. 
 
