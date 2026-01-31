@@ -10,7 +10,7 @@ Hopefully by the end of this, you’ll not only form some sort of an understandi
 
 Joey and I met online in a geocaching chat, which is eventually what led us to meet in person, and to start arranging our dates around our caches. For those of you who don’t know, geo-caching is a hobby I guess, where people hide items, post a general location or coordinates, and others go looking for it. Modern day treasure hunting, if you will. The first few weeks of this were pretty uneventful, mostly just excuses to hang out and walk around to stretch our legs outside of our tedious and sedentary desk jobs. 
 
-About 4 months in though, around the time we started realizing things were actually going really well and a few “I love yous” had been exchanged, is when it fell apart.
+About 4 months in though, around the time we started realizing things were actually going really well and a few “I love yous” had been exchanged, is when everything good in my life ended.
 
 It was Sunday, and we met up sometime that afternoon to look for a mysterious tin box I saw posted online in one of the geocaching communities. For once, my interest was completely and totally piqued in this cache. While we normally had little to no stake in whatever item we did or didn’t end up finding, I knew that this box in the picture was mine once. 
 
@@ -58,13 +58,13 @@ I hesitated, and for the first time, felt a little nervous, but reasoned with my
 
 I ignored the butterflies in my stomach, the desire to see my jewelry box again overcoming my gut feeling to turn around. “I think we’ll be okay then, even if it does get dark we can just follow the wall back to the trail, and then getting back to the car from there should be easy” I decided. 
 
-Joey agreed confidently clearly enjoying the thrill of taking a risk, even one that at the time seemed so minor. 
+Joey agreed confidently, clearly enjoying the thrill of taking a risk, even one that at the time seemed so minor. 
 
 We followed the wall down the path further out into the hills, this time at a quicker, more determined pace, still having no trouble as we went on. The pit in my stomach lingered as we walked on, listening to crickets chirping, owls hooting, and finally the sound of coyotes barking in the distance. 
 
 “Ooo they must’ve got something. I hope we remembered to put the cat inside” Joey said to no one in particular, referencing a nonexistent pet. 
 
-I laughed nervously, unable to think of a joke or witty remark to carry on with. As we continued, the yipping and barking faded, and up ahead, I could finally see a neatly arranged stack of stones.
+I laughed nervously, unable to think of a joke or witty remark to carry on with. My mind was focused on the barking, the sounds reassuring to me somehow. As we continued, the yipping and barking faded away as my attention was drawn elsewhere- finally, a neatly arranged stack of stones came into view.
 
 As we approached my chest began pounding and I broke out in a cold sweat, almost sick from a rush of anxiety. 
 
