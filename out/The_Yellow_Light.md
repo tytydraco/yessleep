@@ -16,7 +16,7 @@ After we surfaced and Dorian's dad pulled up his massive crab trap full of dozen
 
 And that's been our spot ever since. Sharkbait was still our pride and joy, and on occasion the single most peaceful place on earth. Thirty feet long, anchored, facing eastward into the dark while the set sun glowed on the other side of the mainland. I stood looking down at the black water our box traps had disappeared into.
 
-Dorian was sitting on his chair up against the cockpit, passionately doodling something in his waterproof notebook. For years now, he'd had this idea of being an author, but his "next big project" would always change with every time we met up. If nothing else, it was always fun to hear whatever batshit ideas he'd never actually finish.
+Dorian was sitting on his chair up against the cabin, passionately doodling something in his waterproof notebook. For years now, he'd had this idea of being an author, but his "next big project" would always change with every time we met up. If nothing else, it was always fun to hear whatever batshit ideas he'd never actually finish.
 
 "What've you got?" I asked, breaking the silence.
 
@@ -158,7 +158,7 @@ He shoulder-checked me as he walked past, towards the helm, the chewn-up thing d
 
 "Just fix the light."
 
-I shut the door to the cockpit, laying the thing down on a towel placed over the desk that was off to the side. I had to coil it down on itself so it wouldn't slide off with the slight cresting of the boat. I could hear Dorian grunting to himself in the flickering spotlight, tugging and thudding against the structure.
+I shut the door to the cabin, laying the thing down on a towel placed over the desk that was off to the side. I had to coil it down on itself so it wouldn't slide off with the slight cresting of the boat. I could hear Dorian grunting to himself in the flickering spotlight, tugging and thudding against the structure.
 
 The fish nearly slipped out of my hands with as much slime as was coming off it, staining my gloves. Maybe some kinda hagfish? But there was no skull... nothing made sense. Its limp body shimmered in the light of the desk lamp, all the way through to its white organ sacs the crabs hadn't quite reached yet.
 
