@@ -48,7 +48,7 @@ I didn’t know what to do. That’s until it happened.
 
 I opened a package. It was her. My fiance. Her decapitated head was lying in the box and next to it was a note.
 
-“Your next.” I screamed. I fell backwards. I cried. I reported it to the police. There was no evidence. No clues. I kept seeing that message over and over in my head. I fell into depression. I stopped eating completely.
+“You’re next.” I screamed. I fell backwards. I cried. I reported it to the police. There was no evidence. No clues. I kept seeing that message over and over in my head. I fell into depression. I stopped eating completely.
 
 It’s midnight now. I heard a knock at my door two hours ago. I didn’t open it. I looked through the peep hole and saw a man holding a machete. I was scared out of my mind.
 
