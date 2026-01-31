@@ -193,3 +193,5 @@ I got outta there quick.
 Now, I’m sitting in a parking lot in the delivery car, and I’m trying to decide if I should head back to work. Obviously I need to return the car, but beyond that… should I just quit? I still need rent money, but after meeting the previous girl, maybe moving back in with my parents is the better option…
 
 Maybe I’ll do just one more delivery… if I don’t update, might mean I’m saying hi to Daisy again sooner than I [expected](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/).
+
+[UPDATE: Part 2!](https://www.reddit.com/r/nosleep/comments/1q7ge5c/i_work_as_a_pizza_delivery_driver_ignoring_the/)
