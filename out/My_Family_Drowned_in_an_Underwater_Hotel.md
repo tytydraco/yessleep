@@ -56,7 +56,7 @@ It wasn’t all weird behaviour from the staff, at least. A poolside bartender t
 
 With ease, the young man pried the seemingly immovable cap off and handed the bottle back to my awestruck self. I couldn’t wait to show my friends how to do this trick that was more valuable than a lame souvenir.
 
-As we rolled into the second week of the vacation and the itinerary became more and more involved, none of my family seemed to notice the strange occurrences—or if they did, they were too distracted and tired to notice. It seemed that the hotel was intent on keeping us busier with things to wear us out each day.
+As we rolled into the second week of the vacation and the itinerary became more and more involved, none of my family seemed to notice the strange occurrences—or if they did, they were too distracted and tired to care. It seemed that the hotel was intent on keeping us busier with things to wear us out each day.
 
 With just a few nights left of our trip, we had our most action-packed day yet—first being sent hiking across a nearby thick jungle, then ziplining over the canopy in a whirl of green, and finally kayaking our way between islands back to the hotel. We returned to our room that evening after dinner, thoroughly exhausted but satisfied with how much we’d gotten to experience the tropical locale. The novelty of our blue, subterranean ocean room had almost worn off at this point.
 
