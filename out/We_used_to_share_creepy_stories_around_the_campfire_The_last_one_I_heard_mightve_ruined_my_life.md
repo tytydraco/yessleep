@@ -140,7 +140,7 @@ She took a deep breath and slowly let out a big sigh, and for a moment it seemed
 She continued-
 
 
-"So I decide to go look for the source of the scream. I can't really explain it, but it's like a flip is switched in my brain. It's just something I know I have to do, something I'm supposed to do. Maybe I've finally fallen for its spell and I'm being led to my demise, or maybe something in me decided that, at the very least, I should check to see if someone needed my help. Or maybe morbid curiosity simply won over. Maybe a combination of those options seems more likely, since I'm really not that good of a person.”
+"So I decide to go look for the source of the scream. I can't really explain why, but it's just something I know I have to do, something I'm supposed to do. Maybe I've finally fallen for its spell and I'm being led to my demise, or maybe something in me decided that, at the very least, I should check to see if someone needed my help. Or maybe morbid curiosity simply won over. Maybe a combination of those options seems more likely, since I'm really not that good of a person.”
 
 
 The corner of her mouth slightly twisted itself into a smirk, but I don't think anyone else caught it, as she quickly pressed on-
