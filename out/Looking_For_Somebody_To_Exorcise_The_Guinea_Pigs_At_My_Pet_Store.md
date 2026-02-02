@@ -10,7 +10,7 @@ Sixteen of them were supposed to ship but only three made it, and the thirteen t
 
 The first strange thing happened at around 10:30am when a disheveled man entered the store with what I can only describe as “a haram of three gangly crack smoking women” and asked for two hundred and thirty seven spiders.
 
-I felt my blood pounding through the veins of my neck and remembered my breathing exercises. Its not like I'm all that judgmental towards people. The inevitability of talking to just about any stranger makes me begin to panic uncontrollably, and I was already on such thin ice with uncle Sal that I was horrified about messing something up. He had said something about firing me after my stupid shaky hands had led to something of an incident the week prior involving the deaths of several rare fish. 
+I felt my blood pounding through the veins of my neck and remembered my breathing exercises. Its not like I'm all that judgmental towards people. The inevitability of talking to just about any stranger makes me begin to panic uncontrollably, and I was already on such thin ice with uncle Sal that I was horrified about messing something up. He had said mentioned firing me after my stupid shaky hands had led to something of an incident the week prior involving the deaths of several rare fish. 
 
 “What's your name?” the man growled.
 
@@ -82,7 +82,7 @@ Then he turned to me and spoke quite softly,
 
 “I-”
 
-Honestly,  he was right. Cant a man buy as many spiders as he wants in a pet store? There was no rule that I knew of about how many spiders someone could buy. But Sal had never told me what to do if this happened. What if it's illegal? What if Sal, the man who had given me a job, despite how challenged I am, the only member of my family who seemed to care what happened to me, was thrown in jail because I decided it would be a good idea to sell two hundred and thirty seven spiders to Pimp Daddy Richard?
+Honestly,  he was right. Cant a man buy as many spiders as he wants in a pet store? There was no rule that I knew of about how many spiders pimp daddy Richard could buy. But Sal had never told me what to do if this happened. What if it's illegal? What if Sal, the man who had given me a job, despite how challenged I am, the only member of my family who seemed to care what happened to me, was thrown in jail because I decided it would be a good idea to sell two hundred and thirty seven spiders to Pimp Daddy Richard?
 
 I doubted we had that many spiders anyway, and I could not afford to piss Sal off again. I would have asked, but he was out. I had to boss up. I was shaking and nearly crying under the strain of it all, but I was going to stand my ground against Pimp Daddy Richard. For Sal, for myself.
 
