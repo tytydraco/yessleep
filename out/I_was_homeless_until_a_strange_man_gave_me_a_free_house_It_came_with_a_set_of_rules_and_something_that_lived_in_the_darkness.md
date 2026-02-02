@@ -88,7 +88,9 @@ I should’ve realised I was wrong before signing the contract.
 
 >***You will vacate the Property if a guest uses any of the following phrases:***
 
->
+>\- "There's nothing in the doorway."  
+\- "The eleventh time."  
+\- "I should stay."
 
 >***You will lock yourself in your bedroom whilst you sleep.***
 
