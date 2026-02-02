@@ -1,107 +1,66 @@
-Well, I got another one for you...that is, if you’re up to hearing another one.  I didn’t weird you out too bad with the first one, did I?
+The Not-Deer
 
-Alrighty then.
+This is a story my grandpa used to tell me when I was a kid. Supposedly It's a story passed down through my family for generations. 
 
-You ever hear of a not-deer?
+He told it the same way every time. The same words. The same pacing. I must have heard it a hundred times growing up, sitting in the living room late at night while the adults talked and the house went quiet. I always thought it was just a scary story, something meant to unsettle a kid’s imagination.
 
-Oh, boy-howdy.  You’re gonna love this one.
+But I’ve had a few experiences of my own since then that have made me wonder if what my grandpa told me was only a story. I'd love to get y'all's feedback on this. If you think it's true or not. And if any of y'all have had similar experiences. 
 
-This happened maybe a year or so after I seen that funny-lookin’ dog.  I’d got over that by then, I think, and didn’t have much of a problem going outside late at night anymore.   
+Anyway, this is the way he always told it. He called it the legend of the Not-Deer.
 
-I just kept telling myself I’d had a lot more to drink that night than I’d thought, and it had me seeing things that wasn’t there.
 
-So, like I said, this happened maybe a year later.   
 
-Sometimes I like to take a drive at night and go to this place I know where you can’t see nothing built by man.  It’s this big empty field, all surrounded by trees, and the whole damn place has been overrun with kudzu vines.
+In the mid-1800s, deep within the misty hollows of southern Appalachia, a man named Elias Patterson roamed the rugged terrain. A seasoned woodsman with a weathered face and a heart hardened by years of solitude, Elias lived alone in a small cabin by the river. One evening, as twilight descended and the mountains cast long shadows, he set out to check his traps before nightfall.
 
-Yeah, that stuff.  Grows so fast you can almost hear it, climbs up trees and over the ground and basically covers up everything.   
+The forest was eerily quiet, the only sounds being the rustling leaves and the distant call of an owl. Elias moved with practiced stealth, his rifle slung over his shoulder, his eyes scanning the underbrush. As he approached a small clearing, he noticed something peculiar, a deer standing stock-still in the center of the glade. Its silhouette seemed almost to blend with the encroaching darkness.
 
-You get a grove of trees overgrown with kudzu, and it gets to looking like one of those abandoned jungle temples you see on TV.
+Elias squinted, trying to discern what felt off about the creature. He noticed that the deer, while standing still, was shaking. Not only that, but its legs were too long, its body too slender, and its movements too jerky, as if it were not accustomed to its own skin. He raised his rifle, aiming carefully, but something in the back of his mind urged him to hold his fire.
 
-But what I like about this place is that there’s absolutely no man-made light nearby, so it’s the best place I know of for stargazing.  You go out there with a six-pack on a moonless night with no clouds, and just kick back and watch the sky.   
+The deer turned its head toward him, and Elias’s heart skipped a beat. The eyes that met his were not the gentle, doe-like eyes he expected, but cold, dark orbs that faced forward and seemed to bore into his soul. The deer opened its mouth, revealing a row of sharp, glistening teeth, and let out a low, guttural growl that echoed through the forest.
 
-I seen my share of shooting stars out in that kudzu-waste, let me tell you.
+Elias took a step back, his rifle still trained on the creature.
 
-The only problem with that place, though, is the deer.  
+“What in God’s name are you?” he whispered, more to himself than to the beast.
 
-You see, since there’s pretty much no ground cover except for the kudzu, and it’s mostly just a big old field, there’s not much holding the soil together, and so the whole place is washed out and shot through with these deep gullies and ravines.
+The deer took a step forward, its movements disjointed and unnatural, like a puppet on frayed strings. Fear seized Elias, and he fired a shot, the sound of the gunshot shattering the silence. Elias saw the bullet hit its mark, but the creature did not fall. Instead, it reared up on its hind legs and let out an unearthly scream that made Elias’s blood run cold.
 
-Some places, it’s wide enough and deep enough that you can get a small herd of deer down in one of them, and the whole place is so grown over that it all looks flat until you see deer just start rising right out of the ground.
+He stumbled backward, his mind racing. This was no ordinary animal; it was something ancient, something that didn’t belong in this world. Without thinking, Elias turned and ran, crashing through the underbrush, his breath coming in ragged gasps. He could hear the creature’s pursuit, its footsteps heavy and relentless. The forest seemed to close in around him, the trees like silent sentinels witnessing his flight.
 
-Real unnerving the first time you see it happening, but you get used to it.  And the deer out there looooove eating kudzu, so there’s a lot of them out there.  But generally they won’t bother you.
+Finally, he burst into the clearing where his cabin stood. He slammed the door behind him, bolting it shut. His heart pounded in his chest as he fumbled for a lantern, lighting it with trembling hands. The dim light cast flickering shadows on the walls, and he heard leaves rustling, quickly coming right up to his door. He heard heavy breathing assaulting the wood between them.
 
-So I’m out at this place one fine dark night, lounging in the back of my truck and slowly making my way through a six-pack and watching the sky, when I hear some rustling noises off to one side.
+Elias held his breath. The breathing stopped. Now he could hear the creature circling outside, its growls growing fainter as the night wore on. Minutes turned to hours as Elias sat in his chair, facing the door. He held his gun trained on it, not daring to move. His muscles grew sore as time crawled by. But Elias remained vigilant.
 
-At first I didn’t think nothing of it, because it just sounded like deer noises.  But it was pretty close by, and after a second I started getting curious about it.
+Or so he thought.
 
-So I found my flashlight and got ready to turn it on, and I waited.  I figured if the sounds got closer, I’d see what it was, and if they went away, why, I could leave the light off and not have to wait for my vision to readjust.
+Suddenly, his eyes opened. He had fallen asleep, sometime during the night, though it was still dark out. Then he noticed the sound that had awoken him. A slight creaking. His eyes shot to the door. It was still shut. No, the sound was not coming from in front of him.
 
-So I wait...and I wait...and just as I’m starting to think maybe I was just imagining it all, I hear the noises start up again and start coming closer.   
+The sound was coming from behind where he sat.
 
-It couldn’t have been more than twenty feet away when I finally decided I wanted to see what was going on out there...because I could also hear it breathing.  And it didn’t sound quite right for a deer.
+In his fit of fear earlier, Elias had forgotten that he himself had built this cabin with two doors. This was not common in the cabins he had seen before. He thought himself smart for including it. Now he realized his mistake. The creaking stopped, yet Elias dared not turn around. He sat there, still as an oak tree, waiting. No other sounds came.
 
-So I turn on the light, and shine it out where I thought the noises was coming from...and just then I see this set of antlers poking up out of the kudzu.
+After what felt like days, the sun finally rose. Light seeped through the curtains, and Elias at last built up the courage to move. He turned, looking toward the second room of his cabin, the kitchen, where he had placed the back door. He did not see or hear anything.
 
-It looked like flat ground, but there must have been a gully underneath the vines.  Because that deer just slid up into view like it was coming up a flight of stairs.  Right up through the vines and onto the flat ground, not twenty feet from where I was.
+Elias stood and walked into the other room. He peered his head around the corner. And saw it.
 
-Now, I’m sure you’ve seen a deer at least once in your life.  They got a certain shape to them, and you can look at it and say with certainty, ‘that’s a deer.’
+Nothing.
 
-This wasn’t a deer.  I started getting that vibe as soon as the antlers came up into view.   
+The door was shut. The kitchen was just as he had left it. Nothing was out of place. This was what ensured his death. Elias took this to mean he had imagined the whole thing. That he had been alone for far too long. That perhaps he had relied on food that was less than reliable. He saw no sign that what he had witnessed the night before was real. And so he decided that it could not have been real. But if Elias had taken the time to inspect the door further, he would have seen it. On the other side of the door, a gross sinew and dried blood hung, dripping from the handle. Of course, the inside of the cabin was left clean.
 
-The antlers was smooth and kinda pointy, like you see on wall-mounted trophy bucks.   
+It’s too clever for that.
 
-But at that time of year, all the bucks are still in velvet, so their antlers is kinda rounded at the end, and covered in short velvety fur.
+Seeing as it was nearing the end of autumn, Elias decided to wait until spring before moving back down the mountain, back toward civilization. He decided he wasn’t cut out for the wilderness anymore. But Elias wouldn’t make it to spring. He wouldn’t make it to the next day. Now it knew how to get in. It knew how Elias would try to defend himself. It knew. It always knows. And if it doesn’t, it will find out. It is a clever thing.
 
-This deer’s antlers didn’t have that.
+Again, Elias set out that evening to check his traps. And again, he returned to his cabin. But when he stepped inside, he heard no creaking sound. He heard no sound at all. 
 
-The eyes was wrong, too.  You flash a light on a deer’s eyes in the dark, and they shine white.
+If there had been anyone around to check on old Elias, all they would have found the next morning would have been dried blood, a lot of it, but nothing else. There wouldn’t have been anything left of him.
 
-This thing’s eyes didn’t shine at all.  Just two pools of inky black where the eyes should have been.
+It wastes not, but it does want. It wants for human flesh. And it will have it.
 
-And they was facing forward.  They was where they should have been on the deer’s head, but not pointing where they ought to.  They was both looking forward.  At me.
+Just like all who wander aimlessly into the mountains of old Appalachia, Elias saw into the depths of hell itself. Into the depths of the mountain.
 
-The rest of this thing looked more or less like a deer should...then I saw the legs.   
 
-They didn’t look right at all.  I’m pretty sure they each had an extra joint, or an extra bone, or SOMETHING...they looked all kinds of wrong.   
 
-And the back legs was too short, and the front ones was too long.  And they stuck out to the side, kinda,  not bowlegged, but like they wasn’t stuck on the right way to begin with.
+That’s the story my grandpa told. I used to think it was just something meant to scare us grandkids. But I've seen things that make this story seem true. I've seen deer out in the woods look at me. And I mean really look at me. Now, whenever I see a deer standing in the woods, I hear my grandpa's voice again, calm, certain, telling it exactly this way. And after a few experiences with deer looking weird or moving awkwardly, I don’t wait around anymore.
 
-I wanna say they moved more like a spider’s legs than anything else.  They didn’t look like spider legs, though...just sorta moved that way.
 
-So this thing is standing there, close enough to hit with a beer can, just staring at me, and I’m staring at it, and the longer I look at it, the less like a deer it feels.
 
-Imagine a little kid, just old enough for the really big box of crayons, and this kid’s fairly good at drawing people, but they ain’t never seen a deer.
-
-So you tell this kid all about deer, how they look, how they act, how many legs and all that...and have this kid draw you a picture of a deer.
-
-Now make that into a real thing.
-
-That’s what I saw that night.  I don’t know what in the hell it was, but it for damn certain wasn’t a deer.
-
-It was close, in the same way that a toilet and a fire hydrant are close.
-
-You can use the hydrant as a toilet if you need to...but that toilet ain’t gonna work like a fire hydrant no matter how much you want it to.
-
-I was real close to just climbing into the cab of my truck and rolling on out of there...and then this not-deer stood up on its back legs.
-
-Stood right up like a man.  I didn’t think of it at the time, but later it reminded me so much of that funny-lookin’ dog and the way it had stood up.
-
-And it’s just standing there, and our heads are at the same level now that it’s up on its back legs…
-
-And then it spoke to me.
-
-Opened its mouth up and spoke.  Clear as a bell.  It spoke like people do.
-
-It said, “There’s no turning back from this.”
-
-And it said it...in my own voice.
-
-Then it spread its front legs...only they looked a lot more like arms, now...spread ‘em wide open like it wanted to give somebody a great big hug…
-
-And then it tipped its head up to the sky and started screaming.  Sounded like half a dozen people all being burned alive at once.
-
-And it kept on screaming like that, just standing where it was with its arms out, screaming at the sky.
-
-I didn’t stay to see if it had anything else to say.  I jumped into the cab of my truck and booked it right the hell out of there.  
-
-Ain’t been back since.
