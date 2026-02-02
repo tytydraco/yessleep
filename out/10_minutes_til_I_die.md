@@ -32,7 +32,7 @@ The person next to me sneezed and I glanced up at the office building… only a 
 
 “Leave me alone!” I blocked the number, stepped into the street as the crosswalk changed. I reached the opposite sidewalk.
 
-Up ahead, the glittering tower of ***** Wealth Management awaited me. I’d worked so hard to secure this position. Platt was one of the wealthiest investment bankers in all of America. If I succeeded in this role, I could get a job anywhere.
+Up ahead, the glittering tower of \*\*\*\*\* Wealth Management awaited me. I’d worked so hard to secure this position. Platt was one of the wealthiest investment bankers in all of America. If I succeeded in this role, I could get a job anywhere.
 
 I made it to the revolving doors, waved to the security guard.
 
@@ -92,8 +92,6 @@ I wasn’t sure why, but out of instinct, I did the same. There was something ab
 
 I didn’t even look up when I heard the first scream.
 
-***
-
 I still don’t know what happened. But when the elevator doors opened, something came out.
 
 “Jesus!” “What the hell?!” “Ahh!”
@@ -115,3 +113,5 @@ Piled among the bodies was a bat-like creature, drenched in blood. Long incisor-
 Another *ding* alerted me to my phone.
 
 “Round 1 complete. Next 10 minutes will begin. ;)”
+
+[Round 2](https://www.reddit.com/r/nosleep/comments/1qtk1u1/10_minutes_til_i_die_round_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
