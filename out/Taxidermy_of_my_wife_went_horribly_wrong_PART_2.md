@@ -1,6 +1,4 @@
-[PART 1](https://www.reddit.com/r/nosleep/comments/1qswjpo/taxidermy_of_my_wife_went_horribly_wrong_part_1/)
-
-
+[PART ](https://www.reddit.com/r/nosleep/comments/1quuamg/taxidermy_of_my_wife_went_horribly_wrong_please/)3
 
 Even with all the stitching, the gluing, the God-knows-what chemical cocktail Colby slathered on to make Tommy “whole” again, it wasn’t him. Not even close.
 
