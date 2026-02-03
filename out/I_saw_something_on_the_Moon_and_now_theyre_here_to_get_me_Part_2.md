@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/s/eEUmfwnuIx)
+[Part 1](https://www.reddit.com/r/nosleep/s/eEUmfwnuIx) [Final](https://www.reddit.com/r/nosleep/s/Z2eV3GU7PW)
 
 I’m so fucking scared.
 
