@@ -1,4 +1,4 @@
-**Part I** \- [Part II](https://www.reddit.com/r/nosleep/comments/1qrsou3/i_was_homeless_until_a_strange_man_gave_me_a_free/)
+**Part I** – [Part II](https://www.reddit.com/r/nosleep/comments/1qrsou3/i_was_homeless_until_a_strange_man_gave_me_a_free/) – [Part III](https://www.reddit.com/r/nosleep/comments/1qucqi6/i_was_homeless_until_a_strange_man_gave_me_a_free/)
 
 I was safer on the street.
 
