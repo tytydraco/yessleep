@@ -146,7 +146,7 @@ Once Rhea and Billy were chained down and sedated for the night, Valentina was i
 
 If Rhea left the bathroom window unlocked for me, it’d be easy for me to sneak in – or so she said.
 
-In the end, I agreed to help, mostly out of pity, but also because Rhea told me my life was danger.
+In the end, I agreed to help, mostly out of pity, but also because Rhea told me my life was in danger.
 
 After all, Valentina regularly faked IDs and moved her family so nobody would notice their immortality; my parents had screwed that up by delaying their departure from the old neighborhood, leaving me as a witness - and Valentina had left quite a few inconvenient witnesses in shallow graves over the years.
 
