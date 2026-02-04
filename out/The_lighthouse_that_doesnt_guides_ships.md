@@ -18,11 +18,9 @@ Edwin exhaled through his teeth. “A year since your Grandad Neville was buried
 
 Before I could answer, the boatman emerged from the mist exposed by the brass and amber glow of a dull oil lamp, Seamus MacNeil, ancient, spine curved like the very planks he walked on, oilskin yellow, his coat gleaming with moisture. His eyes were the pale grey of winter sky, and they fixed on me with something between recognition and dread.
 
-“Aye, Another Graves,” he rasped in an accent old Gaelic, my last name sounding like gravel dragged across barnacles.
+“Aye, Another Graves,” he rasped in an accent, old Gaelic, my last name sounding like gravel dragged across barnacles.
 
 “Ye carry the look of him, though you’re a wee bit lass. Same curious look in the eyes. All ye Graves carry that similar gaze upon em. Reckless!” He coughed a thick mucus from his mouth into the churning seawater.
-
- 
 
 “I’ll take ye aboard,” the old mariner muttered, “but only because the hull of me boat cries out for a fresh coat of paint. The poor lass has borne too many seasons of salt and shadow.”
 
@@ -30,8 +28,8 @@ Before I could answer, the boatman emerged from the mist exposed by the brass an
 
 Edwin stepped forward, attempting reason. “Mr. MacNeil, we’re academics. We’re documenting historical records, nothing more. There’s no need for theatrics.”
 
-Seamus laughed once, a sound like gulls tearing at fish guts. “Theatrics, is it?” he gave a harsh wet scoff. “The last forsaken keeper that took up the watch after yer grandsire spoke as lightly o’ the matter. Three dusks he bided yonder in that tower, wi’ naething but the wind’s low keen for company.”  
-  
+Seamus laughed once, a sound like gulls tearing at fish guts. “Theatrics, is it?” he gave a harsh wet scoff. “The last forsaken keeper that took up the watch after yer grandsire spoke as lightly o’ the matter. Three dusks he bided yonder in that tower, wi’ naething but the wind’s low keen for company.”
+
 “What happened to him?”  I asked.
 
 “I fetched the lad back, aye, still breathin’ and walkin’ after a fashion. But his body was naught but a husk, his spirit, his anam, dragged loose and straying far beneath the black water. He muttered then, in a voice not wholly his own, o’ somethin’ callin’ him from the deeps, a sound like the sea itself keening through his teeth till they ached to hear it. Come the morn, when the tide ran low, he rose up like a man sleepwalkin’ and marched straight into the surf. The waves took him clean, and he never troubled the surface again, nor left so much as a ripple to mark where his soul was claimed.”
