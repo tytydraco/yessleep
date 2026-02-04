@@ -1,3 +1,7 @@
+
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1qvpekq/taxidermy_of_my_wife_went_horribly_wrong_please/)
+
 The cold beer stripped of the alcohol that had once made it barely drinkable, sat flat and useless on my tongue. I half-expected Colby to sneer and call me a pussy for choosing the “safe” option, for not risking another midnight dance with a dumb animal on my way home, swerving left and right like we used to.
 
 But he didn’t.
