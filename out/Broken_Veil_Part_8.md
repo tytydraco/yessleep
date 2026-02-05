@@ -446,4 +446,4 @@ The rear tires squeaked on the asphalt as we rounded the curb out of the lot and
 
 We sped past speed limit signs and through empty traffic lights, Southbound for a brewing storm the likes of which this town had never felt before. Hopefully, we were just ahead of the downpour.
 
-
+[Part 9, Final](https://www.reddit.com/r/TheMidnightArchives/s/X0z5FW56Ia)
