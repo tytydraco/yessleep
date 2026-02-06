@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/1qqt1sp/i_was_homeless_until_a_strange_man_gave_me_a_free/) – **Part II** – [Part III](https://www.reddit.com/r/nosleep/comments/1qucqi6/i_was_homeless_until_a_strange_man_gave_me_a_free/)
+[Part I](https://www.reddit.com/r/nosleep/comments/1qqt1sp/i_was_homeless_until_a_strange_man_gave_me_a_free/) – **Part II** – [Part III](https://www.reddit.com/r/nosleep/comments/1qucqi6/i_was_homeless_until_a_strange_man_gave_me_a_free/) – [Part IV](https://www.reddit.com/r/nosleep/comments/1qxq0x0/i_was_homeless_until_a_strange_man_gave_me_a_free/)
 
 That’s why he picked me. He fed me to Rosewood House because I was stale produce, filched from the pantry and overlooked in the eventual inventory take. I learnt my worth whilst sleeping on the street. *If you disappear, nobody will notice,* a man once told me at knifepoint. *He’s wrong*, I decided at the time, as my homeless neighbours would have clocked my absence.
 

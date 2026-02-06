@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/1qqt1sp/i_was_homeless_until_a_strange_man_gave_me_a_free/) – [Part II](https://www.reddit.com/r/nosleep/comments/1qrsou3/i_was_homeless_until_a_strange_man_gave_me_a_free/) – **Part III**
+[Part I](https://www.reddit.com/r/nosleep/comments/1qqt1sp/i_was_homeless_until_a_strange_man_gave_me_a_free/) – [Part II](https://www.reddit.com/r/nosleep/comments/1qrsou3/i_was_homeless_until_a_strange_man_gave_me_a_free/) – **Part III** – [Part IV](https://www.reddit.com/r/nosleep/comments/1qxq0x0/i_was_homeless_until_a_strange_man_gave_me_a_free/)
 
 “Tell me again why *I* am the one who has to call this number,” I said. “Why are you so afraid of talking to Mr Whitlock?”
 
@@ -255,3 +255,5 @@ The house is quiet this evening. It is thinking. Deciding what to do with me nex
 Fernsby is gone.
 
 And I am, once again, without [hope](https://www.reddit.com/r/dominiceagle).
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/1qxq0x0/i_was_homeless_until_a_strange_man_gave_me_a_free/)
