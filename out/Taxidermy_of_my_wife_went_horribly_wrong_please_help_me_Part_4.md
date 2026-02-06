@@ -182,9 +182,7 @@ I kept walking, because the word was still inside me.
 
 The grass was wetter than I expected, cold water seeping into my socks as I stepped off solid ground and into it. When I pushed farther in, the stalks rose exactly where I thought they would, up to my waist, parting with a soft, wet resistance.
 
-Ahead of me was a path.
-
-Not trampled flat, not cleanly cut, but pressed down into a narrow tunnel of bent weeds and broken stems, as if something heavy had forced its way through. Too wide for a man walking upright. Too deliberate to be an animal passing through by chance. I had the sick thought that the thing I’d seen hadn’t vanished at all, that it had simply dropped down, limbs folding wrong, switching to all fours the moment it slipped out of sight.
+Ahead of me was a path, pressed down into a narrow tunnel of bent weeds and broken stems, as if something heavy had forced its way through. Too wide for a man walking upright. Too deliberate to be an animal passing through by chance. I had the sick thought that the thing I’d seen hadn’t vanished at all, that it had simply dropped down, limbs folding wrong, switching to all fours the moment it slipped out of sight.
 
 Something big. Something that knew where it was going.
 
@@ -198,7 +196,7 @@ The path opened into a dead patch of field where the grass beneath my feet had t
 
 The smell hit me a second later.
 
-Old, wet decay layered with animal piss, sharp and ammoniac, burning the back of my throat. I thought I was used to smells like that; years of working with animals, but apparently I was in the wrong.
+Old, wet decay layered with animal piss, sharp and ammoniac, burning the back of my throat. I thought I was used to smells like that; years of working with animals, but apparently, I was in the wrong.
 
 I circled the mound slowly, watching it from every angle, looking for something, anything, that would tell me what I was supposed to see. A shape. A break in the pattern. A sign that I hadn’t come all this way for nothing. But there was nothing. Just spoiled matter piled on spoiled matter.
 
