@@ -90,4 +90,6 @@ For four straight years, I believed this was a fallacy of my mind—something I 
 
 A divine fallacy woven by me, for me. A selfish conjuring. I would have been content to keep relishing this pious poise for the rest of my life.
 
-Until the second encounter with Death happened.
+Until the [second encounter](https://www.reddit.com/r/nosleep/comments/1qylgsm/death_makes_me_write_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) with Death happened.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1qylgsm/death_makes_me_write_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
