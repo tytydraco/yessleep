@@ -120,3 +120,5 @@ I struggled my way to the surface and reached for Rachel’s note. After frantic
 Everything went black, and then a blinding light filled the sky. All of a sudden, I found myself in front of my old high school’s gate. There was no slime, no monster, only Rachel by my side, gasping for air.
 
 We had survived the first lesson.  
+
+[Lesson 2](https://www.reddit.com/r/nosleep/comments/1qyn8db/theres_a_course_teaching_the_universes_secrets/)
