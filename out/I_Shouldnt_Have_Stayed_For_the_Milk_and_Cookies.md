@@ -36,10 +36,8 @@ Soon after, Mark came back down. I was about to show him, but something stopped 
 
 I said I felt unwell and tired too, so told him I was leaving.
 
-He shrugged and said he hoped I felt better tomorrow.
-
-Just as I reached the bottom of the stairs, the door opened at the top.
-
+He shrugged and said he hoped I felt better tomorrow.  
+Just as I reached the bottom of the stairs, the door opened at the top.  
 His mom was at the top step, holding a tray with cookies and milk. She always still makes them like we are 12 years old.  
 She told me to wait and take some before I left. They smelt so warm and sweet.
 
@@ -57,8 +55,6 @@ I tried shouting out for anyone, but it was just silence back.
 
 I've heard footsteps outside the wall. They're slow and careful and then they move away.
 
-So if anyone is reading this…
-
-Oh wait, the footsteps are coming closer this time, I need to turn off the phone light. I think they're coming in.
-
+So if anyone is reading this…  
+Oh wait, the footsteps are coming closer this time, I need to turn off the phone light. I think they're coming in.  
 Please send help, the clubhouse is at [10678 Fr](https://www.reddit.com/r/ThisIsntRight/)...
