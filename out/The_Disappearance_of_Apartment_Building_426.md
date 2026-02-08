@@ -127,3 +127,5 @@ Had lives.
 I can't just let them fade away into nothing.
 
 So I'll try to uncover more for you guys. For their families. I promise to update you guys soon.
+
+[another building vanished](https://www.reddit.com/r/nosleep/s/AyW663znJa)

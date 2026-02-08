@@ -110,3 +110,5 @@ He took me to the hospital and they couldn't explain it anymore than we could. I
 I found her post. I'm writing this in her honour. She was right. People need to know.
 
 Apartment 451 wasn't the first and I doubt it'll be the last.
+
+[My car picked up a stray signal](https://www.reddit.com/r/nosleep/s/yPbch8G8oE)
