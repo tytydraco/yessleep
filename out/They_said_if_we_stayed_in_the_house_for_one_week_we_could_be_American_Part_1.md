@@ -1,4 +1,6 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/1qx0svj/they_said_if_we_stayed_in_the_house_for_one_week/) [Part 3](https://www.reddit.com/r/nosleep/comments/1qxx23a/they_said_if_we_stayed_in_the_house_for_one_week/)  
+**Complete**
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1qx0svj/they_said_if_we_stayed_in_the_house_for_one_week/)  [Part 3](https://www.reddit.com/r/nosleep/comments/1qxx23a/they_said_if_we_stayed_in_the_house_for_one_week/) [Part 4](https://www.reddit.com/r/nosleep/comments/1qysgby/they_said_if_we_stayed_in_the_house_for_one_week/)  
 
 
 I was told I cannot talk about what happened in that house. But if they come for someone you love I want you to know what they do. 
