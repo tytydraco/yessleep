@@ -6,7 +6,7 @@ I asked why.
 
 “Risk profile changed,” he said. “Or maybe I just stopped ignoring it.”
 
-The cave has a working name in the literature, but he asked me not to use it. I’ll call it Falcon's Roost. It’s a submerged system in west Texas, fed by a spring and capped by a narrow sinkhole. Entry requires technical cave diving. There is no direct ascent once inside.
+The cave has a working name in the literature, but he asked me not to use it. He numbered the path 524287, a combination of the Mainline number, the Station number, and the Depth number. I’ll call it Falcon's Roost. It’s a submerged system in west Texas, fed by a spring and capped by a narrow sinkhole. Entry requires technical cave diving. There is no direct ascent once inside.
 
 He described the layout in practical terms. Long penetrations. No large chambers. Silt that stays suspended once disturbed. Navigation that depends entirely on guideline discipline.
 
@@ -14,7 +14,7 @@ I asked about depth.
 
 “Depth matters less than distance,” he said. “You’re committed early.”
 
-At one point he mentioned that the water temperature was higher than expected. Usually high seventies. Warmer than most caves in the region. 
+At one point he mentioned that the water temperature was higher than expected. Usually high seventies. Warmer than most caves in the region.
 
 “Does that change anything?” I asked.
 
@@ -88,7 +88,7 @@ I asked if that had changed before the dive.
 
 She thought about it.
 
-“Not openly.” she said. 
+“Not openly.” she said.
 
 She said it wasn’t framed as pushing past anything. More like it had stopped being part of the calculation.
 
@@ -126,7 +126,7 @@ I didn’t respond right away.
 
 I said I wasn’t sure they would talk to me.
 
-“They will.” she said. 
+“They will.” she said.
 
 I told her I thought it was too soon.
 
@@ -226,7 +226,7 @@ I left before he could add anything else.
 
 I was in a hotel room off the interstate with the curtains half closed and the lights on even though it was still early. The desk was too small, so I spread everything out on the bed. Notes. Transcripts. Time stamps. Names.
 
-I opened my laptop and checked the coverage. Most of it was already published. Short pieces. Updates folded into larger feeds. The language was consistent across outlets, even where the facts weren’t. There wasn’t much left that felt unclaimed. Tis the age of AI journalism. 
+I opened my laptop and checked the coverage. Most of it was already published. Short pieces. Updates folded into larger feeds. The language was consistent across outlets, even where the facts weren’t. There wasn’t much left that felt unclaimed. 
 
 I wrote a brief email to my editor. I kept it factual.
 
@@ -242,8 +242,6 @@ I checked my phone. No response yet.
 
 I didn’t write it down as a conclusion. I didn’t write it down at all.
 
-
-
 It showed up only when I stopped sorting by role and started sorting by background details. Things people mentioned in passing. Things that didn’t seem relevant when they were said.
 
 Birth stories came up more often than I expected. Not framed as medical history. Just facts that had been repeated long enough to feel ordinary.
@@ -258,11 +256,11 @@ I checked the names again to make sure I wasn’t forcing the pattern. I wasn’
 
 There was no way to frame it responsibly. No mechanism I could point to. No expert I could quote without sounding like I was fishing for meaning where there wasn’t any.
 
-Even if it was true, it would read like speculation. 
+Even if it was true, it would read like speculation.
 
 I closed the folder and left that set of notes untouched.
 
-I went back to the first interview. 
+I went back to the first interview.
 
 He had drawn while we talked. Not to explain anything in particular. Just filling space in the margins of my notebook. I hadn’t paid much attention at the time.
 
@@ -274,12 +272,8 @@ He hadn’t labeled it. There was no arrow or comment explaining what it represe
 
 I stared at it.
 
-
-
 The shape was familiar in a way that had nothing to do with caves.
 
 I closed the notebook and put it back in my bag.
-
-
 
 Some patterns don’t belong in print.
