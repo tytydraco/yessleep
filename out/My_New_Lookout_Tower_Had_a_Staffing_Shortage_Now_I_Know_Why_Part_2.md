@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/s/Vm3LtFQB9G)
+
 I didn’t sit down after the call.
 
 Sitting felt like permission. Like telling my body it could stop pretending it was fine. I stayed on my feet in the middle of the cab, palms flat on the counter, breathing shallow so the bandages wouldn’t pull.
