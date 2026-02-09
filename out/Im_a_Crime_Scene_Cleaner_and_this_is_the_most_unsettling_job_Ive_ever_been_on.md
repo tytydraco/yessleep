@@ -1,6 +1,6 @@
  
 
-I lay in bed and stare up at the ceiling counting the little popcorn bumps. I groan as I check the time on my twin bell alarm clock. "Fuck... Works starts in an hour." I was honestly hoping I could wake up a little earlier so I could get some food in me before I went to work, maybe watch some YouTube. But I settled on scrolling through Instagram reels instead. Scrolling endlessly with mind numbing swiftness, dreading having to pull myself out of bed and get ready. A pling notified me from my manager of the address we would be cleaning that day. "Fuck it!" I said as I threw my phone to the far end of my mattress. I got up, brushed my teeth and jumped in the shower. Throwing on some old dirty jeans from the past 5 days in a row and a black t shirt with holes around the bottom. A quick look in the mirror and ruffling my brown hair and a stupid smile "you're a wreck" I thought. I walk out of my laundry covered room and grab my keys off the kitchen table.
+I lay in bed and stare up at the ceiling counting the little popcorn bumps. I groan as I check the time on my twin bell alarm clock. "Fuck... Work starts in an hour." I was honestly hoping I could wake up a little earlier so I could get some food in me before I went to work, maybe watch some YouTube. But I settled on scrolling through Instagram reels instead. Scrolling endlessly with mind numbing swiftness, dreading having to pull myself out of bed and get ready. A pling notified me from my manager of the address we would be cleaning that day. "Fuck it!" I said as I threw my phone to the far end of my mattress. I got up, brushed my teeth and jumped in the shower. Throwing on some old dirty jeans from the past 5 days in a row and a black t shirt with holes around the bottom. A quick look in the mirror and ruffling my brown hair and a stupid smile "you're a wreck" I thought. I walk out of my laundry covered room and grab my keys off the kitchen table.
 
 I pulled up to the address and saw my coworker John getting all the cleaning supplies out of the back of the van.
 
@@ -38,7 +38,7 @@ Arin walked up to the van with his big Osiris shoes and an oversized tap out shi
 
 "I just said I don't give a shit! Do what I asked please." John said with anger.
 
-All while this was happening I couldn't help but notice the lack of cars in the parking lot. It's late at night on a Tuesday. Shouldn't there be more people here? Probably why no one to noticed the smell, No one lives here.
+All while this was happening I couldn't help but notice the lack of cars in the parking lot. It's late at night on a Tuesday. Shouldn't there be more people here? Probably why no one noticed the smell, No one lives here.
 
 We got all suited up, big yellow hazmat suits, respirators and goggles. Dressed to the nines ready for whatever it is we were going into. 
 
@@ -229,7 +229,7 @@ As I walk up to the familiar home I've only seen dropping off my co-worker will 
 When me and John finished up our portion of the clean up I noticed that same journal that we saw at the other job on Wills table. I thought that was odd, so I decided to open it up and take a look at what was written in there. Sure enough the first couple pages were just day to day stuff. Boring days at the office, something about a bad divorce with this guy's wife cheating. 
 
 
-"There's that weird thing again Varg Gnasth" I said aloud to myself.
+"There's that weird thing again Vrag Gnasth" I said aloud to myself.
 
 
 But then I flipped towards the back and noticed a page with something real weird scribbled on it over and over. It looked like it was written in a hurry almost like someone was panicking. All it was over and over was "don't say his name"

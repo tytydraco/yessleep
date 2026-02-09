@@ -40,8 +40,6 @@ A warm feeling graced my hands. With a smile filled with bliss, I turned my gaze
 
 The area around them was dark, bloodied, and beaten, as if someone had crudely ripped them out with a primal force. My hands began to shake and ball up instinctively. Something squelched inside my palm. I forced my head to turn and look down at it.  Fresh blood seeped out from the cracks of my closed fist. I hesitantly opened my hand, slowly as if it would save me the pain of seeing what it held. But it didn’t. I’ll have that image forever burned into my very soul. In the palm of my hand, I held Mia’s bright blue eye, still connected to the ocular vein. When I opened my other palm, I saw nothing but blood. 
 
-I didn’t know what to do but run. I ran for days on end. It won't be long before the police find me. My clothes reek of dried blood. I'm writing this here, praying that it reaches someone. I cannot stress enough, If you start to see visions of that thing, run. Never look back. Don't make the same mistake I did.
-
 I didn’t know what to do but run. I ran for days on end. It won't be long before the police find me—my clothes reek of dried blood. Soon, my life will end, be it by my hands or by that thing. I just want to say one last thing. I'm so sorry, Mia. I'll be sorry till the day I die.
 
 I'm writing this here, praying that it reaches at least one unfortunate soul. I cannot stress enough– if you start to see visions of that thing, run. Never look back. Don't make the same mistake I did.

@@ -1,4 +1,4 @@
-\[Part 1\](https://www.reddit.com/r/nosleep/comments/1qw46i6/they\_said\_if\_we\_stayed\_in\_the\_house\_for\_one\_week/)  
+[Part 3](https://www.reddit.com/r/nosleep/comments/1qxx23a/they_said_if_we_stayed_in_the_house_for_one_week/) [Part 4](https://www.reddit.com/r/nosleep/comments/1qysgby/they_said_if_we_stayed_in_the_house_for_one_week/)  
 
 **DAY THREE**
 
