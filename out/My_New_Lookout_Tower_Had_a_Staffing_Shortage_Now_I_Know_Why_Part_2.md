@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/s/Vm3LtFQB9G)
+[Part 1](https://www.reddit.com/r/nosleep/s/AXA8VOdlv3)
 
 I didn’t sit down after the call.
 
