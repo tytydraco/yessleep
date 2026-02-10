@@ -86,7 +86,7 @@ At the center of all of laid a rotting mass of meat and rotting teeth. Laying in
 
 Arin stands there saying nothing. A man of few words and even fewer thoughts. Fucking hate that guy.
 
-"Well let's get to it! I said it earlier and I'll say it again. I don't want to be here all night. I got a date with a 30 rack at 6am and you can't drink all day if you don't start in the morning." John said and smacked his hands together with a loud clap and bounced forward into the gore with a mop and bucket. Old blood sticking to the wheels of the bucket as he pushes it into the room.
+"Well let's get to it! I said it earlier and I'll say it again. I don't want to be here all night. I got a date with a 30 rack at 6am and you can't drink all day if you don't start in the morning." John said and smacked his hands together with a loud clap and bounced forward into the gore with a mop and bucket. Old blood sticking to the wheels of the bucket as he pushed it into the room.
 
 Shaking his head Arin followed behind. 
 
