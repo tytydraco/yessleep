@@ -1,6 +1,10 @@
  
 
-I lay in bed and stare up at the ceiling counting the little popcorn bumps. I groan as I check the time on my twin bell alarm clock. "Fuck... Work starts in an hour." I was honestly hoping I could wake up a little earlier so I could get some food in me before I went to work, maybe watch some YouTube. But I settled on scrolling through Instagram reels instead. Scrolling endlessly with mind numbing swiftness, dreading having to pull myself out of bed and get ready. A pling notified me from my manager of the address we would be cleaning that day. "Fuck it!" I said as I threw my phone to the far end of my mattress. I got up, brushed my teeth and jumped in the shower. Throwing on some old dirty jeans from the past 5 days in a row and a black t shirt with holes around the bottom. A quick look in the mirror and ruffling my brown hair and a stupid smile "you're a wreck" I thought. I walk out of my laundry covered room and grab my keys off the kitchen table.
+I lay in bed and stare up at the ceiling counting the little popcorn bumps. I groan as I check the time on my twin bell alarm clock. "Fuck... Work starts in an hour." I was honestly hoping I could wake up a little earlier so I could get some food in me before I went to work, maybe watch some YouTube. But I settled on scrolling through Instagram reels instead. Scrolling endlessly with mind numbing swiftness, dreading having to pull myself out of bed and get ready. 
+
+A pling notified me from my manager of the address we would be cleaning that day. "Fuck it." I said as I threw my phone to the far end of my mattress. I got up, brushed my teeth and jumped in the shower. Throwing on some old dirty jeans from the past 5 days in a row and a black t-shirt with holes around the bottom. 
+
+A quick look in the mirror and ruffling my brown hair and a stupid smile "you're a wreck" I thought. I walk out of my laundry covered room and grab my keys off the kitchen table.
 
 I pulled up to the address and saw my coworker John getting all the cleaning supplies out of the back of the van.
 
@@ -8,7 +12,9 @@ I pulled up to the address and saw my coworker John getting all the cleaning sup
 
 "Shut up Will." He scoffed to himself 
 
-John was a no bulshit kind of guy, grizzled maybe in his early 40's I wouldn't bother asking. He was good company, had his jokes and dry humor. All I cared about was that he was a good manager and coworker. He actually got his hands dirty when you needed him and jumped onto any situation to give you tips. Not in a know it all douchey way either, He's a good dude is my point.
+John was a no bulshit kind of guy, grizzled maybe in his early 40's I wouldn't bother asking. He was good company, had his jokes and dry humor. All I cared about was that he was a good manager and coworker. 
+
+He actually got his hands dirty when you needed him and jumped onto any situation to give you tips. Not in a know it all douchey way either, He's a good dude is my point.
 
 "why don't you help me get the hazmat suits out of the truck." He groaned as he put a massive bucket of bleach onto the concrete.
 
@@ -48,19 +54,27 @@ We had to walk up 5 flights of stairs just to get to the fucking apartment. For 
 
 "565 is the room, we're almost there." John said winded from the stairs.
 
-We finally got to the room. A coffee brown stain on the bottom of a white door that has seen much better days. The green paint on the trim of the door has begun chipping and falling off as if it were dripping some rank ichor onto the dark grey carpet of the hallway. Little did any of us know at the time. This rot was a sign of the corruption that seeped out from within that horrible room. A sign of the foreboding madness that lay waiting within.
+We finally got to the room. A coffee brown stain on the bottom of a white door that has seen much better days. The green paint on the trim of the door has begun chipping and falling off as if it were dripping some rank ichor onto the dark grey carpet of the hallway. 
+
+Little did any of us know at the time. This rot was a sign of the corruption that seeped out from within that horrible room. A sign of the foreboding madness that lay waiting within.
 
 "So uh who wants to do the honors and open the door?" John asked Arin and I in a bouncy tone. He's clearly been doing this much longer than us.
 
 "I got it." I said with my chin to my chest and hand in the air.
 
-As I put my hand on the door knob I couldn't help but feel a creeping sense of anxiety. Not exactly full blown panic or anything, but the feeling in my gut that whatever it is we were going to walk in on was something that should not be mettled with. Not in the sense of gore, but something completely off. Something macabre that should be left well alone... As I turned the door knob a small voice ever so soft was screaming at me to quit that job right then and there and up and leave. I could deal with John later I'm a good worker, Im sure he would understand. But I gritted my teeth and opened the door. A rush of air flooded into the stale dark apartment. Even through the respirator I could smell the all too familiar coppery scent of blood. I sat their for a second, and I couldn't put my finger on why. I've done multiple jobs before this, seen horrible things. So why does this one job in a random apartment complex feel like something so wrong. I huffed to myself and let out a small "okay." And heaved the door all the way open as if I had to push it through some sort of viscious fluid. I'm
+As I put my hand on the door knob I couldn't help but feel a creeping sense of anxiety. Not exactly full blown panic or anything, but the feeling in my gut that whatever it is we were going to walk in on was something that should not be mettled with. Not in the sense of gore, but something completely off. Something macabre that should be left well alone...
+
+ As I turned the door knob a small voice ever so soft was screaming at me to quit that job right then and there and up and leave. I could deal with John later I'm a good worker, Im sure he would understand. But I gritted my teeth and opened the door. A rush of air flooded into the stale dark apartment. Even through the respirator I could smell the all too familiar coppery scent of blood.
+
+ I sat their for a second, and I couldn't put my finger on why. I've done multiple jobs before this, seen horrible things. So why does this one job in a random apartment complex feel like something so wrong. I huffed to myself and let out a small "okay." And heaved the door all the way open as if I had to push it through some sort of viscious fluid. I'm
 
 The door let out a small creak and a smack. As it hit the wall. I saw nothing, it was too dark in the apartment. So I stepped my right boot in and reached my arm onto the wall. Desperately reaching out for some sort of switch, finally my hand caught leverage. I flipped the light on and the scene before me was something I could never have imagined.
 
 As the lights came on, John, Arin and I were absolutely taken back. The only person to utter any form of opinion or word about what laid before us was John a quick short simple "woah." Is all he said.
 
-The room laid out, a simple small 2 bedroom apartment. Living room, kitchen and bedroom were right in front of us and to the right was a small bathroom. In the corners of the room crimson erupted up from the baseboard just out of grasp of the ceiling in all four corners. Crumpled pages laid sprawled out in a random incoherent order all around the room. The couch laid in 2 pieces split down the middle as if someone too heavy sat right in the center. The bed displayed signs of ensanguination, the mattress soaking up the hemmorage like a giant sponge. Writings all over the wall, the only decernable message in some desperate manner was a name or a word? 
+The room laid out, a simple small 2 bedroom apartment. Living room, kitchen and bedroom were right in front of us and to the right was a small bathroom. In the corners of the room crimson erupted up from the baseboard just out of grasp of the ceiling in all four corners. 
+
+Crumpled pages laid sprawled out in a random incoherent order all around the room. The couch laid in 2 pieces split down the middle as if someone too heavy sat right in the center. The bed displayed signs of ensanguination, the mattress soaking up the hemmorage like a giant sponge. Writings all over the wall, the only decernable message in some desperate manner was a name or a word? 
 
 "Vrag Gnasth?" I said aloud in a questioning manner.
 
@@ -104,7 +118,9 @@ After a long drive of depersonalizing and listening to the radio. I finally came
 
 After washing blood from my ears and the little bits of whatever the hell that got in through the hood. I dried off my hair and plopped into bed. The sun was rising at this point.
 
-Thinking back on that job, why didn't any of us even question what the hell we walked in on. The dude was reduced to a pile of meat. Not to mention the rotted teeth that were thrown into the mess, it doesn't make any sense. It was just needlessly violent for no reason. Most of the scenes, even murders aren't like that. like yeah it's gross but it's someone laying in bed or on the floor, maybe some blood here and there in the carpet or on the walls. Not a pile of organs and bone and a cascade of blood all throughout the apartment. 
+Thinking back on that job, why didn't any of us even question what the hell we walked in on. The dude was reduced to a pile of meat. Not to mention the rotted teeth that were thrown into the mess, it doesn't make any sense. It was just needlessly violent for no reason. 
+
+Most of the scenes, even murders aren't like that. like yeah it's gross but it's someone laying in bed or on the floor, maybe some blood here and there in the carpet or on the walls. Not a pile of organs and bone and a cascade of blood all throughout the apartment. 
 
 I decided I'd do a little research online to see what had happened to the guy. I didn't find much, just a name and a obituary. The guy really didn't have any family, his name was Daniel Cline. I guess he was married at one point but had a nasty divorce.
 
@@ -130,7 +146,9 @@ I groaned as I opened and wiggle my mouth around in an attempt to maybe stretch 
 
 Shaking it off, I rolled out of bed and threw on some old shirt after giving it the sniff test, I decided it would be a pretty boring night considering it was late. Only thing open right now is the gas station down the street so I guess I'm not getting groceries. I plopped my happy ass down on the couch in my living room rubbing my aching legs and grabbing the remote. Figured I'd throw on some creep cast or something on YouTube, catch up on some old stories. 
 
-While watching them talk about some goofy my little pony story I started hearing that grinding noise again. So I paused the video, looking around the room listening trying to pin point the exact source of this noise just so I could stop it. It was horrible! No matter where I looked it sounded like it was right on top of me. I figured maybe it was something outside. So I opened my window and nothing, there's absolutely no one out there and why would there be? . I threw my head in my hands. And that's when I noticed it, it was me. I was the source of the excruciating noise. I have been grinding my teeth this whole time! As soon as I caught it, it stopped. And soon after the pain I felt this morning returned. 
+While watching them talk about some goofy my little pony story I started hearing that grinding noise again. So I paused the video, looking around the room listening trying to pin point the exact source of this noise just so I could stop it. It was horrible! No matter where I looked it sounded like it was right on top of me. 
+
+I figured maybe it was something outside. So I opened my window and nothing, there's absolutely no one out there and why would there be? . I threw my head in my hands. And that's when I noticed it, it was me. I was the source of the excruciating noise. I have been grinding my teeth this whole time! As soon as I caught it, it stopped. And soon after the pain I felt this morning returned. 
 
 "What the fuck" I said rubbing my jaw. 
 
@@ -162,7 +180,11 @@ As I sat in my car I hurriedly pull down the sun shield and looked into the mirr
 
 As I sat back down on the couch I cracked open one of the beers and took a sip. The cold beer on the back of my gums felt nice. The alcohol helped too and the pain soon subsided, as I watched YouTube I felt myself finally relaxing. No more pain in my face and no more pain in my legs fucking finally I thought. After finishing the 6 pack of Bush I soon fell asleep on the couch with my TV on. 
 
-While I slept I drempt of a dark void with a crimson glow. I was standing there that much I knew. I could feel my body but not see anything. I tried to look at my hands but nothing was there. I felt the increasing panic rise in my chest and my breathe quicken. It felt as though I had masses and bumps under my skin, wriggling and moving. The foreign objects, I could feel them pushing against one another begging for more room inside my arms. All I hear is the same grinding sound but this time it is accompanied by a wet sloshing smacking sound. Like meat in a grinder that is far too dull to get the job done without violent force. The noise rose slowly in volume. Getting louder and louder. I desperately looked around for something, anything. Any sort of light. Something to grace my eyes with an explanation or some sort of false comfort. There was nothing but the sound "Gnasstthhh Gnasssshhhthhh Gnassssttthhhh" louder and louder
+While I slept I drempt of a dark void with a crimson glow. I was standing there that much I knew. I could feel my body but not see anything. I tried to look at my hands but nothing was there. I felt the increasing panic rise in my chest and my breathe quicken. It felt as though I had masses and bumps under my skin, wriggling and moving. 
+
+The foreign objects, I could feel them pushing against one another begging for more room inside my arms. All I hear is the same grinding sound but this time it is accompanied by a wet sloshing smacking sound. Like meat in a grinder that is far too dull to get the job done without violent force.
+
+ The noise rose slowly in volume. Getting louder and louder. I desperately looked around for something, anything. Any sort of light. Something to grace my eyes with an explanation or some sort of false comfort. There was nothing but the sound "Gnasstthhh Gnasssshhhthhh Gnassssttthhhh" louder and louder
 
 It felt like I was stuck in this void for hours. I could feel my palms pressed against my ears but nothing stopped this noise from assaulting my ear drums "GNASTHSH GNASHTHHH GNASSSSHHHHTTTHHHH" I finally awoke in a panicked sweat. 
 
@@ -172,13 +194,17 @@ It felt like I was stuck in this void for hours. I could feel my palms pressed a
 
 I franticly rubbed my arms and legs to check if I was infact okay. There was nothing, it was a dream. I knew that but I couldn't stop myself.  The pain in my face has returned and is definetly not ignorable. I rushed to the bathroom to look in the mirror. Prying my mouth open and cheek to the side. In the back of my mouth, my wisdom teeth were growing back in. 
 
-Blood soaked the bottom of the tooth already half way erupting from my gums. Top and bottom wisdom teeth are growing back at an alarming pace. I poked them, they were real but they weren't nearly as secure as the rest of my teeth. They grew as if there was nothing below to anker them into my mouth. I poked and prodded and moved them with my fingers. Twisting and pushing the left molar. I pulled my hand out of my mouth and steadied myself on the bathroom sink looking into the mirror. I don't want to but I think I have too. I smack my hands on the edge of the sink, open my mouth and lean closer to the mirror with determination. I grabbed my left wisdom tooth and pulled. The pain was unimaginable.
+Blood soaked the bottom of the tooth already half way erupting from my gums. Top and bottom wisdom teeth are growing back at an alarming pace. I poked them, they were real but they weren't nearly as secure as the rest of my teeth. They grew as if there was nothing below to anker them into my mouth. 
+
+ I poked and prodded and moved them with my fingers. Twisting and pushing the left molar. I pulled my hand out of my mouth and steadied myself on the bathroom sink looking into the mirror. I don't want to but I think I have too. I smack my hands on the edge of the sink, open my mouth and lean closer to the mirror with determination. I grabbed my left wisdom tooth and pulled. The pain was unimaginable.
 
 
  I yanked and the tooth gave way. As I pulled a thick stringy twine-like mass of veins laid below. I yelled at the top of my lungs as I pulled, blood pooled into the crevice underneath my tongue. I felt the warmth of blood filling my mouth. Screaming in pain gargling as it went down my throat. I didn't care, this wasn't right it shouldn't be growing back. It doesn't make any sense. Finally with a swift "plenk" the tooth came out. Leaving a small hole with flesh in its place, oozing yellow and white fluid. My effort wasn't unrewarded though, the pain had begun to fade in the left side of my face.
 
 
-I breathed heavily spitting the blood and infection into the sink. Taking a deep sip of water I swished it around and spit. Finally as I calmed myself, I took a good look at the tooth. There was a full crown on the top but the sides were ripe with decay. It smelled like rot. Underneath laid a dark red ball of tissue. I tossed it to the side of my bathroom counter. "What the fuck is going on." I could feel tears welling in my eyes. Why the hell don't I have health insurance. I cursed myself on top of all the bulshit that was happening. With my head in my arms draped over the bathroom sink I wept. 
+I breathed heavily spitting the blood and infection into the sink. Taking a deep sip of water I swished it around and spit. Finally as I calmed myself, I took a good look at the tooth. There was a full crown on the top but the sides were ripe with decay. It smelled like rot. 
+
+Underneath laid a dark red ball of tissue. I tossed it to the side of my bathroom counter. "What the fuck is going on." I could feel tears welling in my eyes. Why the hell don't I have health insurance. I cursed myself on top of all the bulshit that was happening. With my head in my arms draped over the bathroom sink I wept. 
 
 
 I grabbed the tooth and returned to my couch, plopping myself back down defeated with the pain I still felt in the rest of my face. I wanted it to stop but if it meant going through what I just did again and again I don't think I could do it. I stared at this alien object I extracted from my maw. 
@@ -187,7 +213,11 @@ I grabbed the tooth and returned to my couch, plopping myself back down defeated
 "It just doesn't make any fucking sense." I sighed.
 
 
-Googling "can wisdom teeth regrow in face" didn't yield any information because surprise no they fucking don't. So now I'm sitting here in pain wondering what the hell is even happening to me. Laying down on my couch defeated and staring at the ceiling. The silence didn't last long though. It starts up again, the grinding of my teeth. Rubbing vigorously and with force hard enough to shatter my teeth, I was waiting for them to shatter through one another into the gums above and below. But that isn't happening. Over and over I open my mouth smack it back down and grind my teeth hard. I scream in pain but it comes out as muffled yelp from my mouth being forced shut. I panic, I don't know what to do. I don't have control over my own jaw. The only thing I can think to do in my altered state is punch myself as hard as I can in the mouth. Doing so lodges two rotted teeth into my knuckles. 
+Googling "can wisdom teeth regrow in face" didn't yield any information because surprise no they fucking don't. So now I'm sitting here in pain wondering what the hell is even happening to me. Laying down on my couch defeated and staring at the ceiling. 
+
+The silence didn't last long though. It starts up again, the grinding of my teeth. Rubbing vigorously and with force hard enough to shatter my teeth, I was waiting for them to shatter through one another into the gums above and below. But that isn't happening. Over and over I open my mouth smack it back down and grind my teeth hard.
+
+ I scream in pain but it comes out as muffled yelp from my mouth being forced shut. I panic, I don't know what to do. I don't have control over my own jaw. The only thing I can think to do in my altered state is punch myself as hard as I can in the mouth. Doing so lodges two rotted teeth into my knuckles. 
 
 
 "OKAY I GOTTA GET HELP" I say allowed 
@@ -202,7 +232,11 @@ I quickly rummage for my phone, it must have fallen into the cracks during the s
 I pull my hand from the couch and hold it out in front of my face inspecting every inch of my hand. 2 rotted teeth are peeking out from the back of my hand, 3 are growing from under my finger nails 2 under my thumb and 1 under my pinky. I yell in panic as I notice they're slowly growing ripping and tearing apart my nails grasp from my finger. 
 
 
-"What do I do! WHAT DO I D-" I begin to cough and choke as my throat begins to become blocked. I feel my face begin to turn red and the pressure growing in my visage. I look down and begin to see bumps begin to form under my skin along my arms. I raise my shirt and see the same. Blood begins to pour out of each hole. Growing and growing, heavier and heavier I feel my feet begin to press into the carpet below me. All at once I feel as though I will erupt, pop like a zit filled with calcium. My vision begins to fade to black. I'm begging and pleading inside myself for this to stop. As it begins to crescendo feel my body stretch and finally collapse into itself. A wave of blood erupts from me like a volcano. Shooting in every single direction in my little home. There I lay, a pile of what I once was. Gone.
+"What do I do! WHAT DO I D-" I begin to cough and choke as my throat begins to become blocked. 
+
+I feel my face begin to turn red and the pressure growing in my visage. I look down and begin to see bumps begin to form under my skin along my arms. I raise my shirt and see the same. Blood begins to pour out of each hole. Growing and growing, heavier and heavier I feel my feet begin to press into the carpet below me. All at once I feel as though I will erupt, pop like a zit filled with calcium.
+
+ My vision begins to fade to black. I'm begging and pleading inside myself for this to stop. As it begins to crescendo feel my body stretch and finally collapse into itself. A wave of blood erupts from me like a volcano. Shooting in every single direction in my little home. There I lay, a pile of what I once was. Gone.
 
 
 "Hey Arin, we got another clean up job. I'll send you over the address. When you see it just let me know if you'll be alright doing it with me. I know it might be tough." John said over the phone in a somber tone.
