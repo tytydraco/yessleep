@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/1qqt1sp/i_was_homeless_until_a_strange_man_gave_me_a_free/) – [Part II](https://www.reddit.com/r/nosleep/comments/1qrsou3/i_was_homeless_until_a_strange_man_gave_me_a_free/) – [Part III](https://www.reddit.com/r/nosleep/comments/1qucqi6/i_was_homeless_until_a_strange_man_gave_me_a_free/) – **Part IV**
+[Part I](https://www.reddit.com/r/nosleep/comments/1qqt1sp/i_was_homeless_until_a_strange_man_gave_me_a_free/) – [Part II](https://www.reddit.com/r/nosleep/comments/1qrsou3/i_was_homeless_until_a_strange_man_gave_me_a_free/) – [Part III](https://www.reddit.com/r/nosleep/comments/1qucqi6/i_was_homeless_until_a_strange_man_gave_me_a_free/) – **Part IV** – [Part V](https://www.reddit.com/r/nosleep/comments/1r17yym/i_was_homeless_until_a_strange_man_gave_me_a_free/)
 
 I spent days hiding in my bedroom with the door locked and the sub-zero cobalt necklace collecting frost atop my ruckled duvet; touching that ice-cold charm would’ve bitten off my fingers, so I decided to simply remain in its vicinity and pray the shadow wouldn’t be able to get close to me. The necklace was so cold, in response to the shadow’s presence, that it somehow managed to plummet the room temperature to somewhere around freezing. I was bundled up in jumpers with cans of food stacked high on my bedside table.
 
@@ -143,3 +143,5 @@ Anyway, I’m writing this because I think my end has come, but not at the hands
 This post may be my last, so thank you, all of you, for your help. Your comments and support haven’t gone unnoticed. I mean it.
 
 Thank you for making me feel, for the first time in my life, as if I weren’t [alone](https://www.reddit.com/r/dominiceagle).
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/1r17yym/i_was_homeless_until_a_strange_man_gave_me_a_free/)
