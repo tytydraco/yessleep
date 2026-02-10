@@ -102,7 +102,7 @@ I unzipped the tent. Headlamp on, red filter. The beam found nothing but snow an
 
 I counted them. Four.
 
-Good. Four shelters, four students, four—
+Good. Four shelters, four students, four...
 
 Except one of the shelters was in the wrong place.
 
