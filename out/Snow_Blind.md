@@ -132,13 +132,13 @@ I ran.
 
 I didn’t look back. I made sure Cooper stayed ahead of me. I climbed the hill until my lungs burned and my legs failed. I slammed the door and collapsed inside the cabin.
 
-I grabbed my sat phone from the third drawer down at my desk and held the power button. The amount of relief I felt collapsing through the doorway was palpable. The dread I felt watching the sat phone blink its dead battery sign was equal. I have no fuel to run the generator, I have  two chords of wood left to heat my house and a weeks worth of food.
+I grabbed my sat phone from the third drawer down at my desk and held the power button. The amount of relief I felt collapsing through the doorway was palpable. The dread I felt watching the sat phone blink its dead battery sign was equal. I have no fuel to run the generator, I have  two cords of wood left to heat my house and a weeks worth of food.
 
-The only thing I have that does have power is this laptop and the solar panel i have set up to the starlink. I fear that too will soon be covered in snow and Ill lose my last connection to the world.
+The only thing I have that does have power is this laptop and the solar panel I have set up to the starlink. I fear that too will soon be covered in snow and Ill lose my last connection to the world.
 
 As I write this, I know this very well could be the last thing that remains of me. The trees around the house have begun to shift. Eventually, I’ll have to step outside.
 
-So say again as a warning to anyone that danes to play hero and try to come and get me out of here.
+So I say again as a warning to anyone that danes to play hero and try to come and get me out of here.
 
 If you have never glanced upon snow-speckled hills, pockmarked by trees littered with long-fallen leaves, then you would never know how bright it is. Snow blindness was—and is—a real problem. It makes them harder to spot during the day.
 

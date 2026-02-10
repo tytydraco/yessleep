@@ -30,8 +30,6 @@ She sank back onto the couch, voice low. "First your hands and arms will cramp, 
 
 Moonlight streaked through the curtains, painting the room silver. My breath caught as I realized how small I was beneath a curse older than any of us.
 
-
-
 My life ended that day.
 
 Dad brought home steel plates from the shipyard to reinforce the shed walls. I still remember the sound of his hammer at night, each strike punctuated by my mother's muffled crying from inside the house. The foam he lined the walls with couldn't block my screams, but it kept the neighbors from calling police. When I first turned, I nearly killed him—my own father—as he shielded Mom and Nikki from what I'd become. Mom cracked my skull with the butt of Dad's rifle. I woke up tied in the garage, listening to Dad's hushed phone call to Mawmaw about her rougarou stories.
@@ -94,7 +92,7 @@ I opened it with hands that trembled—grief, curiosity, dread swirling inside m
 
 My heart battered against my ribs.
 
-A cure. Why hadn't she told anyone? Then I saw another note, shakier: 'I tried to tell Louise when Eric was born, but she forbade me—said it was too dangerous, that we'd lost enough men to this curse. She burned my letters. By the time I could have told Eric myself, I was too old, too afraid he'd try it and fail like Robert
+A cure. Why hadn't she told anyone? Then I saw another note, shakier: 'I tried to tell Paul when Eric was born, but he forbade me—said it was too dangerous, that we'd lost enough men to this curse. He burned my letters. By the time I could have told Eric myself, I was too old, too afraid he'd try it and fail like Robert.’
 
 I hurried downstairs, microwaved a cold dinner, and devoured it like I was starving for answers. The journal described a ritual: bind yourself in silver chains, draw a circle of salt and write the prayer within it, then stand before a mirror while reciting the incantation. This would trap the wolf spirit inside the glass. Only once you're free do you shatter the mirror and burn the shards to ash.
 
@@ -128,17 +126,13 @@ Robert—her son, my grandfather. She'd carried that guilt to the grave. The jou
 
 She had failed him. But maybe, if I could steel my heart against fear, I could finish what she started. I owed her that much. And, somehow, I owed myself more.
 
-
-
 Pure silver chains weren't easy to come by. I drove to every jewelry store in three parishes, buying up whatever thick silver chains they had. The ritual didn't specify what kind, so I prayed necklace chains would do the job. Found a mirror at the antique shop on Thibodaux Street—nothing fancy, but glass is glass, right?
 
 Silly as it sounded, that prayer was all I had left. I recorded myself saying it in English and my broken Cajun French, then reinforced the harness with the extra chains. When the final silver links arrived, I knew it was time. After living with this curse most of my life, I wasn't afraid anymore. This transformation would be different. This time, I was taking my life back.
 
 Weeks passed in preparation. I prayed, meditated, rehearsed the ritual until I could perform it in my sleep. For the first time in ages, a calm warmth spread through me—I felt alive, as if reclaiming a life I'd nearly lost. It could succeed—restoring me fully—or it could fail, unleashing horrors on myself and an unwitting world. Yet even the risk of failure couldn't stop me. I had to try.
 
-
-
-At eight o'clock on a rain-soaked night, it began. My phone buzzed one last time—Nikki: 'I know you won't answer but I love you.' I silenced it and set it on the workbench, not realizing she'd already made the decision I'd begged her not to make
+At eight o'clock on a rain-soaked night, it began. My phone buzzed one last time—Nikki: 'I know you won't answer but I love you.' I silenced it and set it on the workbench, not realizing she'd already made the decision I'd begged her not to make.
 
 Wind rattled the windows; lightning flashed in the distance. By the back door stood a wooden box, its surface scratched with old symbols. Inside lay the silver chains, ready to bind me. Nearby, a pair of wireless speakers waited to loop the prayer in English and Cajun French. I propped the ornate mirror upright at the circle's edge, angled so I'd face my reflection when I knelt in the salt—six feet away, close enough to trap the beast but far enough to avoid the initial explosion if something went wrong.
 
@@ -187,4 +181,3 @@ I wage war against its primal instincts, channeling its ravenous hunger toward t
 Occasionally, I transform back—skin raw and prickling, bones grinding as they reshape, curled naked on forest floors carpeted with decaying pine needles that stick to my blood-crusted skin—but these moments of humanity dwindle with each cycle. Minutes stolen from eternity, not the precious hours I once had.
 
 Soon, I fear the beast's consciousness will devour mine completely, my human thoughts dissolving like sugar in rain—until nothing remains but fading echoes bouncing within the monster's skull.
-

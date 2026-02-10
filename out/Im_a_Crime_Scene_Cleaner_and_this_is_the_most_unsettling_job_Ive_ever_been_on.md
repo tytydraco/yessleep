@@ -66,7 +66,7 @@ As I put my hand on the door knob I couldn't help but feel a creeping sense of a
 
  As I turned the door knob a small voice ever so soft was screaming at me to quit that job right then and there and up and leave. I could deal with John later I'm a good worker, Im sure he would understand. But I gritted my teeth and opened the door. A rush of air flooded into the stale dark apartment. Even through the respirator I could smell the all too familiar coppery scent of blood.
 
- I sat their for a second, and I couldn't put my finger on why. I've done multiple jobs before this, seen horrible things. So why does this one job in a random apartment complex feel like something so wrong. I huffed to myself and let out a small "okay." And heaved the door all the way open as if I had to push it through some sort of viscious fluid. I'm
+ I sat there for a second, and I couldn't put my finger on why. I've done multiple jobs before this, seen horrible things. So why does this one job in a random apartment complex feel like something so wrong. I huffed to myself and let out a small "okay." And heaved the door all the way open as if I had to push it through some sort of viscious fluid.
 
 The door let out a small creak and a smack. As it hit the wall. I saw nothing, it was too dark in the apartment. So I stepped my right boot in and reached my arm onto the wall. Desperately reaching out for some sort of switch, finally my hand caught leverage. I flipped the light on and the scene before me was something I could never have imagined.
 
@@ -80,7 +80,7 @@ Crumpled pages laid sprawled out in a random incoherent order all around the roo
 
 "What the hell does that mean." Arin said puzzled
 
-At the center of all of laid a rotting mass of meat and rotting teeth. Laying in front of it all, a small brown journal with an almost vine looking design on the cover. 
+At the center of all of this laid a rotting mass of meat and rotting teeth. Laying in front of it all, a small brown journal with an almost vine looking design on the cover. 
 
 "What the fuck." I said in disbelief
 
@@ -194,7 +194,7 @@ It felt like I was stuck in this void for hours. I could feel my palms pressed a
 
 I franticly rubbed my arms and legs to check if I was infact okay. There was nothing, it was a dream. I knew that but I couldn't stop myself.  The pain in my face has returned and is definetly not ignorable. I rushed to the bathroom to look in the mirror. Prying my mouth open and cheek to the side. In the back of my mouth, my wisdom teeth were growing back in. 
 
-Blood soaked the bottom of the tooth already half way erupting from my gums. Top and bottom wisdom teeth are growing back at an alarming pace. I poked them, they were real but they weren't nearly as secure as the rest of my teeth. They grew as if there was nothing below to anker them into my mouth. 
+Blood soaked the bottom of the tooth already half way erupting from my gums. My  wisdom teeth are growing back at an alarming pace. I poked them, they were real but they weren't nearly as secure as the rest of my teeth. They grew as if there was nothing below to anker them into my mouth. 
 
  I poked and prodded and moved them with my fingers. Twisting and pushing the left molar. I pulled my hand out of my mouth and steadied myself on the bathroom sink looking into the mirror. I don't want to but I think I have too. I smack my hands on the edge of the sink, open my mouth and lean closer to the mirror with determination. I grabbed my left wisdom tooth and pulled. The pain was unimaginable.
 
@@ -232,13 +232,17 @@ I quickly rummage for my phone, it must have fallen into the cracks during the s
 I pull my hand from the couch and hold it out in front of my face inspecting every inch of my hand. 2 rotted teeth are peeking out from the back of my hand, 3 are growing from under my finger nails 2 under my thumb and 1 under my pinky. I yell in panic as I notice they're slowly growing ripping and tearing apart my nails grasp from my finger. 
 
 
-"What do I do! WHAT DO I D-" I begin to cough and choke as my throat begins to become blocked. 
+"What do I do! WHAT DO I D-" I begin to cough and choke as my throat begins to close. 
 
-I feel my face begin to turn red and the pressure growing in my visage. I look down and begin to see bumps begin to form under my skin along my arms. I raise my shirt and see the same. Blood begins to pour out of each hole. Growing and growing, heavier and heavier I feel my feet begin to press into the carpet below me. All at once I feel as though I will erupt, pop like a zit filled with calcium.
+I feel my face begin to turn red and the pressure growing in my visage. I look down and see bumps begin to form under my skin along my arms. I raise my shirt and see the same. Blood begins to pour out of each hole. Growing and growing, heavier and heavier I feel my feet begin to press into the carpet below me. All at once I feel as though I will erupt, pop like a zit filled with calcium.
 
  My vision begins to fade to black. I'm begging and pleading inside myself for this to stop. As it begins to crescendo I feel my body stretch up and up, finally I collapse into myself. A wave of blood erupts from me like a volcano. Shooting in every single direction in my little home. There I lay, a pile of what I once was. Gone. 
 
 I cannot see. I am not me. I am not here. I simply hear the gnashing of teeth and the chewing of meat. I am with him. He is with me. We are one. I am whole once again. 
+
+
+
+
 
 
 "Hey Arin, we got another clean up job. I'll send you over the address. When you see it just let me know if you'll be alright doing it with me. I know it might be tough." John said over the phone in a somber tone.
