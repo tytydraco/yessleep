@@ -8,9 +8,9 @@ A quick look in the mirror and ruffling my brown hair and a stupid smile "you're
 
 I pulled up to the address and saw my coworker John getting all the cleaning supplies out of the back of the van.
 
-"John Manager, what's up man." As I walked up to him. 
+"John Manager, what's up man." I said as I walked up to him. 
 
-"Shut up Will." He scoffed to himself 
+"Shut up Will." John scoffed to himself 
 
 John was a no bulshit kind of guy, grizzled maybe in his early 40's I wouldn't bother asking. He was good company, had his jokes and dry humor. All I cared about was that he was a good manager and coworker. 
 
@@ -236,7 +236,9 @@ I pull my hand from the couch and hold it out in front of my face inspecting eve
 
 I feel my face begin to turn red and the pressure growing in my visage. I look down and begin to see bumps begin to form under my skin along my arms. I raise my shirt and see the same. Blood begins to pour out of each hole. Growing and growing, heavier and heavier I feel my feet begin to press into the carpet below me. All at once I feel as though I will erupt, pop like a zit filled with calcium.
 
- My vision begins to fade to black. I'm begging and pleading inside myself for this to stop. As it begins to crescendo feel my body stretch and finally collapse into itself. A wave of blood erupts from me like a volcano. Shooting in every single direction in my little home. There I lay, a pile of what I once was. Gone.
+ My vision begins to fade to black. I'm begging and pleading inside myself for this to stop. As it begins to crescendo I feel my body stretch up and up, finally I collapse into myself. A wave of blood erupts from me like a volcano. Shooting in every single direction in my little home. There I lay, a pile of what I once was. Gone. 
+
+I cannot see. I am not me. I am not here. I simply hear the gnashing of teeth and the chewing of meat. I am with him. He is with me. We are one. I am whole once again. 
 
 
 "Hey Arin, we got another clean up job. I'll send you over the address. When you see it just let me know if you'll be alright doing it with me. I know it might be tough." John said over the phone in a somber tone.
@@ -248,7 +250,7 @@ I feel my face begin to turn red and the pressure growing in my visage. I look d
 My phone beeps with a notification. When I check it, I notice it's my friend Wills address. Oh shit... I guess that explains why he hasn't shown up to work in a couple of days. 
 
 
-As I walk up to the familiar home I've only seen dropping off my co-worker will when his car was broken down. I see John already suited up and ready. 
+As I walk up to the familiar home I've only seen dropping off my co-worker when he had car troubles. I see John already suited up and ready. 
 
 
 "We started at 10 right John?" I said concerned.
