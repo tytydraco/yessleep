@@ -652,7 +652,7 @@ It looked bigger than a cat, though. I blamed the frosted glass for the distorti
 
 The thing began to move.
 
-It lifted each of the stumps one by one, which now solidified my belief that this was indeed and animal, and then crouched down.
+It lifted each of the stumps one by one, which now solidified my belief that this was indeed an animal, and then crouched down.
 
 Then, much to my horror, the thing lifted itself up onto two legs, body rising high into the air.
 
