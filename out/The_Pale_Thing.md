@@ -92,7 +92,7 @@ I squeeze eyes shut, scream, and empty the rest of the magazine. Eleven shots, a
 
 Heart pounding, I scan the sky until I see the creature’s massive silhouette against the moonlight.
 
-I groan and force myself to my feet. Pain flares in my calf, red, and angry sharp enough to make me gag. I limp my way back to the Honda and collapse into the driver’s seat. My hand drops to the ignition, and I laugh.
+I groan and force myself to my feet. Pain flares in my calf, red, and angry, and sharp enough to make me gag. I limp my way back to the Honda and collapse into the driver’s seat. My hand drops to the ignition, and I laugh.
 
 And then I scream.
 
