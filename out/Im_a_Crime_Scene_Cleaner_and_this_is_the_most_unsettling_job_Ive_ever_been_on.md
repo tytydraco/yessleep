@@ -22,8 +22,8 @@ He actually got his hands dirty when you needed him and jumped onto any situatio
 
 "I'm not too sure, all I heard was something happened with the guys teeth and he croaked about a week ago. No one heard from him and they called in a wellness check. Sure enough we are here, so yeah.... Hes dead" he said with a kind of stare off into the distance and hands on his sides.
 
-"Oh word? He's not alive and breathing? I thought we were here to say hi. Maybe give him a kiss on the cheek or something."  I said dumbfounded
-
+"Oh word? He's not alive and breathing? I thought we were here to say hi. Maybe give him a kiss on the cheek or something."  I said dumbfounded, making a kissy face.
+ 
 "Yeah you can go give the cadaver a kiss on the cheek if you want." John said laughing 
 
 "So where the hell is Arin...it's 10:30... Dude is seriously late every fucking day." I said noticeably annoyed I threw the 3 hazmat suits onto the pavement next to the bleach.
