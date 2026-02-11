@@ -178,3 +178,5 @@ My brain felt like it was being torn apart. Visions flashed before my eyes. The 
 We easily got back to my high school. Navigating the realm became a breeze after you get used to it. In my classroom, we found a black envelope sitting on my desk. Then, Rachel and I split up and headed for our homes. I walked past my apartment and my childhood home. I kept walking until I reached Ivy’s grave. 
 
 There, I lay down next to my friend, closed my eyes, and dreamt of our past sins.      
+
+[Final lesson](https://www.reddit.com/r/nosleep/comments/1r1wtsm/theres_a_course_teaching_the_universes_secrets/)
