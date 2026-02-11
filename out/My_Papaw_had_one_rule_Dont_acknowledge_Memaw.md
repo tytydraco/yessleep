@@ -1,7 +1,6 @@
 Growing up in Appalachia, I heard all types of stories of spooks and scary things that go bump in the night.  The old coalman, the headless mule, and Miss Myra from a ways a way, you know them stories.  As tough little country kids, none of 'em scared us.  At least they ain't scared us half as much as the pitch black dark on a summer’s night.  That is, none except Memaw.
 
-Papaw never told us kids why.  He just told us not to mention her.  Us grandkids thought it was kindly strange because Memaw was always part of our lives.  He'd must've been married to the woman since God knows when
-  Mawmaw put out our church clothes on Sundays.  She made us grandkids breakfast every time we stayed over too and it was always our favorites.  But none of us were allowed to acknowledge her.
+Papaw never told us kids why.  He just told us not to mention her.  Us grandkids thought it was kindly strange because Memaw was always part of our lives.  He'd must've been married to the woman since God knows when.  Memaw put out our church clothes on Sundays.  She made us grandkids breakfast every time we stayed over too and it was always our favorites.  But none of us were allowed to acknowledge her.
 
 I remember cousin Patty one summer morning came running from the crick clear across Papaw’s front acre saying Memaw needed help.  Patty said she was hurt something awful and he begged, cried for Papaw to help.  Now, I remember climbing up over a grassy hill to try to take a look.  Sure enough Memaw was there turned over on her side in her black dress, wailing while she clutched her stomach.
 
