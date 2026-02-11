@@ -64,6 +64,8 @@ Rick flings the trunk open.
 
 In an instant, something pale erupts out of the trunk and latches on to him. A mouth filled with needle teeth clamps onto Rick’s neck. He screams, but it’s too late. Elongated limbs with too many bends in them wrap around Rick and drag him to the ground.
 
+I scream and scramble backwards, but my heel catches on an upturned rock and I go down, hard.
+
 I fumble around for the gun, my eyes locked on the pale-thing and what’s left of Rick. “What the fuck are you…?” I whisper. The Pale-Thing’s pointed ears twitch. It lifts its massive head and turns toward me. Inky black eyes scan over me. Blood drips from a mouth that’s too wide. “Wannnt to go….home…” it hisses.
 
 It crawls on limbs that bend like spider legs, closing the gap between us. I scurry backwards until my hands land on something cold and metallic. I whip the Glock up, level it at the pale thing and pull the trigger.
