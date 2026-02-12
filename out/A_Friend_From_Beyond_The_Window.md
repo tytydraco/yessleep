@@ -1,7 +1,7 @@
 As I sit here, fingers hovering over the phone screen, its fragile glow fighting the darkness settling around me, I feel the edges of myself slipping away. Not everything I was remains, some part watches patient and quiet as I compose these words. 
 
 
-Time is running out, though I can no longer tell if it moves too fast or not at all. What I am about to write may sees as fiction, carefully crafted block by block from figments of my imagination, while to others, it may simply appear as the ramblings of a child who has yielded to the persistent, looming pull of the madness. 
+Time is running out, though I can no longer tell if it moves too fast or not at all. What I am about to write may seem as fiction, carefully crafted block by block from figments of my imagination, while to others, it may simply appear as the ramblings of a child who has yielded to the persistent, looming pull of the madness. 
 
 
 To whoever reads this, I only ask you to bear witness. And perhaps, do not repeat the mistakes I made.
@@ -197,7 +197,7 @@ We spent some time texting about random things. She taught me about websites, sh
 “Wanna come over?” she replied.
 
 
-Remembering that question and how it sent shivers down my spine now. The thought alone terrified me back then, not because I didn’t trust her, nor was it the effort needed to reach her house, but because of my father. His word was the law, and just talking to her had painted vivid images of his leather belt. 
+Remembering that question and how it sent shivers down my spine now feels a bit silly now. The thought alone terrified me back then, not because I didn’t trust her, nor was it the effort needed to reach her house, but because of my father. His word was the law, and just talking to her had painted vivid images of his leather belt. 
 
 
 I knew if I got caught sneaking out, I might as well start planning my funeral. 
@@ -303,7 +303,7 @@ Screams filled the air, my mind now gone. Quickly silence overcame everything, s
 The horrifying scene that greeted me as I opened my eyes is one thing I will be happy to forget. There laid the bodies of my parents, surrounded by disfigured creatures, feasting on their torn chest. As I looked down my arms covered in red liquid, curved blade between my knees, and a human heart next to it. I screamed in agony, hugging myself, wanting to wake up from this nightmare as acidic taste filled my mouth. I crawled to the chair, the same one I was in on that faithful morning. 
 
 
-Heavy sadness pressed on me as I slumped into the chair. I begun to feel my mind fading again. This time there was no confusion, I knew it was permanent this time. Another me was slowly embracing me from the inside, using my body as a shell to give birth to a new monstrosity. As I buried my face into my hands I noticed the phone that I had dropped before I left with Neza. 
+Heavy sadness pressed on me as I slumped into the chair. I begun to feel my mind fading again. This time there was no confusion, I knew it was permanent . Another me was slowly embracing me from the inside, using my body as a shell to give birth to a new monstrosity. As I buried my face into my hands I noticed the phone that I had dropped before I left with Neza. 
 
 
 Frantically I looked around, she was nowhere to be seen, creature feasting on the corpses of my parent paid me no mind, they were in a frenzy. I grabbed it quickly, fearing someone or something would notice. 
