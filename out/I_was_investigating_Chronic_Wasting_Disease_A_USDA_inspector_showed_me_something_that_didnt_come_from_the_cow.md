@@ -1,6 +1,8 @@
+Standalone entry.
+
 [Part 1](https://www.reddit.com/r/nosleep/comments/1qqlwez/i_was_assigned_to_cover_a_cave_accident_i_didnt/)
 
-I met him in a field office outside Lansing because he said it was easier than arranging access to the main building. The office was part of a larger complex used for storage and vehicle maintenance. 
+I met him in a field office outside Lansing because he said it was easier than arranging access to the main building. The office was part of a larger complex used for storage and vehicle maintenance.
 
 He introduced himself using his first name only. He said he worked in wildlife health. He didn’t specify a title.
 
@@ -248,11 +250,7 @@ It was standing upright, its head angled slightly toward the person holding the 
 
 There was an ear tag attached to its left ear. Yellow plastic, rectangular, standard format. The printed number was clearly visible.
 
-
-
 MI-07-524287-19
-
-
 
 He pointed instead to the head.
 
@@ -420,7 +418,7 @@ He phrased it like an accommodation rather than an invitation.
 
 He gave me a time and a building name. He didn’t ask if I would be there. He said it as though the arrangement was already understood.
 
-I compiled my notes that night and reviewed what I had collected so far. I reorganized the interviews and documentation chronologically. 
+I compiled my notes that night and reviewed what I had collected so far. I reorganized the interviews and documentation chronologically.
 
 The next morning, I arrived at the building he had specified. He was already there, standing near the entrance.
 
@@ -605,4 +603,3 @@ In the hallway, I asked the inspector if the brain images were from the cow.
 He said no.
 
 He said they were from the milk.
-
