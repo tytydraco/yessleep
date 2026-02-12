@@ -62,7 +62,7 @@ I paused. Then I hit the *Enter* key and tried again.
 
 **Joseph**
 
-I paused again and thought real hard trying to remember what Joey’s last name was again. It was something with an F, maybe Flanagan, and as I searched my memory an image of his sneering face greeted me, and the phone began to ring.
+I paused again and thought real hard trying to remember what Joey’s last name was. It was something with an F, maybe Flanagan, and as I searched my memory an image of his sneering face greeted me, and the phone began to ring.
 
 I froze, unsure of what to do at first, then quickly plucked the handset and held it to my ear. There was a click and the noise stopped.
 
@@ -112,13 +112,13 @@ The line clicked and I set the phone down. Joey may have gone to college but he 
 
 His eyes scrunched up and his mouth did this funny little curl upwards. He looked like he was having a heart attack. Then the phone began to ring.
 
-The terrible thing that happened to us was waiting a few distant hours ahead of us. But before that moment, it was a dream in that booth. Sleep nor food nor water crossed our minds as we tossed that phone back and forth to each other in fantastic delight. To our dismay Uma Thurman didn’t answer; neither did Michael Jordan, Chuck Norris, or Jim Carrey, but we did have a few notable, albeit brief conversations.
+The terrible thing that happened to us was waiting patiently, a few distant hours away. But before that moment, it was a dream in that booth. Sleep nor food nor water crossed our minds as we tossed that phone back and forth to each other in fantastic delight. To our dismay Uma Thurman didn’t answer; neither did Michael Jordan, Chuck Norris, or Jim Carrey, but we did have a few notable, albeit brief conversations.
 
 Shaquille O’Neal, Arnold Schwarzenegger, and Mr. T all picked up. We could only get a few words in before the line went dead but it counted for us. Charlie’s hands were shaking after he screamed, “Hello Mr. Iron Mike!” into the handset.
 
-The person I first had in mind was President Clinton. Now I wouldn't bother, what with everything going on in the news, but at the time he was a legend. Lou said it would probably go to his secretary or something but I had a feeling the booth would find a way to get the call to him. And I swear on my mother’s grave, on that night I exchanged a few pleasant words with the President of the United States of America. You don’t have to believe me, a lot of this story sounds fake, but like I said. It counts for me.
+The person I first had in mind was President Clinton. Now I wouldn't bother… what, with everything going on in the news. But at the time he was a legend. Lou said it would probably go to his secretary or something but I had a feeling the booth would find a way to get the call to him. And I swear on my mother’s grave, on that night I exchanged a few pleasant words with the President of the United States of America. You don’t have to believe me, a lot of this story sounds fake, but like I said. It counts for me.
 
-We didn’t realize it when Doss picked up the phone next that our time was up. Was that time worth it, laughing like we had never laughed before? What is a dream that sours into a nightmare? It depends when you’re lucky enough to wake up.
+We didn’t realize it when Doss picked up the phone next that our time was up. Was it worth it, laughing like we had never laughed before? I have to think about my answer. But I’m sure Doss wouldn’t.
 
 No one noticed what Doss had typed into the phone. Lou was singing with Victor and I was arguing with Charlie over who to call next, and Doss already had the receiver to his ear.
 
@@ -144,7 +144,7 @@ Victor stiffened like he’d been shot. He took a step back as the rest of us le
 
 “Haha, it is, Victor, it’s her! Y’know dad still says that around the house. We miss you.”
 
-“*I miss you too, dear. Is Victor there? Bring him here. There is something that I must tell my grandchildren. I wish I had known to tell you this before*… *oh, but at least it didn't hurt*...”
+“… I *miss you too, dear. Is Victor there? Bring him here. There is something that I must tell my grandchildren. I wish I had known to tell you this before*… *oh, but at least it didn't hurt*... *not too much… not too much…”*
 
 Doss waved Victor over but he shook his head, his face utter pale as the moon hanging outside.
 
@@ -152,21 +152,19 @@ Doss waved Victor over but he shook his head, his face utter pale as the moon ha
 
 “…” 
 
- 
-
 There was static and warbling that could’ve been words. Doss’ face began to twist into something, his eyes widening to meet his eyebrows, his mouth stretching and opening just as the lights in the booth cut out. One of us screamed. The sound jumpstarted our legs and the booth exploded into blind pandemonium trying to escape.
 
-It was somehow brighter outside, and we sprinted out of the clearing of trees, out of sight of the booth and its phone. We caught our breath, and when Victor turned and started to walk in a random direction, no one questioned him. We followed.
+It was somehow brighter outside, and we sprinted out of the clearing of trees, out of sight of the booth and its phone. We caught our breath, just beyond the trees, blinking and looking nervously at each. When Victor turned and started to walk in a random direction, no one questioned him. We followed.
 
 “Wait, we’re one short. Where’s Doss?”
 
-We looked around and then back at the grove of trees we had come from, dreading the thought of going back. But we didn’t have to. Doss plodded out from the trees on feet that weighed a thousand pounds. He was breathing with his mouth and his eyes stared miles beyond us.
+We looked around and then back at the grove of trees we had come from, dreading the thought of going back. But we didn’t have to. Doss plodded out from the trees on feet that weighed a thousand pounds. He was breathing with his mouth. His eyes stared miles beyond us.
 
-He didn’t say nothing, just walked right past us in front of Victor and kept walking. Again, no questions. We just followed.
+He didn’t say nothing. Just walked right past us in front of Victor and kept walking. Again, no questions. We just followed.
 
-The road appeared in no time at all. It makes you work to find it but the booth is eager to spit you back out. When I got home I crept upstairs. At the foot of my bed I finally realized how tired I was. I crawled in, not bothering to get under the covers nor switch the light of my desk lamp off and drifted away.
+The road appeared in no time at all. It makes you work to find it but the booth is eager to spit you back out. When I got home I crept upstairs. At the foot of my bed I finally realized how tired I was. I crawled in, not bothering to get under the covers nor switch the light of my desk lamp off, and drifted away.
 
-The ringing of our telephone reached me before sleep could. I froze, then relaxed. Just the sound of one made me nervous now. But this was the house phone and either my dad would get it or no one would.
+The ringing of our telephone reached me before sleep could. I froze, then relaxed. Just the sound of one made me nervous. Still does. But this was the house phone and either my dad would get it or no one would.
 
 Five minutes later and it’s still ringing. No breaks, no cuts. No sound of my dad’s door opening. I padded downstairs and stood in front of the wailing phone. Like it was ringing for me. The conversation went something like this:
 
