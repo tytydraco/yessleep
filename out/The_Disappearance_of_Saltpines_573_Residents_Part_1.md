@@ -69,3 +69,5 @@ To the five hundred and seventy-three residents of Saltpine, I’m sorry I faile
 But that stops now.
 
 \-Dr. Laura Cotts
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1r2eev3/the_disappearance_of_saltpines_573_residents_part/)
