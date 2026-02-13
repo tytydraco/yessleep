@@ -24,7 +24,7 @@ It was the first time I ever saw Doss cry. If his daddy saw the way Doss was try
 
 We stepped into the small grove of trees standing in a circular array that blocked the wind and muted its shrieking. In the pristine center was a gorgeous, dark mahogany booth complete with ornate glass so clear the panes looked empty.
 
-There was no way for a 6^(th) grade boy to articulate it; the uncanny clash of old and new, the warmth that accompanied the light that beckoned from the dark. It’s door was open and inside a black telephone fitted atop a large base rested on a small table.
+There was an uncanny clash of old and new, a warmth that accompanied the light that beckoned from the dark. It’s door was open and inside a black telephone fitted atop a large base rested on a small table.
 
 When I took my first step inside, the shuffle of anxious footsteps followed. The interior was warm and soon cramped as the space filled with the nervous energy shooting from our bodies.
 
@@ -86,7 +86,7 @@ I cackled into the phone. “You thought I was too chicken. Make sure you tell e
 
 “You think I’m lying? I used the marbles so you can check yourself. It wasn’t as hard as you said. Someone musta come and fixed the thing up though cause you said it was broken when you came but –”
 
-“Did you smoke some grass or something, huh? You really that stupid? That crock of shit story is the only thing left that makes this town interesting.”
+“Did you smoke some grass or something, huh? You really that stupid?”
 
 “Huh… But I’m literally –”
 
@@ -128,7 +128,7 @@ No one noticed what Doss had typed into the phone. Lou was singing with Victor a
 
 Victor sidled around and peered over his cousin’s shoulder. His eyes scrunched, opened wide, and then narrowed again in confusion. “Stupid, you forget she’s dead?” But Doss’ eyes were closed. And the phone began to ring.
 
-Victor stiffened like he’d been shot. He took a step back as the rest of us leaned forward. Even though I didn’t understand what had just happened, I couldn’t help it. The ringing stopped. The conversation that followed between Doss and whatever was on the other end of that line went something like this:
+Victor stiffened like he’d been shot. He took a step back as the rest of us leaned forward. The ringing stopped. The conversation that followed between Doss and whatever was on the other end of that line went something like this:
 
 “Hello...? Hello? Gramma?”
 
@@ -142,7 +142,7 @@ Victor stiffened like he’d been shot. He took a step back as the rest of us le
 
 “… *Serious as a heart attack.*”
 
-“Haha, it is, Victor, it’s her! Y’know dad still says that around the house. We miss you.”
+“Haha, it is, Victor, it’s her! Y’know dad still says that around the house, ‘serious as a heart attack’… Aw, we miss you, Gramma.”
 
 “… I *miss you too, dear. Is Victor there? Bring him here. There is something that I must tell my grandchildren. I wish I had known to tell you this before*… *oh, but at least it didn't hurt*... *not too much… not too much…”*
 
