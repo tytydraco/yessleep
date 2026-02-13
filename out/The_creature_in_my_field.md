@@ -1,0 +1,19 @@
+I never told anyone for fear they’d think I’m crazy, but when I was young, and I mean young like nine. my grandpa told me to go to bed over and over, but I just wouldn’t listen so he sat down next to me on the couch, and he said, “do you know what happens when you don’t listen to people?” and me being a child at the time I was intrigued, so I asked in a defiant tone, “what happens?”
+
+So my grandpa leaned in closer, looked me dead in the eyes and and told me about a creature known only as the “mourning elk.” a creature who walks on two legs at seven feet tall in the forest, its antlers look like distorted fingers stretching towards the sky, and its face, it had no snout just two yellow eyes directly on the front of its face with huge pupils, each a black void.
+
+He said it begins with the tapping soft at first barely noticeable, then it gets louder, and louder. and at this point I was so scarred I couldn’t take it anymore, I remember stoping him mid sentence. my grandpa chuckled and said, “OK you run off to bed now I’ll come tuck you and your sister in.”
+
+Context:I lived went to my grandpas house every day in the summer, our entire family lived in this rural town in South Dakota. Our grandma loved us but only let us in the house after eight, why? I don’t know and I never will.
+
+anyways, my grandpa came and tucked us in. afterwards I lay awake all night, I remember telling the story, well the part I knew at least, to my sister. she told me I didn’t need to worry about it, and I was being a baby. I know she was scared though, she wouldnt admit it, but she was.
+
+the next week or two I wouldn’t disobey my grandpa ever if he wanted us to leave the house I would, no questions asked. If he wanted me to scoop the pig poop behind the barn, I would drop everything I was doing and rush there immediately. After a week though I started to realize that he made up the whole story, so that night I asked him what the mourning elk does to people who don’t listen. he told me slowly the tapping will get worse and worse, and once he finds a way to get to you he will get to you. He will crawl through the window, or the door, or down your chimney. I said “I don’t believe you.” what happened next was the scariest thing I had ever heard I heard tapping on the window. it was silent, almost, but I could hear the consistent tapping. that night changed everything. later that night my sister got in a fight with my grandma about why she didn’t want to go to the nursing home to see our great aunt. my grandpa told them to stop arguin, he was the only person who knew what would happen.
+
+then we heard it a soft tapping, my sister and grandma couldn’t hear it over there shouting then it grew louder. my grandpa explained to me that it was atracted to noise. he told me to go grab the rifle.
+
+now I didn’t know at the time but this rifle was a .270 caliber. for those of you that don’t know, that’s not enough to take down an elk.
+
+so I went and grabbed his rifle and brought it back by this point they had stopped arguing over the nursing home they were unnerved by the noise then all of a sudden the tapping stopped and then the window shattered it scuttled on the floor like a spider and grabbed my grandma and nicked my sister on the shoulder. my grandpa fired a few shots off at the elk but it rammed through the door. and mauled my grandma on the gravel driveway on our farm. my grandpa called the cops, and the ambulance, it was too late though. the deed was done.
+
+I’m not looking for people to feel bad, I just want to know. Have any of you ever heard the tapping at night? have you ever seen it walk, and scuttle through the trees or the fields? somebody tell me you’ve seen it too.
