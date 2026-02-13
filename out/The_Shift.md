@@ -1,333 +1,371 @@
-\*\*\*MESSAGE BROADCAST\*\*\*
+We met at a pool party. I remember that day clearly; it was in the middle of an unforgettable heatwave. Alfie smiled at me from across the pool, and the rest was history. Not only was he gorgeous and completely unaware of it, but he was also a fantastic listener. No matter who he spoke to, he listened intently. He was never just waiting for his turn to speak. Never just nodding absentmindedly. He absorbed every word- eyes bright and understanding. Later, when I told him that was one of my favourite things about him, he smiled and said, “Most people just want to be understood. It isn’t difficult if you pay attention.” 
+
+He has always paid attention. Even in the early months of our relationship, he remembered everything: how I take my coffee, which side of the bed I prefer, that I can’t sleep without my bedside fan or my childhood teddy, Scrappy. 
+
+There had always been a quiet predictability to our life together. We’d wake up at the same time each morning. I’d shower first; he’d make coffee. We’d meet in the kitchen in the soft light of dawn before the day properly began, moving around one another with the ease that comes from long term familiarity. Sometimes we’d talk. Sometimes we wouldn’t. Silence never felt uncomfortable.  
+
+Then came the shift. 
+
+He was handing me my morning coffee. 
+
+“Milk and two sugars, right?” 
+
+I laughed because I thought he was joking. We’d been together for nine years, married for four, and I’d never taken sugar in my coffee. Not once. ‘No sugar, you’re sweet enough,’ he’d say. We had both been sleeping a little less than usual lately. I put it down to nothing more than a brief moment of forgetfulness caused by tiredness. I kissed him on the cheek, took the coffee, and told him not to worry about it. 
+
+Then he started watching me sleep. Now, I’ve always been a light sleeper. A change in temperature or a shift in the light will wake me. For years that sensitivity never bothered me. If I woke in the early hours and turned my head, I’d find Alfie beside me exactly as expected- fast asleep with one arm tucked beneath the pillow, breathing deeply. Recently, though, I’d turn to face him and find him already awake. Not moving. Not on his phone, doomscrolling. Just simply lying there, looking right at me.  
+
+The first time it happened, I smiled at him, still half-asleep, and asked what he was doing. 
+
+“Couldn’t sleep,” he said. “Did I wake you?” 
+
+“No,” I told him, and reached for his hand beneath the covers. 
+
+But it kept happening. Not every night, but enough for me to pick up on it. Each time, the explanation was reasonable: he’d woken early, he’d had something on his mind, he hadn’t wanted to disturb me by getting up.  
+
+Although it made sense, it kept me up at night. There was something about the way he was watching me that bothered me. It wasn’t intrusive or intense. If anything, it was gentle — the same attentive expression he’d always worn around me. But lying there in the dark, meeting his eyes before either of us had fully entered the day, I had the faint, disorienting sense that something was off. I just couldn’t put my finger on what.  
+
+Even with minimal sleep, life continued, as it does; the usual routine of work, dinner, and an evening lounging on the sofa. All the normal things. He became more perceptive than ever- more aware of my moods. Quicker to anticipate what I needed before I asked. It felt, on the surface, like a deepening of the same gentle love he’d always shown me. Which is why when I’d catch him staring, I’d tell myself it was nothing more than a look of admiration. And, for a while, I had no reason to believe otherwise. 
+
+With time, the staring crept its way into the daytime, too. I’d be washing the dishes and would catch him in the reflection of the kitchen window- standing behind me, still as a statue, just… watching me. I’d turn around and he’d spring back to life, tending to whatever menial task had previously garnered his attention. 
+
+He also started repeating things I said. It would happen hours after the initial conversation, sometimes even the next day. He’d do it casually and in a slightly altered context, as though the words had occurred to him independently. 
+
+One afternoon I mentioned that the air in the house felt “strangely heavy”. It wasn’t a particularly unusual observation, just something I had said without thinking as I opened a window. At the time, he’d simply nodded, but then later that evening, as we sat on the sofa scrolling through Netflix, he looked around the room and said those exact words.  
+
+“The air feels strangely heavy.” 
+
+I waited for a sign that he was joking — that he was deliberately echoing me. But instead, he looked mildly contemplative, like the thought was completely his own. When I asked what he meant, he shrugged. 
+
+I know it might not sound like much, but I can’t express how unlike Alfie these behaviours were. There were other changes too, like slightly delayed responses. I don’t think anyone else would have picked up on it, but I knew my husband like the back of my hand. He was changing.  
+
+If I laughed, he laughed, but a little too late. If I frowned, he frowned, but after a pause. It felt like he was mirroring me, as though without my lead he wouldn’t know which emotion to express. 
+
+One evening, after a particularly shitty day at work, I relayed my frustrations to him. It was nothing dramatic, just office politics, the sort of thing we’d discussed a hundred times before. As I spoke, I watched his face. For a brief moment after I finished, his expression remained completely neutral. Then, as if remembering what should come next, his features arranged themselves into sympathy. 
+
+“That sounds frustrating,” he said.  
+
+The words were correct. The tone was correct, too. And yet, for reasons I couldn’t properly justify, I felt uncomfortable. Enough was enough. I decided I would call him out on it, hoping to clear things up to stop me feeling so on edge all the time.  
+
+“You’ve been a bit… different, lately,” I said one day as we cleared the dishes, hoping I didn’t sound too accusatory. He looked up at me, his expression blank. 
+
+“Different?” 
+
+The word hung between us for a moment. I felt a flicker of embarrassment, wondering if maybe I shouldn’t have said anything. I opened my mouth to soften the blow, to explain that I hadn’t meant anything serious by it, but he spoke first.  
+
+“I’m sorry if it feels that way. Work’s been taking up more space in my head than I realised.” 
+
+His voice was warm. Reassuring. Just like always. I nodded, already prepared to let the matter go. But then, in that same even tone, he continued. 
+
+“You’ve seemed a little on edge yourself recently.”  
+
+“What?” I said, surprised. 
+
+“I assumed that maybe you were just tired. You haven’t been sleeping properly.” 
+
+He was right; I hadn’t. With a small, sympathetic smile, Alfie stepped closer, resting his hand lightly against my arm.  
+
+“You’ve been noticing things more, haven’t you?” 
+
+I nodded.  
+
+“Sometimes when you focus on the little things too much, they start to feel bigger than they are.” 
+
+I contemplated his words. It wasn’t until that exact moment I considered maybe I had been the problem all along. The conversation began with me expressing a small uncertainty about him, but now I was questioning myself instead.  
+
+“Yeah,” I eventually replied. “Like you said, I’m probably just tired.” 
+
+From then on, I deliberately tried to stop noticing things, telling myself that it’s easy for ordinary behaviours to appear unusual if you examine them too closely. So instead, when he paused before responding, I’d tell myself he was just thinking. When I caught him looking at me from across the room, I assumed he was just admiring me. When small details slipped — like a forgetful moment or a repeated phrase — I let them pass without comment.  
+
+This worked at first. The house felt calmer. But underneath that calm ran a thin, persistent awareness that I was working quite hard to maintain it- that I was adjusting my own perception so that nothing he did would seem unusual enough to question.  
+
+I snapped out of that mindset one evening when he did something so strange and out of character that I just couldn’t ignore it. I’d been brushing my teeth when I caught him staring again. I spun around and met his gaze, expecting him to smile or say something. He didn’t move, he didn’t break eye contact… he just stood there, hands by his sides, head tilted slightly, staring. Something about his eyes bothered me. They were a little too wide and there was a flicker of something I couldn’t quite place, and with it came a feeling I’d never felt towards Aflie before: dread.  
+
+After what felt like eternity, he parted his lips to speak. 
+
+“You’ve been brushing your teeth for a while now. Everything okay?”  
+
+How long had he been standing there? He walked towards me, eyes unblinking. Instinctively, I took a step back. He noticed, and let out a chuckle, seemingly amused by my uncertainty. I tried to stand my ground as he approached me further, but my body flinched as he raised a hand to my shoulder. Another chuckle.  
+
+“Come on, darling. Let’s go to bed.” 
+
+My heart sank. Darling? He never called me that. I was certain, then: he was different.  
+
+So, in the days that followed, I began testing him. While pretending everything was fine, I purposefully changed small details in my stories to see how he’d react. The old Aflie would have questioned me, maybe gently corrected me, but this altered Alfie didn’t register. Or if he did, he didn’t let on.  
+
+I spoke about the day we first met, describing it as a snowy day in December. He didn’t correct me, so I kept going. I talked about wearing a brown fur coat when we passed each other on the street. I told an entirely fabricated story, watching him closely, waiting for him to burst out laughing or call me out on my bullshit, but he didn’t. He listened without interruption, smiling softly. 
+
+That evening, as we lay in bed in the dark, he rolled onto his side and said softly, “you’re as beautiful as you were the day I met you.” 
+
+I froze, waiting to see if he’d taken the bait. 
+
+“I knew even then that you were someone I could build a life with. That beautiful snowy day changed everything for me.” 
+
+I felt sick. I rolled over and pretended to be asleep. But I didn’t sleep at all that night. I lay there, staring at the wall, wondering where the Aflie I knew and loved had gone. I cried softly as he slept, oblivious to my heartache.  
+
+The next morning, he handed me my coffee.  
+
+“Two sugars,” he said. “Extra sweet, just like you.”  
+
+I set the mug down on the counter a little too forcefully, startling him.  
+
+“We didn’t meet in December,” I said flatly. “It was August. During that awful heatwave. Remember?” 
+
+He looked up at me, confused.  
+
+“No,” he said slowly. “It was definitely December. It was snowing. You were wearing that brown fur coat.”  
+
+I scoffed and shook my head. “I’ve never owned a fur coat in my life. You know I hate fur.” 
+
+He held my gaze, as if waiting for me to correct myself. 
+
+“Are you sure?” 
+
+“Absolutely sure,” I snapped, grabbing the mug and pouring its contents down the sink. “And I don’t take sugar in my coffee.”  
+
+“Yes, you do. You always have. *Two sugars, sweet like you*. Are you feeling alright?” 
+
+“No,” I snapped. “*No sugar, I’m sweet enough*.” 
+
+We stood in silence waiting for the other to cave.  
+
+“Sorry.” He muttered eventually. “I’ve been a bit forgetful recently. I’m sure you’re right.” 
+
+He looked genuinely sorry and I felt a pang of guilt. He hadn’t raised his voice. He hadn’t said anything unkind. And there I was, snapping at him, slamming things about. Something I never did, not even on our worst days. I had acted out of character, and the irony of that was not lost on me. I exhaled deeply, the fight draining out of me as quickly as it had arrived. 
+
+“No, I’m sorry,” I said quietly, unable to meet his eyes. “I shouldn’t have snapped like that.” 
+
+He accepted my apology and kissed my cheek before leaving for work. Once again, I couldn’t shake the creeping suspicion that perhaps this really was all my fault, that I was the one distorting ordinary moments into something they weren’t. I felt like I was losing my mind.  
+
+That evening, I would doubt my sanity once again. I was getting ready for bed, only Scrappy wasn’t on the pillow where I’d left him.  
+
+“Alf?” I called, tearing apart the duvet and searching under the bed. He appeared in the doorway, wearing a pair of blue pyjamas I’d never seen before. He normally slept in his boxers.  
+
+“Mmm?” 
+
+“I can’t find Scrappy,” I said, putting the pyjamas to the back of my mind. “I’ve looked everywhere.”  
+
+I was met with the blank stare I was becoming all too familiar with. 
+
+“Scrappy.” I repeated. “I can’t find him.” 
+
+Alfie pointed to the cupboard.  
+
+“Why’s he in there?” I asked.  
+
+“You put him there.” 
+
+“What? No, I didn’t.” 
+
+“Uh... yeah? You did. You definitely put him in there this morning, I watched you do it.” 
+
+I tried to think back, but all I could remember of that morning was Alfie’s sorry expression and the guilt I’d felt for accusing him of being different. A dull ache pulsed behind my eyes, so I closed them, pinching the bridge of my nose. Maybe he was right. Perhaps I’d accidentally tidied Scrappy away. That didn’t feel right to me, but it wasn’t entirely impossible.  
+
+I couldn’t focus in the office the next day. He had definitely been wrong, hadn’t he? Of course we met in the summer… right? Had I really put Scrappy in the wardrobe by mistake? Then I started to wonder if it even mattered at all. I eventually concluded that perhaps it didn’t, and, once again, I was prepared to let it all go. I stopped by the bakery on my way home from work to get some of those blueberry muffins he loved. A peace offering. A way to put this whole thing behind us.  
+
+I let myself in the front door, box of muffins tucked under one arm. Before I could shout ‘hello’, I noticed him sitting on the sofa with his hands placed neatly in his lap.  
+
+He wasn’t doing anything. Just sitting there, staring at the TV.  
+
+It was switched off.  
+
+Our eyes met in the reflection of the black screen, and he slowly turned to face me. He raised his arm, robotically, and gave a forced, unnatural wave of his hand. 
+
+“Ah. You bought muffins,” his voice was devoid of emotion. “Chocolate?” 
+
+“Blueberry…” 
+
+“Oh.” His mouth formed a thin line, and he slowly turned away from me. 
+
+“I thought they were your favourite,” I said to the back of his head. 
+
+“I’m allergic to blueberries.” 
+
+I stood there, dumbfounded. He absolutely was NOT allergic to blueberries. He wasn’t allergic to fucking anything. Anger surged through my veins, but I bit my tongue. He was messing with me; he had to be.  
+
+“You weren’t the last time you ate them,” I muttered. 
+
+“Look,” he replied, taking a deep breath and turning to face me. “I don’t know what’s going on with you recently, and I didn’t really want to say anything, but I’m starting to get worried. You keep getting things confused and it’s clearly making you angry. That’s so unlike you. You’ve just been so… different, lately.”  
+
+“Me?” I scoffed. “You’re the one who keeps staring at me and copying me and being all fucking weird!” 
+
+I had never raised my voice at Alfie before. He looked shocked, then disappointed. He shook his head solemnly.  
+
+“See what I mean?” he said, quietly. “You’ve got it all backwards. You’re the one doing all those things. I wake up in the night and you’re just… watching me. Staring at me. And you keep repeating things I’ve said- really weird, insignificant things like ‘oooh, the air feels strangely heavy in here’, when I’d literally said that exact phrase only hours before.” 
+
+What? There was no way. That couldn’t be possible… could it? My heart began to thud and my head spun, causing me to stumble backwards. Alfie jumped up and rushed over, offering me his arm. I took it, trying to swallow the sickness that was creeping up from the pit of my stomach.  
+
+“Let’s talk about this later, okay?” he said softly, before kissing my forehead. “Why don’t you go take a nice bath? We can both take a moment to cool off, and we’ll have a chat this evening. Sound good?” 
+
+I nodded. 
+
+I took myself upstairs, locking the bathroom door behind me. For a while I just stood there, hands clutching the edge of the sink as I stared at my own reflection. The skin under my eyes was puffy, almost purple. I tried to slow down the sudden, shallow rhythm of my breathing.  
+
+How could I possibly be the one in the wrong? I was certain that blueberry muffins were his favourite. We’d had blueberry cake at our wedding, too. It had this beautiful pale, baby blue icing, with fresh blueberries cascading down one side. I was sure of it. I made a mental note to dig out the photo album later and prove it to myself. 
+
+I turned the taps on, letting the bathroom fill with steam as thoughts whirred around in my mind. I squeezed my eyes shut as a sharp, pulsing headache pressed behind my temples. I shifted my focus to the sound of the rushing water, waiting for the pain to fade into a dull ache. When I opened my eyes, the water had nearly risen to the rim of the tub. I lurched forward and twisted the taps, not bothering to question how long I’d zoned out for.  
+
+I lowered myself into the bath. The house was quiet and the warm water offered some sense of comfort. My eyelids grew heavy and I allowed them to close, focusing on my breath. In, out. In, out. I stayed like that for a while, before drifting into a dreamless sleep.  
+
+A loud creak woke me up. I glanced over at the locked door. The thin strip of light beneath it dimmed suddenly. A shadow. Every muscle in my body went rigid as I stared at that narrow line. 
+
+Someone was standing there. Right on the other side of the door. Not moving. Not knocking. Just… there. I could feel it in the air, the way you can feel someone’s presence even without seeing them — that unmistakable awareness of another body occupying the space just inches away from yours. Seconds dragged past, heavy and distorted. My heart pounded.  
+
+Then, without warning, the shadow vanished. Erratic footsteps tore down the hallway outside, thundering away from the door. Too fast. Too uneven. A chaotic scramble that sent a violent jolt through my entire body. 
+
+I flinched so hard that the water sloshed over the side of the tub. 
+
+The sound stopped as abruptly as it had begun, leaving behind a suffocating silence that pressed in from all sides. Had that really just happened? Had I been dreaming? 
+
+In a daze, I reached for a towel and dried myself off. In the bedroom, I put on my pyjamas, grabbing Scrappy from the bed and pulling him close to my chest. I lingered in the doorway for a moment before forcing myself into the hall and down the stairs. When I reached the bottom and looked into the living room, I stopped.  
+
+Everything was wrong. The sofa was pressed up against a different wall with a blanket I’d never seen before folded neatly over the back of it. The TV sat on the other side of the room. In fact, every piece of furniture was in a completely different place. I looked at the curtains. They used to be grey, but now were blue. The candles on the side table were green, not orange. But most disturbingly of all… there, on the mantelpiece, was a photo from our wedding. Slowly, I edged towards it. 
+
+“Babe?” Alfie appeared from the kitchen. I lent in, examining the picture. We were cutting the cake. 
+
+Our plain, white, wedding cake.  
+
+I collapsed to my knees. Alfie hurried across the room, his footsteps quick but careful. He crouched down beside me, lifting my chin with his finger. 
+
+“Hey… what is it?” he asked, his voice low and soft. The kindness in it was too much. My chest tightened and before I could stop myself, I began to cry. I buried my face in his chest, clutching his shirt. He wrapped his arms around me without hesitation, holding me close as I shook against him.  
+
+“It’s going to be okay,” he whispered. “I’ve got you.” 
+
+I took the next few days off work, and so did Alfie. I didn’t ask him to, but he insisted. He held my hand as I made a call to the doctors, setting up an appointment for the following week. He brought me coffee; black, no sugar. He even rearranged the furniture just to put me at ease.  
+
+“Huh. I like it better this way,” he said, as he stood back and admired the room. I smiled. 
+
+“Thank you,” I said, weakly. My head still throbbed and my eyes were still crusty from all the tears, but I felt okay. For the first time in a while, I felt hopeful. Alfie was right. It was going to be okay.  
+
+We went to the appointment together. The doctor didn’t look at me when he spoke. 
+
+“Stress,” he said, tapping something into the computer. “And exhaustion. Very common.” He printed the prescription and handed it to me. “These will help you sleep. Deep sleep- that’s what you need.” 
+
+Alfie squeezed my hand with a reassuring smile.  
+
+The first week of taking the tablets was bliss. I’d pop a pill and fall asleep within minutes. And it was a good sleep, too. Dreamless, like I was dead to the world. But nothing lasts forever, apparently, as sometime during the second week I started feeling the side effects.  
+
+I kept having these awful nightmares. In them, I’d wake up to find Alfie acting strangely. In one dream he was completely naked and hunched over, his mouth hanging open in a wide, unnatural smile that stretched the skin of his cheeks. In another, I rolled over in bed to find him staring at me- his eyes so wide I could see the whites all the way around the irises. Every time, I’d squeeze my eyes shut, willing the dream to end. Eventually, I’d fall back asleep and wake up sometime later in a cold sweat.  
+
+I’d tell Alfie about the nightmares each morning. He’d listen, frowning, equally as disturbed by them as I was. He suggested that perhaps my brain was just adjusting to the medication, that eventually the dreams would stop.  
+
+“I hope so,” I said. “I don’t know how much more of this I can take.” 
+
+“They’re not real, remember? Just dreams.” 
+
+I nodded. “Just dreams.” 
+
+That night I awoke suddenly, heart thudding. I sat up. The bedroom door was slightly ajar, and at the end of the hallway, something moved. 
+
+He was there. On all fours. 
+
+My husband was crouched at the end of the corridor, his spine arched strangely high. His head hung low between his shoulders. His eyes were wide, wild, and fixed on me. 
+
+“Alfie?” 
+
+His mouth opened. That same huge, silent smile.  
+
+Then he moved. 
+
+With a jerking of limbs he scurried at an inhuman speed, palms and feet slapping the floor as he rushed towards the bedroom.  
+
+I shrieked and threw myself back into bed, dragging the covers over my head. The mattress dipped as he climbed onto it. I squeezed my eyes shut and held my breath, waiting for fingers, teeth, anything… 
+
+I woke gasping for air. 
+
+Morning light filled the room. The door was closed, Alfie’s side of the bed cold and empty. 
+
+That night, I didn’t take a tablet. I kept this information to myself, not wanting to concern Alfie. I waited until he was in the bathroom, then slipped the tablet back into the bottle and returned it to the bedside drawer. When he came to bed, I pretended to swallow it with a sip of water. 
+
+I lay awake for hours, waiting for nightmares that never came. At some point, Alfie stirred next to me. I closed my eyes and pretended to sleep, not wanting him to question why I was awake. I felt a soft tap on my shoulder. Damn it, I thought. He’s onto me.  
+
+I kept my breathing slow and heavy, counting a few seconds before stirring to make my sleepy act seem more convincing. When I rolled over, his voice came from across the room. 
+
+“*Over here*.”  
+
+When my eyes adjusted to the night, I saw him standing rigidly in the corner of the room. His eyes bulged from his face, as though something inside his skull was pushing them outward. Saliva dripped from his gaping mouth, which was stretched into a wide, panting grin.  
+
+Something at his side shimmered in the light of the moon. A knife.  
+
+I couldn’t move. Couldn’t speak. I watched in horror as he slowly raised the blade to his neck, dragging it gently across his throat in a silent, mocking promise. I shut my eyes tightly and turned away, burrowing beneath the duvet, my body locked in terror as I felt him crawl back into bed. He fell asleep not long after. I lay awake trembling, still unable to move. 
+
+When the morning light finally crept through the curtains and I heard him rise to start his day, I realised what I’d witnessed hadn’t been a dream at all… because I had never fallen asleep. 
+
+I made a plan to pack up my things and get the hell out of there. Whether I was imagining it or not, I couldn’t risk staying in that house with him.  
+
+He checked on me before leaving for work. As I lay in bed, pretending to be sick, I mumbled some excuse about calling the office to tell them I wasn’t coming in. He rested his hand on my forehead, and it took every ounce of my being not to recoil.  
+
+“You do feel clammy,” he said, feigning a look of concern. “Do you want me to stay with you?” 
+
+My pulse raced. 
+
+“No,” I said, trying to sound casual. “No point. I’ll be asleep for most of the day, I imagine.”  
+
+He nodded.  
+
+“Okay, well... take it easy. I’ll be back this evening to look after you. I love you.”  
+
+I waited for the sound of the front door to close behind him before springing out of bed. I just needed the essentials: my keys, my phone, my charger, my purse. I’d figure the rest out later. I shoved my things into a bag and hurried down the stairs.  
+
+Shit. Scrappy.  
+
+I ran back up to the bedroom. He wasn’t on the bed. He wasn’t under it.  
+
+The wardrobe.  
+
+I flung open the cupboard and rifled through its contents. He was buried beneath a pile of clothes that had fallen from their hangers. I went to grab him, but something else caught my eye.  
+
+The glossy corner of a photograph peeked out from a small gap in the back panel of the wardrobe. A sickening thought crossed my mind. Pressing gently against it, the panel shifted with a soft, reluctant creak, revealing a narrow seam that hadn’t been there before. Heart hammering, I pushed it further. It was a secret compartment. 
+
+I took a closer look at the photo that had led me to this discovery. Vomit rose in my throat, my hands shaking as the picture fell from my gentle grasp. 
+
+It was us on our wedding day. Cutting our cake.  
+
+Our blueberry cake.  
+
+Reluctantly, I lent forward, peering into the compartment. Our photo albums were back there, but they looked different. I pulled one out and opened it. 
+
+On every page, sticky notes clung to the photographs. Frantic arrows, underlines, suggestions… The notes didn’t describe our memories; they dissected them, speculating how each image could be changed, reframed, and made to say something else entirely. There was a picture of us in the living room when we first moved in together. The furniture was exactly where I’d remembered it being.  
+
+A cold, sharp dread settled in my chest as the pieces fell into place. 
+
+Every conversation that had left me doubting myself, every time I caught him staring at me, every odd behaviour, every time he’d convince me I was the problem… all of it had been orchestrated. By him. By Alfie. By the love of my life.  
+
+The slow erosion of my sanity hadn’t been accidental. For months and months he sewed the seed of doubt in my mind- manipulating me, tricking me, fucking gaslighting me. All of it had been real, and all of it had been him. 
+
+I sat there on the bedroom floor, a sea of emotions rushing through me. I felt everything all at once, and it was too much for me to deal with then and there. A voice in the back of my head told me it would take years of therapy to unpack this. I wouldn’t be able to trust anyone ever again.  
+
+Numbly, I retrieved my belongings and descended the stairs. The urgency I’d had only minutes ago had completely left my body. There wasn’t room for it.  
+
+I was halfway to the door when it opened toward me.  
+
+“Only me! I forgot my-“ 
+
+We stopped. Our eyes met. With a look of concern I knew was pretend, Alfie examined my face- checking for tears, for anger, for anything that might tell him what he was walking into. I watched him do it. I watched the familiar softness appear, that careful attentiveness he wore when he thought something was wrong.  
+
+Then he saw it. He saw that I knew.  
+
+His concern vanished in an instant. It was as if a switch had been flipped behind his eyes; the warmth replaced with something icy and cold.  
+
+“You figured it out.” He said.  
+
+I didn’t shout. I didn’t cry. I didn’t run. I simply looked back at the stranger in front of me, the love I once had for him non-existent.  
+
+“Why?” I asked. “Why did you do it?” 
+
+He shrugged.  
+
+“No.” I said. “I need an answer. It’s the least I deserve.” 
+
+His eyes were steady and clear, but eerily empty, as if nothing human stirred behind them. 
+
+“To see if I could.” 
+
+And that was it. All that he’d done- all that he’d put me through… there was no reason, no master plan. It was all for sport.  
+
+I pushed past him, door closing behind me as I headed for my car. I sat with my hands on the wheel as I stared back at the house we’d shared together. It was nothing more to me now than a pile of bricks.  
+
+While reversing out the drive, unsure of where I was going, a realisation hit me. I understood with a cold and final clarity that the most terrifying part wasn’t what he’d done. It wasn’t why he’d done it. It was how easily he would go on living now- untouched, unbothered- while I gathered the scattered pieces of my mind he had so carefully, deliberately broken…  
+
+*…just because he could.* 
 
  
-
-All my life, I’d been filled with thoughts of inadequacies. Everything I had ever done was neither worth any praise nor so bad that it warranted the thoughts of depression I had felt my entire life. Yet after so many years of mediocrity, it had eroded my confidence down to a fine grit. I had tried medications and therapy, which helped for a little while, but the thoughts always crept back into my mind.
-
-So, when an online email came to me promising to change my life, I paused before checking it off with the rest of the spam that had made it through the filter. I opened it up to see what the sender was selling.
-
-\*Confidential, one-time process. Change your way of thinking. We are testing an experimental procedure, and looking for volunteers to try out a breakthrough in the field of mental health.\*
-
-Underneath was an address just a few hours' drive away. What did I have to lose?
-
- 
-
-I drove in silence through the miles of unending pavement and trees. I had stopped pretending like music did anything to drown out my thoughts. All it did was warp the words into my own personal taunts and accusations. Silence was at least my own thoughts by themselves, no added percussions to turn my self-doubt into a catchy theme song.
-
-Pretty soon, I’m sure I’d be reduced to a husk of a person. Smiling to everyone on the outside while behind the mask, fighting the endless barrage of insults only I could hear. I looked at myself in my rearview mirror. My hollow, sunken eyes reflected how I felt inside, just a passenger in a borrowed body.
-
-Finally, I pulled into the parking lot of the old building I could barely see through my fogged windshield. Part of the foundation sank into the ground as if the earth was trying to reclaim the stolen rock. It looked abandoned, covered in ivy and cracks, both wrapping the building like gift wrap made of decay. I thought about turning around. I looked at the address on my phone's cracked screen and compared it to the shadows of the numbers on the building, which had long since fallen off.
-
-This was it.
-
-“Are you here for the procedure?” A calm, emotionless voice startled me.
-
-She was wearing a black parka and a knit cap pulled low. She hadn’t made a sound- as if she had just appeared behind me.
-
-“Y-yeah,” I stammered, fiddling with the broken zipper of my thin jacket. It did little to protect me against the harsh gusts of icy air.
-
-She tilted her head quizzically as if studying me, then asked, “What for?”
-
-The question caught me off guard. “I uh…what for?” I repeated
-
-“What are you hoping to get out of it?” She pressed.
-
-I hesitated, nervously, “I…I don’t know. Purpose, maybe? I want to be useful again.”
-
-She nodded, as if I’d answered correctly.
-
-“Doctor \[Redacted\] Carter.” She replied confidently as she walked past me, “Follow me.
-
-She moved ahead confidently, closing the distance between her and the dilapidated structure. Her boots crunched the packed snow.
-
-"I'm Elijah," I said, "Elijah \[Redacted\]."
-
- I followed.
-
-The door strained and groaned as she swung the heavy metal open. She led me down a white, sterile hallway with blinding white fluorescent lights that made me dizzy just looking at them. It was warm inside, like a sudden fever had taken over me.
-
-The inside was jarringly different from the outside. One minute, the world had been trying to reclaim the building, and the next, it was clean and pristine, almost like it had been waiting for me.
-
-She opened another door that led to another sterile room.
-
-Doctor Carter gestured to the padded recliner in the center of the room. Everything around it was clinical and polished. Again, white walls and more of that fluorescent light. Beside the chair was a small machine on wheels; lights blinked intermittently next to the monitor.
-
-“Please,” she said. It sounded professional, but rehearsed. Like she had said it a thousand times before
-
-I sat down awkwardly; the vinyl was warm against my back, and somehow, I still felt uneasy. I told myself that it was just because it reminded me of a dentist’s office; maybe this place had been repurposed. There was a faint chemical smell in the air, cleaning supplies, perhaps.
-
-She took a seat on the rolling chair, pulled up to the monitor, and began typing.
-
-“So, when was the last time you felt like yourself?” She asked sharply.
-
-I hesitated, “I… I don’t know how to answer that.”
-
-“That’s okay, most people don’t,” she typed and continued, “and do you want to be fixed or be free?”
-
-“Fixed,” I answered too quickly, “Free? Maybe both?”
-
-“Last one,” she said, finally stopping to look at me, “do you believe thoughts can be shared?”
-
-I blinked, staring at her piercing blue eyes.
-
-“Like telepathically?” I asked.
-
-“Not necessarily. Shared. Understood. Merged. Distributed.” Her words were strange, yet they made sense.
-
-“I think so,” I replied, “I mean, even strangers can think the same things. So maybe not like a signal, but yeah, it’s possible.”
-
-She smiled as if that was the response she had hoped for. She handed me a small elastic headband fitted with wires and metal contact points.
-
-“Please put this on.” She offered.
-
-I slipped it over my head. Cold metal beads pressed against my temples.
-
-“You’re going to sleep now.” She explained, her fingers clacking across keys on the computer. “When you wake up, you’ll know what to do.”
-
-She hit a final key, and before I could open my mouth to ask anything else, I felt myself drift off as my vision closed in around me. The world stretched and warped, as if it were running away from me.
-
-Then - nothing.
-
- 
-
-\*\*\*
-
- 
-
-My eyes opened slowly. It wasn’t like I was waking up, but like my consciousness was surfacing from underwater. The first thing I noticed was the light. Patches of smoky iridescent twilight stretched up to treetops like cathedral pillars. Mist swirled around the moss-covered tree roots.
-
-I sat up slowly, my palms sinking into soft soil and rounded stones. It didn’t feel cold, although it didn’t feel warm either. It was like the sensation had been turned off entirely. The air smelled like moss and wet tree bark.
-
-My head felt clear.
-
-No voices clambering to whisper cruel nothings to me or narrate all my past failures on repeat. There was only the sound of the still wind and the slight sway of the trees.
-
-In front of me, there was a stone path that cut through the woods, twisting and winding like a path on a game, telling you where to go.
-
-I guess that’s what she meant. Can’t really mess up something that’s in your face like that. I took a step forward and another, my feet clacked on the stones and crunched the dying leaves underneath.
-
-This was one hell of a simulation.
-
-I walked down the gently curving path until the air suddenly felt still. The trees glitched. It felt too still, like the forest was suddenly holding its breath. I heard the faint humming, like an old refrigerator. I walked forward on the path, the sound growing louder and more familiar as I went.
-
-My steps changed from crunching leaves and clacking stone to cold, hard linoleum. The trees dissolved like ink in water and were replaced by the dark wood of an old kitchen. The woodland air turned sour and stale, and suddenly I was standing in a dim, musky kitchen with a black and white checkered floor.
-
-Broken cabinets, either hung from hinges or missing altogether, stuffed with trash or laid bare. The only sign that it had ever been used to store food was a single crushed tin.
-
-The refrigerator, which held the scribbled drawings of a child, sat in the corner. I knew just looking at it that it was empty, and the lights were out.
-
-My chest tightened.
-
-This place had never really left me. As much as I had tried to repress it, this was one of the memories that echoed my self-deprecation every day in those whispers that only I could hear.
-
-A small boy, about ten years old, walked through the door and stared at my feet. I turned around and saw a woman lying on the ground, face up. Her eyes were glassy, and her skin pale. A rubber tourniquet was still wrapped around her arm, and the needle was clutched in between her fingers.
-
-I remembered this now.
-
-“Mommy?” The voice of my younger self cracked. I heard tiny feet shuffle a few steps forward and stop. “Are you sleeping?”
-
-Even back then, I knew what had happened. I choked back my emotions and watched as the simulation crackled out and turned to static.
-
-My eyes were trained on the stone path of the forest floor. A screen appeared in front of me with two options.
-
-In green was ‘accept’ and in red was ‘erase.’
-
-The screen sat there illuminated in front of my face, the two options slowly pulsed like a heartbeat, inviting me to make my choice.
-
-My hand twitched toward ‘accept’ - reflex, not decision. I paused.
-
-This memory had hung over me for years, casting its shadow over my life like a balloon tied to my back, where I couldn’t reach the string to let it loose. Now, though, someone had just handed me a pair of scissors.
-
-I remembered how her hand clutched that syringe tighter than she had ever held my hand. I remembered how cold the room felt, a chill that had followed me for the rest of my life. I remembered the stillness and the silence that followed my childish question; that silence wrapped itself around my neck like a noose and tightened any time I dared to let anyone else get close to me.
-
-That moment taught me that love was fickle and could be traded for a lighter, a baggie, and a spoon.
-
-But I also remembered the days she wasn’t drowning. When she’d come home from a long day at work and wrap me up in a loving embrace that smelled like cigarettes and cheap perfume. Then she’d tickle me until I was roaring with laughter. I remembered how much she tried before she was taken over by the monsters that walked my streets every night.
-
-Those were the monsters I was afraid of the most.
-
-If I got rid of this, would I get to keep those good days? Would it just be a blank space left behind that no longer had a name?
-
-I tapped erase, and I felt the weight of that memory replaced by… nothing. There was no explosion, no flash, just emptiness. In its place, I had continued the rest of my life without a mother. The grief was gone. So was the love. So was she.
-
-There was just an empty grey house in that spot, a place no one had ever lived in.
-
-I raised my head and turned to continue the path. It went on for several minutes in silence. Just the eternal onset of a coming evening and the rustling leaves in the trees.
-
-A second glitch. The air grew still again, and as I walked, the cobbled stone turned to hard, flat pavement. The sound of rushing water below me and cars rushing past. The air smelled like exhaust and winter.
-
-There she was, Marin.
-
-I couldn’t believe my eyes as I watched her leaning against the guardrail, typing on her phone. I could almost smell her strawberry perfume. She was wearing that green coat she loved. Her breath was fast as she finished tapping the keys on her phone, tears in her eyes as she finished.
-
-I instinctively reached for my pocket and felt the sharp vibration of my old flip phone. I opened the message from her.
-
-\*I’m sorry I couldn’t be enough for you.\*
-
-She climbed onto the bridge, and I ran forward. I knew what happened on this day, but I didn’t want to relive it.
-
-“No, no, no,-” I screamed.
-
-I reached out to grab her hand, but I passed right through her. She turned around, balancing herself with one hand, and paused to take one last look. I saw the sadness in her tear-streaked green eyes.
-
-God, how I missed those eyes.
-
-My old Honda screeched to a halt, another me got out of the car. The shock of the car pulling up so abruptly threw her off balance. She had one last look of sadness in her eyes as the simulation froze.
-
-I stared up at her, the hurt and confusion imprinted like a statue of my mistakes. She was broken, just like me, and in one of my breakdowns, I had let her think the worst of herself.
-
-I was never good enough for her, but I loved her too much to let her get away. Instead, I let her love me back. We were both broken. That’s what made us hold on so tightly; in the end, it just made it cut that much deeper. Now, staring at the culmination of that relationship, I saw all of my regret in one still, silent photograph.
-
-I had loved her, but I didn’t know how to be loved back.
-
-The screen appeared again.
-
-ACCEPT in green.
-
-ERASE in red.
-
-My hand didn’t move this time. I weighed the options, thinking about this decision. If I chose to erase it, was it mercy for her or for myself? Or was that just the coward's way out? I had held on to this pain and regret for so long.
-
-My fingers trembled between the options as I recalled the memories we had shared.
-
-I remembered late nights watching cheesy rom-coms, laughing late into the night, and waking up late for work the next day. I remembered the way she would laugh at my jokes, even the ones that weren’t funny.
-
-I remembered sharing my darkest times with her, her head on my shoulder, and our hands wrapped up together while we shared our tears and let our pasts air out. Secrets we had coveted, now shared between us.
-
-I remembered the fights. The times I sat stone silent, shutting her out because I didn’t know how to let her in.
-
-We were two cracked mirrors trying to see ourselves in each other, cutting ourselves every time we reached out.
-
-I stared at her. Frozen in time, just like this moment had left me. I wondered if she had ever forgiven me. I hoped she had.
-
-But hope was a shape I could no longer hold on to.
-
-I pressed erase.
-
-The scene glitched, and both Marin and the car vanished. The forest slowly trickled in as the memories fled my mind like a breaking dam.
-
-I still remembered I had an ex named Marin, but everything about her was gone now. The smell of her perfume, the way she looked at me, and most of all, her texture. Gone. It felt like remembering a dream after you had just woken up. It made sense when it was there, but the details just didn’t quite fit anymore.
-
-I turned again and continued down the path.
-
- 
-
-I walked for what felt like an eternity. The path stretched on forever through the forest until it came to a sudden end. There was no more path. I stood there at the end of the stones, looking around for what to do. The air was still again, but nothing glitched, nothing was out of place. It was just the end of the road.
-
-I took a step forward, and the forest around me seemed to fade into the background.
-
-I reached out and felt the cold tinge of glass against my fingers. I turned and saw another version of me, wearing a thick turtleneck and glasses, sitting in a large chair holding a book with my name on it titled \*Struggles of a Broken Mind\*.
-
-“Our pain could have changed lives,” he said, tapping a finger on his book, “instead, we stopped letting our words flow and gave up.”
-
-Another, in a different mirror, wearing a white lab coat and a stethoscope draped on his neck. A doctor. His coat was pristine, and his gaze was sharp and cynical.
-
-“Dropping out after just two months,” he chided, “We could have been so successful.”
-
-The glass at my fingertips pulsed with something alive behind it. I turned to it and saw another me smiling with Marin and holding two kids, one by the hand and the other cradled in his arm.
-
-“If we had just let her love us, this could have been our life.” He said with a genuine smile.
-
-I looked at the other mirrors, another me on a motorcycle. He looked fulfilled, no hollow eyes or pale skin. He was tanned, toned, and well-traveled. He had escaped the delusions of the voices and outrun the doubts.
-
-“We could have been free.” He said, “We should have taken that trip and just kept going. Ride the waves of life instead of letting them pull us under.”
-
-I turned and saw myself alone, but this one wasn’t like me. He didn’t wear a mask, and he didn’t look like he ran from his problems. He looked content with his life, regardless of not having had massive success. He had accepted his burdens.
-
-“We should have stopped listening to the doubts.” He said his hands were in his pockets. “We could have been any one of these, Elijah.”
-
-I fell to my knees, staring at the blank mirror. The other Elijahs just sat there silent, their eyes on me, judging or maybe mourning. My reflection appeared in the blank mirror, a pitiful man with a pale face, sunken eyes, and borrowed skin. I crawled closer, and so did he.
-
-This was the real me, the origin, the failure.
-
-The options appeared in the mirror.
-
-ACCEPT
-
-ERASE
-
-I shuddered looking at the options. This was no longer memories being cut out like before; this was me.
-
-I turned back to the other versions of me, the writer. His eyes sunken like mine, darkened like ink from long sleepless nights.
-
-The doctor, cold, calloused. He looked like he didn’t even care for the people he saved, only the results of his work.
-
-The family man, he wouldn’t even look at me. He simply played with the children he had raised.
-
-The wanderer. Healed, but always alone. Always on the run from the echoes that still plagued his mind.
-
-The healed one. The one I was most envious of. He just stood there, silently watching. He said nothing; he didn’t have to.
-
-I turned to look at my ghostly reflection staring back at me. I’d walked this road too long and too far. I had spent an entire lifetime in almosts and excuses, drowning under the weight of my grief. I was nothing more than a hollow man wishing for a way out.
-
-I was tired of wishing I was someone else, tired of holding on to that regret.
-
-My hand hovered over the green accept, and then I pressed erase.
-
-The mirrors vanished like smoke, one by one, until I was left staring at myself. My own reflection slowly fades like a whisper of a dream I had once long ago.
-
-It was only me now.
-
-No more potential, no more possibility, nothing left to compare myself to.
-
-I sat there for a while, staring out at the path that stretched out in front of me. I wasn’t sure what to do. I didn’t think there were any more choices to be made, but I guess I was wrong.
-
-Finally, I stood, my legs weak as I continued on the path. I don’t know how long I walked for; it must have been some eternities, I don’t know. I felt like there was no time here anymore. I felt numb to everything.
-
-Eventually, through the trees, I saw the path split. I stopped as I reached the end and looked down each short path.
-
-One led to a simple metal door with a tiny window that flickered fluorescent light. A sign marked above it read \*EXIT\*. I could hear the soft hum of the bulbs just beyond.
-
-The other path led to a strange pond surrounded by strange trees. They seemed both alive and mechanical; their roots seemed to turn into cables feeding into the edge of the pond. Lights danced across tiny dots that played on the trunks like music notes.
-
-I looked back at the door, its promise inviting the way out. Back to reality.
-
-I took a step to the pond, then another. My body followed the path to the edge of the water, where I knelt and looked into the white waters. It didn’t reflect me; the waters were placid and still.
-
-I reached down and touched the surface; it felt like static. Dr. Carter's words echoed in my mind.
-
-\*When you wake up, you’ll know what to do.\*
-
-I had chosen to erase everything that made me what I was: my pain, my joy, my past; it was all gone now.
-
-I stood and looked back at the door again. It was just a few feet away, promising the way out. I wasn’t sure I wanted that, though. That door was no longer freedom; it was a humming prison sentence full of new pain and regret.
-
-I turned back to the white watered pond, its unknown promises beckoning me in. I stepped into the static waters, no rippling on the surface at all. It was shallow. I felt a hum that pulsed something that resonated in my entire being like a pulse. It was like a heartbeat had begun, like a machine had come alive.
-
-I stretched my hands into the water and welcomed the full embrace of whatever was to come. I felt the cold static ripple across my skin as I closed my eyes and let out my breath.
-
-And then - I let go. 
-
- 
-
-\*\*\*
-
- 
-
-Dr. Carter descended the lift with me lying on the chair, down past hundreds…thousands of blinking lights. I stared at the shrinking fluorescent lights growing smaller and smaller as we went.
-
-Finally, it stopped, and Dr. Carter pulled out a small device. She pressed a button and spoke into it, her voice cold and clinical as always.
-
-“Subject 9852216, Elijah \[Redacted\], successfully integrated. Thought pattern stabilized. Depression resolved via cognitive transcendence.” She rattled on like a report.
-
-She disconnected the wire from the computer that led to my headband and reconnected it to a slot in the wall.
-
-“Interfacing subject to network.” She continued.
-
-“Dr. Carter,” I muttered, my voice frail.
-
-She looked down at me and smiled. “Don’t worry, Elijah, you’re going to be more useful than you’ve ever been.”
-
-She fitted a mask over my face, and I was blind to the outside world. I felt my padded bed slide and heard a door close. The next thing I felt was a thick, viscous liquid covering me all over.
-
-I felt a zing of an electrical shock and saw a tiny green light flash in my eyes. Then it turned off, and then came back on again. It continued to blink, over and over and over again. Like a heartbeat that was not my own.
-
-I smiled at the blinking light.
-
-I was finally useful; I could feel it.
-
-If you’re out there and you get an email about a procedure that can change your life, don’t delete it. It might be able to keep it's promise.
-
- 
-
-\*\*\*END BROADCAST\*\*\*
