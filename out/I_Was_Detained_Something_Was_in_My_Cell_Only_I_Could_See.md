@@ -434,10 +434,8 @@ My tender little three-year-old holds none of this, and I pray she never will.
 
 Life will serve the lessons, but the lesson will always hold a choice.
 
-We always have a choice.
-
-\*
-
-[\[MaryBlackRose\]](https://www.reddit.com/r/BlackRoseOriginals/comments/17qnb8a/where_to_find_my_work_how_to_contact_me/)
+We always have a choice.  
+\*  
+[Read more by: \[Mary Black Rose\]](https://maryblackrose.com/reddit-visitors-welcome-page-1/)
 
 \*
