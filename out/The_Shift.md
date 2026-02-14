@@ -358,7 +358,7 @@ He shrugged.  
 
 His eyes were steady and clear, but eerily empty, as if nothing human stirred behind them. 
 
-“To see if I could.” 
+“Because I could.” 
 
 And that was it. All that he’d done- all that he’d put me through… there was no reason, no master plan. It was all for sport.  
 
