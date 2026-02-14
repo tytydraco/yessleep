@@ -52,7 +52,7 @@ Chris gave a polite wave. “Nice to finally meet you.”
 
 Noah nodded. “I’ve heard good things. Mostly about your forensics work.”
 
-She raised an eyebrow at Derek. “That so?”
+She raised an eyebrow at me. “That so?”
 
 He shrugged. “Yeah, dealing with murders and stuff isn't my thing, but I do IT work.”
 
@@ -64,7 +64,7 @@ She laughed softly. “You could’ve led with that. You know I’m always happy
 
 Chris cleared his throat. “And also maybe illegally access some data.”
 
-She looked at him. Looked back at Derek. “Ah. For one of your cases?”
+She looked at him. Looked back at me. “Ah. For one of your cases?”
 
 Noah stood, lifting his laptop onto the table. “This is like, military grade encryption. We grabbed it, but I can’t crack it without tripping the alarm.”
 
@@ -106,7 +106,7 @@ She shot him a look. "Really?”
 
 Chris smiled thinly. “Hold onto your seat.”
 
-Derek took a breath. “After I left the department… I didn’t exactly retire.”
+I took a breath. “After I left the department… I didn’t exactly retire.”
 
 Her eyes flicked to him. “I figured, one moment they were saying you're fired, then early retirement.”
 

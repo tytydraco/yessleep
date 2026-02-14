@@ -20,7 +20,7 @@ Ethan shifted, bracing one hand on the chair as he adjusted his position. I coul
 
 "He told me everything," Ethan said, "about the anomalies, the monsters, how they've lost good people trying to fix all of this. He wants to force it closed, collapse it for good."
 
-Derrick frowned. "That’s what we’ve been doing."
+I frowned. "That’s what we’ve been doing."
 
 Ethan shook his head. "No, he said what you’ve been doing is easing the pressure, not locking the door."
 

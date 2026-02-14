@@ -455,3 +455,5 @@ The winter storm hit hard, the road became completely inaccessible.
 I’m stuck.
 
 \-Dr. Laura Cotts
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1r4m4z2/the_disappearance_of_saltpines_573_residents_part/)
