@@ -4,6 +4,10 @@ I think I should start at the beginning.
 
 I do remember it quite clearly, my first day at Saltpine because it was the day of a funeral. The drive was long, several hours from where I lived closer to the border, a place I found after school. There was no snow on the ground yet. Instead, there was a crispness in the air, and you could see your breath. The last few leaves on the trees were holding on for dear life that October day, and every step was a crunch of ice from the last rainfall, or the leaves, dead and crisp. It smelled like fall, but it also smelt like the oncoming snow. Heavy, and foreboding, the grey clouds stood thick in my vision.
 
+**‘Welcome to Saltpine!**
+
+**Population: 592’**
+
 I drove into the main street downtown, the centre of the town, looking to the strange procession of formally black dressed residents, feeling cold. A shiver up my spine, as I quickly turn the heat up, and pull over. I can see a car behind me, blinkers on, a funeral procession as cars behind the dark hearse follow closely behind, although they’re strangely dark, not a glint on them. I don’t want to get caught up in it.
 
 My feet hit the leaves crackling under me, as I close my car door, and stand back onto the sidewalk of main street. My eyes follow the line of vehicles as the residents glance at me with curiosity, and slight disgust as they take in my greyed sweater, and brown coat over top, simple jeans.

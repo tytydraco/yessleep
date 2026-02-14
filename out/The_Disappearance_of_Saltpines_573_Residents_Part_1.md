@@ -26,7 +26,7 @@ It’s easy to blame me, I know, and I feel the guilt like tons of rocks stoning
 
 I’m a doctor, a psychiatrist, how could I not see this coming?
 
-I’m writing this, because I need answers, just like everyone else. And I am aware, that I have a unique position, and insight into the community in this town. Out of the five hundred and seventy-three residents of Saltpine, one hundred and eighty-two people were under psychiatric care at the time of my arrival.
+I’m writing this, because I need answers, just like everyone else. And I am aware, that I have a unique position, and insight into the community in this town. Out of the five hundred and seventy-three residents of Saltpine at the time of their disappearance, one hundred and eighty-two people were under psychiatric care at the time of my arrival.
 
 During that long Winter of 1990/1991, they were under my psychiatric care.
 
