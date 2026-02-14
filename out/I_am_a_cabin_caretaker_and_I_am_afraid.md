@@ -1,0 +1,19 @@
+The generator went out, again. Every twenty-four hours it needs to be filled, and in that twenty-four hours it should only go down to about three-eighth's of a tank. I have an alarm for eight-thirty every morning to go fuel it with the diesel pump. After this last time it went dead, I checked the pump level to see if maybe the issue was there. At first, when I opened the tank to take a look, it looked to me as if it were pretty full. 
+
+The grass pokes out of the ground, grey, dead, gross smelling, unkempt. It smells like sewage. My fingers are crossed it isn’t the septic. 
+
+Brand new paintings have appeared in the cabin. There’s one of a dog fetching a stick out in some wetlands, another is of a granite mountainside, and the last notable one is of me.
+
+The fuel tank, on closer inspection was full, but it wasn’t full of diesel. It has no smell, it looks the same, feels the same, but its tame fumes give it away to being something else.
+
+I will begin to call it “cancer”, for cancer is the only thing that this creature is comparable to. The first night I noticed it was after a handful of days of being hungry, tired, wired, puking, losing weight, and constantly being confused over what time of day it was. I felt emotions and understandings that I still feel. Never again, soon, I hope. Whether I leave this place or not. The moment I saw it, I knew. I didn’t really see it, though. I mean, I saw something vague in the shadows. Something akin to a giraffe, I’d suppose. It hid in branches, or it was bushes, or it was the reflection in the glass of the window I watched from. No, I was on the porch. I was on the porch on a summer day. Hot sun beating down on me, saw it clear as day. I think it was more otter-ish, lengthy, weasely, matted hair on a sentient log in the lake. The cabin sits on a mountain, I have hiked at least twenty miles in all directions at some point. It's on a mountain near no river, no water.
+
+Whatever the details, the story, whatever I’m trying to say it is or was, it exists and it exists to taunt me. 
+
+The cabin is scattered with pages, ripped from notebooks. Dirty, messy, needs to be cleaned. I cleaned it once, but I lost my keys in the organization and I can’t lock or unlock the front door. 
+
+I saved the IT guy. His name was Matt, if I remember correctly. He was a nice guy, but there is a curse here that I couldn’t let him live with. 
+
+I found a page in my bed when I woke up this morning. I need to share. 
+
+*Plop. Plop. Plop. Fish plopping. Eating bugs out of the air, plopping back into the water. I watch from a shore, no warm. So no warm body is in the ground. Cold hard like rocks, is rocks, small rocks, mostly soft if warm. Plop. Plop. Piling up sticks and logs. Buggy air, as in bug filled air, as in I am swallowing bugs in their swarm in the heat of the summer and the soil is soft and the body is mucusy. Plop. Plop. Porcelain crown for my porcelain throne for my porcelain skinned butt for I am living a porcelain life. Unaltered purity, as in naturally existing, as in living the way that I am evolved, as all things. Skinny boned trees peruse my foil. Foil as in the foil of a story, but foil can also be a foil as in a roll of foil, aluminum foil. The body. I am a body. Or if you are of another school of thought I am soul, or for another I am consciousness, or for another I am energy. Synonymous. People are synonymous. No one man is not like another, they are fleshy things. As you look at snakes, or frogs, look at them as all looking the same, I look at you as such. May it be or may it not be smart. Plop. Plop. Politicians have no place in unpolished forests. The body is still there, smell. Fish smells rank. No fish here.* 
