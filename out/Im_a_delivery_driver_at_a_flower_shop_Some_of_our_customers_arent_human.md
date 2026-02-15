@@ -114,7 +114,7 @@ As Nautilus handed me my last bouquet, he stopped me on my way out. "Remember," 
 
 
 
-There was a seriousness in his tone that told me I should take this advice to heart. "My dad's a lawyer," I replied, with a lighthearted tone. "I know how to read the fine print."
+There was a seriousness in his tone that told me I should take this advice to heart. "My dad's a lawyer," I lied. "I know how to read the fine print."
 
 
 
