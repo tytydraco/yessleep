@@ -92,4 +92,4 @@ As I was putting on my jacket, I glanced at the monitor one last time. My mom wa
 
 One last message caught my attention.
 
-***“I don’t care. You’re just an observer. A watcher. I'm a player. I actually came into contact with her. I’ve been talking to her on the phone for months, and she thinks it’s her mother.”***
+***“I don’t care. You’re just an observer. A watcher. I'm a player. I actually came into contact with her. I’ve been talking to her on the phone for months, and she thinks it’s her*** [mother.”](https://www.reddit.com/user/EmmaWatsonButDumber/comments/1eevj6b/full_story_list_with_links/) 
