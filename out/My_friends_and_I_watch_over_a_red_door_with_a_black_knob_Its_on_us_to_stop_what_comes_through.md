@@ -455,3 +455,5 @@ As I moved up the steps with Lacey in tow, I peered through the boards straight 
  *“How much longer do you think we can hold out like this?”*
 
 “Not long,” I muttered under my breath, “Not long…”
+
+[{Next Part}](https://www.reddit.com/r/nosleep/s/B1fF4JqieI)
