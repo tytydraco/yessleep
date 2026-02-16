@@ -239,3 +239,7 @@ He was my friend, after all.
 **Dr: Cotts:** What did he tell you Colten?
 
 **Colten:** He told me, it’s because he wants to be your friend now, Laura.
+
+\-
+
+\-Dr. Laura Cotts
