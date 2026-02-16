@@ -116,6 +116,6 @@ I didn't open it.
 
 I looked out the window to see if I could spot my girlfriend.
 
-There was a man standing there.
+There was a man outside.
 
 He drew an inverted triangle on his forehead.
