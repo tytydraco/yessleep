@@ -243,3 +243,5 @@ He was my friend, after all.
 \-
 
 \-Dr. Laura Cotts
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1r6k1ud/the_disappearance_of_saltpines_573_residents_part/)
