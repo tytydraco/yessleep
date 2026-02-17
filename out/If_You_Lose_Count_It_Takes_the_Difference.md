@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1r0nmbl/i_teach_wilderness_survival_classes_something_in/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1r5tmmi/the_counting_game_part_3_what_the_record_keeps/)
+
 Something is wrong with the count.
 
 I'm awake before I know why, hand already on the knife at my belt, breath held tight in my chest. Above me, my tarp ripples in a wind I don't feel. The forest is silent—not quiet, silent—and in that absence of sound, I understand what woke me.

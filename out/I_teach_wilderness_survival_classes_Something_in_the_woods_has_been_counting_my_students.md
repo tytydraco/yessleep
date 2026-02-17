@@ -1,6 +1,4 @@
-&#x200B;
-
-First post: https://www.reddit.com/r/nosleep/s/lXtGiftTlY
+[Part 1](https://www.reddit.com/r/nosleep/comments/1qhfnuk/if_you_lose_count_it_takes_the_difference/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1r5tmmi/the_counting_game_part_3_what_the_record_keeps/)
 
 I did everything right.
 
