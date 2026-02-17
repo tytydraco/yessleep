@@ -120,11 +120,7 @@ After she calmed down she sat me down.
 
 And then she told me a story. The last one I’d hear from her.
 
-
-
 \#
-
-
 
 A long time ago, somewhere in nested in the valleys of our old home, lived our ancestors. One of them, a strong and wealthy man, built a strong fortress to defend from the Ottoman Turks. But with each year the Turks returned in ever greater numbers – and with each year there was less and less of us.
 
@@ -168,11 +164,7 @@ Looking outside the rear window of the car. I saw the last image of them. My mot
 
 And I swear, I saw a tear go down my fathers cheek for this first, and last time.
 
-
-
 \#
-
-
 
 Years passed by and I grew up. I learned a new language, made new friends. Eventually I found a good job in a factory. I settled finally, in Germany. I was so busy I never could visit back home. I’d receive letters and send them back. But the faces of my parents faded slowly.
 
@@ -204,7 +196,7 @@ They came to the station, talking, yelling. I was on my phone, trying to pay no 
 
 “Hey, do you have a ciggie man?” – He asked me.
 
-I nodded, I put my phone away and I got out a one cigarette with my right, and went to give it to him with my left.
+I nodded, I put my phone away and I got out one cigarette with my right hand, and went to give it to him with my left.
 
 But he grabbed my left arm. Exposing a watch I wore.
 
@@ -254,11 +246,7 @@ And a cold touch on my cheek.
 
 “*Dimitrie…”*
 
-
-
 *#*
-
-
 
 I opened my eyes, I was sitting on the bench. I quickly checked my pockets, everything was in its place. I felt sore but, nothing hurt. Did I have a bad dream? Am I that tired to fall asleep in this cold?
 
@@ -299,20 +287,3 @@ But not quite lonely.
 Because I knew.
 
 A good friend always keeps a promise...
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
