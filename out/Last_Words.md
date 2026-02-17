@@ -114,9 +114,7 @@ There was something about the quality of the stillness in it. Something that fel
 
 Like it knew the camera. Like it had taken the time to learn exactly where the light ended. I showed it to Gretchen. She looked at it for a long time.
 
-"Wind on brush," she said. But she said it the way you say something you've decided to say, not the way you say
-
-something you believe.
+"Wind on brush," she said. But she said it the way you say something you've decided to say, not the way you say something you believe.
 
 "Yeah," I said.
 
@@ -224,7 +222,13 @@ My kids are six and eight. They've never heard this story. They think we're goin
 
 Not the end, not the hospital, not the voice in the woods. Just him. The way he used to watch from the bleachers. The way a house sounds when someone who made noise in it is gone.
 
-And I thought: what if it's still there. And I didn't feel afraid. That's the part I don't know what to do with. That's the part I needed to tell someone. That I heard my dead father's voice in the deep woods of Montana ten years ago, speaking words no one else could have known.
+And I thought: what if it's still there. 
+
+And I didn't feel afraid. 
+
+
+
+That's the part I don't know what to do with. That's the part I needed to tell someone. That I heard my dead father's voice in the deep woods of Montana ten years ago, speaking words no one else could have known.
 
 And I'm going back.
 
