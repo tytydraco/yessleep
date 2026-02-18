@@ -77,3 +77,5 @@ Adopted meant it would be used. Used meant someone would hold it.
 Mucus ran down my lips, sinking in the crevices and folds, mixing with my salty tears.
 
 "You will get used to it. Do you know what happens to the subjects after they leave? One day, you will."
+
+[Next](https://www.reddit.com/r/nosleep/comments/1r865k1/i_write_the_rules_for_a_museums_anomalous_objects/)
