@@ -285,7 +285,7 @@ We watched them walk off into the woods, and James said, “He was our Ranger. B
 
 “I miss Kyle,” Colton lamented, and the other guys mumbled quietly in agreement.
 
-Their mourning was short-lived, as James seemed to have a sudden realization. He turned to us and said, “Remington, I totally forgot! We gotta get that thing!”
+Their mourning was short-lived, as James seemed to have a sudden realization. He turned to us and said, “Hey Ten, I totally forgot! We gotta get that thing!”
 
 Remington squinted his eyes and lowered his voice, “What thing…?” 
 
@@ -331,7 +331,7 @@ I didn’t look at any of them, as I approached Colton who was laughing so hard 
 
 “You guys are dicks,” I said. They laughed harder.
 
-After the disaster, we walked back to the mess hall for dinner. It had been set up like an all you can eat buffet—with all sorts of foods from around the world. We loaded our plates up like it was our last meal. Colton and Raven fought over the last pot-sticker and then we took our seats. No sign of James or Remington. I was still so new I didn’t know whether I should be concerned or not, but I played it cool. The other guys weren't worried—why should I be?
+After the disaster, we walked back to the mess hall for dinner. It had been set up like an all you can eat buffet—with all sorts of foods from around the world. We loaded our plates up like it was our last meal. Colton and Raven fought over the last pot-sticker and then we took our seats. No sign of James or Ten. I was still so new I didn’t know whether I should be concerned or not, but I played it cool. The other guys weren't worried—why should I be?
 
 “Hey, David!” I heard—right before my mashed potatoes came up to meet my face. Patrick pulled my head back up and let go. “I heard you were doing some weird things earlier, man—just to tease the girls. You think it’s funny killing little forest critters?”
 
@@ -417,4 +417,4 @@ A hand grabbed me by the collar and gently pulled me inside the cabin. James loc
 
 James finally took his seat, but he was staring off into another world. He reminded me of a hurt child, too traumatized to even cry.
 
-BWOOOOOM!   
+BWOOOOOM!
