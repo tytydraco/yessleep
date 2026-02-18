@@ -1,4 +1,4 @@
-[Part 3.](https://www.reddit.com/r/nosleep/comments/1qolzr4/every_year_on_my_birthday_i_am_trapped_in_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 3.](https://www.reddit.com/r/nosleep/comments/1qolzr4/every_year_on_my_birthday_i_am_trapped_in_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 5.](https://www.reddit.com/r/nosleep/comments/1r7ttbq/every_year_on_my_birthday_i_am_trapped_in_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I walk down the path I chose. I lost track of time, but it feels like almost an hour has passed and no change, nothing along the way. No other paths to run down, no voices, no traps. Just monotonous travel. I consider turning back but it's pointless, I have gone too far at this point.
 
