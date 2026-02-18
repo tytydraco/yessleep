@@ -28,4 +28,4 @@ The storm has past somewhat by now, just a little bit of patter outside. It was 
 
 Some stuff was pulled down along the path, I saw huge limbs, not limbs branches, and twigs all over. I ended up walking around a bit more than I meant. But I felt so calm, like there wasn't anything to worry about right then, it was really nice. And one of those felln branches was the one with the backpack. I did just stare at it for a while before I went and grabbed it. I haven't opened it yet, I just looked at the lanyard. I think it says Hampton, most of it is smudged, can't make out the last name and only some of the photo.
 
-I left the backpack in the bathroom downstairs. I'll finish this up best I can tehn I'm going to sleep. I just wat this feeling to go away. It sounds like I'm still tapping the walls downstairs.
+I left the backpack in the bathroom downstairs. I'll finish this up best I can tehn I'm going to sleep. I just wat this feeling to go away. It sounds like I'm still tapping the walls [downstairs](https://www.reddit.com/r/nosleep/comments/1r6u03j/theres_a_ship_in_the_woods_part_8/).
