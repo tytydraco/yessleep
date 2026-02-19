@@ -110,4 +110,4 @@ She shook her head. "The apartment above you?"
 
 "Yeah, isn't that where Mrs. Virelli lives? Old, thin hair, walks her dog every morning?"
 
-"Yeah, but Mrs. Virelli is deaf and mute. You never noticed she never said a word to us? She never hears us? Her daughter visited her like two years ago and told me that. There's no way you've been talking to her."
+"Yeah, but Mrs. Virelli is deaf and mute. You never noticed she never said a word to us? She never hears us? Her daughter visited her like two years ago and told me that. There's no way you've been talking to [her."](https://www.reddit.com/r/nosleep/comments/1r99gtw/my_neighbor_has_a_habit_of_always_trying_to_guess/)
