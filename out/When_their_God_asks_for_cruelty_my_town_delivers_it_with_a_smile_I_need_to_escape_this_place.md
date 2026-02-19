@@ -60,7 +60,7 @@ Dad’s gaze drifted down until it landed on me, beady eyes digging into my skul
 
 The attic plunged into darkness.
 
-“If we play our roles, Father grants us what we deserve. The weak-minded. The fornicators. The disfigured. All of us.”Floorboards moaned as he strode across the room, traversing the blackness.
+“If we play our roles, Father grants us what we deserve. The weak-minded. The fornicators. The worthless, spineless low-lifes. All of us.” Floorboards moaned as he strode across the room, traversing the blackness.
 
 “Even you...” He whispered, creaking the door open and stepping into the stairwell. 
 
@@ -144,7 +144,7 @@ Then, a week before the fire, they died. 
 
 Car crash. Mangled beyond recognition, according to a female voice that unexpectedly hummed through the radio one morning when I could have sworn the damn thing had been turned off.  
 
-I set my book down on the battered desk, paused, and laughed. Not out of happiness, per se. Their deaths were just so sudden, so bizarre. The surprise of it all was amusing. 
+I set my book on the surface of my weathered desk, paused, and I...I laughed. Not out of happiness, per se. Their deaths were just so sudden, so bizarre. The surprise of it all was amusing. 
 
 But worry crept in quickly. 
 
@@ -188,7 +188,7 @@ Including Vincent, emergency services retrieved a dozen bodies from the ruins of
 
 The night before the fire was thick with heat and moonless.
 
-I stood in the backyard, staring at the forest, trying to coerce my feet over the property line. The chirping of crickets drifted through the air. Every day since my parents had died, I’d been venturing a little farther from the attic. I grit my teeth. Heart thundering, I channeled every ounce of myself into the ball of my right foot. No one was around to stop me; my parents were gone, torn to shreds by asphalt and metal. I could do it. 
+I stood in the backyard, staring at the forest, trying to coerce my feet over the property line. The chirping of crickets skipped along the air. Every day since my parents had died, I’d been venturing a little farther from the attic. I grit my teeth. Heart thundering, I channeled every ounce of myself into the ball of my right foot. No one was around to stop me; my parents were gone, torn to shreds by asphalt and metal. I could do it. 
 
 I could just...leave. 
 
@@ -218,19 +218,19 @@ He held out a liverspotted, skeletal hand. There was a new cigarette in his palm
 
 “Speaking of which - you know what they should start calling us? *The Anathema*. It’s perfect! Every individual meaning of the word fits. Anathema as in someone who is vehemently hated by the parish; Anathema as in something that is cursed and separated from God; Anathema as in an offering that was created only to be destroyed. Expendable, star-crossed nobodies - that’s us! The purposefully loathed, the vermin that hang from these hallowed pines like Christmas ornaments, glittering and terrible and divine and - “
 
-Vincent jabbered on, and on, and on, head resting in the grass, shifting eyes fixed on the sky. Not sure how long I stood there. An hour? Might have been longer. His relentless prattle was entrancing at first. There was a cryptic eloquence to the endless monologue. 
+Vincent jabbered on, and on, and on, head resting in the grass, shifting eyes fixed on the sky. Not sure how long I stood there. An hour? Might have been longer. His relentless prattle was entrancing at first. There was a cryptic eloquence to the endless monologue. As time went on, though, I found myself becoming progressively more distracted. A pair of details were fighting hard for my attention. 
 
-As he rambled, two details fought for my attention. 
-
-First off, he was barefoot. My eyes traced the length of his heels. The skin was dirt-caked but smooth and relatively unblemished. I counted only one, crescent-shaped scar at the center of his left heel. Mom shattered beer bottles against his stoop every Sunday morning for as long as I’d been alive. She planted decades of improvised booby traps that seemed to draw blood more often than not. 
+First off, he was barefoot. My eyes traced the length of his heels. The skin was dirt-caked but smooth and relatively unblemished. I counted only one, crescent-shaped scar at the center of his left heel. Mom shattered beer bottles against his stoop every Sunday morning for as long as I’d been alive. She planted decades of improvised booby traps that seemed to draw blood with an alarming consistency.
 
 Shouldn’t he have *more* scars?
 
 But the more pressing detail was the stone lying between my feet. 
 
-It was a slender piece of sandstone, shaped like an arrow, tapering to a razor-sharp point. The rock was unnaturally smooth, as if it had been whetted. Heat congregated in my chest as I studied it.
+It was a slender piece of sandstone, shaped like an arrow, tapering to a razor-sharp point. The rock was unnaturally smooth, as if it had been whetted. More and more heat congregated in my chest as I studied it.
 
-Had it always been there? I couldn’t remember. 
+Had it always been there?
+
+I couldn’t remember. 
 
 All I knew for sure was that the universe was pleading for me to use it. 
 
@@ -378,17 +378,19 @@ The scent of the steam wafting from my breastbone pulled me back to reality. I d
 
 How long had I just been standing there?
 
-It didn’t matter. I fought through the nausea and forced myself upright. I gripped the bottle of my parent's favorite rum by the neck with one hand and reached for the knob with the other. 
+It didn’t matter. I fought through the nausea and forced myself upright. I gripped the bottle of my parent's favorite rum by the neck with one hand and reached for the knob with the other. I was going to burn it down, igniting that fire with the long-necked kitchen lighter that'd been used to ignite my birthday candles, year after fucking year.
 
-I was going to burn it down, igniting that fire with the long-necked kitchen lighter that'd been used to ignite my birthday candles each year.
+Would that halt the curse that was taking over my body?
 
-Would that halt the curse that was taking over my body? Maybe, maybe not. Whatever Vincent was, whatever his house represented, it was connected to my change, I was certain of that fact, even if I didn’t understand how. Doing nothing wasn’t an option. 
+Maybe, maybe not.
+
+Whatever Vincent was, whatever his house represented, it was connected to my change, I was certain of that fact, even if I didn’t understand how. Doing nothing wasn’t an option. 
 
 I couldn’t just watch it happen. 
 
 With terror simmering at the base of my skull, I twisted the knob and pushed.
 
-A gust of hot, humid air battered me as the door swung. I placed my foot over the threshold, grimacing when forehead knocked into the frame. Somehow, I’d misjudged my height. I bent my neck and pushed forward, glimpsing my childhood home out of the corner of my eye. A realization hit me like a sucker punch. 
+A gust of hot, humid air battered me as the door flew ajar. I placed my foot over the threshold, grimacing when forehead knocked into the frame. Somehow, I’d misjudged my height. I bent my neck and pressed forward, catching a glimpse of my childhood home out of the corner of my eye. The realization hit me like a sucker punch. 
 
 I’d done it.
 
@@ -400,7 +402,7 @@ It should have been a moment of profound triumph; I was free. 
 
 So why did the accomplishment feel so empty?
 
-The door snapped shut behind me. My eyes adjusted to the inky darkness. It was just a single room, barely larger than the attic. I glanced around, searching for the figures that I’d seen crawling in here an hour before. Silver moonlight trickled in through a pair of murky windows, outlining something human-shaped looming a few feet in front of me. My heartbeat grew wild and erratic. 
+The door snapped shut behind me. My eyes adjusted to the inky darkness. It was just a single room, barely larger than the attic. I glanced around, searching for the figures that I’d seen crawling in here an hour before. Silver moonlight trickled in through a pair of murky windows, outlining something human-shaped looming a few feet in front of me. My heartbeat grew painfully erratic.
 
 “Hello...?” 
 
@@ -470,7 +472,7 @@ For eleven days, I rest, and my brothers endure the spectacle in my stead.
 
 On the twelfth day, I rise, ready to play my role. 
 
-I step outside. Someone is screaming at me. I don’t bother looking down to avoid the shattered glass that’s on my stoop. The name-calling hurts. The cuts in my feet sting. 
+I step outside. Mr. Peterson is screaming at me, blaring his hate through a megaphone. I try to ignore him. I don’t bother looking down to avoid the shattered glass that’s on my stoop. The name-calling hurts. The cuts in my feet sting. 
 
 But as twilight descends around me, I know it’s all okay. 
 
@@ -488,4 +490,4 @@ The day when I might finally, 
 
 trully
 
-[be free. ](https://www.reddit.com/r/unalloyedsainttrina/)
+[be free.](https://www.reddit.com/r/unalloyedsainttrina/) 
