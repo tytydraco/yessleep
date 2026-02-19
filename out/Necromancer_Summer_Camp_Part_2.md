@@ -164,7 +164,7 @@ I just nodded, trying to sneak a peek over my shoulder in case there were any mo
 
 “Oh, Raven? He’s our DM. Our Dungeon Master. He's kinda like the God writing our adventure. And if you act up, he’ll smite yo’ ass,” James teased. 
 
-Raven snorted quietly and Remington burst out into high pitched hyena-like laughter, which caused Colton to chuckle.
+Raven snorted softly and Remington burst out into high pitched hyena-like laughter, which caused Colton to chuckle.
 “James, what are you thinking?” Raven asked quietly, ever maintaining his “too cool for school” demeanor as his fingers scratched his chin.
 
 James looked back at me and asked, “Hey David, whatcha readin’?”
@@ -319,7 +319,7 @@ I shook my head and tried to walk towards them. “It’s ok. I’ll try another
 
 “Just shoot the damn thing already!” The counselor shouted at me.
 
-“Ok!” I yelped nervously. I hastily nocked an arrow while in a cold sweat, hands shaking the whole time. The string left my wet fingers at such a violent speed, and the arrow soared majestically forward. But I had critically fumbled. The arrow completely missed the target, and landed with a dull thud. Some of the girls screamed, others cried. My arrow had pinned the head of a squirrel to a tree. Its body lay holding an acorn nearby.
+“Ok!” I yelped nervously. I hastily nocked an arrow while in a cold sweat, hands shaking the whole time. The string left my wet fingers at such a violent speed, and the arrow soared majestically forward. But I had critically fumbled. The arrow completely missed the target, and landed with a dull thud. Some of the girls screamed, others cried. My arrow had pinned the head of a squirrel to a tree. Its body still clutching an acorn nearby.
 
 For the briefest moment I thought I had seen something, just in the corner of my eye—past the scene of death. A dark shroud dissolving into the foliage. Of course, it easily could have been shadows of leaves dancing under the summer sun. But I didn’t get to ponder it for long.
 
@@ -417,4 +417,4 @@ A hand grabbed me by the collar and gently pulled me inside the cabin. James loc
 
 James finally took his seat, but he was staring off into another world. He reminded me of a hurt child, too traumatized to even cry.
 
-BWOOOOOM!
+BWOOOOOM!  
