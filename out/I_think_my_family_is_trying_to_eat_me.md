@@ -84,4 +84,4 @@ I wasn’t hungry anymore. I shook my head and said I needed to lay down because
 
 I made my way out of the kitchen slowly on my crutches. Hobbling up the stairs I heard hushed voices from below. I couldn’t really make it out, but I swear, the only word I heard for certain, and I’m 100% positive I heard it right: “*…suspicious…*”
 
-Am I still crazy? Help me out here. I have to spend the next couple weeks in bed and I really feel paranoid all the time now. Please, call me out if I’m thinking too much about this, I just can’t help but think.
+Am I still crazy? Help me out here. I have to spend the next couple weeks in bed and I really feel paranoid all the time now, is there anything I should do in the way of precaution?
