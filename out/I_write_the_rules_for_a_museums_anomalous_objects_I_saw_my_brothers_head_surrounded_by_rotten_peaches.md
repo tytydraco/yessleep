@@ -115,3 +115,5 @@ They awoke normally, and left containment.
 I cannot silence the screams of Subject 1 as their hands melted—a new tinnitus. The sorrowful, terrible face of Subject 2 refolded my brain to match their visage. The anxiety of the armed guard as they recklessly charged into containment. The jet of crimson that ejected from their head and soiled the containment walls still did not give them peace.
 
 Their nervous system signal may have been black, but their expression remained.
+
+[Next](https://www.reddit.com/r/nosleep/comments/1r9xod9/i_write_the_rules_for_a_museums_anomalous_objects/)
