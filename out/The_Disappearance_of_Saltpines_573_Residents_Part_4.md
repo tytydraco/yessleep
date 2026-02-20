@@ -319,3 +319,5 @@ It must have been Eloise, it must have been. But she didn’t make a sound.
 I don’t sleep that night.
 
 \-Dr. Laura Cotts
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/1ra52t4/the_disappearance_of_saltpines_573_residents_part/)

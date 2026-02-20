@@ -70,4 +70,4 @@ But that stops now.
 
 \-Dr. Laura Cotts
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/1r2eev3/the_disappearance_of_saltpines_573_residents_part/) [Part 3](https://www.reddit.com/r/nosleep/comments/1r4m4z2/the_disappearance_of_saltpines_573_residents_part/) [Part 4](https://www.reddit.com/r/nosleep/comments/1r6k1ud/the_disappearance_of_saltpines_573_residents_part/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/1r2eev3/the_disappearance_of_saltpines_573_residents_part/) [Part 3](https://www.reddit.com/r/nosleep/comments/1r4m4z2/the_disappearance_of_saltpines_573_residents_part/) [Part 4](https://www.reddit.com/r/nosleep/comments/1r6k1ud/the_disappearance_of_saltpines_573_residents_part/) [Part 5](https://www.reddit.com/r/nosleep/comments/1ra52t4/the_disappearance_of_saltpines_573_residents_part/)
