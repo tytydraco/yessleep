@@ -1,6 +1,6 @@
 My name is Penny, at least that's what it says on my college student ID, my driver's license, and even on the Starbucks cup that's currently dripping wet and smeared on my sociology textbook. But if you ask my parents what name they gave me, you'll get two completely different answers, and neither of them is Penny.
 
-My mom insists that she's never made a mistake in her life, and she's convinced my name is "People." Just "People." 
+My mom insists that she's never made a mistake in her life, and she's convinced my name is "People." Just "People."
 
 My dad, on the other hand, will tell you with equal certainty that he named me Pennywise, after his favorite Stephen King character, because he thought it was "super cool."
 
@@ -22,7 +22,7 @@ It wasn’t a good sign. Not a flash of inspiration, nor the feeling of a puzzle
 
 My father was a football coach.
 
-I don’t know why this fact suddenly popped into my head when McGrady was talking about bowling shoes and tortilla chips, but it just appeared. My father was the football coach at my hometown high school. Coach Ross. Everyone called him Coach Ross, even though that wasn’t his real name. I think his real name was Gregory or Gordon or something, but everyone called him Coach.
+I don’t know why this fact suddenly popped into my head when meddie was talking about bowling shoes and tortilla chips, but it just appeared. My father was the football coach at my hometown high school. Coach Ross. Everyone called him Coach Ross, even though that wasn’t his real name. I think his real name was Gregory or Gordon or something, but everyone called him Coach.
 
 Chloe started talking, reminiscing about when her dad taught her to bowl when she was seven, saying she always flopped. He was always so patient, so encouraging.
 
@@ -58,7 +58,7 @@ I shrugged. "Anyway, I’m fine."
 
 "You’re definitely not fine!" Maddie’s voice was much louder than usual. "It’s awful! Your dad broke your nose and wouldn’t take you to the hospital!"
 
-"Yeah, but…" I struggled to think of an explanation. "I’m fine. I was a good kid." "I’m not making a fuss." 
+"Yeah, but…" I struggled to think of an explanation. "I’m fine. I was a good kid." "I’m not making a fuss."
 
 "That’s not…" Chloe began, but I stood up.
 
@@ -178,9 +178,9 @@ We were inseparable. We walked to school together, ate lunch together, and visit
 
 Patty died in a car accident when she was sixteen.
 
-I remember it. I remember it vividly, more vividly than almost anything else from my childhood. I remember the phone call, my mother's voice—that flat, indifferent tone, just like when I broke my nose…saying, "Oh, honey, your friend is dead." 
+I remember it. I remember it vividly, more vividly than almost anything else from my childhood. I remember the phone call, my mother's voice—that flat, indifferent tone, just like when I broke my nose…saying, "Oh, honey, your friend is dead."
 
-I remember the funeral. I remember Patty's mother crying so hard she could barely stand. I remember thinking, is this what grief looks like? Is this what people do when they lose a loved one? 
+I remember the funeral. I remember Patty's mother crying so hard she could barely stand. I remember thinking, is this what grief looks like? Is this what people do when they lose a loved one?
 
 My parents didn't go with me to the funeral. They said they were busy. I went alone, sat in the back, and left before the funeral was over.
 
@@ -210,7 +210,7 @@ During those four hours, I thought about the prom.
 
 Or more precisely, the prom that never happened.
 
-It was my senior year of high school, or rather, one of the countless senior years I'd spent in that cycle. 
+It was my senior year of high school, or rather, one of the countless senior years I'd spent in that cycle.
 
 Back then, the cheerleaders had been bullying me for years. It's all the same old tropes: saying I'm ugly, tripping me in the hallway, spreading rumors. Writers think these plots are brilliant character creations.
 
@@ -428,7 +428,7 @@ The phone rang three times. My mom answered.
 
 "Hello?" she said in that detached, detached tone.
 
-"Hi, Mom," I said. "It’s me, people. Or Pennywise. Anyone will do it."
+"Hi, Mom," I said. "It’s me, people. Or Pennywise. Any will do it."
 
 "Oh," she said.
 
