@@ -1,0 +1,17 @@
+I'm writing this because I want to know if anyone has had any similar experiences? 
+
+Last year my friend and I went to Japan and we planned a trip to stay at a hotel near Mt Fuji for a few days. 
+
+We had booked a room in an old hotel with traditional Japanese rooms. I remember we got to our rooms and just fell asleep. I was sleeping on the futon next to the window and remember looking up and there were some stickers with strange markings and symbols on them. Not like do not open signs, but more like religious signs from what I understood. I remember throughout the day we were both napping and I had strange dreams throughout, such as dreams where my cats suddenly appeared at the window and I was letting them in. Mind you I'm in a foreign country and my cats are back home. I have these strange dreams where my cats are with me, but then other spirits or cats disguised as my cats are trying to come in through the window. In my dreams I know something is off and they're not my cats and they're trying to come in through pretense. Anyways very strange dreams and I wake up from my nap thinking, oh most likely there were spirits at the window trying to come in and I saw them in my dreams. I come from a Muslim background where I grew up hearing a bit about this, nothing strange. You just kind of pray and brush it off. 
+
+Later on at night I'm having these strange dreams where I'm back to these very distinctive places from my childhood. These places I remember going to frequently and hold fond memories. I'm playing on the street. At the back of the street in these dreams, at the end of the street there is a field with this tree branching out quite a bit, covered in bright blue nooses. This is behind me to my left. In these dreams there is an unspoken knowledge that alot of people go there and take their life on that tree. Hence it's covered in nooses. Of course this tree didn't actually exist during my childhood but it did in this dream. In my dream, there was just this default knowledge and understanding that a lot of people commit suicide here, hence it's covered in bright blue nooses.
+
+I'm like oh wow this was such a strange dream. This reminds me of the suicide forest I heard about thats in Japan. Must be in a different city up north or something no way it's here (I vaguely came across it a long time back because it was infamous on the internet, so I had a vague idea it's in Japan, but not where it was) so I look up where this forest is out of curiosity. The forest is only 15 minutes walk to where I'm at, from the orientation I was lying down in, my phone is showing it's behind me to my left. Same as that tree in my dream. 
+
+
+It's so random that I dream about a tree covered in nooses from people taking their lives. While I'm close to a forest I had no idea was there which is infamous for suicides. I felt like something was almost drawing me to go there, or maybe it was the energy of the place. That forest had not even vaguely come to mind while I was on the trip, for it to subconsciously appear in my dream. Let alone when I'm so close to it. 
+
+
+Is this a common thing anyone else has experienced near there? Or that people know about? Or was I just feeling strange things in a new city. 
+
+Just thought I'd write about it cause I suddenly remembered this. 

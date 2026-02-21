@@ -62,3 +62,5 @@ I looked up and down the two-lane highway, listening for any sound. I looked nor
 ​So, I’m asking for help now. I’m losing my mind and I think I'm losing my arm. Should I go check out the town maybe? There's the church that we used to go to or maybe there's a way out of town? Or I could go to the prison. I'm looking at it and it's only a 1/4 mile walk at the most. The sky has gotten darker and I can see it has me in one of its spotlights right now.
 
 ​Please help.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/86pyw2G9Qr)
