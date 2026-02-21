@@ -6,7 +6,7 @@ Eloise does manage to get her older radio to tune into a channel, the voice is w
 
 Despite the strange happening in this home with her the past few days, I much prefer her company in the living room than my own room, or study where the wind howled outside uncontrollably. Like a giant monster from the depths of that endless forest spitting up snow until it was satisfied with its wrath.
 
-“Ah, there we go.” Eliose says happily as her deft fingers dial into the soft tone of music playing. Something older, grainy, a little static but it soon clears up as the slightly upbeat music becomes more clear, the lyrics about love drifting in. If I had to pick a decade I’d say the thirties, or forties.
+“Ah, there we go.” Eloise says happily as her deft fingers dial into the soft tone of music playing. Something older, grainy, a little static but it soon clears up as the slightly upbeat music becomes more clear, the lyrics about love drifting in. If I had to pick a decade I’d say the thirties, or forties.
 
 The music cutting out to that voice, “*well, folks, I hope you enjoyed Victor Young and His Orchestra! Nothing like an upbeat tune to keep our minds off that snowfall, wouldn’t you say? Thankfully, we’re still up and running, but I’m told our service could cut out again.*”
 
