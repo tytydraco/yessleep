@@ -1,22 +1,22 @@
 I’m using this post to chronicle the events of this evening, as they have been truly fascinating.
 
-Some quick backstory: the small section of the city that me and my friends live is generally known to be haunted. And even if you’re not a believer in the supernatural… it’s at least a bit eerie. I’m not going to dox myself by stating the location, but let’s just say that “creepy sightings” and murders/deaths due to unexplainable circumstances are our bread and butter. 
+Some quick backstory: the small section of the city that me and my friends live is generally known to be haunted. And even if you’re not a believer in the supernatural… it’s at least a bit eerie. I’m not going to dox myself by stating the location, but let’s just say that “creepy sightings” and murders/deaths due to unexplainable circumstances are our bread and butter.
 
 For most people, this means you move away as soon as they can.
 
-For folks like me and my friends (who absolutely love all things spine-chilling), it generally makes for a pretty good time. Our Halloween parties are awesome, most of our drinking nights have some sort of spooky game interlaced into them, and if you have literally nothing to do on a Friday night with your friends, you can always go on a tour of some of our haunted locales - graveyards, abandoned buildings, creepy forests, you name it. 
+For folks like me and my friends (who absolutely love all things spine-chilling), it generally makes for a pretty good time. Our Halloween parties are awesome, most of our drinking nights have some sort of spooky game interlaced into them, and if you have literally nothing to do on a Friday night with your friends, you can always go on a tour of some of our haunted locales - graveyards, abandoned buildings, creepy forests, you name it.
 
-So, with that background established, let’s cut back to tonight: 
+So, with that background established, let’s cut back to tonight:
 
 Me and my closest three pals decided to try our hand at using a Ouija board. Were we going to be normal and try the Ouija board in one of our family attics? Nah, too basic. We instead decided to trek up together to, what I shit you not, is an abandoned treehouse left in an elevated section of our city, surrounded by forests. What could go wrong, right?
 
 We climbed up to the treehouse, set down a spooky themed rug, lit some candles, and brought out the ouija board. Despite my pretty extensive resume of dealing with all things creepy, I’d never actually tried a Ouija board before, so I was really excited to see what would happen.
 
-We went into this excited to break every rule in the book - we weren’t going to do a seance, we were going to ask whatever we want, and we didn’t need to worry about being respectful to the spirit, etc - we figured if something interesting were to happen, it’d be more likely if we went in as carefree as possible. 
+We went into this excited to break every rule in the book - we weren’t going to do a seance, we were going to ask whatever we want, and we didn’t need to worry about being respectful to the spirit, etc - we figured if something interesting were to happen, it’d be more likely if we went in as carefree as possible.
 
 We sat in a circle around the ouija board and got started, asking the simple question “Is there a spirit with us?” with all of our hands placed on the planchette. No real response - we fluttered the planchette in a few different directions but we could tell we were kind of forcing it.
 
-We asked a few other questions - “What is your name?”, “When did you die?”, etc. but nothing really came of it. 
+We asked a few other questions - “What is your name?”, “When did you die?”, etc. but nothing really came of it.
 
 After trying for the next half hour and not really getting anything in the form of a response, we decided that we probably didn’t have any spooky luck tonight, and opted instead to share scary stories in the treehouse. We left the ouija board out just in case we’d get luckier later in the night.
 
@@ -46,7 +46,7 @@ Yet again, the planchette moved effortlessly with my hand. It was faster this ti
 
 O N E  A T  A  T I M E
 
-Fair enough! I thanked the spirit, my hand still on the planchette. 
+Fair enough! I thanked the spirit, my hand still on the planchette.
 
 “I appreciate your answers, friend!”.
 
@@ -54,11 +54,11 @@ To my surprise, in a strange synergy between me and the spirit, I felt compelled
 
 T E L L  E V E R Y O N E  E L S E  T O  L E A V E
 
-*Huh.* 
+*Huh.*
 
-My friends looked at me skeptically as I said the letters at a time. 
+My friends looked at me skeptically as I said the letters at a time.
 
-“Are you sure you didn’t just force that on purpose?” asked Eleonora - I assured her I definitely didn’t. That was definitely from the spirit. 
+“Are you sure you didn’t just force that on purpose?” asked Eleonora - I assured her I definitely didn’t. That was definitely from the spirit.
 
 At this point, this had been the most clearly supernatural phenomena I’d ever experienced in my life, and I was excited to keep it going. My friends, usually unflinching and made of ice, were a little bit thrown. Eleonora and Martin looked ever so slightly spooked, but Kev was willing to go with it. “Might as well see where this goes!” Kev said, as he started climbing down from the treehouse. With a slight bit of hesitation, Eleonora and Martin followed suit.
 
@@ -68,7 +68,7 @@ I embraced the quiet amidst the lighting of the candles and the power of the Oui
 
 “Spirit… how will I die?”
 
-I took in a deep breath, waiting for some movement. Slowly… 
+I took in a deep breath, waiting for some movement. Slowly…
 
 D E P E N D S
 
@@ -104,11 +104,11 @@ W H A T  I S  Y O U R  B I G G E S T  F E A R  D O  N O T  L I E
 
 This question took me aback a bit. I wasn’t really afraid of anything, or so I thought. So I struggled with it. It took me a few moments. I really, really thought of it. I kind of cringed at the answer, but it was my truth.
 
-“Something horrible happening to my little brother.” 
+“Something horrible happening to my little brother.”
 
 No movement from the ouija board. Seconds turned into minutes as I kept my hand awkwardly placed on the planchette. Then, finally…
 
-T H A N K  Y O U 
+T H A N K  Y O U
 
 S E N D  E L E O N O R A
 
@@ -136,13 +136,13 @@ We looked up at the treehouse as we heard the sounds of someone climbing down. E
 
 “My name. My favorite hobby. My uh, biggest fear. That one took me a while to answer.”
 
-Kev turned to me. “That is a little bit eerie.” he said. I agreed. Didn’t look like Eleonora was loving it either. But still - a spirit asking *us* questions? This had been one of the coolest, if not *the coolest,* paranormal experiences I’d ever experienced in my life. 
+Kev turned to me. “That is a little bit eerie.” he said. I agreed. Didn’t look like Eleonora was loving it either. But still - a spirit asking *us* questions? This had been one of the coolest, if not *the coolest,* paranormal experiences I’d ever experienced in my life.
 
 Eleonora turned to Martin.
 
 “It said that you were up next.”
 
-— 
+—
 
 Martin’s session seemed longer than the others. We stood outside, drinking, talking about the happenings so far, and pulling out the occasional snack.
 
@@ -154,7 +154,7 @@ Kevin pointed to her, and then up to the treehouse.
 
 “Yeah, but that’s the point!” I responded. “We seek out spooky happenings all the time and we never get lucky, this is an actual *legit* supernatural experience. I feel like we have to take advantage of it.”
 
-“Even if it’s asking us personal stuff? What does it want this info for?” followed up Eleonora. 
+“Even if it’s asking us personal stuff? What does it want this info for?” followed up Eleonora.
 
 I shrugged. While the “biggest fear” question was pretty weird, I didn’t feel too worried that a spirit knew my favorite food was or what my name was.
 
@@ -174,7 +174,7 @@ Martin turned to Kevin.
 
 “You’re up next.”
 
-Kevin turned to all of us, “Here goes nothing,” he sighed and started climbing up to the treehouse. We watched him make his way to the top. 
+Kevin turned to all of us, “Here goes nothing,” he sighed and started climbing up to the treehouse. We watched him make his way to the top.
 
 For the first time in the evening, I had a knot in my stomach.
 
@@ -190,33 +190,33 @@ Only five minutes had passed since Kevin first went up, but he was already climb
 
 I’d never seen Kevin like this. He was uncharacteristically shook.
 
-“You have to tell us more. What did it ask you? What did it say?” but Kevin ignored all of our questions. He started packing up his bag. 
+“You have to tell us more. What did it ask you? What did it say?” but Kevin ignored all of our questions. He started packing up his bag.
 
 “You guys can play with fire if you want, but I’m out of here. I suggest you guys come too,” he said. I watched as Martin and Eleonora started packing up as well.
 
-“I had bad feelings throughout this whole thing - I think we should leave,” said Martin. 
+“I had bad feelings throughout this whole thing - I think we should leave,” said Martin.
 
-“Guys, what the hell?! Just ‘cause it’s unsettling doesn’t mean we have to pack up. We can just hang out up there and do something else,” I said back. 
+“Guys, what the hell?! Just ‘cause it’s unsettling doesn’t mean we have to pack up. We can just hang out up there and do something else,” I said back.
 
 “This doesn’t feel right,” said Eleonora. I watched them as they all took a few steps away from the treehouse and towards the forest.
 
 “You coming?” asked Kevin. I stood my ground. Kevin just shook his head and started heading out on his way.
 
-“Suit yourself.” 
+“Suit yourself.”
 
-I had no idea what could have possibly happened up there that would’ve shook him this much. He had already started walking as Martin and Eleonora pleaded with me to come with them. 
+I had no idea what could have possibly happened up there that would’ve shook him this much. He had already started walking as Martin and Eleonora pleaded with me to come with them.
 
-I said no. 
+I said no.
 
 Begrudgingly, they all left.
 
-You’re probably wondering - wasn’t I scared? Especially now that I was alone? 
+You’re probably wondering - wasn’t I scared? Especially now that I was alone?
 
 The answer was yes. *But,* something in my soul told me that I was up next. I’d spent my whole life waiting for something that was truly supernatural to happen, and now it was in front of me. With my fingers jittering, I climbed up to the treehouse as my friends departed.
 
-— 
+—
 
-It took me a moment to pull together the bravery to put my hand on the planchette. The candles were still lit. The setting was just right. Finally, I spoke to the spirit again. 
+It took me a moment to pull together the bravery to put my hand on the planchette. The candles were still lit. The setting was just right. Finally, I spoke to the spirit again.
 
 “Why are you asking us all these questions?”
 
@@ -246,8 +246,8 @@ R U N
 
 And so I did.
 
-— 
+—
 
-The small section of the city I live in is generally known to be haunted. I think I know why. 
+The small section of the city I live in is generally known to be haunted. I think I know why.
 
-It’s time for me to leave.
+It’s time for me to [leave.](https://www.reddit.com/user/WorldAwayTweedy/)
