@@ -24,7 +24,7 @@ A part of me was hesitant, but he was right. There were still things I wanted to
 
 "Now, tell me about that albatross on your clavicle lad."
 
-I tried not to acknowledge the odd saying, but when he mentioned that bird I felt my nails dig into the table a bit. "Is this ship just a replica?" 
+I tried not to acknowledge the odd saying, but when he mentioned that bird I felt my nails dig into the table a bit. "Is this ship just a replica?"
 
 He took two long bites of the stew before shaking his head. "Nothing's just something. But the soul of a ship can take many forms."
 
@@ -34,11 +34,10 @@ I didn't care if I sounded crazy, I was already setting aside some beliefs to ad
 
 "We're not on the ocean," was all I mumbled in response. By this point I kinda stopped taking notes, feeling overwhelmed and no longer hungry so I stood to get my medication. He made some comment about what I have left and I told him I have enough to last. When I sat back down I asked, "do you think I'm crazy?" I swear he kept eyeing my bottles.
 
-"Aye lad, ocean madness ain't just from the sea. It's in your blood. You get it from your father." 
+"Aye lad, ocean madness ain't just from the sea. It's in your blood. You get it from your father."
 
 I remember not saying for a long time, and he gave me an awful pitying look. I think I said, "What do you know about my father?"
 
 But he didn't answer, maybe I just thought it, instead he took his bowl to the sink and rinsed it out. The running water drowned out his words until he was standing in front of me. We were saying our goodbyes when I remembered to ask it he could bring some binoculars and gas cans up next week. He can.
 
-I know I watched him walk back to his truck, I stood on the deck. When he was out of sight I think I looked up feeling this horrible roiling in my stomach. I screamed for a very long time. Thunder rolled somewhere in the distance or just in my head. The cut had bled through the bandages. I changed them for fresh ones. I don't want another scar. I don't think it will scar. I need more. Nothing else happened. I need to hide from the moon. Bed time.
-
+I know I watched him walk back to his truck, I stood on the deck. When he was out of sight I think I looked up feeling this horrible roiling in my stomach. I screamed for a very long time. Thunder rolled somewhere in the distance or just in my head. The cut had bled through the bandages. I changed them for fresh ones. I don't want another scar. I don't think it will scar. I need more. Nothing else happened. I need to hide from the moon. Bed [time](https://www.reddit.com/r/nosleep/comments/1raij60/theres_a_ship_in_the_woods_part_11/).
