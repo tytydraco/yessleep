@@ -1,7 +1,5 @@
 Here's what happened next. I swear I didn't mean to do it. It isn't my fault!
 
-
-
 How could I move? How was I coherent? How was I even alive?  
 These thoughts and more attempted to overwhelm my defences and lay siege to my mind. I stood steadfast against the assault of waves of emotions and lingering abstract concepts. I was a lone rock battered and beaten by the ocean of bedlam that the Mother had afflicted me with. How cruel must this being have been to grant such splendour and rip it away? How gracious must it be to bestow it upon me at all?  
 No. I couldn’t afford to be distracted. I had to return to her exquisite embrace. I stood slowly and shakily with Isaac’s help. I could tell he was concerned about my condition, but I felt her on the other side of our connection. I drew strength from her and straightened.  
@@ -74,10 +72,10 @@ The centrepiece of the area was an inextricably immense tree that presided over 
 Each individual leaf drooled the same viscous saliva-like substance that had manifested itself all throughout the woods. If it weren’t for the obvious gloopy texture, one could easily be convinced that it was raining.  
 The floral monarch let loose a blend of anomalous noises. Wet slapping, sharp grating, rhythmic clicking. Here, the whispers grew to overwhelm the senses, piercing the very soul. Small burning fruits lit the area with a cold fire, each one a candle in the church to a dead god.  
 These details were easily overlooked when compared to the yawning orifice at its base. An enormous tunnel marred the ground’s too smooth surface. A great wet maw churned with masses of barbed tendrils and row after row of misshapen teeth. The gullet led almost straight down into the bowels of the earth, demanding my attention with the siren song of hell’s halls. Light never reached a bottom, creating a wall of abyssal night. The barricade of shadows churned, fluid and viscid, protecting my mortal mind from the torment of oblivion.  
-Like the creatures pursing me, this gigantic tree was not exclusively formed from plant-matter. The mouth seethed as a diseased, sinuous, malignant mass. Tumorous, meaty shoots spread from the cavernous epicentre, merging with the tree. The way the flesh pulsed, as cables of muscle burrowed their way in and out of the bark and roots, burned the revolting, yet alluring, image of this parasite into the fabric of my mind.  
+Like the creatures pursuing me, this gigantic tree was not exclusively formed from plant-matter. The mouth seethed as a diseased, sinuous, malignant mass. Tumorous, meaty shoots spread from the cavernous epicentre, merging with the tree. The way the flesh pulsed, as cables of muscle burrowed their way in and out of the bark and roots, burned the revolting, yet alluring, image of this parasite into the fabric of my mind.  
 As I reached the midway point between the edge of the clearing and the towering organism, my consciousness was once again blanketed in a thick haze. I felt Her on the other side of our bond. This magnificent monstrosity was a part of the Mother. Soon, I would be as well. I felt Her gently but firmly guiding my intoxicated self, straight towards the hungering jaws, but I did not struggle. Despite a tiny fragment of myself begging me to run, I knew this was meant to be. No fear sheltered within me, eaten by the divine stowaway hissing its desires within me.  
 This was my purpose.  
-This was my birthright.  
+This was my birth right.  
 This was my destiny.  
 Soon, I would re-enter that state of pure euphoria and my decayed body shuddered in anticipation. Each step brought me closer to true heaven. Each footstep sapped more and more of my free will. I welcomed it. I would become one with perfection. A true deity would subsume me.  
 It didn’t take long for me to reach the solid, striated perimeter of the cavernous orifice that reminded me uncomfortably of broad lips. A glass smile etched itself onto my face, reminiscent of the inscription on a tombstone. I sensed that miniscule part of me raging and sobbing with alarm, but the Mother’s will sucked it away voraciously. What use was fear to a being such as this?  
