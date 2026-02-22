@@ -245,3 +245,5 @@ But, I said I would tell the truth here, so, I’ll tell you the truth of what h
 I’ll tell you exactly how I killed my first patient.
 
 \-Dr. Laura Cotts
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/1rbo2hd/the_disappearance_of_saltpines_573_residents_part/)
