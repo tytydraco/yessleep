@@ -147,3 +147,5 @@ For a moment, I wondered if the Museum wasn’t displaying objects at all—if i
 The Museum began to close, and I walked to my elevator. It grinned upon my return, but still stuttered on the descent to my flat.
 
 The Director was waiting for me.
+
+[Next](https://www.reddit.com/r/nosleep/comments/1rbteks/i_write_the_rules_for_a_museums_anomalous_objects/)
