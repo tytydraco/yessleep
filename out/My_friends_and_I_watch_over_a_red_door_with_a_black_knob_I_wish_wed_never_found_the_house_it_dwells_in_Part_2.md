@@ -365,3 +365,5 @@ My hands were trembling when we reached the second-floor balcony, and I could se
 The basement door that Casey had left slightly ajar.
 
 Somebody was down there, and they were screaming desperate, bloody murder for help.
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1rbykx6/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
