@@ -1,54 +1,202 @@
-I still have nightmares about the procedure. It’s been years now but the day still haunts my dreams. 
+I was seventeen when it started. I had maybe three friends and a boyfriend, all living a considerable distance from me. It was early December. I had just finished high school and felt completely lost about what my life would look like after January.
 
-It was 2 pm when I walked into the doctors office for my yearly check up. The sitting area had comfy, modern furniture and a nice light blue paint covering the walls making a light hearted and positive atmosphere. I walk up to the counter, sign my name on the check in seat and walk to the couch set on the far wall. I always liked to be aware of my surroundings, who’s moving where, what they are doing. 
+December 10th was when everything began.
 
-The office door opens, “Mr. Knight?” The nurse says with a warm smile. I stand up and make my way over to her. She smiles and instructs me to follow her. 
+We had just returned from a family trip—one we took every year to the same place, never staying more than three days. My mom went out to take care of something downtown. I wasn’t scheduled to work that day, but my boyfriend and friends were. That meant I’d spend the day alone at home with my dog, Nina.
 
-“Having a good day so far?” I ask her.
+The day felt strange. It wasn’t as hot or humid as it should’ve been. There were no phone notifications. No cars passing by. Not even the usual lunchtime screaming match from the neighbor couple across the street.
 
-We turn the corner and walk down a long hallway to room 7. “Sure am, please, have a seat. What are you in for today?”
+By almost ten at night, my mom still hadn’t come home. That was strange. She would never go that long without calling to check on me or explain why she was late. I tried texting her.
 
-“Just a yearly, but since I’m here, I’ve been having a lot of pain in my neck just under my jaw. Nothing too extreme, probably a 3 on a scale of 1-10.”
+The message wouldn’t send.
 
-She smiles, “we’ll be sure to check that out. Anything else?”
+Two days later—December 12th—the nightmare truly began.
 
-“No ma’am, I believe that’s it.”
+The last messages I received before my phone signal died were from Júlio, my boyfriend, and my grandmother. Júlio told me to stay home. He asked if I’d seen the news and if I was okay. My grandmother said she had found my mom she is safe. She told me to lock all the doors and wait—they would come get me.
 
-She chuckles, “Excellent, the doctor will be in shortly.”
+That was the moment I knew something was very wrong. I just didn’t know what.
 
-She leaves the room. The sound of the door softly clicking behind her. I’m left in the room, silent except for the humming of the fluorescent lights. 
+I was never the type to watch the news. My social media feeds were usually limited to updates about my favorite celebrities. But because of the situation, I turned on the TV—while I still could.
 
-The knock on the door startles me, shaking me from a day dream. “Hey Knight, how you doin’ today”
+Every channel was saying the same thing:
 
-“Hey Ryan, not too bad, just some discomfort in my neck, I’m sure the nurse told you.” 
+“It’s a highly contagious virus. Do not leave your house. Do not get cut or come into contact with someone else’s blood. Do not go outside without a mask. And most importantly—do not stay near them.”
 
-He nods and moves over to the table. Like always first thing is vitals, after the routine oil and maintenance is done he moves to check out my neck. His fingers start just below the ear and work their way down the jawbone. He stops suddenly. His eyes widen. “What’s up? Everything okay?”
+Them.
 
-He looks at me intensely, “Knight, I’m going to have you do a MRI. You have a lump in your neck that causes some concern.” 
+My house was small, with no balcony and no windows facing directly onto the street. But given everything that was happening, I felt like I needed to see for myself.
 
-I start to sweat. “Follow the nurse down the hall, she will get you prepped.”
+I wasn’t stupid enough to open the gate and walk outside. So I spent hours trying to figure out how I could look without putting myself in danger.
 
-“This is nothing to worry about right?”
+“The ladder,” I said out loud.
 
-“I’m sure it’s fine Mr. Knight. Please put this on and lay on the table, this shouldn’t take long” The procedure was quick and so was the docs arrival. 
+It was in the backyard. If I leaned it against the wall, I could look over without stepping into the street. There was some distance between the wall and the sidewalk. It wouldn’t be dangerous.
 
-“Knight, it seems you have a tumor on your neck we will do some test and then you can go home. We will call you when the results get back.”
+At least, that’s what I thought.
 
-The next few days my mind raced. Is it cancer? Is this really happening? It can’t be? I eat healthy, I exercise, I don’t have a history of it. 
+I gathered my courage and climbed up.
 
-As the days passed my thoughts turned towards the grave, growing darker, weighing heavier on my mind. The phone rings, after three days. “Hey Knight, I got bad news and I got good news.. it’s cancerous but we can cut it out. If you want the procedure we can schedule you in for tomorrow June 13th.” 
+When I think back to that moment, I sometimes wish I hadn’t looked.
 
-“That works I’ll be there, what time?”
+Along the street were people—or what used to be people. They were completely disfigured. Some had holes all over their bodies. Others were missing arms and legs, torn off brutally. I saw a woman with less than half of her skull left. It was the most grotesque thing I had ever witnessed.
 
-“8am you’ll be the first one.”
+I stood there, frozen, staring at them.
 
-The receiver clicks. That night was brutal, my mind raced at all the possibilities. Sleep didn’t come easy and when it did the nightmares began. Finally the morning arrives and I head to the office. The sitting room seemed a little colder today. The lady behind the counter tells me to go to operating room 6. The walk felt much longer and gloomier than the one just days before. I sit down in the chair, my foot shaking. Ryan knocks and walks in. 
+An elderly woman opened her gate and tried to slip past unnoticed.
 
-“Hey Knight go ahead and hop on the table. The anesthesiologist will be in shortly.”
+She didn’t make it.
 
-A minute later, the anesthesiologist is looking down at me explaining how the meds work and asking if I’m ready. I nod to scared to speak. He hooks up the mask to my face and injects the medication into me. I start to count backwards into nothingness. 
+I saw a young man run toward her. He grabbed her, and within seconds—drawn by her screams—others joined him. They ate her flesh the way someone eats an apple. Slowly. Almost playfully. As if they were enjoying watching her suffer.
 
-The lights are bright and dancing in circles. My body is stiff, I can’t move. I hear some muttering. I see doctors in masks and green cloaks. I feel a slice at my neck. My eyes open in pain as I feel the sharp steel slowly insert next to my vocal cords. The blade drags down and around. I try and speak or wiggle any part of my body. My eyes darting around the room praying for this to end. My head shifts and I hear a scream. I feel the blade tear quickly away from my throat and hear a grotesque snap, then a pop. I see the operating doc look at me, he slowly removes his mask. His smile turns into a snarl. His eyes appear black, “I hope you don’t mind, but I really need to finish.“ My eyes close. I pray for death wanting the pain to end.
+In the end, only part of her torso remained. Scratched bones where her arms and legs had been. They had eaten down to the nerves.
 
-I see the lights as I come too. My neck is bandaged. I try to speak, but silence. 
-I see the doctors every night staring at me with malice, the smile turns into a sickening grin as they tear out my throat. It’s been years since I said my last words.
+And somehow, she was still moving.
+
+Dragging useless bones across the pavement like chains.
+
+Then they moved on in silent groups.
+
+Unlike in the movies, they didn’t sniff the air. They didn’t groan or snarl. They just stood there. Still. I don’t think they even breathed.
+
+But I felt it.
+
+I felt like they knew I was there.
+
+One of them looked straight at me. I don’t know if they can see—its eyes were white where they should have been black, and red where they should have been white.
+
+I climbed down the ladder, shaking, terrified I would die the same way that woman had.
+
+Inside, I locked myself in my bedroom. The window was pure glass. If they broke it, they’d be inside. I removed everything useful from the room and barricaded the door so nothing could enter—or leave.
+
+I brought Nina inside. She’s calm, but when she’s scared, she screams. If she saw those things, she would bark until they tore down the gate.
+
+I gathered every bucket and bottle I could find and filled them with water. If the rest of the country was like this, the water wouldn’t last long.
+
+I salted all the meat in the freezer and calculated how long we could ration the food.
+
+One month.
+
+After that, I would have to risk the backyard garden.
+
+On the fifth day, the TV transmissions stopped.
+
+The radio lasted until the tenth.
+
+The same man kept saying they were zombies. That even a scratch meant infection.
+
+On the twentieth day, the power went out.
+
+I chose to save the candles.
+
+So it was just me, Nina, and the darkness every night.
+
+Yesterday I ate a wilted bell pepper. Nina ate an old zucchini. We still have water—only for drinking. Sometimes she cries, begging me to open the doors. I know she misses running in the yard.
+
+Sometimes I cry too.
+
+I miss my mother’s hug.
+
+On the night of the 24th, I took a risk. I jumped the wall and went to the garden. I picked fresh vegetables and fruit. I had never been so grateful for my mother’s obsession with plants.
+
+We had tomatoes, kale leaves, and passion fruit for dinner.
+
+On the twenty-fifth day, we ate a huge papaya. I still don’t know how I managed to carry it while climbing back over the wall.
+
+Nina is thinner now. That scares me.
+
+When the power went out, we ate nothing but meat for days—I couldn’t risk it spoiling. Now all we have are leaves, old vegetables, and flour I can use to trick our stomachs into thinking we’re full.
+
+It’s January 10th.
+
+I climb the ladder and look over the wall every day. It doesn’t hurt anymore to see the horrors outside.
+
+Almost every morning, I put Nina’s leash on and lift her up with me. Maybe a little vitamin D will help us stay strong.
+
+I cry almost every night thinking about my friends, my boyfriend, my family. I imagine them wandering the city like hollow shells wearing the skin of the people I love.
+
+Sometimes I see birds flying overhead. Dogs barking in the distance.
+
+But mostly, there is silence.
+
+I talk to Nina constantly. I’m afraid that if I don’t hear a human voice soon, I’ll lose my mind.
+
+Today is the 14th.
+
+My eighteenth birthday.
+
+I used to wish for huge parties and expensive gifts. Now, a hug from my mom or a real meal would be worth more than gold.
+
+Why didn’t they come for me? Did they think I was dead? Or are they dead?
+
+Either way, I end up alone.
+
+The water will last one more week at most. The food is gone.
+
+And I am losing my sanity.
+
+After more than a month, I couldn’t think of any safe way to communicate. So I chose the most insane option.
+
+I’m leaving.
+
+I gathered everything useful: a blanket, matches, ammunition, some dog food I found in the yard, a broken broom handle to use as a spear, and a huge knife my mom had made months ago.
+
+She had two cars. One new and fragile. The other old, heavy steel—the kind that could probably hit a truck and survive.
+
+That one was still here.
+
+I had barely any driving lessons. My terrible driving skills might kill us before the monsters did.
+
+But I had to try.
+
+I wanted to reach my grandmother’s house. It wasn’t far. Maybe my family was there.
+
+I put on the thickest jacket I owned to protect my arms and tucked Nina inside it, like a baby kangaroo. If I had to run, I wouldn’t have to worry about her keeping up.
+
+I was shaking. Terrified.
+
+But I couldn’t sit there and starve to death.
+
+When I opened the gate and returned to the car, they noticed.
+
+But they didn’t attack.
+
+From inside the house, they had seemed almost rational—like cats watching a mouse that thinks it can escape.
+
+I struggled, but I managed to get the car out of the garage.
+
+Doors locked. Windows shut.
+
+Even in the heat, Nina trembled inside my jacket.
+
+God, I was a terrible driver.
+
+I ran over at least ten of them on the way.
+
+When we reached my grandmother’s house, I heard voices.
+
+Low. Human.
+
+The most beautiful sound I had ever heard.
+
+They weren’t dead.
+
+I locked the car and climbed the wall—at least eight feet high. Adrenaline does incredible things.
+
+Sitting on top of it, I wondered where I could jump without hurting myself. I hesitated, unsure if shouting would put me in danger.
+
+Then I heard screams.
+
+From outside.
+
+From the street.
+
+From everywhere.
+
+From all the zombies.
+
+If they can scream…
+
+Then who is speaking inside?
+
+I’m still sitting on this wall, clutching Nina against my chest, my heart pounding so hard it feels like it might burst.
+
