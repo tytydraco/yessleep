@@ -77,5 +77,3 @@ or that it might actually be me in there. the real one. and I'm the copy.
 I have to go back in eventually. I know that.
 
 will update when I do. if I do.
-
-edit: for everyone asking, yes I'm real, yes this actually happened, no I don't know what to do either, and no before anyone says it this is not ChatGPT lmao I'm just a tired person sitting in a cold car who needed to tell someone

@@ -119,3 +119,17 @@ We both saw the same thing.
 Now I don’t know what to think.
 
 I already feel this post is long enough but we did go and ask my aunt so let me know if you wanna know about that . Also if you know what this thing might be or if you had similar experience
+
+Edit: so here’s what happened when we asked my aunt , she’s more in touch with her spirituality so I’ve knows she won’t brush this away, she in fact confirmed that a lot of weird things happened when she used to live there, they’d wake up and find eggs cracked on the walls , and light bulbs would always explode, and she always felt a weird presence, but she in fact never saw the entity I’ve described, she said that at one point when the electrical problems got too much and almost caused a fire when they weren’t home , my grandpa got an sheikh “ a Muslim equivalent of a priest “ and he blessed the house , the problems stopped for a while but they came back , in fact until recently an electrical short circuit happened and the power went off for days, even the electricians they brought couldn’t fix it right away.
+
+To answer some of your questions,
+
+No I didn’t ask my grandmother, she lives alone there now and I would never want to creep her out.
+
+No this isn’t AI, it’s a completely true story , I wish it wasn’t.
+
+No I don’t think it’s sleep paralysis, I was awake during all of it
+
+No nobody died in the house as far as I know, my grandpa built the house in the 70s, so no other families lived in the house other than my own ,
+
+The guest room was a part of the kitchen before they renovated the house when all their kids moved out and they didn’t need a big kitchen anymore
