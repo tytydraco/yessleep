@@ -1,102 +1,179 @@
 Here's what happened next. I swear I didn't mean to do it. It isn't my fault!
 
-How could I move? How was I coherent? How was I even alive?  
-These thoughts and more attempted to overwhelm my defences and lay siege to my mind. I stood steadfast against the assault of waves of emotions and lingering abstract concepts. I was a lone rock battered and beaten by the ocean of bedlam that the Mother had afflicted me with. How cruel must this being have been to grant such splendour and rip it away? How gracious must it be to bestow it upon me at all?  
-No. I couldn’t afford to be distracted. I had to return to her exquisite embrace. I stood slowly and shakily with Isaac’s help. I could tell he was concerned about my condition, but I felt her on the other side of our connection. I drew strength from her and straightened.  
-“I’m going into the forest.”  
+How could I move? How was I coherent? How was I even alive?
+
+These thoughts and more attempted to overwhelm my defences and lay siege to my mind. I stood steadfast against the assault of waves of emotions and lingering abstract concepts. I was a lone rock battered and beaten by the ocean of bedlam that the Mother had afflicted me with. How cruel must this being have been to grant such splendour and rip it away? How gracious must it be to bestow it upon me at all?
+
+No. I couldn’t afford to be distracted. I had to return to her exquisite embrace. I stood slowly and shakily with Isaac’s help. I could tell he was concerned about my condition, but I felt her on the other side of our connection. I drew strength from her and straightened.
+
+“I’m going into the forest.”
+
 Isaac’s face displayed a combination of anger at my perceived idiocy and fear of my condition.  
-“What? You need to sit and wait. I’m calling an ambulance.”  
-He visibly relaxed as I nodded but it quickly became strained once more as I strode, confidently, towards the back door. Isaac put himself between me and the door. I’m not exactly short, but he towered over me and, besides in my condition, he couldn’t possibly see what I could do to move him.  
-As he began to admonish me, I shattered the illusion of my frailty as, in one smooth motion, I pushed him aside. He shoved against my arm with vigour, but Isaac could not compare to the Mother’s strength. Hesitating for but a moment, I opened the door. I looked him in the eye and could clearly see a fusion of confusion and fright. It could not compare to Her.  
+“What? You need to sit and wait. I’m calling an ambulance.”
+
+He visibly relaxed as I nodded but it quickly became strained once more as I strode, confidently, towards the back door. Isaac put himself between me and the door. I’m not exactly short, but he towered over me and, besides in my condition, he couldn’t possibly see what I could do to move him.
+
+As he began to admonish me, I shattered the illusion of my frailty as, in one smooth motion, I pushed him aside. He shoved against my arm with vigour, but Isaac could not compare to the Mother’s strength. Hesitating for but a moment, I opened the door. I looked him in the eye and could clearly see a fusion of confusion and fright. It could not compare to Her.
+
 I stepped out the door.
 
-Moving with the lithe grace of a predator across the grass, I headed towards the treeline. I could feel my movements were unnatural but could not bring myself to care. The soft iridescent light of the moon shone through the trees. The glow, glinting off of the leaves, moved as if reflecting off the surface of a lake as the eery stillness of the night was disrupted by the return of the wind.  
-As I walked, the trees appeared as though they were turning to watch me pass, their branches bowing as if to royalty. I held my withered head high, and the forest held its breath, each tree waiting for their turn view my lone procession. I was the Mother’s chosen. There was nothing to fear.  
-Suddenly, the woodland took on a malevolent air. The atmosphere changed in an instant from respect to anger. I could read the aggression in the jagged shadows cast by the myriad branches and the way the moon’s light reflected on the flora surrounding me. From the smallest shrub to the largest oak, I could see that the forest’s sacred order was being trespassed upon.  
-I stopped and turned, already knowing who I’d see.  
-“You shouldn’t be here Isaac. It’s too dangerous for you.”  
-He gazed at me with a stern expression.  
-“You need to come back inside Max.”  
-He grabbed my arm as he approached and attempted to drag me back home. Isaac’s arms strained as he pulled at me. I stood as still and as solid as the trees around me. I was to be a part of the forest. He could no more force me to concede than he could force nature itself to submit to his will.  
-As I had gone further into the woods my feelings were numbed by the longing but a small spark of anger manifested itself in the graveyard of my emotions.  
-“I’m not going back. You’re just putting yourself in unnecessary danger.”  
-He finally gave up on manhandling me and glared.  
-“If you don’t go back, neither am I.”  
-“Do you not feel Her anger at your intrusion? You will die.”  
-His eyes widened.  
-“What the fuck are you on about, Max? The forest is always dangerous at night but if you think for a second that I am going to leave you alone out here then you’ve gone insane. Though, I’m starting to think that that train has left the station already.”  
-I stared at him for a long moment. A glimmer of guilt and a minute speck of horror was smothered by the strength of will emanating from the Mother. I sighed.  
+Moving with the lithe grace of a predator across the grass, I headed towards the treeline. I could feel my movements were unnatural but could not bring myself to care. The soft iridescent light of the moon shone through the trees. The glow, glinting off of the leaves, moved as if reflecting off the surface of a lake as the eery stillness of the night was disrupted by the return of the wind.
+
+As I walked, the trees appeared as though they were turning to watch me pass, their branches bowing as if to royalty. I held my withered head high, and the forest held its breath, each tree waiting for their turn view my lone procession. I was the Mother’s chosen. There was nothing to fear.
+
+Suddenly, the woodland took on a malevolent air. The atmosphere changed in an instant from respect to anger. I could read the aggression in the jagged shadows cast by the myriad branches and the way the moon’s light reflected on the flora surrounding me. From the smallest shrub to the largest oak, I could see that the forest’s sacred order was being trespassed upon.
+
+I stopped and turned, already knowing who I’d see.
+
+“You shouldn’t be here Isaac. It’s too dangerous for you.”
+
+He gazed at me with a stern expression.
+
+“You need to come back inside Max.”
+
+He grabbed my arm as he approached and attempted to drag me back home. Isaac’s arms strained as he pulled at me. I stood as still and as solid as the trees around me. I was to be a part of the forest. He could no more force me to concede than he could force nature itself to submit to his will.
+
+As I had gone further into the woods my feelings were numbed by the longing but a small spark of anger manifested itself in the graveyard of my emotions.
+
+“I’m not going back. You’re just putting yourself in unnecessary danger.”
+
+He finally gave up on manhandling me and glared.
+
+“If you don’t go back, neither am I.”
+
+“Do you not feel Her anger at your intrusion? You will die.”
+
+His eyes widened.
+
+“What the fuck are you on about, Max? The forest is always dangerous at night but if you think for a second that I am going to leave you alone out here then you’ve gone insane. Though, I’m starting to think that that train has left the station already.”
+
+I stared at him for a long moment. A glimmer of guilt and a minute speck of horror was smothered by the strength of will emanating from the Mother. I sighed.
+
 “So be it.”
 
-Even in my obsessive state, the forest’s obvious hatred began to unsettle me. Isaac walked behind me, obviously pained by our situation. He tried plenty of times to convince me to return home or to stop and think or to explain what was going on. I ignored him and strode on in silence.  
-The rhythmic pace of my stride began to lull me into a vacant state of mind. The passage of time became an inconceivable notion as we moved ever onward. Shadows in the recesses of the woods took on a thick tar-like texture and dragged at us as we passed. Our clothes caught on branch after branch as if they were in places where, moments before, there had been nought but air. The moonlight took on a darker and darker shade by the second and the moon itself scowled down at us heatedly. Each of the occasional woodland creatures we spotted in the distance were always, without fail, looking directly at us. A fox made constant unnerving eye contact with me as it gently ripped a rabbit apart, not even eating.  
-The further enraged the forest became, the clearer I could think. The longing never lessened but, one by one, emotions came back into my awareness. Fear of the forest came first. Then worry of what exactly I was heading towards. Finally, guilt. I halted suddenly and turned towards Isaac.  
-“You need to go back.” Voice cracking with desperation, and I struggled to convey how sorry I was through my eyes alone. He stepped forward and firmly gripped my shoulders, as if attempting to ground me back in reality. I hugged him frantically, my vision filling with the tattoo of the tree of life, damp with sweat, as I drew closer.  
-“Are you?”  
-“I can’t.”  
-“You can’t or you won’t.”  
-I hesitated, “I think both.”  
-Resignation clear in his face wrenched at my soul. Why couldn’t I have stayed numb?  
-“Then neither am-“  
-*Crunch*  
-He stopped midsentence, “Did you hear that?”  
-I felt it then. Maybe it was the forest or maybe it was the Mother, but something had tired of Isaac’s sacrilege. Fury was still apparent in the ridges of the bark and the curves of the leaves, but it was calmer. Quiet anticipation had replaced aggression and, every now and then, a faint crunch broke the silence.  
-Isaac’s look of terror reflected my own. This was not one of the multitudes of natural woodland sounds. We just knew it. Dread clawed its way, hand by hand, up my spine.  
-“Something’s coming.”  
-Turning to my brother, I put a shaky finger to my lips.  
-“Stay quiet.” Whispering with frustration, I was met with the intense look of fear upon his face morphing into pure panic as he squeaked.  
-“That wasn’t me.”  
-Before the implication of that statement could be fully processed, the feeling of a finger softly running its way down my back imposed itself upon me.  
+Even in my obsessive state, the forest’s obvious hatred began to unsettle me. Isaac walked behind me, obviously pained by our situation. He tried plenty of times to convince me to return home or to stop and think or to explain what was going on. I ignored him and strode on in silence.
+
+The rhythmic pace of my stride began to lull me into a vacant state of mind. The passage of time became an inconceivable notion as we moved ever onward. Shadows in the recesses of the woods took on a thick tar-like texture and dragged at us as we passed. Our clothes caught on branch after branch as if they were in places where, moments before, there had been nought but air. The moonlight took on a darker and darker shade by the second and the moon itself scowled down at us heatedly. Each of the occasional woodland creatures we spotted in the distance were always, without fail, looking directly at us. A fox made constant unnerving eye contact with me as it gently ripped a rabbit apart, not even eating.
+
+The further enraged the forest became, the clearer I could think. The longing never lessened but, one by one, emotions came back into my awareness. Fear of the forest came first. Then worry of what exactly I was heading towards. Finally, guilt. I halted suddenly and turned towards Isaac.
+
+“You need to go back.” Voice cracking with desperation, and I struggled to convey how sorry I was through my eyes alone. He stepped forward and firmly gripped my shoulders, as if attempting to ground me back in reality. I hugged him frantically, my vision filling with the tattoo of the tree of life, damp with sweat, as I drew closer.
+
+“Are you?”
+
+“I can’t.”
+
+“You can’t or you won’t.”
+
+I hesitated, “I think both.”
+
+Resignation clear in his face wrenched at my soul. Why couldn’t I have stayed numb?
+
+“Then neither am-“
+
+*Crunch*
+
+He stopped midsentence, “Did you hear that?”
+
+I felt it then. Maybe it was the forest or maybe it was the Mother, but something had tired of Isaac’s sacrilege. Fury was still apparent in the ridges of the bark and the curves of the leaves, but it was calmer. Quiet anticipation had replaced aggression and, every now and then, a faint crunch broke the silence.
+
+Isaac’s look of terror reflected my own. This was not one of the multitudes of natural woodland sounds. We just knew it. Dread clawed its way, hand by hand, up my spine.
+
+“Something’s coming.”
+
+Turning to my brother, I put a shaky finger to my lips.
+
+“Stay quiet.” Whispering with frustration, I was met with the intense look of fear upon his face morphing into pure panic as he squeaked.
+
+“That wasn’t me.”
+
+Before the implication of that statement could be fully processed, the feeling of a finger softly running its way down my back imposed itself upon me.
+
 I ran.
 
-Branches whipped at our skin with bestial relish as we flew through the limitless foliage. As we began our sprint, the forest had erupted into a choir of torment. Wind howled through woods with an inevitable wrath. Birds screeched and mammals growled in a song of fury and fear. Oak limbs groaned and vines hissed. A damp smell of rot suffused the air, choking us as we fled. Roots and branches reached out hungrily to bind and trip. Slime coated every nook and cranny, soaking into the mossy carpet beneath our feet.  
-The woodland grew thicker with flora, making our escape that much more difficult. As I bolted between the trunks, I glimpsed our pursuers. Midnight silhouettes with their myriad body parts all out of proportion. One was twice the size of a man, lanky and limber. Its elongated arms dragged about a metre behind it as it loped after us. Another was stumpy and stout, rushing on all fours. Another still, scurried along on a multitude of legs. As they galloped, they whispered. Some promised pleasure. Others threatened pain. Mostly it was an incoherent cavalcade of word after word, as if they were trying to speak sentences using only a dictionary.  
-Ahead of Isaac, I identified a rather large tree in the distance. It too radiated malicious intentions but had no branches near the base making it relatively safe. The things hunting us were gaining ground rapidly. So, I gambled. As we approached the tall tree, I slowed as quickly as possible and pressed my back against the slimy serrated bark. For a few short moments, I awaited my discovery and the following disembowelment. But none came. Instead, a collection of the beasts sprinted right past my hiding spot chasing, to my horror, my brother. So focussed on saving my own skin, I had completely overlooked communicating to my plan to Isaac. My arm reached out in his direction, of its own volition, and I let out a pathetic whine.  
+Branches whipped at our skin with bestial relish as we flew through the limitless foliage. As we began our sprint, the forest had erupted into a choir of torment. Wind howled through woods with an inevitable wrath. Birds screeched and mammals growled in a song of fury and fear. Oak limbs groaned and vines hissed. A damp smell of rot suffused the air, choking us as we fled. Roots and branches reached out hungrily to bind and trip. Slime coated every nook and cranny, soaking into the mossy carpet beneath our feet.
+
+The woodland grew thicker with flora, making our escape that much more difficult. As I bolted between the trunks, I glimpsed our pursuers. Midnight silhouettes with their myriad body parts all out of proportion. One was twice the size of a man, lanky and limber. Its elongated arms dragged about a metre behind it as it loped after us. Another was stumpy and stout, rushing on all fours. Another still, scurried along on a multitude of legs. As they galloped, they whispered. Some promised pleasure. Others threatened pain. Mostly it was an incoherent cavalcade of word after word, as if they were trying to speak sentences using only a dictionary.
+
+Ahead of Isaac, I identified a rather large tree in the distance. It too radiated malicious intentions but had no branches near the base making it relatively safe. The things hunting us were gaining ground rapidly. So, I gambled. As we approached the tall tree, I slowed as quickly as possible and pressed my back against the slimy serrated bark. For a few short moments, I awaited my discovery and the following disembowelment. But none came. Instead, a collection of the beasts sprinted right past my hiding spot chasing, to my horror, my brother. So focussed on saving my own skin, I had completely overlooked communicating to my plan to Isaac. My arm reached out in his direction, of its own volition, and I let out a pathetic whine.
+
 I slid down against the wet trunk and sat in a puddle of ooze. This time I could not blame my selfishness on my link to the Mother. While I still knew that I had to find her, no matter how painful the repercussions, I also knew that I was of relatively sound mind. I could’ve called out to him. I could have grabbed him as he passed me. But all I listened to were my own instincts for self-preservation.
 
-I don’t know how long I sat there, wallowing in my own pity and self-loathing but eventually the drive to find the divine messenger took over once more. The woods remained a hostile environment, giving me hope that Isaac could still be alive. I convinced myself I would find him after I found the Mother. Even knowing it was a lie, I still took some solace in it.  
-I began once again to traverse nature’s domain, unerring in my path towards Her. Dark clouds hung as immense roiling curtains that randomised when the moonlight fell upon the foliage. Even in the pitch black I knew where I was going with unwavering certainty. I felt the layout of the forest through the connection, and I continued to draw strength from it. She guided me and Her power rendered me indefatigable. Even still nature is, at its core, untameable. Danger lurked around every corner.  
-The crunch of footsteps reached my ears, freezing me in place. Terror gripped my heart. I couldn’t die before I fulfilled my purpose. I couldn’t die before I felt her touch once more. The clouds deigned to allow streaks of moonlight through, enabling me to spot my stalker. The figure with the incredibly lengthy limbs drew closer, each of its steps worth ten of mine. I looked on at the shadowy figure until, finally, the light of the moon revealed it to me.  
-It was an abomination. An awful amalgamation of meat and plant. The monstrosity was armoured with a cracked carapace of spiked bark. Sore diseased flesh oozed from those cracks like soggy playdough. Pustules and boils covered the thing and patches of small gangrene ridden holes covered it. The holes were leaking juices and thin fleshy tentacles wriggled in each one.  
-The bark was a dull grey, and the thing seemed to be rot incarnate. Its elongated arms and legs were thick collections of vines wrapped around each other. They writhed and pulsed like a mass of rabid snakes. The peeling bark made a futile effort to shield these limbs but as it moved, shards splintered off like shattered glass. Insects of various kinds moved in and out of the cracks and crevasses of the beast. I could see masses of plump glistening wet maggots feeding on the flesh and the plant parts alike. The bugs rained down upon the forest floor like demented confetti as the tree-thing took long uncanny steps towards me.  
-My eyes were repeatedly drawn to the groups of meaty craters scattered on the surface. As I gawked in fascinated horror, I saw that the tiny wiggling tentacles had purpose. Whenever a curious insect got too close the gooey hollows, the tongues would stretch and pierce the critter with a sharp tip. The poor wretch would be dragged inside and moments later the holes would squirt multicoloured juices out to dribble down the surface of the skin.  
-Its face, if you could even call it that, was three large cavities of varying sizes. One slot had an eyeball so swollen that split seams scarred the surface and the square goat-like pupil changed sizes erratically. This engorged eye somehow let out an array of nonsensical murmurs, chilling me to the bone. The second slot was a wet fleshy tunnel, which could effortlessly fit a human skull, filled with rings of crooked teeth spinning and grinding together emitting small ejections of fluid that burned and steamed on the rot ridden exterior at random intervals. The third and final slot simply contained a human eye, surrounded by squeezing muscle, which focussed on me as it approached.  
-It had proven to be capable of easily outpacing me, yet it stalked closer leisurely, obviously enjoying itself. I finally came to my senses and, instead of continuing to gape at it like an idiot, I turned to run. Before I could pick up speed, the root of a nearby tree snapped out with violent abandon and tripped me. I fell into the mud with a wet slap but managed to scramble back onto my feet in a primal panic. Unfortunately, the abomination had expected me to flee, and I felt a cold greasy appendage coil its way around my left leg. No matter how much I pulled and clawed at the vine, it didn’t budge. It pulsed and twitched as I was slowly dragged back towards the waiting maw.  
-My thin fragile leg should have snapped in its desiccated state, but the Mother’s strength sated my needs. A deadening of my consciousness occurred in an instant. All thoughts and emotions became distant concepts as I was injected with a dose of divine energy across our connection. I squeezed the thick powerful vine with my bare hands, reducing the fleshy plant matter to a mush resembling baby food. The rest of the appendage went limp a fell off me, landing on the grass with a wet slap.  
-The whispers transformed into a scream of pain and ferocity as the creature flailed about. Its slow predatory menace quickly became a savage animalistic desire to kill. I barely managed to get my feet beneath me as the amalgamation swung its enormous vine-arm at me. It just barely missed, the disturbance in the air nearly knocking me off balance. It collided with multiple trees at break-neck speeds and snapped the thick trunks like twigs. Fear impressed itself upon me at such a colossal feat of strength. The collection of woodland collapsed in a heap behind me, forming a wall between me and the beast.  
+I don’t know how long I sat there, wallowing in my own pity and self-loathing but eventually the drive to find the divine messenger took over once more. The woods remained a hostile environment, giving me hope that Isaac could still be alive. I convinced myself I would find him after I found the Mother. Even knowing it was a lie, I still took some solace in it.
+
+I began once again to traverse nature’s domain, unerring in my path towards Her. Dark clouds hung as immense roiling curtains that randomised when the moonlight fell upon the foliage. Even in the pitch black I knew where I was going with unwavering certainty. I felt the layout of the forest through the connection, and I continued to draw strength from it. She guided me and Her power rendered me indefatigable. Even still nature is, at its core, untameable. Danger lurked around every corner.
+
+The crunch of footsteps reached my ears, freezing me in place. Terror gripped my heart. I couldn’t die before I fulfilled my purpose. I couldn’t die before I felt her touch once more. The clouds deigned to allow streaks of moonlight through, enabling me to spot my stalker. The figure with the incredibly lengthy limbs drew closer, each of its steps worth ten of mine. I looked on at the shadowy figure until, finally, the light of the moon revealed it to me.
+
+It was an abomination. An awful amalgamation of meat and plant. The monstrosity was armoured with a cracked carapace of spiked bark. Sore diseased flesh oozed from those cracks like soggy playdough. Pustules and boils covered the thing and patches of small gangrene ridden holes covered it. The holes were leaking juices and thin fleshy tentacles wriggled in each one.
+
+The bark was a dull grey, and the thing seemed to be rot incarnate. Its elongated arms and legs were thick collections of vines wrapped around each other. They writhed and pulsed like a mass of rabid snakes. The peeling bark made a futile effort to shield these limbs but as it moved, shards splintered off like shattered glass. Insects of various kinds moved in and out of the cracks and crevasses of the beast. I could see masses of plump glistening wet maggots feeding on the flesh and the plant parts alike. The bugs rained down upon the forest floor like demented confetti as the tree-thing took long uncanny steps towards me.
+
+My eyes were repeatedly drawn to the groups of meaty craters scattered on the surface. As I gawked in fascinated horror, I saw that the tiny wiggling tentacles had purpose. Whenever a curious insect got too close the gooey hollows, the tongues would stretch and pierce the critter with a sharp tip. The poor wretch would be dragged inside and moments later the holes would squirt multicoloured juices out to dribble down the surface of the skin.
+
+Its face, if you could even call it that, was three large cavities of varying sizes. One slot had an eyeball so swollen that split seams scarred the surface and the square goat-like pupil changed sizes erratically. This engorged eye somehow let out an array of nonsensical murmurs, chilling me to the bone. The second slot was a wet fleshy tunnel, which could effortlessly fit a human skull, filled with rings of crooked teeth spinning and grinding together emitting small ejections of fluid that burned and steamed on the rot ridden exterior at random intervals. The third and final slot simply contained a human eye, surrounded by squeezing muscle, which focussed on me as it approached.
+
+It had proven to be capable of easily outpacing me, yet it stalked closer leisurely, obviously enjoying itself. I finally came to my senses and, instead of continuing to gape at it like an idiot, I turned to run. Before I could pick up speed, the root of a nearby tree snapped out with violent abandon and tripped me. I fell into the mud with a wet slap but managed to scramble back onto my feet in a primal panic. Unfortunately, the abomination had expected me to flee, and I felt a cold greasy appendage coil its way around my left leg. No matter how much I pulled and clawed at the vine, it didn’t budge. It pulsed and twitched as I was slowly dragged back towards the waiting maw.
+
+My thin fragile leg should have snapped in its desiccated state, but the Mother’s strength sated my needs. A deadening of my consciousness occurred in an instant. All thoughts and emotions became distant concepts as I was injected with a dose of divine energy across our connection. I squeezed the thick powerful vine with my bare hands, reducing the fleshy plant matter to a mush resembling baby food. The rest of the appendage went limp a fell off me, landing on the grass with a wet slap.
+
+The whispers transformed into a scream of pain and ferocity as the creature flailed about. Its slow predatory menace quickly became a savage animalistic desire to kill. I barely managed to get my feet beneath me as the amalgamation swung its enormous vine-arm at me. It just barely missed, the disturbance in the air nearly knocking me off balance. It collided with multiple trees at break-neck speeds and snapped the thick trunks like twigs. Fear impressed itself upon me at such a colossal feat of strength. The collection of woodland collapsed in a heap behind me, forming a wall between me and the beast.
+
 I ran as far and for as long as I could until I came to a standstill. The air choked me and gravity tugged me to the dirt with great intensity. Using the Mother’s strength had cost me greatly. My body had decayed further giving me the appearance of being shrink wrapped inside my skin. If it were not for the Mother sustaining me, I would have been long dead. I began to crawl forward on my hands and knees. They mud and slime clung to my skin and clothes, drooling off of me in thick globules. It felt as if I were inching myself steadily into my grave, but the Call stayed fixed in my mind. It was imperative that I keep going. No matter what. Finally, after what had to have been hours of a combination of crawling and stumbling through the rotting woodland, I came upon a wide clearing.  
 I had finally found Her.
 
-Stepping into the open clearing was moving from one world into another. The moon’s glow took on a soft red caste and the atmosphere of danger deepened into dense dread. The grass I stood on was brittle, as if frozen, making each careful step into a loud crunch. Every movement I made echoed unnaturally throughout the glade, each sound boomed with sombre intensity.  
+Stepping into the open clearing was moving from one world into another. The moon’s glow took on a soft red caste and the atmosphere of danger deepened into dense dread. The grass I stood on was brittle, as if frozen, making each careful step into a loud crunch. Every movement I made echoed unnaturally throughout the glade, each sound boomed with sombre intensity.
+
 The centrepiece of the area was an inextricably immense tree that presided over its dominion with an iron fist. The trunk was thicker than a building and was far taller than the average apartment building. A plant this large could not exist. It was unfathomable. How had I not spotted this behemoth from miles away?  
 Each individual leaf drooled the same viscous saliva-like substance that had manifested itself all throughout the woods. If it weren’t for the obvious gloopy texture, one could easily be convinced that it was raining.  
-The floral monarch let loose a blend of anomalous noises. Wet slapping, sharp grating, rhythmic clicking. Here, the whispers grew to overwhelm the senses, piercing the very soul. Small burning fruits lit the area with a cold fire, each one a candle in the church to a dead god.  
+The floral monarch let loose a blend of anomalous noises. Wet slapping, sharp grating, rhythmic clicking. Here, the whispers grew to overwhelm the senses, piercing the very soul. Small burning fruits lit the area with a cold fire, each one a candle in the church to a dead god.
+
 These details were easily overlooked when compared to the yawning orifice at its base. An enormous tunnel marred the ground’s too smooth surface. A great wet maw churned with masses of barbed tendrils and row after row of misshapen teeth. The gullet led almost straight down into the bowels of the earth, demanding my attention with the siren song of hell’s halls. Light never reached a bottom, creating a wall of abyssal night. The barricade of shadows churned, fluid and viscid, protecting my mortal mind from the torment of oblivion.  
-Like the creatures pursuing me, this gigantic tree was not exclusively formed from plant-matter. The mouth seethed as a diseased, sinuous, malignant mass. Tumorous, meaty shoots spread from the cavernous epicentre, merging with the tree. The way the flesh pulsed, as cables of muscle burrowed their way in and out of the bark and roots, burned the revolting, yet alluring, image of this parasite into the fabric of my mind.  
-As I reached the midway point between the edge of the clearing and the towering organism, my consciousness was once again blanketed in a thick haze. I felt Her on the other side of our bond. This magnificent monstrosity was a part of the Mother. Soon, I would be as well. I felt Her gently but firmly guiding my intoxicated self, straight towards the hungering jaws, but I did not struggle. Despite a tiny fragment of myself begging me to run, I knew this was meant to be. No fear sheltered within me, eaten by the divine stowaway hissing its desires within me.  
-This was my purpose.  
-This was my birth right.  
-This was my destiny.  
-Soon, I would re-enter that state of pure euphoria and my decayed body shuddered in anticipation. Each step brought me closer to true heaven. Each footstep sapped more and more of my free will. I welcomed it. I would become one with perfection. A true deity would subsume me.  
-It didn’t take long for me to reach the solid, striated perimeter of the cavernous orifice that reminded me uncomfortably of broad lips. A glass smile etched itself onto my face, reminiscent of the inscription on a tombstone. I sensed that miniscule part of me raging and sobbing with alarm, but the Mother’s will sucked it away voraciously. What use was fear to a being such as this?  
-I deliberately raised my foot off the ground and took the decisive step, my mind serene. That shrivelled aspect of my psyche, that still rejected Her control, strained to convince me to cease my efforts. Would I be abandoning Isaac if I did this? Would he suffer the consequences of my deeds? Could I really put my selfish desires before his life?  
-Yes.  
-The answer to all three was yes.  
+Like the creatures pursuing me, this gigantic tree was not exclusively formed from plant-matter. The mouth seethed as a diseased, sinuous, malignant mass. Tumorous, meaty shoots spread from the cavernous epicentre, merging with the tree. The way the flesh pulsed, as cables of muscle burrowed their way in and out of the bark and roots, burned the revolting, yet alluring, image of this parasite into the fabric of my mind.
+
+As I reached the midway point between the edge of the clearing and the towering organism, my consciousness was once again blanketed in a thick haze. I felt Her on the other side of our bond. This magnificent monstrosity was a part of the Mother. Soon, I would be as well. I felt Her gently but firmly guiding my intoxicated self, straight towards the hungering jaws, but I did not struggle. Despite a tiny fragment of myself begging me to run, I knew this was meant to be. No fear sheltered within me, eaten by the divine stowaway hissing its desires within me.
+
+This was my purpose.
+
+This was my birth right.
+
+This was my destiny.
+
+Soon, I would re-enter that state of pure euphoria and my decayed body shuddered in anticipation. Each step brought me closer to true heaven. Each footstep sapped more and more of my free will. I welcomed it. I would become one with perfection. A true deity would subsume me.
+
+It didn’t take long for me to reach the solid, striated perimeter of the cavernous orifice that reminded me uncomfortably of broad lips. A glass smile etched itself onto my face, reminiscent of the inscription on a tombstone. I sensed that miniscule part of me raging and sobbing with alarm, but the Mother’s will sucked it away voraciously. What use was fear to a being such as this?
+
+I deliberately raised my foot off the ground and took the decisive step, my mind serene. That shrivelled aspect of my psyche, that still rejected Her control, strained to convince me to cease my efforts. Would I be abandoning Isaac if I did this? Would he suffer the consequences of my deeds? Could I really put my selfish desires before his life?
+
+Yes.
+
+The answer to all three was yes.
+
 Leaning forward placidly, I began to topple over the rim.
 
 A brutal force crashed into me.  
-Before my descent could truly begin, I was tackled from the left. A portion of the Mother’s sustenance left me as her grip was weakened, leaving my fragile body breathless and bruised from the surprise assault. I fought to stand, my body barely overcoming gravity’s leash as it tried to drag me back down.  
-I turned, expecting a malformed, amalgam of a creature to shred me into scraps and flay the skin from my bones. Instead, I was greeted by the brutal scene of a blood-soaked Isaac, afflicted by an assortment of different wounds. Layers of thick gooey ichor sloughed off of him tainted with the scarlet burn of blood. Several fingers had been snapped like twigs, bent at twisted angles, and his left thumb had been reduced to a serrated stump, openly displaying the dreadful white of bone. Issac’s clothes were ragged and ripped, revealing sanguine wounds and scathing acid burns. Even in his beaten state, he gave me a weak grin as if to tell me that everything would be alright now that we were together.  
+Before my descent could truly begin, I was tackled from the left. A portion of the Mother’s sustenance left me as her grip was weakened, leaving my fragile body breathless and bruised from the surprise assault. I fought to stand, my body barely overcoming gravity’s leash as it tried to drag me back down.
+
+I turned, expecting a malformed, amalgam of a creature to shred me into scraps and flay the skin from my bones. Instead, I was greeted by the brutal scene of a blood-soaked Isaac, afflicted by an assortment of different wounds. Layers of thick gooey ichor sloughed off of him tainted with the scarlet burn of blood. Several fingers had been snapped like twigs, bent at twisted angles, and his left thumb had been reduced to a serrated stump, openly displaying the dreadful white of bone. Issac’s clothes were ragged and ripped, revealing sanguine wounds and scathing acid burns. Even in his beaten state, he gave me a weak grin as if to tell me that everything would be alright now that we were together.
+
 I should have been grateful. A good brother would have been distressed over the horrific damage done to him.  
-I am not a good brother.  
+I am not a good brother.
+
 Fervent fury seethed in my soul like an overflow of boiling water. How dare he try and stop me from becoming complete? What right did he have to interfere? I could not, would not, let him take this from me.  
-Isaac’s fatigued smile changed to confusion, then to fear, as I pounced at him with a savage howl. All cogent though dissipated as my vision became stained with a demonic, wrathful red. My emaciated fist connected with his jaw with preternatural force, rewarding me with a sharp snap as something gave way, but burning up the remainder of the Mother’s gift I possessed.  
-Regardless, I scratched, I clawed, I punched, I screamed. Every drop of my own strength I had left went into my assault to defend my chance at excellence.  
-There could be no greater treasure.  
-Unfortunately, my pathetic state left me a rather useless fighter. After my first successful punch, each blow I dealt resulted in less and less harm. Isaac quickly and effortlessly overpowered me, pinning me to the ground.  
-“Something is fucked in your head, Max. We need to leave.” He yelled.  
-“She’s mine!” I roared, comprehending less and less by the second. Finally, the Mother, seeing my plight, blessed me with one last surge of strength, nearly cutting our tenuous connection completely.  
-Slowly and methodically, I clambered back onto my feet with Isaac still making futile attempts to use his weight to pin me down. I shook him off and spun. Once again, my fist connected with Isaac’s face, caving in his cheek bone and ejecting a burst of near black blood and near white teeth.  
+Isaac’s fatigued smile changed to confusion, then to fear, as I pounced at him with a savage howl. All cogent though dissipated as my vision became stained with a demonic, wrathful red. My emaciated fist connected with his jaw with preternatural force, rewarding me with a sharp snap as something gave way, but burning up the remainder of the Mother’s gift I possessed.
+
+Regardless, I scratched, I clawed, I punched, I screamed. Every drop of my own strength I had left went into my assault to defend my chance at excellence.
+
+There could be no greater treasure.
+
+Unfortunately, my pathetic state left me a rather useless fighter. After my first successful punch, each blow I dealt resulted in less and less harm. Isaac quickly and effortlessly overpowered me, pinning me to the ground.
+
+“Something is fucked in your head, Max. We need to leave.” He yelled.
+
+“She’s mine!” I roared, comprehending less and less by the second. Finally, the Mother, seeing my plight, blessed me with one last surge of strength, nearly cutting our tenuous connection completely.
+
+Slowly and methodically, I clambered back onto my feet with Isaac still making futile attempts to use his weight to pin me down. I shook him off and spun. Once again, my fist connected with Isaac’s face, caving in his cheek bone and ejecting a burst of near black blood and near white teeth.
+
 The next few moments will live in the forefront of my memory as the single worst moment in my life.  
 My eyes widened in absolute horror as the scene unfolded before me, moving in slow motion.  
 Isaac was thrown off his feet with a wet gurgling groan. His back cracked as he thudded into the lip of the nightmarish bloodstained jaws. A shrill cry of pain and panic made me wince at the volume. Then, his slime smeared body slid slowly and smoothly over the edge.
