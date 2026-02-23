@@ -1,3 +1,5 @@
+TW: >!Child death!<
+
 I was elbow-deep in a sedated beagle when it happened. 
 
 The cyst was deeper than expected. I had already cut through fat and fascia when I heard something hit the roof of the clinic. A thick, wet, thump. It sounded substantial. I paused for a second, scalpel in hand, and listened for another sound, but all I heard was the muffled noise of the street market outside. 
@@ -290,4 +292,4 @@ I'm writing this now. Before they find out.
 
 While I still can.
 
-While there’s still time to warn people about what’s coming. 
+While there’s still time to warn people about what’s coming.
