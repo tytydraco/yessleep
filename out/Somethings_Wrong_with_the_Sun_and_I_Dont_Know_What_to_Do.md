@@ -1,55 +1,55 @@
-Page 1 – August 4, 1943 - The war is becoming more complicated. We’re trying to rethink our strategy, waiting for orders from the commander, but this scorching sun might kill us before we get a chance to advance...
+Página 1 – 4 de agosto de 1943 - A guerra está ficando mais complicada. Estamos tentando repensar nossa estratégia, esperando ordens do comandante, mas esse sol escaldante pode nos matar antes de termos a chance de avançar...
 
-Hi, I’m Miguel. I’m 26, and I live in California.
+Oi, sou Miguel. Tenho 26 anos e moro na Califórnia.
 
-I need to write this down. Something strange is happening with the sun.
+Preciso anotar isso. Algo estranho está acontecendo com o sol.
 
-It was 12:51 p.m. when I noticed it. The sun's color is off. It’s not the usual bright, almost white light. It has a denser, orange glow, like when the sun is about to set. You know, that "golden hour" glow? It’s like that now, and it’s also colder than usual for this time of year.
+Era 12h51 quando percebi. A cor do sol está estranha. Não é aquela luz brilhante, quase branca. Está com um brilho laranja mais denso, como quando o sol está prestes a se pôr. Sabe, aquele brilho da "hora dourada"? Está assim agora, e também está mais frio do que o normal para essa época do ano.
 
-I decided to talk to my neighbor, Mr. Andrew, about it. He’s a nice old man, although he doesn’t say much. He told me this happened during the war and that I shouldn’t worry — everything would be back to normal soon.
+Decidi conversar com meu vizinho, Sr. Andrew, sobre isso. Ele é um velhinho simpático, embora não fale muito. Ele me disse que isso aconteceu durante a guerra e que eu não deveria me preocupar — tudo voltaria ao normal em breve.
 
-I’m on vacation, so I have more free time than I know what to do with. I spent the rest of the day watching my favorite series. I’ve always liked fresh air, so I keep the windows open whenever I can. A few episodes later, I noticed it was getting dark earlier than usual. I tried not to think too much of it. "Guess I’m just getting paranoid," I thought.
+Estou de férias, então tenho mais tempo livre do que sei o que fazer. Passei o resto do dia assistindo minha série favorita. Sempre gostei de ar fresco, então mantenho as janelas abertas sempre que posso. Alguns episódios depois, notei que estava escurecendo mais cedo do que o normal. Tentei não pensar muito nisso. "Acho que estou apenas ficando paranóico," pensei.
 
-At dusk, I decided to go for a walk. I had been inside all day, but as soon as I looked up at the sky, I couldn’t help but wonder what the hell was going on. There were northern lights, twinkling from one side of the sky to the other. Beautiful, but impossible for them to be here.
+Ao anoitecer, decidi sair para dar uma volta. Estive dentro de casa o dia todo, mas assim que olhei para o céu, não pude deixar de me perguntar o que estava acontecendo. Havia auroras boreais, brilhando de um lado ao outro do céu. Lindas, mas impossíveis de estarem aqui.
 
-I kept walking, greeted my neighbors, and decided to chat with Mary, one of my neighbors. She also lives alone and recently moved here because of college and the usual young-adult struggles. Her house is at the end of the block.
+Continuei caminhando, cumprimentei meus vizinhos e decidi conversar com a Mary, uma das minhas vizinhas. Ela também mora sozinha e se mudou para cá recentemente por causa da faculdade e das típicas dificuldades da vida jovem. A casa dela fica no final da rua.
 
-"You see those auroras? Never thought I'd see that," I said.
+"Você vê aquelas auroras? Nunca pensei que veria isso," eu disse.
 
-"They’re beautiful. Makes me want to write a song just for them," Mary replied (she’s a composer and sings on YouTube).
+"Elas são lindas. Me fazem querer escrever uma canção só para elas," Mary respondeu (ela é compositora e canta no YouTube).
 
-"But this wasn’t supposed to be happening. Did you notice it’s colder today too?" I said, trying not to sound paranoid.
+"Mas isso não devia estar acontecendo. Você notou que está mais frio hoje também?" eu disse, tentando não parecer paranóico.
 
-"Yeah, I noticed. But I saw on TV that the sun’s been less active than usual. Nothing to worry about, they said," she replied.
+"Sim, notei. Mas vi na TV que o sol tem estado menos ativo do que o normal. Disseram que não era para se preocupar," ela respondeu.
 
-"Hope it ends soon. I still want to visit Venice Beach before my vacation’s over," I said.
+"Tomara que acabe logo. Ainda quero visitar Venice Beach antes que minhas férias terminem," eu disse.
 
-"They said it would only be for two days," Mary shrugged.
+"Disseram que seria só por dois dias," Mary deu de ombros.
 
-"Hope so," I said, waving and continuing my walk.
+"Espero que sim," eu disse, acenando e continuando minha caminhada.
 
-I walked around a bit more, seeing how the others were doing. Everything seemed normal: a father coming home from work and getting a hug from his daughter (I felt a little bad for still being single, but my last relationship didn’t work out). Mrs. Tina was sitting in her rocking chair. A guy was fixing his gate and swearing loudly. Everything was so typical. So I decided to head back home.
+Caminhei mais um pouco, vendo como os outros estavam. Tudo parecia normal: um pai voltando do trabalho e recebendo um abraço da filha (me senti um pouco mal por ainda estar solteiro, mas meu último relacionamento não deu certo). A Sra. Tina estava sentada em sua cadeira de balanço. Um cara estava consertando seu portão e xingando alto. Tudo era tão típico. Então decidi voltar para casa.
 
-That’s when Crug stopped me. The local beggar. He always said weird stuff, but he helped people by cleaning sidewalks and collecting trash, and in return, he got food, clothes, and blankets.
+Foi quando Crug me parou. O mendigo local. Ele sempre dizia coisas estranhas, mas ajudava as pessoas limpando calçadas e coletando lixo, e em troca, recebia comida, roupas e cobertores.
 
-"Time’s running out, son..." He pointed at the aurora. "This is just a sign. He’s tired and leaving."
+"Está na hora, filho..." Ele apontou para a aurora. "Isto é apenas um sinal. Ele está cansado e indo embora."
 
-"Crug, I need help with the lawn. Come by tomorrow, I’ll give you a can of pinto beans," I said (he loved spicy beans).
+"Crug, preciso de ajuda com o gramado. Vem amanhã, eu te dou uma lata de feijão. eu disse.
 
-"Yay, yes!" Crug jumped away happily.
+"Uhul, sim!" Crug pulou feliz.
 
-I got home, took a shower, and started making dinner. I decided to catch up on the news to see if they had anything about the cold and the strange color of the sun. They just mentioned what Mary had told me — that it was just a phase of low solar activity that would end in two or three days. I finished my meal and decided to play on my PC. I spent most of the night there, until exhaustion took over, and I decided to go to bed.
+Cheguei em casa, tomei um banho e comecei a fazer o jantar. Decidi atualizar as notícias para ver se tinha algo sobre o frio e a cor estranha do sol. Eles só mencionaram o que Mary tinha me contado — que era apenas uma fase de baixa atividade solar que acabaria em dois ou três dias. Terminei minha refeição e decidi jogar no meu PC. Passei a maior parte da noite lá, até a exaustão tomar conta, e decidi ir para a cama.
 
-That night, I had a strange dream. Everything was dark, unnaturally so, like the darkness was some kind of thick liquid. I heard screams, cries, and the distant sound of tornado sirens. There were helicopters and planes.
+Naquela noite, tive um sonho estranho. Estava tudo escuro, de uma forma não natural, como se a escuridão fosse uma espécie de líquido espesso. Ouvi gritos, choros e o som distante de sirenes de tornado. Havia helicópteros e aviões.
 
-I woke up to my alarm at 7:15 a.m. I was sweating, so I decided to take a shower, but when I noticed something strange, I froze. It was still pitch black outside, darker than the light from a full moon. I immediately ran to grab my phone to check the news, and several places around the world were reporting the same thing. This strange darkness.
+Acordei com meu despertador às 7h15. Estava suando, então decidi tomar um banho, mas quando percebi algo estranho, congelei. Estava ainda pitch-black lá fora, mais escuro do que a luz de uma lua cheia. Corri para pegar meu telefone e verificar as notícias, e vários lugares ao redor do mundo estavam relatando a mesma coisa. Essa escuridão estranha.
 
-I decided to call Mary. She told me everything was still strange and that the auroras were still there. I told her I’d come see her, hung up, and rushed to the window. They were still there.
+Decidi ligar para a Mary. Ela me disse que tudo ainda estava estranho e que as auroras ainda estavam lá. Eu disse que ia vê-la, desliguei e corri para a janela. Elas ainda estavam lá.
 
-I took the fastest shower of my life, had a quick breakfast of just cereal and milk, and went outside. I saw Crug waiting for me. I told him the lawnmower was in the garage, and I’d give him the key when I got back. He went straight to the garage and started mowing the lawn. In that moment of distraction, I hadn’t noticed the military on the street.
+Tomei o banho mais rápido da minha vida, tive um café da manhã rápido, só cereal com leite, e saí. Vi Crug me esperando. Eu disse a ele que o cortador de grama estava na garagem e que eu daria a chave quando voltasse. Ele foi direto para a garagem e começou a cortar a grama. Naquele momento de distração, não percebi os militares na rua.
 
-It wasn’t unusual since I lived near a base, but the number of tanks and soldiers was overwhelming.
+Não era incomum, já que eu morava perto de uma base, mas o número de tanques e soldados era esmagador.
 
-There were so many that they stretched across the entire street. This confused me about what was really happening. I rushed back inside, left a message for Mary saying I’d be back in the afternoon, and went to see Mr. Andrew. He told me it reminded him of his time in the war and handed me the diary he had used during the war.
+Havia tantos que se estendiam por toda a rua. Isso me deixou confuso sobre o que realmente estava acontecendo. Corri de volta para dentro, deixei uma mensagem para a Mary dizendo que voltaria à tarde e fui ver o Sr. Andrew. Ele me disse que isso o lembrava de seu tempo na guerra e me entregou o diário que usou durante a guerra.
 
-I had never seen his family. In four years of living here, I had never seen Mr. Andrew receive a visitor. I felt guilty, so I’d been visiting him periodically, but this was the first time he gave me something. I spent some more time talking with him before heading back home. I think I’ll start reading the diary. It has a CIA seal on the cover.
+Nunca tinha visto a família dele. Em quatro anos morando aqui, nunca tinha visto o Sr. Andrew receber uma visita. Me senti culpado, então tenho visitado ele periodicamente, mas esta foi a primeira vez que ele me deu algo. Passei mais um tempo conversando com ele antes de voltar para casa. Acho que vou começar a ler o diário. Tem um selo da CIA na capa.
