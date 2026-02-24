@@ -6,13 +6,13 @@ The other kids around the fire were immediately sucked back in by the girl's wor
 
 “Salem had grown up in a Catholic orphanage with no siblings or friends. He was your typical outcast, and an insufferable bookworm,” the girl said, glancing in my direction.
 
-I discreetly moved my book behind my legs, under my chair.
+I discreetly slid my book behind my legs, under my chair.
 
 “Salem was ruthlessly bullied by the other orphans, for no reason in particular. Just pure boredom. But they had no idea they were creating a monster.”
 
 My eyes began to wander and I noticed the pretty girl from earlier staring at me intensely. However, it didn’t feel magical like young love. It was more accusatory or cautious. Like she was assessing a threat. Does everyone hate me? 
 
-“Salem wasn’t just reading about dragons and wizards. He had gotten his hands on some really dark stuff. Books on the occult and Aleister Crowley. Slowly but surely hatred consumed Salem, and his new obsessions gave him the focus he needed to sever any remaining ties to his humanity. But he made sure to learn how to walk among men, and how to seduce them.”   
+“Salem wasn’t just reading about dragons and wizards. He had gotten his hands on some really dark stuff. Books on the occult and Aleister Crowley. Slowly but surely hatred consumed Salem, and his new obsessions gave him the focus he needed to sever any remaining ties to his humanity. But he made sure to learn how to walk among men…and how to seduce them.”   
 
 The snapping of sticks echoed hauntingly in the surrounding woods. The girl telling the story jolted in her seat and looked around before finding Patrick among the other campers. She shot him a sharp look. 
 
@@ -28,7 +28,7 @@ A gentle breeze picked up, slipping through the trees, creating an ominous high-
 
 “No one really knows much about his home life. He was sent off to a private school right away, and made many powerful allies. The once quiet and tortured outcast had become a charming and charismatic people person. Any whisper of foul deeds was drowned out by the overwhelming uproar of praise he received from just about everyone who knew him. He had them all eating out of the palm of his hand.”
 
-A part of me was envious of Salem. I would have rather been shipped off to a private school, than bussed around the country like a carny.
+A part of me was envious of Salem. I would have rather been shipped off to a private school, than the reluctant passenger of my parents ever changing whims.
 
 “He and his followers gathered at midnight, but no one really knew what they got up to. People started to call them “The Cult of Midnight” or “The Midnight Cult”. A playful moniker for the lovable Salem and his closest friends. 
 
@@ -44,7 +44,7 @@ I shuddered and quickly scratched the back of my neck. This isn’t real and the
 
 “His newly erected Mormon church gathered what remained of the little community and—surprisingly—healed it. Within weeks the homeless seemed to vanish, along with the drugs and prostitutes. The old hovels were demolished and new homes were built over them. Even business started to come back to the little town, but at the cost of pricing out many of the families who had lived there for generations.
 
-“One such individual was a woman named Rebecca, who vowed she would not leave her hometown, at least not without her daughter. The poor girl, Michelle, had gotten mixed up with the wrong crowds, and developed a reputation for trading sex for drugs. Rebecca never gave up hope when it came to her little girl. She prayed for a miracle, and had hoped it may come through Salem and his church, but Michelle had disappeared with the rest of the ‘trash’.
+“But there was a woman named Rebecca, who swore she would not leave her hometown, at least not without her daughter. The poor girl, Michelle, had gotten mixed up with the wrong crowds, and developed a reputation for trading sex for drugs. Rebecca never gave up hope when it came to her little girl. She prayed for a miracle, and had hoped it may come through Salem and his church, but Michelle had disappeared with the rest of the ‘trash’.
 
 “The police were well aware of Rebecca’s daughter. However, none of them seemed bothered by her disappearance, if anything they were glad to see her go. Rebecca put out missing posters and described Michelle down to the very minute details, emphasizing her most unique identifiers like her infamous tattoo of a butterfly around her navel. That tattoo was well known locally because of the way Michelle dressed, but it was ridiculed for looking more like a misshapen bat.”
 
@@ -52,13 +52,13 @@ Some of the kids laughed and a smile spread across my face.
 
 “Rebecca turned to Salem for help and he promised he would do everything in his power to make things right—offering the woman food, clothes, and even money. Rebecca didn’t accept any of it but thanked Salem for his concern anyway.
 
-“Disappearances weren’t the only things discussed in hushed voices. Bright, unnatural beams of light had been spotted numerous times coming from Salem’s church late at night, accompanied by the wailing of trumpets. There were even some reports of screaming and pleading, but these claims were often dismissed as the police had sworn up and down that everything about Salem was completely overblown. The culprits of the rumors were likely seeking to tarnish Salem’s reputation as revenge for his gentrification projects. That’s what the cops said, anyway.
+“Disappearances weren’t the only things discussed in hushed voices. Bright, unnatural beams of light had been spotted numerous times coming from Salem’s church late at night, accompanied by the wailing of trumpets. There were even some reports of screaming and pleading, but these claims were often dismissed. The culprits of the rumors were likely seeking to tarnish Salem’s reputation as revenge for his gentrification projects. That’s what the cops said, anyway.
 
 “However, Rebecca didn’t dismiss any of it. And putting the pieces together, she realized Salem had to know more than he was letting on about her missing daughter.
 
 “So one night, Rebecca decided to see just what was going on inside Salem’s church. 
 
-“She stood watch atop a hillside as figures donning black cloaks entered the building—one by one. This was already unnerving enough and she fought to muster up the courage to proceed further. That’s when there was a blinding flash—a huge green beam of light rushed out of the bell tower, forming a tether to the moon—or at least that's what it looked like.
+“She stood watch atop a hillside as figures donning black cloaks entered the building—one by one. This was unnerving enough to make her want to flee, but she fought to muster up the courage to proceed further. That’s when there was a blinding flash—a huge green beam of light rushed out of the bell tower, forming a tether to the moon—or at least that's what it looked like.
 
 “Rebecca fell to her knees feeling as if she was going mad. A cacophony rang out—a band of trumpets fit for an orchestra straight from hell. 
 
@@ -84,7 +84,7 @@ The girl leaned back into her seat looking satisfied with herself.
 
 “But what about the camp, and what happened to Rebecca? You can’t just end it there, Jennifer,” the pretty girl scolded.
 
-My eyes darted over to her and my voice hoarsely cracked, “Yeah!”
+My eyes darted to her and my voice cracked hoarsely, “Yeah!”
 
 The pretty girl looked back at me and smiled. I was horrified.
 
@@ -106,7 +106,7 @@ There was a collective silence, almost as if we were all mourning Rebecca’s fa
 
 “And as for Salem—well, he knew the Rebecca incident was too close of a call to be taking any more risks. He started a new church—ours—but he moved all of his operations from prying eyes—to this very camp!”
 
-The girl looked out in the distance and our heads mimicked hers. We were looking at an amphitheater where there hung giant purple curtains atop an expensive looking stage.
+The girl looked out in the distance and our heads mimicked hers. We were looking at an amphitheater where there hung giant purple curtains atop an expensive-looking stage.
 
 “This is where he planned to finish his magnum opus, The Patchwork Veil—while simultaneously building an undead army for his master. The dark lord he intended to bring through the veil—the demon Duke known as Murmur.
 
@@ -179,7 +179,7 @@ James looked back at me and asked, “Hey David, whatcha readin’?”
 
 “Eh, it's a bit weak bro.” Remington tried to hide a wide grin. 
 
-“You told me to play a bard just so I could buff you, ya dick!” Colton snapped.
+“You told me to play a bard just so I could buff you!” Colton snapped.
 
 Remington let out a softer version of his hyena laugh but gave no rebuttal.  
 
@@ -261,7 +261,7 @@ I looked earnestly at the young man next to me—dressed head to toe in black. H
 
 Raven flicked his cigarette in the direction of the lake, and it soared down the hill. It was bedtime.  
 
-We slept until late into the afternoon, then walked out into the summer heat—sporting bed-heads and bloodshot eyes. The other kids watched us, bemused by the undoubtedly comical appearances. We stopped by the mess hall for some late lunch, and Remington continued to sleep—face-down on a plate of biscuits and gravy. But within minutes of fueling up we were wide awake and ready for a full day's worth of adventures.
+We slept until late into the afternoon, then walked out into the summer heat, sporting bed-heads and bloodshot eyes. The other kids watched us, bemused by the undoubtedly comical appearances. We stopped by the mess hall for some late lunch, where Remington continued to sleep—face-down on a plate of biscuits and gravy. But within minutes of fueling up we were wide awake and ready for a full day's worth of adventures.
 
 I was so excited to see the archery range, but ironically terrified at the thought of being made to shoot a bow and arrow in front of a crowd of people. If it wasn’t obvious, I had no experience ever doing anything remotely close to it, and my mind raced from one prediction of misfortune to another.
 
@@ -279,7 +279,7 @@ The young men engaged in a hip-hop hug, then turned to us.
 
 “Kyle! Get over here, now! We’re going on a walk!” a shrill voice exploded from a girl several yards away.
 
-He looked back at us—a bit grim and defeated, “I gotta go. Nice meeting ya, David,” he said somberly. And like that, he immediately set off in the direction of a very impatient-looking girl, whose arms were crossed in front of her.
+He looked back at us—a bit grim and defeated, “I gotta go. Nice meeting ya, David,” he said somberly. And like that, he set off in the direction of a very impatient-looking girl, whose arms were crossed in front of her.
 
 We watched them walk off into the woods, and James said, “He was our Ranger. But now that he’s got that new girlfriend, he doesn’t have time for us anymore.”
 
@@ -295,19 +295,19 @@ James moved to Remington. “Alright, you guys have fun pretending to be Legolas
 
 “Where do you think they’re going?” I asked.
 
-“No idea,” Colton replied. “But since we’re here you should try shooting.”
+“No idea,” Colton replied. “But since we’re here, you might as well try shooting.”
 
 “I don’t know, I’d probably just mess it up.”
 
 “Quit being so negative, broseph. You can do this. Besides, we gotta kill some time now anyway.”
 
-I reluctantly agreed, and I was taken over to the counselor running the range. He had me put on some bracers and a quiver, while he explained some of the basics to me. He even had me pull the string back a couple of times to get a feel for the draw.
+Reluctantly, I agreed and was taken over to the counselor running the range. He had me put on some bracers and a quiver, while he explained some of the basics to me. He even had me pull the string back a couple of times to get a feel for the draw.
 
 “Alright, kid, go ahead and give it a shot,” the counselor said encouragingly.
 
 I glanced back at Colton and Raven who were standing behind the counselor, and to my displeasure I noticed some of the other kids starting to take an interest in me. Great, why does everything around here have to turn into a humiliation ritual? 
 
-And then I saw her. In the midst of the growing crowd she glowed with divine radiance. My pretty mystery girl. My legs started to tremble uncontrollably in response. 
+And then I saw her. In the midst of the growing crowd she glowed with divine radiance. My pretty mystery girl. My legs trembled uncontrollably in response. 
 
 I lowered the bow and said, “Actually, I don’t really want to anymore.”
 
@@ -321,7 +321,7 @@ I shook my head and tried to walk towards them. “It’s ok. I’ll try another
 
 “Ok!” I yelped nervously. I hastily nocked an arrow while in a cold sweat, hands shaking the whole time. The string left my wet fingers at such a violent speed, and the arrow soared majestically forward. But I had critically fumbled. The arrow completely missed the target, and landed with a dull thud. Some of the girls screamed, others cried. My arrow had pinned the head of a squirrel to a tree. Its body still clutching an acorn nearby.
 
-For the briefest moment I thought I had seen something, just in the corner of my eye—past the scene of death. A dark shroud dissolving into the foliage. Of course, it easily could have been shadows of leaves dancing under the summer sun. But I didn’t get to ponder it for long.
+For the briefest moment I thought I glimpsed something in the corner of my eye—past the scene of death. A dark shroud dissolving into the foliage. Of course, it easily could have been shadows of leaves dancing under the summer sun. But I didn’t get to ponder it for long.
 
 “Oh my—what the hell kid! You're supposed to shoot the target, not little animals!” The counselor was irate. “Alright, the archery range is closed for the rest of the day! Everyone needs to leave, the new kid ruined it!”
 
@@ -329,19 +329,19 @@ There were many groans, and someone shouted, “Good going, new kid!” and “F
 
 I didn’t look at any of them, as I approached Colton who was laughing so hard he was almost crying. Raven had brought his hand up to his mouth to pretend like he was yawning, but he was fighting laughter—poorly.
 
-“You guys are dicks,” I said. They laughed harder.
+“You guys are jerks,” I said. They laughed harder.
 
 After the disaster, we walked back to the mess hall for dinner. It had been set up like an all you can eat buffet—with all sorts of foods from around the world. We loaded our plates up like it was our last meal. Colton and Raven fought over the last pot-sticker and then we took our seats. No sign of James or Ten. I was still so new I didn’t know whether I should be concerned or not, but I played it cool. The other guys weren't worried—why should I be?
 
 “Hey, David!” I heard—right before my mashed potatoes came up to meet my face. Patrick pulled my head back up and let go. “I heard you were doing some weird things earlier, man—just to tease the girls. You think it’s funny killing little forest critters?”
 
-All the kids at the surrounding tables were dead quiet as they watched my public execution. I was so far gone at this point, I couldn’t even begin to articulate the misunderstanding, but I could sense I was actually in physical peril this time. 
+All the kids at the surrounding tables were dead quiet as they watched my public execution. I was so far gone at this point, I couldn’t even begin to articulate the misunderstanding, but I could sense I was in real physical peril this time. 
 
 “Relax, broseph,” Colton said slowly, rising carefully from his seat.
 
 Raven stared daggers at Patrick, hand quietly drifting towards his steak knife.
 
-“You best be walkin’ that ass back in line to get David a new plate of food, Patrick!” a voice called from the other side of the hall. Every head in sight whipped to the source. 
+“You best be walkin’ that ass back in line and gettin’ David a new plate of food, Patrick!” a voice called from the other side of the hall. Every head in sight whipped to the source. 
 
 It was James, cradling a half-eaten cookie in one hand, and Remington—ever beside him—with two cookies, one for each hand. 
 
@@ -361,7 +361,7 @@ James moved his cookie to Patrick’s mouth, but Patrick slapped his hand away, 
 
 In one deft motion James stuffed the cookie back in his own mouth, and pulled Patrick into a guillotine. A couple of Patrick’s goons started to move towards him, but stopped when Remington’s eyes narrowed and he shook his head—cookie crumbs falling from his chin and onto his puffed out chest.
 
-James tried to speak, but it was no good. Remington gave one of his cookies to Colton, and removed the cookie from James’ mouth.
+James tried to speak, but it was no good. Ten gave one of his cookies to Colton, and removed the cookie from James’s mouth.
 
 “Thank you,” James said, as he walked Patrick over to me. “Is there something you would like to say to David, Patrick?”   
 
@@ -384,13 +384,13 @@ On our way back to the cabin, James decided to debrief the group. “So, you rem
 
 James opened the door to the cabin, and sitting on everyone's beds were several boxes of cookies. I’ve never seen so much variety anywhere before. Any cookie you could think of, we had it. Sweet victory.
 
-“When Remington went to wash the gravy out of his hair at lunch, I saw a truck unloading all of these into the pantry,” James said, smiling at his horde of treasure.
+“When Ten went to wash the gravy out of his hair at lunch, I saw a truck unloading all of these into the pantry,” James said, smiling at his horde of treasure.
 
 Raven nodded looking impressed.
 
 “We are gonna be in so much trouble,” Colton said, sounding exhausted. “How did you get them all here anyway?”
 
-“I hid them under Remington’s shirt.”
+“I hid them under Ten’s shirt.”
 
 Remington laughed, and nodded his head enthusiastically. “We had to make a lot of trips.”
 
@@ -413,7 +413,7 @@ He peered off from the side of the cabin and stared into the woods. Almost like 
 I watched him watch the twilight trees for what felt like a lifetime before he snapped out of it. “We should go inside.”
 He moved past me quickly and I looked back to the forest. I was gripped by a terrible sense of deep dread that something was looking right back at me, but I couldn’t see it. Like it was all around me. That’s when I noticed the silence. Not a single insect. No strange forest creature howls. No wind blowing the branches and leaves. Nothing. The absence of sound made my hair stand on end. 
 
-A hand grabbed me by the collar and gently pulled me inside the cabin. James locked the door behind us and then without missing a beat, moved to each window closing the blinds. The other guys paid him no mind as they made jokes, laughed, and stuffed their faces with sugary sweets.
+A hand grabbed me by the collar and gently pulled me inside the cabin. James locked the door behind us and then, wasting no time, moved to each window closing the blinds. The other guys paid him no mind as they made jokes, laughed, and stuffed their faces with sugary sweets.
 
 James finally took his seat, but he was staring off into another world. He reminded me of a hurt child, too traumatized to even cry.
 
