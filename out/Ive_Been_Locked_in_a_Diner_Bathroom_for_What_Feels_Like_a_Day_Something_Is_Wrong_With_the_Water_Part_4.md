@@ -1,13 +1,12 @@
 [Part Three Here](https://www.reddit.com/r/nosleep/comments/1r9n30s/ive_been_locked_in_a_diner_bathroom_for_what/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-  
-I come to with my cheek pressed against the tile, tasting grout. My mouth is open, and drool drips from my chin onto the floor beneath me. 
+I come to with my cheek pressed against the tile, tasting grout. My mouth is open, and drool drips from my chin onto the floor beneath me.
 
 *How long?*
 
 Couldn't have been that long. The light is still doing the same death-rattling flicker. The faucet is still—
 
-Gather, swell, detach, fall. 
+Gather, swell, detach, fall.
 
 I push myself upright using the good hand, the good leg, the good everything-else I have left that isn't broken or close to it, and I slump against the stall door. My right knee screams when I try to shift any part of my body. Something went very wrong in there during the fall. Something very, very wrong.
 
@@ -175,21 +174,11 @@ I flip it open. Don't look at the ID first, I go straight for the cash slot. One
 
 Then I look at the license. I squint in the flickering light. *On. Off. On.* I squint harder.
 
-STATE OF NEW HAMPSHIRE
-
-DRIVER LICENSE
-
-NAME: MERRIN, FRANKLIN D.
-
-DOB: 09/12/1927
-
 The cigarette falls out of my mouth. It lands on my thigh, burns through my slacks, sears the skin, and I don't feel it; I just stare at the little laminated card.
 
 That isn't my birthday, and the photo isn't me. At least, not yet. It's an older man. Gray beard with hollowed-out cheeks and eyes like two cigarette burns. A man who looks like he's been starving for a very, very long time.
 
-But the name is right. And the address.
-
-44 ELM STREET. JOSÉKE GROVE.
+But the name is right. And the address. It’s correct.
 
 I throw the wallet. It hits the floor and lands open, that starving face staring up at me from the checkerboard tile.
 
@@ -207,7 +196,7 @@ I look at the one on the floor. I look at the one in my hand.
 
 The sound outside the door stops. I hold my breath and look up. I grip the sink edge with my good hand and rise using my left leg, and the bathroom seems to shrink around me, walls drawing in, floor stretching downward, ceiling swinging low, and I duck, and when I straighten up, the ceiling is exactly where it's always been. Eight feet. Water-stained tile with the flickering bulb.
 
-Except. The bulb is on the left now. 
+Except. The bulb is on the left now.
 
 Wasn't it on the right before? I remember because it flickered in the mirror.
 
