@@ -6,17 +6,17 @@ I, of course, was familiar with this fluid. It reeked of spoiled peaches and dec
 
 I was called to my office to witness yet another instrument of my guilt. What will be reality, and what will be my exhausted mind?
 
-The shutter over the containment window wheezed as I pushed the button. It seems I was not the only sleepless soul. Each creak of the roller that pulled it up forced me to clench with what little strength I had. I closed my eyes in hopes that I would wake up in my bed in my home at Foxglove Ridge—a foolish hope that this was all a nightmare. 
+The shutter over the containment window wheezed as I pushed the button. It seems I was not the only sleepless soul. Each creak of the roller that pulled it up forced me to clench with what little strength I had. I closed my eyes in hopes that I would wake up in my bed in my home at Foxglove Ridge—a foolish hope that this was all a nightmare.
 
 I cautiously opened my eyes. I gently released the tension when I saw nothing in containment.
 
 Was this a mistake? Am I spared today? No. The pager cried. It would never do so without the Director's permission. Was this some hallucination? Was there an object that my mind refused to see?
 
-I studied the room. It was the same as any other containment—velvet, white walls, and ceiling. A hidden door that leads to the waiting room. There was not a column that ignorantly supported any object, however. My instincts insisted on calling a Subject in; my fear of harming another Foxglove Ridge resident overpowered it. 
+I studied the room. It was the same as any other containment—velvet, white walls, and ceiling. A hidden door that leads to the waiting room. There was not a column that ignorantly supported any object, however. My instincts insisted on calling a Subject in; my fear of harming another Foxglove Ridge resident overpowered it.
 
-I was not even hallucinating anything. No demons with the voice of the Director, no images from my brother's charred head after I watched him suffer in a room just like this. I believe I gawked for over 30 minutes. 
+I was not even hallucinating anything. No demons with the voice of the Director, no images from my brother's charred head after I watched him suffer in a room just like this. I believe I gawked for over 30 minutes.
 
-My back and its many folds of loose, detritus skin began to prick up like a doe sensing a predator. The heavy bags under my eyes, which nearly reached my cracked lips, tightened. 
+My back and its many folds of loose, detritus skin began to prick up like a doe sensing a predator. The heavy bags under my eyes, which nearly reached my cracked lips, tightened.
 
 There was something in there.
 
@@ -38,9 +38,9 @@ There was something in there.
 
 The Rule Writer did not issue any instructions.
 
-After prostrating, a swamp rose (validated by expert opinion) bloomed in view of the Subject's glasses camera. As its petals opened, a few red baneberries were revealed. The Subject said, "Why would I eat the flower and berries? Why not just the berries?" 
+After prostrating, a swamp rose (validated by expert opinion) bloomed in view of the Subject's glasses camera. As its petals opened, a few red baneberries were revealed. The Subject said, "Why would I eat the flower and berries? Why not just the berries?"
 
-Once again, the Rule Writer was silent since Subject 1 entered containment. 
+Once again, the Rule Writer was silent since Subject 1 entered containment.
 
 Subject 1 stuffed the flower into their mouth. Within 10 minutes, they began breathing irregularly, clutching their gut, and vomiting excessively. Vitals were typical for someone in this state. Their nervous system was intact. Subject 1 soon expired.
 
@@ -50,7 +50,7 @@ Subject 1 stuffed the flower into their mouth. Within 10 minutes, they began bre
 
 Subject 2's brain signal turned red before they began violently seizing. They expired shortly after.
 
-***CB-1:*** The containment room became flush with fog. It only grew denser. Within 7 minutes of Subject 2's expiry, the pressure was bending the false door. Security was called, which resulted in them being shot back into the waiting room. The fog permeated. It began to coalesce around the necks and heads of humans present*—*though, it did become thinner with each victim. After 6 victims, the fog did not spread.
+***CB-1:*** The containment room became flush with fog. It only grew denser. Within 7 minutes of Subject 2's expiry, the pressure was bending the false door. Security was called, which resulted in them being shot back into the waiting room. The fog permeated. It began to coalesce around the necks and heads of humans present—though, it did become thinner with each victim. After 6 victims, the fog did not spread.
 
 Swamp roses bloomed from the victims' eyes, and red baneberry branches grew out of their throats before expiry. The object was suppressed by security simply vacuuming the fog into a high-pressure container. The container was returned to the containment room and opened.
 
@@ -64,7 +64,7 @@ Subject 3 was asked to prostrate and then eat the gift. Nothing occurred.
 
 *RB-2.1:* The Rule Writer initially believed Subject 3's survival to be the end and that it was safe to extract. He called for subject extraction after waiting 15 minutes. However, once security entered the room, a black air duct punched through the ceiling. It was emanating fog. Security retreated.
 
-Subject 3 was asked to relay anything they heard. The following was reported, in order: 
+Subject 3 was asked to relay anything they heard. The following was reported, in order:
 
 "Do you think our time was over?"
 
@@ -72,7 +72,7 @@ Subject 3 was asked to relay anything they heard. The following was reported, in
 
 "You thought you were alone."
 
-The duct spewed a focused beam of fog onto Subject 3's face. The force alone broke their neck. The duct retreated.     
+The duct spewed a focused beam of fog onto Subject 3's face. The force alone broke their neck. The duct retreated.
 
 Subject 4 repeated Subject 3's actions, however, they were told they were not safe or alone. This caused great anxiety for them. Security entered containment in exaggerated haste and was able to safely remove Subject 4. The duct did not make an appearance.
 
