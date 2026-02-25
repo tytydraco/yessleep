@@ -1,99 +1,144 @@
-[Part I](https://www.reddit.com/r/nosleep/s/j6kuCPailC)
+[Part I](https://www.reddit.com/r/nosleep/s/ERSwHyRDbr)
+
+[Part II](https://www.reddit.com/r/nosleep/s/mhGDPTTq9R)
 
 ———
 
-The days started stacking on top of each other in a way that didn’t feel linear anymore, like time itself was bending around whatever had crawled into my life. 
+The microwave hummed like it was trying to convince me the morning was normal.
 
-By Day 10, I was waking up with my jaw clenched so tight I swear my teeth were loosening, and every night I swore I heard it breathing somewhere in the house, slow and steady, like it was syncing itself to my heartbeat. 
+I stood barefoot on the kitchen tile with a foam cup of ramen in my hands, watching the condensation bead and run down the sides. Chicken flavor. Breakfast of people who survive things and don’t know what comes next. 
 
-The letters kept coming, each written in that same jittery ink that smelled faintly metallic, each one announcing the next “day” of whatever countdown I had apparently been enrolled in without consent. 
+The clock on the stove blinked the wrong time because I hadn’t bothered to fix it after the last power flicker. Outside, someone was already playing Christmas music loud enough that I could hear the bassline through the walls.
 
-My brother’s voice kept looping in my head—his anger, the way he shoved the letter back at me and told me I was inventing things again, that I was slipping. 
+I remember thinking—stupidly—that if I could just eat something hot, my body might believe me when I told it the danger had passed.
 
-After he kicked me out, I had tried not to think about him or the stupid stocking tucked into my coat pocket, the one I bought weeks ago for my nephew because he still believed in the kind of Christmas magic I never got to keep. 
+The sound from the front door wasn’t loud. It wasn’t a knock or a bang. It was the soft, deliberate scrape of paper against metal, followed by a gentle tap as something settled onto the floor.
 
-Holding the stocking had become a nervous habit, something I’d do without realizing, rubbing my thumb over his crooked embroidered name like I could rub luck into myself by force.
+The microwave finished its cycle. It beeped once, cheerful and wrong.
 
-Day 11 passed with the thing sitting cross-legged at the foot of my bed all night, its limbs too long, its posture too still, like a marionette someone forgot to animate. I didn’t sleep. 
+I didn’t move right away. I didn’t need to. I already knew what I would see when I turned around.
+The envelope was halfway across the entry tile, just inside the mail slot. Thick paper. No stamp. No return address. 
 
-On Day 12, it followed me from room to room without sound, always stopping just a few feet behind me, always tilting its head as if studying the back of my skull. By then the air inside the house felt thick, almost syrupy, and every time I exhaled I could see the fog of my breath drifting in front of me. It wasn’t winter cold. It was something else. A purposeful cold. A cold with intent.
+The red wax seal was intact, pressed with a shape I didn’t recognize but felt like I should. My name was written across the front in careful pencil, each letter formed slowly, patiently, as if the writer had all the time in the world and wanted me to know it.
 
-Day 13 began without the usual letter shoved under the door. The house was dead silent, but the kind of silence that hums, as if something bigger than the building is holding its breath. I walked through the house slowly, trying to pretend I wasn’t expecting to see it, but some part of me knew I would. 
+I set the ramen on the counter. Steam curled up and dissipated, useless. For a moment, I considered leaving the envelope where it was. Not touching it. Pretending that rules still applied to me.
 
-I ended up in the living room, and at first I thought the tree lights were flickering because of faulty wiring, but the longer I stared, the more I realized the glow was reacting to something standing in front of it. 
+Then I remembered the stocking vanishing from that thing’s hands. I remembered the phone call. I remembered the way my brother had said my nephew’s name, like saying it might pull him back into the room.
 
-The creature had always been a shapeless, hunched mass in the dark, but now it looked different—more defined, more deliberate. Its horns scraped the ceiling, its body cast no shadow, and the air around it trembled faintly like heat waves rising from asphalt. 
+I picked up the envelope.
 
-It didn’t move toward me. It simply lifted one long arm and opened its palm, as smooth and silent as a stage magician beginning a trick. I felt the meaning in my bones before my brain even interpreted it. It wasn’t threatening me. It was asking. It wanted a gift.
+The wax cracked softly under my thumb. Inside was a single sheet of paper, folded once. Pencil again. The same neat, deliberate handwriting I had seen before, the kind that didn’t rush or correct itself.
 
-Something about the gesture, the posture, the timing—it felt like a warped parody of Christmas tradition, and some deep, primitive part of me knew defying it would end things violently and quickly. 
 
-My hands shook as I fumbled inside my coat, fingers brushing soft felt. The stocking. My nephew’s stocking. The one I had carried around for too long because mailing it felt like admitting I was done trying to fix things with my brother. 
+“Matthew,
 
-When I pulled it out, the creature leaned forward slightly, not with hunger or aggression, but with a childlike expectancy that made my stomach twist. I extended my arm, the stocking dangling from my fingertips, and the creature’s hand closed around it so gently I almost imagined warmth in its touch. It drew back slowly, curled its long fingers inward, and for a moment everything went still.
+You did well.
 
-It held up its hands as if to show me something, and then when it opened its hands the stocking was gone. Like some kind of fucked up magic trick.
+You understood the exchange without needing it explained to you again. You did not interfere. You did not attempt to bargain after the gift was given. That restraint matters.
 
-No fading. No dissolving. No burn mark. Just gone, like it had never existed at all. The creature dipped its head, a gesture that might have been gratitude or acknowledgment or mockery, and then stepped backward into the dark corner behind the tree. 
+Christmas is not an accident. It is a process. It requires participation. Children believe, but belief alone does not move gifts from one place to another.
 
-The darkness swallowed it whole without even a ripple, and the house felt lighter for half a second before I realized the air wasn’t warming back up. Whatever rule I had followed, whatever bargain I had participated in, it hadn’t been a relief. It had been completed.
+Christmas only works when adults do their part.
+There are letters that lose their way. There are gifts that are delayed because someone decides they know better than the process itself. You can help correct that.
 
-I made it through the night. I stayed awake until morning, waiting for the next letter, waiting for the next day to tell me what came after thirteen, but nothing arrived. Instead, just after dawn, my phone rang, and the number on the screen turned my stomach to stone. My brother never called me. Ever. 
+Today, return the enclosed letter to its proper place. Do not open it. Do not linger.
 
-Especially after what he thought I did.
+You have already learned what happens when the process is respected.
 
-“Hello?” I answered, bracing myself out of habit. I expected anger or that exhausted frustration, but what came through the speaker wasn’t anything like that. It was breathing—ragged, panicked, fast.
+—Santa”
 
-“Are you—are you awake?” my brother asked. His voice cracked on the last word.
 
-“Yeah,” I said, sitting up. “What’s going on? Are you hurt?”
+A second envelope slipped out when I unfolded the page, smaller, sealed with the same red wax. No address. Just the word Return written faintly on the back.
 
-“No,” he said quickly, then corrected himself with a trembling inhale. “No, I’m not. But he’s gone.”
+I sat at the kitchen table for a long time with the letter in my hands, listening to the microwave’s cooling fan whir down. My ramen went cold. The house felt…quiet. Not empty. Not watched. Just still, like a room after a storm has passed through and decided not to come back.
 
-My stomach tightened. “Who’s gone?”
+I told myself I wasn’t agreeing to anything. I told myself I was just putting something back where it belonged.
 
-“My son!” he shouted, but it wasn’t anger—it was terror folding in on itself. I heard a door slam somewhere behind him, people talking, maybe police radios. “He’s not in his bed, he’s not anywhere in the house, he—he’s just not here!”
+The mailbox Santa wanted was three blocks away, mounted crookedly on a leaning post in front of a house that had been empty for years. 
 
-“What do you mean he’s not there?” I asked, trying to keep my voice level even as a cold pulse went through my spine. “Did he sneak outside? Did you check the neighbors’ yards?”
+The yard was overgrown, the windows boarded, but the mailbox was clean, freshly painted red. The flag was up.
 
-“You’re not listening,” he said, words shaking violently. “His door was locked from the inside. I had to open it myself this morning. His window’s shut, the screen is intact, nothing’s moved. He’s just gone. Like he disappeared out of thin air.”
+I didn’t see anyone watching me as I slid the small envelope inside. I didn’t feel anything when I did it. No rush. No dread. Just a faint sense of something clicking into place, like a piece of mail finding the right slot in a sorting rack.
 
-My fingers went numb around the phone. “Did you call the cops? What did Delilah say?”
+That night, I slept.
 
-“They’re here, and Delilah hasn’t been able to get out of bed in a few weeks, but that’s not the point.” he said, exhaling shakily. “They’re doing a search, but—God, I can’t—none of this makes sense.”
+Not the shallow, half-conscious drifting I’d been doing for weeks, but real sleep. No dreams. No shadows at the edge of my vision when I woke up. I lay there for a while afterward, staring at the ceiling, waiting for the other shoe to drop.
 
-I heard him pacing, footsteps uneven across the hardwood. He wasn’t a crier, not even at the funeral for our dad, but now I could hear tears breaking through his breathing. 
+It didn’t.
 
-“He fell asleep holding that stupid stocking,” he said hoarsely. “The one with his name stitched on it. He would not let it go. He said he wanted to wake up with it.”
+The second letter came two days later.
 
-The world around me felt like it shrank, like something was tightening around my ribs one inch at a time.
+Same sound through the mail slot. Same thick paper. Same red wax. This time, my hands were already shaking when I picked it up, even though part of me—the traitorous, relieved part—felt a flicker of gratitude that it hadn’t abandoned me to the silence.
 
-“He had it?” I asked. “Last night?”
 
-“Yes, last night,” he said, almost pleading for me to understand something he couldn’t articulate. “I tucked him in. He was clutching it to his chest. I checked on him around midnight and he was still holding it. And now—” His voice broke again. “Now the stocking’s gone too. I thought maybe he dropped it somewhere, but it’s nowhere. I don’t understand. Nothing is disturbed. Nothing.”
+“Matthew,
 
-The room seemed to tilt. I felt myself lowering onto the arm of the couch without meaning to. The stocking. His name. The long, pale hand closing around it. The vanishing. The bow. The exchange.
+Some corrections take more than one step. You know this. You worked in a system built on the understanding that small errors compound when they are ignored.
 
-My brother kept talking, but his words sounded distant, muffled, like I was submerged underwater. “They think maybe he wandered off, but he wouldn’t. You know he wouldn’t. He hates the dark. He wouldn’t leave that room without calling for me. I don’t know what to do.”
+There are people who interfere without meaning to. They hold onto things that no longer belong to them. They ask questions that stop the process mid-route. They confuse fear with responsibility.
 
-I pressed a hand to my forehead, trying to breathe through the crushing realization grinding its way into me. I couldn’t tell him. I couldn’t say anything. I couldn’t explain something I didn’t fully understand without sounding insane. And worse—I couldn’t confirm what I was starting to believe.
+Children do not struggle with this. Adults do.
 
-“I’m sorry,” I said quietly, forcing my voice to stay steady. “I’m so, so sorry. I’m here. Whatever you need, I’m here. Just… tell me what the police are saying. Tell me everything.”
+Enclosed is a reminder that has arrived late. See that it reaches the person it was intended for. You are not being asked to explain anything. You are not being asked to stay.
 
-He exhaled shakily, trying to hold himself together. “Just… just stay by your phone,” he said. “In case they need to talk to everyone in the family. I can’t—I can’t think straight right now.”
+Belief does not survive witnesses.
 
-“I’m here,” I said again, but my throat felt tight and wrong.
+You know how to do this.
 
-When he hung up, I just sat there, staring at the corner of the living room where the creature had stood, where its shadow had swallowed the stocking whole.
+—Santa”
 
-I didn’t say it out loud.
 
-I didn’t let the words form.
+The name on the enclosed envelope wasn’t my nephew’s. That was almost worse. It was a name I didn’t recognize, written in a looping adult hand. The address was local.
 
-But somewhere deep in me, the truth settled with a sickening certainty.
+I drove it over that afternoon. I told myself I was just delivering mail. I told myself the system had rules and I was following them. I told myself I wasn’t responsible for what people did with what they received.
 
-The creature hadn’t taken an object.
+The house belonged to a family with lights already strung along the gutters. A plastic Santa waved from the lawn. A woman answered the door when I knocked, confusion flickering across her face when I handed her the envelope and said it had been misrouted.
 
-It had taken the name it represented.
+She thanked me. She smiled. She closed the door.
+I didn’t wait to see what happened next.
 
-And on Day 13, I handed it over.
+The news story ran the following morning. It was brief. A child missing. No signs of forced entry. The parents were cooperating. Anyone with information was asked to come forward.
+
+The picture they used was from a school photo. Red background. Crooked smile.
+
+I turned the TV off and sat in the quiet, my heart beating too hard, too fast. The house still felt calm. No shadows. No towering figure at the edge of my vision. No countdown restarting in my head.
+
+That was when I understood the shape of the trap.
+
+The third letter didn’t come right away.
+
+Day five passed without it. I blocked the mail slot with a chair. I stayed out of the kitchen. I didn’t sleep much. I thought about calling my brother a hundred times and stopped myself every time. I told myself I could still choose to stop. That if I just didn’t read the next one, none of this would be on me.
+
+The letter arrived anyway, slid neatly past the chair, resting on the tile like it had always been there.
+
+This one was shorter.
+
+
+“Matthew,
+
+You have been patient. You have followed instructions even when they made you uncomfortable. That is not easy.
+
+There is now an interference that needs to be addressed. You know this person. You know how deeply they are invested in not understanding what has happened. Their grief is becoming instructive to others.
+
+Christmas cannot proceed with that kind of obstruction in place.
+
+You are being asked because you are already involved, and because you understand that belief and spirit requires difficult gifts.
+
+This is the last correction required of you this season.
+
+Kill your brother.
+
+—Santa”
+
+
+I sat at the kitchen table with the letter spread flat in front of me. Outside, someone laughed. A car passed with a tree tied to its roof, needles shedding onto the road. The stove clock blinked the wrong time again, steady and unconcerned.
+
+I didn’t scream. I didn’t tear the paper up. I just sat there, feeling the weight of the week settle fully into place.
+
+Santa hadn’t threatened me. He hadn’t promised anything. He hadn’t needed to.
+
+He trusted me.
+
+The microwave beeped, reminding me that my ramen had been reheated automatically after sitting too long. I didn’t remember turning it back on. 
+
+The smell of chicken broth filled the kitchen again, warm and undeserved, as I stared at the letter and understood exactly what kind of help I had agreed to give.
