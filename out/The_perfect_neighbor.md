@@ -1,5 +1,3 @@
-Part one.
-
 When the house next door sold, everyone was relieved. I was the last house at the end of the cul de sac and the house was to my right.
 
 For years, it had been owned by an elderly couple who rarely left. After they passed away, the place sat empty—until one morning, a moving truck appeared without warning.
@@ -133,3 +131,145 @@ We also found some blonde hair and what looks like blood in the back of your Tah
 I started to hyperventilate you’ve got to believe me sir I would never…. He cut me off I just want to know if the girl is alive and where she’s at.  I don’t know  I yelled.
 
 Another detective came into the room and told detective Matthews he needed to see him.  He walked out and closed the door. I sat in silence pondering how I let myself get into this situation and what I could possibly do to get out of it. There was nothing they had me dead to rights. There is no way in hell a jury would ever believe me with all this evidence and god only knows what else he’s planted in my house.  So now I sit in this integration room waiting to hear my fate.
+
+A few moments later Another officer came and took me out of the interrogation room. I asked “what’s going on where are you taking me”. “I was just told to take you back to a holding cell” he replied. As we walked by there seemed to be a lot of movement in the police bullpen. Several cops went running out of building. The volume had definitely increased. Another officer almost ran into us running by. He stuck his head into the men’s restroom and said Mike hurry the hell up they found the girl we’ve got to go!  I stopped, “wait what girl”,
+
+Ashley did they find Ashley?”  Is she alive?  The cop dragged me away and threw me into a holding cell.
+
+Part two
+
+Ashley didn’t remember the drive.  She smelled Gasoline. Saw dust. Paint. When she woke up, it was dark.  Not nighttime dark.
+
+Closed-in dark.The kind that presses against your eyes.
+
+Her hands were taped behind her back. Her ankles were bound with duct tape. Her head throbbed. Her tongue felt too big for her mouth.
+
+For a while, she didn’t move. She just listened. Drip. Drip.
+
+Wind pushing against thin metal.
+
+She was in some kind of shed. Or storage unit. The air felt stale. Hot.After what felt like hours, she heard it.Footsteps outside. Measured. Unhurried. A key sliding into a lock.The door opened briefly. Light flooded in, blinding her.  He stood there. Gloves on. Ski mask over his face. Watching her like she was a project he hadn’t finished yet.
+
+“You’re okay,” he said softly. “Just stay calm.”
+
+His voice wasn’t angry. It wasn’t rushed.  He gave her some water from a water bottle. Turned around walked out and Locked the door.  She heard a car crank and heard tires driving off on gravel. Silence again.
+
+She found a splintered piece of wood near a crate.Worked the edge of the tape against it.  Sawed back and forth.Every second felt like an hour. Every small sound made her freeze.
+
+Finally, the tape tore enough for her to pull free. She stood.  Her legs nearly gave out.
+
+She staggered toward the door.  Locked from the outside.  But the shed was old. The hinges were rusted.  She grabbed a metal shovel leaning against the wall.  Wedged it between the door and frame.  Pushed. The metal groaned.  She pushed harder.  The top hinge snapped loose. The door bent outward just enough. Enough to squeeze through.
+
+She ran Barefoot Into the tree line behind the property. Branches tore at her skin.She didn’t stop. Didn’t look back. After what felt like miles, she saw headlights. A county road.
+
+She stumbled into it. A pickup truck screeched to a stop. The driver jumped out as she collapsed.
+
+Ashley woke up in the hospital. Two detectives sat nearby. One stood by the door.
+
+“Ashley,” Detective Matthews said quietly, “we just need you to think about anything unusual. A voice, tattoos, anything he said.
+
+Ashley swallowed. Her throat still hurt.
+
+“I didn’t see him,” he had a mask on she whispered.  “Did he say anything specific?”
+
+She closed her eyes.
+
+“He said… he said I was okay and to stay calm”
+
+Detective Matthews wrote something down.
+
+A knock interrupted them.
+
+A nurse stepped inside carrying a clear plastic hospital vase filled with white lilies.
+
+“They’re for her,” the nurse said softly.
+
+The nurse checked the tag. “No name on the delivery. Just dropped at the front desk.”
+
+Detective Moreno stood slowly. Nobody even knows we are here yet. “Can I see that?”
+
+The flowers looked fresh. Expensive. Carefully arranged.
+
+Tucked inside the plastic was a small folded card. The detective opened it.
+
+He read it once. Then again. His jaw tightened.
+
+“What does it say?” Ashley asked, her voice barely audible.
+
+He hesitated “It says…” he began carefully, “…‘You are stronger than I thought. Rest now.’”
+
+The room went silent. Ashley stopped breathing.  Her fingers dug into the blanket.
+
+The detective turned instantly. The hallway outside was empty.
+
+Security footage later showed a man in a baseball cap and neutral jacket dropping the flowers off at the front desk. He never approached the room.  He never signed in.  He left three minutes after entering.
+
+When detectives pulled the footage from the hospital exit camera, they saw him clearly for half a second as he stepped into the sunlight.
+
+Calm. Unhurried. Looking directly at the camera and smiling.
+
+That’s the damn neighbor the detective said. Go now get to his house.
+
+Five squad cars came flying down the street. They banged on the door. “Sheriffs department open the door”
+
+Nothing.
+
+Knocked again.
+
+Still nothing.
+
+One officer tried the handle.
+
+The door swung open.
+
+Unlocked.
+
+Inside, the house was silent.
+
+Empty.
+
+Not messy-empty.
+
+Not abandoned in a rush.
+
+Staged empty.
+
+No furniture.
+
+No boxes.
+
+No dishes.
+
+No tools.
+
+No signs anyone had ever lived there at all.
+
+The walls were freshly painted.
+
+The carpets vacuumed in straight, deliberate lines.
+
+One officer walked out slowly, scanning the quiet street.
+
+“Neighbors say he was home this morning,” he muttered.
+
+I was dropped off at home in a squad car that evening. I went into the house and went to grab a beer from the fridge. Inside was an un opened case of beer with a note taped to it.  My blood ran cold. I opened the note and it said “thanks for being a great neighbor”
+
+Daniel Crawford doesn’t exist.
+
+No social security number.
+
+No employment history.
+
+No prior address that can be verified.  He didn’t even own the damn house he had just moved in one day.
+
+Sometimes I sit in my driveway with a beer, staring at the empty house next door.
+
+And I can’t stop thinking about it.
+
+The way he smiled. The way he watched. The way he planned everything so perfectly.
+
+I take a sip and wonder… somewhere out there, in another street, another cul-de-sac, he’s probably moving in again.
+
+Watching. Waiting. Smiling.
+
+And all the neighbors around him will never truly know who lives next door.
