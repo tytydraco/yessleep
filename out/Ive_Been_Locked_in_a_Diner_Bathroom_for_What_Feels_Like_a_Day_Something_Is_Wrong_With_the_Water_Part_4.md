@@ -271,5 +271,3 @@ The broken one is worse. The fingers have gone ash-gray, and the good hand—
 I turn it over. I look at the palm.
 
 There's a scar there. A white scar, faint but it's there, running from the base of my thumb to my wrist. I don't remember getting that scar.
-
-Or—
