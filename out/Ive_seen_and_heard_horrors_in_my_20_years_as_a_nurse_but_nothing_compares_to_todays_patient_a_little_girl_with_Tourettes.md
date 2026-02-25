@@ -14,7 +14,7 @@ I was empathetic. “I’m sorry. That’s horrible. Tourette’s is a nasty thi
 
 *Lord help me, this person is supposed to be a medical professional*, was my immediate thought, but I took a polite tact aloud. “Jessica is not a covert racist, Linda, because there was no intent behind the word she used. Her brain convulsed and vomited out the thing she didn’t want to say. She called Brian a homophobic slur earlier. She—”
 
-“I don’t care,” interrupted Linda. “I’ll find someone else to do this shift with you because I don’t want to be around that vile creature. I’d muffle her if it were up to me.”
+“I don’t care,” interrupted Linda. “I’ll find someone else to do this shift with you because I don’t want to be around that vile creature. I’d muzzle her if it were up to me.”
 
 I was honestly glad my colleague left, given that final admission. I was devastated for the little girl, who kept apologising with teary eyes and a quivering lip after everything expletive or vile word she uttered to hospital staff.
 
