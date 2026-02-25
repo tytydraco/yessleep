@@ -1,4 +1,4 @@
-[{Original Post}](https://www.reddit.com/r/nosleep/comments/1qzmk9s/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[{Original Post}](https://www.reddit.com/r/nosleep/comments/1qzmk9s/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1re3ii9/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 It was supposed to be a normal hangout—at least, normal by our group's standards.
 

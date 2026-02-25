@@ -1,4 +1,4 @@
-[Part 4.](https://www.reddit.com/r/nosleep/comments/1r0uge5/every_year_on_my_birthday_i_am_trapped_in_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 4.](https://www.reddit.com/r/nosleep/comments/1r0uge5/every_year_on_my_birthday_i_am_trapped_in_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 6.](https://www.reddit.com/r/nosleep/comments/1re4aho/every_year_on_my_birthday_i_am_trapped_in_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I follow the faint trail of footprints. The grim covered stone floor barely allows a perceptible trail, and the fact that this one is so prevalent is interesting and possibly concerning. I am lost of course I don't really know where I am going. The trail I think I am following could be another trap, but I have no other lead on where to go, so I follow.
 
