@@ -16,7 +16,7 @@ The first thing I did was to clean up the tissues in the living room. To this da
 
 Before I knew it, a few months had gone by. Howard hardly ever left his room during that time and life was peaceful. I was doing online classes and working as a grocery stocker part-time.
 
-That peace was broken when Masquerade 3: Refill came out.
+That peace was broken when *Masquerade 3: Refill* came out.
 
 Howard was obsessed over the game, he would spend hours just looking at the portrait of a Mitsubu (A character in game) whenever she was on screen. He barely ate, he hardly slept, he never showered once, and he never paid rent. When he eventually romanced Mitsubu, he spent an entire day replaying the love confession over and over and over again. I don’t know how he didn’t get tired of it.
 
@@ -38,7 +38,7 @@ That brings us to yesterday night.
 
 When Howard had left for the night, I managed to unlock the door with a butterknife I bought the day before and made my way inside. Inside, there was a small plasma tv on a rotten bookshelf that was leaning to the left. The bookshelf was full of various manga and anime figurines of various female characters, some were in mason jars of a thick gel.
 
-Even more tissues littered the floor, crunching under my feet like dry leaves. Soda bottles filled with piss lay in the far right corner of the room near Howard's bed.
+Even more tissues littered the floor, crunching under my feet like dry leaves. Soda bottles filled with piss lay in the far-right corner of the room near Howard's bed.
 
 The bed is where I saw her.
 
@@ -58,14 +58,16 @@ He tumbled backwards, his large belly jiggling as he fell. “HOW DARE YOU HIT A
 
 When he struck me, the sheer mass of his body made me fall onto his bed, right on Mitsubu.
 
-I felt a sickening squish on my back as I landed on the doll of flesh. The force of me landing on it made the torso cave in and the arms became unstitched and fell on the floor. “NOOOOOOOOO! WHAT HAVE YOU DONE TO MITUSBU!” Howard yelled, crying. “SHE WAS PERFECT! WE WERE GOING TO BE TOGETHER FOREVER!” He said now sobbing hysterically.
+I felt a sickening squish on my back as I landed on the doll of flesh. The force of me landing on it made the torso cave in and the arms became unstitched and fell on the floor. A rib had deeply punctured the middle of my torso. I was hit with a sudden shock of pain and dizziness as I freed myself and tumbled out of the corpse.
 
-When I left the room Howard was kneeling on the bed crying over the destruction of his doll.
+“NOOOOOOOOO! WHAT HAVE YOU DONE TO MITUSBU!” Howard yelled, crying. “SHE WAS PERFECT! WE WERE GOING TO BE TOGETHER FOREVER!” He said now sobbing hysterically.
 
-I called the police when I left the apartment complex and they came 10 minutes later dragging a still crying Howard out of the apartment building and into the squad car.
+When I crawled out of the room, I saw Howard was kneeling on the bed crying over the destruction of his doll.
 
-And that's where I’m at today, in my car typing all of this out after being questioned by the police. Howard is being charged with 5 counts of mutilation of a corpse, his trial is next week, which I will testify as a witness on. I still honestly can’t believe this happened.
+I called 911 when I had finally reached my phone, Howards screams echoing across the apartment. 10 minutes later they arrived and took Howard away and me to an ambulance.
 
-I’m going to look for an apartment when I go back to my parents' house. No roommates this time. I’ve thoroughly learned my lesson.
+And that's where I’m at today, in a hospital bed typing all of this out after being questioned by the police. Doctors say I have a punctured liver and I'm going to be here a while. 
 
-(This is my first story please leave any feedback you may have)
+Howard is being charged with 5 counts of mutilation of a corpse, his trial is next week, which I will testify as a witness on. I still honestly can’t believe this happened.
+
+I’m going to look for an apartment when I get out of the hospital and go back to my parents' house. No roommates this time. I’ve thoroughly learned my lesson.
