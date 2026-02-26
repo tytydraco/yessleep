@@ -99,3 +99,6 @@ I stayed perfectly still. My hiding spot was good—it seemed like a place she n
 Then she spoke.
 
 What she said left me frozen, my heart pounding faster than ever…
+ 
+Here Part 2:
+https://www.reddit.com/r/scarystories/s/rU28fUonWF
