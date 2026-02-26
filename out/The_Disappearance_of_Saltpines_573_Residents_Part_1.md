@@ -62,7 +62,7 @@ I’m typing up my case notes with the residents, slowly and surely, I’ll be p
 
 I will be omitting patient names for privacy, but permission has been granted by the few family members that weren’t living in Saltpine for them to be made public in the hope for answers, as for the rest, there’s no one left to mourn them. Let alone to care about their dignity.
 
-I may get in trouble for it, I could lose my medical licence, but you get to a point sometimes, where the truth is far more important than what the medical licensing board can do to you. And after thirty years of trying to bury this, I’m ready to stop.
+I may get in trouble for it, I could lose my medical licence, but you get to a point sometimes, where the truth is far more important than what the medical licensing board can do to you. And after so many years of trying to bury this, I’m ready to stop.
 
 To the five hundred and seventy-three residents of Saltpine, I’m sorry I failed you.
 

@@ -232,7 +232,7 @@ Dr. Schile’s nods, breathing deeply. “Yes, most will still be with me and th
 
 I smile. “You say it like it’s inevitable.”
 
-“Oh, it most certainly is. Last year… I’d say it was a month between December and January, it was the longest, ah, except for that time in ’72, and of course with the road cut off…” He trails off, and then smiles. “Anyhow, did you have any questions for me?”
+“Oh, it most certainly is. Last year… I’d say it was a month, between the end of December and beginning of January, it was the longest, ah, except for that time in ’72, and of course with the road cut off…” He trails off, and then smiles. “Anyhow, did you have any questions for me?”
 
 I’m a little confused, uncertain, I can’t help but ask, “the road was cut off? There’s only one road?”
 
