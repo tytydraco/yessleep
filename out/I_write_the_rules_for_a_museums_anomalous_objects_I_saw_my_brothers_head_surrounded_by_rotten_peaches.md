@@ -46,7 +46,7 @@ The shutter was right to be afraid.
 
 **RULES:**
 
-1. Do not touch the glass the object is encased in.
+**1.** Do not touch the glass the object is encased in.
 
 *RB-1.1:* Subject 1 was instructed to simply touch the amber glass sphere with their dominant hand. Within seconds, the skin on their hand melted and dripped from their fingers. The skin remained liquid when contacting the floor, forming a puddle. Curiously, no blood was observed.
 
@@ -58,7 +58,7 @@ Neural monitoring of their dominant hand was green.
 
 *Rule Writer's Note: Vital signs were elevated, certainly due to pain. Expert medical examination suggested the wrist wounds were most consistent with exposure to neutron radiation.*
 
-2. Exposure within a 6 m x 6 m area centered on the object cannot exceed 15 minutes.
+**2.** Exposure within a 6 m x 6 m area centered on the object cannot exceed 15 minutes.
 
 *RB-2.1:* Subject 1, while awaiting further instructions, gradually became more anxious. While this may have been due to their hands, the Rule Writer noticed the Subject's central nervous system was turning red.
 
@@ -70,7 +70,7 @@ No response, physical or mental, was able to be extracted from Subject 1 after t
 
 *RB-2.2:* Rule Writer failed to initiate evacuation timer protocol at entry. Object counted this as a second breach. CB followed within 54 seconds.
 
-**CB-1:** Subjects in the waiting room, who had no exposure to any objects, began adopting a similar state to Subject 1. All apologizing, all catatonic, with relaxed vitals. They began drooling, indicating their basic reflexes were inhibited.
+***CB-1*****:** Subjects in the waiting room, who had no exposure to any objects, began adopting a similar state to Subject 1. All apologizing, all catatonic, with relaxed vitals. They began drooling, indicating their basic reflexes were inhibited.
 
 Their whole body and mind were possessed to face their guiltiest moments.
 
@@ -80,7 +80,7 @@ All the infected were neutralized (see footage: Waiting Room, 14:22).
 
 **Suppression:** do not let infected make physical contact with uninfected. The only cure is execution of the infected. Effect propagates through crowds via touch; a single airport could become a quarantine.
 
-3. Tell the object your greatest guilt. Do not lie—it knows.
+**3.** Tell the object your greatest guilt. Do not lie—it knows.
 
 *RB-3.1:* Subject 2 entered containment, instructed to lie. Specifically, they had to have claimed one of the most minor wrongs they have done as the worst thing they ever did.
 
@@ -88,13 +88,13 @@ Subject 2's neck was slowly cut open. The Subject was aware of the pain and tota
 
 Subject 3 was asked to confess their greatest guilt to the object. Nothing occurred.
 
-4. You may touch and remain near the object after confessing.
+**4.** You may touch and remain near the object after confessing.
 
 Subject 3 was asked to wait for 20 minutes. Their vitals and nervous system were nominal.
 
 They touched the glass without consequence.
 
-5. When holding the object, facing the glassware company logo towards another will cause them to confess their greatest guilt.
+**5.** When holding the object, facing the glassware company logo towards another will cause them to confess their greatest guilt.
 
 *Rule Writer's note: it is likely the person the Subject has wronged will always appear decapitated as a rotten head.*
 
