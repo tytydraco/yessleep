@@ -414,4 +414,3 @@ Be steady.
 
 *Calling Garrett now.*
 
-*Author's Note "I research this stuff at* [*wyalfm.com*](https://www.wyalfm.com/) *if you want the rabbit hole."*

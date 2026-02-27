@@ -100,9 +100,9 @@ But where they'd usually run off when I spot them, this one just kept staring. A
 
 "I'm not sure. But I don't like it."
 
-We head inside and I grab the shotgun, deciding that I've had enough. And I head back out, and now there are \*two\* deer there, just out of the pool of light from my porch, staring. Hell no, thinks I, so I cock the gun and fire it at them.
+We head inside and I grab the shotgun, deciding that I've had enough. And I head back out, and now there are *two* deer there, just out of the pool of light from my porch, staring. Hell no, thinks I, so I cock the gun and fire it at them.
 
-I \*swear\* I hit one square in the body. It should have just killed over then and there, but it didn't, and instead it just runs off. Like the shrapnel just went right through it. I ran after it a bit, and toward the source of the hum, just a ways, but I didn't see any marks in the trees or anything. I \*know\* I hit that deer.
+I *swear* I hit one square in the body. It should have just killed over then and there, but it didn't, and instead it just runs off. Like the shrapnel just went right through it. I ran after it a bit, and toward the source of the hum, just a ways, but I didn't see any marks in the trees or anything. I \*know\* I hit that deer.
 
 No blood, or anything.
 
@@ -112,7 +112,7 @@ So I run back inside. Something is wrong now, this much I know, but when I come 
 
 I rush up to look and sure enough, there are three deer out there, staring \*directly\* at us. And I don't know if I'm imaging it, but I swear I saw one mouth the word "Shaun".
 
-\*My\* name is Shaun.
+*My* name is Shaun.
 
 We lock all the doors and head up to the bedroom, where we barricade ourselves in using an old trunk from the foot of our bed. Out the window, I can see more deer gathering outside.
 
@@ -154,7 +154,7 @@ I searched the whole place, top to bottom, before finding the entrance to the mi
 
 It echoed off the walls, bounced inside and through. And in that moment, the hum stopped. Just completely stopped. I stared into the mine shaft, standing before the open metal doors, one round in the chamber.
 
-And then I see them. The eyes of deer. Not one. Not two. But \*dozens\* of deer, all blinking into existence inside of the darkness within. The one in front, though I couldn't see its body...
+And then I see them. The eyes of deer. Not one. Not two. But *dozens* of deer, all blinking into existence inside of the darkness within. The one in front, though I couldn't see its body...
 
 Well, I know what my wife's eyes look like.
 
@@ -168,7 +168,7 @@ And I can hear the humming whine growing louder as the sun continues to set.
 
 I can see them. Deer eyes in the trees. They're staring at me. I think they're waiting.
 
-I don't know what else to do. But I have one shotgun shell, and I'm going to make it count. I'm scared, but I'm not going down like \*that\*. The deer will not get me.
+I don't know what else to do. But I have one shotgun shell, and I'm going to make it count. I'm scared, but I'm not going down like *that*. The deer will not get me.
 
 I'm writing this to warn people. When someone says "the deer don't like you", don't stick around to find out why. Please. I implore you.
 
