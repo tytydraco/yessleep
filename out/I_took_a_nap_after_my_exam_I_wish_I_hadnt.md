@@ -1,7 +1,7 @@
 I had an exam from 2 to 4 PM.  
 I’d slept maybe four hours in the last sixteen. My head felt hollow by the time it ended, not tired, just *empty*, like my thoughts were arriving late to everything.
 
-After the exam, I went to the canteen with friends, ate something I don’t remember, scrolled through reels for a while, called home, and told my parents the exam was “fine.” I don’t know why I said that. I didn’t have the energy to say anything else.
+After the exam, I went to the canteen with friends, ate something I don’t remember , went to my room and laid on bed, scrolled through reels for a while, called home, and told my parents the exam was “fine.” I don’t know why I said that. I didn’t have the energy to say anything else.
 
 Back in my room, I turned off the main light. Left only the warm bulb on. Turned the fan on full speed. It was already getting dark outside.
 
