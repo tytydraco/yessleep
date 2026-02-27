@@ -56,13 +56,13 @@ A thin, delayed sense of doom finally arrived.
 
 **RULES:**
 
-1. The Manchurian Seal stamps red wax seals without any source for wax. Whatever is stamped *cannot* be opened again by the user.
+**1.** The Manchurian Seal stamps red wax seals without any source for wax. Whatever is stamped *cannot* be opened again by the user.
 
 *RB-1.1:* A staff member was called in to give Subject 1 an envelope. Subject 1 stamped the empty envelope on its front, which produced a pattern-less red wax seal. Curiously, even though the actual fold of the envelope was not sealed, Subject 1 could not open the envelope.
 
 *RB-1.2:* The staff member was recalled and asked to open the envelope. It opened normally. Staff was asked to close and leave the envelope in containment. Subject 1 could again not open it.
 
-2. Do *not* seal a container that you *know* is empty.
+**2.** Do *not* seal a container that you *know* is empty.
 
 *RB-2.1:* Subject 1 was instructed to stamp the same envelope again after verifying that it contained nothing. Approximately 3 minutes after stamping the envelope, Subject 1's vitals began varying sporadically. Jumping between 20 bpm and up to 110 bpm, with spO2 levels from 60% to 95%. There was no obvious pattern or relationship between heart rate and spO2.
 
@@ -80,7 +80,7 @@ Subject 1's nervous system signal flashed red briefly before turning black. Vita
 
 Subject 3 was asked to write a note, put it in an envelope, and stamp it with the Manchurian Seal. Nothing occurred.
 
-3. The sealed object must be opened by its intended recipient.
+**3.** The sealed object must be opened by its intended recipient.
 
 Subject 3 was asked to write a note starting with "Dear Aimee" (Aimee is Subject 3's daughter), and also to write the formal address on the exterior of the envelope.
 

@@ -70,7 +70,7 @@ No response, physical or mental, was able to be extracted from Subject 1 after t
 
 *RB-2.2:* Rule Writer failed to initiate evacuation timer protocol at entry. Object counted this as a second breach. CB followed within 54 seconds.
 
-***CB-1*****:** Subjects in the waiting room, who had no exposure to any objects, began adopting a similar state to Subject 1. All apologizing, all catatonic, with relaxed vitals. They began drooling, indicating their basic reflexes were inhibited.
+***CB-1***: Subjects in the waiting room, who had no exposure to any objects, began adopting a similar state to Subject 1. All apologizing, all catatonic, with relaxed vitals. They began drooling, indicating their basic reflexes were inhibited.
 
 Their whole body and mind were possessed to face their guiltiest moments.
 

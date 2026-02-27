@@ -30,7 +30,7 @@ There was something in there.
 
 **RULES:**
 
-**1:** Upon entering any room that contains the Faux Fog, immediately prostrate. Do not rise until you have eaten the gift provided.
+**1.** Upon entering any room that contains the Faux Fog, immediately prostrate. Do not rise until you have eaten the gift provided.
 
 *Staff note: Initially, the Rule Writer limited this rule to a 6 m x 6 m area, which is the size of the containment room. Later, it was found that the Faux Fog does not discern a specific area, but rather considers itself in a room as long as there are 4 walls, a floor, a ceiling, and some form of exit. It does not appear to be affected by the presence of windows versus doors.*
 
@@ -60,7 +60,7 @@ Subject 3 was asked to prostrate and then eat the gift. Nothing occurred.
 
 *Staff note: There was a power surge near the timestamp of the Rule Writer's note above. We cannot conclude that the object had any connection to this.*
 
-**2:** Do not assume safety in the absence of fog. The fog is an effect, not the object.
+**2.** Do not assume safety in the absence of fog. The fog is an effect, not the object.
 
 *RB-2.1:* The Rule Writer initially believed Subject 3's survival to be the end and that it was safe to extract. He called for subject extraction after waiting 15 minutes. However, once security entered the room, a black air duct punched through the ceiling. It was emanating fog. Security retreated.
 
@@ -76,7 +76,7 @@ The duct spewed a focused beam of fog onto Subject 3's face. The force alone bro
 
 Subject 4 repeated Subject 3's actions, however, they were told they were not safe or alone. This caused great anxiety for them. Security entered containment in exaggerated haste and was able to safely remove Subject 4. The duct did not make an appearance.
 
-**3:** Do *not* keep the Faux Fog sealed in a container (not "room-like," see rule 1 staff note) for more than 5 minutes.
+**3.** Do *not* keep the Faux Fog sealed in a container (not "room-like," see rule 1 staff note) for more than 5 minutes.
 
 *RB-3.1:* It was discovered that the object can be moved by intentionally provoking the fog, vacuuming it into a sealed container, and then opening said container in a new room. The duct will appear when provoked, confirming that this is the method for transfer.
 
