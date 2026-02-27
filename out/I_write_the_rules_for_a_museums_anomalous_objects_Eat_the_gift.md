@@ -91,3 +91,5 @@ My sleep-deprived hallucinations only worsened. They intruded upon my internal n
 Wading through the madness, a thought reached my mind: were the Subjects really voluntary? These words that the Director asserted on my first day have not left my mind. These are Foxglove Ridge residents who always entirely obey my commands—no matter the situation. I cannot fathom that they are told the full extent of their duty. They would surely not volunteer otherwise.
 
 I am not imprisoned here, at least explicitly. I could go to Foxglove Ridge and warn them. Yet, I have not.
+
+[Next](https://www.reddit.com/r/nosleep/comments/1rgi774/i_write_the_rules_for_a_museums_anomalous_objects/)
