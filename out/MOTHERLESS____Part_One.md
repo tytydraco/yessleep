@@ -244,3 +244,5 @@ His arms wrapped around me. His warm breath felt nice against my cold neck. "Let
 
 I closed my eyes and wrapped my arms around him and kissed his right cheek. "Thank you," I said with a smile and relief. 
 
+  
+[Part Two](https://www.reddit.com/r/nosleep/comments/1rgqozs/motherless_part_two/)
