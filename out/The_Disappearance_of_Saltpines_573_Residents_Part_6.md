@@ -325,3 +325,5 @@ I drink three cups in the end, and yet when I lay my head down sure I won’t sl
 And that night, for the first time since coming to Saltpine, I dream.
 
 \-Dr. Laura Cotts
+
+[Part 7](https://www.reddit.com/r/nosleep/comments/1ri0y04/the_disappearance_of_saltpines_573_residents_part/)
