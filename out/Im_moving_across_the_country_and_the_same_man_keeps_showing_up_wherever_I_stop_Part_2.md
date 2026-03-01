@@ -71,3 +71,5 @@ I scrambled to my feet and basically ran to the window. I closed the curtains ti
 God I feel so sick. 
 
 I'll post again once I get to the next stop.
+
+[Part 3](https://www.reddit.com/r/TalesFromTheCreeps/s/CdFhFAbgpt)
