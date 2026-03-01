@@ -160,3 +160,4 @@ She glanced at her bulletin board and my gaze followed hers. A calendar was thum
 
 “I couldn't have woken you.” Winona’s face darkened. “I was asleep the [whole night.](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)”
 
+[Next part](https://www.reddit.com/r/nosleep/comments/1rhi00a/i_work_at_a_national_park_youve_never_heard_of/)
