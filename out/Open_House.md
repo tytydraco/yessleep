@@ -38,4 +38,4 @@ The realtor took my keys out of his pocket and handed them to him. He turned tow
 
 I’ve been sitting on the floor ever since. I saw myself leave.
 
-EDIT: I look in the mirror and I see myself, but it’s not me. Those white, hollow eyes peering back. It’s all white. Always white. I sit and watch as the world passes by, but I won’t allow myself to fall asleep. Once again, I am grateful you sent help.
+EDIT: I look in the mirror and I see myself, but it’s not me. Those white, hollow eyes peering back. It’s all white. Always white. I sit and watch as the world passes by, but I won’t allow myself to fall asleep. Once again, I am grateful you sent [help](https://www.reddit.com/r/stevensavoy).

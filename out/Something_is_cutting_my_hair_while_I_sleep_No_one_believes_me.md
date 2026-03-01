@@ -54,4 +54,4 @@ The days that followed were the hardest. Something was missing, and the emptines
 
 After weeks of collection, I realized hair alone wasn't enough. It needed everything. The sweat, the tears, the drool, the oils. I gathered the hair from the floor and transferred it to the bathtub. Every day I add what I can. I spit until my mouth is dry. I exercise to wring out every ounce of sweat. I endure pain until my eyes water. I go days without bathing, letting the oils build, then scrape them from my skin. It's a battle against evaporation, but after months, the stew has grown thick and stable.
 
-I miss it. Every night I tend to the stew, then sit beside the tub and wait. Every small sound makes my heart leap. Every silence crushes it. I dream of the day it returns. I hope it's doing well, wherever it may be. Most of all, I hope it comes home.
+I miss it. Every night I tend to the stew, then sit beside the tub and wait. Every small sound makes my heart leap. Every silence crushes it. I dream of the day it returns. I hope it's doing well, wherever it may be. Most of all, I hope it comes [home](https://www.reddit.com/r/stevensavoy).
