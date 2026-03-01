@@ -73,3 +73,5 @@ God I feel so sick.
 I'll post again once I get to the next stop.
 
 [Part 3](https://www.reddit.com/r/TalesFromTheCreeps/s/CdFhFAbgpt)
+
+[Part 4](https://www.reddit.com/r/TalesFromTheCreeps/s/Tv4pSgmsym)

@@ -1,0 +1,29 @@
+I sat at the table in my mother's basement, staring at moving boxes. I was rubbing my right hand. I must have zoned out because next thing I knew, my brother was shaking my shoulder. "Are you okay? You good?" he said. You might be wondering how I ended up in my mom's basement 
+
+
+
+This past summer, I had a really good gig down at the local pizza shop working nights. It was within walking distance from my house which was perfect because I didn't have a car. I was taking day classes online too, had a few room mates from high school and I didn't really need a full-time job. The pizza place was a good walk, but I could get there quicker if I cut through the Greenwick Cemetery. So that's what I did. I wasn't afraid of the cemetery usually. I actually enjoyed looking at the tombstones as I walked through. It was never patrolled, because sometimes I walking through at 2am. 
+
+
+
+There was two different ways to be able to get to my house, through Greenwick cemetery. When entering on the side the pizza shop is on , you do go own the main path, and then get to a fork and can choose one of two paths, that go in basically a big circle and end up on the same end of the street right across from my house. When entering from my side, you can take either path and it joins into the main path and ends up on the other side.
+
+
+
+I didn't notice this particular tombstone right away because it was average. It was old. It was kind of decrepit , and the writing on the tombstone was faded, so you couldn't really see what it said. The cemetery is like over 100 years old, so a lot of them were like this. It was right at the entrance on my side, on the right hand side. It was rounded at the top, about 2 feet tall, and was light gray in color. You could see the main lettering usually where the person name goes, but there were no dates that I could see. The only reason this one stood out at that moment is because all the times I walked through this cemetery and read the tomb stones, I don't remember seeing this one. At first glance it looked like it said "BEWARE". That couldn't be right. I rubbed my eyes and got a little closer. It was already getting dark so it was difficult to see. I pulled out my phone to use the main screen to give me a little light, I panicked when I saw the time. 8:42. "Shit!" I said. I had about another 15 minute walk so I didn't have time to investigate. I took off quickly and made my way to work.
+
+
+
+After my shift as I made my to the cemetery entrance I thought, "perfect now I can investigate the tomb stone." I went straight to where I remember it being almost near the exit by my house. It wasn't there. Maybe I took the wrong path and it was on the other one. I walked quickly over toward the other path, and where I remembered it being. There was not any tombstone that looked like the one I remembered. I scratched my head. Was I imagining it? I thought to myself. Exhausted from work I headed home. That night I laid in bed thinking about BEWARE. I researched Ben Ware, Ben Wall, B, Beatrice, buried in Greenwick Cemetery. About 50 results came up. I looked through the first ten-ish. There were even a few photos of their tombstones included. It was no use, this would take forever. 
+
+
+
+I had the next day off, so I went back to work the following day. I entered the cemetery that night a little anxious but not sure why. Something told me to just go around and walk the long way. I continued. I took the path on the left, and then followed that until it merged into one path. I was nearing the exit toward the pizza shop side and there it was. I couldn't believe my eyes. There was no way that it could move from the entrance by my house to this side of the cemetery. There was no way this was the same tombstone. I walked closer. "BEWARE" it read. That was very clear. There was writing underneath it but it was dirty. I stepped on top of the dirt in front and started to brush off the dirt so I could read the words. My hand was shaking.  The first word appeared. "What". I kept brushing off more dirt, "What happens above, ". It was dark and very hard to see. I pulled out my phone and switched on my flashlight. 
+
+
+
+At this point my memory gets a little fuzzy. I cant remember what happened first, did I flick on my flash light, and point it toward the tombstone or did my phone drop before I could do that. At some point I dropped my phone directly on top of the grave. "Ugh!" I yelled out, in frustration. The light shined upward and a shadow was cast on the words. The words were clear now. "What happens above, stops below". My first instinct was to run. I bent down to grab my phone blinded by the light for a moment. I grabbed my phone and went to stand up. Instead my arm jerked forward. I could not see my hand , still seeing spots from the flash light. I was being pulled forward and I could feel cold earthy dirt up to my wrist at this point. Panic set in. I yanked harder and the more I yanked the deeper I got. I kept yanking, and yelled for help. 
+
+
+
+"Are you okay?" "Do you need help" and old man with a scraggly beard asked. How long had I been there? I looked over and my hand was covered up to my elbow in dark wet dirt, and I was holding my phone. "Where am I" ,"What time is it?" I asked. It was daylight. Hours had gone by. I was in front of the cemetery on the side my house is on. How did I get all the way back there? I ran off toward my house. I locked myself inside. I called into work. Eventually, I lost my job. My roommates started to get concerned. I kept all this about the tombstone to myself, I do not want to sound crazy but I was too scared to go back. For a month I couldn't even pull myself out of bed. When my phone lit up I felt like I could see a shadow of a tombstone on the wall, just for a brief moment. Eventually I turned off my phone so it didn't have a chance to light up. I moved back in with my mom. Ill take this secret to the grave. 

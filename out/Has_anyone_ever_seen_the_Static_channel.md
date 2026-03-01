@@ -4,9 +4,12 @@ That’s the part that still bothers me, almost as much as the channel itself. 
 
 Not a show.  A channel with its own dedicated page on the platform, the way Netflix or Hulu has a landing page, except this one wasn’t branded with any studio or network I recognized.  It didn’t have a logo or banner image.  Just the name in a font I’d never seen the platform use before — thin, uneven letters, like someone had scratched them into the screen with a pin.  Below it, a row of episodes with no descriptions, runtimes, or ratings.  Just innocuous-sounding titles.
 
-*The Birthday Party.*  
-*Sunday Service.*  
-*Backyard.*  
+*The Birthday Party.*
+
+*Sunday Service.*
+
+*Backyard.*
+
 *The Basement Tapes.*
 
 Sixteen episodes total, not arranged in any particular order as far as I could tell.
@@ -330,3 +333,5 @@ Except that when I opened the app this morning to check, the episode count was t
 I’m going to post this here because I don’t know where else to put it, and because I need someone — anyone — to tell me what happens next.  The people who knew are gone.  The forum thread is gone.  The warning I didn’t listen to is gone.
 
 All that’s left is the channel.  And it’s still growing.
+
+**Part 2:** [I found someone else who has seen the Static channel.](https://www.reddit.com/r/nosleep/s/vr43lf37o3)

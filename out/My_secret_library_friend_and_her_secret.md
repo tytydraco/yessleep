@@ -40,7 +40,7 @@ Maybe I can try to talk to her before heading out next time when I get a chance.
 
 # February 28th, 2022, 7:02
 
-It is my last day in the city. My parents decided to go with my dad's business expansion plan. This means that it is my last day in the library. My initial nonchalance has been transformed into grief, yearning and sorrow. I cannot be there for here anymore, and neither can she for me. She was becoming something more than a secret friend, and I know that I have become something more for her as well. I cannot let this go. I have to do something. 
+It is my last day in the city. My parents decided to go with my dad's business expansion plan. This means that it is my last day in the library. My initial nonchalance has been transformed into grief, yearning and sorrow. I cannot be there for her anymore, and neither can she for me. She was becoming something more than a secret friend, and I know that I have become something more for her as well. I cannot let this go. I have to do something. 
 
 I enter the study room, and catch a glimpse of her sitting in her usual spot. I tell my pounding heart to relax, for I do not want to disrupt her peace. At the same time, I have made up my mind today. I am going break out my cage, and try to get closer to her. I do not have much time left. 
 
@@ -56,7 +56,7 @@ The library is closing soon, and we are the only ones left. Luckily, it seems li
 
 *"Hey, sorry to bother you. I just wanted to say hi. How do you like my pens?"*
 
-She does not respond. Maybe she is a really shy type. Maybe she is as excited as I am, and is not comprehending this situation. Is the timing not right? Should I wait for her to pack as well? Is she listning to music? Is that why she cannot hear me? Where are her books? 
+She does not respond. Maybe she is a really shy type. Maybe she is as excited as I am, and is not comprehending this situation. Is the timing not right? Should I wait for her to pack as well? Is she listening to music? Is that why she cannot hear me? Where are her books? 
 
 Yea...where are her books? Does she not study here? And what are those plastic pieces on the desk? Are those...the barrels from the pens that I have been giving her? Her hands...why are they so red? I am not quite sure what to make of the puzzle pieces. I stand in silence. In a split second, I see her head shake frantically. My eyes catch a glimpse of her bright red lips. They are soft and gentle. They are glowing passionately, and are more beautiful than anything I have ever seen. I also see something dripping from her mouth. I take a look at her desk again, and notice that it is unusually red. The moment I look up, we finally make our first eye contact. And there is her soft voice again. 
 
