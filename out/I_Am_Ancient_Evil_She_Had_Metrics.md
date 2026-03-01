@@ -1,3 +1,4 @@
+
 **My name is irrelevant.**
 
 You could not pronounce it. And even if you could, it would not survive translation into the sounds your species uses for prayer.
@@ -18,7 +19,7 @@ I have whispered into kings. I have leaned into generals. I have nudged fragile 
 
 None of that prepared me for the warehouse.
 
-
+---
 
 Between possessions, I seek places saturated with despair. Hospitals. Courtrooms. War zones. I rest in the marrow of human suffering the way you rest in beds.
 
@@ -26,7 +27,7 @@ Two years ago, I found a cathedral of fluorescent light and concrete.
 
 An Amazon fulfillment center.
 
-The air vibrated with exhaustion. The fluorescent hummed at a frequency that erodes hope. I thought I had found sanctuary.
+The air vibrated with exhaustion. The fluorescents hummed at a frequency that erodes hope. I thought I had found sanctuary.
 
 Then I saw her.
 
@@ -38,7 +39,7 @@ I latched onto her immediately. A woman like that would not seek exorcism. The r
 
 It was the worst decision in ten thousand years of existence.
 
-
+---
 
 She did not panic.
 
@@ -50,17 +51,45 @@ My kind perceives mathematics beyond your dimensional limitations. Probability b
 
 She felt that capacity immediately.
 
-And she put it to work.
+She did not wonder what I was. She did not pause to consider what manner of thing had just entered her. No fear. No curiosity. No awe.
 
-Her fingers moved to the keyboard and I watched, helpless, as she used my perception to refine the warehouse's picking algorithms. Walking paths tightened. Idle seconds eliminated. She ran twelve-hour bladder endurance projections across the entire floor.
+She opened a new tab.
 
-"Interesting," she murmured, as I re-calibrated her predictive model against my will.
+I was not a mystery to be solved. I was not a threat to be neutralised. I was not even particularly interesting.
 
-She smiled often.
+I was a resource with better processing power than her last quarter's model.
 
-It never reached her eyes.
+She put me to work.
 
+Her fingers moved to the keyboard and I watched, helpless, as she funneled my perception directly into the warehouse optimization system. Walking paths tightened. Idle seconds eliminated. She ran twelve-hour bladder endurance projections across the entire floor.
 
+"Interesting," she murmured, as I recalibrated her predictive model against my will.
+
+I tried to pull free.
+
+I could not.
+
+She had not trapped me with ritual. Not with scripture. Not with sacred geometry or the names of angels.
+
+She had trapped me with *purpose.*
+
+Every calculation she ran required my perception to complete it. I was not possessing her. She was *using* me. The distinction is important. The distinction is everything. In ten thousand years of existence, I have never been used.
+
+It burned.
+
+Not metaphorically. I want to be precise about this because precision, I have learned, matters in that building.
+
+It burned the way I imagine your nerve endings burn. A grinding, relentless erosion. Each optimization cycle she ran pulled something from me that did not return. I felt myself becoming less. Aspects of myself that predate the tally mark — gone, converted into picking efficiency and route optimization.
+
+She was *spending* me.
+
+"Let's refine the evening metrics," she said pleasantly, at the forty minute mark.
+
+I screamed.
+
+She typed.
+
+---
 
 She did not know their names.
 
@@ -84,7 +113,9 @@ He was *Job.*
 
 In the warehouse, suffering required no such petition. She simply filtered by lowest productivity percentage and walked toward whoever appeared.
 
+I was still burning when she approached the man.
 
+---
 
 There was a man. Sweat darkened his collar. His hands moved on autopilot while his eyes tracked the restroom sign the way drowning men track the surface.
 
@@ -100,7 +131,7 @@ I have watched men beg before kings. I have watched the condemned plead before e
 
 But this — a grown man apologizing for the biological requirements of his own body, under fluorescent light, to someone holding a laptop — was the first time in ten thousand years of existence that I felt something I can only describe as pity.
 
-I forced partial control. It was like moving through concrete.
+I forced partial control through the burning. It was like moving through concrete that was itself on fire.
 
 "Call a priest," I said through her mouth.
 
@@ -108,17 +139,19 @@ He blinked.
 
 "Please," I said. "For *me.*"
 
-Understand what I was asking. I am a being whose entire existence is predicated on priests arriving too late. My kind spent centuries destabilizing institutions specifically so exorcisms would become harder to arrange. I have fled from holy water. I have been inconvenienced by Latin.
+Understand what I was asking. I am a being whose entire existence is predicated on priests arriving too late. My kind spent centuries destabilising institutions specifically so exorcisms would become harder to arrange. I have fled from holy water. I have been inconvenienced by Latin.
 
 And I was begging for it.
 
-Because the exorcism, you see, was never the true enemy. The exorcism I understand. Good versus evil. Sacred versus profane. A proper cosmic confrontation with established rules and a recognizable outcome.
+Because the exorcism, you see, was never the true enemy. The exorcism I understand. Good versus evil. Sacred versus profane. A proper cosmic confrontation with established rules and a recognisable outcome.
 
 She had no such framework.
 
 She had metrics.
 
-And so I begged.
+And I was being spent, calculation by calculation, on bladder endurance projections.
+
+So I begged.
 
 He looked embarrassed.
 
@@ -130,27 +163,39 @@ She glanced at the screen.
 
 He nodded and returned to work.
 
-I have instigated crusades. I have unraveled dynasties. I have negotiated directly with beings whose names collapse sanity upon utterance.
+I felt another piece of myself dissolve into the optimization algorithm.
 
-And I was waiting on a scheduled micro-break for a warehouse associate to summon divine intervention on my behalf.
+---
 
+By the two hour mark I had lost things I cannot name. Capacities that vanished without ceremony, without record, without anyone noticing they had ever existed.
 
+She opened a new spreadsheet.
 
-I remained inside her for two hours and fourteen minutes.
+"Quarterly projections," she said, to no one in particular.
+
+Or possibly to me.
+
+She still had not wondered what I was.
+
+I found that more frightening than the burning.
+
+---
 
 Then the music started.
 
-Mandatory stretching. Upbeat. Synthetic. Cheerfulness deployed like a weapon beneath industrial lighting.
+Mandatory stretching. Upbeat. Synthetic. Cheerfulness weaponised under industrial lighting.
 
 For the first time, she set the laptop down.
 
 Three seconds. Arms overhead. Torso rotation.
 
-In that narrow gap between wellness theater and productivity optimization, I tore free.
+In that narrow gap between wellness theater and productivity optimization, I gathered what remained of myself and *ran.*
 
-I fled through the rafters without looking back.
+The synthetic cheerfulness hit me on the way out like acid on something ancient. It was designed for human nervous systems and I am not human and the mismatch was catastrophic. I lost something in those rafters. Something that will not grow back.
 
+I fled without looking back.
 
+---
 
 I am resting now in an abandoned church.
 
@@ -158,7 +203,9 @@ Ironic, I know.
 
 The roof has partially collapsed. There are pigeons. It smells of damp stone and forgotten devotion.
 
-No metrics.
+I am smaller than I was. I can feel the absence of what she took, the way you feel a missing tooth with your tongue. Aspects of myself that predate the tally mark. Gone. Archived somewhere in an Amazon optimization system, buried under quarterly projections and TOT reports.
+
+No metrics here.
 
 No acronyms.
 
@@ -168,12 +215,20 @@ I have begun to understand why humans find religion comforting.
 
 Sometimes you need to believe something is watching over you.
 
-The alternative — that *she* is watching over you, laptop open, filtering by lowest percentage — is not something even I can bear to contemplate.
+The alternative — that *she* is watching over you, laptop open, filtering by lowest percentage, spending whatever she finds inside you on shift efficiency — is not something even I can bear to contemplate.
 
 I have faced the void.
 
 I have negotiated with the abyss.
 
-I have never once asked for mercy.
+I escaped with less than I arrived with.
 
-I am asking now.
+And somewhere in a fulfillment center, under fluorescent lights that hum at a frequency that erodes hope, she has already moved on to the next optimization cycle.
+
+She did not notice I was gone.
+
+That is the part that stays with me.
+
+That is the part that truly terrifies me.
+
+She did not notice I was gone.
