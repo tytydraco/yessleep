@@ -132,4 +132,4 @@ It keeps predicting every action.
 
 As I write this, I asked it the last question. I am copying and pasting its response exactly as it was issued:
 
-"You will hang yourself from the beam in your bedroom in 3 days, 4 hours, and 5 minutes. If you'll allow the comment, I think you're being a bit dramatic about this whole 'freedom' thing."
+"You will hang yourself from the beam in your bedroom in 3 days, 4 hours, and 5 minutes. If you'll allow the comment, I think you're being a bit dramatic about this whole  ['freedom' thing."](https://x.com/Rimmont_)

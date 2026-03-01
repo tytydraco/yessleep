@@ -28,9 +28,8 @@ They started coming almost every hour. At first I received them, but then I stop
 
 But I have destroyed my neural connector. That's when I heard an alarm in the distance. The assistants that arrived this time had a very different configuration, and they managed to force the door. They entered, making a horrible noise. I ran as fast as I could to the basement. When they were using the biological scanners, I hid behind a wooden column in the cabin. I got back to the computer, and I'm writing this from the strange connection I found. But they will return any moment now.
 
-  
-I feel like my chest is about to burst. 
+I feel like my chest is about to burst.
 
-My mouth is dry. 
+My mouth is dry.
 
-I don't know what this feeling is, dammit.
+I don't know what this feeling is, [dammit.](https://x.com/Rimmont_)

@@ -42,7 +42,7 @@ The further we went, the more the walls around me began to show age. Cracks and 
 
 "So what do you use your phone for?" he asked.
 
-"What... calling music? I don't know what you mean. What do you do with your phone?" I asked snarkily.
+"What... like, I don't know man. Calling, music maybe. What do you do with your phone?" I asked snarkily.
 
 "I take pictures of my feet and send them to random numbers." The instant response nearly gave me whiplash.
 
