@@ -106,7 +106,7 @@ The music suddenly stopped. I felt cold. I knew something was behind that door. 
 
 "What's this thing?" I asked, expecting my friend to give me the honest truth.
 
-"What's what? You mean the floor mopper robot thing," Zach said with a chuckle. "It mops the floors so we don't have to."
+"What's what? You mean the floor mopper robot thing," Zach said with a chuckle, flipping the light switch inside the room. "It mops the floors so we don't have to."
 
 What I was looking at didn't strike me as "for cleaning." 
 
@@ -140,7 +140,7 @@ Zach stood up. He walked to the light switch, flipping it off while seemingly su
 
 "What was it?" I asked.
 
-"The room we go to to play music over the radio. The reason there was a whip in there was because this place was once secretly a KKK private church. They'd bring in those they deemed not human and beat them. Whipped them. Dehumanized them. The graffiti on the walls you saw was from children they had here. That's the secret my friend found. It's the horror she had to bear."
+"The room we go to to play music over the radio. The reason there,s an old belt in there was because this place was once secretly a KKK private church. They'd bring in those they deemed not human and beat them. Whipped them. Dehumanized them. The graffiti on the walls you saw was from children they had here. That's the secret my friend found. It's the horror she had to bear."
 
 "Not much of a ghost story," I said. Zach just looked at me.
 
