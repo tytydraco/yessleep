@@ -189,9 +189,7 @@ For the first time, she set the laptop down.
 
 Three seconds. Arms overhead. Torso rotation.
 
-In that narrow gap between wellness theater and productivity optimization, I gathered what remained of myself and *ran.*
-
-The synthetic cheerfulness hit me on the way out like acid on something ancient. It was designed for human nervous systems and I am not human and the mismatch was catastrophic. I lost something in those rafters. Something that will not grow back.
+In that narrow gap between wellness theater and productivity optimization, I gathered what remained of my strength and forced my way out. 
 
 I fled without looking back.
 
