@@ -48,7 +48,7 @@ Casey’s expression did something complicated. “Meet? In person? A stranger f
 
 Saturday was one of those late February days that doesn’t know what season it wants to be. The sky was overcast but the air was mild. Pullen Park was half-empty, the way parks are in the ambiguous weeks between winter and spring.
 
-Casey and I arrived at 11:45 and sat on a bench near the carousel. It was closed for the season. Casey had her phone out, pretending to scroll but actually, I knew, keeping one eye on every person who walked past.
+Casey and I arrived at 1:45 PM and sat on a bench near the carousel. It was closed for the season. Casey had her phone out, pretending to scroll but actually, I knew, keeping one eye on every person who walked past.
 
 At 1:58 PM, a man sat down on the bench across from us.
 
@@ -90,7 +90,7 @@ The number landed in the space between us like something heavy being set down. 1
 
 “141,” I repeated.
 
-“The count on the page is higher. There are over 200 episodes on mine now. But I’ve watched a 141.” He paused. “Well, 140 ½. There was one I couldn’t finish.”
+“The count on the page is higher. There are over 200 episodes on mine now. But I’ve watched 141.” He paused. “Well, 140 ½. There was one I couldn’t finish.”
 
 He said this casually, but when he said it, his fingers stopped tracing shapes on his thigh. It was the first time his hands had been still since he sat down.
 
@@ -110,7 +110,7 @@ He said it matter-of-factly, but underneath the even tone, I could hear the weig
 
 “The message you sent me,” I said. “You mentioned Pullen Park specifically. How did you know where I live?”
 
-“No. But your profile did.” He said it simply, without apology. “After I read your post, I went through your account. Post history, comments, anything that might tell me if you were real or just another person performing belief. You’d commented on a thread about local restaurants in Raleigh a few months back.”
+“I scanned your profile and post history.” He said it simply, without apology. “After I read your post, I went through your account. Post history, comments, anything that might tell me if you were real or just another person performing belief. You’d commented on a thread about local restaurants in Raleigh a few months back.”
 
 Silas opened an app on his phone the same one, the same interface, the same platform. He navigated to a page I recognized instantly. It was his *Static* channel page.
 
@@ -126,7 +126,7 @@ He looked at me to see if I understood. I did.
 
 “That could be a coincidence,” Casey said.
 
-Silas looked at her with an expression that had once, probably, been capable of amusement. “Three hours after I read a post from someone describing the exact same channel I’ve been watching for eight months, an episode appears on that channel filmed at a park in the same city? It’s not a coincidence.”
+Silas looked at her with an expression that had once, probably, been capable of amusement. “An hour after I read a post from someone describing the exact same channel I’ve been watching for eight months, an episode appears on that channel filmed at a park in the same city? It’s not a coincidence.”
 
 We sat with that for a moment. A jogger passed on the path in front of us, earbuds in, oblivious. A squirrel sprinted up an oak tree. The world continued being normal around us.
 

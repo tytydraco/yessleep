@@ -385,3 +385,5 @@ Her voice stopped short when she saw that we weren’t walking with a kidnapping
 When my eyes only stared at hers back with tears pooling in their lids, she turned desperately to Kait or Carly for an answer. What she got from them was more of the same until Carly slowly stepped forward.
 
 With a trembling hand, she held out Lacey’s brother’s hat, soaked in fresh blood, and once the girl saw it, her hands clasped her mouth, and she broke down completely.
+
+[{Next part}](https://www.reddit.com/r/nosleep/comments/1rii1hz/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
