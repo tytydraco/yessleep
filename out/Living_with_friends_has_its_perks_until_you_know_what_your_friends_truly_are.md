@@ -1,0 +1,17 @@
+Hello, everyone! I'm writing this while eating a bowl of Honey Bunches of Oats. Mainly because something strange happened to me today.
+
+I fell out of bed this morning. At least I think I did. My friend Garon told me he heard the thud of me hitting the floor from his room. All I remember is waking up, and there I was lying face first on the carpet floor. To be honest with you, I've never actually done that before. My theory is that I had a nightmare or something I can't remember. Garon thinks I probably just got too close to the edge of my bed and happened to slide off, but I'm not buying that.
+
+Luckily for me, I've been recording myself sleeping recently. Why? It's a simple experiment; don't worry about it... Okay, fine, I wanted to know if I talk in my sleep. I don't, fortunately enough, but after two weeks of doing it, I've just kept doing it. Anyway, the point is I've got recorded proof of why I fell out of bed, so I'll continue this after I've watched it.
+
+So...someone was in my room last night. It's hard to make out but for a few seconds of the pretty normal footage. A silhouette walks right past my camera. Like... what the fuck. Now as much as I'd like to tell you all that I've solved the mystery of my floor nap, unfortunately my phone camera died about an hour before I fell out of bed. Which is strange because I'm positive it was fully charged. Which also, I guess, means the only culprit is whoever was in my room last night.
+
+Now this may sound like a shit idea, but I'm going to once again set up my camera. However, I'm going to simply pretend to sleep, and when that bastard least expects it, I'll surprise him. Okay, well, now that I have it written down, this idea sounds even better. I'll continue this tomorrow after I've done it.
+
+I fell asleep. I know I said pretend, but fuck, man, my bed was extra comfy last night. Which reminds me of my phone camera; hold on, I have to check the footage.
+
+Someone is standing next to my bed. It's so dark I can't make out any features. Garons been with family since yesterday evening, so it couldn't have been him. Oh fuck, there's a stranger in my house. Who also stares at me while I sleep... I hate living in Ohio.
+
+It happened again last night. Yes, sorry, I was too horrified to continue where I left off, but it happened again. He just stood there for three hours straight. What's worse, I woke up face-first on the floor again. Seriously, what is it with this dude rolling me out of bed? How am I even still sleeping after landing face-first on the floor? Okay, this time for sure I won't fall asleep.
+
+I fell asleep again, kind of. So, basically... after I dozed off. I heard a loud crash coming from Garon's room. Which startled me, but I didn’t fully wake up or anything. If anything, I was half asleep. Which is good because that also means I was conscious enough to half comprehend things. Such as the sound of my bedroom door slowly creaking open. Strangely, I heard no sound of footsteps. However, sure enough, my eyes were closed and my ears were listening. Someone did enter my room. Someone did stand at the foot of my bed. Someone is currently under my bed. How do I know that... because I'm lying on the floor... staring at my friend Garon...
