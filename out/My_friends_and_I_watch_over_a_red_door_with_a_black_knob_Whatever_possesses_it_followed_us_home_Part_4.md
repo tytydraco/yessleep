@@ -406,7 +406,7 @@ Still, what did that mean? Casey didn’t exist? Only a few hours ago, we were a
 
 Then that thought hooked in my head. Why *was* Lacey here? If it had been less than 24 hours since her brother went missing, she would never have left the station. She would have sat there in that lounge, seeing it through until they forced her out of the office. She would have had family show up, police still asking questions—hell, why hadn’t the Sheriff reached back out to any of *us* yet?
 
-Unless they weren’t looking for him anymore… Unless Casey never existed, so there was no search ever sent out to begin with.
+Unless they weren’t looking for him anymore… Unless Casey never existed, so in their minds there was no search ever sent out to begin with.
 
 A chill shivered up my spine as I looked over my shoulder at Mary, happily humming to herself as she wiped off the bar counter. Suddenly, her neglect of mentioning Casey didn’t seem like a fluke anymore. It felt like something much more sinister.
 
