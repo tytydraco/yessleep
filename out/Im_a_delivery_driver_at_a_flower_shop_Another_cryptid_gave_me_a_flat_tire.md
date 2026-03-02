@@ -105,3 +105,9 @@ I don't fully know what motivated my decision. Maybe I felt a sort of kinship wi
 So I agreed. I'm in his van. I'm sitting in the passenger's seat, mere inches away from a shapeshifter wearing the skin of a man who's twice my size. It doesn't really need to tow my car, it could kill me and eat me if it wanted to, but I suppose even a creature that steals and inhabits your skin needs rent money. Better that it at least get paid a hefty mechanic's fee before killing you, that way it can afford the electric bill it racks up from keeping freezers full of mystery meat and severed limbs. I'm letting it drive me towards those freezers. Wherever Ilya's Very Good Car Repair is, it's in a part of the desert where your bones will be stripped of flesh and bleached by the sun before anyone finds your body.
 
 We're close, and I think I see the sign in the distance. I'm going to stop typing on my phone. I have to somehow figure my way out of this mess.
+
+\--
+
+[Episode 2](https://www.reddit.com/r/nosleep/comments/1r8g74e/im_a_delivery_driver_at_a_flower_shop_this_road/)
+
+[Episode 4](https://www.reddit.com/r/nosleep/comments/1rj7bq4/im_a_delivery_driver_at_a_flower_shop_i_dont_know/)

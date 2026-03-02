@@ -122,5 +122,6 @@ I sighed.
 
 "Sure. What time?"
 
-  
-(read episode 2 [here](https://www.reddit.com/r/nosleep/comments/1r8g74e/im_a_delivery_driver_at_a_flower_shop_this_road/))
+\--
+
+([Episode 2](https://www.reddit.com/r/nosleep/comments/1r8g74e/im_a_delivery_driver_at_a_flower_shop_this_road/))
