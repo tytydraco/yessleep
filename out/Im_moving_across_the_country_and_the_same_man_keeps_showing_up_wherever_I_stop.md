@@ -33,3 +33,7 @@ It's really small and crushed with a pink smear.
 I leaned forward to get a good look.
 
 I swear it's my cigarette butt.
+
+[Part 3](https://www.reddit.com/r/TalesFromTheCreeps/s/CdFhFAbgpt)
+
+[Part 4](https://www.reddit.com/r/TalesFromTheCreeps/s/Tv4pSgmsym)
