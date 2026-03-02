@@ -130,7 +130,7 @@ Feels too coincidental.
 
 \*
 
-\[PART 2 forthcoming\]
+[\[PART TWO\]](https://www.reddit.com/r/BlackRoseOriginals/comments/1rixvt2/anyone_ever_heard_of_a_thumbnail_demon_im_at_my/)
 
 [\[Copyright BlackRoseOriginals\]](https://www.reddit.com/r/BlackRoseOriginals/comments/17qnb8a/where_to_find_my_work_how_to_contact_me/)
 
