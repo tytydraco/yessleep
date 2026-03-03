@@ -135,3 +135,5 @@ It whispered in my dreams the night it was returned. Per rule 4, I tried not to 
 The next day, the Spear of Caesar breached containment again. It has not been found.
 
 A dark and furry spider of a thought has nested in my mind. The Director said I had already evaluated all objects they had previously attempted to classify. [The lexicon had used the Spear of Caesar as the example for the Ani class.](https://www.reddit.com/user/Ancarn/comments/1r6lkbi/hilltop_museum_lexicon/)
+
+[Next](https://www.reddit.com/r/nosleep/comments/1rjtf2d/an_exhibit_from_my_museum_went_missing_it_brought/)
