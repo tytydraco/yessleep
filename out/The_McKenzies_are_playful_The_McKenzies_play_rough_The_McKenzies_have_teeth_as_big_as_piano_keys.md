@@ -2,13 +2,13 @@ When eight men in fine-cut Italian suits came barreling towards my boat, stamped
 
 *This job is going to be an absolute shitshow.*
 
-Was I shocked? No, not exactly. In my line of work, shitshows are an occupational hazard. When wealthy elites need to disappear, I’m the sorry fucker who gets hired to smuggle them from point A to point B. I’ve spent more time than I’d care to admit bumping elbows with the upper crust, and they aren’t as *prim and proper* as their diamond Rolexes seem to suggest. They're strange animals hiding in human skin. 
+Was I shocked? No, not exactly. In my line of work, shitshows are an occupational hazard. When wealthy elites need to disappear, I’m the sorry fucker who gets hired to smuggle them from point A to point B. I’ve spent more time than I’d care to admit bumping elbows with the upper crust, and they aren’t as *prim and proper* as their diamond Rolexes seem to suggest. They're strange animals hiding in human skin.
 
-So when the McKenzie boys tumbled onto my small sailing yacht, this furious tangle of wild eyes and swinging arms, their behavior didn’t shock me. I was curious, though. Eight maniacs aimlessly chased each other around the deck. I slumped over the helm, watching the bedlam. Suddenly, it clicked. The chasing *wasn’t* aimless. One of them was chasing the other seven, and if they caught someone, the chaser switched. 
+So when the McKenzie boys tumbled onto my small sailing yacht, this furious tangle of wild eyes and swinging arms, their behavior didn’t shock me. I was curious, though. I slumped over the helm, watching the mayhem unfold. Eight maniacs aimlessly chased each other around the deck. Suddenly, it clicked. The chasing *wasn’t* aimless. One of them was chasing the other seven, and if they caught someone, the chaser switched. 
 
 You ever seen adult men play tag?
 
-It’s a strange, strange sight. Made my skin crawl. 
+It’s a strange, strange sight. Made my skin crawl.
 
 My boss - the disingenuous son of a bitch who actually *owns* the boat - did *technically* warn me. When I inquired about the job, Gio described the McKenzies in one word:
 
@@ -22,11 +22,11 @@ He scratched his double chin and puffed. 
 
 “You know...” he started, pulling the cigar from his lips and waving it in circles, “...playful. Child-like. They enjoy games, Phil.” His fat jaw curled into a smile. Anxiety coiled around my throat. Pain galloped along the stump where my right pinky *used* to be. Gio had the uncanny ability to make something as harmless as a smile look irredeemably vicious.
 
-*Fuck this.* 
+*Fuck this.*
 
-I threw myself upright. 
+I threw myself upright.
 
-“I came all the way down here, and you’re jerking me around? No deal. Find another *playmate.*” I turned to leave. Why had I even bothered to hear his pitch? I’d been fighting to cut ties with him ever since he began dipping his gnarled, ringworm-infested toes into *actual* human trafficking. I could morally justify helping reclusive moneybags out of some legal pinch. But what Gio was getting involved in? No. Absolutely not. 
+“I came all the way down here, and you’re jerking me around? No deal. Find another *playmate.*” I turned to leave. Why had I even bothered to hear his pitch? I’d been fighting to cut ties with him ever since he began dipping his gnarled, ringworm-infested toes into *actual* human trafficking. I could morally justify helping reclusive moneybags out of some legal pinch. But what Gio was getting involved in? No. Absolutely not.
 
 My hand grasped the doorknob, a feeling of pride growing warm in my gut. I was better than this. Then Gio muttered the only four words that could keep me in that hellhole.
 
@@ -48,9 +48,9 @@ Gil pressed his cigar into an ashtray.
 
 “Not to say that there will be trouble, Phil. I know you’ve proven allergic to certain flavors of trouble as of late - no hard feelings, by the way. I respect your *line in the sand,* just as you respect my God-given right to privacy."
 
-He stared at me, unblinking, mashing the smoldering tobacco into the murky glass, harder and harder. Took me a second to realize that last sentence was a question, not a statement. 
+He stared at me, unblinking, mashing the smoldering tobacco into the murky glass, harder and harder. Took me a second to realize that last sentence was a question, not a statement.
 
-"Y-yeah - of course. Haven't said anything to anyone." 
+"Y-yeah - of course. Haven't said anything to anyone."
 
 He reached a meaty paw over the desk.
 
@@ -58,21 +58,21 @@ He reached a meaty paw over the desk.
 
 I nodded, sliding my four-fingered hand into his grasp.  
 
-The next morning, I’d find myself on that godforsaken boat, outnumbered eight to one by a horde of well-dressed savages. The deck blurred with frantic motion. Footsteps hammered the wood. 
+The next morning, I’d find myself on that godforsaken boat, outnumbered eight to one by a horde of well-dressed savages. The deck blurred with frantic motion. Footsteps hammered the wood.
 
 “Excuse me, folks...”
 
-Sweat trickled down my collar, and not just from the sun. Any second, one of them might vault overboard. My stump buzzed with phantom pain. The jagged scar where Gio’s carving knife had met my pinky sizzled. 
+Sweat trickled down my collar, and not just from the sun. Any second, one of them might vault overboard. My stump buzzed with phantom pain. The jagged scar where Gio’s carving knife had met my pinky sizzled.
 
 And that was my souvenir for delivering *damaged* goods. God only knows what Gio would do to me if I actually lost one of the McKenzies.
 
 **“EXCUSE ME, FOLKS!”**
 
-The game shuddered to a screeching halt. Each McKenzie scampered away and hid. 
+The game shuddered to a screeching halt. Each McKenzie scampered away and hid.
 
 “Sorry - didn’t mean to startle y’all..." One by one, they peeked out from behind sails and furniture, curious and wary, like toddlers sizing up a mall Santa. Once they spotted me, the McKenzies became still. Perfectly still. Unnaturally still. One had his back pressed into the door that led below deck and I swear I couldn’t even see his chest moving as he breathed. 
 
-"But we need to leave soon, and it ain’t safe to be...uh...*playing* like...that...” I trailed off, words withering to dust in my dry throat. My eyes drifted from man to man, statue to statue, fear crackling at the base of my skull. 
+"But we need to leave soon, and it ain’t safe to be...uh...*playing* like...that...” I trailed off, words withering to dust in my dry throat. My eyes drifted from man to man, statue to statue, fear crackling at the base of my skull.
 
 I hadn’t noticed until they finally slowed down.
 
@@ -100,13 +100,13 @@ He stopped. Crouched down even further.
 
 His muscular jaw creaked on its hinges. The interior of his mouth was wet and cluttered. Saliva dripped from graying teeth that were triple the normal size. He had no canines. No incisors. His gums were overpopulated with gigantic, charcoal-colored molars.
 
-He lunged. His molars glistened in the mid-morning sun. 
+He lunged. His molars glistened in the mid-morning sun.
 
 It was all so quiet.
 
 But just for a moment.
 
-The other McKenzie screeched like a bobcat in labor and leapt from the door. The alpha missed, sinking its molars into the oak. The commotion sent the other six into a frenzy. Wrestling. Yelping. Biting at each other. The alpha threw his shoulders back, dislodging his teeth from the door, scarring the wood with an oval of peg-shaped holes.
+The other McKenzie screeched like a bobcat in labor and leapt from the door. The alpha missed, sinking its molars into the oak. The commotion sent the other six into a frenzy. Wrestling. Yelping. Biting at each other. The alpha threw his shoulders back, dislodging his teeth from the door, scarring the wood with a ring of peg-shaped holes.
 
 I’m not sure what came over me. The mayhem spun me into my own little frenzy I suppose, though, in my defense, they *were* acting like rowdy children.
 
@@ -138,7 +138,7 @@ Gio’s voice chimed in my ears.
 
 My heart thumped a desperate anthem. I tiptoed to the cockpit. One interminable, excruciating step after another. The McKenzies didn’t move. I set my four-fingered hand on the navigation console. Dragged the other across the indent of the firearm that was tucked into the back of my shirt. I knew it hadn’t gone anywhere. Still, I had to be sure.
 
-*I mean, think about it - abandoning the job would be signing my death warrant. There’s no place I can hide, no rock Gio couldn’t find me under.* 
+*I mean, think about it - abandoning the job would be signing my death warrant. There’s no place I can hide, no rock Gio couldn’t find me under.*
 
 I pictured them swarming, tackling me to the ground, gnawing into my belly and excavating my guts with blood-stained chunks of enamel. 
 
@@ -152,7 +152,7 @@ I nudged the throttle. We slipped away from the dock.
 
 I exhaled. It felt like the first time I had in hours. A sea breeze softly whistled. The sky was clear. The tide was meek. Perfect conditions for a peaceful jaunt along the coastline. A smirk slithered across my chin.
 
-*Hell of shitshow.* 
+*Hell of shitshow.*
 
 Hours quietly passed. 
 
@@ -162,7 +162,7 @@ The contact expected his “*cargo”* to be delivered before sundown, and I wa
 
 I sipped at stale coffee. The sun tilted overhead, dipping toward the west. After a while, my vigil almost didn’t seem necessary. The McKenzies were like a heap of corpses: eyes shut tight, stiff but knotted together, extremities intertwined, the alpha’s bullish head peaking out at the top.
 
-Of course, I had to check our heading now and then; keeping an eye on the McKenzies meant nothing if we went wildly off course in the process. I never turned my back for long, because every time I did, I felt their eyes burning holes in my spine. I’d whip around, sure their stillness was some nasty trick, convinced they were just toying with me.
+Of course, I had to check our heading now and then; keeping an eye on the McKenzies meant nothing if we went wildly off course in the process. I never turned my back for long, because every time I did, I felt their gaze burning holes in my spine. I’d whip around, sure their stillness was some nasty trick, convinced they were just toying with me.
 
 Never caught them with their eyes open.
 
@@ -180,7 +180,7 @@ The steel hull zoomed by, creating a draft that pelted me with salty air. Its mo
 
 A final crescendoing *whoosh*, then sunlight. 
 
-I collapsed onto the console, chuckling, grinning like an idiot. My laughter gradually dissolved. I stared at the ocean, thoughts focused solely on the steady churn of the boat as it grazed the water.  
+I collapsed onto the console, chuckling, grinning like an idiot. The liner grew small and disappeared into the horizon. My laughter gradually dissolved. I stared at the ocean, thoughts focused solely on the steady churn of the boat as it grazed the water.  
 
 I closed my eyes.
 
@@ -198,13 +198,13 @@ Panic detonated like an atom bomb. My legs roared to life. I bolted toward the b
 
 *This isn’t happening, this isn’t happening, this isn’t happening...*
 
-I grabbed the rail and skidded to a stop. What *the fuck* was I doing? The McKenzies had been flung off the ship, and the engine was still running - I was getting farther and farther from them with every passing second. I flipped around and sprinted back to the console, vertigo threatening to send me overboard as well. 
+I grabbed the rail and skidded to a stop. What *the fuck* was I doing? The McKenzies had been flung off the ship, and the engine was still running - I was getting farther and farther from them with every passing second. I flipped around and sprinted back to the console, vertigo threatening to send me overboard as well.
 
 I drove back to where I thought I made the sharp turn. I ran feverish laps around the boat’s perimeter, hanging my head over the rails. The search was pointless. There were no corpses. No still-living McKenzies thrashing to stay afloat. Just my own hysterical reflection bobbing on the tide. 
 
 My life was over. 
 
-I trudged back to the cockpit. My body felt unbearably heavy. My skull felt like a ball of solid lead. 
+I trudged back to the cockpit. My body felt unbearably heavy. My skull felt like a ball of solid lead.
 
 *Gio’s going to kill me...*
 
@@ -228,17 +228,17 @@ It didn’t match. 
 
 The shoe that made it was bigger. 
 
-*...are they still here?* 
+*...are they still here?*
 
 I ripped the firearm out of my waistband, unlocked the safety, and began searching. They had to be hiding below deck. I swung the door hard enough to snap the bottom hinge. Descended the stairs, fire in my blood, itching to pull the trigger. The cabin was small and dusty. I looked under the cot. I searched the adjoining bathroom, which was barely more than a toilet surrounded by four walls. Hell, I emptied cabinets that were no bigger than a milk crate. I dug through the cubbies as if I would discover a McKenzie in the darkest corner of the tiny compartment.
 
-*They're here.* 
+*They're here.*
 
-*They have to be.* 
+*They have to be.*
 
-I stomped back up the stairs but froze in the doorway, paralyzed by the sight that greeted me. 
+I stomped back up the stairs but froze in the doorway, paralyzed by the sight that greeted me.
 
-There was this falling sensation. 
+There was this falling sensation.
 
 It was like I’d been pushed over the side of the well, and I was plummeting, sinking into myself, down, down, down...
 
@@ -250,13 +250,13 @@ On the console. 
 
 A nice, neat pile of ceramic shards. 
 
-A gift for me, accompanied by Gio's low, droning voice. 
+A gift for me, accompanied by Gio's low, droning voice.
 
 *“You know...they're playful."*
 
 *"Child-like."*
 
-*"They enjoy games, Phil.”* 
+*"They enjoy games, Phil.”*
 
 I flew from the doorway. Scrambled across the deck, head on swivel. I ignited the engine and slammed on the throttle. The boat growled and sprang forward, surging like a thunderclap. They're here. They're toying with me. If they were behind me, would I even hear them?  
 
@@ -266,7 +266,7 @@ I forced my mind to clear. Speculation was a venom; it would immobilize me, stun
 
 *The shore is only ten minutes out.* 
 
-*Just get your feet on dry land.* 
+*Just get your feet on dry land.*
 
 Each second felt like a needle shoved under my nailbed. Nine minutes. Eight minutes. Seven minutes. I surveyed the ship compulsively. Whipped my skull around like it was weightless. I’d see them before I heard them, right? 
 
@@ -282,7 +282,7 @@ A horrific clamor emanated from below deck; the atonal shriek of twisting metal.
 
 Four minutes. I craned my neck and ran my eyes over the water’s surface, but saw no obstacle, no debris. Three minutes. The boat struggled to maintain speed. It felt sluggish. Heavy. Two minutes. Dread sprouted through me like a cancer. I exploded from the helm and launched myself below deck, practically falling down the cabin stairs. The thrumming of a pressurized gush confirmed my fears. 
 
-I couldn't see below the foamy water. I jumped into the ankle-deep pool and began frantically dragging my hands across the floor, hunting for the leak. My fingertips squished against drenched carpeting, over and over and over. 
+I couldn't see below the foamy water. I jumped into the ankle-deep pool and began frantically dragging my hands across the floor, hunting for the leak. My fingertips squished against drenched carpeting, over and over and over.
 
 *Where is it?*
 
@@ -290,39 +290,31 @@ I couldn't see below the foamy water. I jumped into the ankle-deep pool and bega
 
 *WHERE IS IT?!*
 
-I grabbed onto something with my four-fingered hand. 
+I grabbed onto something with my four-fingered hand.
 
-Soft. 
+Soft.
 
-Wriggling. 
+Wriggling.
 
-Plump. 
+Plump.
 
-Like a tongue. 
+Like a tongue.
 
-Another shrieking crunch erupted behind me. Then another. A fourth. 
+Another shrieking crunch erupted behind me. Then another. A fourth.
 
-One minute. 
+One minute.
 
-I clambered up the stairs on my hands and knees, raced across the deck, and leapt over the railing. 
+I clambered up the stairs on my hands and knees, raced across the deck, and leapt over the railing.
 
-I flailed towards the moonlit shore. Night had fallen. My breaths were wild and irregular. Gulps of black brine seared my throat. Salt stung my eyes. I felt something graze my leg. Something hard. I thrashed violently. Something similar scraped my shoulder blades. I wheezed and sputtered and grunted and prayed it wasn't *them.*
+I flailed towards the moonlit shore. Night had fallen. My breaths were wild and irregular. Gulps of black brine seared my throat. Salt stung my eyes. I felt something graze my leg. Something hard. I thrashed, graceless and rabid. Something similar scraped my shoulder blades. I wheezed and sputtered and grunted and prayed it wasn't *them.*
 
-The sandbar got closer, and closer, and all of sudden, I felt grit between my toes. 
+The sandbar got closer, and closer, and all of sudden, I felt grit between my toes. I collapsed onto the beach. My muscles were jelly. Useless sacks of burning sinew hanging limply from aching bones.
 
-I collapsed onto the beach. My muscles were jelly. Useless sacks of burning sinew hanging limply from aching bones. If they were there, I it was over. I was over. I accepted that. 
+If they were there, it was over. I was over. I accepted that.
 
 Gentle waves caressed my broken body, ebbing and flowing, rolling quietly along the shore. Stars glinted overhead. Exhaustion took hold.  My eyes fluttered, then closed. They never came. Or, if they did, I didn't hear them. Didn't see them. If they did follow me ashore, the McKenzies floated around me like ghosts, bearing their teeth but never biting down.
 
-Maybe they were having too much fun to bite down so soon. 
-
-The sandbar got closer, and closer, and all of a sudden, I felt grit between my toes. I collapsed onto the beach. My muscles were jelly. Useless sacks of burning sinew hanging limply from aching bones. 
-
-If they had followed me, it was over. I was over. I accepted that. 
-
-Gentle waves caressed my broken body, ebbing and flowing, rolling quietly along the shore. Stars glinted overhead. Exhaustion took hold.  My eyes fluttered, then closed. They never came. Or, if they did, I didn't hear them. Didn't see them. If they did follow me ashore, the McKenzies floated around me like ghosts, bearing their teeth but never biting down.
-
-Maybe they were having too much fun to bite down so soon. 
+Maybe they were having too much fun to bite down so soon.
 
 I caught a glimpse of the boat as I leapt into the ocean. It was capsizing, so part of its underside was visible. I didn’t see the McKenzies. I haven’t seen the McKenzies since they disappeared from the deck, but I saw what was left behind. A clever hiding spot in a game I never agreed to play.
 
@@ -330,7 +322,7 @@ Rings of peg-shaped holes littered across the hull like pox marks on diseased sk
 
 Scars of where they'd bitten down.
 
-\- - - - - 
+\- - - - -
 
 That all took place two months ago. 
 
@@ -358,4 +350,4 @@ There’s a hammer lying on the table. I’m waiting for the booze to give me co
 
 Alright, McKenzies. 
 
-olly olly [oxen free. ](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
+olly olly [oxen free.](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
