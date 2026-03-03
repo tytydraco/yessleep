@@ -640,7 +640,7 @@ I don’t know all the details, just that he hurt her.
 
 I stayed with her for days afterwards, until she insisted she was okay again. She spoke softly, avoided my eyes, and moved like the world had grown heavier overnight. Even then, I kept checking in, visiting her work and apartment. She promised me she was okay, that she just needed time.
 
-I wish I didn’t get off the train that day.
+I wish I didn’t get off the train that [day](https://www.reddit.com/r/nosleep/s/r5DIgT8P2R).
 
 ***Psalms 34:18***
 
