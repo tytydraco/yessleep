@@ -298,7 +298,7 @@ Wriggling.
 
 Plump.
 
-Like a tongue.
+I think it was one of their tongues.
 
 Another shrieking crunch erupted behind me. Then another. A fourth.
 
@@ -318,7 +318,7 @@ Maybe they were having too much fun to bite down so soon.
 
 I caught a glimpse of the boat as I leapt into the ocean. It was capsizing, so part of its underside was visible. I didn’t see the McKenzies. I haven’t seen the McKenzies since they disappeared from the deck, but I saw what was left behind. A clever hiding spot in a game I never agreed to play.
 
-Rings of peg-shaped holes littered across the hull like pox marks on diseased skin. 
+Rings of peg-shaped holes littered the hull like pox marks on diseased skin. 
 
 Scars of where they'd bitten down.
 

@@ -113,7 +113,6 @@ He was *Job.*
 
 In the warehouse, suffering required no such petition. She simply filtered by lowest productivity percentage and walked toward whoever appeared.
 
-I was still burning when she approached the man.
 
 ---
 
