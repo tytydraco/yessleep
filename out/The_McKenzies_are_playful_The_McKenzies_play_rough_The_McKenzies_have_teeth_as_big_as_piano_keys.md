@@ -108,7 +108,7 @@ But just for a moment.
 
 The other McKenzie screeched like a bobcat in labor and leapt from the door. The alpha missed, sinking its molars into the oak. The commotion sent the other six into a frenzy. Wrestling. Yelping. Biting at each other. The alpha threw his shoulders back, dislodging his teeth from the door, scarring the wood with a ring of peg-shaped holes.
 
-I’m not sure what came over me. The mayhem spun me into my own little frenzy I suppose, though, in my defense, they *were* acting like rowdy children.
+I’m not sure what came over me. The bedlam spun me into my own little frenzy I suppose, though, in my defense, they *were* acting like rowdy children.
 
 I took a massive inhale, placed a finger to my lips, and blew.
 

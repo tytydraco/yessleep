@@ -12,7 +12,7 @@ While the Representative was always off-putting, its perversion of sympathy was 
 
 The Spear of Caesar was recaptured only a thousand kilometers from the Museum. I was not informed of this action until 3 days after. It seems this folder was why.
 
-Its path was rather complicated. It did not cause many casualties. One thousand deaths is trivial for the Spear.
+It did not cause many casualties. One thousand deaths is trivial for the Spear.
 
 The trail it left in its wake was not a simple line; it was writing something.
 
