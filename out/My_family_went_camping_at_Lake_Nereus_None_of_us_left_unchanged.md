@@ -250,7 +250,7 @@ I remember Gramps - now an Apex with eyes as black as night - chasing after us a
 
 But Gramps was still getting used to his new body, and Nina outran him in the end.
 
-My last clear memory from that night is of being dropped off at the entrance and allowed to stagger off into the road, trying to ignore the sight Nina and Gramps watching me from the trees.
+My last clear memory from that night is of being dropped off at the entrance and allowed to stagger off into the road, trying to ignore the sight of Nina and Gramps watching me from the trees.
 
 They couldn't follow me.
 
