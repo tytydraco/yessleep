@@ -1,3 +1,7 @@
+**Part one: The Best In Show:**
+
+
+
 It was another hard winter… not that that was surprising for our small town. Our side
 
 of the Dales hadn’t seen a winter without snow for as long as anyone could
