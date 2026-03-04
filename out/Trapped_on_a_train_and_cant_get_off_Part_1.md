@@ -11,3 +11,5 @@ My phone’s also acting weird. I tried calling my wife. She answers, and it sou
 I don’t know what I’m going to do if it keeps up like this. I’m not usually claustrophobic but I’m starting to feel the walls of this car closing in. I’m becoming increasingly aware that I’m breathing the same stale air over and over again. I have no food, and my water bottle’s almost empty. At 39 weeks, my wife could go into labor any second.
 
 I have to get off this train.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1rk5oin/trapped_on_a_train_and_cant_get_off_part_2/)
