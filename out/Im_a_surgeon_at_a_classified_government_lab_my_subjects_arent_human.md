@@ -1,0 +1,49 @@
+Content warnings; Gore, Surgical horror
+
+My job role was mainly vivisection. The fair folk were clearly unfamiliar with the ins and outs of human anatomy, or rather, just the ins. They have the exterior down to a dead ringer these days. Occasionally we get the odd one with a tail or cloven feet brought in, plenty with faces and limbs that push the boundaries of disproportionate into the realm of the outright unfeasible, but for the most part you’d take them for a human being on sight. However, their unfamiliarity with the internals produces some interesting results in the form of some very unique and nonsensical anatomy. 
+
+The anaemic, pale lights of the lab droned on overhead and I took a final swig of my tea as I heard the screeching, unoiled wheels of the operating table approach. The heavy iron doors opened with a drawn out wail and they wheeled in our subject. 
+
+The faerie on the table had taken an artfully surrealist approach to the internal organs. The collection of avant-garde internals were embedded with many faces with wildly varying expressions. The one that I believe was trying to resemble a heart splayed open in a spiralling, elongated face that I had previously remarked to Amy was the spitting image of Munch’s famous masterpiece. 
+
+Amy was new. A replacement for the previous surgeon that shared this lab. The department had recently lost seven members of staff courtesy of some unsecured cold iron restraints, and her specific predecessor had been signed off on stress leave after his mind became unraveled at the behest of the subject. So although I was only two weeks into the job myself that still made me her senior.
+
+My career had started off in a rocky place. Watching the swirling faces as they gawped and contorted, confronted with complete hopelessness and suffering on a daily basis. This made me realise cashier work wasn’t for me. So when I was offered a research job working with the very creatures I had written my Masters dissertation on I couldn’t accept fast enough. Even through the limiting view of my mask my eyes strained far less than they did from the bright light of a till screen.
+
+I gave the ribbons of my mask a quick tug to confirm to myself that the knot was tight and secure. In an improvised eye test to try my peripheral vision I turned to my left and read the health and safety sign affixed to the wall. 
+
+‘No face. no name. no voice.’ Was not only what I had come to know as the company’s proud stance on unions, but was the declaration that served as the vital rule of three in the presence of the subjects, lest you lose one or all of those things. Thus the masks were just as vital as the ability to keep your mouth shut in the presence of the folk. No human voices, as per. This meant that the only soundtrack to my work was the low buzzing of the overhead lights and mechanical whirring of the various machines and lab equipment around me.
+
+I lifted the scalpel from the cart and eyed the elongated, humanoid shape on the table. Bathed in the fluorescent overhead lights of the lab the internals of the creature took on a sickly yellowish sheen that made the swirling faces therein look jaundiced. Upper management wants the heart removed from this one as well. The organ howled and twisted inwardly into a pseudo-snarl as I brought the scalpel close. As I began to prod the aorta with a gloved hand the lights blinked. My head snapped up to find the lights back to full bloom. I paused for a moment, scalpel in hand, hovering only centimeters from the creature’s innards, still fully illuminated. Deciding it to be a mere fluke, I bent forward to better inspect the abstract viscera before I made the incision. 
+
+The very moment the blade met the tissue there was a quiet ‘tink’ from overhead before the room plunged into absolute darkness. 
+
+The mechanical trill of the room fell into silence, as if the sound had been swallowed and a louder one started up in my head as the pitchy battle cry of my fight or flight instinct screamed at me. My grip on the scalpel faltered and it fell atop the contents of the table with a quiet squelch. Unthinking, my hand shot forward to retrieve it, it met not with the cold metal of the tool but closed instead around something wet and warm, before I felt the thing close itself around my hand in turn, the tiny, misshapen teeth sinking into my gloved hand, the thin plastic splaying easily apart. My own mouth wrenched itself open and the horrified scream shattered the silence. I heard Amy’s frantic footsteps behind me and I moved towards them. I felt around blindly, eyes darting around pointlessly, my mind conjuring the inhuman shape I expected to see moving towards me in the dark.
+
+“Get the backup generator!”
+
+The words forced themself out like bile and left the same feeling in my throat. I was met with no response. 
+
+I forced my legs to move, searching frantically for the only pinpricks of light in the room. Beneath my slipping mask I could barely make out the thin, illuminated words that labeled the backup generator. Shaking my head, I yanked hard at the ribbons of the falling mask, it clattered across the floor tiles and the illuminated sign became clear. I pulled hard on the switch. The crack of the generator sounded in my ears like a gunshot and I recoiled as my vision turned a searing white. I pulled myself to my feet, shaking as my eyes adjusted. As I regained my vision I began to make out the blurry shape of something smooth and white laying on the tiles. The ensuing comprehension was dizzying as the realisation of what I’d done washed over me, but through the haze I found the operating table and with nauseating dread met the fixed gaze of the specimen. It was still bound by its cold iron cuffs, though only its limbs remained pinned to the table. Its torso hunched unnaturally forward in a contort that the rest of its anatomy shouldn’t have allowed for. Its typical placid grimace stretched so widely that it gave the impression that its lower jaw segmented from its head completely. 
+
+I brought my arm up to cover my face but I knew with a sickening certainty that the damage was done. 
+
+Amy had shuffled tentatively back into view, her own mask still remained but did nothing to conceal her sheer terror. I did nothing to mask my contempt as I instructed her that the lab was to be locked down and the surgery to be continued tomorrow. She didn’t protest. 
+
+The following day arrived in its looming inevitably. I stepped tentatively down the long white corridor, lights droning overhead, I tugged again at my pale mask, feeling the dense knot that had, at this point, tightened into an undoable lump. A similar lump congealed in my throat as I reached the doors of the lab, I took my time punching in the many digits of the access code. In liu of being able to openly utilize any form of facial recognition the passwords and entry codes were lengthy and paranoid in their complexity. Though not long enough as the accepting click of the lock sent my heart plummeting.
+
+The lab was dark. I leaned forward hoping to give the motion sensors for the lights a start. Still nothing. I edged a bit further in, wondering if they had always had this limited of a range. As I drew further in I could make out the edges of things, the soft tinted lights of the numerous dials and screens washing dimly over the surfaces, though I knew this room well enough for it to matter little, or so I thought. My foot knocked against something unexpected in the darkness, it had a give to it, unlike any machine or bit of equipment I would expect. I leant down. The hazy red light of a monitor was enough to illuminate the slackened face of Amy, whose wide open mouth mirrored the look of what had been done to her torso.
+
+I staggered back, losing my balance as I lost my footing to a dark puddle pooling on the tiles.
+
+I sat breathing raggedly, my throat raw and allowing for only retches. In that moment I heard a quiet whine, more pitchy than my own whimpering sobs and with sickening dread I realized it to be the shrill creak of the operating table,
+
+I brought my head up slowly. My vision blurred with dizzying terror anticipating to meet the glossy, pinprick eyes and inhuman face of the creature. I met the thing’s gaze and my body seized as I was confronted with the sight of my own face.
+
+It was though a perfect latex sculpt had been taken, the features identical down to the fine details, betrayed by a synthetic rubbery quality that lacked any human quality.
+
+It unfolded itself from its hunched posture and I could see the sparkling, wet sheen of viscera open in its vivisected form. Only now it seemed different , altered somehow, it was no longer its collection of screaming organs and abstract internals, but was now the perfect picture of what you’d find in a textbook, normal, ordinary. Human. 
+
+I choked on rising bile as I came to comprehend the reason for Amy’s state. Adrenaline kicked in as I ran blindly, crashing through the various features of the lab back towards the hallway. I felt it closing the distance behind me and knowing with terrible certainty that I would not make it down the hall in time, wrenched open the doors of a maintenance cupboard, bringing the latch down with as much force as I could manage. 
+
+It didn’t try the door. It didn’t test the lock, it’s simply waiting. It knows, of course it does, it’s been in this place long enough to know I can’t stay in a maintenance cupboard indefinitely and it can and will be here long after I’m able to be. It’s here to stay, and I sit wondering what will become of this place, what will become of this world with this inhuman creature that now finds assimilation with its human face. My face. 
