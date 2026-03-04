@@ -1,4 +1,4 @@
-[Part 5.](https://www.reddit.com/r/nosleep/comments/1r7ttbq/every_year_on_my_birthday_i_am_trapped_in_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 5.](https://www.reddit.com/r/nosleep/comments/1r7ttbq/every_year_on_my_birthday_i_am_trapped_in_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Final part.](https://www.reddit.com/r/nosleep/comments/1rkxrft/every_year_on_my_birthday_i_am_trapped_in_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I sprint along the path until exhaustion forces me to slow down. I don’t hear the rumbling sounds of that stone monstrosity following me, so I hope it is safe to catch my breath. I resist the urge to stop completely. Instead, I follow the oddly glowing tunnel a bit further until it opens into a strange room.
 
