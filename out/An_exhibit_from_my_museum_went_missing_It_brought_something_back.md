@@ -131,3 +131,5 @@ The reality? Security neutralized the Subjects without entering containment. The
 Subject 1 had cracked the wall between containment and my office.
 
 I was Officer 1.
+
+[Next](https://www.reddit.com/r/nosleep/comments/1rkv3qg/the_restricted_wing_at_my_museum_stopped_singing/)
