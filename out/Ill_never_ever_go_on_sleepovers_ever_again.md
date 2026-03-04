@@ -1,0 +1,13 @@
+This vow was about four years ago, back when I was 12 years old. I loved sleepovers. Not just normally but abnormally. I loved planning/having them so much, my friends always left it to me. That night I went to a friend’s house after planning everything. We were all in the living room, blankets on the floor, snacks open, one lamp on in the corner. Her parents were asleep upstairs. We were laughing, whispering, trying not to wake anyone, when I realized I needed the bathroom.
+
+I got up quietly and walked down the hallway toward the bathroom. The house was dark and silent except for my own footsteps on the wooden floor. That’s when I saw it. The back door at the end of the kitchen was not fully closed. It was cracked open just enough to see a thin line of darkness where it should have been shut. My stomach dropped. I froze for a second, telling myself maybe someone forgot to lock it. Then I noticed the kitchen window above the sink. The screen was pushed out slightly at the bottom.
+
+I gripped the doorframe and shined my phone flashlight toward the kitchen. That’s when I saw him. A man standing between the fridge and the wall, pressed into the corner, his head barely visible. He wore dark clothes and gloves. His eyes caught the light for a brief moment. He did not move. He did not speak. He just stared at me.
+
+I could not think. I could not breathe. My throat felt tight. Then I screamed. Loud. Sharp. The scream seemed to shake the whole house. Behind me, my friends screamed too, still in the living room. The man ran toward the back door, but he slipped on the wet tiles near the sink. That gave her dad just enough time. He came running down the stairs and tackled the man into the cabinets. Dishes fell and shattered. The man struggled, but her dad held him down, shouting for her mom to call the police.
+
+I collapsed onto the floor, shaking and crying. I could still see the corner where the man had been standing. If I had been asleep, or if I had stayed on the couch a few more minutes, he would have been right there, maybe even closer, in the dark. The police arrived quickly, cuffed him, and later said he had been walking the neighborhood, testing doors at night. He had chosen that house because of the lights on the sleepover.
+
+I went home in a daze, shaking every time I thought about how close it had been. I could still see him in my mind, pressed into the corner, just waiting and watching. After that night, I checked every door twice before bed. I stopped sleeping with the lights off. I never forgot that hallway, the back door, the way he moved silently.
+
+And that was the night I made the vow. I will never ever go on sleepovers again.
