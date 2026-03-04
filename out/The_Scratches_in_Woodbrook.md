@@ -100,4 +100,4 @@ With finals finally finished, we could finally relax. All of us had accepted tha
 
 **December 7th 2025, Modern Day**
 
-Now, I'm writing these memories down today because, Zia reached out to me, by letter. She explained that something was forgotten from the town, and it really did not appreciate being forgotten. I don't want to return to that creek; I don't want to find out what this thing is. If anyone has any ideas of what I should do, please let me know, but for now, this is it for me. I thank every God out there that I moved out of Woodbrook.
+Now, I'm writing these memories down today because, Zia reached out to me, by [letter](https://www.reddit.com/r/nosleep/comments/1rk6wl6/what_happened_when_i_returned_to_woodbrook/). She explained that something was forgotten from the town, and it really did not appreciate being forgotten. I don't want to return to that creek; I don't want to find out what this thing is. If anyone has any ideas of what I should do, please let me know, but for now, this is it for me. I thank every God out there that I moved out of Woodbrook.
