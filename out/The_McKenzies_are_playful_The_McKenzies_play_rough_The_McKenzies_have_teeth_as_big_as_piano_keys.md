@@ -78,7 +78,7 @@ I hadn’t noticed until they finally slowed down.
 
 The McKenzies didn’t look right.
 
-Their tiny eyes sat too far apart from each other, sockets nearly abutting their temples. Their skulls were wide, stout, almost rectangular, with a flattened top that seemed to cave in slightly at the center. Each had a subtle crease running from forehead to chin. They were short-statured, but broad - five feet tall, arms dangling below their knees, shoulders thick and pulpy. Their three-piece suits were all earth-toned, but each color was noticeably different. The bulkiest one had a pair of upturned nostrils jutting from their face; head-on, they looked like the tiny barrels of a fleshy shotgun.
+Their beady eyes sat too far apart from each other, sockets nearly abutting their temples. Their skulls were wide, stout, almost rectangular, with a flattened top that seemed to cave in slightly at the center. Each had a subtle crease running from forehead to chin. They were short-statured, but broad - five feet tall, arms dangling below their knees, shoulders thick and pulpy. Their three-piece suits were all earth-toned, but each color was noticeably different. The bulkiest one had a pair of upturned nostrils jutting from their face; head-on, they looked like the tiny barrels of a fleshy shotgun.
 
 I think he was the alpha.
 
