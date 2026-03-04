@@ -48,7 +48,7 @@ Still, Papa tried to help me overcome my fears. He would tend to the vegetable p
 
 In fact, the pendulum swung the other way, which hadn’t been my father’s plan. As I grew from a child to a teenager, I decided that sniffing a little fresh air under the rear awning wasn’t the same as properly going outsides. It wasn’t the same as freedom. Despite my crippling fears, part of me was curious. I yearned for more than the cabin.
 
-And in the summer of 2019, while Papa was tending to the vegetables, I enacted my plan. Pretending to nip inside to use the bathroom, I instead tiptoed to the front door, unbolted the eleven latches, and broke free. The outdoors was different at the front of the property. I’d never felt it like that before, with shoes crinkling the grass, rather than creaking the wooden porch boards. I’d never stepped a foot over a threshold without my father’s watchful eyes over me.
+And in the summer of 2018, while Papa was tending to the vegetables, I enacted my plan. Pretending to nip inside to use the bathroom, I instead tiptoed to the front door, unbolted the eleven latches, and broke free. The outdoors was different at the front of the property. I’d never felt it like that before, with shoes crinkling the grass, rather than creaking the wooden porch boards. I’d never stepped a foot over a threshold without my father’s watchful eyes over me.
 
 This was the true outdoors.
 
