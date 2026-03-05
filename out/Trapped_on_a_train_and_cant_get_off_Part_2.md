@@ -11,3 +11,5 @@ So imagine my surprise when, in the middle of my own breakdown, everyone was loo
 Once I sat down and collected myself, I started watching for more odd behaviors and inconsistencies. I’ve spent the rest of my time just sitting and watching, too afraid to move or draw attention to myself, too afraid to call anyone and have more of those bizarre one-sided conversations freak me out. I focus on one thing or one person at a time for several stops. It’s helping, keeping my mind occupied, not dwelling on the fact that I don’t know when or how I’ll get off. And it’s been productive. I’ve learned a lot, not that I really understand what any of it means. I’m not really ready to share any of it yet until I’ve been able to make heads or tails of it. And honestly I’m hoping I can figure out a way off before I have time to make another post. Or this train or someone on it stops me from posting.
 
 I can confirm the Sharpie is still the woman's purse and my ticket is still both perfectly intact and being punched every couple of stops.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1rls306/trapped_on_a_train_and_cant_get_off_part_3/)
