@@ -221,3 +221,7 @@ A marked woman reacting to her punishment - just the way my dead husband wanted 
 My dead husband who maybe wasn’t so dead after all. 
 
 And that’s only day one done and dusted. Next time, he turns nasty. Or *nastier*, rather. 
+
+
+
+[PART 2: Puppet](https://www.reddit.com/r/nosleep/comments/1rlho5m/my_dead_husband_built_me_a_house_then_it_started/)
