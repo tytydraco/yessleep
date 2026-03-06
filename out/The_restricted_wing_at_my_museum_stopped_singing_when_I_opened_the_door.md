@@ -121,3 +121,5 @@ I understood it then, not as a thought but as a pressure in my ribs: Value 4 was
 The Spear wasn’t valuable because it killed. It was valuable because of what it made people feel on the way down.
 
 Somewhere in the Civic Systems Wing, that feeling was taken—strained—until it came out clean enough to feed the lights.
+
+[Next](https://www.reddit.com/r/nosleep/comments/1rlyavq/i_broke_one_rule_at_work_now_everyone_is/)
