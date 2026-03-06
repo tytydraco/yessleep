@@ -1,3 +1,5 @@
+Part 1: The Tree
+
 I think I had a bad dream last night.
 
 The new hospital I work at promised us more free time when they decided to give us our new hybrid work schedule. It wasn’t until a few weeks later that all of us who work in medical records realized that they were able to sell to us the idea of taking work home with us. I had been working longer and longer hours. You know how it goes: one upper-level manager does a little work after hours, and then it becomes the new norm. Logging off at 5 became a new faux pas.
@@ -20,7 +22,7 @@ When I was in middle school, I remember learning about American Westward expansi
 
 One picture always stuck with me the most; it must have been taken around the latter half of the 19^(th) century. It was of an old logging crew. They had begun to cut down a giant redwood tree, creating a massive open wedge in the side of this living giant. At some point, they decided to stop to pose for a photo. Probably fifteen to twenty men sat or stood in the wedge they had cut away. I had always imagined myself sitting there with them until hearing a crack, being crushed by this ancient giant as a final act of defiance against those who worked so hard to destroy it. Of course, this probably didn’t happen to those men in that photo, but the idea stuck with me, as did the discomfort and fear at the idea. 
 
-As I stared hard out my window, this fear instinctively rushed back as terror. Not more than two feet from the window was the trunk of a giant willow. 
+As I stared hard out my window, this fear instinctively rushed back within a wave of nauseating confusion. Not more than two feet from the window was the trunk of a giant willow. 
 
 I jolted awake at my desk, knocking my chair back in the process. My computer screen glowed dimly, exacerbating the darkness of the surrounding room. I walked over and turned the lights on. Looking out the window, I could see that the wind had died down. With the light from inside and the darkness outside, I could only see the trunk of the willow sitting its normal 25 yards out from the window. 
 
@@ -30,6 +32,6 @@ I ran in and grabbed the keys, swiftly turning around to jog back to the car. Wh
 
 The tree in the backyard, which had shaded me as a child and given me endless toys to play with, in the form of sticks shaped as various weapons. The tree spared due to its sweeping away from the house, shaded my desk window for the first time. 
 
-The giant ancient tree was facing the house.
+The giant old tree was facing the house.
 
 I… think I had a bad dream last night. 
