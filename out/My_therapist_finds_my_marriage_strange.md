@@ -16,11 +16,11 @@ I rarely had a good father figure while growing up. My mother always tried to ke
 
 There was only one man who stayed longer than the rest. A rugged but wealthy gentleman who introduced himself as Mr. A. He was the closest thing I’ve had to a real father. 
 
-He would buy me the occasional gift and check under the bed for monsters. I remember that Mom and I always joked about who would marry him first. 
+He would buy me the occasional gift and check under the bed for monsters. I remember that Mom and I always joked about who would marry him first.
 
 I even promised Mr. A that we would be married one day. Unfortunately, he left us shortly after
 
-They say young girls cling to boys when they don’t have an admirable father figure at home, and that’s what I did. I wasn’t as conscious about it back then, but I quickly found a boy my age who resembled Mr. A. 
+They say young girls cling to boys when they don’t have an admirable father figure at home, and that’s what I did. I wasn’t as conscious about it back then, but I quickly found a boy my age who resembled Mr. A.
 
 We started dating soon after, but heard he moved states midway through my sophomore year. 
 
@@ -474,4 +474,4 @@ A/N #1: We just learned that I’m pregnant with our \*Third child.
 
 A/N #2: My therapists autopsy report came out. The cause of death was an overdose on ambien.
 
-A/N #3: I found the Book of Tobit under our bed. 
+A/N #3: I found the Book of Tobit under our bed.
