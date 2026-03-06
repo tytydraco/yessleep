@@ -16,9 +16,13 @@ I rarely had a good father figure while growing up. My mother always tried to ke
 
 There was only one man who stayed longer than the rest. A rugged but wealthy gentleman who introduced himself as Mr. A. He was the closest thing I’ve had to a real father. 
 
-He would buy me the occasional gift and check under the bed for monsters. I remember that Mom and I always joked about who would marry him first. Unfortunately, Mr. A left us right before I started high school. 
+He would buy me the occasional gift and check under the bed for monsters. I remember that Mom and I always joked about who would marry him first. 
 
-They say young girls cling to boys when they don’t have an admirable father figure at home, and that’s what I did. I wasn’t as conscious about it back then, but I quickly found a boy my age who resembled Mr. A. We started dating soon after, but heard he moved states midway through my sophomore year. 
+I even promised Mr. A that we would be married one day. Unfortunately, he left us shortly after
+
+They say young girls cling to boys when they don’t have an admirable father figure at home, and that’s what I did. I wasn’t as conscious about it back then, but I quickly found a boy my age who resembled Mr. A. 
+
+We started dating soon after, but heard he moved states midway through my sophomore year. 
 
 Coincidentally, that’s about the time when I started having a passion for going to church. It was a traditional Protestant church. You know, the kind that kept up old traditions, like blessing marital beds and conducting ceremonial foot-washings.
 
@@ -184,8 +188,6 @@ Dogs, Cats, Rams, and a Raccoon I believe. It was a total of seven.
 
 There was silence as we both continued processing what I had said. 
 
- 
-
 “I couldn’t begin to guess most of it. The fire may represent passion. It’s pretty common imagry” She said, starting on her other train of thought.
 
  “Still, I can’t believe your Husband brought alcohol into the house; it probably didn’t help with the nightmare. It’s. Just. So out of character. He knows better than to feed birds rice or ducks bread.” She trailed off. 
@@ -216,7 +218,7 @@ The only light in the house was from open windows and the TV. Abel and Tamar had
 
 Tamar saw me first and nudged Abel.
 
-The two stood and walked right past me, Tamar’s eyes to the ground. She had a large cut above her right eye.
+The two stood and walked right past me, Tamar’s eyes to the ground. She had a large bruise above her right eye.
 
 Only Abel glanced at me, giving a forced greeting before following Tamar into their room.
 
@@ -242,11 +244,11 @@ My smile dropped. “W-what?”
 
 The door closed again, and this time it didn’t open again for hours. 
 
-I occupied my thoughts by cooking supper. Chicken and dumplings were the children’s favorite meal, and I had already had the ingredients prepared. It took a bit longer than usual to make supper, as I noticed the sharpest of our knives was missing. 
+Weller came home well after 10 PM, and we ate in near silence. Only his occasional reminder to stay hydrated broke the tension.
 
-Weller came home well after 10 PM, and we ate in near silence. Only his occasional reminder to stay hydrated broke the tension. He was always worried about the health of others, but it was unbearable to hear from him after what happened last night. 
+He was always worried about the health of others, but it was unbearable to hear from him after what happened last night. 
 
-He just frowned as he watched me dump my glass into the sink out of spite. I was going to bed.
+He frowned as he watched me dump my glass into the sink out of spite. I was going to bed.
 
 Weller came to bed after I had already wound down. He always did this. He had been checking under the bed more frequently before awkwardly crawling next to me.
 
@@ -462,6 +464,14 @@ I frequently question whether there is even cause for publishing this post. And 
 
 Still, to respect Dr. Greenwald’s expertise, I’m posting this without my Husband knowing. Please don’t share this around, as he has ears in many places, and I fear he would worry if he found this.
 
-Finally, I won’t pretend my account makes complete sense. There is still much I haven’t understood myself. Regardless, I believe in my Husband. I have to. If anyone has questions, let me know. 
+Finally, I won’t pretend my account makes complete sense. There is still much I haven’t understood myself. Regardless, I have no option but to trust my Husband.
 
-(Author’s Note: We just learned that I’m pregnant with our firstborn. Maybe this time I’ll do it right.)
+I will be reading and responding to your comments, if something significant changes I’ll make another post to keep you updated. 
+
+\_\_\_\_\_\_\_\_\_
+
+A/N #1: We just learned that I’m pregnant with our \*Third child.
+
+A/N #2: My therapists autopsy report came out. The cause of death was an overdose on ambien.
+
+A/N #3: I found the Book of Tobit under our bed. 
