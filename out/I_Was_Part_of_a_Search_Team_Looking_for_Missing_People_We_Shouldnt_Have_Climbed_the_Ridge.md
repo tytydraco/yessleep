@@ -190,7 +190,7 @@ _“Copy,”_ Hasan’s voice came through, shaky but clipped.
 
 “Mark your position on the map and report back.”
 
-The forest felt heavier now, every rustle of leaves or snap of a branch making my heart Hasan’s report weighed on us like the dark canopy.
+The forest felt heavier now, every rustle of leaves or snap of a branch making my heart skip a beat. Hasan’s report weighed on us like the dark canopy.
 
 The river’s roar had grown louder, its surface rising ominously, nearly spilling over its banks, as if reminding us the valley would not remain safe for long.
 
