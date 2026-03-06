@@ -65,7 +65,7 @@ Why are they trying to be so quiet.
 
 "Ow! You didn't need to fucking punch me. You said it yourself we were going to starve if we didn't go out and look for something." The man whispered back.
 
-I was just standing in the hall way listen to this back and forth. I needed help but for some reason I couldn't choke out any more words.
+I was just standing in the hallway listening to this back and forth. I needed help but for some reason I couldn't choke out any more words.
 
 "Yeah I said we would starve, so why in the fuck are we looking around in a hospital you mongoloid? Let alone THE absolute worst place we could have gone. How do we know there aren't any in here?" The girl said
 
@@ -78,7 +78,7 @@ Beside him was a women with blonde hair just as short if not shorter than the ma
 
 Now what happened next... I'm not exactly proud of. I'm not even sure why I did what I did. But I'll explain it the best I can. As I turned that corner, seeing them. 
 
-Studying each part of their body, the longer I looked the angrier I got. I don't even know what the anger was from, I felt my chest move faster. My breathing started to quicken and my hands clasped so tight in my palms the finger nails broke off. 
+Studying each part of their body, the longer I looked the angrier I got. I don't even know what the anger was from, I felt my chest move faster. My breathing started to quicken and my hands clasped so tight my finger nails broke off and dug into the palms of my hands 
 
 I saw red, a literal vail of red covered my eyes and I burst forward with some new found strength I didn't have moments before. I grabbed the women and smashed her as hard as I could against the wall beside. 
 
