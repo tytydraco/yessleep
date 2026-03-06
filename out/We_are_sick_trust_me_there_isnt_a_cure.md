@@ -4,7 +4,7 @@ I tried my best to turn my head. Sitting there in bed, a sort of rage grew insid
 
 As I examined the room, a wave of immense confusion snapped into my brain. I didn't have a clue where the hell I was. Process of elimination set in. There were white ceiling tiles, the smell of cleaning supplies. Jerking my arms I realized I was strapped down to a bed.
 
-I was in a hospital. But as to why I had no idea. I pulled as hard as I could to get my wrist out of the leather restraints.  Finally I felt and heard my bones snap. No pain... I slowly slipped my hand out. I studied my hand. It was a pale clay color with vibrant purple veins strewn about within. 
+I was in a hospital. But as to why I had no idea. I pulled as hard as I could to get my wrist out of the leather restraints.  Finally I felt and heard my bones snap. No pain... I slowly slipped my hand out. I studied my hand. It was a pale clay color with dark brown veins strewn about within. 
 
 That doesn't seem right...
 Forcing my dislocated wrist back into position with the bed. I freed my other hand.
