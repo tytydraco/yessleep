@@ -14,7 +14,7 @@ My favorite tree was the one closest to the house. It allowed me to get a sense 
 
 When the house was built decades ago, my grandfather had told me that there used to be many trees right near that one. They had to be cut down both for lumber and because the long-reaching branches faced where the house was to be built. To avoid branches falling on it, they removed them. The one tree that remained from the old forest edge was spared, both due to its beauty and for the fact that the branches swept in the opposite direction from the house. 
 
-The steady swooshing had continued for what was probably 10 or 15 minutes. Slight creaking could be heard from the trees outside as the wind picked up. I slowly opened my eyes and stared at my now dark computer screen. It was late, and I needed to get to bed. 
+The steady wind had continued for what was probably 10 or 15 minutes. Slight creaking could be heard from the trees outside as the wind picked up. I slowly opened my eyes and stared at my now dark computer screen. It was late, and I needed to get to bed. 
 
 I closed my laptop and looked up at the window in front of me to check on the wind and the trees. The glass was dark, not dark like you normally see out of a window at night, pitch black as if someone had boarded it up. I couldn’t see any glimmer from moonlight, no stars in the sky, not even the hint of clouds overhead. I got up and walked over to the window. Still unable to see anything, I pressed my face to the glass and clasped my hands over my forehead to block out all light from inside. 
 
