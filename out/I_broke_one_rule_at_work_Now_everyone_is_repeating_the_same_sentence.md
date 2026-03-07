@@ -107,3 +107,5 @@ This was whispered in my mind when I entered the Civic Systems Wing yesterday.
 I broke a rule, and I don’t know when I did it.
 
 I only know the building noticed.
+
+[Next](https://www.reddit.com/r/nosleep/comments/1rn8prr/all_of_the_museum_volunteers_disappear_i_think_i/)
