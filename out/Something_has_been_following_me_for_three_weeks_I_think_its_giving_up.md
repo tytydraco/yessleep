@@ -18,7 +18,7 @@ It screamed harder. I went in and got my groceries.
 
 What interests me most is the way it builds toward something and then doesn't do it. Over and over. Like a person who opens their mouth to say something, thinks better of it, closes it, opens it again. There's an expression it makes, or the muscle groupings where an expression would be, anyway, that I've been trying to name properly for weeks. Not angry, desperate is the closest word. Like it needs something specific from me and keeps losing its grip on whatever mechanism would allow it to take it.
 
-I've thought about the seven since this started. Sitting with the memory of each one, waiting to feel the weight people describe feeling. Carol from the park in September, she'd been walking her dog, which bolted when it was over. The Tuesday woman in March whose name I still don't know, whose apartment I left before sunrise. The others spread back across three years, each one careful, each one contained, each one quietly absorbed into the city's missing and unsolved. I run through their faces one by one and wait for the tooth to be sore.
+I've thought about the seven I killed since this started. Sitting with the memory of each one, waiting to feel the weight people describe feeling. Carol from the park in September, she'd been walking her dog, which bolted when it was over. The Tuesday woman in March whose name I still don't know, whose apartment I left before sunrise. The others spread back across three years, each one careful, each one contained, each one quietly absorbed into the city's missing and unsolved. I run through their faces one by one and wait for the tooth to be sore.
 
 It isn't.
 
