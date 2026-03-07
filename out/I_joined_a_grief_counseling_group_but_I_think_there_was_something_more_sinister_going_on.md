@@ -78,7 +78,7 @@ Sienna is standing at the door, opening it. “If you come inside, you can lay d
 
 I pushed past her and ran to my car. The drive home was blurry as I had to pull over multiple times to puke again. I’ve never ran inside and locked my apartment quicker.
 
-That night was spent throwing up and sobbing, at least it was a change of pace to be unable to sleep due to fear instead of grief for once. I had finally passed out for about two hours the next morning well after sunrise. Even then it was in my bathtub, so I was locked in a room without windows and behind a locked door.
+That night was spent throwing up and sobbing, at least it was a change of pace to be unable to sleep due to fear instead of grief for once. I had finally passed out for about two hours the next morning well after sunrise. Even then it was in my bathtub, so I was in a room without windows and behind a locked door.
 
 When I awoke, I googled the church and called the number. Two rings and the receptionist answered, “Saint Orion Chapel, this is Cinthy, how can I help you?”
 
