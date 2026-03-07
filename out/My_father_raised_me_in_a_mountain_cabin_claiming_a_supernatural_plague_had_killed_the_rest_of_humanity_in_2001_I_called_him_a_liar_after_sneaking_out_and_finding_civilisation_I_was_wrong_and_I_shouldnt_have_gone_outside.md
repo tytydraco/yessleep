@@ -1,3 +1,5 @@
+**Part I** \- [Part II](https://www.reddit.com/r/nosleep/comments/1rmv04j/my_father_raised_me_in_a_mountain_cabin_claiming/)
+
 *Tell the story again*, Little Me would always demand.
 
 Papa would always cave after a brief ping-pong match: *no,* to *please,* to *fine*. I always bested him in a contest of wills. His hangdog face told a tale of guilt for trapping me in a mountainside prison; its grotty window panes dressed with nailed wooden planks in lieu of curtains.
@@ -185,3 +187,5 @@ I want to believe it’s all over. I want to believe the Voice has no power here
 I know Papa feels it too. The Voice wants us. It is waiting to strike again. And if it doesn't find a way of taking us, it'll take this world instead. Next time, the Phenomenon won’t just strike a single town. It won’t be some small event contained by government officials.
 
 Next time, at one minute past two on an ordinary afternoon, the world will start [screaming](https://www.reddit.com/r/dominiceagle).
+
+[UPDATE - Part II](https://www.reddit.com/r/nosleep/comments/1rmv04j/my_father_raised_me_in_a_mountain_cabin_claiming/)
