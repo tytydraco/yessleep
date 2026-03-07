@@ -110,4 +110,4 @@ I know it’s pretty unlikely that you’ll believe me, but even if one person d
 
 I’ll update when I get in better shape.
 
-EDIT: I swear I see something staring at me through the door at night. Please help me. Please, someone, anyone, tell me what to do.
+EDIT: I swear I see something staring at me through the door at night. Please help me. Please, someone, anyone, tell me what to [do.](https://www.reddit.com/user/Fasaiokratwr/comments/1rn6vd4/jesters_archive/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

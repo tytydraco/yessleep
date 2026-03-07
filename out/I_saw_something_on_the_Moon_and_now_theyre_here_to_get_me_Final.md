@@ -82,4 +82,4 @@ That’s where I’m at right now. They want me to post this. They want all of y
 
 Do not come looking for me.
 
-Do not look at the Moon.
+Do not look at the [Moon.](https://www.reddit.com/user/Fasaiokratwr/comments/1rn6vd4/jesters_archive/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

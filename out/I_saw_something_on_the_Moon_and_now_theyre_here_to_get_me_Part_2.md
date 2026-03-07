@@ -81,4 +81,4 @@ Something to underline is its speed. You could argue that it was tangled with th
 
 That leads me to believe that these beings are not in fact what I saw, but something that emerged to stop me from sharing it. But that’s just a theory from a man who’s seen way too much shit he can’t explain.
 
-If, by some miracle, anyone has any idea what to do in this situation, please help me. Any advice is welcome. I am scared for my life.
+If, by some miracle, anyone has any idea what to do in this situation, please help me. Any advice is welcome. I am scared for my [life.](https://www.reddit.com/user/Fasaiokratwr/comments/1rn6vd4/jesters_archive/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
