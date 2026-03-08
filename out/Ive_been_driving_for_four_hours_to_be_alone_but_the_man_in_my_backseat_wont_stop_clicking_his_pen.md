@@ -46,4 +46,4 @@ The blackness didn't just break; it shattered like glass. The highway was gone.
 
 I started to scream, to hide my face, but I realized my hands weren't moving. Nothing was moving. I wasn't a man anymore. I was a statue. A permanent fixture in the middle of the crowd I hated, forced to watch every face, hear every breath, and feel every brush of skin I avoided for so long, against the cold metal of my cage until the end of time.
 
-I used to fear the end; now I realize the true horror isn't that life stops, but that the paperwork never does. I write this because he commands it. I move because he commands it. Find your purpose— or he'll find you.
+I used to fear the end; now I realize the true horror isn't that life stops, but that the paperwork never does. I write this because he commands it. I move because he commands it. He’s placed a tablet at the base of my seat, and he dictates what my frozen fingers must type during the hour of "purpose"' he allows me. This is a warning: Find your purpose, or he'll find you. And make you pay in full.
