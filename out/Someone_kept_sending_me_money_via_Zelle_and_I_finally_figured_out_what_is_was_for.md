@@ -105,5 +105,3 @@ But lastly, and maybe the most interesting, was the memo that had been input wit
 It was an address.
 
 **END PART 1**
-
-EDIT: Part 2 will be out tomorrow (Sunday) evening
