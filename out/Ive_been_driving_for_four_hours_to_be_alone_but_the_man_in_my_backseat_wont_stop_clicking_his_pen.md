@@ -22,13 +22,13 @@ I heard the scritch of his pen—a dry, rhythmic sound that cut through the ri
 
 A week ago, I wasn’t some "unclaimed asset." I was just a ghost in a polyester vest. I spent my days navigating the university—a concrete hive of twenty thousand students whose voices blurred into a constant, sickening drone.
 
-When not in college, I was a pair of hands for a retail giant. An in-store shopper, a human cursor moving through aisles of fluorescent hum and floor-wax, picking out items for people too lazy to fetch them for themselves. I didn't see people anymore; I only saw a maze of unpredictable variables, beings that, by their very nature, could disrupt my peace in a moment's notice.
+Outside of college, I was a pair of hands for a retail giant. An in-store shopper, a human cursor moving through aisles of fluorescent hum and floor-wax, picking out items for people too lazy to fetch them for themselves. I didn't see people anymore; I only saw a maze of unpredictable variables, beings that, by their very nature, could disrupt my peace in a moment's notice.
 
 My worst fears were confirmed on a Tuesday. I was scanning a third-choice substitute for a brand of organic milk when a man cornered me. He didn't ask for help; he just barked at me, his face a mottled, angry purple, screaming about a missing coupon as if I had personally stolen it from his pocket. I stood there, watching globs of spit fly from his lips like meteors, and I realized I didn't hate him—I hated the fact that he was allowed to exist in my space at all. Period.
 
 I didn't argue. I didn't even put the milk down. I simply walked toward the automatic doors, left my scanner on a shelf of discounted cereal, and stepped out into the rain.
 
-I was tired of being a witness to a blind world. A passenger in my own life. I was just done.
+I was tired of being a witness in a blind world. A passenger in my own life. I was just done.
 
 "So, you want to be alone, right?" Mr. Davenport said in the back of my car.
 
