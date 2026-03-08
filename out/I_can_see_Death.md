@@ -30,9 +30,9 @@ In a panic, I rushed over to tug at her pant leg.
 
 “I–I’m sorry!” I blubbered, voice wailing with sobs as my hand curled further into material “I–I didn’t know!”
 
-She didn’t look at me immediately. Her focus was on the bite mark of the cookie which her thumb had begun to trace over. She made no sound.
+She didn’t look at me immediately. Her focus was on the bite mark of the cracker which her thumb had begun to trace over. She made no sound.
 
-Finally, after a minute of me crying and snotting into the fabric of her pants, she set down the cookie and crouched to place her hands upon my shoulders. My head lifted and I lurched back at the sight.
+Finally, after a minute of me crying and snotting into the fabric of her pants, she set down the cracker and crouched to place her hands upon my shoulders. My head lifted and I lurched back at the sight.
 
 She had no mouth. No nose. Her face was only a pair of dark eyes. I don’t just mean the pupils either, I mean the *whole* eye. There wasn’t even a pupil to be had! Her eyes were black voids with no soul or emotion. Just things. Placeholders. Like she was a doll without paint.
 
@@ -224,4 +224,3 @@ The silence afterwards was different. Deafening. The woman had gone still. Not e
 Her eyebrows moved inward to meet in the middle of her forehead. Her head tilted just an inch to the left and her body leaned forward just enough to be noticeable. It was a look you’d give a child if they had suddenly fallen to the floor and were looking for sympathy. Like the person was waiting for a sign to reach out; to coo and cradle.
 
 And that in itself was all the answer I needed.
-
