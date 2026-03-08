@@ -70,11 +70,7 @@ She told me.
 
 I wished I’d refused to go. 
 
-
-
 \------------------
-
-
 
 Here’s the thing you had to understand about Lenore.
 
@@ -84,7 +80,7 @@ Don’t get the wrong idea. Lenore wasn’t evil, but it also wasn’t fair to s
 
 Once, when a family set up their tent in the wrong campsite, she dismantled it and handcuffed the father in front of his kids. On her weekends off, she would commonly disappear into the wilderness (outside the park, to clarify) with only a knife and return with an elk. And the year before, the other rangers told me she arranged for a seasonal ranger to be fired after he used up all the hot water in their shared shower. Full-time rangers had more pull, and she seemed to have most of all, even though she was barely older than I was.
 
-From what I’d seen, she was standoffish, grumpy, and occasionally violent. She was also who I would be spending the next three to seven days with, in the absolute middle of nowhere, entirely alone, the perfect situation in which an  accident might befall me, such as―oh, I don't know*―*premeditated *murder*.
+From what I’d seen, she was standoffish, grumpy, and occasionally violent. She was also who I would be spending the next three to seven days with, in the absolute middle of nowhere, entirely alone, the perfect situation in which an  accident might befall me, such as―oh, I don't know\*―\*premeditated *murder*.
 
 On the plus side, she was none-too-thrilled about the arrangement either.
 
@@ -122,7 +118,7 @@ The second day of hiking we were nearly as silent as the first.
 
 I’d gone on multi-day solo trips in Ebony before, to survey campsites and such, but we were already further into the back country than ever before. There was a ruggedness to it. Even on low visitor days, when you could hike popular trails without seeing another hiker for hours, there were still tags on the trees and cairns to guide you in the right direction down a well-defined path.
 
-Here, the only sign of humans were the broken twigs our steps left behind, and the only noise was our breathing. There was a sense of *wrongness* to it all*.* I’d noticed it ever since the incident with the doors, but here, this deep into the canyon, it was more pronounced. Before, as I would hike, I would feel a hundred eyes on me from every direction. Now, there was only one pair. 
+Here, the only sign of humans were the broken twigs our steps left behind, and the only noise was our breathing. There was a sense of *wrongness* to it all\*.\* I’d noticed it ever since the incident with the doors, but here, this deep into the canyon, it was more pronounced. Before, as I would hike, I would feel a hundred eyes on me from every direction. Now, there was only one pair. 
 
 Somehow, that was even worse.
 
@@ -184,11 +180,7 @@ We tore from the chapel as the last set of windows shattered. We ran, and we ran
 
 When we looked back, the white chapel was already gone.
 
-
-
 \------------------
-
-
 
 An hour later, we sat huddled on either side of a crackling fire far, *far* from the pond.
 
@@ -220,3 +212,4 @@ She handed it to me. “We go back now.”
 
 Lit by the firelight, a girl stared up at me from the shard. The chubby face of a toddler made from a hundred strokes of color, preserved forever i[n glass.](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)
 
+[Keep reading](https://www.reddit.com/r/nosleep/comments/1roa3bz/i_work_at_a_national_park_youve_never_heard_of_if/)
