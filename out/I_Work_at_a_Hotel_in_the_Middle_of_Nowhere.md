@@ -22,5 +22,6 @@ All the lights in the hallway are burned out on the 5th floor. Since this is the
 
  I think a ghost lives on the 4th floor. I get calls from time to time about a noise or somebody humming down the hall or some kind of groaning. Things get moved around, and people’s stuff will disappear, but nothing really important, like a sock or some kind of cheap jewelry. I’ve never had any kind of experience on that floor, but it bugs the cleaning lady to go up there. Now I’m not one for ghosts, as in I don’t really believe in them, but people swear they’ll see or hear it.
 
-I think that’s all for the floors and such. I’ll talk about our repeat guests and other frequent people here later, but I guess it’s that time of the year for the vampires. Be back soon.
+I think that’s all for the floors and such. I’ll talk about our repeat guests and other frequent people here later, but I guess it’s that time of the year for the vampires. Be back soon. 
 
+[PT 2](https://www.reddit.com/r/nosleep/comments/1rokyuw/i_work_at_a_hotel_in_the_middle_of_nowhere_pt_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

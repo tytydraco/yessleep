@@ -415,3 +415,5 @@ I looked Lace dead in the eye as I leaned into our table, working up the courage
 My friend let out a sob-ridden sigh of relief, a few tears of joy shedding loose that somebody was even mildly entertaining her outrageous claim.
 
 She looked unsteady as she eyed the table, seeming uncertain where to begin, but once she gathered her bearings, she gripped her coffee mug to stop her hands from shaking, stared into its dark contents, then explained everything…
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1rokx0n/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
