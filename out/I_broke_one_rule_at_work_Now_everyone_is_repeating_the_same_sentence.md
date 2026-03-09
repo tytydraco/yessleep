@@ -108,4 +108,4 @@ I broke a rule, and I don’t know when I did it.
 
 I only know the building noticed.
 
-[Next](https://www.reddit.com/r/nosleep/comments/1rn8prr/all_of_the_museum_volunteers_disappear_i_think_i/)
+[Next](https://www.reddit.com/user/Ancarn/comments/1rn8p24/all_of_the_museum_volunteers_disappear_i_think_i/)
