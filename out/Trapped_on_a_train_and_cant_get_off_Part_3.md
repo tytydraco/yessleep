@@ -17,3 +17,5 @@ Which was understandable. There were 15 people in the car who had all experience
 After everything I’ve witnessed, I’d convinced myself that I was on my own. It felt like everything and everyone around me was here to keep me prisoner. But what if there are others being held captive too? Others who have been trapped longer.
 
 Last note. I think the drop in cell service is a punishment for the ticket incident. We keep passing the same areas, stopping at the same stops. No tunnels, no changes. Maybe it’s a coincidence, but it feels purposeful.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1rp28f7/trapped_on_a_train_and_cant_get_off_part_4/)

@@ -113,3 +113,5 @@ And somewhere behind the door, something counted breaths.
 The surviving subjects always did disappear after testing. I assumed they simply went home.
 
 I should have known better.
+
+[Next](https://www.reddit.com/r/nosleep/comments/1rp2ahx/i_know_secrets_that_would_destroy_a_city_it_is/)
