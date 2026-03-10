@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/1rku14a/my_father_raised_me_in_a_mountain_cabin_claiming/) \- **Part II**
+[Part I](https://www.reddit.com/r/nosleep/comments/1rku14a/my_father_raised_me_in_a_mountain_cabin_claiming/) \- **Part II** \- [Part III](https://www.reddit.com/r/nosleep/comments/1rqbqnv/my_father_raised_me_in_a_mountain_cabin_claiming/)
 
 The events of the past week prompted me to share my tale in the first place.
 
@@ -302,6 +302,8 @@ I don’t know why I omitted this part of the story before. I suppose I was afra
 
 And I won’t take the blame. Not anymore. It will come for this world, and all worlds, no matter what my papa and I do. The only way to win, I think, is to rise against it.
 
-To not give it what it wants.
+To not give it what it wants:
 
 [Servitude](https://www.reddit.com/r/dominiceagle).
+
+[UPDATE - Part III](https://www.reddit.com/r/nosleep/comments/1rqbqnv/my_father_raised_me_in_a_mountain_cabin_claiming/)
