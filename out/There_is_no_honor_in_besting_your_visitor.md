@@ -4,7 +4,7 @@ You see, there are certain things the human mind is made to forget. Consciousnes
 
 Even though everybody who knows the ritual more or less knows the correct version, few would be quick to divulge the information. Although this may seem antithetical, I will provide to you the exact summoning process and rules by which I succeeded for the sake of documentation:
 
-1. Your game of choice must be placed on your side of the threshold of a potential ‘portal’, but the space between the board or deck of cards cannot exceed one foot or else the summoning will not work. Note that, spiritually, a threshold usually means a door, window, mirror, or a window. I used a window.
+1. Your game of choice must be placed on your side of the threshold of a potential ‘portal’, but the space between the board or deck of cards cannot exceed one foot or else the summoning will not work. Note that, spiritually, a threshold usually means a door, mirror, or window. I used a window.
 2. Two candles must be placed on your side of the threshold, one on your left and one on your right. Sometimes the Gambler is a sore loser, so this is your protection; if you do it right, the Gambler cannot cross the invisible line conjured between your candles. Note that if the candles are too close to the threshold, the Gambler cannot properly play your game of choice because it will not be able to reach its pieces even if the rest of the ritual is done correctly. Remember, this means your own hands will be exposed to the Gambler during your turn.
 3. Your game of choice must be strategy-based. Checkers, chess, and some card games are good options. Luck should be minimized as it is a force that the Gambler can manipulate much like a poltergeist can manipulate the material plane.
 4. You must begin the game by saying “I cannot play this game alone, sit down upon the threshold of my home” three times.
@@ -32,7 +32,7 @@ After the set up was complete, I herded my friends from the room. They giggled a
 
 For a moment, I thought the ritual hadn't worked. In the dim nighttime, I let myself breathe out the anxiousness from my body. The anxiety then returned tenfold when every street lamp on my court appeared to have been snuffed out all at once. The sort of silence that followed indicated that the power had not been cut; the underlying buzz of electricity we all learn to tune out was still present. I realized that rather than being missing completely, it was more like every outdoor light in my immediate vicinity was being covered or sat upon by a great cloak. A singular thought ran rampant through my mind; who might be wearing such a cloak?
 
-I peered out into the total darkness so hard that I began to see faces emerge, so I shut my eyes quickly and turned away. When I opened my eyes again, I avoided eye contact with the gaping mouth of the open window. 
+I peered out into the total darkness so hard that I began to see faces emerge, so I shut my eyes quickly and turned away. When I opened my eyes again, I avoided eye contact with the gaping mouth of the open window.
 
 Then, I saw a singular white pawn move forward one space. I had to look to just barely see a dark hand grasping its top to move it. Outside the window itself was so completely dark that I couldn't tell the difference between the sky and the thing I'd challenged.
 
