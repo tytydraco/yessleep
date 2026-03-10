@@ -79,3 +79,5 @@ The red, rotten peach fluid began seeping slowly from the ceiling of the contain
 The Director snapped the shutter closed. The fluid vanished from the camera lenses.
 
 The containment room was empty.
+
+[Next](https://www.reddit.com/r/nosleep/comments/1rq5bs9/director_use_only/)

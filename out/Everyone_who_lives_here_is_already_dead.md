@@ -80,4 +80,6 @@ The following morning, I woke up in my own bed with an excruciating headache. Wh
 
 And the sight of Martha cutting some flowers on her lawn, in her black dress and veil. She moved the veil back when she saw me and gave me a huge smile.
 
-“Good morning, dear. Did you have a fine [night](https://www.reddit.com/r/Likeeyedid/)?”
+“Good morning, dear. Did you have a fine night?”
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1rq5zqx/everyone_who_lives_here_is_already_dead_part_2/)
