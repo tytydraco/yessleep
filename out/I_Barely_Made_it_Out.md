@@ -1,6 +1,6 @@
 I left my tiny town in rural California 17 years ago, not long after what happened to me. The whole town of about 1,200 people knew my name after that fateful night in 2009.
 
-I was 19 years old, and I was doing nothing in my life but working at the local 76 gas station, helping all the passing drivers who won't remember the town name in 20 minutes. I was born and raised in Trinity County, so I had only ever known the quiet life of nature and the outdoors. I learned from a young age how to hunt, fish, and how to navigate nature.
+I was 19 years old, and I was doing nothing in my life but working at a gas station, helping all the passing drivers who won't remember the town name in 20 minutes. I was born and raised there, so I had only ever known the quiet life of nature and the outdoors. I learned from a young age how to hunt, fish, and how to navigate nature.
 
 Of course, I wanted to leave one day, as I hoped for a career in cinematography. I love movies and it was something I always wanted to work in. But I needed money in order to move to an entertainment city like LA or New York, so here I was working.
 
