@@ -428,9 +428,7 @@ As we strapped in, Noah leaned forward from the back seat, stylus in hand hoveri
 
 "All right," he said, grinning, "let’s do this!"
 
-He tapped the screen, starting up a song mid lyrics.
-
-🎵 Highway… to the… Danger Zone! 🎵
+He tapped the screen, starting up Kenny Loggins' Danger Zone right in the start of the chorus.
 
 The music blasted through the cab.
 
