@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1rqtz6v/has_anyone_else_seen_animals_like_this_in_the/)
+
 Hey everyone. I’m not really sure where else to ask this, so I figured I’d try here first.
 
 For context, I run a small travel and wildlife blog. Nothing huge. Mostly hiking reports, wildlife sightings, seasonal behavior, that kind of thing. I studied environmental science in college and sometimes I share field notes with a few researchers who track wildlife populations in the region. Nothing official. I just spend a lot of time in the woods and document what I see.
