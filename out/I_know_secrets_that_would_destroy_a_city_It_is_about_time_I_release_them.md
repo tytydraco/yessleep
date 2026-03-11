@@ -80,4 +80,4 @@ The Director snapped the shutter closed. The fluid vanished from the camera lens
 
 The containment room was empty.
 
-[Next](https://www.reddit.com/r/nosleep/comments/1rq5bs9/director_use_only/)
+[Next](https://www.reddit.com/user/Ancarn/comments/1rq59mj/director_use_only/)
