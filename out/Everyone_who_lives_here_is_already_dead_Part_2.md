@@ -160,4 +160,6 @@ No, that wasn't right. I had come right home. 
 
 “You're dead,” I whispered. “I'm dead.”
 
-“No.” Nicholas’ response was immediate. “Whatever you saw in there. It wasn't real. But somebody really wants us to believe it's [true](https://www.reddit.com/r/Likeeyedid/).”
+“No.” Nicholas’ response was immediate. “Whatever you saw in there. It wasn't real. But somebody really wants us to believe it's true.”
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1rr3im6/everyone_who_lives_here_is_already_dead_part_3/)
