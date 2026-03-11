@@ -32,7 +32,7 @@ After she spoke, she shot me a worried glance, but before I could interject, Viv
 
 "Not her, Mommy, Mr. Tooth Fairy is a he."
 
-She kept brushing and looked to me again with amused, wide eyes, like I had been caught. 
+She kept brushing and looked to me again with amused, wide eyes, like I had been caught.
 
 "Oh, really? And what does Mr. Tooth Fairy look like?"
 
@@ -100,11 +100,11 @@ The bus showed up, and she waved to us from the windows as it sped down the fogg
 
 Her room was like any other 5-year-old's, which is to say messy. Scattered teddy bears strung around, along with bits of old clothes she'd forget to throw into the clothes hamper. As I was picking up, I looked next to the window by her bedside and pulled back the curtains. The light came into the room and lit up the whole room. But as I was about to leave, my bare feet touched something gritty beneath them.
 
-I looked down to see a pair of dried, muddy footprints next to my daughter's bed. I felt sick, and I tried to think about everything rationally. I felt for the window, and it was locked. Unless someone waltzed in from the front door, how the hell did someone get into Vivian's room? Call it denial, call it rationalization, but I just kept justifying what I was seeing by thinking that maybe it was all me. I liked to walk barefoot at home. Who's to say that maybe I walked to get the newspaper outside and brought dirt back in before putting something under her pillow? 
+I looked down to see a pair of dried, muddy footprints next to my daughter's bed. I felt sick, and I tried to think about everything rationally. I felt for the window, and it was locked. Unless someone waltzed in from the front door, how the hell did someone get into Vivian's room? Call it denial, call it rationalization, but I just kept justifying what I was seeing by thinking that maybe it was all me. I liked to walk barefoot at home. Who's to say that maybe I walked to get the newspaper outside and brought dirt back in before putting something under her pillow?
 
 But what about the silver dollar? That was something I couldn't explain.
 
-The rest of the day went by fast afterwards, everyone came home, and it was all pleasant. As the day went on, it was like what had happened this morning was nothing more than an afterthought. Everyone was happy and healthy, and I could ask no more than that. 
+The rest of the day went by fast afterwards, everyone came home, and it was all pleasant. As the day went on, it was like what had happened this morning was nothing more than an afterthought. Everyone was happy and healthy, and I could ask no more than that.
 
 Another night passed, and we woke up and went through the motions of getting ready for the day. As I sipped some coffee at the kitchen table, I waited for my daughter to come in and get breakfast. When she emerged from her room, her lips were covered in a dried, rust colored smear,
 
@@ -122,15 +122,15 @@ When she did, spittle and blood dribbled out. I looked to the back of her mouth 
 
 "Oh, baby, I'm so sorry."
 
-"Get me some tissue paper." 
+"Get me some tissue paper."
 
-She handed me a fistful as I stuffed them in her mouth, 
+She handed me a fistful as I stuffed them in her mouth,
 
 "We'll change these out before you go to school. If you need any more, ask the nurse."
 
 "Did you swallow your tooth in your sleep?"
 
-Vivian didn't answer; she just nodded in silence, like she was ashamed. Susie and I gave each other a knowing glance. This didn't sound right, and it didn't sit right with us. But we didn't want to interrogate her right before school and become a blubbering mess when the bus would eventually arrive in front of the house. 
+Vivian didn't answer; she just nodded in silence, like she was ashamed. Susie and I gave each other a knowing glance. This didn't sound right, and it didn't sit right with us. But we didn't want to interrogate her right before school and become a blubbering mess when the bus would eventually arrive in front of the house.
 
 The bus came, and my wife was donning her scrubs for the day. As she was double-checking to make sure that she had everything, I asked her,
 
@@ -146,13 +146,13 @@ She sighed, "Nothing, it just passes through you."
 
 I kissed her and told her to have a good day at work.
 
-I went back into the house and went through the rounds again. Pulled out my laptop and worked for hours until my eyes stung. I got up and cleaned up the kitchen, and then made our beds. Then I went into Vivian's room and saw how much she bled onto that pillow. It was a small, dark brown stain that was almost an oblong oval, apart from the roughened edges from where she probably stirred. 
+I went back into the house and went through the rounds again. Pulled out my laptop and worked for hours until my eyes stung. I got up and cleaned up the kitchen, and then made our beds. Then I went into Vivian's room and saw how much she bled onto that pillow. It was a small, dark brown stain that was almost an oblong oval, apart from the roughened edges from where she probably stirred.
 
 "Good God," I said,
 
 I went to work, stripped the sheets, and got to taking the pillows out of their cases. Yet, when I lifted up the pillow, I saw another silver dollar. It was polished, practically spotless, and it was just staring at me. I was just utterly in shock. How the hell did this happen? Who was doing this?
 
-As I stuffed everything into the washer, I took my keys and drove to the nearest Walmart to grab a cheap hidden camera. I stalked the aisles endlessly until an employee asked about what I needed. I simply said, 
+As I stuffed everything into the washer, I took my keys and drove to the nearest Walmart to grab a cheap hidden camera. I stalked the aisles endlessly until an employee asked about what I needed. I simply said,
 
 "My daughter is sleepwalking." A lie, sure, but there was no harm in it.
 
@@ -188,13 +188,13 @@ He looked at me, and I could tell it was out of pity. He nodded to himself and s
 
 "Ah-ah, I want to do this, you're clearly going through some shit."
 
-I didn't know what to say, and I just went with it. 
+I didn't know what to say, and I just went with it.
 
 "Thanks."
 
 "You have a good one. I'll be praying for you."
 
-I returned home and quickly set up the baby monitor. I sat it up in the corner of her room and buried it in plush toys and crumpled up blankets. After that, I configured it to my phone, and before I knew it, I got my camera feed up. Unfortunately, that's all it was; there was no motion detection, and I just had to watch the feed. I knew it was cheap for a damn reason; I shouldn't have let that employee talk me into getting it, but it was too late to go back and swap it out for something more high-tech. I ran back to the kitchen to get supper started, and before I knew it, the bus was pulling up to bring Vivian back. 
+I returned home and quickly set up the baby monitor. I sat it up in the corner of her room and buried it in plush toys and crumpled up blankets. After that, I configured it to my phone, and before I knew it, I got my camera feed up. Unfortunately, that's all it was; there was no motion detection, and I just had to watch the feed. I knew it was cheap for a damn reason; I shouldn't have let that employee talk me into getting it, but it was too late to go back and swap it out for something more high-tech. I ran back to the kitchen to get supper started, and before I knew it, the bus was pulling up to bring Vivian back.
 
 I still had the silver dollar from under her pillow in my pocket. She opened the door and tossed her backpack onto the couch. She ran to give me a hug, and I hugged her back,
 
@@ -242,9 +242,9 @@ Her tears were falling, and I rushed to comfort her. She was in hysterics, as sh
 
 "It's okay, sweetie, it's okay."
 
-I warned her not to let anyone into her room anymore, especially Mr. Tooth Fairy. 
+I warned her not to let anyone into her room anymore, especially Mr. Tooth Fairy.
 
-Susie returned looking exhausted, and she told me that it was a rough day. I told her about everything: the new silver dollar, the camera, and Vivian's confession to me. She just stared at me, nodding and taking in the news in droves. She just sat there with a depressed, glazed-over expression. 
+Susie returned looking exhausted, and she told me that it was a rough day. I told her about everything: the new silver dollar, the camera, and Vivian's confession to me. She just stared at me, nodding and taking in the news in droves. She just sat there with a depressed, glazed-over expression.
 
 "Jesus." She whimpered, "What else?"
 
@@ -264,7 +264,7 @@ I didn't say anything back, I just nodded, and left it at that.
 
 I finished cooking and served everyone fettuccini alfredo. What should've been a welcoming family dinner was nothing but uncomfortably quiet. We watched TV, I helped her with homework, and we all went to bed. I grabbed the gun safe from beneath the bed and pressed the five-digit code in. When it opened, I saw a revolver untouched by time. I opened the cylinder and saw it was still loaded. When I went to bed, my wife fell asleep, and through the baby monitor, I saw Vivian drift into sleep. The camera worked like a charm, and I set it to record overnight. Let it be known that I fought sleep for hours, I watched her until it was three in the morning, and when I couldn't open my eyes anymore, I just blacked out.
 
-I woke up and saw the morning light peering into the room, and my wife was still asleep. It wasn't even moments later when I heard my daughter start crying. Not a normal cry either, she was outright wailing. I sprang from my bed, gripped the revolver's handle, and rushed to her room. 
+I woke up and saw the morning light peering into the room, and my wife was still asleep. It wasn't even moments later when I heard my daughter start crying. Not a normal cry either, she was outright wailing. I sprang from my bed, gripped the revolver's handle, and rushed to her room.
 
 I flung the door open, and the window had been splintered at the bottom, as someone forced it open. But then I see my little girl cupping her mouth, blood seeping through her fingers, and when she removed them to call out my name, I saw that all of her teeth were gone. There was nothing but blood-soaked gums. My wife came in after me, and she screamed at the sight of her baby. She ran to get something to stop the bleeding. I screamed at her, I couldn't hold back anymore, I was terrified for her,
 
@@ -274,7 +274,7 @@ I flung the door open, and the window had been splintered at the bottom, as some
 
 I scooped her into my arms and wept for her, but as I did so, I heard the sound of metal clinking together behind her. I removed the pillow to reveal a sack of silver dollars, one for each tooth that was ripped out of her mouth. Susie's experience in the ER helped her prepare for situations like this. She took care of Vivian and knew exactly what to do. She called 911 to report the crime, but as she did so, I reviewed the footage.
 
-At 4:46 am, someone appeared in the window of my daughter's room and tapped on the glass. Vivian sat up in bed, and instead of letting him in, she shook her head at the silhouette. But the figure withdrew a crowbar and pried the window open. He crawled in, and Vivian was stunned, too scared to move. He wore a backpack and withdrew a bottle and a rag. He poured something into it and shoved it into her face. The bastard drugged her. From his backpack, he withdrew pliers and began to dig into her mouth. He took his time, too. I could feel rage bubble up inside me with every tooth he ripped out, and for a brief second, the wooden floor of the house popped, and he looked around in panic. Worried that he was going to get caught, and then I saw his face. My heart sank into my gut, and my legs felt weak. 
+At 4:46 am, someone appeared in the window of my daughter's room and tapped on the glass. Vivian sat up in bed, and instead of letting him in, she shook her head at the silhouette. But the figure withdrew a crowbar and pried the window open. He crawled in, and Vivian was stunned, too scared to move. He wore a backpack and withdrew a bottle and a rag. He poured something into it and shoved it into her face. The bastard drugged her. From his backpack, he withdrew pliers and began to dig into her mouth. He took his time, too. I could feel rage bubble up inside me with every tooth he ripped out, and for a brief second, the wooden floor of the house popped, and he looked around in panic. Worried that he was going to get caught, and then I saw his face. My heart sank into my gut, and my legs felt weak.
 
 I dropped my phone, gripped my revolver, and shoved it into my pants pocket. Susie called out to me, asking me where I was going, and I told her that I was finishing it.
 
@@ -290,10 +290,10 @@ The early customers of Walmart all drew their gaze toward us. With the calmest v
 
 "She had a beautiful smile."
 
-That was enough reason for me to end it. I took out the revolver and caved this piece of shit's mouth. It knocked his teeth in, and blood rushed out. He had a look of shock, like he didn't expect me to do this. The prick must've thought he was untouchable. I put the next shot in his forehead and caved his skull in. People screamed and scattered from the area as he slumped backwards into the polished floors. The red blood oozed onto the white tiles as I hopped over the counter and unloaded the rest of the magazine into his head. His face wasn't even recognizable by the time I was done with him. I didn't leave the scene of the crime; I just waited for the police and set my gun beside me. I wish I had more ammo, 
+That was enough reason for me to end it. I took out the revolver and fired at this piece of shit's mouth. It knocked his teeth in, and blood rushed out. He had a look of shock, like he didn't expect me to do this. The prick must've thought he was untouchable. I put the next shot in his forehead and caved his skull in. People screamed and scattered from the area as he slumped backwards into the polished floors. The red blood oozed onto the white tiles as I hopped over the counter and unloaded the rest of the magazine into his head. His face wasn't even recognizable by the time I was done with him. I didn't leave the scene of the crime; I just waited for the police and set my gun beside me. I wish I had more ammo,
 
 In the aftermath of it all, the police looked deeper into this creep and found hundreds of children's baby teeth stored in jars in his apartment. He'd been doing it here in town for years, and no one was the wiser for it. But he got sloppy. He used tips from a previous job to put money under the children's pillows, but he ran out, and all he had left was his pathetic silver dollar collection. This audacious asshole believed he could get away with it, well, not anymore.
 
 I don't suspect I'll be in here for much longer. I go to trial soon, and despite my case being classified as murder, I think the judge and jury will understand my story. Susie called me yesterday and told me that the dentist said that Vivian's teeth will eventually grow in, but for now, she'll have to wear false teeth. I've got plenty of time to reflect, but I do not regret a thing that I did. This bastard had to die.
 
-He took her smile, and that I couldn't forgive. 
+He took her smile, and that I couldn't forgive.
