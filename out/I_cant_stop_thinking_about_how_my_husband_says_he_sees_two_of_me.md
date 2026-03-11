@@ -14,7 +14,7 @@ We were staying in a small house a couple of blocks from the beach.  It was on 
 
 I don’t know what time it was that first night when I woke up; it was pitch black and I had to pee.  Rick’s deep exhales ruffled the hairs on my neck and made my heart flutter.  I could see a strand of moonlight under the bathroom door.  I peeled myself out of Rick’s warmth and my feet moved across the cold tile.  I shut the door behind me, urinated piña colada, wiped and flushed. I stared at my sex hair in the mirror and smiled at myself.
 
-I turned off the light and caught movement out of the corner of my eye.  *Fuck!  What is that?* 
+I turned off the light and caught movement out of the corner of my eye.  *Fuck!  What is that?*
 
 It was me, in the mirror.  I looked different in the dark.
 
@@ -28,11 +28,11 @@ Rick bumped into the bedside table, fumbling for the lamp.  He turned it on and
 
 He looked at my side of the bed.  His eyes scanned the room, searching for something.  I couldn’t help but look around too, my eyes straining into the shadows.  I couldn’t tell if he was truly awake, he looked glassy-eyed and slack-jawed.  
 
-“What’s wrong?” I asked.  Part of me wanted to go to him, to put a hand on his back, to comfort him.  Part of me wanted to back away, slip into the bathroom, and lock the door.  
+“What’s wrong?” I asked.  Part of me wanted to go to him, to put a hand on his back, to comfort him.  Part of me wanted to back away, slip into the bathroom, and lock the door. 
 
 Rick stood up, trying to put a puzzle together when he was clearly missing a few pieces.  
 
-He said, “I woke up and you were sitting up in bed, smiling at me.  Like you’d been watching me sleep.”  
+He said, “I woke up and you were sitting up in bed, smiling at me.  Like you’d been watching me sleep.” 
 
 He saw the look in my eye.  “I’m serious.  And then I heard the bathroom door and turned over and you were coming out of the bathroom.  I looked back and you were still there, in bed.  Smiling at me.  I actually thought the one of you that was coming out of the bathroom was my imagination because you were so real.  Right here next to me.” 
 
@@ -50,8 +50,10 @@ I chuckled, this time with more heart.  He shook his head, but a smile crept in
 
 I just saw it again, while I was typing this up. Slight movement out of the corner of my eye - like a shadow passing by outside the window, casting its slippery darkness on the wall over by the bookshelf full of soft toys and tiny shoes.  That bookshelf used to hold adult things, art things, things for the life I had before this tiny creature crawled into the light.  I leaned forward, squinting into the milky dark, but the room is empty.  The little warm body in my lap is squirming and squeaking softly like air being slowly let out of a balloon. 
 
-I’m going to attempt the dreaded transfer into the crib and see if I can get some sleep myself tonight.  Because I haven’t been sleeping much.  And sleep is important.  It’s only in the middle of the night when I’m nursing or rocking rocking rocking that I think about the other one of me.  
+I’m going to attempt the dreaded transfer into the crib and see if I can get some sleep myself tonight.  Because I haven’t been sleeping much.  And sleep is important.  It’s only in the middle of the night when I’m nursing or rocking rocking rocking that I think about the other one of me. 
 
 Or the thing I never told Rick.  That he wasn’t the first boyfriend to have seen her.
 
 If this has happened to anyone else, I'd love to hear about it. Sometimes it just feels so lonely here, in this rocking chair.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1rqz2uh/i_cant_stop_thinking_about_how_my_husband_says_he/)
