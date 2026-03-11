@@ -30,7 +30,7 @@ My head hung nearly all the way backwards against my struggling body, like a loo
 
 I let go. Relaxed, as much as I could. And I breathed shallowly through my throat. I reached up with my hand, over my torn skirt and tattered sweater, to the buttons on my soaked blouse, to the cuts. My fingers trace them, nearly flipping through them like the pages of a book... two, five, nine, thirteen...
 
-Thirteen to the bone. Through the tender, stinging folds of scarred flesh, I could feel that bone was the only thing holding me together. I crawl my fingers over my mud-covered face, into my hair. It's matted, crusty, like dirty ropes, and I grab a handful of it at the roots. I can still feel it tugging at my scalp. I pick up the slack from my gashed neck and I hold myself steadily upright, to see straight.
+Thirteen to the bone. Through the tender, stinging folds of scarred flesh, it was as if bone was the only thing holding me together. I crawl my fingers over my mud-covered face, into my hair. It's matted, crusty, like dirty ropes, and I grab a handful of it at the roots. I can still feel it tugging at my scalp. I pick up the slack from my gashed neck and I hold myself steadily upright, to see straight.
 
 They left me in the woods. An untouched portion of forest park between our neighborhood and our school. It stretched for miles in this crescent moon shape like it was trying to envelope the suburbs, and I learned when I was 9 that I could either ride in a crammed van for 45 minutes or I could hike the shortcut that only I ever seemed to take, straight through the middle, direct to the school, and be there in 15.
 
