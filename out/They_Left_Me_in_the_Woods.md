@@ -333,7 +333,7 @@ But I wasn't finished.
 
 I watched his pretty blue eyes widen as I grabbed the knife handle with one hand and a fistful of his hair with the other. And I pulled and pushed on both, slamming the back of his head against the wall, each time cutting deeper and deeper, all the way through his throat like a broken paper cutter. He stopped moving, making noise, after just the second or third, but I didn't stop until the blade scraped against the tile wall and I heard the rolling thud against the floor. I didn't look.
 
-I breathed. I laughed. Then I got up.
+I breathed. I laughed. Then I got up. I found my glasses in his computer drawer.
 
 I'm writing this now just so everyone knows. It’s important to me that people know, even if it’s too much to understand. Hell, I still don’t.
 
