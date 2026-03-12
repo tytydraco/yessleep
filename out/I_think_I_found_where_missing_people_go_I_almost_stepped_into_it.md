@@ -171,3 +171,5 @@ According to the report, he vanished in May of that year. I wasn’t born until 
 Which means someone down there already knew my name four months before I existed. And they knew it was me!
 
 I'm both freaking out and surprisingly calm. I've considered going to the police over and over and over but I know they won't believe me. I don't even believe it, but it happened and these people need my help!
+
+[Part 2](https://www.reddit.com/r/nosleep/s/bKGjYRyrKK)
