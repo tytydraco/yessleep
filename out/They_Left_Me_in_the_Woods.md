@@ -188,9 +188,17 @@ I couldn't find my balance, I could feel it -- I was going to fall.
 
 A focus, a center. My right foot found the ground, and I stood up on stiff legs. I was dizzy, pulling on my own hair like a horse's bridle. Ralph's glowing eyes disappeared one moment and in the next, the lightning showed me that he turned himself around, looking over his shoulder at me. Beckoning me.
 
-I didn't know where I was going, so I followed him. My legs barely worked as I took slow, awkward steps over fallen branches, terrified that each one might be one too much for this broken body. He was always ahead, but never fully out of sight. Except for those yips, he never made a sound, but I knew where he was. Even in the dark, he flashed his eyes back at me, leading me... somewhere.
+I didn't know where I was going, so I followed him. My legs barely worked as I took slow, awkward steps over fallen branches, terrified that each one might be one too much for this broken body. He was always ahead, but never fully out of sight. Except for those yips, he never made a sound, but I knew where he was. There in the dark, walking with him, barely thinking.
 
-I didn't care where, just let me out of these woods. If I die, let me die at home, with my family.
+Classmates, school, St. Sebastian... I always hated that story. Never knew what I was supposed to learn from it. He was a saint, martyred by the Romans. Condemned by the emperor, tied to a tree, and shot with arrows. Dozens of arrows in his stomach and his chest and his arms and his neck. The soldiers didn't stop until their arms got tired, the arrows ran out, and Sebastian was "as full of arrows as a feathered urchin." I never forgot that description. By then they just left him there, against the tree. But he lived.
+
+He was found and nursed to health. And he went back to the soldiers and the emperor that left him for dead, to accuse them. So they seized him and... I forget if they beat him to death or cut off his head. Either way, they finished the job. What was the point of that? He was alive. He avoided death, he was safe. What would've been so wrong with him just, living? But he went back to show them he was alive, just for them to kill him again. God handed him a miracle, and he chose to die. What was he thinking?
+
+Where was I...?
+
+*"Ralph!"*
+
+In the dark, he flashed his eyes back at me, leading me... somewhere. I didn't care where, just let me out of these woods. If I die, let me die at home, with my family. Please, give me this miracle.
 
 I start to see the street lights through the trees. I just want to crawl into my bed one last time. And sleep.
 
