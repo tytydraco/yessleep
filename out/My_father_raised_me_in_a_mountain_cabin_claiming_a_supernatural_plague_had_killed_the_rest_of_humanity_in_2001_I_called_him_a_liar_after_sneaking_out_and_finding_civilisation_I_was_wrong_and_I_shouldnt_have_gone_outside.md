@@ -1,4 +1,4 @@
-**Part I** \- [Part II](https://www.reddit.com/r/nosleep/comments/1rmv04j/my_father_raised_me_in_a_mountain_cabin_claiming/) \- [Part III](https://www.reddit.com/r/nosleep/comments/1rqbqnv/my_father_raised_me_in_a_mountain_cabin_claiming/)
+**Part I** \- [Part II](https://www.reddit.com/r/nosleep/comments/1rmv04j/my_father_raised_me_in_a_mountain_cabin_claiming/) \- [Part III](https://www.reddit.com/r/nosleep/comments/1rqbqnv/my_father_raised_me_in_a_mountain_cabin_claiming/) \- [Part IV (FINAL)](https://www.reddit.com/r/nosleep/comments/1rrztzl/my_mother_and_i_survived_on_a_boat_after_a/)
 
 *Tell the story again*, Little Me would always demand.
 

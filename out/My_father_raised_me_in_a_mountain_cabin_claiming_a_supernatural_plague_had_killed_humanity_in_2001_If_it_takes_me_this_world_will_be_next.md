@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/1rku14a/my_father_raised_me_in_a_mountain_cabin_claiming/) \- [Part II](https://www.reddit.com/r/nosleep/comments/1rmv04j/my_father_raised_me_in_a_mountain_cabin_claiming/) \- **Part III**
+[Part I](https://www.reddit.com/r/nosleep/comments/1rku14a/my_father_raised_me_in_a_mountain_cabin_claiming/) \- [Part II](https://www.reddit.com/r/nosleep/comments/1rmv04j/my_father_raised_me_in_a_mountain_cabin_claiming/) \- **Part III** \- [Part IV (FINAL)](https://www.reddit.com/r/nosleep/comments/1rrztzl/my_mother_and_i_survived_on_a_boat_after_a/)
 
 For a week, I have shared my tale through these diary entries, fearing the end was near.
 
@@ -295,3 +295,5 @@ I was, but that wasn’t the problem either.
 There were new memories in my head. Memories of a life I had never lived. Something had slipped out of another reality and into me. There should never have been a headlong collision of half a dozen, or more, parallel universes at variance with one another. It had muddied the natural way of things. Don’t ask me to explain the human soul or brain, because I have no answers. All I know is something horrifying happened, but it may have given me an idea to finally end all of this.
 
 I have the memories of a parallel Evie in my [mind](https://www.reddit.com/r/dominiceagle).
+
+[UPDATE - Part IV (FINAL)](https://www.reddit.com/r/nosleep/comments/1rrztzl/my_mother_and_i_survived_on_a_boat_after_a/)
