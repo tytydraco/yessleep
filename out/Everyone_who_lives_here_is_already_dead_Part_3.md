@@ -205,4 +205,6 @@ I gulped.
 
 “No.”
 
-“My motivations are none of your concern. Simply do what we tell you to do, and you could even feel happiness here. You have two choices, Benny. You can be a good boy and play along here in this haven or you could go back to a world that believes you to be a murderer. Which one will it [be](https://www.reddit.com/r/Likeeyedid/)?” 
+“My motivations are none of your concern. Simply do what we tell you to do, and you could even feel happiness here. You have two choices, Benny. You can be a good boy and play along here in this haven or you could go back to a world that believes you to be a murderer. Which one will it be?” 
+
+[Final ](https://www.reddit.com/r/nosleep/comments/1rs0gqs/everyone_who_lives_here_is_already_dead_final/)
