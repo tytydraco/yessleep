@@ -56,4 +56,4 @@ Or the thing I never told Rick.  That he wasn’t the first boyfriend to have s
 
 If this has happened to anyone else, I'd love to hear about it. Sometimes it just feels so lonely here, in this rocking chair.
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/1rqz2uh/i_cant_stop_thinking_about_how_my_husband_says_he/)
+Part 2 is now [here](https://www.reddit.com/r/nosleep/comments/1rragz9/i_cant_stop_thinking_about_how_my_husband_says_he/).
