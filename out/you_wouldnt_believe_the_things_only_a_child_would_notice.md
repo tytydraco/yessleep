@@ -4,7 +4,7 @@ Nobody believed me, of course. After all, why would they? I was only 5. But seei
 
 The previous week at school, they were teaching us how to read the time on a clock. They told us about these things called sundials, which were analogue devices used by primitive civilizations to read the time of day using the shadow it cast on the dial. I was fascinated. I'd notice them everywhere, the shadows. Looking back, it's funny what a child's mind latches on to.
 
-I could multiply 2 digit numbers by age 5, but I couldn't understand how light could create darkness out of nothing. A wind does not eliminate air behind you if you stand in its way. A tide does not create patches of dry land behind your feet if you go to the seashore and break the waves. It made no sense to me. I needed to know.
+I could multiply 2 digit numbers by age 5, but I couldn't understand how light could create darkness out of nothing. A wind does not take away the air behind you if you stand in its way. A tide does not create patches of dry land behind your feet if you go to the seashore and break the waves. It made no sense to me. I needed to know.
 
 So I stole a notebook from my dad's study. And I began, drawing in the best way I could manage at the time, every curious little shadow I saw, writing about it in as much detail I could think up at the time, about every curious little shadow I had drawn.
 
@@ -42,11 +42,11 @@ When I found out about the truth, I knew I had to act fast. So I did.
 
 I was already sitting in a pool of my mother's blood before she finally finished bleeding out and dropped dead to the floor. The blood was bright red against the white tiles and thankfully, it reflected enough light to not have cast a shadow. My father had nowhere to run to.
 
-I laughed and laughed and laughed because I finally has answers to my life's greatest mystery. It was all so simple.
+I laughed and laughed and laughed because I finally had answers to my life's greatest mystery. It was all so simple.
 
 The Police arrived and there were reporters outside who took pictures of me covered in that beautiful deep dark red.
 
-When they put me into the straitjackets at the same nuthouse as my mother, I looked down behind where the light hit me and saw my father.
+When they put me in straitjackets at the same nuthouse as my mother, I looked down behind where the light hit me and saw my father.
 
 I don't know how but the shadow was smiling.
 
