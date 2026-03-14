@@ -52,4 +52,4 @@ I don't know how but the shadow was smiling.
 
 Now that I think about it, it was the papers that had started calling me Red. My real name was not Red at all.
 
-It was Billy Martin.
+It was [Billy Martin](https://www.reddit.com/r/punkholiday/comments/1rt35yi/whats_a_good_title_for_this/).
