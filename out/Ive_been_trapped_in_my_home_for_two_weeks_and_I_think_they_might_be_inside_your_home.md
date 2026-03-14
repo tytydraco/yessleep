@@ -41,4 +41,4 @@ This is my last post... lock your doors and windows... don't let them in...
 
 We'll get through this... everything... Will be okay... Thank you, I wouldn't have been able to screw it up without you all... no... it's all my fault... If you hear whispering that isn't your own... it's too late... hide, run, or fight... I chose to hide... what will you choose?
 
-https://www.reddit.com/r/TalesFromTheCreeps/s/KU44ch5XCc
+Full - https://www.reddit.com/r/TalesFromTheCreeps/s/KU44ch5XCc
