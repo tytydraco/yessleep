@@ -86,4 +86,4 @@ Nothing was in the kitchen. Nothing in any of the rooms. I know, I know. It's st
 
 I slept with the bedroom door closed. I'd checked the whole house and found nothing.
 
-*Tips: just because you can't see it, it doesn't mean it's not there.*
+*Tips: just because you can't see it, it doesn't mean it's not* [there.](https://www.reddit.com/r/nosleep/comments/1rtuq3l/got_an_ad_to_play_the_find_the_monster_in_the/) 
