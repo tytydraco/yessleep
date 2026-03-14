@@ -1,11 +1,87 @@
-This all started when I was in Clare on holidays. My family have a small cottage in rural Clare in the middle of nowhere. We have no neighbors at all and civilisation is about a twelve minute drive away. It's been my favourite place since I was around 3 and being 17 now it's still the place I spend my summers.
+I remember the old man; gnarled cane, sporting a cloak with the hood draped over his eyes. I was sure I had seen him in a dream before: one about a virus that spreads through eye contact with the infected –silly, isn’t it?
 
-In 2019, I was playing on a small swing set that we have in the corner of the garden. For reference, we have about 4 acres of land here, and what surrounds the land is fields belonged to farmers that are decelate. There's a derelict abandoned house across the road from our tiny cottage, there's a few more small abandoned cottages every few minutes drive down and up the road, and a holy well a seven minute drive away. The swing set was at the top right corner of the acres, our house is situated in the middle of the plot, so, from the swing set, part of the road is covered by the house, if that makes sense. 
+As he knocked on my old wooden door, I thought to myself that it was odd; no shadow seeped under the door like always. Nevertheless, I opened it to see him. The old man, the one from my dream a few nights ago. He cast no shadow, but took in several deep, shuddering breaths before he spoke
 
-I was swinging when I saw someone in blue walk by. This person did not just walk on the road, no, they were in our land, inside the small white wall we had up, and walked until the house covered them. Now, this house is a family house, so cousins running around and random appearances were the norm, but this looked different. The only think I saw of this person was their blue clothes. A strange blue, like a semi-vibrant blue, not light but not dark. I knew for a fact my cousin that was staying with us hadn't anything of the sort. But still I ran and told my mother and we searched, nobody there.
+“I am Duncan Peppy”
 
-My father worked late, still does, so couldn't make it with us. That was normal and we were usually in the house alone, my mother, my twin sister, me and my older cousin. It definitely freaked us all out, but life moved on. We never really went to the cottage after that, everything got busy and work piled up. So why am I bringing this up now?
+“Um… alright.” I said in surprise. I asked the man to come in but, he said nothing. I asked again and this time he stepped in.
 
-Well, I'm in Spain right now, on holidays for the first time in years. I was walking through the old town in marbella when we got a bit side tracked. We were lost. So we started to head up random directions and alleyways, hoping we'd find our rented car. When we passed a man muttering to himself. Now I live in Ireland, So it's Very easy to tell when someone is on drugs. And I assumed this man was, so I was going to avoid eye contact with him. As I do to not start an accidental fight in Ireland. However as he got closer, I realised something. That blue. That strange, semi vibrant fucking blue. He wore this long loose cloth. Like I don't know how to explain it but you know the Preists wear them? That. Once he got close, like breath smelling close, I broke my rule that I made to myself. I looked. His eyes were fully roller back in his head. His dark completion wasn't illuminated in the street lamp. His mouth was drooped, like someone who had had a seizure. I don't know what he was mutterings, but I did Spanish in school and it didn't sound like spanish.
+“I’m blind you see” he said with a hint of uncertainty.
 
-Now I genuinely hope this wasn't a man struggling with some condition or something but I genuinely couldn't sleep last night over that. My hotel room has shutters on it, and I swear through the cracks I could see him standing there. I hope, if he is someone with mental health conditions or some kind of other conditions that he gets the help he needs. But oh my god he terrified me. And the worst part? Nobody else who passed him even gave him a second glance?? I don't know, it was so off putting and his appearance will haunt me forever 
+“And deaf apparently” I muttered under my breath.
+
+He hung up his cloak: ocean blue with little yellow stars; not unlike a wizard in a book. I offered him some tea, but he refused. I offered food but again, he declined.
+
+“Well, what do you want then!?” I shouted at him, loud enough for the neighbours’ dog let out a frantic yelp.
+
+“I want to stay for a while.” He replied calmly.
+
+“Hell no!” I replied.
+
+“I don’t even know you… GET OUT!” I screamed, obviously panicked. And with that, he left. As he walked out my door, my neighbour –-- Edward came running to my apartment.
+
+“What in the name of Jesus is going on?” he asked me.
+
+“That crazy old fool that just left” I replied.
+
+“What are you on about?” he asked in his heavy British accent.
+
+“Come on! You just saw him leave… He just walked out!” I said scared. With that, he shook his head and left.
+
+Every night after that, I dreamt of him; the blind man, apparently invisible to all but me.
+
+A week later, I had enough. I sat at my computer and did some digging: Duncan Peppy, KIA in the America-England war. That can’t be right I thought. That war was… 60 years ago!
+
+Many sleepless nights ensued. One day, I woke from a short, dreamless sleep; I looked out my dirty window, past the empty bottles of un-descript alcohol to see a man, staring back at me: hunched over, with a blue cloak with the occasional star.
+
+“Oh God” I said in disbelief.
+
+“May I come in?” he asked calmly. Like an idiot, I said yes. As I let him in, he looked at me; even though I knew he couldn’t see.
+
+“Tea, please.” He said.
+
+“What…I.” I made him some tea and sat down next to him on the stained sofa and asked.
+
+“What do you want?” I asked in the most demanding voice I could muster.
+
+“Just to stay a while, I’m looking for my daughter Jenna you see…” he replied.
+
+“Well. You can’t stay, and I don’t know who Jenna is, OK?” I told him. And with that, he sipped his tea and left.
+
+I didn’t sleep well that night; my dreams full of the virus and the man… Now with sunken eyes, and yellowed teeth.
+
+I woke up early for me for my job, a typical office job, with a therapist that I visited just about every day.
+
+As I arrived, I noticed that I was late; great.
+
+“Could Brian Turner please report to Mr. J Armstrong” the voice came over the intercom making my blood run cold. My boss.
+
+“Yes sir? You wanted to speak?” I said tentatively.
+
+“Brian, you’ve been with us for 10 years now; but we have received some complaints that your mental health is… slipping. You can’t pay attention at work. Unfortunately, I’m going to have to let you go.” He said in mock pity.
+
+I left that day, when I got home, I was hit by the smell of a rotting corpse; or something similar. I looked around for the smell, but to no avail. I sat down on the old sofa and drank. I drank cheap whiskey until dawn, and then till sundown.
+
+*Knock Knock.* The sound startled me enough to look up to my door; standing there was the man. He had no eyes, no blue cloak either. Just a figure shrouded in black.
+
+“What… WHAT DO YOU WANT!?” I screamed at him.
+
+“Times up, Brian.” He replied in a cold, emotionless voice.
+
+He took me into the night; we were travelling for what felt like hours, me tied up in some dark space, though I knew not where.
+
+Finally, we arrived, some forest somewhere. He threw me to the ground and told me to run in that voice of his; my hands were still bound by some chains, and I still had on my blindfold, but I ran, nonetheless.
+
+I had been running for what felt like hours, when I reached it: a small wooden cabin in a large clearing, it sat near a large rock that overlooked rolling hills, and valleys. My blindfold had fallen off sometime in the last few minutes.
+
+As I slowly turned around, I saw him walking toward me, silent and calm. I did not try to run, I had done enough of that already; instead, I stood there, like a deer caught in headlights.
+
+He reached out a thin, wrinkled hand, and I took it. Then everything went black.
+
+I realize now, I should have let him stay for a while. Once it all went dark, knowledge rushed into me—a torrent: his daughter Jenna, shot and killed in Russia; Einstein’s secrets; my dog Daisy, gutted by my brother George, who became a killer under another name.
+
+My life before all this was boring. Nothing ever happened. The man may have been my end, but maybe he was also my saviour, dragging me out of a life of quiet drudgery and into something I still can’t explain.
+
+If anyone finds me, wherever I am; Let him stay for a while, maybe you won’t suffer the same fate as me.
+
+ 
