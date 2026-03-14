@@ -1,3 +1,6 @@
+Part 1 - https://www.reddit.com/r/nosleep/s/r0sTVFjKMY 
+
+
 I'm fine. Somehow I'm fine. I uncovered myself, and despite the lights being on, nothing was in the house. I've searched every room, and nothing. I'm sitting now in the corner of my bedroom. 
 
 My wife still lies in our bed. I tried moving her, but I got frightened. I was afraid I'd break something by accident. Although I've noticed that the rot and rigor have accelerated at a faster rate than they should. It's like time is going faster than I can comprehend it. I'm watching my wife wither away faster than my grief for her. I hope she knows in heaven that I'm still here.

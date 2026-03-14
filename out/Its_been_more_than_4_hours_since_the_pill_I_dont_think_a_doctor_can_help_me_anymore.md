@@ -1,10 +1,12 @@
+Spoilers/Content warning: >!Gore!<  
+  
 Candy Andy was a nickname my friends and I made up for this guy who would sell us drugs back in high school. Most kids our age were happy with some green or occasionally some X, but Candy Andy was the type of guy you'd only know about if you were into the stronger, harder stuff.
 
 We called him Candy Andy because his thing was pills that looked and tasted just like candy. We always met him under the bleachers near the school's football field, and to this day, we don't know what he used to give us. You give him some money, and he hands you some pills; no words exchanged.
 
 He never told us his real name, what the pills would do, if they were uppers, downers-- nothing, not a word. We never asked either. All we knew about the pills was their color, some shade of blue in different shapes and sizes. Whatever he was giving us, it was good. Real fucking good.
 
-At our 10-year high school reunion, after the party had died down and the sun had set, my friends and I were in the field talking shit, playing some catch, and reminiscing about the glory days. It was getting dark. 
+At our 10-year high school reunion, after the party had died down and the sun had set, my friends and I were in the field talking shit, playing some catch, and reminiscing about the glory days. It was getting dark.
 
 That's when we saw him staring right at us from under the bleachers. Of course, we had to go say hi. He was a big part of our high school experience. We'd bought his stuff literally hundreds of times over those 4 years.
 
