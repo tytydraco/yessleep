@@ -2,13 +2,13 @@ I'm not going to lie to you, I got a little freaked out after that last... [inci
 
 I know it must have been nothing, and I know there are a lot of marketing / programming freaks that love to fuck with users. Maybe the ad was a tactic to promote some new horror film coming, like the phone number you had to call for that one movie or the random tapes... right?
 
-In the morning after, the house looked so serene, so nice and warm and devoid of any paranormal entity that somehow travels through a computer screen (as if that was even plausible... I felt so silly). I did check some cupboards I'd missed the first time, though. They were really small and insignificant, nothing could really fit inside anyway. I also read your comments and gathered some tips from them: salt and sage, checked the vents, etc. 
+In the morning after, the house looked so serene, so nice and warm and devoid of any paranormal entity that somehow travels through a computer screen (as if that was even plausible... I felt so silly). I did check some cupboards I'd missed the first time, though. They were really small and insignificant, nothing could really fit inside anyway. I also read your comments and gathered some tips from them: salt and sage, checked the vents, etc.
 
 I figured the best way to go about it was to avoid getting the ad. I installed an adblocker and, just to be safe, decided to quit the chess match before the last move, or at least when it became obvious I would win / lose. Yeah, it was gonna fuck with my stats, but that was my last concern at the moment.
 
 And, for the next days, it worked. I didn't get the stupid ad anymore, and I started feeling more comfortable in my own home. I told my friends about the odd game and asked if they'd had the same ad play, since I knew that they were using the same site to play chess. They seemed intrigued by it, even somewhat sad that they were missing out on it.
 
-"It sounds cool, like some interactive horror experience. Like one of those games where you can't make a sound in real life, 'cause they connect to your mic," said my friend whom we'll call Paul. We were hanging out at his place, throwing empty cans of beer at each other. 
+"It sounds cool, like some interactive horror experience. Like one of those games where you can't make a sound in real life, 'cause they connect to your mic," said my friend whom we'll call Paul. We were hanging out at his place, throwing empty cans of beer at each other.
 
 "Yeah, I bet it is, but it's still freaky. I'm waiting for the real campaign to launch and connect the ad to some over-hyped game. I hope that's what this is," I responded.
 
@@ -28,27 +28,27 @@ And, for the next days, it worked. I didn't get the stupid ad anymore, and I sta
 
 "I'm not gonna play it again."
 
-Well, Wednesday night comes and guess what. I was fully prepared to quit the match when the ad popped up right in the middle of it. My heart dropped. The hole in my chest grew as I read the words *FIND THE MONSTER IN THE ROOM!.* 
+Well, Wednesday night comes and guess what. I was fully prepared to quit the match when the ad popped up right in the middle of it. My heart dropped. The hole in my chest grew as I read the words *FIND THE MONSTER IN THE ROOM!.*
 
 *Fucking shit.*
 
 I remembered a comment someone had left under the previous post - *try losing on easy.* Would that help me? Maybe. One thing was sure: it would end sooner.
 
-The first level showed a pixelated beach in the moonlight. A woman was walking hand in hand with a man. I clicked on the sky. 
+The first level showed a pixelated beach in the moonlight. A woman was walking hand in hand with a man. I clicked on the sky.
 
 *Wrong! This was the monster. The man will get eaten now. You failed to save him! Lives left: 2/3*
 
-The circle appeared on the woman, who smiled wide, showing multiple rows of teeth. Her pixelated image flickered a few times, and I could have sworn I saw a realistic version of the woman in between flashes, her eyes bloodshot and numerous teeth rotten, skin stretched too wide, too much. 
+The circle appeared on the woman, who smiled wide, showing multiple rows of teeth. Her pixelated image flickered a few times, and I could have sworn I saw a realistic version of the woman in between flashes, her eyes bloodshot and numerous teeth rotten, skin stretched too wide, too much.
 
 Damn, this game is good.
 
-The next level was an underground parking lot. For the first time, it actually came with sound effects. I could hear the sound of chewing coming from my speakers. 
+The next level was an underground parking lot. For the first time, it actually came with sound effects. I could hear the sound of chewing coming from my speakers.
 
-Hold on... 
+Hold on...
 
 I leaned in and placed my ear in different spots of the screen. The chewing was louder in some areas and it grew quieter if I moved away.
 
-How the fuck was it doing that? Instinctively, I clicked on the car the chewing was coming from. 
+How the fuck was it doing that? Instinctively, I clicked on the car the chewing was coming from.
 
 *Wrong! That's a friend eating a sandwich. The monster was closer than you might think. Lives left: 1/3*
 
@@ -69,6 +69,8 @@ I hate this. I hate this game for how scared I was. I hate this game for making 
 On Thursday, I got a call from my friend Paul.
 
 "Hey, man. The fucking ad popped up last night. It was so trippy, whoever made it is a genius-"
+
+"Listen, I don't have time to talk. Someone followed me home last night."
 
 I straightened in my chair. “Followed you how?”
 
@@ -114,7 +116,7 @@ I returned home from work. It was around 8PM and the air felt heavy. My quiet su
 
 All my windows were dark. My front door opened slowly, and I greeted the empty hallway with no fear, even though I knew my eyes helped in no way to decide whether I was alone or not. Just because I couldn't see it it didn't mean it wasn't there.
 
-I went upstairs like a lamb preparing for slaughter. *You know what,* I remember thinking, *I'm actually going to just throw away my computer.* 
+I went upstairs like a lamb preparing for slaughter. *You know what,* I remember thinking, *I'm actually going to just throw away my computer.*
 
 As I reached the upper floor, I saw that the light at the end of the hallway (my bedroom) was on. Terror washed over me before I remembered that that was how I left it, knowing I wouldn't want to return to a house submerged in darkness and silence.
 
@@ -124,11 +126,11 @@ And I certainly did not open any site, but that fucking ad was playing now.
 
 *FIND THE MONSTER IN THE ROOM! FINAL LEVEL. BOSS BATTLE.* flashed across my screen.
 
-I found it a little funny that it said boss battle. I don't know why. 
+I found it a little funny that it said boss battle. I don't know why.
 
 I was not going to fucking play, though. I plugged out the computer.
 
-I looked back at the screen, who was still flashing the letters. I would have smashed the computer, but a thought occurred. 
+I looked back at the screen, who was still flashing the letters. I would have smashed the computer, but a thought occurred.
 
 I remember that nothing physical happened to me. However, it had been *Paul* who was followed. What if he was a target? What if he was now in danger, and I could at least warn him or something?
 
@@ -172,7 +174,7 @@ Nothing was behind me, but just because I didn’t see it… didn't mean it wasn
 
 I must have stared at it for a really long time, before a pop-up appeared.
 
-*Want a hint?* 
+*Want a hint?*
 
 Yeah, why not. I was convinced I was going to die, anyway. I clicked *Yes.*
 
@@ -180,19 +182,19 @@ Yeah, why not. I was convinced I was going to die, anyway. I clicked *Yes.*
 
 My brain refused to process it.
 
-For a second I just stared at the words, waiting for them to change, like the game would correct itself if I gave it enough time. Were there more monsters? Was the monster too big, it filled the room? Was the monster *the room*? I recalled the previous levels. 
+For a second I just stared at the words, waiting for them to change, like the game would correct itself if I gave it enough time. Were there more monsters? Was the monster too big, it filled the room? Was the monster *the room*? I recalled the previous levels.
 
 *Then I remembered the breathing. Of course.*
 
 It was almost laughable. The situation itself was so bad that it was the funniest thing I had ever experienced.
 
-You know how magicians say that you're looking too close, and you can't see the big picture? 
+You know how magicians say that you're looking too close, and you can't see the big picture?
 
-Anywhere would be correct because the monster was behind the fucking monitor. 
+Anywhere would be correct because the monster was behind the fucking monitor.
 
 I was staring so hard at the screen that the edges had begun to blur, and I hadn't noticed the obvious. I hadn't noticed what was behind it.
 
-I wasn't going to click. I wouldn't let the game end. 
+I wasn't going to click. I wouldn't let the game end.
 
 I looked at my feet and stood up. I tried to ignore what was right in front of me.
 

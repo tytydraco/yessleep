@@ -41,3 +41,5 @@ I can see it through the blanket...
 I'm going to uncover myself now; if I don't continue writing, then just know this conversation between you and me was the most important thing for me. It's been forever since I've felt like I could just talk. If you are reading this, thank you, truly.
 
 I don't know what awaits me when I uncover this blanket; I'll update if I can.
+
+Full - https://www.reddit.com/r/TalesFromTheCreeps/s/XsXZ3UYkM0

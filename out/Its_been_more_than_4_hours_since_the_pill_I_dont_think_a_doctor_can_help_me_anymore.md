@@ -1,5 +1,5 @@
-Spoilers/Content warning: >!Gore!<  
-  
+Spoilers/Content warning: >!Gore!<
+
 Candy Andy was a nickname my friends and I made up for this guy who would sell us drugs back in high school. Most kids our age were happy with some green or occasionally some X, but Candy Andy was the type of guy you'd only know about if you were into the stronger, harder stuff.
 
 We called him Candy Andy because his thing was pills that looked and tasted just like candy. We always met him under the bleachers near the school's football field, and to this day, we don't know what he used to give us. You give him some money, and he hands you some pills; no words exchanged.
@@ -30,10 +30,10 @@ When I finally reached him, he stepped closer and leaned in. His breath smelled 
 
 "The red one makes the blue ones hatch."
 
-I ran to my car and floored it all the way back home. It's been four hours and thirty-nine minutes since then. I'm in bed under five layers of blankets. The cold isn't going away and my skin is still tingling.
+I ran to my car and floored it all the way back home. It's been four hours and thirty-nine minutes since then. I'm in bed under five layers of blankets. 
 
-The heat inside is wet.
+The cold isn't going away and my skin is still tingling.
 
-The fear makes them writhe in hunger.
+
 
 They're starting to [crawl](https://www.reddit.com/r/punkholiday/comments/1rt35yi/whats_a_good_title_for_this/).
