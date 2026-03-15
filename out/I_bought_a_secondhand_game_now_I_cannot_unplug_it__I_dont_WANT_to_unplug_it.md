@@ -1,4 +1,4 @@
-I loved going to ReStart: it was one of those local places that have slowly started disappearing. Narrow slightly cluttered shop, on the kind of street that still has a diner, a locksmith, and a place that fixes shoes. May be an old phone maintenance shop. ReStart sold secondhand games, retro consoles, weird gaming/tech peripherals, old handhelds. The owners, Phillip and his dad Ray, knew everything about everything, and they never made me feel for asking. 
+I loved going to ReStart: it was one of those local places that have slowly started disappearing. Narrow slightly cluttered shop, on the kind of street that still has a diner, a locksmith, and a place that fixes shoes. May be an old phone maintenance shop. ReStart sold secondhand games, retro consoles, weird gaming/tech peripherals, old handhelds. The owners, Phillip and his dad Ray, knew everything about everything, and they never made me feel bad for asking.
 
 A little more than a year ago, right before I was supposed to leave for college, I went in one afternoon to browse. I was flipping through a bin of PS2 games when Phillip called me over from behind the counter:
 
@@ -16,31 +16,31 @@ I turned it over in my hands. It was heavier than it looked. The surface had a f
 
 Phillip shrugged. "We don't have a desktop here. Five bucks if you want it. I'll feel bad charging even that if it doesn't work."
 
-I gave him the five dollars. 
+I gave him the five dollars.
 
-I set it up that night. My desktop is quite old \[I use this for older games instead for my new Asus ROG\]. This thing hummed constantly, and took a few minutes to fully boot. I plugged in the device and...nothing happened for a moment, no driver prompt, no install wizard, no autoplay window, no sign at all that something was plugged in. Then the monitor flickered, and a program opened. 
+I set it up that night. My desktop is quite old \[I use this for older games instead for my new Asus ROG\]. This thing hummed constantly, and took a few minutes to fully boot. I plugged in the device and...nothing happened for a moment, no driver prompt, no install wizard, no autoplay window, no sign at all that something was plugged in. Then the monitor flickered, and a program opened.
 
-It did not have a title screen, no logo or menu options; I was dropped straight into the world. 
+It did not have a title screen, no logo or menu options; I was dropped straight into the world.
 
-It loaded into what looked like a small town, the kind that's near a gas pump on the highway, one you'd pass by without stopping. I could see a main street, some residential blocks, a park with a bandstand, a diner with its lights on, and a convenience store.The graphics were a little weird but right up my alley: a little bit of photorealism mixed with a little bit of pixel art, lots of muted colors. The sky was overcast, that particular flat grey of an afternoon its about to rain. Leaves moved on the trees. 
+It loaded into what looked like a small town, the kind that's near a gas pump on the highway, one you'd pass by without stopping. I could see a main street, some residential blocks, a park with a bandstand, a diner with its lights on, and a convenience store.The graphics were a little weird but right up my alley: a little bit of photorealism mixed with a little bit of pixel art, lots of muted colors. The sky was overcast, that particular flat grey of an afternoon its about to rain. Leaves moved on the trees.
 
-I straightaway noticed that there was no UI: health bar, minimaps, objectives, settings, none of it. The only thing that *did* happen was when you went near another player, a text box popped up to type and communicate with them. 
+I straightaway noticed that there was no UI: health bar, minimaps, objectives, settings, none of it. The only thing that *did* happen was when you went near another player, a text box popped up to type and communicate with them.
 
-Before I went up to another player, I explored the town for an hour, I found nothing unusual. Phillip had mentioned puzzles, but I found no interactions with objects that triggered anything. 
+Before I went up to another player, I explored the town for an hour, I found nothing unusual. Phillip had mentioned puzzles, but I found no interactions with objects that triggered anything.
 
 I found a player near the park, a figure standing by the bike stand facing away from me. As I approached them, their ID floated over their head, *GarrettD*. \[May be I should have chosen a more normal ID, mine is *ForSale69*\]. They slowly turned, and I typed in *hey* in the text chat bar.
 
 A long pause, then: *hey.*
 
-We had a halting conversation, asked where we'd spawned in, whether we'd found any objectives yet. I learned *GarrettD* has been playing for way longer than I have. The response times were slow, I assumed a lag. 
+We had a halting conversation, asked where we'd spawned in, whether we'd found any objectives yet. I learned *GarrettD* has been playing for way longer than I have. The response times were slow, I assumed a lag.
 
-I had plans with friends that evening so I tried to save and log out, but I realized there was no option for that: no saves, no leave, if I closed the window the program kept running in the background. I was getting late, I didn't pay much attention to it and left to drink with my friends while leaving my desktop on. I figured I will spend more time understanding what the game *actually is* the next day. 
+I had plans with friends that evening so I tried to save and log out, but I realized there was no option for that: no saves, no leave, if I closed the window the program kept running in the background. I was getting late, I didn't pay much attention to it and left to drink with my friends while leaving my desktop on. I figured I will spend more time understanding what the game *actually is* the next day.
 
-I kept coming back to it. 
+I kept coming back to it.
 
 The first week was just curiosity, I wanted to explore the environment and map as much as I could until the 'newness' feeling faded. I'd load in, explore, bump into the same handful of players: *GarrettD*, a user called *Mel\_Finley*, one called *77Haines*, and we all walked around together trying to find the edges of the map. There really didn't seem to be any, the town just kept on going, streets kept appearing, I started wondering if the same elements were being random-generated.
 
-What I noticed first, and brushed off, was that the group of players I was hanging out with were always there. They weren't bots, and every single time I loaded in, I found them in familiar locations. I'd assumed online games had populations that fluctuated, but these 4-6 usernames were always present. May be they were just enthusiasts, I was also playing several hours a day, maybe they were too. 
+What I noticed first, and brushed off, was that the group of players I was hanging out with were always there. They weren't bots, and every single time I loaded in, I found them in familiar locations. I'd assumed online games had populations that fluctuated, but these 4-6 usernames were always present. May be they were just enthusiasts, I was also playing several hours a day, maybe they were too.
 
 I also started noticing the user IDs. It wasn't just *GarrettD* who had a normal real-life name, it was the others too. No Xx, random words sprinkled, funny lewd ones. None of that. *77Haines* had numbers but it felt like the birth year or something. I mentioned this to *Mel\_Finley*, I typed: *your name doesnt sound like a gamertag*
 
@@ -52,15 +52,15 @@ Another long pause, longer than lag would explain
 
 *i dont know honestly. a while.*
 
-By the second week, I had started to look forward to it in a way that felt slightly pathetic, I was leaving for college in three weeks and I was spending my evenings walking around a virtual town making small talk with strangers. But there was something genuinely pleasant about it. The four or five of us had developed a kind of loose companionship. We had routes we walked, spots we gathered at. Nobody had found any puzzles or objectives and at some point we'd collectively stopped looking. 
+By the second week, I had started to look forward to it in a way that felt slightly pathetic, I was leaving for college in three weeks and I was spending my evenings walking around a virtual town making small talk with strangers. But there was something genuinely pleasant about it. The four or five of us had developed a kind of loose companionship. We had routes we walked, spots we gathered at. Nobody had found any puzzles or objectives and at some point we'd collectively stopped looking.
 
-One night, *GarrettD* said: *do you know how to get out* 
+One night, *GarrettD* said: *do you know how to get out*
 
 I assumed he meant the map. I said: *Ive tried going north past the cemetery but there's always more road*
 
 He said: *no*
 
-A pause. 
+A pause.
 
 *I mean out*
 
@@ -68,17 +68,17 @@ I stared at the screen for a moment, Then I typed: *out of the game?*
 
 *yeah*
 
-I told him you might just need to unplug the entire computer. That's when I realized I'd not turned off my desktop for two weeks by then. No wonder it was running weird and hot. 
+I told him you might just need to unplug the entire computer. That's when I realized I'd not turned off my desktop for two weeks by then. No wonder it was running weird and hot.
 
 He said: *ive tried that*
 
 I assumed he was joking, or that it was part of some ARG element I hadn't decoded yet. I said something like *lol fair enough* and changed the subject.
 
-But I thought about it later, laying in bed. *ive tried that*. Present tense, like he was still trying. 
+But I thought about it later, laying in bed. *ive tried that*. Present tense, like he was still trying.
 
-The thing that broke the spell happened in week three. 
+The thing that broke the spell happened in week three.
 
-I was sitting with *77Haines* in the park, and I was asking him about the game, how he'd gotten his cope, where he'd found it. He said something I'd been nudging toward asking for a while: I asked where he was from. 
+I was sitting with *77Haines* in the park, and I was asking him about the game, how he'd gotten his cope, where he'd found it. He said something I'd been nudging toward asking for a while: I asked where he was from.
 
 He typed: *meridian falls*
 
@@ -86,13 +86,13 @@ I'd never heard of it, I asked him where that is.
 
 He said, *ohio about 40 mins from columbus, why?*
 
-I said: *just curious, im from upstate ny* 
+I said: *just curious, im from upstate ny*
 
 He said: *i know it's weird to say this. i havent talked to anyway from outside in a while*
 
 I let that sentence sink in. *what do u mean outside?*
 
-He didn't asked. He just stood there in the park, very still. I took out my phone that night on the bed and typed 'Haines Meridian Falls Ohio*'.* 
+He didn't asked. He just stood there in the park, very still. I took out my phone that night on the bed and typed 'Haines Meridian Falls Ohio\*'.\*
 
 The second result was a Facebook post from 2021. A woman asking if anyone had seen her husband, Dale Haines, 47, last seen leaving a place called GameVault in Meridian Falls. The post had seventy-three comments. Most of them were the helpless kind, the *thinking of you* and *sharing this* comments that accumulate under missing persons posts. His profile photo was a man in a Bengals shirt standing in a backyard. He had an easy, wide smile.
 
@@ -166,7 +166,7 @@ I said: *im so sorry. I was trying to test something*
 
 She said: *it went dark*
 
-My dread felt real, I could not ignore it anymore. 
+My dread felt real, I could not ignore it anymore.
 
 She said: *some of the others got confused. they're having a hard time*
 
@@ -180,8 +180,8 @@ GameVault's owner was named Robert Pruett. He appeared briefly in a 2023 local n
 
 I don't know who built the device or how it works or whether there are others. I think about that a lot, *whether there are others.* Twelve GameVault locations. Eight or nine documented disappearances. The math does not work out in a way I can sit with comfortably.
 
-What I know is this: I am nineteen years old, I live at home, and somewhere in a box on my desk, seven people are walking around a town in permanent afternoon. 
+What I know is this: I am nineteen years old, I live at home, and somewhere in a box on my desk, seven people are walking around a town in permanent afternoon.
 
 I'm writing this now because I don't know what else to do. What do I do? Why am I here? I think I am responsible for something, but what is it?
 
-I saw a new player today, confused. Moving like someone just woke up in a strange place. Something new happened: *Mel\_Finley* went up to them and typed: *hey, i know this is disorienting. but i need you to tell me your name.* 
+I saw a new player today, confused. Moving like someone just woke up in a strange place. Something new happened: *Mel\_Finley* went up to them and typed: *hey, i know this is disorienting. but i need you to tell me your name.*
