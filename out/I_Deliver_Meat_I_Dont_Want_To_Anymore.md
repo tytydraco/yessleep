@@ -314,4 +314,4 @@ I’ve got seventeen stitches in my back, all holding together the massive lacer
 
 I know that’s bullshit, though. Because it’s a quarter til nine, and I know that somewhere out there, a box of meat is being sent through the mail. And another. And another. I know one of those boxes will be delivered to that doorstep in a few hours, and if it isn’t, that *thing* will take matters into its own hands. 
 
-I can’t let that happen. Not again. 
+I can’t let that happen. [Not again. ](https://www.reddit.com/r/nosleep/comments/1ruo3b5/i_used_to_deliver_meat_now_im_delivering_answers/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
