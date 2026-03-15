@@ -196,6 +196,7 @@ Not dead yet, but almost. Like the house was pulling his strings, his hand rose 
 
 “Welcome home, Edie," said Seb. Said the house. 
 
-
-
 Okay, I need a moment. More later.
+
+  
+[PART 3: Sound has a body](https://www.reddit.com/r/nosleep/comments/1rucy7e/my_dead_husband_built_me_a_house_then_it_started/)
