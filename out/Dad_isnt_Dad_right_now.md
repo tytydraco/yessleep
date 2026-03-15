@@ -206,7 +206,7 @@ It fell over with a hard, heavy thud, claws scraping my cheek and my forehead, b
 
 I couldn't hear what the officer was saying, over his radio or when he knelt down to me, leading me to his car.
 
-*Bear Loose in Residential Neighborhood Kills Three People, One Police. Bear Shot Dead on Scene by Sheriff.*
+*Bear Loose in Local Neighborhood Kills Two Residents, One Police. Shot Dead on Scene by Sheriff.*
 
 That's what the story was. What everyone heard and winced at and passed on to their shocked friends. It had to be a bear. Anything more just wasn't possible, they said. I only saw it, lived it, killed it myself, bear the scars from it... But I was 9. I was traumatized. What did I know?
 
@@ -220,6 +220,6 @@ The sheriff knew. Or even if he didn't know, he saw. Who knows what he thought i
 
 I never wanted it said that my Dad was some... monster. He wasn't.
 
-That wasn't his fault. That wasn't him.
+That wasn't his fault. That wasn't him. It's whatever he brought back with him that killed them both.
 
 I know that, and I carry that with me everywhere I go.
