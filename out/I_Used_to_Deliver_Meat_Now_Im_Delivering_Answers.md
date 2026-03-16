@@ -412,6 +412,6 @@ I sat up as much as the stiff stitches would allow.
 
 He chuckled a little, half-hearted, and told me about May’s sister. 
 
-And that’s where I sit, writing this. A few states away, in my truck outside a small, blue house. Tuesday is in my lap, and Hunter went in not too long ago, clutching a broken photo frame with a look of determination in his eyes. I’ll go in eventually, and I’ll talk to her with him. But I figured he needed the moment alone first. 
+And that’s where I sit, writing this. A few states away, in my truck outside a small, blue house. California Dreamin’ is playing quietly on the radio. Tuesday is in my lap, and Hunter went in not too long ago, clutching a broken photo frame with a look of determination in his eyes. I’ll go in eventually, and I’ll talk to her with him. But I figured he needed the moment alone first. 
 
-For now, I’m content to sit here with a little dog, watching all the ice and snow melt in the early spring sun. 
+For now, I’m content to sit here with a little dog, watching all the ice and snow melt in the early spring sun.
