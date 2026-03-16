@@ -371,3 +371,5 @@ Lacey nodded gravely. So did Carly.
 Bryce was doing the same, but he quickly pulled his gaze back forward, possibly to keep himself from changing his mind. “Yeah… let’s go get Casey.”
 
 Together, we split off into our vehicles, then fanned out across town, rushing to grab supplies and get back to the Red Manor before the next hour struck.
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1ruvdlb/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_buttonhttps://www.reddit.com/r/nosleep/comments/1ruvdlb/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
