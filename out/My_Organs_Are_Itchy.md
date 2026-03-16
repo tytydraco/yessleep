@@ -4,7 +4,7 @@ I remember I was clocking off of work when it started, a slight discomfort back 
 
 The next day the itch came again, stronger but bearable. The lingering feeling was on the back of my mind, and in between busy moments of work I would twist and turn, trying to get rid of that itch. Despite my efforts, it stayed persistent. When I got home that night, I had trouble sleeping - closing my eyes seemed to amplify the feeling. I don’t remember when I drifted off.
 
-On the third day, it became so bad I felt chills running down my legs. The moment I woke up, I found myself twitching erratically into strange positions to try and get rid of the itch. I even tried pinching, grabbing my skin in handfuls and stretching it around, and punching and slapping myself. Weirdly, I swore I felt something move, but no matter what I did, it just wouldn’t go away. 
+On the third day, it became so bad I felt chills running down my legs. The moment I woke up, I found myself twitching erratically into strange positions to try and get rid of the itch. I even tried pinching, grabbing my skin in handfuls and stretching it around, and punching and slapping myself. Weirdly, I swore I felt something move, but no matter what I did, it just wouldn’t go away.
 
 I decided I needed to go to the doctor to check this out.  I called in sick to work and called my family doctor, who agreed this was a peculiar situation. After asking me a series of further questions, in which the entire time I was bouncing on my feet, she told me to schedule in for an ultrasound.
 
@@ -18,7 +18,7 @@ After waiting through an excruciating afternoon, it was finally time to leave. I
 
 When I arrived at the hospital, I was greeted by a doctor who led me to a room where I was to be changed into a gown, and then into the ultrasound room.
 
-The doctor rolled up my gown, using a towel to cover my groin, and put the cool device down onto my body. I could feel the gel spreading as she pressed towards the area of interest which I informed her of moments before. 
+The doctor rolled up my gown, using a towel to cover my groin, and put the cool device down onto my body. I could feel the gel spreading as she pressed towards the area of interest which I informed her of moments before.
 
 She moved the device back and forth around the area, and then suddenly went still.
 
@@ -42,7 +42,7 @@ I started thrashing and writhing on my bed. My doctor yelled something and other
 
 After they assessed me and the ultrasound, they put me to sleep.
 
-I woke up in a hospital bed. Still groggy from the anesthesia, looking around for a doctor while I tried to recall my memories.
+I woke up in a hospital bed. Still groggy from the anesthesia, I looked around for a doctor while I tried to recall my memories.
 
 That’s right. They had operated on me while I was asleep.
 
