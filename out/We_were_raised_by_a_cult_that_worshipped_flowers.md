@@ -4,7 +4,7 @@ To say we were raised is honestly a stretch. We weren't humans to them. We were 
 As children, we were ignorant of that fact.
 
 
-The people that held us captive weren’t your typical cult; they were a simple, anachronistic group. Their sole reason for living, their raison d’être, was to serve Mother Flora. Her name was only ever uttered to us second-hand from the cult members' hushed prayers
+The people that held us captive weren’t your typical cult; they were a simple, anachronistic group. Their sole reason for living, their raison d’être, was to serve Mother Flora. Her name was only ever uttered to us second-hand from the cult members' hushed prayers.
 
 
 Our interactions with them were cold and detached, with no semblance of warmth nor any disdain; they only communicated with us when necessary, like when they'd take us down to the basement to visit her.
@@ -223,7 +223,7 @@ He was right. I wanted to watch the flowers alone, but I did have a valid reason
 “I’m not going to be there for long. I'm just checking and coming back. I’m not going to open the door. I promise,” I said curtly, trying to sound resolute.
 
 
-“I’ll watch your back. I'll be quiet.” he pleaded desperately.
+“I’ll watch your back. I'll be quiet,” he pleaded desperately.
 
 
 “It’s too risky for both of us to go; someone needs to stay with them,” I gestured to the rest of our group.
@@ -337,10 +337,10 @@ Back in our room, our faces were white with shock. The punishment we had witness
 Their bodies trembled with apprehension as we surfed quietly through the darkness. They held on to me while I led them through the oppressive black. They were so scared and I was the brave fool leading them. 
 
 
-“It’s so dark I can’t even see my feet.” Jimmy murmured
+“It’s so dark I can’t even see my feet,” Jimmy murmured.
 
 
-“We’re almost at the bottom of the stairs, relax” I said trying to hush them. 
+“We’re almost at the bottom of the stairs. Relax,” I said trying to hush them. 
 
 
 We finally reached the threshold of the stairs where the moonlight swarmed and caused the darkness to be abated. I approached the door just like before, reverent in my pace but this time I took a moment to focus on my reflection. Under the moonlight my skin looked pale. My breathing was labored not out of exhaustion but out of anticipation. We were so close just one more step. 
