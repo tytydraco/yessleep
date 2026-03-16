@@ -2,7 +2,8 @@
 
 I haven’t slept for three days. The damn thing hasn’t let me. That simulation left something vile living in my mind.
 
-Humanoid bats still fly and screech across my walls. My oven runs hotter than I set it.  
+Humanoid bats still fly and screech across my walls. My oven runs hotter than I set it.
+
 Worst of all, when I close my eyes, I still see that horrible ghoul breathing onto my face.
 
 I still feel what his air did to me. I became afraid of breathing itself. I tried holding my breath, but instinct always won.
