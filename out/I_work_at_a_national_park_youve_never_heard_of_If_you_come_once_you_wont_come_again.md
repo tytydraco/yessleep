@@ -293,3 +293,5 @@ I lowered my phone. Still, the chimes of a ringtone were audible. Sure enough, w
 *Visitors never come back.* 
 
 *But what if some never* [even leave?](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)
+
+[Keep reading](https://www.reddit.com/r/nosleep/s/dNjSQnGYm1)
