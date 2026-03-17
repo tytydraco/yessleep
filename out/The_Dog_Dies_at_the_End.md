@@ -26,7 +26,7 @@ That morning my decent neighbor came by to give his condolences. I asked what fo
 
 "What are you talking about?" I asked, mind unable to fully process what he was telling me.
 
-Your dog, dude, was lain out on the road when I took out my trash. Fuckin' awful scene. You gotta be more careful with doors, little suckers will bolt the second they get the chance. Shame too. He seemed like such a good boy." He wished me a better day before going back to his place. I ran outside to see for myself, but was only met with a dried puddle of blood. Any body, if there really had been one, was nowhere to be seen.
+"Your dog, dude, was lain out on the road when I took out my trash. Fuckin' awful scene. You gotta be more careful with doors, little suckers will bolt the second they get the chance. Shame too. He seemed like such a good boy." He wished me a better day before going back to his place. I ran outside to see for myself, but was only met with a dried puddle of blood. Any body, if there really had been one, was nowhere to be seen.
 
 It's been a few weeks now. I swear I've heard barking in the middle of the night, but I don't know where it's coming from. It finally got too much and I decided to break my lease and crash at a friend's place until I could get enough money to get a better apartment somewhere way far from here. My neighbor caught me in the hall as I was moving my stuff to my buddy's car. He had a dog in his arms, like a Pomeranian or something. We made some small talk. He told me he found the dog behind the apartment building. Felt bad for the mutt and brought him inside.
 
