@@ -1,6 +1,6 @@
 **>>3.4.2026 2:03pm**
 
-I’m not on Reddit much, but I’ve got a dumb assignment for class and it has to be posted online to count. I’m required to keep a live journal for a week to pass my JOU101 class. It can be about anything, just has to be written in my voice and record stuff happening in my life to compare my personal writing style at the beginning of the semester versus the end. It kinda feels like a waste of time, but when I remember my professor is going to have to read like seventy journals about the stupid lives of broke college students, I figure I’m getting the better end of the deal.
+I’m not on Reddit much, but I’ve got a dumb assignment for class and it has to be posted online to count. I’m required to keep a live journal to pass my JOU101 class. It can be about anything, just has to be written in my voice and record stuff happening in my life to compare my personal writing style at the beginning of the semester versus the end. It kinda feels like a waste of time, but when I remember my professor is going to have to read like seventy journals about the stupid lives of broke college students, I figure I’m getting the better end of the deal.
 
 Here’s to passing this class, hopefully.
 
@@ -85,7 +85,7 @@ Once Jamierr n Jimmuy got off,, too we all went out for cheaap drinks n I toldre
 I roffrflled my eyes, but conld’t argue with thwwem. We joked about theiiiorories late into, but there was mrgrore ferrrrrrrrrrar behind what we said than any of us wanegted to admit….  
  K goning 2 sleep nowwwwwwwwwwwwwweeeeeeeeeeeeeeeeeeerrrrrrrrrrrrrrrrrrrrrrrr.
 
-\-LIzzA  
+\-LIzzA
 
 **>>3.10.2026**
 
@@ -96,4 +96,3 @@ Hangovers suck. Sorry about my drunk log from the other night, not my best momen
 If you know *anything* about it, please contact me:
 
 [\_\_\_\_\_\_\_safe photo\_\_\_\_\_\_\_\_](https://imgur.com/gallery/safe-0vtJeMs#GsenI05)
-
