@@ -98,9 +98,9 @@ Everyone else was gone before I ever saw them, but somehow Jammie and I knew he 
 
 Jimmy rose and tried to make himself look big. He puffed out his chest and said, “Fuck you, Murray. I’m staying the fuck here until the fucking police get here or I fucking kick your fucking teeth in.” Jimmy had a way with words, and I think him staying saved Jamie’s life. 
 
-Murray left the bathroom and we followed him. He was dangerous, and hopefully dangerous enough to protect us from whatever else was going on in the store. 
+Murray left the bathroom carrying the dead body in his arms and we followed him, afraid of what he'd do to us if we didn't.
 
-“It’s not our practice to conduct collections crassly," he said, eyeing us. “But it’s come to my attention that there is unrest amongst our employees.” He stopped at the safe and looked at the three of us again, this time with a misty sparkle in his eye. “Do you want to know what’s inside,” he invited. 
+“It’s not our practice to conduct collections this way," he said, eyeing the corpse in his arms. “But it’s come to my attention that there is unrest amongst our employees.” He stopped at the safe, leaned the body on the floor against the wall, and looked at the three of us again, this time with a misty sparkle in his eye. “Do you want to know what’s inside,” he invited. 
 
 Jimmy and Jammie instinctively moved back but I stepped forward. I did not believe. But I would. 
 
@@ -110,7 +110,7 @@ It was empty. 
 
 “It-it’s empty,” I said dumbly. 
 
-“Momentarily,” Murray said before he suddenly jerked Jimmy towards himself. We all screamed. He was going to throw Jimmy in the safe. I wish he had thrown Jimmy in the safe. 
+“Momentarily,” Murray said before looking at the corpse, then at Jimmy, and suddenly jerking Jimmy towards himself. "Fresh is always better," Murray said. We all screamed. He was going to throw Jimmy in the safe. I wish he had thrown Jimmy in the safe. 
 
 Murray then peeled himself open, I don’t know how else to say it. He just tore his skin off like it was a rotten fruit or something. The Murray creature, started to, to, fuck, he started to *digest* Jimmy. Its mouth peeled down from itself and squeezed Jimmy. God, he squeezed Jimmy until his eyes popped out. Did you know that could happen to people? The way he screamed when the thing absorbed him into himself was unlike any noise I’ve ever, and hopefully will ever, hear again. When the thing had finished its meal, we, I-I was just glad Jimmy was finally dead. He shouldn’t have suffered like that. 
 
@@ -138,6 +138,6 @@ I don't think I can submit this for class anymore, but it turns out there was so
 
 I debated if I should even post this here, but I know Jimmy would’ve wanted me to. I know, right? But he was such a slasher fan. I can hear his voice in my head saying, “Dude! If some monster offs me you HAVE to write that shit down so they can make it into a movie one day!” 
 
-I still hear his voice when my thumb brushes the tip of the golden key in my pocket. It’s not Jimmy in there, right? 
+I still hear his voice whenever my thumb brushes the tip of the golden key in my pocket. It’s not Jimmy in there, right? 
 
 \-Lisa
