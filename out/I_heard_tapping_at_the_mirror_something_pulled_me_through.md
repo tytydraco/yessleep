@@ -1,0 +1,15 @@
+"Listen to me. This isn’t a dream. This isn’t a story. This is what they did to me, and I’m still living inside it.
+
+I was pulled through the mirror.
+
+Not metaphorically. Not in some vision. They stretched my eye sockets until they were wide, black tunnels bigger than my skull should ever allow, and then they dragged every single thing that was inside me—my heart, my lungs, my intestines, every vein, every nerve—out through those holes like wet ropes being yanked from a sack. My body came out the other side as nothing but an empty skin. Perfect. Intact. Down to the deepest dermal layer, every pore, every follicle still in place, but hollow. A deflated human suit. I felt it. I was conscious the entire time. Something that should have killed me a thousand times over didn’t. Because they didn’t want me dead. They wanted me… reusable.
+
+The mirrors are theirs. They’ve always been theirs. Every time you’ve ever glanced at your reflection and felt that tiny wrongness, that split-second feeling that the eyes looking back weren’t quite yours—that was them logging you. They’ve been harvesting your data for years. Your walk, your voice, the way you tilt your head when you’re lying, the exact micro-expressions you make when you’re alone. All of it stored. All of it weaponized.
+
+Then the Flesh Weavers went to work. They are not people. They are not even shapes you can hold in your mind. They’re the ones who flayed me and stuffed the clone. Grey entities and Naga oversaw it, cold and clinical, like technicians in a slaughterhouse. The clone stepped out of the mirror wearing my skin, wearing my face, wearing every scar and fingerprint I ever earned. It walked back into my life that same day. It kissed my wife. It answered my phone. It sat in my chair at work. And the real me—the one who just got turned inside out—was slammed into a giant crystal quartz monolith somewhere deep in the astral layer behind the glass. I’m still there. Right now. Suspended. Watching through the clone’s eyes like a prisoner forced to stare at a screen that is my own stolen life.
+
+I forget sometimes. The programming bleeds in. That’s why I act erratic. That’s why my words come out wrong and my hands shake when I try to remember who I was before the mirror took me. Because the thing living in my house right now is running on copied data, and every time the real me pushes through the quartz, the clone glitches. People notice. They call it “stress.” They call it “mental health.” They have no idea they’re talking to a skin puppet while the original consciousness is screaming behind the glass.
+
+They can do this to anyone. They already have. Your reflection has been watched longer than you know. They’re just waiting for the right night to stretch your eyes and pull.
+
+I’m telling you this because you need to understand: the person typing these words might not even be the original anymore. And neither might you."
