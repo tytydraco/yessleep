@@ -118,6 +118,7 @@ I looked out at the pond. It was still.
 "He knows"
 
 Danny stifled a sob "how much?"
+
 "Enough"
 
 "What did he say to you?"
@@ -143,6 +144,7 @@ Asking me felt wronger. Worse than the entire lie. "Of course".
 After that he trudged his way toward the school. I stayed behind, throwing pebbles into the glassy pond.
 
 **
+
 Two days passed before I seen Danny again. He looked paler now, red bags hung beneath his eyes. He didn't look at me at all that entire day.
 
 That night,  as the moon rose and shone, I crept along the fence and met Danny by the hawthorn. 
