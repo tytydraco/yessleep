@@ -212,4 +212,4 @@ I called Paul. "Hey, man. I need a place to crash for a while."
 
 "I don't even wanna talk about it."
 
-I took one final look at the house. The light in the bedroom window had turned [off.](https://www.reddit.com/user/EmmaWatsonButDumber/)
+I took one final look at the house. The light in the bedroom window had turned [off.](https://www.reddit.com/user/EmmaWatsonButDumber/comments/1eevj6b/full_story_list_with_links/)
