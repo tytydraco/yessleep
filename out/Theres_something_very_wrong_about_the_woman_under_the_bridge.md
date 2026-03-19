@@ -96,13 +96,9 @@ A tall man lay twitching on the damp ground. I pointed my phone torch at him. He
 
 Gun in his hand.
 
-If she hadn’t warned me...
+If she hadn’t warned me, I would've been dead.
 
-I would've been dead.
-
-As I looked into his eyes, the realization dawned on me.
-
-This was him - the one using her, making her sit there, day after day, pulling people in. When she looked at me like that, she hadn’t been begging. She’d been trying to warn me... and he must've found out about the note.
+As I looked into his eyes, the realization dawned on me. This was him - the one using her, making her sit there, day after day, pulling people in. When she looked at me like that, she hadn’t been begging. She’d been trying to warn me... and he must've found out about the note.
 
 I felt sick. Rage flooded in so fast it drowned everything else.
 
@@ -110,7 +106,7 @@ I aimed at his head and fired.
 
 He stopped moving instantly, but I fired again. And again. I lost count - each shot was louder than the last, splitting through the silence in the dark. I kept firing after it stopped being self defence, consequences be damned.
 
-It took me a few seconds to catch my breath after the last shot. Then I rushed back into the water.
+It took me a few seconds to catch my breath after the last shot. Then I rushed back towards the water.
 
 By the time I got back to her, she wasn’t responsive.
 
