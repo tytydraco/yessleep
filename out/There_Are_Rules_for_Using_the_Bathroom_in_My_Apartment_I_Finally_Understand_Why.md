@@ -101,3 +101,5 @@ A minute later, someone knocked on the door, but didn’t say anything. I guesse
 It’s been half an hour, and I’m still here, frozen, while someone keeps knocking on the door.
 
 I don’t know if I should open it.
+
+[\[Part 2\]](https://www.reddit.com/r/nosleep/s/6VeNzk8Bl0)
