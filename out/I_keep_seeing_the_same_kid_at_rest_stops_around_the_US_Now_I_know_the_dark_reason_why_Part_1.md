@@ -199,4 +199,6 @@ Mikey didn’t answer. “You’d already passed out once they touched you, whic
 
 Mikey didn’t respond. He just stared at the horizon. “Let’s go somewhere down South. Somewhere warmer.” 
 
-*Ok. I’m totally spent, and I need all the energy I can muster to tackle the rest of this story, particularly as it relates to the Gumbys. I’ll finish it within the week.*    
+*Ok. I’m totally spent, and I need all the energy I can muster to tackle the rest of this story, particularly as it relates to the Gumbys. I’ll finish it within the week.*   
+
+Edit: Second and final part is [here](https://www.reddit.com/r/nosleep/comments/1rxjljx/i_keep_seeing_the_same_kid_at_rest_stops_around/). 
