@@ -1,8 +1,8 @@
-\[[Part 1](https://www.reddit.com/r/nosleep/comments/1rwosp9/my_manager_keeps_telling_me_not_to_worry/)\]  
-  
+\[[Part 1](https://www.reddit.com/r/nosleep/comments/1rwosp9/my_manager_keeps_telling_me_not_to_worry/)\]
+
 Yesterday Dale called at 4 PM, which was alarming for several reasons, not the least of which being that Dale does not have my phone number. I know this with certainty because when I applied at EverSafe Self-Storage Solutions, the entire paperwork consisted of a single-page form that asked for my first name, my availability, and whether I had "any prior experience with nocturnal environments," which I took as a strange way of asking whether I had worked the night shift before. There was no field for a phone number. In fact, they didn’t ask for my address, my social security number or anything else that would render me, well, identifiable. There was, however, a box that asked me to list "any recurring dreams," which I left blank because I didn't have any. Not at the time.
 
-The other reason the call was alarming is that Dale and I do not exist to each other outside of EverSafe. Our relationship is entirely contained within the property line, like an ecosystem that can't survive outside its biome. I have never seen Dale at a grocery store or a gas station or anywhere that normal people go to do normal things. I have no evidence that Dale goes home at the end of the day. For all I know, he ceases to exist once his shift ends, and pops back into the universe the next morning.
+The other reason the call was alarming is that Dale and I do not exist to each other outside of EverSafe. Our relationship is entirely contained within the property line, like an ecosystem that can't survive outside its biome. I have never seen Dale at a grocery store or a gas station or anywhere that normal people go to do normal things. I have no evidence that Dale goes home at the end of the day. For all I know, he drives around the corner and ceases to exist once his shift ends, and pops back into the universe the next morning.
 
 "Owen," he said when I picked up. Same tone he uses for everything. "I need you to come in early tonight."
 
@@ -18,7 +18,7 @@ The other reason the call was alarming is that Dale and I do not exist to each o
 
 "We're doing an inventory," Dale said. "It’s urgent."
 
-In seven months, no one at EverSafe has ever mentioned an inventory. The concept itself is borderline absurd. We don't own what's in the units. We rent empty rooms to people who fill them with their own possessions. Taking inventory of our actual property would take roughly ten minutes and would yield the following: one desk, one phone, one radio, sixteen cameras, one logbook, one laminated protocol sheet, one ancient mini-fridge containing a container of creamer that could be carbon-dated to the Clinton administration. And roughly four hundred corrugated metal doors behind which I am contractually and spiritually obligated not to look.
+In seven months, no one at EverSafe has ever mentioned an inventory. The concept itself is borderline absurd. We don't own what's in the units. We rent empty rooms to people who fill them with their own possessions. Taking inventory of our actual property would take roughly ten minutes and would yield the following: one desk, one phone, one radio, sixteen cameras, one logbook, one laminated protocol sheet, one ancient mini-fridge containing a can of creamer that could be carbon-dated to the Clinton administration. And roughly four hundred corrugated metal doors behind which I am contractually and spiritually obligated not to look.
 
 "What exactly are we inventorying?" I asked cautiously.
 
@@ -100,7 +100,7 @@ I could feel the mundanity settling over us like a warm blanket, and for a momen
 
 I nearly laughed. "Trust me, this is about the most normal thing I’ve ever done for EverSafe Self-Storage Solutions."
 
-Maren nodded, oddly pensive. “My job interview didn't go very well,” she explained. “The whole time I was pretty sure Dale wouldn't hire me. But then I mentioned my criminal record, and suddenly he seemed really enthusiastic. Like, Dale-levels of enthusiastic, meaning that he smiled ever so slightly.”
+Maren nodded, oddly pensive. “You know, my job interview didn't go very well,” she explained. “The whole time I was pretty sure Dale wouldn't hire me. But then I mentioned my criminal record, and suddenly he seemed really enthusiastic. Like, Dale-levels of enthusiastic, meaning that he smiled ever so slightly.”
 
 "Criminal record?" I asked cautiously.
 
@@ -108,7 +108,7 @@ Maren nodded, oddly pensive. “My job interview didn't go very well,” she exp
 
 "The regular stuff is not doing crimes."
 
-"You’d be surprised,” she said, letting the tape measure snap back with a loud crack that echoed through the hallway. “Let’s continue to the next building.”
+"You’d be surprised,” she said, letting the tape measure snap back with a loud quip that echoed through the hallway. “Let’s continue to the next building.”
 
  
 
@@ -246,7 +246,7 @@ I paused.
 
 "I was across the road. I saw Dale with the measuring tape, waiting for you to arrive."
 
-"You watch the facility from across the road."
+"You watch the facility from across the road?"
 
 "I keep an eye on things." He said this without defensiveness. The way you might say *I water the plants* or *I take the dog out.* Routine maintenance. "Was everything steady?"
 
@@ -256,11 +256,11 @@ I hesitated. The protocols said nothing about sharing facility information with 
 
 Terry nodded. He didn't ask which hallway, or by how much, or what "off" meant. He just nodded the way a mechanic nods when you describe the noise your engine makes – already knowing the diagnosis, already mentally pulling apart the machine.
 
-"Owen," he said, "has anyone new started working there?"
+"Owen," he said, "what do you think about the new hire? That girl with the dark hair?"
 
 "Why?"
 
-"Just a feeling. The place feels different today. A little more... attentive. New people do that sometimes. New eyes. New attention." He put his hands deeper into his pockets. "If someone new is around, tell them to be careful."
+"Just a feeling. The place feels different today. A little more... attentive. New people do that sometimes. New eyes. New attention." He put his hands deeper into his pockets. "Tell her to be careful."
 
 "She is careful. No need to tell her. She has a kind of worldliness that I envy.”
 
@@ -360,9 +360,9 @@ The app loaded. It buffered for a while – Silt Creek's cell towers operate wit
 
 Maren's face stared back at me from the screen.
 
-It was unmistakably her. Same short dark hair. Same expression of vaguely amused fatalism. Her profile picture appeared to have been taken in the front seat of what I recognized as the green Honda Civic, and she was holding up a taxidermied squirrel dressed in a tiny cowboy hat. I could not determine whether this was a prop, a pet, or a statement of intent, and I was not entirely sure it mattered.
+It was unmistakably her. Same short dark hair. Same expression of vaguely amused fatalism. Her profile picture appeared to have been taken at a cemetery, and she was holding up a taxidermied squirrel dressed in a tiny cowboy hat. I could not determine whether this was a prop, a pet, or a statement of intent, and I was not entirely sure it mattered.
 
-A second photo showed her standing on what appeared to be the roof of an abandoned building at sunset, arms crossed, wearing a jacket that was too big for her and an expression that suggested the photograph was someone else's idea and she was tolerating it as a favor.
+A second photo showed her standing on a roof of an abandoned building at sunset, arms crossed, wearing a jacket that was too big for her and an expression that suggested the photograph was someone else's idea and she was tolerating it as a favor.
 
 A third photo was just a close-up of a handwritten note that said "I promise I'm fun" – which, as a sales pitch, had the energy of a hostage negotiation, and I respected it immensely.
 
@@ -372,6 +372,8 @@ I stared at the profile for longer than I'd like to admit. Then I swiped left.
 
 This was the correct decision, and I made it for the correct reason: you do not date your coworker. Especially not at a job where the buildings are breathing and the phone must never be answered and your manager communicates primarily through corkboard memos and the weaponized deployment of granola bars.
 
-The screen refreshed. It now said: “No more profiles in your area found.”
+The screen refreshed. It now said: “No more profiles found in your area.”
+
+Ah, well.
 
 I uninstalled the app and listened to the sounds of an empty apartment doing nothing, which is apparently the most active social life Silt Creek has to offer.
