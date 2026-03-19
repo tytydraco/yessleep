@@ -378,6 +378,7 @@ On our way back to the cabin, James decided to debrief the group. “So, you rem
 “And how he had to do kitchen duty for two weeks as punishment?”
 
 “Yeah.”
+
 “And how he said that the back door to the pantry is broken, and nobody has fixed it, and if you had someone strong enough you could lift the door up over the lock?” 
 
 “...yeah?”
