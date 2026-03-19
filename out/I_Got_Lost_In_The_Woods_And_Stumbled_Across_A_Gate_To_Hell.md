@@ -1,10 +1,8 @@
 I’ve been an avid backpacker for a decade and traveled around the world; I hiked the tallest mountains and widest valleys. Every summer, I prepare to backpack the PCT. This trip marked my third attempt at the PCT. It is one of my favorite trips I take every year. I always documented my travels in my notebook; they are usually boring things: sights I’ve seen, things I did that day, and this trip was no different, or so I imagined.  
 
-You bring everything you might need in your pack. You pass through a couple of small towns during the duration of the trail, so usually someone mails supplies to the towns you're going to. Mostly, you carried your whole life on your back. Minimalist travel is my usual approach. I don’t even carry a normal tent, just a tarp and a couple of poles to hold it. I love to just sleep under the stars. It’s the most peaceful thing you could experience. 
+You bring everything you might need in your pack. You pass through a couple of small towns during the duration of the trail, so usually someone mails supplies to the towns you're going to. Mostly, you carried your whole life on your back. Minimalist travel is my usual approach. I don’t even carry a normal tent, just a tarp and a couple of poles to hold it. I love to just sleep under the stars. It’s the most peaceful thing you could experience.
 
 The daily grind was never for me; I felt as though I’ve always been an outsider. My boring office job merely allowed me to afford trips such as this. Every Friday, my coworkers hounded me to go out with them, but I spent my time preparing for my next adventure. After a while, they wore me down, and I accepted their invitation, only to stand in the corner nursing the same warm beer for most of the night. After that, the invitations stopped. Natures where I belonged.
-
-I am uploading my logs from this trip, and if anyone stumbles onto the same entrance that I found, DON’T do the same that I did. 
 
 June 7, 2015
 
@@ -59,10 +57,6 @@ Unfortunately, not-so-great update today. I took a fall and sprained my ankle pr
 Mile 350
 
 Moonlight
-
-  
-  
-
 
 July 16, 2015
 
@@ -146,7 +140,7 @@ I just woke up lying in one booth in the diner. My head is splitting; I think I 
 
 “Now that you're here, you can't exit the same way you came.” Helen told me with an enormous sigh.
 
-She handed me 2 gold coins; they looked old with a strange figure on one side. Flipping the coin over, the other-side was silver, with what looks like the Pantheon building.‌ rough, jagged, edges jutted out around the coin like it had been hand cut. 
+She handed me 2 gold coins; they looked old with a strange figure on one side. Flipping the coin over, the other-side was silver, with what looks like the Pantheon building.‌ rough, jagged, edges jutted out around the coin like it had been hand cut.
 
 “Why are you helping me?” 
 
@@ -175,4 +169,3 @@ Helen shakes her head.
 “The rules are different for the dead; there is no escape for us. But for you, God and the devil created a deal for the living that accidentally wound up here. The door at the bottom of hell is always wide open for you, but that doesn't mean the devil has to make it easy for you.”
 
 I stood up from the table, grabbed my things, and prepared for ‌my longest journey. I gave the gaunt waitress one more look and thanked her one last time. I’ll update once I'm through the first level.
-
