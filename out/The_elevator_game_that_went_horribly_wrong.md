@@ -1,0 +1,21 @@
+It was a cold April rainy night, me and my friend Bailey talked about one of those weird horror myths. “HEY HEY! Bailey look at this.” Bailey looked at me with a confused look and raised an eyebrow, “yeah whats up?” 
+
+she said in a confused tone. “have you ever heard of the elevator game?” she looked at me with an annoyed expression, “no why???” I looked at her dead in the eye and I said “well theres a myth circulating around the internet, you need to go to a random hotel at 3 am SHARP. The second step is you need to press all the buttons and say her name 3 times. You need to close your eyes and say: \`ISADORA, ISADORA, ISADORA.\`then boom! 
+
+Bailey jumped away from me and looked at me with an angry expression 
+
+„DUDE THAT’S NOT FUNNY AT ALL! YOU KNOW IM AFRAID OF THE PARANORMAL.” 
+
+She took a quick pause and looked at me “plus I don’t think you should be messing around with the paranormal, what goes around comes around.” I spat back “OH PLEASE! That’s just some stupid dhar mann saying, we can summon this weird ghost lady tomorrow, you need to come with me, please just this one thing.” Bailey looked away and said “oh no way! Im not going with you stop trying to drag me into some weird psycho stuff!” I sighed “ ok fine, you can wait at the end of the stairs if you are so scared.” 
+
+Bailey looked at me and said “look im tired of all this paranormal stuff, can we just go to bed?” it’s a sunny morning and I planned out the entire plan on how to summon that weird ghost. I called Bailey and I told her “Look at all this! I planned on where we should meet and what we should do when we are at the hotel, you need to trust me on this one, I promise nothing bad will happen to you best friend, just be my bystander.” Bailey glared at me through the camera and said “ ok fine, but this is the last thing got it?” “ SURE DID! 
+
+Just meet me at the parking lot and lets book a random hotel room, they will probably kick us out if we don’t pay for a stupid room or spend a night there.” Bailey nodded “
+
+ok fine, ill meet you there.” 14 hours go by and I decide to call bailey she is 6 minutes late and I was ready to cancel the entire summoning ISADORA plan. My phone rang so loud I picked it up and bailey said “hey I see you im already heading towards you, just stay on the line I don’t want anything crazy to happen to us.” “sure dude, im waiting.” The church bell decides to go off, and that’s our sign to finally summon that ISADORA ghost. We entered the hotel and I stood infront of the elevator, “look if anything happens to us, just remember I will always be by your side; stop stressing out. I beg you.” Bailey shrugs. “ok fine..”  
+
+I entered the elevator and the elevator door started to slowly close I clicked all the buttons and patiently waited for the last door I was standing at the back of the elevator thinking to myself “stupid myth, watch me slowly debunk this.” The elevator door started opening slowly.. my blood ran cold. “what the heck was I seeing?” was the first thing that crossed my mind was that statement, a tall pale woman entered the elevator I couldn’t see her face, her face was covered by her  hair and her dress was soaking wet. 
+
+She had bruises allover her body I couldn’t think straight, her appearance made me spiral and regret all my decisions, why did I put bailey through this? I should’ve listened to her, im an idiot. I thought to myself, all of a sudden that weird woman entered the elevator and started crying I closed my eyes as tears ran down my face. “what the hell have I done? I summoned this weird thing.” As the woman was weeping she opened her mouth and her entire teeth fell out, she was singing a children´s nursery rhyme. I took a deep breath. I glanced at the woman and she looked at me.
+
+I was waiting for my friend in the elevator until she let out a blood curdling scream, a shiver ran down my spine. What the hell was happening there? I stood up and I tooka  glance at the elevator, no one was there. My vision started getting blurry. Until  I felt a hand on my shoulder. To the person who is reading this, I know who you are.
