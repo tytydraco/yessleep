@@ -20,7 +20,7 @@ I could hear a little disappointed in his voice, “Well that’s…” the call
 
 It was Dieter’s slow sinister voice yet again; I froze but he continued, “Hi Charlie, I’m glad to see that you’re on the right path. Keep it up and things might start to look up for you.”
 
-There was no more fear left in more, no more anger left to take its place. I leaned forward onto my desk, “Do your worst. You’ve taken so much from me but if I can do anything, I’ll finish this book. You thought you were “pain from pain” before? Just you fucking wait.”
+There was no more fear left in me, no more anger left to take its place. I leaned forward onto my desk, I felt defeated, “Do your worst. You’ve taken so much from me but if I can do anything, I’ll finish this book. You thought you were “born from pain” before? Just you fucking wait.”
 
 I hung up before he could get another word in and there was a message from Jerry.
 

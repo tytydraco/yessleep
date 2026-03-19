@@ -427,3 +427,5 @@ However, if I suddenly stop writing – if these entries just end one day, no ex
 Do not accept a job at EverSafe Self-Storage Solutions.
 
 Owen
+
+\[[Part 2](https://www.reddit.com/r/nosleep/comments/1ry4r88/my_manager_keeps_telling_me_not_to_worry_part_2/)\]
