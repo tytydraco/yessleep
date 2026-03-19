@@ -26,9 +26,9 @@ I hung up before he could get another word in and there was a message from Jerry
 
 “Hey kid, the call dropped! Sorry about that, let me know when you can talk again.”
 
-That’s what I figured. There was truly no aspect of my life that Dieter couldn’t seem to infect. I put out my cigarette and opened a window to force the haze out of the room and me. There was one way to rid myself of Dieter. This ending had to be perfect. Maybe not a perfect ending for the readers but a perfect ending for me.
+That’s what I figured. There was truly no aspect of my life that Dieter couldn’t seem to infect. I put out my cigarette and opened a window to force the haze out of the room. There was only one way to rid myself of Dieter. This ending had to be perfect. Maybe not a perfect ending for the readers but a perfect ending for me.
 
-Dieter had to end. My fingers began gliding over the laptop keys; crafting something beautiful. Hours began flying by once again and I was entranced. Suddenly, a sharp knock echoed from the front door, I attempted to ignore it but it rang out sharper a second time. A small grumble escaped my mouth and I went to check who it was.
+Dieter had to end. My fingers began gliding over the laptop keys; crafting something beautiful. Hours began flying by once again and I was entranced. Suddenly, a sharp knock echoed from the front door, I attempted to ignore it but it rang out sharper a second time. A small grumble escaped my throat and I went to check who it was.
 
 The door swung open and my eyes landed on Maddy standing there with a small suitcase behind her. Her eyes were red and puffy, her expression was pained. It broke my heart to see her in this state and my eyes fell towards the suitcase. “You don’t need to do this.”
 
@@ -38,7 +38,7 @@ Confusion grew over me, “What are you talking about? I’ve been trying to tal
 
 She pushed past me, “Listen, I don’t know what’s going on with you but I want you to get better before the baby gets here.”
 
-“I’m not lying,” my hands fumbled aimlessly in my pockets, “When I my phone…I’ll…I’ll show you.”
+“I’m not lying,” my hands fumbled aimlessly in my pockets, “When I find my phone…I’ll…I’ll show you.”
 
 “Charlie, there’s no reason to look.” She handed for phone to me. In her call log there were dwindling numbers of outgoing calls to me that appeared ignored. My eyes couldn’t believe what I was seeing as there were none incoming from me. I quickly checked her messages and it was the same. All attempts of her to reconcile but absolutely none from me.
 
@@ -66,7 +66,9 @@ Tears trickled down my cheeks and I wiped them away quickly. When I went to plac
 
 Cold air moved through me as the resemblance between them came to light. They looked identical, the same greasy black hair, the same crooked nose that leaned slightly to the left. They were both clean shaven with a large scar on the right side of their chins. Dad never looked like this when I was growing up. He wore dorky wire framed glasses, kept his hair short and choppy, and almost never shaved. If he didn’t have a beard then he at least had some type of hair on his chin. He always told me it was from a bike accident from when he was younger. There was truly only one difference between them, Dad’s smile radiated warmth and kindness while Dieter’s was twisted and sinister.
 
-What had I done? I instinctively threw the book hard against the wall. I had bastardized the memory of my father and now it is tormenting me. Just like Victor Frankenstein, I had bent rules of nature around me and now I must pay for it. Dieter’s laughed echoed around me until it finally morphed into Dad’s old dry laughter.
+What had I done?
+
+I instinctively threw the book hard against the wall. I had bastardized the memory of my father and now it is tormenting me. Just like Victor Frankenstein, I had bent rules of nature around me and now I must pay for it. Dieter’s laughed echoed around me until it finally morphed into Dad’s old dry laughter.
 
 “Stop it!” I screamed, “Just stop it please!” I fell to my knees, covering my ears and I felt a hand get placed onto my shoulder. It startled me and I looked up. Jerry was standing there with a look of concern in his eye.
 
@@ -78,6 +80,6 @@ He made a confused face, “I don’t think you did kid. I come all the way up h
 
 That one stung and I sighed, “Sorry I’ve been working.”
 
-“Not on this I hope.” Jerry sighed and pointed at my computer screen. The word do wasn’t corrupted. All of my progress was gone. My perfect ending…destroyed. A burning pain began behind my eyes and I started to sob.
+“Not on this I hope.” Jerry sighed and pointed at my computer screen. The word doc was corrupted. All of my progress was gone. My perfect ending…destroyed. A burning pain began behind my eyes and I started to sob.
 
 In between gasps for air I got out a statement, “Jerry…I need help.”
