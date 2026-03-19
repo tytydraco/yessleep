@@ -1,0 +1,24 @@
+I've lived in Madira my entire life, and everyone mocked me everytime I mentioned my theory that something awakens every 24 years in our town terrorizing and killing people. I don't know if anyone will ever believe me or if I will even live long enough to tell the tale to everyone, but Madira...it's- it's not right. It's not your average town. Something's not right here. Every 24 years it gets worse. It began last week all over again. Last week only 3 badly mutiliated bodies were discovered by the police. The sheer state of the bodies made even Chief Shaw the most hardened man in the town puke. And the colours were drained from the bodies. The Nuns claimed that it is the work of Satan who is using his pawns to cause havoc in our town since a cathedral was recently set up in our town. Many people believe it is just work of a sadistic serial killer who has some sort of mental issues and he just targets people randomly. But I believe that, no- I don't believe, I know for a fact that it is not the work of a serial killer or Satan. The culprit is something much worse. I was recently talking to Mrs Dawson, the kindest lady in the entire town. Poor lady. Her younger boy Jimmy Dawson aged 12 went missing 5 days ago and authorities still have no clue where he is or what happened to him. Sure the police found body of a 12 year old but it's condition was so bad, they couldn't find the identity of the boy. I tried to talk to the forensics and the chief to find some details out but it was of no use 
+
+
+
+"Are you really sure this body belongs to Jimmy Dawson" I asked Dr Samuel Byers, the main forensic doctor
+
+"Look I myself am not sure about the identity of the body. The face is half gone. Half a leg missing and-" i could see him trying to regain some control as he was disturbed clearly 
+
+"It seems like it was the deed of a wild animals. A lion maybe. A tiger. No human can do such a deed. I mean I can see bite marks clearly here. We did all our researches and no weapon such as a knife axe or sword was used here. Either it was the deed of an animal or that psychopath killer who did this was a superhuman who just used his bare hands" Samuel said as he lit his cigarette
+
+
+
+Now you see I know for a fact that it definitely wasn't the deed of any animal. In this month, you can barely find dogs and cats in Madira let alone wild animals. Lions and Tigers don't become super active in freezing winter weathers and even if it is the deed of a wild beast then what is the reason for the lack of colour in the bodies.
+
+
+The same things happened exactly 24 years ago when I was just a kid. I would regularly see news channels report on missing people and the discovered bodies. Almost all of them were in horrible conditions and all of them were devoid of colour. If my memory isn't betraying me, I can recount a near death experience. It was the winters of 2002. I remember playing out in the snow with my toy train when I saw him (or perhaps it since that thing was no human). It was super tall approx 8 feet tall and wore a mega large black trench coat paired with black straight leg trousers. It had no face. It was a shadow wearing these clothes. A shadow yes. With pale yellow- greyish eyes and an unnerving smile. It was staring at me with those wide creepy eyes. It had several white flowers in one hand and a toy train in another. I was mesmerized by the creature infront of me and walked closer to it ignoring the fact that it was not a human or a human pretending to be a shadow. It held out the white flowers, whispering words I didn’t understand. For a moment, I felt calm… until its eyes widened, and I realized it wasn’t a friend. It was something else entirely.
+
+
+My memory isn't the best so I don't remember exact events of that day but I do remember that whatever that creature was, it had large teeth. As sharp as knives. It tried to take me to the forest but I kept resisting and the next thing I know is that I woke up in a hospital bed. I was bleeding badly. From my legs and my face. But luckily I survived unlike those poor people whose bodies were found badly mutiliated 
+
+
+"What monster can try to harm a kid" my mother said angrily. I could see the tears in her eyes but I couldn't say anything.
+
+Now that I see it has started again, I can also notice many similarities. The sheer brutality and the condition of the bodies and the same level of violence in people which is rising by each day. I believe it is that same shadow creature I encountered 24 years ago that is behind this all. If it’s back… then what chance do I—or anyone—have? Will I just watch, helpless, as it hunts again, feeding on fear and cruelty in ways I can barely imagine? Or will this be the year it finally finds me too, leaving nothing but questions, screams, and shadows behind?
