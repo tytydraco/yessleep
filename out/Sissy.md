@@ -1,6 +1,6 @@
 When I was younger, I wanted my sister to go away.
 
-I didn’t want her to die, necessarily. I didn’t want anyone to physically hurt her. 
+I didn’t want her to die, necessarily. I didn’t want anyone to physically hurt her.
 
 But I wanted her to go away.
 
@@ -116,7 +116,7 @@ I nod.
 
 “Green is your color for sure.”, I add.
 
-She smiles brightly. 
+She smiles brightly.
 
 “Thank you.. It’s actually my favorite color too. You can’t go wrong with a sister pick!”, she says excitedly, holding up the green dress on the hanger.
 
@@ -170,7 +170,7 @@ I take the jacket with me downstairs and immediately leave the house, jumping in
 
 I’m almost giddy with excitement.
 
-I drive the 5 minutes to Marybeth’s house, humming along to my music. 
+I drive the 5 minutes to Marybeth’s house, humming along to my music.
 
 When I get there, I open my door and practically skip up the walkway and ring the bell. I then remind myself that I need to play concerned sister and furrow my brows the way I saw Claire do it that morning.
 
@@ -200,7 +200,7 @@ I widen my eyes and look directly at Marybeth.
 
 Marybeth quickly shakes her head.
 
-I shake my head and inhale deeply. 
+I shake my head and inhale deeply.
 
 “Okay, I think I’m going to call my parents…”, I say with a defeated expression.
 
@@ -224,7 +224,7 @@ I give a resounded sigh.
 
 My mom puts her hand on my shoulder and looks me in the eye.
 
-“It’s a nice thing you did bringing that her, if you hadn’t we wouldn’t have known she wasn’t here.”, she says, squeezing my shoulder with her manicured hand.
+“It’s a nice thing you did bringing that to her, if you hadn’t we wouldn’t have known she wasn’t here.”, she says, squeezing my shoulder with her manicured hand.
 
 A small beam of pride wells up in my chest, but I only offer her a sad smile.
 
@@ -248,7 +248,7 @@ I feel my shining moment growing.
 
 “It isn’t, you’re right. Do you think she.. lied? On purpose? Lied to you, dad, and me? Maybe she lied to go do something that you wouldn’t have approved of…”, I say timidly, I have to make it sound like I’m coming up with the theory as I’m talking. Really sell it.
 
-As I’m watching the gears turn in my mom’s head, Marybeth and her mother appear in the room again. 
+As I’m watching the gears turn in my mom’s head, Marybeth and her mother appear in the room again.
 
 Marybeth looks like she’s about to throw up, and her mother has a stern hand on her shoulder.
 
@@ -288,7 +288,7 @@ I hear my dad yelling in the other room.
 
 “Claire! Claire! Baby, where are you? Tell me where you are! Claire!”
 
-I sprint into the other room and see my dad pressing the phone to his ear as hard as he can, his face has turned bright red, tears have sprung from his eyes. 
+I sprint into the other room and see my dad pressing the phone to his ear as hard as he can, his face has turned bright red, tears have sprung from his eyes.
 
 I hear a sound coming from his phone, and I would know it anywhere.
 
@@ -332,7 +332,7 @@ I’ve been waiting for that feeling of relief. That feeling of getting what I a
 
 But it doesn’t come.
 
-I take her jacket to sleep with me every night, holding it next to my pillow and curling around it. 
+I take her jacket to sleep with me every night, holding it next to my pillow and curling around it.
 
 I’ve developed an attachment to it, like I’m afraid that if I don’t sleep next to it, the hope is gone. But as long as I have it nearby, I’m connected to her.
 
@@ -344,7 +344,7 @@ I told them the truth. That I knew she was planning to sneak out but I said noth
 
 The officer gave me a sympathetic smile before closing his notepad.
 
-During this time, all they have gathered was that Claire did meet someone online who claimed to be 18 and named “Ethan”. 
+During this time, all they have gathered was that Claire did meet someone online who claimed to be 18 and named “Ethan”.
 
 “Ethan” was careful to not talk about plans or any specifics over text or message, they mostly spoke on the phone. They found phone calls and text messages going back months and months. They did find video calls, but they appeared to have been tampered with. As well as their chats.
 
@@ -430,7 +430,7 @@ Her unwavering kindness and optimism.
 
 And that was all I had of her now. These memories, these things I admired but could never bring myself to tell her, and now I never will.
 
-We held her funeral a week later, a closed casket, but there were enough flowers to rival a garden. 
+We held her funeral a week later, a closed casket, but there were enough flowers to rival a garden.
 
 We opened the floor for people to speak, and everyone spoke about how Claire had touched their lives in some way.
 
@@ -468,7 +468,7 @@ I feel my cheeks become wet, it must be rainfall. I reach my hand out to catch a
 
 “I’m so sorry, Mom. I wish I had done more.”, I whimper.
 
-My Mom looks at me with a sympathetic expression, and she wraps me into a tight hug. 
+My Mom looks at me with a sympathetic expression, and she wraps me into a tight hug.
 
 I let myself cry into her shoulder.
 
