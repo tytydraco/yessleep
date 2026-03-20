@@ -164,6 +164,8 @@ Dale wrote this down without a change in expression. His face remained at factor
 
 Dale put the cap on his pen – a slow, deliberate gesture, like closing a book. "The buildings are changing. Slowly. Consistently. In one direction."
 
+Maren caught my eye for exactly one second. The legal pad was still in her hands, and she turned it slightly inward against her hip, hiding the two additional numbers we wrote down. Dale's projected rate was spectacularly wrong. We'd watched the hallway gain four inches in about ninety seconds. Though there is a chance we did not actually observe its natural growth, but rather caused it to speed up by re-measuring. Like using x-rays to scan for tumors. Eventually the radiation will cause the very cancer it's supposed to find.
+
 The floodlights finished warming up and snapped to full brightness, and the parking lot went from dusk-dim to forensic white in half a second.
 
 Maren stood slightly apart from us, arms folded, watching the exchange with an expression I couldn't fully read. It wasn't shock or disbelief. It was closer to intrigue – which might prove a risk in the long run.
@@ -208,7 +210,7 @@ But when I came back to it later, the column had slightly changed. The hint was 
 
 The hours went by, 90.7 FM played their usual mix of Herbie Hancock and Limp Bizkit, and nobody came to access their units.
 
-Somewhat bored, I eventually decided to grab a snack from the vending machine by the restrooms. The vending machines at EverSafe are, in their own small way, one of the facility's more persistent mysteries. Not in a supernatural way, but still.
+Somewhat bored, I eventually decided to grab a snack from the vending machine by the restrooms. The vending machines at EverSafe are, in their own way, one of the facility's more persistent mysteries. Not supernaturally, but still.
 
 Yesterday, the snack machine was stocked entirely with barbecue chips. The day before that, it sold nothing but bubble gum. Tonight, it contained rice crackers and something called "Muon Energy Bites" in packaging I didn't recognise and couldn't find online later.
 
