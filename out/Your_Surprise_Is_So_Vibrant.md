@@ -117,3 +117,5 @@ Then the entire group, along with the Rule Writer, turned to ash. I stared at th
 It became the demon and rushed me.
 
 Hell.
+
+[Next](https://www.reddit.com/user/Ancarn/comments/1ryws7u/bottomless_manpower/)
