@@ -262,7 +262,7 @@ Terry nodded. He didn't ask which hallway, or by how much, or what "off" meant. 
 
 "Why?"
 
-"Just a feeling. The place feels different today. A little more... attentive. New people do that sometimes. New eyes. New attention." He put his hands deeper into his pockets. "Tell her to be careful."
+"Just a feeling. The place gets curious when someone new shows up. It needs to figure out what kind of person they are. And with her, that seems to be a bit more challenging." He put his hands deeper into his pockets. "Tell her to be careful."
 
 "She is careful. No need to tell her. She has a kind of worldliness that I envy.”
 
@@ -284,35 +284,35 @@ I took this to heart, which is why I started with the single-most important ques
 
 "You don't know that."
 
-I didn’t know what to say. Terry might be the saddest person alive, and I mean that with genuine respect. His whole schtick is not an act. That's what makes it so devastating. He's not fishing for pity. He's just … I don’t even know how to describe it. Part of me wants to give him a hug. Not literally, and not physically. But I want him to feel hugged, preferably by someone else.
+Terry might be the saddest person alive, and I mean that with genuine respect. His whole schtick is not an act. That's what makes it so devastating. He's not fishing for pity. He's just … I don’t even know how to describe it. Part of me wants to give him a hug. Not literally, and not physically. But I want him to feel hugged, preferably by someone else.
 
 “You seem to know a lot of things about EverSafe Self-Storage Solutions”, I said.
 
 “This is bound to happen at some point when watching a property on a daily basis, for nearly two decades.”
 
-“You’re joking.”
+“That's a bit creepy.”
 
-“No, I’m not.”
+“No, it is not.”
 
 “Why would you do this?”
 
-Terry took a deep breath. “Some people collect stamps. Some people drink alcohol. Pointless activities, no question about that. And I … Well, I watch EverSafe. That’s the pointless thing I’m wasting my time with. And frankly, so are you.”
+Terry took a deep breath. “Some people collect stamps. Some people drink alcohol till they pass out. Pointless activities, no question about that. And I … Well, I watch EverSafe. That’s the pointless thing I’m wasting my time with. And frankly, so are you.”
 
 “I’m not … I mean. Yes. I am. But that’s something different. I do it for money.”
 
-Terry nodded in the way I imagine Socrates nodded before shredding someone’s argument to pieces. I genuinely expected him to uproot my perspective entirely. But he didn’t.
+Terry nodded in the way I imagine Socrates nodded before shredding someone’s argument to pieces. I genuinely expected him to uproot my perspective with some vague allusion that sounded nonsensical and still somehow felt convincing. But he didn’t.
 
-"I guess you’re right," he said and stepped back from the intercom. He lifted one hand in a wave that was more of a benediction – palm out, fingers spread, held for a moment longer than a casual goodbye warrants.
+"I guess you’re right," Terry sighed and stepped back from the intercom. He lifted one hand in a wave that was more of a benediction – palm out, fingers spread, held for a moment longer than a casual goodbye warrants.
 
 "Well, look at that. My hand is out and I am, in fact, not freezing to death.” A short giggle. “Good luck in there, Owen."
 
-He walked away. I watched him on the gate camera as he moved into the dark beyond the floodlights – gradually becoming less distinct, his outline softening at the edges, his shape dissolving into the general darkness of Route 4 the way a sugar cube dissolves into water.
+He walked away. I watched him on the gate camera as he moved into the night beyond the floodlights – gradually becoming less distinct, his outline softening at the edges, his shape dissolving into the general darkness of Route 4 the way a sugar cube dissolves into water.
 
 I wrote in the logbook: *"12:30 AM – Terry at gate. Denied entry. Brief conversation. Narrowly avoided philosophical epiphany."*
 
  
 
-The remainder of my shift went by without any incident; not even the phone rang. This confirms my hypothesis about Terry’s presence somehow calming things down around here.
+The remainder of my shift went by without any incident; not even the phone rang. Another data point supporting my hypothesis about Terry’s presence somehow calming things down around here.
 
 Maren arrived at 6:15 – early, thermos in hand. She set it on the desk and frowned as if she had already decided what kind of morning this was going to be.
 
@@ -328,17 +328,17 @@ Maren nodded with a routine that didn’t quite match the fact that this was her
 
 "Do you have any theory about … you know … yesterday?”
 
-"This place is breathing," she said as if this was a known fact, as if this is something a building might do occasionally.
+"I do. This place is breathing," she said as if this was a known fact, as if buildings are generally known to breathe sometimes.
 
 I stared at her.
 
-"In a spiritual sense. I'm not saying there's a literal lung hidden somewhere."
+"In a spiritual sense," she added. "I'm not saying there's a literal lung hidden somewhere."
 
 "Huh. But according to Dale, the corridors only grew larger so far."
 
 "Right. That’s the inhale. The question is what happens when it exhales."
 
-I didn't have a response for that. It was the kind of statement that, once spoken, rearranged everything around it. I had enough things rearranging themselves at EverSafe without adding metaphors that I strongly suspected might not be metaphors after all.
+I didn't have a response for that. It was the kind of statement that, once spoken, rearranged everything around it. I had enough things rearranging themselves at EverSafe without adding metaphors that might as well not be metaphors after all.
 
 "I should go," I said. "I need to sleep."
 
@@ -348,25 +348,29 @@ I hate to admit it, but some part of my subconscious was disappointed by that, a
 
  
 
-I got home around 6:30 AM. My apartment is a one-bedroom on the second floor of a building that was described in the listing as "character-rich," which is real estate language for "the previous tenant may have died here and the landlord chose not to investigate." It's small and mostly clean and it contains everything I need: a bed, a couch, a kitchen with exactly one working burner, as well as a television I never turn on because the channels in Silt Creek are limited to one public access station that aired a re-run of a city council meeting from 2014 the only time I tried.
+I got home around 6:30 AM. My apartment is a one-bedroom on the second floor of a building that was described in the listing as "character-rich," which is real estate language for "the previous tenant may have been murdered here in his sleep." 
 
-So, I ate a bowl of cereal. I showered. I lay down in bed and did not sleep, because my body has decided that 7 AM is the middle of the afternoon and no amount of blackout curtains or melatonin will convince it otherwise. The night shift does this to you. It rewires your internal clock so thoroughly that after a few months you stop trying to fix it and simply accept that you now exist in a parallel timezone – a country of one, permanently six hours out of sync with the rest of humanity.
+It's small and mostly clean and it contains everything I need: a bed, a couch, a kitchen with exactly one working burner, as well as a television I never turn on because the channels in Silt Creek are limited to one public access station that aired a rerun of a city council meeting from 2014 the only time I tried.
 
-I went to bed with little to no hope of actually being able to close my eyes. But when I forced my eyelids shut, it wasn’t Terry or Dale or Rosa or Gerald I saw. It was Maren.
+So, I ate a bowl of cereal. I showered. I lay down in bed and did not sleep, because my body has decided that 7 AM is the middle of the afternoon and no amount of blackout curtains or melatonin will convince it otherwise. The night shift does this to you. It rewires your internal clock so thoroughly that after a few months you stop trying to fix it and simply accept that you now exist in a parallel timezone – a country of one, permanently minus to plus twelve hours out of sync with the rest of humanity.
 
-Now, from an outside perspective, some people would probably call me lonely. And they’d be wrong. I’m quite happy with the company I have, which is my own. And if that should ever change for some reason, I’ll buy a fish to put on my desk.
+I went to bed with little to no hope of actually being able to fall asleep. But when I forced my eyelids shut, it wasn’t Terry or Dale or Rosa or Gerald I saw. It was Maren.
 
-I tried falling asleep for another hour or so, and then I grabbed my smartphone and downloaded a dating app.
+Now, from an outside perspective, some people would probably perceive me as lonely. And they’d be wrong. I’m quite happy with the company I have, which is my own. And if that should ever change for some reason, I’ll buy a fish to put on my desk.
 
-The app loaded. It buffered for a while – Silt Creek's cell towers operate with the enthusiasm you’d expect. I set up my profile (I put “Ghost Buster” as my job, which wasn’t that far off from the truth) and then hit the button “Find Matches!”.
+I tried to drift off for another hour or so, and then I grabbed my smartphone and downloaded a dating app.
 
-Maren's face stared back at me from the screen.
+It buffered for a while, because Silt Creek's cellular infrastructure runs on what I can only assume is a single copper wire and sheer optimism. I set up a profile. I listed my job as "Ghost Buster," which was arguably the most truthful thing on the entire platform. Then I hit "Find Matches."
 
-It was unmistakably her. Same short dark hair. Same expression of vaguely amused fatalism. Her profile picture appeared to have been taken at a cemetery, and she was holding up a taxidermied squirrel dressed in a tiny cowboy hat. I could not determine whether this was a prop, a pet, or a statement of intent, and I was not entirely sure it mattered.
+Maren's face immediately stared back at me from the screen.
 
-A second photo showed her standing on a roof of an abandoned building at sunset, arms crossed, wearing a jacket that was too big for her and an expression that suggested the photograph was someone else's idea and she was tolerating it as a favor.
+It was unmistakably her. Same short dark hair. Same expression of vaguely amused fatalism.
 
-A third photo was just a close-up of a handwritten note that said "I promise I'm fun" – which, as a sales pitch, had the energy of a hostage negotiation, and I respected it immensely.
+Her profile picture had been taken at a cemetery. She was holding up a taxidermied squirrel in a tiny cowboy hat. I could not determine whether this was a prop, a pet, or a statement of intent, and I wasn't entirely sure it mattered.
+
+A second photo showed her on the roof of an abandoned building at sunset, arms crossed, wearing a jacket two sizes too big and an expression that suggested the photograph had been someone else's idea and she was tolerating it as a favor.
+
+The third was just a close-up of a handwritten note that read "I promise I'm fun" — which, as a sales pitch, had the energy of a hostage negotiation. I respected it immensely.
 
 Her bio read: "As per ruling from October 2023, I’m no longer classified as criminally insane."
 
