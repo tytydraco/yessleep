@@ -1,4 +1,4 @@
-[Part II](https://www.reddit.com/r/TheCrypticCompendium/s/LJAltblNV9)  [Part III](https://www.reddit.com/r/nosleep/s/VBu33vFd5q)  [Part IV](https://www.reddit.com/r/nosleep/s/JLO6KC0ivS) [Part V](https://www.reddit.com/r/Nonsleep/s/cPO5k8mEW4)
+[Part II](https://www.reddit.com/r/TheCrypticCompendium/s/LJAltblNV9)  [Part III](https://www.reddit.com/r/nosleep/s/VBu33vFd5q)  [Part IV](https://www.reddit.com/r/Nonsleep/s/lfFPQR4fjg) [Part V](https://www.reddit.com/r/Nonsleep/s/cPO5k8mEW4)
 
 While growing up, I had this ever-growing hunger for stories. From fairy tales and ancient myths to personal stories stuffed with well-intended delusions of grandeur about one’s past exploits, I couldn’t ever get enough. I always dreamed of one day having a story of my own creation reaching the same heights of many others. This spark of inspiration was one that was lit by my father; he would read his favorites to me while I was growing up. Our entire bond was rooted in the shared love of storytelling.
 
