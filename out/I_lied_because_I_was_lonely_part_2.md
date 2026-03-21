@@ -1,11 +1,11 @@
 
 [I am a horrible person](https://www.reddit.com/r/nosleep/s/MpDYlQgsKp)
 
-The canteen hummed with hushed talks and accusing but inquisitive stares. Even the porridge in front of me seem accusing as steam rose and avoided my face with each frustrated exhale I pushed out. Although each of the students were eager to pounce on me with a million spiked questions, they stayed at the seats, bound by the members of staff assigned to the room. Six brothers, each a glaring sentinal,  wandered from table to table, quietly ensuring silence was kept and questions remained unanswered.
+The canteen hummed with hushed talks and accusing but inquisitive stares. Even the porridge in front of me seemed accusing as steam rose and avoided my face with each frustrated exhale I pushed out. Although each of the students were eager to pounce on me with a million spiked questions, they stayed at the seats, bound by the members of staff assigned to the room. Six brothers, each a glaring sentinal,  wandered from table to table, quietly ensuring silence was kept and questions remained unanswered.
 
 "Four minutes" I thought to myself "Four minutes and I'll be in history class." Each of those minutes felt like an uncomfortable enternity. When the bell finally annouced the first class of the day, I sprung from my seat and made for Brother David's lesson.
 
-The dark floorboards were stained a near white where the varnish had been scraped away by dragged chairs, in some places, where the chairs had followed the same tracks of their ancestors, the floor had uneven trenches. Faded posters and timelines adorned the room, and Brother David beamed a genuine smile as we entered the room. The blue-painted walls, usually dull and uninspiring, seemed for the first time, to me, like a sanctuary.
+The dark floorboards were stained a near white where the varnish had been scraped away by dragged chairs. In some places, where the chairs had followed the same tracks of their ancestors, the floor had uneven trenches. Faded posters and timelines adorned the room, and Brother David beamed a genuine smile as we entered the room. The blue-painted walls, usually dull and uninspiring, seemed for the first time, to me, like a sanctuary.
 
 "So boys" Brother David clapped his hands to wake us up "during this time European security was based off various alliances"
 
@@ -25,9 +25,9 @@ Despite my best effort,  I found my stare falling back onto the hawthorn tree th
 
 Brother David leaned back, and before his voice dwindled into static, I noted how his tone shifted when he answered: "it was effective"
 
-Hushed whispers suggest that Danny is in hospital, but realisitcally we simply cannot know.  What I do know is that Danny hasn't been to class for two days now, and as I stared at the celing from my bed that night,  I wondered how many more days would pass before he returned.
+Hushed whispers suggest that Danny is in hospital, but realistically we simply cannot know.  What I do know is that Danny hasn't been to class for two days now, and as I stared at the celing from my bed that night,  I wondered how many more days would pass before he returned.
 
-I felt bad for missing him. I knew that I missed him for selfish reasons, it was when tears of frustration began to obsecure my vision, that I heard it.
+I felt bad for missing him. I knew that I missed him for selfish reasons, it was wheb tears of frustration had begun to obsecure my vision, that I heard it.
 
 A metallic rattle. 
 
@@ -65,9 +65,11 @@ I retracted my foot back into my room and tried to hide myself in such a way tha
 
 As the pair slowly returned into the little sliver of light that the fire exit door spat out, I was forced to look away and do my best to contain a scream.
 
-Danny's jaw swung loosely, like a horrific cradle. His eyes rolled as if physically searching for thoughts that simply wouldn't come. The worst thing.  The image that cuts me to my core, even today, was the large red-brown mark that stained the habit's groin area.
+Danny's jaw swung loosely, like a horrific cradle. His eyes rolled as if physically searching for thoughts that simply wouldn't come. However, what haunts me to my core, even today, was the large red-brown mark that stained the habit's groin area.
 
-I wish I could tell you that I ran down the hallways screaming awake every other boy, that I searched the school from top to bottom. But I can't. I wasn't even brave enough to shut the window. I cried that night, rocking back and forth on the floor, my head firmly tucked between my knees.
+I wish I could tell you that I ran down the hallways screaming awake every other boy, that I searched the school from top to bottom. But I can't. I wasn't even brave enough to shut the window. 
+
+I cried that night, rocking back and forth on the floor, my head firmly tucked between my knees.
 
 But to tell you I did absolutely nothing would be a lie too. The next day, as I walked to class, I tried to visualise where the fire exit door was. Where the door should have been, was Brother James' home economic class, a large room with no windows, let alone a fire exit door. As I creaked the door open, my eyes followed the coloured posters along the wall, trying to spot where the door should have been.
 
