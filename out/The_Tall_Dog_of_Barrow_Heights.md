@@ -368,8 +368,6 @@ My voice stalls.
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-
-
 'I know, Abby.' 
 
 My throat is tight, the phone cord curled around my hand. 'My squad got a call last minute. It's an emergency. I’ve gotta do this.'
@@ -452,9 +450,7 @@ A boy’s. 
 
 *Promise!*
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
-  
-
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 My eyes snap open.
 
@@ -516,7 +512,7 @@ The outside corridor is somehow even more twisted than the Copeland apartment. I
 
 This is the Bad Ending, broadcasting its distorted prophecies at full volume. 
 
-'It's not real,' I mutter, forcing my legs forward. *'*None of this is real, Vincent.'
+'It's not real,' I mutter, forcing my legs forward. \*'\*None of this is real, Vincent.'
 
 Unless I fail. 
 
@@ -584,6 +580,6 @@ Not down, but sideways, reality tilting ninety degrees as the drawing in my hand
 
 And suddenly I'm not in the stairwell anymore.
 
-I'm in a nightmare. 
+I'm in a [nightmare](https://www.reddit.com/r/nosleep/comments/1s0ykyn/the_tall_dog_of_barrow_heights_part_2/).
 
 [MORE](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
