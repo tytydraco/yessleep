@@ -16,7 +16,7 @@ At the top was the name of a pharmacy and a date, and below that were some detai
 
 An address below that.
 
-***Lisinopril 10 mg – Take one tablet by mouth every day.***
+***Lisinopril 10 mg - Take one tablet by mouth every day.***
 
 I didn’t recognize the medication, but I recognized the name - it was Mr. Hargreaves, my history teacher.
 
