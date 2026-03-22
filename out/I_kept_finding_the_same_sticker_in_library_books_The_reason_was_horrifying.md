@@ -12,7 +12,7 @@ The edges were worn, and it had been pieced together in two halves. One side was
 
 At the top was the name of a pharmacy and a date, and below that were some details.
 
-***THEODORE HARGREAVES***
+***T. HARGREAVES***
 
 An address below that.
 

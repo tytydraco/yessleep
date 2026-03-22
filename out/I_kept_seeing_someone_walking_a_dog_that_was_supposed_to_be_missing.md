@@ -172,9 +172,9 @@ By blood ran cold when I saw the article a week later.
 
 ***“Lost Dog” Posters Linked to Attempted Abductions***
 
-*Police in Oregon are issuing a public warning following a call from a woman connected to fake “lost dog” posters.*
+*Police are issuing a public warning following a call from a local woman connected to fake “lost dog” posters.*
 
-*Investigators believe the posters, featuring a small white dog and a contact number, were used to identify and target individuals in specific neighborhoods. A similar incident was previously reported by a young woman in Colorado, prompting concerns that the method was used across multiple states.*
+*Investigators believe the posters, featuring a small white dog and a contact number, were used to identify and target individuals in specific neighborhoods. A similar incident was previously reported, prompting concerns that the method was used across multiple states.*
 
 *Police are advising residents: do not call numbers listed on unofficial posters, do not follow associated individuals, and report suspicious activity directly to authorities.*
 
