@@ -1,6 +1,6 @@
 I had the luck of sitting next to the weird kid in my freshman year of high school.
 
-Thaddeus had that look - pale, expressionless, the kind of kid people avoided without saying why. When I sat down next to him, he flashed an eerie grin that didn't reach his eyes.
+Thaddeus had that look - pale and expressionless, the kind of kid people avoided without saying why. When I sat down next to him, he flashed an eerie grin that didn't reach his eyes.
 
 "You look like a serious girl," he whispered, leaning over way too close. "Cheer up."
 
@@ -12,7 +12,7 @@ We paddled out in uncomfortable silence as I sat behind him, the water smooth an
 
 Then he screamed.
 
-It was sudden, raw, terrified. The canoe rocked violently as he grabbed at the sides, and he tumbled over the side, disappearing under the water.
+It was sudden, raw and terrified. The canoe rocked violently as he grabbed at the sides, and he tumbled over the side, disappearing under the water.
 
 My heart raced like it had never before, but I somehow managed to stay on as I looked for him, yelling his name over the open water. A minute later, he re-emerged suddenly, screaming and thrashing in the distance.
 
