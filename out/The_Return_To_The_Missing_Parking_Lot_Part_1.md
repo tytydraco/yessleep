@@ -310,7 +310,7 @@ We were headed straight towards it. What were we to do? Turn off our headlights 
 
 No, we needed to get out and we needed to do so that very moment. Presumably, unlike the missing teens, we were ready to get out by force if need be.
 
-I had a feeling getting out of there wouldn't be as easy as getting in, I wasn’t as surprised at what we would soon run into.
+I had a feeling getting out of there would be just as hard as getting in, I wasn’t surprised at what we would soon run into.
 
 There was a police cruiser blocking our exit. The officer inside turned on his headlights and red overhead light when we got 20 feet close. 
 
