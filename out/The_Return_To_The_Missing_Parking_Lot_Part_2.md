@@ -400,7 +400,7 @@ I saw Dario was trying to take off his watch with his mouth as he ran beside us 
 
 With that building as our end goal we ran without saying a word, forcibly pulling on door handles in hopes of finding a place to hide.
 
-I could hear *those things* closing in. We all ran as fast as we could deciding to focus on making it to that structure's illuminated parking garage, bathed in old flickering florescent lighting the vehicles at the mouth of the garage were just out of reach. In that moment I realized we wouldn't make it to the 
+I could hear *those things* closing in. We all ran as fast as we could deciding to focus on making it to that structure's illuminated parking garage, bathed in old flickering florescent lighting the vehicles at the mouth of the garage were just out of reach.
 
 Getting closer to the entry way. Our flashlights highlighted the overhead sign that simply read "Parking".
 
@@ -430,7 +430,7 @@ I sat up when I noticed the tally marks.
 
 "Oh shit" I said looking up at the ceiling and counting the marks. 
 
-"Someone else has been here, surviving" Andy said also looking up and still catching his breath. He seemed to be laying on a purple upholstered section of the van that was some kind of custom bed with wood framing. 
+"Someone else has been in here, surviving" Andy said also looking up and still catching his breath. He seemed to be laying on a purple upholstered section of the van that was some kind of custom bed with wood framing. 
 
 Dario was also shining his light around now. "What does that say?" He asked out loud crawling over to a notebook paper that was stuck to one of the walls of the van.  
 
