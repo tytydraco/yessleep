@@ -10,7 +10,7 @@ My last weekend began the way most of my weekends begin: with me lying flat on t
 
 Maybe I should explain how I ended up in Silt Creek. It's relevant to understanding why I'm still here, and you deserve the full scope of my decision-making – its grandeur, its futility – before we go any further.
 
-One years ago, I was living in Elgin Falls, a respectable town in northern Texas. At the time, I thought I had it all: a girlfriend I genuinely loved and planned to marry, a beautiful appartment, and a job at a restaurant where I waited tables and pretended to know the difference between a ten-dollar Lambrusco and a thousand-dollar Bordeaux.
+One year ago, I was living in Elgin Falls, a respectable town in northern Texas. At the time, I thought I had it all: a girlfriend I genuinely loved and planned to marry, a beautiful appartment, and a job at a restaurant where I waited tables and pretended to know the difference between a ten-dollar Lambrusco and a thousand-dollar Bordeaux.
 
 My girlfriend was the first to go. She had big ambitions for her life, and as it turned out, I wasn’t part of them.
 
@@ -30,11 +30,11 @@ I arrived around dusk, or at least I arrived in the general vicinity of arriving
 
 Silt Creek announced itself the way most small towns do: a speed limit sign, a decrepit chapel, and a gas station that had been fighting entropy for decades and was starting to lose the battle.
 
-The town is not ugly. I want to be fair about this. It has a main street with brick buildings and striped awnings that flap in the wind with a cheerfulness that feels almost defiant. It has a park with a gazebo and a pond containing either very large goldfish or very small koi. It even boasts a small library, though it seems to suffer from unspecified combat-related issues. This is a callback to my first post. If you forgot about it, please read everything again.
+The town is not ugly. I want to be fair about this. It has a main street with brick buildings and striped awnings that flap in the wind with a cheerfulness that feels almost defiant. It has a park with a gazebo and a pond containing either very large goldfish or very small koi. It even boasts a small library, though it seems to suffer from unspecified combat-related issues. This is a callback to chapter one. If you forgot about it, please read everything again.
 
 Now, what Silt Creek does not have is a reason to exist. There's neither industry nor geographic feature, no river worth naming, no crossroads worth mapping. Why someone once looked at this patch of earth and decided to build is beyond me. It's too far from the highway to serve as a rest stop, too unremarkable to be a destination. I assume Silt Creek grew for the same reason I ended up in it: because someone needed distance from the world, and then inertia took over, and nobody got around to asking whether any of this was a good idea.
 
-On that first night of my arrival, I parked behind a diner called "The Skillet Prophecy”, because the lights were off and I was in no position to be selective. I slept in the back seat with my jacket balled up under my head and my feet against the window, which is a position the human spine tolerates once out of politeness, but will never forgive you for.
+On that first night of my arrival, I parked behind a diner called "The Skillet Prophecy”, because the lights were off and I was in no position to be selective. I slept in the back seat with my jacket balled up under my head and my feet against the window, which is a position the human spine tolerates once or twice, but will never forgive you for.
 
 I lived like that for roughly a week. During the day I'd go inside, sit in a booth, and nurse a single black coffee just to pass the time. Then I'd walk the town's full length, which took about forty minutes if I was generous with my pace. At night, I'd return to the back seat and negotiate with my lower back.
 
@@ -88,7 +88,7 @@ She paused. I waited, because I could feel the sentence coming the way you can f
 
 "Mm." Mabel folded the rag into a precise square. "Point is, her apartment's sitting empty. And old Kessler's not finding a new tenant. Also, the storage place is still looking for someone to cover her shifts.”
 
-She let that sit there between us like the plate of eggs, with the implied order to eat it up gratefully.
+She let that sit there between us like the plate of eggs, with the implied expectation that I’d eat it up gratefully.
 
 "So," I repeated slowly, "a woman died under unexplained circumstances, and your pitch is that I should take her job and move into her apartment."
 
@@ -114,7 +114,7 @@ The apartment took even less effort. Kessler didn't ask for references. He didn'
 
 Kessler's shop, by the way, sells screws exclusively. The storefront window displays them in neat rows on black velvet, like jewelry, sorted by size and head type. I have never seen a customer enter or exit the store. I have never heard the bell above the door ring for anyone other than me on my way to the stairs.
 
-That was seven months ago. I'm still here, which either means Silt Creek has grown on me, or I've simply forgotten how to leave. Both are plausible. Both are depressing. I choose not to investigate further.
+That was seven months ago. I'm still here, which either means Silt Creek has grown on me, or I've simply forgotten how to leave. Both are plausible. Both are depressing.
 
  
 
@@ -122,9 +122,11 @@ But you didn't come here for my origin story. You came here because something is
 
 Last saturday, I decided to go to the Skillet Prophecy, because the human body cannot run on peanut butter, cereal and Muon Energy Bites™ alone. It also needs fat to flush down the sugar.
 
-The Skillet Prophecy has laminated menus with photographs that bear no resemblance to the actual food but serve as aspirational reference points. Platonic pancakes that the kitchen approximates to the best of its abilities, which are limited but sincere. The booths are red vinyl, cracked in places and repaired with tape the same red but not quite. The air smells like coffee that has been brewing since before I was born and grease that has seen unspeakable things.
+The Skillet Prophecy has laminated menus with photographs that bear no resemblance to the actual food but serve as aspirational reference points. Platonic ideas that the kitchen approximates to the best of its abilities, which are limited but sincere. The booths are red vinyl, cracked in places and repaired with tape the same red but not quite. The air smells like coffee that has been brewing since before I was born and grease that has seen unspeakable things.
 
-I sat in my usual booth by the window and ordered coffee and eggs. The diner was moderately occupied. In a corner booth sat Earl Hudgens, a retired electrician who comes in almost daily, orders a short stack, and reads the obituaries with the quiet relief of a man confirming he isn't yet in them. At the counter was Norm Pickett, who does something with the county that nobody has ever been able to identify, including, I suspect, Norm himself. I counted four more people whom I did not know by name. Mabel moved between them all like a satellite in low orbit – constant, silent, gravitationally inevitable.
+The diner was moderately occupied. I sat in my usual booth by the window and ordered coffee and eggs.
+
+In a corner booth I recognized Earl Hudgens, a retired electrician who comes in almost daily, orders a short stack, and reads the obituaries with the quiet relief of a man confirming he isn't yet in them. At the counter was Norm Pickett, who does something with the county that nobody has ever been able to identify, including, I suspect, Norm himself. I counted four more people whom I did not know by name. Mabel moved between them all like a satellite in low orbit – constant, silent, gravitationally inevitable.
 
 I was halfway through my eggs when Maren walked in.
 
@@ -184,7 +186,7 @@ Monday eventually came. My shift usually starts at 10 PM, but I came in a little
 
 The vending machine situation had graduated from background oddity to prime investigation target, mostly because this mystery seemed relatively solvable compared to everything else going on. Tonight, every row, every slot, every last spiral of that machine was stocked with cough drops. Identical boxes in pale blue packaging with silver embossed lettering: "Harmon & Harmon Medicated Throat Lozenges – Est. 1822." Below that, in smaller text: "For Persistent Conditions."
 
-I bought a box and turned it over. The packaging was high quality – thick cardboard with a matte finish, a wax seal on the back that looked genuinely, credibly old. The kind of seal that implies a lineage. The ingredient list included menthol, nightwell root extract, and "other.” The instructions read: "Take one lozenge as needed. Not suited to treat Cholera, Tuberculosis, Typhus, Diphtheria, or the Plague."
+I bought a box and turned it over. The packaging was high quality – thick cardboard with a matte finish, a wax seal on the back that looked genuinely, credibly old. The kind of seal that implies a lineage. The ingredient list included menthol, nightwell root extract, and "other ingredients,” amd the instructions read: "Not suited to treat Cholera, Tuberculosis, Typhus, Diphtheria, or the Plague."
 
 Notably silent on what it was suited to treat.
 
@@ -222,7 +224,7 @@ Rosa arrived at 2:40 AM, carrying a cooler that made a dense, wet, faintly organ
 
 "I always look tired."
 
-"Indeed. Yet tonight, you look like your tiredness has developed its own tiredness. Fatigue within fatigue. Like a Russian nesting doll of exhaustion."
+"Indeed. Yet tonight, you look like your tiredness has developed its own tiredness. Fatigue within fatigue. Like you’re exhausted from being exhausted."
 
 "Thank you, Rosa."
 
@@ -234,7 +236,7 @@ She leaned against the counter and dropped her voice to a whisper, as if she fel
 
 "Have you ever been inside?"
 
-"No. It's always locked."
+"No. It doesn’t look like you could."
 
 "Exactly. It has been locked and abandoned for years. Which is why it concerns me that tonight, on my way here, it was open."
 
@@ -258,7 +260,7 @@ It was suddenly so obvious I couldn't believe I'd ever wondered. The patience. T
 
 "Makes sense.”
 
-"The building then passed to the Sons of the Iron Sextant, who worshipped triangles. They believed the universe was a drafting error and that salvation lay in correcting God's angles. They re-consecrated the chapel and rotated the altar thirteen degrees. A splinter group called the Daughters of the Truer Sextant moved in shortly after and rotated it back. Then a further splinter group rotated it diagonally, which is why the altar points straight up to this day. They were extremely committed.”
+"The building then passed to the Sons of the Iron Sextant, who worshipped triangles. They believed the universe was a drafting error and that salvation lay in correcting God's angles. They re-consecrated the chapel and rotated the altar thirteen degrees. A splinter group called the Daughters of the Truer Sextant moved in shortly after and rotated it back. Then a further splinter group rotated it diagonally, which is why the altar points straight up to this day.”
 
 "You really know your way around the details.”
 
@@ -276,7 +278,7 @@ I put a checkmark to my mental list of unsolved mysteries. One completed. Two mi
 
 "That sounds reasonable."
 
-"Yes. Nobody came. Not one person. Not even the founder.”
+"Yes. Unfortunately, nobody came. Not a single person joined the movement. Not even the founder.”
 
 "Then how do you kno…”
 
@@ -288,7 +290,7 @@ I nodded while my thoughts gradually drifted away.
 
 "Then the Keepers of the Second Stomach, whose beliefs I will not summarize because we are indoors. Then a group that called themselves simply 'The Aware,' who profoundly refused to elaborate what they were aware of exactly."
 
-"That's only – what, eleven denominations? Twelve?" I said.
+"That's only – what, seven denominations? eight?" I said.
 
 Rosa looked at me. Her expression didn't change, but something behind it tightened, the way a poker player's posture tightens when they realize the table is paying attention.
 
@@ -298,15 +300,13 @@ Rosa looked at me. Her expression didn't change, but something behind it tighten
 
 It came out slightly more like a dare than I'd intended. Or exactly as much as I'd intended. I wasn't sure anymore.
 
-Rosa folded her hands on the counter. When she spoke again, her voice had shifted. Denser, as if each word now carried slightly more freight. She'd registered the challenge, and she was meeting it.
+Rosa folded her hands on the counter. She'd registered the challenge, and she was meeting it.
 
-"The Sisterhood of the Patient Soil, who gardened liturgically and believed that God lived exactly six feet underground, which made their services indistinguishable from funerals. The Order of Recursion, who claimed that the path to absolution lies in the teachings of The Order of Recursion.  The Ministry of the Second Floor, who believed heaven was located exactly one story above wherever you currently stood, and who were eventually banned from every building in Silt Creek for going upstairs and just standing there, looking betrayed.”
+"The Sisterhood of the Patient Soil came next. They gardened liturgically and believed that God lived exactly six feet underground, which made their services indistinguishable from funerals. They were followed by The Order of Recursion, who claimed that the path to absolution lay in the teachings of The Order of Recursion. Then the Ministry of the Second Floor, who believed heaven was located exactly one story above wherever you currently stood, and who were eventually banned from every building in Silt Creek for going upstairs and just standing there, looking betrayed.”
 
-She ticked them off without hesitation, and I realized she hadn't needed to think about any of this. It was all just there, filed and catalogued, the way other old people store recipes or phone numbers.
+She ticked them off without any pause for applied creativity. It was all just there, filed and catalogued, the way other old people store recipes or phone numbers. Rosa took a breath. She wasn't finished. If anything, my subtle skepticism had given her fuel.
 
-Rosa took a breath. She wasn't finished. If anything, my subtle skepticism had given her fuel.
-
-"The Followers of the Adequate, who believed perfection was a sin and that God preferred things that were just okay. Their hymns were deliberately mediocre. Their potlucks were room temperature. They considered a C-minus to be a state of grace."
+"The Followers of the Adequate, who believed perfection was a sin and that God preferred things that were just okay. Their hymns were deliberately mediocre. Their potlucks were room temperature. Their influence on society was widely considered average."
 
 "Rosa –"
 
@@ -314,27 +314,31 @@ Rosa took a breath. She wasn't finished. If anything, my subtle skepticism had g
 
 "That one seems –"
 
-"And the last registered group," she said, raising her voice just enough to make it clear that the lecture was approaching its conclusion and that questions would be held until the end, "was called the Assembly of Returning Strangers, who believed that every person you've ever met will come back exactly once, without warning, and that the purpose of life was to be ready."
+"And the last registered group," she said, raising her voice just enough to make it clear that the lecture was approaching its conclusion, "was called the Assembly of Realists, who believed that this realm is actually hell, and they’ve been sent here as punishment for their failings in their previous mortal existence."
 
-"Ready how?"
+"Oh wow, the last one is actually quite convincing. Do they still operate?"
 
-"They never clarified. That was sort of the point."
+"Of all the cults that don't exist anymore, they don't exist the most."
 
-I sat with that for a moment. Whether Rosa had made up every word of what she'd just told me or whether every word was true, the result was functionally the same: a chapel on Route 4 that had been consecrated, desecrated, re-consecrated, painted, scraped, rotated, and ritually argued over by roughly twenty conflicting belief systems, each of which had presumably invoked or appealed to a different deity, force, or abstract cosmic principle – and tonight, the door to this theological Superfund site had opened on its own.
+I sat with that for a moment, convinced that not a single word had been factually accurate. Then again, applying the concept of plausibility to Silt Creek had yielded mixed results so far. More often than not, acute psychosis and actual truth behaved functionally identically.
+
+For what it's worth, there was a chapel on Route 4 that had been consecrated, desecrated, re-consecrated, painted, scraped, rotated, and ritually argued over by roughly twenty conflicting belief systems, each of which had presumably invoked or appealed to a different deity, force, or abstract cosmic principle – and tonight, the door to this theological Superfund site had opened on its own.
+
+What could possibly go wrong?
 
 Rosa looked at me with something that, if I didn't know better, I would have called approval.
 
-"You're very good at synthesis," she said.
+"You're very good at listening," she said.
 
 "And you're very good at whatever this was."
 
-She picked up her cooler. It thudded again. Something inside it shifted.
+She picked up her cooler. It thudded again. Something twitched inside.
 
 "History, Owen," she said. "It was history."
 
 I nodded and smiled, the way a good student probably would.
 
-She headed for the door, then paused – hand on the frame, cooler balanced against her hip – and turned back with the precise timing of someone who has spent decades delivering final remarks to rooms full of teenagers who were already packing up their bags.
+She headed for the door, then paused and turned back with the precise timing of someone who has spent decades delivering final remarks to rooms full of teenagers who were already packing up their bags.
 
 "Owen."
 
@@ -350,31 +354,31 @@ The door shut behind her before I could respond.
 
 Through the monitors, I watched her cross the parking lot toward her unit in Building D, where she would spend roughly an hour before leaving empty-handed.
 
-Now, I want to make it perfectly clear that paying that chapel a visit was, in fact, not on my to-do list. I had been perfectly honest about that, which in turn puts Rosa's aura-reading abilities into serious question. My mind was busy with something else.
+Now, I want to make it perfectly clear that paying that chapel a visit was, indeed, not on my to-do list. I had been perfectly honest about that, which in turn puts Rosa's aura-reading abilities into serious question. My mind was busy with something else.
 
 See, calling in sick is a normal thing. People do it constantly. It is one of the most unremarkable events in the history of employment. And under any other circumstances, I would have accepted it at face value, filed it under "not my concern," and moved on with my shift.
 
 But this was EverSafe. And at EverSafe, unremarkable events have a habit of retroactively becoming extremely remarkable.
 
-Maren had worked exactly two shifts. She had witnessed a hallway grow in real time. She had responded with composure that bordered on clinical detachment, which was either a sign of extraordinary resilience or a sign that she hadn't fully processed what she'd seen and was running on a delayed fuse. Either way, she'd gone home, and now she was "sick”, and I had no way to contact her, because – I realized with a sinking feeling – I didn't have a way to contact her. We hadn't exchanged numbers. We hadn't exchanged anything.
+Maren had worked exactly two shifts. She had witnessed a hallway grow in real time. She had responded with composure that bordered on pathological detachment, which was either a sign of extraordinary resilience or a sign that she hadn't fully processed what she'd seen. Either way, she'd gone home, and now she was "sick”, and I had no way to check in on her, because – I realized with a sinking feeling – I didn't know how to get in touch. We hadn't exchanged numbers. We hadn't exchanged anything.
 
 Which led me to a thought I immediately regretted having.
 
-I pulled out my phone. I opened the app store. I re-downloaded the dating app. This was not, I want to be clear, a romantic impulse. This was investigative. I was conducting reconnaissance. I was verifying the continued existence of a colleague through the only available channel, which happened to be a platform designed for people seeking companionship, and if that sounds like a rationalization, it's because it absolutely is one, and I'm not proud of it, but I'm also not above it.
+I pulled out my phone. I opened the app store. I re-downloaded the dating app. This was not, I want to be clear, a romantic impulse. This was investigative. I was conducting reconnaissance. I was verifying the continued existence of a colleague through the only available channel, which happened to be a platform designed for people seeking companionship, and if that sounds like a rationalization, it's because it absolutely is one. I'm not proud of it, but I'm also not above it.
 
-The app loaded. I created a new account so it would consider Maren’s profile which I had previously skipped. The interface appeared – the same bright colors, the same aggressive optimism of a platform that believes everyone is exactly one swipe away from happiness.
+I created a new account so it would consider Maren’s profile which I had previously skipped. The interface appeared – the same bright colors, the same aggressive optimism of a platform that believes everyone is exactly one swipe away from happiness.
 
 "No more profiles found in your area.”
 
-Zero profiles. The app cheerfully suggested I should "expand my search radius.”
+None. Zero. Nada.
 
-Maren's profile was gone. The cemetery photo, the taxidermied squirrel in the cowboy hat, the handwritten note that read "I promise I'm fun" – all of it, vanished. Deleted, or absorbed into whatever digital void swallows things that Silt Creek decides aren't meant to be found.
+Maren's profile was gone. The cemetery photo with Unlucky Luke, the handwritten note that read "I promise I'm fun" – all of it, vanished. Deleted, or absorbed into whatever void swallows things that Silt Creek decides aren't meant to be found.
 
-Now, the rational explanation was simple: she'd deleted her account. People do this all the time. They sign up, they swipe, they become disillusioned with the entire premise of reducing human connection to a series of thumb gestures, and they uninstall. I had done exactly this myself, forty-eight hours earlier. There was nothing sinister about her dating profile disappearing. It was, in fact, the most plausible outcome.
+Now, the rational explanation was simple: she'd deleted her account. People do this all the time. They sign up, they swipe, they become disillusioned with the entire premise of reducing human connection to a series of thumb gestures, and they uninstall. I had done exactly this myself. There was nothing sinister about her dating profile disappearing. It was, in fact, the most plausible outcome.
 
-But I kept staring at the empty screen, and what I felt was not reassurance. What I felt was the quiet, creeping awareness that if Maren did not show up for her next shift, and if Dale said something like "she moved on" or "don't worry about it" or simply produced a clipboard and walked away – I would have no evidence that she had ever existed at all.
+But I kept staring at the empty screen, and what I felt was not reassurance. It was the quiet, creeping awareness that if Maren did not show up for her next shift, and if Dale said something like "she quit" or "don't worry about it" or simply produced a clipboard and walked away – I would have no evidence that she had ever existed at all.
 
-I uninstalled the app for the second time in three days and prepared for my perimeter walk.
+I uninstalled the app again and prepared for my perimeter walk.
 
  
 
@@ -386,11 +390,11 @@ This is the part of the walk where the route curves you back toward the office. 
 
 You are not supposed to look at Building F. And I didn’t.
 
-But I looked at the tree, because the tree is technically located in the gap, and the gap is technically not Building F, and from my peripheral vision, I noticed that the tree was doing something.
+But I looked at the tree, because the tree is technically located in the gap, and the gap is technically not part of Building F, and from my peripheral vision, I had noticed that the tree was doing something odd.
 
 Let me rephrase. The tree was leaking.
 
-It wasn't sap. I know what sap looks like – amber, viscous, slow. This substance was thin and clear, pooling at the base of the trunk in a puddle roughly the size of a dinner plate. It caught the floodlight and shimmered. It was still running down the bark in real time, tracing the grooves like it knew where to go. If it had been red, I would have said the tree was bleeding. Since it wasn't red, I had no explanation at all, which was arguably worse.
+It wasn't sap. I know what sap looks like. Amber, viscous, slow. This substance was thin and clear, pooling at the base of the trunk in a puddle roughly the size of a dinner plate. It caught the floodlight and shimmered. It was still running down the bark in real time, tracing the grooves like it knew where to go. If it had been red, I would have said the tree was bleeding. Since it wasn't red, I had no explanation at all, which was arguably worse.
 
 I went back to the office and grabbed an empty bottle from the recycling bin – Dr. Kelp, a seaweed-infused wellness soda bought from the vending machine a few weeks ago. Returning to the tree, I carefully tipped the bottle against the edge of the puddle, letting the liquid run in.
 
@@ -418,11 +422,11 @@ Dale stopped in his tracks, registering the sudden shift in our well-established
 
  
 
-On my drive home, I noticed that Rosa had been correct.
+On my drive home, I noticed that Rosa had indeed been correct.
 
-The chapel was open. More than open. It was operational.
+The chapel was open. More than open. It was active.
 
-Two large trucks were parked out front. Proper commercial vehicles, white-paneled, with out-of-state plates and company logos I couldn't read at speed. The double doors of the chapel were propped wide, and from inside came a light that was entirely wrong for a building that had been dark and locked for as long as I'd lived here. It wasn't candlelight, wasn't the warm glow of restored electricity. It was harsh and white and flickering, and it pulsed in sharp, irregular bursts that threw angular shadows across the gravel lot; the kind of light that belongs to industrial work. To welding, maybe?
+Two large trucks were parked out front. Proper commercial vehicles, white-paneled, with out-of-state plates and company logos I couldn't read at speed. The double doors of the chapel were propped wide, and from inside came a light that was entirely wrong for a building that had been dark and locked for as long as I'd lived here. It was harsh and white and flickering, and it pulsed in sharp, irregular bursts that threw angular shadows across the gravel lot; the kind of light that belongs to industrial work instead of candles.
 
 Back at the apartment, I kicked off my shoes, dropped onto the mattress, and stared at the ceiling. Kessler's ceiling.
 
