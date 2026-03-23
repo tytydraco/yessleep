@@ -1,0 +1,43 @@
+For what it’s worth this occurred in 2003 in the mid south United States.
+
+I bought a basic starter 3 bed home after my apartment kept raising the rent.  The house was minimally furnished.  Bed, dresser, couch, tv, a dining table and chairs.  The master bedroom looked even bigger with my single bed in the corner and a dresser up against the wall.
+
+I had grown up on a hobby farm with chickens, goats, dogs and cats.  We had mixed breed cats and dogs, nothing special.  I had always wanted a unique house pet, something of a show piece.  I ended up getting a pure breed Maine Coon.  I’m 6’0”, and my cat’s shoulders were at my knees, its tail was up to my waist.  Stretched out paws-to-tail this cat was over 5 feet long.  This cat had claws as big as quarters, they were razor sharp.  I called him Moki.  
+
+Moki lived in my house with me.  With a cat this large, I used the bottom of a large dog crate as a litter box.  And a cat this size puts out a tremendous amount of waste, the concentrated smell was unbearable.  I kept the litter crate in the garage.  I also taught Moki to eat out of a large bag of cat food.  I just opened the top and put the bag in the garage and the cat learned to go in the bag and grab whatever it needed.  Moki would never leave the room that I was in.  Moki was always watching, and Moki was always facing me.  It was a bit concerning living with a small hunter that continuously stares at you, that’s fine when you're awake but asleep is another story.
+
+I was never mean to Moki in any way.  Moki loved to drag its teeth down your legs, just the front of the teeth.  When Moki scratched me, or would dig in the trash, or spread spaghetti all over the kitchen.  No retaliation.  Moki also had no concept of fear.  With such a unique cat, I was afraid that the cat would get stolen.  My idea was simple: teach the cat to never leave the threshold of the house, that way I won’t lose him.  To do this I would only take him outside when it was pouring down rain, just a few times and the cat learned to not leave the threshold of my house.  This was great now he wouldn’t take off and he would only go up to the threshold of the house.  It worked, on a sunny day with the door open, the cat would simply stop at the threshold.  Well it worked until my brother let the cat out.
+
+This cat had 5 razor sharp claws larger than a quarter. The cat didn’t fear anything.  Dogs would charge at the cat, but the cat wouldn’t even respond.  Dogs that came close had their noses slashed and ran away with dripping blood.  I lived in the middle house at a short dead end.  The cat liked to lay in the middle of the road.  The cat wouldn’t move even if you drove a car right up to where the cat was laying.  My very gracious neighbors would drive around the cat even going into the ditch to get around the cat.  
+
+I was terrified of Moki at night, and what the cat would do.  When I got into bed, I would stretch a sheet over my head, wrap the sheets around my arms and put my arms above my head making a tent.  Every single night like clockwork, Moki would tuck me in bed.  This is a nearly 23lb cat, so the sheets would pull with every step, I could feel the mattress move, I could hear the strain of the tension when something is moving on a mattress.  Moki would knead an outline around me, starting on my left side by my head, down to my feet and up my right side to my head.  Then at the end Moki would lay on the right side near my head, Moki was my silent guardian.  But I’m still afraid of what my guardian would do to me when I’m asleep, so I’m hiding under my sheets.
+
+One day I came home from work and Moki was nowhere to be found.  I check every room, every closet, the cupboard, even furniture drawers.  The cat was gone.  I canvased the neighborhood.. Nothing..
+
+The first night I went to bed, and it was dark in my bedroom. Living alone, I always had the door shut to my bedroom at night, in case there were any uninvited guests. Maybe I could hear them.  This made my bedroom dark in my room, it was pitch black; I could only see the time on my alarm clock.  I went to bed like I had always done, again hiding under the sheets.  I get into bed, and like clockwork.  Something is tucking me into bed.  Starting at my head on the left side, going down my body to my toes then back up the right side to my head.  I could feel the sheets pulling, I could feel the mattress move, I could hear the mattress tensioning and relaxing.  I felt something lay near my head.  Huzzah, Moki was in my room.  Somehow I had missed a gigantic cat, I jumped out of bed, and turned the light on.  But there was nothing there, just an empty room.
+
+The closet door was shut, bathroom door was shut, bedroom door was shut. I only had a dresser and a bed in the room.  I searched everywhere in the room, I opened every drawer in the dresser, checked under the bed.  I called for Moki.  I also checked the entire house. Nothing.
+
+Now I’m a little on edge, what is going on here?  
+  
+I went back to bed, scared, lights out, back to hiding under the covers, this time like a statue unmoving. Listening for any signs of life.  Again, like clockwork I’m getting tucked back into bed.  And again I feel the sheets pull, the mattress moving from a paw, I hear the noise of the mattress tensioning when something is moving around.  Again for the 2nd time, I got out of bed and went looking for Moki.  Nothing, an empty room, all doors shut, just me, a dresser, and a bed.
+
+Now I’m very concerned.
+
+I went back to bed the 3rd time, and you better believe I was hiding under the covers, and motionless.  For the 3rd time I’m getting tucked into bed.  Now I’m afraid to get out of bed, I eventually fall asleep.  The next morning Moki is still nowhere to be found.
+
+I’m trying to understand what’s happening.  Was that some variation of muscle memory?  Is this just in my head, but I felt the sheets pulling with every step, I heard the faint sounds of the mattress straining from something moving on the bed.
+
+The second night, I shut the bedroom door and bathroom door.  Do a quick check of the room.  Back in bed, like clockwork tucked into bed.  And again, I got out of bed and turned the light on to go look for the cat.  Nothing in my room.  Back to bed, same thing tucked in.
+
+Every night I’m tucked into bed.  After a few weeks, I no longer hide under the sheets, but it still happens.  Starting on my left, around my feet, and back up my right side. Am I going crazy?  How can this be explained, some sort of muscle memory?  Am I hallucinating? I have always thought of myself as a rational person, and fairly skeptical of others claiming to believe in spirits.  I decided that I might be going crazy, I had better keep this to myself, I tell no-one.  Not only did I tell no-one, I never discussed anything remotely related to what's happening.  I’ll just keep this to myself.
+
+Six months had passed, and my brother moved into one of the empty bedrooms after he finished college.  I made the rent so low it only covered the increase in utilities, which was nice to have a little help with expenses.  The first morning my brother was considerably upset, I could see he seemed to be shaken. He was wanting to move out.  He told me something had tucked him into bed and had the exact experience.  Something started at his left side and went down to his feet and back to his head.  After my brother told me what happened to him, I let him know that it was happening to me too and it started when Moki disappeared.  My brother stayed a few months before moving to his own apartment.
+
+Years later my other brother had told me the same thing when he had stayed over, he had something tuck him into bed when he stayed at my house.  I moved to a different house and never had that experience again. 
+
+I still wonder if Moki is still at that house, tucking everyone into bed, and guarding them at night.
+
+  
+  
+  

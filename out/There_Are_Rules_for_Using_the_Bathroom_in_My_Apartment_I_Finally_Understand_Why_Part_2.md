@@ -119,3 +119,5 @@ We are driving to what she called a “safe place”.
 We had been on the road for a bit. I could feel the boils starting to rise again. They can start to follow us. Follow me.
 
 *To slaughter me.*
+
+[\[Final Part\]](https://www.reddit.com/r/nosleep/s/nxeYwYGDpD)
