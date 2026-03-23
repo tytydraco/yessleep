@@ -1,7 +1,5 @@
 [The Missing Parking Lot](https://www.reddit.com/r/nosleep/comments/1kk58co/the_missing_parking_lot_part_1/) (Original)
 
-
-
 We now know the road to the Parking Lot is impossible to find during the day and will only show itself on a particularly dark night and three quick flashes of any light source. Turning the light source off after a successful apparition will close access, acting like some kind of supernatural lock. One must then repeat the sequence to have the road reappear. 
 
 Our urgency to find and enter that place had dissipated now that we knew what had to be done.  
@@ -316,31 +314,8 @@ I had a feeling getting out of there wouldn't be as easy as getting in, I wasn�
 
 There was a police cruiser blocking our exit. The officer inside turned on his headlights and red overhead light when we got 20 feet close. 
 
-He was purposely obstructing our path and keeping his vehicle at an angle. 
+He was purposely obstructing our path and keeping his vehicle at an angle.
 
 Now presented with the opposite dilemma, getting out wouldn't be as simple as we anticipated.
 
-
-
- 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+[The Return To The Missing Parking Lot (Part 2)](https://www.reddit.com/r/nosleep/comments/1s14n22/the_return_to_the_missing_parking_lot_part_2/)
