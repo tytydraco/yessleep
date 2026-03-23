@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/s/OwGhK4LCSG) [Part II](https://www.reddit.com/r/TheCrypticCompendium/s/vRTIddB9ao)  [Part V](https://www.reddit.com/r/Nonsleep/s/cPO5k8mEW4)
+[Part I](https://www.reddit.com/r/nosleep/s/OwGhK4LCSG) [Part II](https://www.reddit.com/r/TheCrypticCompendium/s/vRTIddB9ao) [Part IV](https://www.reddit.com/r/Nonsleep/s/5UGqbOVVhU) [Part V](https://www.reddit.com/r/Nonsleep/s/cPO5k8mEW4)
 
 Everything had felt so empty those last few days. Who would’ve thought that caffeine and nicotine couldn’t fill the void of someone you love?
 

@@ -314,6 +314,10 @@ She ticked them off without any pause for applied creativity. It was all just th
 
 "That one seems –"
 
+"Another group that used an ancient torture device as a symbol of peace and pretended eating human flesh on a regular basis."
+
+"Well now it’s getting a bit absur –"
+
 "And the last registered group," she said, raising her voice just enough to make it clear that the lecture was approaching its conclusion, "was called the Assembly of Realists, who believed that this realm is actually hell, and they’ve been sent here as punishment for their failings in their previous mortal existence."
 
 "Oh wow, the last one is actually quite convincing. Do they still operate?"
