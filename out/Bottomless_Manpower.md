@@ -147,3 +147,5 @@ The object was re-contained by neutralizing all Enlightened and burning the obje
 \~\~\~\~
 
 What the hell was the purpose of leaving this on my desk?
+
+[Next](https://www.reddit.com/user/Ancarn/comments/1s1qfal/my_partner_in_life_betrayed_me/)
