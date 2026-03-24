@@ -136,7 +136,9 @@ I grabbed the bag, brought it inside, returned to my laptop and steeled myself f
 
 I nonetheless wondered if it’d be worthwhile to go there. Just to rule it out. Inaction would only make me spiral.
 
-*Bzzzt.* Ken calling again. A few missed calls from him now at this point. I answered. 
+*Bzzzt.* Ken calling again. A few missed calls from him now at this point.
+
+Tunnel vision was making me a prick. I answered. 
 
 “Hi. I’m heading to the building,” I said. 
 
@@ -186,7 +188,7 @@ Ken—*again.* I answered.
 
 “Is that you?” he said, as I saw the man in the car two lanes down with cellphone pressed to ear, looking my way.
 
-“Yeah. Find parking, then call me.”
+“Yeah," I said. "Find parking. I'll meet you at the front of the building."
 
 I hung up. And then—
 
@@ -202,11 +204,11 @@ Straight to voicemail. No ring this time. 
 
 “*Hi, this is Ella. Ella. Ella. Eh. Eh. Eh. I cannot answer the phone—*”
 
-Ken was beside me now. Salt-and-pepper hair. I remembered our bowling excursion together — the story about him and Mei moving here from South Korea after he landed an amazing job. I also remembered just how shit I was at bowling. It always looked easier than it actually was.
+Ken was beside me now. Salt-and-pepper hair. I remembered our bowling excursion together — the story about him and Mei moving here from South Korea after he landed an amazing job. I also remembered just how shit I was at bowling.
 
 “Should we go inside?” he asked.
 
-As I considered, a thought hit me: late.
+"I think so," I said. Then, a thought hit me: late.
 
 I called 911 again.
 
@@ -418,7 +420,7 @@ Having grabbed everything I needed, I then went back to my laptop. 
 
 I looked up the details of the company Ella worked for, and maneuvered to their website—
 
-Buzzwords about cutting-edge research in computer vision, cognitive modeling, and perceptual imaging kept surfacing over and over. *“Ushering in a new phase of technological evolution for the human race.”* 
+Buzzwords about cutting-edge research in cognitive modeling and perceptual imaging kept surfacing over and over. *“Ushering in a new phase of technological evolution for the human race.”* 
 
 I went to the section about the company’s leadership team next. I was smacked in the face with an oversized image of the company’s two founders. Both looked to be about in their mid 40s. Well dressed. *Twins.*
 
@@ -572,13 +574,13 @@ I caught him through the glass walls, taking slow, deliberate steps, inching for
 
 “You killed him,” Kristin whispered.
 
-“Don’t say that,” I whispered back. Then, to him: “Talk, Ken.” 
+“Don’t say that,” I whispered back. Then, to him: “Tell me what you see, Ken."
 
 “It’s… still the lobby, it’s still dark, I’m going into the hallway, I see someone… *something* by the elevator, they’re on the ground, they don’t look well, I see—” and then he froze, “see—”
 
-*The grainy, distant music in the background again.* A different track now.
+*The grainy, distant music in the background again.* A new track now.
 
-“What? *Talk.*”
+“What?”
 
 “See,” he repeated.
 
@@ -610,7 +612,7 @@ I was at a loss for words.
 
 “Twenty-three,” he repeated. 
 
-“What does that mean, Ken? You were just with us, *snap out of—*”
+“What does that mean, Ken? You were just with us\*—\*”
 
 “Twenty-three.”
 
@@ -904,7 +906,7 @@ She put on the dark frames. Looked at me.
 
 I shifted away from the group, toward the end of the hall. I glanced back over my shoulder to see—amid crying, panic, and breakdowns—the few survivors pulling themselves together, covering their eyes with their hands or lifting jackets to obscure their sight, while Kristin led them out.
 
-I prayed Ken wouldn’t linger near the first-floor hallway, when he got there. 
+I prayed Ken wouldn’t linger near the first-floor hallway, when he got there. Prayed he wouldn't see the horror of what became of Mei.
 
 I continued on. My eyes shot from bleeding out creature to bleeding out creature. Chimeras. Monstrosities. The rare human-like corpse among the aberrations. 
 
