@@ -513,3 +513,5 @@ So faint I almost missed it.
 It continued that way until I saw the morning light shine through.
 
 Everything after that is scattered. What I’m writing now is from memory, as best as I can piece it together. I’ll post more once I can get my thoughts straight.
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/1s2m0m0/claustrophobia_an_account_part_two/)
