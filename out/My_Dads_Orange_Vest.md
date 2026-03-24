@@ -60,7 +60,7 @@ I felt strange, but who else was going to get me home? Who else do I trust?
 
 We walked for some time. The walk was quiet. No remarks, no bonding, no nothing. The silence was back, more oppressive than before.
 
-I looked at him again. Just to be sure, his outfit was the same. Posture, the way he walked. The way he his the rifle. The only thing that I noticed was that he didn't have his orange vest.
+I looked at him again. Just to be sure, his outfit was the same. Posture, the way he walked. The way he held his the rifle. The only thing that I noticed was that he didn't have his orange vest.
 
 It was strange, maybe it got tagged on a tree-line when he was looking for me and he didn't bother to grab it. I wanted to ask, but something in the back of my head told me not to break the silence.
 
