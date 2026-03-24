@@ -86,7 +86,9 @@ I looked out the rear view mirror again and saw that the police car was heading 
 
 I stepped out quickly, putting the truck's keys in my jean pocket and clipping the radio to that same pocket in the darkness. I took two more steps before tripping on what I can only assume was a piece of wreckage from our crash.
 
-I fell on my side and heard something fall out of my hoodie and slide on the pavement. It was the gun Andy had let me borrow, It had flown out and away from me in the fall. I checked and my hoodie's pocket was now empty. I stayed put, tightly gripping my flashlight. Afraid of turning it on and exposing myself, I laid there in the dark.
+I fell on my side and heard something fall out of my hoodie and slide on the pavement. It was the gun Andy had let me borrow, It had flown out and away from me in the fall. I checked and confirmed my hoodie's front pocket was now empty. 
+
+Tightly gripping my flashlight. Afraid of turning it on and exposing myself, I laid there in the dark.
 
 Turning to lay on my stomach I heard the car get closer.
 

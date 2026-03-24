@@ -1,4 +1,4 @@
-Ever since I can remember, I’ve had an aversion to being alone. More accurately, I hated being left alone with my thoughts.
+Ever since I can remember, I’ve had an aversion to being alone. More accurately, I hated being left alone.
 
 As a baby, my parents told me I cried the loudest the moment they left the room. But when we moved to the city, they noticed I became much calmer. Even when they left me be, I didn't wail like I used to. I always wondered why that was, until high school. That was when I realized it wasn't the loneliness I feared; it was the silence that comes with it.
 

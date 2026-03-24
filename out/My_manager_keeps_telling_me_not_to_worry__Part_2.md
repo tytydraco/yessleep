@@ -348,7 +348,7 @@ I hate to admit it, but some part of my subconscious was disappointed by that, a
 
  
 
-I got home around 6:30 AM. My apartment is a one-bedroom on the second floor of a building that was described in the listing as "character-rich," which is real estate language for "the previous tenant may have been murdered here in his sleep." 
+I got home around 6:30 AM. My apartment is a one-bedroom on the second floor of a building that was described in the listing as "character-rich," which is real estate language for "the previous tenant may have been murdered here in his sleep."
 
 It's small and mostly clean and it contains everything I need: a bed, a couch, a kitchen with exactly one working burner, as well as a television I never turn on because the channels in Silt Creek are limited to one public access station that aired a rerun of a city council meeting from 2014 the only time I tried.
 
@@ -383,3 +383,5 @@ The screen refreshed. It now said: “No more profiles found in your area.”
 Ah, well.
 
 I uninstalled the app and listened to the sounds of an empty apartment doing nothing, which is apparently the most active social life Silt Creek has to offer.
+
+\[[Part 3](https://www.reddit.com/r/nosleep/comments/1s12ke1/my_manager_keeps_telling_me_not_to_worry_part_3/)\]
