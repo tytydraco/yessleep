@@ -360,7 +360,7 @@ Through the monitors, I watched her cross the parking lot toward her unit in Bui
 
 Now, I want to make it perfectly clear that paying that chapel a visit was, indeed, not on my to-do list. I had been perfectly honest about that, which in turn puts Rosa's aura-reading abilities into serious question. My mind was busy with something else.
 
-See, calling in sick is a normal thing. People do it constantly. It is one of the most unremarkable events in the history of employment. And under any other circumstances, I would have accepted it at face value, filed it under "not my concern," and moved on with my shift.
+See, calling in sick is a normal thing. People do it constantly. I myself am somewhat of a grandmaster in the delicate art of being absent. It is one of the most unremarkable events in the history of employment. And under any other circumstances, I would have accepted it at face value, filed it under "not my concern," and moved on with my shift.
 
 But this was EverSafe. And at EverSafe, unremarkable events have a habit of retroactively becoming extremely remarkable.
 
