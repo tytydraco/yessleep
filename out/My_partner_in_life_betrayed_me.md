@@ -139,3 +139,5 @@ I didn't have anything to say. She was right; she did only ever ask to go out to
 "And you defected still." I pulled my gun out of the holster.
 
 I couldn't grant her wish of dying on the flowers she loved. She would instead die wherever the Museum took her.
+
+[Next](https://www.reddit.com/user/Ancarn/comments/1s2r9ho/i_finally_caught_the_demon_i_had_been_hunting_it/)
