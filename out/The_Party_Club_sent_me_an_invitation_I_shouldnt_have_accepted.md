@@ -1,12 +1,14 @@
+TW: GORE
+
 After the man knocked for the second time and handed me a liver, I knew this wasn’t ordinary. It was something beyond my understanding - something… supernatural.
 
 But it’s not like this was bad for me.
 
-I was in the business for a while. I worked as a surgeon - a provider for a business, a complex network designed to maximize cooperation and eliminate internal threats. One slip up and you’re kicked out or killed. There's always someone ready to replace you. 
+I was in the business for a while. I worked as a surgeon - a provider for a business, a complex network designed to maximize cooperation and eliminate internal threats. One slip up and you’re kicked out or killed. There's always someone ready to replace you.
 
 Let’s call this business The Party Club.
 
-There were trusted providers but I wasn’t one of them, though I’m considered relatively senior. However, this meant I could live freely without much restriction and excessive surveillance - they were strict on operations, especially among the higher ups. They had no intention of letting their business go anytime soon. 
+There were trusted providers but I wasn’t one of them, though I’m considered relatively senior. However, this meant I could live freely without much restriction and excessive surveillance - they were strict on operations, especially among the higher ups. They had no intention of letting their business go anytime soon.
 
 Life was good. I make money and can provide for my family working as an “M&A manager for a nearby company”. I think about them every second of every day. I can see them smiling, playing together within the warm hue of the living room. My beautiful wife hugs my clever, 13 year-old daughter with one arm and holds my precious, 2 year-old son with another. I can imagine her laughing as my daughter makes a face, half embarrassed and half annoyed, while my son babbles incoherent expressions, searching for attention with his bright eyes. Thinking about it brings a smile to my face.
 
@@ -14,7 +16,7 @@ I remember the first time the man knocked. It was odd. I wasn’t expecting anyo
 
 “Hello Mr. \[REDACTED\]! I’m here to provide for The Party Club. What would you like today?” he said cheerily.
 
-Now as a provider myself, I was very confused. Not because he knew my name but because he came to find me. In this line of work it wasn’t uncommon for your name to be shared around. Why not call somebody to pick the organs up and send them to a broker? 
+Now as a provider myself, I was very confused. Not because he knew my name but because he came to find me. In this line of work it wasn’t uncommon for your name to be shared around. Why not call somebody to pick the organs up and send them to a broker?
 
 I wasn’t sure why he sought me out but I decided to humor him - maybe this could be useful. But first I had to find out if he was a real worker or not.
 
@@ -40,7 +42,7 @@ His smile stretched and he beamed.
 
 He turned around and reached into his wagon, pulling out a kidney from the bottom. It unnerved me that I couldn’t see the bottom of it. The wagon seemed to stretch down into a dark abyss.
 
-He held out the kidney and I reluctantly took it from him. Still slick with blood, it almost slipped out of my hands. It looked like it was taken from a body seconds ago. 
+He held out the kidney and I reluctantly took it from him. Still slick with blood, it almost slipped out of my hands. It looked like it was taken from a body seconds ago.
 
 “Thank you for ordering!”
 
@@ -48,7 +50,7 @@ I could only stare as he turned away. I watched as he disappeared down the stree
 
 But what’s the harm in taking advantage of the situation?
 
-I put the organ in a small cooler filled with ice and carried it out to the car. Our operation base - a hospital most of you are familiar with - wasn’t too far. I wanted to get it to the broker as soon as possible when the organ was most viable. 
+I put the organ in a small cooler filled with ice and carried it out to the car. Our operation base - a hospital most of you are familiar with - wasn’t too far. I wanted to get it to the broker as soon as possible when the organ was most viable.
 
 The babysitter came shortly after and I headed to work.
 
@@ -60,7 +62,7 @@ While I still clocked into work, I thought about what I would do if the wagon ma
 
 Money was wired from time to time. I’m not sure where the middleman takes the organs, nor who sells them. Though not many sales are made in a month, one operation can make thousands. I got a good cut, and that was all I needed.
 
-The next day, I wasn’t as surprised when I opened the door for him at the same time in the morning. He wore the same suit, same smile, and held the same red wagon. I ordered a liver this time. He pulled one from the wagon and handed it to me. 
+The next day, I wasn’t as surprised when I opened the door for him at the same time in the morning. He wore the same suit, same smile, and held the same red wagon. I ordered a liver this time. He pulled one from the wagon and handed it to me.
 
 It was just as fresh as the kidney I had ordered the day before.
 
@@ -116,7 +118,7 @@ She shook her head and sighed. “Don’t drink too much next time.”
 
 I changed back into more comfortable clothes before following her footsteps into the kitchen, where the kids were eating pancakes.
 
-My wife stood at the stove and suddenly turned towards me as if she remembered something. 
+My wife stood at the stove and suddenly turned towards me as if she remembered something.
 
 “Oh right! I almost forgot to tell you. I collected the mail last night and someone mailed you something, let me find it.”
 
@@ -178,7 +180,7 @@ Luckily I remembered to bring it with me. I unfolded it from my back pocket and 
 
 The middle man and I eyed each other in confusion. It wasn’t exactly surprising that The Party Club knew everything about us, but it was still unnerving to have them monitor me without my knowledge. Well, I did ask for this after all, joining this business.
 
-The middleman and I took turns whispering into her ear about our secrets. I told her about the scar that I had under my lip from slamming my face into concrete after using an ab roller. Embarrassing, I know. 
+The middleman and I took turns whispering into her ear about our secrets. I told her about the scar that I had under my lip from slamming my face into concrete after using an ab roller. Embarrassing, I know.
 
 Once we were done, she clicked on her computer twice, seemingly satisfied.
 
@@ -212,7 +214,7 @@ He collapsed to the ground.
 
 I ran towards him and lifted his shirt.
 
-His stomach had been cut open - a huge, vertical slit that ran from his mid chest to his lower stomach. Blood was pouring out, pooling around his limp body. 
+His stomach had been cut open - a huge, vertical slit that ran from his mid chest to his lower stomach. Blood was pouring out, pooling around his limp body.
 
 “Quick! Someone call 911!” I yelled.
 
