@@ -174,7 +174,7 @@ We went into the building and were immediately greeted by a receptionist sitting
 
 “Show me your invitations.”
 
-Luckily I remembered to bring it with me. I unfolded it from my back pocket and presented it to her, the middleman doing the same.
+Luckily I remembered to bring the envelope with me. I unfolded it from my back pocket and presented it to her, the middleman doing the same.
 
 “Alright. Now tell me one interesting fact about yourself that no one else knows about.”
 
