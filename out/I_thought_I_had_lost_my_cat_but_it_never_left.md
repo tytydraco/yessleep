@@ -18,8 +18,8 @@ The first night I went to bed, and it was dark in my bedroom. Living alone, I al
 
 The closet door was shut, bathroom door was shut, bedroom door was shut. I only had a dresser and a bed in the room.  I searched everywhere in the room, I opened every drawer in the dresser, checked under the bed.  I called for Moki.  I also checked the entire house. Nothing.
 
-Now I’m a little on edge, what is going on here?  
-  
+Now I’m a little on edge, what is going on here?
+
 I went back to bed, scared, lights out, back to hiding under the covers, this time like a statue unmoving. Listening for any signs of life.  Again, like clockwork I’m getting tucked back into bed.  And again I feel the sheets pull, the mattress moving from a paw, I hear the noise of the mattress tensioning when something is moving around.  Again for the 2nd time, I got out of bed and went looking for Moki.  Nothing, an empty room, all doors shut, just me, a dresser, and a bed.
 
 Now I’m very concerned.
@@ -36,8 +36,8 @@ Six months had passed, and my brother moved into one of the empty bedrooms after
 
 Years later my other brother had told me the same thing when he had stayed over, he had something tuck him into bed when he stayed at my house.  I moved to a different house and never had that experience again. 
 
-I still wonder if Moki is still at that house, tucking everyone into bed, and guarding them at night.
+This went on for several years, every night tucked into bed.  Then one night it didn't happen.  At the time I didn't think much of it, being tucked in at night no longer bothered me.  The next night my visitor was back again.  This missed night started happening more and more.  Another change gradually happened over time, the pressure and intensity which was so strong at the beginning began to wane.  What began with a full tug on the sheets and the pressure of a large cats paw had now become less intense, it was still present but now not as strong.
 
-  
-  
-  
+At the end of the fifth year since losing Moki the night time visits were now only once or twice a week.  On those empty nights sometimes I would sometimes reach out in my mind, and call out to Moki to visit me.  To come back and tuck me into bed, and to sit silently by my head, my guardian.
+
+Now in the sixth year since losing Moki the visits were gone.  My guardian was gone.
