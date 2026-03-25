@@ -245,3 +245,5 @@ Alerted to movement the screen lit my face, displaying a list of file names. Now
 "You tricky whore," Seb said.
 
 Then I heard something real. Footsteps. And I wondered how fast I could get to the kitchen to grab one of those knives.
+
+[Part 4: The end](https://www.reddit.com/r/nosleep/comments/1s39poo/my_dead_husband_built_me_a_house_then_it_started/)
