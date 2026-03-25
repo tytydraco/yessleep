@@ -52,7 +52,7 @@ Trying to get away from him I reversed violently turning the steering wheel to t
 
 I put our truck back on drive and turned left fast making our tires screech in the process. The man inside the police cruiser stayed put and fired a few more shots at us from out his window. He seemed to be aiming downwards, is he trying to hit our tires? I asked myself. 
 
-Hearing a bullet whizz and bounce off the pavement from under us. I kept driving, weaving in between cars and getting as much distance away from him as I could. Simultaneously heading away from our exit.
+Hearing a bullet whizz and bounce off the pavement from under us, I kept driving, weaving in between cars and getting as much distance away from him as I could. Simultaneously heading away from our exit.
 
 For a brief second I saw something slender and dark jump out of the way to avoid the range of our headlights. Some kind of animal was frightened by the light. 
 
@@ -280,7 +280,7 @@ Dario helped Andy roll up his bloody sleeve, a deep gash was revealed on his for
 
 Andy exhaled out of his nose and shook his head before cracking a half smile amongst the pain. “This guy fucking shot me” he said referring to Dario.
 
-“Wait what?, and you're giving *me* shit, come on man. I replied looking at Dario.
+“Wait what?, and you're giving *me* shit, come on man", I replied looking at Dario.
 
 "It looked like one of those things was coming straight at us but instead it ran past us, thats when I took the shot" Dario said explaining himself.
 
