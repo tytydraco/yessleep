@@ -34,7 +34,7 @@ Every night I’m tucked into bed.  After a few weeks, I no longer hide under t
 
 Six months had passed, and my brother moved into one of the empty bedrooms after he finished college.  I made the rent so low it only covered the increase in utilities, which was nice to have a little help with expenses.  The first morning my brother was considerably upset, I could see he seemed to be shaken. He was wanting to move out.  He told me something had tucked him into bed and had the exact experience.  Something started at his left side and went down to his feet and back to his head.  After my brother told me what happened to him, I let him know that it was happening to me too and it started when Moki disappeared.  My brother stayed a few months before moving to his own apartment.
 
-Years later my other brother had told me the same thing when he had stayed over, he had something tuck him into bed when he stayed at my house.  I moved to a different house and never had that experience again. 
+Years later my other brother had told me the same thing when he had stayed over, he had something tuck him into bed when he stayed at my house.
 
 This went on for several years, every night tucked into bed.  Then one night it didn't happen.  At the time I didn't think much of it, being tucked in at night no longer bothered me.  The next night my visitor was back again.  This missed night started happening more and more.  Another change gradually happened over time, the pressure and intensity which was so strong at the beginning began to wane.  What began with a full tug on the sheets and the pressure of a large cats paw had now become less intense, it was still present but now not as strong.
 
