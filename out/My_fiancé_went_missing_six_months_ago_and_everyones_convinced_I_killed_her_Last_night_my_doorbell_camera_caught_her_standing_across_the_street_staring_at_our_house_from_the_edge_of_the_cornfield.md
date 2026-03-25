@@ -16,11 +16,13 @@ We were home that day, just the two of us. Rose went outside to stick a “FOR S
 
 Still, she was insistent.
 
-A sale would have financed the wedding Rose always envisioned for us, so goddamnit, she was going to figure out a way to sell it, and that meant trying *everything,* including the sign\*.\* Rose was stubborn like that. Fiercely, unapologetically bull-headed. 
+A sale would have financed the wedding Rose always envisioned for us, so goddamnit, she was going to figure out a way to sell it, and that meant trying *everything,* including the sign. Rose was stubborn like that. Fiercely, unapologetically bull-headed. 
 
 Always had been. 
 
-During the winter of ‘96, her family’s golden retriever ran out onto a frozen lake and fell through the ice. Her mom screamed for her to *stay put*, but the command didn’t even slow her down; she dove headfirst into the water. Rose couldn’t save the drowning dog, of course. I mean, what are the odds *any* eight-year-old could have? That wasn’t the point, though. If she wanted something, she’d do everything in her power to make it manifest, no matter what anyone said, no matter the cost. In that case, the cost was pretty steep: eight days in the hospital, thirty thousand dollars in medical expenses, and a trio of amputated toes. Frostbite had devoured the smallest three on her right foot; left each of them dusk-colored and brittle like an eggshell. You’d think losing some digits would’ve dented her natural resolve, but not Rose - her ability to walk was never the same, but she wobbled with her chest puffed out, emerald eyes gleaming with this inextinguishable fire, her expression steadfast and sure, even when the kids at school mocked her, nicknaming her “Two-Toed Rose”. 
+During the winter of ‘96, her family’s golden retriever ran out onto a frozen lake and fell through the ice. Her mom screamed for her to *stay put*, but the command didn’t even slow her down; she dove headfirst into the water. Rose couldn’t save the drowning dog, of course. I mean, what are the odds *any* eight-year-old could have? That wasn’t the point, though. If she wanted something, she’d do everything in her power to make it manifest, no matter what anyone said, no matter the cost. In that case, the cost was pretty steep: eight days in the hospital, thirty thousand dollars in medical expenses, and a trio of amputated toes. Frostbite had devoured the smallest three on her right foot; left each of them dusk-colored and brittle like an eggshell.
+
+You’d think losing some digits would’ve dented her natural resolve, but not Rose - her ability to walk was never the same, but she wobbled with her chest puffed out, emerald eyes gleaming with this inextinguishable fire, her expression steadfast and sure, even when the kids at school mocked her, nicknaming her “Two-Toed Rose”. 
 
 Naturally, I didn’t bother to fight her on the “FOR SALE” sign.
 
@@ -284,7 +286,7 @@ Then, I saw it.
 
 Not in the cornfield; much closer to the camera, hanging over the porch awning.
 
-A bulbous, rolling-pin-shaped knob with two thin, crooked, wriggling protrusions, sticking out like insect antennae. Those protrusions hooked onto the awning’s edge and pushed up, quickly disappearing from the feed. 
+A bulbous, rolling-pin-shaped knob with two thin, crooked, wriggling protrusions, curling over at the ends like cricket antennae. Those protrusions hooked onto the awning’s edge and pushed up, quickly disappearing from the feed. 
 
 Recognition came in small, venomous drips. An old nickname began rattling around my skull. 
 
@@ -300,11 +302,11 @@ Silver moonlight bathed the water-logged couch in an eerie glow. I didn’t unde
 
 There was a hole. 
 
-A narrow hole with smooth, rounded edges.
+A narrow hole with smooth, rounded edges. Maybe *slit* is a more appropriate word.
 
-Maybe slit is a more appropriate word.
+It was long.
 
-It was long. From my vantage, I couldn’t see how long. I leaned a little more, but stopped before I saw the end. 
+From my vantage, I couldn’t see how long. I leaned a little more, but stopped before I saw the end. 
 
 I squinted. 
 
@@ -388,7 +390,7 @@ Dan keeps calling. Once I’m a little farther away, I’ll pick up. I don’t w
 
 I’m going to do whatever I can to evade her. For better or worse, I’m connected to her now. She has my right hand.
 
-If I focus, I almost feel like I can wiggle my fingers. 
+If I focus, I almost feel like I can wiggle my fingers.
 
 I don’t know what exactly happened to her. Maybe my Dad was right. Maybe the land is cracked at the seams. Maybe things slip through and end up somewhere else. A different, parallel place, loosely tethered to our piece of reality.
 
@@ -400,4 +402,4 @@ but I think Rose and I are destined for a much deeper connection,
 
 very, very,
 
-[soon. ](https://www.reddit.com/r/unalloyedsainttrina/)
+[soon. ](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
