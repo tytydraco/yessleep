@@ -1,8 +1,8 @@
-Hey!
+Can you guys just help me figure this out?
 
-This is a collection of some fifty or so transcribed audio recordings from a “new” used phone I recently acquired. Used AI to transcribe it all (don’t expect me to listen man, i know how it goes, shits prolly cursed to hell and back). Confirming these suspicions, the generated summary turned out… pretty strange. Jumbled up letters. Don’t know what the fuck that means. The file itself is waaaaaay too long for me to read, so I’m just gonna upload the whole .txt on here for y’all to figure out. You guys like that kiI recognize that I am in a house. 
+I found a collection of some fifty or so transcribed audio recordings from a “new” used phone I recently acquired. Used AI to transcribe it all (don’t expect me to listen man, i know how it goes, shits prolly cursed to hell and back). Confirming these suspicions, the generated summary turned out… pretty strange. Jumbled up letters. Don’t know what the fuck that means. The file itself is waaaaaay too long for me to read, so I’m just gonna upload the whole .txt on here for y’all to figure out. You guys like that kiI recognize that I am in a house. 
 
-I am in a room surrounded by four walls with holes and gaps in them that constitute hallways and windows and doors. There is a wooden table that I am under and draped over it is a tablecloth with indiscernible stitched designs on it and I am bleeding, heavily. I am on the floor. I am facing down the direction of a hallway that I cannot see into, both on account of the tablecloth and that it’d be too dark to see anything anyways. But I’m able to make out the shape of my hand and stump and a bit of floor across the bottom of the tablecloth right in front of me and, although I wish, with the deepest depths of my soul that I may find the courage to move this cloth out of the eyes and stare down the hallway at my fate as it approaches me I remain unable to move the tablecloth. I’m not very brave, and I don’t want to see it when it happens. 
+I am in a room surrounded by four walls with holes and gaps in them that constitute hallways and windows and doors. There is a wooden table that I am under and draped over it is a tablecloth with indiscernible stitched designs on it and I am bleeding, heavily. I am on the floor. I am facing down the direction of a hallway that I cannot see into, both on account of the tablecloth and that it’d be too dark to see anything anyways. But I’m able to make out the shape of my hand and stump and a bit of floor across the bottom of the tablecloth right in front of me and, although I wish, with the deepest depths of my soul that I may find the courage to move this cloth out of my eyes and stare down the hallway at my fate as it approaches me I remain unable to do so. I’m not very brave, and I don’t want to see it when it happens. 
 
 It’s here. 
 
@@ -43,7 +43,7 @@ And a graph, attached below: (accounted for human error)
 |6|3.15|
 |7|1.93|
 |||
-|8|13:10.27|
+|8|11:13:10.27|
 
 The passing out period seems to be between one to fifteen seconds. One time my head didn’t even hit the pillow! Probably within a fraction of a second, that time. But you feel it every single time it happens, like it’s not instant \*snap\* then I’m back, you remember your eyes closing. It’s weird!
 
