@@ -1,5 +1,3 @@
-**CW: Sexual Themes, Voyeurism**
-
 At least once a year, my old friend, Sam, and I go hiking to a specific spot out west. I’m not gonna say what park or what state. I don’t want anyone hiking out there after reading this to see if I’m telling the truth or not. It’s taken me some time to process everything, but I have come to realize that writing this serves two purposes. The truth must out, and I must remember. I must remember Sam. So, I want to start at the beginning of the day, so you can see how he was. On these hikes, he tended to be the most himself. He always said being in nature, away from the noise, made it easier for him to connect with himself, like a meditation ritual or something like that.
 
 It was a one-day round-trip hike. By that I mean one daylight day, not a full 24 hours. We would always be back before dark, and we were incredibly experienced hikers, so you can’t say we were caught unawares by any natural phenomenon. I did not leave him behind in a panic, at least not in the sense that the police were insinuating. 
@@ -118,7 +116,7 @@ Another X, carved and painted. We started running from there, but we didn’t ma
 
 The wind shifted behind me, but the trees danced the same. I felt a presence behind me and, in that moment, decided to trust my gut. I sprayed blindly behind me and heard the sound of someone choking and gasping.
 
-“Fuck!... You *cough,* you fucking bitch!” 
+“Fuck!... You *cough,* you fucking bitch!”
 
 I heard Sam give someone a solid whack with the nightstick. We left the trail, running a random direction into the forest. The wind picked up behind us as if pushing us onward, but I felt the cold front come with it.
 
