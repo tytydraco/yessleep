@@ -388,12 +388,16 @@ Dan keeps calling. Once I’m a little farther away, I’ll pick up. I don’t w
 
 I’m going to do whatever I can to evade her. For better or worse, I’m connected to her now. She has my right hand.
 
-If I focus, I almost feel like I can move it. 
+If I focus, I almost feel like I can wiggle my fingers. 
 
 I don’t know what exactly happened to her. Maybe my Dad was right. Maybe the land is cracked at the seams. Maybe things slip through and end up somewhere else. A different, parallel place, loosely tethered to our piece of reality.
 
 Wherever she disappears to, it makes sense that Rose, of all people, would find a way to come back. When Rose wants something, she’ll do anything in her power to make it manifest.
 
-And we never had that wedding,
+We never had our wedding,
 
-[after all.](https://www.reddit.com/r/unalloyedsainttrina/) 
+but I think Rose and I are destined for a much deeper connection,
+
+very, very,
+
+[soon. ](https://www.reddit.com/r/unalloyedsainttrina/)
