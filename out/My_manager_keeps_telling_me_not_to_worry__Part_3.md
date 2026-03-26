@@ -437,3 +437,5 @@ Back at the apartment, I kicked off my shoes, dropped onto the mattress, and sta
 She probably had a cold. Or a headache. She’ll be fine.
 
 Unlike Patrice. Who had once been staring at this very ceiling.
+
+\[[Part 4](https://www.reddit.com/r/nosleep/comments/1s4ksf8/my_manager_keeps_telling_me_not_to_worry_part_4/)\]
