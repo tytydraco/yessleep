@@ -1,3 +1,5 @@
+[Part Two](https://www.reddit.com/r/nosleep/comments/1s4i5n3/i_work_as_a_guard_in_an_underground_facility_we/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 Let me begin by stating that you’re not supposed to know any of this. That’s not to say you’ll get in trouble for reading it. They can’t make that many people disappear without being noticed. Me? I’m a different case. I’ll probably go missing soon if they find the posts I’m about to publish.
 
 With that out of the way, I’ll get straight to the point. I was hired as a guard for an underground facility located inside an undocumented Alaskan mountain. I will keep the hiring process a secret, because I don’t want anyone trying to find it and getting themselves killed.
