@@ -222,7 +222,7 @@ I scanned every inch of it - once, twice, three times - and all I saw was the he
 
 It took about an hour to settle my screaming nerves. 
 
-I bolted from window to window, peering out into the storm, frantically surveying the perimeter for whatever I thought I saw, hoping *that* would calm me down. The patrol backfired. My imagination projected the long-legged silhouette into every dark corner of the overwhelming gloom, elevating my panic to new heights. 
+I darted from window to window, peering out into the storm, frantically surveying the perimeter for whatever I thought I saw, hoping *that* would calm me down. The patrol backfired. My imagination projected the long-legged silhouette into every dark corner of the overwhelming gloom, elevating my panic to new heights. 
 
 Autopilot took over. 
 
@@ -322,7 +322,7 @@ I almost smiled. 
 
 Rose had found a way back to me. 
 
-Scorching pain engulfed my entire hand, a feeling like hundreds and hundreds of insect legs skittering across my flesh. I leapt back, wailing in agony, terror squeezing my heart, but it was too late. I threw myself around and sprinted towards the back door. I stretched my hand out to grasp the knob, but something went wrong. I could feel my palm and my fingers, but they hadn’t moved to the door with me. Somehow, they remained in the center of the kitchen.
+Scorching pain engulfed my entire hand, a feeling like hundreds and hundreds of insect legs burrowing into my flesh. I leapt back, wailing in agony, terror squeezing my heart, but it was too late. I threw myself around and sprinted towards the back door. I stretched my hand out to grasp the knob, but something went wrong. I could feel my palm and my fingers, but they hadn’t moved to the door with me. Somehow, they remained in the center of the kitchen.
 
 I looked down. 
 
@@ -350,7 +350,7 @@ I felt her. 
 
 She wasn’t far behind. 
 
-I swung the door open and launched myself into the driver's seat. My stump collided with the gear lever. Unbearable pain radiated up my arm. Syrupy warmth of leaking blood trickled across my wrist. I screamed through a tensed jaw, chipping teeth. I sucked down the chalky fragments and reached under the seat, grasping for the spare key.  
+I swung the door open and launched myself into the driver's seat. My stump collided with the gear lever. Unbearable pain radiated up my arm. The syrupy warmth of leaking blood trickled across my wrist. I screamed through a tensed jaw, chipping teeth. I sucked down the chalky fragments and reached under the seat, grasping for the spare key.  
 
 I couldn’t see her, but I knew she was only a few feet away. 
 
@@ -378,7 +378,7 @@ The collision itself was noiseless. No crunching of metal, no shattering of glas
 
 I creaked upright, inspecting the damage.
 
-A perfect, face-shaped hole ran the length of the truck. Steam drifted from the metal edges. Once again, my connection to Rose dimmed.
+A perfect, face-shaped hole ran the length of the truck, exactly where my head had been before I ducked. Steam drifted from the metal edges. Once again, my connection to Rose dimmed, but it didn’t leave me completely.
 
 It only truly disappears when she slips through the seams.
 
@@ -386,15 +386,15 @@ It only truly disappears when she slips through the seams.
 
 Currently, I’m holed up in a cheap motel, about ten miles from the farmhouse.
 
-Dan keeps calling. Once I’m a little farther away, I’ll pick up. I don’t want to risk him being caught in the crossfire. Rose is still coming for me. Seems that some part still wants me; a residual urge that refuses to fade despite her grievous mutations.
+Dan keeps calling. Once I’m a little farther away, I’ll pick up. I don’t want to risk him being caught in the crossfire. Rose is coming for me. Seems that some part of her still wants me; a residual urge that refuses to fade despite her grievous mutations.
 
-I’m going to do whatever I can to evade her. For better or worse, I’m connected to her now. She has my right hand.
+I’m going to do whatever I can to evade her, but for better or worse, I’m connected to her now. She has my right hand.
 
 If I focus, I almost feel like I can wiggle my fingers.
 
 I don’t know what exactly happened to her. Maybe my Dad was right. Maybe the land is cracked at the seams. Maybe things slip through and end up somewhere else. A different, parallel place, loosely tethered to our piece of reality.
 
-Wherever she disappears to, it makes sense that Rose, of all people, would find a way to come back. When Rose wants something, she’ll do anything in her power to make it manifest.
+Wherever she disappeared to, it makes sense that Rose, of all people, would find a way to come back. When Rose wants something, she’ll do anything in her power to make it manifest.
 
 We never had our wedding,
 
@@ -402,4 +402,4 @@ but I think Rose and I are destined for a much deeper connection,
 
 very, very,
 
-[soon.](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/) 
+[soon.](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
