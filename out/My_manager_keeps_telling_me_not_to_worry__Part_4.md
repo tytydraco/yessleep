@@ -556,17 +556,17 @@ She looked up and shook her head. Then nodded. Then shook it again.
 
 I followed her.
 
-The side street was barely wide enough for a vehicle. Her car was wedged between a dumpster and a stack of pallets, tucked so far into the alley that you'd have to be actively looking for it to notice. She had parked with intent. The intent of someone who did not want their car to be seen.
+The side street was barely wide enough for a vehicle. Her car was wedged between a dumpster and a stack of pallets, tucked so far into the alley that you'd have to be actively looking for it to notice. She had parked with intent.
 
-She stopped at the trunk and turned to face me. Under the single bulb mounted above Kessler's back door, her face looked hollowed out. Like a lantern with too little light inside.
+She stopped at the trunk and turned to face me. Under the single bulb mounted above Kessler's back door, her face looked hollowed out.
 
 "I killed someone," she said.
 
-The words landed cleanly. No stutter. No preamble. Just a sentence, delivered with the flat precision of a person who had been rehearsing it for hours and was tired of the rehearsal.
+The words landed cleanly. No stutter. No preamble. Just a sentence, delivered with flat precision.
 
 "You –"
 
-"In self-defense." She added this quickly, as if it were a legal footnote that needed to be entered into the record before I had time to form an opinion. "He – it attacked me. He – it came out of nowhere."
+"In self-defense." She added this quickly, as if it had to go the on record before I had time to form an opinion. "He – it attacked me. He – it came out of nowhere."
 
 "He? It?"
 
@@ -598,6 +598,6 @@ There he was.
 
 *The most dangerous entity out there.*
 
-And I immediately understood why Maren had been using the word “it.” His corpse did not cast a shadow. The light simply passed through his body.
+And I immediately understood why Maren had been using the word “it.” His corpse did not cast a shadow. The light simply passed through his body. It felt uncanny. Disconnected from the surroundings. As if he wasn’t really there.
 
-"Maren," I said, very calmly. "I think we need to talk."
+"Maren," I said, very calmly, mentally preparing to speak the single most scary combination of words known to humankind. "We need to talk."
