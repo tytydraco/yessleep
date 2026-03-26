@@ -134,7 +134,7 @@ Black clouds congregated on the horizon, portending a deluge. 
 
 “There! She’s *right* there!” I bent over the detective’s shoulder and jabbed the top left corner of my laptop, pixels distorting as my fingernail dug into the screen. 
 
-Detective Hughes leaned over the kitchen table, squinting, cocking his head, studying her.. Outside, rain pelted the gutters. My anxious heartbeat sort of mimicked the downpour: quick, arrhythmic bursts of sound and motion. 
+Detective Hughes leaned over the kitchen table, squinting, cocking his head, studying her. Outside, rain pelted the gutters. My anxious heartbeat sort of mimicked the downpour: quick, arrhythmic bursts of sound and motion. 
 
 Why was he being so quiet? 
 
@@ -164,7 +164,7 @@ His hands flew into the air, gesticulating wildly. 
 
 “What?? None of that was photo - “ 
 
-“**HEY,**” he barked, stomping across the foyer, crushing discarded  frozen meal boxes beneath his boot heel, squaring up to me, nose-to-nose, lips contorted into a snarl. I shut my mouth and sheepishly tilted my head to the floor. Distant lightning fractured the sky, bathing the room in a pearly flash. 
+“**HEY,**” he barked, stomping across the foyer, crushing frozen meal boxes beneath his boot heel, squaring up to me, nose-to-nose, lips contorted into a snarl. I shut my mouth and sheepishly tilted my head to the floor. Distant lightning fractured the sky, bathing the room in a pearly flash. 
 
 Hughes lowered his voice to a sharp whisper. 
 
@@ -402,4 +402,4 @@ but I think Rose and I are destined for a much deeper connection,
 
 very, very,
 
-[soon. ](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
+[soon.](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/) 
