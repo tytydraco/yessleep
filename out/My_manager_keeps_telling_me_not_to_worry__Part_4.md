@@ -8,7 +8,7 @@ Three times I've witnessed the EverSafe floodlights suddenly cut out, hiding in 
 
 Every other night I’ve stared at a ringing phone, because answering the call would have triggered a chain of events leading to the apocalypse – or something even worse.
 
-Not to mention the shadowy figure on camera 4, the “known issue”, which shows itself in certain intervals as if to remind everyone of its presence.
+And don't even get me started on the shadowy figure on camera 4, the “known issue”, which shows itself in certain intervals as if to remind everyone of its presence.
 
 Point being: I’m no stranger to cryptic foreboding.
 

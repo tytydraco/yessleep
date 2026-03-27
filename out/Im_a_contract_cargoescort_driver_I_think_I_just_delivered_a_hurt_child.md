@@ -62,4 +62,4 @@ I arrived at drop-off with literal seconds to spare. The Representative was ther
 
 "There are reasons. Reasons worth your accommodations and salary. Return tomorrow." I hated to admit it, but even the brief, frigid interactions I had with this thing were intimate to me.
 
-As I drove to my new housing, a thought came to me slowly and all at once: when the staff member took the trailer, the dents had not caved inward. They had bulged outward.
+As I drove to my new housing, a thought came to me slowly and all at once: when the staff member took the trailer, there were many, desperate, outward dents.
