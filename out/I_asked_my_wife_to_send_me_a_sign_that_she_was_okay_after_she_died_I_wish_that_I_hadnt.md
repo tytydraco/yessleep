@@ -1,0 +1,33 @@
+My wife Amelia and I met in high school. She was the popular, bubbly girl that everybody loved and I was lucky to have anyone even give me a second glance. I honestly don’t know how the hell I pulled it off, but after a chance encounter in the library, we became inseparable. Fast forward four years and we were married, ready to take on anything the world could throw at us together. At least that’s what the plan was. 
+
+Ami was at the ripe old age of 24 when she began to experience severe headaches and frequent nosebleeds. When we got the news, I felt as though we had both been given the eight month prognosis. I’ll never forget the tears and sobbing, the cries of anguish that resounded through the doctor’s office. That had all been from me; Amelia sat quietly, a faraway look in her green eyes. I took off extended time from work and dedicated my hours to Ami, whether she was in the hospital or at home with me and her family. As she became more and more withered, I couldn’t help but to notice the looks her father and sister would give me; It was as though they blamed me somehow for their daughter’s condition. The venom in their eyes seemed to hiss “*It should’ve been you*.” 
+
+ One night as Ami and I lay together in bed, the insignificant voices droning from the TV, she began to ask me about something we had never discussed before, in all our years together. “Do you think we go on in the afterlife?” 
+
+ The question hit me like a brick wall; I had never been religious, but what was I supposed to say to the love of my life, who was facing her own fading mortality? “Of course, baby. Without a doubt in my mind. Your light is too bright to ever go out, I believe that it’ll shine forever.” 
+
+ She had looked into my eyes after that, as if examining me for dishonesty. Thankfully, she did not detect it. “Good. I’ll be waiting for you…I’m sure it’ll feel like just a few seconds or so, time and suffering won’t exist anymore.” 
+
+ I should have let the conversation end, but playing up my lie even more I said, “I want you to send me a sign, Ami. Send me a signal of some sort that you’re thriving. Whether it’s that old Madonna song you like, or a canary out on the porch, singing its heart out. Anything, anything so that I can think of you.” 
+
+ Amelia had wound herself even tighter into me at that point, a sad smile on her face. “I will.” 
+
+ The doctors hadn’t been quite right with their grim prediction. Amelia persisted for almost ten months before that light of hers finally faded. I’m ashamed to say that though I tried my damndest to speak at her funeral, I broke down and couldn’t do it. I was forced to sit and watch with red eyes as her family and friends told wonderful stories about the love of my life, my best friend. And I, her husband, had nothing to offer the congregation. Time seemed to slow down after she left me. My performance at work dipped, I began avoiding my own friends even more, and I picked up the bottle. There seemed to be a hole, deep and hollow, a black chasm that had formed deep within me, and it would never, ever be filled again. 
+
+ The first sign came two months after she had passed. I was sitting on my porch, drifting into sleep, the glass of whiskey in my hand slowly sliding out. There was a quick movement, and I jerked back to full consciousness. A white cat had darted out of nowhere and was now sitting at the bottom step of my porch. I had a mind to shoo it away, but somehow my booze-addled brain was still able to recall the conversation that Ami and I had had all those eons ago. I sat forward, hardly believing it. The cat merely looked up at me with green eyes, and I could swear that it looked as though she was smiling. I began to smile myself, tears forming in my eyes. Then there was more movement. 
+
+ Two coyotes sprung forward, faster than the cat had a chance to react. I myself fell to my knees, clumsily reaching out for her, but she had no chance. The two haggard animals ripped her apart, a flurry of white fur and red blood stabbed into my eyes and heart. The brief feeling of happiness that I had had been snuffed out; one of the coyotes looked up at me, and this time there was no doubt. It was smiling. 
+
+ Two weeks later, I had my old radio plugged in, listening to sad music. Yes, I have a phone and YouTube but listening to the radio had always been something Ami and I had done, going back to high school. I was again nearly asleep when I could hear Madonna’s seductive voice over the airwaves. I could again feel a sort of relief, though my cynicism wouldn’t allow me to believe that this was actually my wife. It’s just the radio…how many Madonna songs are played a day? I closed my eyes tight and turned over, but then suddenly there was a terrible static sound blaring from the radio; And amongst that static, what sounded like screams. Screams the likes of which I have never heard before, born from some place that should not exist. I sat up in bed, glancing at the old unit, but now there was only Madonna, singing a Spanish lullaby. 
+
+ I had to have been losing it. Either the liquor or the sadness it was supposed to be killing were finally getting to me. I had to do better for myself; For Amelia. I unplugged the radio, staggered down to the kitchen and poured out every single bottle of alcohol and can of beer in my kitchen. I had had enough of this shit. Ami wouldn’t have wanted me to live like this; Even if I didn’t believe she was still out there somewhere, waiting for me. 
+
+ I went back to work with a new haircut, shave and mindset. I was going to get back on track. My boss even complimented me during my shift, as I took phone calls from potential clients. I felt a lot better than I had in recent memory. Two hours into my shift I popped open a snack and drank some water to hydrate myself. As I answered my next call, I spat the water out as the low, scratchy voice whispered to me. “*Life is terrible, but death…death is endless, my love.”* 
+
+The voice was Ami’s. 
+
+ I fell over backwards in my chair, kicking over my keyboard and unplugging my headphones. I jumped up and looked at my phone, but the call had ended. There was no record of it when I attempted to do a redial. 
+
+ I’ve since bought more alcohol, hell, even more than I had before. Whether I’m sitting on my porch, driving home, or even lying in a ball in my bed, I can’t help but to notice the inherent cruelty in life, seemingly magnified twofold. But I asked for this. I did ask her to send me a sign, after all. 
+
+ 
