@@ -12,8 +12,8 @@ Let’s pick up on that awful morning. My head aching and scabbing, my sister go
 
 I went to Chloe’s room. I sat on her bed, thinking what a miserable older brother I had been. My heart broke when I looked down to see her favorite doll laying on her bed, left there forgotten.
 
-I turned towards the window, where the creature had pawed at the glass every night. I pictured Chloe, kneeling in front of that window, the monster on the other side whispering lies to my little sister. I remembered it’s long, unnatural fingers – claws, really – caressing the glass as that terrible mix of sounds flooded my ears.  
-  
+I turned towards the window, where the creature had pawed at the glass every night. I pictured Chloe, kneeling in front of that window, the monster on the other side whispering lies to my little sister. I remembered it’s long, unnatural fingers – claws, really – caressing the glass as that terrible mix of sounds flooded my ears.
+
 An image filled my mind then. Chloe, walking out of the front door on her own. Was she awake, or sleeping? What did she think she was following into those dark pines? I thought then only of what must have really been ahead of her, beckoning, guiding. Long, unruly, filthy hair. A white dress of rags. The unnatural arms, the black claws, urging my sister forward. I shuddered.
 
 I rose to the window, my anger rising inside me, the frustration at letting that thing take Chloe. A helpless feeling that filled my gut, the knowledge that I wasn’t able to protect her. Not even for one night.
