@@ -14,31 +14,17 @@ I swallow hard.
 
 Seems I’ve found the basement. Trouble is, I’m unarmed now, a rat trapped in a box without so much as teeth to chew its way out. I try to check on my back-up request, but the watch is flickering now, going fuzzy. The ink blossoming across it in occult sigils goes flat, pouring back into numbering behind the glass. 
 
-
-
 I give it a smack, try to activate it again, but it’s like the damn thing’s gone dead. 
-
-
 
 **Cr**ItIcAL FA**iLu**RE
 
-
-
 TeM**PoR**AL INTer**fER**EncE DEt**eCTed**
-
-
 
 Great.
 
-
-
 So the Tall Dog’s secret lair is so far removed from base reality that not even the watch can get a message through. Quick inventory. I’ve lost my gun, and now my sole means of communication, and judging from the way my flashlight keeps flickering, those batteries are probably hanging on by a thread.  
 
-
-
 ‘Brilliant, Jhune. You’re a real professional.’
-
-
 
 I study the angry ember flickering past the narrow corridor. 
 
@@ -74,8 +60,6 @@ Out of myself, and into Florence's worst nightmare.
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-
-
 Something is wrong with this one.
 
 The crayon world I entered before was bright. Pastel. The lines shimmered and the animation stuttered with a whimsy that almost made you forget you were inside a broken girl's artwork.
@@ -105,8 +89,6 @@ My stomach drops.
 This is it—  the last day anyone saw Florence Hollis alive.
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 The corridor snaps back into focus.
 
@@ -178,27 +160,17 @@ It’s… a journal. 
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-
-
 **April 1933**
 
 *Today was a great day!*
 
 *We broke ground on the apartment’s foundations, and the doc prescribed new medication for my heart. Swore it'll prevent another episode. Charlene, my beloved, was relieved. The girls were too, though Florence was still too young to understand what a "heart attack" even meant. She just asked if it tasted like bananas. I couldn’t help but laugh—she keeps me young.* 
 
-
-
-
-
 **June 1933**
 
 *A lunatic showed up at the construction site today. Claimed to be some kind of shaman. A tribal elder, he said. Told me this land is cursed. Said his people buried something here centuries ago. Something evil. A "dogman," whatever the hell that means.*
 
 *I told him to get gone, but he was frantic. Kept insisting that if we keep digging, we'll unearth it. That there'll be blood on my hands. Had to call the cops. They carted him off—hopefully to an asylum where he can get some help.*
-
-
-
-
 
 **August 1933**
 
@@ -207,10 +179,6 @@ It’s… a journal. 
 *A few of the guys claimed they saw markings on—some kind of tribal drawing. A wolf eating a child. But the ink bled off into the dirt before they could find me. Convenient.* 
 
 *I told them to save the ghost stories for the woods.* 
-
-
-
-
 
 **December 1934**
 
@@ -222,10 +190,6 @@ It’s… a journal. 
 
 *To top it off, my heart medication stopped working. Had to double the dose just to get through the day.*
 
-
-
-
-
 **January 1935**
 
 *The new crew doesn't know about the basement. I've decided to keep it that way.*
@@ -235,10 +199,6 @@ It’s… a journal. 
 *I've been spending more and more time down here, just me and the furnace. It's peaceful. Quiet.*
 
 *I think I'll keep it secret a while longer.*
-
-
-
-
 
 **November 1935**
 
@@ -252,11 +212,7 @@ It’s… a journal. 
 
 *Clever, isn't it?*
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 I flip the page sharply, jaw clenched. Mr. Hollis ignored every warning. Dismissed the shaman. Named the building after the very thing he was told to fear.
 
@@ -322,8 +278,6 @@ Until he found the only thing left that could make him feel anything at all.
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-
-
 **July 1935**
 
 *I brought her into the basement and strangled her with the cord from the work lamp. It took longer than I expected. She fought. I hadn't anticipated how much I'd enjoy the fighting.*
@@ -336,17 +290,9 @@ Until he found the only thing left that could make him feel anything at all.
 
 *A man sustained by God's hand has no use for a pharmacist's.* 
 
-
-
-
-
 **November 1935**
 
 *The pipes have begun whistling. I've tightened every coupling, replaced every gasket. Still they whistle. None of the whores mention it. I'm beginning to think only I can hear it.*
-
-
-
-
 
 **January 1936**
 
@@ -356,10 +302,6 @@ Until he found the only thing left that could make him feel anything at all.
 
 *And the more I listen, the more I like the song.* 
 
-
-
-
-
 **May 2nd, 1936**
 
 *Florence followed me to the basement.*
@@ -367,10 +309,6 @@ Until he found the only thing left that could make him feel anything at all.
 *The damn girl saw everything. The dead woman. The bonesaw. The way the whore’s eyeballs melted when I tossed her head in the furnace.* 
 
 *I've locked Florence in one of the storage lockers. I’ll need to think about how to proceed.* 
-
-
-
-
 
 **May 2nd, 1936 (evening)**
 
@@ -387,10 +325,6 @@ Until he found the only thing left that could make him feel anything at all.
 *I gave the brat crayons. I thought it might calm her, might give her something to fixate on besides the voices in her head. But every drawing is the same: me, standing over a woman's body. And beside me a dog with arms like dead branches.* 
 
 *Smiling.*
-
-
-
-
 
 **May 7th**
 
@@ -498,7 +432,6 @@ The wire. The concrete. The bones.
 
 All of it falls away.
 
-And something terrifying rises in its place. 
+[And something terrifying rises in its place. ](https://www.reddit.com/r/nosleep/comments/1s5f5di/the_tall_dog_of_barrow_heights_part_4/)
 
-  
 [MORE](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)

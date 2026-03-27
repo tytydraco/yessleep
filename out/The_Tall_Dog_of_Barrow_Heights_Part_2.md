@@ -1,7 +1,7 @@
-[PART ONE](https://www.reddit.com/r/nosleep/comments/1s01yft/the_tall_dog_of_barrow_heights/)  
-  
-Pastel lines shimmer into existence all around me.  
-  
+[PART ONE](https://www.reddit.com/r/nosleep/comments/1s01yft/the_tall_dog_of_barrow_heights/)
+
+Pastel lines shimmer into existence all around me.
+
 They're two-dimensional, stuttering like animation frames. The shuddering brown outline of Barrow Heights rises in the distance, its windows empty black squares. There's a pulsing scribble of green bushes in the foreground, vibrating with childish imperfection.
 
 I can't move.
@@ -802,9 +802,6 @@ There; a narrow brick corridor leading out from the base of the shaft. Ancient. 
 
 The voice skitters like insects across my eardrums, each syllable wrong and broken and stitched together. My pocket watch convulses against my chest, violent and urgent.
 
-*Come and get it.*
+[Come and get it.](https://www.reddit.com/r/nosleep/comments/1s3eis8/the_tall_dog_of_barrow_heights_part_3/)
 
-  
 [MORE](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
-
-  
