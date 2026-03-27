@@ -1,6 +1,6 @@
 I often think about how far away everything is. We are so far from the nearest celestial body, farther still from the nearest star. So far from the closest source of light and warmth.
 
-That same, unfathomable distance is why I drove a hurt child to an airport.
+That same, unfathomable distance is why I drove what sounded like a child to an airport.
 
 ──────────────────────────────────────────────────────
 
@@ -56,10 +56,10 @@ Once twenty minutes had passed, the cargo began banging around, screeching for h
 
 I arrived at drop-off with literal seconds to spare. The Representative was there to receive it. While I attempted to remain professional, the sheer befuddlement leaked into my face. A staff member in black clothing and a featureless mask, with no skin visible anywhere, transferred the trailer to another vehicle and drove away in haste.
 
-"You barely made it. But the result was the same as if you were ten minutes early." Its voice somehow became deader. 
+"You barely made it. But the result was the same as if you were ten minutes early." Its voice somehow became deader.
 
 "Why didn't you transport it yourself, if you could have made the trip so easily?" My professionalism was slipping.
 
 "There are reasons. Reasons worth your accommodations and salary. Return tomorrow." I hated to admit it, but even the brief, frigid interactions I had with this thing were intimate to me.
 
-As I drove to my new housing, a thought came to me slowly and all at once: when the staff member took the trailer, there were many, desperate, outward dents.
+As I drove to my new housing, a thought came to me slowly and all at once: when the staff member took the trailer, the metal had been punched outward from the inside.
