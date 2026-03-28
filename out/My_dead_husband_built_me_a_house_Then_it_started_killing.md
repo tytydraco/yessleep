@@ -26,7 +26,7 @@ But Seb had left me something. 
 
 A house built in total secrecy. In a place I’d never heard of. A seaside town decimated by trade wars. Built on a plot of land he bought for buttons, but the house, he’d gone hog wild and spent a pretty penny. Splurged on that mother-fucking house. Which I knew because one of the only things the bank let me take out of our beloved foreclosed brownstone in the city, was a sagging cardboard box full of receipts and invoices. A paper trail I was already planning on letting mold in a dark closet, one that took me all the way to my new home. 
 
-Oh, I also had my luxury sedan so low to the ground, I could hear the bottom of it disintegrating as smooth city road, turned to cracked country asphalt, then middle-of-nowhere dirt roads. 
+Oh, I also had my luxury sports car, so low to the ground, I could hear the bottom of it disintegrating as smooth city road, turned to cracked country asphalt, then middle-of-nowhere dirt roads. 
 
 The house was at the end of a long snaking road overlooking the slate grey sea. Cresting the ridge, I was ready to hate it, but I have to admit it looked worth the money - which threw the certainty I had about selling it into question. 
 
@@ -221,7 +221,5 @@ A marked woman reacting to her punishment - just the way my dead husband wanted 
 My dead husband who maybe wasn’t so dead after all. 
 
 And that’s only day one done and dusted. Next time, he turns nasty. Or *nastier*, rather. 
-
-
 
 [PART 2: Puppet](https://www.reddit.com/r/nosleep/comments/1rlho5m/my_dead_husband_built_me_a_house_then_it_started/)

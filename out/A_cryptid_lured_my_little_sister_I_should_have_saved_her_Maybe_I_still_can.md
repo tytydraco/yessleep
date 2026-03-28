@@ -293,3 +293,5 @@ I don’t know if my family survives the night. But I’ll let you know if we do
 \----
 
 [Part Two](https://www.reddit.com/r/nosleep/comments/1s3ziiy/a_cryptid_lured_my_little_sister_i_should_have/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part Three](https://www.reddit.com/r/nosleep/comments/1s5qt5a/a_cryptid_lured_my_little_sister_i_should_have/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

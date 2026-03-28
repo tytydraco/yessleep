@@ -383,3 +383,7 @@ Let us all get out alive. As a family.
 Even as I type these words, my hands are shaking. I am afraid to relive the moments that came next. I don’t think I’m quite ready. So, I will pause the story here.
 
 When I have the strength, I will finish it.
+
+\---
+
+[Part Three](https://www.reddit.com/r/nosleep/comments/1s5qt5a/a_cryptid_lured_my_little_sister_i_should_have/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
