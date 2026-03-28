@@ -565,3 +565,5 @@ The rational part of my mind is screaming things like, ‘stereotype/habit disor
 “Reverend Jonnathan Martin, what did you see?”
 
 \-Dr. Laura Cotts
+
+[Part 8](https://www.reddit.com/r/nosleep/comments/1s6223c/the_disappearance_of_saltpines_573_residents_part/)
