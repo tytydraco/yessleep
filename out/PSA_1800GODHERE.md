@@ -1,0 +1,19 @@
+A week ago, I awoke to the annoying blaring of my television going off. An emergency broadcast posted across the screen.
+
+# 1-800-GOD-HERE. FIRST CALLS FREE. TALK TO YOUR SAVIOR NOW.
+
+What a ridiculous prank, how much did they have to pay for this? I kept trying to change the channel but its everywhere. Whatever, I turned off the TV, went back to sleep.
+
+The following morning my bus didn’t show up. It’s a pretty large town but we only have one, so I had to walk 8 miles to work that day. It’s aggravating that everything in this town depends on one person showing up. Work was less crowded today, maybe something is going around.
+
+Its had been around three days now and I just kept getting messages from my friends to try out the new hotline, how amazing it is, how I just HAVE to try it. Apparently a big tech company made some revolutionary technology that gave them a direct line to Heaven, to the All-Mighty himself and it could be yours for a very heavy monthly fee. How ridiculous, they’re just passing off some advanced AI model to fool all these gullible people into buying into it.
+
+Andrew didn’t show up again, how many is that now, four? How come they haven't hired someone to cover for him yet? He’s probably using that stupid hotline too. The whole reason I sold my car is because you’d have to park 20 minutes away with how many people work in this building, but today there's maybe a dozen cars? I was alone on my floor, with no real direction I started browsing the internet to research.
+
+The next morning I waited at the bus stop like a fool but when Andrew didn’t show up again this time, I didn’t bother going into work today. What was the point? Christianity had exploded in popularity, I know it was already pretty popular but its overtaken every single search result online, even in countries that normally don’t practice the religion. Fuck it, maybe I should just try it. Should I though? I’ve never been the religious type, I’ve cursed his name far more then shown it any kindness. Would he even WANT to talk to me? What the fuck am I talking about, its probably just a hoax anyway.
+
+I finally broke down and tried it this morning. This is when I finally got it. I stayed up all day and all night talking to Him. He knew things, things no person, no machine could know. He knew the name of my imaginary childhood friend that I didn’t even tell my parents about, he knew every regret, every fear and was willing to answer every question. He was so kind, his voice soothed me more than anything I had ever felt before. I cried and begged Him for his forgiveness, for ever doubting Him but he didn’t care, he loved me through it. I got too excited to leave the house, I kept trying to order groceries and food online but nobody is taking the order. I decided to just subscribe to the yearly plan, it’s another mortgage but it will save me money in the long run, I know I’ll use it.
+
+The next day, He let me talk to my parents. They both died in an accident when I was a teenager. I never thought I’d get the chance to hear my mom’s voice again, but there she was on the other line, ready to hear my life story as if no time had passed at all. The way she described Heaven just sounded so peaceful, she introduced me to my Grandmother that I never got a chance to meet, I even got to hear Rex bark again when he heard my voice. I spent so long talking to them that I eventually passed out from exhaustion but I guess I haven’t been sleeping much anyway.
+
+That brings me to today, when I woke up to the TV blaring that annoying public service announcement alarm again. I thought I had turned it off. I didn’t even bother to read it, I was so excited to call him again that it didn’t even matter. I picked up the phone and the message played back; “The number you have reached is no longer in service.”

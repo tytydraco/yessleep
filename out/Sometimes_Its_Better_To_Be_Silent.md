@@ -699,7 +699,7 @@ Still growing..
 
 Months past after the mission....Presidents all of over the globe  had a major announcement that made the world scared and hopeless..
 
-"As we are experiencing this catastrophic event...we all know that something is wrong to our sun..we are not alone in the universe..and as I am here standing ..speaking..The sun is getting drained by an unknown entity..I suggest that you enjoy the remaining days,weeks with your love ones..there's nothing we can do to prevent this...may God be with you.."
+"As we are experiencing this catastrophic event...we all know that something is wrong with our sun..we are not alone in the universe..and as I am here standing ..speaking..The sun is getting drained by an unknown entity..I suggest that you enjoy the remaining days,weeks with your love ones..there's nothing we can do to prevent this...may God be with you.."
 
 
 I was in disbelief that were just here...waiting...waiting for it all to end..
@@ -713,8 +713,10 @@ The light gets dimmer and dimmer as the days go by..
 "Is there nothing we can do to stop this?"
 
 "Waiting for our demise...until the day the sun faded?.."
+
 We knew the consequences of sending signals out there...And yet we still insist on doing so...
+
 We were all wrong..
 
 
-We.. are.. not..alone..
+We are not alone.
