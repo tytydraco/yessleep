@@ -101,3 +101,5 @@ And her job requires her to break it.
 So now I have to prepare a different list of rules for her. It's a list I prayed I'd never have to write.
 
 Wish us both luck.
+
+[\[Part Two\]](https://www.reddit.com/r/nosleep/comments/1s5lqxh/a_year_ago_i_survived_my_third_cave_walk_sara/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button)
