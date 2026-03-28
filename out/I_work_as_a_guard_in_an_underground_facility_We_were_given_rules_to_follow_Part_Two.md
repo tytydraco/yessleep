@@ -1,4 +1,4 @@
-[Part One](https://www.reddit.com/r/nosleep/s/t76aZgc2N9)
+[Part One](https://www.reddit.com/r/nosleep/s/t76aZgc2N9) | [Part Three](https://www.reddit.com/r/nosleep/comments/1s6324c/i_work_as_a_guard_in_an_underground_facility_we/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I broke a rule yesterday.
 
