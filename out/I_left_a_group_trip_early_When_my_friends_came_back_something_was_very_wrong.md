@@ -206,7 +206,7 @@ I couldn’t speak. I just stared at her, my heart pounding so hard it hurt. I t
 
 What was I supposed to say?
 
-After a few moments, she laughed it off. Said did say she felt dizzy for a second - low blood sugar or something. Everything seemed normal again, so I nodded and pretended to accept it. Then we went back to cooking.
+After a few moments, she laughed it off. Said she felt dizzy for a second - low blood sugar or something. Everything seemed normal again, so I nodded and pretended to accept it. Then we went back to cooking.
 
 But my hands wouldn’t stop shaking, because I knew I hadn’t imagined it. And deep down, I already knew there was only one person who could explain it.
 
@@ -282,7 +282,7 @@ But his face was dead serious. Silence stretched between us again.
 
 “No...”
 
-“They don’t change people,” he said quietly. “They take different versions of them from other timelines... and swap them. Then they replace their memories so it all fits.”
+“They take different versions of them from other timelines," he continued, "and swap them. Then they replace their memories so it all fits.”
 
 “...That’s insane.”
 
