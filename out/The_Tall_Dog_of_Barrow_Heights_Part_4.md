@@ -1,7 +1,7 @@
-[PART ONE](https://www.reddit.com/r/nosleep/comments/1s01yft/the_tall_dog_of_barrow_heights/) | [TWO](https://www.reddit.com/r/nosleep/comments/1s0ykyn/the_tall_dog_of_barrow_heights_part_2/) | [THREE](https://www.reddit.com/r/nosleep/comments/1s3eis8/the_tall_dog_of_barrow_heights_part_3/)  
-  
-The three-dimensional world is ripped away.  
-  
+PART: [ONE](https://www.reddit.com/r/nosleep/comments/1s01yft/the_tall_dog_of_barrow_heights/) | [TWO](https://www.reddit.com/r/nosleep/comments/1s0ykyn/the_tall_dog_of_barrow_heights_part_2/) | [THREE](https://www.reddit.com/r/nosleep/comments/1s3eis8/the_tall_dog_of_barrow_heights_part_3/)
+
+The three-dimensional world is ripped away.
+
 It’s replaced by the flat, trembling architecture of a child's drawing. There's no depth. No smell. Just the shuddering outline of crayon against white void, every line vibrating, as though the paper itself were afraid.
 
 Florence is sitting in the back of the cage. Knees to her chin. Arms wrapped around her shins. She's drawn herself small. Smaller than the pipe above her. Smaller than her own dress, as if she wanted to shrink between the atoms of the floor and disappear entirely.
@@ -20,7 +20,7 @@ The patches of fur are rendered in short, vicious strokes. The ears droop past i
 
 A child didn't draw this.
 
-This drew itself*.*
+This drew itself\*.\*
 
 It's too tall for the frame. The top of its skull passes beyond the edge of the paper and into the white void above—that empty nothing-space where the drawing ends and some other dimension begins. Its body is visible from the chest down: the bent, mantis-like posture, the arms that hang well past its knees, the fingers that taper into points thin enough to piece skin. 
 
@@ -143,8 +143,6 @@ The drawing ends. 
 There is no next page.
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 I blink, and the paper slips from my fingers.
 
@@ -280,6 +278,6 @@ The Pales will come, I tell myself. They’ll come and wipe this thing off the f
 
 It won’t end like before. 
 
-It *won't.*
+[It *won't.*](https://www.reddit.com/r/nosleep/comments/1s6fslb/the_tall_dog_of_barrow_heights_part_5/)
 
 [MORE](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
