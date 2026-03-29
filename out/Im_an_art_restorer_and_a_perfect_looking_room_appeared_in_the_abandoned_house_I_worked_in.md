@@ -2,16 +2,16 @@ My family has always been a very religious one. I have been raised Catholic but 
 
 It made me realize that God is not there, he is not watching, he doesn’t care about me. God is dead.  
 I am 24 now and I can say that I have managed to push through the shitstorm that headed my way.  
-My name is Angela and I can’t keep this shit to myself anymore, I have to tell someone.  
-  
+My name is Angela and I can’t keep this shit to myself anymore, I have to tell someone.
+
 I am an art restorer, I take different commissions all around the US which keeps me busy and keeps me moving. Art has always been part of myself, I went crazy as a child if I didn’t have a piece of paper and a pencil to draw, it’s one of the few things that has stayed with me through the years and I was fortunate enough to make a living out of it. The job pays well, having learned the craft in Italy for my college degree many people ask for my services in the US.
 
-It only seemed like a great opportunity when the offer to restore an 18^(th) century mural in an old abandoned Antebellum home in Mississippi came up. I was tired of the never ending rich asshole home makeovers, I wanted something real.  
-  
+It only seemed like a great opportunity when the offer to restore an 18^(th) century mural in an old abandoned Antebellum home in Mississippi came up. I was tired of the never ending rich asshole home makeovers, I wanted something real.
+
 So I grabbed my stuff, got on the first plane I could catch and left “home” if I can even have such a thing. I must admit that, looking back at it now, it was a rushed decision. The offer came from some shady real estate agency, very little online presence and even less information about them. I managed to find some articles about how they kept on buying old houses and renovate them, only for them to never be sold. Every doubt in my mind was immediately erased when I received an early fee of 50k $ for accepting the job and the promise of much more to come once the task was over.
 
-On top of that it had been a while since I went somewhere, I can’t stay put, it’s not good for me, gotta keep moving.  
-  
+On top of that it had been a while since I went somewhere, I can’t stay put, it’s not good for me, gotta keep moving.
+
 24 hours later I was there, at the Shining Light Home, this beautiful pre-war building that was sitting in a luscious isolated field surrounded by weird looking woods.
 
 “What a dumbass name for a house” I thought.
@@ -78,8 +78,8 @@ An overwhelming wave of embarrassment and shame washed over me, my face turned r
 
 “I’m very sorry sir, I hadn’t noticed….it’s- it’s been a long day, I apologize.”
 
-“No worries dear, I have been blind for a long time and I’ve learned to live with it, you’re not the first one to not notice, don’t worry about it, please, come in, I don’t want to keep you waiting any further”.  
-  
+“No worries dear, I have been blind for a long time and I’ve learned to live with it, you’re not the first one to not notice, don’t worry about it, please, come in, I don’t want to keep you waiting any further”.
+
 As we stepped in the house my nose was greeted by a strong smell of lavender, it was very weird, especially when put it next to the aging and ruined looking interior, the walls were all but crumbling, the stairs leading up the first floor were missing some steps but, weirdly enough, the pavement was brand new, completely perfect and shining parquet.
 
 The old man moved around with an impressive agility and confidence; he naturally had to rely on a cane to make sure he wouldn’t hit anything but what struck me the most was the way his body moved.
@@ -494,8 +494,8 @@ Lewis got all he needed and we quickly went out the door.
 
 The ride to the motel was really quiet, neither of us said much of anything, I guess we were still trying to figure out what the hell we had just experienced.
 
-It was a pretty sleepless night, my body screamed for some rest, exhausted by the long day, but my mind craved answers, explanations or at the very least logical explanations. I couldn’t get any, so I got up and took a look at those files I had taken from the fifth room. I quickly realized that these documents were not at all complete, there were missing pages and some of them appeared to have been burned, not completely, but enough to notice.  
-  
+It was a pretty sleepless night, my body screamed for some rest, exhausted by the long day, but my mind craved answers, explanations or at the very least logical explanations. I couldn’t get any, so I got up and took a look at those files I had taken from the fifth room. I quickly realized that these documents were not at all complete, there were missing pages and some of them appeared to have been burned, not completely, but enough to notice.
+
 “Audrey” was the first one, a young girl from a town nearby,  a black and white picture of her attached to the file gave a face to the name. She didn’t look older than 18, a beautiful girl with long hair and a gaze that would make anyone stutter to no end, she has a lit cigarette resting on her plump lips, the defiant look on her face betrayed by a long stretch of tears running down her cheeks. She was born on September 6 1939. The more I skimmed through the document the more I had questions. Very little information came through. One thing stuck to me however. “Causation: Sexual deviancy”. Don’t get me wrong, I like to have fun as much as the next person but was this really cause for admittance to an Asylum? It felt out of place and weird, even for the standards of back then. There wasn’t much else to gather from her file, most was medical gibberish that I couldn’t understand, procedures that would “cure” her, descriptions of her daily life in the asylum, I don’t wish to report them here, the dead need the same respect as the living.
 
 “Austin” was next, he looked a little older than Audrey, probably around 24, his date of birth was missing but he was admitted the 24^(th) of February 1955, his picture was torn in half, only showing part of his face. Short hair, freckles on his nose and cheek, his gaze held towards the ground and a big frown on his short and thin lips. He certainly didn’t look happy, my observation later confirmed by another torn piece of paper: “Causation: Anxiety disorder, dep—“, doesn’t take a detective to imagine the other part of the entry said “depression”. Skimming through these torn pages and catching glimpses of these people’s lives gave me immense sadness, it’s hard to believe that this was the world only 60-70 years ago. Most of us take many things for granted these days, failing to realize the immense effort we made as a species to evolve beyond prejudice and corruption.
@@ -599,4 +599,4 @@ I froze, not knowing what to do. The shadow’s head slightly moved as if it not
 
 Blackness formed around the corners of my eyes, slowly but surely enveloping my entire sight, then unconsciousness.
 
-**...**
+**...**[Part II](https://www.reddit.com/r/nosleep/comments/1s6quyj/im_an_art_restorer_and_a_perfect_looking_room/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
