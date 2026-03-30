@@ -47,3 +47,44 @@ But last night, I found a note on my nightstand. The paper was yellowed, brittle
 Elias came back tonight, it read. He told me he’s lonely where he is. He says there’s room for three.
 
 I haven't looked in the mirror yet today. I can hear two voices humming in the guest room now. And the front door, which I know I locked, just clicked open.
+
+The front door didn't just open; it settled into the frame with a heavy, deliberate thud, like a coffin lid closing in reverse.
+
+I sat frozen in bed, the yellowed note trembling in my hand. The air in the room didn't just turn cold—it turned stagnant. It smelled of wet earth and rain-soaked wool, a sharp contrast to Julian’s dry, powdery tobacco.
+
+"Julian?" I called out, my voice cracking.
+
+The humming in the guest room stopped instantly.
+
+I forced myself out of bed. My bare feet hit the floorboards, and for the first time, they didn't groan. The house was dead silent, holding its breath. I crept toward the hallway, the light from the street lamp outside casting long, distorted ribs across the wallpaper.
+
+When I reached the guest room door, I saw them.
+
+Julian was standing by the window, his silhouette sharp against the glass. But he wasn't looking at me. He was looking at the figure standing in the center of the room.
+
+This new shadow—Elias—wasn't like Julian. Julian was a memory preserved in amber, elegant and tragic. Elias was... unfinished. He wore a heavy overcoat that seemed to drip shadows onto the floor like black ink. Where his face should have been, there was only a pale, featureless blur, save for two dark pits where eyes used to be.
+
+"He's here," Julian whispered, his voice vibrating with a terrifying kind of joy. "He found the way back through you."
+
+"Through me?" I backed away, my heel catching on the carpet. "I don't even know who he is!"
+
+The featureless man, Elias, took a step toward me. The floor stayed silent, but the temperature dropped until my breath came out in thick, white plumes.
+
+"The house needed a pulse," the raspy voice of Elias echoed, though his "mouth" never moved. It felt like the words were being drilled directly into my skull. "Julian was fading. He was becoming static. But you... you brought the rhythm back."
+
+I realized then that the "handprints" on the mirror hadn't been Julian looking over my shoulder. They had been a measurement.
+Julian turned to me, his shattered-glass eyes wide and pleading. "Don't be afraid. We’ve been so lonely. You’re the perfect bridge. We can stay like this forever. The three of us. In the quiet."
+
+Elias reached out a hand. It wasn't translucent like Julian's. It was solid, grey, and tipped with fingers that looked too long, too sharp.
+"I'm leaving," I gasped, turning to bolt for the stairs.
+
+I didn't make it three steps. The hallway didn't end. I ran toward the staircase, but the floorboards seemed to stretch, the wood grain swirling like a whirlpool. The front door, which I’d heard open, was now a mile away, a tiny pinprick of light at the end of a dark tunnel.
+I turned back. Julian and Elias were standing side-by-side now. Julian reached out and took Elias’s hand.
+
+"You're not a guest anymore," Julian said softly.
+
+Then, the lights in the hallway flickered and died. In the sudden darkness, I felt a hand on each of my shoulders. One was freezing and dry; the other was heavy and damp.
+
+I’m writing this on my phone, sitting in the corner of the guest room. The battery has been at 1% for three hours. I can see myself in the window reflection, but I look... thinner. Faded. Behind me, two men are standing perfectly still, watching the door.
+
+They aren't waiting for me to leave anymore. They’re waiting for the next owner to walk through the front door.
