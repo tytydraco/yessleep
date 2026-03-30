@@ -431,3 +431,5 @@ We heard the clock begin to chime from all around us, snaking up the halls and b
 A shrill, inhuman cry; something like a cat yowling in anger.
 
 That one didn’t come from all around us, though. It came from back down the hall to our left, and it was only getting closer.
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1s7cvxh/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
