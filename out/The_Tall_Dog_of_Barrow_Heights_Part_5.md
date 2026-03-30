@@ -1,5 +1,5 @@
-PART: [ONE](https://www.reddit.com/r/nosleep/comments/1s01yft/the_tall_dog_of_barrow_heights/) | [TWO](https://www.reddit.com/r/nosleep/comments/1s0ykyn/the_tall_dog_of_barrow_heights_part_2/) | [THREE](https://www.reddit.com/r/nosleep/comments/1s3eis8/the_tall_dog_of_barrow_heights_part_3/) | [FOUR](https://www.reddit.com/r/nosleep/comments/1s5f5di/the_tall_dog_of_barrow_heights_part_4/)  
-  
+PART: [ONE](https://www.reddit.com/r/nosleep/comments/1s01yft/the_tall_dog_of_barrow_heights/) | [TWO](https://www.reddit.com/r/nosleep/comments/1s0ykyn/the_tall_dog_of_barrow_heights_part_2/) | [THREE](https://www.reddit.com/r/nosleep/comments/1s3eis8/the_tall_dog_of_barrow_heights_part_3/) | [FOUR](https://www.reddit.com/r/nosleep/comments/1s5f5di/the_tall_dog_of_barrow_heights_part_4/)
+
 It ended like this:
 
 I'm standing at the bottom of the stairs, rifle up. There’s no gunfire. No boots on hardwood. No shouting, no magazines reloading, no sounds of a six-person squad doing what six-person squads do.
@@ -114,9 +114,7 @@ A hand closes around Stevenson's throat. The fingers find the soft tissue beneat
 
 ‘The house offered me a choice,’ Inquisitor Torsen whispers. *‘And I chose you.’*
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
-  
-
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 *CHoOse.*
 
@@ -244,7 +242,7 @@ The barrel is bent fifteen degrees to the right. The cylinder is cracked. This g
 
 But I’m out of options.
 
-My last bullet won't kill a Class 6 entity. But I don't need to kill it. I just eed to make it flinch. Two seconds of surprise—two seconds where its grip loosens and Tyler drops and his feet hit the floor and he runs*.* 
+My last bullet won't kill a Class 6 entity. But I don't need to kill it. I just eed to make it flinch. Two seconds of surprise—two seconds where its grip loosens and Tyler drops and his feet hit the floor and he runs\*.\* 
 
 Two seconds. 
 
@@ -307,8 +305,6 @@ Again.
 Just like I always do. 
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 Inquisitor Torsen releases her grip on Stevenson’s throat.
 
@@ -486,7 +482,7 @@ Abigail.
 
 The ceiling is six feet above Stevenson now. Five. The void is lapping at the edges of her island like a tide coming in.
 
-'Please.' The word comes out of her like it costs something she'll never get back. The tears are there now, cutting clean lines through the blood and grime on her face. This isn’t an order. She’s pleading with me. 'Please, just let me save someone tonight*.*' 
+'Please.' The word comes out of her like it costs something she'll never get back. The tears are there now, cutting clean lines through the blood and grime on her face. This isn’t an order. She’s pleading with me. 'Please, just let me save someone tonight\*.\*' 
 
 I hold her gaze.
 
@@ -516,11 +512,7 @@ My chest tightens. 'I'm sorry. I couldn't—'
 
 I reach for it.
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 'This one,' I say.
 
@@ -536,7 +528,7 @@ The Tall Dog reaches to its mouth.
 
 Its fingers close around Tyler, gently lifting him from the lip of its open throat. The boy is unconscious. Limp. His pajama shirt is dark with sweat, and his face is slack, but his chest is rising and falling. Breathing. The creature sets him on the concrete the way you'd set down a glass you've decided not to drink from.
 
-I'm on my knees beside him in an instant. Two fingers against his carotid. The pulse is there—fast, thready, but there*.* He's in shock. 
+I'm on my knees beside him in an instant. Two fingers against his carotid. The pulse is there—fast, thready, but there\*.\* He's in shock. 
 
 'You're gonna be okay, kid,' I whisper.
 
@@ -566,6 +558,9 @@ The fire in my blood reaches my lungs. I can't breathe. The world is narrowing t
 
 The Tall Dog's grin slides past my teeth. Its hollow eyes disappear into my throat.
 
-*Is this what it's like to burn alive?*
+*Is this what it's like to* [burn alive?](https://www.reddit.com/r/nosleep/comments/1s7cd5k/the_tall_dog_of_barrow_heights_part_6/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button)
+
+  
+
 
 [MORE](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)

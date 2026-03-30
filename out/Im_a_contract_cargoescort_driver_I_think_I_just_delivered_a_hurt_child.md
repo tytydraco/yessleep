@@ -63,3 +63,5 @@ I arrived at drop-off with literal seconds to spare. The Representative was ther
 "There are reasons. Reasons worth your accommodations and salary. Return tomorrow." I hated to admit it, but even the brief, frigid interactions I had with this thing were intimate to me.
 
 As I drove to my new housing, a thought came to me slowly and all at once: when the staff member took the trailer, the metal had been punched outward from the inside.
+
+[Next](https://www.reddit.com/r/nosleep/comments/1s7rncd/im_a_contract_cargoescort_driver_a_passenger/)
