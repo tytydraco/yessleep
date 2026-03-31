@@ -4,7 +4,7 @@
 
 ─*Hilltop Museum Contract to Michael F., cargo/escort driver*
 
-──────────────────────────────────────────────────────
+────────────────────────────────────────────────────────────────────
 
 [Previous](https://www.reddit.com/r/nosleep/comments/1s4e0so/im_a_contract_cargoescort_driver_i_think_i_just/)
 
@@ -16,7 +16,7 @@ I did not want to sleep with so many eyes upon me. I found myself hoping for ano
 
 I went to the sink for water. The fixture yielded with reluctance. The water itself seemed too pure, too considered. I left it behind and kept the phone with me, looking at it again and again for want of any better occupation of the spirit. No message came. At some hour of that night, in that bright and hostile place, weariness overcame fear.
 
-──────────────────────────────────────────────────────
+────────────────────────────────────────────────────────────────────
 
 I woke on a white silk couch. It was soft enough, though I had the uneasy sense that the room had not consented to my presence. I rose on trembling legs and went to the window. The museum lay below in all its symmetry. From that distance I felt a kind of confidence, though I knew better than to trust it.
 
@@ -30,15 +30,15 @@ My phone rang, and with each vibration there came into me a small and guilty rel
 
 I approached the fridge in my kitchen. Of the two starvations inside me, the lesser one waited there. I took hold of the cold handle and had to pull with more force than seemed reasonable. The air around the open door felt damp and faintly hostile. I stood there too long. By the time I seized a protein drink, my hands were already shaking.
 
-──────────────────────────────────────────────────────
+────────────────────────────────────────────────────────────────────
 
-I stepped into the Museum, meeting the eyes of the same receptionist. I still felt the thread of intimacy between us. 
+I stepped into the Museum, meeting the eyes of the same receptionist. I still felt the thread of intimacy between us.
 
 "Hi! Welcome to Hilltop Museum. Do you have a prepaid ticket?" The sameness of her words stung. The thread was weaker than I had thought, though our interactions remained extraordinary to me.
 
 "I am a new contractor. Do you know where the Representative may be?" Her eyes softened, but not because of recognition.
 
-"He's down to the left." She pointed at a door I had not passed through yet. Hearing the Representative called “he” unsettled me. Even that was eclipsed by the simple fact that she heard me, and I heard her. 
+"He's down to the left." She pointed at a door I had not passed through yet. Hearing the Representative called “he” unsettled me. Even that was eclipsed by the simple fact that she heard me, and I heard her.
 
 I could not stop looking at people’s faces.
 
@@ -54,15 +54,15 @@ Caleb greeted me and entered the back seat normally. It was not his voice or his
 
 "Gloves's a good town. I'd been there before, but only a day. No room for fun this time, though. Just business." Again a question tried to sneak out of my mouth, but a reminder of the contract's terms scared it off.
 
-"Ya ever been to Foxglove Ridge? Desperate place. More mud than road. Good wine, though." I shook my head. 
+"Ya ever been to Foxglove Ridge? Desperate place. More mud than road. Good wine, though." I shook my head.
 
-"Have ya ever wondered why it's the only spot near Foxglove Hill that's so poor?" 
+"Have ya ever wondered why it's the only spot near Foxglove Hill that's so poor?"
 
-"Yes, I have, but I never thought about it too much." 
+"Yes, I have, but I never thought about it too much."
 
 "Prolly for the better. Politics and economy are too complicated." Caleb sighed and pulled out a cigarette. "Do ya mind?" I shook my head. He lit the cigarette and cracked the window closest to him. I could not stand the stench. It was not worth violating the relationship.
 
-The first hour of the drive was full of small talk. Then we were silent for thirty minutes. My stomach felt destitute, my skin shook in waves across my body. 
+The first hour of the drive was full of small talk. Then we were silent for thirty minutes. My stomach felt destitute, my skin shook in waves across my body.
 
 "You've delivered somethin' before me, haven't cha?" His voice hardened. The insecurity rose up from my feet to my neck, forcing me to nod.
 
@@ -70,15 +70,15 @@ The first hour of the drive was full of small talk. Then we were silent for thir
 
 "It don't like bein' watched." My throat was paralyzed.
 
-"Neither do I." His accent was false. The space between us rapidly collapsed. 
+"Neither do I." His accent was false. The space between us rapidly collapsed.
 
 "You will not break your contract, I hope?" I tried to remind myself that Caleb was a man. I felt his hands reach into my brain and force me to shake my head.
 
-"Good." Reality returned. I had already stopped at the destination. "Thank ya kindly." As he walked away, the feeling of dread went with him. All of my muscles ached like they were injected with something vile. Sweat dripped into and burned my eyes. 
+"Good." Reality returned. I had already stopped at the destination. "Thank ya kindly." As he walked away, the feeling of dread went with him. All of my muscles ached like they were injected with something vile. Sweat dripped into and burned my eyes.
 
 I began driving back to Foxglove Hill, despite the summer sun blinding me.
 
-──────────────────────────────────────────────────────
+────────────────────────────────────────────────────────────────────
 
 As soon as I parked, the Representative approached the passenger window and gestured for me to roll it down.
 
@@ -100,7 +100,7 @@ The folder felt cold. Yet, it was welcoming. I read the print on it again and ag
 
 **1:** Do not cough within a 3 m radius of the object.
 
-*RB-1.1*: Subject 1 entered containment and was asked to approach the object. Subject 1 randomly coughed once. Approximately 10 seconds after, Subject 1 began violently coughing out a rust-colored gas. The gas had coated any surface the subject coughed on. The subject had coughed until asphyxiation. 
+*RB-1.1*: Subject 1 entered containment and was asked to approach the object. Subject 1 randomly coughed once. Approximately 10 seconds after, Subject 1 began violently coughing out a rust-colored gas. The gas had coated any surface the subject coughed on. The subject had coughed until asphyxiation.
 
 ***CB-1***: After Subject 1's expiry, the rust they coughed up suddenly congregated onto the object. Security was ordered to spray the object with cleaner to remove the rust. Unfortunately, security began coughing up a rust-colored gas upon entering containment. Rather than expiring from coughing for too long, once an indeterminate amount of time passed the officer, with their mouth stained with rust, showed signs of possession.
 
