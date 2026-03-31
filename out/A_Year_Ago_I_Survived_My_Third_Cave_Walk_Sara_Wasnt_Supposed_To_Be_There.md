@@ -154,3 +154,4 @@ The rules you have now are what we built from that night and from everything tha
 
 Sara just texted me. Petra's alive, but she needs me to come over right away. I'll update soon.
 
+[[Part Three]](https://www.reddit.com/r/nosleep/s/q1wnWCvZR8)
