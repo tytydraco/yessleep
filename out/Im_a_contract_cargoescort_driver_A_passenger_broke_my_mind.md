@@ -121,3 +121,5 @@ The officer was neutralized and containment was sealed. The free rust on the obj
 The skin of my right hand, barely able to hold the file, became flushed and numb. I did not understand the abbreviations and terms, but I did not need to.
 
 This was my next cargo.
+
+[Next](https://www.reddit.com/r/nosleep/comments/1s9ptg8/im_a_contract_cargoescort_driver_my_passengers/)

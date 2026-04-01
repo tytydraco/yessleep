@@ -601,3 +601,5 @@ There he was.
 And I immediately understood why Maren had been using the word “it.” His corpse did not cast a shadow. The light simply passed through his body. It felt uncanny. Disconnected from the surroundings. As if he wasn’t really there.
 
 "Maren," I said, very calmly, mentally preparing to speak the single most scary combination of words known to humankind. "We need to talk."
+
+\[[Continue](https://www.reddit.com/r/nosleep/comments/1s9pn61/my_manager_keeps_telling_me_not_to_worry_part_5/)\]
