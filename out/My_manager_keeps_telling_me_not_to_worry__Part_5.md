@@ -528,19 +528,19 @@ Vivian reviewed the signature meticulously, folded the yellow paper once, and pl
 
 "Understood."
 
-Vivian left without ceremony. No handshake, no polite small talk, not even a small, acknowledging salute. She simply walked out to the massive truck, climbed into the cab, and reversed out of the lot like someone who had never once in her life second-guessed a three-point turn.
+Vivian left without ceremony. There wasn't even a small, acknowledging salute. She simply walked out to the massive truck, climbed into the cab, and reversed out of the lot as if she'd never once in her life second-guessed a three-point turn.
 
 The heavy red taillights disappeared down the access road, bleeding into the dark, and then it was quiet again. It was the particular kind of quiet that Silt Creek specializes in, where the silence isn't empty so much as full of things that are holding their breath, deciding not to make noise yet.
 
  
 
-The hours after that offered nothing worth reporting to Dale or frankly to you, the reader. The phone didn't ring. The perimeter floodlights held steady. The radio, apparently aware it had been pushing its luck earlier with the throat singing, was trying to make amends by playing *Hybrid Theory* on an endless, comforting repeat.
+The hours after that offered nothing worth reporting to Dale or frankly to you, the reader. The phone didn't ring. The perimeter floodlights held steady. The radio, apparently aware it had been pushing its luck earlier with the throat singing, was trying to make amends by playing *Hybrid Theory* on endless repeat.
 
-Well, to be precise: At 3:14 AM, the shadowy, slightly elongated figure on camera 4 did briefly show up. But my baseline for noteworthy events had shifted drastically in the last few months. I barely noticed it, too busy wondering if handling Hans would require some sort of explosives license.
+Well, at 3:14 AM, the slightly elongated figure on camera 4 did briefly show up. But my baseline for noteworthy events had shifted drastically in the last few months. I barely noticed it, too busy wondering if handling Hans would require some sort of explosives license.
 
 Dawn arrived surprisingly fast, painting the sky in bruised shades of purple and orange. I clocked out, locked the front office doors, and sat in my car for a moment, the engine idling, before pulling out my phone. I opened my messages and typed:
 
-*Quick update. We're now storing a grown man in C-19. You'll need to feed him during the daytime shifts.*
+*Quick update. We're now storing a grown Swiss in C-19. You'll need to feed him during the afternoon shifts.*
 
 Three gray dots appeared almost instantly on the screen, which meant that Maren (do not soup) was either still awake from last night or already awake for the day.
 
