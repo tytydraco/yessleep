@@ -64,7 +64,7 @@ For a split second, I tense as I think that a creature sits inside my suit, brea
 
 I stay still, counting my breaths.
 
-A few pass and I only hear my own. 
+A few pass and I only hear my own.
 
 “All that sleep, and still I’m exhausted.”
 
@@ -92,7 +92,7 @@ As I slowly untangle my tether from the hooks, I crest the hull one last time an
 
 It catches my eye, a shape casting a blackness.
 
-It’s not debris. 
+It’s not debris.
 
 A silhouette cuts briefly across the field of distant lights, a wrong shape. I swear that it looks human but wrong. A body without detail. No suit. No tether. It moves unnaturally, as if it was a paper kite caught in an impossible wind, moving with no rhythm or reason. Its long arms looked to have been dragged out of a depressurisation event as it reaches out, splaying itself to me. The sight fills me with a horrible chill.
 
@@ -100,13 +100,13 @@ I blink, then it’s gone.
 
 The stars are exactly where they were before. No distortion. No shape. Nothing drifting.
 
-I blink hard, shake my head inside the helmet, and force my eyes to track known points, counting the stars, anchoring myself. 
+I blink hard, shake my head inside the helmet, and force my eyes to track known points, counting the stars, anchoring myself.
 
 “Get. A. Grip,” I whisper.
 
 The void offers no argument.
 
-I turn back to regard the world below, hoping this time it will reveal something. Instead I am disappointed, as usual. I cannot see a single strip of ocean or land. It’s not clouds that cover it, but a single cloud, thick and unbroken, covering everything with small dashes of lighting breaking up the monotonous grey.
+I turn back to regard the world below, hoping this time it will reveal something. Instead I am disappointed, as usual. I cannot see a single strip of ocean or land. It’s not clouds that cover it, but a single cloud, thick and unbroken, covering everything with small dashes of lightning breaking up the monotonous grey.
 
 A slight smile forms in my face. Maybe someone down there is looking up at me. Cheering. Or just glad that I keep this communications buoy alive and humming.
 
