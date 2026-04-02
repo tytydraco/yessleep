@@ -1,235 +1,332 @@
-&#x200B;
+CW: Child loss, trauma, disturbing content.
 
-I’ve always been one of those girls who was obsessed with becoming a mother.
 
-I would spend hours playing with dolls as a child.
 
-I made lists of baby names as a teenager, and when I got older, I decided to write letters to my future child.
+Sempre fui uma daquelas garotas obcecadas com a ideia de ser mãe.
 
-I can remember exactly what I felt while writing each letter—the happiness I let show through simple words with some old pen and a few colored papers, the amount of love I felt for someone who didn’t even exist yet.
 
-I always wanted to have a boy.
+Eu passava horas brincando de boneca quando criança.
 
-Not that I wouldn’t have wanted a little girl, on the contrary—I would have loved a little girl to shower with accessories, pretty clothes, and perfumes—but having my little boy was my greatest desire.
 
-In the letters, I wrote about my own childhood, my favorite songs, how I felt about him, and mostly questions.
+Eu fazia listas de nomes de bebês na adolescência e, quando fiquei mais velha, decidi escrever cartas para o meu futuro filho.
 
-I asked all kinds of questions to my baby.
 
-Had I been a good mother?
+Lembro-me exatamente do que sentia ao escrever cada carta — a felicidade que transparecia em palavras simples com uma caneta velha e alguns papéis coloridos, a quantidade de amor que sentia por alguém que ainda nem existia.
 
-What did he remember about me?
 
-Had I done some things he always wanted, and those things?
+Eu sempre quis ter um menino.
 
-Besides the letters, I also loved making little handmade gifts. Some flowers, paper hearts, drawings, and silly little things like that.
 
-After a while, I kept them all in a small box that I would give to my son someday. I carried this box with me to every house I lived in—losing it would mean years lost, so I never wanted to risk it.
+Não que eu não quisesse uma menina, pelo contrário — eu adoraria ter uma menina para mimar com acessórios, roupinhas bonitas e perfumes —, mas ter meu filhinho era o meu maior desejo.
 
-I only thought about the happiness I felt when I became pregnant.
 
-It happened on an ordinary day, and I just knew.
+Nas cartas, eu escrevia sobre minha própria infância, minhas músicas favoritas, como me sentia em relação a ele e, principalmente, perguntas.
 
-I just knew I was pregnant.
 
-I bought some tests and cried in my husband’s arms when all of them came back positive.
+Eu fazia todos os tipos de perguntas para o meu bebê.
 
-A few days later, we went to the hospital to do the proper exams to be sure, and we quickly received confirmation.
 
-Yes, I was truly carrying my little life.
+Eu tinha sido uma boa mãe?
 
-Everything seemed perfect.
 
-Everything about the pregnancy made me radiant.
+Do que ele se lembrava sobre mim?
 
-The morning sickness, the constant exams, buying clothes and toys, cravings, even the pains of carrying a body inside me—it all seemed perfect.
 
-After a few months, we finally went to find out the sex of the baby.
+Eu tinha feito algumas coisas que ele sempre quis, e quais eram essas coisas?
 
-I, anxious as always, never considered the idea of a surprise—I needed to know right away what the sex of the love of my life would be.
 
-And to my great happiness, it was a boy.
+Além das cartas, eu também adorava fazer pequenos presentes artesanais. Algumas flores, corações de papel, desenhos e coisinhas bobas assim.
 
-I had never felt so happy in my life—my little boy, the boy I had waited for so long, was finally confirmed to me.
 
-My boy would soon be in my arms.
+Depois de um tempo, eu guardava todas em uma caixinha que eu daria para o meu filho algum dia. Eu carregava essa caixa comigo para todas as casas em que morei — perdê-la significaria anos perdidos, então eu nunca quis arriscar.
 
-Every day seemed better.
 
-We went out to buy clothes for him, more toys, and finally, a personalized blanket with his name, Anthony.
+Eu só pensava na felicidade que senti quando engravidei.
 
-When I saw the name written in green on the blanket, which looked so much like my old blanket, I felt the tears coming.
 
-I couldn’t hold back—my Anthony.
+Aconteceu num dia comum, e eu simplesmente soube.
 
-The day of delivery was far from ideal—he was supposed to be born two months later, but he wasn’t.
 
-There I was, almost pushing him out of my body.
+Eu simplesmente sabia que estava grávida.
 
-We rushed to the hospital.
 
-I stayed there for 37 agonizing hours, suffering through everything to get my son out, who seemed to not want to leave my womb at all.
+Comprei alguns testes e chorei nos braços do meu marido quando todos deram positivo.
 
-When they finally got him out, my eyes widened.
 
-He wasn’t crying.
+Alguns dias depois, fomos ao hospital para fazer os exames necessários para termos certeza, e logo recebemos a confirmação.
 
-They tried slapping him gently, bringing him close to me, but nothing worked.
 
-He just didn’t cry.
+Sim, eu estava realmente carregando minha pequena vida.
 
-My heart felt heavy in my chest as I begged him to cry.
 
-“Come on, Anthony, Mommy needs you to cry.”
+Tudo parecia perfeito.
 
-“Come on, do it for me.”
 
-“Come on, my son, you’re strong, you can do it.”
+Tudo na gravidez me deixava radiante.
 
-I repeated it almost like a mantra, but nothing worked.
 
-Hours later, it was declared.
+Os enjoos matinais, os exames constantes, comprar roupas e brinquedos, os desejos, até mesmo as dores de carregar um corpo dentro de mim — tudo parecia perfeito.
+Depois de alguns meses, finalmente fomos descobrir o sexo do bebê.
 
-My baby was dead.
 
-The doctors entered my room sadly, after hours of examining the small, thin body that had come out of me.
+Eu, ansiosa como sempre, nunca havia considerado a ideia de uma surpresa — precisava saber imediatamente qual seria o sexo do amor da minha vida.
 
-My despair showed in my voice.
 
-I asked what had happened to him. If he was okay, and where my son was.
+E para minha grande alegria, era um menino.
 
-“I’m sorry,” the doctor said, and I quickly understood what had happened.
 
-My son hadn’t made it.
+Nunca me senti tão feliz na vida — meu filhinho, o menino que eu esperei por tanto tempo, finalmente estava confirmado para mim.
 
-I hadn’t been able to take care of him, protect him.
 
-The depression after his death was perhaps the strongest thing I’ve ever felt.
+Meu menino logo estaria em meus braços.
 
-I couldn’t get up.
 
-Every day felt like a nightmare.
+Cada dia parecia melhor.
 
-My family was constantly worried, my husband was supporting me, but nothing—nothing was helping me.
 
-My son had been taken from me, after so many nights thinking about him, waiting for him—nothing could help me.
+Saímos para comprar roupas para ele, mais brinquedos e, finalmente, uma manta personalizada com seu nome, Anthony.
 
-Only a year later, I realized I hadn’t had my period in a while, along with many bouts of nausea.
 
-I never thought I would be pregnant.
+Quando vi o nome escrito em verde no cobertor, que se parecia tanto com o meu antigo, senti as lágrimas vindo.
 
-After all, my husband and I were doing things far less often.
 
-I was in too complicated a state to have any energy.
+Não consegui me conter — meu Anthony.
 
-The tests I did showed only one thing:
 
-Pregnant.
+O dia do parto foi tudo menos ideal — ele deveria nascer dois meses depois, mas não nasceu.
 
-I cried a lot when I found out, not because I was happy, but because I was scared, afraid of going through the same horror I had with my first angel.
 
-Every day felt worse than before, because now everything that used to make me happy only reminded me of my old dream that had ended.
+Lá estava eu, quase o expulsando do meu corpo.
 
-I didn’t want that baby, that reminder of how weak I had been and how I hadn’t been able to save my own child, my true one.
 
-Nothing could convince me that what was growing inside me was really a child.
+Corremos para o hospital.
 
-It felt like a parasite consuming everything that was meant for my son, taking my energy, making me fat.
 
-Whenever I vomited, I felt like I was throwing away the true me.
+Fiquei lá por 37 horas agonizantes, sofrendo de tudo para que meu filho saísse, já que ele parecia não querer sair do meu útero de jeito nenhum.
 
-And whenever it moved, I felt assaulted.
 
-That parasite was hurting me.
+Quando finalmente o tiraram, meus olhos se arregalaram.
 
-Everything fell to my husband to take care of.
 
-I didn’t even like going to the exams.
+Ele não estava chorando.
 
-And on the day to find out the sex, I didn’t want to hear what it would be.
+Eles tentaram dar uns tapinhas nele de leve, trazê-lo para perto de mim, mas nada funcionou.
 
-I didn’t care what that demon would be.
 
-I just wanted it out of me as quickly as possible.
+Ele simplesmente não chorava.
 
-But, to my dismay, it spent the full nine months inside me, consuming me, trying to take the place of my angel, who never got to enjoy life.
 
-The birth was quick, much to my relief.
+Meu coração estava pesado no peito enquanto eu implorava para que ele chorasse.
 
-In less than an hour, it was out of me, like a piece of blood.
 
-And unlike Anthony, it cried louder than anything in the world, as if wanting to rub in my face that it had succeeded.
+"Vamos lá, Anthony, a mamãe precisa que você chore."
 
-It was a girl.
 
-My husband decided to name her Lucy.
+"Vamos lá, faça isso por mim."
 
-I accepted; I didn’t care enough to have an opinion.
 
-From the first day that thing was with me, I couldn’t hate it enough.
+"Vamos lá, meu filho, você é forte, você consegue."
 
-That parasite kept me awake and didn’t even accept my breast, as if rejecting me, despising me.
 
-My husband tried to tell me several times that a baby would never think of doing such a thing, but I knew that thing only wanted to hurt me, to show me it was there and Anthony wasn’t, that it didn’t need me and didn’t want me.
+Eu repetia quase como um mantra, mas nada funcionava.
 
-The more that girl grew, the more disgust I felt toward her.
 
-She was malicious, vomiting on me, crying whenever I held her, breaking everything I tried to give her. While with her father, she was the sweetest angel on earth, a calm and loving girl.
+Horas depois, foi declarado.
 
-I saw her hugging my husband lovingly while looking at me with malice, as if to say she was stealing more from me.
 
-My husband grew more hurt every day because I didn’t like her, but it wasn’t my fault.
+Meu bebê estava morto.
 
-I didn’t have to like something that wasn’t mine, not even a single cell of it was mine.
 
-“Lucy is a great child, and I won’t accept you mistreating her because of Anthony,” he shouted at me one night after she cried to him that I hated her.
+Os médicos entraram no meu quarto com tristeza, depois de horas examinando o pequeno e magro corpo que havia saído de mim.
 
-“Never say my son’s name when you speak about this demon—he doesn’t deserve that disrespect.”
 
-I shouted back, and he just left our room with a disappointed look.
+Meu desespero transparecia na minha voz.
 
-One afternoon, alone with her, I realized I didn’t see her anywhere and couldn’t even hear her breathing.
 
-For a few moments, I felt relief, as if she had disappeared, but I knew she hadn’t.
+Perguntei o que havia acontecido com ele. Se ele estava bem e onde estava meu filho.
 
-So I went looking for her.
 
-When I opened the door to my office, I saw her, and next to her, the box with the letters for Anthony.
+"Sinto muito", disse o médico, e eu rapidamente entendi o que havia acontecido.
 
-My eyes widened as I noticed pieces of paper torn up on the other side. 
 
-Without thinking, I grabbed her by the arm and threw her across the room, crying desperately as I saw she had destroyed almost all the letters and gifts for my son.
+Meu filho não havia sobrevivido.
 
-I picked up everything in despair, trying to see if anything was intact, but nothing.
 
-She had destroyed everything in the box.
+Eu não havia conseguido cuidar dele, protegê-lo.
 
-I turned to look at her, and that demon looked back at me with a malicious smile while holding the arm that had hit the wall.
 
-I had never felt such rage toward anyone in my life.
+A depressão após a sua morte foi talvez a coisa mais forte que já senti.
 
-She knew what she had done, and she had done it just to hurt me.
 
-Before I could go there and… end her, my husband arrived first.
+Eu não conseguia me levantar.
 
-Standing in the doorway, seeing the scene, he shouted, and as soon as Lucy noticed him, she began crying uncontrollably.
 
-He grabbed her quickly and began calling me crazy.
+Cada dia parecia um pesadelo.
 
-And I swear I could see a smile among her tears as her father yelled at me.
+Minha família estava constantemente preocupada, meu marido me apoiava, mas nada — nada me ajudava.
 
-When he returned from the hospital, he sent me away.
 
-He said he couldn’t live with someone as crazy as me anymore—not after I broke his daughter’s arm.
+Meu filho tinha sido tirado de mim, depois de tantas noites pensando nele, esperando por ele — nada me ajudava.
 
-I just looked at him, realizing my whole life was over.
 
-As I packed my things, I caught sight of her in my peripheral vision, standing there.
+Apenas um ano depois, percebi que minha menstruação estava atrasada, além de muitos episódios de náusea.
 
-And when I drove away, she waved at me with her unbroken arm.
 
-I drove off, leaving my house to the demon that had destroyed it.
+Eu nunca pensei que estaria grávida.
 
-But, even from a distance, I know she is watching me.
 
-And a part of me knows that, in some way, Lucy will never truly let me go.
+Afinal, meu marido e eu estávamos fazendo coisas com muito menos frequência.
+
+
+Eu estava em um estado tão complicado que não tinha energia para nada.
+
+
+Os exames que fiz mostraram apenas uma coisa:
+
+Grávida.
+
+Chorei muito quando descobri, não de felicidade, mas de medo, de passar pelo mesmo horror que vivi com meu primeiro anjinho.
+
+
+Cada dia parecia pior que o anterior, porque agora tudo que me fazia feliz só me lembrava do meu antigo sonho que havia acabado.
+
+
+Eu não queria aquele bebê, aquela lembrança de como eu tinha sido fraca e de como não consegui salvar meu próprio filho, meu verdadeiro filho.
+
+
+Nada me convencia de que o que crescia dentro de mim era realmente uma criança.
+
+
+Parecia um parasita consumindo tudo o que era para o meu filho, roubando minha energia, me engordando.
+
+
+Sempre que vomitava, sentia como se estivesse jogando fora a minha verdadeira essência.
+
+E sempre que se mexia, eu me sentia atacada.
+
+
+Aquele parasita estava me machucando.
+
+
+Tudo ficou por conta do meu marido.
+
+
+Eu nem gostava de ir aos exames.
+
+
+E no dia de descobrir o sexo, eu não queria nem saber qual seria.
+
+
+Eu não me importava com o que aquele demônio seria.
+
+
+Eu só queria que ele saísse de mim o mais rápido possível.
+
+
+Mas, para meu desespero, ele passou os nove meses inteiros dentro de mim, me consumindo, tentando tomar o lugar do meu anjo, que nunca teve a chance de aproveitar a vida.
+
+
+O parto foi rápido, para meu grande alívio.
+
+Em menos de uma hora, tinha saído de mim, como um pedaço de sangue.
+
+
+E, ao contrário de Anthony, chorou mais alto do que qualquer coisa no mundo, como se quisesse esfregar na minha cara que tinha conseguido.
+
+
+Era uma menina.
+
+
+Meu marido decidiu chamá-la de Lucy.
+
+Aceitei; não me importava o suficiente para ter uma opinião.
+
+
+Desde o primeiro dia em que aquela coisa esteve comigo, eu não conseguia odiá-la o suficiente.
+
+
+Aquele parasita me manteve acordada e nem sequer aceitou meu seio, como se me rejeitasse, me desprezasse.
+
+
+Meu marido tentou me dizer várias vezes que um bebê jamais pensaria em fazer uma coisa dessas, mas eu sabia que aquela coisa só queria me machucar, mostrar que ela estava ali e que Anthony não, que ela não precisava de mim e não me queria.
+
+
+Quanto mais aquela menina crescia, mais nojo eu sentia dela.
+
+
+Ela era maldosa, vomitava em mim, chorava sempre que eu a pegava no colo, quebrava tudo que eu tentava lhe dar. Com o pai, ela era o anjinho mais doce do mundo, uma menina calma e amorosa.
+
+
+Eu a via abraçando meu marido com carinho enquanto me olhava com malícia, como se dissesse que estava roubando mais de mim.
+
+
+Meu marido ficava cada vez mais magoado porque eu não gostava dela, mas não era minha culpa.
+
+Eu não precisava gostar de algo que não era meu, nem mesmo uma única célula daquilo era minha.
+
+"Lucy é uma ótima criança, e eu não vou aceitar que você a maltrate por causa do Anthony", ele gritou comigo uma noite depois que ela chorou para ele dizendo que eu a odiava.
+
+"Nunca diga o nome do meu filho quando falar desse demônio — ele não merece essa falta de respeito."
+
+Eu gritei de volta, e ele simplesmente saiu do nosso quarto com um olhar de decepção.
+
+Uma tarde, sozinha com ela, percebi que não a via em lugar nenhum e nem conseguia ouvir sua respiração.
+
+
+Por alguns instantes, senti alívio, como se ela tivesse desaparecido, mas eu sabia que não.
+
+
+Então fui procurá-la.
+
+Quando abri a porta do meu escritório, eu a vi, e ao lado dela, a caixa com as cartas para Anthony.
+
+
+Meus olhos se arregalaram ao notar pedaços de papel rasgados do outro lado.
+
+
+Sem pensar, agarrei-a pelo braço e a joguei do outro lado da sala, chorando desesperadamente ao ver que ela havia destruído quase todas as cartas e presentes para o meu filho.
+
+Recolhi tudo em desespero, tentando ver se algo estava intacto, mas nada.
+
+
+Ela havia destruído tudo na caixa.
+
+Virei-me para olhá-la, e aquele demônio me encarou com um sorriso malicioso enquanto segurava o braço que havia batido na parede.
+
+
+Nunca senti tanta raiva de ninguém em toda a minha vida.
+
+Ela sabia o que tinha feito e fez só para me magoar.
+
+
+Antes que eu pudesse ir lá e... acabar com ela, meu marido chegou primeiro.
+
+
+Parado na porta, vendo a cena, ele gritou, e assim que Lucy o viu, começou a chorar incontrolavelmente.
+
+
+Ele a agarrou rapidamente e começou a me chamar de louca.
+
+
+E eu juro que vi um sorriso em meio às suas lágrimas enquanto o pai dela gritava comigo.
+
+
+Quando ele voltou do hospital, me mandou embora.
+
+
+Ele disse que não conseguia mais viver com alguém tão louca quanto eu — não depois que eu quebrei o braço da filha dele.
+
+
+Eu apenas olhei para ele, percebendo que minha vida tinha acabado.
+
+
+Enquanto arrumava minhas coisas, a vi de relance, parada ali.
+
+
+E quando fui embora, ela acenou para mim com o braço intacto.
+
+Parti, deixando minha casa para o demônio que a destruiu.
+
+Mas, mesmo à distância, sei que ela está me observando.
+
+E uma parte de mim sabe que, de alguma forma, Lucy nunca vai me deixar ir de verdade.
