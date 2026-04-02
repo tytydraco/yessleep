@@ -1,4 +1,4 @@
-It's been on my mind since this morning. My childhood. One, I don't remember much at all. Yet today, it all came flooding back to me.
+It's been on my mind since this morning. My childhood. One, I don't remember much at all. Yet today, something happened that I think reminded me of way back then.
 
 I woke up to the smell of something burning. Apparently my wife had left the oven on all night with food for me to eat after getting off work. Can't blame her though; I'm usually hungry after work, but last night the moment I hit the bed, I was out. So the fault lies on me for not checking like I should've. No damage was done, thankfully; however, the incident wriggled in my head like a worm in an apple. "Déjà vu" is probably the best way to describe it.
 
@@ -68,4 +68,8 @@ I'll end this post by asking you, reading this. Have you ever experienced anythi
 
 Edit: My father started talking in his sleep. More mentions of Agnes. My mother. But he's also speaking strangely. Not necessarily another language or anything like that. It's just what he's saying; it doesn’t sound like it's him talking.
 
-I'll update more when he wakes up. Expect something tomorrow.
+Edit(2): I took the day off work. As much as I shouldn't. I decided it'd be for the best. Dad is now awake. Sane again as far as I can tell. I tried asking him about what happened earlier, and he looked at me as if I were bat shit crazy. I figure that if I want answers out of him. I have to get into some hypnosis stuff. 
+
+Anyone know of a hypnotist for hire? Nah, nevermind, best if I find someone local who'll do it for free. Maybe try to get myself hypnotized as well. I'm sure something is crawling around in there, waiting for me to shout it out to the world.
+
+I'll update more when I find someone up for the job. Expect something tomorrow.
