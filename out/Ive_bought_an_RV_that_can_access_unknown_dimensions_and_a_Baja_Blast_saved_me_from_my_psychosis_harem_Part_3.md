@@ -1,5 +1,5 @@
-([Part 1](https://www.reddit.com/r/nosleep/comments/1rq8e7y/ive_bought_an_rv_that_can_access_unknown/)) ([Part 2](https://www.reddit.com/r/nosleep/comments/1rtrfnn/ive_bought_an_rv_that_can_access_unknown/))  
-  
+([Part 1](https://www.reddit.com/r/nosleep/comments/1rq8e7y/ive_bought_an_rv_that_can_access_unknown/)) ([Part 2](https://www.reddit.com/r/nosleep/comments/1rtrfnn/ive_bought_an_rv_that_can_access_unknown/))
+
 The giggling left an insidious scorch upon my soul. My eyelids firmly pressed against each other like a steel trap. Without a doubt in my mind, I knew a demon child was about to rip my head off, then eat my brains for nutrition. 
 
 With great hesitance, I turned my head from the wooden door, and if I didn’t know any better, Sod was holding it shut, allowing me to be eaten by whatever monster this house possessed.
@@ -76,8 +76,6 @@ Why did I have a Baja Blast? I never order takeout, that’s why this house is f
 I heard dishes being tossed around from the living room. They didn’t scream, but I could feel their anguish. My wives didn’t want me to come into the kitchen. But now the sound was clear.  I created a path towards the noise. I started digging, digging, digging! Until I finally reached the bottom of the sink.
 
 A burning sensation rocked every nerve in my body. I brought my finger to my lips, sucking on the wound. The blood beaded at the sight of my injury. Looking down, I saw what caused the wound. A curved dagger whose blade slithered like a snake. My hand slowly wrapped around the hilt, then I remembered. I remembered what I was here to do.
-
-
 
 The world of brightly painted walls was revealed to be what it truly was—despair and disrepair. The endless river of dirty dishes was gone. For a minute, I missed the mess. I looked to my wives, but they weren’t my wives. They were the same soulless husks that sat in the cornfields just outside this farmhouse.
 
@@ -401,3 +399,4 @@ I reciprocated the gesture.
 
 “Hope you like bologna, Alexandria, but I’m still going to call you Sod.”
 
+([Part 4](https://www.reddit.com/r/nosleep/comments/1sbmzwg/ive_bought_an_rv_that_can_access_unknown/))
