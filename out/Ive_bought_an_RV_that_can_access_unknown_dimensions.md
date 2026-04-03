@@ -146,7 +146,7 @@ She gave me a disappointed look.
 
 “Greg who?”
 
-“Fuck if I know, lady. Listen, I’m just trying to get out of this *Groundhog Day-*type shit. I can give you cash or a bologna sand—”
+“Fuck if I know, lady. Listen, I’m just trying to get out of this \*Groundhog Day-\*type shit. I can give you cash or a bologna sand—”
 
 She interrupted me with a sigh. She snapped her fingers, and the sky turned black. A swirling red vortex consumed the horizon.
 
@@ -240,3 +240,4 @@ Sold.
 
 “What do I need to do?”
 
+([Part 2](https://www.reddit.com/r/nosleep/comments/1rtrfnn/ive_bought_an_rv_that_can_access_unknown/))
