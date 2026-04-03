@@ -85,3 +85,20 @@ When I got there, I asked where my dad’s girlfriend was.
 They told me she wasn’t there.
 
 She had never been there.
+
+
+Edit: I remembered a few more things about the house I talked about before, and the more I think about it, the more certain details stand out.
+
+First, the layout.
+
+If you walked out of my room, there was a hallway. On the left side were two doors. The first was the bathroom, and the second was the washroom. On the right side was my brother’s room, and then my parents’ room further down. At the very end of that hallway, on the left side, was the side door that led outside.
+
+That door led directly to the area I mentioned before, where the old flowerbed was. It was only about five feet from the door. I was told it had already been there before we moved in, and neither my brother nor I ever really questioned it at the time, but looking back, both of us had the same thought about it. We both believed it might have been a grave. Not based on anything concrete, just a feeling we both had.
+
+Another thing I realized is that I don’t remember ever seeing any of our dogs near that flowerbed. Not once. They never dug at it, never laid near it, nothing. It just kind of existed there, untouched.
+
+There was also the staircase my dad had uncovered on that same side of the house. It was made of what looked like old stone or cobble, leading down toward the backyard since the front of the house was elevated. I never thought much of it at the time, but now it feels strange that something like that was just buried there.
+
+When I think about everything together, the layout, the side door, the flowerbed, the staircase, and the fact that most of the things I experienced happened around my room and that hallway, it all feels a lot more connected than I realized as a kid.
+
+I’m still trying to piece together what was actually happening versus what I might have just imagined at that age, but the details don’t feel random anymore.
