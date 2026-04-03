@@ -101,3 +101,5 @@ It occurred to me that I had not passed a single person in the halls. The though
 I shifted my focus back to the coordinates. "Why a set of coordinates rather than words?" Sam appeared impatient.
 
 "Some things are better quantified." I began walking out to the location of my vehicle. My steps were lighter, and the floor was not squeaking.
+
+[Next](https://www.reddit.com/r/nosleep/comments/1sbecrz/im_a_contract_cargoescort_driver_i_drove_the_most/)
