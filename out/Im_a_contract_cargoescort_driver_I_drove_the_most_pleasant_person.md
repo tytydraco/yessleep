@@ -16,7 +16,7 @@ She said she was Sherry L., the exports department lead.
 
 "Cinnani, about forty-five minutes from Foxglove Hill." I have never been asked this question.
 
-"I was born and raised in Foxglove Hill. Now that I think about it, I've never been someone from Cinnani."
+"I was born and raised in Foxglove Hill. Now that I think about it, I've never met someone from Cinnani."
 
 "Good place. I can't think of the last time I heard of a crime."
 
