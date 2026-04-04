@@ -73,3 +73,5 @@ Edit(2): I took the day off work. As much as I shouldn't. I decided it'd be for 
 Anyone know of a hypnotist for hire? Nah, nevermind, best if I find someone local who'll do it for free. Maybe try to get myself hypnotized as well. I'm sure something is crawling around in there, waiting for me to shout it out to the world.
 
 I'll update more when I find someone up for the job. Expect something tomorrow.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/bmV1wXg28E)
