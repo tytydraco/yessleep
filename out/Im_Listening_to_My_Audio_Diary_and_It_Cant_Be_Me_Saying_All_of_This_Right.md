@@ -1,0 +1,34 @@
+After watching Twin Peaks when I was an impressionable teenager and seeing agent Cooper talking into his cassette tape recorder, I knew I wanted to imitate him. So, for my fifteenth birthday, as requested, I received a digital audio recorder, and began an extensive audio diary that would stretch on for years and years. 
+
+In the average day, I would only record about five minutes of audio, which was usually just a bunch of little twenty second recordings of things I saw, or wanted to remember. I was very consistent with this practice, and it almost became a sort of obsession. At its height, I was recording probably around two hours a day, but that was simply excessive, and not only did I just record them, but I would listen to them a week later, and listening to two hour audio records was simply unfeasible; so I made a rule that ten minutes a day were my limit. 
+
+Fast forward a couple of years, and I’m on my second digital audio recorder. I’ve amassed a large record of my recordings on a flashdrive that I am pretty proud of and nothing seemed amiss. Cue a week ago; I’ve just woken up, gotten out of bed, brushed my teeth, shaved away the stubble on my face, and am now changing my clothes beside my bed while listening to the audio recording corresponding to a week ago that day. 
+
+It’s my voice as it has always been, although I should note that my voice has had the tendency to change at times, so I’m very sensitive to any changes in my speech quality since I’ve been listening to them for so long, but this voice matched exactly the voice I had heard the day prior from that day’s week-ago recording.
+
+ So, I’m listening to my voice note all the remarkable things that happened to me that day, but then, something it says catches me off guard. 
+
+“In the garden park on Westmont St. where I usually have my lunch, I found a rotting cat corpse under the yellow rose bushes by the grimy cherub statue that the grounds keeper ought to wipe down. It was an orange tabby, a mother cat, and its corpse stunk to high heavens. It had evidently been dead for a while, as its eyes were starting to fall out of its head, and I found its starving kittens nearby, teetering on the threshold between life or death.
+
+ "I took each one of those darling little kittens and drowned them in the nearby fountain. An old woman broke into hysterics when she saw what I was doing, and I tried to explain how it was just a mercy killing, so the kittens could join their mother in cat heaven, but this old woman wouldn’t listen, so I struck her in the face before leaving to quiet her down.” 
+
+I was shocked, appalled, and most of all confused, after hearing this testament in my own voice. For the life of me, I couldn’t remember doing such an unthinkably cruel act. From what I remembered, I did find a dead cat under a rose bush, but I had found her kittens dead alongside her, and I didn’t strike any old woman in the face. Did boredom perhaps tempt me to speak such a macabre fib?
+
+ After that, I continued on with my day as usual, but when the next day came, and I was listening to last week’s recording while changing into my work clothes, I heard another startling inconsistency. 
+
+“While I was driving through my neighborhood, before I could reach the interstate, I saw an escaped dog wandering through the street. It was trash day that day, so I figured someone had left their backyard gate not fully closed and the dog wandered out. The dog was almost about to cross the street when I made sure to swerve into it and hit it. It was a large breed, a husky I think, and since our climate here isn’t husky friendly, I made sure to put it out of its misery. Some dog owners are so unbelievably cruel. Hitting the husky left blood and a dent on my bumper. I washed off the blood with the water in my water bottle when I arrived at work.”
+
+Again, confusion gripped me and caused my head to reel. I remembered seeing that dog crossing the road, but from what I could remember, that dog had made it to the sidewalk, and wandered down some street into a cul-de-sac. I never hit it. Nevertheless, when I was about to get into my car to drive to work, I had to check if there really was a dent, or if this was just more of my dark fibbing. Dismayingly, when I heeled around to the front of my car, I did find a strange dent I have never seen on my bumper, along with hairs and red stains upon closer inspection. Before going to work that day, I hosed off the front of my car. 
+
+As my week continued, there morbid accounts that I swore never happened kept being narrated to me by my very own voice, and I could only conclude some sick prank was being pulled on me. Perhaps my roommate had used some audio clips from my recordings and ai to create these gruesome fakes. It sounded like something he might do, as I knew he had a sick sense of humor. I remember one time he had left rubber rats in our cupboards, and rubber snakes in the pantry. Unfortunately for me, he had done this prank right before he had left on a trip with his girlfriend for Santa Barbra, and he wasn’t responding to any of my texts. He had just left a note on our kitchen table one morning and was gone. 
+
+At this point, I had been listening to these grotesque and sickening recordings, of me performing these gruesome and monstrous acts, and finally, I was going to listen to the audio I knew my roommate couldn’t have tampered with, because it had been a week since this prank started, and since my roommate had left. However, I was very wrong. 
+
+“Lenny put some little plastic spiders in our toaster today. He just thinks he’s so funny. Well, those spiders melted in the toaster and caused the scent of burning plastic to spread throughout our kitchen. That made me really mad, so when I saw him this morning, while he was spraying those stupid house plants he loves so much, I bashed him on the back of his head with the tire iron I store in my car’s trunk. I hit him again after that, as he was on his hands and knees, and again, until he wasn’t moving. 
+
+"I called my boss and told him I was taking the day off. He didn’t like that, but I just said my roommate was just involved in a horrific accident, and he understood. I then spent the rest of the day bleeding Lenny out in the bathtub like a pig, chopping his body up, cooking some of it to make it shrink, and then storing it all in the large freezer we keep in the kitchen. Cleaning up after that was a bitch, but hey, one less problem in my life.” 
+
+I felt my stomach drop after hearing that. I can’t possibly describe how difficult it was for me to get up and go check that freezer, but eventually I did. I was shaking at that point, and close to puking, but I opened the freezer, and found Lenny’s detached, frozen head looking back at me. 
+
+This is all just a prank, right?
+
