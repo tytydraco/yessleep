@@ -2,21 +2,25 @@ So, you know how you sometimes make a decision that seems totally smart and logi
 
 “We could, like, stop eating, maybe,” Kevin suggested. “Or sell a kidney, don’t you only need one?”
 
-“Yours probably forty percent THC by volume, nobody wants that.”
+“Yours is probably forty percent THC by volume, nobody wants that.”
 
 The solution: We haphazardly threw together a flier. ‘Roommate wanted. The U-Block Apartments. Cheap rent, don’t be a dick.” It was Kevin’s idea, but I was the one who actually printed it out and tacked it onto the bulletin board outside the student union, hoping we’d get lucky and some trust-fund kid would take us up on it.
 
-A few weeks later, a guy named Trevor called us from the number on the flier. Seemed normal, chill. A little quiet at first, but he was a student like us and we broke the ice soon enough. He moved in one Sunday with two duffel bags and a smile. As it turned out, the three of us were going to the same college. We were pretty surprised, since neither of us recognised him from around campus. But we’re Biochem and he was Accounting, so that made figured. I guess it wasn’t that big of a dealfigured.
+A few weeks later, a guy named Trevor called us from the number on the flier. Seemed normal, chill. A little quiet at first, but he was a student like us and we broke the ice soon enough. He moved in one Sunday with two duffel bags and a smile. As it turned out, the three of us were going to the same college. We were pretty surprised, since neither of us recognised him from around campus. But we’re Biochem and he was Accounting, so that figured. I guess it wasn’t that big of a deal.
 
 And for the first few weeks, it was great. Actually, it was almost too great. This dude fit in with me and Kevin like he was engineered for it. He liked the same cheap beer we always get from the local store. He smoked too, and was happy to chip in for more weed without asking. And when we’d smoke up and get going with our usual rambling jokes and stories, he’d always seem to unknowingly drop the perfect straight line to tee one of us up for a great punchline. It was like he’d been fed a data stream of me and Kevin’s entire friendship and he’d optimised his personality to be the perfect missing piece. It was like we’d downloaded a brand-new friend from the internet.
 
 Now, bear in mind, we lived with Trevor for like a month and a half. For the most part it really was sweet - life chugging along as it always had, just with a new buddy in the mix. These are just a few little instances that stick out to me in hindsight.
 
-Like, one time, I was talking about almost failing one of my modules, and Trevor absent-mindedly said while he was cracking eggs into a pan, “So what you’re saying is, the only thing you wrote was the title of the project?” setting Kevin up for the perfect, “Yeah, and he spelled it wrong!” I think the only reason that I remember that is because it was the first time it actually occurred to me how often that kinda thing happened.                                                                                                  Another time, we were out on the porch passing a joint back and forth. Kevin was rambling about something funny that happened at some legendary party last semester. Suddenly, Trevor said, perfectly in sync with Kevin’s cadence, “…and then the sink was full of nails.”
+Like, one time, I was talking about almost failing one of my modules, and Trevor absent-mindedly said while he was cracking eggs into a pan, “So what you’re saying is, the only thing you wrote was the title of the project?” setting Kevin up for the perfect, “Yeah, and he spelled it wrong!” I think the only reason that I remember that is because it was the first time it actually occurred to me how often that kinda thing happened.                                                                                                  
+
+Another time, we were out on the porch passing a joint back and forth. Kevin was rambling about something funny that happened at some legendary party last semester. Suddenly, Trevor said, perfectly in sync with Kevin’s cadence, “…and then the sink was full of nails.”
 
 Kevin stopped. “What? It was full of… uh… beer.”
 
-Trevor blinked. “Uh, yeah. Beer, that’s what I said.” But he didn’t, I’m sure of it. It hung in the air for a split second, before we shrugged it off and forgot about it as some random awkward misunderstanding. But it still felt wrong.
+Trevor blinked. “Uh, yeah. Beer, that’s what I said.” 
+
+But he didn’t, I’m sure of it. It hung in the air for a split second, before we shrugged it off and forgot about it as some random awkward misunderstanding. But it still felt wrong.
 
 “Dude, I can’t believe we survived so long without a third,” Kevin mumbled one night maybe a week later, through a mouthful of pizza. Trevor had gone to bed, and we were just shooting the shit.
 
@@ -30,13 +34,15 @@ The next evening, we were all stoned on the balcony, chatting aimlessly and gazi
 
 “Yeah. The woods get deep there, y’know, you shouldn’t go in. It’s easy to get turned around. The trees all look the same after a while.
 
-Things like this continued to pile over time. Once, we were all watching the football and me and Kevin got reminiscing about the time we did shrooms and thought we were getting chased by the police. It’s one of those moments where you’re already laughing hard, and everyone keeps adding extra jokes and you just keep laughing even harder. Trevor caught his breath at to say, “Oh man, and Andy, when you tried to climb that tree…” I froze. I did do that, but it was just me and Kevin. Nobody else was around. When I asked how he knew that, Trevor looked blank for a second, then shrugged. “I dunno. Guess Kev must’ve mentioned it somewhere down the line.”
+Things like this continued to pile over time. Once, we were all watching the football and me and Kevin got reminiscing about the time we did shrooms and thought we were getting chased by the police. It’s one of those moments where you’re already laughing hard, and everyone keeps adding extra jokes and you just keep laughing even harder. Trevor caught his breath at to say, “Oh man, and Andy, when you tried to climb that tree…” 
+
+I froze. I did do that, but it was just me and Kevin. Nobody else was around. When I asked how he knew that, Trevor looked blank for a second, then shrugged. “I dunno. Guess Kev must’ve mentioned it somewhere down the line.”
 
 “I don’t think I did?” Kevin murmured from his beanbag. An awkward silence hung in the air for a beat before we cracked another beer and changed the subject.
 
 After the three of us had been out hitting the bars one night with the rest of our friend group, I tossed and turned for a while before getting up for a glass of water. I stumbled towards the kitchen door, still pretty drunk. The only light inside was the dim glow of the oven’s digital clock: 3:46 AM. I could make out a shape in the corner of the room, perfectly still. The silence was heavy and my heart was thumping steadily. With my foggy headspace in the moment, I didn’t pay it much mind, figuring it was just a hoodie hanging up or whatever.
 
-As I walked over to the sink, I hit my vape. Don’t judge. The click-hiss felt obscenely loud in the silence of the room. And as I puffed out the smoke, the cloud glowed momentarily in the red light from the oven’s clock, illuminating the profile of Trevor, standing rigid in the corner of the room like he was waiting for a bus. Startled, I said gasp-laughed in surprise and said something to the effect of, “Jesus, man, didn’t see you there!”
+As I walked over to the sink, I hit my vape. Don’t judge. The click-hiss felt obscenely loud in the silence of the room. And as I puffed out the smoke, the cloud glowed momentarily in the red light from the oven’s clock, illuminating the profile of Trevor, standing rigid in the corner of the room like he was waiting for a bus. Startled, I gasp-laughed in surprise and said something to the effect of, “Jesus, man, didn’t see you there!”
 
 “Couldn’t sleep,” Trevor said. His voice was flat.
 
@@ -90,7 +96,7 @@ We’re coming up with the most ridiculous theories for it all. A government spy
 
 Then, the doorbell rang.
 
-We froze. All the laughter died. Kevin looked at me, eyes wide. I can see the same thought in his head: He’s back. 
+We froze. All the laughter died. Kevin looked at me, eyes wide. I can see the same thought in his head: He’s back.
 
 You get it, Kevin whispers, like whatever’s on the other side can hear us.
 
@@ -150,7 +156,7 @@ The storage locker was stocked with piles of our own garbage. I’m talking the 
 
 The third thing was a notebook. We thought, finally, answers. Then we opened it. The pages were filled with these, like, complex geometric patterns. Mind-bending art or math that looked like blueprints for a building designed by an architect who momentarily forgot about every law of physics. On the last page was a taped photo of a young boy who, even though I’d never seen him before, I felt had something terrible happen to him sometime long ago.
 
-And guess what else? We were one missed class away from failing one of our shared classes. So we did what any self-respecting guys would do: went back to the apartment to get our bags and one last hit from the bong, zoned out and made up the titration results for the practical, and then, once Kevin fell asleep that evening after whooping my ass on Call of Duty, I fell down an internet rabbit hole so deep I’m surprised I didn’t crawl back out somewhere in Kyrgyzstan. 
+And guess what else? We were one missed class away from failing one of our shared classes. So we did what any self-respecting guys would do: went back to the apartment to get our bags and one last hit from the bong, zoned out and made up the titration results for the practical, and then, once Kevin fell asleep that evening after whooping my ass on Call of Duty, I fell down an internet rabbit hole so deep I’m surprised I didn’t crawl back out somewhere in Kyrgyzstan.
 
 I found this forum post from, like, 2007. The website looked like it was designed by a colourblind hamster. The thread was called “The standing man in apartment 3B”.
 
@@ -168,7 +174,7 @@ Kevin looked white when he hung up. And he told me he remembered it. He couldn�
 
 “What’s that even mean?” I asked.
 
-“I don’t really know, it’s just – I remember it. He used to sleep under my bed every night. There was this one time my parents took me out to some public park somewhere. I was in some kind of hedge maze, and I’d wandered off from my parents, but it didn’t really feel scary. 
+“I don’t really know, it’s just – I remember it. He used to sleep under my bed every night. There was this one time my parents took me out to some public park somewhere. I was in some kind of hedge maze, and I’d wandered off from my parents, but it didn’t really feel scary.
 
 “Willy was with me and he was telling me something about atoms, but then some old guy walked up from behind us. It’s like he appeared out of nowhere. He smelled like dust and sour milk. He was wearing a Dire Straits shirt, dunno why that sticks out. He asked me, ‘How old are you?’ I felt weird, but I didn’t want to be rude. I told him I was six. ‘That’s an important age,’ he said. He laughed but there wasn’t any humour in it at all.
 
@@ -182,6 +188,6 @@ The next morning, I’d just gotten home and I’m heading into the kitchen for 
 
 Hungover and bleary eyed, I tried my best to hold the conversation. It was weird. She kept asking me if I’d seen the new Merrick Hutchings movie. She said it was “all the rage”. I’d never heard of any such movie. Kevin was clearly pretty stoned when he entered the kitchen. The two of them started getting a bit too sappy for my liking, so I tried to just focus on my cereal. I was just washing the bowl in the sink when I randomly tuned back into their conversation and heard Lily saying “And you have such a cute face, it’s a shame you only use it for smiling.”
 
-It was the kind of thing that felt like an actor jumbling up their lines. It was just off. Even Kevin looked confused. She laughed it off and said she was going to the bathroom. Twenty minutes later, she still hadn’t returned. We decided to have a look, partially because I was bursting for a piss, and we found her missing, the bathroom empty. And I can distinctly remember hearing the lock on the bathroom door turn when she’d initially left the kitchen. 
+It was the kind of thing that felt like an actor jumbling up their lines. It was just off. Even Kevin looked confused. She laughed it off and said she was going to the bathroom. Twenty minutes later, she still hadn’t returned. We decided to have a look, partially because I was bursting for a piss, and we found her missing, the bathroom empty. And I can distinctly remember hearing the lock on the bathroom door turn when she’d initially left the kitchen.
 
 There was no sign of her anywhere in our flat. Heading back to the kitchen (not before I’d pissed) we saw that Lily’s purse was still on the counter. We looked inside. No money, no phone, no ID. Just a rusty nail. Since then, we haven’t been able to find Lily. It’s like she was just edited out of reality. Kevin didn’t have her number saved anymore. Her Instagram account was deleted. We’ve tried asking girls she was friends with where she is and they don’t even seem to remember any girl called Lily. Every piece of evidence for this girl’s life simply doesn’t seem to exist.
