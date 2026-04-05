@@ -476,9 +476,9 @@ He inserted the needle tip into the center of the mass, popping a gooey pustule 
 
 “AAHHH!!!” I yelled, gritting my teeth and clenching my fists.
 
-“Easy does it,” drew back the plunger with a chuckle. “Didn’t know you had such a nice singing voice. We could always use another choir member at church.”
+“Easy does it,” he drew back the plunger with a chuckle. “Didn’t know you had such a nice singing voice. We could always use another choir member at church.”
 
-On one hand, I could appreciate what he was trying to do. On the other hand, I wished he’d just shut the fuck up. Still, he was helping me, and he hadn’t called the police. So, the least I could do was put up with his stale humor.
+On one hand, I could appreciate what he was trying to do. On the other, I wished he’d just shut the fuck up. Still, he was helping me, and he hadn’t called the police. So, the least I could do was put up with his stale humor.
 
 I stared at the reflection, watching as a thick yellow gel filled up the vacant syringe.
 
