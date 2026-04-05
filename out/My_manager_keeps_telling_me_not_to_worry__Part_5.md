@@ -545,3 +545,5 @@ Dawn arrived surprisingly fast, painting the sky in bruised shades of purple and
 Three gray dots appeared almost instantly on the screen, which meant that Maren (do not soup) was either still awake from last night or already awake for the day.
 
 *I'll bring soup. You want some, too?*
+
+\[[Continue](https://www.reddit.com/r/nosleep/comments/1sdb84b/my_manager_keeps_telling_me_not_to_worry_part_6/)\]
