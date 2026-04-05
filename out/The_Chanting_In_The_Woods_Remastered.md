@@ -1,5 +1,4 @@
-
-I don’t go into the woods anymore—no matter where I travel, I stay far away from them. It’s been that way since I was very young. Life in that town was great. I had my mom four friends from preschool, and nice neighbors.
+“I don’t go into the woods anymore—no matter where I travel, I stay far away from them. It’s been that way since I was very young… since the night I first heard the chanting. It still feels like it was yesterday.”
 
 This was one of the scariest experiences I’ve ever had. It happened when I was five. Even though I’m safe now and living in a big city, I still remember the horror of that small town — the chanting, the horned beast, and the nightmares.
 Sorry, I’m getting ahead of myself. I’ll tell you everything that happened.
