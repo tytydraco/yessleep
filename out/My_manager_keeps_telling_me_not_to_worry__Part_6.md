@@ -474,7 +474,7 @@ Not *mysterious* nonsense. Not ominous, cryptic, almost-meaningful nonsense that
 
 Maybe it wasn’t ASCII to begin with.
 
-That board member had accused me of seeing patterns, and even though I’d disagree with that on the macroscopic scale, he might have had a point when it comes to my original attempt at cracking the code.
+That board member had accused me of seeing imaginary patterns, and even though I’d disagree with that on the macroscopic scale, he might have had a point when it comes to my original attempt at cracking the code.
 
 I pocketed the phone and shelved the problem for later.
 
