@@ -96,7 +96,7 @@ Maybe it was an insect. It was difficult to look at, like the creature was glitc
 
 "*This is not world, this world is my land*," it sung in the voice of a thousand shrieking agonized souls, only some of them human. Then, speaking softer, not to me but to *them,* to the Others:
 
-"So do you see the truth of your disembodied dreams, your glimpses of the Other, your fairytales and conspiracies--they all lead back to me? The truth too terrible to reconcile? The truth your kind would rather burn down in a great holy war than admit you are all connected through me, the one great mind? The revelation you must ignore at the cost of your lives?"
+"So do you see the truth of your disembodied dreams, your glimpses of the Other, your fairytales and conspiracies--they all lead back to me? The truth too terrible to reconcile? There will be no disclosure. Won't they burn it all down before they unveil the reality?"
 
 I'm not sure now if there was a Mel. I think she was always the great being, The Author, helping guide me to this place, to this time at last. I looked back up at the star as the earth began to recoil, the jack pines began to weep and gnash their teeth in fury.
 
