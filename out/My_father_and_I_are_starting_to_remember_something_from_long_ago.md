@@ -75,3 +75,4 @@ Anyone know of a hypnotist for hire? Nah, nevermind, best if I find someone loca
 I'll update more when I find someone up for the job. Expect something tomorrow.
 
 [Part 2](https://www.reddit.com/r/nosleep/s/bmV1wXg28E)
+[Part 3](https://www.reddit.com/r/nosleep/s/eDChmVJocb)

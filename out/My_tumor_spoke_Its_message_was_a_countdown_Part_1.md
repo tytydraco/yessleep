@@ -4,11 +4,9 @@ We used to be close. Building Lego starships. Swapping comics and anime. I thoug
 
 *Was he safe? Was he hurt? Was he… alive?*
 
-It damn near destroyed Theresa. Just like our marriage, she blamed me for everything, and I took it on the chin. Tried to be strong, but inside, my heart was caught on jagged nails. The more I wondered where my son was, the more my flesh tore apart.
+It damn near destroyed Theresa. Just like our marriage, she blamed me for everything. I did everything I could. Searched around town. Posted signs with his picture. Filed a missing person's report with the cops. I tried to be strong, but inside, my heart was caught on jagged nails. The more I wondered where my son was, the more my flesh tore apart.
 
-Time passed in a blur. I drank to numb the pain. Blood pressure went to hell and so did everything else.
-
-Got fired. Lost my apartment. Moved into the car with Knox, my Jack Russell Terrier. Couldn’t drink any more so I switched to weed. Hustled where I could… day labor and Door Dash to make a few ends. Showered and cut my hair at the gym. Walked Knox at the park. But, I always stayed high. There was no pleasure in it. It was an empty, perpetual state of zombie-hood. Wondering how I’d ended up divorced and with a son who didn’t want shit to do with me.
+Time passed in a blur. I drank to numb the pain. Blood pressure went to hell and so did everything else. Got fired. Lost my apartment. Moved into the car with Knox, my Jack Russell Terrier. Couldn’t drink any more so I switched to weed. Hustled where I could… day labor and Door Dash to make a few ends. Showered and cut my hair at the gym. Walked Knox at the park. But, I always stayed high. There was no pleasure in it. It was an empty, perpetual state of zombie-hood. Wondering how I’d ended up divorced and with a son who didn’t want anything to do with me.
 
 I opened my stash box and discovered I was dry. A few green crumbs the size of a pinhead. Maybe enough to get a cockroach lit, but that’s about it. Knox licked my fingers as I rifled through my wallet. Ten bucks. All I had to my name, but at least I could smoke.
 
@@ -16,7 +14,7 @@ Scorpion Dave sold the best weed. The problem was, he lived way out in the middl
 
 I texted him saying I needed to pick up. A simple thumbs-up emoji told me to bring my ass on.
 
-Scorpion Dave was a curious creature. He carried himself like some sort of desert shaman. A recluse who dabbled in Eastern philosophy, meditation, and the mystic arts, he lived about as far off the grid as he could. But, he had connections and he knew how to get the stickiest shit around.
+Scorpion Dave was a curious creature. He carried himself like some sort of desert shaman. A recluse who dabbled in Eastern philosophy, meditation, and the mystic arts, he lived about as far off the grid as he could. But, he had connections and he knew how to get the stickiest bud around.
 
 Knox and I headed out there around noon. It was abnormally dark. Thick storm clouds threatened overhead, choking off the daylight. It was as if the sun had stepped outside, said ‘hell naw,’ then dipped out like a runny yolk sliding off a plate.
 
@@ -26,7 +24,7 @@ Knox leaned on the dash, peering ahead with a concerned whimper.
 
 He wasn’t convinced. Can’t say I blamed him. Driving out there was eerie. Nothing but cracked earth for miles and poisonous critters ready to let you know you were in the wrong neighborhood.
 
-I parked next to Scorpion Dave’s Airstream, my tires kicking up plumes of dust. Knox scampered around, sniffing and pawing the dirt. Chilled air bit at my skin. I rubbed cracked fingers together and stomped on a scorpion as a coyote howled in the distance.
+I parked next to Scorpion Dave’s Airstream and Jeep, my tires kicking up plumes of dust. Knox scampered around, sniffing and pawing the dirt. Chilled air bit at my skin. I rubbed cracked fingers together and stomped on a scorpion as a coyote howled in the distance.
 
 *Man… to hell with this place.*
 
@@ -56,7 +54,7 @@ He stepped back and studied me like some sort of specimen, deciding which of his
 
 Couldn’t tell him I’d been buying cheaper elsewhere.
 
-“Don’t take this the wrong way,” he laughed, “but you look like a sack of reheated dogcrap. No offense, Knox.”
+“Don’t take this the wrong way,” he laughed, “but you look like a sack of reheated dog crap. No offense, Knox.”
 
 Knox barked.
 
@@ -110,11 +108,9 @@ My gut roared, unhappy at the rotten fuel. I stumbled into the John, dropped my 
 
 “What the hell is—”
 
-KRA-KOOM!
+The trailer rocked from a violent shockwave. I pitched face-first into the door, landing hard on the floor, drenched in brown, goopy water. I felt the bridge of my nose, checking to see if it was broken. It wasn’t.
 
-The trailer jolted from a violent shockwave. I pitched face-first into the door, landing hard on the floor, drenched in brown, goopy water. I felt the bridge of my nose, checking to see if it was broken. It wasn’t.
-
-*Lucky. If you call being coated in shit, lucky.*
+*Lucky. If you call being coated in crap, lucky.*
 
 I stumbled out of the bathroom, groaning. Knox barked by the door. I flung wet arms, “WHAT WAS THAT?!”
 
@@ -176,8 +172,6 @@ His jaw hung loose, his mouth agape, eyes full of an expression I’d never seen
 
 “Why?”
 
-PSSSSHHHH!!!
-
 The metal object split open, spewing hot orange goo across the left side of my torso. The fabric of my shirt instantly vaporized as the slime clung to my skin, searing it like napalm.
 
 “GAAAAH!!! IT BURNS!!!!”
@@ -188,7 +182,7 @@ I ran in circles, ripping off the remnants of the smoking shirt, patting my hand
 
 “AAAH, GET IT OFF ME!!! GET IT OFF ME!!!”
 
-“STOP, DROP, AND ROLL!!!” Scorpion Dave gestured with the gun.
+“STOP, DROP, AND ROLL, MOTHERFUCKER!!!” Scorpion Dave gestured with the gun.
 
 I hit the deck, rolling my bare skin across the ground. The white-hot pain of salt in the wound short-circuited my nervous system. The last thing I remember was staring up at the starlit sky, and Scorpion Dave leaning over me in a blurry swirl. His words stretched out in slow-motion slurs.
 
@@ -210,17 +204,13 @@ I let Knox out to pee and walked around the car, pleased that there were no new 
 
 The Gym was closed, so I headed to a gas station and washed up in the single stall bathroom. I groaned, looking in the cracked mirror, trying to find any remnants of humanity in the bony sack of skin staring back at me. I hardly recognized myself. Gaunt. Malnourished. Salt-and-pepper whiskers. Looking way older than my forty-five years.
 
-I poked the spongy bags beneath my eyes, hocked a glob of mucus into the sink, and scratched my balls. After some deliberation, I sniffed my fingers.
-
-*Ugh.*
-
-Tighty-whities were due for a change.
+I poked the spongy bags beneath my eyes.
 
 BANG! BANG!
 
-I flinched, the rusty lock rattling, as somebody pounded on the door.
+I jumped as the rusty lock rattled. Somebody was pounding on the door.
 
-“Uh, yeah… just a minute,” I said.
+“Occupied,” I said.
 
 I stared in the mirror again, transfixed, my hands moving back to the bandage. I prodded around with my fingers, wincing with every press. There was fresh swelling. I touched it.
 
@@ -244,15 +234,13 @@ I tugged a little more, until I saw the oozing, gnarly edge of warped flesh.
 
 BANG! BANG! BANG!
 
-“ALRIGHT, I’M LEAVING!!!”
+“ALRIGHT, ALRIGHT, I’M LEAVING!!!”
 
-I threw the door open and found myself face to face with an elderly man leaning over his walker. He clutched his crotch as a wet stain spread across.
+I threw the door open and found myself face to face with a disgruntled elderly man.
 
-“Sorry, man,” I muttered. “Here. Let me help you.”
+“Sorry. All yours,” I muttered.
 
-I slumped back into the car and clawed at my side. The burns were tap-dancing on my nerve endings. The itch and pain, searing. Reminded me of the time I had gotten Shingles a few years back. Dreadful condition. Started out like a few tiny mosquito bites and ended up a vicious beast that ravaged the left side of my body. It culminated in white-hot needles of pain, stabbing and tasing me at their whim.
-
-I’d be damned if I was gonna go through that again.
+I slumped back into the car and clawed at my side. The burns were tap-dancing on my nerve endings. The itch and pain, searing. Reminded me of the time I had gotten Shingles a few years back. Dreadful condition. Started out like a few tiny mosquito bites and ended up a vicious beast that ravaged the left side of my body. It culminated in white-hot needles of pain, stabbing and tasing me at their whim. I’d be damned if I was gonna go through that again.
 
 Knox watched me scratching with a curious gaze. It was almost as if he could feel my pain. A year prior, he had run through a patch of poison ivy. I had taken him to the vet, who gave him a cream.
 
@@ -260,7 +248,7 @@ Knox watched me scratching with a curious gaze. It was almost as if he could fee
 
 I snapped my fingers and Knox cocked his head.
 
-We drove towards Doc Williams’s office. Knox’s vet. On the way, Knox whimpered, nervous in the passenger seat. I patted his fur, promising we were going there for me and not him. He didn’t seem convinced.
+We drove towards Doc Williams’ office. Knox’s vet. On the way, Knox whimpered, nervous in the passenger seat. I patted his fur, promising we were going there for me and not him. He didn’t seem convinced.
 
 It was 10 p.m. The office was closed. All the better since I didn’t have money to pay for a visit. We scuttled into the rear alleyway.
 
@@ -380,9 +368,9 @@ He pushed me flat on my back. I winced as the scarred flesh beneath my shoulder 
 
 “The hell it won’t!” I tried to get up.
 
-“Oh, fine,” he grabbed a spray canister, “…if you’re gonna be a little bitch about it.”
+“Calm down.”
 
-He spritzed a numbing agent over the wound and told me to look away and think happy thoughts. And that might have worked if I hadn’t seen the reflection of what he was doing in a glass cabinet on the opposite wall. He inserted the needle tip into the center of the mass, popping a gooey pustule as he went.
+He grabbed a spray canister and spritzed a numbing agent over the wound. He told me to look away and think happy thoughts. And that might have worked if I hadn’t seen the reflection of what he was doing in a glass cabinet on the opposite wall. He inserted the needle tip into the center of the mass, popping a gooey pustule as he went.
 
 “AAHHH!!!” I yelled, gritting my teeth and clenching my fists.
 

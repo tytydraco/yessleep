@@ -81,7 +81,7 @@ I had no idea if it was instinct or maybe stupidity or maybe a lack of self-pres
 
 With the door wide open I could hear the creature. Along with being able to see it more clearly as it approached. My father wasn't lying. Whatever this thing was. It was large and gangly, nothing like I'd ever seen near Appalachia. Its patterns of movement were very spider-like. And then it opened its mouth, or what looked to be its mouth.
 
-Creature - "Gaghahaha-Gaghaha-Gaghahahahaha!"
+"Gaghahaha-Gaghaha-Gaghahahahaha!"
 
 A laugh? My father mentioned that it had a laugh. Though this wasn't your typical laugh. It had a pattern to it similar to its movements. It sounded as if it was trying to speak. Like those laughs were its form of language. What freaked me out the most was just how human it sounded.
 
@@ -91,7 +91,7 @@ My father screamed, yet my mother didn't waver. The creature made a sound that s
 
 Dad - "AGNES!"
 
-I watched as my father sprinted into the same line of trees the creature had. I could hear more shots from his shotgun. Tough, these shots didn't sound calculated; these were more sporadic. It sounded less like a man carefully planning each shot and more like a man taking his anger out after watching the love of his life be taken from him. And he... he wasn't able to stop it.
+I watched as my father sprinted into the same line of trees the creature had. I could hear more shots from his shotgun in the distance. Tough, these shots didn't sound calculated; these were more sporadic. It sounded less like a man carefully planning each shot and more like a man taking his anger out after watching the love of his life be taken from him. And he... he wasn't able to stop it.
 
 I'm not sure how I did it or why. But in the wave of strong and confusing emotions. I put out my hand. And suddenly the world felt still. As if I'd pushed pause on God's remote. I then felt as if I could maybe... turn back the clock? Concentrating and forcing my hand, suddenly my dad came running back out of the trees. Backwards.
 
@@ -127,7 +127,7 @@ I looked round in a frenzied panic as this unknown voice echoed. That's when it 
 
 I shouted to it as I watched it slowly sway back and forth. 
 
-"Boy...boy...boy...boy...boy...boy...boy...boy,boy, boy, boy, boy, boy, boy, boy, boy-"
+"Boy...boy...boy...boy...boy...boy...boy...boy, boy, boy, boy, boy, boy, boy, boy, boy-"
 
 "SHUT UP!"
 

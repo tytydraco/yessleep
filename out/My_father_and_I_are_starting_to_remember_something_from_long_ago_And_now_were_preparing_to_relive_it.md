@@ -5,6 +5,7 @@ So, as I said I would in my previous post. I found a hypnotist (not for free, un
 I'm currently writing this after the fact, so I'll cut to the chase and tell you all what happened.
 
 [Part 1](https://www.reddit.com/r/nosleep/s/2TXw9KW88X)
+[Part 3](https://www.reddit.com/r/nosleep/s/eDChmVJocb)
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
@@ -108,7 +109,7 @@ Ray lit a small portion of the hay. I watched as it lit up almost instantly. Smo
 
 Me - "Damnnit what are you trying to do, set the smoke alarms off?"
 
-Ray - "No but I bet it'll help. Now, sir, I want to use the smoke. Picture it in your mind. Get lost in it. Take yourself there."
+Ray - "No but I bet it'll help. Now, sir, I want you to use the smoke. Picture it in your mind. Get lost in it. Use it to bring yourself there."
 
 I watched as my dad continued to struggle to breath. At first I thought it was from the smoke. But then he started clenching his chest. I almost jumped in to stop this, fearing he was having a heart attack or his lungs were giving out. Though, when I tried, Ray grabbed me by my collar to stop me.
 
