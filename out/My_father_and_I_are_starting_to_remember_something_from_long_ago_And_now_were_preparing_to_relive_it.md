@@ -180,4 +180,4 @@ Until tomorrow or whenever I post next.
 
 Edit: I talked with my dad about what he saw. Old bastard told me to just forget it. But I wouldn't. So all he told me was this.
 
-Dad - "I remember it. I remember it now more than I've ever wanted to. It was brought to us by accident. Well, I say "brought," but it was more so "attracted" to us.
+Dad - "I remember it. I remember it now more than I've ever wanted to. It was brought to us by accident. Well, I say "brought," but it was more so "attracted" to us. That's all I'll say."
