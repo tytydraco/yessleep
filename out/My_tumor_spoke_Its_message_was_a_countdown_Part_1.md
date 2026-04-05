@@ -1,5 +1,3 @@
-# SUNDAY
-
 My son disappeared six months ago. Right after his 22nd birthday. He wasn’t doing well with our divorce. Started hanging with the wrong crowd and skipping work, before totally vanishing.
 
 We used to be close. Building Lego starships. Swapping comics and anime. I thought our bond was unbreakable. But, then he ghosted everyone. Ignored calls. Unread texts. An abandoned apartment. Neither I nor my ex had any idea where he was, who he was with, or what he was doing.
