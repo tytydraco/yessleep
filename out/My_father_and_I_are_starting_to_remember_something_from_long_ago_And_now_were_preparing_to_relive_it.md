@@ -66,13 +66,13 @@ Hypnotist - "Well then, I'll go ahead and introduce myself. Hello, my name is Ra
 
 He handed me two slips of paper. I handed one to my dad and started reading.
 
-Me - "Not applicable for any seizures or underlying effects?"
+Me - "Not applicable for any seizures or underlying effects caused or brought on by the procedure?"
 
 Ray - "Well you bought my time, so if it's a risk you're willing to take, then yeah, no, anything bad that happens isn't legally my fault."
 
 Dad - "Told ya he was a quack."
 
-Me - "Shut it. And sign it."
+Me - "Just shut it and sign it."
 
 Nothing on that paper seemed bad, just legal jargon tailored to claim no fault on Ray's part. So we signed. If this were to be our one chance at a potential closer. Then so be it.
 
@@ -116,7 +116,7 @@ Ray - "I've seen some crazy shit, man. But this has to be the craziest."
 
 Me - "What the hell are you talking about?"
 
-Ray then pointed towards my dad. Towards the sweater vest he was wearing. It looked like something was grabbing. He was sitting down, but he was acting as if he were being hoisted above the ground.
+Ray then pointed towards my dad. Towards the sweater vest he was wearing. It looked like something was grabbing it. He may have been sitting down, but he was acting as if he were being hoisted above the ground.
 
 Dad - "G-Get off me! GET OFF ME, FUCKER! JUST LET HER LIVE, PLEASE!"
 
@@ -132,9 +132,9 @@ Me - "CAN'T YOU DO ANYTHING!"
 
 I could barely hear my own thoughts from the noise.
 
-Ray - "I COULD TRY SUGGESTING THINGS. TELL HIM TO FIGHT AGAINST WHATEVER... JESUS, IT'S FUCKING LOUD!"
+Ray - "I COULD TRY SUGGESTING THINGS. TELL HIM TO FIGHT AGAINST OR WHATEVER... JESUS, IT'S FUCKING LOUD!"
 
-Me - "JUST DO IT."
+Me - "JUST DO IT!"
 
 Ray handed me the burning hay and slowly made his way closer to my dad.
 
@@ -170,7 +170,9 @@ Jamie - "What were you idiots thinking? Were you trying to burn down the place o
 
 Me - "You started it."
 
-Despite regretting saying that immediately. I didn't get nearly as much information from that as I wanted. I hoped for something more telling. More visual. So despite my father and wife telling me over and over to stop. I had Ray put me under. I wanted to know what I saw that day.
+Despite regretting that even said that almost immediately. Technically she did start it. 
+
+However intense that experience may have been. I didn't get nearly as much information from it as I wanted. I hoped for something more telling. More visual. So despite my father and wife telling me over and over to stop. I had Ray put me under. I wanted to know what I saw that day.
 
 Unfortunately, that's all the time I have for this. I have to get back to work soon. So hopefully I'll have my experience documented for you all, maybe tomorrow. Which I clearly can't guarantee, as this was supposed to come out yesterday. I may have exaggerated and left out some details. But I wanted you all to understand the gist of the situation.
 
