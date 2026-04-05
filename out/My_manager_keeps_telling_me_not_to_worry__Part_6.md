@@ -506,7 +506,7 @@ I reached out and pressed the first digit, 1, on the plastic keypad.
 
 As I did, my mind drifted back to the radio numbers. The full, clean, perfectly captured sequence sitting useless in my notebook; a key with no keyhole. What was I supposed to do with them? Where was I supposed to enter this secret code?
 
-I pressed the second digit, of 12, which is a 2.
+I pressed the second digit of 12, which is a 2.
 
 The machine beeped, registering my input, and the internal carousel began to rotate with a satisfying mechanical clunk. The jar dropped into the retrieval slot.
 
