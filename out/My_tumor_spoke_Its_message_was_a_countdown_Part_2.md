@@ -2,9 +2,9 @@
 
 *“…sssix daysss left…” the voice hissed.*
 
-The words crept through my skull like a fog through tombstones. I was dreaming about the frightful events from the night before. I was startled from my sleep by thunderclaps and heavy rain. The roof of the car drummed like an old tin snare as sheets of water swallowed the windshield.
+The words crept through my skull, like a fog through tombstones. I lingered in a dream state, recalling the frightful night before. A thunderclap startled me, snapping me awake to heavy rain. I was sweating, sitting in the car with Knox. The roof drummed like an old tin snare. Sheets of water swallowed the windshield, obscuring any hope of a clear view. 
 
-The car rocked as a shadow bumped into it, blurring past my window. I bolted upright, heart racing. I clutched my chest and caught my breath as I realized it was just an intoxicated motel dweller stumbling back to his room.
+Something slammed into the car. A shadow. Blurring past my window. I bolted upright. Chest heaving. It was a drunk man, stumbling back to his motel room.
 
 I exhaled, rubbing my jaw, clicking it from side to side. My mouth was sore. Lips cracked. Felt like a football had been rammed down my throat.
 

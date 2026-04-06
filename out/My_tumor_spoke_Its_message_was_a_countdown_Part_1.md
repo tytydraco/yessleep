@@ -1,10 +1,18 @@
-My son disappeared six months ago. Right after his 21st birthday. We were always tight. Building Lego starships. Swapping comics and anime. Then, our divorce hit him hard and he just vanished. Damn near destroyed my ex, Theresa.
+I thought the warning was just for me.
 
-I did everything I could. Searched around town. Put up posters with his picture. Filed a missing person's report. Police said don’t worry. Happens all the time. He'd be back. I tried to be strong, but it felt like my heart was caught on jagged nails. The more I wondered where my son was, the more my flesh tore apart.
+I was dead wrong.
 
-Time passed in a blur. I drank to numb the pain. Blood pressure went to hell and so did everything else. Got fired. Lost my apartment. Moved into the car with Knox, my Jack Russell Terrier. Couldn’t drink any more so I switched to weed. Hustled where I could… day labor and Door Dash to make a few ends. Showered and cut my hair at the gym. Walked Knox at the park. But, through it all, I stayed high.
+My son, Joey, disappeared six months ago. Right after turning 21. We’d always been tight, from the time he was little. From building Lego starships to swapping comics and anime. Then, came our divorce last year. It hit him hard. At first, he was quiet. Withdrew from everyone. Then, one day, he just... vanished. Damn near destroyed my ex, Theresa.
 
-That is, until my stash ran out. Opened my Altoids tin to see a few green crumbs the size of a pinhead. Maybe enough to get a cockroach lit. Knox sniffed my fingers as I rifled through my wallet. Ten bucks. All I had to my name, but at least I could smoke.
+We did everything we could. Searched around town. Put up posters. Filed a missing person's report. Police said not to worry. Happens all the time. Probably off couch-surfing with friends.
+
+*He didn't have any.*
+
+I tried to be strong, but my heart felt pierced by splintered nails. The more I anguished over where he was, the more my life ripped apart.
+
+Time passed in a blur. I drank to numb the pain. Blood pressure went to shit and so did everything else. Got fired. Lost my apartment. Moved into the car with Knox, my Jack Russell Terrier. Couldn’t drink any more so I switched to weed. Hustled where I could. Day labor and Door Dash to make a few ends. Showered and cut my hair at the gym. Walked Knox at the park. But, through it all, I stayed high.
+
+That is... until my stash ran out. Opened my tin to see a few green crumbs the size of a pinhead. Maybe enough to get a cockroach lit, but that's about it. Knox sniffed my fingers as I rifled through my wallet. Ten bucks. All I had to my name, but at least I could smoke.
 
 Scorpion Dave sold the best weed. The problem was, he lived way out in the middle of nowhere. ‘The Flats.’ A bone-dry wasteland. An endless sheet of dead earth. Still… if this was gonna be my last mental escape for a while, I needed it to be good.
 
