@@ -2,7 +2,7 @@
 
 *“…sssix daysss left…” the voice hissed.*
 
-The words crept through my skull, like a fog through tombstones. I lingered in a dream state, recalling the frightful night before. A thunderclap startled me, snapping me awake to heavy rain. I was sweating, sitting in the car with Knox. The roof drummed like an old tin snare. Sheets of water swallowed the windshield, obscuring any hope of a clear view. 
+The words crept through my skull, like a fog through tombstones. I lingered in a dream state, recalling the frightful night before. A thunderclap startled me, snapping me awake to heavy rain. I was sweating, sitting in the car with Knox. The roof drummed like an old tin snare. Sheets of water swallowed the windshield, obscuring any hope of a clear view.
 
 Something slammed into the car. A shadow. Blurring past my window. I bolted upright. Chest heaving. It was a drunk man, stumbling back to his motel room.
 
@@ -84,7 +84,7 @@ The words landed like syrup on carpet. My stomach frosted over. I quivered at th
 
 *“Tell me who—”*
 
-*“FEEEEED USSSS!” it shouted in my mind*
+*“FEEEEED USSSS!” it shouted in my mind.*
 
 I stood up, clutching my skull.
 
@@ -104,11 +104,11 @@ I blacked out mid-sentence and woke up sometime later, slumped next to the car, 
 
 My hands trembled. Knox sniffed around as I sat on the hood of the car, gazing down at a suburban sprawl. Homes filled with families like the one I’d lost. I broke down, cupping my head, as tears spilled between my fingers.
 
-The voice taunted again, seeping down from the rafters of my mind.
+The voice taunted again, seeping down from the rafters of my mind. This time, with an update to its countdown.
 
 *“…five daysss left…”*
 
-“FIVE DAYS LEFT TO WHAT?!" I shouted.
+“FIVE DAYS LEFT TO DO WHAT?!" I shouted.
 
 *“Consssume… and burn.”*
 
@@ -118,13 +118,13 @@ The words jabbed like a blade. My blood ran cold.
 
 *“Everything.”*
 
-My flesh crinkled. It spoke the words with the frigid indifference of fact. I tried to make light of the sheer lunacy of it all.
+My flesh crinkled. It spoke with the frigid indifference of stating facts. I flashed a sardonic smile, trying to make light of the sheer lunacy of it all.
 
 “Man, you’re just a hungry-ass space pimple. There’s no way you can possibly—”
 
 *“Four terrorsss firssst...”*
 
-My nervous laughter died as it laid out four omens to come… promises of its power… each dotted with a slithering drawl.
+My nervous laughter died as the growth prophesied four omens to come… promises of its power… each one emphasized by its slithering drawl.
 
 *“…sssentry…*
 
@@ -134,9 +134,9 @@ My nervous laughter died as it laid out four omens to come… promises of its po
 
 *…sssee the light."*
 
-Twenty minutes later, I was sprinting out of a Mega-Mart, arms full of stolen gin, gauze, X-Acto knives, and peroxide. A heavyset security guard gave chase but couldn’t keep up. He hunched over, shaking a fist, as I sped off in the car.
+Twenty minutes later, I was sprinting out of a Mega-Mart, arms full of stolen gin, gauze, X-Acto knives, and peroxide. A pudgy security guard gave chase but couldn’t keep up. He hunched over, shaking a fist, as I sped off in the car.
 
-I dumped the stolen supplies in a gas station bathroom sink. I unwrapped my bandages, doused peroxide on my side, and uncapped the X-Acto knife. I stared at the blade, wary.
+I dumped the stolen supplies in a gas station sink. I unwrapped my bandages, doused peroxide on my side, and uncapped the X-Acto knife. I stared at the blade, wary.
 
 *“Ssstop.”*
 
@@ -148,7 +148,7 @@ More drops of blood, big and thick, as I shoved the blade in further, wrenching 
 
 *“We cannot allow it.”*
 
-“Yeah? S-s-sstop me!”
+“Yeah? Sssstop me!”
 
 I stabbed the knife down. Goopy pus and red jelly spilled from my side. I hacked the blade, tracing around the outer edges of the tumor. Satisfied with my cut, I dropped the razor in the sink, grabbed the edge of the incision, dug my fingernails beneath the lip, and started to pull.
 
@@ -170,7 +170,7 @@ I tugged and yanked at the growth, but it fought back, black tendrils lashing ou
 
 CLINK! CLINK!
 
-The entire world fell away from me and I found myself sitting in the car, Knox to my right. We were parked behind the motel. The pot-bellied manager stood outside my door, beneath an umbrella. He had milky eyes, a scarred neck, and a gun bulge beneath an ill-fitting track suit.
+The entire world fell away and I found myself sitting in the car, Knox to my right. We were parked behind the motel. The pot-bellied manager stood outside my door, beneath an umbrella. He had milky eyes, a scarred neck, and a gun bulge beneath an ill-fitting track suit.
 
 He rapped on the glass with a gold pinky ring.
 

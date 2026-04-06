@@ -54,7 +54,7 @@ He stepped back and studied me like some sort of specimen, deciding which of his
 
 Couldn’t tell him I’d been buying cheaper shit elsewhere.
 
-“Don’t take this the wrong way,” he laughed, “but you look like a sack of reheated dog crap. No offense, Knox.”
+“Don’t take this the wrong way,” he laughed, “but you look like a sack of reheated dog shit. No offense, Knox.”
 
 Knox barked.
 
@@ -102,9 +102,9 @@ One time, I opened my eyes and saw Scorpion Dave hovering over me. The room was 
 
 Another time, I woke up and he was inches close, nose to nose, eyes staring deep into mine. War paint streaked his face and he had the oddest smile, the slick of fresh saliva coating his teeth.
 
-I finally came to after sunset. I didn’t bring up the fever dream shenanigans. I was too distracted by ravenous hunger. My stomach growled from neglect. Scorpion Dave didn’t have much around in the way of food. I scrounged through his cabinets, finding an old tin of beef jerky and a half bag of stale chips. Knox and I scarfed them down without second thought.
+I finally came to after sunset. I didn’t bring up the fever dream shenanigans. I was too distracted by ravenous hunger. My stomach growled from neglect. Scorpion Dave didn’t have much in the way of food. I scrounged through his cabinets, finding an old tin of beef jerky and a half bag of stale chips. Knox and I scarfed them down without second thought.
 
-My gut roared, unhappy at the rotten fuel. I stumbled into the John, dropped my jeans, and blasted the bowl. I sprayed lemon air freshener, hearing a high-pitched whistle slicing through the air outside. It sounded like an inbound missile. I peeked out of the window above the toilet and saw a faint trail of fire knifing across the sky.
+My gut roared, unhappy at the rotten fuel. I stumbled into the John, dropped my jeans, and blasted the bowl. I sprayed lemon air freshener, hearing the high-pitched shriek of something falling through the air outside. It sounded like an inbound missile. I peeked out of the window above the toilet and saw a faint trail of fire slicing across the twilight sky.
 
 “What the hell—"
 
@@ -112,7 +112,7 @@ BOOM!
 
 The trailer rocked from a violent shockwave. I pitched face-first onto the floor, drenched in brown water. I felt the bridge of my nose, checking to see if it was broken. It wasn’t.
 
-*Lucky. If you call being coated in crap, lucky.*
+*Lucky. If you call being coated in shit, lucky.*
 
 I stumbled out of the bathroom, groaning. Knox barked by the door. I flung wet arms, “WHAT WAS THAT?!”
 
@@ -144,15 +144,15 @@ We caught up with Knox, who was busy barking and sniffing around a fresh, six-fo
 
 “Not no satellite I’ve ever seen.”
 
-With all his years of heavy partying, not only was Scorpion Dave a paranoid psych guru, he also was a certified, tin-foil-hat-wearing conspiracy theorist.
+With all his years of heavy partying, not only was Scorpion Dave a paranoid psych guru, he was also a certified, tin-foil-hat-wearing conspiracy theorist.
 
-“Naw… this gotta be some secret governmental shit. Area 51 ain’t far. They got all kinds of weird alien stuff over there. Always testing and launching. Then, they bury it after… to keep things quiet.”
+“Naw… this gotta be some secret governmental shit. Area 51 ain’t far. They got all kinds of weird crap over there. Always testing and launching. Then, they bury ’em to keep things quiet. Bury people too… if they ask questions.”
 
 As much as I hated to admit it, Scorpion Dave was right. Upon closer inspection, the object didn’t appear to be man-made. It looked like a celestial football that had been punted from the universe, ejected from the cosmos.
 
-“What do you think it is?” I said.
+“What do you think it is?” I said. “Escape pod? Seed capsule?”
 
-“Escape pod? Seed capsule?” He shrugged. “Don’t know. Don’t wanna know.”
+He shrugged, “Don’t know. Don’t wanna know.”
 
 He gestured for quiet, “Shh. You hear that?”
 
@@ -164,7 +164,7 @@ I cocked my head like Knox, as if pointing my ear at that angle might help me he
 
 There was a metallic squeal as spider cracks splintered across the object’s dented hull. Blinding creases of light spilled from its core. Scorpion Dave took a few steps back, unsettled. Emboldened by my high, I stooped down, leaning to get a closer look. A luminous goo, like lava, seeped from the fractures. The object sizzled and popped as the earth beneath it baked into hardened glass.
 
-“Get away from it, man!” Scorpion Dave said.
+“Get away from it, man!” Scorpion Dave yelled.
 
 “Okay, who’s the pussy now?” I laughed, and that’s when I noticed his face had gone completely slack.
 
@@ -192,7 +192,7 @@ I hit the deck, rolling my bare skin across the ground. The searing pain of salt
 
 His face flickered, just slightly, changing into something else. Pale as aspirin. Inhuman. Though, I couldn’t read any fine details through the blur. Then, everything went dark.
 
-I woke up later that night with Knox licking my face. His whimpers of concern turned into gleeful panting. I rubbed my eyes, surprised to find white medical tape wrapped around my burnt fingertips. We were back in my car, only, we weren’t out at the flats and Scorpion Dave was nowhere around. We were parked behind the hourly motel where we’d held camp for the past few months. A cheap hourly dive that mostly housed prostitutes and tweakers.
+I woke up later that night with Knox licking my face. His whimpers of concern turned into gleeful panting. I rubbed my eyes, surprised to find white medical tape wrapped around my burnt fingertips. We were back in my car, only, we weren’t out at the flats and Scorpion Dave was nowhere around. We were parked behind the hourly motel where we’d held camp for the past few months. A cheap dive that mostly housed prostitutes and tweakers.
 
 I peered through the windshield, meeting the suspicious gaze of a streetwalker puffing a cigarette. She crushed the butt under-heel, adjusted her cleavage, then headed around the corner.
 
@@ -204,13 +204,13 @@ I tried texting and calling him but got no answer. Maybe he was as jacked in the
 
 I let Knox out to pee and walked around the car, pleased that there were no new dents. At least I hadn’t crashed into anything during my blackout.
 
-The Gym was closed, so I headed to a gas station and washed up in the single stall bathroom. I groaned, looking in the cracked mirror, trying to find any remnants of humanity in the bony sack of skin staring back at me. I hardly recognized myself. Gaunt. Malnourished. Salt-and-pepper whiskers. Looking way older than my forty-five years.
+The Gym was closed, so I headed to a gas station and washed up in the single stall bathroom. I groaned, looking in the cracked mirror, trying to find any remnants of humanity in the bony sack of skin staring back at me. I hardly recognized myself. Gaunt and haggard. Salt-and-pepper whiskers. Looking way older than my forty-five years.
 
 I poked the spongy bags beneath my eyes.
 
 BANG! BANG!
 
-I jumped as the rusty lock rattled. Somebody was pounding on the door.
+I jumped as the rusty lock rattled. Someone was pounding on the door.
 
 “Occupied,” I said.
 
@@ -242,7 +242,7 @@ I threw the door open and found myself face to face with a disgruntled elderly m
 
 “Sorry. All yours,” I muttered.
 
-I slumped back into the car and clawed at my side. The burns were tap-dancing on my nerve endings. The itch and pain, searing. Reminded me of the time I had gotten Shingles a few years back. Dreadful condition. Started out like a few tiny mosquito bites and ended up a vicious beast that ravaged the left side of my body. It culminated in white-hot needles of pain, stabbing and tasing me at their whim. I’d be damned if I was gonna go through that again.
+I slumped back into the car and clawed at my side. The burns were tap-dancing on my nerve endings. The itch and pain, searing. Reminded me of the time I had gotten Shingles. Dreadful condition. Started out like a few tiny mosquito bites and ended up a vicious beast that ravaged the left side of my body. It culminated in white-hot needles of pain, stabbing and tasing me at their whim. I’d be damned if I was gonna go through that again.
 
 Knox watched me scratching with a curious gaze. It was almost as if he could feel my pain. A year prior, he had run through a patch of poison ivy. I had taken him to the vet, who gave him a cream.
 
@@ -264,11 +264,11 @@ I hoped karma would be forgiving as I wrapped my fist in an old rag and punched 
 
 “Ow!”
 
-I slid my hand back out and plucked a jagged, triangular wedge of glass from my knuckles. I tossed it aside applying pressure to slow the bleeding. Drops of blood splattered on the pavement below. So much for not leaving any evidence at the scene of the crime.
+I slid my hand back out and plucked a jagged wedge of glass from my knuckles. I tossed it aside applying pressure to slow the bleeding. Drops of blood splattered on the pavement below. So much for not leaving any evidence at the scene of the crime.
 
 I pushed the door open and knew I didn’t have to worry about an alarm. Doc Williams was behind the times and far too trusting. At Knox’s last visit, I told him he should upgrade his office with a modern security system. He laughed and waved it off as unnecessary, offering some quip about still having faith in humanity.
 
-*Yeah, well… I had faith in myself once too. Some things just change you.*
+*Yeah, well… I had faith in myself once too. Some shit just changes you.*
 
 I tore open drawers, rifled through boxes, and eventually jimmied my way into the locked medical cabinet where Doc Williams kept the good stuff. Not that I had a clue of what to use.
 
@@ -276,7 +276,7 @@ I was squinting at the tiny label on a vial when…
 
 CLICK!
 
-…I felt the cold steel of a gun barrel pressed against the back of my neck.
+I felt the cold steel of a gun barrel pressed against the back of my neck.
 
 “That’s enough, son. Hold it right there.”
 
@@ -302,7 +302,7 @@ He smirked, placing the pistol inside a desk drawer.
 
 “What about all that ‘faith in humanity’ stuff?”
 
-“Faith in humanity is all well and good, but my insurance adjuster didn’t give a crap about that.”
+“Faith in humanity is all well and good, but my insurance adjuster didn’t give a damn about that.”
 
 He furrowed his brow, “Why didn’t you just call me?”
 
@@ -376,7 +376,7 @@ He grabbed a spray canister and spritzed a numbing agent over the wound. He told
 
 “AAHHH!!!” I yelled, gritting my teeth and clenching my fists.
 
-“Easy does it,” drew back the plunger with a chuckle. “Didn’t know you had such a nice singing voice. We could always use another choir member at church.”
+“Easy does it,” he drew back the plunger with a chuckle. “Didn’t know you had such a nice singing voice. We could always use another choir member at church.”
 
 On one hand, I could appreciate what he was trying to do. On the other hand, I wished he’d just shut the hell up. Still, he was helping me, and he hadn’t called the police. So, the least I could do was put up with his stale humor.
 
@@ -390,7 +390,7 @@ He stitched up my hand, wrapped a fresh bandage over the growth, gave me a tube 
 
 “Well, you know how them young’ns are. When you do hear from him, tell him Doc Williams said hey.”
 
-Knox and I left and we settled back in the car for the night. There, in the quiet prison of my mind, I heard the faintest whisper. It was low, dark, and menacing. It spoke three simple word that warbled as if passing through fan blades.
+Knox and I left and we settled back in the car for the night. There, in the quiet recesses of my mind, I heard the faintest whisper. It was low, dark, and menacing. It spoke three simple word that warbled as if passing through fan blades.
 
 *“…sssix daysss left…”*
 

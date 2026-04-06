@@ -124,4 +124,6 @@ Because I can’t stop thinking about one thing.
 
 If nothing touched me—
 
-then what actually cut me?
+then what actually cut me? 
+
+(Edit! should i go back? we also never got any like sorry or anything, my parents also never considerd taking any legal actions.)
