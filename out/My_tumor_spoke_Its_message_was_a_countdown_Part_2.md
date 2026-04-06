@@ -2,7 +2,7 @@
 
 *“…sssix daysss left…” the voice hissed.*
 
-Those words drifted through my skull like a fog through tombstones as I dreamt about the frightful events from the night before. I was startled from my sleep by thunderclaps and heavy rain. The roof of the car drummed like an old tin snare as sheets of water swallowed the windshield.
+The words crept through my skull like a fog through tombstones. I was dreaming about the frightful events from the night before. I was startled from my sleep by thunderclaps and heavy rain. The roof of the car drummed like an old tin snare as sheets of water swallowed the windshield.
 
 The car rocked as a shadow bumped into it, blurring past my window. I bolted upright, heart racing. I clutched my chest and caught my breath as I realized it was just an intoxicated motel dweller stumbling back to his room.
 
@@ -100,13 +100,13 @@ I bounded out of the front doors and stumbled down the steps to the car. I threw
 
 *“YEAH, YEAH, I GOT IT! FEED US! NOW, WHAT THE HELL AM I SUPPOSED TO—”*
 
-*I blacked out, mid-sentence.*
-
-I woke up, lying next to the car, parked at a rocky overlook. Knox was curled up beside me. I tried to piece things together. I remembered slices of time, bits of an afternoon. A grocery store… snatching raw meat… chewing sanguine flesh… blood running down my chin… stomach cramps… crapping behind a dumpster.
+I blacked out mid-sentence and woke up sometime later, slumped next to the car, parked at a rocky overlook. Knox was curled up beside me. I tried to piece things together. I remembered slices of time, bits of an afternoon. A grocery store… snatching raw meat… chewing sanguine flesh… blood running down my chin… stomach cramps… crapping behind a dumpster.
 
 My hands trembled. Knox sniffed around as I sat on the hood of the car, gazing down at a suburban sprawl. Homes filled with families like the one I’d lost. I broke down, cupping my head, as tears spilled between my fingers.
 
-The voice crowed again from the rafters of my mind, *“…five daysss left…”*
+The voice taunted again, seeping down from the rafters of my mind.
+
+*“…five daysss left…”*
 
 “FIVE DAYS LEFT TO WHAT?!" I shouted.
 
