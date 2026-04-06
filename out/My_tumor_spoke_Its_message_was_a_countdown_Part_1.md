@@ -2,25 +2,21 @@ I thought the warning was just for me.
 
 I was dead wrong.
 
-My son, Joey, disappeared six months ago. Right after turning 21. We’d always been tight, from the time he was little. From building Lego starships to swapping comics and anime. Then, came our divorce last year. It hit him hard. At first, he was quiet. Withdrew from everyone. Then, one day, he just... vanished. Damn near destroyed my ex, Theresa.
+My son, Joey, disappeared six months ago. Right after turning 21. We’d always been close, from the time he was little. From building Lego starships to swapping comics and anime. Then, came our divorce last year. It hit him hard. At first, he was quiet. Withdrew from everyone. Then, one day, he just... vanished. Damn near destroyed my ex, Theresa.
 
 We did everything we could. Searched around town. Put up posters. Filed a missing person's report. Police said not to worry. Happens all the time. Probably off couch-surfing with friends.
 
 *He didn't have any.*
 
-I tried to be strong, but my heart felt pierced by splintered nails. The more I anguished over where he was, the more my life ripped apart.
+I tried to be strong, but my heart felt pierced by jagged nails. The more I anguished over where he was, the more my life ripped apart.
 
-Time passed in a blur. I drank to numb the pain. Blood pressure went to shit and so did everything else. Got fired. Lost my apartment. Moved into the car with Knox, my Jack Russell Terrier. Couldn’t drink any more so I switched to weed. Hustled where I could. Day labor and Door Dash to make a few ends. Showered and cut my hair at the gym. Walked Knox at the park. But, through it all, I stayed high.
+Time passed in a blur. I drank to numb the pain. Blood pressure went to shit and so did everything else. Got fired. Lost my apartment. Moved into my car with Knox, my Jack Russell Terrier. Stopped drinking. Switched to weed. Hustled where I could. Day labor and Door Dash. Showered at the gym. But, through it all, I stayed high.
 
-That is... until my stash ran out. Opened my tin to see a few green crumbs the size of a pinhead. Maybe enough to get a cockroach lit, but that's about it. Knox sniffed my fingers as I rifled through my wallet. Ten bucks. All I had to my name, but at least I could smoke.
+That is... until my stash ran out. Opened it one day to find a few green crumbs the size of a pinhead. Maybe enough to get a cockroach lit. Knox sniffed my fingers as I raided my wallet, pulling out my last twenty. My “reserve fund.” It was all I had left to my name. But, at least I could smoke.
 
 Scorpion Dave sold the best weed. The problem was, he lived way out in the middle of nowhere. ‘The Flats.’ A bone-dry wasteland. An endless sheet of dead earth. Still… if this was gonna be my last mental escape for a while, I needed it to be good.
 
-I texted him saying I needed to pick up. A simple thumbs-up emoji told me to bring my ass on.
-
-Scorpion Dave was a curious creature. He carried himself like some sort of desert shaman. A recluse who dabbled in Eastern philosophy, meditation, and the mystic arts, he lived about as far off the grid as he could. But, he had connections and he knew how to get the stickiest bud around.
-
-Knox and I headed out there around noon. It was abnormally dark. Thick storm clouds threatened overhead, choking off the daylight. It was as if the sun had stepped outside, said ‘hell naw,’ then dipped out like a runny yolk sliding off a plate.
+I texted him saying I needed to pick up. A simple thumbs-up emoji told me to bring my ass on. Knox and I headed out there around noon. It was abnormally dark. Thick storm clouds threatened overhead, choking off the daylight. It was as if the sun had stepped outside, said ‘hell naw,’ then dipped out like a runny yolk sliding off a plate.
 
 Knox leaned on the dash, peering ahead with a concerned whimper.
 
@@ -38,7 +34,7 @@ The trailer jostled, some movement inside. Its shiny, sausage-like frame rocked 
 
 I nodded and cracked a forced smile, “Yeah, you too.”
 
-He was a living puzzle… a sunburnt, sixty-something hippie decked out in pretentious enlightenment and new money flex. He rocked garb befitting a Saharan monk… a loose-fitting hemp tunic spread wide to show his dark, leathery chest. Every inch of his skin was covered in runic tattoos. Yet, he wore a smartwatch and a gaudy array of gold bracelets and rings. He had two smartphones clipped to his belt, a silver man-bun, and rhinestone beads woven into his beard.
+Scorpion Dave was a curious creature… a sunburnt, sixty-year-old hippie recluse who dabbled in Eastern philosophy, meditation, and the mystic arts. He carried himself like some sort of desert shaman, rocking garb befitting a Saharan monk. A loose-fitting hemp tunic spread wide to show his dark, leathery chest. Every inch of his skin was covered in runic tattoos. Yet, he mixed things up between pretentious enlightenment and new money flex. He wore a smartwatch and a gaudy array of gold bracelets and rings. He had two smartphones clipped to his belt, a silver man-bun, and rhinestone beads woven into his beard.
 
 He strolled over in baggy harem pants and old Timbs kicking up salt dust. A shiny talisman jangled among his neck chains, and the solar goggles, perched on his forehead, gleamed like bug eyes. He leaned down and petted Knox’s belly, “Who’s a good boy? Yeeeesss, yes you are.”
 
@@ -56,7 +52,7 @@ He stepped back and studied me like some sort of specimen, deciding which of his
 
 “Nah,” I waved.
 
-Couldn’t tell him I’d been buying cheaper elsewhere.
+Couldn’t tell him I’d been buying cheaper shit elsewhere.
 
 “Don’t take this the wrong way,” he laughed, “but you look like a sack of reheated dog crap. No offense, Knox.”
 
