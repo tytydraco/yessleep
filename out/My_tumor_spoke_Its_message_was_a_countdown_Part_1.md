@@ -16,7 +16,7 @@ That is... until my stash ran out. Opened it one day to find a few green crumbs 
 
 Scorpion Dave sold the best weed. The problem was, he lived way out in the middle of nowhere. ‘The Flats.’ A bone-dry wasteland. An endless sheet of dead earth. Still… if this was gonna be my last mental escape for a while, I needed it to be good.
 
-I texted him saying I needed to pick up. A simple thumbs-up emoji told me to bring my ass on. Knox and I headed out there around noon. It was abnormally dark. Thick storm clouds threatened overhead, choking off the daylight. It was as if the sun had stepped outside, said ‘hell naw,’ then dipped out like a runny yolk sliding off a plate.
+Knox and I headed his way around noon. It was abnormally dark. Thick storm clouds threatened overhead, choking off the daylight. It was as if the sun had stepped outside, said ‘hell naw,’ then dipped out like a runny yolk sliding off a plate.
 
 Knox leaned on the dash, peering ahead with a concerned whimper.
 
@@ -60,7 +60,7 @@ Knox barked.
 
 Scorpion Dave turned towards the camper, “Come on. We’ll smoke and talk about what’s troubling ya.”
 
-The inside of his trailer was a cyclone of unchecked bachelorhood. Dog-eared philosophy books and empty pizza boxes. Piles of dirty clothes and Amazon packages. Classic rock and titty posters tacked to the walls. A vinyl collection. And a perpetual thick cloud of haze surrounding it all.
+The inside of his trailer was a cyclone of filth. Dog-eared books, old pizza boxes, heaps of dirty clothes, classic rock and titty posters, a dusty vinyl collection, and a thick cloud of haze governing it all.
 
 I spied a stack of cash on the counter and entertained the brief daydream of snatching it. That thought disintegrated as soon as he pulled a polished 9mm from his waistband and set it next to the bills.
 
@@ -74,7 +74,7 @@ He grinned like a kid on a snow day, flicked out a switchblade, and stabbed the 
 
 “Ain’t nothing stronger, brother.”
 
-He made room on the table and set down the most intricate piece of glassware I’d ever seen. He called it ‘King Bong.’ A few minutes later, Knox was curled up in an old blanket, and we were taking huge rips from the water pipe. I never coughed so hard in my life. I felt my heart pounding through my chest, rattling in my eardrums.
+He made room on the table and set down his prized possession. ‘King Bong.’ The most intricate piece of glassware I’d ever seen. A few minutes later, Knox was curled up in an old blanket, and we were taking huge rips from the water pipe. I never coughed so hard in my life. I felt my heart pounding through my chest, rattling in my eardrums.
 
 “Whoo, I don’t know, man. This stuff is—”
 
@@ -90,25 +90,27 @@ He gestured with the stiletto as if he was referring to diagrams on a giant invi
 
 “Everything in the cosmos is interconnected.”
 
-Knox poked his head up, curious for a moment, before stretching out and closing his eyes once more. Scorpion Dave took another huge toke, exhaling thick tendrils of smoke from his nostrils as he continued. “Weed may help you open your third eye, but the question is, what are you seeing?”
+Knox poked his head up, curious for a moment, before stretching and closing his eyes once more. Scorpion Dave took another huge toke, exhaling thick tendrils of smoke from his nostrils as he continued. “Weed may help you open your third eye, but the question is, what are you seeing?”
 
-My vision started to quake. The outer boundaries of my peripheral sight warped and flexed as if my visual field had suddenly become elastic. Scorpion Dave’s voice devolved to a distant, hollow drone. It reverberated and echoed, as if I was listening to him through an old P.A. system.
+My visual field flexed, the outer boundaries of my peripheral vision warping as if elastic. Scorpion Dave’s voice devolved to a distant, hollow drone. It reverberated and echoed, as if I was listening to him through old stadium speakers.
 
 “Don’t worry, bro, weeeeee’re gonna get you right.” He laughed, “Oh yes. Weeeee’re gonna get you riiiiiight.”
 
 Over the course of the next few hours, things took a strange turn. I blacked out a few times. In the brief slices of consciousness in between, I saw things… odd things. I couldn’t tell if they were real or imagined.
 
-One time, I opened my eyes and saw Scorpion Dave hovering over me. He had some sort of deer antler headdress atop his matted hair like a crown. Bits of bone and beads dangled beneath from corded leather strands. He held sticks of lit sage, wafting smoke all over while performing some kind of strange chant.
+One time, I opened my eyes and saw Scorpion Dave hovering over me. The room was awash in red lights and he had some sort of deer antler headdress atop his matted hair like a crown. Bits of bone and beads dangled beneath from corded leather strands. He held sticks of lit sage, wafting smoke all over while performing some kind of strange ritualistic chant.
 
-Another time, I woke up and he was inches close, nose to nose, eyes staring deep into mine. He had the strangest smile, and I could see the glimmer of fresh saliva coating his teeth.
+Another time, I woke up and he was inches close, nose to nose, eyes staring deep into mine. War paint streaked his face and he had the oddest smile, the slick of fresh saliva coating his teeth.
 
 I finally came to after sunset. I didn’t bring up the fever dream shenanigans. I was too distracted by ravenous hunger. My stomach growled from neglect. Scorpion Dave didn’t have much around in the way of food. I scrounged through his cabinets, finding an old tin of beef jerky and a half bag of stale chips. Knox and I scarfed them down without second thought.
 
-My gut roared, unhappy at the rotten fuel. I stumbled into the John, dropped my jeans, and blasted the bowl. I was in the middle of pinching my nose and spraying lemon air freshener when I heard something outside. A tumbling shrill whine, like a diving slide-whistle, nearing from the distance. It sounded like an incoming missile or bomb. I stood up and peeked out of the porthole window behind the toilet. I couldn’t see much but was able to make out a faint trail of fire slicing across the twilight sky.
+My gut roared, unhappy at the rotten fuel. I stumbled into the John, dropped my jeans, and blasted the bowl. I sprayed lemon air freshener, hearing a high-pitched whistle slicing through the air outside. It sounded like an inbound missile. I peeked out of the window above the toilet and saw a faint trail of fire knifing across the sky.
 
-“What the hell is—”
+“What the hell—"
 
-The trailer rocked from a violent shockwave. I pitched face-first into the door, landing hard on the floor, drenched in brown, goopy water. I felt the bridge of my nose, checking to see if it was broken. It wasn’t.
+BOOM!
+
+The trailer rocked from a violent shockwave. I pitched face-first onto the floor, drenched in brown water. I felt the bridge of my nose, checking to see if it was broken. It wasn’t.
 
 *Lucky. If you call being coated in crap, lucky.*
 
