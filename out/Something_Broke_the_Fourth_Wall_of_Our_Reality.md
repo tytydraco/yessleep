@@ -94,7 +94,7 @@ Where she stood, it stood now.
 
 Maybe it was an insect. It was difficult to look at, like the creature was glitching, somehow digital and crackling, a composition of flesh and what appeared to be silvery floaters of the eye. Some kind of mantis, perhaps. Maybe it *was* Mel, but rearranged, all her features, her limbs, her body disassembled and then put together again as this new and terrible entity. Her pincers of light and bone clicked and snapped. The wretched mouthparts opened:
 
-"*This is not world, this world is my land*," it sung in the voice of a thousand shrieking agonized souls, only some of them human. Then, speaking softer, not to me but to *them,* to the Others:
+"*This is not your world, this world is my land*," it sung in the voice of a thousand shrieking agonized souls, only some of them human. Then, speaking softer, not to me but to *them,* to the Others:
 
 "So do you see the truth of your disembodied dreams, your glimpses of the Other, your fairytales and conspiracies--they all lead back to me? The truth too terrible to reconcile? There will be no disclosure. Won't they burn it all down before they unveil the reality?"
 
