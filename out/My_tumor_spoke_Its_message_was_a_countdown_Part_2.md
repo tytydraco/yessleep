@@ -20,7 +20,7 @@ I exhaled, rubbing my jaw, clicking it from side to side. My mouth was sore. Lip
 
 I clawed at my hair. I was so hammered and sleep deprived, I didn’t know what to think. I just knew I was cold and haunted by that reptilian hiss.
 
-My stomach gurgled, my belly assaulted by sharp stabs of pain. I hiked up my shirt to see a bloated gut, bulging beneath the bandages. Nausea swelled and I grabbed the car door, surprised to find it already cracked. Fresh rainwater drizzled inside.
+My stomach gurgled, my belly assaulted by sharp stabs of pain. I hiked up my shirt to see a bloated gut bulging beneath the bandages. Nausea swelled and I grabbed the car door, surprised to find it already cracked. Fresh rainwater drizzled inside.
 
 *Had I left in the middle of the night?*
 
@@ -106,43 +106,37 @@ I woke up, lying next to the car, parked at a rocky overlook. Knox was curled up
 
 My hands trembled. Knox sniffed around as I sat on the hood of the car, gazing down at a suburban sprawl. Homes filled with families like the one I’d lost. I broke down, cupping my head, as tears spilled between my fingers.
 
-The voice hissed from the rafters of my mind, *“…five daysss left…”*
+The voice crowed again from the rafters of my mind, *“…five daysss left…”*
 
-*“Who are you? Why are you here?!” I asked.*
+“FIVE DAYS LEFT TO WHAT?!" I shouted.
 
-*“Travelersss… here to consssume…”*
+*“Consssume…”*
 
-*“Consume what? Raw meat?”*
+The word jabbed like a blade.
 
-*“…and dessstroy.”*
+*“…and burn.”*
 
-*My blood ran cold.*
+My blood ran cold.
 
-*“Destroy?”*
+“Burn what?”
 
-*“Thisss planet.”*
+*“Everything.”*
 
-My flesh crinkled as it spoke the words with the frigid indifference of fact.
+My flesh crinkled as it spoke the words with the frigid indifference of fact. I tried to make light of the sheer lunacy of it all.
 
-*“In five days? How?”*
+“Man, you’re just a hungry-ass space pimple. There’s no way you can possibly—”
 
-*“Burn. It. All.”*
+*“Four terrorsss firssst...”*
 
-I laughed at the sheer lunacy of it all.
+My nervous laughter died as it laid out four omens to come… promises of its power… each dotted with a slithering drawl.
 
-*“Man, you’re just a hungry-ass space pimple. There’s no way you can possibly—”*
+*“…sssentry…*
 
-*“You will witnesss four terrorsss firssst.”*
+*…masksss…*
 
-My laughter died as it laid out four omens to come… promises of its power… each dotted with a slithering drawl.
+*…ssshadowsss…*
 
-*“The sssentry…*
-
-*…the masksss…*
-
-*…the ssshadowsss…*
-
-*…and you ssshall sssee the light.*
+*…sssee the light."*
 
 Twenty minutes later, I was sprinting out of a Mega-Mart, arms full of stolen gin, gauze, X-Acto knives, and peroxide. A heavyset security guard gave chase but couldn’t keep up. He hunched over, shaking a fist, as I sped off in the car.
 
@@ -192,6 +186,6 @@ He studied my bewilderment, then shook his head.
 
 I shivered, naked, in the motel room. My chest heaved. I stared at my rib cage, horrified. There, rising and falling, sat the unbothered mound of charred alien flesh. There wasn’t so much as a scratch. Its bond to my body had strengthened with thick fleshy roots.
 
-And it was growing. Pulsing. Hissing a defiant new warning.
+And it was growing. Pulsing. Hissing its defiant warning.
 
 *“…five daysss left...”*
