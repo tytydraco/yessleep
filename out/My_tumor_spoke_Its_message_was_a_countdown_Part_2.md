@@ -110,19 +110,15 @@ The voice crowed again from the rafters of my mind, *“…five daysss left…�
 
 “FIVE DAYS LEFT TO WHAT?!" I shouted.
 
-*“Consssume…”*
+*“Consssume… and burn.”*
 
-The word jabbed like a blade.
-
-*“…and burn.”*
-
-My blood ran cold.
+The words jabbed like a blade. My blood ran cold.
 
 “Burn what?”
 
 *“Everything.”*
 
-My flesh crinkled as it spoke the words with the frigid indifference of fact. I tried to make light of the sheer lunacy of it all.
+My flesh crinkled. It spoke the words with the frigid indifference of fact. I tried to make light of the sheer lunacy of it all.
 
 “Man, you’re just a hungry-ass space pimple. There’s no way you can possibly—”
 
