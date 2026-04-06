@@ -6,7 +6,7 @@ I was out on patrol with my partner, a witch from the 1800s named Geraldine. We 
 
 The third face—which they used to convey fear or distress—fixed me with its singular red eye.
 
-\*”Officer Anderson,”\* they croaked in the strange, otherworldly manner as all Elders do, \*”we have sensed something troubling.”\*
+*“Officer Anderson,*”they croaked in the strange, otherworldly manner as all Elders do, *“we have sensed something troubling.”*
 
 That caught my attention. Rûng was known in Greywater for being as calm as can be, arming themselves with reassuring words and kind smiles (well, what passed for smiles.) If something was bothering Rûng, then it was serious business.
 

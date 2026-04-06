@@ -1,14 +1,10 @@
-My son disappeared six months ago. Right after his 22nd birthday. He wasn’t doing well with our divorce. Started hanging with the wrong crowd and skipping work, before totally vanishing.
+My son disappeared six months ago. Right after his 21st birthday. We were always tight. Building Lego starships. Swapping comics and anime. Then, our divorce hit him hard and he just vanished. Damn near destroyed my ex, Theresa.
 
-We used to be close. Building Lego starships. Swapping comics and anime. I thought our bond was unbreakable. But, then he ghosted everyone. Ignored calls. Unread texts. An abandoned apartment. Neither I nor my ex had any idea where he was, who he was with, or what he was doing.
+I did everything I could. Searched around town. Put up posters with his picture. Filed a missing person's report. Police said don’t worry. Happens all the time. He'd be back. I tried to be strong, but it felt like my heart was caught on jagged nails. The more I wondered where my son was, the more my flesh tore apart.
 
-*Was he safe? Was he hurt? Was he… alive?*
+Time passed in a blur. I drank to numb the pain. Blood pressure went to hell and so did everything else. Got fired. Lost my apartment. Moved into the car with Knox, my Jack Russell Terrier. Couldn’t drink any more so I switched to weed. Hustled where I could… day labor and Door Dash to make a few ends. Showered and cut my hair at the gym. Walked Knox at the park. But, through it all, I stayed high.
 
-It damn near destroyed Theresa. Just like our marriage, she blamed me for everything. I did everything I could. Searched around town. Posted signs with his picture. Filed a missing person's report with the cops. I tried to be strong, but inside, my heart was caught on jagged nails. The more I wondered where my son was, the more my flesh tore apart.
-
-Time passed in a blur. I drank to numb the pain. Blood pressure went to hell and so did everything else. Got fired. Lost my apartment. Moved into the car with Knox, my Jack Russell Terrier. Couldn’t drink any more so I switched to weed. Hustled where I could… day labor and Door Dash to make a few ends. Showered and cut my hair at the gym. Walked Knox at the park. But, I always stayed high. There was no pleasure in it. It was an empty, perpetual state of zombie-hood. Wondering how I’d ended up divorced and with a son who didn’t want anything to do with me.
-
-I opened my stash box and discovered I was dry. A few green crumbs the size of a pinhead. Maybe enough to get a cockroach lit, but that’s about it. Knox licked my fingers as I rifled through my wallet. Ten bucks. All I had to my name, but at least I could smoke.
+That is, until my stash ran out. Opened my Altoids tin to see a few green crumbs the size of a pinhead. Maybe enough to get a cockroach lit. Knox sniffed my fingers as I rifled through my wallet. Ten bucks. All I had to my name, but at least I could smoke.
 
 Scorpion Dave sold the best weed. The problem was, he lived way out in the middle of nowhere. ‘The Flats.’ A bone-dry wasteland. An endless sheet of dead earth. Still… if this was gonna be my last mental escape for a while, I needed it to be good.
 
@@ -184,7 +180,7 @@ I ran in circles, ripping off the remnants of the smoking shirt, patting my hand
 
 “STOP, DROP, AND ROLL, MOTHERFUCKER!!!” Scorpion Dave gestured with the gun.
 
-I hit the deck, rolling my bare skin across the ground. The white-hot pain of salt in the wound short-circuited my nervous system. The last thing I remember was staring up at the starlit sky, and Scorpion Dave leaning over me in a blurry swirl. His words stretched out in slow-motion slurs.
+I hit the deck, rolling my bare skin across the ground. The searing pain of salt in the wound short-circuited my nervous system. The last thing I remember was staring up at the starlit sky, and Scorpion Dave leaning over me in a blurry swirl. His words stretched out in slow-motion slurs.
 
 “Are youuuuuu okkkkkayyyyyy???” he said. “Dooooo youuuuuu seeeeeee Godddd?”
 
@@ -354,11 +350,11 @@ He pressed it with the tip of his gloved finger. The lesion squirmed, swelling a
 
 He was a science man after all. Everything had a logical explanation.
 
-“Abscesses don’t breathe but they can jiggle with fluid. We’ll aspirate. No need to worry.”
+“Abscesses don’t breathe but they can jiggle with fluid. No need to worry. We’ll aspirate.”
 
 He swiveled to my left and picked over a tray of gleaming medical instruments, none of them friendly.
 
-“Ah, there we go,” he smiled, raising an empty syringe with a three-inch-long needle. He flicked its barrel, “That oughta do the trick!”
+“Ah. Here we go,” he smiled, raising an empty syringe with a two-inch-long needle. He flicked the barrel, “This oughta do the trick.”
 
 “Trick! What trick?!”
 
