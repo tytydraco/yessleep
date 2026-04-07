@@ -144,7 +144,7 @@ I didn't look up as I stuttered a reply.
 
 "Good, good." He mumbled, still leering over me. The soothing sound of the fryer did little to ease the suffocating tension at that point.
 
-"Put your hand in the oil." He calmly spoke. I froze and snapped my head towards him, unsure if he was serious. Too late did I remember Larson's warning of not looking him in the eyes. That split second fuck up will haunt me forever, and then and there and I committed myself fully.
+"Put your hand in the oil." He calmly spoke. I froze and snapped my head towards him, unsure if he was serious. Too late did I remember Larson's warning of not looking him in the eyes. That split second fuck up will haunt me forever, and then and there I committed myself fully.
 
 I quickly plunged my right hand into the bubbling grease.
 
