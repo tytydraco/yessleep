@@ -84,14 +84,6 @@ Colour breathes bright there. Even from here. Even through glass.
 
 I set the binoculars down. Turn back to the journal.
 
-I take the binoculars to the window.
-
-Point them at the Emirates.
-
-Colour breathes bright there. Even from here. Even through glass.
-
-I set the binoculars down. Turn back to the journal.
-
 Then one evening I go for a walk near the Emirates.
 
 Days before any match — but the bonding is already felt. Something in the streets around it, in the people moving through Holloway Road, in the permanence of the stadium against the grey London sky.

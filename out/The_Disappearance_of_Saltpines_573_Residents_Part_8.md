@@ -462,6 +462,4 @@ My mouth parts, a silent scream that dies, and chokes there, as I slowly, helple
 
 My eyes slowly graze up the stairs, fear coursing through me, as I find them landing at the very top where a familiar face stares back at me.
 
-It smiles too.
-
 \-Dr. Laura Cotts
