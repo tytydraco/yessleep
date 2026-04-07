@@ -1,0 +1,57 @@
+When this first happened I was eight years old and still young enough that I had to be walked home from school, despite only living about five minutes away. I hadn’t been raised to be that independent. My mother always said I would have time to learn how to live by myself when I was older. I guess she was right about that. I was waiting for her to pick me up from school and for some reason she wasn’t already waiting when I got out of class. No matter—she wasn’t always good with timing and sometimes she came late. I waited. Fifteen minutes went by, and usually she’d be there by now. The other kids left with their parents or were walked off to after-school care. I waited. 
+
+It was late autumn, around the time of year where that smell permeated the air. You know, crushed figs and leaf litter. Damp pavement. I remember the smell pretty vividly, because I was standing there breathing it in for at least thirty minutes before my teacher came up to me. It had started to rain and my jumper was getting soaked through. Everything smelled cold and wet. I was thinking about the warm bath my mother was going to run for me when I got home, and the idea of it was keeping me sane enough to stay upright. 
+
+Anyway, my teacher. She was a nice lady, young-ish, kind of nervy if I remember correctly. She always had brightly dyed hair. She told me she had called my mother, who hadn’t responded. Was there anyone else she could call, OP?
+
+“No,” I said. It was just me and my mother. 
+
+“Can you go home with any of your friends?”
+
+I didn’t have friends. I was kind of fat, not enough to be bullied but enough to be ostracised. There’s nothing teachers can do about that, either. They can’t make kids be friends. So I was mostly alone. That was fine—I had my mother. She was my best friend. “No,” I said. I think my teacher must have known I didn’t have friends, because she didn’t push it. “I can walk home,” I said. I knew the way.
+
+“Oh, goodness, no,” said my teacher. “It’s raining. Why don’t I drive you? You know your address, right?”
+
+Technically this was illegal, being driven by a teacher and all, but she was nice enough and being a child I had no suspicions about her character. I mean, I knew about stranger danger, but this was my teacher. Surely she wasn’t a stranger. This is the kind of naive idiot I was at eight years old. I had never experienced hardship before and being young had no way to conceptualize it. 
+
+The rain started really pouring down as we pulled up to my address. The lights were on inside so she let me out without asking if I knew where the key was or anything. I ran out of the car and towards my front door and she waved me goodbye before pulling out of the driveway and driving away. Leaving me alone. 
+
+My front door didn’t have an awning or anything so I was just standing there in the rain as I rang the doorbell and waited. It was getting dark even though it was only about four. Daylight savings had ended, you know? It was nearly winter and the combination of rain and wind was making me shiver. The doorbell rang out. Nobody came to the door. I rang again. I was so cold I could feel pins and needles in my fingers and toes. Nobody came to the door. By now I figured my mother was probably asleep or in the bath or something and couldn’t hear the doorbell. That would explain why she hadn’t picked me up. Yes, I decided I would have to make my own way inside. I ran around the house to the back door, which had a screen door that was always locked and a main door that was always unlocked. The thing about the screen door, though, was that you could jimmy it just right that it slid open without a key. I’d seen my mother do it before when we were locked out of the house. 
+
+It took me a couple of tries but I managed to open it and finally I was inside the house. “Mama?” I called. No answer, but she hadn’t heard the doorbell so I expected that. I toed off my wet shoes and shed my wet jumper right onto the carpet. Probably I would get in trouble for this but I didn’t care. My mother would see how upset I was and forgive me. And I would forgive her for not picking me up. 
+
+The house was pretty flimsy and the sound of rain battering it seemed to shake the walls. We weren’t poor, exactly, but you know. A single mother’s salary can only take you so far. When my father left two years prior we moved from a much nicer house to this place and I still remembered—and much preferred—the old house. I found this one a bit creepy. The light never made it to the corners of the rooms. Everything was always a bit dark, especially when there was no natural light, like during storms. If you’ve ever been to a working-class house in suburban Australia you’ll know what I mean. 
+
+I headed upstairs to check for my mother and get her to run me a bath. Only, she wasn’t upstairs. I checked everywhere and she wasn’t there. She wasn’t home. Sometimes she left the lights on when she left the house, to confuse burglars. Like Home Alone, she explained to me. That movie had scared me when I watched it, and now I was afraid that I was truly home alone, and that people might try and break into the house and hurt me. I rushed back downstairs to lock the back door and tried to calm myself down. How likely was a home invasion? Probably not very. And I knew where the landline was—I could call the police. And my mother would be home soon. She would have to be. She was probably just late because of the rain. There was traffic, or something. 
+
+I got changed into my pajamas and did my primary school homework—times tables—and by the time I was done it was five PM and my mother still wasn’t home. I called her from the landline and there was no response. I left a message that it was me, and I was at home, and I was waiting for her. Outside the house it grew darker and darker, and it seemed that inside the house it grew emptier and emptier. I felt alone and terrified in a way only children can be. 
+
+I didn’t know how to make dinner for myself so I went to bed without it. I stayed awake in my room listening to the sounds of the rain battering the house and straining to try and hear the front door. After hours I did. It creaked open and something hit the wall with a thud. Like it had fallen in through the door. Of course my overactive imagination thought it was just as likely to be a home invader as it was my mother, and I lay petrified in my bed imagining that they would come up and attack me. I heard heavy footsteps, staggered, making their way around the house. This was 2016, around the peak of creepypasta, so I already knew about Jeff the Killer and whatnot who could be coming to kill me. I was so afraid I actually started crying.
+
+I have this distinct memory of lying in bed, terrified to tears, listening to the sound of those staggered footsteps trudging through the house. I remember thinking if I closed my eyes it would go away. But I could still hear it.
+
+By that point I was convinced it wasn’t my mother, because if it was she would have called out to me, and besides I would have recognised her footsteps. She walked very quickly and evenly, not like these big thumping footsteps downstairs. No matter that it was almost midnight and she would have assumed I was asleep. No matter that there seemed to be no sounds of anything being damaged or taken, like there would if it was a robbery. No. It couldn’t be my mother, because my mother wouldn’t scare me like this. 
+
+The footsteps began to ascend the stairs. I pulled the blanket up around my head, so if the serial killer—as I was now certain it was—came into my room, he wouldn’t see me. I bit down on my hand to stop myself from making a noise. 
+
+The doorway to my room was right at the end of the hall. My mother’s was by the landing. If it was a robber, or a serial killer, or really any kind of home invader, they would surely check my mother’s room first. But I didn’t hear her door open. No. I heard the footsteps stagger towards me. 
+
+The door opened. 
+
+I heard a woman’s breathing—my mother’s breathing! Ragged and heavy, but unmistakably my mother’s. I gasped in relief and pulled the blankets from my head. “Mama?” I called. 
+
+She didn’t respond. She was leaning against the doorframe, silhouetted by the light—I had left all the lights on downstairs, “like Home Alone”. I couldn’t see her properly through the darkness. Her silhouette, hair flat from the rain, her poor posture. All I could really see were her eyes. They were almost glowing, like a cat’s. Her pupils were so big that they swallowed the irises. She was staring at me through the dark.
+
+“Mama?” I said again. “Are you okay?”
+
+“Baby,” she said. Her voice was soft like she was out of breath. It was hard to hear over the sound of pounding rain, but it sounded strange. She heaved herself off the doorframe and stumbled towards me. I was suddenly, instinctually afraid. If you’ve ever been in a life or death situation you’ll know the feeling. A deep guttural unease. Like a premonition. 
+
+She sat down on my bed and reached a hand out towards me. It was cold and wet still with rainwater. She stroked my hair. My eyes adjusted to the dark and I could see her face. There was something off about it. Not noticeable, not really, unless you knew her as well as I did. It was only a couple of things. Her eyes, the big pupils, for one. And her jaw was bulging slightly, like she was holding something in her mouth. But it was enough. She didn’t look like my mother. 
+
+I didn’t know what to do. I was trembling slightly, and I was certain she—whoever she was—could tell. “Baby,” she said. “My baby.” I could finally tell what sounded off about her voice. It was like a recording of a sound. It was my mother’s voice, but it was being replayed. That same clip, over and over again: “My baby.” Cut and rewound. 
+
+I couldn’t speak. I couldn’t move. I was petrified. This night was so many years ago and I can still see it in my mind, clear as day, every detail of it. She sat there on the end of my bed stroking my face for a long time. I shut my eyes and tried to pretend that I had fallen asleep. I don’t know if she believed me or not. But eventually she stood again, unsteadily, and left. She shut the door behind her. Some time later I fell asleep proper, wishing for my mother, my real mother, to come and comfort me. 
+
+The next day my mother was downstairs with breakfast waiting for me. I didn’t ask her about that night. For one thing I wasn’t sure if it was really her. She looked like my mother, certainly. She acted like my mother. Her voice was back to normal. I brushed it off as a stroke of my imagination, only a few months later it happened again. She came into my room and stroked at my hair and in the exact same voice said the exact same line. “Baby. My baby.” She stayed there for an hour that time. Her hand was sticky with something and when I woke up my hair was matted with some dark, thick liquid that had dried in clumps. Maybe it was blood, maybe it wasn’t. I don’t know. All I know is for the past ten years, every couple of months or so she comes home different. Or maybe she’s different all the time and it's only those nights that I notice. Always saying the same thing in that tape-recorder voice. Always her eyes big and black like a cat's. 
+
+I’m eighteen now and about to move out of home for uni. She doesn’t want me to. She keeps saying I need to stay. Be with her. I’m her baby.

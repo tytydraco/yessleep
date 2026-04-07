@@ -12,13 +12,13 @@ And for the first few weeks, it was great. Actually, it was almost too great. Th
 
 Now, bear in mind, we lived with Trevor for like a month and a half. For the most part it really was sweet - life chugging along as it always had, just with a new buddy in the mix. These are just a few little instances that stick out to me in hindsight.
 
-Like, one time, I was talking about almost failing one of my modules, and Trevor absent-mindedly said while he was cracking eggs into a pan, “So what you’re saying is, the only thing you wrote was the title of the project?” setting Kevin up for the perfect, “Yeah, and he spelled it wrong!” I think the only reason that I remember that is because it was the first time it actually occurred to me how often that kinda thing happened.                                                                                                  
+Like, one time, I was talking about almost failing one of my modules, and Trevor absent-mindedly said while he was cracking eggs into a pan, “So what you’re saying is, the only thing you wrote was the title of the project?” setting Kevin up for the perfect, “Yeah, and he spelled it wrong!” I think the only reason that I remember that is because it was the first time it actually occurred to me how often that kinda thing happened.
 
 Another time, we were out on the porch passing a joint back and forth. Kevin was rambling about something funny that happened at some legendary party last semester. Suddenly, Trevor said, perfectly in sync with Kevin’s cadence, “…and then the sink was full of nails.”
 
 Kevin stopped. “What? It was full of… uh… beer.”
 
-Trevor blinked. “Uh, yeah. Beer, that’s what I said.” 
+Trevor blinked. “Uh, yeah. Beer, that’s what I said.”
 
 But he didn’t, I’m sure of it. It hung in the air for a split second, before we shrugged it off and forgot about it as some random awkward misunderstanding. But it still felt wrong.
 
@@ -34,7 +34,7 @@ The next evening, we were all stoned on the balcony, chatting aimlessly and gazi
 
 “Yeah. The woods get deep there, y’know, you shouldn’t go in. It’s easy to get turned around. The trees all look the same after a while.
 
-Things like this continued to pile over time. Once, we were all watching the football and me and Kevin got reminiscing about the time we did shrooms and thought we were getting chased by the police. It’s one of those moments where you’re already laughing hard, and everyone keeps adding extra jokes and you just keep laughing even harder. Trevor caught his breath at to say, “Oh man, and Andy, when you tried to climb that tree…” 
+Things like this continued to pile over time. Once, we were all watching the football and me and Kevin got reminiscing about the time we did shrooms and thought we were getting chased by the police. It’s one of those moments where you’re already laughing hard, and everyone keeps adding extra jokes and you just keep laughing even harder. Trevor caught his breath at to say, “Oh man, and Andy, when you tried to climb that tree…”
 
 I froze. I did do that, but it was just me and Kevin. Nobody else was around. When I asked how he knew that, Trevor looked blank for a second, then shrugged. “I dunno. Guess Kev must’ve mentioned it somewhere down the line.”
 
@@ -180,7 +180,7 @@ Kevin looked white when he hung up. And he told me he remembered it. He couldn�
 
 “That guy walked away then, and he turned a corner in the maze. Willy ran after him, and I never saw either of them again. I tried telling my parents, but I think they just took it as my way of growing out of that, like, phase, I guess.”
 
-Things were getting weirder and weirder, I know, but Trevor had still been gone since my first update. And life moves on, especially for us. There was a frat party we’d already been planning on going to before all of this weirdness, and we needed a win. A normal, fun night. So, towards the end of the party, Kevin had happened to get chatting with this girl, Lily. She’d been at the party the whole time. And she was cool, funny. I was happy for Kevin and I was also happy since she seemed like she’d fit in well with the usual crowd of friends me and Kevin hang out with. She went back to our place with Kevin while I stayed at the party because someone said something about codeine. Just kidding. I left with another girl called Jessica Hayes after the music died down and we hooked up at her house a few streets over from the U-Block.
+Things were getting weirder and weirder, I know, but Trevor had still been gone this whole time. And life moves on, especially for us. There was a frat party we’d already been planning on going to before all of this weirdness, and we needed a win. A normal, fun night. So, towards the end of the party, Kevin had happened to get chatting with this girl, Lily. She’d been at the party the whole time. And she was cool, funny. I was happy for Kevin and I was also happy since she seemed like she’d fit in well with the usual crowd of friends me and Kevin hang out with. She went back to our place with Kevin while I stayed at the party because someone said something about codeine. Just kidding. I left with another girl called Jessica Hayes after the music died down and we hooked up at her house a few streets over from the U-Block.
 
 The next morning, I’d just gotten home and I’m heading into the kitchen for breakfast and something to drink. Lily’s there making coffee. While I’m setting about pouring milk into my cereal instead, she looks up from her phone and smiles. “You must be Andy! I remember seeing you last night, Kev’s told me SO much about you.”
 
