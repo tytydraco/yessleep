@@ -185,3 +185,5 @@ I shivered, naked, in the motel room. My chest heaved. I stared at my rib cage, 
 And it was growing. Pulsing. Hissing its defiant warning.
 
 *“…five daysss left...”*
+
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1set96c/my_tumor_spoke_its_message_was_a_countdown_part_3/)
