@@ -1,6 +1,6 @@
 It sticks with you, that smell. The sickly sweetness of burnt flesh in the thick summer air.
 
-Last July, I was hired to clear-cut a patch of swampland in a nearby town. Nothing too unusual. It’s what I do. God, how I wish now that the company contracting my team had been a little more forthcoming in their job description. They must have known about her. How could they not?
+Late July, 2011. I was hired to clear-cut a patch of swampland in a nearby town. Nothing too unusual. It’s what I do. God, how I wish now that the company contracting my team had been a little more forthcoming in their job description. They must have known about her. How could they not?
 
 Once our work was done, the land would be bulldozed and paved over for a new suburban shopping center. And so the cycle of industry rumbles on.
 
@@ -124,7 +124,7 @@ Snapping back to my senses, I lunged towards the place where Dan had disappeared
 
 On the third try, my hand came free. My palm did not. I heard and felt the unmistakable ripping of my own flesh as the top layer of skin liberated itself from the pads of my fingers.
 
-Bleeding but too high on adrenaline to care, I booked it to the spot where I had seen Dan being swept into the trees.
+Bleeding but too adrenaline-filled to bother, I booked it to the spot where I had seen Dan being swept into the trees.
 
 Steeling myself, I gripped the flashlight in my good hand and angled it up into the canopy.
 
@@ -288,7 +288,7 @@ The last thing I saw as the flames licked away my bindings were eight massive bl
 
 Finally free, I hurled myself away from the spreading heat, crashing into the trees below. I managed to grab hold of a supple branch on the way down, somewhat breaking my fall, but landed hard on my ankle. I heard something pop.
 
-Too full of adrenaline to care, I bolted into the darkness, my uniform still smoldering, slipping on wet leaves as shocks of pain coursed through my leg. I sprinted until my lungs ached for air, tasting nothing but smoke and blood in the back of my raw throat.
+Too charged with adrenaline to care, I bolted into the darkness, my uniform still smoldering, slipping on wet leaves as shocks of pain coursed through my leg. I sprinted until my lungs ached for air, tasting nothing but smoke and blood in the back of my raw throat.
 
 At some point in that sleepless night I must have found the main path again, because I remember making it back to my truck as dawn was breaking through the trees. Dan's truck was parked at an angle few yards away, empty and sprinkled with fallen oak leaves.
 
