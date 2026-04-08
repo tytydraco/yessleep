@@ -585,3 +585,5 @@ And I think it's still waiting for someone to find the way out.
 I hope someone does.
 
 I hope it isn't me.
+
+[[Part 4]](https://www.reddit.com/r/nosleep/comments/1sfkw5w/i_went_back_to_the_caves_this_is_what_i_found_at/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button)

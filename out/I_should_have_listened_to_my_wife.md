@@ -24,7 +24,7 @@ They dressed in clothes that matched the island theme. A revealing white dress o
 
 Their words didn’t ring any alarm bells in my head, but I could feel how tense Sophie was. “I don’t like the way he said that.” She muttered quietly enough for only me to hear. She gave my hand a soft squeeze. I gave her a reassuring look. "It's just a scare tactic." I muttered quietly. Seems it was working on her.
 
-They made us sign a couple of documents to prove our agreements. I signed my name away skimming over the words. Nothing shot out to me, it all seemed up to order. Your usual nonsense. I glanced at Amy speeding her along. “Cmon Amy. We came all this way.” I muttered. She glanced at me slightly annoyed. “Nothing wrong with being careful.” She retorted. The rich couple snickered. She signed with a reluctant huff.
+They made us sign a couple of documents to prove our agreements. I signed my name away skimming over the words. Nothing shot out to me, it all seemed up to order. Your usual nonsense. I glanced at Sophie speeding her along. “Cmon Sophie. We came all this way.” I muttered. She glanced at me slightly annoyed. “Nothing wrong with being careful.” She retorted. The rich couple snickered. She signed with a reluctant huff.
 
 We should enjoy the riches while we’re here.
 
@@ -73,8 +73,6 @@ As week 2 ended, it came time to meet up with Sophie. Her gaze lingered on the w
 “What about him? Are you getting close to him?” Her gaze stiffened as a frown filled her face. My jaw tightened. “No! No! Nothing!" Her voice was loud. Something had shifted. And I wasn’t sure it was her.
 
 The guard called the time abruptly. Sophie visibly relaxed, taking a sigh of relief. My expression hardened as I got up and left.
-
-.
 
 The third week, my mind was focused on Sophie. Did she no longer trust me? The luxury that once had enticed me became boring and dull. The staff continued to watch me with their fake smiles. Was anyone here real?
 
