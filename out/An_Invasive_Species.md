@@ -280,7 +280,7 @@ The entire web was going up in flames. I looked desperately for the source of th
 
 Dan lay a few paces away from me, his limbs bound in web. He looked badly beaten and delirious, but when I noticed him, he gave a smile. In one barely-exposed hand, he gripped his trusty cigarette lighter.
 
-The thick ropes of web carried the flame up and across like tinder. The woman-spider thrashed and howled, a sound which pierced my heart in a way I do not understand. As that glistening arachnoid body crackled and swelled in the heat, her jaws flashed open once more.
+The thick ropes of web carried the flame up and across like tinder. The woman-spider thrashed and howled, a sound which pierced my heart in some incomprehensible way. As that glistening arachnoid body crackled and swelled in the heat, her jaws flashed open once more.
 
 "Get the hell out of here!" Dan shouted over the roar of the flames. As he did, those massive mandibles snapped shut for the final time. Dan fell silent.
 
