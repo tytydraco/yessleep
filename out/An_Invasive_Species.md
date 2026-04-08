@@ -76,51 +76,51 @@ The two of us had only been walking down the trail for a few minutes, Dan taking
 
 “You good?” I asked, and Dan just nodded, looking around for what had caused him to lose his balance.
 
-What appeared to be a thick white cord had been stretched across the path like a tripwire. It looked sturdy, like climbing rope. As I cast my flashlight beam over it, the surface of the rope almost seemed to glow, wet and sparkling in the dirt. Dan shook his boot, trying to untangle himself from the length of cord which had ensnared him. I wondered vaguely what kind of game hunters would be trying to trap during this season, and with such an elaborate system. The only species that came to mind were deer, wild boars, or the occasional bobcats. I pitched the question to Dan to pass the time.
+What appeared to be a thick white cord had been stretched across the path like a tripwire. It looked sturdy, like climbing rope. As I cast my flashlight beam over it, the surface of the rope almost seemed to glow, wet and sparkling in the dirt. Dan shook his boot, trying to untangle himself from the length of cord which had ensnared him. I wondered vaguely what kind of game hunters would be trying to trap during this season, and with such an elaborate system. The only species that came to mind were deer, wild boars, or the occasional bobcat. I pitched the question to Dan to pass the time.
 
-“Hell if I know,” he said, brushing dead leaves from his vest. “Irresponsible is what they are, setting a tripwire across a footpath like that.” I agreed, and we fell into steady silence once more, pushing onwards through the dense tunnel of undergrowth.
+“Hell if I know,” he said as he brushed dead leaves from his vest. “Irresponsible is what they are, setting a tripwire across a footpath like that.” I agreed, and we fell into steady silence once more, pushing onwards through the dense tunnel of undergrowth.
 
-It was pitch black now. We walked beneath the moonless sky, wandering between the silver trunks of cypress trees and live oaks. The path looked so different at night. Surely it hadn’t been this long of a trek to the site. How had we managed to get all the equipment to the site so quickly? This entire operation had been a blur. For a month or so before, money had been tight and fresh jobs had been few and far in between. Naturally, when the phone call came in asking us to tear down a few old trees, I’d jumped at the offer.
+It was pitch black now. We walked beneath the moonless sky, wandering between the massive trunks of cypress trees and live oaks. The path looked so different at night. Surely it hadn’t been this long of a trek to the work site. How had we managed to transport all of the equipment so quickly? This entire operation had been a blur. For a month or so before, money had been tight and fresh jobs had been few and far in between. Naturally, when the phone call came in asking us to tear down a few old trees, I’d jumped at the offer.
 
 Were we lost?
 
-Dan, still ahead of me, had lit a cigarette, taking long drags as he walked. I could see the lit end of it bobbing up ahead like a tiny red torch. The thick smoke wafted back to me.
+Dan, still ahead of me, had lit a cigarette, taking long drags as he walked. I could see the glowing end of it bobbing up ahead like a tiny red torch. The secondhand smoke wafted back to me.
 
-I cleared my throat. “Dan,” I called out. “Y’think we might’ve taken a wrong turn?”
+I cleared my throat. “Dan,” I said, “y’think we might’ve taken a wrong turn?”
 
-Dan froze in place, his back still turned to me. The cigarette dropped, fizzling out on the damp leaves below.
+He froze in place, his back still turned to me. The cigarette dropped, fizzling out on the damp leaf litter below.
 
 I nearly bumped into him. “Dan?”
 
-My coworker remained silent, staring into the darkness at the path before us. In the darkness, something screamed. I jumped.
+My coworker remained silent, staring into the darkness at the path before us. Up ahead, something screamed. I jumped.
 
-The noise was inhuman, a garbled, wet braying like whatever had emitted the sound had something sharp lodged in its throat.
+The noise was inhuman, a garbled, wet braying like whatever was emitting the sound had something sharp lodged in its throat.
 
-Dan nudged my shoulder and angled his flashlight towards whatever had been lurking just beyond the beam, urging me to look as well. Against my better judgement, I did.
+Dan angled his flashlight towards whatever was lurking just beyond the beam. He nudged my shoulder, urging me to look as well. Against my better judgement, I did.
 
 Allowing my gaze to follow the trajectory of the beam, my eyes fell upon the body of an animal.
 
 A white-tailed deer.
 
-The poor thing’s body hung suspended at least five or six feet in the air, its long legs scrambling for purchase on the ground which lay just out of reach. Somehow, it hadn’t yet suffocated. I grabbed my pocket knife and ran to help free the suffering animal.
+The poor thing’s body hung suspended at least five or six feet in the air, its long legs scrambling for purchase on the ground which lay just out of reach. Somehow, it hadn’t yet suffocated. I grabbed my pocket knife and went to free the suffering animal.
 
-Dan grabbed my arm. “Are you insane, Jerry?” I looked him in the eye. His jaw was set, a thick sweat beading on his furrowed brow. There was no mistaking it. For perhaps the first time in our long-running career together, Dan was scared.
+Dan grabbed my arm. “Are you insane, Jerry?” I looked him in the eye. His jaw was set, a thick sweat beading on his furrowed brow. There was no mistaking it. For perhaps the first time in our long-running career together, Dan looked afraid.
 
 The deer bellowed again, writhing and spinning in space.
 
-“Whoever set this trap is the crazy one,” I whispered back, ripping my arm free from his grasp. “Darn thing is suffering.” Despite the way my neck prickled with unease, I ran right up to the twitching animal, trying to avoid stumbling on roots and snake holes. It bucked again as I approached, but I stretched a hand up above its neck, grabbing the top of the rope to steady it.
+“Whoever set this trap is the crazy one,” I whispered back, ripping my arm free from his grasp. “Darn thing is suffering.” Despite the way my neck prickled with unease, I ran right up to the twitching animal, trying to avoid stumbling on roots and snake holes. It bucked again as I approached, but I stretched a hand up above its neck, grabbing the top of the rope to hold it steady.
 
-I could feel its hot breath blowing against my face in puffs as I began to hack away at the rope with my knife. The wide blank eyes of the deer were fixed upon me as I worked.
+I could feel the doe's hot breath blowing against my face in puffs as I began to hack away at the rope with my knife. Wide, blank eyes fixed upon me pleadingly as I worked.
 
 After a minute or so of sawing at the cording, I’d barely made a dent. Again and again, I tried to score the rope, but it held tight. As I opened my mouth to report this to Dan, I heard him give a sort of alarmed yelp.
 
 I peered past the struggling animal I was desperately trying to save, angling my flashlight in Dan’s direction just in time to see him slip onto his side as if pulled by unseen hands. I heard the crunch of his body as it hit a clump of roots. He lay there unceremoniously for a moment, groaning in pain. Then, like a ragdoll, my coworker was dragged upwards by the legs. All at once, his body was torn from the ground and scooped into the darkened trees. There was no impact sound as he left the beam of my light. Just an empty, terrible silence. I stood there watching, unmoving. Speechless.
 
-The deer, becoming agitated again, began to twist and scream once more, letting that horrible, stuttering cry echo through the pitch black swamp.
+The doe, becoming agitated again, began to twist once more, letting that horrible, stuttering scream echo through the pitch black swamp.
 
-Snapping back to my senses, I lunged towards the place where Dan had disappeared, only for an excruciating, stinging sensation to jolt through my palm where I had gripped the rope to steady my blade. Each time I pulled, the sting roared to a searing pain. My hand was stuck to the rope.
+Snapping back to my senses, I lunged towards the place where Dan had disappeared, only for an excruciating, stinging sensation to jolt through my palm where I had gripped the rope to steady my blade. Each time I pulled, the stinging roared to a searing pain. My hand was stuck to the rope.
 
-“What the hell?” I muttered under my breath, panic flaring. The deer continued its wretched bleating as I tried again to wrench my hand loose from that strange silken rope.
+“What the hell?” I muttered under my breath, panic flaring. The doe continued its wretched bleating as I tried again to wrench my hand loose from that strange silken rope.
 
 On the third try, my hand came free. My palm did not. I heard and felt the unmistakable ripping of my own flesh as the top layer of skin liberated itself from the pads of my fingers.
 
@@ -132,11 +132,11 @@ The bright white of the beam illuminated Dan’s pale, sweat-drenched face inche
 
 I shouted aloud, nearly dropping the light.
 
-His eyes were closed. He was still hanging, serenely swinging in place just as the deer had. The shock of his ascent seemed to have knocked him unconscious. Examining his limp body, I caught sight of that same luminous, glittering rope ensnaring his left leg in thick coils. Whatever happened, I wasn’t touching that stuff again. Instead, I grabbed both of Dan’s arms and pulled.
+His eyes were closed. He was still hanging, serenely swinging in place just as the deer had been. The shock of his ascent seemed to have knocked him unconscious. Examining his limp body, I caught sight of that same luminous, glittering rope ensnaring his left leg in thick coils. Whatever happened, I wasn’t touching that stuff again. Instead, I grabbed both of Dan’s arms and pulled.
 
 The rope had some give, or else whatever it was attached to bowed slightly as I tried in vain to yank my friend free.
 
-“Come on, son-of-a…” I pulled with my entire body weight, only letting up when I heard something in Dan’s shoulder pop. Sore, bruised and bloody, I paused in my work, staring up at the black, endless canopy. I felt something like guilt. For Dan’s shoulder, probably. Or else, for bringing us into these godforsaken woods to begin with. I didn’t know. I just wanted to go home.
+“Come on, son-of-a…” I pulled with my entire body weight, only letting up when I heard something in Dan’s shoulder pop. Sore, bruised and bloody, I paused in my work to stare up at the endless canopy. I felt something like guilt. For Dan’s shoulder, probably. Or else, for bringing us into these cursed woods to begin with. I didn’t know. I just wanted to go home.
 
 Something dripped from Dan’s peaceful face onto mine. Sweat, I thought at first. It was strangely sweet, cloyingly so. Like the scent of some strange fruit or flower. Dan’s arms were sticky, too. As I went to adjust my grip, my hands began to sting again. No. Not him too.
 
@@ -146,7 +146,7 @@ I couldn’t leave him here. I couldn’t leave this swamp on my own. But we cou
 
 As I considered my options, a low creaking began, like the sound of branches bending in the wind. I froze, listening.
 
-Next came a rhythmic click, click, click. It was almost robotic and metallic in nature. Absolutely foreign.
+Next came a rhythmic click, click, click. It was almost metallic in nature. Absolutely foreign.
 
 It was coming from above us.
 
@@ -214,9 +214,11 @@ My team.
 
 I keep retracing the steps of my life, everything that led me to that night. At the time, I didn't feel as though I'd had many other options. I told my first wife once that I burned every relationship I touched. She said nothing. Didn't disagree. Divorced twice, thoroughly convinced I was never deserving of a happy ending, I did what I could to make ends meet. Took up a clearcutting gig, spent more time understanding heavy machinery than people, and that was that.
 
-In this moment, my final thought was this: if this is the end, management will replace me tomorrow. If I make it through, at least I'll get a cold beer.
+In this final moment, several thoughts occupied my mind: If this is the end, management will replace me tomorrow. If I make it through, at least I'll get a cold beer. But who will I be when this is all over?
 
-The woman-spider was approaching, headfirst, her placid face gentle and welcoming, but hungry around its jagged edges. I struggled against the web. An icy-hot pain shot through my muscles as I did, numbing and immobilizing every limb.
+The woman-spider was approaching, headfirst, her placid face gentle and welcoming but hungry around its jagged edges. I struggled against the web. An icy-hot pain shot through my muscles as I did, numbing and immobilizing every limb.
+
+Did I ever live as I wanted?
 
 She got closer.
 
@@ -246,13 +248,15 @@ It did speak. Not with its voice, but through the web. The vibrations filled my 
 
 *I thought this place could be home, but you are taking it too.*
 
+My head was throbbing. Every ounce of my being was inundated emotion that was not my own.
+
 *I miss my trees.*
 
 *I miss my children.*
 
 *Where are they?*
 
-At this, an overwhelming sorrow filled my ribcage. I nearly wept. I do not know why. What did I have to be sorry for, especially to this monster?
+An overwhelming sorrow filled my ribcage. I nearly wept. I did not know why. What did I have to be sorry for, especially to this monster?
 
 The beautiful rotten clay face began to split open along a seam to reveal sharp mouthparts dripping with strings of drool.
 
@@ -260,7 +264,7 @@ The beautiful rotten clay face began to split open along a seam to reveal sharp 
 
 *You lie.*
 
-I could smell the curdled blood of my former friends on her lips. The scent hit the back of my throat in waves, making me gag. Tears welled up in the corners of my eyes. The air was humid and rank. My vision swam.
+I could smell the curdled blood of my former colleagues on her lips. The scent hit the back of my throat in waves, making me gag. Tears welled up in the corners of my eyes. The air was humid and rank. My vision swam.
 
 "I’m sorry," I whispered, "I am so, so sorry. It shouldn't have to be this way."
 
@@ -268,9 +272,9 @@ I realized I meant it.
 
 Eight glossy black eyes readjusted. I could feel the ancient weight of their gaze upon me.
 
-Suddenly, I smelled smoke and burning flesh. The creature shrieked and hissed, jerking away from me.
+Suddenly, I smelled smoke and burning flesh.
 
-Her abdomen was on fire.
+The creature shrieked and hissed, jerking away from me. Her abdomen was on fire.
 
 The entire web was going up in flames. I looked desperately for the source of the blaze and found it.
 
