@@ -1,0 +1,15 @@
+I went blind in November. It was sudden and traumatic. Being plunged into an abyss is certainly no enjoyable experience. The hardest part was never knowing where anything was. Living alone didn't help with that, but I learned to develop systems. I'd place my coffee in the same spot each morning. I hold the remote until I finished listening to the TV. I even, with my dear sister’s help, labelled my clothes hangers with raised letter stickers so I knew how to dress. Things still went missing sometimes, but it helped.
+
+The first time I noticed it, I had gone out with my sister to a small local café. The sun felt hot on my face, and I held onto my half-drunk iced latte; the cold condensation ran over my hand. My fingers cringed from the chill. Unable to set it down for fear of losing it, I endured. Coffee was by far my favourite beverage—the bitter-sweet taste, smooth silky texture. I ordered it every time we visited this café. I brought the drink to my lips. I smelled it first. It had a sour odour.
+
+I recoiled, pushing the drink far from my face, gagging at the fumes. My sister teased, "I thought you liked coffee."
+
+I had thought somebody had tried to spike me. Maybe a bad reaction or it curdled the drink?
+
+The second time was at home. I sat in my recliner and switched off my TV. I carefully placed the remote back onto my fold-out table, pushing my sister's hat aside so I could position the remote in the exact spot. I pushed myself onto my feet and tiptoed towards the kitchen. I kept my steps shallow, arms outstretched, searching for a wall or the doorway. Suddenly, my foot hit something large and hard. I flailed desperately to steady myself. Unable to do so, I hit the floor. The smack of my backside hitting the hard wood stung. Gathering myself, I searched for the object. On hands and knees, I scanned every inch of my living room. The object had gone.
+
+The worst time was when I was showering. I already struggled as objects become slippery and easily topple over. I grabbed shampoo, rubbing it between my hands and hummed my beautiful melody bounce off the bathroom walls. Then a clang stopped me in my tracks. The object, appearing out of nowhere, skidded towards me. Its sharp edge sliced into my big toe. Carefully, I grabbed it. A kitchen knife had spun into reality. Luckily, my sister came to my rescue and took the knife.
+
+It kept happening — things were gone or had suddenly appeared. They were slightly wrong or entirely changed.
+
+After a few weeks, I had lost what remained of my trust in my environment. In the absence of safety, I tried to regain control. I researched what I could — twisted through rabbit holes of forums and wikis. It took weeks to find an answer. But I found it. The only possible explanation: the observer effect. You see, in the 1920s, they discovered that particles react differently when being observed than they do unseen. Our senses hold reality. Without sight, my world is glitching.
