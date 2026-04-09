@@ -392,4 +392,4 @@ That was the last thing Mindy ever got to say before a black, feathered figure s
 
 With a trembling hand, Kait stopped the recording, unable to bear the horrified screams any longer of the girl she supposedly once knew.
 
- 
+ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1sgfpbr/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
