@@ -107,3 +107,5 @@ He kicked me down into the dirt. Sour rain began to fall, burning my bloodshot e
 Then he turned and walked back to his car, leaving me in the dust.
 
 I crawled back into the driver’s seat, smearing blood behind me. The mirror showed a broken body, but a man who missed Sherry. I had grown used to seeing her smile behind me. That was what I wanted to miss. I think I just missed the bond.
+
+[Next](https://www.reddit.com/r/nosleep/comments/1sgrrq1/im_a_contract_cargoescort_driver_i_delivered/)
