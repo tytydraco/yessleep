@@ -123,3 +123,5 @@ And from that void, came an unearthly shriek. Loud and terrifying. It flung me a
 I stared up from my back, eyes scrambling for focus, my hands grasping around. I could hear the sentry’s footsteps as it neared. I could hear Knox barking. And I could hear the growth cackling...
 
 *“…four daysss left...”*
+
+[\[Part 4\]](https://www.reddit.com/r/nosleep/comments/1shmyzp/my_tumor_spoke_its_message_was_a_countdown_part_4/)
