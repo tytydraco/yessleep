@@ -238,4 +238,6 @@ Said he must have ran out while he was high. Got lost in the forest.
 
 But, doc, you believe me, don’t you?
 
-\-Dr. Laura Cotts 
+\-Dr. Laura Cotts
+
+[Part 10](https://www.reddit.com/r/nosleep/comments/1shxrks/the_disappearance_of_saltpines_573_residents_part/)

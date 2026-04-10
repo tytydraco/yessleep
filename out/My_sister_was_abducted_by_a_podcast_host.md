@@ -18,15 +18,11 @@ I had a rough idea of where I was going, she’d told me her flight details, exc
 
  
 
-According to Google, yeah, that’s a thing. It’s a pretty well-known phenomenon, which is kind of a scary thought. And just like me, I’m sure you also immediately switch to imagining the nefarious things that could be achieved with this concept. And Sarah was dead sure that she had found an example. 
+According to Google, yeah, that’s a thing. It’s a pretty well-known phenomenon, which is kind of a scary thought. And just like me, I’m sure you also immediately switch to imagining the nefarious things that could be achieved with this concept. And Sarah was dead sure that she had found an example. It’s complicated, and I can’t pretend that I understood the half of it, but I got the gist. She had found a source, that was trying to manufacture human compliance. To foster both ignorance and conformity for means that even she was yet to discover. So 8 months prior she booked a plane ticket, and left the state on the same route that I soon found myself retreading. 
 
  
 
-It’s complicated, and I can’t pretend that I understood the half of it, but I got the gist. She had found a source, that was trying to manufacture human compliance. To foster both ignorance and conformity for means that even she was yet to discover. So 8 months prior she booked a plane ticket, and left the state on the same route that I soon found myself retreading. 
-
- 
-
-Just reading about it made my head swim, turning page over page of her notes only to feel more and more at unease. To read about what she claimed was a podcast, whose only existence was to twist its audience. That both aurally and visually its only purpose was a subliminal one. That, what is meant to sound like conversation, is a carefully crafted script designed to warp the mind. That its visuals might be edited down to the individual pixel, frame by frame just to control one’s thoughts and emotions. Sarah had found it fascinating, I found it fearful. 
+Just reading about it made my head swim, turning page over page of her notes only to feel more and more unease. To read about what she claimed was a podcast, whose only existence was to twist its audience. That both aurally and visually, its only purpose was a subliminal one. That, what is meant to sound like conversation, is a carefully crafted script designed to warp the mind. That its visuals might be edited down to the individual pixel, frame by frame just to control one’s thoughts and emotions. Sarah had found it fascinating, I found it fearful. 
 
  
 
@@ -38,11 +34,15 @@ I’d always hated flying, and by the time the plane touched back to earth, I wa
 
  
 
-The owner was awaiting my arrival, and much like the building, his welcome was particularly warm. A nice dude. Tall, lanky, bald, and overly extroverted. He seemed approachable enough, and given there wasn’t much other lodging in the area, I took the liberty of asking him if another girl by the name of Williams had passed by the place. He seemed to stop for a second and an unreadable look flashed across his face before he quickly plastered over it with mock thought. “Not that I remember” he told me, but I knew was lying when he opened the door to my room and I saw her suitcase sitting in the corner of the room. He didn’t make a move to remove it. He knew I’d seen it. 
+The owner was awaiting my arrival, and much like the building, his welcome was particularly warm. A nice dude. Tall, lanky, bald, and overly extroverted. He seemed approachable enough, and given there wasn’t much other lodging in the area, I took the liberty of asking him if another girl by our name of had passed by the place. He seemed to stop for a second and an unreadable look flashed across his face before he quickly plastered over it with mock thought. “Not that I remember” he told me, but I knew was lying when he opened the door to my room and I saw her suitcase sitting in the corner of the room. He didn’t make a move to remove it. He knew I’d seen it. 
 
 “Oh that girl!” A quick switch up, putting on his most convincing facsimile of laughter he could muster, “She was here months ago. Packed up her bags and went up to see Mr Skins. Forgot to take her suitcase though.” He laughed again, “I guess you can hold onto it for her.” 
 
+ 
+
 “Where’d you say she went?” I reached for the door before he had a chance to shut it and escape.
+
+ 
 
 “The house on the hill.” He pointed past my shoulder to a window on the opposite side of the room, perfectly framing a lone house at the top of a hill. 
 
@@ -52,11 +52,11 @@ Mr Skins house on the hill. Sounds perfectly inviting, doesn’t it. Doesn’t s
 
  
 
-Colder still, was the house itself. I could feel the crisp morning air searching its way across the cheap jacket I had bought that morning, looking for a likely point of weakness to reach my skin. A sign stood proud in front of the house, still standing despite decades of decay. The paint had long since cracked and crumbled from the wrinkled wood, and many of the letters now were nothing more than ghosts of themselves. Only a few letters remained, now spelling “M sk ns”. I’m sure Sarah was well versed on the history, lineage and owner of the house, but I was no Sarah and I knew I never would be. Frankly I couldn’t care less who lay beyond, unless my sister was with them, and neither name nor lineage, I believed would be pertinent. 
+Colder still, was the house itself. I could feel the crisp morning air searching its way across the cheap jacket I had bought that morning, looking for a likely point of weakness to reach my skin. A sign stood proud in front of the house, still standing despite decades of decay. The paint had long since cracked and crumbled from the wrinkled wood, and many of the letters now were nothing more than ghosts of themselves. Only a few letters remained, now spelling “M sk ns”. I’m sure Sarah was well-versed on the history, lineage and owner of the house, but I was no Sarah and I knew I never would be. Frankly, I couldn’t care less who lay beyond, unless my sister was with them, and neither name nor lineage, I believed would be pertinent. 
 
  
 
-I stood shivering, and watching my breath cloud before my eyes as I impatiently waited for an answer to the doorbell. I could hear movement inside, though the door had no window with which to see inside, and I was left to guess what kind of person was creating the heavy footsteps that approached from behind it. I needn’t have waited long, as the old and long withered doorway soon creaked open to reveal what lay beyond. 
+I stood shivering and watching my breath cloud before my eyes as I impatiently waited for an answer to the doorbell. I could hear movement inside, though the door had no window with which to see inside, and I was left to guess what kind of person was creating the heavy footsteps that approached from behind it. I needn’t have waited long, as the old and long withered doorway soon creaked open to reveal what lay beyond. 
 
  
 
@@ -88,7 +88,7 @@ Bob seemed like a normal enough guy, though his seeming fondness for jazz was on
 
  
 
-*“*Sarah? Sarah Williams? Reporter girl, right? I remember her. She came by to ask me a few questions.” He started, leaning forward in his chair a little, “She had a few questions about my work. Just asking me… well, I mean, how much do you know?”
+*“*Sarah? Reporter girl, right? I remember her. She came by to ask me a few questions.” He started, leaning forward in his chair a little, “She had a few questions about my work. Just asking me… well, I mean, how much do you know?”
 
  
 
@@ -100,7 +100,7 @@ Bob’s face turned pensive as he looked around the room in thought before his a
 
  
 
-“No, I- It’s fine, it’s nice,” I said, going to take another sip to support my words, only to find my arm suddenly turning numb.
+“No, I- it’s fine, it’s nice,” I said, going to take another sip to support my words, only to find my arm suddenly turning numb.
 
  
 
@@ -162,7 +162,7 @@ The house above was near pitch darkness, and after checking my pockets to find m
 
  
 
-The whole house was a nonsensical tangle of angular halls and rooms jutting off at angles in ways that made sense neither logical nor seemingly in a Euclidean sense. With every door I opened, my questions only became more convoluted, as each door revealed rows of shrunken and skeletal tangles of limbs much like my sister, though many of them were skinnier. Some of them were missing eyes or limbs. Many of them appeared jagged and broken, as the force of their compressed skin sucked to their skeletons had overwhelmed the feeble, malnourished bones, that had given out under the pressure and cracked and broken. Their arms, legs, and ribs now zigzagged shards protruding from their leathery and dried-out skin. Some of them had even lost their faces that had long since shattered and caved inwards. And a few of them had split open from their oversized stomachs, which had torn open like an overfull bin liner, spilling printed fabrics of varying colours across the grimy floor. 
+The whole house was a nonsensical tangle of angular halls and rooms jutting off at angles in ways that made no logical sense. With every door I opened, my questions only became more convoluted, as each door revealed rows of shrunken and skeletal tangles of limbs much like my sister, though many of them were skinnier. Some of them were missing eyes or limbs. Many of them appeared jagged and broken, as the force of their compressed skin sucked to their skeletons had overwhelmed the feeble, malnourished bones, that had given out under the pressure and cracked and broken. Their arms, legs, and ribs now zigzagged shards protruding from their leathery and dried-out skin. Some of them had even lost their faces that had long since shattered and caved inwards. And a few of them had split open from their oversized stomachs, which had torn open like an overfull bin liner, spilling printed fabrics of varying colours across the grimy floor. 
 
  
 
