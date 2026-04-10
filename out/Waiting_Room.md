@@ -1,149 +1,530 @@
-The secretary’s phone rang as I sat down on a rocky metal chair. The lady at the front desk answered the call and put on her best try-to-sound-helpful voice. After realizing it was yet another spam call, she slammed the receiver back down onto its stand. Under her breath, she cursed quietly and then went back to typing on her computer. 
+Daniel woke to a flickering light and the smell of something damp and rotting.
 
-I sat in shock thinking about my current medical state. I tried to close my eyes in order to distract myself from the pain, but the endless hum of the fluorescent lights above took up most of my attention for me. Instead, I put my efforts into focusing on the other noises that were in the waiting room. Whispered conversations from across the foyer filled the majority of my head space. The rest of my psyche was stuffed with the quiet pitter-patter of footsteps from every direction. As I waited for my turn to be cared for, there was a growing feeling of dread that sat in the back of my mind. I could feel the presence of another person near enough to me that their cold and heavy breaths cut through the rhythmic buzz of the overhead lights.
+The ceiling above him sagged, stained in spreading shadows. Paint peeled like skin. A heart monitor sat beside him, unplugged, its black screen reflecting nothing. For a moment, he lay still, waiting for panic to come.
 
-I opened my eyes and glanced up at the man who sat across from me. He was a large muscular shape who wore muddy boots, torn jeans, and a brown utility coat. His black gloves tucked deep into his sleeves and wandered up his burly arms. An oversized black hood covered the top half of the man’s face, leaving only a clean shaven pair of pastel colored lips to be seen under the constantly thrumming bulbs. The figure leaned forward with his head down, concealing even more of his ghostly white face. His troubled breathing left a slight hint of frost in the air of the bitterly cold vestibule. 
+It didn’t.
 
-“What happened?” I heard the man’s jacket crinkle as he pointed at the makeshift sling that I crafted from torn cloth. The stranger then gestured upwards to the dried blood caked onto the right side of my face. 
+“…yeah,” he muttered, sitting up. “This looks about right.”
 
-His unwelcome and emotionless voice caught me by surprise. I scratched off a few flakes of dried blood away from my swollen eye. “Car accident. I was struck by a bus while crossing—”
+His head throbbed faintly. The last thing he remembered was standing at his front door, telling his family it would be okay. He remembered the weight of the handle in his hand. The quiet behind him.
 
-“What did it feel like?” The man interrupted me.
+Then—nothing.
 
-“I’m sorry?” I responded to the strange question. “What do you mean?”
+Now this.
 
-“The crash.” He leaned back in his chair, revealing the lower half of a scar that curved its way over his cheek and out of sight beneath his hood. “How did it feel?”
+He swung his legs off the rusted bed and stood.
 
-I pondered the question for a minute. Once again, the phone near the secretary rang and I was startled by the loud noise. 
+“Hello?” he called. “This some kind of joke?”
 
-“Well?” The man persisted.
+Silence answered him.
 
-“I… I don’t really know.” I licked the crusted skin off of my upper lip. “I mean, it hurt a lot. If that’s what you’re asking?”
+Then—
 
-“That is not what I’m asking,” His voice scratched, “I think you know good and well what I mean.” There was a hint of anger hidden under his otherwise stoic tone. 
+“Daniel.”
 
-I thought back to the crash that happened only a few hours ago. I tried to remember what had happened. Fragments of the memory came back to me. *Bus… street… me… waiting room.* That was all that I could piece together in my current state of disarray. As far as I knew, there was nothing in between those couple of words.
+The voice was smooth. Too smooth.
 
-“Let’s start from the beginning.” The gloved hands cracked their knuckles. “What was your most traumatic experience?”
+He turned.
 
-My eyebrows raised at the rather bold question. “I’m sorry, who are you?” I ignored his inquiry. When his left hand balled into a fist and his lips tightened, I backtracked and timidly muttered, “You never told me your name,” afraid of what his initial response was going to be.
+A man stood in the doorway, sharply dressed in black, untouched by the decay around him. His posture was perfect, his face calm in a way that felt rehearsed. There was something wrong with the stillness in his eyes.
 
-The man lifted his fist and used it to reach over his mouth and rub the scar across his cheek. “Folks call me Virgil,” the man mumbled through his hand, “Now, what was it?”
+Daniel let out a short breath. “Alright. Finally. You gonna tell me what this is?”
 
-“Right, ok.” I stalled to buy myself a bit of time to think back on the painful memory. “It happened back when I was around five or so.” I took a deep breath and composed myself. “It was late at night, with just me and my father home. I remember I was watching a game show on the television when my father got up to take shower.”
+“You’ll understand soon enough,” the man said.
 
-“What color shirt were you wearing?”
+“Yeah?” Daniel crossed his arms. “Because I’ve got places to be.”
 
-I was caught off guard by the question, but I answered with false confidence. “Green.” I smiled slightly, although it hurt to do so. “It had a T-Rex on it, too. Why do you ask?”
+The man smiled faintly.
 
-“You’ll understand soon enough, but please continue.”
+“No,” he said. “You don’t.”
 
-“Alright. Where was I?”
+A pause.
 
-“Father goes to shower.”
+“Everything you need is ahead.”
 
-“Thanks.”
+Daniel shook his head. “And you are?”
 
-Virgil nodded. 
+The man stepped closer. Too close.
 
-“I sat there listening to the show and laughing at some of the funny answers that the contestants gave to the questions the host asked. About ten minutes into the show, I heard a loud smash come from the bathroom.”
+“Someone who already knows.”
 
-“Your Father, what was the last thing he said to you before going in the shower?”
+Daniel scoffed. “Yeah. Love that for you.”
 
-“He said, ‘I’m jumping in the shower. Don’t miss me too much, kiddo.’ Then he messed up my hair.”
+He blinked.
 
-“How did you respond?”
+The man was gone.
 
-“I said, ‘Don’t jump,’ and he gave me a fake laugh.”
+Daniel stood there for a moment, then shrugged.
 
-“Loud smash from the bathroom. What happened next?”
+“Great,” he muttered. “Haunted hospital. Love this for me.”
 
-“I went to the door and thankfully it was unlocked. I heard the shower running when I walked inside. I pulled back the curtain and saw my naked father laying on the ground, bleeding from his temple.” I rubbed the side of my own head. “The water continued running over him.”
+He stepped into the hallway.
 
-“And you did nothing.”
+ 
 
-My tired face looked up at him, filled with regret. “Yes.” I nodded. 
+It stretched farther than it should have.
 
-Virgil said nothing.
+Doors hung open at uneven angles. Shadows pooled where they didn’t belong. The air felt heavier the further he walked, like the building itself was closing in around him.
 
-I followed up. “I was just too scared to see him like that.” I used my sleeve to wipe away a tear growing in my eye before it had a chance to fall. “Because of me, he died in that bathtub.”
+“Dream,” Daniel muttered. “Has to be.”
 
-“Tragic.” Virgil affirmed in his monotone voice. “Yet, you remember every specific detail about that memory. Why do you think that is?”
+He pushed open the first door.
 
-“It’s when my father died. It was important to me.”
+Inside, chairs were arranged into a pyramid. Words were scratched into the floor beneath them:
 
-“Because he was your father or because there was a death?”
+**FAMILY. FAITH.**  
+Above them: **MONEY. STATUS. CONTROL.**
 
-I took a second to weigh the options. “I don’t know. Probably both.”
+Daniel smirked.
 
-A doctor burst into the waiting room with a group of nurses close behind. They ran out the front door and met with three EMTs escorting a man on a stretcher with a metal rod protruding from his shoulder. The nurses grabbed the stretcher and wheeled him past both of us, into the emergency room. 
+“Yeah… no.”
 
-Virgil, unaffected by this, asked me another question. “Have you ever heard of an idea called the Halo Effect?”
+He stepped forward and shifted the chairs.
 
-I stroked my chin for a second. “No. I don’t think so. What is it?”
+“Money goes up top. Obviously,” he said. “Family’s important, sure—but let’s not pretend that pays bills.”
 
-“Two men are suspected of a crime. Man one: clean cut, businessman, wife and kids. Man two: bearded, bus driver, covered in tattoos. Who did it?”
+Something moved behind him.
 
-“Probably the bus driver?”
+He turned.
 
-“Explain.”
+Four figures stood there.
 
-“Well, why would a wealthy good looking guy hurt someone? There doesn’t seem to be a point.”
+His wife. His daughter. His son. A baby cradled in his wife’s arms.
 
-“I never said it was a violent crime. However, you automatically assume that it was and even pin it on the second man. Many believe this is because society places the rich and good looking on a pedestal. The Halo Effect.”
+Their faces were wrong—pale, hollow, unfinished.
 
-From behind me, I heard the secretary get up from her desk and I watched her as she swiftly passed by and into the emergency room.
+“We waited,” his wife said.
 
-“That makes sense. We envy the desirable and demonize those who seem off putting.”
+“You said you loved us,” the boy added.
 
-“Precisely.” He jostled back his hood and, just for a moment, I caught a glimpse of his stark white eyes. I pretended not to notice, but the expression on my face must have given it away. Virgil stopped mid-motion. “You saw them, didn’t you?”
+Daniel took a step back. “Okay—nope. Not doing the guilt thing.”
 
-“What? No,” I replied without thinking.
+They rushed him.
 
-The man took back his hood and showed me the milky orbs that sat in his scarred sockets. “Then now you have.” He looked down and saw my hand nervously rubbing against my thigh. “Scared, are you? You can stare at them. It doesn’t bother me in the slightest.”
+Hands slammed into his chest, his shoulders, his throat. They drove him back into the wall.
 
-“What happened to you?”
+“You chose everything else.”
 
-“Long story,” Virgil quickly answered, “Not important.”
+“You never asked what we needed.”
 
-“Is that why you're here?”
+“I waited for you, poppa.”
 
-“No.” He adjusted himself in the chair. “I’m not here for myself. I’m waiting for a man that I know. Critical condition.” 
+“I learned without you.”
 
-“Jeez, what happened?”
+Their voices overlapped, pressing in on him from every side.
 
-“On his way home from work, he was stabbed forty seven times. Guts spilled out on the road, a gruesome sight. When they found him, he was barely recognizable as a human being. Right now, they’re operating and trying to save his life, however, I believe that there is no use for this one. Even if they do save him, what’s the point of being alive if you’re not able to live? That is why I’m here. The guy has nobody left. No parents, no siblings. Wife and kids all left him. Just lives alone in his multi million dollar mansion.”
+“Fine!” Daniel shouted. “I’m sorry! I worked! I was trying to give us something better!”
 
-“Wow. That’s awful. How could someone do something like that?”
+They didn’t stop.
 
-“The guy made a whole lot of enemies in his life. It’s not hard to imagine if you watched him do bad things to people as many times as I have.”
+They got closer.
 
-“Ouch.” I winced in pain as I chipped off a large piece of blood from my cheek and it started to bleed once again. 
+Louder.
 
-“So, after all of this. How did it feel?”
+Until something inside him gave way.
 
-“What?”
+“…yeah,” he said, quieter.
 
-“The rush of causing someone to lose their life.” Virgil placed his hood back over his face. “A bus driver tries to swerve out of the way of a young man and rams into a building. The bus clips the boy but he is still able to walk to the hospital.”
+His head dropped.
 
-“What?” I look around for anyone else to hear what I am hearing. “How do you know that?” 
+“I should’ve been there.”
 
-“A businessman is walking home after missing the last bus. Someone watches him from the shadows and takes this as an opportunity to strike. The man is scraped up and carried off to that same hospital.”
+The room stilled.
 
-“Who the hell are you?!” I shouted at the man, expecting the secretary to butt in. I turned around and remembered that she is no longer there.
+“Not later. Not eventually.”
 
-“A bus driver wakes up in a hospital with a steel rod in his shoulder, while a businessman comes to with his estranged wife at his bedside.” Virgil shifted his weight forward and hid the remainder of his face under his hood. “Now where do you and I fit into this equation?! Who is the businessman and who is the bus driver, kid? Which one of us will wear the halo while the other stays and rots?!” 
+He swallowed.
 
-Just then a door opened from the emergency room. A doctor stepped out of the corridor and began to walk over to the two of us. He bent down next to Virgil and put a hand on the man’s shoulder. “Mr. Smith, I’m sorry to say it, but your friend… he is… no longer with us.”
+“Then.”
 
-Virgil jutted forward, visibly showing his reaction to the news. “Thank you doctor… I’m sure that you did everything that you could.” The man put his head in his gloved hands and let out an unsteady sigh.
+The silence stretched—and then they were gone.
 
-The doctor solemnly nodded and then turned his attention to me. “I apologize for the wait, sir, but it’s been a pretty rough night as you may have already heard.” The doctor got down real close next to me and whispered in my ear. ”That maniac struck again tonight.” I looked at him with a bewildered look plastered on my face. He got even closer this time. “You know, that psycho the police are calling the Vigil.” 
+Daniel slid down the wall, breathing hard.
 
-The man I misunderstood as Virgil started to audibly cry after the doctor told me this. He took the reaction as a sign to leave. 
+“…therapy ghosts,” he muttered.
 
-“We’ll talk inside.” The doctor patted my good arm and walked back through the heavy metal doors.
+“Interesting correction.”
 
-Once the doors to the emergency room slammed  shut, the man they called the Vigil shot back up and stared at me through his oversized hood. He stood up and pulled his gloves tightly over his hands. He made sure that his cowl covered his milky white eyes and the crescent scar that rested upon his cheek. He kicked the dried mud off of his boots and lifted up the bottom of his work jacket to reveal a large knife tucked into the waistband of his pants. 
+He looked up.
 
-Before turning around to walk away, the man leaned over me and with an icy breath he said, “I’ll see you soon… killer.”
+The man stood behind him again.
+
+“You wanna explain what that was?”
+
+“Did they attack you?” the man asked.
+
+Daniel frowned.
+
+“Or did they ask you to listen?”
+
+Daniel exhaled sharply. “Yeah. Great. Life lesson.”
+
+The man smiled faintly.
+
+“You’re closer than you think.”
+
+Then he disappeared.
+
+ 
+
+The next room was different.
+
+Cleaner. Organized.
+
+A desk stood in the center, papers neatly stacked. A phone sat perfectly still.
+
+A chair turned.
+
+“Marty?” Daniel said.
+
+Marty sat upright, hands folded, expression calm.
+
+“Good evening, Mr. Daniel.”
+
+Daniel frowned. “What is this?”
+
+“I kept everything running for you,” Marty said. “Your calls. Your meetings. Your excuses.”
+
+Daniel waved it off. “Yeah. That’s what I paid you for.”
+
+A pause.
+
+“You didn’t pay me back for that day.”
+
+Daniel sighed. “What day?”
+
+Marty stood.
+
+“My mother’s funeral.”
+
+Silence filled the room.
+
+“I asked for one day,” Marty continued. “I told you in advance.”
+
+Daniel shifted. “I had things going on—”
+
+“You told me,” Marty interrupted calmly, “‘I need you. We’ll talk about your promotion soon.’”
+
+Daniel rubbed his face. “Yeah, and I was going to—”
+
+“You scheduled three meetings.”
+
+A beat.
+
+“I sat in all of them.”
+
+Daniel didn’t respond.
+
+“While they lowered her into the ground.”
+
+The lights flickered.
+
+“I needed you,” Daniel said quietly.
+
+“You needed me,” Marty replied.
+
+“So I stayed.”
+
+Silence stretched between them.
+
+“I thought it meant something.”
+
+Daniel tried to laugh it off. “That’s how work is—”
+
+“You never promoted me.”
+
+Daniel froze.
+
+“I was going to—”
+
+“You forgot.”
+
+The word landed heavy.
+
+“I didn’t forget, I just—”
+
+“You moved on.”
+
+A pause.
+
+“I didn’t.”
+
+Marty stepped closer.
+
+“Do you know what it’s like to miss the last time you’ll ever see someone… for something no one remembers?”
+
+Daniel’s voice faltered.
+
+“…you could’ve said no.”
+
+Marty tilted his head.
+
+“Could I?”
+
+Silence.
+
+“You made it cost me everything if I didn’t.”
+
+The phone rang.
+
+Once. Twice. Again. Louder each time.
+
+“You made me believe it mattered.”
+
+The ringing filled the room.
+
+“More than what I lost.”
+
+“I didn’t force you!” Daniel snapped.
+
+“No,” Marty said quietly.
+
+“You just made it impossible not to choose you.”
+
+The ringing stopped.
+
+“You didn’t just take my time.”
+
+A pause.
+
+“You made me betray myself.”
+
+Daniel’s expression broke.
+
+“…Marty…”
+
+For the first time, he had nothing to defend.
+
+“I’m sorry.”
+
+Marty studied him.
+
+“You weren’t then.”
+
+A beat.
+
+“You’re only sorry now because you’re here.”
+
+Daniel didn’t argue.
+
+“…yeah.”
+
+Marty exhaled.
+
+“I waited for you to say that.”
+
+“You never did.”
+
+He began to fade.
+
+“Everything you needed was always more important.”
+
+A final pause.
+
+“Until it wasn’t.”
+
+He disappeared.
+
+Daniel stood alone.
+
+“…I remember,” he whispered.
+
+ 
+
+“…too late.”
+
+Daniel turned.
+
+The man stood at the end of the hallway.
+
+“Then just say it,” Daniel said. “Whatever this is.”
+
+“If I tell you,” the man replied, “it won’t mean anything.”
+
+A pause.
+
+“You have to arrive there.”
+
+Daniel shook his head. “I messed up. Small things.”
+
+The man smiled.
+
+“You’ve always thought in small terms.”
+
+He stepped closer.
+
+“Small things don’t stay small.”
+
+“They build. Quietly.”
+
+“Like an infection.”
+
+A pause.
+
+“To you, it’s a missed call.”
+
+“To someone else… it’s everything.”
+
+He leaned in.
+
+“To you, a boot is small.”
+
+“To an ant… it’s the end of everything.”
+
+Daniel looked down.
+
+“Missed calls. Missed time. Missed funerals.”
+
+“Do you really think that’s all this is?”
+
+Daniel clenched his jaw. “What are you saying?”
+
+“You’ve been very good at justifying things.”
+
+Mocking his voice:
+
+“‘I had to.’  
+‘I was busy.’  
+‘I’ll fix it later.’”
+
+The man leaned close.
+
+“What were you doing… before this?”
+
+Daniel froze.
+
+“My house… my family…”
+
+The man shook his head.
+
+“No.”
+
+“That’s what you wanted to remember.”
+
+Daniel turned sharply. “Then what?”
+
+The man smiled wider.
+
+“You were in control.”
+
+ 
+
+The final room was dark.
+
+Something moved in the center.
+
+A creature.
+
+Three heads.
+
+Each one familiar.
+
+Daniel didn’t even flinch.
+
+“…of course,” he said.
+
+It attacked.
+
+He was pinned instantly, breath knocked from his chest.
+
+“I’m sorry,” he gasped. “I didn’t mean to—whoever you are—”
+
+The creature stopped.
+
+“Whoever we are?” the voices echoed.
+
+“Justice,” the man said.
+
+Daniel looked at him.
+
+“What is it?”
+
+“What do you remember?” the man asked.
+
+“My house… my family… a light—”
+
+“Not a light.”
+
+Images flashed.
+
+A road.
+
+Headlights.
+
+Swerving.
+
+“You weren’t home,” the man said. “You were driving.”
+
+Daniel’s eyes widened.
+
+“No…”
+
+“Drinking. Speeding. Confident.”
+
+Impact.
+
+Glass.
+
+Screaming.
+
+“You told them it would be okay.”
+
+The creature shifted.
+
+Now clear.
+
+A family.
+
+Broken.
+
+“You killed them.”
+
+Daniel shook his head.
+
+“No—I—”
+
+“Your family was there too.”
+
+Another flash.
+
+A hospital.
+
+Daniel on a table.
+
+Another room.
+
+Bodies covered.
+
+“Right down the hall.”
+
+Silence.
+
+“…what happens now?” Daniel whispered.
+
+The man stood.
+
+“Do you understand?”
+
+Daniel stared at the floor.
+
+Everything gone.
+
+“…yeah.”
+
+The hospital stretched endlessly.
+
+“Good,” the man said.
+
+Daniel didn’t move.
+
+Didn’t run.
+
+“…I get it.”
+
+The lights flickered—
+
+and stayed.
+
+ 
+
+**End.**
