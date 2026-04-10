@@ -16,7 +16,7 @@ The back room with her grandmother's furniture still in it, covered in sheets li
 
 Then the basement.
 
-She opened the door and the smell hit me first. Cold and old and close. She moved through it quickly, narrating nothing, gesturing vaguely at shelves, the water heater, the fuse box. Her voice quietr than usuam, careful. Like she was choosing each word before she let it out.
+She opened the door and the smell hit me first. Cold and old and close. She moved through it quickly, narrating nothing, gesturing vaguely at shelves, the water heater, the fuse box. Her voice softer than usual, careful. Like she was choosing each word before she let it out.
 
 That's when I saw it.
 
@@ -58,9 +58,9 @@ I nodded. I let it go.
 
 But the word private sat in the room with us for the rest of the night. 
 
-It floated around, surfaced, drifted away. Came back when she laughed at something on the television. Came back when I turned off the light. Came back at 3am when I lay there listening to her breathe and couldn't remember how to stop thinking.
+It floated around, surfaced, drifted away. Came back when she laughed at something on the television. Came back when I turned off the light. Came back at 3am when I lay next to her watching her chest rise and fall, and couldn't remember how to stop thinking.
 
-I lay awake listening to her breathe and I thought that there are things inside the people we love that we will never be given access to
+As I lay awake listening to her breathe, I told myself that there are things inside the people we love that we will never be given access to.
 
 I thought that was probably fine. I thought that right up until I stopped believing it.
 
