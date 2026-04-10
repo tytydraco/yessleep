@@ -166,7 +166,7 @@ She was quiet for a long moment.
 
  Looking at me like she was trying to memorize something.
 
-"Okay," she said. "Just remember. This is what you wanted."
+"Okay," she said. "Just remember. This time, this is what you wanted."
 
 "What do you mean this time?"
 
