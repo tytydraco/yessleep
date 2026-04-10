@@ -393,5 +393,3 @@ He stitched up my hand, wrapped a fresh bandage over the growth, gave me a tube 
 Knox and I left and we settled back in the car for the night. There, in the quiet recesses of my mind, I heard the faintest whisper. It was low, dark, and menacing. It spoke three simple word that warbled as if passing through fan blades.
 
 *“…sssix daysss left…”*
-
-[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1sdvuqy/my_tumor_spoke_its_message_was_a_countdown_part_2/)
