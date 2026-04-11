@@ -1,0 +1,15 @@
+I’m a married woman with a 3 month old baby girl living in rural Utah. I honestly feel crazy even wondering about this, but I’m so concerned and scared for my child. My wife (let’s call her L) says that I was imagining things and that I am being an idiot, but I know what I saw, and how I feel. Just please, tell me if I’m worrying too much. Or too little.
+
+Our baby, Mellissa, was in her crib on the other side of the hallway. It was about 2 - 4 AM, I don’t remember the exact time, but I know it was in the early morning. She was crying. And I’m not saying go the normal: “hungry cry”, no, it was the: “I’m bout to fucking die” cry. 
+
+I look over at L, and she mouths: “can you, please?” I sighed and mouthed: “Ok” back. As I walked over to the door, I heard a strange sound coming from the room. It was a smooth, sliding sound, like that of a window opening. I quickly opened the door and what I saw shook me to my damn core. 
+
+The window was open, with a long, skinny, white arm reaching in. Her crib was close to that wall with the window, pressed into the corner, meeting the back wall and the left wall, which the window is on. The arm’s hand was positioned right above Melissa. The hand looked like a mix of a human’s and an insect’s. With two, human like, fingers with long claws at the end. I quickly blinked to check if it was actually there. 
+
+After I blinked, it was gone and the window closed quickly. The blink only lasted fractions of a millisecond, but it just vanished, right then. The only trace of it was the closing window. And that was also gone quickly. Though, that window closing showed that it was, indeed open in the first place.
+
+I shrieked and ran toward her crib. Calling to L to get in here. Melissa was crying louder than I’d ever heard her cry. I pulled her into my arms and bounced her. I looked out the window and there was nothing. There was just the tree-line of the forest that bordered our Un-fenced backyard. L ran in, asking what happened. When I explained everything to her, she just said: “No, it wasn’t anything weird, you left the window open, and the curtain was flowing in the wind. Melissa cried because she was cold.” 
+
+I just looked at her, bewildered. The curtains were pink, not white. And that wouldn’t explain the sound I heard or the window closing. I snapped at her, stating these things. She just said that we were both tired and that I should give Melissa some formula and go back to bed. We’d talk about it in the morning. 
+
+I’m writing this basically right after the fact. It’s 4:45 AM now, and I don’t think I’ll be going back to sleep. I’m a stay at home mom and L goes to work for most of the day. I don’t know what to do. I feel like my baby isn’t safe. I feel like this whole house isn’t safe. I don’t know what to do and I am freaking out. Please, give me some advice. Thank you in advance.
