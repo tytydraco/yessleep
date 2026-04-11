@@ -12,7 +12,7 @@
 
 ​"How could you possibly know that?"
 
-​The bartender placed a drink down for the man, his movements stiff and fearful. He wouldn't even look the stranger in the eye.
+​The bartender brought me my drink, completely ignoring the man's existence.
 
 ​"Because God sent me here to save you," the man said. "The world our bodies inhabit isn't the only one, Alan."
 

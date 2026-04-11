@@ -1,7 +1,5 @@
 CW: contains gore
 
-
-
 My name is Robert. I moved into Sunnyside Apartments on Delaney Street because it was cheap, quiet, and close to my work. Simple as that.
 
 Sunnyside was the kind of place people only lived in temporarily until they could either get back on their feet or find a better situation. Most of my neighbors were students, night-shift workers, or people who just wanted a low-cost place to escape to for a while. No one ever stayed long enough to learn anyone else’s name.
@@ -297,3 +295,5 @@ But everything I owned was still there. I couldn’t just leave.
 When the building came into view, I made my decision. I was exhausted, scared, and shaking from pain, so I stayed in my car for the night. Before leaning the seat back, I slipped on a pair of old, white flip-flops I found under the seat. They were thin and worn, barely holding together, but enough to keep something between the ground and the raw, open wounds on my feet. Better than nothing at least.
 
 The car felt safer than the apartment, but even so, sleep never came. I kept watch over the third-story windows, half-expecting to see something standing there, watching back.
+
+[Final Part](https://www.reddit.com/r/nosleep/comments/1siwkqm/i_moved_into_sunnyside_apartments_for_convenience/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
