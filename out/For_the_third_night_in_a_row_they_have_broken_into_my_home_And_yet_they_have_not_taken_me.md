@@ -74,7 +74,7 @@ Blood red, menacing eyes, staring through the dark. Eyes that look nothing like 
 
 I feel my heart begin to race and my head begin to pound. I’ve worked so hard to spare them from this. Not here. Anywhere but here.
 
-I HAVE to keep the safe.
+I HAVE to keep them safe.
 
 “Couldn’t sleep?”
 

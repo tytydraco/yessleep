@@ -36,7 +36,7 @@ They always began with the music box notes—a thin, mechanical winding that got
 
 It was the signal that he was coming.
 
-He didn’t walk through the door; he unfolded himself through the bedroom window, a creature of long, skeletal limbs and fingers like dry sticks.
+He didn’t walk through the door; he unfolded himself through my bedroom window, a creature of long, skeletal limbs and fingers like dry sticks.
 
 He moved unnaturally, like a shadow stretching across a wall, silent and deliberate.
 
