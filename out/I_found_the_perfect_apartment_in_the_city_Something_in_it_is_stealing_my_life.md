@@ -10,7 +10,7 @@ I walked through each room expecting there to be a catch. I had just graduated a
 
 But when she told me the rent, I just stood there for a second.
 
-She said she gives a big discount to young women who are new to the city, because she had been one herself once, and I didn’t question it. I signed the lease that same day.
+She explained she gives a big discount to young women who are new to the city, because she had been one herself once, and I didn’t question it. I signed the lease that same day.
 
 Moving in felt good. My dad helped me bring my stuff over and fix a few small things, and for the first time it felt like I was actually starting my life.
 
@@ -140,7 +140,7 @@ I thought about going back to my parents.
 
 But none of that would give me those months back. Or the years.
 
-I am twenty-two, but my body feels decades older, and every time I looked in the mirror, I can tell it won't just reverse on its own.
+I am twenty-two, but my body is decades older, and every time I look in the mirror, I can tell it won't just reverse on its own.
 
 In desperation, I listed my apartment on the same website where I found it, and moved to hers. The messages started coming in almost immediately.
 
