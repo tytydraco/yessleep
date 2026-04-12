@@ -40,6 +40,6 @@ I thought about that moment after that screamer brought me back to it. Full body
 
 Memory is fickle and experience is deeply personal. I might not believe what I saw but my mind still drops it in the same part of my mental storage as gradutating highschool, or driving my first car. I might not want to believe it - but my mind made the classification for me. 
 
-Whether I like it or not, as far as my memory is concern:
+Whether I like it or not, as far as my memory is concerned:
 
 I was not alone that summer day.
