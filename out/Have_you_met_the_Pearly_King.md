@@ -1,5 +1,5 @@
 “Alright?” My new neighbour, with false tanned skin and giant gold hoop earrings asked me.  
-I watched as she pushed a buggy into the lift where a toddler in tracksuit that matched hers was sipping juice from a sippy cup.   
+I watched as she pushed a buggy into the lift where a toddler in a tracksuit that matched hers was sipping juice from a sippy cup.   
 “Yes. Thank you.” I avoided her heavily eye lined gaze and kept my focus on the lift door.   
 “You just moved in?”   
 “Yes.”
@@ -52,7 +52,7 @@ I laughed. “I don’t think so.”
 
 When I got home, feeling shaken by the pearl incident, I phoned my parents for some comfort.   
 “How’s your first day in the flat been sweetheart?” My Mum asked.  
-“A bit strange to be honest. I’m suffering from some kind of throat issue. I… coughed up a pearl.” I laughed awkwardly.   
+“A bit strange to be honest. I’m suffering from some kind of throat issue. I… coughed up a pearl.” I laughed awkwardly.  
 “What?”  
 “Yeah I know. The doctor thinks I might have swallowed something in my sleep.”   
 “I have always thought all those decorative pillows were a choking hazard. You really ought to move them off of your bed.” She scolded. “But I’m sure you’ll be fine darling. Are you looking forward to your first day at work?”  
@@ -116,8 +116,8 @@ At lunch time several of us went out to grab food. I tried to avoid inviting her
 “Mhm.” 
 
 I changed the topic of conversation at the table to holidays. The girl sipped her coffee silently while we talked and it was nice not having her butt in every other sentence. Until the young man who seemed weirdly interested in her directly asked her:  
-“Where is the most interesting place you’ve been on holiday then?”  
-  
+“Where is the most interesting place you’ve been on holiday then?”
+
 A blush that hadn’t been bought in a discount beauty store, appeared across her cheeks as she seemed to struggle to think of what to say.   
 “Well actually I’m going on holiday with some uni friends this year. We’re going to Türkiye and I reckon that will be incredible. Have you been?” She asked him.   
 “Yes.” He smiled, his eyes not budging from hers. “Where are you going?”  
@@ -176,4 +176,4 @@ Before closing her door, she gave me a reassuring smile. I turned to see that so
 
 My heart was thudding against my ribcage as the lift took me to the fourth floor. I expected the Pearly King to appear as the door whined open, his eyes peaking at me from behind a corner or from perhaps an open door. When he didn’t I thought I’d see him at the end of the hall. Luckily, he wasn’t there either but I felt as though he might appear at any second. Fearing he was behind me, I rushed to my door and fumbled for my key, almost snapping my ankle as my foot gave way and the hell of my shoe snapped against the tiles. Quickly, I glanced behind me as I jammed my key into my lock and twisted it, throwing the door open. I slammed it behind me then leaned against the cool hard wood of the door, trying to catch my breath and slow down my heart. 
 
-Once I’d drank some water to avoid a hangover I showered, put on some pyjamas and went to bed. The old pipe work of the building groaned in the cold. The noise made me jump every time, sometimes sounding like footsteps or thuds. Any slight sound, a door closing outside, a floor board creaking from above, would make my entire body come out in goosebumps. I had to leave my bedroom TV on to get any sleep fearing I’d see the Pearly King in the dark corners of my room. Tapping his foot with soft thuds. Waiting. Grinning beneath his tall hat. 
+Once I’d drank some water to avoid a hangover I showered, put on some pyjamas and went to bed. The old pipe work of the building groaned in the cold. The noise made me jump every time, sometimes sounding like footsteps or thuds. Any slight sound, a door closing outside, a floor board creaking from above, would make my entire body come out in goosebumps. I had to leave my bedroom TV on to get any sleep fearing I’d see the Pearly King in the dark corners of my room. Tapping his foot with soft thuds. Waiting. Grinning beneath his tall hat.
