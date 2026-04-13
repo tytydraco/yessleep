@@ -84,7 +84,7 @@ Lacey gently set her hands over Kait’s and spoke softly, covering the camera i
 
 Kait’s gaze didn’t stir as she nodded softly and released the device.
 
-The girl began playing the beginning half of the last recording once again, watching for the exact method Mindy had used to keep the red door closed. I saw Kait wince at her roommate’s gentle utterances of reassurance to herself, so certain that she would succeed in her goal…
+The girl began playing the beginning half of the last recording once again, watching for the exact method Mindy had used to keep the red door closed. I saw Kait wince at her forgotten friend's gentle utterances of reassurance to herself, so certain that she would succeed in her goal…
 
 The rest of us watched over Lacey’s shoulder as Mindy began her gestures again, stepping out of the hall into the basement just enough to interact with both sides of the knob. As she drew circles over the black porcelain and weaved fingers through the air, we tried to commit it to memory, Carly even practicing the motions for herself alongside her.
 
