@@ -1,0 +1,17 @@
+My night started out like a regular late night, I stayed up finishing work, watched a few shorts on Youtube, doom scrolled on Tiktok...it's 3:00 am, my eyes get heavy and I am off to bed. 
+
+I wake up in the middle of the streets with heavy rain pouring. I have a bottle in hand and a briefcase, I wonder what's going on? How did I get here? Suddenly I get a shocking feeling that someone is looking for me, the dangerous kind of looking where they'd like to put a knife in me, preferably in the back and watch life slowly drain out of me. 
+
+I decided the safest place to go is home, it must be close by, I know these streets. I start to run and something is off, I cannot run, I'm tipsy, everything is foggy and unclear, I remember I had a bottle in hand and become a little calmer, I say to myself "I understand this, I must've gone out with friends and had a little too much." But then I wonder how it could be as I never do that. The road is muddy for some reason, a mudslide from a nearby hill must've happened gushing mud into the road, I drag myself through wearing shorts, sandals and a t-shirt. My mud exit is glorious, head to toe in mud - I slipped while making it through. I finally get to my neighborhood and breathe a sigh of relief, "almost there" I say to myself, house in sight. I get to it and it's different, something is off, the next house looks exactly the same but with a different house number and one off thing. I don't know what it is, but it feels off. I get to the 4th similar house with something off but this time, it is my house number, as I open the door with the keypad to get in, a deep male angry voice shouts out to me from the shadows "Where do you think you're going? I am not done with you yet." 
+
+I panic on the keypad, fail to enter the digits as footsteps approach, multiple this time not just the one voice. I wake up in my bed, sweating profusely, scared shitless! 
+
+it is morning, I go about my day in daze, was it a dream or it happened, in my pajamas when I wake up, I feel well rested, no signs of mud, no rain last night. All good, just one of those crazy dreams, where you run but can't run, the bad guy is coming to get you and all that. My mind is at ease. 
+
+4:00 pm I ask my housemate James that we go for a jog, it's sunny outside but cool, very nice weather. We chat for a bit and his friend casually mentions he saw his Instagram post of me covered in mud having breakfast in the morning. James says he likes that kind of thing, random epic posts and I reply "You delight in others suffering, a shadenfroid as they say in German". We go on the job and halfway through, I'm sweating and get the same feeling I had the night before, imminent danger! Must be a dream I tell myself, fuck this am out. I stop, count to ten while murmuring wake up at each second...my usual sequence for when I get stuck in a dream I do not like. 
+
+Am awake, in my bed again, it's 8:00pm - scared, confused, clearly phased. I head straight to James and ask "What the hell is going on?" He replies, "What the hell do you mean bro?" I proceed to explain the sequence of events to him and all he says is I came home from work early at 5:00pm, went to my room and took a nap, he's been doing his assignments at the dining table. 
+
+He slipped up, I do not work! I have no job! Am so screwed, I can't help but wonder am I still in the dream and making this post in the dream? Has someone figured out a way to shut me down like a PC, erase some stuff and boot me back up? Am I being experimented on? 
+
+Help! 
