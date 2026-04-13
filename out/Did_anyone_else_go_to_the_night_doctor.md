@@ -1,4 +1,4 @@
-When I was growing up, I was sick a lot. It was a chronic battle of brain-boiling fevers and immobilizing body aches, long nights spent curled over the toilet bowl while my mother or father tiredly rubbed circles into my back to comfort me. It seemed as though I caught every bug that went around. Despite this, my parents always called me their miracle child. Apparently when I was born, I wasn't likely to make it out of the NICU, but I was a fighter.
+Growing up, I got sick a lot. It was a chronic battle of brain-boiling fevers and immobilizing body aches, long nights spent curled over the toilet bowl while my mother or father tiredly rubbed circles into my back to comfort me. It seemed as though I caught every bug that went around. Despite this, my parents always called me their miracle child. Apparently when I was born, I wasn't likely to make it out of the NICU, but I was a fighter.
 
 Mom would always say, “Whatever you catch once just makes you stronger!”
 
@@ -8,9 +8,7 @@ Some days I was scared I’d never be well again.
 
 I was in and out of doctors’ offices a lot. I was accustomed to spending long hours under the sickly fluorescents of waiting rooms in stiff uncomfortable chairs, playing on my GameBoy Color until the battery got low, then reading from the boring selection of health digest magazines to giggle at rude words and weird diagrams until the nurse called me up.
 
-It’s because of this familiarity with doctor’s offices that I struggled for years to decipher if the story I’m about to share really happened, or if it was just a surreal collage of experiences made up by my overactive subconscious to fill in the gaps.
-
-You know how distinct events of the past can blend together with time. You might mistake a childhood dream or television program for a real memory, though its contents seem impossible.
+It’s because of this familiarity with doctor’s offices that I struggled for years to decipher if the story I’m about to share really happened, or if it was just a surreal collage of experiences made up by my overactive subconscious to fill in the gaps. You know how distinct events of the past can blend together with time. You might mistake a childhood dream or television program for a real memory, though its contents seem impossible.
 
 But those nights cling to the recesses of my brain like a creeping mildew. Each time I dare to recall one, the details are vivid, painful, and exactly the same.
 
@@ -20,15 +18,15 @@ Here’s one memory from when I was ten years old. I recall waking up sweating u
 
 There was a large man standing in my bedroom right next to my head. He was looking at me. The red light of the clock reflected on his glasses.
 
-I screamed for my parents at the top of my lungs. They came in and turned the lights on and tried to calm me down. The man was still there, and he looked pale and just as scary in the light. He was an older man, taller than my father, with a sunken face with drooping jowls. His eyes were recessed beneath heavy lids. They looked too small for his eye sockets, like he was peeking out from behind his own face. He reminded me of a latex Halloween mask of an old man I’d seen the week prior at Walmart. Sort of melting and hollow.
+I screamed for my parents at the top of my lungs. They came in and turned the lights on and tried to calm me down. The man was still there, and he looked pale and just as scary in the light. He was an older man, taller than my father, his face sunken with drooping jowls. His eyes were recessed beneath heavy lids. They looked too small for his eye sockets, like he was peeking out from behind his own face. He reminded me of a latex Halloween mask of an old man I’d seen at Walmart a week prior. Sort of melting and hollow.
 
 I remember my mom apologizing to him, and my dad leaning down to talk to me.
 
 They called him Dr. Moris. I hated him. They told me he was going to ask me a few questions and examine me, and then I could go to sleep again.
 
-I didn’t know what to say at the time but I remember thinking everything was alright then. Since my parents weren’t alarmed, I went along with it.
+I didn’t know what to say at the time but I remember thinking everything was mostly alright then. Since my parents weren’t alarmed, I went along with it.
 
-Dr. Moris sat at my bedside and asked for one arm, then the other. My sleeves were already rolled up. He took a measuring tape from his coat pocket and measured both of my arms, first from shoulder to elbow, then elbow to wrist. Then he did my legs. Then my spine.
+Dr. Moris sat at my bedside and asked for one arm, then the other. My sleeves were already rolled up. He took a measuring tape from his coat pocket and measured both of my arms, first from shoulder to elbow, then elbow to wrist. He did my legs. Then, my spine.
 
 He asked if I played sports, and if I got along well with other kids. I said I did. I played soccer, and I had some friends down the street.
 
@@ -40,7 +38,7 @@ He stood up, said something quietly to my parents, and then we were done. He lef
 
 My parents tucked me in and I went back to sleep, too tired to ask any questions.
 
-My next weird memory starts with me waking up again. The digital clock showed 11:30 PM in glowing red. The alarm sound was going off, playing the same repeating chime and crunchy bird foley that I heard every morning before school. I thought it was a mistake. I turned it off. Then Mom came in and told me to get in the car. I asked why and she reminded me that I had an appointment.
+The next weird memory begins with me waking up again. The digital clock showed 11:30 PM in glowing red. The alarm sound was going off, playing the same repeating chime and crunchy bird foley that I heard every morning before school. I thought it was a mistake. I turned it off. Then Mom came in and told me to get in the car. I asked why and she reminded me that I had an appointment.
 
 I remember sitting in the back seat trying not to fall asleep on the way there. I think I did, because next I remember being in a room with white walls and a popcorn ceiling, lying on a cushioned table. There was a hole in one of the tiles. I studied that dark empty spot, too sleepy to move or look at much else.
 
@@ -84,13 +82,13 @@ You’ll never find me in a doctor’s office.
 
 But two nights ago, I had a throbbing pain in my chest so strong that it caused me to drop the coffee pot all over the kitchen floor. My wife rushed me to the ER. After a harrowing round of evals, they said I would be ok, but that they had several questions.
 
-After conducting a full CT scan of my body, they called me back to do another round. The technician apologized, saying that the machine had been acting up.
+Following a full CT scan of my body, they called me back to do another round. The technician apologized, saying that the machine had been acting up.
 
-Following the second attempt, they found something so rare that it was deemed medically impossible.
+On the second attempt, they found something so rare that it was deemed medically impossible.
 
 The amount of distortion and visual interference in the scan image suggested that I had over 100 implants placed at random intervals across my body.
 
-“Like a titanium knee or something?” I’d asked the technician jokingly, scratching at the IV site anxiously. "I don't have arthritis."
+“Like a titanium knee or something?” I’d asked the technician jokingly, picking at the IV tape. "I don't have arthritis."
 
 “Like a titanium everything,” she responded. “Why didn’t you tell me you were a cyborg?"
 

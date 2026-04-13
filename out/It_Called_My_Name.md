@@ -1,0 +1,25 @@
+I’ve been hiking my whole life. Trips every month with my parents, and then solo trips every chance I could, once I moved out. There’s never been a time in my life that I’ve felt afraid of the woods and whatever may be within them. That is until my most recent trip.
+
+I decided that I would try for a longer trek than usual, something more than a one or two day trip. I had recently heard about a pretty decent trail nearby, within 50 miles or so, that would take four days to get through. Though I’d been living in the area for a couple of years, I’d never heard of this, but the guy I heard about it from had been hiking for just as long as me, so I trusted him. He told me whereabout it was, and even gave me the map he’d printed to get there, as well as the one he had of the trail itself. After looking at what he’d given me, it seemed to be everything I was looking for. There were long stretches of unmarked hiking, a couple ponds spread around, and lots of notations of animals he’d seen on his hike. It was perfect, and I couldn’t wait to begin conquering this one!
+
+It took me a little bit to arrange the time off of work, someone to take care of my dog, and to let certain people know where I was going and how long I’d be gone. This didn’t look like it would be the most challenging hike, but my parents always taught me to take certain steps just in case something happened. After all of this was done, I was ready to go, and so I set off on my forty-minute drive to the trail. 
+
+It was a short drive, I didn’t have too much trouble finding it, though the trail wasn’t marked by anything other than a red diamond nailed into a tree. I decided not to waste anymore of my daylight, so I immediately put on my gear and embarked on my four-day excursion into the woods. The first handful of hours went incredibly well. The map I’d been given laid out the trail perfectly, the sun was shining, there was just enough wind to cool me down, and I was feeling great about this one. When I noticed that the sun was going to be setting soon, I decided to find a spot maybe a hundred feet or so off trail, to set-up my tent and eat a quick meal. 
+
+While I was getting my tent set up, I couldn’t help but feel as if something was off. I kept hearing twigs snap, leaves move, and what sounded like huffing. This isn’t awfully unusual to hear, especially in the middle of what was essentially a huge pile of leaves and sticks, but there was something that my body was picking up on that my mind wasn’t. I gave the area a quick comb over once my camp was set, and I didn’t notice anything out of the ordinary, so I ate my meal, hung my food, and got into my tent. I had to be up early for my first full day of hiking, and I wouldn’t be able to do that on no sleep.
+
+*Snap*
+
+I woke up. Whatever had made that noise was within a couple feet of my tent. I stayed still, just listening for more to come. Another snapping noise and a rustling of leaves followed. There was definitely something right outside. I thought it was probably a deer or some sort of other curious animal checking out my site. I didn’t think this was a well-hiked trail, so it made sense to me that I’d throw the wildlife off with my presence. I listened a little bit longer, and after a couple of minutes of silence, I began drifting back off to sleep.
+
+“Jason”
+
+I heard my name. It wasn’t very clear, it didn’t even sound like a person speaking, but I definitely heard my name. I waited, and it wasn’t very long before I heard it again, a long, drawn-out whisper, “Jason.”
+
+My heartrate spiked. I got my clothes on as quietly as I could, grabbed my flashlight and knife, and burst out of the tent. There was no one at first. I just stood there, breathing heavily, staring into the abyss of trees which surrounded me. I walked around my tent, looking around every corner wearily, hoping I had just been hearing things, and I was happy to find nothing at all near my tent. I was thankful, thinking it must’ve been the quietness of nature getting to me, and so I went to return to my tent. It was unzipped. I had been so anxious that I’d forgotten to zip it, a stupid mistake, letting who knows what kinds of bugs into it, but it wasn’t my main concern at the moment. I still had my flashlight on, and I shined it into the tent. There it was.
+
+Its pale skin stretched across its boney features, so tensely stretched that it would unravel at a slight tear. Its arms stretched down to its legs, which seemed to almost make up its torso completely. My eyes went to its teeth, which were incredibly sharp, poking through the skin of its upper lip as if they’d grown too sharp to contain. Its pale eyes didn’t look back at me. “Jason,” it hoarsely groaned.
+
+I ran. I didn’t stop, no matter how out of breath I felt, I didn’t stop. I didn’t hear anything behind me, besides the calling of my name which was gradually getting further away. I somehow managed to make it back to my car, which I thankfully had the keys for in my pocket, and sped back home. 
+
+I don’t know what I saw. It wasn’t an animal, but it definitely wasn’t a person. Whatever it was, it called my name.
