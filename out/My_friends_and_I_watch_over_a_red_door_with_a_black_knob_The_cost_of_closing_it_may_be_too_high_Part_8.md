@@ -1,4 +1,4 @@
-[{Original Post}](https://www.reddit.com/r/nosleep/comments/1qzmk9s/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1re3ii9/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[{Original Post}](https://www.reddit.com/r/nosleep/comments/1qzmk9s/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 Everyone’s gaze was in a different place.
 
@@ -403,3 +403,5 @@ I don’t think she would have felt such things in that moment if she’d known 
 All I needed was the missing key of how to lock the door. Once I had it, if things came down to desperate times, I wasn’t going to hesitate to seal the curse I’d let loose.
 
 Kait had blamed herself for everything earlier, but the fact of the matter was, the blame was on me, and I would make things right before I let another beast lay a claw on anyone I loved.
+
+[{Next part}](https://www.reddit.com/r/nosleep/comments/1sjywsk/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
