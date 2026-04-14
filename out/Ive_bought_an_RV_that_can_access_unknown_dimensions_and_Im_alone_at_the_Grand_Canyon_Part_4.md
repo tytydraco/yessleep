@@ -1,9 +1,9 @@
-([Part 1](https://www.reddit.com/r/nosleep/comments/1rq8e7y/ive_bought_an_rv_that_can_access_unknown/)) ([Part 2](https://www.reddit.com/r/nosleep/comments/1rtrfnn/ive_bought_an_rv_that_can_access_unknown/)) ([Part 3](https://www.reddit.com/r/nosleep/comments/1s71hc9/ive_bought_an_rv_that_can_access_unknown/))  
-  
+([Part 1](https://www.reddit.com/r/nosleep/comments/1rq8e7y/ive_bought_an_rv_that_can_access_unknown/)) ([Part 2](https://www.reddit.com/r/nosleep/comments/1rtrfnn/ive_bought_an_rv_that_can_access_unknown/)) ([Part 3](https://www.reddit.com/r/nosleep/comments/1s71hc9/ive_bought_an_rv_that_can_access_unknown/))
+
 I know the question on everyone’s mind.
 
-Did Sod let me hit?  
-  
+Did Sod let me hit?
+
 You’d think after freeing a bootylicious babe from a weird cornfield hell dimension that she’d be grateful.
 
 But I am sleeping on the FLOOR.
@@ -147,3 +147,5 @@ We faced the rim of the Grand Canyon and a gargantuan human heart held stationar
 I tried to speak, but I could hardly breathe, let alone make a joke. A voice echoed in the distance, but it wasn't normal; it was monstrous. All I could make out was:
 
 “*Die. DIE! DIE!!!*”
+
+([Part 5](https://www.reddit.com/r/nosleep/comments/1sfae6h/ive_bought_an_rv_that_can_access_unknown/))
