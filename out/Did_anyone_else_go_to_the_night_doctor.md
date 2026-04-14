@@ -102,4 +102,4 @@ Whatever it is, it is not bone.
 
 Internal scarring implies that several implants were moved, extended, or readjusted on numerous separate occasions, likely to mimic natural growth.
 
-I wonder what became of my [leftovers](https://www.reddit.com/user/3_Magpies/comments/1n1wlbl/3magpies_story_masterpost/).
+I wonder what became of my leftovers.
