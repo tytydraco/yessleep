@@ -296,4 +296,4 @@ I sat there, staring at that empty truck for a good long minute. Before I drove 
 
 "You weren't right about most things," I said. "But neither was I. Take it easy."
 
-It seemed like the thing to do. I drove home.
+It seemed like the thing to do. I drove [home](https://www.reddit.com/user/3_Magpies/comments/1n1wlbl/3magpies_story_masterpost/).

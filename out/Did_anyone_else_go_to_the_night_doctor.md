@@ -2,7 +2,7 @@ Growing up, I got sick a lot. It was a chronic battle of brain-boiling fevers an
 
 Mom would always say, “Whatever you catch once just makes you stronger!”
 
-I tried to believe her. 
+I tried to believe her.
 
 Some days I was scared I’d never be well again.
 
@@ -96,10 +96,10 @@ I could tell she was trying to keep the mood light while we waited for the third
 
 The third round of testing arrived. After reading the print-out, I want to believe it’s a fluke. It doesn’t make any sense. I’ve read it over and over. It hurts my head more each time.
 
-According to their findings, I am missing around 66% of my skeletal mass, scattered in pockets, from small finger bones and toes to my clavicle, scattered vertebrae, entire ribs, my left and right ulna and radius, pieces of my pelvis, and the interlocking curves of my skull. All gone, all surgically removed and methodically replaced with something artificial and lightweight with near-perfect accuracy. The ER staff could provide no other information. 
+According to their findings, I am missing around 66% of my skeletal mass, scattered in pockets, from small finger bones and toes to my clavicle, scattered vertebrae, entire ribs, my left and right ulna and radius, pieces of my pelvis, and the interlocking curves of my skull. All gone, all surgically removed and methodically replaced with something artificial and lightweight with near-perfect accuracy. The ER staff could provide no other information.
 
 Whatever it is, it is not bone.
 
 Internal scarring implies that several implants were moved, extended, or readjusted on numerous separate occasions, likely to mimic natural growth.
 
-I wonder what became of my leftovers. 
+I wonder what became of my [leftovers](https://www.reddit.com/user/3_Magpies/comments/1n1wlbl/3magpies_story_masterpost/).
