@@ -1,47 +1,57 @@
-Ignore It
+That was the only rule in our house. It wasn’t a suggestion; it was a survival tactic.
 
-“I know you see it too. It has followed me for a very long time and I know how much it scares you, but if you ignore it, it won’t hurt you. I’m so sorry. But there is a way to escape it.”
+When I was a kid, my mother would catch my gaze drifting toward the dark corners of the hallway or the space between the wardrobe and the wall. She’d grab my chin, her grip bruising, and force me to look her dead in the eyes. "Ignore it," she would hiss, her voice trembling with a terror that scared me more than whatever was in the dark. "If you don't acknowledge it, it isn't real. It can't touch you."
 
+For years, it was just a smudge in my peripheral vision. A mass of static. A void where the light just seemed to fail. As I grew older and moved out, I carried the rule with me, but my perspective shifted. I’m a highly rational person. Spending my days doing hospital clinical rotations, dealing with hard facts, biology, and chemistry, you learn to rely on evidence. I don't believe in ghosts. I don't believe in demons, aliens, or the supernatural.
 
-Those were the last words ever spoken in this house. Our mother told my sister and I that soon before she went catatonic. She sat, mouth agape, in that same decayed oak chair for six months. Ivy vines crawled up the back of the chair and constricted her chest and arms like a python. The needle was still jammed into her vein; the thick, black, liquid remained frozen with her in time. Flies surrounded her and slowly crept into her mouth as I watched in horror. I wanted to bat them away, cry out, and end the madness, but I couldn’t. The thing stood in the corner of the room and watched me with malice as I pretended it wasn’t there. My mother’s last words have haunted me ever since- ignore it. 
+I convinced myself that the "shadow" was just a psychological byproduct of my upbringing. A shared delusion passed down from an anxious mother to a highly stressed child. It was just my brain misfiring—a physical manifestation of my own anxieties, exhaustion, and the immense pressure of my studies.
 
+Armed with this clinical logic, I started to test the waters. Just a little.
 
-When I moved my hand away and put my head down, it shifted its spiteful attention. The unnameable, as I had begun calling it, turned from me, walked towards my sister, and grabbed her long black hair. It lifted the matted and unwashed mess with clawed fingers and breathed down her neck. She looked at me with cold, dead eyes as she lifted the snow on her plate to her face. With a strong inhale, her blank stare widened and turned into pure ecstasy. She ravenously devoured the rotted meat and insects it had placed in front of her. My bottom lip quivered when I watched her lift a cockroach to her mouth and bite it with a loud crunch. She smiled and laughed as she offered her plate to me. I felt violently ill.
+I would be sitting at my desk, my brain fried from work, and I’d catch that familiar patch of inky blackness standing near the piano in the corner of my room. Instead of immediately looking away and humming a song to distract myself like my mother taught me, I allowed my peripheral vision to linger.
 
+That’s when I noticed the changes.
 
-When I first used the magic to escape this world, like my mother and sister, it was Heaven. My anxieties left me and all of the weight placed on my shoulders fell away; it felt like I was Atlas and had just dropped the Earth. The food tasted better, the air was cleaner, and my senses were sharpened. The indescribable horror in the corner went away for four hours my first time. Its inhuman eyes had just vanished into nothingness when I swallowed the capsules. My mother’s choice of magic was the needle and my sister’s was the powder. I was afraid of needles and I didn’t like things going up my nose, so I chose the one that tasted like candy. However, each time I’ve used the magic, the effects became lesser and required more. I could get away with one or two capsules, but now it felt like I needed half a bottle to feel anything.
+The more I allowed myself to perceive it out of the corner of my eye, the more defined it became. The shapeless mass of static would begin to coalesce. The edges would sharpen. It started to grow limbs—long, disproportionate things that hung slightly too low to the ground. Then came the suggestion of a torso, a neck, a head. It was like watching a Polaroid picture slowly develop in the dark. It was molding itself into a human shape, feeding off the tiny scraps of attention I was giving it.
 
+But I stubbornly told myself it was just pareidolia—the human brain’s tendency to find familiar shapes in random patterns. I was just stressed. I was working brutal shifts at the hospital, my feet aching, my mind overwhelmed from dealing with patients and charting. My exhausted brain was simply playing tricks on me.
 
-I shook my head. The aberration turned from my sister and looked at me with inhuman and hateful eyes. It slowly crept across the table toward me. It then shoved its voracious maw into my face and I regained my feigned composure and looked down at the table. Insects crawled over two severed fingers on the plate in front of me as I looked over and realized they were my mother’s. My hands trembled as the creature’s eyes burrowed through mine. I took the bottle out of my pocket and ate a handful of the magic candy. It slowly opened its mouth in a wide and violent sneer, then crawled on the wall and into the kitchen.
+Until tonight.
 
+I came home from a grueling 14-hour shift. I was bone-tired. It was the kind of exhaustion where your vision swims and your emotional defenses are completely stripped away. I didn't even turn on the main light. I just collapsed onto the edge of my bed, staring blankly at the floor.
+Then, I heard it.
 
-I went into the other world for a while, the one that appeared when I ate the magic. The plate in front of me held two of the finest fruits and the goblet next to me was full of vintage wine. I picked up the fruit and ate it; it was the greatest thing I had ever tasted in my life. I ate it slowly to savor the flavor right before grabbing the second one and doing the same. It was rather crunchy on the inside, yet soft on the outside, but the flavor overpowered the odd texture. I had never seen this exotic fruit before, but I knew I must have more of it. There was more on my sister’s plate so I walked over and grabbed them off hers. She was fast asleep at this point, so it didn’t matter that I took them from her. As I wiped the fruit juice from my chin, I looked at my mother. She was alert and awake as she waved for me to see her. 
+Plink.
 
+A single, heavy note struck on my piano.
+My heart stopped. My mother’s voice screamed in my head: Look away! Ignore it! It’s not real!
+Normally, I would have immediately buried my face in my hands. But tonight, I was just... too tired. I was too exhausted to play this game anymore. I was sick of being a prisoner in my own room, tiptoeing around a figment of my own imagination. I decided, in my sleep-deprived haze, that the only way to cure a phobia was exposure therapy. If I looked at it directly, the illusion would shatter under the weight of pure logic.
 
-“Mom, it’s so good to see you. I can’t believe you’re alive.” I said.
+I took a deep breath, turned my head, and looked directly at the piano stool.
 
-She raised an eyebrow at me and turned away. 
+The shadow didn't vanish.
 
-“Mom?”
+Because I finally gave it my full, undivided attention, it finished developing. The blurry, static edges solidified into pale, stretched skin pulled tight over protruding bones. It had long, spindly fingers resting on the ivory keys.
 
-“You believe I’m alive in here?”, she asked, “That this isn’t my own prison?” 
+It realized I was looking.
 
-“Wh..what?”
+The entity slowly turned its head toward me. Where its face should have been, the skin simply tore open, revealing a wide, impossibly dark smile that stretched practically ear to ear.
 
-Her face melted away- the skin falling off the bone like a rack of ribs. Her eye sockets turned into empty pits as they popped like grapes and dripped down her cheekbones. I screamed as she grabbed me and shook me awake.
+"You finally see me"
 
+ a voice whispered, echoing directly inside my head with a sickening, patient hunger.
 
-The Unnameable was still in the kitchen as I stood over the body of my mother. I took  the needle out of her arm and put it in my pocket- there was no blood left in her arm. I closed her eyes and walked over to my  sister. Her face was laying on  the table; I shook her but she wouldn’t wake up. I put my fingers to her neck and the fear was confirmed for me. With tears in my eyes, I turned from her body and walked to the chair. 
+It slowly stood up from the piano, its joints popping and cracking. It took a step toward me. Then another. Its unnaturally long limbs moved with a jerky, twitching motion. I tried to scream, to squeeze my eyes shut, but my body wouldn't obey. I was frozen. It reached out, its cold, spindly fingers hovering mere inches from my face...
+And then, I gasped. My eyes shot open.
+I was lying on my bed. The room was dead silent. I was breathing heavily, my scrubs soaked in cold sweat.
 
+A dream. It was just a nightmare.
 
-The creature crawled back to the dining room from the kitchen. It crept over black mold on the walls and stood behind my sister. It placed its giant mouth over my sister’s head as it started to slowly eat her. It grabbed her with its claws as it slowly stretched its jaws further and further, until she was entirely gone. It swallowed my sister whole in a matter of minutes, but it felt like forever. It turned its disgusting head to me as I looked down. I didn’t move for several moments, hoping it would go away. When it didn’t, I grabbed the “magic candy” off the table. It laughed at me while  I opened the bottle. Its smirk went  through me as I put the “magic” into my mouth. Afterwards, it walked up the stairs and away from me.
-I spit them onto the table.
+​I opened my eyes, looking for the faint glow of the streetlamp.
+Nothing.
+Just a solid, suffocating wall of black.
+I blinked.Still nothing.
+Then, the darkness exhaled against my lips.
+I wasn't blind.
 
-
-I stood as quietly as possible and walked to the door. With a single glance back at my mother, I walked out of the house. The cold  rain hit my head as I walked through the trees in the dark forest. The wolves could be heard as I slowly walked on the way to town. I walked for five minutes until I heard the sound of hundreds of legs running across the wet leaves.
-
-
-I ran with weak legs through the forest as the Unnameable ran at me with great speed. When it caught up to me, it threw me to the cold, dead, grass. Its breath fought my nose as it sat on top of me. I screamed and fought to get away from it, but it was too strong. It got its mouth around my head and my eyes as it tried to swallow me alive. When I felt all hope was lost, I grabbed the needle that I took from my mother and put it into its neck. The liquid went through its body and it died. I stood and breathed easily for the first time in years.
-
-
-We all tried to ignore it by escaping our world with magic, by pretending it wasn’t there and that our lives were fine. I realize that we were doing what the Unnameable wanted- ignoring it. I don’t think it will ever go away; its eyes still watch me, but now, I know that I can fight it. 
+It was just that close

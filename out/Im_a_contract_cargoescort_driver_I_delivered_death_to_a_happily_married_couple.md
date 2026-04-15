@@ -104,21 +104,21 @@ I turned off the radio and set my phone to airplane mode. I finally felt ready t
 
 As soon as I shifted to drive, I noticed my hand was different. Was it always this long? This curved? I slapped myself. The object could not possibly influence me.
 
-Ten minutes after leaving the museum, a car I was next to at a red light was listening to classical music at a high enough volume for me to hear. I swore that I kept hearing harps. Though, I was no expert. 
+Ten minutes after leaving the museum, a car I was next to at a red light was listening to classical music at a high enough volume for me to hear. I swore that I kept hearing harps. Though, I was no expert.
 
-I stopped at a mart to buy earplugs. 
+I stopped at a mart to buy earplugs.
 
 The distance between me and the destination shown by my GPS was decreasing all too slowly. Was one of the redacted rules relevant? Could the object distort distances? I began sweating; saltwater mixed with dirt pooled on the sides of my nose and lips. Each droplet carried worry.
 
 I pulled over in a panic. Each breath felt like a weight was being dropped rather than lifted. I slowly crept to the back of the trailer to check the locks. All of them were intact. I counted them many times to be sure. I even wrote a list on the back of my left hand to keep myself sane while driving.
 
-I returned to the driver's seat and resumed the job. I was finally on the highway. 
+I returned to the driver's seat and resumed the job. I was finally on the highway.
 
-Not long after taking an entrance ramp, I was pulled over. This looked like a real police car, in contrast to my recent visit from the Hunter. A normal officer approached my window. 
+Not long after taking an entrance ramp, I was pulled over. This looked like a real police car, in contrast to my recent visit from the Hunter. A normal officer approached my window.
 
 "What's with all of the foil? You looked like you were swerving a lot. Have you smoked or drank anything?" I shook my head and looked at the list. He made me take a breathalyzer and various other tests for sobriety. The foil fell out of his focus.
 
-"That's a pretty serious trailer you have. What's in there?" I started to pinch the skin of my arm repeatedly. 
+"That's a pretty serious trailer you have. What's in there?" I started to pinch the skin of my arm repeatedly.
 
 "Cargo." The officer was not pleased.
 
@@ -136,7 +136,7 @@ Not long after taking an entrance ramp, I was pulled over. This looked like a re
 
 Each exit sign I passed appeared more and more distorted. The object was toying with me.
 
-I kept imagining how it would feel to have my neck broken by one of the object's minions. I was cracking my neck often and scratched my skin enough to make it bleed. I periodically pulled over and checked every lock on the trailer. The list on my hand was the only way I could remember all of them. 
+I kept imagining how it would feel to have my neck broken by one of the object's minions. I was cracking my neck often and scratched my skin enough to make it bleed. I periodically pulled over and checked every lock on the trailer. The list on my hand was the only way I could remember all of them.
 
 According to my GPS, I was only one hour away from the destination when I noticed that a neon green car had been behind me for at least thirty minutes. I didn't breach my contract. Why would he chase me again?
 
@@ -161,3 +161,5 @@ It was a mansion of sorts. A couple, presumably married as shown by the woman's 
 "Dan, it's finally here! That art I wanted from Hilltop!" The husband was calmer. A line from the object's file surfaced from my memory:
 
 *All who were married had their necks broken.*
+
+[Next](https://www.reddit.com/r/nosleep/comments/1sm8rsn/im_a_contract_cargoescort_driver_my_passenger_was/)
