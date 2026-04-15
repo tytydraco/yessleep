@@ -232,7 +232,7 @@ I looked over to see that even the light in the garage was on. Two cars in the d
 
 I walked through the rain, across the street to the back of the garage. I heard yelling down the street as I stood in front of the back door, under an awning. The door knob was there, but my hands were full. I felt how my school jacket was dead weight in my hand, and I held it to my torn stomach like a rag. I pulled it up, tucking one arm in between the buttons of my shirt, and wrapped the other side properly around like I should've done earlier. It wasn't anything like a proper tourniquet, but it was enough to free my hand.
 
-I turned the knob. No lock. The door opened. The floor was all mats and rugs, duct taped end-to-end to one another. A pair of muddy shoes sat on a doormat just inside. The walls were all movie posters and a long white sheet draped over what was once the garage door. A pair of bicycles hung on the third wall, over a workshop desk of house and garden tools, and what looked like an unplugged lava lamp.
+I turned the knob. No lock. The door opened. The floor was all mats and rugs, duct taped end-to-end to one another. A pair of muddy shoes sat on a doormat just inside. The walls were all movie posters and a long white sheet draped over what was once the garage door. A pair of bicycles hung on the third wall, over a workshop desk of house and garden tools, and what looked like an unplugged lava lamp. No, no it wasn't that. The closer I looked, the more I saw -- it was a hookah. So that's what the smell was.
 
 In the middle of the room was a projector stood up on a tripod in front of a coffee table holding a half-empty glass of milk, a standing bag of cookies, and a pair of crossed bare feet. I followed the legs of loose pajama pants to a spindly boy in a black sweater, staring at me with wide, bloodshot red eyes as he was chewing his food.
 
@@ -304,12 +304,7 @@ She wasn't scared as she looked up at me. Curious, more like. She tilted her hea
 
 I looked up the stairs and walked past Little Alice all the way up the terrace to the white bathroom door. I heard his voice, muffled inside. The door opened easily, letting out the steam of the shower.
 
-I saw his silhouette behind a translucent glass panel as he washed himself. Washed himself of me. Over the running water, I even heard him singing:
-
-*"When my time comes around
-Lay me gently in the cold, dark earth.
-No grave can hold my body down,
-I'll crawl home to her..."*
+The walls were white tile, with this tacky rose stalk pattern. I saw his silhouette behind a translucent glass panel as he washed himself. Washed himself of me. Stuck to the dry side of the panel was a green Bluetooth speaker evenly playing the song he was singing inside. Over the running water, I even heard him. I heard it was "Sailor Song" by Gigi Perez. For a while that was my favorite song.
 
 The thick panel broke into several jagged, uneven pieces with one swing of the hammer. He spun around suddenly, shock on his face, water falling from his hair and shoulders as the pieces of pane shattered at his feet like sheets of ice.
 
@@ -339,7 +334,7 @@ Not perfect, but I got it. Through the skin, the veins, but just missed the bone
 
 But I wasn't finished.
 
-I watched his pretty blue eyes widen as I grabbed the knife handle with one hand and a fistful of his hair with the other. And I pulled and pushed on both, slamming the back of his head against the wall, each time cutting deeper and deeper, all the way through his throat like a broken paper cutter. He stopped moving, making noise, after just the second or third, but I didn't stop until the blade scraped against the tile wall and I heard the rolling thud against the floor. I didn't look.
+I watched his pretty blue eyes widen as I grabbed the knife handle with one hand and a fistful of his hair with the other. And I pulled and pushed on both, slamming the back of his head against the wall, each time cutting deeper and deeper, all the way through his throat like a broken paper cutter. He stopped moving, making noise, after just the second or third, but I didn't stop until the blade scraped against the tile wall, I saw those white roses painted red, and heard that rolling thud against the floor. I didn't look.
 
 I breathed. I laughed. Then I got up. I found my glasses in his computer drawer.
 

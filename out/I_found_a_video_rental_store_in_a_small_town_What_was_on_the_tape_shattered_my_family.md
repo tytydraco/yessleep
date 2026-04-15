@@ -176,7 +176,7 @@ I was numb. But I didn’t have time to dwell on the revelation, as the next vid
 
 John’s high school graduation walk. A happy memory out of place for this time, but one I had filmed myself. His father had chosen not to attend, but his sister had.
 
-Then the final video appeared before me. John sorted the same new haircut as he had the year he died. My two kids were sipping vodka at John’s kitchen table. Things had been strained between them for at least a decade, but my daughter had grown up quite a lot after she moved away from my ex and his influence. It was nice to see them getting along.
+Then the final video appeared before me. John sported the same new haircut as he had the year he died. My two kids were sipping vodka at John’s kitchen table. Things had been strained between them for at least a decade, but my daughter had grown up quite a lot after she moved away from my ex and his influence. It was nice to see them getting along.
 
 The two were playing a card game, with the loser having to take a sip from their glass every round. My daughter pounded down the last drops, and excused herself to refill her glass.
 
@@ -226,7 +226,7 @@ When I stepped inside the store, I found it completely destroyed. Half the inven
 
 On it, a small television flickered to life. Michael came into focus on the screen.
 
-“Ger her messages,” he said. “She never deleted them. She had help getting the drugs. Her boyfriend also knows she set the fire and will break under pressure. Good luck.”  
+“Get her messages,” he said. “She never deleted them. She had help getting the drugs. Her boyfriend also knows she set the fire and will break under pressure. Good luck.”  
 
 When he finished, the TV went dark. 
 

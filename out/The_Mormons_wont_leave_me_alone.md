@@ -6,7 +6,7 @@ Rising out of the recliner, the doorbell rang again as I gave my arms a good lon
 
 I opened the front door to find a young man staring back at me with a big cheesy grin. He was probably just over twenty, skinny and gangly in appearance, with a face full of freckles to match his short red hair. I could see his crisp white button up was tinged with pit stains from the heat of the day as he outstretched his hand.
 
-“Hi there sir! Hope your day’s going well, my name's Joel. Nice to meet you!. 
+“Hi there sir! Hope your day’s going well, my name's Joel. Nice to meet you!"
 
 “Derek,” I replied, returning the handshake. The kid's hand was moist and I immediately regretted the pleasantry. 
 
@@ -40,9 +40,9 @@ Two weeks later,  Joel was back. This time I was out mowing the lawn when I saw
 
 I gotta admit the statement kind of caught me off guard. Joel was quickly falling out of my good graces. 
 
-“Yea…I’m going to get back to mowing. Have a nice day kid.” I said dryly. Joel nodded and started to reply but I drowned him out with the mower. I went about my yard work,but kept watch out of the corner of my eye to make sure Joel fucked off. He stood around my yard for another moment or so, then gave me a wave and started prancing back up the road.
+“Yea…I’m going to get back to mowing. Have a nice day kid.” I said dryly.
 
-
+Joel nodded and started to reply but I drowned him out with the mower. I went about my yard work,but kept watch out of the corner of my eye to make sure Joel fucked off. He stood around my yard for another moment or so, then gave me a wave and started prancing back up the road.
 
 A few days went by and I forgot about Joel again. I had just taken a piping hot tray of chicken parmesan out of the oven and went to call Abby inside for dinner. I had opened the front door and was just about to yell her name when I heard voices coming from the side of the yard. I walked around to find Joel chatting away at Abby as she swung on her playset. 
 
@@ -56,7 +56,9 @@ Abby jumped from her swing at my arrival and ran over and hugged my leg.
 
 “That’s nice sweetie, but what has daddy told you about talking to strangers?” I said calmly, ruffling her hair. 
 
-Abby looked at me confused. “But Mr Joel said he’s your friend.”  
+Abby looked at me confused. “But Mr Joel said he’s your friend.”
+
+  
 “Something like that,” I replied. “Why don’t you go inside, sweetie? Dinners ready, I made us chicken parmesan!”
 
 “Yum!” She yelled excitedly before heading towards the house. 
@@ -131,9 +133,8 @@ He smiled his cheesy grin at me and my eyes grew wide as I looked to the bottom 
 
 He lunged at me with a maniacal grin. My breath caught as his hands clamped around my throat. It took me by surprise but I was still the bigger man. I flailed my arms finding purchase on his face and began to poke and prod, squeezing tight when I found the grinning man's eyes. The new Joel howled as my thumbs dug deep into the meat of his orbital cavity. His grip on my throat weakened and I flung him back down the steps. For the second time that day, I had killed the man. 
 
-I’ve killed Joel about thirty times since that day. My body is bruised, my fists ache, I’m pretty sure I’ve broken several bones, every time he comes back, he’s just a little bit stronger. My basement floor is more corpse than concrete. Sufficient to say that I’m no longer worried about going to jail. That thing locked in my basement can’t be human. 
+I’ve killed Joel about thirty times since that day. My body is bruised, my fists ache, I’m pretty sure I’ve broken several bones. Every time he comes back, he’s just a little bit stronger. My basement floor is more corpse than concrete. Sufficient to say that I’m no longer worried about going to jail. That thing locked in my basement can’t be human. 
 
  During our latest struggle I managed to knock him out, and I think I finally bought myself some time. I’ve got Joel chained to a chair now, sitting a king amongst his corpses. If I don’t kill him, he doesn’t come back. Now he just sits there, smiling. I won’t even tell you the vile things he says about my daughter.
 
-In the end, Joel might get his wish. I think I need an exorcist. 
-
+In the end, Joel might get his wish. I think I need an exorcist.
