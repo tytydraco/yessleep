@@ -120,4 +120,4 @@ I am on the curb with my head down.
 
 He is directly behind me.
 
-And his head is up.
+And his head is up, looking right at the camera.
