@@ -44,6 +44,6 @@ the shower turned off.
 
 ————————————————
 
-Link to Part 1 :
+Part 1 Linked bellow :
 
 [https://www.reddit.com/r/nosleep/s/LCaUlUXdOo](https://www.reddit.com/r/nosleep/s/LCaUlUXdOo)

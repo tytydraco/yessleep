@@ -38,4 +38,10 @@ I can tell she genuinely expected me to chase her but why would I ? That bitch i
 
 Instead the place I immediately went to was my bathroom, i needed to see why she was freaking out. I walked in, looked around, seat was down candle was lit literally everything was normal, no marks on my mirror. Is that what she was freaking out over ? the slick man? Would she be so upset at him if she knew he was the one who gave me the lasagna recipe? I sighed, i knew i needed to have a pep talk with him first. I grabbed a fully made plate and placed it on the slick mans second forehead and apologized for making him wait. He didnt say anything and he didnt blink, he never does.
 
-Anyways,Now im down a baddie and down a really cool lamp, i added the last pic i have of it incase anyone knows where i can purchase another
+Anyways,Now im down a baddie and down a really cool lamp, i added the last pic i have of it incase anyone knows where i can purchase another.
+
+———————————————————-
+
+Update linked bellow:
+
+https://www.reddit.com/r/nosleep/s/IRC65xANxf
