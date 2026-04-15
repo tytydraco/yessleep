@@ -217,3 +217,5 @@ I got the sense that he was hiding something from me. I decided to inquire about
 With that, the man walked away, leaving me alone with my thoughts. I looked up at the façade of the mountain. I thought about what Cottonmouth had said about the screams as well as the fruits coming from the mountain.
 
 If he wasn’t going to tell me, I would find it out by myself. I had found my next destination. I began walking, heading for the mountain.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1smhv36/i_heard_the_mountain_scream_part_2final/)
