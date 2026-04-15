@@ -111,3 +111,5 @@ I keep thinking about Lilac Park. I keep thinking about a man in a dark jacket w
 I think I have a word for it now.
 
 I think he was welcoming me.
+
+[Part Two Here](https://www.reddit.com/r/nosleep/comments/1smeatg/i_used_to_play_a_game_called_shadows_one_day_we/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
