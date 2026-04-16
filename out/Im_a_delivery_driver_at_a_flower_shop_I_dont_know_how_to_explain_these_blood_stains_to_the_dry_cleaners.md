@@ -161,3 +161,5 @@ I smiled wearily, then shook his hand. "I'll take that deal."
 \--
 
 [Episode 3](https://www.reddit.com/r/nosleep/comments/1rhmxzn/im_a_delivery_driver_at_a_flower_shop_another/)
+
+[Episode 5](https://www.reddit.com/r/nosleep/s/0k25ijvYBY)
