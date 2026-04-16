@@ -16,8 +16,6 @@ On the bar's old TV, a breaking news alert flashed. The anchor's voice was urgen
 
 The man at the bar didn’t flinch. He only stared deeper into his drink.
 
-
-
 # Chapter 1 – The Move
 
 Jeff’s family was driving to their new home in St. Baal Town. Jeff sighed deeply, staring out the window at the endless sea of trees blurring past.
@@ -216,8 +214,6 @@ The judge then turned toward Liu.
 
 Jeff’s mother gasped. Jeff’s hands trembled as the bailiff approached Liu. The sharp crack of the gavel echoed through the room like thunder.
 
-
-
 When they arrived home, Jeff went straight to his room and slammed the door behind him. His mom called after him, but he didn’t respond.
 
 His dad sighed. “Give him some time,” he said quietly.
@@ -241,8 +237,6 @@ Finally, he settled on a plain white hoodie and black jeans.
 When he came down the stairs, both his parents gave him disapproving looks.
 
 “Are you serious?” his dad asked, glancing at his watch. “We don’t have time for this.”
-
-
 
 They arrived at the party, and Jeff’s mom nudged him toward the backyard. “Go outside and play with the other kids.”
 
@@ -294,15 +288,19 @@ As the decaying husky approached, Jeff whispered in terror:
 
 The husky’s smile widened even further. It let out a deep, dying laugh that sounded like crumbling bones and whispered:
 
-“I am the silence that devoured the first light and the shadow that will swallow the last...”
+“I am the silence that devoured the first light and the shadow that will swallow the last. I am the breath that births ruin and the abyss that claims all things. Before me there was nothing but hunger — and after me, not even oblivion shall remain
 
-(kept intact)
+.Jeff, thou art set apart in this world, for humanity is divided. There are the white sheep — pure and unbroken — those who bring no harm, the innocent, the children of light
 
-The husky leaned closer, its rotting breath washing over Jeff. Its voice dropped into a dark, commanding whisper:
+.And there are those called monsters — born of violence, raised in suffering, shaped by cruelty and neglect. From broken homes and wounded spirits, they are forged into wolves clothed in the skin of sheep. They walk among the innocent, and in their wrath they strike down those they deem worthy of death.
 
-“This is you, Jeff. Just release the black sheep inside you...”
+Yet there is another kind — rare and unseen. The black sheep. They appear as the innocent, untouched and whole, yet within them stirs something ancient… something waiting. It whispers, it hungers, it begs to be released.
 
+And when it is revealed, their true desire shall rise from the depths — and there shall be nothing in this world, nor beyond it, that can restrain it.
 
+”The husky leaned closer, its rotting breath washing over Jeff. Its voice dropped into a dark, commanding whisper:
+
+“This is you, Jeff. Just release the black sheep inside you. Look around you. Look how they smile while you suffer. No help. No remorse. Look at your parents — see how disgusted they are, how disappointed. You are the one who is free… not your little brother. So open… and release.”
 
 In that moment, something dark and ancient uncoiled deep inside Jeff.
 
@@ -352,8 +350,6 @@ His mother wiped her tears and forced a small smile.
 
 “I’m going home to prepare for Liu’s release party,” she said softly. “We’ll all be together again soon.”
 
-
-
 The next day, the doctor entered the room and began carefully removing Jeff’s bandages.
 
 In the background, his family stood silently watching — his mother clutching her hands together, his father’s face pale, and Liu’s eyes full of nervous hope.
@@ -386,8 +382,6 @@ The doctor sighed.
 
 Jeff asked a nurse where his clothes were. She returned with his bloodstained, torn clothes from the glass shards.
 
-
-
 When they arrived home, the house was filled with laughter and chatter — Liu’s release party was already in full swing.
 
 Family members crowded the living room: uncles, aunties, cousins, grandparents — all smiling and celebrating his return.
@@ -407,8 +401,6 @@ Jeff forced a small smile.
 His mother watched him, worried, her brow tight with unease. Jeff’s father gently held her arm.
 
 “He’ll be fine,” he said quietly.
-
-
 
 That night, Jeff’s mother woke to sounds of crying, laughter, and slicing.
 
@@ -452,8 +444,6 @@ Jeff’s expression was calm, almost gentle.
 
 “You’ll be fine, Mommy. Just go to sleep.”
 
-
-
 Jeff’s father heard the noise and ran downstairs.
 
 He froze at the sight before him.
@@ -467,8 +457,6 @@ Jeff dodged and stabbed him in the neck, forcing the blade deeper until his body
 Jeff tilted his head, studying him with eerie calmness.
 
 Then he smiled.
-
-
 
 Jeff walked upstairs to Liu’s room.
 
@@ -503,8 +491,6 @@ Jeff looked at him, a brief flicker of remorse crossing his face.
 “I’m sorry,” he whispered.
 
 Then he turned and vanished into the forest.
-
-
 
 Liu lay barely conscious.
 
