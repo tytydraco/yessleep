@@ -94,7 +94,7 @@ She weighed 1.75 pounds at birth, a little underweight, but besides that, she wa
 
 The first two weeks were fine, because of the area the tusk was found in we made an early spring setting in her den, the scientists would play with her, feed her, and give her milk. The next week, she had gotten bigger, too big for a 3-week-old cub. Could genetically altering her DNA result in growth acceleration?
 
-By 7 weeks, she was a full-grown adult. It was both incredible and concerning in a scientific way. However, that wasn't the strange part. Phoenix had started happening at 5 weeks old. She would start to bang her head against the wall of her den. We didn't know why. At first, we thought he had a spot she needed to itch because right after, she would leap against the wall with her back. Two of my assistants went into her den to try and scratch the spots for her but were treated with feral behavior, a complete 180 from how she treated them only yesterday.
+By 7 weeks, she was a full-grown adult. It was both incredible and concerning in a scientific way. However, that wasn't the strange part, at 5 weeks old Phoenix began to behave strangely. She would start to bang her head against the wall of her den. We didn't know why. At first, we thought she had a spot she needed to itch because right after, she would leap against the wall with her back. Two of my assistants went into her den to try and scratch the spots for her but were treated with feral behavior, a complete 180 from how she treated them only yesterday.
 
 At 6 weeks old she started to gnaw at her paws to the point they bled and only bone was showing, this didn't stop her from ramming her head even harder into the wall, her shoulder plates raised as if they weren't fitting inside her body. That would lead to what had happened today, half an hour before I wrote this, Phoenix had jumped onto her tree she would occasionally nap from and dove onto the ground, she purposely turned around so that her back was the first to make contact with the cement. The back of her head hit the ground and bounced off the ground a few inches in the process.
 
@@ -398,6 +398,4 @@ I tore open the system panel and got to work, each second felt stressful as Phoe
 
  It's kind of poetic in a way. My life was taken away by the very thing I brought back from the dead. I smiled.
 
- 
-
-As I finish typing, I feel my time running out. I pray that they never get out, that they remain here, frozen along with the rest of us. I turned my head to see Phoenix and the Liger completely frozen in place along with the parasites that controlled their body. I shut my eyes as I joined them in eternal sleep, just as the animals of the ice age had done all those centuries ago.
+ As I finish typing, I feel my time running out. I pray that they never get out, that they remain here, frozen along with the rest of us. I turned my head to see Phoenix and the Liger completely frozen in place along with the parasites that controlled their body. I shut my eyes as I joined them in eternal sleep, just as the animals of the ice age had done all those centuries ago.
