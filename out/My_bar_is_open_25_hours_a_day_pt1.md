@@ -1,0 +1,44 @@
+No, that is not a typo in the title. The bar I work at is open 25 hours a day, Monday through Saturday. It's located right where the main road of my city meets the highway, and it looks pretty seedy. At least two of the windows are cracked with one missing a piece of glass, there is always some kind of grime on the windowpanes to the double front doors, and I've given up trying to buff out some of marks on the tables. Even the employee break room table is covered in those stupid "s" symbols that some dumbasses carved with a knife. The only non-scuffed thing in the building is the bar. The countertop is nice and clean thanks to yours truely, and I always make sure the wall of liquor and taps are dust free. 
+
+The day shift for this place is pretty breezy. I worked for about a month before I was moved over to the night shift permanently, and a lot of customers are truckers, teenagers, locals, and the odd guy asking for directions. Worst thing to deal with is if someone clogs the toilet. 
+
+As for my night shift, the few customers I serve do are things like drug addicts, prostitutes, runaways, drifters, homeless people, and severe alcoholics. The worst that's happened during normal hours is probably the odd gun or knife shoved in my face, but, we now have a 6 gauge shotgun under the countertop after some guy left it in the bathroom stall, and never came back for it. 
+
+The 25th hour is different. It appears somewhere between 12am to 4am, and is almost always random. A possible tell tale sign is that the more religiously inclined patrons will get this sudden excuse to leave the bar five minutes before the hour strikes. They'll suddenly cut off conversations, trail off, or remember they left something behind/forgot something. Some unfortunate patrons can resist the subconscious command to leave upon the arrival of the 25th hour. As a result, the things that happened to them will stick with me until my dying days, and have been written off as stress induced hallucinations by my therapist. 
+
+I can probably guess with confidence you'll want to know what the 25th entails. Given I have told many-a-people about my experiences and none of them cared or hand waved me, I figured maybe some of you would be interested instead. 
+
+So without further ado, grab a drink, take a seat, and let me tell you about my typical shift at the Brew 'n Bones.
+
+  
+My typical shift at the Brew 'n Bones starts pretty basic. I park my car, say a hi/bye to whoever I was alleviating, get into my work uniform which embarrassingly includes a bowtie (apparently the boss says it makes the place feel "classy"), and I would give a brief hello to the regulars while I got ready. Old Man Henry used to be one of them but he's for another time. After making sure if everything is stocked, I would either get straight to work or go down to the cellar for more supplies. I wasn't initially allowed down there and frankly I don't like going down there most of the time. But, my boss says he trusts me enough not to sample the merchandise. 
+
+To get to the cellar, I have to go out back of the Brew 'n Bones, wade through the bushes then paw my way to the cellar doors. I'd gotten better at it with practice and thick gloves, but the thorns on the walk over are always a pain. Once uncovered, I'd pull on the heavy handles then slowly tip-toed my way down the creaky old wooden steps where I would have to go through two different sections. The first was dank, dark and where most liquors and beers were kept. The second, smaller room was the one I truly dreaded to enter. It was locked behind a thick iron door with a keypad mounted on the wall. The code changed every five minutes so no one could enter it willy nilly. Any time I had to check the new code, I would simply roll up my sleeve to see the ever shifting tattoo on my wrist, curtesy of my boss. Thankfully, I only had to go in there if certain drinks were needed for the 25th hour customers. Half of them sounded like some kind of poison and the other half in a dead language lost to mankind. Some of them would glow and bubble while others were a solid mass that needed to be touched by fire before served. The reason I didn't like going in there was because of the claw marks on the inside of the door. I always felt like I was being watched when I was down there, so I made my trips as quick as possible. 
+
+On my way out of the cellar, I would bury the entrance in the bushes, waddle my way back into the bar, and restock if needed while attending to the bar flies who sat hunched in on themselves. Their wheezed words and weak clinking of glass to countertop begged for more booze to flow through their veins. I would always try to avoid eye contact with their long, gaunt faces and the bloodshot orbs that sat in their skulls. If needed, I would make bleak conversation anytime they didn't whine at me for more, but nothing memorable from them comes to mind at this moment. 
+
+Other minor regularities are as follows:
+
+\- Veronica appearing at 11:30pm with a cigarette in hand to order a stiff scotch on the rocks while catting to me about a man she'd met and scammed.
+
+\- Evan would be thrown out while trying to sell cocaine to the patrons, Jacob comes in late to work.
+
+\- Grace and I swap from being behind the bar to bussing tables at roughly 11:45pm. 
+
+Once 12am hit, every employee held their breath for a moment to see if the 25th hour would come by. If nothing happened, we went back on our way with a collective sigh of relief. This breathing exercise would continue at the stroke of each hour with the entire building falling completely still. Not a single peep was heard other than patrons chatter and drinking provided the 25th hour wasn't upon us. When it was, we knew about it. 
+
+When the 25th hour strikes, the building becomes completely devoid of sound. Footsteps vanish, the gentle hum of the fridge fades, and even the sound of our own heartbeats fall silent. I remember one time Evan accidentally knocked a glass off the tabletop when no one was looking, and none of us noticed until Evan slipped and pierced himself on the broken shards. 
+
+After the complete deletion of all sound, the temperature drops drastically. Our breaths turn to small puffs of mist floating on the air, and our finger tips slowly turn blue. The air grows heavier, for lack of a better word, and you get this piercingly sick feeling that races back and forth between your head and stomach. First few times you undoubtedly feel the bile creep up your throat and your knees grow weak. There's a chance you may pass out, but someone should wake you up sooner or later. Preferably sooner. 
+
+The final hallmark of the 25th hour is the strange sensation you get if you're an employee. For some, it's their skin crawling. For other's, it's the strange desire to tear out your eyeballs. Each employee is unique with mine usually a mixture of feeling like my entire skeletal structure is vibrating and body is was on fire. It's manageable nowadays, but the first time experiencing it made me wonder if I was going to die then and there. 
+
+Once the sensations finally die down and noise returns to the building, the 25th hour begins.  
+
+On my first shift, the 25th hour was rather forgiving. A group of faceless men in dark robes shimmied through the front door like a rat king. They all ordered the same thing, 27 peppermint schnapps with a drop of arsenic, and downed each of them in perfect unison. How did they drink them without a face, you might ask? Well, as they all raised their glasses, I watched their heads bloom like flower buds. Dozens of tiny thorn-like teeth were on each fleshy petal, and their long tongues stretched up from the depths of their throat like a hibiscus. I watched the many shots of tainted schnapps trickle down those tongues, and their heads furl back into a humanoid head shapes before they all stood, bowed, and left a $500 tip for me on their way out. 
+
+The other oddity of my first 25th hour was several bald people dressed in long trench coats and sunglasses huddled around the tables. They ordered nothing and just sat in complete silence. They didn't breathe nor they didn't speak, and the strangest part for me was the fact not one of them possessed a shadow. Then they just left with a one minute gap between all ten of them. None of them even looked at me when I asked if they were alright. It was like I was never there. 
+
+My boss also never let them back in without buying at least five drinks. On that one time they didn't, Evan and Grace were throwing black garbage bags into the dumpster with our boss making some phone calls. 
+
+This all I can write for now, however. My last shift ran back too late and the 25th hour left me in a sling. I think I need to get a shot for rabies. 
