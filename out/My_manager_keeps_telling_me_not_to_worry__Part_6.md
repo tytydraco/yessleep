@@ -527,3 +527,5 @@ I had no idea.
 And I still don’t know.
 
 Though I think I might have missed something.
+
+\[[Continue](https://www.reddit.com/r/nosleep/comments/1snkxow/my_manager_keeps_telling_me_not_to_worry_part_7/)\]

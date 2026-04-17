@@ -121,3 +121,6 @@ I am on the curb with my head down.
 He is directly behind me.
 
 And his head is up, looking right at the camera.
+
+  
+[Part Three (Final)](https://www.reddit.com/r/nosleep/comments/1snk4j2/i_used_to_play_a_game_called_shadows_one_day_we/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
