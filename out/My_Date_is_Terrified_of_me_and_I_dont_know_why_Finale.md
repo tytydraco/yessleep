@@ -4,7 +4,7 @@ Part 2 : [https://www.reddit.com/r/nosleep/s/LUIpTkZUu3](https://www.reddit.com/
 
 —————————————————————
 
-\*\*\*The Slick Man.\*\*\*
+# The Slick Man.
 
 “BOOM”
 
