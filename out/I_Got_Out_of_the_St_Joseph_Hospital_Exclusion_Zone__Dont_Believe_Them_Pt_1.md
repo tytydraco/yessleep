@@ -4,7 +4,7 @@ For the sake of my anonymity, I will not be sharing my real name as I share my s
 
 A little over 18 hours ago, I was sipping a hot, steaming cup of coffee – an americano – in the newsroom of my local office sector, sitting down in the middle of the room at one of the many tables. I continuously glanced over at the notes and citations that I had gathered from a previous case involving a scandalous representative, growing more bored by the minute. I expected another calm and boring day that would go by in a breeze, and would end in me being home by 5 PM – god I wish that was true.
 
-Instead of that now bygone dream, a fellow journalist friend of mine (let us call him Frank) busted into the newsroom, huffing as he began to sputter out an assortment of sentences and stringed-together words that didn’t make any sense to me at first, giving me a great shock. To allow you to visualize him, Frank is a stout, burly man that’s around 6 foot, and weighs somewhere near 200 pounds. His hair is red, curly, and bushy at the very top, and he has a very freckled face, with many centered around his upper cheeks and nose. He is normally very composed and proper – the main reason why I was surprised at his sheer lack of properness. After he calmed down, caught his breath, and sat down across from me at the same table, he finally began to speak clearly:
+Instead of that now bygone dream, a fellow journalist friend of mine (let us call him Frank) busted into the newsroom, huffing as he began to sputter out an assortment of sentences and stringed-together words that didn’t make any sense to me at first, giving me a great shock. To allow you to picture him, Frank is a stout, burly man that’s around 6 foot, and weighs somewhere near 200 pounds. His hair is red, curly, and bushy at the very top, and he has a very freckled face, with many centered around his upper cheeks and nose. He is normally very composed and proper – the main reason why I was surprised at his sheer lack of properness. After he calmed down, caught his breath, and sat down across from me at the same table, he finally began to speak clearly:
 
 “J, I think I got something big.”
 
@@ -38,10 +38,10 @@ Just looking at the picture nearly made me vomit, a large overwhelming wave of a
 
 My lord, I wish he just lied to me.
 
-“J.. sorry to say, but that is real.. took it myself."  
-  
-He'd pause once more, sighing deeply.  
-  
+“J.. sorry to say, but that is real.. took it myself."
+
+He'd pause once more, sighing deeply.
+
 "I had the same reaction as you when I saw the man, but I knew that you weren’t goin’ to believe me because you’re.. well.. stubborn. I’m sorry.”
 
 I gazed back up from him, now noticing that my hands were positioned on the table, and that I was looking down; I was so zoned in on the memory of that picture, and Frank's words, that I had momentarily forgotten what was happening around me.
