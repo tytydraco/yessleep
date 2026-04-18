@@ -252,7 +252,7 @@ A couple of things changed. A few items seemed to have moved. One of the closet 
 
 The table was slightly angled. The window was still gone. I reached for the light switch again, but it was higher up than before. I flicked it off, and back on again.
 
-But the light come back on.
+But the light did not come back on.
 
  
 
