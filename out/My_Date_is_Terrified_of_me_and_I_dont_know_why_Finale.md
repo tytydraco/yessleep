@@ -24,7 +24,7 @@ What were they going on about ? It was a beautiful scene there. I had prepared f
 
 “They were out of rose petals and I wasn’t using them” I muttered half under my breath.
 
-“Officer Brady, Higgs you got the back all cleared ?” pinning me down in handcuffs hollered into the void behind me. Towards the direction of my bathroom. Although I distinctly recall at least 5 officers breach my apartment prior to my assault however, at this point only 3 were accounted for. The 2 that led towards my bathroom had not made a sound since.
+“Officer Brady, Higgs you got the back all cleared ?” The officer pinning me down in handcuffs hollered into the void behind me. Towards the direction of my bathroom. Although I distinctly recall at least 5 officers breach my apartment prior to my assault however, at this point only 3 were accounted for. The 2 that led towards my bathroom had not made a sound since.
 
 “Brady!..Higgs!” the officer on top of me repeated.
 
