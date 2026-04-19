@@ -202,7 +202,7 @@ He swallowed.
 
 My fingers tightened around the edge of the bench.
 
-"They thought it was a rat at first. Or something in the walls. But then one of them said it sounded like… pacing. Waltzing... does that make sense to you?”
+"They thought it was a rat at first. Or something in the walls. But then one of them said it sounded like… pacing. Waltzing... does that make sense to you?"
 
 I felt sick.
 
@@ -256,4 +256,4 @@ It's been four days and I haven't received anything.
 
 I might be free, you guys. I know it picked up my scent, but unless whoever has it now makes a mistake, it can't come back to me. And as the guard said, the station was full of officers. If someone does something wrong, I hope it'll just pass to whoever was in that room. In order for me to get the curse back, a bunch of people have to die.
 
-I'd say I'm good for [now.](https://www.reddit.com/user/EmmaWatsonButDumber/comments/1eevj6b/full_story_list_with_links/) 
+I'd say I'm good for [now.](https://www.reddit.com/user/EmmaWatsonButDumber/comments/1eevj6b/full_story_list_with_links/)
