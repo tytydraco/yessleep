@@ -1,6 +1,6 @@
 I'd done babysitting jobs before. Quick way to make some cash without working too much. When I saw the ad on some forum, the high pay attracted me immediately.
 
-*Sitter wanted. Friday night from midnight to 4AM.* 
+*Sitter wanted. Friday night from midnight to 4AM.*
 
 I liked that the hours were fixed in the offer, so I wouldn't wait too much for the parents to come home and end up staying longer than we initially agreed on. Some parents were fucking scammers, man, always promising to come home earlier than they did, refusing to pay me for the extra time. The ad was simple, but mentioned nothing about the kids.
 
@@ -28,29 +28,29 @@ I sat down on the wooden lid and watched Reels on my phone. The chest was oddly 
 
 Around 2AM, I heard a knock from the inside of the chest.
 
-I turned off my phone. Had I imagined it? It didn't come again, but it still made me feel uneasy. 
+I turned off my phone. Had I imagined it? It didn't come again, but it still made me feel uneasy.
 
 I was beginning to doze off, so I played some bullshit game on my phone to remain awake. At around 3:44AM, I got a text from the woman who posted the ad asking me if anything strange happened.
 
 *no, it was fine.*
 
-**okay, well, you can get up now.** 
+**okay, well, you can get up now.**
 
 I wanted to wait until 4AM hit, just to be sure. I did well, because the next day the owner of the chest claimed to not have sent any text at all. Surely enough, I checked and the text I'd supposedly gotten that night was gone. Had I hallucinated it?
 
-Wow. It had tried to trick me to get up earlier? Smart. 
+Wow. It had tried to trick me to get up earlier? Smart.
 
 Over the next 5 months, I sat (not babysat) fifteen other times. The woman explained that sometimes she got another chest in the mail and that's how she knew she could throw away the old one. If she tried to throw it away before, it just kept getting mailed back to her house.
 
-I had to sit on shoe boxes, closed baskets (a little uncomfortable). Once, a sealed suitcase that made a wet shifting sound whenever I adjusted my weight. 
+I had to sit on shoe boxes, closed baskets (a little uncomfortable). Once, a sealed suitcase that made a wet shifting sound whenever I adjusted my weight.
 
 The freakiest experience I had was around gig 7 or 8, when I heard a loud thud upstairs. I live alone and it was roughly 2AM, but I couldn't investigate for obvious reasons. I just sat there and waited for 4AM to come, so I could finally see what was going on. Nothing was out of place when I checked. Nothing out of the ordinary.
 
-Another time, I heard my cat meowing from inside the box. *Well, Sam,* I remembered thinking, *if you're really in there you can wait for another hour. You won't die.* 
+Another time, I heard my cat meowing from inside the box. *Well, Sam,* I remembered thinking, *if you're really in there you can wait for another hour. You won't die.*
 
-After the time was up, I opened it to find nothing inside. See, I became immune to the tricks. Nothing would make me get up. Something truly demonic was going on, something I couldn't explain but I was smart enough to not disobey. 
+After the time was up, I opened it to find nothing inside. See, I became immune to the tricks. Nothing would make me get up. Something truly demonic was going on, something I couldn't explain but I was smart enough to not disobey.
 
-She redirected the last package to me, so I got a delivery. Inside of the package was a tiny chess box, with weird paintings on the side, the kind that opens into a board. Inside, I found some chess pieces. The kings and the queens had sinister faces painted on them, and their eyes freaked me out so much that I shoved them back inside and closed the lid. *It's getting creative,* I remembered thinking. 
+She redirected the last package to me, so I got a delivery. Inside of the package was a tiny chess box, with weird paintings on the side, the kind that opens into a board. Inside, I found some chess pieces. The kings and the queens had sinister faces painted on them, and their eyes freaked me out so much that I shoved them back inside and closed the lid. *It's getting creative,* I remembered thinking.
 
 Its size allowed me to sit on it while in bed, so the effort was practically nonexistent. I took it upstairs and got to "work".
 
@@ -58,9 +58,9 @@ Around 2AM, my doorbell rang. Nothing out of the ordinary. It rang and rang, the
 
 I knew it was trying to trick me, but it was still freaky and odd. Thump, thump, thump. Up the stairs.
 
-I was glad I'd closed my bedroom door. It somehow made me feel safer, even if I knew that the real threat was inside the chess box I was sitting on. 
+I was glad I'd closed my bedroom door. It somehow made me feel safer, even if I knew that the real threat was inside the chess box I was sitting on.
 
-The footsteps stopped in the hallway. In the silence, I could make out breathing. Harsh breathing. I don't know why, but it sounded like someone trying to contain their excitement. Jesus. 
+The footsteps stopped in the hallway. In the silence, I could make out breathing. Harsh breathing. I don't know why, but it sounded like someone trying to contain their excitement. Jesus.
 
 *Calm down. The threat is not real. It won't hurt you as long as you sit down.*
 
@@ -116,11 +116,11 @@ Blood rushed into my cheeks. The waltzing downstairs continued, mockingly, loud 
 
 "YOU WERE *NOT* SUPPOSED TO RECEIVE A CHESS BOX! What the fuck? Please tell me you didn't leave the carboard box unattended."
 
-"It was the *packaging*..." I replied, on the verge of tears. 
+"It was the *packaging*..." I replied, on the verge of tears.
 
 "No, no, no, *no...*" she was almost hysterical. The waltzing downstairs stopped.
 
-I remembered the carboard box that came in the mail. It was roughly the size of the chess box inside. Every single thing I'd sat on before had been empty. 
+I remembered the carboard box that came in the mail. It was roughly the size of the chess box inside. Every single thing I'd sat on before had been empty.
 
 I was suddenly unsure of what I'd been sitting on for the past 3 hours.
 
@@ -130,8 +130,8 @@ A long, teasing whistle broke the silence.
 
 I suddenly got the urge to lock my bedroom door. If I'd left the *real* box unattended downstairs...
 
-*Shit.* 
+*Shit.*
 
 Or is it a trick? Did I hallucinate the call? Is it trying to make me get up? Time's almost up, but now I can hear someone going up the stairs.
 
-What do I do now? What do I do?
+What do I do now? What do I [do?](https://www.reddit.com/r/nosleep/comments/1spshh5/i_responded_to_an_ad_called_sitter_wanted_they/)
