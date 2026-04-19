@@ -24,13 +24,13 @@ I was 12 years old when my grandpa called for me to join him and grandma on the 
 
    In that moment I was thinking to myself there's no way I was gone move here in some village "where the fox and haare say goodnight to one another "as my grandpa would say sometimes 
 
-"You see, in this world there are things ,things that have their own rules and we have to follow these rules to a tee, no exceptions,so listening carefully to every word I'm saying, and don't think this is one of your stories from your comic books ,THIS IS VERY REAL GOT IT"
+"You see, in this world there are things ,things that have their own rules and we have to follow these rules to a tee, no exceptions,so listening carefully to every word I'm saying, and don't think this is one of your stories from your comic books ,THIS IS VERY REAL, GOT IT ! "
 
 "sigh... she's just going to think your telling her stories" grandma interrupted
 
 " Shush woman ! If she does ,she will die is that what you want to happen,let me speak god damn it"
 
-"So I said ,there are rules and I will give you a few examples of these rules "
+"So as I said ,there are rules and I will give you a few examples of these rules "
 
 "First rule is ,if you come across a hound with an old hags face on the road ALWAYS greet it by saying "it's a nice day isn't it" doesn't matter if it's raining, snowing or even the end of the world you always tell it it's a nice day isn't it, after that you proceed to give it canned food and a bottle of alcohol,you wait for it to finish,after that you say this " this was a pleasant meeting,I'm looking forward to the next one" and take your leave, DO NOT say anything else and ignore any attempts of communication with it beyond what I told you ,if by any reason you fail to do this things ,in a couple of days you will cease to be human."
 
@@ -62,4 +62,4 @@ I said that there's no way to escape " the one that lurks beneath your skin" tha
 
   Few months after that my grandpa died and " the one that lurks beneath your skin" curse came for him as well ,right before he took his last breath my grandma said that she heard the horrible noise of his bones breaking and his flesh tearing apart ,my grandpa was turned inside out.
 
-The reason why I decided to write this now is because is feel compelled to move into the village and I don't think I'm ready for the horrors that awaits me there.
+The reason why I decided to write this now is because i feel compelled to move into the village and I don't think I'm ready for the horrors that awaits me there.
