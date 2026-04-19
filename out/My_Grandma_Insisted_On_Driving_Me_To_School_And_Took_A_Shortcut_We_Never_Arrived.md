@@ -80,7 +80,7 @@ So there I was, myself, and everything around me slowly fading away, until I fel
 
 Now, just to clarify, I didn’t remember this part straight away, but it slowly came back to me as I recovered, here it is:
 
-“Hey, can you hear me?” I wake with a start, and look around wildly, a police officer has his hand on my shoulder. I am in the car somehow, and back on the dirt trail somehow.
+“Hey, can you hear me?” I wake with a start, and look around wildly, a police officer has his hand on my shoulder. I am in the car somehow, and back on the dirt trail somehow. The seat next to me was empty.
 
 “Wow, calm down, you’ve been in an accident. Can you stay still for me?” The officer asks with a calm and steady voice. I look around groggily and see other officers walking around the car and examining the scene and the sound walkie talkie beeps and chatters fill my ears. Once the ambulance arrived, I was helped onto a stretcher and rushed me to the ER. I remember my mom crashing in the ER and sitting by my side, sobbing. 
 
