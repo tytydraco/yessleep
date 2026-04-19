@@ -258,7 +258,10 @@ He turned back to the flowers, bending down and squinting at them. He nodded, th
 
 
 
-"Fair enough." I got to my feet, happy to find they both worked again. And as he sank back into his teleportation circle, I searched for a few garbage bags out of Dolores's kitchen.
+I hesitated at the idea of stealing from a dead person, especially an old woman. Then I remembered that Dolores had willingly led me to a cursed object that would have rotted half of my body off. I shrugged. "Fair enough."
+
+
+I got to my feet, happy to find they both worked again. And as he sank back into his teleportation circle, I searched for a few garbage bags out of Dolores's kitchen.
 
 
 

@@ -24,7 +24,7 @@ What were they going on about ? It was a beautiful scene there. I had prepared f
 
 “They were out of rose petals and I wasn’t using them” I muttered half under my breath.
 
-“Officer Brady, Higgs you got the back all cleared ?” -The officer pinning me down in handcuffs hollered into the void behind me towards the direction of my bathroom. 
+“Officer Brady, Higgs you got the back all cleared ?” -The officer pinning me down in handcuffs hollered into the void behind me towards the direction of my bathroom.
 
 Although I distinctly recall at least 5 officers breach my apartment prior to my assault however, at this point only 3 were accounted for. The 2 that led towards my bathroom had not made a sound since.
 
@@ -86,4 +86,4 @@ I kept choking till I felt the slick man presence change, then I knew I was done
 
 As the Slick man got back in his position, resting his foreheads on the counter and two of his foundations up the wall and into the medicine cabinet, We felt each other. Without touching, we both seemed to take a moment to feel what the other was feeling. I leaned in, and I kissed the forehead I never do. Letting the slick man know that I see all of him as he sees all of me.
 
-With this new understanding I felt comfortable taking creative freedom for the first time in a long time. I cleaned up. Dumped 4 of the bodies in the hills about an hour and a half from here, but the third. The officer that was still breathing. He is the slick man’s. This will help us, this is what our pep talks were missing. Now he’ll be able to blink. Now he’ll be able to speak.
+With this new understanding I felt comfortable taking creative freedom for the first time in a long time. I cleaned up. Dumped 4 of the bodies in the hills about an hour and a half from here, but the 5th, The officer that was still breathing. He is the slick man’s. This will help us, this is what our pep talks were missing. Now he’ll be able to blink. Now he’ll be able to speak.
