@@ -16,7 +16,7 @@ Once he was cleared, I took him in immediately.
 
 It took some time for him to adjust to the house, but he soon made himself comfortable.
 
-I had already done some research beforehand and bought everything he needed. I got him his own bed, food bowls, treats, and a leash and collar for his walks. 
+I had already done some research beforehand and bought everything he needed. I got him his own bed, food bowls, treats, and a leash and collar for his walks.
 
 Of course, it wasn’t limited only to these things.
 
@@ -30,6 +30,8 @@ He was angry.
 
 He stopped listening. He growled and barked at me in a frenzy everyday, distancing himself from me. He broke things he shouldn’t have.
 
+He wrote on the walls. He screamed at me.
+
 My cute boy. My sweet boy. My poor boy. My ungrateful boy.
 
 Putting all my effort to waste.
@@ -39,6 +41,8 @@ I tried to get him under control and to find out what made him this way, I reall
 But I’d had enough of this behavior.
 
 One night, I tied up his hands and feet.
+
+He wept the whole drive there.
 
 I drove back to the forest…
 
