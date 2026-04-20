@@ -44,4 +44,8 @@ Anyways,Now im down a baddie and down a really cool lamp, i added the last pic i
 
 Update linked bellow:
 
-https://www.reddit.com/r/nosleep/s/IRC65xANxf
+[https://www.reddit.com/r/nosleep/s/IRC65xANxf](https://www.reddit.com/r/nosleep/s/IRC65xANxf)
+
+Finale linked Bellow:
+
+https://www.reddit.com/r/nosleep/s/zZpvX9hx7o
