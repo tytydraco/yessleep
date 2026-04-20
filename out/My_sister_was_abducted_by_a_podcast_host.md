@@ -88,7 +88,7 @@ Bob seemed like a normal enough guy, though his seeming fondness for jazz was on
 
  
 
-*“*Sarah? Reporter girl, right? I remember her. She came by to ask me a few questions.” He started, leaning forward in his chair a little, “She had a few questions about my work. Just asking me… well, I mean, how much do you know?”
+\*“\*Sarah? Reporter girl, right? I remember her. She came by to ask me a few questions.” He started, leaning forward in his chair a little, “She had a few questions about my work. Just asking me… well, I mean, how much do you know?”
 
  
 
@@ -178,4 +178,4 @@ I collapsed on the front doorstep of a random person’s house, and in the patch
 
  
 
-Turns out, the psycho I met has quite the online presence. One of his videos showed up on YouTube about a week ago, gave me a right old headache, and I had to turn it off. But now, call it “the algorithm” or whatever you wanna attribute it to, but damn near every night I’ve fallen asleep, I’ve woken up to a podcast playing on my Amazon Alexa, and his typical, friendly facade talking through the little speaker. You bet I had to get rid of that shit, and I suggest you do too, or you might not wake up, and if you do, who knows what you’re gonna wake up as.
+Turns out, the psycho I met has quite the online presence. One of his videos showed up on YouTube about a week ago, gave me a right old headache, and I had to turn it off. But now, call it “the algorithm” or whatever you wanna attribute it to, but damn near every night I’ve fallen asleep, I’ve woken up to a podcast playing on my Sonos, and his typical, friendly facade talking through the little speaker. You bet I had to get rid of that shit, and I suggest you do too, or you might not wake up, and if you do, who knows what you’re gonna wake up as.
