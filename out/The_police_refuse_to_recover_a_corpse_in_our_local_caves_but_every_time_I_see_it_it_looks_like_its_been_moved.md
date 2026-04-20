@@ -1,0 +1,49 @@
+Two weeks ago, a corpse was found in a cave just blocks from my childhood home. I received the news the day before Easter in a text from my younger brother. I was sitting at the airport, preparing to board a flight from Vermont, where I attend university, back to my hometown in Kentucky for Spring break.
+
+According to Jacob, the deceased hadn't yet been identified. He was found Saturday morning by a local couple, wedged deep into a passageway called "First Date." There were no signs of foul play; the man's death seemed like a clear-cut accident, a classic case of an overconfident caver delving deeper than he should've.
+
+The evening I arrived home, Jacob told me to grab my headlamp and led me to the only entrance the police hadn't already blocked off. For context, my hometown has a small but enthusiastic spelunking community anchored by a system called Needle Caves. While nowhere near as expansive as my state's crown jewel, Mammoth Cave National Park, it's still brimming with interesting routes.
+
+First Date is hidden behind a massive limestone pillar in the back of a large cavern. Most people stay in the main chamber—the ceiling is high and full of stalactites, and there are smooth rocks where you can lie back and look at the formations. First Date itself has a uniquely level floor and a deceptively wide mouth. It's shaped like a hallway, but the further in you go, the more the walls taper together. It eventually gets so tight that even kids can't squeeze through. Supposedly, after this "choke point," the passage opens up into a small chamber, but as far as I know, no one's ever made it to that point.
+
+When Jacob and I arrived, the entrance was halfheartedly blocked with caution tape. As we ducked beneath it, we heard voices echoing from the darkness ahead. I could pick out several distinct voices, but I couldn't discern what was being said. We stepped cautiously into the chamber, ready to bolt if we saw cops, but there was no one there. It seemed the group preceding us had left just as we entered. I made my way to First Date and held my breath as I looked inside.
+
+Wedged sideways into the narrow corridor was the body. He was deep in the throat of the passage, maybe ten meters back, pinned so tightly that the limestone pulled the skin of his face taut toward his ears, almost lending him a smile. His head was turned toward the entrance, his eyes open. He was held perfectly upright by the rock. There was a jarring, cinematic quality to it; looking through that jagged limestone frame felt like looking into a View-Master.
+
+"So, are the cops gonna leave him there forever?" I asked Jacob during our ascent. He shrugged, telling me there had already been an unsuccessful attempt to rescue the corpse. The man was wedged deeper than seemed possible, and authorities were still working through the logistics of bringing S&R and/or machinery into the depths. This was the first death in Needle Caves, so it was no surprise that recovery was slow, especially since the guy had no family to urge things along.
+
+On Tuesday evening, I was tasked with rounding up my younger siblings for dinner. I couldn't reach Jacob at all. When his calls kept failing, I figured he was hanging out in one of his usual sketchy haunts, and I had a pretty good idea as to which one.
+
+When I returned to the cavern, I found five of Jacob's friends gathered around the passageway. They balked when they saw me, visibly embarrassed—and for good reason. Jacob was deep inside First Date. By my estimate, he was no more than two arm's lengths from the body. He was calling back to his friends about how close he was to touching the corpse. I didn't chew him out in front of his friends, but I gave him an earful on the way home—not just about disrespecting the dead, but about the diseases he could catch from bare-handing a rotting corpse.
+
+I moved toward the mouth of the passage to help him out, but as my lamp swept the interior, I saw something strange. The man looked further back than he had two days ago. I would've brushed it off as a trick of the light, but the man's expression was also different. Previously, the rocks had been pulling his skin back toward his ears. Now, his cheeks were bunched up toward his nose and his lips were pushed forward into a pout. Two days ago, his struggle toward the exit had been clear; now, it looked like he had died trying to move *backwards*.
+
+As my brother scrambled free, I asked if anyone had touched the corpse, thinking maybe they'd shoved it deeper. They all denied touching the body. One of them suggested bloating, which seemed reasonable enough. Before we left, Jacob told me that the police were finally ready for a recovery, and that Needle Caves would be blocked off entirely on the following morning.
+
+At 2 AM on Wednesday, I was woken up by Jacob, with whom I share a room, getting dressed. He told me he'd lost his phone in First Date and was certain the police would find it during the cleanup. He was terrified he'd lose the device or get in trouble for trespassing on a crime scene, if not both. Exasperated, I offered to go get it for him. I was the more efficient caver, and as the adult between us, I wouldn't get in as much trouble with our parents 
+
+By 3 AM, I was back at the chamber. Like the first time, I heard voices from the darkness ahead. I killed my lamp and listened. The voices were unintelligible, and it occurred to me for the first time that I might be hearing a language other than English. I kept the light off and used the walls to foray deeper until I heard one last set of murmurs, followed by an abrupt silence.
+
+Once I reached the pillar, I turned on my light. The corpse was still in First Date, and I could see the phone on the ground just feet from the bottleneck. I'd brought a reach-extender (the kind of thing you use to pick up trash), but I'd still have to get uncomfortably close to the body to grab it.
+
+I stepped into First Date, the level floor providing a false sense of security until the walls started to pinch. My breath hitched as the rock pressed against my chest and spine. The air was thick with the cloying stench of rot. I pulled my mask tight around my face, but it did little to help.
+
+I came to a sudden halt when I thought I caught a flicker of motion ahead of me. It was subtle—a slight shift of the man's head, like his neck was finally buckling under the weight of his skull. I pinned my light directly on his face and stared at the corpse's gray, waxy skin for some time, but when I heard and saw nothing else, I brushed it off and forced my legs to shuffle the final few steps.
+
+Once I was close enough, I extended the reacher. It took three tries, but the tongs finally clamped around the phone. As I drew it back, I heard a shuffling sound. I snapped my head up, and my light danced over the corpse just as it began to shudder.
+
+Suddenly, the torso lurched forward violently, the head snapping toward the chest with a sickening crack. For a second, I thought the body was imploding, but then it was abruptly jerked backwards through the bottleneck.
+
+When the bloated midsection hit the narrowest part of the rock, it split open like ripe fruit. I could see viscera oozing from beneath the torn skin as the body was forced through the tiny gap. The face was the last thing to go, and if I didn't know any better, I'd say it threw me a pleading look before it was vacuumed into the space beyond.
+
+I stared through the now-empty pinch point. Three men stood in the cramped space on the other side, huddled in the gloom. Their clothing was caked in filth and their hair looked like stiff, grey ropes. The one closest to the gap locked eyes with me and gave me a jagged, yellow grin.
+
+I sidestepped toward the entrance as fast as the rock would let me. The man laughed, disappeared for a second, and reappeared holding a long metal rod—a piece of rebar, I think—which he poked through the pinch point. He thrust the sharpened end at me like a spear, but I was just out of reach. He said something to the others, and then they all scattered into the darkness behind the gap.
+
+I made the ascent faster and more sloppily than I ever have in my life, returning home covered in scrapes. I told Jacob what I'd seen and he seemed to believe me. Later that day, I went to the police to give my account. The officer looked at me disapprovingly the whole time. When I finished, he told me not to waste his time with pranks; according to him, Search and Rescue had already recovered the body hours ago.
+
+I left the station in a state of disbelief. Later in the day, I called them again to confirm the officer's story, and they told me the same thing: the body in First Date had been recovered that morning, and Needle Caves would soon reopen to the public. 
+
+It didn't make any sense. Whoever I'd seen in First Date sure hadn't been police officers. Even if they had been, how the hell did they get past the bottleneck? Most maps of First Date show a small cavern beyond the pinch point, but there has to be more to it than that. I think there's another passage on the other side, but whether it leads upwards to a secret entrance to the cave system, or continues on to a completely unexplored, unmapped labyrinth, I have no clue. 
+
+Of course, all my buddies are saying I hallucinated, which I guess is always a viable option. I have no history of doing so, and I've explored First Date a few times prior without incident, but strange things can happen underground. Once I finish the semester, I'm going back to Kentucky for the summer, and Jacob and I are going to see if we can get some video footage of the other side of the gap with an RC rover. In the meantime, I'll be busy trying to forget those filth-caked faces and the way they grinned at me from a dead-end chamber with no known entrance and no way out.
