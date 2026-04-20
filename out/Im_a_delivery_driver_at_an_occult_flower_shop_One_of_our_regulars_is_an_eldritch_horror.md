@@ -18,7 +18,7 @@ Seemed simple enough. The second one was merely an address and a name: The Mold.
 
 
 
-I was still relatively new to Southwest Sunsets Floral Arrangements at the time, but even so, I'd come to understand the working environment pretty quickly. I let out a jaded sighed, assuming whatever The Mold was would undoubtedly be some kind of grim vision I couldn't unsee, and punched my route into Google Maps. The truth would prove more complex: I was right about being in for a grim vision I couldn't unsee. I was wrong to assume it was The Mold.
+I was still relatively new to Southwest Sunsets Floral Arrangements at the time, but even so, I'd come to understand the working environment pretty quickly. I let out a jaded sigh, assuming whatever The Mold was would undoubtedly be some kind of grim vision I couldn't unsee, and punched my route into Google Maps. The truth would prove more complex: I was right about being in for a grim vision I couldn't unsee. I was wrong to assume it was The Mold.
 
 
 
