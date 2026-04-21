@@ -14,9 +14,10 @@ This letter is not about budget reports.
 
 I'm going to post it here because I genuinely don't know what else to do with it and I haven't slept in three days and my brain isn't working right. If anyone has any idea what they're looking at please tell me.
 
->*Director Harlan*,
-
-*I am writing to formally raise concerns regarding the trajectory of Project GREENFIELD following the conclusions drawn from our Q4 1967 assessment. As you are aware, the cellular response observed in the Phase 3 specimens has exceeded all projected parameters by a significant margin. What was initially documented as accelerated growth has presented in the most recent samples as something our current models cannot adequately explain.*
+>*Director Harlan*,  
+*I am writing to formally raise concerns regarding the trajectory of Project GREENFIELD following the conclusions drawn from our Q4 1967 assessment.*   
+  
+*As you are aware, the cellular response observed in the Phase 3 specimens has exceeded all projected parameters by a significant margin. What was initially documented as accelerated growth has presented in the most recent samples as something our current models cannot adequately explain.*
 
 *I want to be precise here because I think precision matters: we are not observing mutation in the traditional sense. The specimens are not simply changing. They are responding. The distinction may seem semantic but I do not believe it is.*
 
