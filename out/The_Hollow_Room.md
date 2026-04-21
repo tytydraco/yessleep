@@ -15,3 +15,5 @@ Now I rot. Sitting in the same room, in the same chair, staring blankly at nothi
 Nothing feeds me. Nothing gives me strength. Even hope, when it comes, arrives weak and flickering, only to be swallowed by the dark before it can warm me. The world asks me to keep going, yet offers no reason why.
 
 So I will rot here, quietly and slowly, while the days pile upon me like dirt over a grave. Rot until the last of my days, however long that may be, waiting for something I cannot name and no longer believe will come.
+
+\*\*\*Please do not narrate this story without permission\*\*\*
