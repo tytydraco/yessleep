@@ -36,6 +36,8 @@ One explanation would be shared psychosis or ‘Folie à deux’ as I learned it
 
 She seems to be better this morning. None of the gait or hand-wringing. She even gave me permission to call her roommate for collateral history.
 
-I apparently have a drug rep dinner downtown next week, a couple of blocks from that intersection. I know I shouldn’t indulge delusional material. I know better. But I checked my reservation email twice this morning to make sure it was still there. I don’t remember signing up for the dinner. And the invite link email and reservation confirmation were received at 2:13pm. At that time I was in a family therapy meeting for a patient with first break psychosis.
+I apparently have a drug rep dinner downtown in a couple days, a couple of blocks from that intersection. I know I shouldn’t indulge delusional material. I know better. But I’ll let everyone know what I find. 
+
+I checked my reservation email twice this morning to make sure it was still there. I don’t remember signing up for the dinner. And the invite link email and reservation confirmation were received at 2:13pm. At that time I was in a family therapy meeting for a patient with first break psychosis.
 
 If anyone has any suggestions, I would greatly appreciate it. I have to get back to charting.
