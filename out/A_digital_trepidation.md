@@ -1,0 +1,29 @@
+When I was around thirteen I used to frequent this dress up chibi game with a built in chatroom. It was straightforward, you customized a few characters, selected one, and that would be the avatar for your chat logs. It was global, with many different channels for any niche discussions. Of course, being the edge teen I was, I joined the "Horror" chat room. 
+
+It was nothing outlandish, mostly people roleplaying different popular creepypasta characters or making their own. It was fun, and looking back I did enjoy my time I spent chatting away, building scenarios with other creepypasta enthusiasts. I can't speak much for the other channels; to be honest, I was a bit of a one trick pony. 
+
+Eventually roleplaying established characters grew dull. I wanted something new, something interesting. So I switched back to the avatar slots and created my first original character; ever. To be completely fair, I wasn't the aspiring designer I gave her white hair adorned with green accessories, (my favorite color.) small markings on her face, and one green eye; along with a red one. It was predictable, and cringey, however fun in that moment. My inability to be creative while forming it followed to her name: Jackie. Not the most unique or interesting choice...but I knew a lady named Jackie and that was enough reason in my mind. Not that she was creepy in her own right.(Lol)
+
+Quickly, Jackie became my favorite character to roleplay as. I could make up things about her on a whim, and her story was completely my choice. I decided not to really give her a background, didn't feel like she needed one. Maybe that was my first mistake. Making her too vague, too unexplored. However..the months I spent presenting as her, building what small scraps of a story I had came up with, letting others see my juvenile work on that chat didn't really lead to anything substantial with the story I had concocted..so I simply deleted her. Went to make a new character, someone new to enjoy. 
+
+Then it became clear how misguided my actions were. The discrepancies started small. Glitches here and there, a killer lag spike one in a while, the occasional unprompted restart. I figured it was some storage issue or malware of some kind. So naturally I looked into it, set my phone into safe mode so I could see if anything needed altering. Nothing. Took the SIM card out, made sure no dust or debris had settled. Again, nothing. My efforts were just as useful as my findings. I accepted the issues for awhile. I had no choice really. It was the only device I had. For a bit, I lived with the technical issues, powered through the mishaps. Ignorance is bliss.
+
+Until it demanded my attention. Using my phone would be a trial in itself. Opening an application, an uphill battle. I'd be pulled from whatever I was busying myself with to strange website windows. Tabs I never opened. At times it would freeze and take a day to gather it's bearings. I preformed a factory reset, fearing it was some virus or a hacker. For a time that worked. 
+
+When I finally got back on that chibi dress up app, I made a perplexing discovery. 
+
+Every character slot was filled with a recreation of Jackie. Just as she was before I deleted her. Each one. Then it reseted. My characters were back, but I had seen it. Seen her. It made no sense, it should be impossible. Logically, I had just hallucinated it. At least that's what I tried to believe for a while. It didn't work, though. It just got more persistent. It was driving me crazy. I felt like I was being watched, listened to, like everything I did it was analyzing. Waiting for the perfect moment to show itself- herself. Telling someone sounded unhinged. Like it wouldn't matter. However eventually, I needed to share what I had been dealing with. The hours of disturbing occurrences. 
+
+I remember one night after school I had called my best friend, Jable. He was pretty good with technology and usually fixed things I had issues with. I told him about the glitching, the mysterious tabs, the restarts..Jackie. Jable quickly assured me it was most likely some virus I picked up downloading music or playing old flash games. He talked me down over the phone. Assured me Jackie would not be tracking me down or listening into my conversations. She wasn't real. 
+
+Right after he said it, the line cut. A bit rude of him to hang up. I remember cursing him internally. 
+
+About an hour later he called back, telling me his phone bad completely shut off and had taken a while to boot back up. That it was having internal resistance. As we chatted about the strange occurrence, we heard some unfamiliar feedback. A woman's voice. Low in the static hum of the old calling apps we adored. I remember us both falling silent. Listening to it, we couldn't understand a word it said, but felt it was mocking us. We agreed to hang up and power off our devices for the rest of the night. 
+
+That next day at school I let Jable look at my phone, see if he could find anything. If I was being hacked or just had some weird audio overlay. He helped me reset my phone again..and well, when you power it on a voice says the brand name. It spoke, but the words were off. It was still a woman..but instead of the brand, we heard laughter.
+
+Shortly after that it powered off for good. I still have it, but it's bricked itself. To be completely transparent, I'm not keen on getting it fixed. 
+
+Sometimes I see it sitting on my dresser. Covered in a thin layer of dust. What if it's waiting? Hopefully, it's just an old broken phone. Surely it's over by now.
+
+(Jable is not a real name, my friend just insisted this be his alias.)
