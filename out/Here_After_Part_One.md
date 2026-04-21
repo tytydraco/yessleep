@@ -1,10 +1,10 @@
 In 2023, half of my town died.
 
-I don't lead with that to be dramatic; I lead with it because everything else I'm about to tell you lives in the shadow of it, and if I don't say it first, you'll spend the whole time waiting for me to. 
+I don't lead with that to be dramatic; I lead with it because everything else I'm about to tell you lives in the shadow of it, and if I don't say it first, you'll spend the whole time waiting for me to.
 
 So.
 
-Half my town died, and the half that didn't probably wish that they had. 
+Half my town died, and the half that didn't probably wish that they had.
 
 I moved to Briarwood with my little brother and my grandmother and tried to become someone who used past tense when talking about Joséke Grove.
 
@@ -16,7 +16,7 @@ There were six of us, once.
 
 That's the way I keep starting this in my head, and I keep stopping because *once* implies something that's been finished, and I'm not sure any of it is finished. But six is the right number. Six is the number that mattered.
 
-Morgan and Bellamy—that's my brother and me. I'm nineteen. Morgan is seventeen and thinks he's older. 
+Morgan and Bellamy—that's my brother and me. I'm nineteen. Morgan is seventeen and thinks he's older.
 
 Our parents are gone.
 
@@ -26,7 +26,7 @@ Annabella—Anna—is eighteen and has been eating dinner at our grandmother's t
 
 Drew is the only one who stayed.
 
-I think about that more than I probably should. After the fire, when everyone who could leave did—when the county was recommending evacuation, when the Red Cross was setting up in Briarwood and Claremore and Tulsa, when my grandmother was loading Morgan and me into her car, and Morgan was screaming that we had to go back—Drew stayed. She lives with her aunt three blocks from where the church used to be. She drives a truck that is held together by rust and goddamn stubbornness and some "mechanical principle" I don't understand. 
+I think about that more than I probably should. After the fire, when everyone who could leave did—when the county was recommending evacuation, when the Red Cross was setting up in Briarwood and Claremore and Tulsa, when my grandmother was loading Morgan and me into her car, and Morgan was screaming that we had to go back—Drew stayed. She lives with her aunt three blocks from where the church used to be. She drives a truck that is held together by rust and goddamn stubbornness and some "mechanical principle" I don't understand.
 
 She sends voice memos instead of texts because she says typing is for people who have time. She has never (in the entire time that I've known her) admitted to being scared of anything, and I've watched her be scared. She's just decided it doesn't count unless she says it out loud.
 
@@ -34,7 +34,7 @@ Ronnie moved to Tulsa after the fire and started building a life out there like 
 
 And then there's Page.
 
-Page Daniels is—*was*—is twelve years old. That sentence doesn't make sense, and it never will. She was twelve in 2019, which was the last year any of us saw her, and she should be nineteen now, same as me, and I have spent seven years doing the math on what nineteen-year-old Page would look like, what she'd be studying, whether she'd still laugh the way she did—I imagine this enormous surprised laugh, like joy caught her off guard every single time.
+Page is—*was*—is twelve years old. That sentence doesn't make sense, and it never will. She was twelve in 2019, which was the last year any of us saw her, and she should be nineteen now, same as me, and I have spent seven years doing the math on what nineteen-year-old Page would look like, what she'd be studying, whether she'd still laugh the way she did—I imagine this enormous surprised laugh, like joy caught her off guard every single time.
 
 She had a backpack covered in iron-on patches that were mostly planets. She was going through a space phase that summer, and she'd tell you more about Jupiter's moons than you ever wanted to know and somehow make you want to know more. She walked home from school the same route every day, past Elizabeth Park, past Quapaw, past the Spraggins' house with the mean dog that she had somehow made friends with.
 
@@ -44,9 +44,9 @@ On March 22nd, 2019, she didn't come home.
 
 Her backpack was found at the Elizabeth Park tree line. No shoes. No sign of a struggle. No Page.
 
-I was twelve too, that year. Morgan was ten. 
+I was twelve too, that year. Morgan was ten.
 
-We grew up, and Page didn't. 
+We grew up, and Page didn't.
 
 The town had a vigil and the county searched the woods and her parents put up flyers that the rain took down and put up more flyers and we all kept the porch lights on for a while, the whole neighborhood—and then the fires started, and everything became about the fires, and Page became a little grief we folded into a larger grief, and I hate that. I hate that her disappearance got swallowed by something bigger. She *deserved* to be the biggest thing.
 
@@ -58,7 +58,7 @@ The first one was 1933—Wilbur First Pentecostal Church, January, four days of 
 
 The second one was in 2003. Five days this time. 233 dead, 333 missing. Someone's security camera picked up audio from inside—laughter, through the fire, clear, until it wasn't.
 
-I grew up knowing these stories because it's local history— something historical, something that happened to other people in another time. The church reopened in 2018. My parents went twice. They said the sermons were intense but moving nonetheless. They couldn't describe what was moving about them.
+I grew up knowing these stories because it's local history—something historical, something that happened to other people in another time. The church reopened in 2018. My parents went twice. They said the sermons were intense but moving nonetheless. They couldn't describe what was moving about them.
 
 The recordings from those sermons, when you play them back, contain something underneath the pastor's voice, like a scream. A sustained scream that the people in the room didn't consciously hear. I guess it was something that made them want to come back. Something that made them want to stand outside the building on their off days, just to be near it.
 
