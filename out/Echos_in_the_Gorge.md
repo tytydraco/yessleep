@@ -122,7 +122,7 @@ Then came the sound of their zipper. I heard Garret emerging, grumbling under hi
 
 I turned my attention back to Vicky
 
-\*“\*What the fuck?!” Garret shouted from somewhere outside the camp.
+“What the fuck?!” Garret shouted from somewhere outside the camp.
 
 ***BANG BANG.***
 
