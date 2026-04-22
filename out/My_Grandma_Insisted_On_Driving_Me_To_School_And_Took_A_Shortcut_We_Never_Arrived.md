@@ -92,4 +92,4 @@ I had been knocked cold in a car crash, obtaining injuries. I woke up somewhere 
 
  “Unintentionally lying”, they put it, “Given your state”. My stepdad, and mom were the same. So yeah, that’s it, that’s what I remember. About the dream, it changes my view on everything and…
 
- Well, I think I changed my mind about sharing the dream, I don’t want to be made fun of for being crazy or anything. For now, that'll have to do.
+ Well, I think I changed my mind about sharing the dream, I don’t want to be made fun of for being crazy or anything. For now, that'll have to do. [Part 2](https://www.reddit.com/r/nosleep/comments/1ssoelr/my_grandma_insisted_on_driving_me_to_school_and/)
