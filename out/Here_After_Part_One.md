@@ -101,3 +101,5 @@ And then, fifteen seconds after the photo, a second message.
 I read it four times.
 
 By morning, all five of us were driving back into Joséke Grove for the first time since 2023.
+
+[Part Two](https://www.reddit.com/r/ImFunerals/comments/1ss7v65/here_after_part_two/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
