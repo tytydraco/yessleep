@@ -1,3 +1,5 @@
+[**UPDATE: We inherited a demon. The Jersey Devil isn't a myth… it’s been hibernating under my childhood bedroom for three hundred years.**](https://www.reddit.com/r/nosleep/comments/1snzxpm/we_inherited_a_demon_the_jersey_devil_isnt_a_myth/)
+
 I was eight years old when I lost my older brother. I wanted to keep him. I even asked Santa not to let him be taken away. I guess that was too much of an ask. Now, we’re snowed in together for the weekend, and are working out what to do with the discovery we’ve made while clearing out the basement of our late parents.
 
 It may come across as a cliché, but 9/11 really did change everything. Things weren’t exactly idyllic, but we were happy and cared for. But then the nineties were over, my never-ending childhood suddenly ended when my brother signed up for the army and was deployed to Afghanistan.
