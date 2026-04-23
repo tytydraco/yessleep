@@ -1,4 +1,6 @@
-Tom died ten years ago at a weird time in my life and I just realized he's been sending me messages ever since. A few things to know. We were both 13 the year he died. My dad Lars, a mean old man, moved our family across the country to be Civil War reenactors. “It’ll be a great adventure,” he promised.
+Tom died ten years ago at a weird time in my life and I just realized he might still be alive. Living beneath the trapdoor I'm looking down right now. I really wish he'd show his face so I don't have to go down there. It's so dark. I'm praying that he comes up because otherwise I'll have no choice. I need to know if he's down there.
+
+Let me backup. We were both 13 the year he died. My dad Lars, a mean old man, moved our family across the country to be Civil War reenactors. “It’ll be a great adventure,” he promised.
 
 My gentle mom Maggie was skeptical, but she worshiped my dad and went along with whatever he wanted. “Plus,” she told me as she treated me to a manicure, “it’ll be nice having your father around more.” I avoided her eyes because we both knew that was false. Whenever my dad turned his temper on me, which was often, my mom disappeared, slipped into their bedroom and locked the door. I hated her cowardice even more than I hated his meanness. I promised myself I wouldn’t turn out like her. I’d be brave.
 
