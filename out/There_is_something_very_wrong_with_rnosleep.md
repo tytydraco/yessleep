@@ -1,0 +1,19 @@
+Before you come to me with pitchforks and torches, at least hear me out.
+
+I have always been an insomniac. Way back when I was young enough to eat Legos, I would catch myself staring at the ceiling in the darkness of my room twiddling my fingers, waiting for sunrise. This obviously impacted my everyday life. From my social life to my academic life. I was just too tired to do anything. Ironically, I was more awake at night.
+
+When the pandemic happened, my parents got me my own pc for school and some such. This was when I discovered reddit, and subsequently r/nosleep.
+
+Before the first-hand paranormal accounts and the stingy reddit mods it was a more popular, sister subreddit, of r/insomnia. I mean it’s in the name, no sleep, a goofy, gimmicky place where we can share relatable stories of our experiences, memes, and just chatting around with other insomniacs. It was a dream for a person like me. I didn’t have to pinch myself every time I had to hold a conversation or pay attention to a teacher. Heck, I even made some close friends.
+
+One of these friends was a guy by the name of XxStronk9, Stronk for short. He was one of the moderators for the sub and he was one of the nice ones, the nicest one to be exact. He had a job and a life. A security guard with nothing better to do than to hop on a company computer and shoot the shit with other guys online. We even chatted outside reddit, his real name was Richard, but he preferred Stronk. He was the one that spotted the first “story” of the subreddit.
+
+Help! I’m stuck inside my basement and I’m hearing strange sounds coming from a corner. That was the title of the post. LeMilion23 was the poster, a regular of this sub, and an alright person all around. He locked himself in after getting some sleeping bags and now, he’s just stuck there waiting for rescue. We gave him some company, calming him and, or calling him a dumbass, but he kept going on about this weird noise. Then weeks went by without a single peep from the guy. He was a regular after all and him not being here gave some people the spooks.
+
+A post appeared. The same format, the same poster. But the title changed slightly, there was part two by the side of the original title in parenthesis. He was still going on about his basement but now he was going on about stairs inside his basement like it just kept going on, going deeper and deeper into the earth. That was the last time LeMilion ever posted, but he wasn’t the last.
+
+People left and right posted their own stories and disappeared like that. The regulars went out first, then the newbies. I was lucky enough to unjoin the subreddit before anything else happened. Now the stories outperformed the regular insomnia stuff, leaving it to oblivion. My place of solitude was no more than a place for cheap horror stories.
+
+Stronk was still a moderator before I left. In our discord he was talking about his new apartment situation. There on the kitchen counter he found a list of things he had to do to “survive” the place. I found out about his story two weeks after the talk. Everything the story said checked out with the things he mentioned on our call.
+
+Every single bit of information about r/nosleep was either erased or modified. Now it stands as a refuge for the sleepless souls that have to deal with the horrors of this world, or the world beyond. Throughout the years I have read some truly horrifying things on this subreddit. Most might be fake, sure. And you might even think this is fake as well. But the fact that one, or a few, might be real, still sends shivers down my spine. So be careful out there insomniacs, because you might be next.
