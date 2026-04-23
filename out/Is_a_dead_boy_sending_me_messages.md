@@ -1,4 +1,4 @@
-Tom died ten years ago, when we were both 13, and he’s been sending me messages ever since. I met Tom during a weird time in my life. My dad Lars, a mean old man, moved our family across the country to be Civil War reenactors. “It’ll be a great adventure,” he promised.
+Tom died ten years ago at a weird time in my life and I just realized he's been sending me messages ever since. A few things to know. We were both 13 the year he died. My dad Lars, a mean old man, moved our family across the country to be Civil War reenactors. “It’ll be a great adventure,” he promised.
 
 My gentle mom Maggie was skeptical, but she worshiped my dad and went along with whatever he wanted. “Plus,” she told me as she treated me to a manicure, “it’ll be nice having your father around more.” I avoided her eyes because we both knew that was false. Whenever my dad turned his temper on me, which was often, my mom disappeared, slipped into their bedroom and locked the door. I hated her cowardice even more than I hated his meanness. I promised myself I wouldn’t turn out like her. I’d be brave.
 
@@ -138,7 +138,7 @@ My dad’s quiet for so long  that I think he won’t answer.  Finally, he say
 
 My head pounds. My dad *likes being with* Tom?? What the hell does that mean?  “Why?” My throat is so dry.
 
-“I had an affair with Carol many years ago.” His voice is so quiet, I have to strain to hear him. 
+“I had an affair with Carol many years ago.” His voice is so quiet, I have to strain to hear him.
 
 For a few moments, I feel nothing because the words don’t make sense. I wait for my brain to piece the meaning together. To make it make sense because all I feel is a weight so great pressing down on me, it almost like the ceiling collapsing on my head. I actually drop to my haunches just to collect myself. Tom was my half-brother. Did he know about the affair between our parents? That’s when a thought pops into my head. It’s crazy but the thought comes to me so suddenly and clearly. My dad killed Tom. Tom found out and my dad killed him. My dad is a monster. I’ve always known that. I need to get him to confess.
 

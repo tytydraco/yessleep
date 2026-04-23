@@ -1,6 +1,6 @@
-I dash across the tarmac carrying a blood-red Yeti cooler with both hands, my matching stilettos slipping. A chill runs through me as the wind picks up. Christ, I’m nervous. I would run but I can only move so fast in this red leather Elizabeth Hurley Versace-style safety pin dress. Thankfully the dress is short. I reach the private jet and take the steps two at a time, the Yeti banging against my shins.  
+I will get what I want tonight. I dash across the tarmac carrying a blood-red Yeti cooler with both hands, my matching stilettos slipping. A chill runs through me as the wind picks up. Christ, I’m nervous. I would run but I can only move so fast in this red leather Elizabeth Hurley Versace-style safety pin dress. Thankfully the dress is short. I reach the private jet and take the steps two at a time, the Yeti banging against my shins.  
 
-*It’s not too late to turn around.*
+*It’s not too late to turn around,* a little voice says inside my head. 
 
 No! I’ve worked too hard to join this flesh parade of desirable freaks heading to Andre’s place in San Francisco. It’s the only way to get my daughter back. 
 
@@ -12,7 +12,7 @@ I smiled politely. What was this, some daily affirmation? But then she added, *T
 
 Is she in trouble?
 
-The driver was already starting the car when I raced over to the window to ask why. *Andre likes jokes*, she said*. Most women can’t take a joke.* *That’s why Andre’s women kill themselves.* 
+The driver was already starting the car when I raced over to the window to ask why. *Andre likes jokes*, she said\*. Most women can’t take a joke.\* *That’s why Andre’s women kill themselves.* 
 
 She drove off. 
 
@@ -362,7 +362,7 @@ That’s it! That’s what I’ll do if Fifi tries to report the ticket stolen. 
 
 But what if she cares more about the money? Is this a bad plan? If I take that ticket, Fifi will hate me. It will kill any chance of us getting back together. I look at Fifi. Her eyes are shining brightly. Maybe it’s for the best. She’s never going to end up with me and it’s exhausting trying to hate her. Better to have her do it for me. I force myself to stop shaking my leg.
 
-Okay. Now I need Fifi and Petra to turn around. But how? I scan the back of the plane. *Think.* What would be interesting enough to make them turn? The fridge? No. Anything in the bathroom? No. My eyes stop at the Yeti on the couch. What’s in there? 
+Okay. Now I need Fifi and Petra to turn around. But how? I scan the back of the plane. *Think.* What would be interesting enough to make them turn? The fridge? No. Anything in the bathroom? No. My eyes stop at the Yeti on the couch. What’s in there?
 
 It’s perfect. Fifi will be excited to open it. She’s the curious type. Sure, I was warned not to open the cooler, but who gives a damn now. What’s the worst that’ll happen?  
 
@@ -548,7 +548,7 @@ My heart pounds violently. I have to get to Fifi! I crawl towards her but she’
 
 “Stay away from her,” Jack yells out as the smell of Fiif’s burning skin fills the cabin. “The plane is covered in flame retardant so the fire should go out.” 
 
-This can’t be happening. I'm shaking violently. 
+This can’t be happening. I'm shaking violently.
 
 “It’s funny,” Petra says, her lips trembling. “It’s funny. Ha ha. I can take a joke.”
 
@@ -560,7 +560,7 @@ Vomit creeps up my throat. Is Andre really that sick? Breeding a caterpillar und
 
 “You carried the cooler,” Petra says, her teeth chattering again. “So funny, you were carrying it this whole time. That’s a good joke. Haha.”
 
-I taste the vomit in my mouth as I pull the object towards me. It is a head. The hair is brittle and falls right off. A chill runs down my body. I shouldn’t look. I don't want to know. 
+I taste the vomit in my mouth as I pull the object towards me. It is a head. The hair is brittle and falls right off. A chill runs down my body. I shouldn’t look. I don't want to know.
 
 I turn it over and see the face.
 
@@ -580,7 +580,7 @@ My head hits the metal arm of the chair. Hard.
 
 When I come to, I’m lying in a white room. It smells vaguely of weed. Where am I? What happened to Petra? And Fifi… is she really dead? My throat constricts. I need to figure out where I am. I scan the room. It’s lined with sparsely decorated bookcases, including several TV screens and a huge stainless-steel sculpture of a wasp. There’s a wall of French doors. It's dark out. But even from where I’m lying, I can see the twinkling lights of a city below.
 
-I sit up. I’m on a large couch covered in white animal fur. I run my left hand along the soft, fluffy hairs. So delicate. Gradually, I stand. My feet are bare. The blood red stilettos on the floor nearby. 
+I sit up. I’m on a large couch covered in white animal fur. I run my left hand along the soft, fluffy hairs. So delicate. Gradually, I stand. My feet are bare. The blood red stilettos on the floor nearby.
 
 I’m lightheaded as I get up. My ribs and jaw still hurt, and my right hand is bandaged. I try to move my fingers but can't feel them. I shudder. I hope they're under there.
 
@@ -596,7 +596,7 @@ I swallow hard as I stare at the young face. Younger than I’ve ever seen her. 
 
 My head pounds. Judy knows Andre? For how long?
 
-I bend over and pick up the photograph. Judy can’t be older than 17 in this picture. She might even be younger. I try to do the math. Judy had to be at least 25 when Zephyr arrived at the foster house. 
+I bend over and pick up the photograph. Judy can’t be older than 17 in this picture. She might even be younger. I try to do the math. Judy had to be at least 25 when Zephyr arrived at the foster house.
 
 Judy knew Andre before Zephyr, Fifi, and I arrived? 
 
@@ -619,4 +619,3 @@ Like Joan of Arc.
 *Be not afraid.* 
 
 I know what to do, even if I don’t have a mirror. I drive the stiletto into my forehead, puncturing  the skin. Then I drag the heel down, slicing my face, driving a deep line through to the tip of my nose. Blood runs down my cheek. I wipe it away and keep cutting.   
-
