@@ -1,3 +1,4 @@
+Part 1.  
 “Damn it, Olivia… it’s 4 p.m., we were supposed to leave 3 hours ago,” I said angrily, holding the phone to my ear and packing the last suitcase into the car.
 
 “I know, there’s nothing I can do about it. I was supposed to stop by the office for two hours to help the girls with a few things because there are a lot of clients, and my boss kept piling more work on me. I can’t say no, you know we need the money,” she said in a raised voice, then added after a moment.
@@ -5,7 +6,7 @@
 “I’m finishing up now. I’ll be home in 30 minutes at the latest. Pack the car, I’ll get back and we can go.”
 
 I hung up.  
- It wasn’t the first time her boss had made her come into work, even on her day off.
+It wasn’t the first time her boss had made her come into work, even on her day off.
 
 She worked at an insurance company and they always had problems finding employees.
 
@@ -14,15 +15,15 @@ Olivia agreed to it, and even though it irritated me, I kept quiet because she w
 I’m a graphic designer. I pick up jobs that are becoming fewer and fewer every year, while I fight competition and the rise of artificial intelligence by offering rates that sometimes translate into less than minimum wage.
 
 This trip was our dream honeymoon, delayed over and over again.  
- We got married over a month ago, but because of work, we had already postponed the trip several times.
+We got married over a month ago, but because of work, we had already postponed the trip several times.
 
 We agreed together that we simply wanted to go somewhere where we would have peace from people, technology, and could focus only on each other and resting.
 
 So I found us a cabin in the woods near the town of Pineville, Kentucky.  
- It was beautiful, nothing around it but forest, silence, and peace, and if we needed anything, we had about 2 miles to town, where there were local shops.
+It was beautiful, nothing around it but forest, silence, and peace, and if we needed anything, we had about 2 miles to town, where there were local shops.
 
 Forty minutes passed, and Olivia still wasn’t there.  
- I dialed her number again.
+I dialed her number again.
 
 “Are you on your way back? Damn it, that’s like a 4-hour drive, we’re going to arrive at night,” I said, losing the last bit of my patience.
 
@@ -33,7 +34,7 @@ I hesitated, but after a moment I answered, “Of course I called. Everything is
 “Good. Let’s not argue. I’ll be home soon. I love you,” she said, and hung up.
 
 A chill ran down my back.  
- In all the stress and chaos, I had forgotten to call Mrs. Sofia.
+In all the stress and chaos, I had forgotten to call Mrs. Sofia.
 
 In theory, we were supposed to be there in 20 minutes to pick up the keys. How was I supposed to tell her that we were only just leaving?
 
@@ -76,7 +77,7 @@ After another pause, she spoke.
 I sighed with relief.
 
 I knew the cabin owner would be angry, but I didn’t expect her to take offense to that extent.  
- Older people are naturally punctual, and apparently that really got under her skin.
+Older people are naturally punctual, and apparently that really got under her skin.
 
 The doorbell rang, and I nearly jumped, suddenly pulled out of my thoughts.
 
@@ -95,7 +96,7 @@ We set off.
 The drive from Cincinnati to Pineville is about 220 miles, which is roughly a 4-hour drive.
 
 The route went by pretty quickly. We talked trash about Olivia’s boss, laughed, joked around.  
- We were simply enjoying free time and the lack of pressure from responsibilities the next day.
+We were simply enjoying free time and the lack of pressure from responsibilities the next day.
 
 “We should be there in 20 minutes. I can’t wait until we arrive, drink some wine, and get into bed,” I said, grinning from ear to ear.
 
@@ -246,7 +247,7 @@ Sure enough, in the panel on the left side, there was a section labeled “addit
 I looked at my phone. I felt heat rush to my head.
 
 When I talked to her for the first time, she was a kind, sweet old lady…  
- After the payment, she had turned into a nasty old lady.
+After the payment, she had turned into a nasty old lady.
 
 I took three deep breaths, slowly letting the air out of my lungs. I wasn’t going to let this trip be ruined.
 
@@ -297,8 +298,8 @@ The axe cut through the air, splitting the piece of wood into two perfect halves
 James looked over the axe blade, turning it in his hand as he spoke.
 
 “This little axe is too small for these pieces of wood, so you’re going to struggle a bit.  
- Seriously, Sofia could invest a little here if she wants to rent this cabin out to people.  
- Anyway, when did you get here?”
+Seriously, Sofia could invest a little here if she wants to rent this cabin out to people.  
+Anyway, when did you get here?”
 
 I looked at him, full of admiration.
 
@@ -479,4 +480,3 @@ I quickly got out of bed and went downstairs.
 Standing halfway down the stairs, I froze, and my heart beat harder.
 
 The door to the outside was open, and Olivia was nowhere to be seen.
-
