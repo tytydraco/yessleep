@@ -10,9 +10,9 @@ I used to work in a corporate office. I was paid a 6 figure salary. I had benefi
 
 You’d think this is the dream. But every day was a little more empty than the last. This was the dream my parents had for me when they came to America. Success, wealth, popularity. But I didn’t want this.
 
-It broke their heart when I told them I was quitting  my job, that I had enough money to retire at 29, I’ve made more money than they have in their lifetime, that I was fine.
+It broke their heart when I told them I was quitting  my job, that I had enough money to retire at 29. I made more money in my short career then they had in their lifetime. I would be  fine.
 
-They stopped talking to me for a while. A patented dream for their children isn’t something so easily cast aside and forgotten about.
+They stopped talking to me for a while. A parents’ dream for their children isn’t something so easily cast aside and forgotten about.
 
 In that time off. I tried hobbies, played some sports, learned some cooking skills. Then I volunteered at nursing homes, community centers… None of it helped the “ache”.
 
