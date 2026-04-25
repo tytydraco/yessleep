@@ -14,7 +14,7 @@ It broke their heart when I told them I was quitting  my job, that I had enough 
 
 They stopped talking to me for a while. A parents’ dream for their children isn’t something so easily cast aside and forgotten about.
 
-In that time off I tried hobbies, played some sports, and learned some cooking skills. Then I volunteered at nursing homes, community centers… None of it helped the “ache”.
+In that time off I tried hobbies, played some sports, and learned some cooking skills. Then I volunteered at nursing homes and community centers… but none of it helped the “ache”.
 
 I felt this empty thing inside of me, growing, eating me from the inside out. Is this the rest of my life? I would ask that constantly.
 
@@ -38,7 +38,7 @@ But I do remember the job requirements:
 4. Must be able to handle multiple tools and instruments.
 5. Must be able to operate a pallet jack.
 
-Five requirements. Some weirder than others. But something pulsed in me. Something that had my attention more than any woman had, more on edge than any shark deal, something more…
+Five requirements. Some weirder than others. But something pulsed in me. Something that had my attention more than any woman, something that had me more on edge than any deal I made, and there was just something more about this that had me fired up.
 
 I clicked the attached documents. I even had the option to share documents to lawyers, but only after signing an electronic NDA  and Noncompetitive agreement. My lawyer read the documents after I assured her that it wasn’t a Joke.
 
@@ -50,7 +50,7 @@ She paused for a moment before fulfilling her legal obligation, “this is a leg
 
 The pay was hourly, I was able to quit anytime and still retain the starting bonus, and the only commitment I had was the NDA and NCA that I had already accepted.
 
-I signed the documents. I started on Monday. My instincts itched at the possibility that this was something… I was searching for.
+I signed the documents. I started on Monday. My instincts itched at the possibility that this was something I had been searching for.
 
 Monday came faster than I thought it would. I arrived at a company warehouse. There were 5 other men of different ages, heights, weights, and fitness. We talked a bit but quickly ran out of things to say. Yet we all shared a vibe. Like… what we said to each other didn’t mean much. We could give our whole life story but none of us were interested. We were here for one thing only. This job.
 
@@ -68,7 +68,7 @@ We had a 2 hour course on how to operate a pallet jack.
 
 It wasn’t a fancy electric one either. It was a normal pallet jack.
 
-The woman’s name was Bernadette. A midwestern woman with kind mannerisms, a motherly exterior, but with the body of a farmer who’d worked her whole life. Her handshake felt like poured iron, hardened by years of labor when I met her.
+The woman’s name was Bernadette. A midwestern woman with kind mannerisms, a motherly exterior, but with the body of a farmer who’d worked her whole life. Her handshake, when I met her and offered my name, felt like poured iron, curling around my hand. 
 
 She was our shift leader. She would handle the work assignments and teach us what we needed to know. After orientation, we were treated to lunch. I can’t say where we went, I don’t want people to know where we are, but, we went to a place that sells amazing chicken. You know the place.
 
