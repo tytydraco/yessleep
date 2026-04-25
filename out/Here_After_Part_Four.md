@@ -1,6 +1,6 @@
 Parts [One](https://www.reddit.com/r/nosleep/comments/1sr9v6a/here_after_part_one/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) / [Two](https://www.reddit.com/r/ImFunerals/comments/1ss7v65/here_after_part_two/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) / [Three](https://www.reddit.com/r/nosleep/comments/1st6a9m/here_after_part_three/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-The man wearing my father's jacket stood at the edge of the neighbor's yard with his hands in his pockets, the *exact* way my dad used to stand. I remember it from my baseball games years ago, him by the fence, his right knee slightly bent. 
+The man wearing my father's jacket stood at the edge of the neighbor's yard with his hands in his pockets, the *exact* way my dad used to stand. I remember it from my baseball games years ago, him by the fence, his right knee slightly bent.
 
 The jacket was the green canvas Carhartt my mom bought him for his birthday in 2021, the one with the oil stain on the right cuff from when he'd helped Mr. Okafor fix his lawn mower that summer, the one with the small burn hole near the hem from when he'd gotten too close to the grill and laughed about it for the rest of the cookout. The jacket we buried him in was because Morgan said Dad would want to be warm, and I didn't have the heart to tell my baby brother that corpses don't get cold.
 
@@ -70,7 +70,7 @@ I heard Nana Dot's screen door open.
 
 "Bellamy, you get your ass back in this house right now," she called.
 
-Anna walked me back across the street, her hand tight on my elbow the whole way, and we didn't say anything until we were back on the porch with the door locked, Nana Dot putting the tea kettle on, and Morgan coming down the stairs asking what happened.
+Anna walked me back across the street, her hand tight on my elbow the whole way, and we didn't say anything until we were back on the porch with the door locked, Nana Dot putting the tea kettle on, and Anna standing beside me with her hand still wrapped around my elbow.
 
 "It was here," I said, and my voice sounded far away. "It followed us to Briarwood."
 
