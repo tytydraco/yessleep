@@ -4,7 +4,7 @@ His brother, my uncle, took me in after. A heartwarming gesture, only if Uncle T
 
 You can do the math.
 
-Seven years of living with him wasn’t the worst experience one could imagine. He was a narcissist, through and through. I’m still dealing with the trauma of living with him. I love how he told me that *I* should be grateful for his “sacrifice”. I’ve developed weird habits because of that man, and things only got really bad as I approached adulthood. He’d say, “You’re aging so nicely,” as he’d run his fingers through my hair.
+Six years of living with him wasn’t the worst experience one could imagine. He was a narcissist, through and through. I’m still dealing with the trauma of living with him. I love how he told me that *I* should be grateful for his “sacrifice”. I’ve developed weird habits because of that man, and things only got really bad as I approached adulthood. He’d say, “You’re aging so nicely,” as he’d run his fingers through my hair.
 
 That should illustrate my situation perfectly. I don't enjoy being overly gruesome and dark. But sometimes reality is reality, burying it will do no good. I'm also very particular, and I notice things most people wouldn't pick up on. So believe me when I say that I know my cat is getting heavier.
 
@@ -320,11 +320,11 @@ Derrick seemed to be relieved by that. 
 
 With that, our conversation ended, and my curiosity had mounted even further about this piece of paper. But I was certain whatever it was was just a sick prank. I took the note and went to my part of the apartment. 
 
-When I entered my room, Boxes greeted me, as usual. I went to pet them and noticed something coating their fur. It was small and brown. I guess it was dirt? But it couldn’t be dirt because Boxes stays in my room all day. Unless Derrick is letting him outside while I’m at work? I don’t know why he’d do that.
+When I entered my room, Boxes greeted me, as usual. I went to pet them and noticed something coating their fur. It was small and brown. I guess it was dirt? But it couldn’t be dirt because Boxes stays in my room all day. Unless Derrick is letting her outside while I’m at work? I don’t know why he’d do that.
 
-By the time I entered my room and saw my beloved cat, my interest in the note and what it could say had faded. I watched a movie on my phone, and Boxes was next to me the entire time. He even got wet food tonight for keeping me such good company. I know Boxes undoubtedly suffered for quite some time, but I was glad I found them. I’m glad we found each other.
+By the time I entered my room and saw my beloved cat, my interest in the note and what it could say had faded. I watched a movie on my phone, and Boxes was next to me the entire time. She even got wet food tonight for keeping me such good company. I know Boxes undoubtedly suffered for quite some time, but I was glad I found them. I’m glad we found each other.
 
-All was normal for quite a while, until I was startled by Boxes' wheezing. He was right by my head, and the wheezing was way louder than normal. When I opened my eyes, there was no Boxes. Then I noticed my nightlight wasn’t on. I swallowed hard as I felt around for my cat, but I was alone. That was until I saw a figure standing at the end of my bed. Its outline was thin and emaciated. Its chest rose almost in an exaggerated manner, then it exhaled. Its head was ivory white. Amber eyes filled the darkness.
+All was normal for quite a while, until I was startled by Boxes' wheezing. She was right by my head, and the wheezing was way louder than normal. When I opened my eyes, there was no Boxes. Then I noticed my nightlight wasn’t on. I swallowed hard as I felt around for my cat, but I was alone. That was until I saw a figure standing at the end of my bed. Its outline was thin and emaciated. Its chest rose almost in an exaggerated manner, then it exhaled. Its head was ivory white. Amber eyes filled the darkness.
 
 I couldn’t move. I just stared at the thing. With each breath, the wheezing intensified, followed by a gurgling coming from deep within. 
 
