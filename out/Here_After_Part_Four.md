@@ -176,7 +176,7 @@ We left him there with his phone and instructions to text if anything felt wrong
 
 Downtown Joséke at dawn was still half-empty and still wrong. We parked at Lilac Park and walked.
 
-The church rubble was three blocks south, behind the chain-link fence with the NO TRESPASSING sign, the same sunflowers tied to the fence that had been there two days ago, the same charred foundation and dead grass.
+The church rubble was three blocks south, behind the chain-link fence with the NO TRESPASSING sign, the same sunflowers tied to the fence that had been there yesterday, the same charred foundation and dead grass.
 
 Drew had bolt cutters.
 
