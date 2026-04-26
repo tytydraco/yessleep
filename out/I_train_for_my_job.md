@@ -2,7 +2,7 @@ My name is Tom.
 
 It says it right here on my name tag. I work at a major retailer and they don’t like to advertise this but we sell “everything.”
 
-You may need a Knick knack for a kids party by tomorrow and we will get there today. You want a copy of your latest smutty book about dragons that’s sold out, we got you covered. We do what we can to provide services.
+You may need a Knick knack for a kids party by tomorrow and we will get there today. You want a copy of your latest smutty book about dragons sold out, we got you covered. We do what we can to provide services.
 
 I work the supply chain of this retailer and I gotta say, we do our best. The pay isn’t great for the amount of work, but— talking with the guys, we all agree, we love working here. There’s something about being able to leave the job, knowing you’ve done the best for everyday people. People like us.
 
@@ -10,9 +10,9 @@ I used to work in a corporate office. I was paid a 6 figure salary. I had benefi
 
 You’d think this is the dream. But every day was a little more empty than the last. This was the dream my parents had for me when they came to America. Success, wealth, popularity. But I didn’t want this.
 
-It broke their heart when I told them I was quitting  my job, that I had enough money to retire at 29. I made more money in my short career then they had in their lifetime. I would be  fine.
+It broke their heart when I told them I was quitting  my job, that I had enough money to retire at 29. I made more money in my short career then they had in their lifetime. I would be fine.
 
-They stopped talking to me for a while. A parents’ dream for their children isn’t something so easily cast aside and forgotten about.
+They stopped talking to me for a while. A parents’ dream for their child isn’t something so easily cast aside and forgotten about.
 
 In that time off I tried hobbies, played some sports, and learned some cooking skills. Then I volunteered at nursing homes and community centers… but none of it helped the “ache”.
 
@@ -68,19 +68,19 @@ We had a 2 hour course on how to operate a pallet jack.
 
 It wasn’t a fancy electric one either. It was a normal pallet jack.
 
-The woman’s name was Bernadette. A midwestern woman with kind mannerisms, a motherly exterior, but with the body of a farmer who’d worked her whole life. Her handshake, when I met her and offered my name, felt like poured iron, curling around my hand. 
+The woman’s name was Bernadette. A midwestern woman with kind mannerisms, a motherly exterior, but with the body of a farmer who’d worked her whole life. Her handshake, when I met her and offered my name, felt like poured iron, curling around my hand.
 
 She was our shift leader. She would handle the work assignments and teach us what we needed to know. After orientation, we were treated to lunch. I can’t say where we went, I don’t want people to know where we are, but, we went to a place that sells amazing chicken. You know the place.
 
 After lunch, we were herded back into the warehouse and down to our floor. We moved quickly to a door we hadn’t been allowed to enter when we toured the facility during orientation.
 
-“Alright everyone, since we are wide eyed and bushy tailed, fully fed and ready to go, let’s get to the first stage of the job. it’s your first day, but we’re really gonna try to weed out those of ya who don’t have the stomach for this kind of work.
+“Alright everyone, since we are wide eyed and bushy tailed, fully fed and ready to go, let’s get to the first stage of the job. it’s your first day, but we’re really gonna try to weed out those of ya who don’t have the stomach for this kind of work.”
 
 Pressing a button on her wrist watch. The door opened… hissing as it did. The opening was obscured by long strips of plastic that covered the entrance to stop bugs getting in. We followed Bernadette into the area and halogen lighting clicked on.
 
-We had to blink a couple times to get used to it but when we did… a part of me wished I hadn’t. White tiles lined the floors, creeped up the walls, but stopped at conveyer line on the ceiling, hooks—  hanging from them. 7 bodies, wrapped in plastic tape hung from them. One for each hook in this space.
+We had to blink a couple times to get used to it but when we did… a part of me wished I hadn’t. White tiles lined the floors, creeped up the walls, but stopped at a conveyer line on the ceiling, but it was the hooks that horrified me. Or what was on them—  hanging from them. 7 bodies. wrapped in plastic wrapping. One for each hook in this space.
 
-It’s important to note, that the hooks had a padded Velcro restraint wrapping around the ankles of the person. Each one seemed to be male, with closely cropped hair,  different nationalities, and ages. They weren’t moving. Bernadette walked over to the right wall that I now noticed personal protective equipment. PPE for short.
+It’s important to note, that the hooks had a padded Velcro restraint wrapping around the ankles of the person. Each one seemed to be male, with closely cropped hair,  different nationalities, and ages. They weren’t moving. Bernadette walked over to the right wall that I now noticed held personal protective equipment, PPE for short, in cubby areas. 
 
 A face shield, lab gown, lab coat, gloves, Shoe covers, and what looked to be a gun. 7 identical piles. One for each of us. My stomach lurched. What the fuck?
 
