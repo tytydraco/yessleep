@@ -1,0 +1,43 @@
+I know this may seem like I am crazy or seeing things but for the past few months I have been seeing my dead boyfriend. Let me give some context as best as I can as I don't remember everything that happened. About a year ago, me and my boyfriend got into a horrible accident that left him dead on scene and me being paralyzed from the waist down. As I said, I don't remember what happened prior I just know that our car was found down hill in a ditch. Officials assumed that a car had been coming down the wrong side of the road while taking a tight turn that caused us to run off the road. I was in the hospital for some time and it was believed that I couldn't remember what had happened due to trauma I faced from the wreck.
+
+But as of lately, I have been seeing my boyfriend. Just about everywhere I go or whatever I am doing. His mangled body would stare at me from a good few feet away. Still wearing the clothes he wore the night he died but were torn, covered in mud and blood. His left arm bone sticking out from his elbow as his face was covered in grime and glass from his head smashing through the windshield. Apparently he wasn't wearing his seatbelt when it happened so when we crashed his body almost went flying through the windshield. 
+
+I don't know why I see him, maybe from the grief I carry from it all? But when I look at him. It looks as though he was trying to mutter something out from his torn face. The only thing I can make out of it was 'Your fault'. I don't know why he would be blaming me for it. I don't know how it could be my fault. Why or how would it be my fault? I was just lucky enough to survive the crash due to my seatbelt. 
+
+I had been seeing different psychiatrists and therapists for months but nothing seems to help. I still see him. Now, any time I look off in the distance, I see him. Standing there, not daring to get close as he mutters 'Your fault' over and over. Sometimes it feels like I can hear it. His voice was deep and almost distorted, like there was no making sense of what he was saying but somehow I knew. 
+
+"It's just guilt from the wreck is all, you are in pain from it all and you feel as though it was your fault when in reality it wasn't" My mother would gently tell me, in an attempt to help try to bring my mind more at ease. Always doing what any mother does, comfort their child who is in distress. But it didn't help. No matter what I would still see him. 
+
+A few days ago he began getting closer and closer. Now he would stand outside my window. If I was out with friends I could see him close by in the crowd of people. I tried to ignore him, but I couldn't. It could start feeling his cold death smelling breath against my skin. Sometimes at night as I tried to sleep. I could hear his mangled body shuffling about as I tightened my eyes, still hoping after all of this time that I was just seeing things. But as time went on and the closer he got, it wasn't just in my head. It was reality. Dark and brutal reality. 
+
+One night as I laid in bed trying to sleep, I could hear him moving close to me just as he did almost every night. Haunting me in my times of being awake or being asleep. His bones cracking and popping as he got close, right against my ear. That same cold and death smelling breath against my skin as he whispered in his muffled distorted voice "It is all your fault. You know what you did...but you do not wish to take accountability for it..." 
+
+Then like a hammer against my head, the memories of that night hit me at once. He had been out of town for work, something he had been doing a lot lately and it caused some uneasiness in our relationship. We had grown more distant the more he had to leave. It was as if my heart couldn't take him being gone all the time. I was feeling...lonely. Even hanging out with my friends didn't fill the loneliness I felt in my heart. Till a friend of mine, Joshua, started talking to me. Being there for me when I needed it.
+
+Bringing me comfort where I was hurting inside. We got very close, it was wrong but....I felt so...happy. Happiness I haven't felt for a few months. That night, I was hanging out with Joshua, sitting on his couch watching a shitty romcom movie as he had an arm snaked around my shoulder. Whenever I went to Joshua's I always turned off my location. My boyfriend just assumed I was at my parents house as they lived in the middle of nowhere and I got no signal out there. But tonight, I guess I had forgotten to turn off my location as my boyfriend would start calling my phone. Asking where I was and who's house I was at. I panicked, he knew I wasn't where I said I'd be. Maybe I can tell him I was at a friend's house and we were all hanging out? But that wouldn't work given I told him I'd be with my parents. 
+
+Maybe I could try telling him we were planning a surprise party for his return home as this would have been the last time he'd be going out of town for work? Maybe....but before I could grab my keys to get home. There was a loud bang at the door. 
+
+"Emily!? Emily, are you in there!?" 
+
+I heard my boyfriend angrily call out from the other side of the door. The next thing I knew was Joshua's door being broken down. A terrified scream came from my mouth as I was not expecting such a reaction from him as he was always calm and easy going, never going into such a blinding rage. Once he made his way through, he saw me close by Joshua. Rage took over his entire face as he stared at us. 
+
+"I-I can explain-" I spoke out softly but before I could continue he cut me off. 
+
+"NO, I DO NOT WANT TO HEAR IT. GET IN THE FUCKING CAR NOW" 
+
+He shouted. Never in our entire relationship has he ever raised his voice at me. Even when we argued. Joshua just remained silent, looking down at his feet before he spoke up. 
+
+"She told me... y'all had broken up..." 
+
+He muttered out, throwing me under the bus entirely. With that, my boyfriend would grab me by my wrist. Dragging me to the car. His grip was so tight I could feel my wrist beginning to bruise. My pleas for him to stop didn't seem to reach his ears as he continued to drag me before shoving me into the car. 
+
+Getting into the drive side as he slammed the door with a lot of force, as if the window would shatter if he had put more force into it. His screams and swearing blurring in my mind as he drove us home. Tears swelling my eyes, was it from guilt or the fact I got caught? I couldn't tell at this point. He shouldn't have been gone for work so much, leaving me alone for weeks on end. Hardly being able to hear from him as his job was very demanding. As he continued to yell, something in my mind at the time snapped almost. Like I couldn't think straight, even after everything I didn't want him to leave, I refused to let him. So, as he took the sharp turn on the upward hilled road, I grabbed the steering wheel. Sharply turning it the opposite way of the turn. Going through the weak barrier on the side of the road as our car plummeted down the hill. But I didn't take into account he didn't have his seatbelt on. He must've been too filled with anger to remember to put it on. 
+
+But it was too late, our car rammed directly into a tree at the bottom of the hill. Half of his body went through the windshield once the car met with the tree. The front of the car smashing into my legs. Rendering them completely useless. Soon after the initial strike, I passed out. 
+
+I remember everything now. It was my fault, he was right. After all of this time of following me, muttering those same words. He was forcing me to remember what I had done. Forcing me to remember the horrible action I took that night. Like I had purposely forgotten so I wouldn't have to take accountability for what I had done. But that accountability had manifested itself into my dead boyfriend. Following me continuously to remind me of every waking moment of my life. Haunting me. 
+
+It had been years since that night, the night he had muttered into my ear with that cold breath of his and I still see him. Any date I went on, he was there. Any time I was out with family and friends, he was there. Tormenting me so I do not dare forget what I had done. I stopped going out much, I couldn't stand seeing him in the crowds of people. I couldn't stand seeing him as I was out trying to enjoy life. I kept my curtains closed, but that didn't help as he would always be in some corner of the room. Staring at me, twitching as he muttered the same thing over and over. 
+
+"Your fault, your fault, your fault."
