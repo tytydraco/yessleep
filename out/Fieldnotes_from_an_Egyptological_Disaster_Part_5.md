@@ -1,4 +1,4 @@
-[Part 4](https://www.reddit.com/r/nosleep/comments/1rt1xm6/fieldnotes_from_an_egyptological_disaster_part_4/) | [Derrick's Complete Fieldnotes](https://www.reddit.com/user/Midwest_Horror/comments/1snm9ka/derricks_complete_fieldnotes/)
+[Part 4](https://www.reddit.com/r/nosleep/comments/1rt1xm6/fieldnotes_from_an_egyptological_disaster_part_4/) | [Derrick's Complete Fieldnotes](https://www.reddit.com/user/Midwest_Horror/comments/1snm9ka/derricks_complete_fieldnotes/) | [Final](https://www.reddit.com/r/nosleep/s/ZMos0wzKL4)
 
 Sand stung our eyes. Sam and I leaned against each other as the windstorm buffeted our clothes. More than once, it nearly knocked us to the ground as we trudged back to camp, coughing up muddy spit every step of the way. The once distant wind grew in intensity, howling through the valley in a deafening shriek before softening back into a prolonged wail. I wondered with dismay where the sun had gone. All we had was the communications tent’s yellow glow to guide our path.
 
