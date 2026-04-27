@@ -134,7 +134,7 @@ Soon they were massive and proud, strong and commanding. And woven between them 
 
 She danced around and around as I fell to my knees, the shore of the lake lapping at me lovingly, hungrily. She pulled, and pulled, and pulled, until I collapsed on the ground and stared emptily at the moon. My vision darkened, my emotions faded, and my senses dulled. Everything blackened. The sounds of her chanting, the light of the moon, the cold of the forest... all evaporated.
 
-And the last thing I saw that night was her, standing over me, looking down with that wide, otherworldly smile, her massive antlers framing the moon perfectly. I wondered if I'd seen this before, twice now. If I'd see it a fourth time. And a fifth. I couldn't remember how I'd gotten here, or when. But I finally understood *why*. With a whispered though, I called out to remember.
+And the last thing I saw that night was her, standing over me, looking down with that wide, otherworldly smile, her massive antlers framing the moon perfectly. I wondered if I'd seen this before, twice now. If I'd see it a fourth time. And a fifth. I couldn't remember how I'd gotten here, or when. But I finally understood *why*. With a whispered thought, I called out to remember.
 
 And I fell into the void.
 
