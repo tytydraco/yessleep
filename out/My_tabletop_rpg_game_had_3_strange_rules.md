@@ -1,0 +1,46 @@
+I (31M) recently had the opportunity to play in a game of 'Call of Cthulu' by a close friend of mine. I didn't know most of the players or the GM, just the one friend who invited me, who I'll call Denise (29F). I was never really a big roleplayer, but Denise was super into the scene and managed to win me over with promises of horror elements and the occult, which I love.
+
+The game took place at the GM's house, who I'll call 'Demon' for reasons that will become obvious later. Demon had a really clean appearance, and clearly took care of themself. Their place was a nice, single family home. It had two stories, but we weren't allowed to go upstairs, so we were constrained to the living room and the kitchen. Demon clearly had money, evident in the absolutely souped up kitchen and lavish living room. Me and Denise were the first to show up, so we exchanged a bit of small talk with Demon and each other while waiting for the others.
+
+The rest of the players included a really nerdy looking, super quiet kid who had to be barely 20, I'll call him 'Edward', an older gal who look like she walked straight off the farm, I'll call her 'Edith', and lastly a dude about my age that just would not shut up about ttrpgs, I'll call him 'Bookie'. Once everyone had gathered (Edward was nearly half an hour late!), Demon gathered everyone together at the dining table where they had laid out a ton of books and papers. Everyone took a seat, and Demon started to tell us how to make characters and play the game.
+
+After everyone had put together a character (I made Steven, a paleontologist who studied ancient fossils for signs of the occult), Demon said there were some additional rules to follow (or something along those lines). I remember these rules crystal clear because they were so strange.
+
+1. *Never* take dice from the bottom of the dice bin. (Heavy emphasis on never)
+
+The dice bin in question was this huge tub of dice that sat in the corner of the living room so everyone could have all the dice they need. The thing was so full that you could take handfuls of dice out of it the entire day and never reach the bottom. I was extremely confused as to why Demon made such a big emphasis on not grabbing the bottom ones.
+
+2. Do not acknowledge any sounds not made by me or a player.
+
+This one had me really confused. What, did Demon expect us to get mad at the house for groaning and creaking? The reason for the rule became obvious pretty fast.
+
+3. You cannot leave the house until the game is over.
+
+I got a bit annoyed by that, and made an angry comment, but Demon just stared at me and everyone else was acting like this was normal, so I quieted myself and just went along with it. That rule should have been my cue to get out.
+
+Once the rules had been laid out, the game finally started. It was a cool experience, my guy went and dug up some fossils which led to a clue about the eldritch being hiding in a museum. Then we found the book. Demon said it was making a whisper sound, so Edward decided his character would grab it. Then it happened. All of us started to hear the whispers: quiet, little, indistinguishable words. Edward called it out, and all of us looked freaked out. Demon gave him this glare of death, which I thought was odd since they went to the trouble to setup the sound effects.
+
+Then Edward vanished. I have no idea what happened. One moment there was whispering, and the next it was gone and so was Edward. I thought it was a really fancy trick, and said so aloud. Demon stayed quiet while everyone else seemed relieved that it must have been a really neat party trick. A 10 minute break was called and Demon went upstairs. 
+
+I had managed to lose my dice some how, and needed to grab a few more. I stared at the bin for a few minutes before curiosity got the better of me. I reached in the bin and dug down, but I couldn't seem to reach the bottom. I had my entire arm up to the shoulder inside, straight down, which was definitely longer than the bin itself, but all I could feel was more dice. I grabbed a handful and pulled them out; they looked like ordinary dice.
+
+Edith chided me for breaking the rule, but I showed her the dice, said it was normal dice. Demon finally showed back up, now wearing a long sleeve shirt instead of a short sleeved one. We didn't even have a moment before Demon sat down and resumed the game. No one touched the book again, so we looked for more clues. We managed to dig up a scrap of paper the detailed a banishing ritual, left behind by the old paleontologist that ran the place. In fact Demon had prepared the paper ahead of time, and put an old, yellowed piece of paper torn around the edges which showed an intricate circular ritual pattern and candle lighting order.
+
+I thought that was pretty cool, and decided to take the paper, no one opposed. No weird whispers this time. Around this point in the game, things started to get weirder. A knocking sound kept coming from the stairs, but by this point everyone had learned to keep quiet.
+
+Edith decided to use one of her character's rituals, but Demon abruptly got up, handed this ornate dagger to her, and told her to go upstairs. She understandably got upset and said she was done with this game and was leaving. Demon quietly stood there and watched her go. She opened the front door. I can't remember what happened next, I just know I had this sudden pang of sheer terror, the door was closed, and Edith was gone. I had this sense of complete certainty that she was gone forever.
+
+Now it was just me, Denise, Bookie, and Demon. I was really shaken up, but the rules had proven true so far. I wanted to finish the game and be done with it, so I asked Demon if we could stop playing. They said in that monotone voice of theirs, that the game was not over until we exorcised the demon. I turned to my fellow players, and tried to make some kind of inspiring mini speech, but I'm pretty sure it fell flat.
+
+Bookie then did the same thing that Edith tried to do, since the particular ritual would give us a much needed clue. This time, when demon handed him the dagger, he walked right upstairs. Demon didn't wait for Bookie to come down and kept the game going. Me and Denise were traveling through some sort of underground catacomb that was hidden beneath the museum. Right as we reached a fork a loud THUMP came from upstairs.
+
+Demon looked up, looked at us, and announced that Bookie was no longer playing. I tried to ask what they meant by that, but I couldn't get an answer out of Demon. The tension in the game had been increasingly ramping up, and now we were only down to two players. Demon asked me to make a Sanity check for my player, but stopped me before I could roll. They called me out for grabbing dice from the bottom of the bin. I shakily said something like 'it can't be that bad' and Demon took the dice, and dumped it into Denise's hand.
+
+Demon stared me right in the eyes as they told Denise to make the Sanity check for me. The dice hit the table... and Denise slumped over. I shook her, but she didn't respond. I moved her so I could see her face, and she had this glazed look over her eyes. I laughed, said that her roleplaying is getting a little too real for me, but she didn't listen. My character, the last remaining, walked into the final room. I still had the yellowed paper. Demon told me to go upstairs and complete the ritual.
+
+So I went up the stairs. There was only one room, despite the house clearly being big enough for multiple. When I opened the door and stepped in, I saw Bookie, who was slumped in something wet. I couldn't really tell, the room was super dark and only lit by a single candle. At the center of the room was a pattern I could only barely make out, but it looked like it matched the one on the paper from what I remembered. I had to strain to see, but there also candles placed on it. I took the one candle to read the parchment, then began lighting them as described. When I moved closer to Bookie he was lying in a puddle of red paint. I think. I hope. The ritual circle was made of the same red stuff, just crustier.
+
+When I moved to light the final candle, I swear I saw glaring red eyes just like Demon's staring at me from the hallway. When the candle caught, a light turned on in the room blinding me for a second and illuminating everything. The red paint was everywhere and crusted all over the walls. By this point, I was done. The game had to be over. I rushed downstairs, where Demon was nowhere to be found. Denise was still slumped over, I called out to her that I'd meet her at our next book club meeting and the next few moments were a blur as I rushed out of there.
+
+  
+Its been a week and I haven't been able to contact Denise, she isn't answering her phone like she usually does. I think she's committing hard to the roleplaying bit, but she's taking it a bit too far IMO. I'll see her when we have book club in a few days anyway, might update yall. I'm also never going anywhere near that house nor playing a TTRPG again.
