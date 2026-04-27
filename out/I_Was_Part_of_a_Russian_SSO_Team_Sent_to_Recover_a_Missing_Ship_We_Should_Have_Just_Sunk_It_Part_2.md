@@ -235,3 +235,5 @@ I must apologize for ending here, but as I have said, this site has its limits.
 I will return soon to conclude what happened to me.
 
 Stay safe. Pray.
+
+My [conclusion](https://www.reddit.com/r/nosleep/s/lq5lAiuHa7).
