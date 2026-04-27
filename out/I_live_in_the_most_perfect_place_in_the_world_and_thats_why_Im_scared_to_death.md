@@ -109,3 +109,6 @@
 ​Because the rule is clear: you only survive if you pretend you don’t know.
 
 ​But I think, this time, I knew too much.
+
+NEXT PART:
+https://www.reddit.com/r/nosleep/s/5PAMOkOWoz

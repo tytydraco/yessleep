@@ -44,7 +44,7 @@ But Jesse had a system within a system. He was the top operator so far, and we l
 
 Jesse set up his station, “started the clock” and somehow, on the 4th or 5th spasm, the legs kicked off the Velcro restraint and the transitioned fell onto Jesse. Jesse let out a gurgling moan of pain as we rushed to his station.
 
-Non slip shoes parted the Red Sea, hands tore away plastic sheeting. 250 lbs of meat had fallen, spasming, squirming as Jesse laid under him.
+Non slip shoes parted the Red Sea, hands tore away plastic sheeting. 250 lbs of meat had fallen, spasming, squirming as Jesse laid under it.
 
 “Ghlep— m”, the words were wet on Jesse’s lips as we grabbed the transitioned, and lifted it off our coworker.
 
