@@ -363,3 +363,5 @@ Kait and I finally met each other’s eyes, but the road stole mine back rather 
 As for Carly’s question? I had no idea. We’d learned a lot, but whether any of it was actually worth it?
 
 Well, the whole theme of this tragedy had started and would most likely end with ‘ignorance is bliss’.
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1swwh8e/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
