@@ -528,7 +528,7 @@ It's 11:47 at night.
 
 The hours between getting home and now are blurry. I know we sat in the living room for a while. I know Nana Dot made dinner, and none of us ate. I know Morgan went to his room around six and hasn't come out. I know Drew, Anna, and Ronnie left at some point, said they'd text later, and I haven't heard from any of them except Anna.
 
-I checked on him an hour ago, and he was just sitting on his bed, staring at the wall, and when I asked if he was okay, he said, "She chose to go, Bell. She CHOSE it," and I didn't know what to say to that, so I just closed the door and came back to my room.
+I checked on Morgan an hour ago, and he was just sitting on his bed, staring at the wall, and when I asked if he was okay, he said, "She chose to go, Bell. She CHOSE it," and I didn't know what to say to that, so I just closed the door and came back to my room.
 
 I'm lying in bed listening to the house settle, to the walls, and I keep thinking about Page climbing onto that thing, about the look on her face, about how she'd smiled like she was finally going home.
 

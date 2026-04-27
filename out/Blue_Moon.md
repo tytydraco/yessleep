@@ -41,6 +41,7 @@ These 3-4 trips a year began to affect him financially and soon he became broke.
 If I would have known all of this beforehand, known how everything would turn out in the future, I would have never agreed to go on that search. I was a part of a team of 7 researchers, who were literally the best in the world. With the number of accolades they have won collectively more than twice my age, I was obviously a misfit, a mortal among Gods. But then again, I don't think that I was chosen to be a part of this team primarily because of my achievements or qualifications.. 
 
 I was chosen because I was one of the few people in the world who could speak, write and understand the language of the Beatrek tribe..
+
 I learnt it by studying ancient scriptures and publishings of other researchers.. You might ask, why a sudden inclination towards learning a language of a mysterious tribe, which in all possibility, I might never have the opportunity to implement?
 
 I really don't know..  I felt an unexplainable attraction and connection towards the Beatrek tribe and the Blue Moon , ever since I came across Felix's findings.. His description of the ritual, the tribal members and most importantly, the Blue Moon, captivated and enchanted me... 
@@ -68,6 +69,7 @@ After crawling for about 5 mins, I reached the end of the tunnel and got out. It
 Observing the surroundings, I noticed that it was a small establishment, with houses made up of hay. People, most certainly tribal people, as I can tell by looking at their attire, were going on with their daily lives it seemed. Kids were playing on the roads, women were sweeping in front of their houses, men were walking with.... 
 
 And then it hit me...  Slightly crouched style of walking, spears with poison coated tips, blue face paint..  all of this was too familiar for me to overlook.. this was indeed the Beatrek tribe. 
+
 I was so shocked, so dumbfounded, so fascinated that I became rigid and just stood there, ogling at the tribal people.
 
 I guess this was the primary reason why I was noticed so quickly by them and they started to scream wildly and run towards me, like rabid animals, ready to dispatch their spears at any moment. I was already stiff from amazement, now watching how things unfolded made me petrified and I became more stiff and was kept fixed at my place by invisible roots. As the tribal people were nearing in on me and were almost about to catch me, my primal instincts kicked it and I broke free from the invisible strings that bound me and tried to run. But unlike my expectations, I tripped and fell on the ground, losing all of my energy to even stand up and try again. 
@@ -75,6 +77,7 @@ I guess this was the primary reason why I was noticed so quickly by them and the
 Seeing the tribal men just seconds away from catching me and skewering me with their spears, I forcefully closed my eyes with my hands and as a last ditch effort, spoke to them in their own language, saying, ' I....I am a..a researcher studying and researching about the Beatrek tribe. I just want to know about Beren Waha and that mystical flower that we call by the name, Blue Moon. Please don't kill me. If you want me to leave, I'll leave right away and I'll never speak about this incident with anyone else. Please don't kill me.'
 
 I didn't expect them to trust or believe me, so I sat there, my hands still closing my eyes tightly, waiting to meet my unfortunate end. Minutes passed......, but nothing happened. Nobody made a sound so, there was an uncomfortable silence in the atmosphere, which was unbearable and added to my already increasing anxiety. I was still scared to death, but I still wanted to see, why did they suddenly stop? 
+
 Since it's apparent that they want to kill me off, why aren't they doing it already? Did they somehow, believe what I said?
 
 To get the answers of all these questions that were floating in my head, I made up my mind to slowly but steadily, open my eyes, to see what was really going on.
@@ -124,6 +127,7 @@ Chief: What do you think is the main purpose, the aim of an evil entity?
 Me: Uhhhh.... Conquering the world, defeating and corrupting anything and everything good...
 
 Chief: Yes, they are also important. But the most important thing for an evil entity is to spread evil. Make people lose faith in Good, Make people lose faith in God. Make people desperate enough, vulnerable enough to seek help from the dark side.
+
 When they start treating and worshipping an evil entity like a God, like a Messiah, that's when you know, that Evil has won.
 
 Chief kept quiet for sometime after this. I kept contemplating in my mind whether to ask, ' Isn't that the same as to what Beren Waha did with you guys? He made all of you vulnerable, desperate, afraid and forced you all to shift to the dark side'. But after witnessing that episode of concealed madness slowly coming to the surface, I became much less comfortable and confident than I was at the start of the interview. So, I decided against poking the bear and carried on with the interview.
@@ -131,7 +135,9 @@ Chief kept quiet for sometime after this. I kept contemplating in my mind whethe
 Me: Now that i have answered your question, I expect you to answer mine. What's the plan?
 
 Chief: Right after saving us from extinction, from being thrown into the depths of obscurity, our Lord concocted this plan. It started with us spreading the rumours about Beren Waha and it culminates with you, the final piece of the puzzle. 
+
 He  always wanted the best for us. He wanted us to take our rightful position in the society, the same society that has forgotten us long back. 
+
 Now, we will. We will take back what's rightfully ours. Your so called society will perish and nothing can stop it, at least not anymore..
 
 You keep asking, 'What's the plan?' A better question is, 'What's part of the plan?' The answer is 'Everything'. Everything's part of the plan. Our Lord Beren Waha planned everything. 
@@ -141,6 +147,7 @@ Right from the moment that pesky, white foreigner came out of the gateway and st
 Do you think that he could have escaped by his own skills and abilities? We have men among us who can run as fast as a hungry tiger. We have poisoned spears, and men, who can throw them with their eyes closed and still they will hit their targets and skewer them, kill them, slowly and painfully.. 
 
 And he ran like a scared little girl, so he had no chance of surviving.
+
 He escaped cause we wanted him to escape. We wanted him to tell the world about his experience - about the unbelievable ritual and that fascinating, mysterious and elusive flower, that you people call, the Blue Moon.
 
 The Chief stopped for some time and stood up. One of the members brought him a bowl, containing something that was emitting a lot of smoke. The Chief took that bowl from his hands and that man went back to the 'Ani Melasu Plau'.. The Chief, with the bowl in his hands, sat back at his original place and continued.
@@ -152,14 +159,19 @@ The harder they try to resist the purification, the stronger they can smell, whi
 Me: Why......why are you telling me all of this?
 
 Chief: Cause you, my boy, are the final piece of this puzzle. You are the one who will win it for us.
+
 And if you tell whatever I told you to others, no one, will believe you.. They'll think you are insane..  You'll be ridiculed by the same people you are trying to save..
+
 Isn't that funny? They'll term you a madman for trying to be their saviour...
 
 That's destiny.. your destiny.. and it's time for you to fulfill it... 
+
 You have to play your part, my boy. You have to perform your role in this complex, twisted game... 
+
 No matter how hard you try, you cannot escape it anymore...  Everything will happen in the same way, as our Lord predicted. And you cannot do anything to change it, anymore.. Everything will end.. With You..
 
 And then the Chief, out of nowhere, blew that smoke, coming from that bowl, onto my face. The smoke was so powerful, so dense, so intoxicating, that after coughing, panting and trying to catch my breath for a few minutes, I got knocked out, cold...
+
  
 
 When I regained my senses, I hurriedly sat upright. Everything that happened kept playing in my head like a broken cassette, making me more and more anxious and scared by the minute.. I looked around in horror, just to see that I was still in the cave,where I took shelter to protect myself from the rain, where I found that gateway to hell...  
@@ -167,11 +179,13 @@ When I regained my senses, I hurriedly sat upright. Everything that happened kep
 I looked outside. It was evening now and the rain has finally stopped. I looked towards the inner wall. There was no such door there.. I breathed a sigh of relief. All of that was just a dream apparently.. Phew...
 
 And then, as I kept my hand on the ground, all of my illusions were broken down simultaneously..  
+
 For my hand landed on something soft, delicate, fragile... I knew in my head what it was... And I pleadingly wanted it to be something else.. I picked it up and brought it up near my field of vision.. Indeed, it was the Blue Moon... 
 
 That iconic turquoise-blue colour, those soft and delicate petals, that characteristic volatile radiance, that sweet, enticing fragra...  Suddenly, it hit me... I threw that flower away, covered my mouth and nose, and frantically stood up from where I was sitting.. that's when I realized exactly where and upon what I was sleeping... A pile of Blue Moons.. My mind went completely blank at that moment and I tried to run away, tried to escape from the clutches of this monster... I remember running out of the cave, and that's when everything went black... I blacked out... 
 
 From that point onwards, for a long time, all I could remember were flashes.. as if someone is taking a picture in a pitch-black room with his flash switched on.. 
+
 The duration for which the flash illuminated the room is the exact duration for which I could recall exactly what happened during the period of my fluctuating consciousness.. 
 
 When my consciousness finally became stable, the first things that I could register were screams. A few women were screaming in front of me, petrified and scared to death.. it took me some moments to figure out the cause for such screams.. I had a blood soaked knife in my hand and a body beside me... 
@@ -193,6 +207,7 @@ Secondly, at the success party of the expedition, I apparently became violent al
 At that time, when i first saw this, I was shell shocked. I couldn't believe what I was seeing, and I started to scream and shout, telling everyone not to believe any of this as this was all part of a bigger plan, a conspiracy.. This just lead to me being sedated and put to sleep, as they usually treat violent patents there...
 
 One year, two years, three years passed... I continued to tell my story to any and every person that I could find, hoping that at least someone will believe me, be it a fellow madman, a nurse, a doctor or even a watchman... Nobody did..  they didn't say it to my face  but I could tell from their replies, as it was the same dialogue everytime, irrespective of the person it came from, 'Everything will be alright soon. Don't worry'..
+
 Neither did anything became alright, nor did my indeterminate period ever end..
 
 Which brings me to the present day. All these years, a few questions always used to haunt me throughout day and night. 'Why me?' , 'How did I manage to show them the way to the cave and kill a colleague when I was barely conscious?'
@@ -202,9 +217,11 @@ As time passed and my head became clearer, I began to understand everything... A
 To answer the first question, I must say that I was asking the wrong question, all this time. The question was never 'Why me?'. The question was always, 'Why not me?' I was never an indispensable part of this game. I was a pawn, a lucky pawn randomly chosen among an ocean of other pawns. I was manipulated and brainwashed by them every step of the way to do exactly what they wanted and planned for me to do. But that doesn't mean, that I was someone special without whom this plan wouldn't have succeeded... No... If you would replace me with any other person, then also this plan would have carried on in the exact same manner, like it did. I was just an unlucky winner of an evil lottery..
 
 The answer to the second question was much easier to figure out. It was indeed that smoke that the Chief blew on my face.. I guess it contained some hallucinogenic drug that knocked me out but triggered my subconscious.. Maybe between the time I was knocked out from that smoke till I was moved back inside the cave, the Chief gave my subconscious orders, which it fulfilled perfectly, not receiving any sort of resistance from neither my conscience nor my rational and logical thinking. 
+
 I know these are all just speculations. Maybe reality is much different, much more sinister than what I presume, but this is the best explanation that I can come up with...
 
 As I am writing this journal now, I am smiling; smiling to acknowledge the sheer brilliance of the plan that they conceived, rather the plan that Beren Waha conceived. Don't get me wrong.. I condemn whatever malicious intentions they have. 
+
 There is nobody in this world who wants them to fail more than I do. But apart from being pure evil, the plan was also so meticulous, so intricate, so perfect, that you can't help but wonder in awe and appreciate, the level of evil ingeniousness that it required to bring it all together, considering the amount of forecasting, manipulation, brainwashing, patience and scheming that was involved.
 
 If anyone finds this journal and believes that whatever I said is true rather than some confused, delusional ramblings of a sick, old man, then I wanna say to him/her/them that I am sorry. I am sorry for my involuntary contribution in the probable destruction of the world. I know and I hope that you people will believe that I didn't do what I did intentionally, but whatever it may be, I can't shrug off the fact that I indeed played a crucial role in helping Evil win.. This realization, this guilt has been eating me from inside for many years.. I was not able to eat properly, sleep properly, think properly cause of this thought, tormenting me, burning me mercilessly everyday..  
@@ -212,9 +229,11 @@ If anyone finds this journal and believes that whatever I said is true rather th
 When I gradually started to see the bigger picture, that's when I decided to wait until I have uncovered all the answers. I am happy to have accomplished my mission, after so many years of torture and suffering. Now, I can finally end it all and have peace. 
 
 To end my journal, I again wanna apologize for my naivete, 
+
 my stupid sense of pride for knowing a language that only a few people know and my absolutely incorrect belief that Demons, Monsters, Evil entities etc. are fictional; they do not exist in the real world..  They do...
 
 I'll hope and pray that in this journey, like in all others, good triumphs over evil.... And if it doesn't, then, I am extremely sorry for leaving you all behind to suffer in this misery...
+
 Good bye and Good luck...
 
 NEWS REPORT: Tony Brandon, researcher and one of the founders of the Blue Moon has committed suicide today. He was found in the bathroom with his throat slashed and a piece of bloodied glass in his hand. He was kept at a psychiatric institution after he brutally murdered one of his colleagues, at a party celebrating their success, and had the Insanity plea accepted after being presented before a Judge.
