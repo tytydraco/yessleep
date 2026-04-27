@@ -42,7 +42,7 @@ At least her ability to re-learn these skills wasn’t impeded in the slightest,
 
 Six months later, things came back to a somewhat normal state. Emma learned things quickly, and seemed to become more efficient at doing everything than before. That also came with a shift in personality, however. Her bubbly and kind demeanor changed to a more serious and uncaring attitude. It was as if she had become a completely different person, as if my Emma wasn’t there anymore.
 
-She wouldn’t hug me often, and I didn’t want to try any kind of intimacy knowing she didn’t remember her feelings for me. We didn’t even sleep together, I just let her sleep in my bed while I slept on the couch. As she began getting better and questioned what our relationship was, I told her that she could decide that once she processed her feelings for me. As much as it hurt, I didn’t want her to feel forced to be with me if she didn’t feel love anymore.
+At first, she wouldn’t even hug me, and I didn’t want to try any kind of intimacy knowing she didn’t remember her feelings for me. We didn’t even sleep together, I just let her sleep in my bed while I slept on the couch. As she began getting better and questioned what our relationship was, I told her that she could decide that once she processed her feelings for me. As much as it hurt, I didn’t want her to feel forced to be with me if she didn’t feel love anymore. Soon after, she started demonstrating affection in weird ways. She would bite me, over time with greater intensity, and lick my arms or neck. All the while, still unwilling to hug me often, or even kiss.
 
 After that, I would wake up in the middle of the night and find her standing next to me, staring. Often, I’d shriek in horror at the sudden sight of a dark figure in front of me, but as it became a common occurrence, I got used to it. Every time I asked her what she was doing, she told me she couldn’t sleep that night, and that watching me sleep helped her sleep as well. I began growing increasingly worried, but as she never once hurt me while I slept, I tried to bear with it as best as I could.
 
@@ -56,11 +56,11 @@ The odd search got me curious, and I began to look further down the search histo
 
 As I scrolled back closer to Christmas, closer to the time I began teaching her how to use my computer, I found more crude search results, such as “Human rituals”, “How to show emotions”, “How to live with others”, “Common roadkill sites” (looked for specifically with the name of our town in the search) and “Is it socially acceptable to eat another human”.
 
-I had a deeply unsettling feeling, but I couldn’t come to any conclusion yet. From then on, I began observing Emma more closely. When she looked at me, I noticed how her calm demeanor now hid something behind it. Something I couldn’t understand at that point yet still made me feel uncomfortable.
+I had a deeply unsettling feeling, but I couldn’t come to any conclusion yet. From then on, I began observing Emma more closely, and at the same time, she began getting more involved in doing housework. While she would refuse to cook, she’d always watch me prepare meals for the both of us. On one occasion, I cut my finger while chopping some vegetables, and before I could react, Emma had it in her mouth sucking the blood out. She said she just wanted to help, but I decided to be more careful after that odd display. When she looked at me, I noticed how her calm demeanor hid something behind it. Something I couldn’t understand at that point yet still made me feel uncomfortable.
 
-I set up a hidden camera with night vision in my living room, pointed at the couch where I slept. I checked the footage recorded at night on a phone app that came with the camera, and noticed her nightly visits continued, now—if not from the start—they were happening every single night.
+I decided to set up a hidden camera with night vision in my living room, pointed at the couch where I slept. I checked the footage recorded at night on a phone app that came with the camera, and noticed her nightly visits continued, now—if not from the start—they were happening every single night.
 
-After that, I installed more hidden cameras around the house over time, making sure they weren’t many to reduce the chance of her finding them. After watching the footage, I noticed that she had a habit of always standing in front of the window, peeking through the blinds and looking at me as I drove off. Then, she’d walk to my computer or sit down and simply look at videos or read things all day long, that blank, unchanging expression she used to have coming back and only leaving once I was back or when she had to leave the house.
+Over time, I installed more hidden cameras around the house over time, making sure they weren’t many to reduce the chance of her finding them. After watching the footage, I noticed that she had a habit of always standing in front of the window, peeking through the blinds and looking at me as I drove off. Then, she’d walk to my computer or sit down and simply look at videos or read things all day long, that blank, unchanging expression she used to have coming back and only leaving once I was back or when she had to leave the house.
 
 Originally, she didn’t leave the house much. But as she became more comfortable being alone, she gradually made a habit of getting groceries on her own while I was at work, messaging me to ask if I wanted anything. Knowing what I knew, this started to look suspicious as well, so one day, I decided to follow her to clear my doubts.
 
@@ -70,19 +70,19 @@ After that, I switched clothes, checked the tracker on the app, and began follow
 
 She did what any normal person would do: Visit the mall and a few smaller stores. The thing that scared me the most was what I found she did after.
 
-I followed Emma back home, making sure to keep my distance, and parked the car a few streets away, far enough to be unnoticed and close enough to use my binoculars. After she parked and carried the groceries inside, I looked at my phone and accessed the camera’s app to look at her in real time. She took everything out of the bags and put everything in its respective place, but left a block of raw meat, I think it was beef, out on the counter. She then got a mop and a bucket, took off all her clothes, threw them on a nearby couch, grabbed the chunk of meat and began eating it.
+I followed Emma back home, making sure to keep my distance, and parked the car a few streets away, far enough to be unnoticed and close enough to use my binoculars. After she parked and carried the groceries inside, I looked at my phone and accessed the camera’s app to look at her in real time. She took everything out of the bags and put everything in its respective place, but left a block of raw meat, I think it was beef, out on the counter. Next, she got a mop and a bucket, took off all her clothes, threw them on a nearby couch, grabbed a chunk of meat and began eating it.
 
 My jaw hit the bottom of the car as I looked at my now ex girlfriend eating raw meat with nothing on, the fresh blood dripping down her mouth and into her chest and abdomen in a way that reminded me of some sort of satanic ritual or the like.  I felt sick to my stomach, unsure if this was some sort of mental illness or something else, and the somewhat low quality of the chewing noises and her grunts simply added to the bizarre experience.
 
 Then, as I recovered from the shock and tried to make sense of what I was seeing and hearing, I recalled her search history and her strange fascination with the attack that killed her parents. I believe in the paranormal, but had never experienced anything myself, and I was wondering if what attacked Emma and her parents that day wasn’t a bear, but something else. If maybe—just maybe—my beloved girlfriend had fallen victim to the monster as well, and it had come back pretending to be her.
 
-Looking back at the video feed, she kept eating the entire chunk of meat, probably about four pounds (though I couldn’t really tell from the video alone), until it was completely gone. It was an insane amount of meat that no human should eat in a single day, let alone in a single meal. Then, she mopped down the floor, cleaned herself with a few napkins, brought them to the bathroom and flushed them down the toilet. Lastly, she went to take a shower.
+Looking back at the video feed, she kept eating the entire chunk of meat, probably about four pounds (though I couldn’t really tell from the video alone), until it was completely gone. It was an insane amount of meat that no human should eat in a single day, let alone in a single meal. After that, she mopped down the floor, cleaned herself with a few napkins, brought them to the bathroom and flushed them down the toilet. Lastly, she went to take a shower.
 
 All the evidence of her feast: gone, were it not for me having a recording of it. As far as I could tell, this was the first time she did something like that on the house. No other recordings showed her doing anything like that in the past.
 
-That night, I came back home still pretending to have worked. Fortunately, she didn’t ask about it, and we spent the night peacefully. Just in case, I grabbed a kitchen knife and slid it under my pillow before going to bed. I was twisting and turning, unable to sleep even the slightest. Suddenly, I heard the door of my room open, and I pretended to be asleep as Emma walked towards me and stood right in front of the couch. I half-opened my eyes and saw the woman I used to love, her face perfectly illuminated by moonlight, mine obscured by penumbra.
+That night, I came back home still pretending to have worked. Fortunately, she didn’t ask about it, and we spent the night peacefully. Just in case, I put the phone on my pajama pants, grabbed a kitchen knife, and slid it under my pillow before going to bed. I was twisting and turning, unable to sleep in the slightest. Suddenly, I heard the door of my room open, and I pretended to be asleep as Emma walked towards me and stood right in front of the couch. I half-opened my eyes and saw the woman I used to love, her face perfectly illuminated by moonlight, mine obscured by penumbra.
 
-After that day’s experience, I was able to understand the look in her eyes. That look that had sent shivers down my spine multiple times even though I didn’t know why.
+From that experience, I was able to understand the look in her eyes. That look that had sent shivers down my spine multiple times even though I didn’t know why.
 
 It was hunger; a ravenous, primal hunger.
 
@@ -90,21 +90,39 @@ I was her prey.
 
 
 
-I couldn’t move, my breathing started to get heavy and I had to do my best to keep it under control. I pretended to be asleep while that thing kept looking at me. It felt like I was stuck in that uncomfortable space for hours, but whatever the actual time was, she left after a while. When the danger had passed, I was finally able to fall asleep, and did so almost immediately.
+I couldn’t move, my breathing started to get heavy and I had to do my best to keep it under control. I pretended to be asleep while that thing kept looking at me. It felt like I was stuck in that uncomfortable space for hours, but whatever the actual time was, she left after a while. When I felt the danger had passed, I was finally able to fall asleep, and did so almost immediately.
 
-The next day, I woke up to find myself alone. Emma was nowhere to be found, and after calling her and looking for her throughout the house, I found the front door was unlocked. I was left wondering why she had left all of a sudden or if she left at all, perhaps she might’ve hid somewhere in the house. As a last resort I pulled the video feed from the previous night and fast-forwarded to the point after she went back to bed.
+I woke up again with a sudden jolt of pain, and found Emma, or the thing masquerading as her, kneeling down and biting down on my left arm. I tried pulling away, and she bit down a chunk of skin off without mercy.
 
-There, in the cover of darkness, Emma went back to her room and closed the door, standing right next to it for about twenty minutes. After that, she went back to where I was and knelt down, grabbing my right arm and giving some sort of kiss—or maybe a small bite—to my wrist.
+“What is wrong with you?!” I asked, the adrenaline quickly rushing through my body as I went on high alert and pushed her away, grabbing the knife with my right hand and pointing it at her while trying to step back.
 
-She then spoke, but it was somewhat low so I had to re-listen to it over and over again until I was sure of what she said.
+Her words came out so desperate, her voice almost guttural and uncanny.
 
-“I knew you were awake, you know? You’re lucky this one cares for you so much.”
+“I’m sorry, it’s just—just… your fear, it makes me even hungrier…”
 
-Then, after a sigh, she simply walked out the house and closed the door gently. That was the last time I saw “Emma”, three weeks ago. I filed a police report and showed the cops some of what I had gathered, leaving out any of my paranormal theories. They’ve been looking for her, but have had no luck so far. Our mutual friends and her family think she might’ve gone insane after the accident and reached her breaking point.
+I leaped back onto the couch and put my free hand in the back seat to try and flip around, but the weight I put all of a sudden made the couch fall backwards, and I stumbled sideways onto the floor behind, falling on my left side while the knife flew off my hand and landed nearby, in between me and the front door.
 
-I wish I believed them. Since then, five people have gone missing. The first three were homeless people, but last week, a cargo worker and a nurse went missing as well. I hope it’s just a coincidence, but something tells me that “it” might be involved.
+I looked back and “Emma” leaping at me like an animal, landing next to my left leg and biting into the calf. Even through the thick fabric of the pants I was wearing, I felt her teeth sinking into my skin like sharp needles, and while trying to kick at her with my other leg in an awkward way, I used my healthy hand to try and reach the knife.
 
-Now I find myself alone again, scared of something that might come and try to finish the job. I wonder if this is a punishment for all the wrongs I did in the past, if I got a taste of a perfect life just to be taken away by a force of nature, or something more malevolent.
+Her mouth wouldn’t leave my calf, and it wasn’t until she managed to rip yet another chunk of my flesh, that she finally let me go. A hole in my pants with blood soaking into the fabric was the only indication that it was my only chance to leave, as it was clear I couldn’t fight this thing. I crawled pathetically towards the knife and picked it up, then leaned against the wall next to the front door to unlock it while the creature, now almost completely feral, struggled trying to spit out the cloth stuck in its teeth.
+
+The next part was a blur. I recall opening the door and crawling out before closing it behind me. I think the adrenaline coursing through my veins was working overtime, because next thing I knew, I was running out the street in the middle of the night while the thing chased behind me. I don’t know how long that went for, but I’m sure that, had I not closed the door while it was distracted, it would’ve caught up to me before I was saved.
+
+I didn’t know how this happened, as I lost consciousness when help arrived. I woke up a few days later, finding myself with bandages not only on my calf and wrist, but also on my stomach. I was told by one of the doctors that the damage I had incurred required surgery, and that there were two officers waiting for me to wake up to take my statement.
+
+I told them what had happened, and fortunately, my phone survived the ordeal with just a few cracks on the screen. I showed them some of what I had gathered, leaving out any of my paranormal theories, and told them she began acting crazier and crazier since the accident with her parents.
+
+After explaining everything, I found out what happened after I fell unconscious: A truck with some college guys coming back from a party stumbled across “Emma” in the middle of the road, digging her teeth into the side of my gut while I was unconscious. They said that the car’s headlights startled her, and at that moment they noticed what she was doing. They figured she was some sort of junkie and tried to scare her away. Fortunately, they had weapons on them, so after a few warning shots, the thing scurried away into the nearby woods. The guys called the police and an ambulance for me, and that’s how I ended up in the hospital.
+
+That was two months ago. Since then, government officials came to my home and confiscated my cameras and electronics. I didn’t fight them on it, though I was upset I wouldn’t be allowed to have any video evidence of what happened. I was told there should be no further issues, but that I should change the locks and get a weapon, just in case.
+
+The story that was given to the press was that Emma had suffered a mental breakdown and attacked me, but ran off before police could get to where the guys found me, and hadn’t been found since.
+
+Nine people have gone missing in that time span. The first five were homeless, and sadly, that meant the police didn’t put too much effort in the investigation. Two weeks ago, a cargo worker, a nurse and a teacher went missing as well. This caused a larger stir in the public, and I hoped it was just a coincidence, but something told me that “it” might be involved.
+
+Yesterday, I found that there was a new victim in the news. It was Ms. Price, whom I returned to for therapy after I recovered enough from surgery.
+
+Now I find myself alone again, scared of something that might come and try to finish the job. I wonder if this is a punishment for all the wrongs I did in the past, if I got a taste of a perfect life just to be taken away by a force of nature, or perhaps something more malevolent.
 
 If someone you love gets in a terrible accident where they’re the only survivors, and they seem to become a different person after that, be careful.
 
