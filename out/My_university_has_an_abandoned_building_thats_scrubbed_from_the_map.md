@@ -1,6 +1,6 @@
 There's a building at the edge of my University's campus that no one will acknowledge exists. I spent months trying to find out why. I still don't have a clean answer. 
 
-For those who don’t know, I go to R- - - - University, a mid sized D3 state university in South Jersey. I’m still a student there. If you also go there and you know what I'm talking about, you'll know why I'm not using my or the school’s full real name.
+I go to R- - - - University, a mid sized D3 state university in South Jersey. I’m still a student there. If you also go there and you know what I'm talking about, you'll know why I'm not using my or the school’s full real name.
 
 I want to be upfront about something before I start: I don't have proof of most of what I'm about to write. What I have is a building that exists, an institutional silence around it that feels deliberately maintained, and a collection of secondhand accounts from people who have no reason to coordinate their stories. Whether you believe any of the rest of it is entirely up to you.
 
@@ -14,7 +14,7 @@ That was enough to make me curious. I wish it hadn't been.
 
 First thing I did was try to find it on a map. Pull up Apple Maps right now. Search “Triad Apartments.” Try Google Maps. Try the official interactive campus map on the university’s website. Look through the PDF they give to every incoming student listing every building and parking lot on campus.
 
-It's not labeled. Not on any of them. The building, which physically exists, I have stood in front of it, does not appear on a single publicly accessible map of the university.
+It's not labeled. Not on any of them. The building, which physically exists, tucked on the far obscure edge of campus, far away from every other dorm, apartment, even academic building. I have stood in front of it, and it does not appear on a single publicly accessible map of the university.
 
 Every other residential building is labeled. Every dining hall, every academic building, every surface lot. Triad is simply absent, like someone went through and very deliberately made sure it wouldn't appear. So I started asking around. Carefully, and to people I trusted. Here's what the process looked like: 
 
@@ -44,9 +44,9 @@ What some people say happened next is that the building was repurposed. Not offi
 
 I want to be clear: this is rumor. This is what people say. I have not spoken to anyone who was personally held there, or who will admit to it. But I've now heard this specific detail, the two-week minimum, the form letter, the deliberate vagueness, from three different people on three separate occasions. They don't know each other. They used almost identical language.
 
-The rest of the story, the part that gets whispered, the part where things get dark,  I'm going to tell you plainly, and I'm going to tell you again that I don't know if it's true.
+The rest of the story, the part that gets whispered, the part where things get dark, I'm going to tell you plainly, and I'm going to tell you again that I don't know if it's true.
 
-In 2020, when COVID hit and the university emptied out, something happened in Triad. Accounts vary on the specifics. Some say a resident who had been held there for far longer than two weeks finally broke under the isolation. Some say what happened was violent. Some say two people, a young man and a young woman, didn't make it out. Killed by the rogue resident. Their names are not something I'm going to write here. Not because I don't believe the people who've told me, but because if any part of this is true, they deserve more than a Reddit post.
+In 2020, when COVID hit and the university emptied out, something happened in Triad. Accounts vary on the specifics. Some say a resident who had been held there for far longer than two weeks finally broke under the isolation. Some say what happened was violent. Some say two other students in containment, a young man and a young woman, didn't make it out. Killed by the rogue resident. Their names are not something I'm going to write here. Not because I don't believe the people who've told me, but because if any part of this is true, they deserve more than a Reddit post.
 
 After that, the story goes, the building was fully shut down. Staff gone. Project ended. And whatever records connected students to Triad were quietly dealt with.
 
@@ -58,9 +58,11 @@ I went out there at night once. I won't do it again.
 
 It's not cinematic. It's not the kind of scary that makes a good story. It's the kind of wrong that's harder to describe the wrongness of a place that should have people in it and doesn't. The parking lot behind you is still functional. There are cars in it. And then you cross those tracks and the ambient noise of the university just... stops. No voices. No distant music from a dorm window. No hum of anything. Just the buildings, and the dark, and the feeling that you've stepped slightly sideways from the campus you know.
 
-I stood there for maybe ten minutes. I was looking at the windows.
+The building itself just felt wrong. It seemed barely like a student apartment building at all, from its shape to its white color, it was more reminiscent of a psych ward than anywhere a student was meant to live voluntarily. The way even the building itself was nearly a 10 minute walk beyond the next university owned building, like the school itself was trying to hide it like a twisted secret. It all gave off an eerie, almost dare I say haunted vibe. I stood there for maybe ten minutes. I was looking at the windows, not really sure at what, this was at least supposed to be an abandoned building.
 
 On the third floor, a light came on. It wasn't a normal room light, it was the dim, sickly yellow of a flickering fluorescent. In that light, I saw a silhouette. It was standing perfectly still, face pressed against the pane, just... watching the parking lot. Watching me. Not like someone looking out, but like someone trying to see if there was still a world outside. It didn't look like a ghost exactly. It looked like someone who had forgotten how to be human. It didn't move until I did. When I took a step back, it vanished, and the light cut out instantly. No click. Just darkness. I turned around to run and almost tripped over it, a grave of sorts on the other side of the road, on it, flowers, glass shards, a name, and other trinkets.
+
+I faced the Triad building once more, another light was on, this time on a different floor, different side.
 
 I ran. I didn’t wait to see who else was watching.
 
