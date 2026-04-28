@@ -62,7 +62,7 @@ The building itself just felt wrong. It seemed barely like a student apartment b
 
 On the third floor, a light came on. It wasn't a normal room light, it was the dim, sickly yellow of a flickering fluorescent. In that light, I saw a silhouette. It was standing perfectly still, face pressed against the pane, just... watching the parking lot. Watching me. Not like someone looking out, but like someone trying to see if there was still a world outside. It didn't look like a ghost exactly. It looked like someone who had forgotten how to be human. It didn't move until I did. When I took a step back, it vanished, and the light cut out instantly. No click. Just darkness. I turned around to run and almost tripped over it, a grave of sorts on the other side of the road, on it, flowers, glass shards, a name, and other trinkets.
 
-I faced the Triad building once more, another light was on, this time on a different floor, different side.
+I jumped, spun around to face the Triad building once more, another light was on, this time on a different floor, different side.
 
 I ran. I didn’t wait to see who else was watching.
 
