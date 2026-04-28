@@ -8,8 +8,6 @@ Six months of hard labor waited ahead — shoveling snow, splitting wood, thawin
 
 As the snow thickened, my mind drifted back six weeks to Brooklyn. I’d been haunting the hardware store in Red Hook again, buying work gloves and a splitting maul I didn’t really need — anything to keep my hands busy and my thoughts quiet. That was when I saw the faded printout thumbtacked to the community board between lost cat ads and guitar lessons. The paper was yellowed, the ink smudged, as if it had hung there for months. It read:
 
-
-
 **Winter Caretaker Needed – Blackpine Lodge, North Cascades**
 
 **Closed to the public since 1998.**
@@ -24,8 +22,6 @@ As the snow thickened, my mind drifted back six weeks to Brooklyn. I’d been ha
 
 **Tell us why you want the silence.**
 
-
-
 That night, in my cramped apartment with the city’s constant hum pressing against the windows, I wrote a short, honest letter:
 
 “I’m an audio engineer burned out on noise. I need six months of hard physical work and zero voices — including my own. I’m good with my hands, I don’t complain, and I won’t ask questions. Just point me at the snow and the broken pipes.”
@@ -34,21 +30,17 @@ I mailed it the next morning before I could second-guess myself.
 
 Two weeks later, a plain manila envelope arrived with no return address, only a Glacier postmark. Inside were a brass key, a one-page contract, a hand-drawn map with the final ten miles marked in red, and a short typed note:
 
-
-
 ***Blackpine has been waiting for the right pair of hands.***
 
 ***Drive safe. The road gets narrow after the last plowed section.***
 
 ***Leave your recorders behind.***
 
-
-
 I took the warning seriously. The day before leaving Brooklyn, I drove to a storage unit in Bushwick and locked away every piece of my former life: microphones, interfaces, laptops, monitors, and the old external hard drive containing the raw files from that final podcast episode. I didn’t open it, and I didn’t need to. The heaviest part had never left my head.
 
 This was my only path now. If I could exhaust my body through honest labor — shoveling until my shoulders burned, splitting wood until my palms blistered — then maybe the guilt would finally loosen its grip. I’d always wondered if it ever would. This job will have to prove it.
 
-Blackpine Lodge appeared abruptly as the Subaru crested a low rise. The building squatted low and heavy against the mountainside, dark timber and stone bearing twenty-six winters like a second skin. Most of the upper windows were boarded shut, and the wide front porch sagged under unbroken snow.
+Blackpine Lodge appeared abruptly as the Subaru crested a low rise. The building squatted low and heavy against the mountainside, dark timber and stone bearing twenty-eight winters like a second skin. Most of the upper windows were boarded shut, and the wide front porch sagged under unbroken snow.
 
 As I drove closer, a motion-light flickered to life, illuminating the weathered face of the building. The beams from my headlights swept over the surface, creating elongated shadows that danced and stretched, hesitant to rest in one place, as if the darkness itself were reluctant to accept the encroaching light.
 
@@ -59,8 +51,6 @@ Shouldering my single duffel bag, I trudged toward the heavy double oak doors. T
 I stood still, letting my eyes adjust. Moonlight slipped through gaps in the boarded windows, striping the reception desk, the empty key cubbies, and the grand staircase that disappeared into shadow. Against the far wall stood a grandfather clock, its pendulum frozen mid-swing.
 
 On the reception desk lay a single sheet of paper, placed neatly in the center as if waiting for me. I picked it up. The heading, written in careful block letters, read:
-
-
 
 **Caretaker Duties – First 30 Days**
 
@@ -73,8 +63,6 @@ On the reception desk lay a single sheet of paper, placed neatly in the center a
 **Do not enter the guest rooms on the second floor unless absolutely necessary.**
 
 **The lodge will tell you what it needs.**
-
-
 
 I read the list twice. The warning about the second-floor guest rooms lingered. Why specify that? And what exactly did they mean by “the lodge will tell you what it needs”?
 
