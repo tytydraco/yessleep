@@ -8,7 +8,7 @@ I quickly made an appointment with my doctor after that. He checked my heart and
 
 I was on my way home from the doctor when I saw Mike Henderson down the street. The moment his face entered my field of vision my heart jumped, and I quickly crossed to the other side, trying not to make eye contact. Mike's not a bad guy or anything, just a bit obnoxious. Well, he clearly didn't get the hint and crossed the street too, waving at me enthusiastically. Great.
 
-"Oh, hi Mike..." I said, acting as if I hadn't been paying attention and trying to mask my disappointment at the sight of him.
+"Oh, hi Mike..." I said, acting as if I hadn't been paying attention and trying to mask my mild disappointment at the sight of him.
 
 "Yooo Liza, long time no talk. How's the dog?"
 
@@ -16,11 +16,9 @@ I was on my way home from the doctor when I saw Mike Henderson down the street. 
 
 "Oh, right. Yeah. Condolences. Hey, so me and the guys are going to throw a pizza party and play some Yu-Gi-Oh at the old lakehouse. Wanna come?"
 
-The lakehouse was a vacation home belonging to an elderly resident of our town. I didn't know her, personally, but apparently she has dementia and has been stuck in a nursing home for the past 12 years. The family can't sell the house, because she still owns it but is in no state of mind to sell. So they've just been biding their time until her death, all the while the house sits empty.
+The lakehouse was a vacation home belonging to an elderly resident of our town. I didn't know her, personally, but apparently she had dementia and has been stuck in a nursing home for the past 12 years. The family can't sell the house, because she still owns it but is in no state of mind to sell. So they've just been biding their time until her death, all the while the house sits empty.
 
-Now as much as I like exploring abandoned buildings, I wanted to stay far away from that lakehouse. I couldn't explain why I hated the place. It's just, when you look at it you get this feeling, you know? That you're not meant to be there. It's not necessarily that it feels inhabited, just... off.
-
-Also, Yu-Gi-Oh? I thought we had stopped playing that game when we were 13.
+Now as much as I like exploring abandoned buildings, I wanted to stay far away from that lakehouse. I couldn't explain why I hated the place. It's just, when you look at it you get this feeling, you know? That you're not meant to be there. It's not necessarily that it feels inhabited by something, just... off. Also, Yu-Gi-Oh? I thought we had stopped playing that game when we were 13.
 
 Well, I told Mike I wasn't interested in that creepy place, to which he shrugged and turned around. I can't say I was surprised about the whole thing. I figured he mostly wanted me there because I was friends with his weed guy and could get him a discount, not because he really cared about how I had been doing the past year.
 
@@ -50,13 +48,13 @@ I realized something then, I had never actually associated my symptoms with a pa
 
 I stopped just before the willow tree that had made me collapse, and from there walked back. As soon as I started to walk the opposite way, I began to feel better. My lightheadedness faded and I gained some vigor back. This confirmed it wasn't just walking or being upright specifically that was doing it.
 
-That night I mulled all of it over. If it were some kind of air polution or allergic reaction or something, then turning around wouldn't actually help. It'd be localized to a specific place. If it was the mugwort, well, I'd still be feeling the symptoms on the way back. Who was Staircase283 anyway? That last question kept me up. No matter how much I tried to sleep, I couldn't shake off this feeling that he knew me somehow. Had I met him in real life before? The more I thought about it the more uneasy I got.
+That night I mulled all of it over. If it were some kind of air polution or allergic reaction or something, then turning around wouldn't actually help. It'd be localized to a specific place. If it was a mugwort allergy, well, I'd still be feeling the symptoms on the way back. Who was Staircase283 anyway? That last question really kept me up. No matter how much I tried to sleep, I couldn't shake off this feeling that he knew me somehow. Had I met him in real life before? The more I thought about it the more uneasy I got.
 
-I opened my laptop and Googled his name. I got a Reddit user page. No profile picture, only one post. It was in a called r/x102_37. I tried to click on it, but every time I did it just said "ACCESS DENIED" in all caps. I had used Reddit on and off for a little while by this point, but I had never seen that error message before. I decided to send him another message on Reddit this time asking him who he was, but again got no reply. The next morning, still having gotten no response from Staircase283, so I decided to ask around on various forums if anyone knew who he was.
+I opened my laptop and Googled his name. I got a Reddit user page. No profile picture, only one post. It was in a subreddit called r/x102_37. I tried to click on it, but every time I did it just said "ACCESS DENIED" in all caps. I had used Reddit on and off for a little while by this point, but I had never seen that error message before. I decided to send him another message on Reddit this time asking him who he was, but again got no reply. The next morning, still having gotten no response from Staircase283, so I decided to ask around on various forums if anyone knew who he was.
 
 "Hey this guy called Staircase283 messaged me on the Healthme forums with some weird personal details. Does anyone know him/her?" By this point in my search I had gotten quite busy with my studies and hadn't had much time for this whole affair, but a few weeks later when I checked my post again, I got a lead. Someone claimed to have been friends with Staircase. He said the two of them met via a game called Warframe and had hung out for several years before he changed.
 
-Apparently, he had started posting pictures of the moon a lot, giving weird cryptic messages about "the faultlines being wrong" or something like that and frequently became irritable and started shouting absolute nonsense about things like gangstalking before hanging up on calls. He would often apologize the next day, but would never explain what he was talking about when pressed for details. It wasn't clear what would set him off when he got like this.
+Apparently, he had started posting pictures of the moon a lot, giving weird cryptic messages about "the faultlines being wrong" or something like that and frequently became irritable and started shouting about people gangstalking him before hanging up on calls. He would often apologize the next day, but would never explain what he was talking about when pressed for details. It wasn't clear what would set him off when he got like this. His friend just assumed he was going mad.
 
 Then other times, he'd be so distant as if nothing interested him. One time he had been invited to play a game like old times and only responded with "It's cold when you get this deep". Finally on April 27th of 2019, he disappeared completely. Nobody had heard from him since. I checked his Reddit profile again. His only post was dated 2019. My brow furrowed.
 
@@ -74,7 +72,9 @@ The second thing was that the sender address was just "staircase283". No @, no h
 
 Last but not least, the contents. Where was he going? Did he run away from home, and if so, why did he want me to come wherever he was?
 
-This whole mystery was creeping me out to the point where my sleep quality was impacted. Some nights I would wake up in a panic, while clawing at a window, but never remember what I had been dreaming about as I wiped cold sweat off my face. The nights that really bothered me were the ones when I didn't wake up in my own home at all. I often found myself out in a field, or along a forest trail. Places I visited by day, certainly, but it unnerved me that I would come out there while fully asleep. One day, feeling tired of it all, I decided to call my sister. I knew she was on lunch break at the time.
+This whole mystery was creeping me out to the point where my sleep quality was impacted. Some nights I would wake up in a panic, while clawing at a window, but never remember what I had been dreaming about as I wiped cold sweat off my face. The nights that really bothered me were the ones when I didn't wake up in my own home at all. I often found myself out in a field, or along a forest trail. Places I visited by day, certainly, but it unnerved me that I would come out there while fully asleep.
+
+One day, feeling tired of it all, I decided to call my sister. I knew she was on lunch break at the time.
 
 See, my sister. She was smart, unlike me, and so had gone to study at a prestigious University in the city so we didn't talk as much. The phone rang a few times before she picked up.
 
@@ -98,7 +98,7 @@ See, my sister. She was smart, unlike me, and so had gone to study at a prestigi
 
 "Oh, gee, that sucks. Have they been saying anything weird to you?"
 
-"Well, kinda? Not like creepy in the "send pussy pics" kinda way, but, well... Hang on let me grab his messages." I read out the three that had stood out to me as Beth listened.
+"Well, kinda? Not like creepy in the "send nudes" kinda way, but, well... Hang on let me grab his messages." I read out the three that had stood out to me as Beth listened.
 
 "Hmm, that is a little weird, but I don't think it's that concerning yet. Look I gotta go to my next class right now, but if this guy keeps bothering you, let me know ok?"
 
@@ -106,11 +106,11 @@ See, my sister. She was smart, unlike me, and so had gone to study at a prestigi
 
 "Kay love you, bye!" she said before ending the call.
 
-I reclined into my chair and sighed when I heard a little "tak" on my window. Then another. I sat up slightly. "Tak". "Tak". I opened the window to see what was going on and nearly got hit in the face with a pebble that a scrawny guy with a goatee had thrown up at me.
+I reclined into my chair and sighed. I knew she was doing her best to support me, and frankly thinking about it now I felt a little silly about the whole thing. That's when I heard a little "tak" on my window. I sat up slightly and looked towards the window. Then I heard another. "Tak". "Tak". I opened the window to see what was going on and nearly got hit in the face with a pebble that a scrawny guy with a goatee had thrown up at me.
 
 "What the fuck, Ethan? Are you trying to serenade me? It's not even 1pm ye- Oh shit, Cath, hi! What are you doing around this dork?"
 
-"Catherine waved up at me meekly."
+Catherine waved up at me meekly.
 
 "Hey, don't badmouth me in front of Catherine!" Ethan yelled back at me. "Look, could you come down? It's serious!"
 
@@ -134,11 +134,11 @@ Henderson, wanting to be the tough guy in front of the girls, broke the silence 
 
 When he finally came out, he was totally quiet. Catherine asked him if there was anyone up there, and he turned to her. His face was pale as a ghost, but he said there wasn't. He said there was absolutely nothing up there. Just a few empty cupboards, an old mattress and a bunch of dust. Catherine had had enough of the weirdness at that point and went home with a mutual acquaintance. She had honestly wanted to forget about the whole thing when she met Henderson just a few days ago.
 
-They had gotten to talking about what happened and he finally shared what he had seen. The room with the mattress had been empty, but showed clear signs of someone having been there. The window was open, with a sharp nail sticking out and there was a drop of blood on the sill. He thought it must've been a squatter who got spooked by the party and fled when he noticed something. There was a closet in the corner of the room. The door was half open and he couldn't see what was inside. He approached cautiously, flashlight lifted ready to bash whoever might be hiding in there on the head, but when he flung open the closet fully there were only a few scattered papers. He took closer look and noticed some of them were a child's drawings. In between the drawings were a set of polaroids pictures. He checked the polaroids, they had dates written on the back, all roughly 10-14 years ago, and they were almost all pictures of children sleeping. That was bad enough, but the thing that had shook him so deeply was the realization that \*he\* was one of the kids in the pictures. Someone had taken a picture of him sleeping over a decade ago and it had been kept in this closet for who knows how long until he just so happened to stumble upon it. All of the kids were people we knew, mutual acquaintances, people who went to our high school. I was in there too. The final polaroid wasn't of a kid, but an old metal staircase.
+They had gotten to talking about what happened and he finally shared what he had seen. The room with the mattress had been empty, but showed clear signs of someone having been there. The window was open, with a sharp nail sticking out and there was a drop of blood on the sill. He thought it must've been a squatter who got spooked by the party and fled when he noticed something. There was a closet in the corner of the room. The door was half open and he couldn't see what was inside. His heart sank on the sight. He knew what he had to do. He approached cautiously, flashlight lifted ready to bash whoever might be hiding in there on the head if they tried anything, but when he flung open the closet fully there were only a few scattered papers.
 
-I physically began to tremble when I heard that part.
+He took closer look and noticed some of them were a child's drawings. In between the drawings were a set of polaroid pictures. He checked the polaroids, they had dates written on the back, all roughly 10-14 years ago, and they were almost all pictures of children sleeping. That was bad enough, but the thing that had shook him so deeply was the realization that \*he\* was one of the kids in the pictures. Someone had taken a picture of him sleeping over a decade ago and it had been kept in this closet for who knows how long until he just so happened to stumble upon it. He recognized some of the other kids too. The final polaroid wasn't of a child, but an old metal staircase.
 
-Catherine handed me the picture of myself. Sure enough, it was me. My bedroom as exactly was it had been back then. There was no mistaking it. I noticed the picture had been taken with a flash, and that terrified me more than anything you could imagine, for reasons I will get into later.
+I physically began to tremble when I heard that part. Catherine handed me a picture of myself. Sure enough, it was me. My bedroom as exactly was it had been 12 years ago. There was no mistaking it. I noticed the picture had been taken with a flash, and that terrified me more than anything you could imagine, for reasons I will get into later.
 
 I decided then to tell Ethan and Cath about my encounter with Staircase283 and how much it had weirded me out. They exchanged nervous glances and told me that the picture of the staircase had been dated exactly February 2nd, 1983. My eyes went wide. It was February 6th, 2023 today.
 
