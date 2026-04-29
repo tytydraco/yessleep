@@ -94,4 +94,4 @@ When the creature spoke in that raspy, hellish, inhuman voice, underneath it all
 
 I’m struggling to accept that what I witnessed down there is real. I can’t.
 
-How am I supposed to accept that my friend—my *best* friend—is a monster?
+How am I supposed to accept that my friend—my *best* friend—is a [monster?](https://www.reddit.com/r/storiesfortheforsaken/s/7ftAlTNmRR)
