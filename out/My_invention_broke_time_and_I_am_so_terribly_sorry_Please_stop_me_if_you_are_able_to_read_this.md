@@ -16,7 +16,7 @@ It was not beautiful. I never cared for beauty; I cared about results, and resul
 
 I called it the “Lemniscate,” a term for the infinity symbol in geometry. I was quite proud of the name.
 
-The theory had come to me during grad school, in the margins of a paper on quantum decoherence I’d been reviewing (I did double duty as both a research and teaching assistant for my advisor, Dr. Priya Anand). He had called the marginal notes “charmingly deluded” but given the paper a pass anyway. But I had not forgotten the words. Charmingly deluded. I wrote them on a Post-it and stuck it above my bathroom mirror, where it yellowed over the next few years.
+The theory had come to me during grad school, in the margins of a paper on quantum decoherence I’d been reviewing (I did double duty as both a research and teaching assistant for my advisor, Dr. Priya Anand). She had called the marginal notes “charmingly deluded” but given the paper a pass anyway. But I had not forgotten the words. Charmingly deluded. I wrote them on a Post-it and stuck it above my bathroom mirror, where it yellowed over the next few years.
 
 The theory was this: that time, at the quantum scale, was not a river, but a surface, something closer to the skin of a drum. A drum, as you know, is capable of vibration, capable of being struck at one point and propagating that strike outward, backward, forward. My theory was that this nature of time—whether “charmingly deluded” or not—could be tapped into using the right frequencies and technologies.
 
