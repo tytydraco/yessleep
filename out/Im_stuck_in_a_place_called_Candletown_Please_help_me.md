@@ -153,3 +153,5 @@ A red moth just fluttered by and I flinched. Just to show how, I dunno, how para
 Does anyone have any advice, please? I don't know what to do. Should I go in the church? It seems like it might be my best bet, if that's where Bray/Shay went. Maybe they know something. Or, I mean, maybe it's a bad idea. I don't know.
 
 Help. Please. I don't want to be stuck in Candletown.
+
+[Update.](https://www.reddit.com/r/nosleep/s/td7bsENnug)
