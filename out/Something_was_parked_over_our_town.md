@@ -86,7 +86,7 @@ You can imagine the relief I felt when I dropped my kid off and it was gone!
 
 The rest of the day felt like a massive weight had lifted off my shoulders. I even started to think my ex-wife was right, maybe I WAS just stressed out.
 
-It was the ex's turn to take the kiddo. So when I got off work at 8pm that day, I decided to celebrate with a nice big steak. So I went to my local Co-op.
+It was the ex's turn to take the kiddo. So when I got off work at 8 PM that day, I decided to celebrate with a nice big steak. So I went to my local Co-op.
 
 I wasn't even in the parking lot yet, and I remember slamming on my breaks. There it was, hanging over the grocery store.
 
