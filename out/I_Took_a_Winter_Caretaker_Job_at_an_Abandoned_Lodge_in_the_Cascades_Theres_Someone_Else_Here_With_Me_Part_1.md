@@ -50,24 +50,6 @@ Shouldering my single duffel bag, I trudged toward the heavy double oak doors. T
 
 I stood still, letting my eyes adjust. Moonlight slipped through gaps in the boarded windows, striping the reception desk, the empty key cubbies, and the grand staircase that disappeared into shadow. Against the far wall stood a grandfather clock, its pendulum frozen mid-swing.
 
-On the reception desk lay a single sheet of paper, placed neatly in the center as if waiting for me. I picked it up. The heading, written in careful block letters, read:
-
-**Caretaker Duties – First 30 Days**
-
-* **Day 1: Clear snow from main entrance, porch, and generator shed. Check fuel levels.**
-* **Days 2–7: Split and stack at least two cords of wood. Clear all paths around the lodge.**
-* **Week 2: Inspect and maintain all exterior doors and windows. Shovel roof access points.**
-* **Week 3: Thorough inspection of the east and west wings. Report any water damage.**
-* **Week 4: Begin inventory of the basement storage and boiler room.**
-
-**Do not enter the guest rooms on the second floor unless absolutely necessary.**
-
-**The lodge will tell you what it needs.**
-
-I read the list twice. The warning about the second-floor guest rooms lingered. Why specify that? And what exactly did they mean by “the lodge will tell you what it needs”?
-
-I folded the paper and slipped it into my jacket pocket.
-
 I set my duffel down, the soft thud quickly swallowed by the building. In Brooklyn, silence had always been an illusion, layered with radiators, arguments, and the endless roar of the city. Here, the quiet felt ancient. As though Blackpine had been holding its breath since 1998, and had only now begun to exhale around me.
 
 I found the light switches and flicked them on. Weak yellow bulbs buzzed to life. The lobby looked untouched. No footprints but mine. No coats on the rack. No luggage waiting by the stairs. Just dust, cold, and that faint metallic scent.
@@ -76,7 +58,7 @@ The caretaker’s apartment lay behind the kitchen — small, cold, and function
 
 It was exactly what I had come for.
 
-As I climbed into the cold bed and pulled the blankets tight, I told myself that tomorrow the real work would begin. Hard labor. Exhaustion. Silence deep enough to bury everything I’d carried here.
+As I climbed into the cold bed and pulled the blankets tight, I told myself that tomorrow the real work would begin. I'd find the list of chores, and the hard labor, exhaustion, and silence deep enough to bury everything I’d carried here could begin.
 
 But lying there in the dark, staring at the shadowed ceiling, I couldn’t shake the feeling that the silence wasn’t empty. Rather, it was...*waiting*.
 
