@@ -1,0 +1,15 @@
+Okay, I’ll start off by saying this is a recount of a story told to me and my friends by my teacher late at night in our cabin on a school field trip. I’d like to think he was joking or trying to scare us, but honestly I don’t think so.
+
+My teacher, who I’ll let his name be Sam for this story, was seeing this girl named Sarah when he was in his 20’s. Sarah was a definite goth girl, which Sam was into at the time. He told us they were intimate and they would have sex at her house all the time. He would fall asleep immediately after sex but in the morning when he would wake up, Sam would always feel terrible and “weakened” as he put it. During sex he was fine, no headaches or anything only after would he feel weak. Sam would ask Sarah about this, jokingly saying if she was banging his head while he slept, but she just shrugged it off like it was nothing.
+
+Sam already had the idea in his mind that Sarah was doing something to him while he slept, but he wanted to see for himself. One night after he and Sarah had done the deed, he made sure to stay awake but pretend to be asleep to Sarah, just to see what she would do. 
+
+He was right, Sarah would get off from the bed and gather a few things from around her room, opening cabinets and wardrobes. Sam still had his eyes closed so he dident know what these things she had gathered were. He heard a lighter igniting to set aflame something, candles most probably. Afterward, Sam could feel Sarah climb onto his lap slowly. She unbuttoned his shirt and started to draw something on his chest as well as placing multiple pebbles across his chest. Sam thought Sarah must’ve known he was still awake and that she wanted to continue their kinky sexual desires, so he continued keeping his eyes closed for a bit. This did not last long as soon as he heard Sarah speaking.
+
+Sarah started speaking in a language that terrified Sam to the core, absolutely demonic he said. She did not sound like a human. He woke up immediately and saw Sarah with her eyes completely black and both her hands by her shoulders making some weird hand gesture/symbol. Sam was obviously freaked out and he pushed Sarah off of him and ran the heat out of the house, still shirtless. He ran all the back home through the rain, his phone was apparently blaring with text tones from Sarah. He got back home safely and never spoke to Sarah again.
+
+Sam told us what he thought was going on was that Sarah was actually siphoning his life energy through a sort of satanic ritual every-time he fell asleep after sex so that she would gain something like wealth or longer life. 
+
+We kinda doubted him at first, but the way he described everything was surreal. I asked him about the chest markings and if he did research on it since it was still on his chest, but thanks to plot convenience it had washed away from the rain of course. 
+
+But anyways, that’s one of many story’s from my teacher in school camp. Thanks for reading though. He told us 2 more stories after this. Let me know if you’d like me to post those as well.
