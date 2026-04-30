@@ -101,3 +101,5 @@ Does anyone have any ideas for where to go from here? As much as I absolutely ha
 Please.
 
 *Please*.
+
+[Update.](https://www.reddit.com/r/nosleep/s/h0ODB8s0Qz)
