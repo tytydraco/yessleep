@@ -6,7 +6,7 @@ I kept my mouth shut, though. Silvia worked hard to salvage our lives. Putting 
 
 “*We’ll go next year, I promise.*” 
 
-I never had any intention of saying yes. 
+I never had any intention of saying yes.
 
 I had plenty of chances to change my mind, but year after year, I coldly withstood her heartfelt pleas. I’d be lying if I said I didn’t experience a similar longing, a yearning for answers that would sometimes keep me up at night, but I suppressed it, forced it down deep. Visiting *her* country was a symbol, an act of forgiveness. My mother did not deserve forgiveness. Fuck her, and fuck the putrid soil that supported her miserable feet. I would not go to that place. Not even for Silvia. 
 
@@ -20,13 +20,13 @@ The door jerked open. 
 
 Hazy light from the hallway trickled into her jet-black apartment. 
 
-I felt my body go numb. 
+I felt my body go numb.
 
 She was on the floor. Face down, sprawled out, transfixed and rigid. Her corpse harbored this strange brightness. Her skin seemed to glow in the darkness, shimmering a dull crimson like molten metal that’d begun to cool. 
 
 Carbon monoxide can do that, apparently. 
 
-The coroner detailed the pathology to me with a tone-deaf excitement, shaking his wrinkled hands, talking himself breathless. Carbon monoxide is greedy, he said. The odorless gas hijacks your blood, That piracy alters the blood cells, displacing precious oxygen and brightening them in the process. 
+The coroner detailed the pathology to me with a tone-deaf excitement, shaking his wrinkled hands, talking himself breathless. Carbon monoxide is greedy, he said. The odorless gas hijacks your blood. That piracy alters the blood cells, displacing precious oxygen and brightening them in the process. 
 
 That’s why the corpses flush: suffocation makes them shine like a dying star. 
 
@@ -42,7 +42,7 @@ The sweatshop was a marginal improvement over the dumpster. The smell inside was
 
 Elisa was about to turn six when Silvia died. 
 
-“I don’t want a party this year,” 
+“I don’t want a party this year,”
 
 She was sulking at the table, stirring a bowl of leathery slush that had once been Cheerios. I barely registered what she had said. I was standing at the sink, staring at the wall, pretending to wash dishes. The near-scalding water felt good on my hands. 
 
@@ -52,7 +52,7 @@ She was sulking at the table, stirring a bowl of leathery slush that had once be
 
 “It’s not fair,” she continued. “None of it seems fair.” 
 
-“Life isn’t fucking fair.” 
+“Life isn’t fucking fair.”
 
 The caustic response spilled from my lips like a quiet exhale, automatic, thoughtless. When I realized what I’d said, I shifted towards Elisa. She was studying me with wide, unblinking eyes. Her grimace betrayed a painful confusion. This was her first brush with death; painful confusion had been her default setting for weeks. 
 
@@ -60,7 +60,7 @@ Her eyes became glassy. I opened my mouth to say something, anything, but all th
 
 “Mommy’s not mad, okay? She’s just really tired. Want to go watch some TV?” 
 
-She pressed her face into his chest and nodded. As he paced out of the kitchen, Ryan shot me a look. *That* look. Mommy may not have been mad, but Daddy sure was. There was a distant *click*. The muffled pandemonium of Saturday morning cartoons started echoing through our small home. I sighed and turned off the faucet. Much as I’d been enjoying the hurt, the scalding water had reddened my hands. The sight of flushed skin made me want to vomit. 
+She pressed her face into his chest and nodded. As he paced out of the kitchen, Ryan shot me a look. *That* look. Mommy may not have been mad, but Daddy sure was. There was a distant *click*. The muffled pandemonium of Saturday morning cartoons started echoing through our small home. I sighed and turned off the faucet. Much as I’d been enjoying the hurt, the scalding water had reddened my hands. The sight of flushed skin made me want to vomit.
 
 Ryan marched back into the kitchen, broad feet slapping against the hardwood. I stuck my hands into my pockets, closed my eyes, and braced myself. 
 
@@ -166,7 +166,7 @@ My memories of that night are disturbingly incomplete.
 
 Here's what I do remember.
 
-It begins with me at the back of this dimly lit dive bar. I’m brooding, throwing back liquor at a reckless pace, when I’m suddenly approached by a well-dressed man. He’s sporting an indigo blazer and black chinos, overdressed for the stifling heat. Up close, he smells like brine. The table wobbles when he leans on it, one leg shorter than the others. He steadies my glass with two fingers so it doesn’t tip. I can't remember whether he introduced himself or just sat down and started talking. Called himself Michael. Maykel? Mikal? Something like that. Over and over, he apologizes. I ask him:
+It begins with me at the back of this dimly lit dive bar. I’m brooding, throwing back liquor at a reckless pace, when I’m suddenly approached by a well-dressed man. He’s sporting an indigo blazer and black chinos, overdressed for the stifling heat. Up close, he smells like brine. The table wobbles when he leans on it, one leg shorter than the others. He steadies my glass with two fingers so it doesn’t fall. A small wave of brandy laps at his gaunt fingertips. He takes his hand out of my glass and sits down. I can't remember whether he introduced himself or just sat down and started talking. Called himself Michael. Maykel? Mikal? Something like that. Over and over, he apologizes. I ask him:
 
 ***What for?*** 
 
@@ -202,6 +202,10 @@ I squint, carefully searching the rootbeds. My heart is stammering. My thoughts 
 
 The blackness is nearly impenetrable, but I look closer, because I desperately want her to be there, because I need to tell Silvia that I love her, and that I’m sorry. I knew something was wrong the night she died, but I didn’t act. I could hear it in her voice when we spoke on the phone, but I chose to ignore it, because the way she talked about mom made me so goddamned angry. 
 
+I could have saved her like she saved me.
+
+But I didn't.
+
 My eyes widen. I think I see something downstream; I convince myself something’s there. A nebulous shape looming within the palisade of mangroves. My body’s drifting forward, over the lip of the boat.
 
 I murmur my sister’s name. 
@@ -222,7 +226,7 @@ And my vision is dappled with tiny, pulsing dots. 
 
 “You don’t remember *anything* about how you got home?” The park bench squeaked as Ryan slid closer. He was sweating. His eyes darted between me and Elisa, who was pedaling her bicycle along a nearby footpath. I massaged his stone shoulders.
 
-“I…no, I really don’t. I was at the bar top, drinking. Some guy came and bothered me, said some strange shit, but…he was harmless. Then, twenty-four hours later, I’m home.” I pause, preparing another lie.  
+“I…no, I really don’t. I was at the bar top, drinking. Some guy came up and bothered me, said some strange shit, but…he was harmless. Then, twenty-four hours later, I’m home.” I pause, preparing another lie.  
 
 “But in between? Nothing, nothing at all…“ 
 
@@ -244,7 +248,7 @@ Her lips cracked into a delicate smile. I bent over and began smearing the antis
 
 “Thank God.” 
 
-“ That said…*maybe* he spiked my drink? Not with roofies, with…I don’t know…a hallucinogen, something that could explain the amnesia. Can’t say *why* anyone would dose a complete stranger, but…” my voice trailed off. Out of nowhere, every cell in my body began to buzz, and my attention was drawn to a man limping past us. 
+“That said…*maybe* he spiked my drink? Not with roofies, with…I don’t know…a hallucinogen, something that could explain the amnesia. Can’t say *why* anyone would dose a complete stranger, but…” my voice trailed off. Out of nowhere, every cell in my body began to buzz, and my attention was drawn to a man limping past us. 
 
 His name was Mateo. 
 
@@ -252,15 +256,15 @@ He was well known in the neighborhood as a sweet but self-destructive man. Uncon
 
 Today, though, something was different. 
 
-The flesh was…moving. Churning. The blackened skin peeking out from his dirt-caked sneaker snapped and bubbled like boiling tar, surreal and revolting. My gaze darted to his face. He wasn’t in pain, he wasn’t in distress - he wore the hollow smile and the vacant eyes of a lifelong scavenger, same as he always did. Nausea clawed at the back of my throat. I told myself it wasn’t real. I tried to tear my eyes away, but, God, I couldn’t. There was something bewitching about *the way* his flesh churned. A pattern. Meaning concealed within its beats and cadences. something that needed to be felt to be completely understood; a tactile language like Braille. The tips of my fingers began throbbing. Bizarre notions took root in my mind. The way flesh moved, something about it reminded me of Silvia’s voice. 
+The flesh was…moving. Churning. The blackened skin peeking out from his dirt-caked sneaker snapped and bubbled like boiling tar, surreal and revolting. I looked to his face. He wasn’t in pain, he wasn’t in distress - he wore the hollow smile and the vacant eyes of a lifelong scavenger, same as he always did. Nausea clawed at the back of my throat. I told myself it wasn’t real. I tried to tear my eyes away, but, God, I couldn’t. There was something bewitching about *the way* his flesh churned. A pattern. Meaning concealed within its beats and cadences. something that needed to be felt to be completely understood; a tactile language like Braille. The tips of my fingers began throbbing. Bizarre notions took root in my mind. The way flesh moved, something about it reminded me of Silvia’s voice.
 
-No, I thought. That's absurd. 
+No, I thought. That's absurd.
 
-But…was it absurd? 
+But…was it absurd?
 
-Speech is just a series of vibrations, right? Vibrations that could just as easily swim through dead meat as they could living vocal cords? 
+Speech is just a series of vibrations, right? Vibrations that could just as easily swim through dead meat as they could living vocal cords?
 
-No. I needed to get a fucking grip. 
+No. I needed to get a fucking grip.
 
 There was another explanation.  I was exhausted. I was still under the effect of some hallucinogen. I was sick. No matter what I threw at it, though, the notion persisted; some part of her was in that dead flesh. It was a paradox: the notion made no sense, and yet, I’d never felt so sure of something, and all I had to do to know for certain was *feel* it move. I needed to touch Mateo’s whispering foot, needed to burrow my fingertips into the rot until I heard what she was saying…
 
@@ -284,7 +288,7 @@ Because I knew which alleyway Mateo slept in at night. 
 
 The next morning, I returned to the factory for the first time since Silvia’s death. It was a strange and lonely homecoming. Not only was Silvia gone, but Ryan was absent as well. The flu had been doing the rounds at Elisa’s school; it was only a matter of time until she contracted it. He implored me to call out and take care of her, but I told him that was a bad idea. Although our workplace was much less exploitive than it had been when we initially signed on, it was still run by a merciless organization whose patience could only be tested so much. Since he had continued to work while I was out on the few days of bereavement my manager would afford me, it was important that I show my face. 
 
-It was nicer than I anticipated. 
+It was nicer than I anticipated.
 
 There was a blissful normality to the labor. The droning hum of the many sewing machines, the repetitive movements, the familiarity and the routine. The comfort, however, was fleeting. Before long, my fingertips began to throb. I thought of Mateo’s whispering foot. 
 
@@ -300,7 +304,7 @@ I’d do anything to speak to my sister again, right? 
 
 Yes.
 
-I would. 
+I would.
 
 I leaped from my chair, hand outstretched, reaching for her mouth. The suddenness of my outburst caught Grace off guard. She yelled “*GET BACK YOU - “* before my fingers interrupted her. I cradled her tongue in my palm and pressed my fingertips into the warm, wriggling flesh. A panicked scream reverberated through the small bones in my wrist. I could feel Silvia. I could almost hear her, too. She was trying to tell me something, but her voice was muffled, coarse with static like a call with a shoddy connection. As Grace’s teeth began to clamp down, I dragged my fingertips across her tongue, arranging them into various configurations, trying to locate the pattern that would improve this divine signal…
 
@@ -370,7 +374,7 @@ My thumbs shook. 
 
 I was about to give in, I could practically feel the greenlit impulse flying down my nervous system, but before it arrived at my thumbs, my eyes landed on my empty ring finger. 
 
-The memory of pawning my engagement ring flashed through my mind. 
+The memory of pawning my engagement ring flashed through my mind.
 
 Disbelief surged through my body - why the fuck would I do something so cruel? That’s not who I am. That’s not how Silvia raised me to be. 
 
@@ -394,7 +398,7 @@ Is that *really* what I think?
 
 Or is that a suggestion from the thing inside me? A way to prevent me from getting help...
 
-A shrill noise erupted from my cell phone. 
+A shrill noise erupted from my cell phone.
 
 I nearly jumped out of my skin, dropping my mug in the process. It shattered on the kitchen tile, launching ceramic shrapnel in every direction. 
 
