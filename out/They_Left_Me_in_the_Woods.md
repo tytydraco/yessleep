@@ -338,7 +338,7 @@ I watched his pretty blue eyes widen as I grabbed the knife handle with one hand
 
 I breathed. I laughed. Then I got up. I found my glasses in his computer drawer.
 
-I'm writing this now just so everyone knows. It’s important to me that people know, even if it’s too much to understand. Hell, I still don’t.
+I'm writing this now just so everyone knows. It’s important to me that people know, even if it’s too much to understand. Hell, I still don’t. But here's what I know:
 
 My name is Alice Wright. I’m the oldest of seven, the daughter of Eileen and David Wright. And I was seventeen years old when I was murdered. But it wasn’t the end. Not that it makes any difference, but underneath it all I do feel this pit in my stomach for Mrs. Miller, the Holloways, Little Alice...
 
