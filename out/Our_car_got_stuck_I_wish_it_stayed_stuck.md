@@ -20,7 +20,7 @@ But just the night would be fine, I thought. Until sunrise... And we were so far
 
 "Maybe this is for some kind of greater good," she said at one point. "Part of some bigger plan for us."
 
-"That's now how the universe works," I said, and she knew that, so why would she suggest such a thing? We're both staunch atheists.
+"That's not how the universe works," I said, and she knew that, so why would she suggest such a thing? We're both staunch atheists.
 
 Either way, I tried to keep my head clear. What can we do?
 
