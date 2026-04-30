@@ -1,6 +1,6 @@
 So my life pretty much derailed back in spring 2022. This is when the downward spiral, so to speak, really began for me. Trust me, this is necessary context for the rest of this.
 
-I was at buffalo wild wings, watching some UFC fights with some friends and decided to cook up a harmless little parley before the main card. I’d never gambled on anything before and only had this vague understanding of how it worked. But I had just passed some exams and was about five or six drinks deep and the world just seemed so open and rife with possibilities, so I thought why the hell not.
+I was at buffalo wild wings, watching some UFC fights with some friends and decided to cook up a harmless little parlay before the main card. I’d never gambled on anything before and only had this vague understanding of how it worked. But I had just passed some exams and was about five or six drinks deep and the world just seemed so open and rife with possibilities, so I thought why the hell not.
 
 I ended up turning $15 into over $200 that night. But based on the way I was acting, you would’ve thought I’d won $200 mil. The high was just that good. More visceral than I would’ve thought.
 
@@ -276,7 +276,7 @@ But he still wouldn’t look at me. I looked down at the rest of the bar and sud
 
 I asked out loud what the hell that was supposed to mean.
 
-“It’s five o clock on a *Tuesday*,” the bartender spoke up, his tone implying that he was explaining something painfully obvious. “Think about it, yeah? How busy can a *Chili’*s get? On a Tuesday? At five o clock? Just think about it. If we don’t sell this, then nobody gets paid. So quit your whining and come back when it’s emptier.”
+“It’s five o clock on a *Tuesday*,” the bartender spoke up, his tone implying that he was explaining something painfully obvious. “Think about it, yeah? How busy can a \*Chili’\*s get? On a Tuesday? At five o clock? Just think about it. If we don’t sell this, then nobody gets paid. So quit your whining and come back when it’s emptier.”
 
 Any further questions of mine fell on deaf ears. I was invisible again. I slapped one of the $10’s onto the counter and stood up, left the place.
 
