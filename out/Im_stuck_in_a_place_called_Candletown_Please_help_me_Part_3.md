@@ -65,3 +65,5 @@ I'll keep you all updated when I hit the mines tomorrow. I'll try and keep alive
 Because it *does* want something from me. I know this now. It's talking to me. Demanding, from me. But it can't have whatever it wants.
 
 I refuse to give up even a shred of my soul to this cursed place.
+
+[Update.](https://www.reddit.com/r/nosleep/s/d2uEqljEFc)
