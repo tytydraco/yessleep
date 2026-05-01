@@ -254,7 +254,7 @@ He was well known in the neighborhood as a sweet but self-destructive man. Uncon
 
 Today, though, something was different. 
 
-The flesh was…moving. Churning. The blackened skin peeking out from his dirt-caked sneaker snapped and bubbled like boiling tar, surreal and revolting. I looked to his face. He wasn’t in pain, he wasn’t in distress - he wore the hollow smile and the vacant eyes of a lifelong scavenger, same as he always did. Nausea clawed at the back of my throat. I told myself it wasn’t real. I tried to tear my eyes away, but, God, I couldn’t. There was something bewitching about *the way* his flesh churned. A pattern. Meaning concealed within its beats and cadences. Something that needed to be felt to be completely understood; a tactile language like Braille. The tips of my fingers began throbbing. Bizarre notions took root in my mind. The way flesh moved, something about it reminded me of Silvia’s voice.
+The flesh was…moving. Churning. The blackened skin peeking out from his dirt-caked sneaker snapped and bubbled like boiling tar, surreal and revolting. I looked to his face. He wasn’t in pain, he wasn’t in distress - he wore the hollow smile and the vacant eyes of a lifelong scavenger, same as he always did. Nausea clawed at the back of my throat. I told myself it wasn’t real. I tried to tear my eyes away, but, God, I couldn’t. There was something bewitching about *the way* his flesh churned. A pattern. Meaning concealed within its beats and cadences. Something that needed to be felt to be completely understood; a tactile language like Braille. The tips of my fingers began throbbing. Bizarre notions took root in my mind. The way his flesh moved, something about it reminded me of Silvia’s voice.
 
 No, I thought. That's absurd.
 
