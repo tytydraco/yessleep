@@ -1,7 +1,5 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1sy8dsd/i_took_a_winter_caretaker_job_at_an_abandoned/)
 
-(I edited the first part so that I haven't found the work instructions yet)
-
 \------------
 
 I woke to the cold.
@@ -44,7 +42,6 @@ I followed the corridor back to the kitchen, which was more industrial than rust
 2. ***Inspect fuel levels in the generator shed.***
 3. ***Shovel and clear snow from perimeter walkways.***
 4. ***Restock firewood inside (minimum two days’ supply).***
-5. ***Test emergency radio (channel 9).***
 
 It was practical and precise, the kind of thing I’d always wanted in my old life but never got—someone to tell me, in bullet points, exactly how to proceed.
 
