@@ -308,7 +308,7 @@ I leaped from my chair, hand outstretched, reaching for her mouth. The suddennes
 
 Pain exploded across the back of my hand. 
 
-I launched my arm back and ripped it from her mouth. Strips of skin peeled away under the pressure of her front teeth. The force caused Grace to fall backward onto the floor. I stared at the traumatized woman. Blood trickled from her trembling lips. Her eyes were bulging, ripe with shock and fear. People were gathering around us. No one was exactly sure what happened. I shoved my injured hand into my pants pocket and pushed through the crowd. 
+I launched my arm back and ripped my hand from her mouth. Strips of skin peeled away under the pressure of her front teeth. The force caused Grace to fall backward onto the floor. I stared at the traumatized woman. Blood trickled from her trembling lips. Her eyes were bulging, ripe with shock and fear. People were gathering around us. No one was exactly sure what happened. I shoved my injured hand into my pants pocket and pushed through the crowd. 
 
 You’d think I’d have left the factory horrified and ashamed, but I walked home with a smile pinned to my jaw. I felt incredible. Waves of euphoria rushed through my body and collected in my fingertips.  
 
