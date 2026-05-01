@@ -26,9 +26,7 @@ She was on the floor. Face down, sprawled out, transfixed and rigid. Her corpse 
 
 Carbon monoxide can do that, apparently. 
 
-The coroner detailed the pathology to me with a tone-deaf excitement, shaking his wrinkled hands, talking himself breathless. Carbon monoxide is greedy, he said. The odorless gas hijacks your blood. That piracy alters the blood cells, displacing precious oxygen and brightening them in the process. 
-
-That’s why the corpses flush: suffocation makes them shine like a dying star. 
+The coroner detailed the pathology to me with a tone-deaf excitement, shaking his wrinkled hands, talking himself breathless. Carbon monoxide is greedy, he said. The odorless gas hijacks your blood. That piracy alters the blood cells, displacing precious oxygen and brightening them in the process. That’s why the corpses flush: suffocation makes them shine like a dying star. 
 
 The whole thing tore me apart. I couldn’t swallow the raw brutality of it. Silvia died alone, completely without ceremony; a quick and meaningless end to a hard-fought life. When we were abandoned, Chicago was bursting at the seams with strays. The city wouldn’t have saved us. If social services didn’t have enough resources to rescue their own children, what chance did a pair of non-natives have? 
 
