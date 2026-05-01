@@ -256,7 +256,7 @@ He was well known in the neighborhood as a sweet but self-destructive man. Uncon
 
 Today, though, something was different. 
 
-The flesh was…moving. Churning. The blackened skin peeking out from his dirt-caked sneaker snapped and bubbled like boiling tar, surreal and revolting. I looked to his face. He wasn’t in pain, he wasn’t in distress - he wore the hollow smile and the vacant eyes of a lifelong scavenger, same as he always did. Nausea clawed at the back of my throat. I told myself it wasn’t real. I tried to tear my eyes away, but, God, I couldn’t. There was something bewitching about *the way* his flesh churned. A pattern. Meaning concealed within its beats and cadences. something that needed to be felt to be completely understood; a tactile language like Braille. The tips of my fingers began throbbing. Bizarre notions took root in my mind. The way flesh moved, something about it reminded me of Silvia’s voice.
+The flesh was…moving. Churning. The blackened skin peeking out from his dirt-caked sneaker snapped and bubbled like boiling tar, surreal and revolting. I looked to his face. He wasn’t in pain, he wasn’t in distress - he wore the hollow smile and the vacant eyes of a lifelong scavenger, same as he always did. Nausea clawed at the back of my throat. I told myself it wasn’t real. I tried to tear my eyes away, but, God, I couldn’t. There was something bewitching about *the way* his flesh churned. A pattern. Meaning concealed within its beats and cadences. Something that needed to be felt to be completely understood; a tactile language like Braille. The tips of my fingers began throbbing. Bizarre notions took root in my mind. The way flesh moved, something about it reminded me of Silvia’s voice.
 
 No, I thought. That's absurd.
 
@@ -306,7 +306,7 @@ Yes.
 
 I would.
 
-I leaped from my chair, hand outstretched, reaching for her mouth. The suddenness of my outburst caught Grace off guard. She yelled “*GET BACK YOU - “* before my fingers interrupted her. I cradled her tongue in my palm and pressed my fingertips into the warm, wriggling flesh. A panicked scream reverberated through the small bones in my wrist. I could feel Silvia. I could almost hear her, too. She was trying to tell me something, but her voice was muffled, coarse with static like a call with a shoddy connection. As Grace’s teeth began to clamp down, I dragged my fingertips across her tongue, arranging them into various configurations, trying to locate the pattern that would improve this divine signal…
+I leaped from my chair, hand outstretched, reaching for her mouth. The suddenness of my outburst caught Grace off guard. She yelled “*GET BACK YOU - “* before my fingers interrupted her. I cradled her tongue in my palm and pressed my fingertips into the warm, wriggling flesh. A panicked scream reverberated through the small bones in my wrist. I could feel Silvia. I could almost hear her, too. She was trying to tell me something, but her voice was muffled, coarse with static like a call with a shoddy connection. As Grace’s teeth began to clamp down, I dragged my fingertips across her tongue, arranging them into various configurations, trying to locate the pattern that would amplify this divine signal…
 
 Pain exploded across the back of my hand. 
 
@@ -458,4 +458,4 @@ My smile grew. 
 
 For the first time since Silvia’s death, it was real. 
 
-“Yes, Elisa. [I promise.” ](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
+“Yes, Elisa. [I promise.”](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/) 
