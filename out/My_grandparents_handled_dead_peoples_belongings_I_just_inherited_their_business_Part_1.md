@@ -1,6 +1,6 @@
 “Hey Honey! Your dad and I just made port so I JUST got a signal. Listen, I know grandpa left you the business in his will but I think we both know that if he was in his right mind in the end he would have given it to your father and I, so we need you to be a good boy and just sign it over to us. Oh! And Dad and I could really use the money he mistakenly left you, so can you go ahead and wire that to us? Thank you sweetie. Hope you're well. We're going to a local beach bar with this couple from cabin 3. Love you. Miss you.”
 
-​That's what the email that my mother wrote me said. I immediately deleted it. She's out of her mind as usual, Dad too. My grandparents put everything into this business. Built it from nothing. And they only want to sell it. For what? To fund some wanderlust swingers cruise or whatever they're doing this time? Yeah right.
+​That's what the email that my mother wrote me said. I immediately deleted it. She's out of her mind as usual, Greg too. My grandparents put everything into this business. Built it from nothing. And they only want to sell it. For what? To fund some wanderlust swingers cruise or whatever they're doing this time? Yeah right.
 
 ​Anyway, my name is Josh and I am now the owner and proprietor of Burbeck Estate Solutions™. We take care of the estate of the recently departed as a service to the family.
 
