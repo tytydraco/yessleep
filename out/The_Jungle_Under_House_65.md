@@ -596,7 +596,7 @@ His hand cuffed around her arm.
 
 Sarah lunged, unstoppable.
 
-One viscous step and her knee drove between his legs with all the kindness of a prison sentence. He folded with a sound I hope never to hear again; Weiss stumbled back against the wall, one hand over her mouth, the other cradling her arm as if he'd tried to sever it.
+One viscous step and her knee drove between his legs with all the kindness of a prison sentence. He folded with a sound I hope never to hear again; Weiss stumbled back against the wall, one hand over her mouth, the other shaking as if he'd tried to sever it.
 
 Sarah caught a fistful of shirt and hit him again, a filthy punch to the mouth, spitting blood.
 
