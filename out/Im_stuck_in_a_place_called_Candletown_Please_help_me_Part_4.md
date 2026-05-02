@@ -117,3 +117,5 @@ I have other things going on. But first, I'm going to try and sleep. I feel like
 I'll update again soon. 
 
 I'm so sorry, May.
+
+[Update.](https://www.reddit.com/r/nosleep/s/L0CCecUeR3)
