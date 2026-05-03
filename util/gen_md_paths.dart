@@ -1,5 +1,7 @@
 import 'dart:io';
 
+const githubBaseUrl = 'https://github.com/tytydraco/yessleep/blob/main/';
+
 class Index {
   List<String> listItems = [];
 
@@ -14,12 +16,13 @@ void main() {
 
   for (FileSystemEntity file in Directory('out').listSync()) {
     final path = file.path;
+    final publicPath = '$githubBaseUrl$path';
     final name = path
         .replaceAll('out/', '')
         .replaceAll('.md', '')
         .replaceAll('_', ' ')
         .trim();
-    index.addPath(name, path);
+    index.addPath(name, publicPath);
   }
 
   index.sort();

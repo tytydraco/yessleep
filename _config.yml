@@ -6,3 +6,6 @@ github_username: tytydraco
 # Include files prefixed by underscores
 include:
   - _*.md
+
+exclude:
+  - out
