@@ -43,6 +43,8 @@ for posts in post_generators:
         sanitized_title = post.title.replace(' ', '_')
         sanitized_title = ''.join(ch for ch in sanitized_title if (ch.isalnum() or ch == '_'))
         sanitized_content = post.selftext.encode('utf8')
+        if sanitized_content.startswith(b'---'):
+            sanitized_content = b'---\n---\n' + sanitized_content
 
         author_name = '[deleted]'
         if post.author is not None:
