@@ -8,7 +8,7 @@ But I’ll get back to that.
 
 We didn't sleep after the photo.
 
-I mean, honestly, how could you? Something had been in the house with us. Something all of our phones had proof of. Somewhere in the middle of the night, something had looked down on us from a place a person couldn’t physically be and taken a picture fucking photos of all of us.
+I mean, honestly, how could you? Something had been in the house with us. Something all of our phones had proof of. Somewhere in the middle of the night, something had looked down on us from a place a person couldn’t physically be and taken a fucking picture of all of us.
 
 All of us except Page.
 
@@ -197,8 +197,6 @@ The hole went down about twelve feet—normal foundation depth—but then it jus
 Into a cavernous space.
 
 A room that couldn't exist, that *should not* exist, because there was no basement under the church, there had *never* been a basement, the building plans we'd seen in the library after the fire had shown a slab foundation eighteen inches thick and nothing else, but I was looking down into a room the size of a fucking football stadium, if not larger.
-
-The ceiling—which should have been the bottom of the foundation we were standing on—was so far above the floor that Drew's phone light couldn't reach it. The walls stretched out in every direction, farther than the light could reach, farther than should fit under a church this size.
 
 Ronnie was doing math out loud next to me.
 
