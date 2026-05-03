@@ -1,73 +1,245 @@
-I may not know everything, but I feel like I know a little less every day. It started a few weeks ago. It began with me stumbling over my words occasionally, I’m not the most eloquent person in the world but I rarely ever stuttered or mumbled. At first I just thought that I’d had a little too much coffee, maybe not enough sleep. It got more concerning the more frequent it became. Next I’d start to space out in the middle of talking, as if I’d gotten lost, trailing off awkwardly like something else had drawn my attention, even though nothing else was there to do such a thing.  
+I only have ten minutes. No time for a title. I’m not rereading this, I’m not fixing anything, I’m just writing and watching the time because if I slow down I won’t finish.
 
+Every day at exactly 10:00 PM, I regain control of my body.
 
-I couldn’t tell you any particular thing that might’ve brought this up. I’m not overworked, I’m not too stressed, hell I’m even sleeping as well as I can. So what’s happening? Eventually I started asking friends and family, while I received a myriad of answers and solutions, none of it seemed to do anything. “Maybe you’re not eating right, try some vitamins.” “Try cold showers, it helps with inattentiveness.” “Maybe you’re having some spiritual misalignment, try these essential oils.”   
+At exactly 10:10 PM, I lose it.
 
+There’s no fade, no warning, no gradual loss. One second I can move, the next I can’t. But I don’t black out. I don’t disappear. I am fully conscious the entire time. I see everything, hear everything, feel everything.
 
-I wish I was joking about that last one. As time passed my spacing out got worse, my sentences falling into gibberish happened more often, I seemed to forget everyday knowledge, forget common sense. I felt like a small child first learning how to talk. Even now I can hardly focus on this keyboard. Ikeep looking away at the game I was playing before I started this. I haven’t even left the pause screen in an hour but for some reason it keeps drawing my attention. If I’m not doing that I look away into the dead space and just pick at my lip. I force myself to keep typing this but I can’t focus. It feels like my brain is being drained of everything inside of it.   
+I just don’t decide any of it.
 
+The first time it happened, I thought I was having some kind of neurological episode. I was in bed scrolling on my phone and I couldn’t stop. My thumb kept moving. I tried to drop it—nothing. I tried to sit up—nothing.
 
-I can tell that I’m getting more lethargic, it's been days and I still haven’t thought of an actual title for this post, it's starting to creep me out though how often my lapses in attention are becoming, it doesn’t feel natural, it feels like an old rubber band being held stretched. Each time it loses more elasticity. Each time I’m here less and less. How long until I don’t stretch anymore?  
+Then I sat up anyway.
 
+My body walked me to the kitchen, poured a glass of water, drank it, set it down. Completely normal. No shaking, no hesitation.
 
-Everything has begun to smell strange. I can’t tell if it's the house or just my melting brain misfiring. I don’t understand what’s wrong. I can’t really keep track of how time passes anymore. I blink and hours pass, I stare at this screen for days and only minutes go by. Before you assume early onset dementia. I’m 25 years old. I work in a library. I have a- I have a girlfriend. I think. Maybe a boyfriend. Early onset dementia starts as early as your forties, very rarely your mid thirties. I’ve never heard of it this early. I don’t do drugs. I don’t think I do.   
+If someone had been there, they wouldn’t have noticed anything wrong.
 
+At 10:00 PM, I dropped the glass. Just let go. It shattered and I finally moved again. I remember staring at my hands like they didn’t belong to me.
 
-I keep walking away from the computer. I feel uncomfortable, I can’t sit still, I just want to finish this thing and put it up so someone can tell me what’s wrong with me. Why is this happening? Someone has to know. The walls are creaking. I hear things, there’s something inside I know. The moments of clarity are becoming few and far between, I feel so dizzy now. I need to write a note to myself, I can’t forget about this.   
+I checked the time.
 
+10:01 PM.
 
-My head feels like it’s on fire, looking at the screen hurts my eyes but the note on the table says I need to finish this, how much more do I have to write? Why can’t someone else do this? I could hit the post button now and be done with it but I should probably listen to the note. I can hardly keep my hands on the keyboard. I just want to go home. I am home, it looks so different, what changed?  
-	  
-  
-I don’t remember writing any of this. I can’t even remember the past week very well. I don’t understand what’s happening to me and I’m scared. I can tell this moment of lucidity won’t last but I need to keep writing as long as I can because I need help. For some reason my phone is broken, most of the food is gone, I can’t tell how long I’ve been here but I’m scared to leave because what if I don’t remember how to get back? I can’t just make food come to me. There’s something in the basement. I heard it. I know I might sound insane but something is down there. I can see a green glow through the doorframe, I don’t know what it is but it can’t be good. I’ve been writing this for days, I looked through and it seems like I never stay typing for more than a couple of minutes but what else have I been doing all this time? Should I investigate the basement?  
+That was the first window.
 
+The next day, I tested it.
 
-Why is this computer still on? Are you listening to what I’m doing? You can’t see me anymore, I put tape over the webcam. You can’t change things in here now that I know what you’re doing.  
-  
-  
-  
-I’m alone here, the sun is gone, it hasn't come up in days. The clock lies, it doesn’t tell you how the time really passes. You can’t trust them, they aren’t real. The basement is getting louder. It wants something.   
+At 10:00 PM, I grabbed a pen and wrote as fast as I could: “I am not in control of my body except for 10 minutes at 10 PM. Something is wrong. Please help me.”
 
+I left it on the table and waited.
 
-Why am I still here? Why does the room keep changing? My clothes are different but I never took them off. My mind is different but I never took it out. Why do I keep typing this? Who is it for? Is it for me? Who am I?   
+10:10 PM, my hand moved. Calm. Controlled. I picked up the note, read it, and tore it apart. No hesitation. No confusion.
 
+Just… fixing something that shouldn’t be there.
 
-The words are the only thing that’s left. I just need a little more and I can finish it. The man in the attic keeps stomping, can he hear the music? Is there music?  
-Can you hear?  
+So I tried something faster.
 
+Texting.
 
-What do the words mean? There’s a note next to the computer. It just says “Finish it.” Why should I? I can just keep typing, it makes me feel important. I can’t focus, I need to focus. What’s in the basement? I keep trying to read this but I can’t. It doesn’t make sense. Is something wrong? Nothing is wrong with me. Arthur C. Clarke's third law: Any sufficiently advanced technology is indistinguishable from magic.   
+The next day, the second I got control, I grabbed my phone and sent messages to my mom, my dad, my sister. I didn’t think about wording, I just typed: “Something is controlling me. I only have 10 minutes at 10 PM. Please come check on me. This is serious.”
 
+I sent them all.
 
-How does a person remember something they’ve forgotten, apparently you can never really forget anything but I can’t seem to recall why I ‘m sitting at this desk.  
+Then I waited.
 
+10:10 PM. Gone again.
 
- There’s blood here.  
+The next day, they came.
 
+I watched everything.
 
-The door is glowing so brightly.  
+My mom knocked first. My body walked to the door and opened it like nothing was wrong. She looked scared. My dad stood behind her, trying not to show it.
 
+They asked if I was okay.
 
-I’m scared, I can’t think straight.  
+My mouth smiled. A little confused. A little embarrassed.
 
+“Yeah,” I said. “I think I had a panic attack last night.”
 
-Please help  
+I remember hearing it and trying to stop it, but I couldn’t.
 
+“I don’t know why I sent those texts,” I added. “I think I just freaked out.”
 
-It’s coming, I can hear it coming. My mind is gone and it feeds off of me. My memories, my sanity, my sense of self awareness. The less of me there is the stronger it becomes and it wants me to know that, all I have left are my racing thoughts and a prayer that I can pry myself away from this before it's too late but I need to finish this. Why should I put more effort into something that's jsut insanity?  
+They asked if I was sure.
 
+I reassured them. Calm. Normal. Even laughed a little like I was embarrassed they came over.
 
-I can’t see my eyes without a mirror or a picture.  
+They believed it.
 
+They left.
 
-Why do we sleep?   
+I felt every word leave my mouth. Perfect tone. Perfect timing. There was nothing in it that would make someone question it.
 
+That’s when I realized this thing doesn’t just control me. It plays me.
 
-He’s almost here.  
+After that, I tried calling the police. Same idea. I told them to come before 10:10.
 
+They didn’t make it in time.
 
-The soul weighs 21 grams  
+When they arrived, I told them it was a misunderstanding. Panic attack. Stress. They accepted it and left.
 
+Everything it says makes sense.
 
-Is it finished yet?  
-  
+I’m at 10:04.
+
+I started looking for patterns because I needed something I could understand.
+
+It follows my routine perfectly. Work, conversations, everything. No one has noticed anything wrong. No one treats me differently.
+
+If anything, I might be acting more normal than usual.
+
+But there are small things.
+
+Gaps.
+
+Inconsistencies.
+
+The biggest one is how it handles anything I try to leave behind.
+
+I tried emailing myself. At 10:00 PM I opened my laptop and wrote everything out. Sent it to a new email I created on the spot.
+
+The next day, I watched as my body opened the laptop, logged in, read the email, and deleted it.
+
+Then emptied the trash.
+
+Clean.
+
+I tried posting online from my usual accounts. Same result. It logs in, deletes the posts, changes passwords sometimes. It closes everything I open.
+
+It cleans up after me.
+
+Systematically.
+
+Like it’s done this before.
+
+I’m at 10:05.
+
+Around day four, I came back at 10:00 PM and there was a bag on my table. I didn’t remember buying anything, but I remembered being in a hardware store earlier.
+
+Inside: wires, a timer, batteries.
+
+At first, I didn’t understand.
+
+Then more things started appearing.
+
+Tools.
+
+Components.
+
+Pieces that clearly fit together.
+
+I tried throwing them out. One night I grabbed everything and dumped it outside as far as I could, then locked the door and sat there.
+
+10:10 PM.
+
+My body stood up immediately, went outside, picked everything up, and brought it back in.
+
+No searching.
+
+No hesitation.
+
+Like it already knew where everything was.
+
+So I tested that.
+
+I hid a small piece the next night. Somewhere that would take time to find.
+
+When I lost control, my body paused for a few seconds. Then turned, walked directly to the hiding spot, picked it up, and went back.
+
+No checking anywhere else.
+
+It knew.
+
+Not reacted.
+
+Knew.
+
+I’m at 10:06.
+
+So I stopped trying to interfere directly. It didn’t work. It just corrected whatever I did.
+
+Instead, I started watching.
+
+The structure it’s building isn’t random. Even I can tell that. The wiring, the timer, the placement—it’s careful.
+
+Intentional.
+
+It’s not guessing.
+
+It knows exactly what it’s making.
+
+A few days ago, I understood what it was.
+
+It’s a bomb.
+
+I don’t know the exact type, but I know enough to recognize it.
+
+Today, something changed.
+
+This morning, my body packed a bag. Carefully. Placed everything inside. Secured it.
+
+Then it went to work like normal.
+
+Talked to people. Sat in meetings. Acted exactly like me.
+
+And I noticed something I hadn’t before.
+
+Reflections.
+
+Windows, screens, anything reflective.
+
+When I catch a glimpse, I can tell where “I’m” looking.
+
+And it wasn’t random.
+
+It was scanning.
+
+Entrances. Exits. People.
+
+Like it was memorizing the space.
+
+I’m at 10:08.
+
+I think I understand enough now.
+
+It lives my life because it needs access to my routine. It removes anything I try to leave behind. It anticipates interference before I even do it.
+
+And it’s building something that needs to be placed somewhere I would naturally be.
+
+I work in a large building.
+
+Hundreds of people.
+
+Same place every day.
+
+Same time.
+
+Same routine.
+
+I think tomorrow is when it finishes.
+
+I don’t know why this started. There wasn’t an event. No warning. One day I had control, and the next I didn’t.
+
+I have less than a minute.
+
+So here’s the only reason this might stay up.
+
+This account—I don’t know the login.
+
+I found it already signed in earlier today while I was at work. I don’t remember ever making it. No saved passwords on my phone. No record of it anywhere I checked.
+
+Which means when I lose control, it won’t be able to log back in to delete this.
+
+I’m going to post this and log out before 10:10.
+
+If I’m right, this stays.
+
+If I’m wrong, it disappears like everything else.
+
+10:09.
+
+My hands are slowing down.
+
+This should go up at 10:09 local time. Comment any ideas you have I will access this post tomorrow.
