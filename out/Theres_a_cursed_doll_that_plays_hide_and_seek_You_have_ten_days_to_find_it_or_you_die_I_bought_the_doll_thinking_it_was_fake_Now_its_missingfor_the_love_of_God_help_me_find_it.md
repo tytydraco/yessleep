@@ -253,3 +253,5 @@ Golden light spills from inside. I catch only a glimpse of his silhouette, waver
 *Ten days he’s gone missing—oh whence has he fled?*
 
 Day nine. Tonight is the end of day nine. And tomorrow, unless we can find the doll before it’s too late, it’ll show up beside this unlucky dude’s body—*stone, cold,* [dead.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+[UPDATE!](https://www.reddit.com/r/nosleep/comments/1t2y54q/theres_a_cursed_doll_that_plays_hide_and_seek_its/)
