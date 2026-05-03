@@ -1,5 +1,3 @@
----
-
 Dear Diary,
 
 I don't know where to begin. It feels like the weight of the world is pressing down on me, crushing me beneath its unrelenting force. I'm starting this diary because I need someone to listen, someone who won't judge me or tell me to just "get over it." Because the truth is, I can't just get over it. Not when every day feels like a battle for survival.

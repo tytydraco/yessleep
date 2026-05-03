@@ -32,6 +32,15 @@ posts_map = {
     'posts': []
 }
 
+def remove_leading_triple_dash_bytes(data: bytes) -> bytes:
+    if data.startswith(b'---\n'):
+        return data[4:]
+    if data.startswith(b'---\r\n'):
+        return data[5:]
+    if data in (b'---', b'---\r'):
+        return b''
+    return data
+
 post_generators = [top_posts, hot_posts]
 for posts in post_generators:
     for post in posts:
@@ -43,8 +52,7 @@ for posts in post_generators:
         sanitized_title = post.title.replace(' ', '_')
         sanitized_title = ''.join(ch for ch in sanitized_title if (ch.isalnum() or ch == '_'))
         sanitized_content = post.selftext.encode('utf8')
-        if sanitized_content.startswith(b'---'):
-            sanitized_content = b'---\n---\n' + sanitized_content
+        sanitized_content = remove_leading_triple_dash_bytes(sanitized_content)
 
         author_name = '[deleted]'
         if post.author is not None:
