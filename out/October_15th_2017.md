@@ -1,3 +1,7 @@
+---
+---
+---
+
 Dear Diary,
 
 I can't shake the feeling that I'm trapped in a nightmare, one from which I can never wake up. The torment continues, relentless and unyielding, like a storm that refuses to pass. Every day feels like a battle, a struggle to survive in a world that seems determined to crush me beneath its heel.
