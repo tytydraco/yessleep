@@ -55,4 +55,3 @@ Milo almost immediately ran in front of the door. He then coldly said, “You do
 He didn't; instead, he just screamed. I screamed back at him, “This whole conversation is being recorded. Just calm down or—”
 
 The door opened, and who walked through was one of my coworkers. He said, “They found another body below the bridge. We think it's Emily.” I said nothing. I just stared at Milo. Milo then said, “It was their mistake. They all had it coming. I did nothing wrong, I would do it all again if I could.” That was when I realized that Milo was not a normal kid; he was a cold-blooded killer.
-
