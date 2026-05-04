@@ -44,9 +44,7 @@ I stared at immaculate handwriting, that despite how clearly it was written, mad
 
 “After the ceremonial flame is extinguished, you will die.”
 
-‘Fuck this, I’m calling my dad.’ I launched straight for the phone on the nightstand and started dialing his number.
-
-8…5…0…
+‘Fuck this, I’m calling my dad.’ I launched straight for the phone on the nightstand and started dialing our home phone number.
 
 I wait with the phone against my ear in silence. Where’s the dialing sound? I look around my room on edge, before shifting my attention to the phone. I try redialing but no luck. Wrapping both hands around the machine, I shook it out of desperation with a violent, sharp groan. In doing so, I made a nauseating discovery. My fingers followed the cord, wishing to find it simply unplugged.
 
