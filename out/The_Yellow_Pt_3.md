@@ -63,6 +63,27 @@ They wiped it off maps. The missing soldiers were written off as accidents or en
 
 Lawston was twelve when the support ended.
 
+**Chief Stone:**  “My folks used to talk about the old town they lived in,” he said. “Smaller than this one — just a few streets, a diner, a church, a school. Around ’37 they left almost everything behind when The Yellow came. Thought they could outrun it.”
+
+He gave a slow shake of his head.  
+“But The Yellow followed. It always does. It moves where there’s life — where people laugh, build, start over. That’s what it feeds on.”
+
+He looked down at his hands for a moment, then back up.  
+“If we ever left, if this place went dark, it’d go looking again. And if it ever found a city…” He let the silence hang. “Millions. Gone. Just like that.”
+
+He sighed, voice rough from years of smoke and worry.  
+“So we stay. We keep the candles burning, we keep the rules, we keep quiet. This town’s the line between The Yellow and the rest of the world. Without us, it wouldn’t stop. It’d spread. And nobody out there would even know what hit ’em.”
+
+**Me:** “So you’re saying this town’s a sacrificial lamb?”
+
+He gave a dry laugh, no humor in it.
+
+**Chief Stone:** “Yeah… guess you could call it that. We’re the fence holding the wolf back. If we go, it gets out. And once it’s loose, there’s no stopping it.”
+
+He looked down, thumb tracing the edge of his badge. “I don’t like it. None of us do. But somebody’s gotta stand between The Yellow and the rest of the world. If that means we burn so others don’t, then that’s the job.”
+
+The room went quiet after that — the kind of silence that feels like it’s listening.
+
 **Chief Stone:** “That’s the whole story, essentially. Is that all you wanted?”
 
 **Me:** “Yeah. That’s all. I’m… sorry you had to go through all that.”
@@ -117,8 +138,6 @@ The next day, a car pulled into her driveway and Fawna stepped out. I rushed ove
 
 I was just glad she was safe.
 
-
-
 Nearly a week later, the mail finally came in. It only arrives once a month here, and on those days the post office turns into the equivalent of Black Friday. It reminded me of when we lived in that cheap apartment — bills that don’t matter anymore, piles of advertisements, the usual junk.
 
 And then… a letter.
@@ -164,4 +183,3 @@ Not only was I not there for my mom…
 They knew beforehand.
 
 And now I can’t stop wondering — and dreading — what else they know. Or what they could know.
-
