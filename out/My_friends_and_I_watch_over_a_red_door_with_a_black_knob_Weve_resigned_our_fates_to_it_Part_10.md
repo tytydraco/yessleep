@@ -423,3 +423,5 @@ I did too. That crumbling house that I hated so much in Stillwater; for once in 
 But, like I said, that moment was when we all realized it. This was really happening. We were here, and home was gone.
 
 There was no Casey waiting back down the mountain; no safety or peace of mind. Everything that once made our abodes a ‘home’ was gone now, and all that remained was the five of us, the manor, and the relentless red door.
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1t32twf/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
