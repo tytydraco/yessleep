@@ -194,8 +194,6 @@ Her name was Sarah Harrow. She was the woman in the photograph.
 
 I lay there, logbook open on my chest, the image staring up at me from the nightstand. I tried to remember what she had sounded like before the call, before the horror, and before her voice became a file I could trim and fix and render for perfect playback. I couldn’t.
 
-All I could hear was the last line, the one I never played for the audience: “I think he’s going to make me listen.”
-
 I closed my eyes and tried to sleep.
 
 I couldn’t.
