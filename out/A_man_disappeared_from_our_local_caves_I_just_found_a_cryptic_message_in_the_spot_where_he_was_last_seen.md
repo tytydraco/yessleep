@@ -12,7 +12,7 @@ The most interesting part of Needle isn't even on the old map. As I tried to sho
 
 Annotated Map: [https://imgur.com/a/map-of-needle-annotations-2P3hfVa](https://imgur.com/a/map-of-needle-annotations-2P3hfVa) 
 
-I returned home on May 1st. Never before have I turned in all my assignments so early before the end-of-semester deadlines, but I was in a rush to get home. I've spent the past two weeks thinking about First Date, about the people I saw inside, and about the dead man. They still haven't identified him. In fact, I don't think his death or discovery was reported on any local news outlet. I understand not wanting to cause a panic, but this level of secrecy is bizarre. 
+I returned home on May 1st. Never in my life have I turned in all my assignments so early before the end-of-semester deadlines, but I was in a rush to get home. I've spent the past two weeks thinking about First Date, about the people I saw inside, and about the dead man. They still haven't identified him. In fact, I don't think his death or discovery was reported on any local news outlet. I understand not wanting to cause a panic, but this level of secrecy is bizarre. 
 
 My theory at this point, which I'm sure I shared with many of you, was that there was a group of people living on the other side of F. D. Since the passage is too small for a human to squeeze through, there must be another route to the other side. My goal was to find this hidden entrance, in part to satisfy my own curiosity, and in part because I'd like to tell my younger siblings where to avoid if they don't want to be shish kebab-ed by a rebar. 
 
