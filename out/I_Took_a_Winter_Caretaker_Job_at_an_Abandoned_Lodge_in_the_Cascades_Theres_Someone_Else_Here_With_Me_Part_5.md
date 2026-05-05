@@ -100,4 +100,4 @@ It was propped, face up, at the corner of the stand, edge parallel to the wall. 
 
 I did not move for a long time, my bowels stirring and my hands scrambling across the mattress, looking for anything solid to hold onto. At some point, my hand closed white-knuckled on edge of the mattress itself, and I lay like that until the morning sound of the wind convinced me the world was still moving. But the silence above never changed back.
 
-I didn’t touched the photograph.
+I didn’t touch the photograph.
