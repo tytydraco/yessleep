@@ -1,0 +1,15 @@
+Hello! There has been tapping at my bedroom/bathroom windows and I have no idea what to do.
+
+Background info about my house: I am 20 yrs old, female, and I live with my little sister (14F) and my two parents. I have my own bedroom and bathroom, my bathroom has one window and my bedroom has two, one on each wall. My house is located in the woods and the two houses closest to me are vacant (but owned). I also have one neighbor down the road. I have two dogs, one big breed and one small. My windows sit about 8-9 feet from the ground, and there are no branches near them. No ledges or anything.
+
+In the early AM of Monday, May 4th 2026, around 4:50am-4:55am I was getting ready for work. I had all my lights turned on, and my bathroom door opened, with lights on. I was sitting at my vanity when I heard a tapping noise (it wasn’t knocking, it was a tap and sounded like it was trying to get my attention) and i’ve heard those scary stories where if you hear or see something, you ignore it…so I did. At least I tried. 
+
+I decided to ignore it, assuming it was an animal or bird.but that’s when the tapping moved from my bedroom window to my bathroom window. Almost like it was trying to get my attention because when i didn’t respond to my bedroom window, it moved to my bathroom (hoping i was in there). I freaked out a little and called my bf, he suggested animals, branches, etc. but it’s almost impossible for that. So i called my parents, waking them up. I told them and they both got up and came to my room and i was startled by the tapping. My dad went out and looked, seen nothing, and my mom walked me to my car. I thought that was it…it wasn’t.
+
+The same day, May 4th (yesterday as i’m writing this) around 8:40 pm i was working on a college final essay. I had my bf on the phone and he was silent so I could focus. Then it happened. I heard tapping on the third window (completely different window than from the morning). Same tapping. I said to my bf “there’s fucking tapping again” and he said “i hear it.” and so i got pissed. My little sister was asleep but i got up and let my dogs outside (my parents weren’t home) and went on my front porch. I’m not brave enough to walk around the house, and not stupid enough to do it alone. I went back to my room, and the tapping happened one more time before stopping. I tried to record it but I was too late. 
+
+also note: my big dog wasn’t reacting to anything but my small dog was barking at the woods before and after the tapping occurred in the evening 
+
+I told my parents and they said they would put a camera in the woods but idk what to do. I’m afraid it’s someone doing this on purpose. I’ve told a couple people, and some said it’s an animal (bird probably) and i hope it is. Some have told me to go to the police because it’s strange it happens twice (both when it was completely dark outside) but idk. I don’t wanna waste the police’s time for a bird but i also don’t wanna get kidnapped or murdered.
+
+Any advice?? Thanks!! 
