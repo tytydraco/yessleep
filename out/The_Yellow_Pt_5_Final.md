@@ -58,29 +58,33 @@ I brought her upstairs and asked what happened. She said she saw Mom outside and
 
 **Kaylene:** Umm… okay.
 
-That’s when I ran out and grabbed her. She slept in our room that night. I didn’t sleep at all.
+That’s when I ran out and grabbed her. She slept in our room that night. it was difficult to sleep but a few hours later my closed and the night flew by.
 
-I’ve tolerated this town’s rules for years — kept quiet, followed orders, tried to live normally. But no more.
+I woke up to the sound of rain hitting our window.  
+Charrie was downstairs with all the kids, eating cereal.
 
-I know what you’re thinking: “*Only after you almost lost your daughter do you now want to do something about it?* “ 
+On the other side of the house, Marcus and Laura were playing a board game with their kids, while Fawna and Hans sat talking. Charrie had invited them to spend the morning with us.
 
-And you’re right to think that. I’ve asked myself the same thing every hour since that night.
+When I sat down at the table, a hot cup of coffee was waiting for me. I looked outside as cars passed by, and for a moment, I started thinking.
 
-But listen — when you live here long enough, silence becomes survival. You stop asking questions because questions get people noticed. You stop warning others because warnings get people taken. I thought keeping my head down would protect my family. I thought if I followed every rule, we’d be safe.
+Why warn people to stay away? That’s what the old me would’ve done.
 
-I was wrong.
+Newcomers are important — even if some don’t make it through the first night.
 
-Seeing Kaylene almost walk into the dark changed everything. It wasn’t just fear — it was clarity. I realized the rules don’t protect us; they protect *them*. The town’s silence feeds the Yellow. Every newcomer who arrives, every family that replaces the last — it’s all part of the same cycle.
+That’s better than this town failing to hold back The Yellow and letting its horrors spill into other towns and cities where hundreds of thousands or even millions reside in. Almost no one knows about this place, and even fewer care. But, we’re still important.
 
-So yes, I’m speaking now. but its probably too late. But if breaking Rule One means someone out there hears this and decides not to come here, then it’s worth it.
+I can’t leave. And to be honest, I don’t really want to — or even care to. My roots are too deep here. The risks are too great anyway.
 
-I’ll be in serious trouble for this, but if it stops more people from gambling their lives on this cursed town, then fine. Let them come for me.
+I’ll keep living for as long as I can, for as long as I can protect the people I love.
 
-Whatever you do, **don’t come here.**  
+Yes, I’m accepting this life.
 
-You’ll lose more than peace or sanity. You’ll lose your life — and maybe the lives of the people you love.
+But I want you to think about the choices you make. The problems you face might be bigger than you realize. And even if you want to bring others with you — loved ones, friends — make sure you understand what that means.
 
-This town is a trap. It always has been. I fell for it, just like so many others. Don’t make the same mistake. 
+Only when you’re sure you can live with that — only then — is it fine to commit to it.
 
-This is my final warning.
+But as of now…
 
+As for me — I look around my house, with everyone I love nearby, talking and laughing — and I know this’ll be the last you hear of me. Life keeps moving, and I have to think about what comes next: the choices of a father, a husband, and a friend.
+
+Goodbye.
