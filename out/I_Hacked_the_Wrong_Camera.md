@@ -1,0 +1,191 @@
+I'm not going to pretend I'm a good person.
+
+I know what I am. I've known for a while. There's a specific kind of honesty that comes from spending most of your time alone in a dark room doing things you'd never say out loud, and eventually the internal justifications just stop working and you're left with the plain shape of what you actually do.
+
+I hack nanny cams. Baby monitors. IP cameras. Home security feeds, cheap webcams people set up to watch their pets while they're at work, the indoor cameras that couples mount in living rooms and bedrooms because they've seen one too many news stories about break-ins and feel safer with a feed they can check on their phones.
+
+They set them up and they don't secure them. Default passwords left unchanged. Open ports. Feeds broadcasting to anyone who knows how to look. You'd be amazed how many people leave a window open in a house they think is locked.
+
+I've been doing it for six years.
+
+I told myself for the first two years that it was a technical exercise. A skill being practiced. Then I stopped telling myself anything and just did it, which was in some ways more honest.
+
+My setup was nothing special. A decent laptop, a second monitor, a list of scanning tools that I'd refined over the years into something efficient. I could find an unsecured feed in under four minutes if the IP range was cooperative. Most nights I'd have three or four streams running simultaneously, tiled across my second monitor while I did other things, glanced at when something moved.
+
+I want to be honest about what I watched. Not in detail, but honestly.
+
+People living. People sleeping. People having private conversations they'd have been sick to know anyone heard. The intimacy of people who believe they're unobserved is something completely different from any other kind. There's a quality to it, the realness, that becomes addictive in a way I don't fully understand even now.
+
+I'm not proud of it.
+
+I'm also not going to claim I stopped before I found the feed I found.
+
+
+
+It was a Tuesday in November, around eleven at night.
+
+I'd been scanning for about an hour with nothing interesting, just a few empty rooms, a cat sleeping on a radiator, someone's dark kitchen. I almost closed the laptop. Instead I ran one more sweep on a range I hadn't tried before, in a residential area about forty minutes from where I live.
+
+One result came back.
+
+I opened it.
+
+
+
+The feed was dark. Darker than most, and whatever camera this was, it had poor low-light performance, everything reduced to grey shapes and deep shadow. It took me a moment to work out what I was looking at.
+
+A room. Large, mostly empty. High ceilings. The camera was positioned in an upper corner, wide-angle, covering most of the space.
+
+In the center of the room was a chair.
+
+In the chair was a person.
+
+I leaned toward the screen. The figure was seated, upright, facing directly toward the camera. Completely still. I watched for a full minute and didn't see them move, no breathing shift, no micro-adjustments, nothing. Just a figure in a chair in an empty room, facing a camera in the dark.
+
+My first thought was that it was a mannequin. Someone's storage space. An art installation or prop of some kind.
+
+Then it tilted its head.
+
+Slow. Deliberate. The way you tilt your head when you're trying to hear something better.
+
+I told myself it was a person. A normal person sitting in their own home in the dark, which is strange but not impossible. People do strange things when they think they're unobserved. I knew that better than most.
+
+I kept watching.
+
+
+
+For the first ten minutes nothing happened.
+
+The figure sat. Occasionally the head moved, small adjustments, slight angles, always facing the camera. Never away from it. A normal person in a dark room might look around. Might check their phone. Might stand up to get a glass of water.
+
+This one only ever looked at the camera.
+
+I told myself: motion-activated recording on a loop. A freeze-frame. Some kind of artifact.
+
+I opened a packet of crackers and kept watching because I couldn't stop.
+
+At the eleven-minute mark the figure stood up.
+
+It stood slowly, unfolding from the chair in a way that bothered me without me immediately understanding why. I watched it for a moment before I identified the problem.
+
+It was too tall.
+
+Not dramatically, cartoonishly tall. Just slightly, wrongly tall. The proportions were almost right. The head came close to a height that made sense for the room. But something in the ratio between limb and torso, the particular geometry of how it had unfolded from the chair, sat at the edge of possible and then just past it.
+
+It stood facing the camera for a moment.
+
+Then it walked toward it.
+
+Not fast. Not threatening, in terms of pace. Steady and even, crossing the dark room toward the corner where the camera was mounted, and as it got closer the low-light feed degraded further, the image grainy and strobing, the figure becoming harder to make out as it approached.
+
+It stopped when it was close. Just at the edge of where the wide-angle lens started to distort.
+
+And then it looked up.
+
+Directly into the camera.
+
+Directly, specifically, into the lens.
+
+I've watched hundreds of feeds. I've seen people glance at their cameras, check them, adjust them. I know what a person looks like when they're aware of where a camera is.
+
+This was different. This was not someone looking at a camera in their room. This was something looking through the camera. The angle of the gaze was wrong for someone checking their own equipment. It was the angle of someone looking at whatever was on the other side.
+
+The angle of someone looking at me.
+
+
+
+I closed the feed.
+
+I sat in the dark of my room with my heart doing something uncomfortable in my chest. I drank some water. I told myself what I always tell myself in moments of unease — that I'm pattern-matching on noise, that the human brain builds faces and intentions from static, that there was a sensible explanation for everything I'd just watched.
+
+I believed maybe forty percent of it.
+
+I opened the feed again.
+
+The room was empty. Chair, floor, walls, ceiling. No figure.
+
+I exhaled.
+
+Then I looked at the timestamp on the feed.
+
+The timestamp read the correct date, the correct hour.
+
+But the minutes counter wasn't moving.
+
+I watched it for thirty seconds. The seconds ticked normally, I could see them incrementing in the bottom corner of the stream. But the minutes held at the same number, frozen, while the seconds rolled past sixty and kept going. Sixty-three seconds. Seventy. Ninety.
+
+I checked my system clock. My system clock was fine.
+
+I looked back at the feed.
+
+The figure was in the chair again.
+
+I hadn't seen it enter the room. I hadn't looked away. The room had been empty and then, in the space between one frame and the next, the chair was occupied again.
+
+It was facing the camera.
+
+And slowly, with the same deliberate pace as before, it raised one hand.
+
+And waved.
+
+
+
+I shut the laptop. Physically closed it, shoved it to the far side of my desk. Sat with my hands flat on the table in front of me and breathed.
+
+I went to bed. I lay in the dark. I listened to the building settle and the street outside and my own breathing.
+
+I told myself: a person. A strange person in their own home. A camera with a corrupted timestamp. Coincidences assembling themselves into a shape that my pattern-hungry brain was interpreting as something directed at me. I was a man who spent his evenings watching strangers in the dark. I was not, as a baseline, someone with healthy perceptions.
+
+I almost convinced myself.
+
+Then my phone buzzed.
+
+A notification. From the camera app I used to monitor feeds remotely, a motion alert, auto-generated, from a camera I'd bookmarked.
+
+I hadn't bookmarked that feed.
+
+I had never saved it. I had opened it raw, directly from the scan, and I had closed it and I had not saved it anywhere.
+
+I stared at the notification.
+
+It read: *Motion detected.*
+
+And beneath that, the preview thumbnail. My bedroom. From above. Wide angle.
+
+From a camera I did not own, had never purchased, was not mounted anywhere in my apartment.
+
+
+
+I have not opened that notification.
+
+That was eleven days ago.
+
+I haven't touched the laptop since. It's still on my desk exactly where I left it. I've been sleeping with the lights on, which helps with some things and not others. The notification is still there on my phone, unread, a small red badge that I see every time I pick it up.
+
+I think about deleting the app. I pick up my phone to do it and then I put the phone face-down and I don't.
+
+I'm not sure what I'm afraid of. Whether I'm afraid of what I'd see if I opened it, or afraid of something else. Afraid that whatever was in that feed has been watching me sleep for eleven nights already, through a camera I still haven't found, and that opening the notification won't change that fact.
+
+Or afraid that if I delete it, something will notice.
+
+I've gone through my apartment three times looking for a camera. Every corner, every smoke detector, every device. Nothing. Nothing I can find.
+
+That's the part that keeps me at the window at 3 AM, looking out at the street instead of lying down.
+
+I spent six years watching people who didn't know I was there. I was very good at it. I knew exactly what it looked like when someone was being observed without their knowledge.
+
+I know what it feels like now too.
+
+
+
+I'm posting this partly because I need to write it down somewhere and partly because I want someone else to know, in case the notification is still there tomorrow and I'm not.
+
+If you have a camera in your home that you haven't checked recently, the password you set when you installed it, the firmware, the port settings, check it.
+
+And if everything looks fine, if all your settings are right and your password is strong and there's no reason to think anyone is in your feed—
+
+Check again.
+
+Because I was very good at what I did.
+
+And someone was better.
