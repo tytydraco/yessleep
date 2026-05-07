@@ -128,7 +128,7 @@ We grabbed all of our stuff, and trekked for another fifteen minutes, before put
 
 “....I mean….” Nikki bit her lip and played with her hair.
 
-Jessica giggled. “Okay, when I get back,” and blew her a kiss, then walked out of the firelight and into the woods. After three minutes, we heard Jessica scream, and then wet, clawing sounds deep in the distance.
+Jessica giggled. “Okay, when I get back,” and blew her a kiss, then walked out of the firelight and into the woods. After three minutes, we heard Jessica scream, and then deep, guttural moans in the distance.
 
 “OMG, Jessica???” I called. I grabbed my flashlight.
 
@@ -265,4 +265,3 @@ So I ran. And I kept running. And eventually, I found Route 5, where I was lucky
 When I got into town, I went to the police station, and told them about what had happened in the woods. I told them it was bears; I knew they wouldn’t believe me otherwise. They sent a team back into the woods, but they found no trace of the boys or my girls; the entire area had been scorched by flames, leaving no proof we had even been there.
 
 I haven’t gone back into the woods since then, and I also haven’t been able to listen to 23ornot23 without vomiting in my mouth. I know they still go on tour, however, and I don’t think that it was really them in the woods that night, but, I think what’s even scarier is if it was them. I don’t want to know either way. I guess what they say is true; never meet your heroes.
-
