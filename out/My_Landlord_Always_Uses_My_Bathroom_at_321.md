@@ -2,7 +2,7 @@ I'm posting this here because I've tried everywhere else. Any other website seem
 
 My landlord enters my home, beelines for the 2nd floor bathroom, and then leaves after an hour. He never turns on the light, never makes any noise, and never says anything.
 
-The first time it happened, I was so late on a project I damn near tossed my mug at him, before I realized who it was. I followed him up to the bathroom and waited. I sat there for an hour and nearly missed my deadline when he popped out and left without a word, not so much as a glance my way. 
+The first time it happened, I was so late on a project I damn near tossed my mug at him, before I realized who it was. I followed him up to the bathroom and waited. I sat there for an hour and nearly missed my deadline when he popped out, left without a word, and not so much as a glance my way. 
 
 If he weren't family, I would have already called the police. But my landlord—Great Uncle Jim—is a relative.
 
