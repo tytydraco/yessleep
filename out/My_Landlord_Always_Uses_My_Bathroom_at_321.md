@@ -1,0 +1,33 @@
+I'm posting this here because I've tried everywhere else. Any other website seems to swallow it. Seconds after I post, they just vanish, like I never hit enter. I even copied a post to reupload it and it still disappeared.
+
+My landlord enters my home, beelines for the 2nd floor bathroom, and then leaves after an hour. He never turns on the light, never makes any noise, and never says anything.
+
+The first time it happened, I was so late on a project I damn near tossed my mug at him, before I realized who it was. I followed him up to the bathroom and waited. I sat there for an hour and nearly missed my deadline when he popped out and left without a word, not so much as a glance my way. 
+
+If he weren't family, I would have already called the police. But my landlord—Great Uncle Jim—is a relative.
+
+He lives about a 15 minute hike uphill from me, in a small cabin on a plateau in the southern Appalachian mountains. Fifteen minutes south is where I’ve been staying, a two‑story house with a cabin‑style exterior.
+
+The inside is more like a modern townhouse. Carpeted floors, granite countertops, red wood trim. Honestly, it’s worth way more than what I’m paying. The only reason I’m paying anything at all is because Jim tried to let me stay for free if I helped him move wood down to his shop in town, and I refused.
+
+I don’t make a ton of money, but remote data entry pays enough that I couldn’t– in good conscience, stay for nothing. So we settled on $300 a month, and I’d help chop, haul, and stock firewood for his shop.
+
+I’m getting away from the point aren't I? 
+
+It's been 2 months now. Every night, at 3:21. I've tried locking the doors– the front door, bathroom door, every door in the house, he gets through. I've tried talking to him, even stopping him myself, and nothing seems to work. He doesn't acknowledge me at all. 
+
+I'm tired, I'm behind on so many work projects. I've had to reschedule my entire life around Jim's odd shitting habits. I don't know how much more of this I can take. 
+
+Is there anything I can do? Technically, I'm not even a legal tenant, and he's family. I don't know what I'm allowed to do about this and I just want it to stop.
+
+It's 3 in the morning as I'm typing this, I think I'm going to sit inside the bathroom this time. I need to know why this has happened every single night for the last 57 days of my life. I need to know why he never even looks my way. 
+
+He waited for me…
+
+I ended up falling asleep mid typing in the tub. Woke up at 4:30, almost forgot why I was in the bathroom until I opened the door to a dead stare from him. It shot through me. To call it a thousand yard stare would be disingenuous, but I have no idea how to put into words what his eyes pierced me with. How does one describe a look beyond distance, or depth? 
+
+I'm back in my room now, besides his eyes – beaming at me like the headlights of an oncoming truck – he didn't acknowledge me at all. Jim walked past me into the bathroom and clicked the lock. 
+
+Please, if anyone is reading this, I need help. 
+
+What can I do here? 
