@@ -1,0 +1,193 @@
+
+
+They say everything is fair in love and war. I've always wondered who "they" are. Probably the same people who invented wedding vows. Or funeral speeches. Or excuses.
+
+
+
+I was a skin surgeon. Reconstruction. Restoration. I understood tension lines, elasticity, graft survival. I understood how the body responds to trauma. How it disguises it. How it heals around it. I also understood presentation. How easily the eye accepts what it expects.
+
+
+
+My wife was very good at managing warmth. She understood how a house stays intact. Not through love, but through maintenance. Meals arrived on time. Conversations stayed pleasant. Nothing ever seemed broken.
+
+
+
+When I discovered her affair, I did not shout. I did not confront. I observed. Affairs are not explosions. They are migrations. Small shifts of warmth. A redirection of attention. She had already left before she admitted it. That was the first betrayal.
+
+
+
+Tailoring became my excuse to disappear from the world. A harmless hobby, everyone said. In reality, it was education. 
+
+During that year I began volunteering at the city morgue. That's where I met Anjali. She worked nights. Soft-spoken, efficient, permanently tired. We developed a routine. Bad coffee, darker jokes, conversations only people around death can have. Chemistry doesn't always arrive as fireworks. Sometimes it grows quietly, like a slow leak. She trusted me. Everyone there did. People rarely question a man who shows up on time and keeps his head down.
+
+
+
+I used to believe fate was random. Now I understand it is a game of patience. Chaos waiting quietly for the man willing to sit still long enough. Morality survives only when life is calm. When names are neatly attached to faces and trains run on time. But tragedy changes this.
+
+
+
+The terrorist attack arrived without warning. A crowded market. A thunderclap of sound. Fire and panic swallowing the city whole.
+
+We were watching the news together when it broke. Horrifying visuals. Reporters spoke too fast. Numbers climbed before they could settle. Bodies and rubble. The day that changed many lives. Including mine.
+
+My wife covered her mouth.
+
+
+
+"Oh my God," she whispered. "So many people."
+
+Her eyes went wild with horror. Mine went bright with opportunity. Not excitement. Recognition.
+
+
+
+I stood and pulled her into an embrace. She stiffened, surprised.
+
+"I can't believe this is happening," she murmured into my chest. Neither could I. Not like this. Not so precisely. She leaned into me slowly.
+
+
+
+It was warm.
+
+Intimate.
+
+Our last hug.
+
+
+
+By evening the hospitals were drowning. Ambulances unloaded bodies faster than names could be written. Faces were burned, torn, incomplete. Too damaged to argue for themselves.
+
+
+
+In disasters, human beings stop being people. They become inventory. The morgue turned into an assembly line of grief. I arrived there, shaken.
+
+
+
+Anjali looked relieved when she first saw me. "You're okay," she said. "Thank God."
+
+Then she noticed. Whatever she saw in my eyes erased the relief instantly. Behind me, a single stretcher.
+
+
+
+"My wife," I said.
+
+The word did most of the work.
+
+Anjali's face changed. The professional mask slipped.
+
+"She was at the market?" she asked softly.
+
+I didn't correct her. I didn't have to say anything. Assumption did most of the work. In a room already filling with blast victims, no one searches for private violence. They search for pattern.
+
+
+
+My experience as a surgeon ensured that nothing about her appearance contradicted the story the city was already telling itself.
+
+The eye sees what it expects. Context completes the narrative.
+
+She pulled me into a small side room and hugged me like someone trying to hold a collapsing building together.
+
+
+
+"Why have you brought her here?"
+
+"Anjali," I said softly. "I can't do this."
+
+She looked up.
+
+
+
+"I don't have the strength for rituals or last rites. I can't see her like this. I just need this to be over."
+
+I let the sentence break in the middle.
+
+"Please," I whispered. "List her as unclaimed. Let the city handle it. I don't think I can survive anything more than that tonight."
+
+She hesitated. Not because she doubted me. But because she cared. Outside the intake doors, printers jammed. Clerks argued. Names blurred into numbers.
+
+
+
+All right," she said finally. "I'll take care of it."
+
+And just like that, my wife stopped being a person.
+
+
+
+She became paperwork. By morning, she was an unclaimed casualty of a national tragedy. And when a body becomes unclaimed, the city takes responsibility. Efficient. Quiet. Final.
+
+I learned something invaluable that week. You don't need to outsmart a system. You only need to meet it on its worst day.
+
+
+
+Anjali checked on me often after that.
+
+Brought coffee. Sat beside me. Asked if I was eating, sleeping, surviving. I allowed her to believe she was saving a broken man.
+
+A few nights later she came to my apartment. The city was still afraid to be alone. We spoke softly, pretending not to hear the news on television. I told her how empty the rooms felt now. She reached for my hand. The wine helped. So did the silence.
+
+
+
+When I kissed her, it was gentle at first. Careful, uncertain. Then it wasn't.
+
+Grief pulls people together. Loneliness does the rest.
+
+
+
+Her fingers lingered against mine. My hands found the curve of her waist. The apartment felt smaller, warmer, charged with something neither of us bothered to name.
+
+
+
+The world outside faded. Only the slow heat of two people discovering that comfort can turn into hunger without warning. Her laughter softened into whispers. Whispers melted into breath.
+
+
+
+Later, tangled together in the quiet, she rested her head on my chest and listened to my heartbeat as if memorizing it.
+
+
+
+"I feel safe here," she murmured.
+
+I held her closer.
+
+
+
+I wrapped the blanket around her shoulders.
+
+She smiled, grateful, and pulled it close without a second thought.
+
+
+
+People misunderstand philosophy. They think it is about discovering truth. It isn't. It is about deciding which truths you are willing to live with. I spent years as a surgeon learning how to separate what is joined. Later I learned to preserve things that should never be preserved.
+
+
+
+To cut carefully. To clean thoroughly. To make seams disappear.
+
+
+
+Two professions. One masterpiece. The blanket is meticulous.
+
+
+
+It was never impulse. It was positioning.
+
+Years inside the morgue taught me the thresholds of chaos.
+
+How many bodies it takes before names begin to blur.
+
+I didn't wait for tragedy.
+
+I waited for capacity.
+
+
+
+Anjali still visits sometimes.
+
+She adores the blanket. Says she has never slept better beneath anything in her life.
+
+She doesn't know why.
+
+But I do.
+
+It keeps secrets beautifully.
+
+Just like skin.

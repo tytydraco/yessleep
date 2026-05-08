@@ -168,6 +168,6 @@ I burst into a fit of laughter, a joyful, painful conglomerate of my pent up ago
 
 “I really fuckin hate Applebee’s” I said through sobs and sniffles. 
 
-She patted back while I bawled. 
+She patted my back while I bawled. 
 
 “I know, sweetie, let’s get you upstairs.”
