@@ -1,0 +1,201 @@
+The letter came for me in the middle of the night.  
+
+The *thunk* of the letterbox opening interrupted my insomniac pacing, echoing ominously through the empty hallways. I crept towards the door, knife in hand raised towards an expected intruder. The porch, however, was as empty as it had always been. All that remained of any foreign presence was a singular sheet of parchment lying face-down on my carpet, the colour of pale bone.  
+
+I didn't even realise what it was until I picked it up, feeling the words etched onto its surface drive the air from my lungs like a vicious punch to the gut.  
+
+*Dear Amir, you have been invited to find your soulmate.*  
+
+That's all it said. Ten simple words, yet each of them hammered an iron stake deep into the recesses of my heart.  
+
+The letter slipped through the edges of my shaking fingers, gliding through the air back to its original position on the doormat. Its glossy edge shimmered in an otherworldly hue under the dim porch lamp, its hollow purple lettering staring back through me.  
+
+*Why had I received this?* My mind raced with a thousand thoughts, none of them making the slightest sense.  
+
+For the words on the letter were not foreign to me. I had heard about them, as all of us had, even if I had never cast my eyes upon their physical form, engraved onto that fateful parchment. They were always spoken about in celebratory tones, their arrival excitedly whispered over coffee by their giddy recipients, for it promised an end to their fruitless searches for happiness. It was the one thing that provided absolute certainty in this world, that required nothing more than a drop of blood to guarantee eternal martial bliss.  
+
+The problem was, I was already married.  
+
+\*\*\* 
+
+"You don't have to open it, you know. Nothing's forcing you to do it."  
+
+My gaze was fixed on the floor, my mind legions away. The words washed over me, barely registering in my mind.  
+
+"Genuinely Amir, just think about the entire thing rationally for a moment." Leonard placed a hand on the small of my back, letting its gentle pressure ease me upwards. "Obviously most people rip open the letter as soon as it comes. Who wouldn't want to be with the one you're destined to love for eternity, all without the myriad pitfalls of pain and false hope that usually plague the journey there? It's the opium craved by those who are alone in the world. But you are not alone, and you don't need this letter to know the name of your soulmate, because you are already with her. There's nothing stopping you from simply letting the letter expire."  
+
+"I can't. It came for a reason." The words were stuck to the roof of my mouth. "It always does. It means that the universe has something important to tell you. That the one for you is still out there. Everyone knows that."  
+
+"No one knows anything, that's all just speculation and hearsay. We don't even know who sends these letters. For all we know, it's a purely random process that you are ascribing meaning to. Those who are single rip it up immediately, but those are married simply throw it away."  
+
+"That's not true - look at Bennett, Shantelle, Cynthia - they were all engaged, married even, yet they still received the letter. And their relationships promptly crumbled within the day."  
+
+"Yeah, but all three of them were absolutely miserable, remember? Don't you recall those tense dinners with Bennett's fiance, or how Cynthia's husband used to call her every ten minutes when she was out with us? Their relationships were toxic sinkholes that they should have escaped a long time ago. All the letters did was give them the impetus to finally stand up for themselves for once in their lives."  
+
+"That could be me too," I mumbled.  
+
+"Oh come on Amir! Stop moping around. You and Rui are like salt and pepper! Have you seen your face when she enters the room? It lights up like the rising sun, and when you're around she gets so giddy she can barely speak. You've found what people spend their whole lives searching for, and you don't need some magical blood contract to tell you that."  
+
+My head bobbed up and down like a fish hook. Rui's face, frightfully attractive, floated into my mind. Her eyes, so genuine and full of warmth, gazed into the depths of my soul; her lips, the colour of pink bubble gum, whispered the ten words we held locked in our hearts.  
+
+*I am yours, and you are mine, now and forever*.  
+
+Yet instead of echoing them proudly, I found the words drying up in my throat, cowering in shame at my duplicity, and her deep brown eyes fractured into deep disappointment.  
+
+Leonard was right. I knew that. I couldn't betray the woman I loved like this. My mind knew that. Yet why were my hands still reaching back into my jacket, unfolding the crumpled parchment back between my fingers? I clenched my fists, hating myself, but my irises continued boring a hole through the letter.  
+
+Leonard watched me with a sigh. "Fine. Tell you what. Maybe we're looking at this the wrong way. Maybe you should just open it." He shrugged his shoulders. "After all, what's the worst that could happen? If it turns out to be Rui, well then that's perfect! You now know for certain that she's the one for you, forever and always. If it's somehow someone else, then your marriage was destined to fade anyway. All you would be doing is accelerating the inevitable process of its slow disintegration. Save both of you the long drawn out pain of trying to rescue the Titanic with a bucket."  
+
+I remained silent for a long while. Finally, I spoke. "I can't."  
+
+"You can't what?"  
+
+"I can't lose her. Not again."
+
+"Again? When have you broken up with her?"
+
+I looked at him and he knew.
+
+"Ah, shit. Yes."
+
+I nodded sombrely, biting my lip. A river of pain was coming. I could feel it. 
+
+"I'm sorry. I shouldn't have brought it up."  
+
+My forehead tightened as my heart squeezed inside my chest. Images lashed into my mind unbidden even as I tried to look away. Hollow blue marbles stared back at me through lifeless sockets, a quivering knife buried itself far too deep in blood-soaked flesh. An old familiar stench filled my nose, those horrible fumes from the parts of a person's body that were never meant to be exposed to the world. The memories were drowning me, too hard, too fast. 
+
+"What if I lose Rui as well?" I struggled to keep control of my breath. "How do I know that the universe hasn't destined her to be just another passing blip in my life, just as Aubrey was?"
+
+"Amir, I'm really sorry, but that was a freak tragedy, a once-in-a-lifetime incident of extraordinarily bad luck. Aubrey just happened to be in the wrong place at the wrong time. It's not going to happen again." His sentences tumbled out erratically, grasping for the right words to paper over the cracks of my heart. "Don't let that taint your marriage. Before this ridiculous paper came, had the thought of losing Rui ever crossed your mind?"
+
+"No, I suppose not. But aren't we always blinded by love? Too absorbed in the shallow beauty right before us to recognise the alarms blaring inches away? I love Rui to the depths of my soul. I love her so much that my heart aches. But I felt this way about Aubrey too, once upon a time."
+
+The air hung heavy between us, the pauses in our sentences suffocating us in their weighty embrace.
+
+"I can see now that she wasn't the one for me. That I had been overlooking signs that should have been obvious. But in the moment, when she was still breathing and warm in my arms? I could see nothing else. She was my world, my anchor, and only having her wrenched away from me showed me otherwise. Even now, her whispers haunt my nightmares. I can't let the same thing happen again. It would break me."
+
+Leonard's lips parted, attempting to form the sounds of a reply. But all they found was thin air and empty platitudes, and his lips sealed shut, joining my gaze riveted on the asphalt, letting the day pass us by.  
+
+\*\*\* 
+
+I stared numbly at the pale parchment, feeling its edges shift under my touch like sand blowing through the wind. The words were already growing faint, their dark pigments evaporating into the atmosphere.
+
+Twenty four hours. That was all I had to make a decision. Let that window lapse and I would never know what was written within. 
+
+The wallpaper of my bedroom seemed to flicker under the dim light of the setting sun, my addled mind swirling its pattern into Rui's smile, the same one that had settled onto her face under the waterfall in Tuscany. Her features melted against the stream of water cascading down, her golden laughter sparkling against the gurgling flow.
+
+I took a deep breath and reached for the match by my side, feeling its flames lap against my thumb as I struck it. My arm forced itself towards the letter, but my hand refused to obey, letting the fire flicker uselessly centimetres away from the parchment. Finally, it died, snuffed out by a passing gust, and I threw the match on the floor in disgust, reuniting it with an army of its cousins, strewn in an untidy mound by my shoe.
+
+I couldn't do it. Why couldn't I fucking do it? My entire arm shook uncontrollably, clenching and unclenching my fist as I rocked back and forth. 
+
+The slamming of a distant door frame snapped me out of my reverie. *Rui*. She was home. A smile hovered on the edges of my lips, but the draught of happiness I expected to come was swiftly extinguished by a cold shock of dread, its taste bitter on my tongue. 
+
+Was this how I would feel for the rest of my life? Forever holding myself back, plagued by the thought that she might not be the one? Could I ever lose myself in her arms again, my mind free from the lingering doubt of that *but*? How was I supposed to live like this?
+
+No. I had to know.
+
+My hands snapped into action, suddenly given clearance to do what they had been aching to for so long. An old safety pin uncovered itself from beneath a pile of sewing equipment, finding itself between my fingers. Its pointed edge found resistance against the tip of my index finger, digging in tediously until it finally broke through, releasing a lone droplet of crimson onto the middle of the parchment. It remained coagulated momentarily, before bursting out into the surrounding space, dendritic tendrils rapidly fanning out through the entire sheet. Footfalls, thunderous against the carpeted stairs, grew louder and louder as the liquid swallowed up the rest of the paper. The spidery words faded into the backdrop as the blood swirled, darkening in the middle to reveal bolded letters. Just as they were about to complete their arrangement, the door crashed open and my head snapped upward towards my wife.
+
+"Honey, what are you -" Her breath strangled itself in her throat, a choked gasp replacing the words that had been forming. 
+
+"I'm sorry," I blurted out with a sob, "I just had to know." My eyes strayed from her face, drawn inexorably downwards towards the letter clasped between my shuddering hands.
+
+*Rui Min Chang.* 
+
+My gaze remained locked on the paper, my mind a blank. It was her. *It was her*. My heart, heavy as a stone, suddenly felt light as a feather, and I laughed. The shackle around my chest released its grip as I whirled back towards her, but the sight of those beautiful eyes stricken by a ghostly horror sent me crashing back down to earth. A knife thrust deep in the shackle's place and I was overcome by the irresistible urge to sink endlessly into the ground. 
+
+"I- I can explain. I had to - needed to know. I don't know why, but I couldn't stop myself. Please, Rui, you have to understand."
+
+Her cheeks, once as rosy as two balls of sunshine, had been drained of all colour. The assured gaze of a woman confident in her husband's faithfulness had shattered, her pallid lips no longer responding to the signals of her face. I stepped towards her, but she took two steps back, grasping at the door frame with trembling fingers and a whimper.
+
+"Are you... are you ok?" I frowned. This wasn't right. Wasn't she furious? Why wasn't she saying anything? Why wasn't she shouting at me?
+
+That's when I realised. She wasn't angry, she was terrified.
+
+I gaped at her, struggling to figure out what was going on. I felt movement in my hands, and as I glanced downwards, I realised that the entire parchment had shrunk, folding upon itself until it was a fraction of its original size. Instead of delicate paper, it had hardened into a robust mineral, its cream and purple glimmer now accentuated and deepened into a distinctive oval shape I had seen every day for the last six years.
+
+It was the shape of the pendant around her neck. 
+
+Time seemed to slow around me as my world reeled. I could see nothing else except the pendant hovering above the contours of her collarbone, matching the one in my hand perfectly. How had I not noticed that the colours were exactly the same? My hands reached towards her necklace and she recoiled backwards with a cry, dodging the direction of my thrust. Her face was streaked with tears, the corners of her eyes blood-red.
+
+"I'm sorry. I'm so sorry." Her hand flailed limply in the air, seeking purchase and certainty that were no longer there. "This wasn't supposed to happen. It *couldn't* have happened."
+
+"You... you received the same letter."
+
+"I did. It's how I found you. You weren't meant to find out. Not like this."
+
+The air between us hung taut, frigid as a block of ice. The lines on her face creased downwards, revealing an age to her that I had never noticed before. Her chest quivered desperately as she choked back sobs, her coffee-tinted eyes fixed upon me, urgent and pleading. I stared at her, open-mouthed, feeling the seconds tick by. Then a solitary breath escaped my lips. Another came, more easily this time, until it morphed into a strange sound that faintly resembled a giggle. 
+
+"Do you remember those old movie stunts by Charlie Chaplin? 
+
+She stared back at me. 
+
+"You know the ones where he would hang off the edge of a building for dear life for hours, but when he finally falls he lands flat on his feet and you realise that the precipice was all just an illusion?"
+
+"I- I don't follow."  
+
+"Look, what I'm trying to say is, when you said that you had received a soulmate letter with my name on it. I was surprised. Stunned even. But you know what? That's all I feel. I realised that I don't care!" The air soared through my lungs, rich and alive, and my voice had taken on a pitch I never knew it could reach. "What does it matter how you found me, when it doesn't change the fact that we are destined for each other, now and forever!"  
+
+I closed the distance between us and kissed her deeply, feeling the warm curves of her lips press against my mouth. Her eyes blinked with surprise, but in a second her tears evaporated, replaced by bubbling laughter, echoing through me like an aria as I held her close, her heartbeat merging with mine. We tumbled onto the couch like a pair of giddy lovers, our laughter joyous and full.  
+
+Hours must have passed before we realised we hadn't moved. We lay on the couch, tangled in each other's embrace. I stroked her jet-black hair, caressing the curls of her locks, as luscious as they had been on the night of our first date. Her face had regained its divine serenity, the porcelain glow of her features radiating through me. She snuggled up closer, pulling a blanket over us.  
+
+"It seems crazy, doesn't it? There I was all of yesterday, losing my mind over whether to open the letter, when in fact you had already done so years ago."
+
+Rui caressed my cheek gently. "You've always stressed yourself too much for your own good. That overactive imagination of yours is your worst enemy."  
+
+"Can you blame me? I thought I was going to lose you forever."  
+
+She laughed. "You silly boy. You'd have to try far harder than that to get rid of me."  
+
+We lay there, letting the comforting silence wash over us and I felt my entire body uncoil itself. I gazed up towards the ceiling, a soothing smile falling upon my face. For the first time in a long while, I breathed.  
+
+"There's still something I don't understand." I uncurled one of her locks lazily, letting it tangle around my finger.  
+
+"Hmm?" She exhaled as she tilted her head slightly upwards towards me. 
+
+"Why did I receive the letter, if you already had it, all those years ago? I've only ever heard of one person in a couple receiving it."
+
+"Who knows? Additional confirmation, maybe." She buried her head against my chest, her eyes blinking close. 
+
+"Lots of people yearn for the letter, but so few actually get it. A bit of a waste, isn't it, for the letter to come for both of us? I never pegged the universe as the frivolous sort." 
+
+"I suppose so." Her breathing had already settled into that familiar lull it took just as she was about to fall asleep, its gentle rises and falls inducing a yawn in me.  
+
+I looked up towards the ceiling, feeling a deep sense of contentment settle over me. "Maybe the universe was telling me something after all. It was telling me to cherish our love, reminding me that nothing can ever come close to matching it."
+
+"Seems gratuitous if you ask me," she said with a drowsy laugh. "We hardly needed any confirmation of that. We wouldn't be very good soulmates if we did. Besides, why wait seven years? I don't think anyone who commits to a relationship for that long needs some silly paper to tell them that they've made the right choice."  
+
+I chuckled, but I found my laughter catching itself in my throat. A string pulled at me from the back of my mind, its thread tugging urgently at my consciousness, screaming at me to notice it. I played her words over in my head languidly, like a cat playing with a ball of yarn, when suddenly I froze. My head turned towards hers slowly, each muscle in my neck dragging the movement out as long as possible. 
+
+"What did you say?"  
+
+"Hmm?"  
+
+"What did you say? Just now?"  
+
+"About that silly piece of paper?"  
+
+"No, after that, about how long the letter took to arrive." My head was pounding, nearly drowning out her voice with the thumps racketing through my brain.  
+
+"Oh. Yes, seven years is a long delay."  
+
+"But we only met six years ago."  
+
+Her eyes fluttered open casually, but I felt her heart quicken against my chest. "Oh. I suppose you're right. I got the years mixed up."  
+
+"We just celebrated our sixth anniversary a few weeks ago. You know that," I said slowly. "Why would you say it's been seven years since you got the letter?"  
+
+"It was just a mistake." She muttered softly.  
+
+"Rui." my throat was constricting, each word a struggle. Familiar emotions, long buried but never forgotten, were knocking incessantly on my door. "Look at me. Why did you say seven? When did you receive the letter?"  
+
+Her expression was blank, fixated on some faraway point in the room. A curious look, one I had never seen before, appeared to come over her face, replacing that doe-eyed expression I thought I knew so well. In the light, she looked like an entirely different person, and I tensed backwards, an eerie dread creeping up my spine. A shimmering glint within my the pocket of my shirt caught my eye. As my trembling hands retrieved the hardened amulet, I realised that its purple swirls had reformed themselves into an inscription of today's date, just under Rui's name. Right under it, however, the strands of another were crystallising, glinting far brighter than its counterpart.  
+
+*23 January 2015.*  
+
+The day before Aubrey was murdered.  
+
+A cannonball blew through me, leaving a gaping hole where my heart had rested, and my entire body locked up, numb and paralysed. All I could focus on was Rui's face, shadowed and unreadable, observing the floor wordlessly. Time seemed to have frozen around us, trapping the two of us in a portrait of screaming despair. Finally, she turned back towards me, the erstwhile stoicism in her features unfolding into a wolfish grin. She chuckled as she brushed her hair back over her ear, her eyes glinting with a manic light I had never seen before.  
+
+"Ah my sunshine. You know I've never been a patient one. Fate had already decided that we were meant to be together." Her face broke out into an iridescent smile, as bright as the one she had on the day I first met her. "I simply helped to hurry the process along."
