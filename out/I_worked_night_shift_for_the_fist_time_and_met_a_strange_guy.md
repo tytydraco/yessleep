@@ -1,0 +1,126 @@
+I work at a small motel in New Jersey. Normally I do day shifts, so nothing really happens. Check-ins, check-outs, the occasional complaint about the vending machine eating someone’s coins. That’s about it.
+
+A few nights ago, I covered for a friend who had a wedding. Night shift.
+
+It was dead. No cars pulling in, no calls, nothing. By around midnight the place had that quiet that doesn’t feel normal anymore—like the building itself is just… waiting. I put on a podcast to pass the time and sat behind the desk.
+
+At some point, I noticed movement out of the corner of my eye. I looked up, expecting to see someone at the door, but there was nothing there. I just sat there for a second, listening, thinking maybe I imagined it.
+
+Then I stood up to check.
+
+As soon as I got near the door, he was just… there.
+
+I didn’t hear it open. I didn’t hear footsteps. He was just standing in front of me like he’d always been there.
+
+Tall. Really good-looking. Not in a normal way—like *perfect*. Clean skin, straight posture, even the way he stood felt intentional.
+
+“Hi,” he said, in a calm, soft voice. “Sorry if I scared you. I was just trying to find reception.”
+
+I laughed it off and told him it was fine, and asked if he needed a room.
+
+When I walked back behind the desk, I caught a smell—like strong cologne, but not overwhelming. Just… *exactly right*. Like someone had picked the ideal version of a scent.
+
+I don’t know why I said it, but I told him he smelled nice.
+
+He smiled and said thank you. Perfect timing. Perfect tone.
+
+I asked what kind of room he wanted.
+
+“A one-bedroom. Something with a view,” he said.
+
+I started pulling up the system, and that’s when he asked, out of nowhere:
+
+“Do you enjoy working here?”
+
+It caught me off guard, but I answered. Said it was simple, easy. I didn’t mind it.
+
+Then he asked, “Do you ever feel lonely?”
+
+There wasn’t anything aggressive about it. If anything, he sounded genuinely curious. But it still made something in me tense up.
+
+I said yeah, sometimes. That I didn’t really mind it. That people treat loneliness like it’s a bad thing, but you can get used to it.
+
+He paused for a second, like he was… processing it.
+
+“That’s interesting,” he said. “Most people describe it differently. The fact that you don’t… makes you special.”
+
+I remember feeling weirdly… seen? But not in a good way.
+
+Then his expression shifted slightly—not visibly, just something you *feel* changed.
+
+“Smart guy,” he said, with a small laugh.
+
+And just like that, he stepped back.
+
+“I won’t take up any more of your time.”
+
+He walked off toward the rooms.
+
+I didn’t think much of it after that. I assigned him a room, noted it down, and finished my shift.
+
+The next morning, I told my manager about the new guest and which room he was in.
+
+The following day, I got called into the office.
+
+My manager was pissed.
+
+He said I’d marked a room as occupied when it wasn’t. That we’d lost money because of it.
+
+I told him that was impossible. That I checked someone in myself.
+
+We went to the room.
+
+I knocked. No answer.
+
+Knocked again, louder.
+
+Nothing.
+
+I unlocked it.
+
+The room was empty.
+
+Not just empty—*untouched*. Bed still made, bathroom spotless, no signs anyone had even walked in.
+
+No luggage. No footprints. Nothing.
+
+I started feeling sick.
+
+We went back and checked the cameras.
+
+There’s a camera that points right at the reception desk.
+
+I watched the footage.
+
+I walked up to the door.
+
+opened it.
+
+And then just… stood there.
+
+Talking.
+
+Nodding.
+
+Laughing.
+
+Like someone was standing in front of me.
+
+But there was no one there.
+
+My manager didn’t say anything for a while. Just kept watching me talk to nothing.
+
+I told him I must’ve been tired. That I imagined it.
+
+He didn’t argue.
+
+I went to my locker to grab my stuff before heading out.
+
+When I opened it, there was a piece of paper sitting inside.
+
+I know for a fact it wasn’t there before.
+
+It only had two words written on it.
+
+**“Smart Guy”**
+
