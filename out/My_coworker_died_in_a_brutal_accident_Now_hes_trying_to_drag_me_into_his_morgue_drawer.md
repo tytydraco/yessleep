@@ -1,0 +1,33 @@
+​It was exactly 2:00 AM when the silence of my California apartment was shattered. It wasn’t a normal knock; it was a series of desperate, violent bangs. Mad pounding that felt like someone was trying to escape the darkness outside by shattering my door.
+
+​I stumbled through the hallway, my mind foggy from exhaustion. When I opened the door, a man in a police uniform stood there. His face was pale as ash, his skin peeling away in dry flakes like burnt paper. His eyes were deeply sunken, hidden in the hollow darkness beneath his hat. In a dead, emotionless voice, he asked: "Are you George?". 
+
+​I nodded slowly. He didn't have a patrol car with flashing lights, just a dark, idling sedan. "You need to come with me immediately," he said. "A horrific car accident. Your coworker, Mark. He’s at the county morgue."
+
+​The trip was a nightmare of silence. We arrived at a cold, ugly building. Inside, the smell was a suffocating mix of foul disinfectants, frozen blood, and decay. The coroner led us to a frozen basement. When he pulled the metal drawer with a sharp, annoying screech, I felt the blood freeze in my veins.
+
+​This wasn't the Mark I knew. His face was a crushed mass of mangled flesh and frozen blood. His features had completely disappeared under the trauma; his jaw was shattered, slid to the left in an unnatural way, leaving a black, terrifying gap where his mouth used to be. But the worst part? 
+
+There were clear human bite marks on his neck and chest—jagged, deep marks that looked like they were inflicted by sharp, hungry teeth. As I stared in horror, I could have sworn the wounds were moving, opening and closing as if they were trying to gasp for air.
+
+​I went back home, but I wasn't alone.
+
+​The next night, I was in the kitchen when I heard it: a sharp, metallic screech—the exact sound of a morgue drawer sliding open. I turned to find my refrigerator wide open. A thick, black, clotted liquid was dripping from the shelves. 
+
+There was no food inside—only pieces of white cloth, soaked in that same foul-smelling morgue fluid. I heard a muffled, gurgling laugh coming from behind the wall. It was Mark’s laugh, but it was choked with blood.
+
+​I fled to the bathroom, gasping for air. 
+
+As I wiped the fog from the mirror, I didn't see my face. I saw Mark standing right behind my shoulder. He was wearing that white morgue gown, soaked in rot. His empty eye sockets were filled with tiny, white maggots writhing under his dead skin. 
+
+His shattered jaw moved slowly, up and down, as he tried to whisper. A drop of bloody, cold spit fell on my shoulder, burning my skin like acid. When I turned around, the room was empty.
+
+​Things have become physical now. Last night, the closet door opened slowly. A pale hand reached out—its fingernails had been ripped from their roots, the raw flesh exposed and gray. Mark crawled out, moving like an insect with broken bones. 
+
+He dragged his mangled body to the edge of my bed and dug his cold, broken fingers into my ankle. I can still see the bruises today—black and smelling of formaldehyde.
+
+​He sat on the edge of my bed, his dead weight sinking the mattress. He whispered in a voice like bones rubbing together: "Why did you leave me? The drawer is so tight... and the maggots are so hungry."
+
+​I haven't left my room in 24 hours. I’m writing this because the smell of sulfur and decay is becoming unbearable. I can hear the scratching on the other side of the door—fingernails on wood. He says there’s room for one more in the drawer.
+
+​If you see a dark sedan outside your house tonight... don't look in the rearview mirror. He might be waiting for you.
