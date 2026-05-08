@@ -1,0 +1,42 @@
+The last time I wrote here I told you I would try and contact Oswald and warn him of the creature. Well I finally reached him last night. He picked up the phone and before I could say anything I heard him shouting.
+
+“Oi you, pick him up and throw him with the others or I’ll break ya skull”
+
+“Umm Oswald?” I said slowly  
+“Hmm oh hey buddy, how’d the job go? Was Harvey a dick to you?”
+
+I slowly breathed in and sighed, 
+
+“Oswald it all went crazy man, this creature, he attacked us and left everyone broken on the floor, then the warehouse got set on fire and Harvey is really hurt, I think he might be disfigured now half his face is burned, and that creature he came to my house and beat me black and blue and almost killed me until I told him where you were. Im really sorry Oswald I didn’t know what to do the thing was gonna kill me”.
+
+I said all this in one breath and didn’t know if Oswald understood or even listened since it seemed he was busy. 
+
+“You did fucking what? You told on me? To some creature?”  
+“Look I’m sorry the thing is really strong and it’s fast man, none of us stood a chance in a fight against it and I swear it was bulletproof or dodging bullets”.  
+“So you send a creature like that to my doorstep?”
+
+I stopped when Oswald said this, I did do that, I knew how powerful this creature was and yet I still sent it Oswald’s way. 
+
+That’s when I heard laughter on the other end.
+
+“Oh man I can’t keep it in, did Harvey put you up to this, man that guy is good, he’s a dick but he’s good”  
+“Wha- I- no oswald I’m being serious”  
+“Yeah yeah buddy, look I’m kinda busy right now dealing with some disgruntled employees if you know what I mean, why don’t you stop by the lounge later and we can talk and have a drink, it sounds like you need one, or two” he laughed into the phone   
+“I’ll be here all weekend stop by and let’s chat”
+
+He then hung up on me and I stared at my phone.   
+He was gonna be safe right, I mean he’s at his lounge, surrounded by people and security, that thing won’t be able to touch him. 
+
+I laid there in my hospital bed with that shitty jello on my food tray staring at me, I was looking out the window. Searching for any sign of the thing, maybe it won’t find him, Oswald loves to stay at the lounge and rarely comes home, I only told it where he lived not about the lounge he owned.  
+
+I slowly stood up, my back still aching from being thrown into my wall, I looked out of the window, still searching not knowing if I wanted to or didn’t want to see the thing again.
+
+My wrist is broken, they’ve put it in a cast already, said it was a clean break and that I should be healed in about 7-9 weeks, I was told I can leave tomorrow, well I mean more like asked really, they seriously needed beds after that fire at the warehouse, there was apparently a lot more people in there than they first thought. 
+
+It wasn’t just Harvey and some of his guys that got caught in it, it was more than that, the new estimate was around 54 people injured due to the fire, none dead thank god. 
+
+Before you judge me you gotta understand I didn’t know what I was protecting and who Harvey was. Inside most of the containers were weapons, drugs and in 3 of them, there were people. It sounds crazy I know but Harvey and his men were trafficking people. That’s all I know about this right now, I’m only getting my information from the news and what the nurses tell me, they’re treating some of the people that were in the containers. Who was I working for and why does Oswald seem so okay with Harvey, does he know about him? Is he involved with him? 
+
+I’ll be leaving the hospital tomorrow, Oswald said he’ll be there all weekend at his iceberg lounge, I’m gonna go see him and ask him these questions and more, I thought I knew my friend, I though he was just a nightclub owner, now I’m not so sure.
+
+I’ll update soon, I’m coming Oswald.
