@@ -1,0 +1,123 @@
+Now Ol' Edgar, Shrum is a mean sum bitch. And when someone as big as Edgar decides to be mean, there ain't a whole lot the rest of us can do about it. He stands about 6 feet 4, and goes 'round 400 pounds give or take. Edgar grew up in this town same as me, same as most folks 'round here, so he's had a lot of time to polish his reputation of being meaner 'n a rattler and the rest of us have had just as much time to get reputations of bein' scared of that sum bitch, ok?
+
+Now here's the thing. When the damn rubber meets the road, none of us really care about nobody. We care about our own damn selves and our families. When the Apocalypse comes, and you bet it's comin' soon, I got about 3 years worth of shit in a bunker on my land for me and mine and me and mine alone. Come that day, anyone has a problem with it and tries to disagree with me on it, I'll blow his damn head off. I gotta look out for me an' mine.
+
+But ol' Edgar, he don't care 'bout nobody in a much deeper way than the rest of us don't care 'bout nobody. You see, a guy like Edgar he don't think like the rest of us. Even though we don't care 'bout nobody, we pretend we do. Not ol' Edgar. Edgar sees something he wants, he'll just go up and take it.
+
+The other day, I heard a story 'bout ol' Gus Simpson mowin' his lawn on his brand new John Deere tractor. He only had the damn thing 'bout 3 weeks and everyone knew about his new tractor because he told damn near the whole town about it, right?
+
+You see that's where Gus went wrong. Had he just kept it to himself, ol' Edgar probably never woulda known about the tractor and probably never woulda come up behind ol' Gus carrying a 2x4 piece of lumber and probably never woulda whalloped him right in the back of his head with it. And ol' Gus probably wouldn't be in County in a coma. And Edgar probably wouldn't have hopped on Gus's new tractor and rode it all over town proud as a goddamned peacock.
+
+Now these kinda stories go back years, right? And these are stories we don't much talk about cuz Edgar don't like bein' gossiped 'bout much, see? And if he hears anybody been talkin' 'bout him, who knows what's on the other end of it. Nobody knows specifically but damn sure it's gonna be a reckonin'. But see, I can talk about those stories now cause I ain't got much left to lose.
+
+Here's another one for good measure just so y'all know I ain't full of shit. There's this lady goes by Mrs. Hawthorne. Sweet lady, right? She got a husband she takes care of all day every day. He went and caught that thing that makes folks shake a lot a few years back. That thing that actor from Back to the Future done caught way back when, you know? Parker somethin' or somethin'? Hell I dunno, I ain't no doctor but you get me, right?
+
+So anyway, Mrs. Hawthorne spends the entire day every day taking care of her husband that got that thing. Then come 'round 5 o'clock her sister comes over so Mrs. Hawthorne can go to work at the Dollar General.
+
+So on this night about 2 months ago, Edgar goes into the General as we call it, goes and grabs a quart of 10W-30, and goes up to pay for it. Now ol' Mrs. Hawthorne is just about the nicest lady there ever was built. She the kind of lady that treats all folks the same no matter color, creed, religion, or whatever even when it came to Edgar. She done heard all the rumors just like the lot of us, but her daddy taught her that rumors ain't shit. That gossipers are always worse than the one they gossipin' about.
+
+So anyway, ol' Edgar goes up to the counter and Mrs. Hawthorne scans whatever she needs to scan and hits whatever button she needs to hit to give her the price. She tells Edgar that it'll be $3.40 I think it was, right? Edgar tells her that the sticker below it said it's $3.20. She tells him how sorry she is about all that but she don't have the authority to change prices but if he came back tomorrow when the manager is here, that she's sure he'd be happy to refund his 20 cents, right?
+
+Well ol' Edgar goes into how he lives 10 miles away and how he'd spend more than that in gas to come back for his refund so he needed it right now. Again, Mrs. Hawthorne explained that she didn't have the authority to make a price change but she could give him 20 cents from her own damn purse if that'd make him happy. So Edgar goes on and on about how he's tired of these big corporations takin' advantage of the little guy and it has to stopped. I mean I think we can all agree with that, right?
+
+And before storming out, ol' Edgar slams that quart of 10W-30 onto the counter causing it to explode. I hear it was the damndest thing. Motor oil everywhere all over everything. Poor Mrs. Hawthorne covered in it and still had another 3 hours left on her shift. That damn store was good for another 5,000 miles thanks to him.
+
+You see, as I said before, Mrs. Hawthorne never did take to rumors and that night she was gonna learn in a very hard and permanent way that the ones who gossip and whisper from the dark corners of the pub ain't always the bad guys, see? Because Edgar went to her house that night at about 3 in the damn morning and lit it on fire. The fire marshall said they never even woke up cause the cheap Dollar General batteries in their smoke detector had run out. Both Mr. and Mrs. Hawthorne were found in their bed next to each other and burnt to a crisp.
+
+Now, as I said there are many stories like this. And you may be wonderin' why the law never did nothin' about it and there's a heck of a lot of stories about that too but bottom line is cause they just as scared of him as the rest of us. But my time is getting short and I'll get to one last story.
+
+But here's the thing that sets everything you need to know about off. Three days ago, I was in my car driving behind Edgar as coincidence would have it, right? I'm a good football field or two behind him and I see his brake lights come on and he pulls over to the side of the road. I look and I see some mangy mutt in a field to the right. Damn dog was scrawny as could be and looked like it hadn't eaten for weeks. I pull over too making sure to keep my distance. I just wanna see what Edgar's fixin' to do.
+
+I watch as he gets out of his truck and gingerly approaches that old hound with half a sandwich in his hand. I couldn't believe it. You know how there's times when someone can give you a small glimpse of somethin' so outta character and don't quite fit what you know about 'em? And how in that moment it can make you question all the years and years of the horrible things they done? How at those times you feel like maybe you've had it wrong all along?
+
+That's what I was feeling. As that old hound slowly inches closer and closer to Edgar, I can hear him whistlin' and clickin' his tongue and sayin' shit like "yeah, you're a good boy, aren't ya?"
+
+Well I'll tell you what, as soon as that dog got close enough to take that god damn sandwich, Edgar stands up and kicks that old dog right in the side of the head with his steel-toed boot. I never seen such a god damned thing. Broke that poor dog's jaw so that it was off to the side, right? And of course with that damned jaw off to the side, the dog's tongue had nowhere to rest so it just hung down makin' it look like he was wearing a god damned neck tie.
+
+The hollerin' that came out of that dog was somethin' else, I tell you. Edgar walked back to his truck and got in and drove away.
+
+I waited for it to head over the horizon and then got out to put that dog out of his damn misery. I grabbed my tire iron out of the trunk and went to work. Problem is, if the dog was scared before, he was really damn scared now so he ran from me. All the while hollerin' and yelpin'. It about broke my heart. I finally caught up to it and buried my tire iron into his skull. That was the hardest thing I ever did in my whole life, get me?
+
+It was then and there I decided I was gonna have to kill ol' Edgar and put that mean sum bitch out of everybody's misery.
+
+I get home and I'm still shook as can be. I call my buddy Roy and I say "Roy, we been drinkin and talkin' for years now about if we was to ever kill Edgar Sheets how we'd do it, right?" He says "Yeah" and I tell him the story about the dog and how I think it's only fittin' that I bury that same tire iron in Edgar's head and I ask if he'd like to come along.
+
+Now you have to understand that I'm pretty emotional right about then and since Roy wadn't there, he's not so emotional about it. I mean sure, he thinks it's sad and all but he ain't worked up the way I'm worked up. Plus Roy's more of a thinker than me. More of a "let's just be careful" kinda guy, right? So he tries talkin' me out of it an' shit. Tells me how I'm being too impulsive or some shit. See, Roy also went to college so he uses words I don't always know what the hell they mean but by the way he uses this one I think it means that I do dumb shit without thinkin'.
+
+Now if there's one thing I know about ol' Roy, it's that yeah, he's a thinker an' all but get a couple beers in 'im and he becomes just like me. He becomes one of those fellas that do some shit without thinkin'. So my plan is to really drive home how upset I am and how I'd love to go and have a couple beers and talk about things. He agrees and we meet at our regular joint.
+
+We take a booth in the back and order our beers. I get a Budweiser and because Roy went to college, he orders some beer that's a hell of a lot darker yellow than mine, but whatever. We all got our short comin's. I start in with Roy about that poor ol' dog and how he was screamin' and how I just couldn't get it out of my head. Roy says "Like Agent Starling in The Silence of the Lambs," and I say "exactly!" and I actually start to get choked up a little and my voice starts quiverin' like some damn little girl.
+
+Now see, Roy ain't never seen me like this before so I see his eyes start to waterin' and after 3 beers each, he's up to my level of emotion. In other words, he's right where I want him.
+
+So we start plannin' shit. We figure that about 3 weeks from now, the pumpkin show starts and Edgar always has a booth sellin' some of the shit other people had earned. We'll stake him out and follow him home that night. That'll give us time to buy some rubber gloves and masks, and duct tape and whatever else movies had told us we'd need. The planning gives us the feeling that we're serious about it but more importantly, it'll give us enough time to chicken out which we would more than likely do. This was just a fun conversation and we were just lettin' off steam, get me?
+
+Now wouldn't you know it just as our emotions are runnin' high, Ol' Edgar walks in. I'm facin' the front door and with Roy sitting across from me so he doesn't see it, but he does see me stiffen right the hell up and sees my eyes grow double their size and hears me gasp. He says "What the hell?" and turns around and his mouth drops open and he slowly turns his head back to me.
+
+"Speak of the god damn devil," he says.
+
+"Literally," I said. Roy narrows his eyes and gives me a nod. "Tonight?" I say. I'm genuinely surprised by his gesture and he nods again.
+
+So there we are. Two drunk dumb shits gettin' ready to do some dumb shit without thinkin'. Roy says to me "Ok. What's the plan?" I say "This is the god damn plan, Roy. We're in the fuckin' plan as we speak. We're gonna sit here, wait for him to leave and we're gonna follow him home and kill him."
+
+For the next two hours, me and Roy get our fill of mozzarella sticks and potato skins, whisky and beer. We're just about where we need to be to pull off the impossible and the impossibly stupid. Rosie, back behind the bar, gives last call and we down what's left of our warm beer. I watch Edgar throw the last shot of tequila down his gullet, slam his glass on the bar and leave without paying, of course. Me and Roy are right behind him, stumblin' arm in arm and whispering about how bad-ass we are.
+
+We're about to flick caution to the wind like a cigarette butt and see how far it goes. We get in the car, and off we go.
+
+I keep enough distance between my car and Edgar's so he wouldn't suspect we was followin' him. Enough distance so that my state of drunk made it look like Edgar's tail lights were two real blurry demon eyes starin' at me from up the road a piece. Roy keeps hollerin' at me to stop swervin' but that's like hollerin' at some poor kid with a bum leg for limpin'. It just wadn't in my power to keep from swervin'.
+
+I knew it, Roy shoulda knowed it and the cop behind me that just lit me up apparently knew it too.
+
+Well shit. I pull over to the side of the road and ask Roy to shut the fuck up. He's goin' through all his "I told ya so's" and "see what'd I tell you's" which ain't any help now, right? Roy is also complainin' that "after all that planning, this night is gonna end so unceremoniously with you in jail."
+
+I turn to Roy and say "I don't know what that word means, Roy?" He tells me it means we're ending this night fast and without celebration.
+
+The cop starts walkin' up to my car shinin' his flashlight into my side view mirror which makes me squint real hard. I can't see which of the five cops our town employs it is until he's right up next to me. It's Bobby Clark. Me and Bobby exchange greetings. Bobby bends over a bit, looks in the car over at my passenger, nods his head and says "Roy." To which Roy says "Bobby."
+
+"What in the hell you two knuckleheads doin' drivin' so god damned shit-faced?" Bobby says. "Where the hell you headed?"
+
+I say "Well, shit Bobby. We're followin' Ol' Edgar home so we can kill him." I sense Roy tighten up and hear him say in an incredulous way — Roy taught me that word a few weeks ago — "What the fuuuuuck, mannnn?" as he sinks down in his seat.
+
+But you see, I felt ok tellin' ol' Bobby this on account of back about three years ago, back when Bobby was new to town, new to the force, and just didn't know no better, he pulled over Edgar for the same damn thing, right at about the same damn time of night, on this same damn road. Young, dumb, and full of cum, as they say. That's what Bobby was.
+
+A day later when Bobby got home about 7:00 in the morning, Edgar was waitin' in the bushes that are right next to Bobby's front door. Ol' Bobby puts his hand on the knob and from behind the bushes, an iron sledge hammer comes down on Bobby's thumb crushin' the damn thing into powder, right? Still wears a splint to this day.
+
+Bobby fell on the porch screamin' and Edgar comes out of the bushes and stands over him until Bobby simmers down. Edgar says to him "I ain't gonna kill ya, cause you don't know no better yet. But now you do." And he walks off. I mean that was some cold shit to do to a cop and even though the town knows Edgar, Bobby never quite recovered from it reputation wise. His waters had been muddied by ol' Edgar, see?
+
+Bobby stares at me like he's waiting for me to crack a smile and I don't. We look into each other's eyes for a good ten seconds and I start wonderin' if I done fucked up by tellin' him our honest to god intentions. When he takes a step back and puts his hand on his pistol, I think I sure as hell did.
+
+Bobby kinda looks to his right, then his left like he was makin' sure nobody was out on this deserted road at three in the mornin' and his eyes meet mine again. He pauses about another ten seconds or so and says "This never happened. I was never here and we never had this conversation, get me?" I nod an agreement and he says "You boys have a good night." With that, he slapped the palm of his hand on my car roof twice, walked back to his cruiser and off he went.
+
+Me and Roy drive the next eight miles or so in silence. I don't know if he's givin' me the silent treatment like a damn woman cause he's sore at me or if the reality of what we're 'bout to do has sunk in. For me, it's the second one. I can't say the beer and whiskey have wore off cause I'm still drunk as shit, but the bravery that it built up in me sure as shit has.
+
+But as they say, me and ol' Roy are in for a penny, in for a pound. We come this far, there ain't no turnin' back.
+
+Now you may be thinkin' that sure there's still time to turn back but another way I fucked up is I stated our honest to god intentions to a third party and where I come from, if you tell someone you're gonna do somethin' you god damn well better do it. My reputation means a hell of a lot more to me than ol' Edgar's life does, that's for damn sure.
+
+We pull into Edgar's long gravel driveway and Roy speaks for the first time. "Hit the lights," he says. The driveway is about as long as a football field and we creep about half way up it before we kill the engine. We sit in the car for about five minutes gathering the steam we need to do what we come to do.
+
+"You ready?" I says.
+
+"If not now, when?" Roy says.
+
+We both carefully and slowly pull back on the door handles to let ourselves out. Roy starts makin' his way to the house and I whisper "Hold on! I gotta get the tire iron."
+
+The plan we'd discussed at the bar is that we'd follow right behind him and surprise him coming out of his truck when he parked in his driveway. But since we got stopped by Bobby, ol' Edgar was already in his house so we had to discuss new plans. Roy's gonna throw rocks at his house until he comes outside. Edgar'd obviously go to the side of the house that was bein' pelted with rocks and when he turns to walk that way, I'm gonna come from the other side of the house and bury my tire iron in his head like he made me do that poor ol' dog.
+
+So, Roy is at the front of the car facin' away from me and I'm grabbin' my blunt force weapon. I close the trunk and hear a thunderin' boom from behind me. Roy's shoulders and the back of his head explode with buck shot. He falls limp to the ground and disappears in front of the car.
+
+I turn around and Edgar's comin' at me. The look on his face is kinda strange. It's not a look of surprise or a look of anger or nothin' like that. It's a look of nothin'. Like this is a weekly thing for him. He's approachin' this thing like the rest of us approach bowlin' league on Tuesdays.
+
+I see his big mitt coming toward my face and I'm too drunk to react in time. He grabs me by the back of my neck and bends me over at the waist so that my right ear is against his right hip. He uses his other arm to grab me around my waist, lift me up so that I'm upside down and he just drops me on my head.
+
+Now something that me and Roy knew but forgot was that while ol' Gus was in a coma on account of Edgar whalloping him with that 2x4, Edgar had gone to Gus's house and stoled all his security cameras. So from the moment Roy and I pulled up, he saw us comin'.
+
+When I fell on my head, I heard a loud pop. I tried to get right up to defend myself, but nothin' moved. I was just layin' there on his driveway like a god damn sack o' Quik-Crete. Me lookin' up at ol' Edgar and him lookin' down on me.
+
+Edgar makes a snorting sound and hocks up a lot of green from his lungs, makes a kissing shape with his lips and drops that neon green marble right on my forehead before walking off and leaving me to die. And I know he's leaving me to die because as I said before, Edgar don't care about nobody. The crunching of the gravel under his boots gets quieter and quieter and my breathing gets shallower and shallower.
+
+I reckon the bright side is that because my spinal cord has been severed, I don't feel no pain which is nice.
+
+Now I don't know what happens after this. But I ain't scared. I realize years ago I wadn't much built for this place called Earth so it's no biggie to me. Heaven? Hell? Ashes to ashes, dust to dust? Who knows? But one thing for sure, I'm about to find out in the next few minutes.
+
+Things start getting dark and I'm fadin' and I smell somethin'. Somethin' rancid and the last words I have for this place is "Well god damn it. To top everything off, I just shit my pants. How unceremonious."
