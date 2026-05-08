@@ -6,7 +6,7 @@ Maybe I need to start a bunch of fake accounts and leave them in a channel on DC
 
 That's probably that kind of attention to detail that put them onto me in the first place. I mean, I didn’t even know the people who died. Tenuous connections to the victims but enough to raise an eyebrow for some desperate piggies with the mayor of Louisville—and the very real possibility of governors from 8 states and a truck load of feds soon to follow—breathing down their necks.
 
-At this point you might be thinking to yourself—I know I would and I’m not any brighter than the next redditor—“Self, he said he his connection to the victims was “tenuous.” This seems to be linked to cases across a number of states. How many is he linked to?
+At this point you might be thinking to yourself—I know I would and I’m not any brighter than the next redditor—“*Self, he said he his connection to the victims was ‘tenuous.’ This seems to be linked to cases across a number of states. How many is he linked to*?”
 
 Therein lies the rub. It’s all of them.
 
