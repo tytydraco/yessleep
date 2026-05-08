@@ -1,0 +1,707 @@
+We were having breakfast together, like every morning. We sat in the massive dining room, quietly eating scrambled eggs, bacon, salad, or buttered toast, whatever each of us wanted. Dad sat across from me, Mom and my brother to my right. My sister sat on my left.
+
+I wasn’t eating. I hadn’t felt hungry since yesterday. My thoughts were racing, and I simply didn’t have the space in my head for anything else. The very first thought that set the rusted gears in my brain turning was this: why doesn’t any of us work?
+
+Neither Mom nor Dad ever leaves the house for long. My brother goes out sometimes, and occasionally my sister goes with him, but never for very long.
+
+Then another thought sent me further down the slope: why don’t my siblings and I look alike?
+
+My brother was a huge man. His short, black, curly hair and sharp nose made it seem like he might have come from somewhere in Latin America. His eyes were always watching. Watching everything. As if he were waiting for something to attack… or for an enemy to appear.
+
+My sister was short but muscular. She always wore her thin blonde hair in a ponytail, and her eyes were those of a predator. I could see the way she observed everything, her gaze almost flickering, like she was a hair’s breadth away from slitting someone’s throat.
+
+Mom and Dad, on the other hand, were completely different. I didn’t fear them the way I feared my siblings. They just watched. Studied. Both were small, thin people. Mom wore glasses and kept adjusting them, pretending she wasn’t staring at me. Dad’s graying hair was always perfectly combed, and he was always asking questions.
+
+Only me.
+
+How I was feeling. What I had done. Why I made certain choices.
+
+As if he were constantly filling out some kind of questionnaire about me.
+
+And then there was me.
+
+I stared at my reflection in the pitcher sitting in the middle of the table. A hollow-faced, bald figure stared back. I looked more like a shadow than a real person.
+
+With a distant gaze, I studied the people sitting around me, my so-called family.
+
+Then the realization hit me like a lightning strike.
+
+I don’t know these people.
+
+Worse… this isn’t my family.
+
+I tightened my grip on the fork. It felt like the world had flipped upside down, my mind unable to process the flood of thoughts crashing into it. A wave of nausea hit me at the same time as a strange, gnawing hunger. My throat went dry instantly, and my vision blurred.
+
+“Are you okay, son?” my father asked, breaking the silence.
+
+He studied me carefully, and I forced myself back into reality.
+
+His eyes examined me. His face was old, but his gaze was sharp, sharp like a young fox’s.
+
+I didn’t answer. I just looked at the others staring at me. All of them were watching. Like I was some kind of circus attraction, waiting to see what I would do next.
+
+The problem was… I had no idea what that would be.
+
+“Did you take your medication?” my brother asked from my right.
+
+I stared at his moving lips, watching the way the words formed, the way his voice vibrated in the air. And all I could think was: why don’t I remember anything?
+
+I knew our daily routine. I knew what we did every day. I knew whose room was whose. I knew Mom and Dad slept separately.
+
+But I didn’t remember anyone from before.No memories of us as children. No image of my parents being younger.
+
+I didn’t even know the names of the two people who claimed to be my parents.
+
+“Are you with us, son?” my father asked again.
+
+The curiosity on his face was beginning to harden into suspicion.
+
+Still, I said nothing. My eyes drifted toward the sliding door on the left. The kitchen was that way. Beyond it, through another door, lay the enormous backyard.
+
+My brother shifted.
+
+His massive, shovel-like hand slipped beneath the table. Without taking his eyes off me, he slowly brought it back up.
+
+Something metallic glinted in his grip.
+
+The tip of a needle. An injection.
+
+For me?
+
+The thought shot through my brain.
+
+And then, like prey sensing the predator, an alarm blared inside my head.
+
+I need to run.
+
+In one swift motion, I drove the silver fork I’d been clutching straight into my brother’s forearm.
+
+He howled in pain.
+
+But I didn’t have time to care, I had to get out.
+
+I knocked my chair backward and practically launched myself away from the table. Mom and Dad didn’t move.
+
+But my sister’s speed shocked me.
+
+I had barely started toward the kitchen when she was suddenly right there in front of me. Something gray flashed in her hand…
+
+Then she hit me.
+
+Hard enough that the world instantly went black.
+
+The next thing I knew, I was on the floor.
+
+My sister stepped beside me. She was wearing brass knuckles.
+
+Pain flooded my entire body, radiating from my face. My jaw had to be broken. I was pretty sure I’d lost a few teeth.
+
+“You motherfucker…” my massive brother growled as he staggered over to me.
+
+Blood dripped from his hand.
+
+The last thing I saw was the sole of his boot.
+
+The sour scent of blueberries twisted gently into my nose. I blinked hard until my vision cleared.
+
+I was sitting at the massive dining table again.
+
+Breakfast was spread out before us like some kind of endless feast. Scrambled eggs and bacon. Pancakes drenched in maple syrup. Buttered toast, cereal, cold cuts, and the large pitcher where my reflection stared back at me once more.
+
+My father had just taken his seat across from me. He sat down elegantly and immediately grabbed a boiled egg and a couple slices of toast. My mother sat to my left beside my sister, my brother on the right. Alone.
+
+There was a strange, tiny healed wound on his hand.
+
+Everything was exactly the same as every other morning.
+
+Just like it always was.
+
+Except a moment ago… I had attacked them.
+
+I swallowed the saliva pooling in my mouth.
+
+With desperate dread, I stared at the glass beside the bowl of fresh blueberries. Next to the beautiful orange juice rested a large yellow capsule.
+
+Should I take it? Have I been taking it?
+
+I looked up at my father. He wasn’t eating. He was watching me, studying every tiny movement. Analyzing what I would do, what I would reach for.
+
+What the hell is this?
+
+I wanted to panic. To stand up and sweep everything off the table.
+
+But I didn’t dare.
+
+What happened to me earlier?
+
+“Are you alright, son?” my father asked, his tone clinical, like a family doctor observing a patient.
+
+I didn’t answer immediately. I had no idea what to say. I only knew one thing, I had to get out of here. I needed to escape somewhere they couldn’t watch me, somewhere I could gather my thoughts and figure out what was wrong.
+
+Because something was very, very wrong.
+
+And somehow it felt like everyone else already knew exactly what it was.
+
+“I need to use the bathroom…” I said quietly.
+
+“Go ahead, son,” my father replied simply. Not a single muscle moved on his face.
+
+I stood up from the table, my heart pounding so hard I thought it might burst. For a moment, I was certain I would collapse the second I got to my feet.
+
+They were all watching me again.
+
+Like analysts.
+
+My head felt ready to explode from the tension. I just needed to get out. The moment I stepped through the door leading into the foyer, I heard a chair scrape behind me. Through the half-closed door, I glanced back into the dining room.
+
+My brother was standing. And he was coming straight after me.
+
+I quickly shut the door and hurried past the wooden staircase leading upstairs. By the time I reached the bathroom at the end of the hallway, I was practically running. I heard the door open behind me, my brother’s heavy footsteps closing in.
+
+I dove into the bathroom and locked it.
+
+I thought I might piss myself. Fear and confusion churned inside me.
+
+Who are these people? What are they doing to me? Why are we pretending to be a family?
+
+Leaning against the door, I gasped for air. My stomach trembled.
+
+“Hey, little brother… you didn’t take your medication,” my brother pounded on the door immediately.
+
+I said nothing. No sound came out of my mouth. Not a single coherent thought formed.
+
+Just panic.
+
+“Hello?” He slammed the door again. “Don’t do this. You have to take it before breakfast.”
+
+“Who the fuck are you?” I blurted out, terrified.
+
+I shouldn’t have spoken.
+
+The man outside kicked the door so hard it exploded inward, sending me crashing to the floor beneath it.
+
+My brother stormed into the bathroom like a bear.
+
+“Nooo!” I screamed, crawling out from under the shattered door. “Leave me alone! Help!”
+
+“Who exactly are you yelling for?” he asked coldly.
+
+As I writhed on the floor like a desperate worm, he grabbed me. His massive hands clamped around my throat with crushing force, squeezing until my airway shut.
+
+I flailed, trying to get a grip on him, but what chance did I have against someone three times my size?
+
+I felt the air stop flowing into my lungs. My throat collapsed under his grip.
+
+And then the world went dark.
+
+My face stared back at me dumbly from the reflection in the water pitcher.
+
+I was sitting at the large dining table again. Breakfast had been served once more. Almost everything looked exactly the same.
+
+Almost.
+
+My brother’s expression told a different story. He was glaring at his empty plate, absently playing with a butter knife. My mother was seated beside him now, as if they weren’t just supervising me anymore, but him too.
+
+“Are you alright, son?” my father asked again.
+
+“Huh? What? Sorry?” I said, startled.
+
+My mind was pure chaos.
+
+I had started over twice. The same way. And yet they acted as if they didn’t remember. Or maybe they were pretending not to.
+
+Had it really only been twice?
+
+“I asked if you’re alright,” my father repeated, pulling me back to reality.
+
+“Yes…” I replied, surprising even myself.
+
+Why did I say that? The thought raced through me. Why am I even answering this man?
+
+I swallowed hard and glanced at the glass beside my hand. Cold orange juice beaded with condensation. Next to it sat the large yellow capsule.
+
+Should I take it?
+
+“Don’t forget your medication,” my mother said gently.
+
+I shot her a sideways look.
+
+That damn pill again.
+
+Something deep in my mind screamed not to take it. What even is it? Why would I swallow something without knowing what it does?
+
+And yet, buried somewhere inside me was the certainty that I always took it.
+
+A routine.
+
+Maybe I swallowed one every single day.
+
+My sister leaned forward in her chair, staring straight into my face. She looked exhausted, worn down, but her eyes were still sharp, still alert.
+
+And angry.
+
+I scanned every person sitting around me. My father. My mother. My brother. My sister.
+
+All of them watching me from the head of the table.
+
+My father had just opened his mouth to speak, about to say something, maybe ask another question.
+
+But I was faster.
+
+I snatched the yellow pill, shoved it into my mouth, and swallowed it whole.
+
+“Hm,” my father murmured, clearly changing whatever he had planned to say. “Interesting.”
+
+The moment he spoke, a strange sensation seized me.
+
+A sudden sickness rising from somewhere deep inside.
+
+My vision blurred. My reflection in the pitcher smeared into nothing. The others calmly leaned back in their chairs, still observing me.
+
+“Help… hel… ” I whimpered, my voice breaking.
+
+No one moved.
+
+They just watched.
+
+It felt like my head had been plunged underwater, waves crashing over it again and again. A cold sweat drenched me as the room flipped upside down.
+
+Then my forehead slammed into the dining table with a massive crack.
+
+“This won’t work…” I heard my mother say.
+
+Sliding from my chair like a lifeless sack of flour, I collapsed beneath the table. I heard footsteps, but I could no longer see.
+
+“Help…” I breathed out with my final exhale.
+
+I let out a deep sigh.
+
+The table again.
+
+My reflection stared back at me from the pitcher. The face looking back was mine… yet somehow unfamiliar. A warm breeze brushed across my skin, and only then did I realize that one of the large windows facing the backyard was open. Outside, the summer sun was already shining brightly.
+
+“Are you alright, son?” my father asked, setting his notebook beside his plate.
+
+He served himself scrambled eggs and a few strips of bacon. My mother was only drinking coffee this time. My brother was eating slices of melon. My sister was nowhere to be seen.
+
+I glanced down at the table.
+
+The small yellow capsule was there again. A glass of water beside it.
+
+I raised my hand to grab it,  but something held me back.
+
+I shouldn’t take it… the thought flashed through my mind.
+
+“So, son, how are you feeling?” my father repeated, adjusting the collar of his shirt.
+
+“How long are we going to keep playing this game?” I asked coldly, locking eyes with him.
+
+Straight into those aging, tired brown eyes.
+
+My brother froze, lowering his slice of melon. He looked from me to our father. My mother stopped sipping her coffee, her eyes widening.
+
+“What?” my father asked, poorly masking his surprise. “What game?”
+
+“All of this,” I snapped. “Starting from the same place every time. What do you want from me? Why do we keep doing this over and over?”
+
+My father adjusted his glasses and leaned back in his chair. He picked up his small notebook and examined me like an examiner grading a test.
+
+“How many times do you think we’ve done this?” he asked. A bead of sweat rolled down his forehead.
+
+“I… I don’t know,” I said, glancing at my brother, who watched me with stern eyes. “Many times, maybe. But what’s the point of this?”
+
+“You tell me,” my father replied after jotting something down.
+
+“No!” I slammed my hand on the table. “Enough. I want answers! Why are you doing this to me?”
+
+He didn’t respond,  just raised an eyebrow, as if waiting for me to answer my own question.
+
+“I want to hear it!” I shouted. “Who are you? What are you doing to me?”
+
+“We are your family,” he said flatly, writing another line in his notebook.
+
+“That’s definitely not true!” I shot back.
+
+“Then who is your family?” he asked, his gaze sharp.
+
+I could see it again, the analysis. Watching what I said, how I said it, trying to understand why I said it. The entire performance was starting to drive me insane.
+
+“I… I don’t know,” my voice trembled. “But I know it’s not you.”
+
+My father sighed, not a defeated sigh, but the kind someone makes when they’ve just realized something important. As if he were standing on the brink of a major discovery, needing only a final spark.
+
+“Will you just SAY something?!” I yelled after the long silence.
+
+“Calm down, son,” he said, pushing his glasses back up his nose. “Why are you so agitated?”
+
+“Oh, fuck you,” I snapped, jumping to my feet. “You’re going to tell me everything right now, or…”
+
+“Sit down,” my brother cut in, rising from his chair.
+
+“Oh, you shut the hell up too,” I pointed at him, backing away from the table. “Don’t touch me. I’ve had enough… enough.”
+
+My brother stared at me with murderous tension. He looked like he was one breath away from charging.
+
+I kept backing toward the kitchen.
+
+Now that my sister wasn’t here like the first time, I saw my chance to escape.
+
+My brother stepped away from the table, tracking me with his eyes. Ready to pounce.
+
+“What’s the point of this, son?” my father asked lazily, biting into a strip of bacon. “You want answers? Come sit down and you’ll have them.”
+
+“I don’t believe a word you say!” I shook my head. Only a few steps remained between me and the kitchen door.
+
+Then my brother lunged.
+
+He thundered toward me like a bull. I leapt twice and grabbed the kitchen handle.
+
+I practically dove inside.
+
+And the sudden encounter surprised all of us.
+
+My sister was there,  along with some man. Standing close, talking quietly. Maybe a cook. Maybe a waiter.
+
+I didn’t give a shit.
+
+All I could see was the open door beyond them.
+
+The backyard. I had to get out.
+
+My thin, exhausted body propelled itself forward. That door meant salvation. If I made it through, I’d be free of this nightmare, free from this insane family.
+
+“Oh, for fuck’s sake!” I heard my sister curse as she realized who had just burst in.
+
+She shoved the man aside and sprinted after me. The kitchen door slammed open as my brother charged in behind her.
+
+It felt like some twisted children’s game.
+
+Me in front, fighting for my life.
+
+My so-called siblings scrambling after me like we were playing tag.
+
+I made it outside.
+
+The soft grass stroked my bare feet in the warm summer morning. Barefoot? No time to think, keep running toward the bushes!
+
+Then I heard a loud crack.
+
+I didn’t even understand what had happened.
+
+Warmth spread across my chest. Slow, creeping warmth.
+
+My body faltered. Stopped.
+
+Then dropped to its knees.
+
+There was a hole above my right breast. Blood poured from it, staining the beautiful green grass red.
+
+They shot me.
+
+But who?
+
+I collapsed forward, pathetically, ass in the air, face buried in the warm earth.
+
+Blood bubbled from my mouth. Boots appeared in my fading vision.
+
+“Tower, you didn’t have to take the shot,” I heard my brother say. “We could’ve still had him…”
+
+The world went dark.
+
+And life began to slip out of me.
+
+My hand was cold where it rested on the table.
+
+There was no sign of sunshine outside. The weather was gray and damp. And I realized we were back in the dining room. Eating breakfast. Again.
+
+A large bowl of pears sat on the table. Eggs, bacon, cereal, milk, and everything else. My body was intact. No hole in my chest. In the large pitcher, my sunken, exhausted face stared back at me.
+
+“Are you alright, son?” my father asked, glancing up at me from his notebook.
+
+My brother stared out at the rain with bored indifference. My sister was the only one watching me, angrily. Like a sulking child.
+
+My mother was picking at a cluster of grapes. Only half paying attention to me on her right.
+
+“So, son, how are you feeling?” my father repeated, stopping his scribbling.
+
+“I’m fine,” I answered simply.
+
+“I see…” he said, flipping a few pages in his notebook.
+
+Something strange took hold of me. Anger. Rage.
+
+I didn’t care about answers anymore. I didn’t want questions from him. I didn’t want to wake up at this table again and again after my own death. I was done.
+
+Slowly, I reached for the fork lying on the table. I lifted it and studied my pathetic, bald reflection in its blurred surface.
+
+Is this really me?
+
+My mother was still busy with her grapes. 
+
+With one sharp, deliberate motion, I drove the fork into her neck.
+
+Deep. Hard.
+
+I must have hit an artery. Blood sprayed everywhere, covering my face, the white tablecloth, the food.
+
+“Holy shit…” my sister jumped to her feet.
+
+My brother only now seemed to realize everything was covered in blood. He stared at the grotesque fountain in shock.
+
+But the one who surprised me was my father.
+
+I saw the shock in his eyes, but he didn’t move. He watched. Analyzed. Studied the way my mother bled out while I climbed onto the dining table.
+
+I don’t know how, but I knew there was a large kitchen knife beside the pumpkin pie.
+
+I had to get it.
+
+I crawled across the table on all fours, knocking through plates and food, and grabbed the knife. I tumbled off the table and sprang back up, wildly swinging the blade. My sister was closest, she raised her hands to defend herself, and I felt the knife slice into her palm.
+
+“You fucking idiot!” she screamed, clutching her bleeding hand.
+
+A deep red cut split her right palm.
+
+“Back the fuck up!” I shouted. “All of you!”
+
+I searched for an exit while waving the knife between my brother and sister. My father still hadn’t moved. He sat in his chair. Watching. Waiting. I lunged toward him, pressed the blade to his throat, and grabbed him tight.
+
+“No one comes closer!” I screamed. “Or I’ll cut his throat!”
+
+Why was it harder to do this than what I did to my mother? Why did it feel like an empty threat? Like something inside me was holding me back.
+
+“Put the knife down,” my brother said calmly, stepping closer.
+
+“Stay the fuck where you are!” I yelled, pressing the blade harder against my father’s neck.
+
+“Stop this, son,” my father said, breathing heavily.
+
+He wasn’t terrified. Tense, yes, but not afraid. As if he knew I wouldn’t actually do it.
+
+“Shut the fuck up, all of you!” I shouted. “Let me go! Where’s the exit?! Why can’t I ever find the way out?!”
+
+What I didn’t notice was my sister moving.
+
+The next thing I felt was a crushing blow to my jaw.
+
+I collapsed, but I didn’t let go of the knife.
+
+My father cried out in pain and grabbed his face.
+
+I hit the floor. Dizzy. Crawling like an insect, I tried to move. I didn’t even know where.
+
+My brother rushed in and tackled me with my sister.
+
+I kicked and thrashed like a feral animal, trying to break free, but my brother pinned me down and twisted my arm. My sister wrenched the knife from my hand.
+
+“Wait!” my father shouted.
+
+He leaned down beside me.
+
+My brother forced my face against the cold hardwood floor. But I could still see.
+
+The flesh on my father’s face hung open. The blade had torn through it grotesquely. Blood streamed down his cheek.
+
+“What did you mean you can’t find the exit?” he asked, pressing his hand against the wound. “You never even looked.”
+
+“I always look,” I hissed. “Every single time.”
+
+He said nothing. Just stared into my eyes.
+
+As if searching for something. Or someone.
+
+No one moved.
+
+Blood continued pouring down his face. My arm felt like it was about to snap.
+
+And at a single silent signal from my father…my sister drove the knife between my ribs.
+
+It was cold.
+
+I could feel the warmth of the fireplace, but outside a blizzard raged.
+
+My brother sat directly beside me at the table. My sister was on my other side, rubbing her arm. There were faint signs of pain on her face. My father sat across from me at the head of the table, a small bandage on his cheek. His beard had grown long and looked unkempt. His glasses slid down his nose as he flipped through his notebook.
+
+The woman sitting next to him was someone else.
+
+The one I stabbed in the neck wasn’t my mother… but this woman wasn’t her either.
+
+Had they replaced her? Did someone else take her place?
+
+I couldn’t make sense of it. But what surprised me even more was the face in the pitcher. The gaunt, sickly figure was gone. Instead, I saw the blurred reflection of a strong, healthy man.
+
+Is that me?
+
+Yes.
+
+That’s me.
+
+“Are you alright, son?” my father asked bluntly.
+
+“Yes,” I answered immediately, calmly.
+
+My father looked up from his notebook. Straight into my eyes.
+
+“Can I go into the kitchen and make some tea?” I asked, driven by some strange instinct.
+
+“Of course,” he said, studying me more intently.
+
+My brother shifted almost imperceptibly. Ready for anything I might try.
+
+But I simply stood up politely, wiped my mouth, and slowly, calmly walked toward the kitchen. My sister watched me like I was some kind of inmate.
+
+The moment I stepped inside, I knew someone was following me. When I glanced back from the doorway, my brother was already rising from the table.
+
+I didn’t panic.
+
+The door leading outside was locked.
+
+But something in my mind warned me… not that way.
+
+Don’t run.
+
+The kitchen was empty and cold. Slowly, quietly, I pulled open a drawer. As if I already knew what I would find, I took out the metal meat tenderizer.
+
+Then I positioned myself behind the kitchen door.
+
+My brother stepped in at that exact moment.
+
+As the door shut behind him, I swung. Hard.
+
+Straight for his head. The large man dropped to his knees instantly.
+
+“Ah, fuck… You crazy bastard!” he snarled.
+
+I didn’t give him time.
+
+I struck again. And again. And again.
+
+He collapsed onto the floor. I stood over him, panting.
+
+No time to think.
+
+I had to go. I glanced at the door to the backyard.
+
+NOT THAT WAY! something screamed inside me.
+
+I scanned the room quickly. The small dumbwaiter looked like my best option.
+
+“You guys okay?” I heard my sister’s voice approaching, her footsteps growing louder.
+
+I dropped the tenderizer and grabbed a knife instead. I pulled open the dumbwaiter doors and climbed inside, lowering myself down with the rope into the darkness below.
+
+“Fuck!” my sister shouted from the kitchen. “Alarm! The subject escaped!”
+
+But I was already in the basement.
+
+It was dim, more like a storage room than a cellar. Food was piled everywhere. At the far end of the room, a small square garbage chute gleamed from the wall.
+
+I moved toward it, knocking over a jar in the darkness. When I pulled the metal hatch open, a nauseating stench hit me.
+
+LOOK AT THE FLOOR! the thought flashed again.
+
+It was hard to see, but there was a grated drain there. I crouched beside it and heard water trickling below.
+
+Heavy footsteps thundered somewhere above.
+
+Many of them. Running.
+
+They were looking for me.
+
+In the gloom, I felt along the edges of the grate and found screws. The knife fit perfectly.
+
+A coincidence? How did I know this?
+
+I loosened the screws quickly. Within a minute, the grate gave way.
+
+I dropped into the sewer immediately.
+
+It was tight, but curled up, I managed to fit. I crawled through the filthy water until I felt the tunnel begin to slope downward.
+
+Then I started sliding with the slow-moving sewage. There was nothing to grab onto. The walls were slick and disgusting.
+
+I tried to slow myself with my hands and feet, but I only sped up.
+
+Then suddenly… the tunnel disappeared beneath me.
+
+I fell.
+
+I landed with a heavy thud on something soft.
+
+Dazed, I sat up and groped around in the darkness. High above, faint red indicator lights barely provided enough illumination.
+
+But I could feel the piles around me.
+
+They stank of rot. Flies buzzed in thick swarms. The mass beneath me was warm. Mushy.
+
+As I searched through it, I became increasingly certain it wasn’t what I first thought.
+
+There was fabric. Clothing.
+
+Then my hand closed around a human arm.
+
+I jerked away in horror.
+
+Suddenly, a harsh light burst on with a metallic screech. A hatch opened in the ceiling.
+
+“See anything?” an unfamiliar voice called down.
+
+“Not a damn thing…” another muttered, sweeping the area with a flashlight.
+
+I threw myself flat into the pile. Bloody, fecal water soaked my face, but I didn’t move.
+
+Not even when I realized the dead face lying beside me… was the same face I knew from the pitcher.
+
+All the bodies looked exactly like me.
+
+“Forget it,” one of them said. “He couldn’t have gotten in there anyway.”
+
+“Oh, fuck…” the other replied.
+
+I heard rattling. A splash.
+
+The flashlight fell down beside me, casting its beam across the opposite mound.
+
+“You idiot!” the other snapped. “Now we’ll be the ones sent down there.”
+
+Then the hatch slammed shut.
+
+As revolting as the stench was, I took a deep breath. I crawled toward the flashlight, its beam throwing monstrous shadows across the walls.
+
+The chamber was filled with corpses.
+
+Every single one of them looked like me. The room was full of my bodies.
+
+It was always me. 
+
+Every time.
+
+Whether from shock or the force of realization, I don’t know how, but I found another drainage pipe. Using the flashlight, I crawled onward.
+
+I couldn’t stop now.
+
+I had to get out. Then I saw it.
+
+Light.
+
+Bright, white light.
+
+I pushed forward desperately, dragging myself through the freezing filth. And then I burst out.
+
+Again.
+
+Into a filthy stream. The rocks tore open my skin, but I didn’t care. Everything was cold and buried in snow.
+
+I staggered out of the water and stopped to stare at the landscape.
+
+My bare feet were nearly frozen, but the silence of that moment was worth everything.
+
+Sunlight shimmered softly across the snow, turning it almost magical. Far off between the trees, I saw a car moving slowly.
+
+I didn’t know where I was.
+
+Or when.
+
+But one thing I knew for certain…
+
+I was the first one to ever make it this far.
