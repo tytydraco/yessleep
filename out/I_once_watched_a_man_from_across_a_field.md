@@ -1,0 +1,41 @@
+I once watched a man from across the field. I was 13, I am 36 now, and spring had just graced the lands with its presence; and the many miles of hay swayed in the wind as if they all were dancing to the delightful songs of the birds. My life was cyclical in nature. Eat, work, sleep and on Sundays I’d go to church with my parents. I loved going to that little wooded shed in the center of town. Singing songs and reading books weren’t strange there. I could be myself. I also felt a strong connection with the Almighty. However, about a week before I watched the man. I felt disturbed, the church felt empty despite the many filled pews. It felt cold and faded, like an old flag after one too many winters. 
+
+It was a Sunday when I awoke, the grass was still glistening from the morning dew. The smell of flowers and wood flooded my nostrils and the air was bitter and sharp , yet I still endorsed its presence. Church was not in session that day, for what reason I knew not, not at the time anyway. When I mustered up the strength to abandon my dreary and restful state, I dragged my feet to the barn. The large, maroon barn became my own sort of church. There I could be alone. I was always the academic. Most of the men in the village called me a girl, or said I was weak for reading all day. However, within the confines of the barn, I was safe. Mother and father seemed to have left for the morning market. I opened the gate for the horses, as well as for the cows, and finally the goats. 
+
+Mother always told me to be wary of the goats. She said they’d vanish and disperse in less time than it would take my eyebrow to furrow. Her insistence on how careful I should be around the goats gave form to the idea that there are more to them. I only took the goats out into the plains once or twice a week and every time I would my Mother would pray with me. We prayed every time the sun rose, however, on the days I was the goat tender she’d pray longer than what was normal of her. 
+
+I overheard Father mention they brought a certain feeling in the air with them, the goats. Within myself the goats give way to a feeling of belonging and warmth. A type of warmth and brotherhood I’ve never had before. I felt a feeling akin to enlightenment and nirvana with the goats.  I also never had a problem with a fleeing goat. It felt as if the goats were my savior. Not in the literal sense but the emotional and spiritual sense. 
+
+The goats and I would walk and walk until we reached the plains, along the edge of my town. This place of grass and elation seemed to be in a world of its own. The wind smelled different and the church bells were inaudible here. In fact, the steeple was little more than a twig in the distance. 
+
+The wind seemed to curse in my ear when I saw him. I had just sat below my favorite oak. When I watched as a figure took shape a mere thirty yards away. I was unsure if my presence to him was known; if it were unknown, I intended to keep it as such. The man, whose face I never could make out, wore red robes with a tall pointy hat, also in red. Simultaneously, I heard a whisper in my ears. Voices, many in number, overlapped and mixed together to form an indecipherable amalgamation of syllables and sounds.
+
+Thirty yards away I was, but I never could get a clear image of his face; just as I painted a picture in my cerebrum of his likeness, his face would seem to warp with such disdain and rot. He as a person, I could tell, was immoral and the whispering grew louder. He came with no other man but instead with a goat. Fearing he had stolen one of mine or one had run away, I began to stand up. My feet, however, disagreed with this sentiment and remained perfectly still. Along with the rest of my functions. 
+
+A slight relief was realized once I noticed the color of this goat. Black. I own not a single black goat, only whites and browns. The man then stopped, and the goat did with him. However, the goat did not bend down to eat the fields of straw before him. The goat didn’t move. From the man’s robes, he pulled out a small shiny object. Only the size of his hand, I’d say. The true form of the object and the man’s intentions were crystal clear once he raised the tool to the sky and said these words. 
+
+And so the throne was exalted to a new leader,
+
+The one who checked the King and was banished,
+
+He and his swarm of all things corrupt and vile,
+
+Hath taken victory of the white light,
+
+And now the land above is silent,
+
+The true king, the true father, the self-righteous savior shall bear witness,
+
+For this I give to you,
+
+In one swift motion he pierced the side of the goat, and as if in agreement, the goat lay down. The man now spoke in a tongue never heard before by my ears. It was as if he spoke in hieroglyphs and forsaken saints. The whispering grew into strained speak. As if someone were just beside me talking to me. 
+
+He consumed the brain, eyes, and liver of the goat in meticulous fashion. It was nearly noon now; I’d been watching the man for an hour slowly dissect every morsel of goat he had consumed. Once he had finished, he gazed upon the heart and took one, slow, intimate bite. He placed it upon the ground in an intentional fashion. Like it mattered where the heart fell. The once whispers were now full screams in my ears. I could tell they cursed and cried and hated despite not making out a single word besides “dead”. He now was turned in such a way that I couldn’t tell what he was doing. He seemed to play in the desecrated goat carcass. 
+
+Then he stood, with his back facing me, and slowly, ever so slowly, he turned around to face me. He wasn’t merely looking in my direction; he saw me, my heart, my soul. And with the wave of three fingers, three of my goats had fled towards him. With only one touch of his hand, the goats turned coal black. The man then, as quickly and silently as he came, left the pasture. As soon as his hat was not visible, the screams halted. I could now only hear the wind and the bleats from my remaining goats. 
+
+What I saw where he once stood was the goat's intestines and viscera fixed in a star of 5 points within a circle. The ground within the circle had been singed and what was left of the goats heart lied in the middle. Strangely and morbidly, I felt compelled to take a bite of the organ. It was such an intense and hot feeling that I submitted. It was as if just being near the sigil was waning on my sanity already. One of the hind legs of the unfortunate bastardized goat was broken completely off of the corpse and fixed to the other in an inverted cross. Not in a clean way that a butcher might do it, but in a savage and disheartening manner. You could tell the leg had been mangled off.  What was left of the goat was twisted and mangled into a nearly unrecognizable form. It was unnatural how the poor goat was transformed. 
+
+Mother asked where three of my goats had gone, my mouth could form nothing but lies as I stated that they had run away. I didn’t like to lie to her, she told me God didn’t like it, however I didn’t feel bad about this lie, it didn’t feel wrong.  She commanded me to read my bible until she told me to stop. However, when I went to open my bible the pages cried and disintegrated into ash. I feel as though the man watches over me always. I feel as though he is waiting for me.
+
+When Mother died I stopped going to church; I didn’t feel welcome, I only would go to make her happy. The members of the church were kind, but I felt there was no purpose in going. I prayed to what seemed like a wall. The last time I dragged myself to the altar, I had a vision. It was more surreal and crisp than if I had witnessed it with my own eyes. I saw another man, one who was blooded and disheveled and ultimately deceased. In his right hand was a ball of black light, not darkness, but a dark and grotesque black light. Carved into his other hand was the same depiction of a star within a circle that I saw those many years ago with the goats. I still take the goats out till this day but I no longer feel the warmth within them, instead an unnatural chill . A chill of pure pain and dismay. Why is it when I pray, I only hear myself? I once watched a man from across a field, and I believe Our Father's robes are now stained red.
