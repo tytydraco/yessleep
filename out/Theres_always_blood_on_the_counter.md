@@ -1,0 +1,305 @@
+The biggest changes in life usually come about in unexpected ways. Back when this all went down, I wasn’t expecting anything to impact my day-to-day life. I was worrying about things like whether or not Marissa was going to respond to my texts or ghost me for the fourth day in a row. I was worried about whether or not I had to work an extra shift the following week, or if I could take time off to go to a concert. That’s the kind of thing I was thinking about, not whatever the hell was going on with my kitchen counters.
+
+I should take a moment to explain.
+
+Back then, I was living in an apartment. The owner was having it refurbished, but there’d been a shipment delay that caused a couple of things to be delivered at a later date. For example, a new sink for the bathroom. The landlord switched it while I was out. Next up was the kitchen countertops.
+
+They used to be this cheap, powdery, pressed-cork type of wood, but now they’d been exchanged with slabs of stone. I didn’t even think about it until I got home from work and saw the note on the door.
+
+“Installation finished. We appreciate your patience!”
+
+ 
+
+I barely even noticed. A kitchen counter is something you sort of take for granted. It wasn’t until I made myself a sandwich that I realized that, hell, these things were pretty neat. Smooth, polished, stone. It felt nice to the touch. A little warm. Each was a distinctly different piece, having varied shapes and patterns engrained in the stone.
+
+The counter was split into four straight sections and a corner piece. I dragged my hand across each one. My microwave and knife block were still there, so they must’ve put everything back in place by hand. That was nice of them.
+
+As I got to the section at the far end, my thumb snagged on something. I’m not entirely sure what it was, but it felt like a splinter. I put my thumb in my mouth, but not fast enough. A few drops of blood spilled on the counter. I’d only had them for a couple of minutes, and there was already blood on them. That had to be bad luck.
+
+I never figured out what I snagged my thumb on.
+
+ 
+
+I didn’t think much about it for a couple of days. I’d walk by those counters when I made my dinner, or brushed my teeth, or whatever other little things you do every day that you don’t think that much about. It’s just a part of the ambience. Stone, wood, plastic; it doesn’t really matter. It’s another *thing*, and *things* don’t matter that much when you’re late for work or finally getting a response from Marissa about meeting up next Sunday.
+
+One day as I was standing there cutting up an orange, I poked myself on the index finger. Another few droplets spilled on the counter. As I wrapped my finger in some paper, I watched those blood drops pool in the middle of the counter. I hadn’t noticed it before, but there was a slight tilt to it. Any liquid spilled on the counter naturally pooled in the middle, and if there was too much it trickled out like a spout. None of the other pieces of the counter did this, only the edge section.
+
+I cleaned it up and enjoyed my orange, not thinking too much about it. A lot of things out there are over-engineered to the point where you don’t know about half the features. Like those little white paper thimbles you use to put ketchup in at fast food joints. Did you know those can fold out? They can get twice as big. It’s the kind of little thing you can go your whole life without noticing.
+
+For about a week, everything was as it should be. Work, having a coffee with Marissa, getting to bed early. Just the everyday cycle of things. I did notice I was having a streak of bad luck though. There was always something bothering me, but it was usually a mild annoyance. A paper cut, brushing my teeth a little too hard, biting down on the corner of my nail until a little red dribbled out. Stuff like that. But every time it happened, I couldn’t help but notice a couple of things.
+
+First, that it almost always happened near that kitchen counter.
+
+And second, that whatever little drop of blood was spilled always pooled so naturally in the center of it, like the countertop was built for this.
+
+ 
+
+I remember the thought sneaking up on me like a prowling cat. I was having a sandwich in the kitchen after a night out. As I waited for my phone to buzz, I considered just how many times I’d accidentally bled on that counter. The answer, once I thought about it, surprised me.
+
+I’d bled on it *every day* since it got there.
+
+It seemed unlikely, but once I mapped it out, that was the truth of it. I always flossed my teeth while walking around the kitchen, and my gums were not in the best of shape. A little blood there. I had this scab on my arm that, when scratched, bled a little. Another few drops there. A paper cut here, a slip of the knife there, a particularly bloody steak … one way or another, for about a week, there’d been blood on that counter *every single day*.
+
+I chalked it up to bad luck, and even then, it was at most a curiosity. As soon as that phone buzzed, the thought fled me like a startled bird darting for the sky.
+
+ 
+
+I did start to pay a little more attention though. I was being a bit more careful. I stopped walking around while brushing my teeth, instead resorting to sitting down and counting out the seconds. I started preparing my food on another section of the counter, as if depriving the edge piece would somehow grant me some modicum of control. But even so, a couple of drops would make their way to it, one way or another. Sometimes when I wasn’t even paying attention.
+
+For example, one day I smacked a particularly large mosquito on it, leaving a little blood stain. Another time I had a nosebleed, and I didn’t even notice it until it got on my hands. Despite my (albeit minor) acts of resistance, a couple of drops would find their way to that counter either way. That’s where that alien thought hit me for the first time.
+
+There’s *always* blood on the counter.
+
+ 
+
+I’ve always been a bit superstitious. I avoid breaking mirrors or walking under ladders. Hell, I don’t say “thank you” when someone says “bless you” after a sneeze. I’ve heard that’s bad luck too. It’s not so much that I actually believe the universe will turn against me if I abstain from certain rituals, but it’s more like a set of behaviors that have imprinted on me over the years. I think we all have things like that which we just need to do. Little misconceptions and superstitions that keep us believing things work in ways they don’t.
+
+I began to consider the possibility that maybe, somehow, there *had* to be blood on the counter. I didn’t question how, or why, but the idea itself added up. There’d been a little blood there every single day, that much was true. It had all been from a series of little misfortunes, but that didn’t change the fact.
+
+But I think what made me uneasy was that little groove. That slight tilt, making every drop of liquid pool in the middle. It was so perfect. Symmetric. Like the stone itself was made for this purpose.
+
+I would just have to wait and see. I was going away for a few days, so there’d be no blood on the counter anyway.
+
+ 
+
+I was off for a few days. Marissa and I were seeing each other, and I went to stay at her place. I also had a work trip the following Monday, so I was away from home for a couple of days. By the time I got back home I was so exhausted that I didn’t even consider the kitchen counter. I mean, who in their right mind would?
+
+It wasn’t until I heard a strange noise that I snapped to attention. It was coming from the kitchen. I put down my bag and noticed two distinct and recognizable sounds long before I stepped through the kitchen doorway. One sound was the hiss of a sudden wind. The other was the buzzing of flies.
+
+There was a dead bird on the floor. It had crashed through the window, slammed into my kitchen, and died. The flies were already feasting on it. I could see them crawling all over, their wings twitching. From a distance it just looked like static; these little black dots spread out in a random pattern, the only constant being their movement.
+
+And as always, there was blood on the counter.
+
+ 
+
+The landlord, a tall and skinny guy in his late 40’s, had me put up a cardboard patch on the window while we waited for a replacement panel. When he came up to inspect the damage, he dragged his finger across the edge of the broken glass. Naturally, he got a little cut. As he hurried to wash it off, a couple of drops of blood spilled on the counter, because of course it did. What is it with people and having to touch things that we know will hurt us?
+
+“Gonna be a few days,” he mumbled. “How’re you enjoying the countertops? Pretty neat, huh?”
+
+“Yeah, neat,” I said, nodding along. “Much smoother.”
+
+“And tougher,” he added, giving them a tap. “Gonna need a sledgehammer to make a dent in this thing.”
+
+“You know what they’re made of?”
+
+“Some kind of stone? Limestone, I think.”
+
+He patted the stone and went on his merry way, turning only when he got to the door.
+
+“I’ll have the window fixed by next week. Sorry about the hassle.”
+
+ 
+
+While the dead bird was gone, the flies remained. They pooled around that countertop, as if still sensing something in its grooves. Then again, maybe they knew there’d be more blood to come. Either way, they were there to stay. I had to get a fly swatter and hang it next to my fridge. I got a blue one, with a sunflower on the handle.
+
+As I was heading to work one morning, I knew I’d be gone pretty late. I was seeing Marissa after work, and chances were I’d be spending the night there. That made me pause. If I were to leave, would another bird come crashing through the window? What other absurdity could happen?
+
+Then again, *nothing* could happen. There was no evidence pointing to this being anything else than my superstitious mind making up ghost stories in my head. And yet the buzzing of the flies told *another* story. They weren’t around for make-believe. They wanted *blood*.
+
+I don’t know what made me hold my hand out over the countertop. I had a small cut on my thumb and applying just a little bit of pressure made a drop of blood spill out. I didn’t feel a thing as it plopped into the groove, centering itself perfectly on the counter. I don’t know why I did it, but I felt this ease in my chest. Like I’d set something straight.
+
+I could walk away with a good conscience.
+
+ 
+
+The following weekend, Marissa was having a get-together with some of her friends. I had planned to go, but at the last minute, she had to cancel. There’d been a leak in her bathroom. On a whim I offered to have her relocate to my place for the night. We hadn’t been dating for that long, but this would be a good time to meet some of her friends and break some ice. It took some convincing, but she eventually came around to it.
+
+Marissa arrived early. We made some appetizers together and prepped some cocktails. She spent at least two hours putting together a playlist. I made a little poster and put it up in the hallway, telling my neighbors we were having a get-together. All fairly normal casual party stuff. It was nice though, it felt very couple-y. We hadn’t done a lot of that stuff before.
+
+We were expecting about ten people, but some of them brought plus ones. Some younger folks barely in their 20’s mixing with some work friends well into their 30’s. Some brought wine, others stuck to smiles and snacks. My entryway was too small to fit all the jackets.
+
+ 
+
+We had a nice enough time. Marissa butterflied from one group to another, gossiping and chatting away, leaving me to handle the practical details. Getting things from the oven, filling up bowls, putting out glasses, opening wine bottles, that kind of thing. Meanwhile, she was floating around, having people admire her fancy new dress. It wasn’t that fancy though; it cost less than $30. But to her credit, she wore it well.
+
+I was, admittedly, in a bit of a mood. Marissa had barely introduced me to *any* of her friends, and I hadn’t heard her mention me as the boyfriend to any of them. It was something we’d discussed; her reluctance to actually outright commit to the relationship. Instead she just introduced me by my first name and rushed off to the next adventure. It frustrated me. It’s an ugly feeling.
+
+We had some fun though. There were a couple of party games, plenty of drinks to go around, and the kind of half-shouted semi-private late-night philosophizing that can only come from an abundance of wine and a comfy kitchen chair. I didn’t learn a single name from those who came that night, but I remember our many talks about ridiculously deep topics. No wait, I think there was a guy named Kibble. He had a whole thing about probability that he talked about.
+
+ 
+
+Sometime around midnight, things were getting hazy. I’d had a couple too many drinks, and about half the guests had left. Those who remained had dedicated themselves to finishing what was left in the bottles left behind. Marissa was half-asleep on the couch, clinging to one of her friends and nearly snoozing on their shoulder. Meanwhile, I was in the kitchen, washing up a wine glass. One of the guests had a thing about not wanting to refill their glass; it had to be cleaned in-between pours. I didn’t mind, it was nice to get out of that room for a bit.
+
+I don’t remember her name, but she was one of the younger guests. She came in, grabbed the wine glass, and leaned against the counter. She grasped her wine bottle and absentmindedly made small talk as she waved it around. She had a lot of big ideas and big words, making the sway of the bottle go further and further. Finally, as she waved away a fly buzzing near her face, she smashed the wine glass. Out of instinct, she tried to grab the pieces. She closed her fingers around the sharp edges and froze.
+
+She bled from her hands. The others rushed in to see what was going on. I don’t think they noticed the flies had been there all along.
+
+ 
+
+As I looked at the others, I realized something unsettling. As blood pooled in the center of the counter, no one looked worried. No one was calling out, screaming, or running up to see what was going on. It’s like they already knew. They just stood back, and looked, as blood poured from her hands.
+
+She didn’t seem to mind either. No urgency, no call for a band-aid, nothing. She could take one step to the left and have her hand run under a cold tap, but instead she just stood there, letting the blood pool on the counter. As I looked around the room, I was the first to speak up.
+
+“Should I call an ambulance?”
+
+There was no response. Instead she squeezed her hands a little, forcing out another dribble of blood. The others just watched.
+
+“Are you okay?”
+
+Again, nothing. Just the buzzing of flies.
+
+ 
+
+After about a minute, she moved over and ran her hand under the tap. Marissa got a fresh towel from the bathroom while I moved over to sweep up the glass. Not five minutes later, they’d all said their goodbyes and left – even Marissa. She was supposed to stay the night, but she’d snuck out like the rest of them, leaving me to clean up that mess on my own.
+
+And yeah, she was ditzy. A bit irresponsible. But I don’t think that was a matter of carelessness – there was something else in the air. The groove on the counter was full, like an overflowing cup. The blood had reached the spout, making it drip on the floor.
+
+I stood there for a while, just watching it. The whole thing felt wrong, like I’d been complicit of a crime. It’s like the air of the room had been sucked out, leaving everyone fatigued and fearful. Like the life of the party spilled out onto the floor.
+
+By the time I got my soapy mop out, close to 2 am, the flies were already gathering. No matter what I *think* happened, the blood on the counter was real. I could wash it away, but that didn’t change the fact that it happened.
+
+ 
+
+I decided I was going to do something about it. I called my landlord and tried to have him exchange it, pointing out the groove as a construction error. It wasn’t bad enough to make a glass tip or spill, but it was a clear imperfection. He agreed that it was bad, but replacing the whole thing would be expensive. Instead he settled on a compromise; he’d come by with a bunch of tools and smooth it out himself. He was a handy guy, he could do it. I was a bit skeptic, but it was better than nothing.
+
+He came by that same weekend, toolbox in hand. I was a bit distracted. Marissa and I were having a fight, but it’d take her fifteen minutes to respond to my messages, and the responses I got were usually just one to three words. Meanwhile, I was tapping away, trying to come up with the correct combination of words just to get her to care. I was losing.
+
+“It’s this one, right?” the landlord called out from the kitchen. “I’ll start with the angle grinder.”
+
+He pointed at the right section, and I nodded. He waved away a couple of flies and gave me a heads-up. There was gonna be some noise.
+
+I moved into the bedroom and closed the door. I was so focused on the little screen that I barely paid attention to what was happening in the other room. She’d left me on read for three messages, and we were going on twenty minutes. It was driving me crazy. When I finally put my phone down, I realized the machine noise was sounding a bit… strange. Muted. Not just from the closed door, but something else, too.
+
+ 
+
+Even from outside the kitchen, I could see a small streak of blood. It had shot out far enough to almost reach the hallway.
+
+I’m not gonna speculate on what happened, or why. But the landlord was standing by the countertop with the tip of his index finger sawn off. The angle grinder was still spinning, kissing the tip of his finger bone with an industrial-grade diamond blade. I could see smoke coming off of it as the machine shrieked. The landlord, on the other hand, didn’t say a word.
+
+He just stood there, watching the blood overflow.
+
+ 
+
+I pulled the plug on the grinder. He slowly snapped out of it, but he never really caught on to the kind of urgency a situation like that demands. There was no rush of adrenaline or desperate calls for help. He just nodded, excused the mess, took his tools, and left. He’d fixed absolutely nothing.
+
+As I waved away a couple of flies I realized he’d left the tip of his finger on the counter. I could barely see it from the mass of black dots swarming it, rubbing their wings together.
+
+I think that’s the moment it finally sunk in. I wasn’t dealing with something normal or rational. For all intents and purposes, there was some kind of will and way acting on its own, pushing one fact beyond a strange fiction.
+
+There would *always* be blood on the counter.
+
+ 
+
+ I spent some time looking up what I could. There really wasn’t that much to say. The countertop was made of limestone, cut and prepped in Mexico. It was imported and assembled stateside. That was pretty much it, the company was still very active and there were no signs of there being anything unusual about them. They had plenty of limestone countertops, and everyone seemed happy about them. No crazies in the comments ranting about blood.
+
+I did drop into a couple of rabbit holes. For example, a lot of old Mayan temples were made of limestone too. They constructed everything from temples to altars in that same material. It’s not that strange, really. You can make a bunch of stuff with limestone.
+
+I remember listening to a short documentary about the Mayans as I mopped the kitchen floor for the second time in less than a week. My mop was getting this sickly pinkish hue from having been dipped in a deep red over and over. I tried washing it a couple of times, but I could still see the red in it long after it was gone.
+
+I ended up sitting in the kitchen, completely forgetting to check Marissa’s reply. Instead I looked at my countertop, trying to figure out what the deal was. This crazy thought came to mind.
+
+Maybe it wanted to be something else, much like how I’d wanted to be a cowboy growing up. Maybe this was a way of lashing out or realizing some kind of untapped potential. It was impossible to know for sure.
+
+The flies followed the tip of the finger all the way into the garbage.
+
+ 
+
+Over the next few days, things with Marissa got progressively worse. We got into another fight, and when she outright said she wasn’t sure that we were *actually* *dating*, I called the whole thing off. I wasn’t gonna stand for that. I spent some time with my friends, took a couple extra shifts, and tried to keep busy. Or maybe I just didn’t want to go home.
+
+Just passing through my kitchen would give me this sinking feeling, like I was in the presence of something. Like I was missing some key detail or forgetting to do something important. At times I considered giving the counter a drop of blood just to feel myself calm down. A tap on the finger isn’t so bad – it’s much worse to anticipate an accident that you *know* will come. If you haven’t bled on the countertop, you’re not gonna start chopping carrots, or cutting chicken breasts. You know what’s going to happen.
+
+But things reached a tipping point when I took a double shift and crashed at work. I was gone for a full day, and when I got back home, there was a dead mouse on the counter. I have no idea where it came from, or how it got there. I live on the second floor, so it must have made its way up somehow. I’d never heard or seen any signs of rodents before.
+
+I’d had enough.
+
+ 
+
+I got a hammer and a big iron spike. I’d seen one outside, it must’ve been used to secure the fence leading up to the entrance. Now I was gonna use it like a chisel. I hurried into the kitchen, my boots still wet with mud, and placed the spike on the countertop; readying a blow from my hammer.
+
+Then, I dropped the spike.
+
+It wasn’t a conscious movement; my hand just twitched a little. There was this impulse to lay the palm of my hand flat on the counter, spreading my fingers in every direction. I was still readying the hammer. With the same feeling as I had at the party, I wondered why I wasn’t putting the hammer down. Why was I letting this happen?
+
+What was I, *exactly*, about to do?
+
+ 
+
+I blinked and dropped the hammer, letting it crack one of the kitchen tiles. I’d been fully prepared to smash my own hand on the countertop for no apparent reason. It just seemed like the appropriate thing to do. There’d been a will *imposed* on me.
+
+I picked the spike up, and the hammer, and tried again. *Faster* this time. Spike up, hammer up, a scream. At the last moment I turn around and flick the hammer straight across the room. It crashes into the opposite wall, making a dent in the gypsum.
+
+My hand felt warm, and as I turned to look, I realized I was holding the spike at a strange angle. The tip of it was burrowed in the palm of my hand.
+
+And there was blood on the counter.
+
+ 
+
+My thumb was sore, so I couldn’t stay up all night scrolling. Marissa was already out meeting new people, posting on her socials. She didn’t even slow down. Not even a frown on her reel. Not that I could scroll long enough to check, my hand was killing me.
+
+I stayed up late that night, wondering what to make of this. I was gonna have to clean the counter again, but really, what was the point? No matter how many times I cleaned it, it ended up the same way. There would always be blood on the counter, no matter what I did, and no matter how much I tried to fight it. I could be standing there every day, spraying it with the same lemon-scented bullshit, and I’d have to do it again the next day. Like showering, or brushing your teeth. Was this my life now?
+
+I wasn’t imagining this. It was getting worse. It was demanding more, and bigger. No one had to spell it out for me, but I could feel it.
+
+It wanted to take a *life*.
+
+ 
+
+I got back in the kitchen the next day. I put on three pairs of gloves, got that iron spike and the hammer, and took another swing at the countertop. This time I got a hit in, cracking part of the seal underneath. It took a couple of tries, and I smashed my own thumb once, but it was progress. I took a break to check my thumb, then got back at it.
+
+It took me nine hours to break enough of the seal around the countertop to dislodge the whole stone. By that time my hands were a wreck, and there were bloody handprints all over the damn thing, but I got it done. I pulled it off and dropped it to the floor, cracking another floor tile. It wasn’t that heavy, but my hands felt like they were burning. I decided to call the landlord again. I would happily pay for the damages as long as he got rid of the damn thing.
+
+He came by with his finger wrapped in a bandage. He was, admittedly, pretty tired of this whole ordeal. Noticing the mess I’d made, he just sighed.
+
+“I’ll pay for it,” I said. “All of it.”
+
+He nodded at me. Without another word, he grabbed the stone slab. But instead of heading for the door, he stopped for a moment.
+
+There was something about the look in his eyes that made me uneasy. His mind was a mile away. He was looking at nothing. I snapped my fingers at him, but he didn’t as much as blink. Instead he raised the stone slab like he was Moses holding a Commandment.
+
+“What are you doing?” I asked. “Hello?”
+
+He looked at me, then shook his head. He looked down at the stone, letting out a frustrated grunt. And in a fit of frustration, he took a step back, and flung the entire slab out the window.
+
+ 
+
+Glass everywhere. The damned thing sailed through the air, landing with a meaty thud. The landlord shrugged at me, gasping for air. That’d been more exerting than it looked.
+
+“Let’s go get it in the truck,” he said. “I’ll get rid of it.”
+
+We went down the stairs together, but something didn’t feel right. Not just because of the action of throwing something out a window, but it seemed too easy. I’d fought to get that thing off, but he’d thrown it out without a second thought. It didn’t add up.
+
+Coming outside, I could see I was right.
+
+ 
+
+Turns out, a neighbor had passed my window just as the landlord chucked the slab. That meaty thud was not a chunk of stone hitting the lawn, and not a matter of messing up the community garden. It was an adult man having his head caved in against the pavement.
+
+It felt so unreal, seeing a full body in a colorful sports jacket with half their head cracked on the ground. There was still movement. A fading pulse. People were coming out from all over. It felt like descending into a nightmare, and I didn’t know whether to run, or cry, or scream. I ended up doing neither. I just stood there, like the guests at my party.
+
+Looking around, so was everyone else. They stared in silent reverie. The whole neighborhood was out to see the dead man on the street. It was less of a murder, and more like a… community gathering. No one was happy, or cheering, or even expressive; they just stood there, like this was the most normal thing to happen all day. Like this was supposed to happen. Like it was *expected*.
+
+“Is anyone gonna call for help?” I gasped. “Anyone?”
+
+A dog was going ballistic nearby, barking up a storm, and I couldn’t stop staring at the limestone countertop. It was still intact, laying to the side. Absolutely *drenched* in blood.
+
+No one was moving a muscle.
+
+ 
+
+Eventually, there was an ambulance, and police, and witness statements. People asked me in very careful voices about what happened, offering me the occasional snack from a vending machine. Probably to compensate me for sticking me in an interrogation room for hours on end. Good cop, bad cop.
+
+I didn’t know what to say. I told them what truth I could, that there’d been a problem with the countertop and that I’d asked my landlord to help me remove it. The rest was a matter of impulse, random happenstance, and something I couldn’t quite explain.
+
+All the while, my head was swimming. Had this happened because of some shared paranoia, or had it been the will of some unseen third party? Were we ultimately responsible?
+
+ 
+
+By the time they finished, I’d been watching their notes. There were scribbles about the assembly, the manufacturer, timing of the attack, all of it.  The doodle of an eye. I couldn’t bring myself to explain my theory; it didn’t make sense for me to mention it. I couldn’t think of a way to say it without sounding like a lunatic.
+
+Things don’t wish for things. They don’t want to be *other* things, because they can’t *want*. And yet, there seems to be this inclination, this divine *leaning* towards one thing acting like something else. It was the only way I could think of it.
+
+It was a kitchen counter, *wishing* to be a sacrificial altar. And we were obliged to help, unknowingly or not.
+
+ 
+
+Before I went home that day, I decided to ask the officers a final question.
+
+“What’s going to happen to it?”
+
+“It’ll be filed in evidence,” they explained. “It’s technically a sort of murder weapon.”
+
+I almost laughed. They were gonna file it under evidence, and put it among the knives, and guns, and iron pipes. They’d leave it on some shelf somewhere in storage and forget about it. It’d sit there as other things would pile on top. Evil things. Horrible things stained with hateful impulses.
+
+It would be a resting place where desperation and bad intention would rest upon it for decades to come.
+
+And as the stone was locked away, sealed and unclean, they had assured that there would always be blood on the counter.
