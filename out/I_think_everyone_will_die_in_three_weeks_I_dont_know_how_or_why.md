@@ -12,10 +12,12 @@ You can imagine the emotions I felt when they appeared on my arm. That was last 
 
 I was shocked, of course I was. But nothing could prepare me for being even more shocked the next day when I saw the clocks on the cashier in the shop. I saw them on old people, on little children, on every person without a single exception. They varied a little bit here and there, but I’ve never encountered one that deviates more than five minutes from mine. I’ve been to several countries for work since last year and it’s the same everywhere. If the clocks are right, and they’ve always been, every single person is going to die in less than three weeks from now.  
 
-I know it sounds crazy. It sounds unbelievable and I know most readers will not believe this. But I hope someone understands what I mean. I’ve looked every news source I could find in every language I could read or translate. And I can find absolutely nothing that suggests a disaster is coming, but I am 100 percent sure it will come. So if anyone understands what I mean, please let me know. Please. 
+I know it sounds crazy. It sounds unbelievable and I know most readers will not believe this. But I hope someone understands what I mean. I’ve looked every news source I could find in every language I could read or translate. And I can find absolutely nothing that suggests a disaster is coming, but I am 100 percent sure it will come. So if anyone understands what I mean, please let me know. Please.
 
 I look outside, to the group of children passing by the window. The youngest, probably around four of five, is laughing and teasing the girl next to him. I can see his arm. *020:11:58:18. 020:11:58:17*. My heart sinks again.
 
  
+
+See part 2 [here](https://www.reddit.com/r/nosleep/comments/1t81vmk/part_2_i_think_everyone_will_die_today_i_still/) 
 
  
