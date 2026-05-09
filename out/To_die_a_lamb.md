@@ -1,0 +1,580 @@
+ 
+
+*(Translated from Swedish to English)*
+
+ 
+
+To whoever finds this,
+
+ 
+
+Hello. My name is Sven, I know some English, but mostly Swedish, so I’ll write as best I can to make this easier for you. I cannot explain what I am about to tell you any better than how I’m about to now. A simple sentence or two would do more harm than good, so please, try to hear it all out before you come to a decision.
+
+ 
+
+If you go up north, into Norrland, that’s where you’ll find us, maybe, I don’t know much more than further down the hillside really, but that’s what my Mamma told me, I am in Norrland, Sweden. Up the hillside, if you follow it, you’ll need to walk slowly and carefully, or you’ll miss it. This village, it’s crept right between forest and snow, damn near invisible to most, we’re a rural, timid piece of land that minds its business. We don’t go looking for trouble, so trouble doesn’t go looking back.
+
+ 
+
+But we’re a nice people, ‘a real family, a community,’ is what my Pappa used to say. Everything about us is as normal as it gets up here.
+
+ 
+
+Except for one thing.
+
+ 
+
+Every few years, give or take, a little white lamb comes by and takes one of us far away. The lamb will come back again, but that person never does.
+
+ 
+
+Do correct me if I’m wrong, but this isn’t normal for your people, yes? I wouldn’t know. I mean, I think it isn’t, it shouldn’t be, but then again, why wouldn’t it happen to you if it happens to us? It’s been like this for as long as any of us can remember. If this is not normal for you, perhaps your community is the weird one; if it is, perhaps it’s best I begin from the start.
+
+ 
+
+In my house, there is my mamma, Mamma, and little sister, Amelia, but we call her Amy because there’s already an older Amelia in the village, two years older, so she got dibs on it. And then there’s me, Sven, I’m named after my Pappa. He’s no longer with us, though.
+
+ 
+
+The flu got him a long time ago, right during one of the worst winters yet, and with no hospital near enough and a Pappa like mine, a stubborn one, he died in his bed, in this deep silence, not even a single word or wheeze about it. When he was buried, his childhood best friend, big man Bjork, and what you might call our village chief, Mr Olafsson, gave speeches. Many of the adults who were fond of my Pappa coddled my sister and me, grabbing our cold, pasty hands, kneeling down to eye level in reassurance. One in particular who did this quite often during the eulogy was Mrs. Holmberg, which really didn’t make much sense to me when she kept telling us not to cry.
+
+ 
+
+She didn’t take her advice when the lamb took her son.
+
+ 
+
+My sister and I weren’t much for showing emotions, her more than me, you see, despite me being named after my Pappa, she was a spitting image of him. They both had dirty blonde hair that weakened in the cold air, turning a beige blend. They had these deep, heavy black brows that slumped over their foreheads, giving them both a constant, furrowed look, quiet, brooding. Our Mamma loved to joke that it was as if he held her for 9 months, not her; they were two peas in a pod.
+
+ 
+
+Unfortunately, that comparison carried over to their health as well. Amy always had layers on, her nose always a peppery hot with the rest of her dull and cold. Her walk wobbled more than most. The snow made it hard for anyone to get by without a misstep, but she walked as if every step took a little bit more out of her than it should have.
+
+ 
+
+And because of that, by my Mamma’s request, I promised I’d always be beside her, ready for the day she’d need me.
+
+ 
+
+My Mamma, on the other hand, wasn’t very interesting; she was boring like all the other adults. Things like the weather or knitted sweaters had her yakking from sunrise to sunset with the other village folk, but stuff that actually mattered, like sword-shaped sticks and dug-up frozen frogs, bothered her. At least Pappa and Amy made an effort to pretend it was cool.
+
+ 
+
+But she did have this one thing: she got emotional, but at strange times, like when the stew burned a bit, when she woke up too early and found Pappa’s side of the bed ruffled from her nightly tossing, or when snow piled up in front of his sturdy shed. Now, years later, I understand it wasn’t really the small things that caused this; it was him.
+
+ 
+
+When we buried him, she buried herself in the mundane, trying to forget how strange it felt being here without him.
+
+ 
+
+But back then, I sometimes wondered, maybe if the lamb had taken Pappa instead, then she wouldn’t feel like she could’ve done something. She’d have something much more interesting to talk about all day, not crying over things she couldn’t control, such strange, silly things.
+
+ 
+
+Now, it feels wrong writing that, not just because of the absurdity of it, but because even then, I knew thoughts like that brought trouble. Nothing good came from involving yourself with the lamb.
+
+ 
+
+A boy below me in grade, Lars, once brought a drawing of it to school, impishly flaunting it off to the other boys and me. The girls caught wind of this and tattled him out to Ms Nordin. The lashing he got could be heard from the playground.
+
+ 
+
+Since that day, we’ve called him “Larmby.” Stefan came up with it, said Lars sounded like a lamb crying for its mamma; everyone found it funny, so it stuck. I never really heard it. Even when I talked to him just to check. But I didn’t want to be picked on too, so I went along with it.
+
+ 
+
+I didn’t really like any of them, though. Except Joakim. I liked how he asked me questions about the lamb; it made me feel like I knew more than others our age, sometimes even more than the adults.
+
+ 
+
+I also liked how we sometimes kissed under the bridge on Wednesdays.
+
+ 
+
+On the day the lamb took Peter’s Grandmamma, he asked me:
+
+“Do you like it? You know… the lamb?”
+
+“Not sure. Don’t really hate it, but I sorta like it, I guess, it’s spooky.”
+
+“Yeah... Spooky.”
+
+I tried to match my breathing with his.
+
+ 
+
+“You think it takes them somewhere exciting? Somewhere warmer? Like a big city?” he asked, looking up into the sky.
+
+I sat on that question a bit longer. Didn’t want to rush and sound stupid. He wouldn’t want to kiss an idiot.
+
+“Mhm. I don’t think so. I’ve only ever seen them walk away; it would take too long to get to places like that.”
+
+He smiled wide.
+
+“Yeah… I guess you’re right. No way Peter’s mormor could walk that far, it’s like a billion metres away.”
+
+ 
+
+We both snorted.
+
+We sat in the white silence, our feet dangling over the edge of our secret bridge. Our pinkies overlapped. The weight of his gloved finger pressed mine into the snow.
+
+“She didn’t look very sad going,” he said. “Most people do. You can always tell they’re scared. But her… she wasn’t.”
+
+He hesitated as the wind passed between us, perhaps not wanting it to carry what was said off to the wrong ears.
+
+“You think when it’s your time… not you, but like if it was… would you just know where you’re going, where it’s taking you?”
+
+I thought about it. I couldn’t answer.
+
+So I left.
+
+I didn’t want him kissing an idiot.
+
+ 
+
+ 
+
+Almost exactly a year after the day I left Joakim sitting on that bridge, every family lined up along the village's main road. It was a day none of us ever prepared for but always knew when it came.
+
+ 
+
+The lamb.
+
+ 
+
+Its small, mis-timed hooves pattered across the tar, each step echoing sharply across the crisp morning air. Its muffled calls and playful jigs were watched by every set of eyes in silence. Not a word was said, but we all hoped it would pass by our own. It moved with that strange, aimless intent like any young animal would. A light, good-natured movement to it, hopping from one side before jolting and hicking up into a trot to the other, standing, observing, thinking, forgetting, and then erupting into a waggish trot again. Watching it felt endless. Its bright white coat drifted between the two lines of families.
+
+ 
+
+Until it stopped.
+
+ 
+
+Abruptly, then calmly, it turned and jogged toward him.
+
+ 
+
+Its small frame circled his leg, the side of its belly brushing against Mr Olafsson’s leg.
+
+ 
+
+The moments that followed were hard to swallow that up-close to the scene. A painful silence fell over us as we watched that sweet old man, who had always been a pillar of the community, let out a quiet, trembling chuckle. A realization settled across his face. His smile faltered, his eyes glassy as they met the crowd’s.
+
+ 
+
+“It seems my time is up,” he said, his lips between a frown and grin. We observed in silence as he darted from left to right, like he was looking for something he knew he didn’t have time to find.
+
+ 
+
+The lamb, patiently waiting.
+
+ 
+
+Mr Olafsson, bouncing between his family, quick, affectionate words flung between every kiss. His daughters clung to him; their wet and ugly cries spun down the road, and his wife’s lips trembled against his. He stepped away.
+
+ 
+
+Hands raised, waving to us as he walked after the lamb. His hands trembled, rubbing them together, but we all knew it wasn’t the cold.
+
+ 
+
+Further down the line, the last of him was sent off by the pitiful goodbyes, those who hadn’t witnessed the full weight of it, bearing less of it. Amy gripped my arm tightly beside me, her brows drawn together, her gaze locked on his back.
+
+“It takes anyone.”
+
+ 
+
+The months that followed were all but joyful.
+
+ 
+
+Adults grieved. The girls whispered soft apologies to his daughters, *“I’m sorry,” “Are you okay?”* The boys huddled together, muttering empty plans and curses against the lamb. All just hollow pastimes; it was odd to me.
+
+ 
+
+If the lamb was just *taking* him, then why did everyone act as if he was dead? Why grieve something we’ve always let happen? Why let it take the people we loved?
+
+ 
+
+Those questions followed me back to the bridge, landing flat against the base of it. Joakim looked down at them, ashamed. They sank deeper into the snow, unanswered. One question lapped over another, as the silence loomed over, and suddenly, the kissing bridge had a bad taste to it.
+
+ 
+
+I’d be lying if I said all of this didn’t affect me. The name-calling. The crying. The goodbyes. Amy’s lack of emotion. Mamma’s abundance of it. It swelled into a heaping mess of unease in my gut.
+
+ 
+
+The adults didn’t understand it either, watching them worry the same way we did, said enough.
+
+ 
+
+It wasn’t going to make sense later. It was going to keep happening.
+
+ 
+
+Again, and again.
+
+ 
+
+And we’d let it. Not even a single word or wheeze about it.
+
+ 
+
+ 
+
+The months after Mr Olafsson’s departure blurred into the passing seasons. Cold turned harsher cold, and life carried on in the ways it always had.
+
+ 
+
+Pappas taught their sons to slaughter cattle. Mammas taught their daughters to knit thick. My family tried.  
+
+ 
+
+I spent most days near the fields; the thought of killing one on my own was dauntingly impossible. Bjork, on behalf of his family, answered my prayers with a skinned and prepped carcass for me to haul back to my Pappa’s sturdy shed, a shed that survived countless winters. My frail eleven-year-old arms strained under its weight as I lumbered it across the snow.
+
+ 
+
+His soft eyes watched in understanding. Amy spent long hours sat beside Mamma with shaking hands. Her stitches were loose and uneven. A fragile imitation. Mamma covered her worry with soft laughter and encouragement, but it never quite landed. Amy couldn’t pretend, not even for that.
+
+ 
+
+At times, after Amy left, I’d sit quietly by the door and watch Mamma’s work. Tight, fast, panicked.
+
+ 
+
+Hoping she’d knit enough to keep her little girl warm enough.
+
+ 
+
+As winter passed, Amy stayed bundled in layers of wool, surrounded by empty bowls of stew and me. I played my part beside the bowl, reading her stories and of what the others were up to outside.
+
+ 
+
+She wasn’t much for listening to them, but she listened anyway.
+
+ 
+
+For me.
+
+ 
+
+As the snow shrank, the village softened. People laughed again. The lamb soon came to be more of an afterthought than a concern, and the adults partook in their daily distractions. For two years, it stayed that way.
+
+ 
+
+Two days after my thirteenth birthday, we lined up again.
+
+ 
+
+Earlier than usual. The winds were warmer this time, the cold breeze not fully arrived yet. As the winds ran in and the red grew across our faces, we heard it. It looked the same as it had always had, a youthful white with a newly learnt walk. It hobbled past us down the road, passing family after family.
+
+ 
+
+I exhaled in relief and slumped my shoulders.
+
+ 
+
+Out of sight, out of mind.
+
+ 
+
+But what came trickling down the rows towards us shot my shoulders right up again. Confused murmurs rang past my ears as village folk shuffled in the crisp ice beneath them, only making it harder to get a clear answer out of anyone.
+
+ 
+
+Frustration brewing, I slipped out of line, glancing at Amy, something like reassurance, then headed down it.
+
+ 
+
+My Pappa’s boots, a few sizes too big for me, slumped into the iced soil before my foot pressed in after them. An uneven slushing was muffled by chatter, some kids looking behind, excited. The adults too busy trying to figure out who had been chosen. Between the bodies of people lined up, I could make out Lars’ gaze, neither looking at the lamb nor at me.
+
+ 
+
+The uneasiness on his face ramped up my pace. I began to near the end of the line, standing on the ends of my toes to see through.
+
+ 
+
+And there, walking calmly with head tilted down as always, behind the lamb, was Joakim.
+
+ 
+
+My knees nearly gave out. I caught myself on the rim of a trash can, following after him, concealed by the row.
+
+ 
+
+I picked up my pace until I was directly opposite him in the line.
+
+“Joakim!... Joakim!”
+
+ 
+
+His head twitched slightly at his name before dropping again. I could see the end of the line, knowing this was soon to be where I couldn’t follow him any further, frustration growing in my voice.
+
+ 
+
+“Joakim! Don’t go!” My voice’s pick up in cadence drew the notice of some of the eyes. The edge of the path I walked was blocked by hardened snow not yet melted. I stumbled over it, unable to make a clean landing in clunky boots, my breathing becoming brash and heated.
+
+“You can’t leave me!”
+
+ 
+
+More heads turned as my face flushed red at the thought of others listening in. Joakim’s still face, refusing to meet mine, my vision blurry.
+
+“Where is it taking you?! Say something!”
+
+ 
+
+His eyes shifted, locking onto mine, without a word said, I understood. The answer he couldn’t give before, hit my face in a hot blend of bitter reality.
+
+ 
+
+Where he was going didn’t need walking for much longer.
+
+ 
+
+Before I could reach him, my collar yanked back. Bjork’s large hand gripped around it; his face warning. I bounced between him and Joakim, watching one walk off, and the other remain unyielding. The pressure on my neck squeezed the tears out, my breath steamed the air as I tried to pull his grasp off me. Only left hoping the eyes watching me couldn’t see my tears.
+
+ 
+
+On that day, as he walked off into the cold, I decided.
+
+ 
+
+I hated that lamb.
+
+ 
+
+ 
+
+ 
+
+The class held an overdue ‘going away’ party for him, used the decorations and donation budget plan they set up for Lisa Bäckvall, Aron Nyberg, Erika Höglund, and every other kid the lamb took over the years. I sat myself in a bathroom stall throughout it. And I cried.
+
+ 
+
+Stefan teased me for missing him. I punched him, got dragged off, sent home. And I cried. It felt as if everything and everyone was just one stupid little lamb joke away from falling apart.
+
+ 
+
+Then, just before New Year's, Anna Aberg took her life in the woods behind her house. Her letter said she was afraid the lamb would take her next. The next year, the girls said the lamb stopped right beside her family, looking where she should’ve been, then moved on and took Mrs. Lund.
+
+ 
+
+All those rumours led to the Lunds and Abergs' feud, one side furious at the absurdity of the accusation, and the other appalled at the denial of it, both heartbroken.
+
+ 
+
+And through all of it, Amy stayed steady. She didn’t cry. She didn’t break.
+
+ 
+
+She never let it get to her.
+
+ 
+
+Looking back, she was a lot stronger than I ever was. Perhaps if I had grown up the stronger one, I wouldn’t have done what I did that day, three years later.
+
+ 
+
+It came, and we stood again, a chilled breeze no different than the one before, the footprints of yesterday’s tasks washed away in a new white sheet.  I watched families line up, merging into two in our usual places. Mamma on the right, me on the left, and Amy between us. As the last of the night’s flakes settled across the village. Amy stood still; the only thing moving was her thin hair.
+
+ 
+
+It came, and we stood again, the faint clamping hooves against the tar with muffled hucks and calls across breeze. Chatter hushed, and feet shuffled quicker. Parents grabbing at restless children, and people looking everywhere but where they wanted to. Prancing across the road in its jig, as young as it’s always been, stopping and stuttering at foot and knee, unsure of anything it did.
+
+ 
+
+I held onto Amy’s hand for the first time, something I’ve never done before. I didn’t look at her; I had no time to; my gaze was set on it.
+
+ 
+
+No matter how hard I tried to focus on one thing, something else about it drew me in. The longer I looked at it, the less I could make sense of it. Why were you here? Why come here at all?
+
+ 
+
+… Why’d you stop in front of us?
+
+ 
+
+There it stood, a few feet away from us, not moving or bickering or jigging or trotting; suddenly, it didn’t feel as young as it had always felt. Its juvenile grin felt off, felt, but I could swear it was the same one. Its black beady eyes. Its fur. It was so much of itself in every single way.
+
+ 
+
+And like a toddler, a shy, timid little toddler, it made its way to us. A chill shot down my spine as my eyes darted to Mamma, hoping and pleading that she could do something. Anything. But she never could.
+
+ 
+
+As her voice hung in her throat, she looked for the same reassurance I did.
+
+ 
+
+And before we knew it, there it was, rubbing its small, soft little head on my little sister’s leg.
+
+ 
+
+Content.
+
+ 
+
+“Huff!” Crunch. “Huff!” Crunch. “Huff!” Crunch. “Huff!” Crunch.
+
+ 
+
+With her hand still in mine, I pounded through the snow across the road’s sides and into the neighbourhood, gunning home.
+
+"Sven!" her trembling voice barely able to make it over the snow and commotion. I couldn't make out whether or not the urgency in it wanted me to stop or to run faster, but I made that decision for her.
+
+ 
+
+I was her big brother. I couldn't just stop.
+
+ 
+
+The people I’ve seen all my life came roaring behind us.
+
+ 
+
+Slushing down a narrow valley into Mr Eng’s yard, falling onto pavement. Tumbling down the road towards us, their pleas grew in moan.
+
+ 
+
+We stopped by a bush, grabbing Pappa’s axe in preparation. Twisting through the growth. As I halt in my steps, jolting Amy, I try to calm my mind, remembering the way back home from here.
+
+ 
+
+Bjork’s arms grab onto my coat, pulling me through snow and into the air.
+
+ 
+
+“WHAT HAVE YOU DONE, BOY! RETURN THE GIRL!”
+
+ 
+
+I swing the axe before he grabs it. Making him drop me as it nicks his forearm, falling alongside drops of his blood. I pounce up into a scrabble, grabbing Amy’s coat
+
+ 
+
+As we run, my mind turns a hot white, everything flooding my mind all at once.
+
+“Why come here! Why! Why! Why! Why take people! You stupid fucking animal!! WHY!!!”
+
+ 
+
+Amy calls out to me, now pulling to the left, we break into our yard and towards the shed, village folk pre-emptively searching our home take notice of us, barely able to close in time as we hear the banging of fist and tool on it.
+
+ 
+
+And despite the cries, despite Bjork, they were all still the same people I’ve ever really known, nothing about them changed, all that pent-up unease is all still there in every word and plea flung at the shed’s walls, leaving a deafening ring across it.
+
+ 
+
+I place my hands onto Amy’s ears, pressing in a bit too hard as she clamps onto me, her cries drowned out by everyone else's, including my own, as I hear her.
+
+“Don’t let it take me! Please don’t let it take me away!”
+
+ 
+
+Over and over as her voice tries to persuade me over the others.
+
+ 
+
+All I can do is hold onto her. She can’t leave! She won’t!
+
+ 
+
+For what felt like eternity, the walls boomed, familiar voices interchangeably calling out to us.
+
+ 
+
+Mamma’s cries ripped at my chest, and I could feel it rip at Amy’s too.
+
+ 
+
+But that door never opened, and I never listened.
+
+ 
+
+As the sun went to rest, the shades and silhouettes of village folk slid across the inside of the shed, with light dimming across Amy’s hair, hearing the fatigue take hold of everyone.
+
+ 
+
+Screaming fizzled into hums, panting.
+
+ 
+
+The faint becking of a lamb was left.
+
+ 
+
+Outside, the sounds of its hoof tapping against the door lowered as the crunch of the snow did too, everything left in a hollow silence.
+
+ 
+
+As relief ran over me in the sweat of both of us, I clenched the axe with what energy I had left, buying time until the lamb could no longer be heard, and glanced through every window before opening the shed’s door.
+
+ 
+
+A cold latched onto my face as a trail of little hooves dispersed into the night, village folk alike on both sides of it, exhausted.
+
+ 
+
+All looked at me.
+
+ 
+
+My stomach churned. As I glanced towards Mamma.
+
+ 
+
+Her eyes onto Amy’s.
+
+ 
+
+Then back onto mine.
+
+ 
+
+Her face, from a tired gaze, pulled into a horrid dread, twisting back her skin into pure despair.
+
+ 
+
+Falling to her knees in a deep, bellowing weep, never looking back up again.
+
+ 
+
+No matter how hard I swung.
+
+ 
+
+No matter how hard I cried.
+
+ 
+
+ 
+
+Later that night, we ate Amy.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+  
+  
+  
+...
