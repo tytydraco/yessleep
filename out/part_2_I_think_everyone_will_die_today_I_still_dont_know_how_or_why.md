@@ -1,4 +1,4 @@
-See part 1 [here](https://www.reddit.com/r/nosleep/comments/1t6j182/i_think_everyone_will_die_in_three_weeks_i_dont/?sort=new)  
+See part 1 [here](https://www.reddit.com/r/nosleep/comments/1t6j182/i_think_everyone_will_die_in_three_weeks_i_dont/?sort=new)
 
 I left the office yesterday, likely for the very last time. I managed not to cry as my boss wished me a good weekend and said he would see me on Monday. I looked at his arm, to the clock indicating slightly below 1 day and 3 hours. I was not going to see him on Monday.
 
@@ -20,8 +20,6 @@ I haven’t said goodbye to people. Partly because of the possibility I might be
 
 \---
 
-
-
 *Registration case: 33-002*
 
 *Language of registry: English*
@@ -39,3 +37,6 @@ I haven’t said goodbye to people. Partly because of the possibility I might be
 *None of the Watchers we found so far were aware of the Survivors. If they met a Survivor, they would have noticed the absence of a timer on their arm. However, since only around 8000 people survived the Flash, it is statistically very possible that these two groups never met.*
 
 *While research continues, the reasons for the Flash, why some people were Watchers and why a very limited group of people survived it, remain unknown even today.*
+
+  
+See part 3 [here](https://www.reddit.com/r/nosleep/comments/1t940tp/part_3_nearly_everyone_died_three_hundred_years/) 
