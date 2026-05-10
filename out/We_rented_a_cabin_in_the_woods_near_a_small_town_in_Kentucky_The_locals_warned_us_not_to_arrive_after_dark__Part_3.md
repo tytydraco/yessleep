@@ -1,4 +1,8 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1suctls/we_rented_a_cabin_in_the_woods_near_a_small_town/) [Part 2](https://www.reddit.com/r/nosleep/comments/1sx2zcr/we_rented_a_cabin_in_the_woods_near_a_small_town/)  
+[Part 1](https://www.reddit.com/r/nosleep/comments/1suctls/we_rented_a_cabin_in_the_woods_near_a_small_town/)  
+[Part 2](https://www.reddit.com/r/nosleep/comments/1sx2zcr/we_rented_a_cabin_in_the_woods_near_a_small_town/)  
+[Part 3](https://www.reddit.com/r/nosleep/comments/1t6x462/we_rented_a_cabin_in_the_woods_near_a_small_town/)  
+[Part 4](https://www.reddit.com/r/nosleep/comments/1t917sq/we_rented_a_cabin_in_the_woods_near_a_small_town/)  
+  
 I don’t remember how we got to the car.  
 I felt like I was trapped inside some horrible dream. A nightmare.
 
@@ -760,4 +764,3 @@ I heard a crack...
 and then...
 
 everything went black.
-
