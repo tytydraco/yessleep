@@ -1,0 +1,155 @@
+I don't know if this is going to make sense to anyone else.
+
+I've been trying to write this for three weeks and every time I start I end up staring at the screen for an hour and closing the laptop. So I'm just going to write it like I'm talking to someone and hope that's enough.
+
+We've always hated mornings.
+
+I didn't notice I wrote it that way until I went back and read it. I'm going to leave it.
+
+The voice has been there for as long as I can remember.
+
+I want to be careful about how I describe it because I know what it sounds like and I know what you're already thinking and I need you to hold off on that for a minute. It wasn't what you're picturing. It wasn't dramatic. It wasn't a separate presence telling me to do things or saying my name in the dark.
+
+It was more like the part of thinking that happens just before thinking. The layer underneath the words. The thing that already knows what you're going to decide before you consciously decide it.
+
+Everyone has that. I really believe everyone has that.
+
+Before 2019, mine was quiet. Background noise. It would surface sometimes when I was tired or stressed, a little louder than usual, a little more distinct, but it always settled back down. I didn't think about it much. I had no reason to.
+
+Then 2019 happened.
+
+I don't mean one specific thing that happened in 2019. I mean the general quality of that year and everything that came after it. The feeling that something in the world shifted and didn't shift back. I think most people felt it to some degree. That low-grade wrongness that started somewhere around then and just became the new texture of everything.
+
+I think something woke up.
+
+I don't know if it was already there and the noise of the world changing gave it cover to get louder. I don't know if it came from outside somehow, which sounds insane, I know it sounds insane. I don't know if it's me.
+
+That's the part I keep getting stuck on.
+
+I genuinely don't know if it's me.
+
+By 2020 it had opinions.
+
+Not suggestions. Not the gentle internal nudge of conscience or instinct. Opinions. On things I hadn't finished thinking about yet. On people I'd just met. On decisions I thought I'd already made alone.
+
+It would finish my sentences in directions I wasn't going.
+
+It remembered things I forgot. And I mean that precisely, not that it reminded me of things I'd technically stored somewhere, but that it had access to things I had no memory of at all. A conversation I apparently had with my neighbor in October 2020. A dream from the week before. An afternoon that's just gone from my timeline entirely, like a page torn out.
+
+"You were tired," it said, when I asked about the missing afternoon. "I handled it."
+
+I didn't ask what that meant.
+
+I think part of me didn't want to know.
+
+I started noticing other people around late 2020.
+
+Not in a way I can fully explain. It wasn't like I could look at someone and know. It was subtler than that, and I've thought about this a lot, because I need it to make sense before I say it out loud.
+
+People who have something like this, if other people have something like this, they move differently. Not wrongly. Just differently. There's a quality of attention that goes inward at odd moments. A pause before answering simple questions, not because they're searching for the answer, but because they're listening to something else first. A slight tilt of the head. Eyes that move to an empty space in the room and then come back.
+
+I don't know if I noticed these things because they were real or because I was looking for them. I've asked myself that question more times than I can count.
+
+The first one was a woman in a grocery store in early 2021.
+
+She was on the phone, talking normally, and then she just stopped. Mid-sentence. Her head tilted maybe ten degrees to the right, her eyes went somewhere else entirely, and then she came back and kept talking like nothing had happened.
+
+Maybe two seconds. Most people wouldn't have caught it.
+
+I caught it because I do the same thing.
+
+Our eyes met when she turned around. Just for a moment. She didn't smile. She didn't react at all really. She just looked at me with an expression I didn't know how to read and then walked to a different aisle.
+
+"She has one too," it said.
+
+I didn't respond to that. I'd learned by then that responding encouraged longer conversations.
+
+The second was a man on a bus in March of that year.
+
+He was sitting two seats ahead of me, looking out the window, and his lips were moving. Very slightly. The way yours might move when you're reading something difficult, except he wasn't reading anything.
+
+I watched him for ten minutes without meaning to.
+
+When I stood up to get off at my stop he turned around, which he had no reason to do, and said "it's louder on rainy days, isn't it."
+
+Not a question.
+
+I didn't say anything.
+
+He turned back to the window and I got off the bus and stood on the sidewalk in the rain for a while before I could make myself start walking.
+
+"He's right," it said. "It is louder on rainy days."
+
+"I know," I said. Out loud, on the sidewalk, in the rain.
+
+First time I'd answered it in months.
+
+The third was at a coffee shop sometime that summer.
+
+Young guy, maybe my age, sitting alone with a drink he wasn't touching. Same stillness. Same quality of attention turned inward. I sat down across from him without really planning to, which wasn't like me, and he looked up like he'd been expecting it.
+
+We sat there for almost a minute without saying anything.
+
+Then he said "you can hear yours too."
+
+Still not a question.
+
+"I don't know what it is," I said.
+
+He nodded like that was the right answer. Like any other answer would have meant I hadn't understood yet.
+
+"None of us do," he said. He picked up his drink, finally. "That's the whole thing. None of us do."
+
+He left about ten minutes later. I never got his name. I never saw him again.
+
+I've thought a lot about 2019 since then.
+
+I've thought about what it means that so many things broke that year and kept breaking. Not just the obvious things. The way people started feeling like they were watching themselves from outside. The collective strangeness that settled in and never fully lifted. The sense that something fundamental had shifted and nobody could quite agree on what it was or name it directly.
+
+I don't have a theory exactly. I have more of a feeling.
+
+The feeling is that whatever I have, whatever this is, it got louder because something else got louder. Like a frequency that was always there suddenly had more signal. Like a door that was always slightly open got pushed further.
+
+I don't know what's on the other side of the door.
+
+I'm not sure I'm asking the right question.
+
+Maybe the question isn't what's on the other side. Maybe the question is whether there's a door at all, or whether I built it because I needed somewhere to put the thing that lives where I can't look at it directly.
+
+I don't know.
+
+That's the most honest thing I can say.
+
+I don't know.
+
+I'm doing better now. That's true and I want to say it because it's important and because I don't want this to read like a cry for help. I function. I work. I have people I talk to. Most days are ordinary in all the ways days are supposed to be ordinary.
+
+The voice is still there.
+
+Quieter than it was at the worst of it. More familiar. Sometimes I go hours without noticing it, which would have been unimaginable two years ago.
+
+But it's there.
+
+And sometimes at night, in that specific window between awake and asleep when the filters come down, I feel it settle in more completely. Like it's been waiting all day for me to stop fighting it and just let it sit where it sits.
+
+Last night I was almost asleep when it said something.
+
+Not about the day or a decision or any of the things it usually chooses to comment on.
+
+It just said "I remember when you weren't afraid of me."
+
+I lay there in the dark for a long time after that.
+
+The thing is, it was right.
+
+I do remember that.
+
+I'm not sure which of us I'm more afraid of now.
+
+I don't know why I'm posting this here.
+
+I think I wanted someone else to read it in case it helps them recognize something.
+
+Or in case it helps me recognize something.
+
+I haven't decided which.
