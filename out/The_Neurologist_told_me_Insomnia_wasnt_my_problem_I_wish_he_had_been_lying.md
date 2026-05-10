@@ -1,0 +1,73 @@
+It started back in the fall of 2025. I was dealing with a case of insomnia so severe that the world felt like it was made of glass—thin, vibrating, and ready to shatter. 
+
+I finally booked an appointment with a renowned neurologist in a quiet suburb of New Jersey. The clinic was located in one of those old, elegant medical buildings that look more like a mansion than a doctor's office.
+
+When I arrived, the silence was the first thing that hit me. The waiting room was empty. No patients, no white noise, not even a receptionist. Just a small, handwritten note on the desk: "The doctor is in. Please enter directly."
+
+I was too exhausted to find it suspicious. I walked into the exam room and found an elderly man in a crisp white coat. He didn't look up from his desk. He was scribbling frantically.
+
+"What’s keeping you from sleeping?" he asked. His voice was flat, like a recording played on a loop.
+
+As I explained my symptoms, I leaned forward and noticed his notepad. He wasn’t writing words. He was drawing tiny, overlapping circles. 
+
+Thousands of them. They covered the entire page in a dense, charcoal blur.
+
+Suddenly, he stopped and looked at me. His eyes were dull, like polished glass. 
+
+"Insomnia isn't your problem," he whispered. "Your problem is that you aren't noticing the person sitting right next to you."
+
+I froze. I was on a single chair in a tiny room. I looked around. Nothing.
+
+The doctor let out a dry, rattling laugh. "Of course you don't see him. He's hiding in your blind spot."
+
+He pulled a small, silver mirror from his drawer and held it up. "Look. And whatever you do, don't blink."
+
+I stared into my reflection. For a second, everything was normal. Then, I saw it. Emerging from the very back of my head—right where the skull meets the spine—was a thin, pale hand with long, blue-tinted nails. It was gripping my neck from a place I couldn't see.
+
+I screamed and threw myself off the chair. When I scrambled to my feet, the doctor was calmly drawing those circles again. Like I wasn't even there. 
+
+I bolted. I didn't stop until I was in my car, tearing down the highway. I called the clinic’s listed number, desperate for an explanation. A nurse answered. When I told her Dr. Miller’s name, she went dead silent.
+
+"Sir," she whispered, her voice trembling. "Dr. Miller died in a car accident two weeks ago. The clinic has been chained shut since the funeral."
+
+I looked in my rearview mirror. The blue hand was slowly tightening its grip on my headrest. 
+
+I didn't go home. I couldn't. I spent the night in a motel under the harshest lights I could find. But the hand was everywhere—in the bathroom mirror, the window reflection, even the screen of my phone.
+
+The next morning, driven by a mix of terror and sleep-deprived mania, I went back to the clinic. 
+
+I had to know. The building was indeed locked with heavy iron chains, but the emergency side door was ajar. 
+
+Inside, the halls smelled of formaldehyde and ancient dust. I reached the office. It looked different now. The furniture was draped in white sheets. Dust lay thick on the floor. No circles. No doctor.
+
+I found the notebook on the floor. I flipped to the last page. There was a photo of me clipped to the back. A photo of me entering the building the day before. Underneath it was a date: 1998. My birth year.
+
+A wet, heavy sound came from behind the examination curtain. \*Schlop. Schlop.\* Like someone walking with raw, skinless feet. 
+
+The curtain pulled back. What stood there wasn't Dr. Miller. It was a creature of exposed muscle and pulsing nerves. It had no skin. It was wearing the doctor's coat like a hollow shell.
+
+"I need your eyes," it hissed through a throat of static. "Mine are too old."
+
+I felt a crushing pressure behind my sockets. I remembered the mirror. I pulled it from my pocket—the one I’d swiped from the desk—and aimed it at the thing. As soon as it saw its own reflection, it let out a sound that tore through my soul. It disintegrated into a cloud of black, oily dust.
+
+I ran. I thought I’d won. 
+
+But it’s been a week now. The insomnia is gone, but something is wrong. I’m starting to forget things. My mother’s name. My childhood address. My own face in old photos looks like a stranger’s.
+
+This morning, I went to wash my face. I looked in the mirror. I tried to smile, but my reflection didn't move. It just stared back at me with a cold, frozen expression. I touched the mirror. It wasn't glass. It felt like a thin, freezing membrane. 
+
+Behind the membrane, I saw the real Dr. Miller. He was standing in that dark room, pointing at my chest. I looked down. There is a thin, surgical scar running down my sternum. It wasn't there yesterday.
+
+My phone just rang. The caller ID said it was coming from my own number. 
+
+I answered. I heard my own voice on the other end, sounding happy and full of life. 
+
+"Thanks for the body," it said. "It’s very comfortable. You can stay with Dr. Miller now... he likes the company."
+
+The room around me is shifting. My bathroom is fading into a cramped, dark exam room. I’m sitting on that single chair again. The door is chained from the outside. 
+
+Dr. Miller just handed me a notebook and a pen. 
+
+"Start drawing the circles," he whispered. "It’s the only way to keep from losing your mind."
+
+If you’re reading this, and you find a clinic that’s a little too quiet, or a doctor who won’t look you in the eye... please. Run. Don't let them put you behind the glass. 
