@@ -1,0 +1,67 @@
+Here's [Part 2](https://www.reddit.com/r/nosleep/comments/1ss36my/the_memories_that_i_lost_in_bluebridgehigh_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button).
+
+Hey, it’s me again. This time took a bit longer, but as it turns out, recalling some of the more gruesome details is still quite difficult for me, so I hope that you understand. Anyway, without further ado, I’ll continue to tell my story.
+
+
+
+The whole classroom was silent. Even though it had long stopped, Kyle’s scream still echoed through the room. And so we all remained for what must have been at least a few minutes. Still and quiet, in a dark classroom, knowing that one of us was gone, and never coming back.
+
+To my surprise, it wasn’t panicked screams that first broke the haunting silence, it was actually Josh.
+
+“Okay, I know that this is all fucked, but we can’t panic now, okay? Kyle is probably dead and I’m not 100% sure, but there’s a high likelihood that something killed him. And whatever did that, I don’t want it to notice us, okay?”
+
+The others probably didn’t notice, but I did, since I knew Josh. He seemed like he was confident, like he knew what he was doing. But I realised just how close he was to having a full-on panic attack. The way his voice quivered ever so slightly and how he sounded a bit out of breath. Still, not having nearly enough courage to help Josh with the pressure he put upon his own shoulders, I gladly accepted that he would take the lead. And so did all of the others. One by one, we started to pull out our phones to use them as flashlights. Josh told us to look around the classroom, to see if anything was in it that could help us. This simple task definitely helped me get my mind off of what I witnessed just a few minutes ago. But as the panic began to slightly simmer down, a new feeling crept up.
+
+What about the other students? Were they affected by whatever is going on as well? Was Kira okay? She had to be, right? I didn’t want to talk to Josh about it, since she was his sister and I didn’t know, if the thought of her being in danger as well had crossed his mind yet or not, so I looked around and quickly spotted Mark. As I reached him I pulled him towards a corner and quietly asked him what he thought.
+
+“Hey, Mark, do you think that the others are also affected? Do you think our friends are also in danger?”
+
+“How the hell would I know? I mean, on one hand, I hope they are safe, but on the other…” Mark seemed to ponder for a few seconds, before then finishing his thought. “… I mean, it would be a bit comforting, to know that there are more of us, right? Like, whoever took Kyle, they’re probably a bunch of psychos, who want to fuck with us, so the more we are, the better our chances are.”
+
+I stared at Mark, as I now realised, that this whole time, I had already subconsciously accepted the fact, that whatever was going on, was supernatural. I never considered, that it could be other humans, that were doing this. I mean, I wouldn’t even know how that would be possible.
+
+“But what… what if this is something else, Mark. What if something’s going on that we can’t explain.” Even though our situation was already quite crazy, I suddenly felt like a lunatic, at the thought of telling Mark that this could be supernatural.
+
+Mark simply shrugged, not seeming to give my words my thought. He either didn’t care to, or he was afraid to. Suddenly, I got an idea, which I could’ve screamed at myself for not thinking of it earlier. I opened my contacts on my phone and just as I was about to press Alex’s contact, Mark interrupted me.
+
+“Don’t bother. I and some others have already tried. The signal has been cut off. We can’t call anyone. Not even 911.” As he finished his sentence, I realised what he had been in the corner for in the first place. He wedged a chair between the wall and a shelf, to use the leverage and break a leg off of it. “Now I have at least some kind of weapon, to fuck whoever is doing this up, when I see him.”
+
+“You’re not really thinking about leaving the room, right?” I asked him, as I felt a new sense of dread fill my stomach. If what Mark said is true, no one will come to help us, at least not any time soon. And if he went out there, he’d certainly die, right? I mean, Kyle was killed instantly, when he went outside. At least, that’s what we all believe. But could we be certain? I mean, we didn’t really see him die or anything. But maybe, he was still alive. Maybe, leaving this room didn’t mean certain death.
+
+With this new revelation, I shot up and quickly gathered the others’ attention.
+
+“Hey, guys, maybe this will sound stupid, but how do we know that Kyle is dead?” I definitely felt stupid at that moment, taking the leader role, putting myself in the middle of this. “I mean, for all that we know, he could be fine and just playing a stupid prank on us. And even if someone or something took him, that doesn’t mean he’s dead, right? So I was thinking…” My throat quivered slightly, as I struggled to make myself believe what I was going to say. But I had to believe it. Otherwise, how could I possibly hope for this to turn out fine.
+
+“I was thinking, that realistically, it’s probably safe to leave. And like, we can take scissors and chair legs with us, just for safety. There are about twenty of us, so we should be fine, whatever is going on, right?” My eyes desperately searched through the dimly lit room, trying to make out if anyone agreed with me, or if I was a complete idiot that just sounded crazy.
+
+“Fuck yea, that sounds better than just rotting in here for no reason.” Mark was the first to chime in and then, others began to nod. Thank god, my plan seemed to resonate with the others. I let out a sigh of relief and quickly, we all began to grab what makeshift weapons we could gather. We were probably at it for half an hour, when suddenly, we noticed something. The lights in the hall had turned back on. We could see the light breach through the crack at the bottom of the door.
+
+“Hey the lights outside are back on!” Someone exclaimed. That had to be a good sign, right? As we gathered in front of the door, with Mark in front and me right behind him, I looked back at the others. My gaze stopped at Josh. He hadn’t said or done anything, since I announced my plan. Now I saw, that he had an expression on his face, that told me that I’m an idiot, who’s gonna get us all killed. I scoffed a little and turned back to the door. Josh was wrong. We were not gonna die now, everything will be fine. We will be fine, Ashley will be fine, Alex will be fine, and Kira, she will be fine too.
+
+“Okay, guys, it’s time. School’s out!” Mark said, as he finally pushed open the door. The reaction he got was silence, until finally, a girl in the back of the row said: “Oh my god, that was so cringe.” Then we all stepped out into the hallway. As we already noticed, the lights were, in fact, back on. But still, there was something that still wasn’t right. There was a thick fog, all throughout the halls. We could only see what was about 5 meters in front of us, and the rest was covered by the fog.
+
+“What the hell is this?\`” I didn’t really expect an answer, but Mark still gave me one. “Seems like whoever is playing this stupid prank on us has brought smoke machines?” He didn’t seem to be completely convinced by his answer either, but it was the best one we had, so we and the rest of out little group started to make our way into the fog, our ‘weapons’ gripped tightly. The classroom we were in was pretty close to the exit, so we’d be out in no time. But after what must’ve been at least 5 minutes of walking, we stopped again.
+
+“Okay, where the fuck is that exit? I know that you can’t see shit in here, but it should’ve been a straight path to that door. So where. is. it.” Mark let out a frustrated sigh, as he kicked against the wall. I wanted to say something, to rationalise it, but before I could make something up, Josh took over.
+
+“Seriously? You still don’t get it? I’ll explain it to you. We are completely fucked, that’s why we can’t find the exit. I don’t know how none of you noticed, but we actually haven’t seen a single fucking door, since we left the fucking classroom. Something is going on in this place. Something that isn’t normal. So can we all please start to accept that, so that we don’t keep walking straight into our own fucking death?”
+
+I had never seen Josh explode like this. But he was right. There were no door in the hallway, not the exit door, nor any doors that would lead to other classroom, or the cafeteria, or the gym. Josh’s words hung heavy in the air. No one spoke a word. Everyone knew that what he said was true, even though nobody wanted to accept it before. We simply couldn’t deny it anymore. I started to shiver uncontrollably. Fuck, I was never going to get out of this, I’m going to fucking die.
+
+I slowly paced backwards, but just after a few steps, I stumbled over something. “Fuck!” I exclaimed, after I hit my head on the ground. Luckily it was too hard though. I still had my eyes closed, when the others looked to me to see what had happened. I heard some gasp and others whimper. Curious, as to what caused their reaction, I opened my own eyes and sat back up. Then I saw it and I let out a scream that was quickly cut of by the feeling of having to puke. What I had stumbled over, was Kyle. But he his arms were mangled, his eyes only red holes and his jaw was hanging open way to wide, with blood spilling out of his mouth.
+
+Kyle was dead.
+
+Kyle was dead and we would all be next.
+
+We all began to panic. Some, including me, started to hyperventilate, others puked or cried. Mark was frozen with a look of pure horror edged into his face, and Josh seemed like he was completely dissociated.
+
+I don’t know how long we remained in this state, but it didn’t get better. The only reason that we snapped out of it, is that suddenly, there was a deep and loud rumbling, that was growing louder ever so slightly.
+
+Once we noticed it, we looked in the direction of where it was coming from. The sobbing and the heavy breathing began to slightly die down now. The rumbling got louder and louder, until it just suddenly stopped. There were a few seconds of dead silence, before there was a loud shriek and then, a rotten, twisted and huge hand shot out of the mist, grabbed a student and pulled him into the mist, as her panicked screams grew quieter and quieter.
+
+
+
+
+
+Writing this all down is really helping me realise how truly messed up all of it was. I hope that I can finish telling you all, because I can’t let this be forgotten. I’m sure you will understand me, once I’m done. But for now, this will have to do.

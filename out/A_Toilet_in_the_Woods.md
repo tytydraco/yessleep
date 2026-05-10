@@ -1,0 +1,383 @@
+I never actually expected to find anything strange in the woods when I set off on this quasi-spiritual journey just before my senior year of college.
+
+Sure, my New Age books on spirits living in plants, minerals, the water, the air all sounded cool when I was high, but every time I came back down to Earth I knew, deep down, that supernatural things aren’t real. Hell, I knew this even when I was high, but it was easier then to suspend my disbelief.
+
+Three days into my hike near the Appalachian mountains I was two days sober. The first night I’d blazed up, and the paranoia surrounding every single creak, crack, snap, pop or other noises in the woods would have made me run home if it wasn’t so dark and my body so exhausted from a day’s worth of hiking. I put my weed away after the next morning, swearing it off until I was some place safe again. Without artificial paranoia it was easy to keep hiking, but flashbacks to how deeply scary the night before had been kept popping up the rest of the day. I had nothing to do but walk and think after all, and my mind wandered to so many places.
+
+The worst was when I saw a large brown leaf – maybe a maple leaf but I couldn’t say, I’m not a plant-guy – and it looked just like an outline of my sister’s hair during her punk phase. Same color, same spiky style she gelled it into. She never got into any trouble, hard to do anything actually bad when you’re only 11. But she loved to pretend she was up to actual no-good whilst never actually crossing any social boundaries in the slightest.
+
+Thinking about her hurt so much. I pushed the thoughts out as fast as I could.
+
+The sun went low to the treetops threatening its usual early night at the end of day three. My legs were killing me, as they had the past two days. I thought that I liked to walk before I came out here, I enjoyed my trek to class on campus after all. I mistook the ease of crossing paved land created specific for human travel for what it’s like to hike for tens of miles. In nature, nothing is flat. It’s actually uphill both ways somehow. And uneven hills too, full of slick roots and rocks and other stuff to trip and break an ankle on.
+
+Getting injured would be incredibly bad. I was already too far from civilization for my phone to work; it was just a camera and notepad at this point. And this wasn’t a normal trail I was taking were people frequently walked, it’s not the famous Appalachian Trail. There were some white marks on trees I was following, so someone had come this way and marked it safe to travel, but there was no beaten down trail. Just slick forest floor covered in leaves, clay, rocks and roots everywhere. It was slippery. It was hard going.
+
+Worse than that was the five pounds of tree sap that had somehow gotten inside of my clothes. I’d sat on a large fallen tree the previous day, and touched the sap, and moved it around when I tried to change pants, and put the old sappy ones in my bag, which got on everything else. It spread faster than Covid-19 – every article of clothing, particular the insides of them, was now covered in tree sap. It stuck to me with every motion of my body. It refused to wash off in the streams I happened near. It was quick becoming part of who I was as a person.
+
+I am Kyle. I am sticky.
+
+And the only exercise I’d had in preparation for this journey was an extra walk to the gas station to grab chips and sodas twice a week. So my body had begun screaming at me to stop three days ago and had only intensified in volume since then.
+
+So it may sound crazy but, I liked it. Maybe this is how masochists are born, I don’t know. But something about being virtually lost in nature, uprooted and miles away from homework or any other responsibilities; I liked it a lot.
+
+No sounds of the city. No cars or dorm neighbors being loud. No tuition to pay. Nobody would pop in and tell me I had to go do something I didn’t want to do.
+
+I was free out here. If constant exhaustion and discomfort was the tax I’d pay for that, then… I could almost accept it.
+
+I knew I couldn’t though – even if I wanted to stay here, I knew come ten days from now I’d be back in my real life.
+
+I froze in my tracks, the heavy weight of my 45 lbs backpack sagging against me now that we were no longer in motion. Something just up ahead that appeared to be a large white stone from the distance, something I’d only glimpsed awhile back before resuming staring at my feet for many more yards, came into view clearly now.
+
+The dying sun cut through the trees and created a curtain of light around the pristine white object as though the forest was unveiling something great to me, creating a spotlight upon it and telling me, “*ta-da*!”
+
+Somehow, what I was now looking at was even more surreal to me than if I had come upon an elf staring back at me from the water while I gathered a drink into my purifier at a lake.
+
+Just before me in the heart of the woods was a perfectly preserved and well-maintained toilet.
+
+An actual, up-to-code clean enough that you’d not be embarrassed to let company use it if it were yours toilet.
+
+I’d only paused a moment before hurrying over to it, so fascinated at what the heck something like this would be doing in the woods. My first thought was that a house had been here once and burned down, leaving only the porcelain throne behind. But it had no burn marks, there was no obvious markings around it that there’d ever been a greater foundation, and it sat perfectly upon the forest floor like it had been signed to sit right in this very spot.
+
+My second thought was that someone had installed a very fancy outhouse here once. Instead of a wooden board with a hole through it to poop in they’d gone through the trouble of lugging a real toilet out, and that the outhouse had rotted away in the woods over the centuries. But no… again, this toilet was perfectly well kept. Not a speck of dirt on it. It had never existed within a filthy outhouse as there was no evidence one had been around it only to fall apart.
+
+When I approached it I still expected it to be full of dirt and spiders. I held my breath for the horror show that was to come, imagining what all manner of animals and insects had taken up residence within it.
+
+But there was no spiders at all. No bugs. No snakes. Absolutely nothing inside of it that shouldn’t be.
+
+Instead, it had pure, cool water that rippled ever so slightly as though the sewage system beneath it was actually operating way out here in the woods. The water was so clear – not even a single leaf had fallen into it! It was so clean and pure that I had to imagine that if I lapped up a handful of water from it it’d be perfectly healthy to drink. Not that I’d ever do so out of the ick-factor, of course.
+
+“How the hell did you get here?” I asked the toilet.
+
+It did not respond.
+
+I did the obvious next step – I reached out a hand and flushed the toilet.
+
+*FWOOOOSH*! *Ker-PLOOK*!
+
+It flushed. The water went down the hole, then my heart began to race when the bowl actually began to refill. Which, okay, if the tank was full of course it’d refill once. A toilet being here was one thing, but a fully functional sewage system and running water pipes fifty miles out into the near-uncharted wilderness? Absolutely no way.
+
+When it had filled up I flushed it a second time, convinced the tank was empty and the bowl would not refill with water again. I think this despite very clearly having heard the tank refilling even as the toilet had flushed earlier.
+
+*FWOOOOOOSH*!
+
+The toilet’s water raced out of it again, with very high water pressure. This wasn’t a normal crappy crapper, it was a premium commode.
+
+And then, once again, the toilet refilled with water.
+
+I spent perhaps too long staring at it.
+
+The light shimmering down around it went away as the sun moved further down. It wouldn’t be night for those outside the woods for another hour, but for me it was growing pitch black around me. I’d need to set up camp for the night; it’s far too dangerous to walk without good visibility as one wrong step meant a snapped ankle, followed by either a very isolated oblivion or a long, painful and hobbled walk back to town.
+
+I couldn’t leave the toilet and put it far behind me like I suddenly wanted to. I’d need to camp out very close by to this… oddity.
+
+I got away from it quickly. During the day it had been a marvel, but the haunting night gave way to more paranoid thoughts. This time they came without even the need of drugs. What the hell is a toilet doing way out here? Is this a prank? Is someone watching me? If it’s a prank, it’s one set up way in advance for me in particular – who would set up something like this then just wait years for someone to happen upon it?
+
+And now I can’t get over the thought of how weird a person would have to be who’d do something like that. But no, that’s extremely unlikely.
+
+But what else could it be? *Someone* had been maintaining this toilet for it to look so clean. It didn’t clean itself, after all.
+
+…or did it?
+
+*Is it a Mimic*? I ponder to myself. What an odd, non-treasure chest thing for a Mimic to become, if so. *If I sat on it, would it bare teeth and eat me*?
+
+Apparently it wasn’t the weed that made me paranoid at night. I just easily grew paranoid at night. This trip is teaching me so much about myself.
+
+I set up my tent, found a few loose rocks I could use to make a fire pit, and started a campfire with underbrush I’d gathered. It was a couple larger chunks of wood in the middle to maintain it with loose dry leaves and twigs all around it to get it blazing.
+
+I cut open a can of baked beans and place it center of the fire to eat. The can would be burning hot, but I had a holder to remove it with and could eat it with a spoon after that. I should have packed lighter foods – I took note of that for the next time I went hiking. I was treating this too much like when my sister and I went camping as kids. We’d camp just outside of our house in the edge of the woods, sharing a tent despite setting two up. And just two; Steven would never join us. He never got along with our sister.
+
+Steven, my identical twin brother. I tried to think about him as little as possible.
+
+I grew scared at night back then too, come to think of it. Maybe Heather sensed that came over to my tent to keep me company, because she knew it made being outdoors easier.
+
+I wondered to myself while eating the last spoonful of baked beans from the still burning hot tin can: *Did I actually go hiking because being in the woods reminded me of when I spent time with my sister*?
+
+I could hear water gurgling up from the toilet which was thirty yards away.
+
+I chose to believe it just made noises sometimes and wasn’t trying to call out to me in the night. I started that thought as a joke but felt myself shiver when I’d fully internalized it.
+
+My stomach grumbled and shifted. The beans set heavy within me. No way I was going to try and take care of stomach issues tonight; the fear of sitting on a snake while squatting in the woods was scary enough to me when the sun was up.
+
+I turned in for the night, pouring water over the fire before using a headlamp to get inside my tent and zip it up. I cut off the light and curled up into my very flat and uncomfortable sleeping bag – the comfy ones were heavy, and I had to pack as light as possible. I feared both stomach issues and paranoia were going to keep me awake. But the day had been long and exhausting, so the second I gave myself permission to shutdown it was like the power cord had been pulled.
+
+A loud growl woke me up the next morning, which would have been more concerning if a cutting pain in my gut hadn’t informed me quickly of the source of the noise. I pinched my cheeks tight, not wanting to mess myself before I could get out of my tent.
+
+I was very slow to rise, every joint and muscle screaming at me to stay down until I’d recovered. But also I was feeling stiff and chilled from sleeping on the cold, hard ground and needed to move around and warm up. The tiebreaker was knowing I needed to not poop inside of my living space when it was this small.
+
+Somehow I’d managed to go the first three days without pooping. I’d just been holding it. Because I’d not eaten as much as I should have and my body had gone into freak-out-mode from the trauma of walking all day in rough terrain the natural processes of my body had slowed to a crawl. Yet that process moved ever forward, and it wouldn’t be long now before the pain and growling sounds that I’d awoken to became a full blown emergency.
+
+And yet I was still in no rush, as even with the light of dawn around me the fear of pooping outside on top of a nest of snakes that I’d not see until they bit my sunshine state kept me from actually doing what I knew I needed to do.
+
+Instead, I took the time to wake up a bit more. I got out my kettle, started a new fire, boiled some water and steeped myself a piping hot cup of black coffee.
+
+The coffee awakened my brain enough that it gained the power to near audibly vocalize to me: *What have you done*? *You fool*!
+
+It was *now* an emergency that I must poop. There was no longer any time to delay or pretend I wasn’t human. It had to be done and fast.
+
+I grabbed the toilet paper roll and a tiny shovel out of my backpack. The number 1 most important item to keep with you is a new, fresh roll of toilet paper.
+
+*Oh, but I can use leaves*! People always say that.
+
+Okay, you do that. Grab up a bunch of filthy, sandy leaves covered in small red bugs and a spider you didn’t notice until it’s kissing right up against your cheeks. Or hell use tree bark and tear your hole a new hole for all I care! I’ll be over here wiping like a civilized human with my nice white Charmin Ultra Soft. 
+
+The shovel had never been used. I needed to dig myself a tiny hole to poop in, then cover it back up when I was done. That is just how it’s supposed to be done out here.
+
+I dug the hole in a spot that looked as safe as any other, pulled off my pants entirely so that I’d not accidentally poop directly down into them if I underestimated how far back I needed to pose myself – then I cried out in pain and collapsed backwards!
+
+My legs, oh how they throbbed!
+
+I’d been walking nonstop for days. They ached like never before in my life – pooping outside is like holding a low squat for like, less than a minute. I did not have the strength to do this. So, instead I thought about putting my back against a tree to hold myself up, but looking at the nearest tree I could see it covered in a mossy slime. Another was covered in tiny red bugs pitter-pattering along. All of the trees around me had *something* scary on them, some reason for me not to press my back against them while doing my business.
+
+Another gurgle from the toilet, as if it were calling my name.
+
+My heart sped up from the fear of the unknown toilet. But, what else was I supposed to do, sit flat on the ground and make a mess, then use up my entire roll of toilet paper cleaning my behind? This roll had to last me ten more days!
+
+*Okay, realistically, worst case scenario, it’s a prank show and they’ll put a video of you online pooping in the woods. If I can talk them into blurring my face it would actually be pretty funny,* I reasoned with myself.
+
+Because, of course, there’s no such thing as supernatural entities. The toilet wasn’t actually something mimicking a toilet, it couldn’t actually be something that was going to eat me.
+
+What began as a very careful crabwalk towards the toilet became a sprint wherein I tossed my pants behind me and just ran for it with only my shirt and shoes on. There was nobody around, it didn’t matter how I looked. I just needed to take care of business immediately.
+
+I paused only for a heartbeat when I’d reached the toilet, asking myself one last time if I really thought this was a good idea.
+
+A stabbing pain in my side following by a prairie dog head popping out to say “*hello*!” wiped away all apprehension.
+
+I turned and sat down upon the toilet with my eyes closed.
+
+The cool rim encircled my bottom.
+
+My morning constitutional rid myself of all internal distress with such vigor I nearly felt my soul leave my body. I let out a feral cry –
+
+And I didn’t recognize my own voice.
+
+My eyes had been closed from the moment I’d set all through doing my business, but that was only a heartbeat of time. When I’d cried out in relief, the voice was too high-pitched, too… young. It wasn’t me.
+
+I went to kick out my legs but they were bound together.
+
+My heart picked up, thudding heavily in my chest.
+
+What the hell had just happened?
+
+When I opened my eyes I nearly screamed, but I held back. I was in too much shock.
+
+In front of me was a white towel with a brown cow drawn on it winking back at me. It was held up on a gaudy golden towel rack my mom had bought at a hobby shop, where she’d also bought this towel.
+
+I hadn’t seen that towel in ten years, but I’d never forget it.
+
+It always used to stare at me, winking at me when I went to the bathroom in here. As a young kid I guess it amused me, but mostly I didn’t think about it. As a tween it gradually became an object of embarrassment. I was scared I’d invite a friend over and they’d see it and think I was lame because my bathroom had lame towels in it.
+
+I looked at my hands.
+
+They were too small.
+
+I looked down at what bound my feet.
+
+It was – I was wearing pajamas. They were pulled down around my ankles. They weren’t tied up, they just had pants pulled down around them.
+
+Somehow I didn’t panic. Somehow I acted automatically, like how I should act in this situation when I was still actually a little kid. I finished my business and wiped up, pulled up my pants and flushed.
+
+The toilet wasn’t the toilet in the woods anymore. It was the toilet from my childhood home. This was my childhood bathroom. And I was currently existing in my childhood… form. Body.
+
+I took a single step over and looked into the mirror. I was bit too short to clearly see myself until I stepped back a bit.
+
+I only knew my face from photographs of myself and my brother. We were actually identical back then, keeping our hair the same, dressing the same, were the same weight. He’d go on to keep himself in better shape; I was a bit jealous. I started a profile on a dating app last year and used a current picture of him as my avatar, which was close enough to not being a lie. Since we never speak he gladly let me take and use the photo too, anything to make him think I’d ever forgive him.
+
+But I don’t remember ever actually having this face, not really. I only think of myself as I am now when I think about myself. When mom shows me pictures of us as kids I see them and think, “we used to look like that?”
+
+I was currently looking at that picture. The face of that kid I have to look at every family get together when mom is like “oh I found another one! Look at how cute you two were!” I’m looking at that face now, in this mirror. When I open my mouth, I see *him* opening his mouth.
+
+I feel dizzy.
+
+This doesn’t feel like I’m really looking at myself.
+
+It feels too much like I’m looking at someone imitating me in the mirror. It’s closer to when my brother and I would play a game when we were 8 where we’d copy each other’s movements in front of each other to pretend to be a mirror reflection.
+
+It wasn’t me.
+
+Yet it was.
+
+A fleeting thought rushed through my head that if I sat back down on the toilet and closed my eyes really tight I’d return to where I was, I could escape this place. It wasn’t just a thought, it was like – an overwhelming sense of the obvious. Like if you jump off a roof you’ll fall to the ground. You’d know that even if you were on a roof for the first time in your life.
+
+Somehow, knowing how easy it was to leave made me feel a bit more brave than I should have. Instead of running away from this weird, fantastical moment I decided to go and have a look around. Was I actually back in time?
+
+Wait – *WAS I actually back in time*? If so, could I change things? Anything?
+
+I ran down the hall that I knew so well I could have done so blind and not ran into anything. Not the lamp table or the couch that was too far out into the entryway of the hall in the living room I bound into. I ran to the front door and opened it – and only a pure white void was beyond the door. I caught such a small glimpse of it before the door slammed back shut in my face, angry that I’d ever dared thought to open it.
+
+I tried to recall the white void, and couldn’t – rather, I recalled my neighborhood street. The grass of my front lawn to the right of me and the driveway from the garage to the road to the left. The large green trashcan next to our mailbox at the end of the walkway from the door. My neighbors’ houses across the way. It was all there as though I’d just seen it. Glancing out the window I could still see it now. Or, at least I think I did. Something naturally pulled my eyes away from the window, like trying to look outside put me into too much of a daydream wherein I’d automatically move on to something else within the house.
+
+Slower now, down to the normal pace of travel like a civilized human walking through their home, I walked down to my childhood door. It was way down the hall on the right. I saw my brother’s door was open, and I looked in only long enough to be relieved that Steven wasn’t home. I was glad.
+
+I think I’m maybe ten years old right now, and while the two of us got along well at that age, my mind was very much from the present day. And present-me wanted nothing else to do with him.
+
+When I opened the door to my room I genuinely expected it to be empty. Every other room in the house so far had been, so why would mine be any different? I just wanted to come in here and see my old stuff again, see how much of it had been recreated in this deeply unsettling place.
+
+“Kyle!” she said as soon as I hoped the door, sitting up on my bed from where she’d been laying down reading a book five grade levels over her. “There you are!”
+
+I did scream – much to her shock and worry, I gave the guttural scream I’d been withholding since I first realized I’d been somehow magically transported into my childhood home and into my childhood body. Nothing about it felt real then or now, I was still wrestling with the concept of even being here, but seeing her again, alive and animated, had such a visceral reaction within my heart that I thought it was going to burst out of my chest.
+
+“What’s wrong?” she asked, getting up off the bed and running over to me.
+
+She was a full year younger, maple-tented brown hair that, at this age, she still let lay flat. Her hazel eyes were unnaturally big for a human – I’d teaser her and call her a fish sometimes because of this. She hated that. But right now her eyes were about to make me lose my grip on reality – I didn’t know whether to hold her or hit her.
+
+When she reached me I’m so ashamed to say that I did try to hit her, punching at her face with everything my tiny boy hand could muster. But my eyes were awash in tears and my blurry vision caused me to miss, throwing my arm past her head; before I could retract it she had her arms around me, hugging me with one of her arms over mine and the other under the arm I’d thrown past her.
+
+“Kyle, Kyle! It’s okay, it’s okay! I’m here. You’ll be okay, alright?” she spoke words that were so comforting they hurt me. They hurt me so badly.
+
+I didn’t have the willpower to try and hit her again. I just held her back, and had I been full grown it’d have been a painfully tight hug. Instead, as a small lad, it was a relatively normal embrace. I’d never been very strong, then or now.
+
+She pulled back, at first looking happy as though one hug would fix everything. But then she looked confused and concerned as my face had become a mess of tears and snot.
+
+“Heather?” I managed to choke out her name.
+
+“Yes?”
+
+“I missed you!”
+
+Heather tried to smile back, but still looked so deeply concerned with my well-being. Clearly I wasn’t okay. She was just a little kid, but even she knew that something was very weird with me right now.
+
+“I didn’t even go anywhere though?” she said, making it into a question as she searched her mind for something she may have forgotten about.
+
+I wiped my face off on my Care Bears shirt that I swear I thought I’d thrown away long before I was 10. In fact, I must have been younger than 10 right now; that was really just my first impression of my age from the mirror. But it’s not like my body had a stat sheet I could reference.
+
+We both got up on my bed to sit and talk for a bit. My words were stilted, awkward. I couldn’t even hear myself at this moment, truthfully. I made up some lie about having had a scary dream where she’d gone away, and I just wanted us to move past it and forget about the scene I’d just made.
+
+My sister didn’t buy it – damn that girl for being so clever – but she was at least kind enough not to torture me by dragging that incident out any longer. She let us move on to happier topics.
+
+I asked her about her day, what she’d been doing, what shows she’d been watching. But she said, and I now recall, that I’d been with her most of the day and we were currently watching the same shows together. We spent too much time together in fact, enough so that Steven was feeling left out.
+
+Steven felt jealous about mom and dad giving Heather all of the attention because she was the youngest for as far back as I can remember, but it became so much worse when I started spending most of my time with her too.
+
+Which, to be fair, we never excluded him from anything. He excluded himself. He just either wanted my time all to himself or wanted to exclude Heather from whatever he was doing, I genuinely can’t say which it was. Also, obviously I spent time with him too, but when Heather wanted to tagalong he’d get all whiny about it and try to tell her to leave. Whether she did leave or stayed anyway, he always bothered me with how he acted.
+
+Of course, this was the behavior of a 6 to 12 year old. He had years to mature and realize what a jerk he was when he grew as a person. By the time he was a teenager he’d learned better… but by then it was too late.
+
+“You know what happens in that episode though,” Heather laughed when I’d asked her about a show we’d watched.
+
+I actually didn’t recall. It was so long ago. I remember there was a guy with a car, and I think the car could talk? But the details of any of this had been eaten up by father time.
+
+“Just tell me about it again! I don’t want to look it up on the internet. I’d rather hear the story again from you,” I said, a request I’d have never made back then. This was purely adult-me talking, just wanting to hear her talk some more.
+
+As I sat there watching her talk about a show that definitely wasn’t made for someone my actual age, I was smiling more warmly than I had in a decade. I didn’t even know I had the capacity to feel this happy. I never had before, not even when this day had originally occurred. I truly didn’t know what I had until it was gone – and that’s really saying something, as I’d always thought she was special.
+
+She was my best friend. And I finally had her back after all this time.
+
+I never wanted to leave.
+
+I felt dizzy.
+
+The room began to spin, and I fell over onto the bed. While my head hit pretty hard, it was a mattress. It was designed for heads to smack down against them without issue. But my heart was racing, my body tingled. Something was wrong with me. This wasn’t fear of the unnatural situation I was feeling either; I felt like I’d just been drugged. I began to feel sick, and so much pressure built up inside of my head.
+
+Something was off.
+
+Something was very wrong here.
+
+“Hey Kyle, are you listening?”
+
+I snapped back to the present as Heather shook me. I sat back up and gave her a nod and affirmation that I was still listening. She kept talking, but my mind had stayed fixated on how scary that moment had been.
+
+I felt better now, the sickness was gone. I felt empty somehow, like whatever was inside of me making me feel bad had been pulled out. In its wake was nothingness. I asked myself briefly if I was being hollowed out, and I felt myself answer: Does it matter if you’re only having unpleasant things removed?
+
+*…did I just answer myself*? I asked myself.
+
+When I saw my left leg was missing I nearly screamed. It was just gone at the knee. I kicked both legs out and pushed myself back – with both feet. I stared at my restored leg.
+
+“What’s wrong?” Heather asked quickly.
+
+“My leg was missing!”
+
+She cracked up laughing, convinced I was joking.
+
+“You were just sitting on it, silly!”
+
+She was certain I was being a goofball. I played it off like I was.
+
+But no, absolutely not. I was not sitting on my leg. It was *gone*. Like it’d been severed at the knee. But then it just came back again.
+
+*Or I’m imagining that it just came back…* I thought drearily, wondering if this place was starting to play tricks on me.
+
+“Hey, I’ve loved catching up, but I may have to get going Heather,” I told her.
+
+“Going where? This is your room,” she replied, the certainty of me just being a goofball still with her.
+
+“I love you so much, I’m so happy I got to see you again. But there’s something off about this place. If I don’t see you again…” I began to say the last line and it got caught in my throat.
+
+*If I don’t see you again…*
+
+*If I don’t see you again…*
+
+*Wait, if I leave, will I never see her again*?
+
+Heather didn’t speak. She waited for me to finish my thought. Like this was just one more goofy joke that would have a hilariously bad punch line, and she couldn’t wait to hear what this one would be.
+
+The warmth and wonder I felt such a short time ago at seeing her again was entirely gone now, filled instead with a bitterness and coldness that awaited me in the outside world. Out there she didn’t exist, and she never would again.
+
+Here, she existed. And as far I knew she would always exist right here, so perfectly preserved in this proverbial amber.
+
+If I walked out of here now, returned to the woods, it would be like losing her all over again.
+
+It was right after she’d turned 11 years old. We were talking about starting a rock band in the garage – nothing serious, just kids talking – and we asked Steven to play bass guitar. I’d do drums, Heather would sing. Steven wanted to play electric, but we had a friend of Heather’s from her class who wanted to play electric. Steven insisted we’d given him the lamest instrument and role in a band.
+
+Keep in mind there was no band, were no instruments, and none of us knew the first thing about music. We were just talking pie in the sky fantasies. But Steven took it so serious that he began to list every single thing Heather had ever done to annoy him. He said her punk hair looked stupid, that she chewed with her mouth open (for what it’s worth she hadn’t in years), and more than anything he just found her so annoying. There was like a dozen other things; it was just a child being hurtful though, hurtful for the sake of cruelty. He wanted her to leave him and his twin alone.
+
+“The family doesn’t need you here! Kyle doesn’t need you here! He hates spending time with you! You waste all of his time and he wishes you’d just leave!” Steven shouted.
+
+I didn’t correct him because to me it was obvious that it wasn’t true. It was obvious that he was just being a jerk, not worth the energy to correct. I let him finish venting. I figured fine, I’ll go play a video game or something with Steven so he’d settle down and stop shouting. I told Heather I’d see her later.
+
+But all Heather had seen was Kyle telling her to leave, and nobody at all had told her to do otherwise.
+
+And so she did.
+
+Heather didn’t make a big scene about running away. In the moment she’d laughed off his jabs and insults. This wasn’t the first time. He’d acted mean to her many times before. But never before did he leave her thinking she’d was secretly hated by her best friend, her big brother Kyle.
+
+At least, that’s what I would have to decide was going through her mind when she left. I’d never get the chance to ask her.
+
+Come dinner that night when Heather wasn’t in the house, mom had tried calling around to find her; she didn’t answer her phone and none of her friends from school knew where she was. Mom dismissed it initially assuming she was just out playing by herself, though she had no conviction in her words when she spoke them out loud. We just had dinner as a family at the table like we usually did, then we all split to our separate ways.
+
+I played video games with Steven until late into the night.
+
+Only when I woke up the next morning and saw mom with dark bags under her eyes did I actually begin to think something was wrong. I’d assumed Heather had come back home the night before at some point without my noticing. But mom had stayed up all night waiting for her. Come morning when she still wasn’t home, mom called the police to file a missing person’s report. She’d have to call back later, because Heather hadn’t been missing for long enough yet, despite it being pretty obvious that she was definitely missing.
+
+Three more days later her body was found in a junkyard.
+
+Either she’d climbed the fence or slipped in somewhere, either looking for a place to hide or maybe running from something. The details can only be speculated upon, as the death was ruled an accident and no further investigations were held. Only three junkyard dogs that had maimed her to death were put to sleep, and that was the closest thing to justice that would come out of this. The owner wasn’t even held accountable because this was private property and the dogs were just doing the job they were given, to attack intruders.
+
+They tried very hard to hold an open casket funeral. However, the damage was too great, and by the time they’d smoothed her face out enough it didn’t even look like her anymore. These are details about it that I really wish I’d never overheard as a small child.
+
+Visions of what they meant by that haunted my nightmares for years.
+
+I didn’t speak to Steven again in any friendly way after that. I could force myself to be neutral, but never, ever would I speak more words to him than were absolutely necessary to function under the same roof as him. And I moved out as early as I could after turning 18, just needing to get away from… *my* face. The same face that stares at me every single day in the mirror, reminding me of the person who killed my best friend.
+
+Thankfully, in time, we did begin to look a bit different. It took the edge off.
+
+“Well, if you don’t see me again then what?” Heather asked me.
+
+I’d recalled her gruesome fate in the blink of an eye, and was back to the present moment again. She patiently awaited my silly, goofy punch line.
+
+“Ah, sorry, I kind of spaced out there and forgot what I was going to say,” I said, which still prompted her to laugh as though I’d told the perfect joke. “Say, if you were the singer in a band, what kind of songs would you like to sing?”
+
+Heather reacted with shock at this question.
+
+“How did you know I wanted to be a singer in a band?”
+
+I shrugged, “I guess it just felt right to me.”
+
+“Yeah me too! Yes, I totally want to be in a band when I grow up! Oh my gosh, I have all these ideas for songs. Want to hear them?”
+
+I nodded, “I do. Go on, tell me all about them.”
+
+We sat back down on my bed and she went off on all the different styles of music she wanted to sing. I had no idea what she was talking about, but she was definitely enjoying herself, and I once again felt very warm and happy.
+
+I felt another sickening wave of pain, and lifted up my shirt to see a large chunk missing from my side, as though something invisible had just taken a large bite out of me. No blood, no gore, no real signs of damage other than a large chunk of me was simply gone.
+
+I lowered my shirt back down without reacting.
+
+I listened to my sister talk, and I felt happier than I’d felt in far too many years. Maybe this place was a trap intended to hold and devour people; that seemed pretty obvious to me now. But I have to admit that it picked the right bait.
+
+I would give anything in the entire world to spend just one more day with my sister. Anything. I would even give my life.
+
+It's not so bad here. I don't eat anymore. I don't sleep. I'm never bored because we have a every movie and game I had at that point in my life. The internet on the family computer in the living room seems to work, so that's weird. I'm certain I was getting no signal in the woods before. No social media sites ever update, but I seem to be able to post. I can't tell if anything is actually going through when I do, or if this is just an imitating of reality with no real function.
+
+I thought my digestion would be quick. It's not. Or maybe it is quick but time is just greatly dilated for me.
+
+Ah, whatever. It's fine. Whatever this purgatory is, I'm happy here. This was my choice, and this is my life - however much or little of it yet remains.
