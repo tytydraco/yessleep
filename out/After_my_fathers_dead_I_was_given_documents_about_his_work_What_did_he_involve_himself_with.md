@@ -1,6 +1,6 @@
 I received the news two weeks ago, I was at the local market buying groceries when my phone ringed and the shaky voice of my mother telling me my dad was no longer with us. It's hard for me to recall even now, I dropped everything at that moment and rushed back home, couldn't even begin to cry because my brain was still processing the words "father" and "dead" together.
 
-But I saw this coming. In truth he was chronically sick all his life, even since he started that government job that I remember him having since I was little. No one ever explained to me what exactly his condition was and always kept it vague, it frustrated me but I didn't to act insensitive towards my dad and his health, so I kept my mouth shut most of the time.
+But I saw this coming. In truth he was chronically sick ever since he started that government job that I remember him having since I was little, though he had quit years ago because of it. No one ever explained to me what exactly his condition was and always kept it vague, it frustrated me but I didn't want to act insensitive towards my dad and his health, so I kept my mouth shut most of the time.
 
 I was inconsolable, the man that was my role model and the coolest person on earth to me was no longer going to be with us. I sat at the side of his bed weeping, an ugly cry, but it wasn't comparable to how ugly everything surrounding death was. Before I knew it his body was sent to a mortuary in preparation for his funeral.
 
@@ -34,9 +34,9 @@ I popped it in, hoping it would give me answers.
 
 My heart stopped, this couldn't be true, surely this is some sort of elaborate posthumous- I stopped that delusion prematurely.
 
-"Director Ferguson ordered the construction of the Nestle Peaks site with military protection so that further research can be conducted. With the ever growing threat from the east, we believe this gift from cosmos can be used to enhance our men." 
+"Director Ferguson ordered the construction of the Nestle Peaks site with military protection so that further research can be conducted. With the ever growing threat from the east, we believe this gift from cosmos can be used to enhance our men."
 
-I knew what this implied. 
+I knew what this implied.
 
 "Bright minds from all over the country were brought to the site where our leading researchers have examined the effects of the alien organism on local wildlife. It's been able to replicate and distribute the genes of infected animals to a human host."
 
