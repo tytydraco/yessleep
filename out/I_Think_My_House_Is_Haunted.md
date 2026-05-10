@@ -198,15 +198,13 @@ My heart sank when I saw the pale look on his face. He shoved his hands into his
 
 “I want to go to Dad's.”
 
-
-
 "It isn't too late to change your mind," I suggested to Spencer, who sat beside me in the front passenger seat of my car, with a playful nudge as we pulled into the designated hand off spot. It was the parking lot of a McDonalds that was directly half way between mine and his fathers house. "Why don't I get you an ice cream cone and we can call it a day, huh?"
 
 He didn't say anything, just shifted in his seat so he was looking as far out the window as possible, covering his mouth with the palm of his hand. As soon as he spotted the silver mustang pulling up next to us, my son dashed out of the car like he couldn't get out, get away from me, fast enough.
 
 "Dad!" Spencer cried, running up to his father. The two of them embraced in a tight hug, his father ruffling his hair. 
 
-I'm not going to lie, a healthy amount of hurt and jealousy put my heart through the wringer seeing that. That was my son, the baby boy that I carried in my belly for nine months- gave \*birth\* to, and here he was choosing his father over me.
+I'm not going to lie, a healthy amount of hurt and jealousy put my heart through the wringer seeing that. That was my son, the baby boy that I carried in my belly for nine months- gave *birth* to, and here he was choosing his father over me.
 
 "Robert," I greeted, dryly- silently judging the red Aloha shirt, khaki shorts, and sandals that he wore. He looked like a beach bum.
 
