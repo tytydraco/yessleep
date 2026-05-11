@@ -66,4 +66,6 @@ I don't know what to make of what I saw that evening. I was able to dig up some 
 
 I have my work cut out for me, between my updated map of Needle and my attempts to find more information on this **Mr. Ward**. Hopefully, by my next update, I'll have some more satisfying answers to this little dilemma. It would sure put my mind at ease to know for certain if there was some threat waiting for me out there in the dark, and whether it lay in the labyrinthine corridors beneath my feet or in the charming homes of my very own neighbors. 
 
-Update 5/5: Forgot to mention, but I started TikTok account to post pictures and videos of the caves. Yeah yeah I know this is egregious self promo but I really need somewhere to share smaller updates between these longer Reddit posts. My user is masonchapman69 but no worries if you don’t want to follow—the stuff I post there is all “supplementary” and the important stuff will live here on Reddit. 
+Update 5/5: Forgot to mention, but I started TikTok account to post pictures and videos of the caves. Yeah yeah I know this is egregious self promo but I really need somewhere to share smaller updates between these longer Reddit posts. My user is masonchapman69 but no worries if you don’t want to follow—the stuff I post there is all “supplementary” and the important stuff will live here on Reddit.
+
+[Link to Next Major Update](https://www.reddit.com/r/nosleep/comments/1ta8ibt/i_found_a_way_inside_its_been_waiting_for_me_all/)

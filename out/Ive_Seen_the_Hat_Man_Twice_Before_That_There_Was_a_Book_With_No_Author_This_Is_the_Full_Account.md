@@ -1,0 +1,253 @@
+***Kyle gave me the book.***
+
+***It arrived on my front porch on October 18th — my birthday, exactly.***
+
+***Black.***
+
+Kyle produced that grin of his, the one that sat slightly too long on his face, the grin of a man who’d arranged something and was waiting to see what it cost.
+
+Bucket list, he said.
+
+One less thing between us and whatever comes next.
+
+We were eighteen.
+
+Kyle hunted things that didn’t want to be found: off-register music, people the world had written off, books with no authors.
+
+He defended every acquisition with the precision of a man who’d memorized Fischer’s Sicilian Defence — and understood exactly why Fischer lost his mind.
+
+I trusted him.
+
+Just read it, he said.
+
+Talk to me about it tomorrow. He winked. It will change your life.
+
+I never pushed back.
+
+The night I read it, I lit a candle, the only one I owned, still in its original packaging.
+
+Kyle had prescribed the ritual (ancient, he called it) and classified it non-negotiable.
+
+I complied without deciding to.
+
+The room was small.
+
+One door, one window, one chair.
+
+The window faced the street below, and the street below held nothing.
+
+I dropped into the small chair.
+
+The stray on the sill opened her mouth and produced one sound, then closed it, and looked away.
+
+I opened it.
+
+The old leather cover ran black as dried blood, swollen at the spine.
+
+Dense Latin scored the inside page, each character pressed into vellum. . . vellum so old it exhaled fumes of rot and cedar the moment the spine gave.
+
+Gooseflesh erupted across both arms before I’d finished the first line.
+
+I kept reading.
+
+Somewhere in the last pages, my name arrived.
+
+The name materialized inside my mind with the precision of something that had always known the address.
+
+The flame died. The dark that replaced it had been waiting outside the candle’s reach.
+
+The cat let out one high-pitched shriek, launched at the mirror above the dresser, and vanished.
+
+I held still in the dark; the dark felt personal.
+
+I burned it within the hour. In the yard, with the wood from the porch railing. My hands shook so badly I dropped the first match.
+
+I fed the pages in one at a time.
+
+What I hadn’t read earlier revealed itself in the burning, the chapters I’d skipped, the photographs between them.
+
+I closed my eyes by the third page.
+
+I can tell you the smell.
+
+I can tell you my body’s reaction.
+
+I cannot tell you what was in those photographs because naming them would make them real again, and I have spent seventeen years working very hard at keeping them unreal. I finished the burning without looking.
+
+I threw up once, quietly, against the fence post. I stood there until there was nothing left.
+
+By morning the sky had the color of a bruise on the verge of turning yellow.
+
+Not fumes. Not paper. Something that pre-dated both.
+
+Every fluorescent beam in the apartment stuttered at an identical frequency. Something interfered with the receiver.
+
+I lived in that apartment for three more years. It smelled like something had died in the walls.
+
+Did someone cross through? Or did I open the door voluntarily?
+
+Kyle died four years later.
+
+Interstate crash. Two in the morning. No other car.
+
+The report confirmed it: just his vehicle and the dark.
+
+At his funeral I knew he’d taken it with him. This is not a revised certainty or a retrospective hunch. I knew it in the moment they lowered him.
+
+I think about the book every time. Without deciding to. If it weren’t for that book —
+
+I’ve never found an ending.
+
+Kyle belongs to me the way dead people belong to the ones who claim them most obsessively.
+
+Whatever he knew about where the book originated, about what it had already done to him before he transferred it to me, he carried all of it out of reach. I stood as the only witness to something I couldn’t testify about, with no one left to corroborate.
+
+Grief has seven stages.
+
+None of them reached this particular wound.
+
+The twenties dissolved the same way the book did, completely, leaving only residue and a smell I couldn’t name.
+
+Jobs expelled me.
+
+Women detected the wrongness.
+
+My sister graduated from emergency contact to keeper: the Tuesday call confirming I still breathe.
+
+Her own life collapses in its own directions.
+
+I contribute.
+
+The last one ended on a Wednesday.
+
+The manager said my name twice before I understood what was happening.
+
+I drove home and sat in the parking lot for forty minutes. I didn’t go inside.
+
+One morning three cuts materialized on my left wrist.
+
+Parallel.
+
+Each one ran shallow enough to spare blood, deep enough to scar. I never once drew blood on myself.
+
+Not in my life.
+
+I drove to the doctor up north. He shrugged.
+
+A therapist offered dissociation.
+
+I call them witness marks now, evidence carved in the only medium available.
+
+I trace them mornings, with the tip of my thumb.
+
+There is a watch on my nightstand I trace with the same thumb, sometimes. It stopped at eleven forty-seven, seventeen years ago.
+
+I have never replaced the battery.
+
+Some days the marks run redder, inching toward the palm.
+
+Kyle beats inside me like a second heart. Arrhythmic. Wrong.
+
+I cannot stop checking.
+
+I’ve tried.
+
+The Hat Man showed up a decade after the book.
+
+I kept making searches. Searches for the clinical term, searches for the historical precedent, searches for the name.
+
+The searches helped.
+
+Then the searches stopped helping.
+
+Google first, then exhausted Google, then spent a month’s savings on a bus to the state library, a thousand miles north, to access archives that don’t digitize.
+
+I needed to name what I was carrying.
+
+Sleep paralysis.
+
+Hypnagogic hallucination.
+
+The brain misfiring in the corridor between sleep and waking.
+
+The clinical language promises reassurance.
+
+The forums contained thousands of accounts, different continents, different decades, all confessing the same figure with the same surgical precision.
+
+Seven feet tall.
+
+A long black jacket, formal, cut for a last-century burial.
+
+A wide-brimmed hat.
+
+And the smell, every single account named it, a carcass sealed in a room and left there.
+
+The first time, I lay fully awake.
+
+I reclined in bed, eyes open, and then he occupied the upper corner of the room.
+
+The cold radiating off him, that absence, the sensation of pressing against something that devoured warmth and surrendered nothing.
+
+My body elected paralysis without consulting me.
+
+Every hair on my body files a separate report.
+
+He dissolved in under three seconds.
+
+The light through the curtain came in the color of used dishwater. I studied it until I could move again.
+
+The second time: the mirror.
+
+A Tuesday. Ordinary Tuesday, brushing my teeth before bed.
+
+I raised my eyes and he occupied the reflection behind me, still, just the wide brim and a shadow swallowing the space where a face belongs.
+
+The dark in that mirror was of a piece with the silence.
+
+I spun around.
+
+Empty room.
+
+I turned back.
+
+The mirror split, a diagonal fault, corner to corner, clean as a ruled line.
+
+No crack in that glass before that moment. Not one.
+
+I got out of that bathroom. I don’t remember the door.
+
+I drape the mirror before sleep. A velvet cloth. The only intervention that felt proportionate.
+
+Sleep is no longer private.
+
+Thirty-six years old.
+
+A life arranged like a room after furniture has been removed: the shapes of things still visible in the carpet, the hooks still in the walls, nothing left to hang on them.
+
+I write this because people demand to know why I warn against certain things.
+
+You seem so certain, they say.
+
+How do you know it started that night?
+
+I don’t.
+
+The contrarian in me blames apophenia. A life that collapsed for ordinary reasons, dressed in gothic theater because the ordinary reasons cost too much to face plain.
+
+He recited the whys and hows, year after year, and each time dismantled the case I’d built. I conceded: the argument holds.
+
+Maybe Kyle found a strange book, died young on an ordinary road, and I spent the years since constructing cathedrals from rubble.
+
+Maybe the marks on my wrists hold an explanation I never pursued hard enough.
+
+Maybe the Hat Man represents a documented neurological event, nothing to do with a room I stood in at nineteen when something arrived.
+
+Maybe.
+
+But I burned that book in a kitchen sink at nineteen years old, shaking, alone, and whatever departed with the fumes, I feel its absence still. In this room. In every room since.
+
+The watch reads eleven forty-seven.
+
+I never replaced the battery.
+
+Some things you just leave.

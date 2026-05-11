@@ -1,0 +1,119 @@
+My dad died a little over a year ago, but I didn't take the time to visit his place since it’s passing. My mum gave me most of his belongings, one of them being a nice shoulder bag (apparently he wore it when we were about the same age). 
+But after using it for a few days, I discovered a small hidden pocket that was sewn shut.
+After pulling a few threads, I found 3 to 4 pages of confusing handwritten notes that I chose to transcribe and share with you here. Because I honestly have no idea what else to do with those. I just really hope that it's just a story.
+
+---------------------------------------------------------------------------
+
+Cities are my favourite places to travel to.
+
+I've been a Londoner from birth, you see?
+And you would rationally believe that the erratic rhythm of such a city would make me grow tired of similar experiences. And yet, as a kid, I quickly got obsessed with the concept of the “megalopolis”. Cities so large that they are bound to expand by absorbing the ones next to them. And by doing so, are constrained to change and adapt to their new territories. A lot of fascinating megalopolises exist — like Tokyo, New York or London — but Paris was the one that I grew the most fond of over the years. Not just because of its size, which is relatively small compared to the others, but by the history that prevails within its streets, monuments, and architecture. A truly fascinating landmark of European history and a masterpiece of human engineering. At least, I thought it was human. But now I'm not so sure.
+
+Four days ago, I left for Paris and moved into one of my friend's flat that she so nicely landed me during my annual trip to the capital. Her cat needed to be fed while she was going back to her parents in the countryside, and she knew she could rely on me to do exactly that. I was kind of concerned as to why she was so eager for me to take care of her home while she was away, but I quickly found out why.
+
+When I arrived, her flat was a wreck. Completely abandoned for what seemed to have been days, even though I arrived earlier than expected. The many unwatched dishes were beginning to rot inside the dirty sink, and the foul odor of cold tobacco sneaked through the pungent smell of the overused litter box. The cat was alive and well, at least I think so. I only heard him during the night, and even if the bowl of food was empty every morning, the poor creature was so shy that I never even saw the tip of a tail peaking behind a bookshelf. But I was just so grateful to have a place to stay for free in such an expensive city that I chose to ignore most of it.
+
+I wasn't compelled to go outside when I arrived, it was the middle of winter and the temperature never went above -8 °C. But after 2 days I was already getting bored. And her ground floor courtyard flat wasn't very good at keeping itself warm or bright. I just needed some fresh air and to see the sunlight for at least an hour, that's all.
+
+So I went out at around 4pm, the sun was already down, but I thought that I would at least see it set over the horizon. I had a good memory of seeing this very sight at the “Place du Sacré-Cœur” last year. So at most, I already knew where to go and what to expect.
+
+
+I took the train to “Place des Abbesses” and choose to walk up the long spiral staircase up to the exit.
+Even though those stairs are tough, there is a nice painting displaying the history of the “Butte de Montmartre” on its walls. Which follows you all the way to the top.
+I could've just taken the elevator. I should've. But no one else wanted to take the stairs, so I foolishly thought that I would be able to “enjoy them” all by myself. Besides, I haven't walked in a while and believed that “a little exercise couldn't hurt”. How ironic now, knowing what was waiting for me.
+
+The painting on display was the usual blend of different watercolour techniques that were printed onto the tiles. It showed the most famous landmarks of the “Butte” and its history. Starting from a sepia-styled rendering of the different fields and windmills — which covered the small hill when it was still just a village outside the capital —, from the construction of the “Sacré-Cœur” to the vibrant tourist attraction it is today.
+
+After a few minutes, I paused in the middle of the stairs to catch my breath. I'm not an athletic person and, like I said, it's been a while. But I'm still young and quite fond of a little hike here and there, so it surprised me to be this tired by just walking up for such a small amount of time. I blamed my winter attire for the exhaustion. The heavy textiles of my winter clothes were probably putting a much bigger physical toll on me than expected. As I felt sweat pouring out of my back and armpits, I decided to remove some of my more cumbersome accessories — such as my gloves, scarf, and winter cap — and shove them inside my shoulder bag. As I was doing so, I realized something weird. There wasn't any sound.
+
+Don't get me wrong, those stairs are quite isolated, but it's also the only passageway of a subway station that is usually overrun with tourists. It frightened me a bit, so I stood still and listened. After what felt like a long minute of silence, my hearing became quite sensible. I could hear the sound of my breathing echoing ever so slightly within the narrow porcelain walls of the staircase, and the constant buzzing sound of the neon lights.
+
+I thought that I might have made a mistake and that this passageway has probably been closed off. That would surely explain why I was the only one who took them, or why I didn't run into anybody else either going up or down. After all, my French shamefully remains far from perfect, so I probably just didn't pay attention to any warning signs in front of the stairs. So I started walking down the spiral, moving backward through the colourful displayed History. But something felt off.
+
+After a few dozen steps, I went past the vibrant drawn tourists, the erection of the “Sacré-Cœur” and the other sceneries. But after those, the rest of the painting seemed different. 
+The fields and windmills weren't there any more, there were no rendition of old sepia pictures of the “Butte”. Taking their place were nightmarish portraits of screaming horses with crimson eyes, leaping down the stairway. Their expressions were ones of exhaustion and pain, and the mere sight of them made my stomach turn with anguish. The paint wasn't the same either. It looked like the printed tiles were brushed over by what seemed to be a coarse dark mixture that contrasted with the bright and polished walls. It had a very distinct smell too, one that I immediately recognized from my childhood : The smell of burnt gunpowder.
+
+I was sure that I didn't see those going up, but I rationalized that I was probably already too exhausted to pay attention when I passed them. Nonetheless, it still disturbed me enough to increase my pace going downwards. But in the confusion, I slipped. The tip of my right foot lodged itself on the bottom step, while the other got caught in my winter coat. As I fell forward, my hands shot up in front of my face, hoping to catch the stairs before my forehead would. And they did catch it quickly. Too quickly.
+
+When I opened my eyes, my hands were gripping the stairs going upwards. As I tried to stand up, my right hand hit the column trying to hold onto the handrail that was no longer there. My left hand lounged to the other side out of sheer panic, and latched on to the now reversed rail with all its might. I jumped up and looked around violently. I touched my forehead, but it didn't bleed or hurt, only my hands and knees, which absorbed the shock. Everything led me to believe that I fell towards the stairs, but here they were going up, not down. How was that possible? I stared at the wall in front of me; the dark horses were still there, on the right side, going up the spiral. It didn't make sense. I saw them going down! Was I so scared and exhausted that I got confused? And ran up the stairs instead of down?
+
+I started to get nauseous from fear, which pushed my survival instinct to take control; I needed to go now or be the victim of, what I thought to be, even more erratic behaviours.
+I quickly turned around again, drowning the screaming thought that this was the second time that I did so, and clutched the handrail tight with my right hand. My eyes locked onto my left foot as it fell down to the first step, slowly followed by the other. My hand glided downward following the railing, further confirming what my eyes were seeing : I was on the right track. The relief soothed me quite a bit. And, after a few minutes, the regular echoes of my heavy steps were like music to my ears. I felt so much more confident that I looked up for just a moment, only to see that the painted tiles were back, having changed once more.
+
+
+The paint was a vibrant red, closer to the original printed watercolours from the beginning. It looked like it was seeping through the ceiling of the staircase. Creating, on its way down, irregular curtains of liquids, that were pointing downward towards the steps. 
+
+This bizarre formation was irregular and chaotic, but as I stared at it even more, I managed to pick onto patterns. The white tiles untouched by the crimson red were forming silhouettes of people of all shapes and sizes. I could recognize the outline of men, women, and children. I think I even saw the outline of an infant in the hands of its mother. And as I was gazing at the wall more and more, my head began to hurt from the restless pounding of my heart. Quickly followed by a burning pain in my hands and knees. Right then I realized that I was out of breath again. And so I closed my eyes and stopped in my tracks. On the verge of tears, exhausted and terrified, I didn't want to accept what my body already knew : The stairs were going up.
+
+I cried standing still with my eyes closed, my hands clutching the side of my pants like a kid having a tantrum. I remember appreciating the feeling of tears slowly sliding off my warm face, which only made me cry even more. Which I promptly stopped at the realization that I was probably wasting precious water, since I didn't know for how long I would still be here. I honestly thought for a moment that I was dead. That I did hit my head when I fell down, that I died, and that I was now stuck down here. That I'm now either a ghost, forever haunting this passageway, or in Hell. I remember briefly cultivating the amusing thought of how ironic it would be that Hell was a staircase going up. Looking back on it, I think that this is the very thought that gave me the strength to open my eyes again. Only for them to be met with darkness.
+
+I started to aggressively blink, over and over and over. I remember believing at first that I went blind out of sheer shock for some reason. Completely glossing over the more plausible scenario that the lights just went out. But I was so scared that I didn't want to move any more. I kept my eyes open for a solid minute before discerning a dim glow ahead of me, barely visible. I hoped for an exit, but I knew deep down that it won't be that easy. Still, I made the first step toward it, and continued to walk back up again.
+
+The steps now felt irregular. I couldn't find the railing for the life of me, so my palms were simply sliding along the now rugged wall as I was climbing. It had a tacky texture, like it was secreting some kind of viscous slime. The entire place seemed to be. 
+
+As the step became steeper, they also gave way to what felt like random stacks of bricks and rocks. My hand, still holding onto the wall, progressively got closer to my face. Evidently, making me understand that I wasn't in an ordinary staircase that was leading up to a subway station any more. No, this was now just a dark and disgusting tunnel. 
+
+It was getting narrower by the second, and smelled so rotten that it made me miss my friend's flat. I was crawling on my hands and knees, driven by that faint shade of light that was ever so slowly becoming brighter. And then, the spiral stopped being a spiral. And the way up became a narrow, straight slop, with a pool of bright light at the end of it.
+
+I wanted to scream for help, but my throat was so filled with tears of relief that no sounds were able to push through. So I rushed to it, hurting my already sore hands and knees even more. I slipped and fell forward a few times, while also bumping my head on the ceiling of the tunnel, not caring about the strange liquid that was splashing all over me. 
+
+I even got rid of my coat with my shoulder bag still on it, just so I could leap faster. But as the pool of light came closer, I realized what I was stepping into. 
+The white light shined through a thick metal grid that looked like an old sewer hatch, and dripping through it, was the same crimson red that I saw earlier on the tiles. The smell of the tunnel was so bad that I didn't pay any attention to the taste of what I was basically swimming into coming here. But now I couldn't ignore the overbearing taste of iron that was filling my mouth.
+
+I nearly threw up right here and there— maybe I did— but then I heard a voice. A strong male voice speaking in French. And then a drum roll too. Followed by a crowd, a huge one, that seemed to be right on top of me. 
+
+I didn't know what to think, I was still in shock, confused and terrified. But the vomit must've cleared my throat, because at that moment it felt like I could scream again. I turned my head and body towards the opening, my back resting onto the disgusting cocktail of bodily fluids. And right as I was opening my mouth and felt the first gasp of air brush my vocal cords, I was interrupted by the deafening sound of canons.
+
+
+I couldn't tell you how many they were, but it sounded like a few dozen at least. I laid there silent in complete and utter shock. But I remember that in this brief moment, that felt like an eternity, I enjoyed watching the orange coloured sky in front of me. It felt warm and freeing, like nothing I ever felt before now. That, I hope, I won't forget. Unlike what unravelled soon after.
+
+With a heavy thud, something dark and heavy fell violently a few inches from my face. I didn't immediately register the muffled popping sound, nor the warm syrupy splatter that went across my cheeks. I didn't because it only took me a blink of an instant to realize that the black heavy mass in front of me was a face. 
+
+When my eyes adjusted, I could identify the rest of the ruptured feminine features that peaked through the metal grid. The entire right side of her pale lower jaw had been violently removed, taking with it a good chunk of skin, from the upper side of her skull. Leaving me to stare at her exposed, skinless, right blue eye. And for a brief moment it felt like she knew that I was looking at her.
+
+The smell of gunpowder came back, followed quickly by the ear-shattering screams of the ecstatic crowd. Without a second thought, I rapidly retreated back into the tunnel without even rotating my body.
+
+And as I was squirming down in panic, my body failed to find any resistance, and slipped back into the pitch-black passage. 
+
+I kept rapidly sliding down until my body suddenly came to a halt. I couldn't see why or where, I couldn't even tell whenever my eyes were closed or open any more. For a moment, I thought it was finally over. But then the pain came rushing in.
+
+When one of your senses is removed, it's said that it enlightens the others. But I do now know that time is the hardest thing to grasp when you've lost your sight. I only remember trinkets of this part. Like the pain that covered my body like a blanket of needles. Or the cold floor onto which my aching hands were resting on. And also the pervasive smell of gunpowder and the sour taste of a blood I wasn't sure to be mine. But the last thing I remember will be the first thing that I'll forget, which was the sound.
+
+I probably will never be able to make anyone understand how much I couldn't hear anything. 
+You can cover your ears, clog them, hell you can even pierce them and actually become deaf, and it still won't come close to the amount of silence I was exposed to.
+
+Perfect darkness wasn't just a sight any more, it was also a sound; and so it became a place. And if I wasn't already in Hell before, then surely this meant that I was dead. But I wanted to make sure.
+
+I don't remember what I said exactly, I could barely hear the sound of my own voice. I don't know if it was the dehydration or the throbbing pain, but at that time, uttering a word was the hardest thing I've ever done. The only words I manage to utter were “Take me-” 
+
+Did I mean home? Or some other place? I don't remember. I barely had time to guess myself, since I immediately heard a response.
+
+It was a purring sound, like one of a cat, and it was getting closer and closer. The more it did, the stronger it felt. To the point that it sounded like the entire ground was screaming, but in the same way that the inside of a seashell sounds like ocean waves.
+
+I was sure that this was the end, that I was getting crushed and digested by something so big that I will never be able to understand what even had occurred. But then, everything happened.
+
+My eyes were wide open all the while, so when I was greeted by the bright flash of a white light, it felt like my cornea was melting off. I turned around on myself, my hands on my face, screaming. And the scream seemed so loud that I thought that I pierced my own eardrums. Everything burned, and yet everything felt so cold. They were no in-between! It was either freezing or burning, light or dark, living or dead. And I didn’t know where I was.
+
+I read somewhere that childbirth is the most violent and painful step in a human's life, and that we are just lucky to be unconscious while it happens. I can now attest to that.
+
+My screams were instantaneously answered by a similar one that sounded bother further and higher than mine. And the same voice came closer to me, speaking in a language I did not understand at first. And then a sombre silhouette sat in front of the blinding that facing me, pulled me up and locked their eyes onto mine. Despite the heavy amount of tears still blurring my vision, I started to identify colours and shapes, like the one of a familiar face. “Bright blue eyes”, I said out loud with a voice that I could perfectly hear, when I finally was able to gaze at them. Their owner said that she was a friend of mine. The one with the apartment and the cat. But her name didn't ring any bells. 
+
+It doesn't look or smell like the flat I stayed at, at least not like the one I remember. The cat was there, next to her, still shy but not as much. I couldn't remember what he looked like before, and I don’t think I ever will.
+
+
+It happened while we were eating. 
+I started screaming and kicking out of nowhere, while still being sat on my chair. She tried to patch me up a little bit, asked me what happened? What I was feeling? I wanted to answer, but I stopped in my tracks, violently becoming aware of how insane I might sound. I’m scared to think of where this side of me came from. I didn't say anything interesting, so she said that I should see a doctor tomorrow, and I obliged.
+
+She's asleep now, and I’m writing all of this on a table that I knew to be white and covered with stains when I first left it. It stands here now, naked and waxed, taunting me. Serving as a reminder to push on with my story whenever I nodded off.
+
+It has already happened twice now. Since then, I don't remember the cat's name, my real friend’s face or even my address. I think I even forgot a whole chunk of my childhood; I had to look up what a “megalopolis” is since I last dozed off. And it seems like I didn't need to do it when I first started writing this. 
+
+I'm going to hide those pages somewhere inside my bag, hoping that I won't be another person when I will go through them again. That I won't be mortified by the lines that I'm putting down right now. But if you are reading this, I know what you're thinking. 
+
+You think that you might have dreamt it all, or that you were a victim of some kind of psychotic episode. You weren't. I wasn't, I'm sure of it. If you want proof, try to go back. 
+
+Even if you forgot all about it, I’m sure that you won't be able to see that staircase without feeling your whole body collapse. I know that you won't be able to enjoy the smell of gunpowder any more, or escape the need to throw up whenever you’ll taste your own blood.
+
+I don't know why I don't want to forget, it sure feels better here. Everything around me feels so alive. But I don't. And I can’t help but feel that I never really escaped.
+
+She asked me if I'd like to stay a bit longer. I didn’t answer, I’m letting you decide.
