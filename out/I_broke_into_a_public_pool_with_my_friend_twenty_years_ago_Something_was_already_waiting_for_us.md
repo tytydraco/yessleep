@@ -1,0 +1,143 @@
+I've been trying to write this for three years. Every time I get close I stop, because putting it into words makes it real in a way I can still, just barely, pretend it isn't. But I saw something last week that tells me it's not over. So here it is.
+
+\---
+
+The fence was easy. It always was. Julian went over first, the four beer bottles in his backpack clanking as he landed on the grass below. I followed, and the moment my feet hit the ground on the other side I felt it — a pressure change, almost, like the air inside the pool grounds was slightly different from the air outside. Thicker. Attentive.
+
+I didn't say anything. I was seventeen. You don't say things like that at seventeen.
+
+The pool lay in near-total darkness, broken only by pale light filtering through the trees from the street lamps outside. Built in the 1950s, the place carried the heavy geometry of socialist architecture that was present everywhere in this part of Germany. Though the pool sat close to the center of town, the cliffs surrounding it swallowed most of the city noise. By the time we crossed the lawn, only the wind in the trees and the faint hum of distant traffic remained.
+
+And one other sound.
+
+A soft, irregular dripping from somewhere near the diving basin. Rhythmic enough to notice, irregular enough to bother me. The pools had been drained for the winter. There was nothing to drip.
+
+I told myself it was a pipe. A leak somewhere in the filtration system. I kept walking.
+
+Ahead of us stretched the long rectangular swimming pool, beside it the shorter diving basin, separated by a narrow concrete walkway. And above it all, the diving platform — towering 10 meters over the water like a concrete monolith, silent and imposing.
+
+There was a figure standing at the top of it.
+
+I grabbed Julian's arm. He stopped.
+
+We both stood there and looked. The figure was perfectly still, standing at the very edge of the platform. Too still. Not the stillness of someone enjoying the view or steadying their nerves. The stillness of something that wasn't doing anything at all except standing there.
+
+"There's someone up there," I whispered.
+
+Julian squinted. "I don't see anything."
+
+I looked again. The platform was empty.
+
+I stood there for a long moment, my eyes moving across every shadow on that platform. Nothing. Just concrete and darkness.
+
+"You're freaking yourself out," Julian said, and headed for the ladder.
+
+I followed him. What else was I going to do.
+
+The metal steps rattled softly beneath our weight as we climbed. Halfway up I made the mistake of looking down. The lawn, the benches, the pools — already too far away. And the dripping sound was louder up here. Much louder. Coming from directly below, from inside the empty diving basin.
+
+I didn't look down into the basin.
+
+At the top, Julian walked straight to the edge while I stayed back, one hand around the cold metal rail, eyes adjusting to the dark. The platform was empty. Of course it was.
+
+But there was something on the concrete near the railing.
+
+A wet footprint. Just one, facing outward toward the edge. Too large to be a child's, too narrow to be a man's, and wet in a way that made no sense because there was no water within ten meters of where we were standing.
+
+I put my hand over it without quite meaning to. Still warm.
+
+"Julian."
+
+"What?"
+
+I didn't answer. I didn't know how to explain it without sounding insane.
+
+He handed me one of the beers. I took it. I used my pocket knife to pry off the cap and flicked it over the railing without thinking.
+
+It struck the concrete below. And then, a half-second later, there was another sound — quieter, wetter, wrong — like something shifting its weight on the floor of the empty basin.
+
+Julian hadn't noticed. He was sitting near the edge, one leg dangling over the dark.
+
+"Hey," he said. "Have you ever heard the story?"
+
+I knew the story. Everyone at school knew it. Two boys, refugees from the Kosovo war, strong alcohol, a warm summer night and a dare. One of them had backed up to the far end of the platform, taken a running start, and jumped the walkway into the main pool. Made it. His friend had tried to follow.
+
+Julian told it slowly, the way you tell a story you've told before and enjoy telling. When he got to the end he raised his fist and opened his hand in front of his face, his mouth forming a wet crushing sound.
+
+"He came down right on the walkway."
+
+The wind moved through the trees below us.
+
+"People say," Julian murmured, staring down at the walkway, "if you get enough speed, it's actually possible."
+
+And that was when I saw it again.
+
+Not on the platform this time. Down on the walkway below. The figure, standing exactly where Julian was looking. Same impossible stillness. Same position right at the edge of the concrete, facing the diving basin, facing up toward us.
+
+This time Julian saw it too.
+
+I know he did because he stopped talking mid-sentence. His whole body went rigid in a way that had nothing to do with the beer or the height.
+
+We stared down at it. It didn't move. It had no features I could make out from that distance, no clear outline — it was more like an absence of something, a shape defined by what it displaced rather than what it was. The shadows around it were wrong. They fell toward it instead of away from it.
+
+And then it looked up.
+
+I can't tell you how I knew. There was no face to read, no eyes to meet. But the quality of its stillness changed in an instant, the way a sleeping animal changes when it becomes aware of you without yet moving a muscle. We felt it the way you feel someone standing behind you in a dark room.
+
+Julian was on his feet. I don't remember either of us deciding to leave. I remember the ladder, the rungs slippery under my palms, Julian's feet clanging on the metal above me. I remember hitting the lawn and running without looking back, the fence, the wire biting into my hands, the street on the other side, the ordinary amber glow of the lamps.
+
+We ran for five minutes before we stopped.
+
+I looked at Julian. He was white to the lips.
+
+"What was that," I said. Not a question.
+
+He shook his head.
+
+We never went back. We never talked about it. Not once, not in the years that followed until we lost touch entirely. Whatever agreement we'd reached that night was wordless and absolute.
+
+Years passed. We moved to different cities, built different lives, and eventually stopped calling each other altogether. But I never fully lost that night. The warm wind, the black water, the thing on the walkway with its shadows falling the wrong way. It stayed lodged somewhere I couldn't reach, like a splinter buried too deep to find.
+
+I tried, eventually, to find out whether the story about the two boys had been real. I searched for hours and found nothing. No newspaper report. No record. Maybe it was invented. Maybe every town needs its own urban legend.
+
+Then I found Julian's obituary.
+
+Brief. Careful language. The kind of language people use when the circumstances are what everyone suspects but no one will say directly.
+
+I sat with that for a long time.
+
+\---
+
+Last week I walked past the pool. My parents still live nearby, so I pass it sometimes. It was renovated a few years ago — the concrete walkway demolished, the two basins merged into one long unbroken stretch of water. The specific geometry of that night, the gap, the distance that had defined everything, was gone.
+
+I don't know why I stopped.
+
+I stood at the fence for a while in the dawn, looking at the platform. And I did what I always do, what I've been doing for twenty years on balconies and bridges and the tops of parking structures — I calculated the distance. The arc. The speed. My mind does it automatically now. I've stopped trying to make it stop.
+
+The pool was empty. The lawn was empty. The platform stood against the darkening sky the way it always had, concrete and patient and still.
+
+I told myself there was nothing there. I almost believed it.
+
+And then my stomach dropped — the same way it had twenty years ago, before I understood what I was looking at.
+
+Not a movement, not a sound — just a shift in the character of the dark at the top of the platform. An attention turning. Something up there becoming aware that I was standing at the fence below.
+
+I left. I ran. I haven't slept properly since.
+
+I think about Julian on that platform, twenty years ago. His foot sliding backward. Whether he'd heard those words from someone too, in the dark, at the top of some platform he shouldn't have been on. Whether that's how it works. Whether it has always worked that way.
+
+Whether it's been working that way on me, slowly, ever since.
+
+Because I still calculate the distance. Every time. Automatically, without wanting to.
+
+And lately the number it keeps arriving at is the same one.
+
+And lately that number has started to feel like an answer.
+
+If anyone recognizes that pool: I don't know if staying away helps. I stayed away for twenty years and it didn't stop.
+
+But don't climb the ladder. Whatever you feel when you're standing at the base of it — whatever feels like curiosity or courage or just wanting to know — don't climb the ladder.
+
+It's been up there a long time.
+
+It knows how to wait.

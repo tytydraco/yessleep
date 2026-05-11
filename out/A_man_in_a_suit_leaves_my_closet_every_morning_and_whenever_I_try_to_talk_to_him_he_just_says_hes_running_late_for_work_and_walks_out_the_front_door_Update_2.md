@@ -1,0 +1,60 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1t6by4c/a_man_in_a_suit_leaves_my_closet_every_morning/), [Part 2](https://www.reddit.com/r/nosleep/comments/1t7f4wo/a_man_in_a_suit_leaves_my_closet_every_morning/)
+
+I’m writing parts of this post in advance, so I can get this next update up as soon as possible. Jamie just got here and he told me that while he was thinking about what I’d told him so far about this whole thing, he got an idea. He’s loosening one of the hinges on the closet door right now so the door hopefully won’t close all the way when the man in the suit leaves it tomorrow morning. The thought Jamie had is that maybe the physical act of the door closing could be what changes the closet back into a regular linen closet again. 
+
+We’re also planning to empty the closet so that we can check again for any sort of mechanism that would allow the man in the suit to enter the closet without alerting anyone else in the house—Jamie, like me, doesn't think it’s possible, so he wants to see for himself that there’s no other explanation for it. 
+
+\*\*\*
+
+After Jamie was satisfied that there was no false wall or secret door inside my closet, we grabbed some Wendy’s—there’s one practically right down the street—and brought it back to my house. We went back over what we already know as well as everyone’s suggestions while we ate, and Jamie suggested that instead of emptying my bookshelf that’s about the same size as the closet door and using it to trap or confuse the man in the suit, I should go into the closet and he could put the bookcase up on the other side of the door, closing me inside. Like one of you said, it would be a pretty solid recreation of the conditions—better than just shutting myself in the closet without the bookshelf, since I’ve tried that already—from the time that I was hiding in the closet of that one open house when I was five, and since I was the one who had the experience, the best recreation would be one with me involved rather than the man in the suit. Our theory right now is that maybe doing that would transport me to wherever the man in the suit is coming from.
+
+It’s not my favorite idea, if I’m being honest because it seems a little riskier than I’d like, but I think it’s still definitely worth a shot. We’ll probably still try to block the man inside too to see what happens when he can’t leave the closet, but there are other things that we can use to block the man inside that would probably be more effective and easier to manage. Honestly, an angled chair could probably do it since the floor in the hallway is carpeted so the chair legs would catch easier. 
+
+I also tossed out the idea that one of you mentioned about spending the night in the closet to try to catch a glimpse of how the man in the suit arrives/appears. I told him my plan regarding that idea: enter the closet just a few minutes before the man in the suit appears—since he seems to appear at almost exactly the same time every day (about 8:53 AM CST)—and wait to see how he manages to get into the closet in the first place, that way we wouldn’t have to try to suffer through a night of sleeping in what’s basically a tall, two by three box. 
+
+Another idea that I think would be worth trying is attempting to touch the man in the suit. I haven’t endeavored to make physical contact with him before, and since I’ve learned that he disappears from photographs after a short time, I told Jamie that I wonder if the man in the suit even has a tangible physical form. Obviously, he can open and close doors, so to some extent, he has to have a form with some degree of tactile presence, but it’d be good to know exactly how far it goes.
+
+Jamie says we could also just try leaving the closet door open to see if the man can still appear, or if the door has to be closed for him to be able to enter. But, we’ve agreed not to try too many ideas out at once because it’ll be easier to connect causes to effects if we don’t muddy the waters too much. That said, our plan for tomorrow morning is simply to see if Jamie can see the man in the suit too since so far I’m the only one that has, watch to see if the door not closing properly will keep the closet from changing back into a regular closet after the man leaves, and maybe to see if we can touch the man—we haven’t fully decided on this last one, but we’ve agreed to at least leave it on the table.
+
+I’ll type out the rest of this tomorrow morning after we’ve done our experiments.
+
+\*\*\*
+
+Jamie and I just got back from trying to follow the man in the suit to see where he goes after he leaves my house. Jamie’s planning on staying over again tonight so we can try a few more things, but before we get to that, I’m going to explain what happened as best as I can. I’ve called in sick, said I wasn’t feeling great yesterday and that it hasn’t gotten much better, and Jamie’s disc golf tournament looks looks like it’s probably going to get rained out—it’s supposed to start storming by around lunch time—so it looks like we’ll have the whole day to go over everything, attempt a few things we can do without the man in the suit, and plan for tomorrow morning.
+
+Jamie can see the man in the suit, and other people can too, but we didn’t find that out until we followed the man.
+
+However, our plan to loosen the hinges so the door wouldn’t close after the man left didn’t exactly go as planned. It was actually pretty disappointing. When the man in the suit left the closet and tried to shut the door behind him like he normally does, he noticed it wouldn’t go back inside the doorframe easily. Instead of leaving it open and going about his day, he studied it for a moment, opening the door wide and trying to close it again. While the door was open, Jamie and I were both able to look inside the closet and it didn’t look any different—it looked like any other closet. There wasn’t a portal to a fantastical or even another regular-looking place, it was just the same closet that it had always been, only empty now because Jamie and I took everything out of it last night.
+
+Eventually, the man shifted his weight against the door to lift it back into proper alignment as he shut it, and it closed, not easily, but it still clicked back into place. Then the man checked his watch and walked down the hall. It seemed to me like he moved faster this time, but I honestly can’t say for sure. One thing I can say for sure, though, is that as he opened the front door, he cursed his tardiness and set off across my yard at a dead sprint. Jamie and I hadn’t planned to go after him, but when he took off, we felt like we had to.
+
+He didn’t run along the sidewalks or streets, he ran in a straight line, between houses, through a drainage ditch a few streets away and then straight into the thicket at the opposite end of the ditch. Jamie and I weren’t able to gain any ground on him at all. Jamie got closer than I did to keeping up with him, but he still couldn’t seem to catch up with the man in the suit at all. Jamie was a sprinter on his high school track team. He joked about it and being a masochist all the time at work because he was the only person on the school’s team who had run the 800 meter race at every meet—nobody else wanted to because the 800 meter race is notoriously hellish so they only ran 800s when the coach told them they had to. In the end, Jamie’s speed didn’t seem to matter at all.
+
+I was about halfway across the ditch by the time Jamie reached the thicket that the man in the suit had disappeared into. A few moments later, I heard a handful of cars honk in pretty quick succession as brakes screeched. Jamie came back through the thicket as I was just about to enter it and he told me that the man in the suit had sprinted across the expressway before simply disappearing right as a lifted truck was about to run him down.
+
+Jamie said it looked like the truck had hit him, but instead of knocking him to the ground and running him over, the contact with the truck’s grill had made him vanish into thin air. The truck didn’t seem to be damaged or marked at all from what Jamie could tell before all of the cars continued on their way as if nothing at all had happened.
+
+We walked back to my house and sat on the porch while I called out of work since even if I left my house at that instant I would have been late. After I got off the phone, Jamie looked at me.
+
+“Did that all really happen?”
+
+“I mean, I think so,” I answered.
+
+“You said this guy’s been leaving your closet every weekday morning for like a month now?”
+
+I nodded. “Sure has.”
+
+Jamie stood and stretched. “Well, we’ve gotta figure this out now. It’ll nag at me if we don’t.”
+
+We both went inside and down the hallway. We decided to start clearing off my bookshelf so we can try a few things with it this afternoon, so that’s what Jamie’s been doing while I’ve been typing this up. We’re probably going to try to tackle as many of the ideas we have left as we can this afternoon. Some of the things we want to try require the presence of the man in the suit, so we’ll obviously have to wait to try those ideas out until tomorrow morning. That said, if you all think up any new things you think Jamie and I should try in the meantime, I should be able to check in frequently, so we’ll probably be able to do it either this afternoon or tomorrow morning. 
+
+Here’s a running list of the things we plan to try either today or tomorrow:
+
+1. Attempt to touch the man in the suit.
+2. Attempt to trap the man in the suit in the closet by barricading the door (possibly using the bookshelf to recreate the conditions from my childhood).
+3. Enter the closet a little bit before the man in the suit appears to see if (1) he can still appear in the closet with one of us in there and (2) if we can catch a glimpse of where he’s coming from or how he gets in.
+4. Enter the closet myself and have Jamie try to recreate the conditions from my childhood to the best of our ability by blocking the closet with the empty bookshelf.
+5. Have Jamie enter the closet under the same conditions?
+
+Hopefully, I’ll have more answers by this time tomorrow.
+
