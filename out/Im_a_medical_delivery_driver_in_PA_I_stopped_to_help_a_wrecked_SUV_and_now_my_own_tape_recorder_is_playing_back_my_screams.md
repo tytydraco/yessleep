@@ -1,0 +1,105 @@
+It was October 2022. I was working as a medical equipment delivery driver in Pennsylvania, a job that mostly consists of long, lonely hours and the smell of rubbing alcohol. It was getting close to 1:00 AM by the time I finished my last drop-off in Scranton. The air was heavy, the kind of damp cold that gets into your bones and stays there. Instead of taking the main highway, 
+
+I decided to take a shortcut through the backwoods towards Wilkes-Barre. I’d taken it once during the day, but at night... it was a different world. The fog was unreal. It wasn't just mist; it was thick, yellowish, and moved like it was alive. I could barely see five feet in front of my truck.
+
+About twenty minutes into the drive, the forest seemed to press in on the road. Total silence, except for the hum of my tires on the cracked asphalt. Then, I saw it. An old SUV sat on the shoulder. 
+
+The windshield was completely smashed inward, not like an accident, but like someone had used a sledgehammer on it repeatedly. It was parked at this weird, jarring angle... like it had swerved to avoid something that wasn't there. No lights. No hazard signals. Just a dark hulk in the fog.
+
+My gut was screaming at me to keep driving. Every instinct I had told me to floor it. But in these rural areas, if someone is hurt, they’re dead if nobody stops. I pulled over. 
+
+I left the engine idling—my first mistake—and stepped out. The cold hit me like a physical blow. It was silent. Too silent. No crickets, no wind, just the sound of my own shallow breathing.
+
+I called out, "Is anyone there? Do you need help?" My voice sounded thin and fragile in the fog. No answer. I walked closer, my phone’s flashlight cutting a weak path through the haze. 
+
+I peered into the SUV. The seats were empty, but the interior was... wrong. The upholstery had been shredded into long, neat strips. And then I saw the back. The rear door was cracked open. Inside were dozens, maybe hundreds, of shoes. 
+
+Old sneakers, high heels, heavy work boots, and tiny, colorful children’s shoes. They were all caked in fresh, wet mud. The smell hit me then—it wasn't just mud. It was the copper tang of blood and the stench of something that had been rotting in a basement for decades. 
+
+Suddenly, a branch snapped in the woods right behind me. A loud, sharp crack that echoed. I spun around, my heart leaping into my throat. Nothing but trees. But then... I heard it. A faint, rapid whisper coming from the darkness just beyond the treeline. It was a man’s voice, monotone and fast, reading a list of names. "Mike... Sarah... John... David... Mark..." 
+
+My name. He said my name.
+
+My blood went cold. I bolted back to my truck, stumbling over the uneven ground. I grabbed the door handle, but it didn't budge. I had left it wide open. Now it was shut tight. Locked. 
+
+I looked through the window. The engine, which I’d left running, just... died. The dashboard lights flickered and went black. And there, through the tinted glass, I saw it. A hand. A pale, grayish hand with unnaturally long, spindly fingers was resting on the steering wheel. Slowly, with agonizing deliberation, those fingers picked up my keys and laid them on the dashboard, right where I could see them.
+
+I froze. I couldn't even scream. My breath was coming out in thick, ragged clouds against the glass. The person—if it was a person—sitting in my driver’s seat didn't turn to look at me. 
+
+They just sat there, perfectly still. Their head was tilted at a sickening, sharp angle toward the right, almost touching their shoulder. It looked like their neck had been snapped and then reset incorrectly.
+
+I started banging on the glass, my terror turning into a blind, frantic rage. "Get out! Get out of my truck!" I screamed. The figure didn't flinch. 
+
+I reached for my phone to call 911, my hands shaking so hard I nearly dropped it. No service. Not even an SOS signal. Just a "Searching..." icon that felt like a death sentence.
+
+Then, the lights of the wrecked SUV behind me began to flicker. It was impossible—the car was a wreck, the battery should have been dead. But the headlights began to strobe. On... off... on... off. Each flash was like a camera bulb in the dark. And in those brief bursts of light, 
+
+I saw a reflection in my truck’s side mirror. 
+
+A man was standing directly behind me. He was wearing a mask made of thick, filthy leather that looked like it had been stitched together from multiple pieces of... something else. 
+
+I didn't think. I just ran. I scrambled away from the truck and lunged into the blackness of the woods. I could hear him behind me. 
+
+He wasn't running like a human; the footsteps were heavy, rhythmic thuds, followed by long silences, like he was leaping great distances. 
+
+I tripped over a rotted log and went face-first into a muddy ditch. I crawled into the hollow of a massive, dead oak tree and pressed myself as far back as I could, covering my mouth to stifle my sobs.
+
+I watched through the brush as he walked past. He was massive, at least seven feet tall, wearing tattered, grease-stained miner’s overalls. 
+
+He wasn't carrying a knife or a gun. He was holding an old, silver tape recorder. He stopped just ten feet from my hiding spot. The woods went deathly quiet. 
+
+He pressed a button. A voice hissed out of the small speaker. It was \*my\* voice, from five minutes ago. "Is anyone there? Do you need help?" 
+
+The recorder looped it. Over and over. He began to slow the tape down until my voice sounded like a low, demonic growl. Then he stopped it. 
+
+He stood there, sniffing the air like an animal. Suddenly, my phone buzzed in my pocket. A text message. In that silence, the vibration sounded like a chainsaw. 
+
+The man’s head snapped toward my tree. It didn't turn; it twitched. 
+
+I saw his eyes through the jagged holes in the leather. There were no eyes. Just bottomless, black pits that seemed to suck the light out of the air. The smell of wet earth and ancient decay became unbearable. He knew exactly where I was.
+
+I backed away, deeper into the shadows, my boots crunching on the dry leaves. The man started to laugh. It wasn't a vocal sound; it was the sound of metal grinding on metal, a rhythmic, mechanical clicking that came from his throat. 
+
+I scrambled out of the ditch and ran until my lungs felt like they were filled with broken glass. 
+
+Eventually, the trees thinned out and I saw a flickering neon sign in the distance. It was a run-down, roadside motel. The paint was peeling, and half the lights were burnt out, but to me, it looked like a sanctuary. 
+
+I burst into the lobby, nearly breaking the glass door. 
+
+An old man sat behind the counter, staring at a television set that showed nothing but gray static. He didn't even look up when I came in panting, covered in mud and blood. "Please," I gasped. "Call the police. There’s someone out there... he’s got my truck..."
+
+The old man finally turned his head. His eyes were milky with cataracts, dead and cold. He didn't reach for a phone. He just stared at my feet. "You’re delivery driver number four this week," he said, his voice raspy and hollow. 
+
+"What? What does that mean? Just call the cops!" I pleaded. 
+
+"Lines are down," he muttered, pointing a crooked finger toward a dark hallway. "The fog eats the signal. You can wait in the room at the end of the hall until morning. Nobody goes out in the fog."
+
+I was too broken to argue. I took the key he slid across the counter. I went to the room, slammed the door, and shoved a heavy dresser in front of it. 
+
+I sat on the edge of the stained mattress, clutching a small pocketknife I kept for opening boxes. I stayed like that for an hour, watching the door handle.
+
+Then, a soft scratching started. It wasn't at the door. It was coming from \*under\* the bed. 
+
+I froze, my heart stopping. A familiar \*click\* echoed in the small room. The tape recorder. "You’re delivery driver number four this week," the old man’s voice played back, but it sounded distorted, rhythmic. 
+
+I looked toward the corner of the room. There was a pile of clothes there. I crept toward them, my blood turning to ice. It was a delivery uniform. \*My\* uniform. The name tag on the chest read "Mark." I looked down at what I was wearing. 
+
+I was still in my clothes... but the uniform on the floor was soaked in blood and had deep, jagged claw marks across the back.
+
+I turned to the mirror above the dresser, desperate to see my own face, to know I was still real. But there was no reflection. The mirror showed the room, the bed, the dresser... but I wasn't there. It was like I was a ghost in my own body.
+
+Suddenly, a hand—the same pale, long-fingered hand from the truck—shot out from under the bed. It gripped my ankle with a strength that felt like a steel vise. I felt my bone creak under the pressure. 
+
+I screamed, stabbing at the hand with my knife, but the blade passed right through it like smoke.
+
+As I was dragged toward the dark void beneath the bed, my phone lit up on the floor. One new message from an unknown number. I caught a glimpse of it before the darkness swallowed me: 
+
+"Thanks for the new shoes, Mark. The fit is perfect."
+
+I don't know where I am now. It’s dark, and it smells like wet mud and old leather. I found a way to post this using a signal that comes and goes like a heartbeat. The police told my family that the motel I found burned to the ground thirty years ago. 
+
+They found my truck abandoned miles away, filled to the roof with shoes.
+
+I can hear the tape recorder again. It’s playing in the dark with me. It’s playing the sound of my own bones snapping, over and over. 
+
+And every night, I feel a pair of hands reaching into the dark, taking something else from me. First my keys. Then my truck. Then my shoes. I think tonight... they’re coming for my skin.
