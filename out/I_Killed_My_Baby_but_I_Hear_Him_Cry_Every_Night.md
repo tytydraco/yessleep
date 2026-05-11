@@ -1,0 +1,89 @@
+I did something bad, I killed my baby, and I think he wants me to come with him. I was scared– I’m still scared… but… it was a mistake, I shouldn’t have done it, and I’m so sorry. I keep trying to fix things, but no matter how much I struggle, he comes closer still. I don’t know what to do anymore. Maybe this is a plea for help, maybe this is an admission of guilt… or maybe this is one last goodbye, to my family, to my friends, to everyone.
+
+I don’t know.
+
+I grew up in a very strict Christian household, and when I say strict, I mean strict. There was a plethora of rules that I will never understand, but the only one that mattered for this story was that I wasn’t allowed to date until I moved out, much less be near a guy without parental supervision. It was oppressive, seeing all my other friends branch out and pull away, finding someone to love them.
+
+I think it started innocently, at least I like to tell myself, that at first, I just wanted someone to take care of me when I was sick, someone to love me when I was sad, but my fantasy quickly grew to something much more erotic. I wanted, no, I needed someone to satisfy my physical needs, my lust.
+
+The day I moved out, I begged my friends to let me come with them to one of the parties I’d heard so much about but was never permitted to go to. What a wonderful night it was, my memories are scattered, but I remember how great I felt… until the next morning came, and the guilt and regret began to grow deep within my mind.
+
+It would happen at night, just before I crossed the threshold into sleep, a flicker of guilt would grasp my insides, and squeeze ever so slightly, threatening to twist. It was subtle at first, but every night it would get a little worse, and the voice of regret would whisper into my thoughts, telling me I made a horrible mistake, and I had to come clean.
+
+But coming clean wasn’t an option in my mind, telling my parents, fuck that, I’d rather chew on a box of razor blades than listen to them lecture me about everything I did wrong in life, I’d find no comfort there, only hurt. So I went to my friends, and a load of help they were, they told me it was fine, everyone did it, and I just needed to grow up.
+
+A few weeks later, a missed period, and several episodes of nausea and vomiting later, I took a test, and it came back positive. Nothing could have prepared me for that second line, absolutely nothing. I panicked, I cried, I called my friends, but just before I could tell them what was happening, I got scared. I thought about telling my parents, but… that wasn’t going to happen. And without any other options, I resorted to… well some would call it a medical procedure, but I think it’s murder, and I was too scared to even consider my actions beyond how they would help me in the moment.
+
+It was just like any other doctor’s office, and almost just like any other check-up. I went in, they gave me a pill, and sent me on my way with a second medication to take later. The next couple of hours hurt; I bled a lot, but it was over in a day or two. I was overjoyed, happy to free myself from that stress, that burden, but it didn’t stay that way forever. Hell, it didn’t last to the end of the weekend.
+
+Once again, every night that same guilt visited me, that same horrible twisting feeling in my gut. This time, it didn’t threaten to twist; it shoved, pushed, and tore until I was bawling. But was it me who was crying? I felt my cheeks; they were dry. That wasn’t my voice, come to think of it, it sounded like a child’s voice. The sound disappeared. I told myself it had to be someone else in the complex where I was staying, but it was too late; fear had planted its seeds.
+
+Morning came, and I swore to myself that I would never do anything like that again. I swore that I’d tell my parents and talk to my friends. I was never good at handling things on my own, and that wasn’t changing today. Before I told my parents, I needed to talk to my friends.
+
+My best friend picked up on the first ring, and before I could open my mouth, she started to run hers.
+
+“Oh my gosh! I was just about to call you, there’s a party tonight at mine, and you should come!” She talked as if there was a time limit on our conversation.
+
+“I’m okay, I actually wanted to talk to you– “
+
+“Babes, you have got to come. Justin will be there.”
+
+Justin was a man from our college, whom I had the biggest crush on ever since I laid my eyes on him. The warm tingle in my stomach began to grow, and that same *lust* filled my every word as I said, “I’ll be there.”
+
+I’ll spare you the boring and erotic details, but sure enough, Justin was there that night, just as handsome as ever, and throughout the night, I won him over. My place was a five-minute drive from the party, and we could barely keep ourselves off each other to get there, that lust surging through my veins as I unlocked the door to my apartment.
+
+Sooner than I’d like to admit, we were in my bedroom, and… was he crying? No, that was a child’s wine, and he was taking his shirt off. Was he in the hallway? No, he was climbing on top of me, then whose footsteps were in the hallway?
+
+I screamed as I turned my head to face the doorway, a scream so loud my throat threatened to tear into pieces, an annunciation of fear so incredible, Justin leapt from the bed, looking around in a panic.
+
+Just down the hallway, the door to my bathroom was open, the expanse was solely lit by the dim orange light from my living room, but I could just barely make out a pale figure standing in the bathroom doorway. It was tall, so fucking tall it was hunched over, its hand holding itself steady on the roof of my hallway and the hinges of the door. It was strangely human, but childlike in its shape; every limb was broken in hundreds of different places, every joint bending in directions impossible for any other living thing. Its neck must have been broken too, seeing as its childlike head was hanging so far down, being solely supported by its shoulder.
+
+I said its head was childlike, but that was a fucking stretch. Its eyelids were stretched open, so far I wondered how they weren’t ripping, they were flipped inside out, the red of its insides the only color on its body. It looked as if someone had stretched them out, and they never found their way back to the proper place. Its mouth was in a similar distortion, its lips forced into a from so unnatural I thought I was seeing things. Just as I noticed it, the Child’s crying began to grow louder, and tears of blood streamed down its broken body.
+
+“What’s wrong? Did I do something?!” Justin yelled as I screamed again, leaping from my bed and backing myself into the corner, keeping my eyes pinned on the creature at all times.
+
+I couldn’t speak, just point, and when Justin followed my line of sight and my outstretched hand, he looked at me in a panicked confusion. He grabbed his shirt and ran out of my apartment, slamming the door shut.
+
+“Mommy?” A voice so broken, so childlike, but so distorted I almost thought it a hundred children screaming for their mommies, throughout my complex, but no, it was coming from that thing in the bathroom. “Why are you scared of me, Mommy? Why do you hate me?”
+
+Do not be deceived into believing the voice held any innocence, any confusion. As it spoke, it may have vaguely sounded like a child’s, but it was accusatory, it was harsh, it was cruel, and it was hateful.
+
+And as quickly as it had appeared, it dragged itself around the corner of the bathroom, and I quickly ran outside, where three of my neighbors were holding Justin hostage. I quickly explained that he hadn’t done anything wrong, that there was something in my apartment, hiding in the bathroom, and we needed to call the police.
+
+The police arrived soon after, and after a thorough search, they determined it was empty. They questioned both me and Justin, who was still being held captive by several of the other tenets who were sure he’d hurt me. After hearing his story, they recommended checking in with a doctor or a therapist of some kind before disappearing down the street. Everyone else quickly followed suit, Justin, my neighbors, and even me, as I found myself quickly disappearing into the fear that plagued my mind.
+
+I checked the bathroom, but there was nothing, no one. But I know what I saw, I know it was real, no matter what everyone else thinks. I could barely lie down in my bed without being paralyzed in fear and torn apart by my guilt.
+
+Guilt?
+
+Why did I feel guilty? I didn’t do anything wrong; it was a monster, a classic fairytale villain, not… But it called me mom.
+
+The next couple of hours were horrid; I didn’t sleep, and the thing started to cry again, fortunately staying hidden despite its wails. Morning came after what felt like years, but I didn’t move. After the sun rose, the crying stopped, and I finally felt at peace, finally felt safe. So, I closed my eyes. I swear it was only for a second.
+
+I woke to the sound of the bathroom door creaking open. Or was it closing?
+
+I shot up, too scared to scream, and stared at the creature in the hallway, contorted, and crying. It was unmoving, but it had moved. It was much closer now, halfway down the hallway, staring at me relentlessly through its bloodshot eyes.
+
+“Why do you hate me?” The voice seemed to stab me in the gut, the guilt wrenching into my insides.
+
+I slid out of my bed and backed into the wall, and tears streamed down my cheeks.
+
+“Don’t cry, mommy. Did you cry when you killed me?” Tears red like blood fell from its face.
+
+“I’m sorry,” I croaked, finding that my voice was missing.
+
+“Why did you hurt me, mommy? Why do you hate me?”
+
+“I…”
+
+“Why don’t you love me, mommy?”
+
+I cried for hours, until I found it nearly impossible to cry any longer. I don’t know how or when, but I think I fell asleep again, because one moment, the thing was in the hallway, and the next it was at my doorway, leaning inside, staring.
+
+So here we are, I think I’ve realized why I’m writing this now, not to say goodbye, not to ask for help, not a confession, but an apology.
+
+I’m so sorry.
+
+But I think it’s too late for that.
+
+It’s coming closer now.
