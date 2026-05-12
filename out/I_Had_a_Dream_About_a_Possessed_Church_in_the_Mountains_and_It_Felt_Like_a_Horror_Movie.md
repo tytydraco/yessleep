@@ -1,0 +1,79 @@
+My mother and I decided to hike to a church somewhere deep in the mountains. The trail was surrounded by tall trees, and the journey itself already felt exhausting. Halfway through the hike, we decided not to continue to the church we originally planned to visit because we were too tired. Instead, we noticed another church nearby, just across the trail, and chose to go there instead.
+
+What felt strange was that I never noticed the church before until we were already standing at its doorstep, as if it had suddenly appeared.
+
+Facing the church, there was a side wing on the right where people seemed to be entering. I hesitated because the entrance looked more like the way into a basement than a church. Someone assured us that it was the correct entrance, so we continued downward.
+
+Inside the wing, only a few people were seated, and the priest’s voice echoed so poorly that it was impossible to hear clearly. Because of that, we moved into the main cathedral. There were far more people there.
+
+That was when I noticed something unsettling.
+
+The priest was a woman, standing at the altar with two assistants behind her, one on each side. I brushed the thought aside and tried to focus on the sermon. But as I listened, I realized I could not understand anything she was saying. Her words sounded distorted, almost cartoonishly incomprehensible, yet somehow I felt certain that what she was preaching was deeply wrong for a Catholic church. Her voice was unnaturally deep, almost demonic.
+
+Then I realized something else.
+
+At no point during the Mass—not even at the beginning—had anyone made the sign of the cross.
+
+A wave of fear hit me. Quietly, I made the sign of the cross myself, trying to feel safe.
+
+As the Mass continued, the feeling of dread only grew stronger. I sat there waiting for it to end, hoping we could simply leave and go home safely. But it felt endless. There was no sign the ceremony was concluding, so eventually I decided to leave.
+
+The moment I walked out, the dream changed.
+
+My point of view remained inside the church, watching the Mass continue, but at the same time I could see myself outside from a third-person perspective, as if the dream itself had split apart.
+
+Then the priest suddenly announced attendance checking.
+
+That was when I knew something was horribly wrong.
+
+The moment they realized I was missing, the priest used some kind of supernatural force. My mother was lifted into the air, suspended helplessly, while parts of the church itself began defying gravity. The walls separated from the floor, floating upward to reveal hidden spaces between them.
+
+That was how they found me.
+
+I was in the side wing, kneeling beneath a black statue of Saint Michael the Archangel hanging from the ceiling. The figure was completely charcoal black. As I prayed, black smoke began pouring out of my body and drifting upward into the statue itself.
+
+They dragged me back into the main hall.
+
+At that point, I fully understood that both the church and the priest were possessed.
+
+While the others whispered among themselves in fear, someone discovered a wand that could supposedly exorcise possessed things with a single flick.
+
+Terrified, I used it on the church walls.
+
+At first, the priest smirked as if nothing had happened. But then the church slowly began to change. The blackened statues regained color. The burning crimson walls stopped smoldering. The gothic darkness faded piece by piece, and for the first time, I felt hope.
+
+But the priest realized she was possessed too.
+
+She grabbed the wand and used it on herself.
+
+Instantly, she was cured.
+
+But then we realized the terrible truth: the wand could only save one thing at a time.
+
+The moment the priest was cleansed, the church became corrupted again. The walls reignited with glowing cracks, black smoke filled the cathedral, and the entire building looked alive with evil.
+
+We escaped the church with the now-normal priest, believing the nightmare was finally over.
+
+We began hiking back through the mountains.
+
+Then the forest changed.
+
+The trees on the mountainside twisted their branches and leaves into enormous screaming faces. They roared and hurled branches at us as the church smoked behind us in the distance like something demonic breathing in the valley below.
+
+I panicked and ran.
+
+Behind me, I could hear everyone shouting for me to wait, but I kept going.
+
+I reached the top of the hill alone. The ground was covered in fallen leaves and shattered branches as though a storm had torn through the mountain. Around me, animals were being hunted and devoured by predators. Lions were everywhere, feeding on carcasses while the forest felt cursed and hostile.
+
+I became convinced that the church’s corruption had spread into the wilderness itself.
+
+I was terrified the lions would notice me, but they never did.
+
+So I ran downhill toward home alone.
+
+Even while hearing the others behind me, even my own mother, fear completely took over me. I didn’t think about saving anyone. I only wanted to survive.
+
+I reached home alone.
+
+Then I woke up.
