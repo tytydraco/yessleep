@@ -647,3 +647,5 @@ One blink; the whole lie snuffed out, every careful thread of light gone until t
 Our sanctuary carbonised.
 
 And the night readied to deal its hand.
+
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1taqs60/the_jungle_under_house_65_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
