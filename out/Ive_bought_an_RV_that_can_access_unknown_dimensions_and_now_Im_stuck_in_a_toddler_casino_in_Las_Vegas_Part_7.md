@@ -1,4 +1,4 @@
-I’ve always wanted to see Sin City. Maybe Sod and I can get married whenever we're there by some man in an Elvis costume. There is a slight issue when it comes to this dream. 
+I’ve always wanted to see Sin City. Maybe Sod and I can get married whenever we're there by some man in an Elvis costume. There is a slight issue when it comes to this dream.
 
 I'm flat broke.
 
@@ -208,13 +208,13 @@ I followed the abandoned road, narrowly squeezing through the gaps between the t
 
 *Great, now she can tell where the hearts are. It's never like a sexy power or anything.*
 
-I put Jayco in park and made my way to the log cabin. The mark on my face slightly burned, but I ignored it. My curiosity about what was within this cabin was nearly made me burst. We hadn’t found the location of a heart so quickly before and without issue.
+I put Jayco in park and made my way to the log cabin. The mark on my face slightly burned, but I ignored it. My curiosity about what was within this cabin nearly made me burst. We hadn’t found the location of a heart so quickly before and without issue.
 
 However, when we opened the log cabin door, we were immediately bombarded by the sounds of chips clattering, slot machines whirring, and people cheering. The space within was far larger than what the log cabin should have been able to accommodate. The casino seemed to go on infinitely in every direction. That, unfortunately, was the most normal thing about the casino. The entire casino was not only filled but staffed with babies and toddlers that not only sounded, but acted like adults.
 
 We were immediately greeted by a doorman wearing a bowl for a hat. He bowed deeply, despite being around a foot tall.
 
-“Welcome to Delicious, where gambling and nap time intertwin. May I help you exchange your tokens?” The child spoke not only eloquently, but as if they were a thirty-year-old man.
+“Welcome to Delicious, where gambling and nap time intertwine. May I help you exchange your tokens?” The child spoke not only eloquently, but as if they were a thirty-year-old man.
 
 “*Riiiiiiight*.” I turned to Sod, who wore a visibly disgusted look on her face. 
 
