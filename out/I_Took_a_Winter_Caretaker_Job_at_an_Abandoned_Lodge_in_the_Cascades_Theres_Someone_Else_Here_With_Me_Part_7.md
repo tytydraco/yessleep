@@ -134,16 +134,8 @@ The amber light spilled between us, and in it I could see him clearly for the fi
 
 What I was looking at was a man who had been alone for a very long time, with the only thing he had left sitting in front of him.
 
-He set his back against the opposite wall and slid down it until he was sitting across from me, his long legs folded at the knee. He looked at me the way a man looks at something he has been imagining for two years and is now, finally, determining the accuracy of.
-
-The fire in the woodstove made its small, patient sounds.
-
-Through the frost-covered east window at the end of the corridor, the first pale suggestion of dawn was beginning to find the edge of the Cascades.
+He set his back against the opposite wall and slid down it until he was sitting across from me, his long legs folded at the knee. He looked at me the way a man looks at something he has been imagining for two years and is now, finally, determining the accuracy of. The fire in the woodstove made its small, patient sounds, and the brass key was on the floor between us. Through the frost-covered east window at the end of the corridor, the first pale suggestion of dawn was beginning to find the edge of the Cascades.
 
 After a long moment, he spoke.
 
-"Two years," he said. His voice was low and unhurried, exactly as controlled as everything else he had done in this building. "I've been here two years."
-
-I looked at him across the width of the corridor. My hands were still in my lap. The brass key was on the floor between us.
-
-"I know," I said.
+"Ethan Vale." His voice was low and unhurried, exactly as controlled as everything else he had done in this building. "I've been waiting for you."

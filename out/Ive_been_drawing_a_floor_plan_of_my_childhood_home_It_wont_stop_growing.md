@@ -1,0 +1,57 @@
+My family moved around a lot when I was a kid. I lived in three houses before I was 10, and in one more while I was in High School. The first house that I lived in is the one I remember the least because I lived there from 4-8 years old. For some reason that really bothers me now.
+
+I'm in my 20s. Last year, I began going to therapy and my therapist gave me instructions to try something called "memory mapping." She told me to draw where I lived as a kid, as like a "floor plan," as much detail as possible. She said it could help me remember things better.
+
+So, I went home and began to draw. I started with the first house, which is one I cannot remember very well. I drew the front door, the hallway, the living room, kitchen and stairs. My bedroom was at the top of the stairs and my parents' room was across the hall. At the end of the hall there was a bathroom. That was it. It was a little house in a working class area. Nothing special.
+
+I studied the sketch for a while. There was an unpleasant sensation. It's as if it is like a word you see so much, and it becomes funny looking. I was not able to determine what it was.
+
+So I messaged my mom and asked her if our first home had a garage. She replied "yes, a single car garage on the right side." I added it to the drawing. It looked better.
+
+The following morning, I went back to the drawing and realized that the garage wasn't large enough. I can't explain it. It just didn't feel right. I had to make it larger. That helped.
+
+Next, the kitchen began to feel like it didn't belong. It took me a long time to get it just the way I wanted it. I included a pantry as I was certain we had one. To the bathroom upstairs I added a linen closet. I extended the hallway to give it more length, since it appeared to be too short.
+
+I made another call to my mom just to see. She affirmed the pantry and the linen closet. But when I told her about the hallway, she said it wasn't a big house and the hallway couldn't have been that long.
+
+I kept working on the drawing. I began using a ruler to measure each room and determined the scale. I summed all the square footage and the numbers didn't add up. The inside of the house was somehow bigger than the outside.
+
+I thought, "I must be making some mistake." It was a good idea to work it out from memory.
+
+I called my mom once again and asked her to walk me through room by room. She did. I took notes of everything. Her version of the house was completely normal. In my version, there was a room on the ground floor between the kitchen and the garage that she never mentioned.
+
+I directly asked her about it. I inquired whether or not there had been a room like a mudroom or a utility room. After a moment she said, "No. There was no need for a room to be there."
+
+I didn't leave it alone. I spent a long time sitting with the drawing that night and tried to remember that room. Not just think it was there... actually remember it.
+
+I remember a door. I remember the door being very heavy. I remember not liking to be near it.
+
+The next morning I called my mom again.
+
+At first she told me there was no room there.
+
+I said I knew that. I asked about the door.
+
+She went quiet for a few seconds.
+
+Then she asked, "What kind of door?"
+
+I told her I didn't know how to explain it. Just a door near the garage. Heavy. Wrong somehow.
+
+She didn't answer right away.
+
+Finally she said, "Your father covered one up before we moved in."
+
+I honestly thought she was messing with me.
+
+She told me there had been a door there, but Dad had it drywalled over. She said she never knew what was behind it. Dad never told her and she never asked.
+
+I asked her why she never asked.
+
+"Because your father was strange about that house," she said. "There were some things you didn't ask about."
+
+It was six years ago that my dad passed away. It was a heart attack. Nothing unusual.
+
+I still have the drawing. I've been trying not to add to it. I sat down last night and added another door. I don't know where it leads. I am not sure whether I remember it or if I'm losing my mind.
+
+The square footage keeps growing. I really fear if I continue to draw I'll remember what's inside.
