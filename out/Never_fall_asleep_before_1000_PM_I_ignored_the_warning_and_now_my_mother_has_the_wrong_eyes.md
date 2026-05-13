@@ -1,0 +1,35 @@
+​If you’re reading this, check your clock right now. If it’s only a few minutes until ten and you feel an unnatural weight on your eyelids... do not close your eyes. Fight it. Use coffee, energy drinks, or even physical pain, but don’t let sleep win before 10:01 PM.
+
+​I found out the hard way that the universe has a "glitch" that opens exactly at 10:00 PM. If you pass out before then, your consciousness doesn’t fall into a normal sleep. It slides sideways.
+
+​It all started on a tiring Tuesday. I was exhausted from my shift at the clothing store; my body ached, and by 9:45 PM, I was already under the covers. I thought, "What’s the harm in sleeping a little early tonight?" The problem is that when the clock struck 10:00 PM and I was already in a deep sleep, the world beneath my sheets changed.
+
+​I woke up with the sun hitting my face. It looked like a perfect Wednesday morning. I got up, went to the kitchen, and the smell of coffee filled my lungs. My mother had her back to me, humming a song I didn't recognize, but it sounded familiar in a disturbing way.
+
+​"Good morning, honey. You went to bed early last night, didn't you?" she said, without turning around.
+
+"Morning, Mom. I was just wiped out."
+
+​When she turned to hand me the mug, my blood froze. She was my mother. The same hair, the same apron... but her eyes. Her eyes weren't brown. They were a dull, flat gray, as if they had been painted over. And when she smiled, the movement was too slow—like her facial muscles were learning how to "smile" at that exact moment.
+
+​The coffee in the mug wasn't black. It was a deep, almost neon blue.
+​"Drink up, Fernanda. You don’t want to be late for your new shift, do you?"
+
+​I don’t have a "new shift." But in that world, nothing was what I knew.
+
+The street signs had symbols I couldn't read, even though I felt like I should understand them. I spent the day feeling like everyone knew I was an impostor. The smiles were too wide; the conversations were mechanical. It was like living inside a play where I was the only one without a script.
+
+​I discovered the way back by pure instinct: I needed to be awake when the glitch closed on this side to be "pulled" back to mine. I spent the entire day in that bizarre world fighting sleep. When night came and the kitchen clock hit 9:50 PM, panic set in. My "mother" sat at the table and just stared at me, motionless.
+
+​"You look tired, sweetie. Why don't you sleep now?" her voice was a flat, soulless drone.
+
+​I shook my head, hands trembling. 9:58 PM. The air around me began to vibrate. The smell of ozone grew so strong it made my eyes burn. 9:59 PM. The world began to dissolve like smoke. 10:01 PM. Silence returned.
+
+​I woke up here, in my beige room. I cried with relief seeing my real mother’s brown eyes the next morning. But now, it’s 9:56 PM. I’ve had a terrible day and sleep is coming like a tidal wave. The worst part is, while changing clothes, I noticed something in my pocket that wasn't there before. A blue metal coin, ice-cold, with the face of that "woman" who pretended to be my mother.
+
+​I didn't come back whole. And I think she’s waiting for me on the other side to swap places with me permanently. It’s 9:58 PM. Please, keep talking to me. 
+
+Don’t let me fade out.
+
+​— Augustine Vancce
+
