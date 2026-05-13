@@ -1,0 +1,187 @@
+Hey, so I’m in a lake house in the middle of the woods with my friends. We've only been here for a few hours, but everyone seems on edge, including myself. We found a goat in the woods and now they say they keep hearing things from the woods. I can’t hear anything, but I have cochlear implants and often miss small noises. They have been getting messed up though. I want to know if anything sounds weird from an outsiders POV, so I’m posting it here. I might as well start from the beginning.
+
+I have known for a long time that this town was fucked, especially the woods. I don’t know how true it is, but there was one nationally covered case from my town from when I was around two years old in 2006. It’s relatively known in conspiracy circles and has been covered by some horror youtubers and Missing 411 books. Some college kid disappeared off the face of the earth before, suddenly, returning. He came back with a ton of trauma, mental and physical, and said he was in Hell. Or rather he said it was like he was in Hell, I believe he's some kind of agnostic nowadays according to some of his newer books.  He just said he saw demons and shit.  Obviously this led to speculation of cults, ghosts, whatever. On top of this, like any small town we had decades of folk tales, urban legends, all trying to communicate to kids that they’re not to wander alone into the woods.  I was obsessed with them, reading and sharing them with friends late at night on camping trips. I just never thought I’d be front and center to it. Maybe they’re just gaslighting themselves or playing a prank, but it has definitely been weird.
+
+Until last week, I hadn't been back to Fallsborough, PA since I graduated high school three years ago. I have been in Philly, studying pre-med biology at UPenn while trying to keep some kind of social life. It did not work well. I found out quickly that it is hard to balance ivy league workloads with friends. I made some, but they were typically just study friends or people I met from my rock climbing club. I never really got too close to anyone, even my roommates. I didn’t party much because I couldn’t make time. Even when I could, the music fucks with my implants so I couldn’t really talk to new people unless they could sign. Unsurprisingly, few people know how, so I just try to limit the time I spend in noisy places so I don’t need to depend on it. The first few summers I just stayed, working on some internships so I can pad out my resume for med school. I started feeling profoundly alone in a way I can’t really describe. 
+
+They always say it's hard to adjust, but Jesus, I didn’t fully understand the depression that comes with it. So, since I felt like I had a good chance of just calling it all quits, I decided to take a summer off. I still had a great shot at med school, especially if I stay at UPenn. Three summer internships, shadowing during the semesters, a 3.98 GPA, scoring well on practice MCATs, on set to graduate a semester early. I was good. I just needed a break before my final semester. I of course would mix in MCAT practice. My test is scheduled for September, but I just needed rest. More than that, I needed to see my friends. 
+
+So, I called my mom, asked her if I could stay over for the Summer. She said of course, she missed her little girl. I only saw her when she flew me out to my uncle’s house in Vermont for my winter breaks. Besides that, I rarely saw her, though I tried to call at least weekly. So, on the final day of finals, I said bye to my professors, my advisor, and the scant few friends I made. Then I packed and went to bed. I didn’t text my friends yet about wanting to meet up, I kept in touch, but I didn’t want to risk them saying no too early. I knew that I wouldn’t go back if they said no and I knew that I needed to get away from the city. I like Philly well enough, but I felt like I needed to see those woods just one more time. 
+
+The next day, I woke up early, brushed my teeth before throwing my toothbrush into a ziplock bag. I bought a Rockstar from the vending machine down the hall because I packed up my french press already. My mom was supposed to be there like two hours after I woke up. I used that time to shower, which is a time I have come to cherish since I got my implants. Taking off the clunky ear piece is nice sometimes. Feeling the patter of water on my head, smelling the smell of my lavender soap, seeing the light interrupted by the smog of steam, all while in complete silence. It makes me feel serene, safe even if I am basically removing a sensory organ. 
+
+I was in there for almost an hour. Once I got out, I brushed my hair, did bare minimum skin care and makeup, and nuked and ate a frozen breakfast sandwich. After I finished my routine and packed, I still had an hour left that I just spent reading the Bell Jar. When my mom arrived, she called me, I got everything and put it in her car. I can drive, but I never bothered wasting money on a car because I live so close to campus. I offered to drive back, it’s nearly a three hour drive to and from Fallsborough, but she said,  
+	  
+“Nah, don’t worry about it, Willy. Your old mom’s still as energetic as ever. Plus I wouldn’t put my life in the hands of your driving.” She laughed in her obnoxious, charming way and checked me with her shoulder. I noticed she started signing but then switched to talking, it was kinda cute
+
+“Alright, ma. Whatever you say.” I laughed back. We drove back, mostly in silence. We talked a bit, mostly about school. It was weird talking to her, or talking at all. My voice is still weird to me, I had to readjust to talking and did some voice training, but its still weird. After a while I just stopped talking to my mom and decided to text my friends finally to make plans for next week. I made a group chat with my four closest friends, let’s just call them Ashley, Britt, Avery, and Skylar. All fake names. They're all girls except Avery. My dad didn't like me having a guy friend growing up. I think he still thinks we dated. That was never an issue with Avery, trust me, but he wouldn’t know that. He’s probably figured it out by now.
+
+ “Hey girlies (including Avery). How is everyone doing? I am back home for the summer ( for once) and want to see if y’all want to plan something. Could be fun”    
+  
+I sent it then ignored my phone for the rest of the drive. I simply just looked into the trees and let my thoughts run wild. I am an anxious person, but I like that. I like the tightness in my chest, I like feeling like something bad may happen. It helps me tune out things that actually matter. I ignored every buzz of my phone. I pulled out Wuthering Heights from my bag eventually and just read until we pulled up into that old driveway. That house was weird to see. It looked like many other 1860s Victorian style homes, but no house was exactly like it. It was full of me, of who I was. It was where my friends would hang out, where we told ghost stories. We used to think it was haunted, but it was just old.
+
+I walked in, plopped on the new couch my mom must have bought while I was gone. My mom said dad was in the room taking a nap and she was going to make me a snack. I used the time to browse on my phone. After a hearty amount of doomscrolling through Instagram reels to fully turn my brain off, I saw a notif from the group chat. When I checked the messages, I saw everyone responded. 
+
+Avery: “Fuck yeah, Wills. Need something to do while I’m back in this shit hole lol. I got my uncle’s lake house when he croaked so y’all can come here. Theres only 3 rooms though so the girlies gotta share”
+
+Skylar: Obvi bitch. I miss your face. I call sharing a bed with Willow. No homo 
+
+Ashley: Oh yeah, sure. I’m down
+
+Britt: As long as Avery kicks out his “roommate”. dude is weird
+
+Avery: Clyde is great once you get to know him. Plus he’s hot lol
+
+Britt: You just like his dick and the fact he has money to buy you things lol
+
+Avery: I plead the 5th 
+
+Reading this, I responded. 
+
+Me: Shut up lol. Well, that sounds like a plan everyone! When do we want to do this?
+
+Avery: Clyde should be going on a 5 day work trip starting next Tuesday so maybe then? I can get time off work but idk if y’all can. If not y’all have to deal with Clyde 
+
+Me: Work Trip? How old is Clyde?
+
+Avery: No comment 
+
+Ashley: He’s like 37 or something. He was friends with his uncle
+
+Britt: Hes also rich, so it’s basically a sugar baby sitch 
+
+Me: 37?!?!!?! Thats 16 years older Avery he’s like old enough to be your dad 
+
+Avery: Well, hed be a teen dad so its fine frfr
+
+Skylar: Its really not but enjoy it while you can bestie 
+
+Avery: I will thank you very much 
+
+Me: Man, I miss you guys  
+Be careful Avery. Seriously 
+
+Avery: Ugh, I will. I’m not stupid 
+
+Britt: debateable 
+
+Me: Any I think next week works for me guys. It will be nice to essentially have a full week together! 
+
+With that, my mom came back with a plate of cheese, crackers, and soppressata ( which is like spicy salami) along with a glass of Lambrusco. I hugged her and thanked her. I almost cried, as embarrassing as that is to say. It was the snack she always got me as a kid. Minus the Lambrusco obviously, she used to just give me juice. After she left to get some work done, I put The Ritual on the TV and just zoned out. My mom was used to me just watching whatever on the TV so she walked by unfazed.  My dad eventually woke up and came into the living room and saw me.
+
+“Oh, hey baby, you're home! Sorry, work kicked my ass last night, I would've picked you up otherwise.” he said, leaning down and hugging me with one arm. “God what are you watching?” 
+
+“It’s fine dad, I still love you. It's just a horror film. “ I said
+
+“Hmm, fair enough kid. Want to go fishing tomorrow? “ He said
+
+“Sure dad” I said, giggling. He nodded and walked away in his typical fashion.
+
+The rest of the night played out with nothing happening and I just ended up falling asleep pretty early. The rest of the week was much the same, just chilling out, watching movies, drinking wine, and fishing with my dad in a nearby lake. It was incredible honestly. I decided not to study at all the first week and just veg out until the weekend. Once it came, I just packed some spare clothes, some hiking stuff, a pair of boots and some climbing essentials. I didn’t think we had any good walls for climbing, but I brought stuff just in case. I would be pissed if we found a good wall and I didn’t have my shoes. I also brought a big water bottle because we had about a half an hour hike ahead of us. 
+
+Avery picked us all up in his SUV at around 4:00 PM yesterday. I was the last person he picked up so everyone was already there when I got in. I got the front seat though, which was nice. Avery signed, “Hey bitch.” before remembering he can just talk to me now. The rest followed suit. I was bombarded by a military barrage of “I missed you”’s and “How are you” and “Have you gotten laid recently” that was natural with my friends.  We drove about ten minutes down. I had to hear about all kinds of relationship drama from Avery and Skylar, some sports and school drama from Britt, ranting about books from Ashley, and complaining from all sides. I actually kinda got emotional because I got my implants at the end of high school. I didn’t have many moments where I could hear them. Their voices are different than I expected, like basically everything else.
+
+Avery’s Lake house is pretty isolated so he had to park about a mile away in a private driveway on the outskirts of the woods. Luckily there was an easy to follow path and it was like 2:00 PM. I grabbed my backpack which was about double the size of everyone else's. 
+
+“What the fuck Wills, what do you even need all of that for?” Skyler said
+
+“It’s mostly like climbing stuff. I don’t know this part of the woods so I packed some stuff just in case” I responded
+
+“And here I thought Britt would be the only one with a carabiner,” Avery interjected with a chuckle. Britt scoffed
+
+“Silence , twink” Britt responded mockingly.
+
+“Make me” He said back sarcastically. 
+
+“God you guys are so fucking annoying.” Skyler said, rolling her eyes. Ashley was just silently observing and smiling wide.
+
+“Maybe you’re just homophobic.” Avery said jokingly.
+
+“Do we want to start walking or are we just going to stand here?” I said, getting a little anxious. I think I came off as a little more mad than I wanted.
+
+“Woah, okay Wills, we’re just talking.” Skyler said, sounding slightly offended I think. 
+
+I decided to sign instead. “Sorry, I didn’t mean to come off like that.” before giggling. “I just want to get to the house and get drunk. My bad.”
+
+“It’s okay Wills, I’m sorry too. I should have known. I’m still thrown off by the fact that you like… speak” She said, smiling “You’re right though, we should get walking.”
+
+“Yeah, y’all have a point. I will deal with the rampant bigotry later.” He said, tapping Skyler on the shoulder, flashing a shit-eating grin, and turning to start walking into the woods. 
+
+The rest of us followed behind. It was mostly normal at first. For the first ten minutes Ashley and I were trailing behind the others. She was just signing to me about some book she was reading. I think it was called the Road or something. We have different tastes, but we always just give little book summaries to each other. I told her about Wuthering Heights up to the part I was on before I started telling her about rock climbing. I pointed out some steep rockfaces as we passed them, she said I was lame. It was nice to just be there in the moment with her. At one point, it was just us. Avery is the one I’ve known the longest, but we went to different schools until high school. Not going to air out her personal business here, but she is mute due to a childhood injury to her vocal cords. We met at lunch in like 3rd grade when my hearing loss was at the later stages.. She already knew how to sign obviously and I learned since I was little because the doctors knew I’d become deaf eventually. We could hear the others talking, but we just stayed in our little bubble of silence. Avery then proceeds to pop that bubble.
+
+“Hey, Wills, Ashley, come over here. We found a goat!” He yelled from ahead. I heard the others talking, but I couldn’t make out what they were saying.
+
+“A goat? In PA?” I yelled as I grabbed Ashley's hand and ran towards the others. Sure enough, he was right. It was straight up a goat. It was like pitch black, a couple feet tall, and had really big, curved horns. I really have only seen those tiny ones they have at fair petting zoos, so I was kinda freaked out. I was extra peeved out by how his eyes seemed to follow me. Those small, beady gold eyes with those freaky pupils. I hated it immediately.
+
+“See, bitch, it’s an actual goat. Like a big bitch too. I think its probably from a farm, but the closest one is like ten miles out. This boy was on a pilgrimage.” Avery said, feigning a deep, southern accent on the last sentence.
+
+“Pilgramage? Who the fuck are you? Ben Franklin” Skyler said 
+
+“I’m smarter than you, that’s who I am, bitch.” He responded
+
+“Does your decrepit sugar daddy teach you big boy words?” Britt said back
+
+“Isn’t the farm on like, the opposite side of the cliff face?” I interjected
+
+“Um, yeah, they’re goats, they can climb.” He said, slightly mockingly
+
+“You make great arguments for a self described ‘stupid twink’ “ I said, referencing a dating profile he had.
+
+“Don’t tell anyone, but acting stupid gets you the hottest guys. Luckily for Skyler she doesn’t have to act.” He said
+
+“Bitch, which of us is getting a degree.” Skyler replied
+
+“Well, I’m not in debt to learn about trees, so who’s really the smartest?” He retorted
+
+“You wouldn't be in debt anyway, nepo baby” She replied, clearly a little annoyed.
+
+“Lets just shut up and agree that both of you are stupid, okay?” Britt said, with a humorous exhale. She opened her mouth to speak again, but she was interrupted by a loud, sudden bleat. 
+
+“Woah, I don’t think he likes us… Wait, look at his eyes. Poor guy has cataracts” Avery said. I didn't notice at first, but he was right. His eyes were almost milky white, his horizontal pupils were just barely visible
+
+“Man, goats can climb even when they’re blind? Thats pretty neat.” I said, in fascination 
+
+“Hmm, I don't know much about goats in particular , but I don’t think that's possible. At least not that far. Maybe someone drove and dropped him off? Or it escaped from some kind of livestock truck?” Skyler said, thinking intently
+
+“Can they not just like, live here?” Britt asked
+
+“No, they’re not native. Basically every goat in the US is invasive, livestock, or a pet. Must’ve been on his way to be put down.” Skyler replied.
+
+“Bitch, you said you don’t know much about goats.” Avery said.
+
+“Well, I don’t know about their physical feats, I just know they’re an invasive species.” She replied 
+
+“This was really cool, but I think we should keep pace. It’s already 5:30.” I said, but in reality I was more scared of the goat than it getting late. It just made me uncomfortable. I’m not a skeptic, but not quite a believer. Any event can sway me, and this goat was making me believe in demons. So we got out of there.
+
+The rest of the walk was pretty uneventful. I was talking mostly to Britt and Skyler, but Ashley was following behind me. She would interject sometimes, but I would have to say some things back because the others didn’t see her. We were talking about the goat initially, but then we just went on talking about our lives mostly. I learned Skyler was planning to get a PhD, Britt might end up dropping out from stress, and Ashley has been focusing on her freelance writing gig more than her degree. We also talked mild shit on Avery to get his attention. He was walking ahead, mostly alone. He’d fall back and chat sometimes, but suddenly he seemed less chatty. It was nice, but pretty mundane. The only weird thing was with Avery near the end of the path.
+
+We were just walking, chatting about life when Avery stops dead and signals us to pause. 
+
+“Do you guys hear anything? I swore I heard  like a scream.” He said, his eyes were shifting.
+
+“I didn’t hear anything. Maybe you heard the goat? We are probably still close enough to hear it.” Skyler said. 
+
+“Yeah, you’re probably right. I’m going to stop being such a pussy.” He said before laughing nervously and turning around.
+
+We kept going without any further interruptions. We made it to the lake house by 6:00. A little longer than we expected, but not crazy.  When we arrived, we found the rooms and dropped our bags. I ended up bunking with Ashley, not Skyler because we decided it would be easier. Avery offered us some pizza which I happily obliged. I have no clue how he got it delivered, but I never asked. We hung out in the kitchen for a little bit, we didn’t really talk. Eventually we got bored and headed outside to the fire pit next to the lake. We lit it then just listened to some quiet music, talked a little about life, and ate some smores. 
+
+After a while we started telling ghost stories even though the Sun was still up as it was around 7:30. It began setting near the end of them though. I honestly was only half paying attention and the music made it hard to decipher at times. I’ve heard basically all of them before. Avery told the old “drip drip drip” urban legend with the dog. Skyler told a variation on the Wendigo myth and how a hiker who ate his friend became a monster. Britt did a half assed haunted house story. However, Ashley’s was different. Well I ‘heard’ it before to some degree, but not the exact variation. I have just been thinking about it ever since, mostly because of the goat.
+
+Hers centered on a figure common in the folklore around our town. It has had many names, the Many Faced God, the Stranger, the Nut Snatcher (that was the most popular), the Brood, etc. The ‘Nut Snatcher’ moniker is typically used when it's linked to missing persons cases. It's often said to kidnap crazy people or people with mental illness. This is what allegedly happened with the college kid I mentioned earlier, he just came back. That or it was a hoax, either is possible. Essentially it's a mimic or a shapeshifter depending on the version of the myth, though some argue the mimic and the shapeshifter are separate entities. Others think it's one entity that does both or two entities with the same MO. 
+
+In Ashley’s story, it functioned as the prior. It centered around a woman whose husband recently ran away. She went looking for him, knowing he was going hiking at Ricketts Glen. So she looked around, scanning everywhere until she found an elk with golden eyes that were clouded. As she saw it, as she looked in its eyes, she felt like her luck was going to change. When she walked deeper into the woods, suddenly, she heard her husband call. She ran after it, going through the heavy brush, wading through the stream, climbing on the rocks. His voice got louder and louder. She was crying with how relieved she felt, he was just right through those trees… then the story ends. Ashley smirked. 
+
+“That can NOT be the ending” Avery said, he looked visibly shaken, but engrossed. 
+
+“No one knows what happened. Can’t just make it up.” She signed, giving the coy look she gives to denote sarcasm. We all laugh before continuing on. The fire was down to coals by the time her story was done.  We added more wood and got it going again. We then just went on with talking. Avery and Skyler Bickered, Ashley and I signed about books, and Britt bounced between the two. We did this until sunset. We watched the crescent moon rise and the stars appear in the sky. It was nice. 
+
+However, from here, everyone began acting weird. It started with Avery. kept looking into the woods. He seemed to open his mouth to ask a question before closing it, trying to ignore whatever he thought. He was quiet mostly, though he still added some of his quips. I thought he might have just been tired at first. Then Skyler began doing the same, then Britt, then Ashley. They all seemed to glance into the woods. All in the same area. We were in a circle around the fire, but all of them contorted to look into the same block of woods. I asked them why, and each time they just said they thought they heard something.  I never heard anything. I’m chalking this up to them just hearing an animal that I can’t due to the limitations of the implants. The only weird thing I heard was some static, but that was relatively normal. After a while, they all agreed to go back inside because they were getting freaked out and I followed.
+
+We went in and started to watch a movie, some french horror film Avery picked out. However, apparently they still heard it, though they stopped reacting after a while. They all collectively decided to ignore it and keep going. There was still an air of dread on everyone’s faces. I was honestly getting worried so I recommended that we just watch something fun instead. I thought the horror aspect was just making things worse. So we put on some dumb youtube videos and everyone seemed to lighten up. Still, they said they heard something. Even weirder, the static began getting worse as it periodically appeared. I honestly started getting freaked out. 
+
+After a few hours we decided to go to bed. We didn’t drink on the first night so we have at least one day without a hangover. I got to sleep just fine, but it seemed Ashley was restless before I passed out. I woke up at 6:00 AM though and she was asleep, so I guess she was able to sleep in the end. I ran into Avery when I was making breakfast  though, who didn’t sleep at all. Granted he has a history of insomnia so this isn’t unheard of. He said that the noises didn’t stop until sunrise. Weird. I was going to ignore everything until my climb this morning. 
+
+There was a decently easy cliff just half a mile from the lake house, according to Avery, so I obviously went for a morning climb. I had all my gear set up, the ropes, carabiners, harness, the works. It wasn't too high, about 20 to 30 yards , but definitely high enough where I could seriously injure or kill myself with a free climb.  So I went up, working slowly. It was going well enough until the static started again. It was manageable at first, but it started to sound like an army of bees going into my ears. I tried to tough it out, but I couldn’t. I found a place where I could lean my feet against the wall and keep tension on the rope and took off the ear pieces so it was silent. I finished the climb with no further issues, but I never had static to that degree. I put them back on at the top, and it was still there so I took them off before belaying down. Once my feet hit the bottom, I put them back on and the static was completely gone. 
+
+It was probably just some sort of interference, but IDK. Everything else that happened I’m getting kinda nervous. I’m writing this a few hours after my climb and it's all just weird to me. Maybe y’all can tell me whether I should worry or not. I’ll update if anything else happens. I'm going to try to enjoy the rest of my trip.
+
