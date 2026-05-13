@@ -1,0 +1,750 @@
+The morning when God decided to talk to me again, I woke up tasting sand. Not real sand – you know that dry feeling that makes you choke on your own saliva. Sleep thinned out until the noise of garbage trucks outside brought me back to my bedroom. I stared at the ceiling, my temples aching, and I just knew today was going to be one of those days.
+
+
+
+I’d woken up at least twice in the night, each time my heart hammering. The last dream had been about water, or something resembling water. It kept changing and folding in on itself, like a tide moving upwards. Inside the tide, a voice whispered to me in a language I should have recognized but didn’t.
+
+
+
+I gave up on sleeping, just as the light started sliding through the edges of the shutters. I dragged myself into the kitchen and turned the coffee machine on. Its rumble filled the dark room while I leaned against the counter, scrolling through my phone with a still-sluggish thumb. My feed was the usual list of random world news.
+
+
+
+A pharmaceutical giant announced trials for a new mRNA flu vaccine. Under a sky covered in black clouds, a drone showed footage of bombed buildings in the Middle East. A science article talked about unexpected gravitational anomalies detected beyond the Oort cloud, which astronomers theorized might be a new dwarf planet. Right below that, a huge photo gallery of a pop star’s wedding that I’d bet would last less than a month.
+
+
+
+And then, as I waited for my coffee to cool down, I began my morning ritual. A habit I picked up years ago. I know it’s weird and never told anybody because they wouldn’t understand. I pulled up the live feeds one by one.
+
+
+
+I began with the courtyard of the Masjid al-Haram in Mecca, packed with all those people circling the centre. Then I moved to the Western Wall in Jerusalem, bathed in light. Then the muddy and crowded banks of the Ganges behind the Kashi Vishwanath Temple in Varanasi. The golden roof of the Jokhang Temple in Tibet. Dome of the Rock. The great Buddha.
+
+
+
+Normal. They all looked peaceful.
+
+
+
+After the coffee, I left my phone on the table and walked to the bathroom, stripping off.
+
+
+
+At 32, I make a living writing freelance for a local newspaper. I write pieces on subjects ranging from local politics to poverty, tourism fluff, and theology. I live alone in a two-room flat that I like to keep dark – two months ago I’d tried to explain this to the woman who’d come to interview me to write a profile piece for a literary magazine. How I prefer letting daylight in slowly. How I’d let the city in on my terms – and she’d described it as “Matteo lives in monastic darkness,” which I thought was unfair but accurate.
+
+
+
+See, I used to wear a collar. I was a priest. I’d spent four years telling people that every suffering had a divine purpose, until I chose to walk away. There was no romantic way out or a crisis of faith at midnight on my balcony. Not even a woman. It was slow and ugly – I don’t talk much about it. I was ordained at 26 and left at 30, with a bag and a letter; filled with that taste of disappointment that doesn’t really taste like anything and yet never leaves your mouth.
+
+
+
+And living in Rome after abandoning the Church felt like an ironic kind of self-flagellation. There was no escaping the bells, the swarms of tourists coming to see the bones of saints, the statues glaring from every corner… but mostly the view from my bedroom window. The Vatican was fifteen minutes away from my front door, and some days I could feel its weight from inside here.
+
+
+
+Water still dripped down my back as I stepped out of the bathroom with a towel around my waist. The bedroom remained buried in shadows. Breaking from habit, maybe because of the restless night, I walked over to the window, reached for the shutters, and pushed them open.
+
+
+
+Rome’s mornings in mid-spring smell like a mix of stone and asphalt, of exhaust fumes and the scent of fresh-baked bread coming from the streets. The city came in all at once. That particular light I called a “Sunday-morning-quality” even though it was a Monday; a woman on the opposite balcony watered a pot of flowers barely alive, while two guys argued down the street about a badly parked car. With their thick accent and dialect, and their hands doing half the talking.
+
+
+
+I exhaled and tried to release some tension. I was glad I hadn’t picked up my phone yet, because I would’ve dropped it. When I let my gaze drift up towards the dome of the basilica in the distance, my hand gripped the window frame so hard the paint crumbled under my nails.
+
+
+
+Above St. Peter’s Square, the sky was… angry.
+
+
+
+Swirling directly above the whole Vatican was a massive formation of black clouds. Rising from a point down on the pavement, they churned inwards like an endless spiral, heavy and thick, pulsing with a sickly purple undertone that devoured all the sunlight instead of blocking it. Like a tumour growing on the sky, it spanned at least a kilometre across. Deep inside that mass, flashes of lightning cracked across the darkness and threw jagged shadows over the basilica, making no sound at all.
+
+
+
+Where the darkness ended with an unnatural seam, the city was perfectly sunny – and fine.
+
+
+
+I gasped and took a step back. There’s something that I never tell anyone about myself. Something I always put off because trying to explain it is… complicated.
+
+
+
+See, for as long as I can remember, I’ve always been able to see these… anomalies. Like shadows of approaching grief. Things in the sky that nobody else can see. Not always and not in every place. As a kid I thought I was just ill. Hallucinations accompanied by migraines. I mentioned it to a doctor once and then never again because I’d learned to read the look on his face. But the clouds never stopped appearing.
+
+
+
+Before the cables of the Morandi Bridge in Genoa snapped and dropped 43 people to their death, there was a dense black fog hovering above it in every picture and video I saw. Every time news of a school shooting from the US or a terrorist attack reaches us, the images on the screens are blurred by a black mist. And the thicker and darker the clouds, the worse the death toll.
+
+
+
+They appear before something goes very, very wrong, right above the place it will happen. I can see it even in pictures or videos. Once, I tried to call the police. That went nowhere.
+
+
+
+The footage from the 2004 tsunami still haunts me for a reason nobody else knows. In a video from a beach in Thailand, on my screen, the sky was completely replaced by the same black tumour I was now seeing from my window. The volume of that darkness was so heavy it seemed to flatten the ocean before it broke. And all those people filming were blind to the endless vortex spinning above their heads.
+
+
+
+The scale of what I was looking at, right there above the Vatican, felt wrong. It stretched so far, burying the entire state under a roof of rot. I knew what it meant; a slaughter was coming. Hundreds, maybe thousands, were going to die soon.
+
+
+
+I stood at the window for a long time, still wearing only that towel around my waist. Long enough for the two arguing guys down there to run out of enthusiasm.
+
+
+
+The formation of black clouds didn’t move. Or rather it did – it was still churning in that slow inward spiral – but wasn’t going anywhere. It stayed there, right above the centre of the square, until I heard it. The sound silenced the noise of the city like a leviathan rising from the depths and hit my chest before my ears. Thunder, from a sky that, everywhere else, was blue and clear.
+
+
+
+Down in the street, some tourists stood just below my balcony consulting a map. A woman in a jacket carried grocery bags. They moved so normally, with no awareness of that colossal spiral looming just a few kilometres south.
+
+
+
+My laptop sat on my desk, with that blinking cursor on the empty page waiting for an article due by tomorrow, about uncivilised dog owners ruining public parks. I ignored it – threw on a pair of jeans and the first shirt I grabbed from the chair. I put on my shoes without bothering with socks. Then I snatched my keys and sprinted down the stairs to the streets.
+
+
+
+My car was parked on the pavement just outside. I got into the driver’s seat and drove aggressively into the Roman traffic, windows down, ignoring angry horns and a rider cursing at me near the Sisto Bridge. The Tiber glistened in the morning sunlight. Every time I had to stop, I leaned forward over the wheel and looked up through the windshield.
+
+
+
+The clouds were still there. From street level, they were disorienting. I’d lose them behind a building or a church tower, and then I’d come around a corner and they’d reappear bigger and darker. I cut past the old walls and hit the ring of traffic circling the Vatican exterior, pulling over in the first available space I could find. Half a block away, where dozens of other cars had done the same.
+
+
+
+Ignoring the officer who shouted at me about the parking, I got out of the car. Then I just ran towards the colonnade. For a mid-spring morning, the heat bouncing off the cobblestones was so intense it mixed with the smell of the city and made me sweat like it had been the hottest summer in ages.
+
+
+
+As I got closer, the mass of tourists thickened; the density that exists around St. Peter’s at any hour of any season. The enormous colonnade opened ahead of me; Bernini’s patient ellipse, gathering everyone in. And through the gap, I could see the obelisk and the fountains and the basilica beyond.
+
+
+
+Above it all, directly over my head now, was pure rage. Close enough it covered the entire visible sky, a swirling, apocalyptic cyclone grinding the air to dust. Tens of thousands of tourists walked around, oblivious, snapping pictures with their phones.
+
+
+
+I joined the long queue at the metal detectors, shifting my weight constantly, unable to stand still. I wiped the sweat from my forehead with the back of my hand. The police officer at the security monitor glanced up at me when my turn came. His brow furrowed and he asked, in a thick Roman accent, if I was alright or needed a doctor. He pointed out that my face was pale and I was hyperventilating. I muttered an excuse, grabbed my stuff, and walked through the security gate into the square.
+
+
+
+Under my shoes, the cobblestones seemed to vibrate with the thunder rolling inside the clouds. Among the movements of the crowd, I stopped and looked up. The cone of clouds, visible now from my position, made me almost collapse; it spiralled downwards and converged like a narrow tunnel onto a single point. Like an inverted tornado that touched the ground. An arrow made of angry weather.
+
+
+
+I turned and followed the point of it, tracking where it aimed. I shoved my way through the crowd, unable to hide the panic. Who cared if anybody was staring at me, or what they’d think? The arrow pointed straight into the centre of the crowd. My eyes tracked the lowest point of the black clouds.
+
+
+
+A young woman stood still maybe twenty metres from the obelisk, by herself. Everyone else in the square was in motion – even those who stopped to take pictures were gesturing or turning around. She was still among the shifting ocean of people, her hands hung at her sides. She stared at the basilica with such an intensity it terrified me.
+
+
+
+And the arrow ended right above her head. The sky screamed at her, converging all of its dark gravity onto her shoulders – but she didn’t even flinch.
+
+
+
+The square was filled with the smell of cigarette smoke and that stone smell that the city exhales when it’s too hot. Next to me, a tour guide was explaining something in Chinese to a group of tourists through a small microphone. Her voice cut through the chatter of a thousand people. A group of nuns walked by, laughing at something.
+
+
+
+Above it all, the sky was tearing itself apart. A low, continuous grinding moved through the air and the stone beneath my feet, making my bones vibrate. The black spiral rotated with that sickening noise, masked from everyone else but me. Fast enough that I could track its movement. There was no doubt – the tip of that cyclone of rot pointed directly at her.
+
+
+
+I shoved my way through the sea of people taking pictures and posing for selfies. My chest heaved and sweat dripped from my forehead into my eyes. I could hear my own heart pulsing so hard it made my vision shake. When I stopped a few metres from her, she hadn’t moved her eyes from the basilica façade. Heavy sobs shook her shoulders. Her cheeks were wet with tears.
+
+
+
+“Hey,” I gasped, catching my breath and wiping my forehead. “Are you ok? Do you need help?”
+
+
+
+She jumped and turned. The dark circles under her eyes and the paleness of her skin told me more than any words. From her reaction, I must have looked like a creep – struggling to breathe, my hair damp and sticking in every direction.
+
+
+
+“I’m fine,” she said. “Go away.”
+
+
+
+Someone bumped against my shoulder as I took a step closer. “You don’t look fine.” I tried to sound as safe as I could, but probably failed.
+
+
+
+Her face shifted. She spoke with a voice that was flat, emotionless, which for some reason I found scarier than if she’d been louder. “Leave me alone.”
+
+
+
+I took another half step. “You look sick,” I said. A bit ironic, since I was the one looking about to have a heart attack. “Just let me–”
+
+
+
+“I said get away from me,” she hissed like a cornered cat, shrinking back and clutching the straps of her backpack. “Or I’ll scream.”
+
+
+
+I threw my hands up and stepped back. “Okay. Okay, I’m sorry. I’m going.”
+
+
+
+I turned and walked away. Every beat of my heart made the pressure in my head throb. I kept glancing back over my shoulder. In my peripheral vision, she hadn’t moved a single step. And the clouds above her head never stopped spinning. A dark wind only I could see blew around her.
+
+
+
+Near the fountain on the right, two police officers were leaning against their car, chatting in the shade. I walked over to them and pointed vaguely into the crowd.
+
+
+
+“There’s a girl there, by the obelisk,” I said. “She looks like she’s having a medical emergency. She might need help.”
+
+
+
+They looked. She wasn’t hard to spot, the only person in the area not in motion.
+
+
+
+One of the officers, the taller one, nodded. “We’ll take a look.”
+
+
+
+They walked through the tourists as I watched from a safe distance, still catching my breath. They closed the gap and called her. Her head turned. Then, with whatever mechanism activates when your body knows before your brain can process it, her entire demeanour shifted in a fraction of a second. I could see it – the panic filling her face and taking full control.
+
+
+
+She spun around, shoved a couple checking a map out of the way, and ran. My eyes widened, trying to follow her. She ran well, which surprised me. A blind, panicked flight towards the denser part of the crowd, a direction that instantly made the pursuit harder. One of the officers shouted and began to chase her. The crowd parted in confusion. The other officer said something into his radio.
+
+
+
+Tourists screamed as she rushed through them. A stroller was knocked over – thankfully empty – when she darted towards the right colonnade. Nausea twisted my gut. Did I just set the dogs on her? What was going on?
+
+
+
+Heads turned and bodies stepped aside. An Asian tourist raised a phone; a woman pulled a child close without even knowing why. The entire St. Peter’s Square fractured along a line that moved with the speed of a girl in a light jacket that was too heavy for the heat.
+
+
+
+I didn’t run after the officers. The girl disappeared behind a group of maybe 30 people clustering around a guide with a yellow umbrella. The officers slowed, turned around. One of them had already peeled away to a different angle. For a few minutes, everything was worried movements and radio crackle, the bewildered looks of a hundred tourists staring, open-mouthed. When the square returned to normal, she was gone.
+
+
+
+The officers reached the colonnade, scanning the area. I looked up at the clouds. Still there, darker than before. The cone converging near the obelisk was gone. Now, a family stood there, smiling while taking a picture under the invisible darkness.
+
+
+
+I knew this place almost better than my own flat. If she had headed right, there was only one way she could try to slip out. The Borgo neighbourhood. I cut left, bypassed the main surge of the crowd, and slipped behind the columns where the shadows gave some relief from the heat. I walked down the perimeter, my eyes locked on the gaps between the pillars. An officer blew his whistle in the distance, and then his voice faded, lost in the maze of bodies.
+
+
+
+I crossed the street, constantly scanning the pavements, the outdoor bar tables, the souvenir stands and every moving face. I checked the first side street, then the passage between two shops hanging rosaries and magnets with the image of the Pope. It took nearly half an hour before I saw her. There, tucked in the space between a column and a souvenir cart piled with cheap Colosseum statues and snow globes. Half-hidden in the corner by the movement of people.
+
+
+
+She had her arms crossed and her chin down – like someone just waiting there, if not for the way she was looking at both ends of the street. When I stepped around the cart, she saw me and spun to her right, ready to disappear again into the traffic.
+
+
+
+“Please, don’t run!” I tried to keep my voice low, but clear enough for her to hear me. I raised both my hands to shoulder height. I stayed where I was, leaving a clear path to the street for her to cross. “I’m not with the police. It’s just me.”
+
+
+
+She pressed herself harder against the column. Her chest heaved. “Get away from me.”
+
+
+
+“I can’t,” I said, because it was the truth. Not with what was still swirling in the sky above us. “I just want to know if you’re okay.”
+
+
+
+“I said I’m fine.”
+
+
+
+“If you run out there right now, you’re going to get tackled,” I said when her feet shifted again. Keeping my breath steady was a challenge. “You’re standing in the most paranoid place on the planet. There are cameras and police everywhere. Running will only make you a target.”
+
+
+
+“Why did you call them on me?”
+
+
+
+“You looked like you needed help.”
+
+
+
+Silence. Around us, the streets never stopped moving. A van attempted to reverse into a space it didn’t fit. A group of people on bikes passed us.
+
+
+
+“I didn’t do anything,” she said, her voice came out cracked by a sob.
+
+
+
+“I didn’t say you did. I didn’t accuse you of anything.” I slowly shook my head and lowered my hands. “I just… I feel like something is very wrong right now and you–” I looked up at the clouds. “You are standing right in the middle of it.”
+
+
+
+She stared at me without answering; her eyes kept darting between the main street and me. Probably considering her options. I hoped she wouldn’t make the wrong choice – again.
+
+
+
+“Let me walk you out of here.” I offered a hand. “We just walk. No running. Nobody chases calm people looking at the sights. We cross the street and get out. I’ll get you something at the bar and then I’ll disappear. Deal?” I faked a smile.
+
+
+
+So we did it. We walked out. She kept a bit of distance; her arms crossed and her eyes trembling. And I kept my hands in my pockets without saying a word for the first minute. Because sometimes, the best thing you can do to make someone feel safe is just nothing.
+
+
+
+We reached the exit. No one stopped us or looked twice.
+
+
+
+She broke the silence. “You look like you’re about to pass out.”
+
+
+
+“Yes. I think that too,” I said.
+
+
+
+“How did you know where I was?”
+
+
+
+“I’ve spent many years in this place. I know how it works.”
+
+
+
+She narrowed her eyes at me. “Are they still looking for me?”
+
+
+
+“I don’t know. Probably.” I glanced back once, towards the basilica in the distance. “But they must be looking in the other direction now.”
+
+
+
+She hugged herself. “Why do you care?”
+
+
+
+The truth was going to be too complicated to explain. So I just said a different truth. “I don’t know.”
+
+
+
+We made it to a small bar tucked down a side alley. Inside, the air smelled of coffee and fresh-baked croissants. A ceiling fan wobbled above our heads, failing to do much against the heat. I got her a bottle of water and a cup of tea with a small slice of cake before we sat in the furthest corner. My head was still killing me. Because every time I glanced towards the window, I knew that black mass was still up there, covering the sky.
+
+
+
+Her feet bounced under the table and she constantly checked the main entrance. Adrenaline began to slowly fade from my veins, replaced by exhaustion. I pushed the bottle of water across the table and she took a small sip.
+
+
+
+“I’m Elena,” she muttered when I asked her name. She stared at the label on the bottle. “I’m 21.”
+
+
+
+“I’m Matteo,” I replied, with an open hand to my chest.
+
+
+
+She volunteered a few answers to more of my questions with the same flat, defensive voice. She used to study medicine, but had to drop out. She lived alone with her 5-year-old daughter, who was currently at school. She refused to tell anything else about either the father or why she’d dropped out. Or why she was crying in St. Peter’s Square.
+
+
+
+“I used to work there.” I leaned back against the chair and pointed a finger in the direction of the Vatican. “I was a priest.”
+
+
+
+Her eyes snapped up and met mine. “Is that why you’re obsessed with helping strangers?”
+
+
+
+“Maybe,” I added before she could say more. “I’ve spent four years inside those walls until I couldn’t take it anymore. You look at it and you see a holy place. But I look at it and I see the bishop hoarding real estate while people starve and freeze on the streets. Or cardinals covering up scandals to protect the… brand. Moving monsters to a different church to avoid lawsuits. The collar felt like a rope around my neck. I couldn’t even stand up anymore during Mass.”
+
+
+
+We talked for a while, but she refused to tell me more about her. I studied her face carefully. Sharing my personal experiences might have explained to her why I approached her in the first place. Why I recognized the look she had been directing at the world. Her grip on her cup loosened.
+
+
+
+“Do you live here?” she asked.
+
+
+
+“Yes. Very close,” I answered. “I’ve thought so many times about moving away.”
+
+
+
+“Why didn’t you do it?”
+
+
+
+“I don’t know.” I looked down on the table for a second. “Maybe because it would have felt like a surrender.”
+
+
+
+“Fuck,” she said when she checked her phone. “You distracted me. I have to pick up my daughter. Oh shit, it’s so late.” She scrambled to grab her backpack and struggled to pull it over her shoulders.
+
+
+
+“Do you have a car?” I asked.
+
+
+
+“No. I’ve got to run.”
+
+
+
+“My car is parked close, just a minute from here,” I said. “I can drive you. I know where the school is.”
+
+
+
+She stopped halfway to the door and turned to look at me. I could read the suspicion on her face. She analysed me. Searching for something. Maybe where the trap was. Or a reason why a stranger would offer her so much help. I just gave her a tired smile, but a real one this time.
+
+
+
+She took a heavy breath, adjusting the straps of her bag. “Okay.”
+
+  
+\*
+
+I hoped the interior of my car didn’t smell too bad after hours under the heat. Elena sat pressed against the passenger door, knees drawn together, and stared straight ahead at the traffic. Through the rear-view mirror, I couldn’t help checking the sky behind us. The swirling mass was still over the Vatican like a festering wound.
+
+
+
+I tried asking her some more basic questions during the drive. How long she had been living here, if she liked it – but her answers were mostly single words or awkward grunts. I guessed she was still waiting for the catch, the moment I was going to demand something in return for the help.
+
+
+
+We pulled up to a crowded elementary school just when the afternoon bell rang. Swarms of parents and children spilled out onto the pavement. Elena walked out without a word and into the crowd while I stood there, leaning against my car, arms crossed. Above me, the sky was clean, kilometres away from the black clouds linked to her.
+
+
+
+A minute later, she emerged back from the crowd holding the hand of a little girl wearing a pink Hello Kitty backpack. She had the same dark hair and big brown eyes. Seeing the two of them, hand in hand, brought back a wave of nausea. Whatever was coming… they were both standing right in its blast radius.
+
+
+
+“Thank you for the ride,” Elena said. “We can walk from here.”
+
+
+
+The little girl looked up at her mother and then at me. “Who is that mister?”
+
+
+
+“Hi, I’m Matteo,” I said, slightly crouching to her eye level. “And what’s your name?”
+
+
+
+She brought a tiny fist to her mouth, chewing on her nail. “Alice.”
+
+
+
+I gave her a smile. “That’s a great name. Like Alice in Wonderland.”
+
+
+
+“We really have to go,” Elena said, pulling the girl closer. “I need to get groceries before heading home.”
+
+
+
+Alice groaned. “My legs hurt, Mom. I don’t want to walk.”
+
+
+
+“I can drive you to the store,” I said, straightening up. “And then I’ll drop you at home. No problem, really. Let her rest, she’s tired. And it’s too hot to be dragging groceries around.”
+
+
+
+“No, we’re fine.” Elena glanced at her daughter. “I’ll carry you if you’re too tired.”
+
+
+
+“You’re both exhausted, come on.” I pointed out, trying to keep my voice gentle. “Just let me help. It’s not like I have anywhere else to be.”
+
+
+
+Oppressive heat radiated from the asphalt. She stared at me for a while, biting her lip. Then she didn’t say anything, just opened the rear door and let Alice into the backseat.
+
+
+
+ \*
+
+The store was calmer than the usual mess inside narrow aisles. And a welcome relief from the heat. I grabbed a cart and trailed slightly behind them, to give Elena enough space. The way she moved felt like she was on a timer. Her eyes stopped on the price tags for too long before dropping the items into the cart. Some cheap pasta, canned tomatoes and legumes, a small loaf of bread, some vegetables, some fruit. Alice occasionally pointed at a bag of cookies or a toy. Elena would slowly shake her head and whisper something about waiting until next week.
+
+
+
+She protested when I reached past them and grabbed the cookies Alice had been staring at and tossed them into the cart along with a bag of chips and a small pack of ice-cream; she even tried to put them back on the shelf, but I stopped her. When we reached the register, I stepped in front of her and tapped my card on the reader before she could pull out her own wallet.
+
+
+
+“What are you doing? I can pay for my own food,” she said.
+
+
+
+“It’s a gift,” I answered with a half-smile. “To apologize for bothering you so much.”
+
+
+
+Alice dug into the bag of cookies, raining crumbles on the backseat of my car as I drove to their block of flats. The neighbourhood was a row of decaying concrete buildings covered in graffiti with rusted balconies. Looking up, I had no need to ask which one was her building, not even on which floor she lived.
+
+
+
+Seeping out from the cracks around the third floor of the middle building was a thick black mist. Like smoke coming out from a burning house; or better, like fungus clinging to the bricks and growing all along the side with a pulse that belonged to a sentient being. I thought the storm over the Vatican was just a projection. But this – this was the source. Something hot and sharp struck me deep in the chest. I couldn’t stop here. I *had* to go inside.
+
+
+
+I grabbed the two grocery bags from the car boot. “I’ll carry these up for you.”
+
+
+
+“Stop, really,” Elena said, reaching for the plastic handles. “You’ve done enough.”
+
+
+
+“I’ll carry them up to your door, put them down, and leave,” I said and stepped past her towards the entrance. “Then you’ll never have to see me again. I promise.”
+
+
+
+She didn’t argue further. Our footsteps echoed in the stairwell. At her door on the third floor, she turned the key and ushered Alice inside. I set the bags on the threshold, already preparing a speech to beg my way in, because there was no way I’d give up right there. But Elena turned to me.
+
+
+
+“You can come in,” she almost whispered without looking at me. “I can make coffee. To thank you for… this.”
+
+
+
+The atmosphere inside the flat crushed me as soon as I stepped in, literally. The mist I’d seen from the street filled the whole place. To them, it was invisible; but to me, it was like everything was turning to ash. Gravity doubled. Every breath was an effort. It filled my lungs with phantom smoke.
+
+
+
+I scanned the living room. A normal couch, a TV, some scattered toys around, a small coffee table over a rug. No pictures of a dad. No men’s shoes by the door.
+
+
+
+“I’ll put these away,” Elena said, taking the bags to the kitchen. “Alice, go wash yourself, sweetie.”
+
+
+
+As the little girl ran to the bathroom, I noticed it. The mist wasn’t still. It moved, drifted down the hallway to pool at the back of the flat. I followed it, like a trail. The floorboards creaked under my shoes.
+
+
+
+The mist thickened before the doorway of the bedroom. I stepped in while Elena wasn’t looking at me. It looked perfectly normal. Just a room with an unmade bed, a closet, a large window, and an empty chair. But the mist spiralled upward in a thick and violent funnel to converge directly on the top of the closet. I had to squint through it, and spotted a large cardboard box shoved into the gap near the ceiling, draped with a dusty grey sheet.
+
+
+
+“What are you doing in here?”
+
+
+
+Elena stood in the doorway behind me. Her hands still wet and her face pale.
+
+
+
+That was it. The weight of the room turned oppressive. So I made a decision – I dropped the polite act.
+
+
+
+“There is something very wrong happening right here, right now, Elena. And I want to know. Tell me, what’s in that box?”
+
+
+
+“Get out of my house,” she said, her voice shaking.
+
+
+
+“No.” I took a step towards her, not caring what I must have looked like. “You were having a breakdown in the middle of St. Peter’s Square,” I said, taking another step closer. “Then you ran from the police like a criminal. You are hiding something massive up there… and I want to know what.”
+
+
+
+“Get. Out!” she yelled – but her face wasn’t angry at all. Not even scared. Her finger pointed at the hallway. “Now!”
+
+
+
+I pulled out my smartphone and dialled 112, leaving my thumb hovering over the call button.
+
+
+
+“You tell me what’s in that box, or I’m calling the police right now and we’ll see what you do then.”
+
+
+
+She froze. Whatever was left of her evaporated. She collapsed, sliding down along the doorframe, and sat on the floor with her face buried in her hands.
+
+
+
+“Stop–” she managed to say, before her voice broke into crying. “Please, stop. I didn’t want to do it, okay? I was never going to. I just couldn’t.”
+
+
+
+My heart hammered against my ribs. I lowered my phone. “What are you talking about? Do what?”
+
+
+
+“Make them pay,” she said.
+
+
+
+I grabbed that empty chair near the bed and dragged it to the front of the closet. She didn’t get up, didn’t try to stop me even when I stepped up to reach for that box. She just kept crying into her hands. I hauled it down, the muscles in my arms and back strained against the weight. Heavier than I expected. Something metallic clanged inside.
+
+
+
+I set the box on the chair and opened it.
+
+
+
+All my blood turned to ice in that moment. Lying on top of a dusty sheet were two guns, several loaded magazines, a heavy tactical vest, and – what horrified me the most – a thick belt wired with explosive charges and a taped detonator.
+
+
+
+The black mist slowly faded, dissolving like smoke drifting out of an open window. And yet, breathing became impossible. “What is this? Y–you were going to…”
+
+
+
+Her face was a mess of tears and smeared make-up.
+
+
+
+“Alice’s father was the priest in my hometown,” she whispered. “I was fifteen when he took me in the garden of the church, one night, after everyone was gone. When I got pregnant and told everyone, he denied it. No one believed me. They called me a whore, even my family. They threw me out.”
+
+
+
+She stopped, sobbing and hugging herself around the stomach. “He stole my life. My soul. And then he walked through that church every day in his clean clothes. I wanted to burn his whole world down.”
+
+
+
+I stepped away from that box of horrors and knelt in front of her. I wrapped my arms around her shoulders and pulled her closer. “You wanted to murder hundreds of innocents because of one person?”
+
+
+
+“I went there so many times… but I never found the courage to actually do it. I wanted them to pay. Isn’t that the reason you left? Because of the rot.” She choked on her own words. “I just wanted justice.”
+
+
+
+“You have every right to be angry,” I said, holding her. “But this… this won’t give you justice. This is insanity. It will just turn you into a monster. It will end with you and Alice dead.” I pulled back and looked into her eyes. “We have to call the police.”
+
+
+
+“No.” She shook her head, frantically. “They’ll take my daughter. They’ll put me in a cell.”
+
+
+
+“If you surrender, right now, if you call the police yourself and hand all these over before anyone gets hurt, the law considers it voluntary abandonment. You won’t face terrorism charges. I will help you. I will testify and find you a lawyer. I will make sure you and Alice are safe.”
+
+
+
+She stared at the open box, at the reality of what she had planned to do.
+
+
+
+I went on. “But you have to do it yourself. If you surrender voluntarily, a good lawyer can work with that. It doesn’t have to end the way you planned it.”
+
+
+
+“You don’t know that.”
+
+
+
+“I know more than you think,” I said. “And I promise I’m going to find you the best lawyer in the whole country. Today.”
+
+
+
+She looked at the box again. “Promise me Alice will be okay.”
+
+
+
+“She will. I promise.”
+
+ 
+
+During the next few hours, I stayed right beside her as the police and the bomb squad cleared the flat. I explained the situation to the chief officer, emphasizing that she surrendered on her own. Then the social workers arrived to take Alice. Elena hugged her and told her she would see her soon. I gave them all my contacts, promising to follow up in the morning.
+
+ 
+
+\*
+
+It was past midnight when I finally drove back to my flat. I dragged myself up the stairs; my body ached with the exhaustion of the longest day of my life. Without even taking off my clothes, I collapsed onto the bed, staring into the dark. I couldn’t believe it.
+
+I had done it. I had actually done it. Stopped a massacre. Saved hundreds of innocents, saved Alice, Elena, and maybe even myself from the edge of damnation. Then, I fell asleep.
+
+ 
+
+\*
+
+My shirt was glued to my chest with stale sweat when I woke up this morning. The only way I could describe how I was feeling was as though I had been poisoned. A massive headache pulsed around my temples and behind my eyes.
+
+
+
+I sat up with a groan and opened the drawer of my nightstand, fumbling until I found a pack of ibuprofen. I swallowed two pills without even water. Then I reached for my phone on the floor and lay back down on the mattress. It was almost eleven in the morning.
+
+
+
+The news app opened as I rubbed my temples. I scrolled through images of airstrikes in the Middle East – the dark clouds hovered over the photos of the bombed buildings. More political scandals. Another scientific article about the gravitational anomaly detected yesterday shifting and accelerating close to Jupiter’s orbit. I scrolled past a new movie announcement.
+
+
+
+I tapped on the live feeds for my usual ritual.
+
+
+
+The images loaded… but something was wrong. No, everything was wrong. It was supposed to be a sunny afternoon in Mecca. But the entire courtyard was buried under a churning, pitch-black vortex. People were running in chaos, their faces turned upwards. I stopped breathing.
+
+
+
+I switched to the Western Wall. The ancient stones were barely visible through a colossal thunderstorm that wrapped all of Jerusalem in a sickly, tumorous purple. Black cyclones sowed destruction across the sky above the Kashi Vishwanath.
+
+
+
+My heart burned with pain.
+
+
+
+I threw my phone onto the bed and struggled to rush across the room, grabbing the handles of the window and yanking it open.
+
+
+
+The Vatican was completely hidden; its sky had been… replaced. Where the basilica should have been, an apocalyptic nightmare erupted. The dark clouds I had seen yesterday were nothing compared to this. A boiling mass of absolute darkness swallowed the entire horizon, laced with veins of lightning that made no sound. And the pressure reaching my window almost shattered the glass.
+
+
+
+“*And the heaven departed as a scroll when it is rolled together; and every mountain and island moved out of their places*,” I whispered.
+
+
+
+I gripped the windowsill as my legs trembled. I saw it now. This had never been about Elena.
+
+
+
+“*The Lord hath his way in the whirlwind and in the storm, and the clouds are the dust of his feet*.”
+
+
+
+A chattering noise began to crawl through the air, like a swarm of a billion insects clicking their mandibles. As I stared, the black mass above the Vatican split. The sky opened to space. It peeled back like rotting skin to reveal a glistening membrane underneath. Pale and wet, spanning kilometres and shifting with the typical irregularity of a living being. A fragment of an anatomy so colossal and alien it defied comprehension.
+
+
+
+“*He bowed the heavens also, and came down*.”
+
+
+
+I fell to my knees, clutching my head as the sound vibrated into my skull.
+
+
+
+Humanity had been sending prayers upwards for as long as it had known how to kneel. Tens of thousands of years of words to something above that listened. And the signal accumulated across generations and languages and contradictory understanding, like a constant broadcast from every altar and stone where someone had folded their hands.
+
+
+
+The question I’d been circling since I was a kid, the one I’d ordained myself to answer and then left the institution that asked it… the question behind every vigil, every feed I opened in the light of every morning… 
+
+
+
+It had never been – *whether –* someone was listening.
+
+
+
+It had been – *what* – was listening.
