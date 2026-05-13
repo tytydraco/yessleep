@@ -1,0 +1,129 @@
+This happened more than 15 years ago in Guadeloupe, a French Caribbean island.
+
+At the time, I lived in a small town called Baillif, while my mother had just moved to another town called Petit-Bourg. I had never been to her new place before.
+
+Around the same time, I got hired as a school supervisor in Pointe-à-Pitre. For those who don’t know Guadeloupe, commuting from Petit-Bourg made a lot more sense than from Baillif, so my mother suggested I stay at her place during the week for work.
+
+But her house was... weird.
+
+Not haunted-weird. At least not at first.
+
+It was isolated in the middle of dense vegetation, accessible only through a dirt road. No real neighborhood. No street lights. Just jungle everywhere. The only nearby person was the landlord who lived farther away across the path.
+
+I spent the first few days there without thinking much about it. Work, sleep, repeat.
+
+Then one night my mother went out to spend the evening with friends, leaving me alone in the house for the first time.
+
+I got ready for bed, turned off the lights, and started falling asleep when I suddenly heard something above me.
+
+Footsteps.
+
+I opened my eyes.
+
+Silence.
+
+I went back to sleep.
+
+Again.
+
+Heavy footsteps directly above my head.
+
+I turned the lights back on and inspected the room from floor to ceiling. Nothing.
+
+The noise stopped.
+
+I lay back down.
+
+Then it started again.
+
+Now, I’m a very rational person. I don’t believe in ghosts or paranormal stuff. To me, those stories are entertaining, but they belong in the same category as fairy tales.
+
+Still… my brain needed an explanation.
+
+So I started searching the entire house like the dumb guy in a horror movie who slowly opens doors asking “Hello…?”
+
+Room by room.
+
+Nothing.
+
+At some point I genuinely convinced myself someone had broken into the house.
+
+I even unplugged the TV because I thought maybe electronics were randomly turning on. Then I unplugged the blender.
+
+Eventually I unplugged basically everything.
+
+Then the sound came back.
+
+This time accompanied by metallic chain noises.
+
+At that point, even my rational brain started struggling.
+
+Because I was now alone, in the middle of nowhere, hearing footsteps and chains moving above my ceiling in the dark.
+
+I called my mother.
+
+No answer.
+
+I texted her.
+
+Nothing.
+
+For almost 30 minutes, the sounds kept moving from one part of the ceiling to another.
+
+Finally, I decided to do the absolute worst possible horror movie move:
+
+I went outside.
+
+Pitch black night. No city lights. No visibility.
+
+I grabbed a flashlight but didn’t even turn it on because I didn’t want “whatever it was” to notice me.
+
+I slowly walked around the house.
+
+And then I discovered something I had somehow never noticed before.
+
+The back of the house was partially buried into a hill, almost like the terrain had collapsed around it years ago. From behind, you could actually climb the slope and access the flat roof.
+
+That’s when I looked up.
+
+And saw two glowing eyes staring directly at me.
+
+Not moving.
+
+Just watching me.
+
+Behind them was this massive dark shape.
+
+I should mention something important:
+
+I’m not just brave. I’m also stupid.
+
+So instead of running away… I walked closer.
+
+Then I heard grunting.
+
+And chains dragging.
+
+The thing moved backward.
+
+I finally turned on the flashlight and pointed it at the creature.
+
+And there it was.
+
+The biggest pig I had ever seen in my life.
+
+Not a normal pig.
+
+A monster.
+
+An absolute unit of bacon.
+
+For nearly two hours, I had convinced myself I was living through a paranormal encounter while this giant pig was casually pacing back and forth on my roof.
+
+What probably happened is that it had escaped from somewhere nearby while still attached to part of its chain. It climbed the hill behind the house, ended up on the roof, and either couldn’t get down… or simply liked hanging out there.
+
+Honestly, I find this story interesting because people often hear strange things or see something unsettling and immediately run away, probably because their survival instincts are far better than mine.
+
+The problem is that once fear takes over, imagination fills in the blanks. People end up interpreting what they experienced as something paranormal, when the explanation can actually be much more ordinary…
+
+or, in my case, covered in mud...
