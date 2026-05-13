@@ -1,0 +1,312 @@
+廻り道
+
+>The following document was recovered from the Tobari residence in Kakurega, Iwate Prefecture, during a property survey conducted in the autumn of 1993. It was found in the main house, on the desk in what appears to have been a study or workroom, weighted down by a small iron object whose nature could not be immediately determined. The document is presented here without alteration. Certain passages have been difficult to render legibly; where the handwriting deteriorates, transcription errors may exist. The surveying team noted that the property appeared to have been recently occupied. Food was present in the kitchen. A futon had been recently slept in. No occupant was
+
+# Day One
+
+I am writing this down because my mother would have written it down.
+
+That is the most honest thing I can say about why I'm doing this. Not because I think anyone will read it. Not because I have illusions about its usefulness. Because Tobari Keiko kept records of everything, every object that passed through this house, every client who came to the outer gate, every curse she identified and the method by which she sealed or severed or satisfied it, and she would not have understood a person who failed to document their own situation simply because the situation was personal.
+
+She has been dead for approximately a year. The letter informing me arrived six weeks ago, forwarded three times, catching up to me the way bad news always does, not all at once, but in stages, each envelope more battered than the last, the handwriting increasingly unfamiliar. I do not know who sent it. The return address is this house. There is no one at this house. I have been in Sendai for eight years.
+
+I arrived this afternoon just before four. The train to Hanamaki, then a bus, then a forty-minute walk because I did not think to arrange for a car and there are no taxis that serve Kakurega. I walked the last stretch in light rain, my bag over one shoulder, and when the gate appeared through the cedars I stopped walking without meaning to.
+
+I had been eight years building a life in which this gate did not exist. In which this property and its work and my mother's particular variety of professional certainty did not form the shape of who I was. Eight years is not nothing. Eight years is most of my adult life. I stood in the rain for what I think was several minutes before I walked through.
+
+The outer gate is weathered in a way it wasn't before. The ema rack has accumulated offerings I don't recognize, newer ones, relatively speaking, paper worn soft by seasons but not yet grey. Someone has been maintaining the incense stand. The ash is disturbed. This surprised me enough that I stood looking at it for a moment before I understood: the town still comes. My mother has been dead for a year and the town still comes to leave things at the outer gate, because the Tobari house is what it is regardless of whether a Tobari is in it, and the town's relationship with this property runs deeper than any individual occupant.
+
+I don't know how to feel about that. I have spent eight years learning not to be this family and the town has spent eight years behaving as if I still am. One of us is wrong.
+
+The house smelled like her. Specific and immediate, cedar and camphor and something underneath those that I don't have a word for, an old mineral smell like water over stone. I stood in the entryway until my eyes adjusted and then I stood there longer than that, because the smell had done something to the eight years and I needed a moment to find them again.
+
+Everything is organized. Of course it is. She was organized the way some people are religious, completely, and with the implication that disorganization was a moral failing. The shelves in the main room hold objects I recognize from childhood and objects I don't recognize at all, each with a small paper tag in her handwriting. The ledger is on the desk. I recognized it immediately: cloth-covered, worn at the corners, the same ledger she kept for as long as I can remember, though this is clearly a later volume. She went through them every few years. I have no idea what happened to the earlier ones.
+
+I didn't open it tonight. I set my bag down. I found sheets in the closet and made up a futon. I ate the food I'd had the sense to buy in Hanamaki, convenience store rice, onigiri going dry at the edges, a bottle of water. I sat with the smell of the house and the sound of the rain and tried to think clearly about what needed to be done.
+
+The practical facts: the funeral has apparently already occurred. This confused me when I first read the letter, I had assumed I was being called back to arrange it, but a neighbor I met briefly at the gate (an older woman I don't remember, who looked at me with an expression I couldn't read) confirmed that a small ceremony was held last autumn by the town's head priest. There is nothing for me to do in that regard. What remains is the property. What is in it. What to do with a house full of her work when I am not, have not been, and was not trained to be a proper practitioner.
+
+I will start with the ledger tomorrow. I will go into town when I know what questions to ask. This is what she would have done: gather information before acting, identify before engaging. Even if what I'm identifying is how to responsibly hand this off to someone qualified and return to my life.
+
+I woke once in the night. Very early, not yet light. I lay still for a moment trying to remember where I was, and then I remembered, and then from somewhere beyond the back of the house I heard—
+
+A tone. Low. A single resonance, the way a bell sounds not at the moment of striking but in the sustained moment after, when the sound has stopped being percussive and become something held in the air.
+
+I lay very still.
+
+It didn't repeat. The rain had stopped. I listened for a long time to nothing before I slept again.
+
+Old houses settle. Metal contracts in cold air. I am not my mother; I don't hear omens in every sound.
+
+# Day Two
+
+The ledger is written for someone who already knows what they're doing.
+
+I should have expected this. My mother did not explain things she considered foundational. She would not have written an introductory text; she would have written a working document, dense with assumption, referencing techniques and terminology the way a physician's notes reference anatomy, not defined, because why would you define the body to a surgeon? The ledger is for a practitioner. I am a lapsed practitioner at best, an enthusiastic bystander at worst, eight years out of practice and uncertain I was ever in enough to call it that.
+
+I spent the morning reading it.
+
+The first third covers objects in the house, each one catalogued, its nature assessed, its current state noted. The notes are dated, spanning the last two years of her life. Some entries have a status I can roughly translate as stable or dormant. A few say something closer to requiring attention with a date six months ago, then another date three months ago, then nothing. These are the ones that concern me.
+
+An object in this context is not an object in the ordinary sense. It is a vessel, something that has accumulated enough concentrated intention, grief, hatred, or ritual significance to develop what she would have called its own tendency. Her word for it, the one she used precisely and with care, was *katachi* (form, shape) in the sense of the form a thing wants to take when left alone. Curses, in her professional understanding, were not supernatural in the dramatic sense. They were natural. They were what happened when strong feeling was left without resolution, when ritual was completed incorrectly, when the dead were not properly attended. They accumulated. They spread. They followed the path of least resistance, which is almost always into other people.
+
+She had spent forty years collecting and containing the things this region had generated. The house is full of them.
+
+I went into town in the afternoon. I had a list.
+
+Kakurega is small enough that I recognized some faces and was recognized in turn, there is a specific quality to how people look at you when they remember you as a child and are now meeting the adult and finding the comparison instructive. I spoke with the owner of the small shop near the bus stop, an older man named Fujimoto whose grandson apparently has been having bad dreams and waking in the night terrified of the river. The river is several blocks from his house. He has never shown fear of it before. It started approximately two months ago.
+
+I noted this down without explaining why.
+
+Two other things I noticed: the family in the house closest to ours, the Sawadas, the family that has been neighbors to the Tobari property for as long as I can remember, have nailed boards over two of their windows from the inside. Mrs. Sawada, when I passed, looked at me from the end of her driveway with an expression I can only describe as relief. "You came back," she said. Not welcome home. Not my condolences. You came back, as if she wasn't sure I would.
+
+I didn't stop to ask about the windows. I should have. I will tomorrow.
+
+The evening entry in the ledger is brief and strange. My mother wrote about the old voice in a matter-of-fact tone that suggests she had mentioned it extensively elsewhere and was only noting its recurrence. She has not mentioned it anywhere in the sections I have read. The old voice, she writes, had been active again near the inner grounds. She noted this the way she would note the weather. The old voice is present, she wrote, as expected during this period. The inner grounds seal holds.
+
+The inner grounds.
+
+I had been avoiding thinking about the back of the property since I arrived. There is a section beyond the rear of the house, separated by a low stone boundary and a wooden gate so old the grain has opened, where the grounds extend into the tree line toward the shrine. The shrine has been there longer than the house. Longer than the family, my mother always said, though the family has been here a very long time.
+
+She writes about the inner grounds seal as a thing that exists. As a thing she made. The dates on the relevant entries begin approximately fourteen months ago, the last months of her life. She placed it knowing she was dying. She placed it deliberately.
+
+I looked out the rear window before bed. The wooden gate was visible in the moonlight, and beyond it, through the trees, I thought I could see—
+
+But I am tired. And the light was uncertain. And I am not my mother.
+
+# Day Three
+
+The Sawada windows.
+
+I went back in the morning and Mrs. Sawada let me in and showed me. The boards were over the windows on the east side of the house, the side facing our property. She had done it herself three months ago. She had woken in the night, she said, and seen something at the window, and the something had not been outside the window. It had been pressing against the glass from inside. She had not been able to see it clearly, she said, but she had seen the way the glass moved, and she had understood then that the glass was a surface and what was on her side of it was not the same as what was on the other side.
+
+I asked if she had heard anything.
+
+She looked at me very carefully before answering. "Your mother used to say that some things announce themselves with sound," she said. "Other things don't need to."
+
+She offered me tea. I stayed for an hour. She told me, in the slow oblique way of someone releasing something they've held for a long time, that the last months of my mother's life had been irregular. That she had sometimes seen lights in the inner grounds at hours when lights had no business being there. That in the final weeks the sound from the property, she did not specify what sound, had been continuous enough that she had stopped sleeping well. That on the morning she'd woken to find the house quiet again, she had known without being told that Keiko was gone.
+
+"It was like a pressure lifting," she said. Then, looking at me: "But it came back. Slowly. Over months. Like something filling back in."
+
+I thanked her and went home.
+
+I catalogued the objects today as best I could against the ledger. There are thirty-one objects on the main shelves. The ledger covers twenty-eight of them. Three have no entries I can find, small things, easily missed: a folded paper envelope sealed with red cord, a lacquered box about the size of a fist, and a ceramic shard that I initially took for a piece of a broken dish before I noticed it had been separately boxed and labeled in an older hand than my mother's. Her mother's, I think. There are ledger entries for objects that are not on the shelf. Some of these may have been resolved and removed. Some may be elsewhere in the house. Some, and I stopped reading when I reached this possibility, may have gone somewhere on their own.
+
+The three with no entries are the ones I am most concerned about.
+
+At the end of the day I went to look at the wooden gate.
+
+Up close, the seal is obvious if you know what you're looking at, and I know enough to recognize the shape of it even if I couldn't have constructed it. Folded paper. Specific cord. Characters written in a hand that shook slightly, the brushwork of someone working carefully near the end of their strength. It covers the gate and extends along the stone boundary on both sides. Parts of it are intact. Other parts, where weather has gotten to the paper, where the cord has frayed, look like something being slowly erased.
+
+Beyond the gate, between the trees, the shrine is not quite visible. But the path to it is.
+
+She placed this seal knowing she was dying, knowing she would not be here to maintain it, knowing what was beyond it and what would happen if the boundary degraded.
+
+She did not call me home while she was still alive. She let me go eight years ago and she did not call me back. Even at the end.
+
+I have been sitting with that for hours and I don't know what to do with it yet.
+
+# Day Four
+
+I dreamed about the shrine.
+
+I don't remember the structure of the dream, only the image I woke from: the inside of the shrine, a space I have never actually entered, lit from no direction I could identify, and in the center of the space a frame of dark wood hung with something I couldn't see clearly because I was approaching it from behind. The frame. The hanging thing. My own footsteps on the floor, each one landing in a silence that absorbed sound rather than simply being empty of it.
+
+Then the bell.
+
+I woke and the bell was still sounding. This is how I know the dream transitioned without a break, I was in it and then I was in the dark room and the sound was continuous, a low resonance that I felt in my back teeth and in my sternum before I heard it properly with my ears. I sat up. The room was dark. The sound continued.
+
+I counted.
+
+I do not know how many times I counted. This is the part I have been sitting with all day, more than the sound itself, more than what it implied: I counted, and I kept counting, and at some point I realized I could not be certain how many I had counted so far, the way you lose count of breaths in the middle of the night when the brain unspools a little. I counted until it stopped. I don't know the number.
+
+In the morning the ledger had a new entry.
+
+This is not possible. The ledger was my mother's. She is dead. The entry is in her handwriting, not a close approximation, not something that could be misread as resembling her handwriting in poor light, her actual handwriting, the slight backward lean of the characters, the way she pressed harder on downstrokes. It is dated today.
+
+It says: The seventh day is the threshold. You know this already. You have known it every time.
+
+Every time.
+
+I have read this four times. I am writing it down here because I need to look at it in my own handwriting and see if it still says the same thing.
+
+*Every time.*
+
+I spent the afternoon going through the outer sections of the property more carefully than I had before. I found, near the east boundary wall, a small object half-buried in the leaves, a tied bundle of paper and cord that I recognized as a kuden seal of a type my mother used for minor tatari, a field expedient, something you placed quickly and replaced with a proper solution later. It was old. It had been there for, I don't know how long. Long enough that the cord had become part of the ground, long enough that when I freed it from the leaves I found that the leaves beneath it were different from the leaves around it, a different quality of decay, as if they had been there longer.
+
+The seal had not been placed by my mother. The handwriting on it is different.
+
+The handwriting is mine.
+
+I have written this down. I have looked at it. I do not have an explanation. I know my own handwriting and this is it. I have not placed any seals on this property. I arrived four days ago. This seal has been here for years.
+
+I made dinner. I ate it without tasting it. The bell did not ring tonight.
+
+I am thirty-one years old. My mother is dead. I came here to settle an estate and I do not know anymore what I think is happening.
+
+# Day Five
+
+The seal on the inner grounds gate failed sometime last night.
+
+I noticed it this morning. The paper had dissolved, not torn, not fallen, simply gone, the cord lying loose on the ground like something that had been holding nothing for a while. The gate was not locked. It had never been locked, I think; the seal had been the barrier and now the seal was gone and there was only an old wooden gate with a corroded latch.
+
+I stood at it for a long time.
+
+Then I opened it and went through.
+
+The inner grounds are not large. Perhaps thirty meters from the gate to the shrine, through cedar and old pine, a path so established its edges have grown into smooth ridges of compressed earth. The trees here are older than the ones outside the boundary, I don't know how to explain that except to say that the light through them is different, the quality of shadow different, the sound of my footsteps absorbed in a way that made me conscious of the act of walking. I walked slowly. I wasn't sure I wanted to arrive.
+
+The shrine is small. The word hokora (wayside shrine, a small private structure) is more accurate than the larger word, but that undersells it. It is old. Older than anything else on this property. The wood is dark with decades and the roof is shaped in a style that makes me think of something my mother once said about it: it predates our family's work. Whatever the first Tobari thought they were taking custody of, they were wrong about its age.
+
+In front of the shrine there is a frame.
+
+It is perhaps two meters tall, wooden, very dark, planted in the earth. The cross-piece at the top has an age-smoothed channel worn into it as if by long contact with a rope or cord. And hanging from the channel, suspended by a cord that must be newer than the frame though it doesn't look new, is a bell.
+
+Dark metal. The character 廻 around the rim, repeating. The same character as the title of this entry, the character on my mother's ledger, the character I have seen without noting it on small objects throughout the house for four days.
+
+There is a stamp on the lower body of the bell, partially obscured, a maker's mark, I assumed, or a foundry seal. I could make out two characters through the verdigris: 無間. A name, I thought. I did not think about it further.
+
+I stood in front of it for a long time.
+
+To the left of the frame, in the shadow of the shrine's eave, there is a shape. Seated. Still. A statue, I told myself, looking at the posture, the settled quality of it, the way it seemed to occupy the ground rather than rest on it. In formal robes deteriorated to a texture more like bark than fabric. A wooden figure, I told myself, and walked back to the gate, and latched it behind me, and stood for some time with my back to it and my hands not quite steady.
+
+A wooden figure.
+
+I went inside and found the first volume of the ledger in a cedar chest beneath the study desk. My mother's mother's entries. And before that, in the same chest, a third volume in a different hand again, older, the paper browned at the edges. The earliest entry I can find is dated more than a hundred years ago.
+
+I did not read much. I read enough to know that the Tobari have been aware of the bell for longer than my mother was alive, that the bell is not new, that its nature has been understood in this family for several generations. I read the word fudo  (immovable) used as a description rather than a name, used in reference to something described as patient in the way only something eternal can be.
+
+Then I closed the chest. Then I opened the current ledger to a page I had not read carefully enough before.
+
+She writes, near the back, in the entries that begin to skip days as her health declined: The bell must not be rung by someone who believes it will help. This is the mechanism. This is the nature of what is below. It feeds on the intention of resolution.
+
+She wrote this. She knew this. She placed a seal on the inner grounds knowing the bell was there, knowing what ringing it would do.
+
+She let me go eight years ago.
+
+She did not call me home.
+
+I have been trying to understand this as something other than what I think it is and I am running out of ways to try.
+
+# Day Six
+
+I went back to the shrine today.
+
+I want to write that I went deliberately, that I made a decision with full awareness, but that would not be accurate. What happened was more like: I woke up, and the day had a direction, and the direction was the inner grounds, and I walked through the gate with the quality of someone following a thread rather than making a choice.
+
+The figure to the left of the frame.
+
+I looked at it for longer this time. I stood close enough to look directly at it, which I had not done before.
+
+It is not a wooden figure.
+
+I want to write this clearly and accurately, without drama, the way my mother would have written it: the figure seated to the left of the bell frame, in deteriorated formal robes, is the remains of a person. Has been a person. The posture is not the result of carving or construction. The posture is the posture of someone who sat down very deliberately in a specific position and did not get up. The robes are what remains of something formal, ceremonial, the kind of thing someone would wear to perform a significant ritual. The face — I looked at the face—
+
+I am going to continue.
+
+The face is inclined slightly forward, as if focused on something at the level of the bell's striker. As if waiting for the bell to be struck, or as if having just struck it. Attending, still, across a hundred years, to the result of what they set in motion.
+
+Around the base of the figure, on the ground, there are objects.
+
+Small things. Familiar things. A tied bundle of cord and paper that I recognized as similar to the seal I found at the east wall. A flat river stone with a character brushed on it that I couldn't read in the light. A folded envelope, I have seen this before, I thought, and then I understood where: there is an object on the shelves in the main house with a small paper tag in my mother's handwriting, and the description she wrote matches this envelope in enough particulars that I feel certain they are of the same type, made by the same hand, separated by some distance I don't understand.
+
+A stub of pencil. The kind you could buy at any stationery shop. Ordinary. Unremarkable. Except that I recognized it. I own a pencil like this, I have had it for years, I thought I'd left it in Sendai and now I was looking at it on the ground of this shrine and I do not know how to account for that.
+
+I have been here before.
+
+I wrote that last night without meaning to and then continued as if I hadn't. I am going to look at it now. I have been here before. The seal at the east wall, in my handwriting. The pencil. The objects that are mine but could not be here, that are here.
+
+The ledger entry from a hand that should not be writing in it anymore: You have known it every time.
+
+Every time.
+
+I sat with the skeleton at the base of the bell frame for approximately an hour. This should feel more strange than it did. I sat near it the way I might sit near another person who was very still and very certain of something. I looked at the pile of objects around its base and I tried to count them and there were more than I expected, accumulated across a span of time I cannot account for, in the varieties of cord and paper and small handmade seals that I know how to make because I was taught the basics of this work as a child and never quite lost the muscle memory.
+
+My own handwriting, over and over, slightly different each time. Slightly more desperate. Slightly closer.
+
+Before I left I looked again at the maker's stamp on the bell. The light was better today, or I was looking more carefully. There is a third character after 無間, mostly consumed by corrosion, the strokes filled in with age. I copied what I could make out into my notes. I am not certain of it. It may be damage rather than character. I will look at my notes again tomorrow when I am less tired.
+
+I came home and opened the ledger and read the entries I had been avoiding at the back.
+
+She wrote, in the final weeks: I have done what I can. I cannot break it from inside. No one inside can, because breaking it requires remembering, and it takes memory each time. What I can do is slow it. Create conditions. Leave you—
+
+The sentence ends there. Not trailed off; the rest of the line has been torn, not cleanly, along an edge that implies the page was removed deliberately. The next page begins mid-entry as if nothing is missing.
+
+She calls me you. She wrote this knowing I would read it. She wrote it for me, specifically, this me, this time (?), having understood something about the nature of this cycle that I am still trying to see clearly.
+
+She did not call me home while she was alive because she could not stop the cycle from inside. She could only prepare conditions. She could only leave things in place.
+
+The letter summoning me home, forwarded three times, deteriorating across distance. The return address was this house. There was no one here.
+
+My mother has been dead for a year.
+
+I came home in response to a letter no living person could have sent.
+
+# Day Seven
+
+The seventh day is the threshold. I know this now in the way you know something that has always been true.
+
+I am writing this entry carefully. I want it to be clear and accurate and complete, because I have thought about who might read it, and where, and under what circumstances, and clarity seems like the only useful gift I can leave.
+
+What I understand:
+
+The bell beneath the shrine on this property is real. It is ancient. The character 廻 around its rim describes its nature with a precision the family that named it apparently did not recognize: cycle, circulation, going around. The first Tobari rang it more than a hundred years ago intending to seal something they had found beneath the shrine , something old, patient, without urgency in the way that only something eternal can afford to be without urgency. They believed ringing the bell would seal it.
+
+Ringing the bell feeds it.
+
+It is not a prison. It is a mechanism. Each time the bell is rung by someone who believes they are solving something, it resets the situation, strips memory, returns the same person, the last Tobari, whoever that happens to be, to the beginning. The same arrival. The same seven days. The same accumulating evidence that, if you read it correctly, tells you what is happening and how long it has been happening and what the bell actually does. And then, on the seventh day, the same decision, made by someone who has almost understood, who has come so close, who has the seal materials in hand and the best intentions in the world, and who rings the bell believing it will help.
+
+The skeleton seated beside the frame is the first Tobari. Still in their ceremonial robes. Still in the posture of someone who just struck a bell and is waiting to see what it does. They have been waiting for a hundred years. Every iteration of the last Tobari has arrived and come close and rung the bell and begun again. The pile of objects around the skeleton's base is everything every previous version of this person left behind.
+
+My pencil is there. My handwriting is on the seals at the boundary wall.
+
+I have done this before. Many times. I cannot remember it.
+
+The stamp on the bell. I looked at my notes from yesterday in better light this morning. The third character is 堂. I had hoped it was damage. It is not damage. 無間堂 is not a maker's name.
+
+My mother knew. She spent her life inside this curse knowing, and she could not break it because you cannot break it from inside, the breaking requires information that the loop strips, and the loop strips it precisely because information is what would break it. She spent her last years trying to create conditions. To slow the degradation. To leave the right things in the right places for an iteration that might be ready.
+
+She did not call me home while she was alive because calling me home while she was alive would have started the clock. She needed me to arrive when the situation was already in motion, when I would have no choice but to engage with it, when seven days of evidence would push me toward understanding before the threshold.
+
+She wrote the letter herself. Before she died. Left it somewhere, I do not know where, I cannot ask her, where it would eventually find its way to me. Forwarded three times. Catching up. The way bad news always does.
+
+She has been trying to help me.
+
+She has been trying to help every version of me, iteration after iteration, getting me closer each time to the thing she couldn't give me directly: the understanding of what the bell does, before I ring it.
+
+I have been sitting with this for most of the day. I am not going to pretend I am unmoved by it. She was not a warm person. She was certain and precise and professionally necessary and I grew up in the weight of that and I left because I could not find myself inside it. I spent eight years building a life at a remove from what she was. And she spent her last years building a path through a hundred years of failure toward a version of her child who could see clearly enough to do what she could not.
+
+Whether I am that version, I don't know.
+
+What I know is what the ledger tells me, in those final entries I have now read completely: there is a way out. There is someone in Kakurega who exists outside the loop, who the thing beneath the shrine cannot touch, who remains consistent across iterations. Mrs. Sawada. Her name is there in my mother's handwriting, and beside it a description of what she needs to know and what she needs to be given. What she needs to keep. What she needs to do after, after what I do, after the cycle resets, which it will reset, which my mother accepted it would reset and did not flinch from.
+
+The ending is not: the last Tobari doesn't ring the bell.
+
+The ending is: the last Tobari rings the bell knowing what it does, having given someone outside the loop what they need to eventually end it. It is the long way round. It costs exactly what every cycle has cost. But it is the cycle being used against itself for the first time, rather than the cycle being fed.
+
+My mother, I think, might call this efficient.
+
+I went to Mrs. Sawada this afternoon. I told her what I am writing here, more or less, in compressed form, sitting at her kitchen table with the tea she put in front of me without asking. She listened without interrupting. She has the quality of someone who has been waiting for this conversation and has had time to prepare herself.
+
+I gave her the objects she needs. The ledger entries my mother marked for her. The instructions, such as they are, for what comes after.
+
+She asked me once if I was certain.
+
+I told her I wasn't certain of much. But that uncertainty felt like an honest place to make a decision from, and that after everything, after this week, after these seven days and whatever number of previous seven-day cycles were folded into the pile of objects beside the bell, I thought honest was probably what the situation was owed.
+
+She walked me to her gate when I left. She said: "Come back," and then seemed to hear what she had said, and did not apologize for it, only looked at me with the steadiness of someone who has agreed to hold something heavy for a very long time.
+
+I walked home through the late afternoon. The light in the cedars was the quality of light that happens just before it goes. I stood at the inner grounds gate for a while and then I opened it and I walked the path to the shrine.
+
+The bell is there. The frame. The seated figure in deteriorated robes. The pile of objects on the ground.
+
+I know what I'm going to do. I knew when I woke this morning, which is why I began this entry with the care that I did, wanting to leave something clear. My mother left me what she could. I am going to leave what I can. I am going to write everything down the way she would have, the way I should have been all along, and then I am going to go back to the shrine and stand in front of the bell and reach up and—
+
+>*The document ends here.*  
+*The final page of the handwritten account does not conclude the interrupted sentence. The space below is blank.*  
+*It was found, as noted, on the desk in the main study, weighted by a small iron object. The object has since been identified as a bell-striker, a padded mallet of the type used with certain traditional bells. It was not found near the bell itself. Nor was any bell located.*  
+*The survey team noted one additional item of possible relevance, logged in the attached inventory as Item 34: a second handwritten document, much shorter, tucked beneath the first. It appears to predate the above account, based on the condition of the paper, though the handwriting is the same. It reads in its entirety:*  
+*"I am writing this down because my mother would have written it down."*  
+*No further investigation of the property was conducted. The file was closed.*
+
+廻り道
