@@ -130,7 +130,7 @@ He came around the last bend of the corridor and stopped.
 
 I looked up at him from the floor. He looked down at me.
 
-The amber light spilled between us, and in it I could see him clearly for the first time, though I realized I had already known most of what I was looking at. He was tall and gaunt, weathered at the edges in the way of someone who has spent years maintaining things in brutal weather. His hair had gone prematurely grey, and his beard was cut close. His dark eyes held no surprise — not at me on the floor, not at the open door of his room, or at any of the three weeks that had brought us to this corridor. He had prepared for all of it. The surprise was mine, and it was simply this: I had expected something with harder edges. Something that matched the precision of what he had done.
+The amber light spilled between us, and in it I could see him clearly for the first time, though I realized I had already known most of what I was looking at. He was tall and gaunt, wearing a wool work shirt and canvas trousers that had been worn pale at the knees. His hair had gone prematurely grey, and his beard was cut close on his weathered and lined face. His dark eyes held no surprise — not at me on the floor, not at the open door of his room, or at any of the three weeks that had brought us to this corridor. He had prepared for all of it. The surprise was mine, and it was simply this: I had expected something with harder edges. Something that matched the precision of what he had done.
 
 What I was looking at was a man who had been alone for a very long time, with the only thing he had left sitting in front of him.
 
