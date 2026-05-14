@@ -1,0 +1,159 @@
+It's hurting again.  
+  
+I can still feel it. Tightening. Coiling.  
+  
+That cold slimy grip.  
+  
+My friends tell me to talk about it but honestly they all look at me like I'm crazy.  
+  
+I'm not crazy.  
+  
+It happened three days ago. I work at a local chicken plant as a maintenance worker. They process tons of meat every day, from start to end. Usually these kinds of places break up the processes into smaller factories, but not here.  
+  
+From live hang, de-boning, dicing, prepping and even a few lines cooking chicken that you yourself might have eaten at some local fast food joint. They did it all. But see, it's not all clean efficiency.  
+  
+There's dirty jobs too.  
+  
+Most giblets, bits and other scraps get turned into dog chow but that doesn't mean there isn't still loads of wasted meat that gets flushed into the company drainage system. A series of interwoven grates, pipes and channels that feed out into a large wastewater pond.  
+  
+Yeah I hear ya, can't be great for the local environment but I guess by the time the stuff reaches the drainage pipes it's mostly sterile and diluted enough to release out into the world.  
+  
+It's a nightmare in the summer. The entire town hates it. But that doesn't stop them from letting their teenagers, friends and family work there. After all, there's almost nothing else around.  
+  
+That's why I'm here after all. It pays better than working the lines and it's mostly basic handyman work.  
+  
+A loose bolt here, a replaced power cord there. Really all you had to do was pay attention to what the older guys did and maybe watch a few YouTube videos here or there on lunch breaks. However there was one job you'd never catch any of the old hands doing.  
+  
+Pipe clearing. Every once in a blue moon some big glob of skin, fat and maybe a plastic bag or two will get caught somewhere and cause some backflow or start clumping near one of the tunnels that fed out into the drainage pond. It's usually pretty simple work.  
+  
+And you always come back smelling like rotten meat. That's why they make the newer guys do it. Guys like me and Mikey, who did it the last time there was an issue, so apparently it was my turn. Great.  
+  
+I elected to have lunch before going down into the pit, figuring I wouldn't really be in the mood after. The report talked about slower drainage, a few of the grates taking an hour to fully drain when they should take minutes, and a lingering odor of rot coming up from tunnel B.  
+  
+That meant checking every grate and channel from the factory floor all the way out to the concrete outfall that jutted over the pond by a good six or seven feet.  
+  
+So I set to work. Grabbed a radio, some of the large rubber gloves we used for cleanouts, and a three-pronged garden cultivator maintenance had started using to dredge stubborn clumps out of the grease-filled waters.  
+  
+Checking the grates they reported, I found no obvious signs of blockage aside from the backflow. Still, I pulled the metal covers off and tried to sift through the red-brown liquid. The tip of the cultivator scraped against concrete and only managed to pull up a few scraps of fat and a half-shredded feather.  
+  
+I followed the line down and repeated this process a couple of times before figuring it would just be easier to find where the water wasn't backing up.  
+  
+So down the maintenance stairways, into tunnel B, I walked. The further down I went, the deeper the water got. Not anything dangerous. Well, aside from the risk of losing my lunch to the smell. Just an inch or two of dirty water.  
+  
+The splash of my steps turned to sloshing as the water got up to ankle height. I was never so thankful for those ugly uncomfortable rubber boots they made us all wear as I dragged my feet through the stuff.  
+  
+Then finally shin height. By then I was starting to get nervous. My boots went up pretty high but if the water got any deeper I'd end up needing to turn back and get a pair of waders or something. Thankfully it seemed to stay pretty consistent as I reached the last stretch of the drainage tunnel. I wish I could say the same for the smell.  
+  
+The stench was quickly ramping up, no longer the stale smell of sterilized but rotting poultry.  
+  
+This was almost akin to sewage or like that time I had to pull a dead possum out from the neighbor's shed.  
+  
+Sweet but wrong, like rotting fruit up until the point where that greasy musk hits you and lingers in the back of your throat.  
+  
+The walk had taken me to the outflow. A square culvert that led directly to the outfall. They kept the tunnels pretty decently lit but I could still see the reflection of sunlight coming through the large grate that separated the tunnel from the outside world.  
+  
+I could tell even from a distance that the water wasn't moving right.  
+  
+The usual even flow out was something more of a slow lazy spiral, like it was choked off and just barely draining from some hole near the bottom of the grate. The sound of a steady flow of water was now a trickle followed by an occasional splash as the waste occasionally flowed over whatever the stoppage was. 
+
+And the sound of buzzing.  
+  
+God the flies must be having a field day with this.  
+  
+I walked along the edges where the walkway stayed level despite the drainage tunnel itself sloping down. That meant whatever was causing the blockage was big enough to cover up several feet of grate.  
+  
+This was gonna suck. No way it wasn't some big glob of skin, fat and feathers that had somehow slipped through processing. It happened. Maybe not this bad but it did happen from time to time.  
+  
+The pool here had begun to murk, looking more like the pond outside than the usual brown-red liquid I was used to seeing flow out these grates. It was thick enough that I couldn't even make out the bottom.  
+  
+So naturally I took the cultivator and pressed the head deep into the water, dragging the tip from as low as I could get it and starting to scrape upwards.  
+  
+And there was definitely something there, a rubbery sort of resistance between the cultivator and the metal grate. Whatever it was, I couldn't get purchase on it. When I pulled the head back it was trailed by a glob of green algae-like slime.  
+  
+I nearly gagged. The stench got worse when I pulled the mass out from the water. A smell like pond muck mixed with putrid meat.  
+  
+It was enough to distract me from the fact that the water around my feet wasn't just shifting with my own motions.  
+  
+The fact I threw up, that sudden jerk as I felt the cheap company-provided chicken meal leave me and join with the water below, made me close my eyes just long enough.  
+  
+Something clamped down.  
+  
+Hard.  
+  
+It wasn't painful yet. Like somebody had reached up from the murky muck to try and pull me down. A grip tight enough that in all my flailing I couldn't even pull out of my boot to get away.  
+  
+A grip that found itself on my other foot, causing me to fall back onto the grate.  
+  
+The whole thing shook with the impact. The sound of shaking metal bouncing through the tunnels.  
+  
+I would say that I took a deep breath, calmed down and tried my radio.  
+  
+But I didn't do that. No, instead I screamed, thrashed and dug my fingers into the grate behind me. I desperately tried to leverage myself up and out of the water, away from whatever was touching me, pushing me back against the grate.  
+  
+The more I pulled, the tighter the feeling got. Every time I'd get pulled back down while frantically yanking my legs, whatever it was would shift up maybe another inch or so.  
+  
+I didn't stop thrashing until it wasn't just holding my boots, but in them, pouring into them and rubbing against my feet.  
+  
+You ever held raw chicken skin? Felt the cold, rubbery texture? That's all I could picture at the time, my boots filling with wriggling loose skin.  
+  
+The smell. I will never forget that smell. No matter how hard I scrub my legs I swear.  
+  
+Sometimes when I'm alone. When there's nothing going on.  
+  
+I smell that waterlogged, sickly sweet scent of rot.  
+  
+Somewhere in my panic the cheap clip of the radio must've snapped, or maybe it just got pushed the wrong way when I hit the grate. Don't know. They never recovered it.  
+  
+So there I was, hyperventilating and gripping onto greasy metal for dear life while something slowly inched its way up my legs. It seemed like the less I struggled the slower the thing moved.  
+  
+That's when I got a look at it, or at least part of it. The patch that was working its way up me was mostly a clear slime with flecks of yellow-white blobs in it that I eventually pegged as bits of fat alongside some patches of bubbling discolored liquid held in its form.  
+  
+As it met the water below I saw a mix of rust-red patches that lazily shifted, suspended in whatever was holding this thing together.  
+  
+And deeper in the water, just barely visible under the surface, were more concentrated black blobs that occasionally bobbed up close enough to see as it shifted its way up my body.  
+  
+I screamed, cried, shouted. This deep in the tunnels nobody would probably hear me. Sure maybe if they went into the maintenance stairwell but like I said.  
+  
+Nobody came down here unless they had to.  
+  
+Worst part of it? I could see the town. Through the grate, there in the distance I could just barely see the road leading away from the factory and into the town proper.  
+  
+None of my shouting mattered. The cars kept driving, town kept moving while I got to stand there and wait for this thing to finish me off.  
+  
+I think it was an hour in when I threw up again. It wasn't exactly in any hurry after I'd stopped struggling. At that point I was hoping somebody would just notice I'd been gone and come get me. The ooze had worked its way up slowly to my stomach and was still squeezing. That, coupled with the fact I could make out what looked a lot like mosquito larvae twitching in those little pockets of yellowed water trapped inside the ooze, made the urge hard to resist.  
+  
+That was a mistake.  
+  
+I couldn't exactly lurch forward so a good bit of it just ran down my work suit.  
+  
+And when it made contact with the thing, I could see the shifting stop. The whole thing seemed to freeze up.  
+  
+It started drinking. That's the only way I could describe it. It sucked the trickle of vomit into itself. I could see the bits of white and brown from the breaded chicken meal getting sucked down into one of the darker parts of the stinking mass.  
+  
+It moved in contractions, like a throat swallowing over and over again.  
+  
+I still see it. Still see the moment where it began to trace up the vomit trail.  
+  
+Still remember the sticky feeling between my fingers as I ripped at it, threw chunks of goo off and away only for it to react by binding my fingers so tight I heard something pop.  
+  
+It was pinning me to the grate. Not creeping up anymore but moving in short pulsing bursts, tightening, squeezing.  
+  
+I felt my head getting light. I tried to move my leg again but the thing responded by gripping down on my right leg with a crushing force. I felt something give followed by a blinding pain that made me cry out.  
+  
+The last thing I remember is something cold, wet and slimy trailing up my chin and the taste of mildew and mold poking into my mouth.  
+  
+And then nothing. According to the doctors I must have fallen into the water while trying to clear a blockage which apparently I did because by the time somebody got around to checking on me the water was draining normally.  
+  
+With me laid splayed out, propped up against the grate.  
+  
+I don't know why it let me live.  
+  
+What I do know is when I came to I tried to vomit. Could still taste that stale rot in my mouth, smell it in my nose, feel it in my skin. It was too much.  
+  
+Water. Mostly anyway, thick and warm with a stench that was too familiar.
+
+The doctors sent me home with a cast and some antibiotics, told me to call if I feel any flu like symptoms.
+
+Now I'm stuck sitting here, wondering as I try to forget the painful throb in my leg and that taste that won't go away no matter what I eat.
+
+Did it stop at my mouth?
