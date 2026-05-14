@@ -1,0 +1,693 @@
+I don’t know if writing this down is going to help, but I need to try something before I lose track of it again.
+
+Things are… out of order.
+
+That’s the only way I can explain it.
+
+It started small.
+
+At least, I think it did.
+
+I dropped my keys a few days ago. I remember it clearly because something about it felt wrong.
+
+I let go of them, watched them fall, saw them hit the floor right next to my shoe—
+
+but I didn’t hear anything. I just stood there waiting.
+
+I don’t know how long. A few seconds maybe. It felt longer.
+
+Then suddenly—
+
+CLINK.
+
+Way too loud. Like the sound had been delayed and then forced to happen all at once.
+
+It made me flinch so hard I almost lost my balance.
+
+“Ray?”
+
+I turned and saw my wife, Alessian, standing in the kitchen doorway.
+
+She looked normal. Completely normal. Same way she always does—hair tied back loosely, one of my shirts on, half awake but still paying attention.
+
+“You okay?” she asked.
+
+I remember holding the keys up like that explained anything.
+
+“…did you hear that?” I asked.
+
+
+
+“Hear what?”
+
+
+
+“The keys. They fell. The sound came late.”
+
+She frowned a little, but not like she was scared. More like she was trying to figure out what I meant.
+
+“That doesn’t really make sense,” she said.
+
+“I know.”
+
+She walked over and touched my wrist. Just lightly.
+
+“You’ve been stressed,” she said. “Your brain can do weird things when you’re overwhelmed.”
+
+That should have made me feel better.
+
+And for a second, it did.
+
+Alessian has always been like that. Calm. Grounding. She doesn’t overreact, she doesn’t dismiss things either—she just… explains them in a way that makes them feel manageable.
+
+But something about it stuck with me, not what she said.
+
+The feeling I had before the sound came back. Like the world had paused without telling me.
+
+I tried to ignore it.
+
+I really did.
+
+But then people started acting… off.
+
+At work, I’d say something and no one would respond.
+
+Not even ignore me—just continue like I hadn’t spoken at all.
+
+At first I thought they didn’t hear me.
+
+So I’d repeat myself.
+
+Still nothing.
+
+
+
+One time I laughed at something someone said, and they just… kept talking. No reaction. No glance. Nothing.
+
+It’s hard to explain how that feels.
+
+It’s not like being ignored.
+
+It’s like…
+
+like your voice doesn’t reach anyone.
+
+I told Alessian about that too.
+
+
+
+“I feel like people aren’t noticing me,” I said.
+
+
+
+She didn’t answer right away.
+
+
+
+That’s normal for her—she takes a second before she responds.
+
+
+
+“You’re probably just more aware of it,” she said. “Once you notice something like that, your brain starts looking for it everywhere.”
+
+
+
+I remember nodding.
+
+Because again—that made sense.
+
+But I also remember thinking:
+
+
+
+What if it’s not that I’m noticing it… what if it’s actually happening?
+
+
+
+I didn’t say that out loud.
+
+
+
+The first time I saw her was in the hallway outside our apartment.
+
+I almost didn’t include this part, but if I’m being honest, this is when things stopped feeling explainable.
+
+I had just gotten home. I was unlocking the door when I felt… something.
+
+Not a sound.
+
+
+
+Not movement.
+
+
+
+Just that feeling you get when someone is nearby, I turned around.
+
+She was standing at the end of the hallway.
+
+I don’t know how long she had been there.
+
+I don’t even know if she had been there at all.
+
+
+
+She was just… there.
+
+
+
+Long black hair, straight, falling past her shoulders. Her skin looked pale, but not sick. Just… smooth. Too smooth.
+
+
+
+And her face—
+
+
+
+I don’t know how to describe it without sounding stupid.
+
+
+
+She was beautiful.
+
+
+
+But not in a normal way.
+
+
+
+It didn’t feel like I was looking at a person.
+
+
+
+It felt like I was looking at something my brain didn’t fully understand.
+
+
+
+
+
+
+
+“Hey,” I said. “Do you live here?”
+
+
+
+
+
+
+
+She didn’t respond.
+
+
+
+Didn’t move.
+
+
+
+Didn’t blink.
+
+
+
+Then she smiled.
+
+
+
+
+
+
+
+Just slightly.
+
+
+
+And I swear to God—
+
+
+
+it felt like she recognized me.
+
+
+
+I blinked.
+
+
+
+She was gone.
+
+
+
+Not like she walked away.
+
+
+
+Just—
+
+
+
+gone.
+
+
+
+
+
+“Ray?”
+
+
+
+
+
+I turned around so fast I almost dropped my keys again.
+
+Alessian was standing in the doorway now.
+
+
+
+
+
+“Why are you just standing there?” she asked.
+
+
+
+
+
+I looked back down the hallway.
+
+
+
+Nothing.
+
+
+
+“…I thought I saw someone,” I said.
+
+
+
+
+
+She leaned slightly, looking past me.
+
+
+
+
+
+“There’s no one there.”
+
+
+
+
+
+Her voice was calm.
+
+
+
+Certain.
+
+
+
+And I believed her.
+
+
+
+I think I did.
+
+
+
+But when I walked inside—
+
+
+
+I had this feeling I couldn’t shake.
+
+
+
+Like something had seen me…
+
+
+
+and was still thinking about me.
+
+
+
+That night, I woke up to the sound of breathing.
+
+
+
+Not mine.
+
+
+
+Close.
+
+
+
+Right next to me.
+
+
+
+I didn’t move at first.
+
+
+
+I don’t know why.
+
+
+
+I just… knew I shouldn’t.
+
+
+
+The breathing was slow.
+
+
+
+Steady.
+
+
+
+Careful.
+
+
+
+After a few seconds, I turned my head.
+
+
+
+She was sitting on the edge of the bed.
+
+
+
+The same woman from the hallway.
+
+
+
+Closer now.
+
+
+
+Clearer.
+
+
+
+And somehow—
+
+
+
+worse.
+
+
+
+
+
+“You’re awake,” she said.
+
+
+
+
+
+Her voice sounded normal, That’s what scared me the most.
+
+
+
+“Who are you?” I asked.
+
+
+
+She tilted her head slightly.
+
+
+
+Like she was thinking about the question.
+
+
+
+“Someone who listens,” she said.
+
+
+
+I immediately looked at Alessian.
+
+
+
+She was still asleep next to me.
+
+Didn’t move.
+
+Didn’t react.
+
+
+
+“My wife is right there,” I said.
+
+
+
+
+
+“I know,” the woman replied.
+
+
+
+
+
+No anger.
+
+
+
+No reaction.
+
+
+
+Just… acknowledgment.
+
+
+
+
+
+“Then why are you here?”
+
+
+
+
+
+She leaned forward slightly.
+
+
+
+Not touching me.
+
+
+
+Just close enough that I could feel something change in the air.
+
+
+
+
+
+“Because you were alone,” she said.
+
+
+
+
+
+“I’m not alone.”
+
+
+
+
+
+She looked at Alessian again.
+
+
+
+Then back at me.
+
+
+
+
+
+“You were,” she said quietly.
+
+
+
+
+
+There was something about the way she said it that made my chest tighten.
+
+
+
+Like she wasn’t arguing with me.
+
+
+
+Like she was reminding me of something I had forgotten.
+
+
+
+I didn’t respond.
+
+
+
+I didn’t know how to.
+
+
+
+After a few seconds, I looked back at Alessian.
+
+
+
+Her breathing felt…
+
+
+
+off.
+
+
+
+Too even.
+
+
+
+Too steady.
+
+
+
+Like it wasn’t changing at all.
+
+
+
+
+
+
+
+I looked back at the woman.
+
+
+
+
+
+She was watching me.
+
+
+
+Carefully.
+
+
+
+
+
+“Do you feel it yet?” she asked.
+
+
+
+
+
+“…feel what?”
+
+
+
+
+
+“That space.”
+
+
+
+
+
+She didn’t look away.
+
+
+
+
+
+“The one where people stop reaching you.”
+
+
+
+
+
+I didn’t answer.
+
+
+
+Because I knew exactly what she meant.
+
+
+
+When I looked back—
+
+
+
+she was gone.
+
+
+
+Just like before.
+
+
+
+Alessian shifted slightly beside me.
+
+
+
+
+
+“Who are you talking to?” she murmured.
+
+
+
+
+
+My throat felt dry.
+
+
+
+
+
+“…no one,” I said.
+
+
+
+
+
+She settled back down.
+
+
+
+Within seconds, she was asleep again.
+
+
+
+I stayed awake the rest of the night.
+
+
+
+And I haven’t been able to shake this feeling since then—
+
+
+
+that something is filling in the gaps where people stop noticing me.
+
+
+
+And I don’t know if it’s trying to help.
+
+
+
+or replace them.
+
+
+
+If anyone has experienced anything like this—
+
+anything at all—
+
+
+
+please tell me.
+
+
+
+Because I don’t think this is just in my head anymore.
+
+
+
+(Part 2 soon. I don’t think I have much time before things start slipping again.)
