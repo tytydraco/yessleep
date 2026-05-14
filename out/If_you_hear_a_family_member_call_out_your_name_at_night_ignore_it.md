@@ -1,0 +1,71 @@
+Hello everyone, my name is Eric and I'm 36 years old. I'm sharing this on here so maybe someone can help me, maybe tell me what's going on if anyone has experienced this before? I'm exhausted and terrified, I'm a grown ass man that's terrified to be alone in his own house... This all happened last night and now that it's night time again I'm petrified. I know it's going to come back.
+
+The night before last night I was home alone as usual, brushing my teeth to get ready for bed. After brushing i turned my fan on since I'm the type of person that has to have their fan running at night and leaves a TV on in my room, with the volume turned down very low. I cannot sleep in pitch black and silence. I need background noise and some sort of light. Anyway after turning them on I hopped into bed. I was pretty tired since I work really early in the mornings, so pretty quickly my eyes were heavy and I started dozing off. I was laying there for maybe 20 minutes when I heard something.
+
+'Eric!" A voice called out from the living room.
+
+I shot up from bed and could feel my heart pounding. I strained to listen but I heard nothing but the fan. I started to calm down, telling myself I was in between a state of consciousness and sleeping. It's happened before so it made perfect sense. I layed back down and tried to fall back asleep. Just as i felt my heart rate return to normal I heard it again. Only this time I wasn't half asleep, so I know i heard it, and I actually recognized the voice.
+
+"Hey Eric!" It was my mother's voice...
+
+I flew out of bed and ran to turn my bedroom light on. Most people would just assume that their mom stopped over unannounced or something. I knew that wasn't the case for me though, my mom lives in Florida and I live in Michigan. So there's no way my mom would be at my house, especially for a random visit late at night.
+
+"Come out here Eric!" My mother's cheerful voice called out from the living room.
+
+Thank God I have a lock on my bedroom door, I quickly turned the lock and stood staring at the door, in shock. How the fuck was this happening? How is my mom in my living room? She's supposed to be over a thousand miles away in a different state than me, yet here i am hearing her calling out to me from my living room. I've never experienced such a deep, primal fear like I was feeling in that moment. My instincts screamed at me to not go out there, and don't make so much as a peep. I stood by the edge of my bed for what felt life hours but was really only a couple of seconds. 
+
+"ERIC!" The voice belted right from the other side of my bedroom door this time, which caused me to let out a pathetic scream.
+
+The door knob started to turn slowly, before whatever was on the other side seemed to get frustrated as it started to aggressively turn the knob, causing it to rattle and shake. I thanked Jesus that I locked the door only seconds before. 
+
+"Come on honey, open the door..." my mother's voice was softer this time.
+
+I still didn't answer, I tried not to make a sound. Instead I grabbed my phone from my night stand and texted my brother. I wrote \*\*call 911 someone broke into my house\*\*
+
+Thank God it showed that he read my message almost immediately. After a second he wrote back \*i just called them, are you OK? Where are you? Can you see them?\*
+
+I gave a short reply of \*\*can't see them, in living room\*\*
+
+My hand was shaking so bad from fear I was having a hard time texting. 
+
+"Unlock this door honey!" My mother's voice spoke softly, but i could easily detect anger in her tone.
+
+BOOM!
+
+It must have slammed it's first against the door, I jumped and screamed yet again. I was in full blown panic at this point. I did my best to remain silent but I felt like whatever was out there could hear my heart beating. I was afraid I was going to pass out from fear. I had to sit on the bed to avoid falling over.
+
+"Open it now!" It growled this deep, guttural voice that no longer sounded like my mom's.
+
+The door was shaking from it trying to get in. I was afraid my door was going to break and it would get in. I put my hands over my ears and prayed. I could clearly hear the door rattling even with my hands covering my ears. Everything felt chaotic. I could feel tears running down my cheeks as I started crying in fear. Then everything just stopped. No more pounding on the door, i couldn't hear my mom's voice anymore, just the humming of my fan and silence. After a minute or so I finally heard something. 
+
+"Hello!" A different voice called out this time. "This is officer Hampton with the police department!"
+
+Relief washed over me as I ran to my door to unlock it and greet the officer. However just as I got to the door knob my hand stopped. I don't remember hearing any sirens from them pulling up. Surely they'd have sirens on when responding to a break in right? I stepped back from the door and stared at the handle. 
+
+"Do you need asssssistancccce?" A males voice whispered from against the door, causing my heart to slam in my chest so hard it actually hurt. 
+
+In the distance I finally heard sirens approaching, getting louder and louder.
+
+"I'll be baaackkkk!" The voice whispered again, this time from the bottom of my door.
+
+ I looked down and could see these disgusting pale and chapped lips poking out from the crack at the bottom of my door. My skin crawled at the site of it. It was horrifying and disgusting at the same time.
+
+"Leave me the fuck alone!" I screamed at the top of my lungs, unable to take it anymore.
+
+By now the sirens were right outside my house and I heard whoever was on the other side of my door run off. The police came barging in and I finally came out of my room. I was talking to the police filing the report out for what seemed like hours. I kind of lied and told them it was a strangers voice i didn't recognize. I didn't want to sound crazy. There was 7 officers that showed up, 6 of them checked my house out and all my yard for signs of the intruder, while I talked to one cop filing the report. After an hour or so the police got ready to leave and asked if I had a family members house i could stay the night with to calm myself. In the end i decided to go to my brother's house, I was too petrified to stay home. The police found literally nothing that would indicate someone had broken in. Honestly I wasn't surprised, whatever that thing was if wasn't a normal person... As they were getting ready to leave the cop getting my information said one last thing that made my skin crawl and my heart was pounding again.
+
+"Here's my card, my name is officer Hampton and if you have any other information or questions just call me ok?" The officer said as he turned to leave.
+
+That was the name the thing in my house said, before the cops even arrived... this thing is definitely not human, and apparently it can tell the future since it knew the cops name before they even got here.
+
+I asked the police to wait one minute while I grabbed some clothes to take with me. I didn't want to be in there for one second alone. 
+
+After getting to my brother's i explained the whole thing in detail. I could tell he wasn't sure what to believe, and i can't blame him. It sounds utterly insane. I felt crazy just saying it outloud. Regardless my brother was supportive and he even offered me to stay for a day or two, to get my bearings back to me. 
+
+Now here i am today, back home... my brother is staying the night with me but he's sleeping in my spare bedroom upstairs. There is some comfort knowing I'm not alone in the house, but at the same time he's all the way upstairs. I'd hate to have him experience the same thing as well, but I wasn't going to1 decline his offer for staying the night. The thought of being home alone is just petrifying... 
+
+That leads to me to where GreyI atlopm now, writing this post. It's my first night back home and I'm FF horribly on edge. Every time the house maw2kes a noise from settling I'm jumping. I've never even felt a little bit of fear in this house before all of this crap. 
+
+ 
+
+Has anyone else experienced something like this before?  If so what did you do to get it to stop? What exactly is it? Any help would be greatly appreciated and I'll make sure to update if anything else happens. Thanks in advance and I look forward to any help.
