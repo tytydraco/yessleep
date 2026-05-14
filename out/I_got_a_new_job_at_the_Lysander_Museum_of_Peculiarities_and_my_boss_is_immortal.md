@@ -1,0 +1,107 @@
+
+
+I started working at the Lysander Museum of Peculiarities about a week ago, and I’m thoroughly convinced of two things: magic is real, and my boss is some kind of immortal wizard. He’s also a huge asshole, but let me back up and explain it from the beginning.
+
+I am in what most would call a ‘low point.’ My marriage dissolved very quickly after my OTH from the Army and this left me with a lot of free time and no place to stay. I caught a bus out to the midwest and crashed with some buddies from the service for a few weeks before making my way back east. I’m not sure why, but I decided on upstate New York. It just seemed like a good place to go, mostly because it wasn’t home. When I got to Buffalo I picked up odd jobs on craigslist for a while and slept at the YMCA. This lasted three weeks, and then I was able to afford a room in a house on the south side of town. I was chilling in said room, scrolling my phone for gigs on craigslist, when I came across a posting for a job.
+
+**Maintenance position available, $30/hr - contact info below**
+
+I mulled it over for a few minutes and then called the number. I had a good amount of experience with machines, and I considered myself handy enough. I bounded up to sit on the center of the air mattress when a breathy squeak of a voice came from the other line.
+
+“Lysander Museum, how may I help you?” The lady said. It didn’t seem very automatic, like she didn’t answer the phone much.
+
+“Yeah, uhh. I’m calling about the job?”
+
+“The job? Oh, oh! Right! The maintenance worker. Yes.” She took a beat to think, humming as she did so. I heard papers shuffling on the line. “Do you think you can come in tomorrow for an interview?”
+
+“Interview? I haven’t even applied.” I shot back, but I decided not to look a gift horse in the mouth. “Yeah, sure. Where at?”
+
+She gave me directions, a twenty minute walk from where I was staying, and I ended the call with an appointment time of nine AM. I spent the rest of the day getting my ass whipped in Call of Duty and smoking some weed I bought off a guy I was doing some day labor for.
+
+The next day I changed into my best (read: only) polo and my least ragged pair of jeans and headed out of the door. The walk was nice. It was a cool, crisp autumn morning in Buffalo. I turned down what to me looked like a private drive, but when I looked to the end of the drive I could see a large brick building looming there. The building looked old and weathered, though clean, like a kept relic in and of itself. By counting the windows I assumed it was three or four floors, it probably had a courtyard in the middle. Old architects loved their courtyards.
+
+I walked on up to the double doors at the front of the building, reading the placard on the door.
+
+*The Lysander Museum of Peculiarities*
+
+*Open Mon-Fri:  9 AM - 6 PM*  
+*Closed Christmas Eve and Day*
+
+I pushed the door open and that stuffy, warm scent of antiques hit my senses immediately. I walked onto the tile floor, looking around the main room. It looked more like a waiting room, with Chesterfield sofas and claw-foot tables adorned with silver trays set with donuts, cakes, and pastries of all types. There was an equally fancy coffee carafe, and one small tray simply had a pyramid of cigarettes and boxes of matches. Suddenly unsure if I had stepped back in time to when people could expect such freebies regularly, I turned to the right of the room where a desk was placed before a door. The woman behind the desk gave me a small smile, polite and genuinely friendly. 
+
+“You must be Mister Pugh,” she said with the squeaky voice from the phone yesterday as she gathered a clipboard and made her way from behind the desk. She was short and mousy, with large eyes and a freckled face. She had frizzy brown hair pulled back into a tight ponytail and wore a semi formal if not business appropriate blouse and skirt. “I’m Margaret Claire, just call me Maggie.” She stuck out her hand, which I shook on reflex. “Nice to meet you, ma’am. Just Zach is fine.” I gave her my best polite smile as I pulled my hand away. She handed me the clipboard. “For you. Just fill out this paperwork and Mister Lysander will be with you shortly.”
+
+I sat down on one of the couches and nearly groaned. They were so comfortable compared to my air mattress. That couch was by far the softest thing I had sat on in weeks. I composed myself, crossing one leg over my knee and placing the clipboard in my lap. I pulled off the attached pen with a snap, looking at the application. To my surprise, there were only three questions.
+
+1. *You see a decapitated man walking towards you, what do you do?*
+2. *A voice under your bed promises you the secrets of the universe, what do you do?*
+3. *You’re a fireman in a house fire. The family of four is all clear, but you hear a third child crying in the fire. What do you do?*
+
+I read the questions twice, trying to make sense of them. Why would my reaction to any of these matter? It looked like a joke to me. Maybe they gave this sheet to applicants they didn’t plan to hire just to fuck with them. I sighed, running a hand through my hair and tapping the end of the pen on the paper. I figured I might as well answer them anyway. Maybe it would help my interview in some way.
+
+1. *I would run away quickly.*
+2. *I would not listen to it, there’s no such thing as a free lunch.*
+3. *If everyone’s accounted for I am out of there, sounds like a stress hallucination to me.*
+
+With the questions answered I stood to turn the clipboard over to Maggie, that was when I saw the door behind the desk open. I peered in, seeing the hallway just for a moment as a man came through the door, shutting it quietly behind him. He was tall and gaunt, wearing a sharp face set with a horrendous case of RBF and pale blonde hair that was so precariously tussled in that ‘oh I wake up this way but really I spend a lot of money on it’ vibe. The man eyed me immediately, adjusting one of his silver cuff links as he spoke. “Mister Pugh?”
+
+“Guilty,” I said, cracking a smile as I stood. I got a smile from Maggie with it, but the tall man looked as if he hadn’t heard me. I cleared my throat, walking to meet the man by the desk and holding out my hand.
+
+“Mister Pugh, it’s a pleasure to meet you,” the man gave no attempt at a smile, “My name is Adrien Lysander. You may call me Mister Lysander.” Before I could really process what was happening he led me back through the door and down a tight hallway, opening a door at the end of the hall and ushering me into his office. “Have a seat, I’ll be with you in a moment.” Lysander left, closing the door gently behind him and leaving me in his office alone.
+
+He had a spacious office. The windows behind him showed the outside, bathing the room in the morning light. The furniture in his office was every bit as luxurious and dated as the chesterfields in the lobby. I sat in a comfortable leather chair on the other side of his massive oak desk, his own executive style chair pointed toward the windows. Shelves lined the walls around me, covered in equal parts dusty books and random items. A thin metal bookend in the shape of a man, a stack of pewter plates of different sizes, even a little marionette puppet that had clearly seen better days. His desk was clean, with only a few files and papers littered around a desktop calendar and a notebook. I craned my head to the side to read a post-it note that was stuck sideways to one of the papers.
+
+*Trace origin for A.Z*
+
+I righted my head just as the tall man walked back in, shutting the door and sitting down to face me in his high-backed chair. “Mister Pugh,” he cleared his throat, scooting up to the desk and pushing an obnoxiously well-textured lock of blonde hair from his face. “I’ve taken the liberty of expediting a background check on you. Your application answers are sufficient. Should you choose to accept this position, I will explain your job in detail. I cannot explain anything until you sign this,” Lysander opened the bottom drawer of his desk, producing a stapled group of papers. He lay the contract down in front of me. “Take all the time you need to read over this, and I will answer any questions you have. The short version of this I can sum up by saying we do very important work here at the Lysander museum, and as a necessity we hold our employees to a strict non-disclosure agreement about anything that happens or pertains to the result of anything that has happened here concerning the work done in the museum.” Lysander pulled a pen from his vest pocket, handing it to me.
+
+I flipped through the pages, eyes darting over the expert legalese. Yeah, I wasn’t reading all this. My comprehension for contracts and stuff wasn’t the best. Besides, I needed this job. I uncapped the pen and signed under employee, dated it, and turned the paper and pen over to Mister Lysander. “There. So, fill me in, chief.”
+
+“Please, call me Mister Lysander.” Mister Lysander gave me what I thought was his attempt at a smile. “We work with artifacts, knowledge, and lived experiences of our clientele that cross the threshold between the understandable and the unknowable. Many objects in this museum are cursed, several severely. Your job will be to put out any metaphorical and literal fires around the museum, as well as tend to our exhibits that need daily care. There are four of them.” Lysander stood, motioning for me to follow him. I got up from my chair, walking quickly to keep up with Lysander’s long-legged gait. He took me out into the lobby and then into the first exhibit, for which the sign read the Library of Marianne Chausson. He led me through it and to a case that held what looked to be a red and white light bulb on a pillow. 
+
+“Once a day, you will need to prick your finger on the tooth of the bulb and give it a scant amount of blood. It’s really no worse than a blood glucose measurement.” Lysander motioned to the bulb. I could see from here the red on the bulb was dried blood. Something about the lightbulb had kept the blood from oxidizing right, or maybe it was the conditions inside of the case. The bulb looked like an antique bulb, but on the top sat a small hole, around the rim of which was a single, razor sharp barb. Not wanting to cause a fuss on my first day, I just nodded. “Sure thing, Mister Lysander.”
+
+“Excellent. This is the worst of the four. Now I'll take you to the tarot.” Lysander went down the hall a bit, where a worn down cardboard deck box sat on a stand in a case. In what looked to me like cheap lipstick, the words ‘Remember Me!’ were written in a neat, feminine script. A few of the cards lay outside the box for display, and looked to me like any other tarot cards. “This is the jealous deck.” Lysander said, clearing his throat, “You will need to learn how to read tarot cards. I will do it today, but once per day you will need to do a reading from the deck. If not, everyone working here will begin to experience flu-like symptoms.” Lysander looked at me expectantly for questions, but I shook my head. Whatever weird superstitions this place had, I wouldn’t balk at them. I’m sure they all thought the tarot cards really were cursed, and in an effort to fit in I would play along. “What’s the next one?”
+
+Lysander turned about quickly, leading me down a short hall into a room with more colorful exhibits. It looked more presentable to children, with educational displays and big placards with simple text. Inside I saw a little man in a bear costume walking around, dusting the glass cases. Lysander led me up to the man, and I began to question my sense of reality. It wasn’t a man. It was a bear. Some kind of robot teddy bear. Gears whirred along the joints as it finished cleaning the case, then snapped to attention at the sight of Lysander. It’s unblinking onyx eyes focused on him and then me. “Is this the new maintenance worker, Mister Lysander?” a childlike voice with a posh British accent came from the speaker holes in the teddy bear’s brass mouth. Lysander motioned to me, then to the robotic bear. “Mister Pugh, this is Ollie. Ollie, this is Mister Pugh. He will be the caretaker here from now on.” Lysander looked at me, a small smirk on his face as if he’d been down this road before. He knew the sight of Ollie would break my belief on what was really going on here, and he was right.
+
+“Nice to meet you, Ollie.” I held my hand out, but the bear just gave me a small, slow wave of a hand.
+
+“Ollie requires feeding thrice daily. Once when you get here, once after your lunch break, and once before you leave,” Lysander moved a hand to the bear, opening up a hinged door on Ollie’s stomach. Inside I saw the stomach compartment was empty, lined with angles and numbers, the configuration of which made me queasy and for some reason set my mind into a panic. “Just place the meals into this compartment and shut the hinge.” Lysander explained, but all I could do was manage a dumb “uh-huh.” The concept of this bear - of Ollie - was genuinely breaking my mind. Ollie could walk, make dexterous movements, speak when spoken to, all of it. It was sentient, or if not sentient something cleverly close to it. I stood up, my hands on my hips as I took a few calming breaths.
+
+“Mister Lysander, Mister Pugh is going to faint,” Ollie said, his tone worried.
+
+“I am not going to faint,” I said, leaning my head back and rubbing the back of my neck. Lysander stood awkwardly stiff as I took a moment to breathe, trying to take in the ramifications of Ollie, as well as the sickening feeling the geometric patterns in its stomach cavity made me feel. It was like magic, if magic was hard to look at and dropped you on your stomach inside of a panic attack.
+
+To my surprise, Lysander clapped a hand onto my shoulder, patting it a couple times before letting go. “Don’t work yourself up, Mister Pugh. Accept and release.”
+
+“Accept and release,” I exhaled, finding relief and comfort within the mantra. A lightbulb that did something bad if I didn’t bleed into it every day, a tarot deck I had to use daily, and now a walking, talking robo-bear that I had to feed three hot meals a day. I almost didn’t want to, but I nodded to Lysander. “I’m ready for the fourth thing.”
+
+“Oh, no, you’re not,” Lysander shook his head, “I’ll keep care of the Soothsayer until I can trust you more. You’re on a form of starting probation for the first couple days. I will be able to assess quickly if you lack the skillset for the job.” He gave me a wave, as if the floor was mine, and walked off, leaving me with Ollie.
+
+“Don’t worry, Mister Pugh,” Ollie stepped closer to me, patting my hand by my side with his disturbingly cool metal paw. “You’re going to do just fine!”
+
+The rest of my day was surprisingly smooth. I fed the bulb, played with the cards, kept Ollie on his meal plan, and explored the museum a bit. There were three exhibits open to the public - Marianne Chausson’s wing, a collection of artifacts simply called the Lysander Collection, and the Playroom, which was more geared towards children. There was a large part of the building, nearly half of the floor space, that was locked away. Signs on the doors said ‘No access to the public - by appointment only.’ I refused to even try the handles, God only knows what they would do to me.
+
+On my lunch break I made a brisk walk to the McD’s a couple blocks down and grabbed four Mcdoubles. Two for me, two for Ollie. I had mine eaten by the time I got back, fed Ollie the burgers, then made small talk with Maggie. She informed me that she was a bit of a nepotism hire.
+
+“My family has been close with Adrien Lysander for generations,” she said in an odd way. She didn’t say Lysander’s family. She said *specifically* Adrien Lysander, like the man had been around for generations, employing her family. I decided to press it. “What, like, just him? Not like his great grandfather and shit? How old is that guy?” I leaned against her desk, looking down at her as she spoke.
+
+“Lysander? Gosh, I don’t really know. At least three, four hundred years? That’s when my family started working for him anyway, he could be older than that.”
+
+“You’re fucking with me,” I spit out before I could stop myself. Maggie laughed a high pitched, contagious laugh, shaking her head. “Honest! Look,” She pulled up her phone, clicking rapidly through neatly arranged folders in her photo gallery until she came upon one of family pictures. She flipped through them, and my mouth fell open wider and wider the further back she went. Eighties, sixties, forties, twenties, back into paintings, the clothing regressing in the paintings into the stuffy colonial wear. All of them were of people I didn’t know, except one man in the picture, one constant. The tall, blond, Adrien Lysander.
+
+“Get the fuck out,” I whisper, a shudder running through me. Maggie could see I was wrestling with what she was showing me and patted my arm, “You get used to it. I was kinda born into this stuff, so I can imagine looking at it from the outside is hard. There’s a lot of stuff here that could help normal people, but I’d say there’s even more that would hurt them immensely if this all was common knowledge.” I moved to agree with her, but I heard the metal shuffling of Ollie walking up towards us from behind me. Maggie gave Ollie a bright smile, I turned around and nodded.
+
+“Mister Pugh,” Ollie began, stepping closer to me, “Whenever you get the chance, please get me some more of those odd little sandwiches. They were delicious.”
+
+“First time eating fast food?” I asked, frankly surprised. Ollie nodded, and Maggie looked at me almost warily. “What did you feed him?”
+
+“Mcdoubles?” I said, bracing for a lecture on why he needed some kind of specific diet, but Maggie laughed and laughed hard. Apparently, Ollie usually ate with Lysander, and he ate a very posh and refined diet.
+
+That’s a good overview of my first day, I will come back with more if anything interesting happens, including finding out what the fuck a Soothsayer is.
+
+  
+  
+  
+  
