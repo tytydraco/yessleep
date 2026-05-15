@@ -1,0 +1,103 @@
+[**Part 1**](https://www.reddit.com/r/nosleep/comments/1tc4yuq/my_friends_and_i_found_a_goat_in_the_woods_now_my/)
+
+Hey guys, it’s a couple of days later and things have only gotten weirder. I think someone, or something, is in the woods. If you haven’t read my first post, basically I’m on a trip with my friends and we saw a goat in the woods. Ever since, everyone else has been hearing things while I have been getting a weird amount of static from my cochlear implants. For simplicity's sake, I’ll jump in where I left off.
+
+The rest of the day I uploaded my first post went well enough. We just talked, hung out, and individually doomscrolled on our phones. Well besides Avery who was asleep since I got home from my climb. However, after a while, we got bored. We went on a hike at exactly 5:05 on a trail that started around the lake. I record the time I start my hikes in my notes app to know how long I’ve been in the woods. I just recommended that we avoid the hill I climbed so the static wouldn’t mess with me again. Avery took some convincing, especially after his sleepless night. However I told him it should be fine as long as we get back before sunset because that’s when all the weird shit started. He agreed. Britt and Skyler apparently slept fine and said the noise eventually stopped, so they said yes pretty quick. They both thought they were just hearing things. I know this might seem stupid, but honestly I don’t think I had enough evidence to say that this wasn’t just us driving ourselves crazy. I thought it would be a good idea to go in the woods to just prove that it was fine. 
+
+Much like the walk to the house, the hike into the woods went very smoothly. It was pretty steep and some parts weren’t well maintained, but we are all very used to hiking so it wasn’t bad. Ashley, Britt and I were chatting about school, life, and shows we’re watching. From behind us we heard Avery and Skyler bickering as always. We were keeping track of time, we were laughing and having a good time. We didn’t see the goat, but we saw hoof tracks that didn’t look like deer prints that may be from a goat? None of us know trucks that well, especially pertaining hooves. We assumed it was just blindly wandering around based on how sporadic they were. I kinda felt bad for it. Avery said he heard rustling in the woods, but not the noise. No one can exactly describe the noise to me, so I can’t come up with any better descriptors. The rustling was probably just an animal, so we thought nothing of it.
+
+We went further, going steadily up until we reached a relatively flat portion of the trail. I looked at my phone clock and saw that it was now 6:01 PM. Good pace. According to Avery, the part that we entered is around an hour hike until you reach the flat part of the trail. He hiked this path the day he first arrived and timed each “section” he came across. Supposedly, you just follow the level path for around 20 minutes and you find a slope downward. From there you are out of the woods in 45 minutes to an hour depending on how slippery it is. All together the hike, according to Avery’s three test hikes, is two and a half hours give or take. So we figured we could take a 10 minute break. We hydrated and got out our snacks, consisting of granola bars, nuts, and those tiny oranges, and sat down on the dirt below. I stretched, everyone else followed. Everyone seemed to benefit from the rest and we were all smiling. 
+
+“See Avery, this hike was a pretty good idea.” I said, smiling
+
+“You say that, but we still have time to get fucked to death by a forest demon or whatever.” 
+
+“As if you wouldn’t like that, whore.” Skyler responded. 
+
+“You act like I was worried about myself. I was worried about my dear friends, I’ll have you know. I will express my concern no more.” He retorted.
+
+“God, why do you always make things about sex Avery, why can’t it just be disembowelment or something.” Britt said, I think she was annoyed. Avery seemed to think earnestly for a moment.  It looked like he was weighing two responses in his mind. 
+
+“I don’t know honestly. Didn’t realize that I did that so often if I’m being for real.” He said, weirdly earnestly.
+
+“Its cool dude, I just don’t know if it was necessary t-” She began before she was interrupted by a loud but distant snap in the woods. Avery and Skyler jumped, Britt flinched, Ashley hugged me, and I sorta just stood still. 
+
+“Bitch, what the fuck was that!” Avery yelled, his eyes shifting back and forth.
+
+“It was probably just an old tree being knocked over by a deer or something.” Britt said
+
+“Yeah, she’s right. Snaps like that are pretty normal I think.” I said
+
+“Oh… yeah that makes sense. Sorry I’ve been really on edge recently.” Avery said. He was looking down, his eyes looking to his left. 
+
+“Bitch, stop being so mopey. Be annoying again. “ Skyler said. I think she was trying to come off as like bitchy, but her eyes seemed worried. It seemed to work though, Avery sat up straighter and smiles.
+
+“Sorry, I was just taking a break from carrying the group's comedy on my back.” He said, though his eyes still looked almost sad. After this, he stood up and we all followed. 
+
+When we began down the level path, it was initially very pleasant. It was 6:12 when we started down the path. After an hour or so almost entirely uphill, it was nice to give my calves a partial rest. We were actually pretty quiet, we all were just admiring nature. However, after a while I went up to Avery and said hi. Skyler and Britt were off just talking quietly, I don’t know about what. They seem to have a different dynamic than how I remember it.
+
+“Hey Avery, how’s it actually going? I don’t think we’ve talked, like actually talked, one on one.” I said. He seemed a little startled by me speaking. 
+
+“Oh, hey Wills… Yeah, I guess we haven’t. I’m sorry… I’ve just kinda felt off.” He said, looking down. He seemed his energetic self yesterday, but I did sort of feel like it was almost too much. I put my arm around his shoulder.
+
+“It’s fine Avery, don’t apologize. We all have off days.” I said.
+
+“It has been more of an off month, if I’m being real. I don’t know, ever since I got home. Clyde has been… I don’t know. I think living with him is a bad idea.” He said, looking away.
+
+“What, has he been hurting you or something?” I said, I think there was anger in my voice. His eyes were widening.
+
+“Oh, nothing… nothing like that. He’s just been really weird. Like he just stares at me sometimes… From outside, from the other room. Like I get he finds me hot or something but… I don’t know. I’m starting to understand what Britt is saying, I think… I don’t know I’ve just… felt so fucking alone even though I’m living with someone.” He said, taking deep breaths between sentences. I saw his mouth scrunch and I knew what was happening. I hugged him as he began to sob. 
+
+“Shh, its fine Avery. Look, if you don’t feel safe here… Don’t stay. My parents would be more than happy to host you for however long you need until you can go back to New York… You’ll finish your nursing program and… and you can come to Philly and get a job while I go through med school. You never have to be alone Avery… I’m here for you.” I said. He just nodded against my shoulder, he couldn’t will himself to speak. As I finished I realized everyone else was listening and looking at us. 
+
+We all spent like five minutes comforting Avery and by the end he was able to stop crying and smile. We kept close to him as we began walking again. We all just talked about personal stuff that I obviously won’t disclose. We tried walking faster just to keep on schedule. By 7:02 we reached the next section of the trail. However, as we turned the corner we saw the weirdest thing. A hunting ladder stand that went about 20 feet up. Now this is pretty normal to see in the woods, but Avery said that it wasn’t there a week ago. Weird, but we walked by it. We had to keep pace, we could think about the implications later.  
+
+What we couldn’t ignore was about thirty minutes down the sloping section of the trail. In the middle of the path were two, large horns. The horns that were on the goat we saw the day before. They weren’t broken at any point. They were also a good distance away from any trees, so it's not like they broke off. They had a rounded bottom as if they were shedded like deer antlers. I knew this wasn’t normal, but I was still trying to rationalize. 
+
+“Can goats shed their horns?”  I asked.  
+   
+“No, horns are permanent, they don’t just fall off like that… What the fuck…” Skyler said, her eyes looked afraid, staring at the horns, scanning for some proof or normality. She bent down, trying to look closer, scanning for a sign of a break before she stood up and backed away.
+
+“What the fuck! Who the fuck did that! Is this a prank or something?” Skyler said.
+
+“No? How could any of us pull a prank, we don’t know the trail? What did you see?” I asked.
+
+“It was a bundle of… it was a bundle of hair, like a lot of it. It was long and black… I think its… I think its human hair… It’s too soft to be goat hair… I also saw some tracks, goat tracks I think, going towards the horns, none were going back in…” We all turned white as she said it. Avery looked the worst of all. He was shaking, visibly disturbed. It might have been because he has long black hair. 
+
+“We got to leave.” Britt said, walking around the horns and going further down the trail. It was like something in her, some primal fear, was controlling her like a marionette. We all followed behind her, none of us touching the horns. We started slow, but we began running down the trail. We barely stopped for a second, our adrenaline propelling us forward until we were all panting at the exit of the forest. We ran to the lake house, locked the doors, and stood silently in shock for several minutes. We took some deep breaths.
+
+“What the fuck was that? Is… is someone in the woods?” Skyler said. Ashley was just staring, completely still, shell shocked. Britt was rubbing her fingers together as Skyler was hugging her like she was trying to keep her from running away. However weirdly enough, Avery seemed to be calming down as an idea was forming in his head.
+
+“That mother fucker…” Avery said quietly. 
+
+“Who? Who are you talking about?” Britt said.  
+“Fucking Clyde… Dude always likes pranking me. He probably left the horns there knowing I would hike that trail. He has black hair and his friend owns the farm near here. Fuck off. He probably set it up before he left.” He said, seeming annoyed now rather than afraid. We accepted this explanation quickly. We just assumed he pranked us and the noise everyone heard was unrelated.  It worked.
+
+“Oh my God! What a fucking dick! You have no choice now, you are staying at my parent’s house when the weekend is over.” I said, half seriously, half jokingly.
+
+“You might be right… I should just leave. If he tries anything I’ll call the cops.” He replied. 
+
+We all nodded and laughed about the whole situation. The moon rose and nothing really happened. Avery said he heard the noise, which everyone has since agreed sounded like a whistle, was just some weird bird. We were all just schizos making things up in our head and his weirdo predator boyfriend was trying to fuck with him. It all made sense.  So, celebrating the fact that we weren’t going to die, we naturally drank. A lot. Except Ashley, she doesn't drink so she just smoked some weed. 
+
+We danced, fucked around, and generally forgot about all of our problems. Ashley mostly just laughed at us while she ate chips on the couch. Britt and Skyler went to their room early, at like 11:30, they seemed pretty drunk, but not black out. Sober enough to know when to call it quits I guess? Avery, Ashley and I stayed up longer, giggling at a weird French film about Blue aliens who fuck with tiny people. I’m sure it's a deep film, at least Ashley said it was, but I don’t even really remember it.  I could barely read the subtitles. Avery passed out on the couch at like 1:30. 
+
+Ashley and I just started talking about random BS at this point. I was decently sober. I didn’t really get all that drunk to begin with, just enough to get that “I’m stupid” feeling. We lost track of time and suddenly I looked at my watch and it was 3:01 AM. I didn’t really have time to even realize how long I’ve been awake when Avery got up off the couch. 
+
+“Hey Avery, sorry I didn’t mean to wake you.” I said. He didn’t respond. Instead he walked out of the living room and went towards the front door. I followed after him and grabbed him after he opened the front door. Ashley followed and was watching everything happen. I turned him around. His eyes were glassy and vacant. He was sleepwalking. I pulled him away and tried to have him walk towards his bed. I heard that’s what you’re supposed to do in a sleep medicine class I took as an elective. However, he seemed intent on walking out the door. So I had to wake him.
+
+“Avery! Avery, wake up!” I said loudly a few inches away from his face. He blinked a few times then jumped back. He was breathing heavily and looking around. That is pretty normal for a sleepwalker being woken up. I had no other option though, I couldn’t have him accidentally hurting himself. I remember he sleepwalked a couple times at sleepovers so I didn't really think much of it. He took some deep breaths and looked at me. He seemed to be still slightly drunk too. 
+
+“Wills? Fuck, was I sleepwalking? I haven’t done that since I was a little kid.” He said, his voice was slightly slurred and he looked disoriented. I led him to his bedroom and locked the door before going with Ashley to our room. We fell asleep pretty quickly. I fell asleep just after her because I was a little nervous about Avery. 
+
+I ended up waking up at like 1:00 P.M. I hadn’t slept in like that since the summer before college. It was a mix of distressing and refreshing. I feel like I miss out on most of the day when I sleep in that long. Ashley was out of the room by then. I got up and went to the kitchen. 
+
+I ate a sandwich that Avery made for me. He wanted to make me a sandwich as a gift for preventing him from sleepwalking outside. It was a pretty damn good sandwich. After that I just went to the living room and everyone was just on their phones except Ashley. Britt and Skyler were showing each other instagram reels, Avery was just scrolling through random articles, and Ashley was reading a book. I went over to Avery and thanked him for the sandwich and he just gave me a thumbs up. I sat by Ashley and read a book on my phone. 
+
+We decided to just stay in yesterday. We didn’t really do anything until 6:00 PM when Avery started making us dinner. He apparently got a bunch of fancy fish to cook up along with like something called broccoli rabe and couscous which I haven’t really heard of before. So we were just heckling him and talking about whatever. He finished at around 7:30 and that’s around when we ate. He also, being a bartender to get through his vocational nursing program, made us our favorite cocktails. He had a LOT of different alcohol. We really only did tequila shots the night prior, but he had everything. He made us all our favorite cocktails, a negroni for me, vodka cranberries for Britt and Skyler, and a raspberry italian soda for Ashley. It was nice. We finished dinner around 8:30 and started a game of monopoly. We played it through, meaning we finished at 1:00 AM. It was a good mix of fun and rage inducing as any Monopoly game should be. None of us were that tired since we all woke up late and we started a TV show. Everything was normal until a couple hours in. 
+
+Out of nowhere we heard a loud noise just outside the house. Obviously we all jumped, even me. We were bickering back and forth of who should go check it out until we all agreed to go together. We didn’t bother closing the door because we knew it probably wouldn’t take long. When we went outside, we turned on our phone flashlights and looked around. After only like a minute Skyler said she found a tree that fell over. We all went towards it and it was really weird. It was a healthy, decently large tree. It wasn’t decaying or anything, it just fell, roots and all. The ground was wet, so it might have just been weekly rooted, but we had no idea what knocked it over. Probably a buck or something, but it's pretty unusual for them to be aggressive at this time of the year. We didn’t know what to do so we just went back inside.
+
+On the way back, we saw tracks leading to the house, some kind of hooves. Probably from whatever knocked the tree down. We didn’t look to see if any led away from the house. I again didn’t think much of it, but I’m starting to think we could be wrong about Clyde. Again, does any of this sound weird. We went to bed just fine. Well, I had some weird nightmare, but overall didn’t sleep too bad. I’m not sure if Avery sleepwalked, but he was in the house when I woke up so nothing bad happened if he did. I’m starting to think through everything and some things don't make sense. How did Clyde get goat horns that were identical to the ones on the goat he bought? I guess my brain could be playing tricks on me, but I swear they were identical.  
+
+I woke up late again today. I am kinda a nervous wreck at the moment. I just have a really bad feeling. Nothing happened yet today, but I just have a dreadful feeling that everything is going to go wrong. Let me know if this seems weird. I’ll update again if anything else happens.
+
