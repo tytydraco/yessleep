@@ -1,0 +1,79 @@
+All previous parts starting here
+
+https://www.reddit.com/r/nosleep/s/yxRBhvzrJ0
+
+My name is Dr. Fiona Bishop. I’ve been a medical examiner for fifteen years, and I’ve seen what water does to the human body. I’ve seen "floaters" pulled from the Gulf and bloat-victims from bathtub suicides. But I have never seen anything like the three "men" currently lying on tables one through three.
+
+​The police report from the Sterling estate mentioned a "structural failure of a large aquarium," but that doesn't explain the state of these bodies. Sterling, the billionaire, wasn't crushed.. He was.... Processed?
+
+His bones have been ground into fine white powder, as if by a thousand tiny, serrated millstones. And his son, Oliver? There’s a medical term for what happened to his arm, but I’ve only ever seen it in industrial wood-chipper accidents.
+
+​But the third one they identified as a local transient named Tony is the one making my hands shake.
+
+​He didn't drown in the traditional sense. 
+
+When I made the Y-incision, there wasn't a drop of blood. Instead, his chest cavity was packed with freezing, salt-heavy slush. And the smell... it didn't smell like a corpse. It smelled like the deep trench of the Atlantic. I know this it sounds crazy, I do.... 
+
+​"Dr. Thorne?"
+
+​I looked up. My assistant, Blair, was standing by the sink, her face pale. She was staring at the faucet. It was dripping. But the drops weren't falling straight down... They were hitting the stainless steel and crawling..slow, deliberate beads of water moving toward the drain like insects.
+
+​"The pipes are humming, Doctor," she said. Her voice was softer than before. It was almost monotone. "I can feel it in my teeth."
+
+​I ignored her, turning back to Oliver’s corpse. I needed to see the brain. I positioned the bone saw, but as the blade touched his skull, the body vibrated. A low, guttural sound echoed through the morgue. It sounded like a high-pressure valve being opened.
+
+​Oliver’s eyes suddenly snapped open. They were two black, liquid voids that started to leak down his cheeks. His jaw unhinged—way past the point of a normal human tendon, and then I heard it.
+
+​CLICK.
+
+​The undeniable sound of teeth hitting teeth.
+
+​I backed away, the bone saw clattering to the floor. "Blair, get out. Call the CDC. Tell them... tell them the water is sentient. Tell them it's real."
+
+​"I can't," she said. Her voice sounded wet and gurgly now, like she was trying to speak and gurgle at the same time.. 
+
+I turned to look at her. 
+
+She had a half-empty glass of water in her hand when she walked into the mourge minutes before, and now the cup was empty. 
+
+She finished the rest. She was staring at the floor, where the runoff from the morgue tables was beginning to pool.
+
+​As I looked down, I saw the water wasn't flat. It was rising, slowly forming a shape that my brain couldn't place until I could see it clearly. 
+
+It was a sleek, grey curve that shimmered in the fluorescent light. It looked like a dorsal fin made of liquid glass.
+
+​Suddenly, my phone buzzed in my pocket. It was a notification from the city's emergency alert system.
+
+​\[URGENT: CITY-WIDE BOIL ADVISORY. DO NOT CONSUME TAP WATER. AN UNIDENTIFIED CONTAMINANT HAS ENTERED THE RESERVOIR.\]
+
+​I looked back at the bodies. Sterling and Tony were gone... Well... Sort of. 
+
+Their bodies had melted. Their clothes were slumped in piles of grey, brackish slush on the tables. The slush was sliding off the edge, joining the pool on the floor.
+
+​That's when  I saw him.
+
+​A teenager was standing in the doorway of the morgue. He was soaked to the bone, his skin a translucent, sickly grey. It was the kid from the news... the one who escaped the water park. 
+
+Tommy.
+
+​His mouth was curled into that same, horrific, upward-slanting grin I saw on Oliver’s corpse. 
+
+It’s too late for the boil notice," Tommy said, his voice sounding like it was coming from the bottom of a well. "He's already in the steam. He's in the condensation on your skin. He's in the humidity."
+
+​Tommy stepped into the room, and the water on the floor surged toward him, climbing his legs like a loyal pet. Behind him, I saw two more shapes in the hallway. Two "bags" of grey, shimmering fluid that used to be his friends he was with the night of the "accident".
+
+And they were clicking their teeth in a horrific,  almost rhythmic symphony.
+
+​"He promised them back," Tommy whispered, looking at the water-logged husks of KC and Justin. "And he promised to make me his mouthpiece. I’m just here to tell you... the thirst never goes away."
+
+​I looked down at my own hands. I realized I’d been in washing them for twenty minutes. My skin was pruned and white. I felt a sudden, sharp ache in my jaw. I looked up in the reflection of the stainless steel cabinets.
+
+​I was smiling and my lips were beginning to slowly curl upward at the corners. 
+
+​I’m typing this on the morgue’s workstation while the room fills up. The water is coming out of the vents now. ​To whoever is reading this:
+
+Don't cry. Don't let your eyes water. Don't sweat. Because every drop of salt water in your body is a doorway. And the Maw just walked through.
+
+​I’m so fucking thirsty.... 
+
+​Click.

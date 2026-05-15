@@ -1,0 +1,307 @@
+I opened my eyes and immediately started panicking.
+
+I couldn’t move.
+
+At first I thought I was buried because everything around me was dark and cramped and cold, but then I heard chains move when I tried pulling my arms.
+
+I was chained to a wall.
+
+An actual stone wall. Huge blocks of rock, wet and freezing cold against my back.
+
+The room was circular. I remember that clearly for some reason.
+
+And I wasn’t alone.
+
+There were others – chained around the room just like me but the place was so scarcely lit that I couldn’t make out any of their features.
+
+Below us were stairs all converging down to the center of the room. And in the middle of the room was a raised stone slab.
+
+Then I noticed the figures standing around it. Humanoid shapes that started moving towards us. Lit only by a single torch one of them was holding.
+
+One by one they started dragging the others to the center.
+
+At first, I could hear crying. Quiet crying. Like people trying not to be heard. Then it turned into screaming. As they approached the slab the screams got worse and worse until suddenly it just stopped.
+
+This pattern repeated a couple of times until finally it was my turn.
+
+As the figures approached, I could now make out what they are wearing. They had long Maroon colored robes with hoods covering their faces. On top of each hood was a sigil of some sorts – a golden eye.
+
+I tried to say something but the words wouldn’t come out. They picked me up and dragged me to the center, I tried to resist but I couldn’t, my body didn’t cooperate.
+
+The only thing I could do was observe as they put me on the stone slab and chained me.
+
+I was frightened beyond my mind so I did the only thing I could. I closed my eyes.
+
+I dont know what they were doing to me, but it started hurting, my voice came back and I started screaming as much as I can, not daring to open my eyes.
+
+A wave of heat came over my body and the pain intensified.
+
+My ears started ringing. Louder louder and louder.
+
+Until...
+
+…something hit me in the face.
+
+I opened my eyes and there was a pillow over my face.
+
+“Danny what the hell?”
+
+“This is the third time this week!”
+
+“Is everything alright?”
+
+My heart was going insane.
+
+I was sweating so badly the sheets were damp.
+
+I got up, trying to adjust to the new setting. I looked at her without saying a word.
+
+She sighed and sat back down on the bed.
+
+“Same nightmare again?” she asked.
+
+I nodded.
+
+“Honey, maybe it’s time you finally see a therapist or something.” – she said
+
+*It was 6:47 AM. A Tuesday. I was already twenty minutes late for work.*
+
+“Thanks for letting me crash here for the night Jess” – I said
+
+“I’m gonna head for work, see you later”
+
+As I left her apartment I went straight into my car and I whipped out my laptop. I can’t hold it in anymore.
+
+I need to write this down before I lose my nerve. Or before something else happens. I'm going to try to tell it in order, even though my hands are shaking and I've re-read the first paragraph four times already and deleted it twice. Bear with me.
+
+My name is Danny. I'm twenty-nine years old, I work data entry for a logistics company, and until about three weeks ago, the weirdest thing about me was that I refused to own anything *maroon*.
+
+· · ·
+
+*The robes are always the first thing.*
+
+*Not faces — I never see faces. Just the robes. Deep, wet crimson, the color of something opened up. They crowd at the edges of wherever I am, which is always somewhere stone, always cold, always lit by something I can never look at directly. And they're chanting. Not words — or if they are words, they're in a language that feels like pressure behind my eyes when I hear it. The sound of it makes my teeth ache.*
+
+*There are other sounds too. Other voices. From somewhere close and somewhere very far away at the same time, there's crying. Kids crying. The sound of it is the worst part because it doesn't stop, it just keeps going under the chanting like a second, sadder instrument.*
+
+I've had versions of that dream for as long as I can remember. Not every night. Maybe once every few weeks, sometimes more when I'm stressed. I've never thought much about it. Therapist I saw at twenty said it was probably an anxiety response, and honestly I believed her, because I've always been an anxious person. I don't like crowds. I don't like feeling cornered. And I absolutely, viscerally, *irrationally* cannot stand the color maroon.
+
+Crimson too. Burgundy. That whole end of the red spectrum where it starts going dark and wet-looking. My college roommate Elliot thought it was hilarious. He bought a maroon throw blanket freshman year just to watch me flinch when I walked in the room. I always told him it was just a quirk. A texture thing. He eventually stopped because I think he could tell it wasn't entirely a joke to me even when I laughed about it.
+
+Anyway. That's the background. Keep it in mind.
+
+· · ·
+
+About two months ago, a woman moved into the apartment across the hall from me.
+
+Her name was Vera. Late thirties, dark hair pulled back very tightly, the kind of posture that makes you feel like you're slouching by comparison. She introduced herself on a Wednesday morning in the hallway, while I was fumbling with my keys. Very polite. Very still. She smiled in a way that involved all the right muscles but didn't feel connected to anything behind it.
+
+I told myself I was being unfair. I told myself that I was just bad at first impressions. People seemed suspicious to me sometimes and that was my anxiety talking, not my instincts.
+
+But she kept appearing. That's the thing I keep coming back to now. She *kept appearing.*
+
+My usual coffee shop on Thursday morning — she was in line two spots ahead of me, ordering, not looking around. My gym, which I go to at an odd hour specifically because I hate people — she was on the treadmill by the window when I walked in. The grocery store on Sunday. The parking lot of my office building, getting into a grey sedan, on a Tuesday when I had to stay late. Not looking at me. Never looking at me. Just *there.*
+
+I started keeping a note on my phone. I do this sometimes when anxiety is spiking — a log, something to show me whether a pattern is real or whether I'm building one out of nothing. I had seven entries in eleven days when I finally accepted that it wasn't nothing.
+
+Then the others started.
+
+· · ·
+
+The man at the laundromat. Middle-aged, reading a paperback, never turned a page in forty minutes. I know because I was watching. He was three machines down from me and every time I glanced up he was at exactly the same angle. When I left he folded his book closed and I noticed he had it upside-down.
+
+The teenager with the bike outside my building. She was there for four days straight, just sitting on the low brick wall across the street, earbuds in, watching her phone. Young enough that I felt stupid being nervous about her. Old enough that she made me nervous anyway.
+
+My coworker Marcus started inviting me to lunch. Which sounds fine and normal except that Marcus and I have worked adjacent to each other for two years and exchanged maybe a hundred words total, and suddenly he was *intensely interested* in me. My routine. Whether I had family nearby. Whether I ever had blackouts or periods I couldn't remember. He framed it like small talk. Like the natural progression of a friendship. But by the third lunch I was giving him one-word answers and eating fast and making excuses to get back to my desk.
+
+The thing about that question — the blackout thing — was that I didn't have a clean answer. I have these gaps. Always have. My adopted parents told me I had a rough first couple years before they found me and that's why I don't have memories from before I was four. Standard trauma response. Totally explainable. I've never questioned it much because what would questioning it even get me?
+
+But Marcus asked, and something twitched behind my sternum, and I said *no, never* and changed the subject.
+
+· · ·
+
+The first time something happened — something I couldn't explain away — was a Saturday afternoon in the third week of all this.
+
+I was coming back from a walk. I do this sometimes when the walls of my apartment start feeling like they're leaning in. Just walk. No destination, no headphones. It helps. It was a grey afternoon, cold enough that there weren't many people out, and I'd managed to get genuinely calm for the first time in weeks when I turned the corner onto my street and almost walked directly into the man with the upside-down book.
+
+He was just standing there. On the sidewalk. No pretense, no prop this time — just standing there looking at me with an expression I can only describe as anticipation.
+
+He said: *"You're not sleeping well."*
+
+Not a question.
+
+I said something like *excuse me?* and moved to go around him and he side-stepped to match me and said, very quietly, very evenly: *"It's going to get worse before it gets better, Daniel. We can make it stop. We can explain everything."*
+
+Nobody calls me Daniel. My name is Danny. It's on my mailbox as D. Wren. He said *Daniel* like he'd been practicing it.
+
+I walked around him. Fast. Heart going absolutely insane in my chest. Didn't look back. Got upstairs, locked my door, stood in the kitchen breathing through my nose until my hands unclenched.
+
+I sat there for a long time. And at some point — because the anger had nowhere to go — I picked up a mug and threw it at the wall.
+
+It didn't break. It hit the wall and bounced, which is not what mugs do, and landed on the floor and spun and stopped. And there was a sound from the hallway. Not from Vera's apartment, not from downstairs — from the hallway itself, like something very large shifting its weight.
+
+My neighbor Mr. Hale's dog started barking and didn't stop for twenty minutes.
+
+I told myself the mug thing was cheap ceramic or weird angles or something. I believed it, mostly. The barking was harder to file away.
+
+· · ·
+
+A week after that I ran into Vera in the elevator and she told me, without any preamble, that I looked exhausted and I should try valerian root. Then she looked at my chest — not my face, my *chest* — and the elevator opened on the ground floor and she walked out without another word.
+
+I'm not wearing anything at my chest. I never wear necklaces. My shirt was a plain grey crew neck. There was nothing to look at.
+
+She looked, though. She definitely looked.
+
+· · ·
+
+I need to tell you about my parents. My adoptive parents, Peter and Lena Wren. They're good people. Genuinely good, the kind you don't appreciate properly until you're in your mid-twenties and have met enough other people to have a comparison. They adopted me when I was four. Found through the system, my file apparently sparse even by the standard of underfunded caseworkers. My mom used to say I arrived with nothing except the clothes I was in and a willingness to eat everything she put in front of me.
+
+I called my dad two days after the elevator thing. Just to talk. He could tell something was off — he always can — and he asked if everything was okay and I said yeah, just stress at work, and then I said, casual as I could make it sound:
+
+*"Hey, did I ever have any medical stuff as a kid? Like, any history they gave you when you adopted me?"*
+
+There was a pause. Very short. Probably nothing. But I've known my dad for twenty-two years and he is not a man who pauses before answering normal questions.
+
+He said no, the file was basically empty, which was common for kids from chaotic situations. He said I had some night terrors early on but grew out of them. He said I was a happy kid. He asked again if I was really okay.
+
+I said yes. We talked about other things. He told me about the garden, about my mom's new book club. Normal things. Good things.
+
+When I hung up I sat on the couch for a while and thought about the pause.
+
+· · ·
+
+Marcus resigned from my company on a Friday. Just — gone. Sent an email Thursday evening and cleaned his desk. His replacement started the following Monday, a woman named Priya who was perfectly normal for about three days and then started asking if I'd ever considered joining a meditation group because she thought I had *a lot of energy that needed directing.*
+
+I ate lunch alone at my desk for two weeks after that.
+
+The nightmares were coming more often. Not the dream — the crimson robe dream stayed the same, same stone room, same crawling hands, same chanting — but after it, in the shallow sleep that followed, I kept dreaming about something at my chest. A weight. Something small and warm. I'd reach for it and wake up with my hand on my sternum and nothing there.
+
+· · ·
+
+What happened on the Thursday three weeks ago — I'll try to be precise about this because the order matters.
+
+I left work early. I had a headache that had been building all day into something genuinely unpleasant, the kind that sits behind one eye and pulses. I took the bus instead of walking. I was sitting near the back, head against the window, eyes mostly closed, when I realized the woman in the seat ahead of me was Vera.
+
+I hadn't seen her get on. I hadn't seen her sit down. But there she was, back to me, spine absolutely straight, head not moving.
+
+Two seats back from me, by the rear door: the teenager with the bike. No bike now. Earbuds in. Watching me over the top of her phone.
+
+Across the aisle: a man I didn't recognize, but the way he was sitting — too still, too deliberate — made the back of my neck go cold.
+
+I got off four stops early. So did all three of them.
+
+I walked fast. Then faster. I turned down a side street and through a parking garage because I know the area and there's an exit on the other side that cuts through to a busier road. I could hear footsteps behind me — not running, not panicked, *measured* — and that was somehow worse than running would have been.
+
+The parking garage exit door was locked. It's never locked. I stood there pulling the handle like an idiot until I heard the footsteps enter the garage behind me.
+
+I turned around.
+
+All three of them. Vera and the teenager and the strange man, fanned out maybe thirty feet away, not moving. Watching me.
+
+And Vera — Vera was holding something. A small dark shape on a cord. She had it in both hands, held slightly outward, like an offering.
+
+She said: *"Daniel. We have something of yours. And you have something of ours. We just want to talk."*
+
+I told her she had the wrong person. I said it twice, loudly. My voice echoed in the concrete space.
+
+She said: *"You survived, Daniel. Against all probability, you survived. We've been trying to understand what you did for a long time. We're not here to hurt you. We're here because we need you to finish what you started."*
+
+The man behind her reached into his jacket.
+
+And something happened in me that I don't have clean words for. It wasn't thought. It wasn't decision. It was more like a door that had always been in me, that I'd always walked past, swinging open on its own. All the weeks of stress and surveillance and bad sleep and confusion just *cresting*, and something underneath all of it answering.
+
+I heard the thing before I saw it.
+
+A low sound, bass-deep, that I felt in my molars more than heard with my ears. From the shadows behind the parked cars, from the dark space between the support pillars. Something moving that was too large to be moving in that space without touching anything, and yet it wasn't touching anything.
+
+Vera dropped the pendant. I watched it hit the concrete and I watched the look on her face and it was not the face of someone in control of a situation.
+
+I ran. Through the fire exit door that was now, inexplicably, open. Down the alley. Out onto the bright street. I didn't stop until I was through the door of a crowded café and had a table with my back to the wall and a coffee in front of me that I didn't taste.
+
+Behind me in the garage: shouting. One scream, then silence.
+
+Then nothing. No sirens. Nobody came out after me.
+
+· · ·
+
+I went home. I know I should have called the police. I know. What would I have said? I was followed? Cornered? By my neighbor and some strangers who said cryptic things and then I heard a sound and ran? They'd want to go to the garage and I didn't want to know what was in the garage.
+
+I double-locked my door and sat on the couch and tried to think clearly.
+
+Vera's apartment had been quiet since I got home. No movement, no sound. At around nine PM I very carefully looked through my peephole. Her door was slightly open. Not much — an inch, maybe two. In twenty-something years of apartment living I have never once seen a person leave their front door ajar in the evening.
+
+I did not open it. I went back to the couch.
+
+At some point I slept. And I dreamed the dream — the robes, the stone, the chanting, the hands — except this time, at the end, just before the bright and the heat, I looked down at my own chest and I saw it. A pendant. Small. Dark metal, shaped in a way I couldn't quite resolve, on a black cord. Warm against my skin even in the cold stone room.
+
+And in the dream, something looked back.
+
+Not at me. *Through* me. Something very far down and very patient, like looking through ice to see movement in deep water.
+
+I woke up at three AM and lay there for a long time and eventually, because I needed to do *something*, I started writing this.
+
+· · ·
+
+I called my dad again this morning. I didn't make it casual this time.
+
+I told him what was happening — not all of it, the version that would sound least insane — and I asked him directly: *Was there anything in my file? Anything at all?*
+
+Another pause. Longer this time.
+
+He said: *"Danny. I need to tell you something we probably should have told you a long time ago."*
+
+They found me in 2001. A social worker in a rural county, responding to an anonymous tip about a property — a farmhouse, or what had been a farmhouse, because by the time anyone got there most of it had burned. There were adults on the property. Eleven of them. The official determination was a fire of indeterminate origin. The investigation went quiet fast, the way investigations sometimes do when someone above someone decides they should.
+
+I was found in a field twenty meters from the building. Age approximately three or four. No ID. No one came forward to claim me. My file listed the case number from the rural county and nothing else.
+
+My dad's voice was very steady when he told me this. He's a steady man. But I could hear something else underneath it, something he'd been carrying for a long time.
+
+He said: *"We never asked too many questions because we were afraid of the answers. We just wanted you to be okay. We just wanted you to have a normal life."*
+
+I told him I loved him. I told him I'd call him again soon. I hung up and sat with my coffee going cold and thought about a farmhouse burning in a rural county in 2001, and eleven adults who apparently didn't survive it, and one child found twenty meters away in a field.
+
+Thought about a pendant, warm against cold stone.
+
+Thought about a door swinging open in me when I'm pushed far enough, and the sound that comes from the dark places when it does.
+
+Vera's apartment is empty. I looked through the open door this morning. Bare floor, nothing in the closets, the bathroom light left on over nothing. Like she was never there.
+
+Priya didn't come in today. Called out sick.
+
+I don't know what they are. I don't know what I did in that farmhouse in 2001 or what's been doing things in parking garages and building hallways when I'm scared enough and cornered enough to crack open. I don't know if they'll send more people, or the same people, or just wait.
+
+But I'm posting this because I need someone to know. And because I know you'll believe me here, which is more than I can say for anywhere else.
+
+If you're reading this and you know what a cult farmhouse fire in a rural county in 2001 might connect to — anything, any detail — please tell me.
+
+And if you own anything in that dark end of red — maroon, crimson, burgundy — maybe just keep it out of sight for a while.
+
+I don't entirely understand why I'm saying that. But I mean it.
+
+**UPDATE — 6 hours later**
+
+Someone slid a piece of paper under my door while I was writing the above.
+
+It's a photocopy of what looks like a handwritten ledger entry. Old paper, old handwriting. There's a date — I can make out a year that ends in 97 — and a list of names I don't recognize, and at the bottom, circled in pen by whoever made the copy:
+
+*D. Cassel — vessel confirmed. Pendant transferred. Summoning incomplete. Primary subject unaccounted for. Pendant unresponsive since incident. Awaiting recovery of subject. He is the key, not the lock.*
+
+Under that, in different, newer handwriting:
+
+*We found you, Daniel. We're not the ones who want to hurt you. We're the ones who stopped them in 2001. Please open your door.*
+
+I haven't opened my door.
+
+But I'm sitting here and I'm thinking about what *vessel confirmed* means, and what *he is the key, not the lock* means, and why a pendant that doesn't respond to them responds when I'm near it without even touching it.
+
+I'm thinking about the thing in the deep water, looking back.
+
+I don't think it's waiting for them.
+
+I think it's been waiting for me to stop running from it.
+
+I don't know what I'm going to do. But I'll update again when I know more.
+
+— Danny
+
+ 
