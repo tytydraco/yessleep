@@ -8,9 +8,7 @@ I pulled into the driveway, tears streaming down my cheeks, and I let out a long
 
 I walked at a slow, mechanical pace to the front door, hating every second. Now inches from it, I inhaled, and the smell of cheap paint filled my lungs. I gathered the courage to open the door, and with one final push, I was inside.
 
-I looked around, analyzing every detail: the floorboards, the chipped paint on the walls, and a picture of her. I walked toward it and cupped my hand around the frame, tears once again escaping my eyes. I didn't feel comforted by the picture; instead, all I felt in that moment was a cancerous sense of dread. I quickly put the picture down and stepped away, not needing any more reminders of what I had done. I walked into the
-
-kitchen, and there, my personal devil stared at me-bottles upon bottles of liquor. I growled at the sight of them.
+I looked around, analyzing every detail: the floorboards, the chipped paint on the walls, and a picture of her. I walked toward it and cupped my hand around the frame, tears once again escaping my eyes. I didn't feel comforted by the picture; instead, all I felt in that moment was a cancerous sense of dread. I quickly put the picture down and stepped away, not needing any more reminders of what I had done. I walked into the kitchen, and there, my personal devil stared at me-bottles upon bottles of liquor. I growled at the sight of them.
 
 I dumped every last bottle, yelling and sobbing as I did, my eyes nearly fogged from tears. After the bottles were emptied of all their sins, I slumped and sat on the floor, my hands cupping my face as my back pressed against the wooden cabinet.
 
@@ -22,9 +20,7 @@ I stepped into the bathroom and noticed something off. It was not noticeable to 
 
 I froze and analyzed the tooth, as if it were the most important thing in the world at that moment. I reached out to touch it, but in a moment of clarity, I ripped my hand away. No, this wasn't normal, but it didn't pose an immediate threat, so in a moment of ignorance, I brushed it off.
 
-Making my way out of the bathroom, I opened the door, only to be met with the overwhelming scent of gasoline. The smell was overbearing to a harrowing degree. I
-
-looked around the room: under the bed–nothing; the closet–nothing; even under the bedspread itself. It was as if the air itself had turned vulgar. I held my shirt over my mouth and nose and hurried out of the bedroom, however, the smell was nearly everywhere. I gasped and coughed; the smell was making me violently queasy.
+Making my way out of the bathroom, I opened the door, only to be met with the overwhelming scent of gasoline. The smell was overbearing to a harrowing degree. I looked around the room: under the bed–nothing; the closet–nothing; even under the bedspread itself. It was as if the air itself had turned vulgar. I held my shirt over my mouth and nose and hurried out of the bedroom, however, the smell was nearly everywhere. I gasped and coughed; the smell was making me violently queasy.
 
 I ran out of the house and took a long, deep inhale of fresh air, looking back at the house in disgust. I stood out there for an hour before daring to go back inside. Stepping back into the house, the smell was gone. I sighed with temporary relief, knowing whatever was going on wasn't over.
 
@@ -42,4 +38,4 @@ Leaving the garage shaken, I decided the smart thing was to call, or attempt to 
 
 "Hello? What do you need, Mark?" my friend's voice echoed through the phone.
 
-"Can you come help me check something out, please?" I asked, nearly pleading. But just as my hope rose, the sound of the phone call ending beeped into my ear. I now realize I'm alone in this situation.
+"Can you come help me check something out, please?" I asked, nearly pleading. But just as my hope rose, the sound of the phone call ending beeped into my ear. I now realize I'm alone in this situation.  And now, I hear a rhythmic beating coming from the walls.
