@@ -269,3 +269,5 @@ Three quiet taps against the front door.
 Then my own voice. Muffled, but mine.
 
 “Mom, please. You know it’s me.”
+
+EDIT: Update [here](https://www.reddit.com/r/nosleep/comments/1tdfiw0/update_i_ran_into_an_old_friend_last_week/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
