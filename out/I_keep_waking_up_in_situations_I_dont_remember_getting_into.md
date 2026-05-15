@@ -24,7 +24,7 @@ At first, I could hear crying. Quiet crying. Like people trying not to be heard.
 
 This pattern repeated a couple of times until finally it was my turn.
 
-As the figures approached, I could now make out what they are wearing. They had long Maroon colored robes with hoods covering their faces. On top of each hood was a sigil of some sorts – a golden eye.
+As the figures approached, I could now make out what they were wearing. They had long Maroon colored robes with hoods covering their faces. On top of each hood was a sigil of some sorts – a golden eye.
 
 I tried to say something but the words wouldn’t come out. They picked me up and dragged me to the center, I tried to resist but I couldn’t, my body didn’t cooperate.
 
