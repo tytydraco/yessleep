@@ -54,7 +54,7 @@ Been staring at the text cursor blink for about an hour now. I don’t know whe
 
 I walked in. My heart began thrashing. Adrenaline gnawed at the back of my eyes. 
 
-That place wasn’t a house; hadn’t been for a long while. No rooms. No division of space. Someone had stripped the inside to form a single cavernous chamber. Some vestiges of the house it used to be were still apparent. Part of the floor was tile. Another part was made from carpet. Ten feet up, jagged shards of wood jutted from the walls; all at the same height. The remnants of a second floor, maybe. 
+That place wasn’t a house; hadn’t been for a long while. No rooms. No division of space. Someone had stripped the inside to form a single cavernous chamber. Some vestiges of the house it used to be were still apparent. Part of the floor was tile. Another part was lined with carpet. Ten feet up, jagged shards of wood jutted from the walls; all at the same height. The remnants of a second floor, maybe. 
 
 On one side, there was a giant metal box. The top of it nearly touched the ceiling. The outside was smooth and featureless, save for the side that faced the mural, which had a large window. 
 
@@ -106,7 +106,7 @@ Ajax clicked his tongue. 
 
 Cautiously, I approached.
 
-There wasn’t much to see - the inside was dark. I squinted. There was something wrong with his reflection. Was it blurry? I moved closer. No, his reflection wasn’t blurry; there were two *separate* reflections. The second was smaller and was displaced from the first, shifted a few degrees clockwise. 
+There wasn’t much to see - the inside was dark. I squinted. There was something wrong with his reflection. Was it blurry? I moved closer. No, his reflection wasn’t blurry; there were two *separate* reflections. The second was smaller and displaced from the first, shifted a few degrees clockwise. 
 
 The realization hit me like a sucker punch.
 
