@@ -233,3 +233,5 @@ I thought about noticing eyes and hands gripping the edge of surfaces, watching 
 Even if she did remember, make no question about it, she wouldn’t do this. Even if she wanted to, she couldn’t. The prank would have to be all-consuming or cosmic in its scale. You don’t just change names of something. Even if the company did, that wouldn’t change my set.
 
 Things don’t just change like that. Things don’t just get replaced like that. Things aren’t like this. Things don’t happen this way. It’s not natural.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/1tej2lc/please_read_this_before_it_disappears_part_ii/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

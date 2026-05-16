@@ -102,9 +102,9 @@ They were still as statues, just like their coworkers. Only their eyes moved, fo
 
 We passed a bright stage light, and for a moment, I was blinded. But when the scene came back into focus, it took everything in me not to scream. 
 
-The woman lying on the table had no eyes. 
+I will never forget the image of that woman lying on the table. 
 
-The corners of her mouth were stitched into a permanent grin. Deep gashes in her cheeks ran almost to her ears. And her eyes. They were missing all together. Two hollow pits staring eternally at nothing. 
+The corners of her mouth were stitched into a permanent grin. Deep gashes in her cheeks ran almost to her ears. And her eyes. They were missing altogether. Two hollow pits staring eternally at nothing. 
 
 Part of me thought it was really good makeup. That this was all some elaborate ruse to scare the new guy on set. 
 
@@ -128,7 +128,4 @@ One was from Apple: *AirTag Near You*
 
 The second was from an unknown number. 
 
-*Call the police, and you will* ***pay****. We know where* [you live.](https://www.reddit.com/r/HorrorJunkie123/) 
-
-  
-  
+*Call the police, and you will* ***pay***\*. We know where\* [you live.](https://www.reddit.com/r/HorrorJunkie123/) 
