@@ -116,9 +116,15 @@ The realization hit me like a sucker punch.
 
 The box scared him.
 
-“I’ve been inside. It’s completely soundproofed, all you can see is a faint reflection of yourself in every direction, and the glass? It’s scratched to hell and back.” I was already thinking it, but hearing him say it summoned a wave of fresh dread under my skin. 
+“I’ve been inside. It’s completely soundproofed, all you can see is a faint reflection of yourself in every direction, and the glass? It’s scratched to hell and back.”
 
-“We think it’s where they held their victims.” 
+I knew what he was about to say.
+
+Still, hearing him say it cemented the brutality.
+
+Made it real.
+
+“We think that's where they held their victims.” 
 
 \- - - - -
 
@@ -136,13 +142,13 @@ I leaped from my chair, threw my arms down, and swept the books off the side of 
 
 *A glimpse of something real, something preternatural, and I’m blowing it. It’s slipping through my goddamned fingers.* 
 
-My eyes landed on something at the bottom of the pile. A purple square peeking out from my ragged copy of *Foucault’s Pendulum.* My breathing slowed. The heat simmered and died. I rolled my shoulders. The weathered joints clicked and cracked; years of hunching over a laptop had molded the ligaments into unnatural, painful shapes. The price of academia, I guess. 
+My eyes landed on something at the bottom of the pile. A purple square peeking out from my ragged copy of *Foucault’s Pendulum.* My breathing slowed. The heat simmered and died. I rolled my shoulders. The weathered joints clicked and cracked; years of hunching over a laptop had molded the ligaments into unnatural, painful shapes. 
 
 I took a seat on the floor and pulled the purple note out of the book. It was something I’d believed lost for a while. I unfolded it carefully. My chest fluttered at the sight of her flowery cursive. 
 
 Annie and I were so in love, back then. 
 
-It was puppy love, that one-of-a-kind infatuation of youth, explosive, ravenous, and terminal. She had her pursuits. I had mine. Neither of us would compromise, and that was that. College ended. We each moved on. I couldn’t abandon my path. Studying the occult was the only thing that seemed to keep the memories at bay. It made what happened to me as a child seem smaller. Explainable. Clinical. It sterilized the trauma. And for a time, that was enough. I felt full. Knowledge was a barrier. More recently, though, I’d noticed a change. For the first time in years, the memories felt alive, and with that came a familiar magnetism. Knowing wasn’t enough anymore; I wanted to feel the preternatural. I wanted to sense it slipping through the slits in my teeth, taste it rolling over my tongue and dragging down my throat…
+It was puppy love, that one-of-a-kind infatuation of youth, explosive, ravenous, and terminal. She had her pursuits. I had mine. Neither of us would compromise, and that was that. College ended. We each moved on. I couldn’t abandon my path. Studying the occult was the only thing that seemed to keep the memories at bay. It made what happened to me as a child seem smaller. Explainable. Clinical. It sterilized the trauma. And for a time, that was enough. I felt full. Knowledge was a barrier. More recently, though, I’d noticed a change. For the first time in years, the memories felt alive, and with that came a familiar magnetism. Knowing wasn’t enough anymore; I wanted to feel the preternatural. I wanted to sense it pressing through the slits in my teeth, taste it rolling over my tongue and dragging down my throat…
 
 Suddenly, my ears perked. 
 
@@ -156,7 +162,13 @@ The note slipped from my trembling fingers, and I stumbled to my feet. It was cl
 
 It was coming from the garage. 
 
-I twisted the knob with a sweat-caked palm and creaked the door open. The garage was impenetrably dark, but I could hear it perfectly. The noise was coming from somewhere in the blackness. Just a few feet ahead. My fingers groped the wall until they landed on the light switch. I flicked it. Nothing. Flicked it again. Nothing. I reached into my pocket, pulled out my phone, and turned on its flashlight. Hazy light spilled onto the concrete. They were tucked in the narrow space between my car and the far wall. I could see their body squirming along the floor. I inched forward, heart thundering, sickness heaving up my throat. The air was hot and wet. The atmosphere boiled along my skin. 
+I twisted the knob and gradually creaked the door open.
+
+The garage was impenetrably dark, but I could hear it perfectly. The noise was coming from somewhere in the blackness. Just a few feet ahead. My fingers groped the wall until they landed on the light switch. I flicked it. Nothing. Flicked it again. Nothing. I reached into my pocket, pulled out my phone, and turned on its flashlight. Hazy light spilled onto the concrete.
+
+They were tucked in the narrow space between my car and the far wall. I could see their body squirming along the floor.
+
+I inched forward, heart thundering, sickness heaving up my throat. The air was hot and wet. The atmosphere boiled along my skin. 
 
 I peered around the edge of my sedan and pointed my light at the figure.
 
@@ -184,15 +196,13 @@ It was all just some fucked dream. 
 
 My thigh buzzed. I pulled my phone from my pocket, glancing at the time before I answered the call: 4:32 AM. 
 
+“H-hello..?” 
+
 There was a long, vacuous pause. Static hissed into my ear. 
 
 Finally, Ajax spoke.
 
-“H-hello..?” 
-
 “You need to come back.” 
-
-Ajax. 
 
 “What? Now? It’s the middle of the goddamned night.” 
 
@@ -276,7 +286,7 @@ There was an emaciated child. They were barefoot. A massive, tattered T-shirt hu
 
 The cashier stuttered out some meager threat. 
 
-The tall figure grasped the golden key and inserted it into a slit in the box. The side facing the cashier gradually jerked open. 
+The tall figure grasped the golden key and inserted it into a slit in the box. The side facing the cashier gradually opened. 
 
 Instinctively, I diverted my eyes. 
 
