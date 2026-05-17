@@ -1,0 +1,152 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1skyggi/i_took_a_job_maintaining_an_augmented_reality/) / [Part 2](https://www.reddit.com/r/nosleep/comments/1smauuk/i_took_a_job_maintaining_an_augmented_reality/) / [Part 3](https://www.reddit.com/r/nosleep/comments/1sr4d1e/i_took_a_job_maintaining_an_augmented_reality/)
+
+The next afternoon I drove back to the house alone beneath a ceiling of low gray clouds. The trees along the property line bent slightly in the wind, and the gravel under my tires sounded unnaturally loud as I pulled up beside the hedges. In daylight the house looked less uncanny than it had the night before. Less like a trap. Still, something about it felt abandoned in the wrong way, like a building that had been left behind while pretending nothing had changed. 
+
+Peter hadn't answered my calls or messages. Around noon he finally sent a single text.
+
+Running late. Check overnight logs if you want. Don't start any environments without me.
+
+The last sentence stayed with me the entire drive there. 
+
+The front door was unlocked again. Inside, the air smelled faintly metallic, mixed with the cold sterile scent of electronics running too long in a closed space. The house was quiet except for the low electrical hum hidden somewhere behind the walls. I passed through the sitting room and into the hallway, my footsteps muffled by the deep green carpet. 
+
+Halfway to the kitchen I stopped. 
+
+One of the hallway lights was on. 
+
+That shouldn't have bothered me as much as it did, but Peter kept most of the house dark during the day unless an environment was active. Usually the second floor sat in complete shadow to keep it cooler. Now a warm yellow glow spilled faintly across the landing at the top of the stairs, illuminating part of the hallway ceiling. 
+
+I stood there listening for movement. Nothing. 
+
+Eventually I continued into the control room. 
+
+The monitors were already awake. Camera feeds cycled silently across the walls: empty rooms, hallways, the staircase, the study near the front entrance. Everything looked normal, but after yesterday I no longer trusted what "normal" looked like inside that house.  
+
+I sat at the console and pulled up the overnight diagnostics. The logs were still open from where Peter had left them. 
+
+03:17 - Bedroom 2 Active  
+03:17 - Projection Grid Online  
+03:18 - Environment Loaded  
+03:18 - User Count: 0
+
+I frowned and scrolled further.
+
+03:19 - Hallway Projection Active  
+03:19 - Environment Sync Initialized  
+03:20 - Boundary Warning
+
+Boundary warning.
+
+I clicked the entry. A rough floor map of the house appeared on-screen. Most of the rooms were highlighted blue, indicating inactive grids. Three sections glowed red. 
+
+Bedroom 2.
+
+The upstairs hallway. 
+
+And another room I didn't recognize. 
+
+At first I assumed I was reading the map incorrectly. Then I leaned closer and realized the highlighted room extended beyond the edge of the house itself. According to the floor plan, it occupied space that physically shouldn't have existed. 
+
+I stared at it for several seconds, trying to make sense of what I was seeing. 
+
+Then one of the camera feeds changed.
+
+The upstairs hallway camera appeared on the center monitor. The image was live. Empty corridor. Yellow light glowing faintly from somewhere near the end of the hall.  
+
+My stomach tightened. 
+
+One of the upstairs doors stood open. 
+
+Not the field room. 
+
+The last door at the far end of the corridor. 
+
+I kept staring at it, trying to remember whether that room had been there yesterday. The more I thought about it, the less certain I became. I knew the second floor only had three bedrooms. I had walked the hallway multiple times. 
+
+Now there were four doors. 
+
+The monitor flickered suddenly. A figure crossed the hallway camera so quickly I barely registered it before the image distorted into static. The interference lasted less than a second. When the feed stabilized again, the hallway was empty. 
+
+I sat very still. 
+
+Then I heard footsteps overhead. 
+
+Not through the speakers. 
+
+Above me. 
+
+A slow creak crossed the second floor ceiling, followed by another. Someone, or something, was walking across the upstairs hallway. I looked immediately back to the monitor. 
+
+The corridor remained empty. 
+
+Another step sounded above me. Closer this time. 
+
+A cold pressure tightened slowly in my chest. I switched audio channels on the console until one of the hallway microphones came alive with a layer of soft static. For a few seconds I heard nothing except electrical hiss. 
+
+Then a door opened upstairs.
+
+Slowly.
+
+The sound came clearly through the speakers. 
+
+On the monitor, the new door at the end of the hallway stood wider open now. The room beyond it was dark at first, but as the camera exposure adjusted, details slowly emerged from the shadows. 
+
+Wallpaper. 
+
+Yellowed ceiling paint. 
+
+A hanging light fixture swaying slightly. 
+
+Furniture.
+
+Old furniture. Worn furniture. 
+
+Not staged like the rest of the house. Lived in.
+
+I felt myself leaning unconsciously toward the screen. 
+
+The room on the monitor didn't belong inside that house. 
+
+A shape moved somewhere in the darkness beyond the doorway. 
+
+Human. 
+
+The figure crossed partially into view for only a moment before disappearing deeper into the room again. It wasn't running or hiding. If anything, it moved casually, the way someone moves through a familiar home late at night. 
+
+I grabbed the radio Peter kept beside the console. 
+
+"Peter?"
+
+Only static answered. 
+
+Upstairs, another floorboard creaked. 
+
+Then another. 
+
+I looked back at the hallway feed. The camera flickered once. For a single distorted frame, someone was standing directly in front of the lens. 
+
+Tall.
+
+Featureless. 
+
+Then the image snapped back to normal.
+
+Empty hallway. 
+
+My phone buzzed violently in my pocket, making me jump hard enough that I nearly dropped the radio. A text from Peter filled the screen. 
+
+DO NOT GO UPSTAIRS
+
+Another message appeared almost immediately. 
+
+If you hear movement, stay in the control room.
+
+Then a third message arrived.
+
+This one wasn't from Peter.
+
+In fact, there was no sender listed at all.
+
+The message contained only four words. 
+
+HE IS INSIDE NOW. 
