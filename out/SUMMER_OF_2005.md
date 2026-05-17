@@ -1,0 +1,93 @@
+Sometimes, there are instances in your life growing up where, looking back on them, you realize there was a very thin line between you standing here in the present and being gone for good.
+
+A careless run across a busy road, tampering with household circuits or standing too close to the balcony railing. One wrong move and you wouldn’t be lucky enough to think back on it.
+
+I experienced something similar, not in the sense of mundane mistakes, but in the sense that I would not be here recalling this incident to you. I haven’t been able to sleep well for the past few days and I do not know who to talk to about this anymore. Not because nobody believes me (believe you me that is not the case), but primarily because nothing can be done about it anymore. It’s a hollow place in my life where nothing exists anymore and the past is too far away to try to prevent the damage it had done.
+
+I was 11 years old, my parents’ only child and daughter. I had trouble fitting in socially. I had trouble making friends easily because I would go on trying to tell them a little too much about a topic, purely out of wanting to share my knowledge on it, but it would come off as me trying to be better than the other kids. Looking back, I realize how rude that could’ve seemed to them. I was awkward, to say the least, but I didn’t know I was awkward, which is the worst kind in my opinion. I would jump up and down, talk too fast, make weird expressions with my face and think nothing of it.
+
+When a child does this, the other kids, without necessarily not wanting to be friends with them, pull away because they see something unfamiliar, something unexpected from normal social settings. Therefore, I was mostly by myself, eager and jittery whenever someone came up to me, but if not, busy tinkering with some project of my own.
+
+Not having friends to play with in the summer of 2005, I usually just played by myself. My parents were both working and I was not allowed to wander far from our house. It was okay then to leave a kid home alone for the neighbours knew each other well and had a key to the house to check in.
+
+I was out in the backyard playing with a sort of 3D cardboard puzzle. It was a pretty new concept to me when I saw it and I knew I had to get my hands on it.
+
+I was busy playing with it when out of the corner of my eye I saw a figure and looked up. I had to squint a little to make out the features but I knew it was a boy, a couple inches taller than I was, standing there lankily and staring at me.
+
+He wasn’t glaring or scowling, and his features were soft. He looked like he’d been crying, but now his eyes just kind of stared innocently at me, his head tilted. One of his eyes scrunched up and his lips pouted, you know that expression kids make when looking at something.
+
+Me, seeing a kid I could play with, perked up excitedly.
+
+“Hello! Do you wanna play?” I shouted.
+
+He didn’t say anything at first and kept looking at me. Then, when he walked towards me, I noticed he was limping. He looked like he was in a lot of pain to have been limping like that.
+
+He came and sat next to me but still didn’t say anything. I didn’t ask about the limp because, first of all, I was a child. I didn’t really care much, I was excited to have company and didn’t want to make him go away with questions.
+
+I let him be but I wanted to see what he was like, so I kept my hands busy with the puzzle. Instead of solving it, though, I kept my head down while my eyes stayed on him. If he realized I was looking at him, I’d look down again and start making motions with my hands, then go right back to studying him.
+
+His face was pale, even in the summer, as if he spent all his time indoors in a dark room. His eyes were puffy and, at the moment, looked lost. Dissociated is the word. Every now and then he would sigh dejectedly and look at his legs, and I could almost see tears forming before he looked away into the distance again.
+
+“How old are you?”
+
+Again, no response.
+
+It was starting to hurt me a bit. I thought it was me again, that I was causing people not to want to be friends with me so I started packing my stuff and going inside. He saw this and stood up.
+
+Then, as if reading off a script, he started:
+
+“Hello. I am Park. I am 14 years old. I like toys. Will you be my friend?”
+
+I still remember the way he said it. Like he had memorized it. He tried saying it normally, but I heard his voice break a little towards the end. But he didn’t cry. Not at that moment anyway.
+
+“Uh…”
+
+He was older than me. Almost three grades older. I hesitated because, in my school, older boys were generally scary to play with because they’d push and shove you and not even apologize.
+
+But I felt sorry for him. He looked like he didn’t have a lot of friends, just like yours truly and he seemed far too weak to be able to push people around.
+
+“Okay!” I said, extending my hand.
+
+He didn’t know what to do at first. I thought he was slow.
+
+He then proceeded to shake my hand. “Shake” would be an exaggeration. He merely touched my hand and he felt so weak that I thought I could pull on it and he’d fall forward.
+
+With that, I left. I don’t know where he went. I got inside and got distracted with something I cannot remember now.
+
+Over the next few days, he came to my yard almost daily. He’d mostly just sit around and not talk much and I was okay with it. We’d hang out in silence.
+
+One such day, to my amazement, he started talking. He’d come at the usual time, limping even more than before. I noticed a gash on his face, not very visible because clearly he’d tried to put ointment on it to conceal it.
+
+“I want to show you something.”
+
+“Oh yeah?”
+
+“Come with me.” Again, like reading off a script.
+
+“I am not allowed to.”
+
+“Please?”
+
+Now he wasn’t reading off a script. It sounded desperate, almost and I could see tears welling up. I thought he cried a lot for an older boy. Again, I really don’t think I should have been talking to this guy, let alone agreeing to go with him. But go I did. Some kids, such as myself, really don’t have any sort of street skills whatsoever. And being the overexcited girl I was, I went along with him.
+
+Now, I say I shouldn’t have gone not because the boy was scary. He was the furthest thing from someone anyone should be scared of. In fact, I felt deeply sorry for him. Here was this guy, same as me, without friends, but clearly affected by it far more deeply.
+
+I walked behind him. He led me through the side of the woods where I’d been before with my dad, but instead of taking the usual trail, he turned sharply inward and kept walking.
+
+I’d been in the woods several times before. My dad would usually take me birdwatching, which I thought was very boring in all honesty, but I liked being carried by him through the forest, tagging trees with my hand as we went along. He would lift me up so I’d be able to touch the tall branches instead of only the trunks.
+
+Fond memories. Which is why I didn’t really feel scared in the woods.
+
+We came near a clearing. I saw a dilapidated one-storey house, its white walls covered in graffiti. The path to the house had overgrown grass that had turned rough and brown due to the summer heat. The ground was uneven and I tripped.
+
+The boy held his hand out for me. I grabbed on. He then cautiously walked towards the house, trying not to make noise. I mimicked him and tried to stay as silent as possible.
+
+We walked inside, where there was really nothing there. No doors or windows, just empty spaces in the walls where they should have been.
+
+He walked further inside and around the corner of a wall, I could make out steps going down. We were standing about ten feet away from them, I guess.
+
+He was still holding my hand. He looked at me and I looked back at him, confused.
+
+He was deep in thought. It was as if he was contemplating taking a step forward, the way he was intently staring at his feet.
+
+Then we heard a noise come from downstairs.

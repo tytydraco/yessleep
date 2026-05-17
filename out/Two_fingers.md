@@ -1,0 +1,41 @@
+I know that whenever people think of a haunted doll their minds immidiately go to Chucky, or some horror movie like that. This is diffrent, Chucky you can laugh at, Chucky is atleast somewhat relatable. I found it at a garage sale.
+
+Its a bit hard to describe, it sort of had the body of a Barbie doll, but modeled after a Raggedy Ann doll. It was plastic, poseable limbs, had the Raggedy Ann face, but the hair was torn off and burnt, and instead of the blue dress she normally wears this doll was wearing a long black nightgown that was a bit torn at the edges. Finally, one of the hands were missing all of its fingers, the left hand having a thumb and pointer finger, and they both looked a bit burnt and wrinkled, I assumed this was from weathering. This was a large doll, coming up to about my knee, and it was being sold for 3 dollars, so I thought, fuck it, my girlfriend loves creepy stuff, and I thought it would make a great Christmas gift, maybe put it in a case as a collectable or something like that? I was just trying to find a creative gift for her.
+
+I took it home, wrapped it up, and put it under the Christmas tree, 10 days from Christmas, at night, I wanted it to seem magical, like it just suddenly appeared there. I checked to make sure all the doors are locked, we have had some hate thrown our way, being a lesbian couple and all, once I was sure we would be safe I walked upstairs, found my girlfriend already asleep (it was around 10), and fell asleep, our faced facing each other. We sort of have a thing where our first sight of the day has to be each other.
+
+Eventually I heard some thuds, but being half asleep I tried to ignore it, until I heard
+
+"Two fingers two fingers"
+
+In a sing song like voice, my mind jumped to when two teenagers knocked on our windows a few months ago, and assumed it was a prank. I had some trouble sleeping focusing on why they would say "two fingers" of all things? Were they referencing that v for vagina thing? I dont know, I was grasping for straws, until I heard in that same sing song voice, it was light, childlike, innocent
+
+"Two fingers two fingers I'm climbing up your stairs"
+
+At this I put the pillow above my head
+
+"Two fingers two fingers I'm near the top"
+
+It didnt help
+
+"Two fingers two fingers I seeeeeeeeeee you"
+
+I thought it was the teenagers, I thought I was just too tired
+
+"Two fingers two fingers I'm aaaaaaaatttttttttt your door"
+
+Sometimes I wonder if it wanted me to hear it, wanted me to stop it. Sometimes I wonder if it regrets anything, if its conscious, if this was a choice. Im grasping at straws. Sometimes I wonder if it truly wanted her dead, whether it was her, or just anything. Sometimes I wonder why it chose her, and not me.
+
+I didnt hear her scream. I heard gargling, I saw red on the sheats, and a hole on her neck. Then I saw it, holding a kitchen knife. Slowly sawing off her middle finger. Then it slowly sang
+
+"Three fingers three fingers oh pleeeeeeeeeeeeeaaaaaaaaaaaaaaassssssssssseeeeee dont run"
+
+Its voice almost glitching, unable to control itself, mindlessly repeating a phrase that didnt belong, like it wanted to say something else, like it was trying to tell me something it wasnt capable of.
+
+I ran
+
+It tried to chase after me, but it wasnt fast enough. Something was wrong with its legs, but now I know why its fingers looked weathered. Those aren't its fingers, and one of them is now hers. I still stay up late at night afraid its after me.
+
+I now sleep in a homeless shelter, I abandoned our house, I think its waiting for me there, I occasionally find work, I learned to hack the library computer, its actually pretty simple, thats how im sharing this story. I think its here. I dont know if its looking for me. I saw a little kid holding the doll, and it had 7 fingers. Im taking a bus out of this town now, maybe go back to my old home, maybe I still have some time to pay the taxes, im hoping this is a coincidence, im taking it as proof that the doll isnt after me. I almost told the kid to get rid of the doll, but then what, its so close to getting 10 fingers, and I dont want to find out what it would do for the last 3. I also dont want to be around for when that happens.
+
+Edit: im back home, I charged my laptop, contacted my boss, and I somehow still have my job. A officer came to my house, and asked me to come to the morgue, they asked me to identify her body. The fucker carved a smile into her mouth. There is a clean cut where her finger used to be, the mortician was impressed. They believed me when I said a murderer came in, they found the knife with fingerprints that didnt match anyone in surrounding towns, so theyre sort of giving me the benefit of the doubt at the moment, but its been implied that im being watched.
