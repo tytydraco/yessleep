@@ -1,0 +1,143 @@
+I didn’t know what to expect when the "Monster Killer" agreed to meet me, but the reality was worse than I feared.
+
+The man was older than I expected for this kind of work. It was an occupation I honestly thought only existed in cheap pulp magazines. He wore a grime-streaked green sweater with black stripes under a stiff, heavy winter jacket. Knuckle tattoos spelled out an abbreviated version of his title: *MNSTR KLR*. He reeked of stale weed and the sharp, chemical tang of heavier, farther-along drugs.
+
+He thrust out a massive, callused hand, the one that read *KLR*. I shook it reluctantly.
+
+"So, you thinkin’ what I’m thinkin’, huh?" he rasped. His voice sounded like gravel grinding in a blender.
+
+I just nodded, keeping my mouth shut and observing. As I stared at his weathered face, a sudden shock of recognition hit me. The phone call had hinted at it, but seeing him up close confirmed it. *Joey.*
+
+Years ago, we used to smoke pot after class together and pull stupid pranks on the cheerleaders. Back then, Joey would wax philosophical about life before he abruptly moved away and quit his job as a high school gym teacher. Looking at him now, I hardly recognized him. I didn't want to.
+
+Joey pointed a ringed finger toward the Cricket Creek Museum. "That place. Launderin’ mischief?"
+
+I nodded again.
+
+"Say, you don’t mind me askin’, but do you even speak our tongue?"
+
+"I speak English," I murmured.
+
+"Shit, man, that’s cool. You have to speak English if you're gonna kill monsters."
+
+"I haven’t killed a single one yet," I admitted, my voice barely a whisper.
+
+Joey settled down deeper into the bushes beside me. I nervously patted my pocket, ensuring my pocketknife was still there. I had brought it just in case this "Monster Killer" turned out to be more dangerous than the things he hunted.
+
+Joey squinted through the brush at the museum, then turned and threw a heavy arm around my shoulder as if we’d been best friends for decades. Maybe, in a past life, we had been.
+
+"Who knows?" Joey wheezed. "A month with me, under my tutelage, and you might just find yourself with a knife stuck deep inside a monster’s throat."
+
+I shifted uncomfortably under his weight.
+
+"The museum," Joey tsked, tossing his long, graying blonde hair out of his eyes. He scanned our surroundings. "I’d be careful if I was you. We’re both on Captain Carter’s naughty list."
+
+"Who’s Captain Carter?"
+
+"The police captain."
+
+"Oh." My stomach dropped.
+
+Joey’s face crinkled into a jagged grin. "Don’t worry, son. I’m an ace at break-ins. Even did time for shit like that. I’m proud of it."
+
+*If you’re an ace, why did you get caught?* The question burned in my throat, but I swallowed it. I had no choice. Joey was the only person in this godforsaken town who would even listen to me, and the only one crazy enough to have actually encountered the unholy things lurking in the dark.
+
+We waited until the dead of night. Under the heavy cover of darkness, we moved.
+
+We pulled on our masks and gloves and darted across the empty street. Last time, I had trusted a female detective to help me break into the school, and that had ended in an absolute disaster. Now, I was taking an even bigger gamble. If I got caught tonight, the police would throw me into a cell and lose the key. I dreaded to think what that would do to my wife, Abigail. But I had to know the truth.
+
+To avoid the ground-floor motion sensors, we targeted a second-storey window. I lost my footing on the slick ledge and almost plummeted to the asphalt, but Joey’s hand shot out, grabbing my wrist and dragging me inside.
+
+We landed heavily on the floor. We froze, listening.
+
+Nothing.
+
+In the greenish, shadowed darkness, we crept through the exhibits. We didn't dare use our large flashlights, relying instead on tiny penlights to illuminate our path. The air smelled damp and choked with mildew. Joey stalked ahead of me, his hand resting on the grip of a handgun tucked under his coat, alongside an array of knives and screwdrivers.
+
+Joey slid his palm along the wall to his right, knocking gently. He pressed his ear against the plaster, listening for hollow spaces. The only sound was the rhythmic, maddening warble of crickets outside.
+
+I held my breath, wandering down a narrow aisle between two towering shelves. I adjusted my bomber jacket, pulled up my muddy pants, and wiped cold sweat from my forehead.
+
+I doubled back to Joey, accidentally startling him. After he finished aggressively whispering a string of curses at me, I tried to steer him toward a weird discovery. "Joey, you're a local. Can you explain what’s going on in the treehouse room? The one with the strange photos?"
+
+Joey swaggered in, shining his penlight down at the eerie photographs. His breathing grew raspy and wheezed, his face tightening with sudden suspicion. Finally, he looked up. "I don’t know what the hell that is."
+
+We bypassed a nearby mannequin. In the endless, hungry darkness, the figure looked terrifying. The shadows consumed almost everything except for its dead, painted blue eyes and its bright red life vest. Joey scoffed and leaned in to spit on it, but I elbowed him hard in the ribs, shaking my head.
+
+Suddenly, a sharp metallic click echoed from below. Someone was fiddling with the front door locks.
+
+We scrambled behind a row of tall display cases, pressing ourselves flat against the floor. Below us, the heavy front door creaked open, followed by the heavy thud of footsteps. Whoever it was locked the door behind them and began marching straight up the short staircase leading to our floor.
+
+"Stop breathing so loud," I hissed.
+
+"I have asthma, man," Joey snarled back.
+
+We both went rigid, holding our breath entirely as a figure emerged at the top of the stairs. The man walked right down the aisle adjacent to our hiding spot. Shrouded in shadow, I recognized him. It was the young museum staffer from earlier today.
+
+He stopped in front of a wall lined with chalky, fake-gold wallpaper. He pulled a key from his pocket. He ran his fingers along the wall until he found a small, hidden bump, peeling back a section of the wallpaper with surgical precision. He inserted the key and twisted.
+
+A hidden door swung open. A draft of icy, freezing air whistled out of the dark opening. Even from several feet away, the sudden drop in temperature made the hairs on my arms stand up.
+
+Through the mouth hole of Joey's mask, I saw him grin.
+
+He pulled a small glass marble from his pocket and flicked it across the floor. It rolled and clattered loudly against a shelf four feet away from the secret door.
+
+The staffer whipped around, his eyes darting frantically through the darkness. He froze for a tense, agonizing second. Hearing nothing else, he began to turn back toward the hidden room, but he never finished the motion.
+
+Joey’s heavy boots thundered against the floorboards. Before the staffer could react, Joey's fist smashed directly into his mouth. The man's head snapped back with a sickening crack. Joey instantly grabbed him from behind, looping an arm around his forehead and jamming a chemical-soaked rag into his face.
+
+The chloroform worked instantly.
+
+The staffer's eyes rolled back, his body going completely limp, collapsing into a heap like a rag doll.
+
+"You killed him!" I gasped, my heart hammering against my ribs.
+
+"We got ourselves about seven chloroform hours, and by that I mean *hurry*," Joey barked.
+
+Swallowing down the bile rising in my throat, I followed Joey into the secret room.
+
+Inside, we both stopped dead in our tracks.
+
+The walls, floor, and ceiling were a violent, blood red. Bizarre, alien scripture was mounted along the right wall. The carpets were woven from a strange, coarse material that didn't feel like wool or nylon. Joey and I instinctively ripped out our cameras to document it, but the digital screens just flickered wildly and died.
+
+"Damn it!" Joey hissed in frustration.
+
+We bagged the dead tech and hurried toward the text on the wall, desperate to scan it. At the far end of the room, next to a ceramic vase painted with a screaming human face, the red paint on the plaster shifted. I held my penlight close to the wall.
+
+The blood-red paint formed rows of tight, sweeping cursive. I tried to sound out the words, but it was complete gibberish. They were symbols and words that defied human language.
+
+Joey and I stared at each other in sheer horror.
+
+I went home after that, seriously tired and fearing the consequences of what we'd just done.
+
+I went to sleep. i was out for a pretty long while.
+
+And then a sharp, aggressive knock at the front door jolted me awake.
+
+I sat upright on the couch, my heart instantly racing. It was 4:00 PM. I had drifted off into a restless nap. In the adjacent room, I could hear the rhythmic humming of the washing machine where my wife, Abigail, was doing the laundry.
+
+I reminded myself to stop the shaking in my hands. I burned the muddy clothes from last night. There was no evidence left.
+
+I unlocked the deadbolt, unhooked the chain link, and pulled the front door open.
+
+My worst nightmare was standing on the welcome mat. A police officer.
+
+She was young, maybe her early twenties, but her uniform was crisp. Despite the heavy gray overcast outside, she wore thick, pitch-black aviator sunglasses. A row of silver studs lined her earlobes, ending in crescent-shaped earrings. I forced my throat to swallow the lump forming there.
+
+"Hello. How may I help you, officer?" I asked.
+
+I tried to force an eager, helpful smile, but I knew I probably looked like a guilty idiot. We had committed breaking and entering, battery, and assault. My life was over. I had ruined everything, and it was going to end right here in this doorway.
+
+I noticed she was alone. Aren't cops supposed to travel in pairs for backup?
+
+Behind those dark lenses, I knew her eyes were boring holes right through me.
+
+"I didn’t mean to disturb you, sir," she said, her voice chillingly professional. "But there was some trouble down the lane last night. Mind if I come in?"
+
+"No. Certainly not."
+
+I stepped aside, holding the door open wider. She stepped past me, her boots clicking against the linoleum of our tiny, cramped apartment.
+
+From the laundry room, the door clicked open.
+
+"Elijah?" Abigail asked, stepping out.
