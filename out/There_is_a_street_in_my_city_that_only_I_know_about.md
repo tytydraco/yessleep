@@ -1,0 +1,479 @@
+There is a street in my city that only I know about.  
+  
+I found it a couple weeks ago while walking home drunk from my favorite bar.
+
+I stumbled into the same alley I’d stumbled into a hundred times before, planning to piss behind the same dumpster I’d pissed behind a hundred times before.
+
+But instead of the familiar alley between a brick wall and a boarded-up laundromat, I found myself staring down a street.
+
+It stretched on for miles before disappearing into the horizon. Cookie-cutter single-story houses lined both sides. Every window was dark. No cars sat in the driveways. 
+
+And even though it was the middle of the night in the city behind me, the street was bright with daylight.
+
+The sky above it was a perfect cloudless blue. Warm sunlight washed over the lawns and rooftops like late afternoon in the middle of summer.
+
+I stepped onto the black asphalt.   
+  
+At first I thought the street was just quiet.
+
+Then I realized I couldn’t hear anything at all.
+
+No traffic. No wind. Nothing from the city behind me anymore. Even the usual hum from AC units was gone.
+
+I remember thinking I’d had way too much to drink. I just needed to get home. Forget the alley. Forget taking a piss. Maybe spend the money on a rideshare instead of waiting for the bus.
+
+I started backing away, and that was when I noticed the first person.
+
+About a dozen houses down on the left side.
+
+Standing on their porch.
+
+Facing me.
+
+I couldn’t make out their face properly. It was like my eyes refused to focus on it. But I knew they were looking directly at me.
+
+They didn’t wave.
+
+Didn’t move.
+
+Just stared.
+
+I left.
+
+Two unsteady steps backward and suddenly I was back on the familiar sidewalk outside the alley. City noise rushed into my ears again all at once. Traffic. Music from somewhere down the block. Somebody yelling. Night time.
+
+I stood there for a second trying to process what had just happened, then decided I was way too drunk to trust my own brain.
+
+I stumbled to the bus stop and passed out in bed twenty minutes later.
+
+It was a few days later before I thought about the street again.
+
+I was waiting for the bus to work when a new real estate billboard across the street caught my eye. It showed a quiet suburban neighborhood with rows of identical houses.
+
+The memory hit me immediately.
+
+The endless street.
+
+The silence.
+
+The person staring at me from the porch.
+
+I spent the whole ride downtown thinking about it. The more I replayed the memory, the less it felt like a drunken hallucination.
+
+By lunch, I had convinced myself the street was real.
+
+I used personal time for the rest of the day and went back.
+
+Part of me still expected to find a normal alley when I got there. But when I rounded the corner and saw the street again in broad daylight, my stomach dropped so hard I thought I might pass out.
+
+I leaned against the boarded-up laundromat and tried to steady my breathing.
+
+I focused on the city around me. Passing cars. HVAC units humming overhead. Construction somewhere in the distance. A couple arguing across the street.
+
+Real things.
+
+Normal things.
+
+I kept telling myself the same thing over and over.
+
+*You are standing in one of the biggest cities in the world. There is an alley in front of you. Nothing else.*
+
+But when I looked up, the street was still there.
+
+It looked almost fake during the day.
+
+Bright blue sky. Green lawns without a single patch of dead grass. Every house exactly the same all the way down.
+
+The city stopped at the entrance.
+
+Not physically. I can’t explain it right. It was like the sky itself changed. Gray city clouds on one side. Bright summer daylight on the other.
+
+And standing on the porches were people.
+
+More than before.
+
+I counted six of them.
+
+Every single one facing me.
+
+Completely still.
+
+And the thing that really got to me was that none of them were moving. Not shifting around. Not scratching their face. Nothing.
+
+They stood there like mannequins somebody had posed.
+
+Watching me.
+
+Waiting for me to step onto the street.
+
+I don’t even remember deciding to run. One second I was staring at them and the next I was halfway down the block trying not to throw up.
+
+That night I tried drinking the whole thing out of my head.
+
+It didn’t work.
+
+The next day was worse.
+
+Every quiet moment, I thought about the street again. The houses. The silence. The people on their porches.
+
+So I called off work and I went back.
+
+It was raining that afternoon. Cold rain too. The kind that soaks through your shoes in minutes. Cars splashed water onto the sidewalk every few seconds.
+
+But the street beyond the alley entrance was bright and dry.
+
+The rain stopped the second the alley turned into the street.
+
+Dry sidewalks. Bright blue sky. Grass so green it almost looked fake.
+
+Meanwhile I was standing there soaked through in the middle of a downpour.
+
+And there were more people now.
+
+From what I could see, fourteen of them stood on porches now. Men. Women. Maybe even a kid on one of the distant porches. All dressed in plain summer clothes.
+
+None of them moved.
+
+I still couldn’t focus on their faces.
+
+I don’t know how long I stood there before somebody bumped into me.
+
+A woman in business clothes holding an umbrella.
+
+She looked at ne, annoyed.
+
+“Why the hell are you standing in the rain?”
+
+I glanced back toward the street.
+
+A fifteenth person stood on a porch now.
+
+“You don’t see it?” I asked.
+
+“See what?”
+
+“The street. The houses.”
+
+Her expression changed immediately. Not confusion exactly. More like concern mixed with caution.
+
+She looked past me into the alley.
+
+Then back at me.
+
+“There’s nothing there.”
+
+She walked off quickly after that, muttering something about drugs under her breath.
+
+I watched her disappear down the sidewalk, then looked back toward the street again.
+
+Still there.
+
+That was when I realized something that scared me more than the street itself.
+
+I was the only one who could see it.
+
+For the next few days I became obsessed.
+
+I barely slept. Barely ate. Every free moment I spent thinking about that place.
+
+Could anyone else walk onto the street if I brought them there?
+
+Would they see what I saw?
+
+Or would they just walk into a normal alley?
+
+I didn’t have many friends to call. Most of the people I talked to were coworkers or strangers at the bar.
+
+But I still had Jared.
+
+We’d been friends since high school. These days we mostly golfed together every few months whenever he could get away from work and family stuff.
+
+Honestly, if he hadn’t kept reaching out over the years, we probably would’ve stopped talking completely.
+
+I called him that night.
+
+He sounded genuinely surprised to hear from me.
+
+We talked for a while about work, golf, normal life stuff. Eventually I asked if he wanted to grab a drink sometime that week.
+
+He said yes immediately.
+
+We met at my usual bar a few nights later.
+
+And honestly, for a while, things felt normal again.
+
+Jared talked about his wife, Sheila, and his daughter, Beatrice. He laughed more than I remembered him laughing back in high school. Like adulthood had actually worked out for him somehow.
+
+Meanwhile I kept glancing toward the front door every time somebody walked in.
+
+Every draft of cold night air reminded me of the street.
+
+Eventually Jared noticed something was off.
+
+“You good?” he asked.
+
+“Yeah,” I lied.
+
+“You look exhausted.”
+
+“I haven’t been sleeping much.”
+
+He nodded sympathetically. “Stress?”
+
+“Something like that.”
+
+A little later he started telling me about his daughter refusing to sleep unless he checked under her bed first.
+
+“She thinks monsters hide under there,” he said with a laugh. “She says they only move when you aren’t looking at them.”
+
+Something in my chest tightened.
+
+Before I could stop myself, I asked, “You ever notice the alley just down the street?”
+
+“What alley?”
+
+“The one between the laundromat and the brick wall.”
+
+He shrugged. “I mean, yeah. It’s an alley.”
+
+“There’s something weird about it.”
+
+Jared gave me a confused look. “Weird how?”
+
+I hesitated for a second.
+
+Then I said, “Come outside. I’ll show you.”
+
+The city was loud when we stepped outside. Cars passing. Music from nearby bars. People talking over each other across the street.
+
+Normal.
+
+We walked around the corner.
+
+And there it was again.
+
+The endless street.
+
+The silent houses.
+
+The clear blue, daylight sky.
+
+I stopped walking immediately.
+
+Jared took another step before realizing I wasn’t beside him anymore.
+
+“What?” he asked.
+
+I looked onto the street where the alley should be.
+
+“You don’t see it?” I asked quietly.
+
+“See what?”
+
+“The street.”
+
+He frowned. “What street?”
+
+I pointed.
+
+“Right there. The houses.”
+
+“Dude,” he said with a nervous laugh, “there’s nothing there. Just the alley.”
+
+I looked back.
+
+The street was still waiting for me.
+
+I stepped closer.
+
+The noise of the city weakened slightly.
+
+Not gone yet.
+
+Just farther away.
+
+“Come here,” I told him.
+
+“I am here.”
+
+“I’m serious.”
+
+“So am I,” he replied. “You’re acting weird as hell right now.”
+
+I took one more step.
+
+The second my foot touched the asphalt, every sound vanished.
+
+Complete silence.
+
+I turned back toward Jared.
+
+I could still see him standing in the alley, but he looked distant somehow. Blurry around the edges. Like I was looking at him through thick glass.
+
+“Hey,” he called out. His voice sounded muffled now. “Okay, seriously. Stop screwing around.”
+
+I stepped backward off the street.
+
+Sound crashed back all at once.
+
+Traffic.
+
+Voices.
+
+Wind.
+
+Jared looked annoyed now more than concerned.
+
+“You didn’t hear that?” I asked.
+
+“Hear what?”
+
+“When I stepped onto the street.”
+
+“You never stepped anywhere,” he said. “You just stood there.”
+
+That settled it.
+
+The street seemed to be only for me.
+
+I blamed everything on stress and too much alcohol. Jared clearly didn’t believe me, but he let it go.
+
+Before leaving, he clapped a hand against my shoulder.
+
+“Get some sleep, man.”
+
+“Yeah,” I said. “You too.”
+
+I didn’t sleep at all that night.
+
+Or the night after.
+
+By the third day, I stopped trying to resist going back.
+
+It was early evening when I returned.
+
+Clouds covered the city overhead.
+
+The street beyond the alley was still bright and blue.
+
+I stepped onto the asphalt without a moment's consideration.
+
+The silence hit immediately.
+
+I started walking.
+
+Past the first house.
+
+Then the second.
+
+The people stood on their porches exactly where they always had.
+
+But a lot more of them now. Every house I could see had someone standing on the porch.
+
+Watching me.
+
+I tried not to look directly at them for too long. Something about their faces made my eyes hurt if I focused too hard.
+
+The houses never changed either.
+
+Same lawns.
+
+Same windows.
+
+Same porch lights.
+
+After a while it started feeling less like a neighborhood and more like somebody had copied the same three houses over and over again.
+
+I walked for what felt like half a mile.
+
+Maybe longer.
+
+The street just kept going.
+
+Then one of them moved.
+
+Just slightly.
+
+A tilt of the head.
+
+I stopped walking.
+
+Every person on every porch was staring directly at me now.
+
+Then one of them stepped off the porch.
+
+A dull thud against the grass. The first sound I had ever heard on the street.
+
+Then another.
+
+And another.
+
+All along the street, people slowly climbed down from their porches.
+
+I backed away.
+
+They kept moving closer.
+
+Slowly spreading across the lawns toward the street.
+
+That was enough for me.
+
+I turned and ran.
+
+I sprinted past identical houses and identical faces turning to follow me as I passed.
+
+I never looked back.
+
+I just ran until noise finally exploded back into existence around me.
+
+Traffic.
+
+Voices.
+
+Wind.
+
+I stumbled out onto the sidewalk so hard I nearly collapsed.
+
+People glanced at me while walking past, but nobody stopped.
+
+Nobody asked if I was okay.
+
+That was yesterday.
+
+And now I can’t stop seeing them.
+
+At first it was little things.
+
+Someone standing too still at a crosswalk.
+
+A reflection in a dark window that seemed to linger too long.
+
+A figure on a balcony above the street that never moved even after all the lights went out.
+
+But tonight is worse.
+
+I’m sitting in my apartment right now with all the lights off.
+
+Across the street is another apartment building. Old concrete exterior. Dozens of windows.
+
+I’ve looked at that building almost every day for the past two years.
+
+I know what it looks like at night.
+
+This isn’t normal.
+
+Every single window has someone standing behind it.
+
+Perfectly still.
+
+Facing my apartment.
+
+And even from this far away, I can tell they aren’t looking at the building.
+
+They’re looking at me.
+
+I just keep thinking that if I stay quiet enough, maybe they’ll lose interest.
+
+Maybe if I stop moving completely, they’ll think I’m one of them already.
+
+Though I’m beginning to think there’s a house on that street that’s meant for me.
