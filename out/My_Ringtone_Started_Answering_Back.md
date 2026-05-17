@@ -1,0 +1,45 @@
+It began about three weeks ago. I'd be sitting on the couch or cooking dinner and hear my ringtone from down the hall. That little nice melody I've had since 2019. I'd look at my phone and it would just be sitting there. Screen dark. Silent.
+
+I thought about phantom ringtone syndrome. Totally normal, apparently. The only thing was, the sound was not coming from inside my head. I was certain of that.
+
+The second time it happened I froze and tried to triangulate it. Coming from the vent near the baseboard in my bedroom. Low to the ground. I pressed my ear to the vent cover and the ringtone just stopped. It felt like something knew I was listening.
+
+When it happened again my friend Dani was there, this time the sound was coming from behind the refrigerator. Her face changed immediately.
+
+"That's your ringtone," she said.
+
+"I know."
+
+We pulled the fridge out. Dust bunnies. A petrified French fry. No animal, no hole in the drywall large enough for anything to fit through. But the smell hit us both at the same time. Old and wet. Horribly wrong, along the likings of the smell of rotting flesh.
+
+
+
+It was quiet for a few days after that. Then last Tuesday I woke up at 2 a.m. to the ringtone going off directly under my bed. Not muffled this time. Not passing through ductwork. Right there, close enough that I could hear it had a quality I'd never noticed before. A wetness. The notes were spot on, same pitch, same rhythm, but underneath them was this faint texture, like the sound was being made by something organic rather than a speaker. It was distorted in a way hard to explain.
+
+I didn't look under the bed. There's a difference between bravery and reaching toward something that's been learning what noise to make to get you closer to it.
+
+
+
+I set up my old laptop with the webcam pointed at the hallway. Four hours of footage. At the three hour and forty minute mark the ringtone starts on the audio, clear as anything. The vent cover shifts. Maybe a centimeter, just enough that the gap on one side gets slightly larger. Then it goes back. Closes again.
+
+Something pale and wet had been watching the hallway, the same way I would if I'd made a sound and was waiting to see what came toward it.
+
+
+
+The ringtone was the first thing. But last Friday I heard my upstairs neighbor's dog bark, loud and familiar and exactly right. My upstairs neighbor hasn't been home in over a week. She told me before she left.
+
+The bark came from inside my walls. And after it, quieter, almost experimental, my ringtone again. Like it was testing. Checking whether I'd respond to something different.
+
+
+
+All the lights have been on since then. Mattress moved to the center of the room. I keep my phone in my hand so I can feel it not ringing while I hear it ring.
+
+I haven't heard anything for two days. I don't take that as a good sign. Something that's been learning and adjusting and watching doesn't just stop. It gets patient. It learns to wait.
+
+I think it knows that I know, and I think it's changing its approach.
+
+I'm posting this to have a record of everything in case something happens, and because typing it out is the only thing keeping me from doing something stupid like checking behind the fridge again. If anyone has experienced anything like this, please tell me what it wants. Tell me what it does when it decides it's ready.
+
+My phone is in my hand right now. It isn't ringing.
+
+But I can hear my ringtone.
