@@ -1,0 +1,77 @@
+The story you're about to read comes from my own childhood experience. It centers around one of the biggest murder cases in my country. You can find more information on the country's news websites. All character names have been altered to protect the rights of those involved. I apologize if my English sounds awkward.
+
+\---
+
+“Innocence”
+
+It’s something that lives inside every child in the world. And whenever the innocence disappears, that child will see the so-called “reality.”
+
+Just like everyone reading this right now, I was once a child, before everything took away my innocence.
+
+It started when I was in 4th grade.
+
+I wasn’t very good at getting along with my peers. I had some friends at school, but I was never close to anyone. My teachers often said I was observant and had a good memory. I remember all my friends. Class 4/5 was on the 3rd floor of building 9. My homeroom teacher was Ms. Annie. There were 43 students in total, 19 boys and 24 girls. I could list all their names now, but it’s probably not necessary.
+
+I remember during the winter break between semesters 1 and 2, a random toy store opened near my house. The owner was an old man. He mostly sold huge teddy bears at low prices. The store was crowded with children, most of whom I didn’t even recognize.
+
+There was one person, though, my classmate Nora, whom I always met at the store. She was a pretty girl from a relatively well-off family, but we didn't talk much.
+
+I enjoyed chatting with the store owner, Uncle Ed. We got along quite well as he was so kind to me. Uncle Ed told me he'd opened similar stores in several provinces, selling toys and then moving to another province after a few months, but he never really said why.
+
+My neighbor seemed to run a tutoring center for children, and somehow it became a shelter for underprivileged orphans. There are 13 kids in total. My parents let me play with them during school breaks.
+
+One day, a 14th child joined, an introverted local boy around my age. Maybe it was because he hadn't quite made friends yet, just like me.
+
+Normally, I don't like to initiate conversations with people. But that day, out of curiosity, I gathered all my courage and talked to him. That’s how I learned his name was Tom, and he was from another town. He had no one to look after him because all of his relatives had passed away.
+
+Tom always wore the same outfit, a black t-shirt and blue shorts. I could feel that he had been through a lot, as his eyes looked sad all the time. But believe it or not, we became close in less than a day! Every time my parents let me play with the neighbor's kids, I would go straight to him. Our favorite game was hide-and-seek. He was really good at it, as he seemed to know exactly what I was thinking. It was so much fun playing with him.
+
+Tom was my first close friend, the one who made my childhood colorful, and the only one who could make me feel the most "innocent."
+
+I often found him looking into the neighbor’s house with the same “sad” eyes, sometimes even teary. Then I realized he was staring at a huge yellow teddy bear. The owner must have bought it from the store, probably for the children to play with. I asked him if he wanted it, and he only shook his head. I never really knew what the problem was because when I tried to ask him, he would start sobbing uncontrollably.
+
+Anyway, the school break seemed to pass very quickly since I met him. We shared memories together. It felt so refreshing every time I saw him smile or laugh. I finally understood what it's like to have an actual friend.
+
+Then, on the first day of the second semester, the same old boredom returned. The same old classmates who didn't quite like me, the same nagging teachers, the same old lunch, and the same overwhelming amount of homework.
+
+The only difference was that there were 42 students instead of 43. No one thought much of it on the first day that "Nora" disappeared. But after a week, everyone started to worry, especially Ms. Annie. Rumors began to spread: some said she had moved to another place, some said she was ill, and some even said something bad had happened.
+
+As for me... I never cared about any of that.
+
+The only thing I cared about was playing with Tom during the holidays. But suddenly, my parents forbade me from going out, saying it was too dangerous. They were very strict, probably because I was their only child. So I had no choice but to stay home and play alone in frustration.
+
+Some days, I would look out the window and see Tom sitting there, just staring into the house. I shouted his name, but he wouldn't hear me. I didn’t know what to do as I was too afraid to sneak out.
+
+Time passed slowly until the day I wanted a new toy. I asked my parents if I could go get one at the store, but they refused. I begged and pleaded for a long time until they finally changed their minds, on the condition that my father would accompany me in case something bad happened.
+
+The store was still crowded with children. I felt like having a Deja Vu. “Strange,” I thought. After buying all the toys, I caught a glimpse of someone that I soon recognized. It was Nora, the girl who went missing. She dressed exactly the same as the last time I saw her. I was about to ask where she had been, but my father pulled my arm and hurried me home.
+
+Once home, I decided to tell my parents everything. I told them I'd seen Nora at the toy store. My father said something that I remember to this day,
+
+"I saw her too. You'll understand very soon."
+
+Of course, I understand nothing. I asked him repeatedly what he was talking about, but he wouldn't answer. That night, I couldn't sleep as I was constantly thinking about it. What had happened? What did I miss?
+
+It was the next morning… At 8:00 AM on a Sunday, I remember it well. My parents, along with the neighbors, gathered outside to watch something that was happening at the toy store.
+
+A police car was in front of the store. There were also three or four pickup trucks, their backs filled with children… the children that I never recognized.
+
+Just then, my father gently tapped my shoulder and said something that made everything clear to me.
+
+“Remember when you visited your mother at the hospital and walked past the morgue alone?”
+
+I looked at the police car and saw Uncle Ed, the store owner, sitting in the back seat.
+
+“Remember how you tried to avoid those people?”
+
+Several men went inside the store, and each returned with a huge teddy bear and a child walking behind them. They laid the bears on the floor, covered them with blank sheets of cloth, and load them into the back of the trucks. The children then jumped onto the trucks one by one, as if following the bears.
+
+“Spirits know they are dead, but they can’t go anywhere except to linger near their lifeless bodies.”
+
+I overheard the orphans talking about whether they would get their teddy bear back. I couldn’t help but feel envious of their innocence, because mine had been completely shattered.
+
+According to the news, Nora went to buy some toys at this store, but she never came home. Luckily, her parents were well-off, so the investigation progressed rapidly.
+
+No child deserves something like this. 32 bodies from 32 provinces, inside 32 teddy bears. No one knows why Uncle Ed did it.
+
+But I still remember one thing so vividly. An image I can never forget. It was that afternoon. As pickup trucks drove past my house, I’m not sure if I saw Nora on one of them. I’m not sure how many children were in the last truck. It was because my eyes were fixed on one person, a boy in a black t-shirt and blue shorts. He was the only one who turned and smiled at me.
