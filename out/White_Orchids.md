@@ -1,0 +1,111 @@
+“Aaaaaggghh, Aaaaaggghh”, these cries were at dinner today. I thought tonight would be different but it wasn’t. Marie slid a chair near a baby. Charlie? Is that Charlie? Her sister’s son? We haven’t baby sat for him since he was the size of my forearm.
+
+Marie scanned her phone for some music, or maybe even a silly video. Anything that might cease this child’s incessant crying. Charlie was an inconsolable lad at time. So we tried as much as we could to not offer our own time for babysitting. Call us selfish.
+
+Charlie’s face is plush red and and his mouth agape. The dinner in front of him lie stabbed into with a plastic spork upright in a scooby doo dish filled to the brim with Mac n cheese. Marie is tired, I can tell. She won’t even acknowledge me though. Even now. I have tried to amend the things I said to her last night but her demeanor towards me tells me everything I need to know. Which was no demeanor at all. She ignored me entirely. I just stand there in the hallway, a pathetic attempt at saying sorry given visage.
+
+“Babe, I just — I’m sorry for last night. I think I’m just really tired and thin on patience. Definitely no excuse for ridiculing your efforts, but I think I’m just in need of sleep.”
+
+She doesn’t even acknowledge me, trying to entertain the baby.
+
+“Hey. I really am — “ I begin again. Her insistence on ignoring me made clear, I cease trying to talk it out. She needs more time I guess.
+
+This blows. My dumbass standing there trying to open dialogue with Marie after making a fool of myself and then getting too drunk to even make it to the bed. Charlie is a very expressive baby boy, but he always eats his food, and his rolls of overlapping skin that make up his gut is evidence of that.
+
+Here, he only himms and haws, now readjusting uncomfortably in his high chair as he turns his Casper-like head to me. For a moment he doesn’t cry, almost as if he’s unsure of who I am or why I’m there. I made all the noise I was going to make trying to apologize to Marie, but did he? Did he get all his frustration out? His hollering had hushed completely as his quarter-sized, piercing blue eyes balls locked onto me.
+
+“Hey, Charlie…. Hey, bud.” I say, curiously. I started to walk toward him and after a few steps he lets out another thunderous cry, this time worst than before, a subtle panic in his face.
+
+“Fine. Whatever”. Marie can handle that fit. I’m already just taking up space so I’ll leave.  
+Marie finally settled on a video of Blue’s Clues of all things and places it in front of him.
+
+“Isss okayyy. You want the cheese? You want the cheese?” She remarks, tired and worn down. She lifts the utensil from the food and performs a little jig to the rhythm of the Blues Clue’s theme song. She continues to calm him down with cheese noodles, and eventually when I leave, it works.  
+I walk to the back room and sit down on an empty bed. Where was my stuff? I noted that much of my stuff had been neatly placed in the corner of the room; my clothes folded and my belongings placed in bins beside it.
+
+It wasn’t that bad a fight. What the hell? I wondered.
+
+Not just that, but things in general have felt different since yesterday.
+
+I woke up and Marie wasn’t in the bed. She’s always the later sleeper as well as the resident blanket hog. Today, I awoke to no blankets at all, or pillows come to think of it. I’m not sure how I slept so soundly, as I’m the type of guy that needs a robust, firm pillow to rest my head at night or my apnea tends to act up. She knows that as well, so I’m unsure why she would be so passive-aggressive to the point of affecting my health. Especially when less snoring means easier sleep for her.
+
+I can admit that while we had arguments before, last night was different. We are both stressed with tight work schedules, stacked bills and the baby on the way. A lot of our night had been spent unwinding. With me massage her plantar fasciitis and her telling me about her day. I loved hearing about her day, because I myself am pretty boring and have little to nothing going on other than her.  
+Our baby has yet to enter this world, but our night usually ends with the two of us cuddled up in the bed, the television on low as we whisper what types of adventures we would plan to go on as a family. She usually fell asleep midway through her own vacation idea. I would soon follow, holding her close with her hair let down, the alluring scent of rosemary cucumber pulling us closer together.  
+It was in this moment that I felt most whole. It was in this moment that sleep would capture me.
+
+We didn't do that last night. The verbal war we went through led to me slamming the front door and leaving the apartment with an eyre of fury left behind in the words that I spoke. I got in my car and headed anywhere but there. I didn’t know where I was going but I figured hitting Gus’ Bar a few miles out would give me and her time to cool down.
+
+Soon the alcohol drowned any vitriol I still harbored following our fight. I didn’t get shit-faced drunk, but I drank to settle my nerves and in doing so, I softened.
+
+Finishing off my last beer, I glanced down at my phone and saw that Marie had tried to call me twice in the last thirty minutes. She likely felt the same way I do. We have far too much ahead for us to be at each other’s throats the way we were last evening. I paid my tab and drove home. There was a wagon of beautifully arranged orchids by the side of the road. The sun hadn’t fully gone down and the man that presumably owned it was just now packing up. So I thought I’d grab a few for my rose, my Marie.
+
+The vendor didn’t mind at all that he had to bag me up a bouquet after I planted a couple 20s in his outstretched hand.
+
+“She’ll love them I’m sure. “, he said to me as I headed back to my car.
+
+I nodded at the friendly man and offered a gentle smile as I opened my driver side door. I sped home, a renewed sense of realization of what truly mattered waged over me. It seemed like every light was green as my foot never had to leave the gas pedal the entire way back home.  
+This was all really silly.
+
+I was going to hand her these flowers and then I was going to talk to her belly. Then I was going to let her and my child know how much they meant to me. And that they were the only things that meant soemthing to me.
+
+When I walked in the front door, things were more blurry than usual. I was barely buzzed from the bar so I just chalked up the oddly hazy view to not having a drink in a very long while.
+
+But my legs also felt heavy. Every step I took was a concentrated effort to get to where I was going. Clearly, I needed to lie down but walking to my room was never this hard. I couldn’t even make to the ajar door of the bedroom before I fell forward, the flowers I held jolted from their floral structure and scattered in front of me, a single white orchid meeting my eyeline before everything else went dark.
+
+I awoke in the bed again, but like last time, Marie was not there either. No blankets. No pilows. No sheets. I turned to see my stuff still organized in the corner of the room.
+
+Standing up from the bed was harder today. It felt as though my feet didn’t tread upon the carpet but instead they sunk into the floor. To even lift a leg in order to move forward was a hassle. I pushed and pushed. I struggled to get to the doorway and finally I was able to use the very frame of it to support myself. Trying to enter the hall again brought me to a crawl. I couldn’t even get back to my feet if I wanted to. My apartment had changed. The furniture was different and not in the place it was just yesterday. The walls had been painted with a new coat of beige. I wasn’t delirious. I couldn’t have been. It still didn’t feel like I belonged here. Like, this wasn’t my place.  
+“M-M-Marie..” I shout unsuredly.
+
+My energy, whatever was left, seemed to dissipate exponentially with every movement. I looked down at my arms as I continued to crawl down the hallway and toward the kitchen and my arms were… they weren’t even what arms were supposed to be. They were frail, discolored and elongated in a manner that made me gasp in terror. I didn’t know what the hell I was looking at but my hands seemed to sink into the floor as well. I fought it.
+
+Whatever this was… whatever was happening didn’t make any sense.
+
+ I climbed the carpet while on my knees and forearms. I couldn’t help but twitch and jerk in order to prevent my hands from becoming one with the floor or me falling through the damn thing entirely.
+
+I reared back and leveled my head. I needed Marie to see me. I needed help. I could hear her humming to herself just feet away.
+
+Charlie is still sitting there, in view. This time a small bowl of oatmeal sat across from him. This he liked. As I used everything I had in me to close the gap between Marie and I, he shoveled in another mouthful. I tried to speak out loud and couldn’t. My voice was not there any longer. And even I could have spoken to her, I don’t know what I would have said in that moment.
+
+“Is that momma’s sweet boy?”, Marie says cavalierly, as she comes into view.  
+I ceased my pursuit.
+
+No longer pregnant and no signs of showing. At all. Marie sits down with the baby - the baby that wasn’t Charlie after all.
+
+“Momma’s boy?” I mutter, considering to myself. She doesn’t acknowledge me, still gearing all of her attention toward the child.
+
+“What the hell—“, I relent. 
+
+I allow myself a reprieve from struggle and when I do, I’m risen to my feet as if another party has me strung up on cables. I can see my apartment more clearly now.
+
+It is different. A baby pen with toddler toys adjacent to it make up most of the dining room. The television is turned to YouTube while soft rock plays on the background. I see a picture in the middle of the living room wall. It’s a repurposed frame with an image of Marie and I, a smaller photo of this baby in the corner. Above even that sits a shelf.
+
+This shelf had been handled with obvious care.  
+White orchids sit atop each side of it and an image of me is placed at the center. It was a photo of me at the park grounds, grilling burgers and hot dogs. That was a good day. That was a really good day. She took that photo of me a year ago. I had bragged about my cooking skills the entire day, and then I left them sit too long. Marie would poke fun at me ever since then for how charred the hot dogs turned out to be.  
+The only other thing on that shelf was a jar. An ivory-glistened jar that had been etched with my namesake.
+
+I felt a mix of terrible sadness and unbridled anger. I turned back toward my Marie. This could not be it. If that was my baby, I need them to know I’m here. I’ll never leave them. 
+
+My ongoing jerking and convulsing only heightens but it came with no mental effects. I could see and I could process thoughts. I limped toward my child and my Marie.
+
+The more I fought, the more unnatural my movements became, but I didn’t care.  
+I needed my family.
+
+I slumped down the hall with an awful groan accompanying my limited movement. As Marie slid a spoonful of oatmeal into that boy’s mouth, he tilted his head towards me once again and his eyes shot wide. The oatmeal he was chewing fell from his mouth and onto his lap as he let out a shrill cry of recognition. He shrieked and twisted in his chair as if he was trying to manage an escape.
+
+Marie tried to calm him but showed me no awareness whatsoever. She couldn’t see me but he was terrified of me. This child was the only one that could see me and he was terrified of me.
+
+“..Marie….”, I repeated to myself as I stopped approaching.
+
+Suddenly, I recalled.
+
+“Had she changed that?”, a question of recollection briefly visited me. 
+
+Though so much has changed about this apartment, had Marie changed that?  
+Because if not, then there should be a mirror that hung on the wall just a few mere inches from my face. My limbs still unruly and shaking vigorously - now independent of my will - I slowly turned my head.
+
+There it was. The mirror.
+
+I turned to peer into it, my child’s cries persisting.  
+I saw who I am and who I am not. I saw what I had become. I saw what the source of his crying was, and what truly haunted him in this place. 
+
+His ever-constant cries let me know all too well.
