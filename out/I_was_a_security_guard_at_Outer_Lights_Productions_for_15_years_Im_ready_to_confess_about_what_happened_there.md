@@ -186,6 +186,6 @@ My hand was glued to my gun. I knew I should run in. Save her. That was my job, 
 
 As the horror before me unfolded, I was right back to where I was two years ago, watching those mask men enter O'Leery's, guns in hand what I idled outside in my cruiser. Just like then, I froze at the door handle. My body torn down the middle by the fence I planted my ass on. My body, my mind, screaming in refusal as I compelled it to go. I wanted so bad to be strong enough. To do my job. The right thing. 
 
-The seconds of the clock evaporated and 7 p.m. I heard Rustburrow's words from our the interview. As those people threw Mr. O'Leery onto the ground, beating him for petty cash, and as the bones of Regina crunched and crushed under the weight of "Thomas's" handes, I made the same choice I did then. 
+The seconds of the clock evaporated towards 7 p.m. I heard Rustburrow's words from our the interview. As those people threw Mr. O'Leery onto the ground, beating him for petty cash, and as the bones of Regina crunched and crushed under the weight of "Thomas's" handes, I made the same choice I did then. 
 
 I locked the door.
