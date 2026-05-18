@@ -1,0 +1,25 @@
+I've been meaning to get this off my chest for a long time... I feel like maybe if I talk about it, it'll give me some closure? Apologies for any grammatical issues there may be, im fluent, but english isn't my first language.
+
+Before I go into this, this isn't some post to reveal the people who killed her... Everyone already 𝘪s serving their time time for it, and my father is out of prison for an unrelated charge now and is currently living with us. I haven't healed my relationship with him yet, but I'm not confident in it ever restoring. despite knowing he wasn't involved when the actual murde𝘳 took place.
+
+My brother doesn't know, my grandparents who have had custody of me since I was a couple 𝘮onths old don't fully know... and I think the only ones who do have an idea about it is my current best friend and my therapi𝘴t, who doesn't even really have a clear solution on what's exactly going on despi𝘵e this sort of thing being the f𝘪eld they get payed for. So... I'm coming to reddit. Maybe someone's gone through something similar and can give me some pointers, I dunno.
+
+Just call me Zero, since it's a name I often go by online... when I was 15, my closest friend was murdered by my father's friend group... dad hung around the wrong crowd back then, which 𝘭ike... yeah, no shit. They were always on drugs or drinking, or always partying. Explaining them isn't doesn't add much to the situation. I can do into more detail i guess if people ask but it's not my major focus. 
+
+There's a couple different kinds of dreams, I have. I'll go in no particular order I guess.
+
+There were the ones that I easily passed off as coincidence... ones where I saw her alone among crowds, aimlessly wandering with this air of confusion, or Sometimes noticing me and just... watching... staring, with this 𝘭ingering air of something complex in can't place... 
+
+Well, if that was the only thing i've been experiencing, I wouldnt be making this post.
+
+These other types are much, much clearer... more like seeing through my own eyes, like i'm in my own body, woken up in a entirely different dimension... 
+
+I'm aware that she's gone in t𝘩ese... sometimes sobbing in her arms, t𝘦lling her how much I miss her, and that I wish I got to tell he𝘳 how I felt while I had the chance... sometimes having idle conversation about what I've done to attempt to distract myself... her hand stroking Through my hai𝘳, arms tightly wrapped around me... like she's actually th𝘦re...  sometimes I can still feel the texture of her knit sweater, or the softness of her hair against my skin when i wake up... sometimes I'll stay in bed long hours trying to go back...  And it's so weird, because these conversations...  the air of them... It  feels... real... her presence is protective... almost... intensely guarded and excessively domineering about certain details... 
+
+And maybe my head's finally broken from grief... or maybe something else. I don't know.
+
+ 
+
+I just want to have any semblance of my grasp on reality. That I'm not going mental and seeing a ghost in my dreams... cuz as much i love her, Ive been hung up on this for too long... I wanna move forward. I have dreams to persue an actual fufilling future with an actual career and decent head on my shoulders, But something's kept me there... chained to that day.
+
+So. I come to you all. Maybe there's something that can be done about it. I'll answer any questions you have, as well as long as they aren't crazily invasive, so feel free to ask about stuff.

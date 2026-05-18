@@ -1,0 +1,73 @@
+Next Friday, I’ll retire after twenty-three years as a police detective in northern New York. Most of the cases I worked gradually disappeared from my mind with time. A few never did. Not because they were especially violent, but because they left behind the feeling that something in the world was slightly out of place. Ones that made me completely question reality. I’ve decided to come forward with a story about the latter.
+
+On Thanksgiving in 2008, a young nurse I’ll call Ellen spent most of the holiday in what her family later described as a nervous stupor. Something about her behavior unsettled them enough that, before she left that night, her mother quietly asked if everything was alright.
+
+At first, Ellen tried to dismiss it. Then, after more prodding, she admitted that, for the past week, she had the constant feeling that someone was following her. Most of it was purely bad feelings, but the night before, while lying awake in her bedroom at the front of the house, she said she heard pacing outside her window for hours. Slow, steady footsteps moving along the sidewalk directly in front of the home. When Ellen finally forced herself to look through the blinds, the street was empty. But she added that she did hear frantic footsteps fleeing down the street.
+
+Her mother found the story unsettling because Ellen lived in a rather affluent part of town. Before Ellen left, both of her parents insisted that she call them the moment she got home.
+
+She never did. 
+
+About an hour after she should have arrived, her parents drove to her house themselves. They found her car idling in the driveway and the front door standing wide open. The lights inside were on. But Ellen was nowhere to be found. 
+
+At least, that was the situation when I arrived with a couple patrol officers a little after eleven. One officer stayed outside with Ellen’s parents to get their statement while his partner and I cleared the house again.
+
+From the moment I stepped inside, the house felt wrong. The decor itself was warm and cozy. Earth-tone walls, dim lighting, and rustic furniture. Years later, I learned that the style of decor was called Tuscan. Everything about it should have felt inviting. Instead, the house carried the same bleak atmosphere I had only before felt at murder scenes. Not violence exactly, but the feeling of something already ruined. 
+
+With every step I took, I couldn’t shake the sensation that someone was walking directly behind me, matching my steps perfectly. At the time, I blamed nerves. But considering what was about to happen, I do wonder if that really had been the case. 
+
+Shaun, the patrol officer with me, went into the kitchen while I continued down a hallway that felt longer than it should have been, leading to the master bedroom. I was trying to make sense of the house’s layout as I walked, half-focused, until I passed the open bathroom door and something there finally registered a moment too late.
+
+Just as I reached the bedroom door, something in my mind snapped back to the bathroom.
+
+In the moonlight spilling through the small window, I had clearly seen a man sitting on the toilet. He looked to be in his eighties, completely nude, hunched forward, his head buried in his hands as if he were in severe pain.
+
+It took a second for my body to catch up to what my eyes had registered. Then I turned back and moved quickly into the bathroom. I called for Shaun as I went.
+
+The room was empty. 
+
+I told Shaun to keep an eye out for someone moving through the house. He asked me if I had seen someone, and I said that I wasn’t sure, but to still keep an eye out. 
+
+I quickly realized the parents hadn’t fully checked the house, likely out of fear of what they might find. Because when I opened the door to the master bedroom, I was met with the unmistakable, sickly sweet stench of death.
+
+I scanned the room. Nothing seemed disturbed. Just the usual clutter of a lived-in space, ordinary in every way it could be. I reached for the light switch out of habit. Of course, despite every other light in the house working, it did nothing. So I pulled out my flashlight and stepped inside, already knowing what I was going to find.
+
+Now, before the obvious, something happened that I have never been able to get out of my head. Above the bed hung a framed photograph of Ellen standing beside the Grand Canyon, pointing out toward the landscape. She looked, even in that still image, like the kind of person hospitals were built around. Kind, steady, and the sort of presence you trusted without thinking.
+
+As I stepped into the room, the frame shifted on its hook. It didn’t fall, not fully. It tilted downward, hanging half-loose against the wall. In that angle, Ellen was no longer pointing out at the canyon. She was pointing down at the bed.
+
+I craned my neck to scan the bed and let out a small breath when I saw it was empty. But that relief immediately melted. A moment later, a rough, hoarse giggle came from my left. I turned and saw the faint outline of a figure standing in the dark corner.
+
+Despite my heart jumping into my throat, I drew my service weapon and ordered the figure to raise their hands. They complied and stepped forward into the moonlight.
+
+My mind, at the time, stalled completely. It refused to form a coherent description of what I was seeing. Only years later, with distance, have I been able to put it into words at all.
+
+It was the same old man I had seen in the bathroom. Still nude, his skin hanging off him in loose folds, as if he were wearing a suit several sizes too large. But that wasn’t what short circuited my brain.
+
+His head had changed. It stretched outward into something like a clustered frame of faces, four of them at least, all identical, all sharing the same maniacal stare, as if each one were a separate version of the same man displayed on different screens. The eyes of each face bulged outward like something within his skull was pushing against them. A rictus grin spread across each one. Each had sunken cheek bones that gave him a skeletal appearance. 
+
+He shuffled toward me slowly at first. Then, without warning, he took a sharp, aggressive step forward. My mind didn’t keep up. I fell backward like a child trying to get away from a monster in its closet. When I hit the floor, the smell of death intensified, thick enough that it felt physical. I turned my head to the right. Under the bed, I saw where it was coming from.
+
+The body of a young woman lay there, bloated and swollen, her face distended beyond recognition. Her limbs looked wrong, twisted back behind her as if they had been forced into a position they were never meant to take. Her skin had taken on a pale green cast, with dark lines running faintly beneath it, like something had begun to spread through her from the inside.
+
+The moment my mind fully registered what I was seeing under the bed, I heard a woman scream outside. Then the other officer shouting “stop,” followed by the sound of someone running hard over gravel. 
+
+I would later learn they had all seen a nude male figure outside the house, moving fast away from the property, its body loose and wrong in motion. The other officer later described it like the man’s skin was moving as if it was under water. 
+
+I tore my eyes from the corpse and grunted in frustration after finding that the old man was gone.
+
+Shaun rushed into the room a second later, asking what was happening. I couldn’t answer him. I just pointed beneath the bed.
+
+The other officer never caught the figure. After a few turns through the surrounding streets, he lost it and eventually stood down.
+
+After that, the case turned messy.
+
+I was criticized for letting the suspect slip away, and my description of what I had seen in the bedroom was declared as unhelpful. The part about the “faces” was written off almost immediately. Even the idea of the man being somehow deformed was brushed off.
+
+Then the coroner added another problem. He was firm in his opinion that Ellen, who was found to be murdered by strangulation, had been dead for several days, based on the state of decomposition.
+
+Because of this, the investigation shifted toward the entire family. But that line of inquiry collapsed when surveillance footage surfaced showing Ellen stopping for gas alone, only fifty-five minutes before the 911 call. We weren’t sure why her body was that decomposed, but we knew it somehow happened in that short span.
+
+Ellen’s murder remains unsolved.
+
+It is easily the case that has haunted me the most, because I know what I saw in that house, and I also know it cannot be possible. We spent years following leads rooted in reality, each one ending exactly where I expected it would. Nowhere. Because the truth of it sits in complete unreality.
