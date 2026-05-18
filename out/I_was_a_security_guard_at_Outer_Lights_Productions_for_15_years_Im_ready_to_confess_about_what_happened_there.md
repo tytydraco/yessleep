@@ -1,6 +1,6 @@
 I don't know what compelled me to confess here of all places. Maybe all the years in the pews caught up to me, took in the good word. Or maybe it is the lingering prognosis that has me crawling my way back to Jesus. I don't know. Either way, I am ready to talk. From what I read, this is the type of group to listen. Father Lincoln says that sins are like roots. You don't fully get them up unless you dig out the hole, right down to where it all started. He wears clothes to forgive. The internet throws words to condemn. To be frank, I could use a little of both.
 
-So, let's dig it all. Back to the first day of many mistakes.
+So, let's dig it all out. Back to the first day of many mistakes.
 
 "Oh, and lock the freezer after showtime."
 
@@ -14,7 +14,7 @@ He leaned back and swallowed. A deep breath wheezed in and out of him, indecisiv
 
 "Do you want this job?"
 
-The chill from the previous night's air was fresh lingered in my bones. I was out of gas, and had only two blankets two my name. That rat cloth I had gotten from St. Mary's weren't holding up as we ran into October, and I didn't know how many more nights in the Acura I could handle.
+The chill from the previous night's air still lingered in my bones. I was out of gas, and had only two blankets to my name. That rat cloth I had gotten from St. Mary's wasn't holding up as we ran into October, and I didn't know how many more nights in the Acura I could handle.
 
 "Yes, sir. I do."
 
@@ -78,9 +78,9 @@ Thomas, now fully his character Isaac, looked to her, his brow pinched into a gr
 
 "How can you ask me that?" He said, looking to her now. "Don't you dare look at me like that. You don't get to judge *me*. You didn't make those choices. You didn't feel the hunger we felt."
 
-Stillwell spoke, reading the stage direction, and the actors followed suit. "As Isaac starts to cry, Alyssa hugs him, embracing the truth of what he did in those mountains—what they chose to do to do—to survive. She buries herself in his shoulder, apologizing for everything. But Isaac looks on to the mountain, looking on to what was left behind. Was it his friends or all of himself?"
+Stillwell spoke, reading the stage direction, and the actors followed suit. "As Isaac starts to cry, Alyssa hugs him, embracing the truth of what he did in those mountains—what they chose to do—to survive. She buries herself in his shoulder, apologizing for everything. But Isaac looks on to the mountain, looking on to what was left behind. Was it his friends or all of himself?"
 
-Thomas then looked to the stage, right at me. His eyes gripped me like a thousand pleading hands begging me to stare. Gooseflesh broke out all over my body as he spoke.
+Thomas then looked to the seats, right at me. His eyes gripped me like a thousand pleading hands begging me to stare. Gooseflesh broke out all over my body as he spoke.
 
 "The jungle stole their lives. But I stole their souls. With every bite."
 
@@ -186,6 +186,6 @@ My hand was glued to my gun. I knew I should run in. Save her. That was my job, 
 
 As the horror before me unfolded, I was right back to where I was two years ago, watching those mask men enter O'Leery's, guns in hand what I idled outside in my cruiser. Just like then, I froze at the door handle. My body torn down the middle by the fence I planted my ass on. My body, my mind, screaming in refusal as I compelled it to go. I wanted so bad to be strong enough. To do my job. The right thing. 
 
-The seconds of the clock evaporated towards 7 p.m. I heard Rustburrow's words from our the interview. As those people threw Mr. O'Leery onto the ground, beating him for petty cash, and as the bones of Regina crunched and crushed under the weight of "Thomas's" handes, I made the same choice I did then. 
+The seconds of the clock evaporated toward 7 p.m. I heard Rustburrow's words from our the interview. As those people threw Mr. O'Leery onto the ground, beating him for petty cash, and as the bones of Regina crunched and crushed under the weight of "Thomas's" handes, I made the same choice I did then. 
 
 I locked the door.
