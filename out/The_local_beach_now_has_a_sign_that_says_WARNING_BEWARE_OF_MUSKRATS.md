@@ -1,0 +1,89 @@
+I have been very fortunate to have grown up where I have. I grew up in a lake community and was raised in a lakefront house. I will say it is quite different than your average neighborhood. Most of the people are older, as I was growing up, the only time I saw kids my age in my neighborhood was in the summer when parents would ship their children off onto the grandparents. Otherwise, seeing a classmate was seldom since most of them lived in neighborhoods far from the lake, neighborhoods with HOAs I guess. That is not to say I didn't appreciate being able to go tubing with neighbor's grandkids or play mermaids claiming to the other girls my mermaid tail was the best, but I would be lying if I said it didn't get lonely the other three seasons of the year.
+
+Nonetheless, I try to focus on the perks such as the sunrise and the sunset on the lake every day, having a private dock, being the go-to hang out spot for hangouts which got me in with the "cool kids", and being able to go swimming (or ice skating depending on the season) whenever I wanted. That last one is a double-edged sword for when there isn't ice. The lake, which I will not disclose the name of just in case there are any daredevils or naysayers reading this, is prone to unusually aggressive swimmer's itch. I remember one time after having a water gun fight with the neighbor's grandkids in swimming area near the dock, I swear no less than 15 minutes after leaving the water that my skin felt as though it was on fire and there were welts all over my body. The grandkids also got it pretty bad; one girl had to be taken to the hospital because she scratched so furiously at her skin it started bleeding and would not stop scratching even with blood clumping under her fingernails.
+
+We have a public beach too; a couple blocks away from my house. From what I hear the swimmer's itch is significantly worse there due to all the people stirring the water. Hence why, like any responsible beach, there is a sign posted throughout the summer that reads, "WARNING: Swimmer's Itch" followed by smaller text essentially saying shower or towel dry yourself immediately. The swimmer's itch is only a problem in the beginning of the summer. The city ends up putting some chemicals in the lake that will kill both the parasite and the lakeweeds it lives on to prevent the issue from continuing late into the summer.
+
+Why am I telling you this, though?
+
+Well, in recent years an issue has popped up that no chemical, no calamine lotion, or no towel can quell; muskrats. Muskrats are when you cross a beaver with a mouse physically but a hamster spiritually. Despite what Google may tell you, they are mean, very mean. Just like they swimmer's itch, the muskrats on my lake are unusually aggressive as well.
+
+When I was growing up, I never saw a muskrat. Not once, seagulls were the main nuisance. About a little over a year ago, they just came into existence. It was not unheard of this to happen since we never used to have ducks either, but the ducks were gradual over the span of 5 years. In the case of the muskrats, they just appeared one day. Ten of them were spotted by the beach's public dock sitting on nearby the shoreline. They were reported to be watching the people fishing, one fisherman quoted as saying;
+
+"It didn't feel like the geese or ducks who watch us, they do it out of caution because you know their babies or curiosity since they're birds, we probably look crazy to them. I know it sounds like I am someone who should be thrown in a loony bin, but I swear to the almighty lord above, I think those things were glaring rather than casually observing. I have never felt such disdain from an animal."
+
+It was all over the local newspaper that the lake had muskrats. That isn't the strange part, within less than 2 months the lake had a population of at least 100 muskrats confirmed through reports of multiple people seeing them perched on their boat lifts, swimming near their bobbers, or one case the darn thing was being chased off the lawn by a man's cat. I do not think myself or the city officials could have remotely predicted how horrific these things would become.
+
+It started with a Facebook post, on the city's page, it's designated for residents to post whatever they want about the city. A woman uploaded a video of a muskrat ripping out the throat of one of the Mallard ducks. In the video, the small beast lunged at the duck's throat. The duck thrashed its head and wings in an attempt to shake the creature off. It's panicked quacks soon became garbled by the sound of blood gargling in what remained of its throat. The muskrat hooked its claws as close as it could to the duck's shoulders given the creature's small stature. It was then the duck went limp as the watery gremlin pulled the carcass underneath the water.
+
+I have heard of cases of muskrats eating ducks before, but this was a small thing, I mean even smaller than normal, likely a baby muskrat. It took down an adult duck and was strong enough to drag it underwater, against the duck's natural buoyancy. I mean not impossible, but it would be a Herculean task for most babies to take down adults, no matter the difference in species.
+
+The events soon increased with the ducks, people would find pieces of the ducks in their yards, their shorelines, and on their docks. Sometimes the muskrats would not even eat the ducks. Multiple Facebook posts reported seeing muskrats swim towards the beach dragging mangled ducks in tow, only for them to let go of them and watch the dead ducks float to the shoreline amongst the bustling of people trying to enjoy a day at the beach.
+
+It got to the point where remaining ducks were not seen in the water anymore; they would walk along the sidewalk or fly into town. I think they knew something was off. Soon, there were no ducks in the water. The same happened to the few loons on the lake then a good portion of the seagulls. A lake once teeming with waterfowl was barren, only things floating on the surface were the muskrats and the people.
+
+I saw the dangerous jump from the muskrats attacking prey animals to fighting back predators.
+
+My family and I were on a boat ride, taking in the sunshine on a clear day, the cool waters splashing on our faces as our boat gently sliced through the water. We stopped in front of the beach to people watch as Midwesterners do.
+
+"Oh my gosh! Look! The bald eagle!", My mom exclaimed with excitement.
+
+"Honey, we see the eagles every day. It's nothing new." My dad replied at the steering wheel of boat with a groan.
+
+"Yeah, but rarely above the water anymore. Oh, I think it will try and grab a fish."
+
+As my mom pulled out her phone to record the bald eagle swoop down for a fish, I looked to the water as I sat in the front of the boat. I saw a muskrat.
+
+It was floating on the surface, half-submerged, its head tilted toward the sky with those disgusting black beady eyes. It seemed like it was waiting on the eagle. It started swimming towards where the eagle was circling above the water.
+
+I saw another muskrat, followed by another before eventually counting 30 muskrats near and far away from our boat but all swimming toward the spot the eagle was going to swoop down on.
+
+As soon as the eagle dove towards the water, all the muskrats dove underneath the surface in a synchronized fashion. I know I could not do anything but despite that fact, the realization hit me like a freight train. I couldn't help but scream in horror of what was about to happen.
+
+"NO!", I shrieked.
+
+The second eagle's talons hit the water to try and grab a fish; two muskrats broke the surface of the water underneath the eagle and latched their mouths onto each foot of the bird. They dove down with a force which created small waves as the eagle was at what I would say is the bird equivalent of waist high in the water. The majestic animal gave a clear look of confusion.
+
+It was then a hoard of muskrats jumped out of the water, encircling the eagle, like dolphins and swarmed the bird. The following sight was so grim that it only appeared in flashes in my mind. A ball of rodents pushing a large bird of prey into the water like some demented baptism into death. Broken feathers and chunks of meat flew all around the immediate area as the eagle switched between screaming bloody murder when it could get its head above water and silence when its head was forceful pushed back under. The wings of the bird thrashed, splashing up water but eventually the wings were but a faded memory as the muskrats consumed more and more.
+
+I could hear my parents' terror even through my shocked daze.
+
+"HOLY MOTHER OF GOD!", My dad screamed as he stood up from his chair watching the slaughter in horror.
+
+My mom turned her back to the event, dropped her phone onto the boat floor, and knelt down. She covered her face with her hands. Though, I could still hear her muffled voice repeat to herself frantically;
+
+"Oh my god, I can't watch. Oh my god, I can't watch.", Over and over again.
+
+The noise though, I will never forget the noise. You would think it would sound like growls or snarls like you would hear in movies? This was not that. The only description I could give of what I heard emit from those hellish rodents was a loud choir of pleasant humming throughout that ordeal.
+
+Eventually, what remained of the bald eagle was nothing intact feet attached to a gored stomach area and directly above that, the area where the lungs and heart should have been picked clean down to the spine, the bones were pristine and looked bleached. The wings were gone, no evidence of them even existing in the first place. The only other part that remained in perfect condition was the head of the eagle, hanging loose holding on by mere muscle fibers of its back.
+
+The group of muskrats, all bit onto the carcass before diving back under the surface, taking the body of the eagle with it.
+
+It was only then I came out of daze to hear the screaming of people from the beach who also witnessed the event, the sounds of splashing as people ran out of the water, and crying children being comforted by the shaky voices of their loving parents.
+
+"We are getting out of here! Mary! Lauren! Sit down or grab something!" My dad commanded as he firmly sat back in the chair, started the boat back up, and sped into a half-turn, straightening the boat's path back toward our house and dock.
+
+I sat in my seat stunned as we sped out of there. They were like piranhas; this all felt like some messed up joke. Our peaceful lake was host to some creatures who didn't behave like how like normal muskrats. I mean muskrats are solitary by nature, yet they were working together? It felt like an intentional act against nature itself.
+
+This wouldn't be the last occurrence of this unified attack. Posts on the city's Facebook page showcasing videos of them ganging up on dogs trying to cool off on a hot day, photos of people posting their encounters with them with deep bites and claw marks that sent them to the hospital. One person posting their trail cam showcasing a deer in the nearby woods getting swarmed by what looked like hundreds if not thousands of the rodents still emitting that melodic humming. The deer collapsed under the weight of the muskrats almost as though it were liquified, before being dragging it out of view of the camera. The deer never stopped screaming.
+
+It all culminated when fatally attacked a 7-year-old girl on an outing with her family, out of respect I will not state the name of this child or exact details of her gruesome death. What I will say though is that this was a very busy day at the beach and based off the information I have been given, her death was fast, very fast.
+
+The beach was promptly shut down after that as city officials tried to figure out what to do. Muskrats are a protected animal where I live so killing them out of season or in more populated areas could result in getting arrested, thrown in jail, and potentially charged with some bogus to go on a record.
+
+Traps were allowed for when the muskrats started coming up to peoples' doors and killing outdoor pets on the land. However, just like their unusual aggression, they are unusually smart as well and the traps killed more chipmunks and squirrels than muskrats.
+
+I don't go in the lake anymore and it has become a trend in my town to wear rubber or leather boots when you are out and about as to decrease the damage from the muskrats lunging at your ankles when trying to go to your car. I have seen grocery store workers fight off multiple muskrats with brooms or even sweeping them out of the stores.
+
+I miss my watery slice of heaven, the one that you used to see people playing at the beach with water guns, beach balls, and floaties. The one that used to have people go tubing and water skiing on. The winter was not better either. Apparently, the muskrats would lunge out of the ice fishing holes at peoples' faces and a lot of people ended up having to get stitches, in the best scenario. Those who tried to ice skate or do a polar plunge, had similar endings to the ice fishermen.
+
+I do not even think there are any fish in that lake anymore, I couldn't tell you. I am too scared I will get mauled to death if I even try to go onto the dock. The one I have been on over a thousand times in my life, that I will likely never set foot on again.
+
+They are reopening the beach this summer. They are putting up a sign so that if someone dies, they cannot get sued as easily.
+
+So, my warning to you is this. If you go to the beach this summer and you see a sign that says;
+
+"WARNING: BEWARE OF MUSKRATS."
+
+LEAVE.
