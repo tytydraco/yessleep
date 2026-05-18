@@ -150,7 +150,9 @@ One item left.
 
 I open up the clipboard case, and inside was one of the most arcaric locks I had ever seen. A massive steel padlock with a thick two-inch iron key. I glanced at my watch, and the time read 6:54. 
 
-"Shit." I gave a brisk jog further into the studio, the lights in the corridor getting further and further apart. In my panic, I hadn't realized I was following Suit and Regina's steps. I thought they must have taken a different route, but as I followed the studio map more, I knew that wasn't the case. This was a one-way path. Three minutes to the deadline, I made it to a staircase that descended into the earth. A pitch-black void into nothing. Illuminated only by a single slit at the bottom, where the freezer door was barely ajar. I crept down. Sweat broke out on my neck. When I made it halfway, careful to avoid each creak and groan of the floorboards, I heard voices coming from inside.
+"Shit." 
+
+My jog broke into a sweat soaked sprint as I dove further into the studio. The lights in the corridor getting further and further apart. In my panic, I hadn't realized I was following Suit and Regina's steps. I thought they must have taken a different route, but as I followed the studio map more, I knew that wasn't the case. This was a one-way path. Three minutes to the deadline, I made it to a staircase that descended into the earth. A pitch-black void into nothing. Illuminated only by a single slit at the bottom, where the freezer door was barely ajar. I crept down. Sweat broke out on my neck. When I made it halfway, careful to avoid each creak and groan of the floorboards, I heard voices coming from inside.
 
 "What the fuck is this? What happened to her knee?" This voice was new. Deep. No, thunderous. It rolled up the stairs like the boulder trap from Indiana Jones. When it reached me, my brain struggled to process it into language. 
 
@@ -184,8 +186,8 @@ It was then that I made it to the door. My eyes instantly searched through the c
 
 My hand was glued to my gun. I knew I should run in. Save her. That was my job, right? To protect and serve? At least it was. And once again I was here. All the power, all the authority, and all I could do was fucking nothing. I knew that poor kid didn't deserve this. And as that conflict roiled within me, Suit turned around to face me. He wore an expression of pure indifference. No hate, surprise, or worry. He shook his head. A warning. But was it for me, not against. 
 
-As the horror before me unfolded, I was right back to where I was two years ago, watching those mask men enter O'Leery's, guns in hand what I idled outside in my cruiser. Just like then, I froze at the door handle. My body torn down the middle by the fence I planted my ass on. My body, my mind, screaming in refusal as I compelled it to go. I wanted so bad to be strong enough. To do my job. The right thing. 
+As the horror before me unfolded, I was right back to where I was two years ago, watching those masked men enter O'Leery's, guns in hand while I idled outside in my cruiser. Just like then, I froze at the door handle. My body torn down the middle by the fence I had planted my ass on. My body, my mind, screaming in refusal as I compelled it to go. I wanted so bad to be strong enough. To do my job. The right thing. 
 
-The seconds of the clock evaporated toward 7 p.m. I heard Rustburrow's words from our the interview. As those people threw Mr. O'Leery onto the ground, beating him for petty cash, and as the bones of Regina crunched and crushed under the weight of "Thomas's" handes, I made the same choice I did then. 
+The seconds of the clock evaporated toward 7 p.m. I heard Rustburrow's words from our the interview. As those people threw Mr. O'Leery onto the ground, beating him for petty cash, and as the bones of Regina crunched and crushed under the weight of "Thomas's" hands, I made the same choice that I did then. 
 
 I locked the door.
