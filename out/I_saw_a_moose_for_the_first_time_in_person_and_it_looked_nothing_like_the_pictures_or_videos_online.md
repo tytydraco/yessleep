@@ -108,7 +108,7 @@ Yes.
 
 “Addy! Do you have your lighter?!” I asked in a panicked fashion as I reached for the can of Lysol while continuing to try and kick at the ugly mug of the beast.
 
-“THATS YOUR CONCERN?! ITS IN MY-“, She stopped mid-sentence as I turned to show her the retrieved can of Lysol. She immediately caught onto my plan. She pulled the lighter of her pocket.
+“THATS YOUR CONCERN?! ITS IN MY-“, She stopped mid-sentence as I turned to show her the retrieved can of Lysol. She immediately caught onto my plan. She pulled the lighter out of her pocket.
 
 “Can you light it?”, I asked struggling back to the area where we cornered ourselves in the backseats, grabbing the door handle in preparation to open it.
 
@@ -120,9 +120,9 @@ I could hear its bellows. I could hear the rattling of glass as I could only ass
 
 I turned around toward the car to see it was crawling over the car with its mangled front legs, face, and head. No matter if the moose could actually see us or not it, it still felt like it was glaring at us. I could feel a primal instinct radiating off it the same way anger or fear does.
 
-Addy held up the lighter.
+Addy held up the lighter, which now held a small flame.
 
-I held the can of Lysol close to the lighter and started spraying.
+I held the can of Lysol close to the lighter and started spraying it.
 
 A plume of fire shot towards the moose’s tilted head. It went up in an inferno immediately. It let out a noise that sounded like metal cutlery scratching against a glass plate amplified by a thousand. It thrashed its head against the roof of my car so violently, I thought it would collapse the barely holding ceiling of the vehicle. I threw the can of Lysol into the open backseat door we fell out of. We turned around and ran towards the tree line.
 
