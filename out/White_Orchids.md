@@ -12,7 +12,7 @@ She doesn’t even acknowledge me, trying to entertain the baby.
 
 This blows. My dumbass standing there trying to open dialogue with Marie after making a fool of myself and then getting too drunk to even make it to the bed. Charlie is a very expressive baby boy, but he always eats his food, and his rolls of overlapping skin that make up his gut is evidence of that.
 
-Here, he only himms and haws, now readjusting uncomfortably in his high chair as he turns his Casper-like head to me. For a moment he doesn’t cry, almost as if he’s unsure of who I am or why I’m there. I made all the noise I was going to make trying to apologize to Marie, but did he? Did he get all his frustration out? His hollering had hushed completely as his quarter-sized, piercing blue eyes balls locked onto me.
+Here, he only himms and haws, now readjusting uncomfortably in his high chair as he turns his Casper-like head to me. For a moment he doesn’t cry, almost as if he’s unsure of who I am or why I’m there. I made all the noise I was going to make trying to apologize to Marie, but did he? Did he get all his frustration out? His hollering had hushed completely as his quarter-sized, piercing blue eye balls locked onto me.
 
 “Hey, Charlie…. Hey, bud.” I say, curiously. I started to walk toward him and after a few steps he lets out another thunderous cry, this time worst than before, a subtle panic in his face.
 
@@ -42,38 +42,40 @@ The vendor didn’t mind at all that he had to bag me up a bouquet after I plant
 
 “She’ll love them I’m sure. “, he said to me as I headed back to my car.
 
-I nodded at the friendly man and offered a gentle smile as I opened my driver side door. I sped home, a renewed sense of realization of what truly mattered waged over me. It seemed like every light was green as my foot never had to leave the gas pedal the entire way back home.  
+I nodded at the friendly man and offered a gentle smile as I opened my driver side door. I sped home, a renewed sense of realization of what truly mattered washed over me. It seemed like every light was green as my foot never had to leave the gas pedal the entire way back home.  
 This was all really silly.
 
 I was going to hand her these flowers and then I was going to talk to her belly. Then I was going to let her and my child know how much they meant to me. And that they were the only things that meant soemthing to me.
 
 When I walked in the front door, things were more blurry than usual. I was barely buzzed from the bar so I just chalked up the oddly hazy view to not having a drink in a very long while.
 
-But my legs also felt heavy. Every step I took was a concentrated effort to get to where I was going. Clearly, I needed to lie down but walking to my room was never this hard. I couldn’t even make to the ajar door of the bedroom before I fell forward, the flowers I held jolted from their floral structure and scattered in front of me, a single white orchid meeting my eyeline before everything else went dark.
+But my legs also felt heavy. Every step I took was a concentrated effort to get to where I was going. Clearly, I needed to lie down but walking to my room was never this hard. I couldn’t even make it to the ajar door of the bedroom before I fell forward, the flowers I held jolted from their floral structure and scattered in front of me, a single white orchid meeting my eyeline before everything else went dark.
 
 I awoke in the bed again, but like last time, Marie was not there either. No blankets. No pilows. No sheets. I turned to see my stuff still organized in the corner of the room.
 
-Standing up from the bed was harder today. It felt as though my feet didn’t tread upon the carpet but instead they sunk into the floor. To even lift a leg in order to move forward was a hassle. I pushed and pushed. I struggled to get to the doorway and finally I was able to use the very frame of it to support myself. Trying to enter the hall again brought me to a crawl. I couldn’t even get back to my feet if I wanted to. My apartment had changed. The furniture was different and not in the place it was just yesterday. The walls had been painted with a new coat of beige. I wasn’t delirious. I couldn’t have been. It still didn’t feel like I belonged here. Like, this wasn’t my place.  
+Standing up from the bed was harder today. It felt as though my feet didn’t tread upon the carpet but instead they sunk into the floor. To even lift a leg in order to move forward was a hassle. I pushed and pushed. I struggled to get to the doorway and finally I was able to use the very frame of it to support myself. Trying to enter the hall again brought me to a crawl. I couldn’t even get back to my feet if I wanted to. My apartment had changed. The furniture was different and not in the place it was just yesterday. The walls had been painted with a new coat of beige. I wasn’t delirious. I couldn’t have been. It still didn’t feel like I belonged here. Like, this wasn’t my place.
+
 “M-M-Marie..” I shout unsuredly.
 
 My energy, whatever was left, seemed to dissipate exponentially with every movement. I looked down at my arms as I continued to crawl down the hallway and toward the kitchen and my arms were… they weren’t even what arms were supposed to be. They were frail, discolored and elongated in a manner that made me gasp in terror. I didn’t know what the hell I was looking at but my hands seemed to sink into the floor as well. I fought it.
 
 Whatever this was… whatever was happening didn’t make any sense.
 
- I climbed the carpet while on my knees and forearms. I couldn’t help but twitch and jerk in order to prevent my hands from becoming one with the floor or me falling through the damn thing entirely.
+I climbed the carpet while on my knees and forearms. I couldn’t help but twitch and jerk in order to prevent my hands from becoming one with the floor or me falling through the damn thing entirely.
 
 I reared back and leveled my head. I needed Marie to see me. I needed help. I could hear her humming to herself just feet away.
 
-Charlie is still sitting there, in view. This time a small bowl of oatmeal sat across from him. This he liked. As I used everything I had in me to close the gap between Marie and I, he shoveled in another mouthful. I tried to speak out loud and couldn’t. My voice was not there any longer. And even I could have spoken to her, I don’t know what I would have said in that moment.
+Charlie is still sitting there, in view. This time a small bowl of oatmeal sat across from him. This he liked. As I used everything I had in me to close the gap between Marie and I, he shoveled in another mouthful. I tried to speak out loud and couldn’t. My voice was not there any longer. And even if I could have spoken to her, I don’t know what I would have said in that moment.
 
-“Is that momma’s sweet boy?”, Marie says cavalierly, as she comes into view.  
+“Is that momma’s sweet boy?”, Marie says cavalierly, as she comes into view.
+
 I ceased my pursuit.
 
 No longer pregnant and no signs of showing. At all. Marie sits down with the baby - the baby that wasn’t Charlie after all.
 
 “Momma’s boy?” I mutter, considering to myself. She doesn’t acknowledge me, still gearing all of her attention toward the child.
 
-“What the hell—“, I relent. 
+“What the hell—“, I relent.
 
 I allow myself a reprieve from struggle and when I do, I’m risen to my feet as if another party has me strung up on cables. I can see my apartment more clearly now.
 
@@ -83,7 +85,7 @@ This shelf had been handled with obvious care.
 White orchids sit atop each side of it and an image of me is placed at the center. It was a photo of me at the park grounds, grilling burgers and hot dogs. That was a good day. That was a really good day. She took that photo of me a year ago. I had bragged about my cooking skills the entire day, and then I left them sit too long. Marie would poke fun at me ever since then for how charred the hot dogs turned out to be.  
 The only other thing on that shelf was a jar. An ivory-glistened jar that had been etched with my namesake.
 
-I felt a mix of terrible sadness and unbridled anger. I turned back toward my Marie. This could not be it. If that was my baby, I need them to know I’m here. I’ll never leave them. 
+I felt a mix of terrible sadness and unbridled anger. I turned back toward my Marie. This could not be it. If that was my baby, I need them to know I’m here. I’ll never leave them.
 
 My ongoing jerking and convulsing only heightens but it came with no mental effects. I could see and I could process thoughts. I limped toward my child and my Marie.
 
@@ -98,7 +100,7 @@ Marie tried to calm him but showed me no awareness whatsoever. She couldn’t se
 
 Suddenly, I recalled.
 
-“Had she changed that?”, a question of recollection briefly visited me. 
+“Had she changed that?”, a question of recollection briefly visited me.
 
 Though so much has changed about this apartment, had Marie changed that?  
 Because if not, then there should be a mirror that hung on the wall just a few mere inches from my face. My limbs still unruly and shaking vigorously - now independent of my will - I slowly turned my head.
@@ -106,6 +108,6 @@ Because if not, then there should be a mirror that hung on the wall just a few m
 There it was. The mirror.
 
 I turned to peer into it, my child’s cries persisting.  
-I saw who I am and who I am not. I saw what I had become. I saw what the source of his crying was, and what truly haunted him in this place. 
+I saw who I am and who I am not. I saw what I had become. I saw what the source of his crying was, and what truly haunted him in this place.
 
 His ever-constant cries let me know all too well.

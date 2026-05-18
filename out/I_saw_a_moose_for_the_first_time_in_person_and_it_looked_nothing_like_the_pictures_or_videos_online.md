@@ -72,7 +72,7 @@ Though as messed up as it sounds, I wish in that moment her weed was laced becau
 
 That creature was an abomination of nature. We didn’t know what it wanted but we would soon learn.
 
-The moose let out a noise that sounded like a distorted boat horn before charging at us with swift yet clumsy lunge.
+The moose let out a noise that sounded like a distorted boat horn before charging at us with a swift yet clumsy lunge.
 
 “REVERSE IT!” Addy screamed.
 
