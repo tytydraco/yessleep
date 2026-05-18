@@ -367,3 +367,5 @@ A sharp giggle of laughter burst from the front porch as a little girl came rush
 The source of the doll was the least of my concerns, however, because I recognized the little girl. Her perfect pink princess gown, golden locks, and tiara were completely unmistakable.
 
 It didn’t seem I was going to need to go back into the labyrinth to find our Ariadne after all. Part of her seemed to still be living on the surface…
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1tg5qog/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

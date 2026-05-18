@@ -1,0 +1,353 @@
+[{Original Post}](https://www.reddit.com/r/nosleep/comments/1qzmk9s/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1re3ii9/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+Content Warning: >!talk of child abuse!<
+
+I stood nearly frozen for about a full minute while I stared at the princess in disbelief. I had no idea what I’d done to earn the glimpse through the window into whatever reality this was, but my heart was thumping with excitement. This was it—the next step forward we’d been looking for. A way to get answers without traversing inside the red door.
+
+The little girl didn’t seem to notice me as she ran beneath the lone tree and set her basket down, laying out the blanket for her toys before meticulously setting out a tea party. Her small, innocent face was painted with a content smile as she worked, and even from so far, I could hear her humming to herself, not a care in the world.
+
+“Um, hello?” I called out cautiously, not trying to startle her.
+
+No response. She must not have heard me.
+
+“Hello? Little girl?” I awkwardly tried again.
+
+Still nothing, although at the volume I was calling there was no way she wouldn’t have heard me. I suddenly became confused; in my first instance of flashing to this place back in the halls, hadn’t she been able to hear me? Or, at the very least, she’d *seen* me.
+
+Thinking back on the moment, I began to wonder if she’d been looking at me specifically at all. Maybe when she peered around the corner, she was only looking at the woman carrying the buckets.
+
+It was that woman that gave me a different possibility, however. She hadn’t been able to see or hear me either as I stood right in front of her, and that vision had been a lot like this one; some weird approximation or memory of the past, it seemed.
+
+Maybe the little girl couldn’t see me because this wasn’t really her, at least not her ghostly self that had been with me in the halls. Maybe right now, this was just a memory. A time before she ended up…um, *trapped* behind the red door.
+
+My heart sank at the possibility, realizing my celebration had been a little premature. If this wasn’t really the ghost girl, then that meant I wasn’t going to be able to speak directly to her and ask questions like I’d hoped. Still, any sort of glimpse into the past was invaluable to us right now—it might give us more clues as to what happened here.
+
+I moved to step closer but promptly stopped when new characters suddenly joined the scene. The front door swung open again, and from the porch stepped down three women; ones that I recognized, though I still hadn’t met any of them officially.
+
+The first of them was the woman I’d seen in my last visit to this strange pocket dimension; the one with the long raven hair adorned with flowers and a young yet wise face. She no longer had her bucket of candle-making supplies with her, but instead a basket like the little girls, steaming with some sort of baked good that quickly overrode the smell of summer grass.
+
+She smiled fondly at the princess and her fluffy inert subjects, then turned back to her sisters, “I’m going to join her.”
+
+“Well hang on a second!” the woman behind her scoffed, “Don’t run off with all those cookies before we get one! Adeline, grab me out a couple, quick.”
+
+‘Adeline’, the third woman, gave a small chuckle in the back of her throat before stepping forward and obliging, fishing out two fresh, gooey cookies from the basket before nodding the raven-haired woman away.
+
+Of all three, she was the most familiar to me. Her wild, curly red locks were unmistakable, and the beauty mark perched above her lip was a dead giveaway. She was the woman from the portrait in the living room, the same one I’d stared at in curiosity each time I lay down on the couch to take my rest shift.
+
+She had a movie-star familiarity about her—a face I’d seen many times before but just couldn’t place, even beyond all the times I looked at her in the painting. Among her sisters, she carried herself the highest; Strong, bold, and graceful, clearly the authority of the house. As she moved to a space just out in front of me, she stuck one of the cookies into her mouth to hold it, then passed the rest to her sister before laying out a blanket that she had tucked beneath her arm.
+
+The women took a seat, and the last one began laying out her supplies. She was the least familiar to me, having only seen her face a single time. It was a split second in the darkness of the halls; the place where we’d lost Casey—she was also featured in the portraits hanging on the wall.
+
+Unlike the others, her hair was short, choppy and a lighter brown, freckles dotting her face and eyes a lily-pad green. She had the same natural beauty as her friends, but hers was wilder, and she didn’t seem to be concerned about the elegance of it all.
+
+She was barefoot and wore loose, baggy overalls that were covered in paint marks, a white T-shirt underneath. The reason for her messy clothes was apparent immediately as the supplies she was laying out were for painting. She popped a small easel up on the blanket before setting the canvas on top, then, she removed some tubes of paint from a box. They were the old, aluminum kind, and by the looks of the labels, they were quite vintage.
+
+Like the little ghost girl, none of them acknowledged me or gave any indication that I was there.
+
+“Alright,” the blonde woman sang jovially, taking one of the cookies from Adeline and stuffing a large part of it into her mouth, “Innish up er’ ‘ookie so I ‘an start.”
+
+The red-haired mistress took another bite and looked down at a newspaper in her lap, unfolding it without looking up, “Give me a moment, Margret, I need to catch up on current affairs.”
+
+Margret swallowed her bite and rolled her eyes, “You had all that time while Natellie was baking to read that thing and you chose now?”
+
+“What’s the rush?” Adeline chuckled, “The sun is out, the day is nice, and we have nowhere to be.”
+
+Though I’d already thought of the women as ‘sisters’ a few times, that sentiment didn’t exactly seem accurate. None of them looked the same, all having different hair and eye colors, as well as face shapes in general. While genetics were weird and it was possible that their looks didn’t portray their biological relationship, it still didn’t seem the case.
+
+That begged the question what their relationship was to one another, living seemingly by themselves all the way out in the fancy manor on the mountain. Were they lovers of some kind? Friends who had all decided to live together? Perhaps a trio of widows who moved in to keep each other company, starting an orphanage of some kind?
+
+That might explain the grandeur of the house, as well as its strange layout and accommodations for children. It may seem like an odd detail to get hung up on, but something important to note about the time period I currently was witnessing was that it seemed old.
+
+In my conservative small town, three women living together in the middle of nowhere would already turn a few heads, but Stillwater in the early days, rife with misogyny and discrimination? It would most likely get you burned at the stake, and the fact only made the women all the more intriguing.
+
+As the two set about their business, Margret getting her paints splayed onto a palette and Adeline continuing to read her paper, I realized that I had the perfect way to find the date laid out right in front of me. I stepped close to the head maiden and peered over her shoulder.
+
+*Ike Signs Bill For Highways*
+
+*June 30, 1956*
+
+I can’t say why, but reading the date made my stomach sink in shock. I’d pieced together that what I was witnessing was in the past, but I hadn’t been prepared for just how far back I was seeing. It only made the Red Manor and the mysteries surrounding it feel that more ancient—that much further out of reach.
+
+The house hadn’t seemed so old when we first encountered it; if it was 70+ years untouched, it would have been in far greater disarray than we’d already found it in, especially under the harsh Appalachian weather. That meant beyond this moment, the event that drove the women away—or perhaps spelled their demise—must have come much later.
+
+I backed up to take in the bigger picture of the scene before me, wondering if there was still any clues in the ‘now’ that I could glean.
+
+“She’s a sweet one,” Margret smiled fondly, looking off over the field where Natellie sat on the little girl's blanket, smiling up at her as the princess made a royal speech to her party guests. She twirled and hopped around with a giggle, pure innocent ecstasy twinkling in her eyes while her tiara clung on for dear life.
+
+“Mhmm,” Adeline nonchalantly agreed, not looking up from her paper, “Certainly well-behaved.”
+
+Margret smacked her lips with a grieving look and released a sigh, pressing a hand to her chest in empathy, “Aw, I know… Did Natellie tell you that she was too afraid to even try playing with any of the toys in her room without asking because she thought she might get in trouble? The poor thing—I shudder to think what her home was like…”
+
+Adeline finally looked up from her reading to stare at her sister with an amused smirk, “Margret, I fear you’re getting attached awfully quickly.”
+
+The painter scowled, “Oh, shove off! What’s so wrong with a little compassion for the girl? It’s what our goal is, isn’t it?”
+
+“Yes, my dear, but we mustn’t get carried away with it. It makes it harder to part when the time comes. You know she won’t be here with us forever.”
+
+Margret pouted, beginning to sketch the basic outline of Adeline’s face across her canvas, “Yes, you continue to remind me every time. I just don’t see why we must always take the children who are so sweet. The rowdy and rude ones would be so much easier to part with…”
+
+“Yes, but they aren’t the ones who need help. That ‘help’ is the only reason we’re able to do what we do.”
+
+I looked back out towards the princess and regarded her for a moment, feeling a hollow ache in my chest. So that’s what this place was? Some sort of foster home? An early form of CPS that took children in need from bad situations?
+
+I thought about Stillwater for a moment and wondered what could have ceased such a facility that was so desperately needed. The amount of ramshackle homes in the town that were host to drug-addicted families—many of which included children—was disheartening, to say the least. They were never treated right, and rarely got the care they needed.
+
+There was even a whole subset of kids in the far countryside of the county that none of us ever got to know. We only knew they existed because you could catch their gaunt, pale faces peering at you through windows sometimes, or you’d run into them playing barefoot out in the woods all by themselves. Sometimes they were mute. Most times, they’d run off like scared animals. They weren’t enrolled in school, and I often wondered if there was any official record of their existence at all.
+
+‘Ghosts’ they were called when that was the case. Invisible to the state and to just about everyone else, too.
+
+I remember feeling bad for them, even when I was younger; I always wanted to help somehow. You don’t have any power as a kid, though, and the complexities of the situation are so far above your short little head that any idea you could come up with on how to assist would be futile.
+
+Besides, for kids like me, it would be the drowning trying to save the drown. By no means was I in that tragic of a situation, but if my old man had decided that drugs were his forte over alcohol, it easily could have been.
+
+No, I assumed that my house was something more akin to the little princess; it was why hearing Margret’s words struck a chord in me so intensely. I knew what it was like to live in a house where all you feel is fear. Always walking on eggshells. Living life held up in your room, the sound of yelling and screaming ever present through the walls.
+
+It made her joy less heartwarming and more harrowing. The gleam in her eyes was more than just child wonderment, it was the raw, eclectic feeling of freedom. The elation of a kid experiencing the joys of the world for the first time.
+
+It only made my stomach churn even more knowing what I did about her ultimate fate…
+
+“What if we kept her this time?” Margret ventured, not looking away from her canvas as if trying to downplay her statement.
+
+“Margret…” Adeline warned, the amusement in her words simmering down, “You know we can’t do that.”
+
+“Oh, hogwash. We have more than enough room; we could adopt her and raise her ourselves. Even teach her the ropes and have her help out—like a sort of apprentice.”
+
+“She’s just a young girl,” Adeline snorted, “It would take years for her to be old enough to help out, and we’re too busy as it is. It would conflict with the nature of our work. Besides, you know the rules. When the time comes, we move the children someplace better; *no exceptions.*”
+
+That ‘no exceptions’ made Margret back down, and the woman rolled her eyes, “Someday one of these children is going to wear you down, and when that time comes, I’m going to throw back in your face every single sweetie we passed over just because of your stubbornness.”
+
+“It’s not stubbornness, Marg.” Adeline sighed, folding her paper and tossing it beside her, “It’s necessity, and I’d sure hope that day never comes. The moment it does, everything we’ve built here falls apart.” Her sly smirk came back up, and as she finally held a pose for her partner to paint, she taunted, “After all these years, don’t tell me you’re just now deciding you might have chosen the wrong line of work?”
+
+Margret scoffed, “Please. You know I’ve sunk just as much into this house as you have. Just because I have a little motherly affection for the little ones that pass through doesn’t mean I’m trying to compromise the laws.”
+
+“Good. Then stop your griping and paint me already, would you?”
+
+Margret snickered off her friend’s teasing with an incredulous laugh, setting to work and streaking broad strokes of color across the canvas. I waited a few more moments to see if the women had anything else to say, but it seemed that sitting and painting was the only other thing on their agenda for the night.
+
+Instead, I turned out towards the field to my original objective, the girl in the princess costume. I didn’t know what sort of insight I was going to gain from a little girl having a tea party, but maybe if I could get a sense for who she was, I would know how to better communicate with her when I did encounter her spectral form again.
+
+I made it about five steps closer to the tree when the world came crashing back into place.
+
+The sky turned to night again, but the world wasn’t dark. In fact, it was a little too bright. Bright and blazing hot.
+
+I thrust all my body weight back in a panic as I felt my boot hitch on the edge of the stone pile we’d built for our bonfire. I had been moments away from toppling into the blaze, completely unaware. It turned out that while I was moving in the visions, the same was true in reality.
+
+I couldn’t stop the fall from coming, but I could at least mitigate the damage. I glanced sideways with a grunt, barely avoiding crashing on top of the charred whale creature still blazing among the flames, but my pant leg didn’t.
+
+“Shit!” I yelled, yanking the limb back and patting furiously at the fire that had caught there. I kicked it frantically at the damp, cold grass, hoping it might help, and finally, after a few minutes, I was able to get it under control.
+
+With a sigh of relief, I touched the mildly burned skin beneath, debating in my mind whether it needed supplies wasted on it or not. I was deciding that it didn’t just as I heard a voice call from the porch.
+
+“Jessie?! Holy shit, are you okay?”
+
+Carly came sprinting over, and my face went red, realizing she’d just probably seen the whole display. Hoping that she didn’t, I tried to bluff and mitigate my embarrassment, “Y-Yeah, just had a small misstep putting another log on the fire is all.”
+
+She gave me a confused look, then widened her eyes, “Um, no? I was washing my hands in the bathroom and looked out just in time to see you just fucking *walk* straight into the fire. What just happened?”
+
+I opened my mouth to speak, but I wasn’t quite sure how to tell her about the visions. Last time I’d brought up the strange flash I’d had in the hall, I could tell it only worried everyone. I was fully planning on doing so anyway, but then the thought triggered something in my brain.
+
+“Shit!” I yelled, scrambling to my feet and sprinting past Carly toward the side of the house.
+
+“Jess?!” she called after, “What’s wrong? What is going on?”
+
+I didn’t respond just yet; I was too focused on the doll. I scoured for it again in the darkness, hoping to find it before whatever strange tether I had to the thing faded away. I didn’t know how fragile the link it held to the past was, and after so rudely being torn from it, I feared I wouldn’t find my way back.
+
+Turned out it was fear well founded. My finger clasped the cold, muddy porcelain of the doll once more, but this time, the lights in the sky didn’t come back on. It was still the cold, silent night of autumn, and I was still in the present moment.
+
+“Shit!” I yelled again. I wrenched the doll from the ground and clutched it even tighter, shifting my hands over its surface and hoping to find the on switch once more. Carly was behind me now, and seeing me there in the dark on my knees clutching a creepy doll probably didn’t inspire confidence that I was mentally sound.
+
+“Jessie, you’re scaring me. What is that? What’s going on?”
+
+Realizing that no amount of fidgeting with the toy was going to open the door again, I tossed the thing back to its resting place with a sigh and growled. My one chance at getting more information on this place, and I’d utterly blown it. All I had to show for was the names of the former owners, and the original purpose of the house, which wasn’t much in the way of a clue forward.
+
+I traced my gaze up towards the heavens, ready to curse them for being so cruel, but then I saw the tower of the children’s room looming against the starlight. That doll wasn’t the only portal into the past, and I knew it—there was one in the basement that I’d somehow found too. That meant if this doll was a gateway to a memory, there might be more.
+
+“Come on!” I called to Carly, hope brewing in my chest once again. I sprinted for the front door, “I’ll explain on the way!”
+
+“Huh?” she said before gasping as I took off, “J-Jessie! Hang on! You need to calm down!”
+
+I sort of failed to ‘explain on the way’ in all my excitement. Not only was this the first lead we’d had in over seven grueling days, but it felt like I was onto something incredibly important. That what I’d just found was a miracle sent from the very heavens I was ready to curse a moment ago, and should I not pursue it immediately, it might slip away.
+
+I was winded by the time I finished sprinting to the top of the tower stairs, and Carly was too, trailing close behind. She huffed out her next sentence between breaths, “Jess… Jessie… what the… fuck are… you doing?”
+
+“I found something in the yard,” I finally spit out, dropping to my knees before the toy chest and ripping it open, “Something important; I think it might help us figure out the red door.”
+
+That seemed to perk her up quite a bit, but it didn’t entirely dissuade her concerns, “W-What? Really? What is it? What happened?”
+
+I explained to her the doll and what I’d seen in the flash as I ripped toy after toy out of the chest, fondling each one like I was frisking it for contraband. Each one that didn’t contain a vision back to the past, I haphazardly tossed over my shoulder, finding it useless to the situation at hand.
+
+Carly listened carefully. By halfway through my story, she was at my side, helping me pull out new trinkets and handing them to me to test.
+
+“Holy shit, and you’re sure it’s the doll that did it?”
+
+“It was touching it that brought me there,” I told her, running my hands over the surface of the rocking horse in the corner, “There has to be another toy with a story attached that we can use.”
+
+My friend continued looking around the room, moving to the bed and tossing the dusty stuffed animals to me. I inspected them as carefully as everything else, but still, there were no tethers to the past attached to any of them, just cobwebs and the occasional spot of mold.
+
+As we neared the bottom of the pile, Carly seemed to regard the bed beneath, wondering aloud about something I told her, “Why is there only one bed?”
+
+“What do you mean?” I asked her.
+
+“You said that you thought they were implying that this place was some sort of orphanage, but why would there only be one bed? Wouldn’t they have a room full of bunks or something?”
+
+“There are multiple bedrooms in this place,” I noted.
+
+“Yeah, but there were multiple people living here too. Only one of them seems fit for kids.”
+
+“You think that’s odd?”
+
+“Well, unless it was some early CPS type thing and that’s just how it was done back in the day, it is kinda’ curious, don’t you think?”
+
+I thought about it for a moment, “Yeah, maybe. I think I just assumed they helped one kid at a time before moving on. That ‘head lady’ made it sound like two was more than they could handle. She also mentioned laws, like they legally weren’t allowed to.”
+
+“It could be that,” Carly nodded. She pursed her lips and furtively looked at a creepy sock monkey that had landed facing her, “Or maybe there was something off about the kids themselves.”
+
+That idea made my skin prickle, and I also became hyperaware of all the faux eyes staring at me. I knew Carly didn’t mean ‘off’ in the physical or mental sense. We knew the Manor didn’t operate in either of those realms.
+
+“You mean like… having more than one kid might invite something in?” I cautioned.
+
+Carly shrugged, “If something was weird about them, then yeah. Maybe ‘helping’ them didn’t mean just escaping their old homes. Maybe the kids were bringing something with them that needed to be purged.”
+
+Based on everything I’d just heard from the women outside, there was no clear evidence that could confirm the theory; it was really just a guess. However, lining up the clues we already had, then reading between the lines, it made a strange amount of sense, “That would explain why they had so many occult books in a house meant to be an orphanage,” I pondered, “C, you might be onto something.”
+
+I saw a bit of pride flash across Carly’s face at my encouragement, but it melted fast as a new thought crept into her head. She looked carefully towards the door, and spoke a little softer, “The door… Kait thinks it wants her, Jessie. That thing at her apartment; that’s what it said.”
+
+As soon as her words processed in my ears, it felt like the floor collapsed under me and I went plummeting all the way down to the entryway. I didn’t like what she was implying, but if her theory was right, then it was a factor we couldn’t ignore.
+
+If there was some special type of child that the owners were trying to help—one that if left uncurbed could bring about something like the red door—then it stood to reason that should the evil be unleashed, it would want more of those kids. More morsels to feed on.
+
+We may not have known what the ‘special ingredient’ in the children was yet, but maybe it didn’t have to be specific to them being young. Maybe those kids could grow up, and maybe the house could call out to them if it was hungry enough.
+
+Maybe Kait leaving Stillwater wasn’t why the house cursed her. Kait might have already been cursed to begin with.
+
+The thought fueled my arms to move faster, more frantically as I searched around the room now, touching the bed frame and the nightstand and anything I could think of that might have some sort of sentimental value, holding a story within.
+
+I needed an answer. I needed to find more proof of what went on here—something that might disprove the rancid concept we’d just spoken into existence. All this time, I’d been trying to convince Kait that she was wrong; that there was no way the house wanted her, and that none of this was her fault.
+
+I had to make sure that stayed true. I *needed* it to stay true. I couldn’t give her any more of a reason to try and give herself to the house…
+
+“Come on!” I finally growled out loudly, pounding my hand on the dresser in anger when none of the clothes still hanging within brought me back to the past. The noise was loud, but my rage was louder, and I hated the way it made Carly wince in shock. All the monsters we faced downstairs over the last few days, and I still wore my inherited vitriol loud enough to startle a close friend.
+
+I panted softly, the heat steaming off beneath the cold water of shame, “Sorry…”
+
+“It’s okay; I get it, Jess.” Carly smiled awkwardly, moving close and putting a hand to my shoulder as I knelt helplessly on the floor. “Was there any special feeling that came with it? The flashbacks? Anyway to detect if we’re getting close?”
+
+I shook my head, “No. It happens fast; like I blink and then I’m just in a different time. I don’t think they’re literally like gateways or anything that’s pulling me somewhere else; it’s more like a hole into another time. Like I’m just peeking through a crack and seeing—”
+
+I cut myself short as my own words jolt a realization into me. A crack. The doll might have been a toy, and touching it may have taken me back to where I wanted to be, but I was neglecting a few very important details. The first was that the thing was damaged; muddy, tattered, and, well, cracked.
+
+The second was the more important one; my first flash—the one I’d had in the halls while running for our lives. I hadn’t yet considered what could have triggered that flash, especially not in the heat of the moment. Now, though, I remembered a detail about it. The wall I had touched when I took the corner—it was torn open. There was a tear in the wallpaper, and my fingers had touched the broken, exposed boards on the other side.
+
+It was damage—those were the openings. Exposed points in the house's innards that allowed me to glimpse into its different times.
+
+I quickly stood, then scoured the room, looking for anything on which I could test my theory. Sure enough, on the ceiling above the bed in the corner, there was a hole in the plaster where a leak had rotted the stuff away, leaving a gap that exposed the old, mold-riddled boards.
+
+Without a word, I clambered onto the bed, the old metal frame groaning in protest at my adult weight.
+
+“Jess? What are you doing?”
+
+I moved my hand up and touched the spot.
+
+Golden light blasted through the windows behind me, and I turned around to find it was now daytime out. The mess Carly and I had just made of the room was cleaned up, and around the space, I could see several of the ill-fated toys we’d been messing with in pristine condition.
+
+Around the room, something weird happened that I hadn’t seen the first two times of me entering the past. Ghostly flashes of figures flickered erratically throughout the room, like I was watching a recording of the space on fast forward. Alarmed, I quickly pulled my hand away, and finally, in the middle of the room, a figure fully appeared.
+
+It was not our Ariadne this time. Instead, a little boy sat on the rug, a bucket of Legos dumped on the floor and half of a castle built up. Construction seemed to be on hold as he held two small army men, making them fight among the debris.
+
+He didn’t have a costume on like the little girl, just his normal clothes, though his were still as interesting as a princess dress. His green tee was graphic, a picture of the Teenage Mutant Ninja Turtles printed onto his stomach. He wore a pair of cargo shorts, and his hair was long and unkempt. Not at all a style from the 1950’s—this seemed closer to the 80s.
+
+I took a slow step off the bed, then spoke aloud, just to test, “Hello?” As expected, the boy didn’t look up or acknowledge me. That was okay, though, because I had another reason for calling out, “Carly? If you can hear me, it worked. Don’t touch me, though, in case it breaks the connection.”
+
+I waited a few moments, seeing if I would get a response. If in the real world, I wasn’t talking and instead just walking vacantly through the bedroom, I had a feeling Carly would have gone against those wishes in concern. She never did.
+
+I stood there watching the boy play for a while, witnessing the charming narrative he’d laid out of a hero fighting to save his king's castle from an evil emperor. It was fascinating to see, knowing that what I was witnessing was a slice of the past cut straight out of time, but something about it felt rather invasive.
+
+I didn’t think I was going to find any answers watching the boy play pretend anyway, so I began moving for the door to explore the manor. I hadn’t gotten the chance in my last vision, and I was sure the place in its prime would have some clues scattered about.
+
+Before I got there, I noticed some drawings pinned up to a board on the wall that were no longer present far into the future. They were crayon doodles of castles and animals, and even one of what appeared to be the manor itself, perched on the edge of its precarious cliff. In crude black handwriting at the corner of each piece, the young artist had signed his name: Marcus. I made a note of it and continued to the door.
+
+The problem was, however, when I placed my hand on the knob to open the thing, it wouldn’t budge. It wasn’t that it was locked, either; the door wasn’t even shut. There was about a three-inch crack peeking out into the stairs, but when I tugged the handle to try to open it more, the barrier stayed firmly in place. It was like it was only a carving of a door, not a real, functioning member of the manor.
+
+I grabbed with both hands and gave a heave as hard as I could, nearly splitting one of my patched wounds back open in the process. It still gave no movement—not even the slightest groan or creak—and I ultimately admitted defeat. I thought back to my first flash where the same thing had happened: me trying to open a door only to find it wouldn’t budge.
+
+Considering what I knew now, it made a vague amount of sense, I supposed. What I was witnessing had already happened; it was set in stone. I couldn’t budge the door because in the past, it had never moved. It stayed right where it was until the boy opened it all the way.
+
+I turned back to who I presumed was Marcus, trying to gauge whether it was worth it to stay. Was there anything I could learn from this tiny little pocket of time? How long would it be before he decided to leave the space and I could follow him out?
+
+As I was deciding this, movement in the corner of my eye drew my attention back to the door. Something had moved just beyond it. I peered out into the steps through the crack and jumped in surprise as I saw a small, pale face peering back up at me. They were standing on the landing and peering around the banister as if trying to hide, but once my brain realized that the sight was familiar, my fear traded out for relief.
+
+It was the princess, staring the same way she had when we’d first met in the halls. This version of her wasn’t part of any vision, however—if it was, she wouldn’t be able to see me. The girl was looking directly at me through the crack, however, no mistake about it. Especially since she quickly ducked away the moment she saw I’d noticed her.
+
+“W-Wait!” I quickly yelled, trying the door again in vain before shooting my hand through the crack, “Hang on just a second, you don’t gotta’ be afraid!”
+
+My pleas didn’t work. Through the switchback on the stairs, I could see her small form moving down them fast.
+
+“Shit—Carly?!” I cried, spinning and flailing my hands around behind me, “Carly, are you there?”
+
+I felt a force clasp around my wrist before giving a tug, and like an electric jolt, the world crashed back into place. Marcus was gone, the space was dark save for Carly’s flashlight, and the air once again smelled of decay.
+
+“I’m here, Jess! What’s happening; is everything okay?”
+
+I quickly patted her arm in reassurance, but there wasn’t time for many words, “I’m fine; quick, follow me!”
+
+I turned and burst through the door, racing down the steps, and though she was clearly confused, Carly followed. We touched down in the upstairs hallway, and I looked down it, then toward the next flight down, wondering which way the princess might have gone in her plane of inhabitance. When I gave the hall a second glance, I noticed another tear in the wallpaper that revealed the home's skeleton, and sprinting over, I pressed my palm to it.
+
+To my shock, it actually worked. The space flashed into brightness, the carpets lost their stains, and beneath me in the parlor, I could hear an old record wailing out jazz on a gramophone.
+
+My head snapped in every direction, trying to get an eye on the little girl, and I finally spotted the flash of her pink dress rounding a corner down the hall. Her face peeked back out fast to see if I’d noticed her, but when she saw I had, she vanished for good.
+
+I started to rush over, then thought better. If she was already afraid, then my massive, mean-looking self rushing towards her wasn’t going to help anything. I moved slowly and calmly, knowing that I could afford to. The room she’d just entered was a dead end.
+
+We’d presumed it a sewing room in the present day, but it was hard to tell with how much of its contents were packed away or covered in dust. Now it was very clear we’d been right, with colorful textile rolls lining the walls, a large, antique looking machine by the widow, and a whole mess of clothes splayed on work tables and torso dummies—current projects, it seemed.
+
+Rain pattered gently against the window outside while I stepped slowly into the room, scanning around for where the little princess might be hiding. I didn’t see her, but the odd thing was that there wasn’t many places to hide. She wouldn’t be able to get behind most of the furniture, and given that I’d just learned we couldn’t open closed doors in this place, I knew she wasn’t in one of the wardrobes.
+
+I gave a quick scan of the places I could visibly see, but when I still couldn’t find her, I knew I really only had one other option.
+
+“You don’t have to be afraid,” I pleaded, “I’m not here to hurt you—I’m no monster like the ones in the halls downstairs.”
+
+There was no response to me. My words hollowly bounced around the space, and the girl didn’t reveal herself.
+
+“I know you’re scared of me,” I told the empty air softly, “You want to know a secret? I’m pretty scared too. This place—it confuses me. It’s dangerous, and me and my friends keep getting hurt. You though—you seem awfully brave, running all over here without any fear. I was hoping you could help *me* be less scared?”
+
+There was nothing but silence returned. Silence and the patter of rain on the window.
+
+I let out a shaky breath, clenching my fists tightly in prayer, “Please…”
+
+I startled as from my left, a figure suddenly blurred into existence, short, innocent, and wearing a tiara. It was as if she’d always been there, but someone had wiped away the space painted over her.
+
+Her hand was touching the wall, but it quickly pulled away to join its partner at her stomach, fidgeting nervously at the lacy poof of her dress as her quivering pools stared up at me. I stared back and crouched a little lower as to make myself less intimidating.
+
+“Hey there, little miss,” I smiled, “Sorry to give you a scare. It’s probably been a while since you’ve seen people. Especially in here with you, huh?” I gestured to the surrounding room.
+
+She didn’t yet seem convinced, still fidgeting with her dress and a cautious pout to her lips. I studied her closely, realizing that she didn’t seem to care how I made it into the pocket of the past with her. She was just still trying to figure out if I was someone she could trust.
+
+Changing tactics, I raised my brows, “Oh! How foolish of me! Where are my manners?” Quickly, I dropped my head and fell to a knee, folding my arm over my leg as I stooped into a bow, “It’s an honor to meet you, your majesty. It’s not everyday one gets to be in the presence of royalty!”
+
+I held the pose for a moment, then peeked up through my bangs, relieved to see that the girl's face had changed. She had a shy smirk on her lips, and when she saw my eyes again, she bashfully tucked her chin to her chest to avoid them.
+
+“I’m Knight Jessie,” at your service, I continued in my faux medieval drawl before slipping into sincerity, “I have to thank you for helping me get out of that maze the other day, your Majesty. I might have been in big trouble if you hadn’t.”
+
+The girl held her smile for a beat longer, but it faded as she seemed to remember the event in question. She glanced nervously to the side, and softly nodded.
+
+“Do… you have a name, my dear?” I politely asked her.
+
+It drew her eyes back to me, and she paused for a moment, the muscles in her face tense before she opened her mouth. I saw her lips move, and her neck shifted, attempting to make a sound, but nothing came out. All the motions were there to speak, but she couldn’t like she was on mute. The faintest sound of whirling air—like a breeze across a cliff side—was all that came out.
+
+I frowned, chewing my bottom lip, “Can’t speak, huh?”
+
+The little princess gave a look of shame, shrinking into herself before defeatedly shaking her head.
+
+I quickly pulled back up my smile, hating to make her frown, “Hey, that’s alright! There’s nothing wrong with that. A silent ruler just means you’re more action than words. That must make you a pretty good princess, is all.”
+
+Her expression warmed a little, and I saw her lips part to release a noiseless giggle. Despite the sadness of a child’s laugh being stolen from them, I the sight brought a snicker to me too. “Can I ask for your help again, Princess? There’s a lot of questions I have about this place, and I think you may be the only one who can help me.”
+
+The young ruler looked at me cautiously, her face returning to a neutral, trembling one as she analyzed my words and appearance. I thought for sure that when weighted together, she would still think me a threat—I remembered what it was like to be her age and to stare up at my father the same way…
+
+To my surprise, however, she slowly moved forward, marching straight up to me before the press of my gaze became too much for her. She shyly folded away with red cheeks, looking to the floor, but quickly sticking her hand out, offering it to me.
+
+My heart beat fast in my chest from disbelief, realizing that my oldest plan had actually worked. I had somehow managed to befriend a ghost…
+
+Her tiny palm disappeared into my baseball mitt of a hand, and she let it linger there for a moment, eyeing the scar across the back of my fingers and thumb. I think it made her wonder if she’d made the right choice.
+
+If she was, then she must not have given in to her concerns, because she turned then began to pull me along, setting out to help a subject in need.
