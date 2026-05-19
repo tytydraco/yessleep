@@ -1,0 +1,603 @@
+I don’t know that I believe in ghosts.
+
+When I offhandedly mention that Ruby’s Antiques is haunted, most people conjure up ideas of ghouls and spirits and spectral echoes floating and fluttering through the narrow, crowded aisles. They think I’m talking about long-dead souls attached to objects they once owned, lingering in confusion or malevolence. But Ruby’s Antiques isn’t haunted by ghosts.
+
+At least…I wouldn’t call the things that make a home here ghosts.
+
+Ruby’s Antiques is haunted the way survivors of some horrific accident are haunted. Tragedy and terror soak the brocade wallpaper and scuffed, varnish-sticky flooring, and settle over everything like a heavy layer of dust and cobwebs.
+
+Strange things have happened here as long as I’ve worked here, but…never anything quite so awful as a few weeks ago.
+
+\---
+
+That particular day started as they always do. Being the only employee, I opened the shop with a brass key and a flip of the hand-painted placard hanging in the only window.
+
+The owner—an older woman I’ve met in person only once, Mrs. Rutledge—lets me set the hours I work, so the store opens anytime from sunrise to sunset, on most days of the week.
+
+The fact that the shop opens and closes according to my schedule should have given me pause when I met Mrs. Rutledge for the hiring interview, but. Desperate times, etcetera etcetera.
+
+Immediately after opening the shop, before taking up the register, I migrated to our music section. We have a seemingly infinite record collection—yes, I’ve tried counting it, and I gave up after three days in a row of barely making a dent—and a pristine gramophone that softly creaks out its music over the entire shop. I chose one of my favourite records, from a collection that looks at least somewhat recognizable. I’ve found it’s best practice not to stray too far from normal.
+
+Some of these songs can’t be found anywhere else, and my musical selection’s a big hit amongst my regulars.
+
+With a slight crackle, a honeyed voice underpinned by smooth brass instruments echoed out of the gramophone. Satisfied, I tucked a misbehaving tuft of hair behind my ear and took my seat behind the register, humming quietly along to a song I’d never heard before. Familiar leather creaked under my weight and the golden lamp on my desk flicked to life with a hum and a buzz, and my day officially began.
+
+The morning passed quietly.
+
+My first customers were a mother and her young son, faces I’d never seen before. They ventured into the dreaded doll section and returned half an hour later with a pudgy porcelain doll that had too many teeth painted in its open, smiling mouth. The little boy looked absolutely delighted by his find; his mother, significantly less so. I pasted on my best customer service smile and processed the purchase swiftly and efficiently, so I could get that horrible fucking doll *away from me*.
+
+I’d never seen it before. That’s not uncommon, in the doll section. They’re always changing.
+
+Nobody showed up for a few hours after that. Closer to noon, one of my regulars hurried in, baseball cap slung low over his bloodshot eyes, flannel shirt smeared with grease and dust where it clung to his broad shoulders.
+
+“Good morning, Mr. Callahan,” I said, tracking his movement towards the back of the store.
+
+Mr. Callahan lifted his chin and stared at me. Even beneath the shadow of his cap, his eyes were dark and heavy and piercing, dull pinpricks in my skin. “How many times do I gotta tell you, kid? Just call me Cal.”
+
+As far as I can tell, everyone calls Mr. Callahan “Cal”. Everyone except me.
+
+I shrugged. “Store policy,” I told him truthfully, the way I always did when he complained about my formality. “If you’d like to register a complaint, I can put you in contact with Mrs. Rutledge—”
+
+“No. No, no thanks, don’t need to get her involved.” He hustled away very quickly after that.
+
+Shame. I liked talking to Mr. Callahan. Maybe a little more than I should, but that’s neither here nor there.
+
+I ate lunch behind the register—a messy ham-and-cheese sandwich I’d slapped together that morning, groggy and half-hungover from a boring night out—and sold a lovely set of earrings and a rickety chair to a couple unfamiliar customers. I was considering slipping out into the aisles to see what Mr. Callahan was up to when my phone buzzed on the desk.
+
+I flipped it over. Mrs. Rutledge’s name glared up at me from the screen, along with a photo of twisting rosebushes I’d never set as her contact photo.
+
+
+
+“Mrs. Rutledge? How may I help you?”
+
+
+
+“Oliver, sweetheart,” Mrs. Rutledge rasped, her pack-an-hour voice like stones grinding together. “A friend of mine is coming in to pick up a special order. You’ll be there for ‘em, won’t you?”
+
+
+
+Dread crept into my chest, cold and heavy. “Of course, Mrs. Rutledge.”
+
+
+
+She hacked an angry, tortured laugh that crackled through the phone. “Thattaboy. Should be labelled with her name, got it?”
+
+
+
+Dial tone rang in my ear before I could ask whose name I was looking for.
+
+
+
+Tension shivered up my arms. All special orders were stored somewhere in the temperamental recesses of the basement, and I hated going down there. It was cold and damp one day, dry and dusty the next; the only consistency you could count on was the poorly-spaced flickering lights and a faint, sour scent wafting up from deeper within.
+
+
+
+With a heavy sigh, I propped up the small sign signalling I was in the back, and slipped into the shop’s narrow aisles.
+
+
+
+I wasn’t worried about people leaving without paying. If they wanted to steal from us, the consequences were on *their* heads, not mine.
+
+
+
+I trailed the outskirts of the shop first; most days, the door to the basement could be found near the back of the shop, though that wasn’t a guarantee. I climbed over and under a maze of interlocking furniture threatening to spill out of its designated section like an overgrown fungus, and made a mental note to reorganize our living and dining sets. I avoided the dreaded doll section like the plague it was.
+
+
+
+Mr. Callahan was near the back corner of the store, glancing between an array of shelves and what looked like an old, faded blueprint covered in nonsense, Escheresque lines. I almost stumbled into his back when my foot caught on a plastic plant spilling out of its pot; only quick reflexes and a sharp, and extremely unprofessional, bark of, “*shit*!” kept me from embarrassing myself. Mr. Callahan startled back, then hedged forward to steady me with a warm, broad hand on my shoulder. For a moment, my growing chill was chased away.
+
+
+
+“Mr. Callahan!” I smiled to hide my wince, my voice creaking in my throat. “Sorry about that.”
+
+
+
+He sighed. Conspicuously, he rolled up his blueprints and half-tucked them behind his back. “Not a problem, kid.”
+
+
+
+I hadn’t intended on coming across him, but Mr. Callahan knew these dark recesses of the shop almost better than I did, myself. He’s our most regular customer, though…I can’t remember the last time I sold him anything.
+
+
+
+I maintained my customer service smile. “Have you come across the basement today, by any chance?”
+
+
+
+For a moment, he was quiet. His eyes narrowed. He inspected me like I was a zoo animal performing some particularly odd behaviour, and the back of my neck burned.
+
+
+
+“Right there,” he said, thumb jerking behind him.
+
+
+
+And so it was.
+
+
+
+Somehow, I hadn’t noticed it until he pointed it out. The basement doorway hung open as it always did, a delicate brass chain draped across at waist-height holding up a hand-painted “Employees only” sign. A naked lightbulb illuminated the narrow steps and old wooden panelling of the walls. Sickly yellow light spilled out at the bottom of the stairs, glistening off freshly waxed tiles that filled my throat with unease. Our basement wasn’t usually so…pristine.
+
+
+
+I approached the staircase, forcing myself to take slow, soothing breaths. “Thank you, Mr. Callahan.”
+
+
+
+Carefully, I stepped over the chain and began to descend. I distantly heard Mr. Callahan grumbling, and the rustle of him unfurling his blueprints once more, but my head swam with the sound of buzzing incandescent lights and the throbbing silence pulsing up from the basement. The soles of my shoes clicked softly on the tiled steps. Already, the hot, sour tendrils of an unidentifiable scent drifted up and tickled my nose. I covered my mouth and nose with the sleeve of my sweater as I stepped out of the stairwell.
+
+
+
+A long, narrow hallway stretched out before me. Flickering yellow light warped my sight just slightly; the floor appeared to slope upwards, the ceiling dipping down, like the hallway was narrowing and tightening, threatening to swallow me whole before I reached the door at the end.
+
+
+
+I lifted my chin and strode up the hallway with purpose. It’s best not to show hesitation.
+
+
+
+At the end of the hall, I unlocked the door with the same brass key I’d used to open the shop. The door swung open to a dimly lit storage room. Boxes sat stacked in haphazard piles—cardboard boxes, wooden chests, metal tackle boxes, any kind of container with a semblance of hinge or lid—and a bare lightbulb hung from a chain, swaying softly in the draft from the newly opened door. Odd geometric shadows stretched and swayed along the floor. I swallowed and tried not to stare too deeply into those shadows.
+
+
+
+Skittering sounds echoed in the heavy quiet. Rats, I could only hope. The noises crept closer before ebbing away. Nearer, farther. Nearer, farther. I ignored the shiver crawling over my scalp and carefully approached the nearest stack of boxes.
+
+
+
+Each box in special storage was labelled in Mrs. Rutledge’s loopy scrawl. Most were seemingly random numbers, some in Cyrillic or kanji scripts, and a handful were decorated with symbols I couldn’t read or understand.
+
+
+
+Eventually I found a box labelled “Celeste”. It…seemed right.
+
+
+
+The box was a small silver jewelry box, carved with intricate swirling designs and latched with a tiny padlock. The metal leached warmth from my skin when I picked it up and clutched it carefully against my chest. My knuckles ached from cold in seconds.
+
+
+
+I turned, and my heart sank to my gut.
+
+
+
+The door had disappeared.
+
+
+
+I was sure I’d only ventured ten feet or so into special storage, I was *certain*. But behind me stretched a long, cluttered room, filled to bursting with various boxes and lit intermittently by dangling white lightbulbs.
+
+
+
+My heart skipped. Sweat from my clammy palms smeared the delicate surface of the jewelry box.
+
+
+
+I closed my eyes. I inhaled until my chest ached and my throat burned with that sour smell, then exhaled until my head felt light and dizzy.
+
+
+
+When I opened my eyes, the door hadn’t returned. In fact…had the room gotten narrower?
+
+
+
+“*Fuck*,” I whispered, then bit the inside of my cheek. Mrs. Rutledge frowned on unprofessional language when I was on shift, no matter my surroundings.
+
+
+
+I tucked the silver jewelry box beneath one arm. Cold radiated from within, soaking through my sweater and the button-down I wore beneath, spreading through my ribs and leaving me shivering. With my free hand, I patted my back pocket for my phone.
+
+
+
+Nothing.
+
+
+
+I twisted and checked the other pocket. I felt around my front pockets, then patted both back pockets again just in case.
+
+
+
+I could see it so clearly: my phone, discarded at the register after Mrs. Rutledge’s cold-call, pleasantly displaying the time and the background photo of the stray cat that lived around my apartment. Futile dread filled my chest, as cold as the jewelry box.
+
+
+
+I’d been trapped in the basement before, but never without my phone.
+
+
+
+I couldn’t phone Mrs. Rutledge for instructions this time.
+
+
+
+Blinking shadows and dust from my eyes, I quickly glanced around the storage room. It was familiar and strange all at once. Like someone had taken the special storage room I knew and just…stretched it out into a long, narrow corridor, populated with the same stacks of strange boxes and the same dangling lightbulb.
+
+
+
+“There’s always a way out,” I said softly, repeating words Mrs. Rutledge had said to me in these predicaments before. “You only have to find it.”
+
+
+
+Then I picked a direction and began walking.
+
+
+
+Writing this now, I don’t know how long I spent walking the length of the special storage room. It seemed to stretch endlessly. No matter how far I walked, how many piles of boxes I passed, the far wall never seemed to draw closer.
+
+
+
+I kept Celeste’s jewelry box clutched to my chest. The chill helped cool the terrified heat building under my skin.
+
+
+
+The skittering came back, and it sounded louder. Larger. Closer?
+
+
+
+When a door finally appeared, tucked behind a stack of cardboard boxes taller than me, I could have wept. When I swung that door open and came face-to-face with the familiar aisles of Ruby’s Antiques—I’m not going to admit that my eyes burned with a few unshed tears, but I won’t deny it either.
+
+
+
+Bright yellow sunlight blared through the shop’s only window, distant and yet so soothing my legs nearly collapsed beneath me. Pleasantly cool air wicked away the sweat beading at the nape of my neck. I let out a long, heavy sigh, my tension and anxiety slipping away with my breath.
+
+
+
+Mr. Callahan was still in one of the obscure corners of the shop; I waved, but he didn’t react, probably too absorbed in his…work.
+
+
+
+Another customer stood in our jewelry aisle. Her back was hunched and her head down, so I didn’t interrupt her search.
+
+
+
+The register greeted me with open arms. I collapsed into the soft leather of my chair, tipping my head back into the stripe of harsh sunlight pouring through the lone window. I placed Celeste’s jewelry box atop the otherwise empty desk—wiping away a few foggy smears left by my clammy hands, sweeping with the sleeve of my sweater until the silvery surface gleamed—and settled in to wait for Mrs. Rutledge’s friend to arrive and collect her special order. I decided I would close the shop as soon as she’d picked it up. My soft bed called my name in a siren’s song.
+
+
+
+Eyes half-lidded, I basked in the silence and sunlight, the ache of tension slowly loosening within my stomach.
+
+
+
+I waited. Neither Mr. Callahan nor my other customer appeared at the register.
+
+
+
+I waited longer; the shop remained quiet and empty, the little bell over the door never ringing out to announce Celeste’s arrival.
+
+
+
+I waited, and the chill crept into my knuckles and the tips of my fingers. Cold and poor circulation leached all warmth and colour from my hands, leaving them stained a pale yellow from bloodlessness. I rubbed my hands together and cupped them in the sunlight pouring through the window, as though I could gather its warmth in the cradle of my palms.
+
+
+
+Warmth never came. If anything, my hands burned colder, joints stiffening up and the skin under my nails fading to a faint blue.
+
+
+
+Frowning, I brought my hands to my face. I puffed hot breaths onto the frigid skin in an attempt to warm them—and my breath clouded out in white wisps of steam.
+
+
+
+I paused, heartbeat skittering slightly as my teeth ached in the chill. It couldn’t be below freezing inside the shop. We were in the middle of an unseasonably warm spring, the world outside a harsh landscape of blue sky and green grass and sun-baked cobblestone, and besides, our air conditioner was not *nearly* that powerful. I hadn’t spent three summers broiling alive just for Ruby’s Antiques to become a winter wonderland in the middle of April.
+
+
+
+A shiver climbed my spine, rattling my teeth until I clenched my jaw tight and tucked my hands inside my sweater sleeves. The cold was growing bitter. Almost damp, tinged with a sour scent of mildew, like it was wafting up from the basement. Maybe I hadn’t closed the door when I’d come up—
+
+
+
+Fear surged in my throat.
+
+
+
+Upstairs. I didn’t remember climbing any stairs. I couldn’t remember how I’d gotten out of special storage. There was just a door, and then there was the shop.
+
+
+
+“What the fuck,” I whispered, then flinched. That was my third infraction. Any moment, Mrs. Rutledge would be texting my phone to remind me of the shop’s politeness policy.
+
+
+
+Except my phone was nowhere in sight. It wasn’t in any of my pockets.
+
+
+
+I’d left it at the register, face-up, displaying the grubby grin of Puddles the street cat. It was sitting helplessly, gormlessly in the shop, while I was…somewhere that was decidedly *not* Ruby’s Antiques. This was still the unpredictable basement, and that light shining in from outside—the familiar face of Mr. Callahan and my other customer—
+
+
+
+My mouth tasted like ash.
+
+
+
+All at once, I realized just how impossibly fucking quiet the shop was. No music croaked out from an ancient gramophone; no metal and jewels clinked as the unknown customer rifled through trays and bins and boxes of jewelry. Silence hung heavy in the air. I felt eerily alone, and yet the hairs rising on the back of my neck reminded me that there were two other bodies inside this facsimile of the shop.
+
+
+
+Slowly, I turned my head in the direction I’d last seen Mr. Callahan. I couldn’t see him anymore.
+
+
+
+My other customer had gone uncomfortably still where she bent over the necklace display. I could only glimpse the back of her head and the gnarled curl of her hands around the wooden shelves and rice-paper screens sectioning off the aisles of the shop, but something about the way she stood…it just wasn’t right. She was more like a posed mannequin than a person. In the harsh light streaming in from the shop’s sole window, her skin seemed plasticky and slightly discoloured.
+
+
+
+I moved silently, carefully, as I leaned in my seat for a better look. Long black hair streamed down her unmoving back, gleaming with iridescent undertones like an oil slick.
+
+
+
+Leather creaked under my weight as I tipped another few inches forward. It echoed through the silence like a gunshot.
+
+
+
+My heartbeat skittered and skipped. Cold sweat pooled at the base of my spine and in the crooks of my knees and elbows; I held my breath and swore I could hear my own pulse, a warm, wet pounding in the quiet.
+
+
+
+The customer with the long, oily hair began to move.
+
+
+
+It began as a twitch. A shudder. A small jitter of motion, accompanied by little plasticky pops and clicks, soft yet deafening. I sat perfectly still as her head tilted up, inch by agonizing inch. Fear spread through me like ice. I didn’t know what would happen if she looked at me—if she *noticed* me, paid attention to me—but my nerves screamed at the idea.
+
+
+
+I didn’t know where I was, but I knew I wasn’t supposed to be there.
+
+
+
+*Please, move*, I begged myself in my head, frantic thoughts buzzing and biting like a swarm of flies. My fingers clenched uselessly around the armrests of the chair.
+
+
+
+The woman’s face finally turned to meet mine.
+
+
+
+I felt sick. *Sick*. My vision narrowed to her relentless stare and my throat closed around a choked-off gasp.
+
+
+
+I don’t think I’d been expecting her to look like a monster, or to have some ghoulish visage straight out of a horror movie. Like I said, Ruby’s Antiques isn’t haunted by ghosts. But I wasn’t expecting her to look so—
+
+
+
+Imperfectly perfect.
+
+
+
+Her skin was pale, and shiny, and flawless; it gleamed in the harsh white light pouring in through the window, from the facsimile of the world outside that set my teeth on edge. Her eyes were big and dark, her body narrow and elegant despite its twitchy movements. She was too sharp to look at. Like an overprocessed image.
+
+
+
+I fumbled for Celeste’s jewelry box with clumsy hands, shoving up from my chair with enough force to send it scraping back into the wall behind me with a clatter of wood.
+
+
+
+The woman tipped her head to one side. Dark hair slipped over one shoulder, slow and liquid in its movements. She had all the features I’d expect on a human face—those big eyes, a narrow nose, a wideset mouth with pale lips—but it didn’t seem right. Every tiny jitter or twitch, for just a second, her features looked painted on.
+
+
+
+She started creeping closer. Her limbs moved slow and spidery. Soft *click-click-click* noises creaked out with every movement.
+
+
+
+I did not want her close to me.
+
+
+
+With the silver jewelry box hugged against my chest, the way a child clutches a teddy bear to keep them safe from monsters in the dark, I slipped away from the register and into the cramped aisles of not-Ruby’s Antiques. The door I’d come through was near the back left corner of the shop, nestled between clothing racks and esoteric board games. If I retraced my steps, I would find my way back.
+
+
+
+Relief bloomed in my chest when the door came into view. That relief crumbled into panic when I opened the door to a narrow, dark staircase, descending even deeper.
+
+
+
+“No,” I said through clenched teeth. “*No*.”
+
+
+
+I closed the door, and opened it again.
+
+
+
+The staircase was narrower, and darker, and the air drifting up from below carried the chilling bite of frost.
+
+
+
+*Click-click-click*.
+
+
+
+Fear shot into my throat. I looked over my shoulder to see a slick of oil-black hair spilling into the aisle. In creaky, slippery movements, the woman’s face followed, peeking out from behind a wooden cabinet piled high with chessboards. Her pale, spidery fingers curled around the corners of the cabinet.
+
+
+
+I’m secure enough in my lack of masculinity to admit the noise I let out was a fairly undignified squeak. I stumbled back, heel nearly catching on the edge of the uppermost step. Gravity swooped in my gut before I righted myself.
+
+
+
+A long moment passed. Another, stretching out like strands of syrup. The woman crept fully around the corner.
+
+
+
+I spun on my heel and launched myself down the stairs, two steps at a time.
+
+
+
+My footsteps echoed in the tiny tunnel of the stairwell. The only light came from a naked white lightbulb, buzzing and flickering with each step like any vibration might knock the wires completely loose. The staircase was abnormally long and ended in a plain wooden door, painted in rough strokes of white paint.
+
+
+
+I didn’t have high expectations when I wrenched open that door, but my stomach still flipped with delirious nausea. Because not only was I staring into Ruby’s Antiques—but the woman was *there*. A foot or so closer than I’d last seen her.
+
+
+
+I whirled around—and found a descending staircase behind me.
+
+
+
+Shiny tile floors gleamed under harsh fluorescent light. The air was so cold I couldn’t feel my hand where it clutched Celeste’s jewelry box to my chest.
+
+
+
+Panic had taken hold of me pretty thoroughly at that point; I barely wasted a second before bolting down those stairs. I could steal hear the soft *click-click-click* of her moving even as I stumbled off the last step and threw open the cold plastic door at the bottom of the stairs.
+
+
+
+There she was. Again. Even closer, staggering forward with jerky start-stop footsteps. Around her stood Ruby’s Antiques, coated in a glimmering layer of plasticky vinyl.
+
+
+
+Terror and frustration rose in my throat, wet and hot like a sob. I slammed the door shut and skittered down yet another set of stairs behind me. I nearly dropped the jewelry box when I opened the rusted metal door and was met with wide, black plastic eyes, staring from the shiny sockets of the woman’s too-pale face. Every time I opened the door she was closer, closer, *closer*—but what choice did I have but to keep going down these stairs, and pray I’d eventually find my way back to some semblance of normalcy?
+
+
+
+I staggered back as she inched closer. But my irrational panic had failed to account for the sudden descending staircase behind me; my heel slipped off the edge of the first step and I barked a wordless shout as my balance dissolved and my stomach shot up into my throat.
+
+
+
+My flailing hand managed to grip the stair rail and slow my wild momentum. Instead of tipping backwards down the stairs and cracking my skull open, I went down in a graceless tumble of slipping feet and one grasping hand. I landed hard on my ass at the base of the stairs—and smacked the back of my skull into what felt like a flimsy wooden door—and the world spun in swirls of black and grey.
+
+
+
+Blearily, I blinked the clouds from my eyes. I immediately regretted it.
+
+
+
+The woman had finally crossed the threshold and was creaking down the stairs.
+
+
+
+My blood turned to ice. Panicked, shaking, I felt for a door handle with my free hand, finding nothing but the smooth seams of a door fitting perfectly into its doorway.
+
+
+
+The stairwell was impossibly narrow; the woman, even slender as she was, couldn’t descend without her slim shoulders brushing the smooth concrete walls. I had nowhere left to run. All I could do was watch, heart thudding painfully in my tightening throat, as the imperfectly perfect woman crept down the stairs with all the grace of a stop-motion doll.
+
+
+
+I tried to stand, using the door to prop me up, but my legs were shaking too hard to hold my weight. My lungs burned from cold as I gulped down panicked mouthfuls of air.
+
+
+
+The strange, doll-like woman approached until the toes of our shoes were touching. She crouched, and it looked wrong, her limbs bending slightly too far out of shape. Those big, glassy eyes were pinned on me, unblinking. She leaned closer, and the scent of her—metallic and sweet, like burnt sugar and melting plastic—invaded my nose and brought panicked tears to my eyes.
+
+
+
+In that moment, I remember my terror overflowing so much that I almost felt…numb. I watched as her long, spidery fingers reached out, noticing the most useless details like the smooth, creaseless skin of her pale white palms.
+
+
+
+Her hand pressed against my chest. Her nails caught on the chunky knit of my sweater, just enough to fray the yarn.
+
+
+
+I expected—I’m not sure what I expected. Horrific scenarios swarmed my mind: her white fingers digging beneath skin and bone in spurting fountains of blood, her glassy black eyes swallowing me whole, that plasticky sheen climbing my own skin and swallowing me whole.
+
+
+
+When her hand delicately clasped the silver jewelry box and tugged it from my trembling grip, all my panic and terror briefly gave way to pure and utter confusion.
+
+
+
+She cradled the jewelry box in the bow of her arm, like a swaddled infant. Her slender fingers peeled back the handwritten label in Mrs. Rutledge’s curly script, folded it daintily in half, and offered it back to me.
+
+
+
+I blinked. My voice felt caught behind the sob still in my throat.
+
+
+
+Eventually, through several embarrassing voice cracks, I managed to ask: “you’re…Celeste?”
+
+
+
+She didn’t respond. I’m not entirely convinced that she could have, even if she wanted to. Her plasticky joints creaked as she stood, *click-click-click*, and she turned and began climbing the stairs with the same slow, jerky gait. I watched with my heartbeat hammering in my frigid fingertips as she disappeared through the doorway at the top, desperately trying to calm my frantic breathing.
+
+
+
+When my legs could support my weight, I stood and slid open the door at my back. It, somehow, led into the basement’s narrow corridor; the moment I stepped through, the door slid shut, and was nothing but a perennially locked door once again.
+
+
+
+I wasted no time.
+
+
+
+I scrambled up the hallway and the glossy tiled staircase, nearly tripping over the delicate chain at the top of the stairs when my ankle caught the “Employees only” sign. Mr. Callahan gave me an odd look when I stumbled past him and clambered up and over a haphazard stack of dining chairs, but I had no mind to be embarrassed by my frantic, clumsy behaviour. Warmth was beginning to chase away my chill, and crooning jazz echoed through the shop, but I had to be *sure* that I was back where I was meant to be—
+
+
+
+My phone sat exactly where I’d left it. When I tapped the screen, Puddles the street cat’s gummy grin greeted me.
+
+
+
+Relief hit me like a truck.
+
+
+
+Wheezing—from my retreating panic, and from the first bout of proper exercise I’d had in a week, shameful as that is to admit—I slumped into my plush leather seat and collapsed headfirst on the desk. The hollow *thunk* of my skull against solid wood was almost comforting.
+
+
+
+“You okay?” Mr. Callahan’s gruff voice rattled from the base of my spine to the nape of my neck. “You look, uh…”
+
+
+
+I shot up, plastering a customer service smile on my face. Wayward, sweat-damp strands of flyaway hair stuck every which way, and I self-consciously smoothed them down as best I could without a mirror.
+
+
+
+“I’m fine, Mr. Callahan,” I said chipperly, before leaping from my seat so fast even the unflappable Mr. Callahan jerked back. “But I regret to inform you that Ruby’s Antiques will be closing soon. Very soon. Right now, in fact.”
+
+
+
+He opened his mouth. Maybe it wasn’t exactly polite to interrupt him, but I *ached* with the need to leave the shop behind for the day. Or for the rest of the week. Possibly even the rest of April.
+
+
+
+“Right now. If you have any purchases you need processed…?”
+
+
+
+I asked it futilely, knowing that Mr. Callahan never bought anything on his ventures into the shop.
+
+
+
+As expected, he shook his head. I stood on my toes to sweep my gaze across the shop, but I didn’t notice any other customers, and they could find their own way out, were they so inclined.
+
+
+
+As I ushered Mr. Callahan out the door, into waning, reddish sunset—and the first true warmth I’d felt in hours—I checked the two missed texts from Mrs. Rutledge on my phone:
+
+
+
+***\[2:26 pm\] Remember, impeccable customer service never involves foul language.***
+
+
+
+***\[6:07 pm\] Great job, sweetie. Celeste is so happy with her order. You’ve gained yourself a repeat customer for sure!***
+
+
+
+\---
+
+
+
+I didn’t return to Ruby’s Antiques for six days following the aforementioned events. I might have stayed away longer, but I only get paid for the hours the shop is open, and while this job pays exceptionally well for a customer service gig, I’m still not *that* well off. I haven’t had another special order in the month or so since this happened, though, and every text or call from Mrs. Rutledge sends a fresh wave of frigid dread down my spine.
+
+
+
+Maybe I’ll ask Mrs. Rutledge to hire another employee. Surely if I had an underling, I could send *them* down into the basement to collect special orders, or in the rare cases when we need to access the water and electric?
+
+
+
+When she hired me, she told me her shop doesn’t take kindly to most strangers. That the antiques liked my *vibe*, whatever the hell that means.
+
+
+
+One more stranger couldn’t hurt, could it?
+
+
+
+I suppose I won’t know until I ask.

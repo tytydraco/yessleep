@@ -1,0 +1,141 @@
+File 00778: The Birdhouse Tree has been separated into parts due to processing efficiency.
+
+It was never easy being the daughter of a cop. I’m sure the experience differs from person to person but no one else had a father exactly like mine. The stretches of days away from home. The smell of alcohol that floated through the house like a weekly witching hour ghost. The vacation’s that mainly involved screaming arguments with my stormy mother, the occasional barbecue to save face, and – of course– spending his allotment of obligated time with me. Being a Birder was the only thing my father and I had in common. We’d make it out to the back of our house every second Saturday to comb the woods for new species that we hadn’t logged in our journals. It would take us the whole day to get our fill. Mostly in silence, leisurely strolling through the brush and off the trails until we would reach the quarry. Once a new bird was spotted, I was tasked to take a photo of it. It was still the late seventies so you’ll have to imagine one of the older cameras; a Canon Canonet 28 I had gotten for my twelfth birthday. After that my father asked me to go birding with him more often. I suppose that's where it all started. Where it all ended too. 
+
+By the time I reached seventeen, raging with hormones and rebellion, my father, and I had mapped most of the forest behind our humble bungalow. Looking back it surprises me that my anger and animosity toward him didn’t cause our strolls to be more infrequent, but my father was too quiet to properly lash out at. It just never felt right. My mother, on the other hand, was loud. Screaming at me when she caught me kissing Suzy Steldman at the PTA cookout. Shouting when I had taken some safety scissors to hack away at my long brown hair for the first time. That day’s lecture was about hair too. I had gone to my best friend's house to have it shortened up again, and by the time her steady hands had done their work, the hair on my head was cropped close to my scalp. It was shorter than the last time, something that did not escape my mothers notice as she hissed at me through tears.
+
+“I can’t believe you would do this just to embarrass me again! Do you know what the people in town say about you? About me and your father?” she questioned with her southern drawl.
+
+My mother was a very emotional woman, maybe that came from my fathers occupation leaving her alone most of the time. Alone with me. To pick apart what clothes I wore, who I dated, where I went. Except for when I went out with my father. He never commented on my hair, even on that day I had stomped out of the house and to the shed.
+
+It was overcast when we got around to picking my camera up out of our makeshift darkroom, and set out into the woods. My cheeks were still warm with anger even as the chill of the breeze rattled across my face. My heavy bomber jacket shielded the rest of my torso but I could feel the biting chill through my jeans. I loved the cold weather though, ever reminiscent of the hikes that we would take when I was younger. Now the smokies were too far to fit into any of our schedules. At the time I found myself missing those stone behemoths, and growing bored of the woods that were dwarfed in comparison. I almost asked my father how many different birds we would find up there as small talk, but when I saw his stone cold demeanor that day I decided against it. Somehow he looked tireder than he usually did. Normally even just a small amount of time away from work loosened him up enough, but I supposed the overtime had strung him tight. Hell, it almost looked like he had been crying. 
+
+“You alright Dad?” I remember asking. He inhaled briskly, trying to play off any indication of instability by wiping at his nose. 
+
+“Yeah,” he bit out, “Just not used to the cold this season.” 
+
+It was a lie, of course, but at the time I shrugged it off, finding that the barometric pressure could be to blame. We continued on, my father taking up the lead. Instead of starting toward the east of the quarry, we headed more west which would eventually lead us to the area around one of the cliff sides. Once I noticed this I blinked in surprise, as my father tended to steer clear of the quarry area. Be it superstition or infrastructural failings, I was always told the area was dangerous. Me being the little asshole that I was, I started hanging around the quarry after dark with friends and the occasional girl on my arm. So it was safe to say I knew the area well and knew the danger was blown well out of proportion. 
+
+My fathers paces began to slow as we reached the forested area surrounding the edge of the quarry and I could see the intensity of his searching gaze grow. That day the birds were surprisingly sparse. My father only lifted his binoculars to a common mourning dove, to which I promptly took a photo. It was almost like a game we’d play of who could spot the bird first. That day my father was winning, his keen eye even sharper. I finally caught one before him as I twisted my body in another direction. An eastern bluebird. It was no bald eagle, but its cyan feathers photographed so well that I beamed with pride. I excitedly signaled my father to look at the bird before it flew away and he nodded, scribbling the entry down in his notebook. 
+
+As another thirty minutes passed, the sky darkening above us, I could feel the atmosphere change. It was as if the trees around us were impatient and somehow the chill in the air seemed to seep deeper into my bones. The crunch of dead leaves echoed against the bark of the trees with more timbre and it was almost like the woods themselves could tell something was coming. It almost seemed like my father was looking for something else. I remember, seeing that look on my fathers face was the first time he ever truly scared me. But I knew that no matter what, he wouldn’t tell me what was wrong. Whatever it was it was about work and he never talked about work. As if on cue, I heard his pager beep sharply through the cold breeze. With a quick, instinctual hand, he pulled the small device out of his pocket. I gave him an annoyed look. Bringing his pager on our birding excursions was against the rules but he didn’t seem to care about that. His eyes flickered frantically over the small lettering, a deep anxiety setting lines into his cheeks. 
+
+“I have to go back into work, Nettie,” my father grumbled, already starting his walk back to the house. 
+
+“What?” I stammered, “But there's still a couple hours of good light left, and you never work overtime on Saturdays.”
+
+“Sorry kid. That’s just how it is. You can still stay out until sunset as long as you don’t get into any trouble.”
+
+I scoffed.
+
+“Mom’s not going to like that.”
+
+My father sighed with exasperation.
+
+“I’ll talk to her. Just don’t stay out after dark and if you get lost, head north with your compass and you’ll hit the highway.” 
+
+I knew I wouldn’t get lost. I had been in that forest more times than either of my parents knew. Even in the dark, the lantern on the back porch shined a light that you could see from at least a few miles away, provided the treeline wasn’t too thick. 
+
+“Alright,” I relented. He turned back to me and smiled. 
+
+“Take some good pictures for me, kid.” 
+
+And with that he started his hike back to the house. I watched him go with a lingering frustration and dismay. I really didn’t want to go back to the house with my mother still heated and somehow I know my father had surmised that. But this part of the woods without my father felt wrong. Like it was waiting. Shaking off that itching feeling, I resolutely decided that I wouldn’t let my fathers absence dampen any exploring that was to be had. 
+
+As I began to search the treeline through my camera lens I saw something move quickly from branch to branch in the corner of my vision. I moved the camera lens swiftly toward it so as to get a better view, adjusting the lens to zoom in closer. It was a bird, about forty feet back into the trees and perched on a high branch. I recognized it to be northern cardinal with its bright red feathers familiar in males of the species. However, when the bird turned its head, it revealed something sharply unfamiliar. In its beak, hanging limp and dead, was a severed human finger. The blood once dripping from it was dried and the cuticle was caked with dirt. Even more haunting was the chipped purple nail polish shining off the grimy cartilage. 
+
+I froze for a moment, not knowing what to think. My mind told me to scream but for whatever reason my finger shakily applied pressure to the shutter button with a resounding click. As the camera whirred the bird took off in flight. I should have let it slide off my back like a duck in the water, been nonchalant like I always was, but for whatever reason I started into a sprint after the bird. It wasn’t hard to track the small thing through the treeline as it made fast trails of crimson, but the terrain was a different story, causing me to tuck my camera into my bag before it got damaged.The bird was moving fast, with no sign of perching. It was as if it was a missile plotted toward a target, dipping under branches and weaving around trunks. 
+
+I tried to keep my footing but my mind became overwhelmed with the multitasking and I must have tripped over a rock or log. Whatever it was, I hit the forest floor hard, leaves, and branches leaving angry red imprints on my face and hands. I winced, my head spinning and my eyes scrunched closed, as I righted myself up to my knees. Luckily I wasn’t bleeding but brushing off my hands gave way to splinters. Though splinters could not compare to the sight in front of me. I was at a clearing I didn’t recognize, the grass uncannily green and pristine. At the center of this clearing was a large, spindly tree. Its branches were gnarled and knotted, with no leaves and a smooth beige bark that seemed paper thin. It almost looked like skin. Over the fleshy limbs draped a tattered, almost unrecognizable, American flag. Faded under the sun and caked with dirt. Small lights floated from each branch but as my eyes adjusted I realized they weren’t just lights. Each light was the hole at the center of a birdhouse. Small, simple things, with triangle roofs and light balsa wood, hung by rough dark rope. The cardinal perched on one of the lower branches, fat, red, and proud like a honey crisp apple. It still held the finger in its mouth before dropping the appendage into an unlit birdhouse window. As if spark to a fire, the birdhouse that the finger fell into now glowed like the rest of them. 
+
+I counted seventy-eight. Seventy-eight birdhouses, most of them unlit. Hung to almost every branch, even the ones that seemed the flimsiest. The red cardinal sat atop the one birdhouse, swelling in a moment of gratification, before flying away swiftly into the thick treeline. Confusion and apprehension washed over me like a static charge. Standing still felt like an act of cowardice but moving forward felt like wading through mud. But in the end I was my fathers daughter. So I grabbed hold of one of the lower branches of the tree, a firm, and steady arbor, and began to climb. The action proved easy, as I had climbed many trees before to take panoramic shots. I set my sights on the birdhouse that housed the finger, noticing it was higher than the other, dimly lit structures. 
+
+The bark was disgustingly soft under my palms and I shuddered as my boots made purchase on the branches. Swallowing my strange visceral feelings, I made it to the birdhouse I sought with ease. Leaning atop one of the sturdier limbs, I stared into the glowing hole in the center of the birdhouse. I don’t know what I expected but it wasn’t for the birdhouse to house a whole hand. The slender fingers of a woman were severed from a hand and placed alongside it at the floor of the house. My brow creased in confusion as I doubled back to check the size of the birdhouse. In its entirety the birdhouse was little bigger than my head. The hand was not crammed in the hole by any means, if anything, it seemed small compared to the interior of the birdhouse. Organized at the bottom as if in preparation for a dissection, yet not as sterile. The dirt and blood mixed into a thick grime that coated the dead skin. The walls glowed like an incubator, nursing an egg to hatch. I lifted my camera out of my bag carefully, somehow keeping my balance, and clicked the capture button. My father wouldn’t believe half the shit I told him about that day unless I had proof. But hands were hardly an identifying feature. 
+
+Assuming the other lit birdhouses housed more parts, I decided to climb higher, setting my sights on the vessel strung to the highest branch. While climbing I peaked into the other lit birdhouses, passing two feet and a forearm. Each were methodically dissected despite their dirty appearance. I even noticed the exposed bone at each joint wasn’t roughly carved, but instead cleanly cut. I stifled a gag at the viscera and considered what that meant about the perpetrator. A practiced, methodical killer, one that knew how to make the cuts as precise as possible. Unfortunately, none of the limbs had any noticeable tattoos. Which was to be expected considering I lived in the type of town where getting a tattoo was akin to listening to the devils fiddle music. Suffice it to say, I wanted a tattoo as soon as I turned eighteen. 
+
+I reached the top branch with ease, precariously settling myself among the high arbors. From that height I could see the sunset over the distant hills and the trees span out for miles before me. But not even that couldn’t stifle the growing panic in my chest. I couldn’t lose my shit yet, I told myself, I had to figure out what the hell was going on with this tree. So I slowly adjusted my gaze to examine the topmost birdhouse. After seeing the hand, I shouldn’t have been surprised by what was in store, but what I saw almost made me scream in terror. It was a head. Her head. She looked only a bit older than I was and her face was smeared with dirt and messed up makeup. Eyes wide open but not with death glazing them over, and instead with pure intent. As if she was waiting for me. Along her scalp was a red line where once her lower head and skullcap were once connected, except her skullcap wasn’t there anymore. It was stolen away, along with her brain. Which made what happened next all the more chilling.
+
+“Hello,” the head rasped, sounding as if she had been crying for a very long time. This time, I did scream. It echoed through the woods and above the treeline. I lost my balance for a moment, my leg slipping and twisting my ankle into the free air. I quickly clutched the branch above me for dear life and hoisted myself onto a thick branch. I winced as I settled my ankle on the branch, careful not to put too much weight on it. 
+
+“What the hell,” I gasped, not necessarily to her, but her eyes followed me with a need to respond. 
+
+“Are you okay?” 
+
+“Fuck, no I’m not okay. How can you talk without a brain?” 
+
+The head made a face one typically makes when they shrug. 
+
+“My neck isn’t connected to any vocal cords so I guess not much about this situation makes sense.” 
+
+Her voice was trying to sound optimistic but it was easy to sense how scared she was. The eyes still in her skull began to well with tears, smearing what little mascara she had left. She started to hyperventilate, trying to play off the growing panic as lighthearted chuckles despite the tears running streaks down the dirt on her face. I could see the paths where their saltiness had been before. 
+
+“Right, no, that was a stupid question,” I started, trying to hide the quiver in my voice, “Lets start out small, what's your name?”
+
+The head sniffled, a drop of snot retreating into her nose.
+
+“Talula,” she said in between gasps. I recognized that name from somewhere but at the time I had no idea where from. 
+
+“My name’s Nettie,” I almost instinctively reached out for a firm handshake then remembered my situation, “How did you end up like this?”
+
+She paused, collecting herself and stifling her remaining tears. The cavity in her head bobbing as she shuffled inside of the birdhouse made me have to stifle a look of disgust, my nausea growing deep in my throat. Despite the blood being dried the inside glistened and her veins spread where her brain used to be, like exposed roots. 
+
+“I can’t remember. I mean, I can’t remember all of it. I remember the man shoving me into his car. After I tried to scream he knocked me out with something hard. When I came to I was in the woods. He was dragging me so I tried to kick him and I dug my hands into the dirt. But he was strong, so strong,  so I tried to scream again but I realized I was gagged. I tried to reach for the pocketknife in my shorts but it was gone. After I kicked a couple more times he stopped and wrapped some duct tape around my legs before dropping them to the ground. Everything was moving so fast and yet so slow at the same time that I hardly registered when he stabbed me. It was a white hot pain in my breast. I looked up to see his face but it finally occurred to me that he was wearing some type of ski mask. Then everything felt hot, boiling, then he stabbed me again and it all went cold. I could feel warm liquid drip from my lips and flow from my chest. The last thing I saw was the sky. It was so beautiful, there were so many stars. The next thing I knew I woke up here.” 
+
+Talula was sobbing by the time she finished. Her cheeks were red and puffy and her face contorted in a pain deeper than I had ever seen or known. I swallowed the large lump in my throat. Not yet. 
+
+“I– I’m so sorry Talula.”
+
+She inhaled shakily, closing her eyes as if she were trying to shut out the memory. As if she were trying to shut out the world. When she finally opened them it almost seemed as if she thought she would wake up somewhere else. As if this were a dream she could wake up from.
+
+“I can’t believe I’m alive right now. What am I inside exactly?”
+
+“A birdhouse.”
+
+Talula paused, a confused and shocked look creeping onto her anguished face.
+
+“This is fucking insane,” Talula breathed out. 
+
+“I know,” I replied, not knowing what else to say. 
+
+“How did you find me?” 
+
+“A cardinal had your finger in its beak and I followed it to this tree.”
+
+The doubly fantastical nature of my answers reeled her aback, but it seemed like she had more important questions.
+
+“Does anyone else know where I am? Is my Momma alright? Are their people looking for me?” 
+
+“Slow down, I don’t know but I don’t think anyone else knows about this tree. At least not yet. My dad is a police officer so he’ll know what to do. I’ll tell him everything when he gets home.” 
+
+“Praise Jesus," she exclaimed, a smile creeping to the edges of her lips, then falling, “What’ll they think when they find me?”
+
+“I don’t rightly know,” I said, realizing the logic of her question. If the police were to find her she would become a marvel. A sideshow attraction. Likely even worse. 
+
+“I just want the person who did this to me to pay,” Talula gritted out, “And I can still feel parts of me out there, somewhere. My insides, whoever he is he has them. They call to me.”
+
+I thought for a long moment in silence. If I told my father and showed him the pictures he would call in the department and take her away before she could find her missing parts. Before she could get her vengeance and see it exacted. Somehow I could tell if she didn’t stay like this she wouldn’t be alive to even see an inkling of it. 
+
+“What do you want me to do?”
+
+Talula creased her brow in thought, glancing left and right to each idea. 
+
+“I just want to find who did this and what's being done about it. Even then, I wanna find that man and make him hurt. Prison ain’t enough. I want him to know what it is to feel the pain of knowing he’s not whole. I want him to writhe every second of every moment of every day of the rest of his life. I want him to know what it’s like to wish he could see his Momma. Feel the comfort of her hugs again. Feel the warmth of her pride again. I want him to know what it’s like to know he can never go home again. Death isn’t enough for him. I want him to live in agony.”
+
+Talula’s face was now twisted with grief and anger. Tears pricked at the edges of her eyes and I was surprised she even still had any left to cry. With the fire in her eyes and the determination in her voice I could hardly feel any hesitation. She could never go home the same as she was before. She could never live the life the way she had hoped. He took that from her forever and took everything inside of her too. All except for her soul.
+
+“I’ll try my best to help you. I promise.”
+
+Talula’s demeanor perked up and she smiled softly. I could tell she wasn’t fully relieved but I appreciated her strength to remain at least slightly optimistic. 
+
+“Thank you Nettie.”
+
+I suddenly realized how dark it had become and silently contested with my sprained ankle. I silently thanked god that the sun hadn’t fully made its way below the horizon. Any prying questions that met me when I arrived back home would not be welcome.
+
+“I have to go now, but I should be back sometime soon.”
+
+Talula’s face fell but she still tried to keep her lips upturned somewhat.
+
+“Okay,” she stammered. I nodded and then began to lower myself down the tree, gingerly retracing my tenuous steps down the arbors. 
+
+I reached the soft green grass after far too long and began to limp my way home. I only turned back once. Once, to see the tree glow in the night. It looked like a cluster of stars. A grim constellation isolating me in the sea of the world. Leading me to a home that wasn’t mine. A vessel that wasn’t human. Not anymore. But I turned away for now, witnessing the tattered flag flow in the night wind out of the corner of my eyes.  In the dark of the trees I could see the light on the back porch flicker. It was only then, in the cold, dark evening, among the arbors, that I began to cry. I retched, but all that came up was bile, and I didn’t stop shaking until I left the tree line.
