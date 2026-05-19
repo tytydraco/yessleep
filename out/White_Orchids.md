@@ -1,6 +1,6 @@
 “Aaaaaggghh, Aaaaaggghh”, these cries were at dinner today. I thought tonight would be different but it wasn’t. Marie slid a chair near a baby. Charlie? Is that Charlie? Her sister’s son? We haven’t baby sat for him since he was the size of my forearm.
 
-Marie scanned her phone for some music, or maybe even a silly video. Anything that might cease this child’s incessant crying. Charlie was an inconsolable lad at time. So we tried as much as we could to not offer our own time for babysitting. Call us selfish.
+Marie scanned her phone for some music, or maybe even a silly video. Anything that might cease this child’s incessant crying. Charlie was an inconsolable lad at times. So we tried as much as we could to not offer our own time for babysitting. Call us selfish.
 
 Charlie’s face is plush red and and his mouth agape. The dinner in front of him lie stabbed into with a plastic spork upright in a scooby doo dish filled to the brim with Mac n cheese. Marie is tired, I can tell. She won’t even acknowledge me though. Even now. I have tried to amend the things I said to her last night but her demeanor towards me tells me everything I need to know. Which was no demeanor at all. She ignored me entirely. I just stand there in the hallway, a pathetic attempt at saying sorry given visage.
 
@@ -32,7 +32,7 @@ I can admit that while we had arguments before, last night was different. We are
 Our baby has yet to enter this world, but our night usually ends with the two of us cuddled up in the bed, the television on low as we whisper what types of adventures we would plan to go on as a family. She usually fell asleep midway through her own vacation idea. I would soon follow, holding her close with her hair let down, the alluring scent of rosemary cucumber pulling us closer together.  
 It was in this moment that I felt most whole. It was in this moment that sleep would capture me.
 
-We didn't do that last night. The verbal war we went through led to me slamming the front door and leaving the apartment with an eyre of fury left behind in the words that I spoke. I got in my car and headed anywhere but there. I didn’t know where I was going but I figured hitting Gus’ Bar a few miles out would give me and her time to cool down.
+We didn't do that last night. The verbal war we went through led to me slamming the front door and leaving the apartment with an air of fury left behind in the words that I spoke. I got in my car and headed anywhere but there. I didn’t know where I was going but I figured hitting Gus’ Bar a few miles out would give me and her time to cool down.
 
 Soon the alcohol drowned any vitriol I still harbored following our fight. I didn’t get shit-faced drunk, but I drank to settle my nerves and in doing so, I softened.
 

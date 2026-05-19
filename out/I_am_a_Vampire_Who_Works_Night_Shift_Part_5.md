@@ -1,0 +1,121 @@
+I arrived at Our Savior Lutheran Church at seven twenty-five at night, having cut it close to avoid the wrath of the sun as much as possible. I walked up to the large wooden structure, remembering happier times when I went with my parents as a small child.
+
+I saw that silver Honda in the parking lot. I hoped it belonged to someone else, but almost by instinct I knew that Peter was here. Walking through the unlocked doors of the entrance, the familiar scenery looked vastly alien in the darkness of night. Every light was off, save for one. Down the hall just left of the entrance to the sanctuary, on the very end office, light shone through a square window.
+
+I walked down the hallway, taking in the sights long since forgotten, until I spotted a photograph of my father and Peter, shaking hands with the pastor between them. I don’t know why I didn’t have any strong memories of Peter. I’m sure I saw him as a kid. The congregation was so small that I would have had to. If my dad had been around him so often, why had I not seen them together?
+
+I approached the door to Pastor Jung’s office. He was sitting there at his wooden desk, Bible opened, staring at the window, at me. “Come in, Alex.”
+
+I opened the door. The squeak of the hinges shrieked softly down the empty hallway. I shut it. The clicking of the latch seemed impossibly loud against the silence of the room. The Pastor gestured with his hand to a chair in front of his desk. Next to it sat an antique mirror. I sat down.
+
+“So, why did you want to talk to me?” Jung said with a smile. He looked at me, but for the smallest fraction of a second, I saw his eyes wander to the mirror.
+
+“It’s really a long story. I don’t even know how I’d begin.” My eyes moved from him to the strange shadeless lamp that sat on his desk. Something about it made me terribly uncomfortable, almost as much as the cross he wore around his neck.
+
+“I have plenty of time, truly. I think I may be far more believing than you would expect.” He smiled, but there was something not right about it. I had known this man for a decent portion of my life and seen him smile, genuinely smile. It seemed like he was putting on a show.
+
+“I… I think I’m a vampire.”
+
+“I know, and I’m sorry.” The Pastor pulled the cord on the lamp, illuminating the room in blue light. It burned. I fell out of the chair, clutching to my blistering exposed flesh. “That mirror is genuine silver. You bared no reflection.”
+
+“Why?” I cried through gritted teeth.
+
+“Because it’s the job of the church to deal with those things that run opposed to the natural order of God.” My eyes were tight shut, but I could hear the voice. It wasn’t the Pastor. It was Peter. “That is precisely what I did with your dad. I’m sorry it came to this. If we killed Renaud you never would have turned.”
+
+“But I didn’t do anything. I haven’t killed anyone!” I threw my hands up in a desperate attempt to defend myself. I felt a hand against my chest, shoving me to the ground.
+
+“Not yet, praise Christ, but you will. That’s why we need to do this.” Peter’s voice was filled with sadness, but he didn’t stop. I felt something sharp and wooden over my chest. I braced myself for the end, then the pain stopped.
+
+“What’s happening?” I heard Jung say.
+
+“Looks like Renaud’s getting bold,” Peter replied.
+
+I opened my eyes to a dark room. I could see. They couldn’t. Now was my chance. I rushed towards the door. I slammed the door, turned around, and felt a sharp pain in my shoulder. Standing in front my, holding a tri-edged dagger that was firmly planted inside my body, was the old man.
+
+Terror filled my eyes as he looked at me in abject hatred. The glass of the window attached to the door shattered as a crossbow bolt flew through it. It struck the old man in the ear, and he released his grip on the dagger. I limped down the hallway to the sound of chaos behind me. I heard Peter screaming for the Pastor to get down. I heard the old man scream something in what I thought might have been French. I didn’t stop to see what was happening. I just ran.
+
+I drove home in my car, not sure what else to do. It was in the parking lot that I realized the dagger was still in my shoulder. I removed it. It was very simple in design. It had three edges and discs on either end of the handle. It looked like it belonged in a museum.
+
+I should have called in, but I went to work anyway. My wounds healed rapidly, but I began feeling hungry again. Carrie was at the door, waiting for me. “You alright, man? You look like crap.”
+
+“Y—yeah, just had a rough day.” I knew that to be an understatement but didn’t want to let on just how rough a day I had been having. “Have you seen Greg?”
+
+“Your friend with the acne? No, I haven’t.” I felt a twist in my gut. Bill walked up, the bald spot of his head shining bright.
+
+“You know where that greasy like twig you hang around with is? He’s been missing for three shifts in a row.” Bill sounded less worried for his wellbeing and more annoyed.
+
+“No, I don’t,” I said, sharing three more words with Bill than I ever would care to in any circumstance. I could kill him, I thought. His fat pompous ass would satisfy me for a month, drained white and sucked so dry of blood he’d mummify.
+
+“Well let me know when you do,” Bill said before storming off back to the registers. My eyes followed him. I imagined hanging him upside down and bathing in the crimson from his veins, of slicing his heart open and scooping out the fluid with a cup, of…
+
+“Alex, you okay?” Carrie said. I turned to look at her, not processing fully the words but noticing the profound look of concern on her face.
+
+“Yeah… I’m fine,” I lied.
+
+“Did you know they found a rat today?”
+
+“Really,” I said, having had my fill of small rodents. Maybe this one spoke too. I most certainly hoped not.
+
+“Maybe he’s keeping that bat company,” Carrie said, giggling a little. Seeing her laugh made me feel less nervous about everything. I could delude myself into thinking everything would be alright for just a while longer.
+
+“Hey, before I forget. Mom wanted to know if you could join us for dinner.”
+
+“Sure. She nervous about her baby boy moving out of the house?” Carrie teased.
+
+“Probably,” I chuckled. “She’s super religious though, so heads up.”
+
+“Oh.” She looked a little nervous when I brought that up. “My dad is too. I know how to navigate it. It’ll be fine.”
+
+Given what she had told me last night about her dad, I imagined she had far less to worry about with my mom but didn’t know how to explain it to her. I was really missing Greg’s bluntness right now. Where was he?
+
+We started our shift. David warned us about the rat. I was alone, stocking pet food. I smelled something sweet from somewhere above me. My stomach pleaded with me for something to fill it. I dropped the bag of dog food I was holding. It split open, spilling kibble onto the floor. I climbed the shelf and followed the scent to a vent on the wall. The cover was open. On the end, sat a rat. And just beyond it was a severed head, face twisted in agony, acne marking its cheeks. It was Gregg.
+
+Instinct took over. I grabbed hold of his head, and drank until there was nothing left to drink. The rat looked up at me, and as I returned to my former self, staring in horror into the tormented eyes of my dead friend, whose blood dripped down from my chin, I heard the rat speak. “Bring me Rachel, or Carrie is next.” It was the old man’s voice.
+
+I fell from the shelf, dropping on my back to the floor. Greg’s head rolled down the aisle before being stopped by the ripped bag of kibble. The rat dropped down, turning into the old man as he landed on his feet. He picked up the head, Greg’s head, and smiled at me. He vanished into mist, along with the remains of my friend.
+
+I was distant with Carrie for most of the day. She must have noticed, because as we clocked out she confronted me. “Hey, what’s going on?”
+
+“Nothing, it’s just…” I couldn’t tell her. I couldn’t let her die. I couldn’t let Rachel get taken by that creep. “Do you think I could move in tomorrow. I know it’s sudden, it’s just…”
+
+She laughed. I shrunk a little. She saw my demeanor and was quick to correct herself. “I wouldn’t mind the company. Besides, I’d feel a little safer with you there.” I was so flattered by the remark that I didn’t think to ask what it was she’d feel safer from.
+
+“I’m glad. I bet mom’s going to want to meet you sometime today then. She won’t be bothered, I’m sure.” Though I was certain that I would be. I could already picture my mom doing all the things that made me cringe. “I’ll see you around six or seven tonight. I’ll text you the time after I talk to her.”
+
+I walked out alone into the lot, still thinking of Greg. Poor Greg. He died because of me, because he was close to me. I was determined that no one else would die. I had to kill that old man.
+
+The bat sat at the driver’s side mirror of my car once more. Furious, I stormed towards it. “You tried to get me killed.”
+
+“You’re already dead, Alex. I was just trying to lay you to rest, like I did for so long all those nights I went out.”
+
+“Who are you?”
+
+The bat transformed. I stepped back as the figure appeared before me. I recognized the greying hairs, the familiar stubble, those eyes which mirrored my own. It was my father.
+
+“Dad?”
+
+“Hey, son. It’s been a while.”
+
+I don’t know what emotions I should have felt, and I’m not entirely sure that I knew what emotions I was feeling. Anger, sorrow, joy, frustration, just a mess of everything assaulting me all at once cascading together until I found one singular word to search for a reason to justify every single feeling. “Why?”
+
+“I am a church trained vampire hunter. I turned when fighting Renaud, that old man you keep seeing. I was too much a coward to have Peter put me down but couldn’t stand the thought of putting you and your mother in danger. So, here I am.”
+
+All those years gone. He had lied to us. “Did mom know what you were doing all those nights?”
+
+“No. She never needs to.”
+
+In the swirl of emotions I found one feeling and clutched on to it. It was anger. “I lost my faith because of you. Did you know that? Did you know how long I waited, how long I prayed for you to come home? I gave up on you. I gave up on God. Do you know how much that hurt mom, to see me like that? Do you know how much it hurt me?”
+
+“I’m sorry.” It was all he could say. It wasn’t enough.
+
+I pushed past him, entered my car, and drove away. Tears fell against the steering wheel as I raced home. I dried my eyes and entered the apartment. Mom was sitting there, sipping coffee and reading her Bible.
+
+“Hey kiddo, how was work?”
+
+“Messed up,” was the only response I could give.
+
+“You want to talk about it?”
+
+“Not really.”
+
+Carrie is going to be over for dinner at six thirty today. Mom is ecstatic. I could never tell her about dad. I hope he stays away. I wish he had stayed missing.
