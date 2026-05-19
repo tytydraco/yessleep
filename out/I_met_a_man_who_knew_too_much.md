@@ -1,0 +1,75 @@
+I know how this may sound; it may sound like I'm overreacting, and that knowing too much shouldn't have a negative connotation—but it does. I know this all too well. I now know that too much knowledge isn't a gift. It's a corrosive, inescapable plague on the mind. And this is a plague on me, a heavy and unyielding sickness, and now, many others will have to deal with the heavy, paralyzing weight of it from now until our last rasping, rattling breath on this planet. Every single moment is stained by it. Now listen close, I don't know how much longer I have until the last remnants of my sanity slip away entirely, until I'm reduced to nothing more than an empty, hollowed-out husk of my former self, staring blankly into space.
+
+I remember it—I remember that day all too well—the day he came to our quaint little town. He made himself out to be a tourist of sorts, though we, of course, found this slightly strange right from the start. The reason we found it so peculiar, so utterly bizarre, was that our little town had absolutely no important historical context, no famous landmarks, and no unique sights whatsoever; we were practically the textbook definition of the middle of nowhere. There was nothing here but dusty, empty roads that stretched out into the horizon and the endless, maddening hum of cicadas vibrating in the stifling summer heat. However, despite our confusion, we still welcomed the man to our town with open arms, and a few of us tried our best to show him around, walking him past the dusty, sun-bleached storefronts on Main Street and taking him into the old library that always smelled of vanilla and decay. As we showed him what little we could, he'd just smile and nod, letting out an occasional, off-kilter comment that left an uncomfortable silence in its wake. His eyes, cold and dark as deep water, seemed to look right through us, as if we weren't even standing there.
+
+The man had an incredibly unique, unsettling appearance. He was entirely too clean—there was not a single blemish, wrinkle, or mark on his unnaturally pale skin—and he wore a heavy, dark suit in the middle of the stifling summer heat without breaking a single drop of sweat. A faint, sharp smell of ozone mixed with old dust clung to him wherever he went, and his smile didn't quite reach his eyes, which seemed to swallow and snuff out the light around him. However, what we found most deeply unsettling was how he spoke: it was surprisingly formal, yet chillingly casual at the same time. His words rolled out with a measured, rhythmic precision, each syllable heavy with a quiet, ominous weight that made the hairs on the back of my neck stand straight up every time he opened his mouth.
+
+After what felt like days dragging him around our empty streets, he finally stopped in his tracks, offered a small, cold smile, and asked a single question. A sharp chill crept up my spine, a quiet, heavy dread settling deep into my bones as his hollow words echoed clearly in our ears.
+
+"If knowledge to humans is power, then what is it to a god?"
+
+We froze instantly, the entire group stalling in mid-motion as a cold, paralyzing dread crept up our spines, heavy and suffocating as wet wool. The air seemed to grow thick. The man studied our faces one by one, fixing us with a predatory, dead-eyed smirk, and slowly tilted his heavy head down before turning away into the heat. Standing frozen in that exact spot for what felt like an absolute eternity, I could feel my heart pounding violently against my ribs. A tangled, overwhelming mess of frantic thoughts raced through my head, colliding into each other. When I finally snapped out of my trance and looked around at the people beside me, I realized the others were quietly crying in absolute terror. I slowly touched my own cheek, and sure enough, my fingers came away wet with tears I hadn't even realized were falling.
+
+The sun crept slowly downward, the brilliant orange light gradually swallowing the treeline in a heavy, humid glow that felt suffocating. The sharp crunch of dry gravel under my boots was the only sound in the quiet evening as I trudged alone toward my apartment. The man's parting words ate away at my mind, chewing at my thoughts like a pack of rabid animals tearing at flesh. I finally stopped overthinking, trying to force the noise from my head, and made my way up the creaking steps to my weathered apartment building. The heavy front door squeaked loudly and painfully as I pushed it open, stepping into the dim hallway. The familiar, stale smell of burnt coffee and damp carpet hit me immediately, mixed with the faint, rhythmic rumble of a passing train vibrating softly through the old floorboards beneath my feet.
+
+"Heya James, where were ya at so late?"
+
+I looked up abruptly and was met with the friendly, familiar face of my landlord. Needing to quickly make an excuse—one that didn't make me sound completely delusional and overly paranoid—I scrambled frantically in my mind for the right words to say.
+
+"Um, I-I was just taking a walk, to get some fresh air." The excuse was incredibly vague, but it was believable enough to satisfy him.
+
+"Well ya outta be careful, summer heat'll kill ya."
+
+I gave a tight nod and a weak, forced smile, then quickly headed up the stairs to my apartment. I unlocked the door, groaning under my breath as it swung open, and the stuffy, confined smell of old drywall and cheap air freshener hit my nose. I took a deep breath, trying to calm my racing pulse, and made my way toward my bedroom, my heavy footsteps echoing sharply off the weathered floorboards with each step. Entering the bedroom, my heart skipped a beat and stopped completely.
+
+"Hello there, Mr. James Artwell, please take a seat. We have much to discuss."
+
+There, sitting quietly on the very edge of my mattress, was the strange man. Somehow, someway, without breaking any locks, he had gotten into my locked apartment. The sharp, overwhelming scent of ozone and wet wool hung heavily in the air, thick and suffocating to breathe, and the only sound in the dead silence was the soft, rhythmic clicking of his fingernails against the wooden headboard of my bed.
+
+"Ho—" Before I could even finish the word, the man cut me off instantly.
+
+"Mr. Artwell please, take a seat, I only want to have a chat." His tone remained perfectly calm, yet deeply demanding.
+
+A sudden, icy chill swept violently through my body, raising gooseflesh all along my bare arms. I stood completely frozen in the doorway, staring in absolute disbelief at the intruder, who sat entirely too comfortably on the edge of my bed.
+
+"How do you know my full name? How did you get in my ho—"
+
+Once again, before the sentence could leave my lips, he cut me off.
+
+"I know lots of things Mr. Artwell, more than you could begin to comprehend." The man grinned, his posture remaining unnaturally still and rigid. He began to speak again, his voice filling the small room. "For example, Mr. Artwell, did you know if one thing were to happen, one sliver, one tiny mistake, you would cease to exist? Well, you along with everything in the entire universe."
+
+The man once again grinned at me. I tried to speak, to yell, yet the words turned into useless, choked squeaks in my throat. Terrified to my very core, I backed away from the bedroom doorway and sprinted wildly toward my front door. I ripped the deadbolt open with trembling hands, but before I could step out into the hallway to escape, a dark shadow materialized out of the dark right in front of me. The man stood there entirely unbothered, effortlessly blocking my only way out of the building.
+
+"Leaving so soon?" he asked, a cold, mocking laugh echoing loudly through the empty apartment.
+
+Panicking, I turned and ran straight back to the bedroom, and there he was, still sitting on the edge of my bed as if he had never moved a single inch.
+
+"How... WHAT THE HELL ARE YOU!" I yelled at him at the top of my lungs, demanding an answer.
+
+The man let out a slight, quiet chuckle. "Now, if I told you that, Mr. Artwell, you would lose your mind, completely." His tone suddenly grew much colder, stripping away any casual pretense. He looked up at me, fixing me in place with those hollow eyes, and asked one final question before the entire world went black around me. "Now before I make leave, let me ask one final question. What god truly hears your desperate prayers?"
+
+The moment I heard the words, my entire body went completely numb and collapsed heavily to the floor with a loud, dull thud.
+
+When I opened my eyes, the pale morning light was slowly filtering into the room. I was still on the ground, but the man was no longer sitting on my bed. A light sheen of cold sweat coated my skin, leaving a damp, dark silhouette on the floor where I had lain all night. I forced my aching body up, my muscles sore from the hard floorboards. Finally standing on my feet, I could still smell the faint, sour scent of ozone lingering heavily in the air, but the room was entirely empty. I walked out into the hall and took careful note of anything suspicious, yet there was nothing even remotely odd or out of place. It was as if whatever I experienced was just a terrible dream, or rather, a vivid nightmare.
+
+Seeking the safety of the outdoors, I made my way out of the building, the early morning sun blinding my sore eyes. But even through my blurred, watery vision, I saw him standing right there on the pavement, the exact same chilling smile on his face.
+
+"Good morning, Mr. Artwell," the man said, his tone slightly mocking.
+
+I didn't respond to him. I just stared at him, a storm of frantic emotions churning violently inside me. Part of me wanted to scream at him—even attack him physically—but I couldn't even force myself to maintain eye contact with those deep eyes. I just backed away slowly, like a terrified animal trapped by a predator. And he noticed every bit of it.
+
+"Mr. Artwell, do you fear me? Hehehe."
+
+Driven by pure, unadulterated desperation, I stepped forward and threw a punch. My fist connected squarely with his face, but it felt like hitting solid stone—it barely did anything at all to him. He just kept smiling without flinching, and a suffocating wave of that sharp ozone smell overtook me completely.
+
+"Mr. Artwell, I applaud your attempt," he said calmly, the corners of his mouth twitching with amusement. "However, let me share a secret with you. Even if you manage to kill me, I would simply return. I would wear a different face, inhabit a completely different body—and you would never even know."
+
+The words struck like ice, triggering a sudden, blinding wave of total paranoia. I tried to bolt, to tear myself away from this waking nightmare, but every panicked step I took led me right back to the exact same spot on the pavement. Reality itself had caught in a groove, looping endlessly on a single, agonizing frame.
+
+Exhausted, my chest heaving for air, I finally gave in to the paralysis. He chuckled, a low, rasping sound that vibrated through the air before he leaned in close to my face, his lips curled into a slow, hollow smile.
+
+Then, he leaned in even closer and whispered the truth.
+
+It is a realization that now burrows deep into the marrow of my mind, sinking its claws deeper with every passing second. I dare not speak those words aloud, but I finally understand the horrifying reality: humans are to gods what insects are to us. To them, we are mere playthings, utterly devoid of purpose in the grand, uncaring architecture of the universe.
+
+Remember this—there is no higher power waiting to hear your prayers. Your desperate cries will only ever be a faint echo in the void, falling on deaf, utterly indifferent ears.
