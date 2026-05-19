@@ -1,4 +1,4 @@
-Hello everyone, here is a link in case you missed the previous part: [Part 1](https://www.reddit.com/r/nosleep/comments/1tdi7qc/i_keep_waking_up_in_situations_i_dont_remember/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+Here is [Part 1](https://www.reddit.com/r/nosleep/comments/1tdi7qc/i_keep_waking_up_in_situations_i_dont_remember/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) for context.
 
 So anyways...
 

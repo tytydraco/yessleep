@@ -1,0 +1,99 @@
+I hated the Banis family.
+
+Granted, so did all the kids of my neighborhood, but when you are single digits and your parents aren't listening, your very opinion felt momentous.
+
+Gertrude Banis was the mother; a ghastly looking woman with sunken eyes on an skeletal face attached to a frail, spindly body. Who had four out-of-control kids, no husband, and was stuck squarely in a poverty-stricken life.
+
+Whose sole purpose was akin to that of an pimple; an hideous thing that actively brought down self-esteem and beauty. Something you were advise not to touch, no matter how tempting it was. And just like a pimple, the quite-often-not unspoken rule for us kids was; "Leave it alone."
+
+"They don't need Halloween decorations, Gertrude could just stand outside and they'll win best decorated house."
+
+My brother had joked one day at dinner, before my mom cut him off with a glare.
+
+"Don't say that, poor Gertie is struggling, she's has enough of a hard life as it is. She doesn't need some brat to start insulting her."
+
+*Poor Gertie*
+
+Like her kids weren't throwing stones at birds, cars or some other unfortunate thing to cross their line of sight. Like her eldest daughter Paula wasn't caught in a Mr. Wilson's house at age 15 "running errands" while his wife was away. Or how her oldest son Connor wasn't caught slashing the tires of his teacher for failing him for the third time. Or how John & Maria's were notorious for stealing from the houses of their playmates.
+
+But despite this, they remained mild annoyances in my eyes. Sure, I feared the older kids and were frustrated with the younger, but I only really hated their actions, not the people behind it.
+
+Then my eighth birthday rolled around; there was cake, pizza, family and friends. But it was also the first day I met her. As I opened my eyes to see the surprise my grandma had given me, a gray tabby kitten stared back at me.
+
+A tiny little thing with eyes that had such a beautiful hue of green, instantly reminding me of the precious Jade stones, which became her name.
+
+Jade.
+
+We did everything together; she followed me to the bus, waited at the door for my return. She slept in my bed, sat by me while I did my homework even when she could barely keep her eyelids open. She even had this strange habit of being unafraid of water, often leaping into the bath with me despite being a cat. 
+
+She was my best friend, my soulmate, my sister trapped in a fuzzy little body.
+
+*I should have been more careful.*
+
+Then one day, she wasn't in the house nor in the yard. I thought she had merely wandered off to watch the fishes in a nearby stream, as she often did during hot summer days.
+
+Then... I heard it.
+
+Laughter. From behind a large brush, followed by hush voices and the sound of people running.
+
+Prompted by a cautious curiosity, I went behind the tangled mass of plants.
+
+I wish I could say it was Connor Banis putting firecrackers in anthills again or his little brother John smashing snails under his boot.
+
+But it wasn't.
+
+What I found behind the bush was Jade; her body twisted and mangled beyond belief. Her beautiful fur coat muddy and wet from being stamped on.
+
+*I'm so sorry.*
+
+I cried and screamed, I sobbed to my parents about what happened.
+
+They were sympathetic, but it was clear that they didn't believe that the Banises had killed her or weren't willing to confront her. 
+
+"A coyote must have gotten to her, or a car must have struck her." They said while gently stroking my hair.
+
+I even gained the nerve to knock on the door and demand justice for Jade. In which that horrid woman screech that her children were "angels" that wouldn't touch such a diseased animal. Like Jade was some sort of rat from the woods, not a precious member of my family.
+
+I would never see her again, and she would never get justice. 
+
+Or so I thought.
+
+That night I dreamt I was in my yard, laying in the grass as I would normally do. Staring at the clouds passing by, I heard a familiar meow.
+
+Jade was there, standing in the driveway like she always did, tail up and content. 
+
+As I stood and began walking over to my beloved cat, I froze. 
+
+"She's dead." I had remembered, "I failed to protect her and now she's dead."
+
+But as I felt her brush against my legs, body vibrating as she purred like she was telling me "It wasn't your fault."
+
+Jade wasn't mad at me, as I glanced down and looked into the beautiful eyes staring back into mine, there was no anger or hatred in them. Without thinking, I bent down and put my hand out, and the moment she reached out with her paw I woke up. 
+
+My grief was gone in the morning. Somehow I knew it wasn't just a dream, Jade had reached out beyond the grave to comfort me. Soon, my nights were filled with nothing but dreams of Jade. I looked forward to dreaming of the soft fur, green eyes of my companion. 
+
+Until one day, the dream was different. It was raining. Her once soft, silky fur was wet, covered in murky water and boot prints. She grasped my sleeve gently with her teeth and led me through my neighborhood to a clearing in the nearby forest. 
+
+This particular forest was forbidden for small kids like me. "It's dangerous, kids could get lost or fall into the river and drown." My mother once told me.  So while I had never visited seen it, I was aware of the large river passing through. 
+
+So as we approached the river, I understood what my mom meant. Fueled by the current never-ending rain, it looked more like an mini tsunami to me. And next to it was Connor Banis peering into rapid rushing water. Unaware of the girl and cat behind him.
+
+I looked at Jade, and she looked right back at me. I knew what to do. 
+
+I stepped forward, and *pushed.*
+
+I don't really remember much of the days afterward, but I do remember rain, lots and lots of heavy rain. It wasn't surprising, it was just like my dream after all.
+
+I wasn't surprised when I snuck into the forest, and saw Connor Banis struggling to keep his head up above the flash flood. I turned around and left, I went home and didn't call for help. 
+
+*Serves him right.*
+
+I wasn't surprised when I saw Paula sneak out of school and enter a shady looking car and was found two weeks later dumped in the sewer, after Jade brought me a twisted toy car that I rolled towards the girl.
+
+*Good Riddance.*
+
+I wasn't surprised when I woke up one day and saw firetrucks heading to a blazing inferno that used to be the Banis house after I dreamt of Jade leading to me to a stove that I turned on.
+
+*I saw Jade's reflection in the puddles that formed from the wate*r.
+
+*She's proud of me.*  
