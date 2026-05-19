@@ -1,0 +1,243 @@
+I downloaded the matching app because the silence in my apartment had become heavy. You reach a certain point in your twenties where the daily routines of commuting, working, and sleeping blur together into a seamless block of isolated time. I did not have a wide circle of friends to introduce me to anyone new, and the conventional methods of meeting people felt entirely foreign to me. I spent weeks swiping through endless profiles, reading carefully curated biographies, and sending out introductory messages that simply disappeared into the void. I was entirely ready to delete the application and accept my solitude when the notification chimed.
+
+Her profile was incredibly sparse. She had only uploaded two photographs, both poorly lit and slightly out of focus, showing a woman with dark hair pulling a weak smile. Her biography contained no jokes, no lists of hobbies, and no demands for a specific type of partner. It simply stated that she is a former surgeon and was looking for someone understanding, who did not judge, and willing to come over for a quiet evening.
+
+We exchanged a handful of messages. Her responses were incredibly brief, arriving at odd hours of the night. I tried to initiate normal conversations about movies or music, but she consistently steered the dialogue back to the concept of meeting in person. She claimed she suffered from severe social anxiety and could not handle the loud environments of coffee shops or bars. She provided an address situated on the far edges of the suburban sprawl and asked if I could drive out to see her on a Tuesday evening. I knew all the standard safety rules regarding meeting strangers online. I knew you were supposed to meet in a crowded public space during daylight hours. But the overwhelming weight of my own loneliness bypassed my rational survival instincts, so I agreed to go.
+
+The drive took nearly an hour, taking me far away from the illuminated street and deep into a neighborhood that felt forgotten by the rest of the city. The streetlights here were sparse and frequently burned out, casting long, overlapping shadows across the cracked asphalt. The houses were spaced far apart, separated by thick, untended plots of wooded lots. I pulled up to the address she had provided. The property was severely neglected. The front lawn was overgrown with tall, dying weeds, and the gutters hung loosely from the edge of the sloping roof. A single, dim yellow bulb illuminated the concrete slab of the front porch. I turned off my engine, sitting in the dark cab of my car for a long time, listening to the ticking of the cooling metal. A deep, primal sense of unease began to pool in my stomach, urging me to put the car in reverse and drive back to my apartment. I forced myself to ignore the feeling, stepping out into the cold night air and walking up to the door.
+
+I knocked three times. The heavy wooden door opened almost immediately, suggesting she had been standing directly behind it, waiting for me.
+
+She looked significantly worse than her photographs. Her dark hair was tied back in a messy, chaotic knot, and her skin possessed a pale, unhealthy pallor. Deep, bruised circles underscored her eyes, which darted nervously around the empty street behind me before locking onto my face. She wore an oversized, stained grey sweater and loose sweatpants.
+
+"You actually came,"
+
+she spoke. Her voice was raspy, completely lacking the nervous, excited energy you would expect on a first date.
+
+"I said I would,"
+
+ I replied, attempting to offer a reassuring smile.
+
+ "It is nice to finally meet you."
+
+She did not return the smile. She stepped backward, pulling the door wider to allow me entry. As I stepped over the threshold, a wave of dense, artificially heated air washed over me. The interior of the house was suffocatingly warm. 
+
+"I was just making tea,"
+
+ she said, quickly closing the heavy door behind me and throwing the deadbolt lock with a loud clack.
+
+ "You can come into the back room. The front of the house is too drafty."
+
+I followed her down a narrow, dimly lit hallway. The floorboards creaked heavily under my boots. The walls were entirely bare, lacking any framed pictures, mirrors, or decorative elements. The house felt entirely unlived in.
+
+She stopped in front of a closed door at the end of the hallway, resting her hand on the brass knob. She turned her head to look at me.
+
+"You are in good shape," 
+
+she noted softly. 
+
+"You look healthy. That is very important."
+
+Before I could ask what she meant, she pushed the door open and stepped aside, gesturing for me to enter.
+
+I walked into the room. The space was massive, appearing to be an expanded living area that had been entirely cleared of furniture. Bright, blinding halogen work lights were suspended from the ceiling, casting a harsh, shadowless glare across the entire space. The floor was covered in heavy, clear plastic sheeting, taped securely against the baseboards.
+
+I stopped walking. My brain simply refused to process the visual information entering my optic nerves.
+
+Nailed directly into the heavy wooden studs of the far wall were three men.
+
+They were stripped down to their undergarments, their arms spread wide, secured to the wall by massive, thick iron bolts driven brutally through the palms of their hands and the joints of their shoulders. Their heads slumped forward against their chests, their breathing shallow, rattling, and wet. Thick, dark trails of dried blood stained the peeling wallpaper beneath their arms.
+
+But the horror of their crucifixion was entirely eclipsed by the state of their lower bodies.
+
+Their legs had been surgically amputated entirely at the mid-thigh. Thick, crude black sutures wrapped around the severed stumps, hastily binding the pale human flesh to limbs that completely defied biology. Grafted onto the ragged ends of their human thighs were massive, decaying, animalistic legs. The grafted appendages were covered in thick, matted brown fur, ending in long, hooked claws that scraped against the plastic sheeting on the floor. The unnatural tissue was actively rotting, weeping dark fluids and emitting the foul stench of decay. The human tissue surrounding the grafts was inflamed, swollen with severe infection.
+
+I took a stumbling step backward, a scream catching in the back of my throat, strangling me. I turned blindly to run back down the hallway, but she was already standing directly behind me.
+
+She held a sharp surgical scalpel in her right hand; the blade pointed steadily at my abdomen.
+
+"Do not make a sound,"
+
+ she ordered. Her voice was no longer raspy or nervous. "If you scream, I will severe your femoral artery right here in the hallway, and you will bleed to death before you can reach the front door. Walk to the center of the room."
+
+I raised my hands instinctively, my entire body trembling violently as I backed away from the blade, moving deeper into the nightmare.
+
+"What are you doing to them?"
+
+ I gasped, entirely unable to tear my eyes away from the crucified men and their rotting, fur-covered limbs.
+
+"I am trying to save him,"
+
+ she replied calmly, stepping fully into the room and locking the door behind her.
+
+She gestured with her free hand toward the dark, recessed corner of the room, an area situated entirely outside the harsh glare of the halogen lamps.
+
+I turned my head. Chained securely to a massive, iron radiator pipe was a creature that belonged entirely to the darkest depths of human mythology.
+
+It was a towering, emaciated monstrosity, hunched over on the plastic sheeting. Its grey, stretched skin was pulled incredibly tight over its protruding ribs and elongated spine. The skull was elongated, resembling a starved, rotting deer, possessing sunken, glowing eyes and a jaw full of jagged, broken teeth. Thick patches of coarse brown fur clung sporadically to its shoulders and back.
+
+The creature was heavily mutilated. It was missing its left arm entirely, the joint ending in a ragged, rotting tear. Both of its lower legs had been brutally severed, replaced by fresh, bleeding stumps. The creature thrashed aggressively against the heavy iron chains binding its neck to the radiator, snapping its jaws at the empty air, completely feral and starved.
+
+"Sit on the stool," 
+
+she commanded, pointing the scalpel toward a metal medical stool positioned near a rolling stainless-steel tray.
+
+I obeyed, my legs entirely failing me, collapsing onto the hard metal surface.
+
+She walked over to a metal cabinet, keeping the scalpel leveled at me, and pulled out a set of folded blue surgical scrubs. She pulled the garments methodically over her sweatpants and sweater, slipping a pair of latex gloves over her hands. She grabbed a plastic clipboard resting on the rolling tray and tossed it onto my lap.
+
+"Look at the charts,"
+
+ she instructed. 
+
+"You need to understand the process. You need to understand why you are here. You are the perfect candidate. You are much healthier than the others on the wall."
+
+I looked down at the clipboard with shaking hands. The pages were filled with meticulous, structured medical data. There were columns recording heart rates, blood pressure, detailed surgical incision angles, and massive dosages of immunosuppressant drugs. The notes detailed the exact hours of surgical amputation, the specific grafting procedures, and the inevitable, rapid timelines of tissue necrosis and biological rejection.
+
+"You are attaching those animal legs to human beings,"
+
+ I whispered, the sheer insanity of the medical charts causing my vision to blur.
+
+"I am grafting his limbs onto human hosts,"
+
+ she corrected me, pointing the scalpel toward the thrashing, chained monstrosity in the corner. 
+
+"I am trying to find a compatible genetic and immunological match. The men on the wall failed. Their bodies rejected his tissue, so the necrosis spreads too fast. I need someone strong enough to accept the graft without rotting."
+
+"Why?" 
+
+I pleaded, tears of panic spilling down my face. 
+
+"What is that thing?"
+
+She stopped sorting through the surgical instruments on the tray. She looked at the chained creature, her cold eyes softening into a look of profound, devastating sorrow.
+
+"He was my boyfriend," 
+
+she said softly.
+
+She walked closer to the creature, remaining just outside the reach of its snapping jaws.
+
+"We went camping together last autumn,"
+
+ she began, her voice taking on a distant, haunted quality as she stared at the rotting monster.
+
+ "We hiked deep into the state park, far off the marked trails. We wanted to be completely alone. The woods were supposed to be quiet. But they found us on the second night. We were sleeping in the tent. I heard the nylon fabric tear, and before I could even sit up, they dragged him screaming into the dark."
+
+She turned to look at me, her grip tightening on the scalpel.
+
+"There were two of them," 
+
+she continued. 
+
+"I grabbed his hunting knife and ran into the woods after them. I tracked the blood trail for miles. I tracked them all the way to a massive cave system hidden in the foothills, then crawled into the rocks and hid in the dark, watching them."
+
+She took a slow, deep breath.
+
+"They were monsters in the woods, tearing through the trees on animal legs. But when they reached the safety of the cave, I watched their bones break, their skin fold and shift, and them actively shape-shift back into normal, human forms. They use the human faces to walk into the towns, to lure people out, and then they shift back to hunt."
+
+She pointed the scalpel directly at my chest.
+
+"I waited in the dark until they were completely human," she said, a dark, vindictive pride bleeding into her tone. 
+
+"I waited until they were vulnerable, and then I drove the hunting knife through their throats. I killed them both while they slept in the dirt."
+
+I stared at her, utterly paralyzed by the horrific confession.
+
+"I found him in the back of the cave," 
+
+she whispered, looking back at the chained creature.
+
+ "He was in terrible shape. They had already started feeding on him. They had torn chunks of flesh from his legs and his arm. I carried him out of the woods, and brought him back here to fix him. I patched his wounds, gave him antibiotics, did everything I could."
+
+She let out a ragged, desperate sob.
+
+"But the saliva, the bites, whatever venom they carry in their teeth... it was already in his bloodstream. The infection took hold. I watched the man I love stretch and break. I watched the fur grow out of his skin, and remained beside him as his mind fade away until he became one of them."
+
+The creature on the chains roared, a terrifying, echoing sound that vibrated deeply in my chest.
+
+"But he is stuck,"
+
+ she explained frantically, pacing in front of the metal tray. 
+
+"For some reason, he cannot shape-shift back. He cannot turn back into the man I love. I think the physical injuries they inflicted on him damaged his biological ability to initiate the shift. The trauma locked him in this form."
+
+She looked at me, her eyes wide with a manic, unyielding obsession.
+
+"That is why I need the match," 
+
+she declared. 
+
+"If I can find a human host that successfully integrates with his rotting limbs, it proves the tissue can stabilize. Once I find the perfect candidate, I will reverse the procedure. I will amputate your human legs, and I will surgically graft your healthy, human tissue directly onto his body. I believe the influx of matched, healthy human biology will trigger the shape-shifting mechanism. It will give his body the blueprint to become human eventually. I just want my lover back."
+
+The sheer, monumental insanity of her plan crashed over me. 
+
+She turned away from me, reaching down to the stainless-steel tray. She set the scalpel down and picked up a massive medical syringe attached to a thick glass vial filled with a cloudy, yellow liquid.
+
+"The men on the wall were weak," 
+
+she said, tapping the needle to clear the air bubbles. "They were desperate, pathetic men who let me bring them here without asking any questions. But you look resilient. You look like you have the biology to survive the integration. Roll up your sleeve. This sedative is going to burn, but you need to be unconscious when I start the bone saw."
+
+She began to walk toward me, the needle gleaming under the harsh halogen lights.
+
+The sheer terror threatening to shut my brain down completely morphed into a sudden, explosive surge of adrenaline. I knew with absolute, crystal clarity that if that needle pierced my skin, I would wake up nailed to the wooden studs, watching my own legs rot away.
+
+I did not speak, I refused to plead for my life.
+
+As she closed the distance, stepping within arm's reach, I threw my entire body weight to the side, rolling violently off the metal stool.
+
+She lunged forward, thrusting the syringe toward my neck, but the needle only caught the fabric of my shirt, tearing through the cotton as I hit the plastic-covered floor.
+
+I scrambled to my hands and knees, my boots slipping frantically on the slick plastic sheeting. I grabbed the heavy wooden frame of a discarded dining chair sitting near the edge of the room.
+
+She pivoted gracefully, dropping the empty syringe and snatching the sharp surgical scalpel off the rolling tray. She charged at me, bringing the blade down in a vicious, sweeping arc.
+
+I swung the heavy wooden chair upward, using the thick legs as a desperate shield. The sharp scalpel blade sank deep into the wood, burying itself in the frame and jerking her arm forward.
+
+Before she could pull the blade free, I stepped forward, gripping the back of the chair tightly, and drove the heavy wooden mass directly into her chest with every ounce of physical strength I possessed.
+
+The impact lifted her entirely off her feet. She flew backward, the breath rushing out of her lungs in a harsh gasp, and crashed violently onto the floor.
+
+She slid across the slick plastic sheeting, her body coming to a dead halt right next to the heavy iron radiator.
+
+She had fallen directly into the striking range of the chains.
+
+The chained creature lunged with terrifying speed. The heavy iron chains pulled taut, groaning under the immense strain, but the creature had the reach. It dropped its elongated, skull-like head, sinking its jagged, broken teeth deeply into the soft tissue of her shoulder and neck.
+
+She released a horrifying, gargling scream, her hands flying up to push the rotting monster away from her throat. The creature thrashed violently, its jaws locked tightly, tearing brutally through her surgical scrubs and into the muscle beneath.
+
+I did not stay to watch the outcome of the struggle.
+
+I abandoned the chair, turned away from the bloodbath, and sprinted toward the far end of the room. The exterior window was securely locked and painted shut. I did not slow down. I raised my arms, shielding my face, and dove headfirst directly through the thick glass pane.
+
+The glass shattered around me, slicing through my jacket and my arms as I tumbled out into the overgrown weeds of the side yard. I hit the wet dirt hard, rolling frantically to absorb the impact, and immediately scrambled to my feet.
+
+I bolted across the overgrown lawn, my boots slipping on the wet grass as the horrifying sounds of the struggle echoed loudly from the broken window behind me. I did not look back. I reached my car, threw myself into the driver's seat, started the engine with shaking hands, and floored the accelerator, tearing out of the dark neighborhood at reckless speeds.
+
+I drove for thirty minutes until I reached a brightly lit gas station. I locked the car doors, pulled my phone from my pocket, and dialed emergency services. I reported the address anonymously, frantically stating that I had heard screaming and breaking glass, and then I threw the phone into a nearby storm drain.
+
+I spent the rest of the night sitting in a cheap motel room, keeping the lights burning bright, meticulously cleaning the superficial glass cuts on my arms, waiting for the police sirens to pass.
+
+The following afternoon, I sat in the motel room, watching the local news broadcasts on the small television.
+
+The breaking news report confirmed that the county police had raided the isolated house. The news anchor, looking visibly shaken, reported that authorities had uncovered a massive, horrific crime scene. They found the bodies of three missing men extensively mutilated inside the home.
+
+The anchor also stated that animal control had been called to the scene to neutralize a highly aggressive, diseased animal found chained inside the residence. The authorities classified the creature to the public as a severely starved, mange-ridden bear that had wandered into the home and attacked the occupants.
+
+But the final detail of the broadcast completely froze the blood in my veins.
+
+The police had scoured the entire property, sweeping the house and the surrounding wooded lots. They found the victims. They found the creature. But they found absolutely no trace of the female homeowner. She was officially listed as missing, presumed to have fled the scene before the authorities arrived.
+
+I turned off the television, sitting in silence, the terrifying realization slowly assembling itself in my mind.
+
+I remembered watching the feral creature drop its head and sink its jagged teeth deep into her neck. I watched the blood pour out over her surgical scrubs.
+
+If her insane, desperate story was actually true... if the venom in the saliva and the bite of those creatures carried the biological infection...
+
+If the bite passes the curse, she now has the infection. And because her body is whole, she possesses the full, unobstructed ability to shape-shift.
+
+I am writing this post from a new apartment, hundreds of miles away from that city. I have changed my phone number, deleted every social media account I owned, and I keep the heavy deadbolts locked at all times.
+
+But the fear never leaves me. I walk down the crowded streets, looking at the faces of the people passing by me. I look at the baristas handing me coffee, the cashiers at the grocery store, the people standing next to me in the elevator.
+
+She knows what I look like, and someone this crazy will not leave revenge behind, and now, she could be absolutely anyone.

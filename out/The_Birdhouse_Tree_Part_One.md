@@ -74,7 +74,7 @@ Her voice was trying to sound optimistic but it was easy to sense how scared she
 
 The head sniffled, a drop of snot retreating into her nose.
 
-“Talula,” she said in between gasps. I recognized that name from somewhere but at the time I had no idea where from. 
+“Talula,” she said in between gasps, "Talula Merkins.” I recognized that name from somewhere but at the time I had no idea where from. 
 
 “My name’s Nettie,” I almost instinctively reached out for a firm handshake then remembered my situation, “How did you end up like this?”
 
@@ -130,12 +130,12 @@ Talula’s demeanor perked up and she smiled softly. I could tell she wasn’t f
 
 “Thank you Nettie.”
 
-I suddenly realized how dark it had become and silently contested with my sprained ankle. I silently thanked god that the sun hadn’t fully made its way below the horizon. Any prying questions that met me when I arrived back home would not be welcome.
+I suddenly realized how dark it had become and silently contested with my sprained ankle. I silently thanked god that the sun hadn’t fully made it’s way below the horizon. Any prying questions that met me when I arrived back home would not be welcome.
 
 “I have to go now, but I should be back sometime soon.”
 
 Talula’s face fell but she still tried to keep her lips upturned somewhat.
 
-“Okay,” she stammered. I nodded and then began to lower myself down the tree, gingerly retracing my tenuous steps down the arbors. 
+“Okay,” she stammered. I nodded and then began to lower myself down the tree, gingerly retracing my tenuous steps down the tree. 
 
 I reached the soft green grass after far too long and began to limp my way home. I only turned back once. Once, to see the tree glow in the night. It looked like a cluster of stars. A grim constellation isolating me in the sea of the world. Leading me to a home that wasn’t mine. A vessel that wasn’t human. Not anymore. But I turned away for now, witnessing the tattered flag flow in the night wind out of the corner of my eyes.  In the dark of the trees I could see the light on the back porch flicker. It was only then, in the cold, dark evening, among the arbors, that I began to cry. I retched, but all that came up was bile, and I didn’t stop shaking until I left the tree line.

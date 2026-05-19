@@ -198,5 +198,4 @@ Why did he? 
 
 Slowly, the taste of copper filled my mouth.
 
-But before I managed to stand straight, he came back and punched me again, knocking me to the ground. I shook my head and looked the man in the eyes. They were empty, focused. He didn’t say a thing, turned around, and grabbed Jake again. I tried to stand up, but my legs gave out instantly. I fell back on the floor and sat there, watching the men carry Jake out the door.
-
+But before I managed to stand straight, he came back and punched me again, knocking me to the ground. I shook my head and looked the man in the eyes. They were empty, focused. He didn’t say a thing, turned around, and grabbed Jake again. I tried to stand up, but my legs gave out instantly. I fell back on the floor and sat there, watching the men carry Jake [out the door.](https://www.reddit.com/r/KanesHorrors/)
