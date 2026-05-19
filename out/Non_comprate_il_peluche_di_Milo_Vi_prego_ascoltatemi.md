@@ -1,0 +1,29 @@
+6/03/2026
+
+Oggi è il 6 marzo 2026. Mentre scrivo queste righe sul mio portatile con le mani che ancora tremano, fuori dalla mia auto sento i botti dei fuochi d'artificio. In questo preciso istante in televisione sta andando in onda la cerimonia d'apertura delle Paralimpiadi di Milano Cortina 2026. Tutto il mondo sta guardando lo schermo, commuovendosi davanti alla storia di Milo, la mascotte ufficiale. La propaganda del marketing la definisce una favola sulla resilienza: un dolce ermellino antropomorfo, dai colori vivaci, nato con una disabilità congenita e privo della zampa posteriore destra. Ti dicono che ha imparato a superare ogni barriera usando la sua coda robusta, affrontando la vita con un perenne sorriso stampato sul muso. Una bellissima bugia in technicolor.
+
+Io e il mio compagno di viaggio conosciamo la verità. Una verità che abbiamo scoperto esattamente due anni fa, la notte del 6 marzo 2024, e che ci sta dando la caccia proprio ora, nel buio.
+
+Due anni fa eravamo saliti con la mia macchina fino al vecchio trampolino olimpico abbandonato di Cortina, cercando solo un posto isolato. Camminando vicino alla base della rampa ghiacciata, illuminando il sentiero con i telefoni, il suo piede urtò una cassetta di sicurezza metallica sepolta sotto la neve. Forzammo la serratura con un cacciavite. Dentro c’era una cartella di plastica nera con il logo di un ospedale locale e un timbro rosso: RISERVATO. Conteneva dei documenti clinici e una chiavetta USB nera.
+
+Tornati in macchina, inserimmo la chiavetta nel computer. Il file era una registrazione a infrarossi di una telecamera di sicurezza in una radura boschiva, datata 12 gennaio 2024, un mese prima della presentazione ufficiale della mascotte a Sanremo. Sullo schermo apparve Milo. Non era un animale reale, era proprio quell'ermellino antropomorfo dai colori accesi e la mantellina sfumata. Ma c'era una differenza enorme: Milo era un ermellino bruno, con il manto estivo marrone che lo rendeva visibile e isolato in mezzo alla neve. E soprattutto, il sorriso non c'era. Il suo muso era una linea tesa, una maschera di pura angoscia.
+
+La sua gamba destra era lì. Perfetta. Sana.
+
+Nel video non ci fu alcun suicidio. Fu un agguato. Altri ermellini antroporfi, enormi e minacciosi, lo circondarono e lo spinsero a terra. Lo colpirono con una furia cieca mentre Milo emetteva urla acute che uscivano dalle casse del mio computer. Dalle sue ferite iniziò a sgorgare sangue vero, denso, rosso e caldo, che fumava nel gelo. Poi, due aggressori lo bloccarono e un terzo gli afferrò la gamba destra, facendola leva contro un tronco. Sentimmo lo scricchiolio spaventoso dell'osso vero e della plastica rigida che si frantumavano. Il sangue sprizzò sulla neve mentre lo lasciavano lì, agonizzante, con la zampa che pendeva spezzata. Il seu volto bruno era rigato da lacrime reali, privo di felicità.
+
+Il referto dell'ospedale confermò l'orrore: "Essere antropomorfo bruno trovato in shock emorragico. Arto non salvabile. Si procede all'amputazione chirurgica d'urgenza all'anca". Il comitato olimpico aveva comprato il silenzio di tutti con un accordo milionario, modificando il pelo dell'ermellino in bianco, inventando la disabilità dalla nascita e cucendogli addosso quel finto sorriso che la creatura reale non aveva mai avuto.
+
+Per due anni abbiamo tenuto nascosto questo file, terrorizzati dalle conseguenze. Ma stasera, per celebrare l'inizio dei giochi, ho commesso l'errore più grande della mia vita. Ho comprato il peluche ufficiale di Milo per mia sorella minore e l'ho appoggiato sul cruscotto.
+
+Poche ore fa, sopraffatto dal disgusto mentre guardavo il video sul portatile, ho afferrato il pupazzo e ho premuto le dita sul fianco destro, dove la zampa mancava. Sotto l'imbottitura morbida ho sentito una linea dura e nodosa. Spostando il pelo finto, ho visto una fila di cuciture nere e ruvide. Punti di sutura chirurgici veri. Ho stretto il peluche con troppa forza, accecato dalla rabbia.
+
+CRACK.
+
+Un rumore secco di ossa e plastica frantumata è risuonato dentro l'abitacolo. Ho lanciato il pupazzo sul cruscotto. E qui è iniziato l'incubo.
+
+Dalle cuciture nere del peluche ha cominciato a trasudare un liquido denso. Non è vernice. È sangue vero, rosso, caldo, che sta colando lungo la plastica del mio cruscotto, riempiendo la macchina di un odore metallico e nauseabondo. Ma non è tutto. Le cuciture della bocca del pupazzo si stanno lentamente tendendo, si stanno strappando da sole sotto la spinta di qualcosa all'interno. Quel finto sorriso stampato si sta trasformando in una linea dritta, tesa, tremante di dolore.
+
+Fuori dal finestrino, nel buio del trampolino abbandonato, il sensore di movimento della mia auto ha appena suonato. Ho alzato lo sguardo e ho visto dei fari spegnersi a pochi metri da noi. Non sono macchine della polizia. Attraverso il vetro appannato dal freddo, riesco a vedere delle sagome alte, massicce, immobili nella neve. Hanno corpi antroporfi, mantelline sfumata e volti colorati che ci fissano nel buio. E nessuno di loro sta sorridendo.
+
+Se state leggendo questo post, vi supplico, non comprate quel pupazzo. Il mio compagno di viaggio sta cercando di avviare il motore, ma le chiavi non girano. Stanno toccando le portiere. Vi prego, aiutat
