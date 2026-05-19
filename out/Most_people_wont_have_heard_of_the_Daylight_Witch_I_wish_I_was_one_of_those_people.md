@@ -1,0 +1,128 @@
+We’re here in the studio, sitting in the small but sleek rented office for Parafindings LLC. It’s a two-person company that my boss set up to run the YouTube channel, podcast, and other creations coming out of the Parafindings brand.
+
+Most of the ideas and creative work come from Kyle, he’s the genius behind it all. I’m only on board because of my A/V experience and fast video editing.
+
+That’s what I’m trying to do now, sorta. I have about eight hours of audio and video to make sense of. Luckily, all the action happens in the first 90 minutes. The rest is mostly candle lights flickering.
+
+I click back to the beginning and think of what started this all. A digital suggestion box entry telling us to go look for the Daylight Witch, along with an address to a home in Tigard, Oregon, Google Maps said it was 20 minutes from our office. Google Street View said it was a dilapidated, two-story home. Kyle decided it was a go.
+
+I press play on the video. This was just supposed to be b-roll and test footage, but it ended up being all we got. The first timestamp is from 10:04 PM last night when Kyle and I met up at the Daylight Witch house.
+
+Captured by the clip camera mounted to my hat, the recording opens with us passing our flashlights over the boarded-upfront door and grated windows. My POV then shows me looking back to see if any neighbors would notice us snooping, but the house was far enough down its own driveway at the end of a tree-lined street. Privacy wouldn't be an issue.
+
+We pulled on the window grates to no avail and didn’t even bother with the front door, which had so much wood nailed to it that it was basically a wall. “Let’s see if our write-in was legit?” Kyle said as he walked around back. He was referring to a line in the original email that mentioned we could get in from the back.
+
+He (or she?) would turn out to be right.
+
+The back door had its own grated window that was reflecting some of the bright white moonlight. It didn’t open easily as the wood had swelled into the frame around it, but with enough force, Kyle was able to fling it open.
+
+We entered and got to work. The plan would be for Kyle to spend 12 hours in this house beginning tomorrow night, 10 PM to 10 AM. As Kyle understood it, the hook of the story would be that the fear starts after the darkness (at least that was his best guess given the name, Daylight Witch). So to best prepare, we wanted to mount a couple of cameras now. 
+
+In the morning we’d review how the footage captured the sunrise hitting the back of the house, eventually illuminating the inside. If we needed to adjust for lighting, we’d do so before tomorrow night.
+
+“Looks like there’s a nice view from this fireplace if you want to set one up here,” Kyle said. I would ultimately suggest a slightly different position for the camera that still captures most of the living room and dining area (both in the front of the house) and a view into the kitchen (positioned in the back, where we just came from).
+
+We then debated setting up a camera upstairs as well, but there were three different bedrooms, a bathroom, and a narrow hallway connecting it all. This meant there was no obvious spot for a camera. If Kyle wanted to film up there, he would have to use the hat cam.
+
+I set up the other camera at the other camera at the other end of the front room, above the dining table, capturing a different angle of the front of the house with its own line of sight into the kitchen. An interesting thing about these placements that I didn’t notice at the time: *because they’re both at an angle, neither view shows the back door into the kitchen that we used to enter the house.*
+
+My video editor now shows three different feeds, soon to be just the two mounted views as Kyle asks me to toss him the hat cam. “I’m gonna film some stuff at home, like packing food and a sleeping bag and stuff.”
+
+That’s where the hat cam feed ends. In both mounted camera views I see myself taking it off and throwing it to him.
+
+“You ready?” Kyle asks. I tell him that he can go ahead, that I want to do a couple more test shots to see how well it handles different levels of light in the space. I ask him how the streams are looking on his phone, which he can pick up when in range. “Pretty crisp. Nice work. You don’t have your phone to check?”
+
+I didn’t. I had left it in the car, parked just 15 feet from the other side of the boarded-up front door.
+
+“Well, don’t stay too late,” Kyle says before turning around into the kitchen. Because of the camera angles, he disappears from frame before he actually would disappear from the house.
+
+From here, without my POV view, my memory takes over:
+
+I pick up my flashlight and turn it on. I pass the flashlight from floor to ceiling and end to end. Tomorrow I’ll look to see how the video quality changes with the flashlight moving in and out of view.
+
+Next, I light some candles that we brought and place them on a few surfaces, praying that none of these candles tip over while we’re gone.
+
+Finally I look around the room for a light switch and quickly spot one by the front door. I flip the two switches on and off and nothing happens. Not surprising in a house like this. Who exactly would still be paying the electricity here? But if there’s a chance these lights work, I’m gonna want to see how they affect the video.
+
+I try the light switch by the dining room table, possibly also affecting the stairwell light, but the house remained dim.
+
+Just to check every box, I walk into the kitchen and turn on the light. And it worked.
+
+Bright blinding light floods my view, followed by my own high-pitched scream.
+
+In front of me, up against the back door, is a tall, gaunt man now bathed in the yellow light of the kitchen overheads. His rotting face was its own shade of whitish-yellow framed by long grey hair that looked singed off in places. His eyeballs were stark white, no irises and only the tiniest black pupils like lentils on a dinner plate. His lips were chapped to the point of blistering with flaked skin threatening to pull away from his mouth.
+
+Out of instinct, I flick the kitchen light off. And just like that, the man is gone from view. I stand paralyzed in fear for what feels like ten minutes. I’ve never been so scared and so sure I need to be anywhere but where I am in this very moment.
+
+I duck back into the front room and scan until I see my car keys on a tiny end table next to the fireplace. As I grab them, I hear a familiar click come from behind me. The radiating glow tells me instantly what I need to know: the kitchen light is back on.
+
+I call out hello to no response, which feels just as bad as if there was a response.
+
+Rather than reenter the kitchen, I move to the closest window and look for a latch to open it, but it’s been painted shut. As I trace the painted edges looking for a seam, I look beyond the glass of the window and onto the grating that’s bolted onto the exterior wall. Painted seams or not, I wasn’t getting out this way.
+
+The front door I don’t even bother with, remembering how boarded up it was from the outside. With my back to the kitchen, I shimmy to the other end of the front room and up the stairs. However, despite being an entire floor off the ground, each window on the second story was just as reinforced as the first.
+
+The back door, I say to myself. It’s the only way. I creep back downstairs and see the light spilling into the front room. I pep myself up with a few deep breaths, hoping that nothing is there when I pass into the brightly lit kitchen.
+
+But something is there. HE is still there. Only this time he has one hand up in a crooked, flat-handed wave. His lips have opened into a smile showing fractured yellowed teeth. He’s so frozen in this pose that the only movement comes from the slight rustling of the long black sheaths that cover his body.
+
+I turn the light off again, but this time I stay put, staring at the empty dark void that replaced the haunting pale man. I take a step towards the back door and in an instance the light pops back on. This time his chapped lips are closed but tilted upward in a smirk, as his pale fingers hold up a pair of car keys.
+
+My car keys.
+
+I feel around for them in my pocket but come up empty. I back up into the front room and crouch into the darkness by the fireplace.
+
+In the midst of my own terror, I ask myself if a man can be a witch, but soon realize it doesn’t matter. Witch, warlock, ghost, zombie, demon. These words are the best we can come up with to define things we aren’t even sure exist. Whoever is in that kitchen exists outside of any human label I could ascribe to him.
+
+I take a deep breath and think. He wants the light. That’s when he shows up.
+
+A plan crystallizes as I notice a set of fireplace tools to my right. I grab the stoker and back up to the wall next to the opening that connects to the kitchen. One last deep breath.
+
+I rush around the corner, squinting my eyes to hide the horrible figure that remains by the door. A few steps into the center of the kitchen, I swing the stoker up in the air until I hear the sounds of glass shattering, blessing the room with darkness.
+
+I’m alone again, I can feel it. It worked.
+
+Or it did, until I hear the click of my flashlight.
+
+I turn and see the Daylight Witch holding my lit flashlight pointing upward, illuminating his face like a camp counselor telling a scary story around a campfire.
+
+His tiny pupils look even smaller but stare into me with even more intensity. Like before, he’s unmoving. Seeing his wide eyes stare without the relief of a blink makes my own eyes water, matched only by the discomfort of my lips as I see his streaked with tiny stripes of blood that fill the cracks in his lips.
+
+If I’m not getting out of here through a door or window, my only way out is through.
+
+I charge towards the back door, unsure if I will phase through him like a ghost or crash into a physical body.
+
+But just a couple feet from the door, something in me changes, and all goes quiet.
+
+Somewhere in between a dream and a memory, the story unfurls. It’s patchy and fluid, drifting from one scene to the next.
+
+*A girl, lying on dry earth with a leg bent in the wrong direction. Her skin is sunburnt and blistered, infected with hours of unadulterated sunlight. She’s found moments too late by her twin sister, who years later sets fire to herself to be free of the guilt. Farther in time, a child begins to complain of a bitter and burnt smell that fills his room every day when the sun comes up. He makes it to 18 and joins the Army, where his troop would soon recount in horror how they saw him walk into the flashes of gunfire in the night, arms open wide.* 
+
+*Years later in Oregon, a veteran confesses to his wife that he’s still haunted by someone from his Army days, and she suggests he talks to the local chaplain. While waiting for his appointment, the former army man finds himself bathing in the light passing through a stained glass window. He enjoys the feeling so much that he throws his body through it and onto the ground one story below.*
+
+*The chaplain would live the rest of his years wishing he had been fast enough to do something. Instead, he began to push his family away, never letting anyone in his home and barely leaving it himself. The chaplain’s hair grew long and his teeth decayed. One day, after a pleading phone call from his daughter, he notices the warm glow of the oven and sticks his head in to enjoy the--*
+
+“Dave what the fuck!” Kyle says, standing at the back door.
+
+It takes me a minute, but I ask what time it is. “Are you drunk, dude? I never heard from you and saw your phone’s location was still at this shithole.”
+
+I ignore his question and ask again what time it is. “Like, 6 AM, almost sunrise. I was worried about you dude, I threw myself out of bed to get here.”
+
+Almost sunrise, not yet. It’s not yet Daylight. There might still be time.
+
+I pick myself up and reach for the car keys beside Kyle’s feet. As I walk to my car, I hear Kyle ask if anything happened in the house, but I don’t answer. I run.
+
+\--
+
+We’re here in the studio. I continue to crawl through the video recordings for any evidence of what happened, but I’m not finding any. The angle of the two mounted cameras don’t catch where he was standing.
+
+I watch the footage from beginning to end two more times. Upon starting it the third time, I finally see something I missed before. It’s from my hat cam footage when we first walked up to the back of the house. I thought it was the reflection of the moon lighting up the door window.
+
+But it’s more than that. It looks like the outline of a face looking through the glass.
+
+I stare at the paused clip on my laptop until my phone vibrates next to me. It’s Kyle. Where are you dude, I’m worried about you!
+
+I type out a text: *I’m at the studio*. But it’s not the full truth. *WE* are at the studio.
+
+In the full brightness of the day, the Daylight Witch watches me work.
+
