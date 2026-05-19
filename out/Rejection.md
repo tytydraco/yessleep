@@ -1,0 +1,36 @@
+Back then, my mom was, as she used to say, about seventeen. Happiness never seemed to leave her; she graduated with highest honors and top marks. She traveled a lot and had plenty of friends who were always ready to help in times of need. After graduation, she went on a Euro-tour, visiting many cities and countries, living life to the absolute fullest.
+
+When she returned, it turned out that her parents, due to old age, were starting to fall ill. Such a tragedy didn't scare my mommy at all. She found the strength within herself to earn money for their medicines, necessary services, and even some small pleasures, like spa days or massages. Day by day, their condition and health stabilized.
+
+One day, mom met a handsome guy. Right before that, she had a conversation with grandma about how grandma really wanted to see her future grandchildren. Mommy decided to act and invited the guy on a date. Surprisingly, everything went better than anyone could have hoped. He showered her with gifts and attention; they wouldn’t spend a single second apart.
+
+That boy was her first—her first in everything. She slept with him, even though she was far from being his first. Then they did it again and again. Nothing out of the ordinary, just a typical honeymoon phase. But after that, the guy changed. I never found out why, but he started drinking, maybe even using drugs. Yet, their relationship held strong. Or so it seemed. One night, when they were both on the edge, there was no condom around. The guy deemed it unnecessary. Mom got pregnant. With me.
+
+About five or six weeks later, mom took a test. She had denied the fact of her pregnancy for a long time, but the missed period spoke for itself. Unsurprisingly, the result was positive. Mommy was terrified to tell her suitor, but she had to. And what do you think happened? A day later. Just one miserable day, and absolutely every connection imaginable was severed.
+
+He ran away. Left. Coward.  
+The bastard.
+
+Mom didn't lose her nerve. Even so, she was expecting a child and chose not to have an abortion. Her parents supported her, telling her not to despair and to focus on the baby. During the ultrasound, they said: "...It's a girl...".  
+Even then, joy had not left her. Together with her friends, she celebrated the upcoming addition to the family.
+
+After the birth, it turned out that I wasn't just a regular baby girl; I came with complications. They couldn't detect them early on because everything was in the initial stages, but the doctors said there was no need to worry. The worst to expect, they said, would be a low heart rate and low blood pressure. But then, when I turned three, I suddenly started suffocating for no apparent reason. It turned out to be bronchial asthma—and not just any kind, but moderate persistent asthma. They brought me back, everything returned to normal, they prescribed an inhaler, and let us go. There was only one problem: none of this was a cheap pleasure. And as you can guess, a widowed mother doesn't have money in large quantities. Even with such a massive portfolio, a good job at twenty-one with a child on her hands was not in the cards for her.
+
+The state allowance was barely enough to scrape by, and then there were my endless illnesses due to what turned out to be a weak immune system. Her parents' savings were running out too; mom had long stopped spoiling them, and there was only enough money left for food.
+
+Four years later, things more or less smoothed out. Mom got a job as an assistant in a prestigious operating theater. I spent whole days sitting in the hospital alongside my grandma and grandpa. She was still doing okay, but grandpa was in bad shape. Honestly, I don't remember exactly when, but about another half-year later, he passed away from a heart attack. This was a severe blow to the already fragile foundation of our lives—my mom. After all, she hadn't studied and wanted to become a surgeon for nothing; she dreamed of saving other people's lives. And in the end, she couldn't save her own father.
+
+Our income dropped again, and our savings plummeted sharply due to the funeral expenses. We moved into some old house out in the middle of nowhere, in a place that looked like the slums. By that time, mom and grandma had almost stopped seeing each other, and less and less money was being sent with each passing time.
+
+Now I am eight years old, and as a reward, life has granted me the failure of my right kidney. Mother was in a panic. She was on her knees, begging for a loan to pay for a replacement surgery, or at least an amputation of the kidney. But alas, the creditors didn't see her as someone who could repay the debt and deemed it unprofitable. The doctors also said that the girl's condition was, as it turned out, hopeless, and it would only get worse from there. Mom didn't stop. She sold all her jewelry and all the antiques we held as family heirlooms. She managed to pay for the surgery to amputate my right kidney.
+
+There was only enough money left for meager food and to pay the water bills, which were piling up with debts. But fate didn't keep us waiting long. Seven months later, my asthma began to progress into a severe form, apparently due to our poor environment. Mom fell into a depression. She didn't know what to do; I needed at least one healthy lung. A mad idea crossed her mind: she went to the hospital, pleading to transplant her own left lung into my body. The doctors said no because there was no money anyway. I remember the day she sat by the front door for hours; there were no tears left, she was already dried up.
+
+Mommy started spending more time in the basement. Cribs appeared down there, along with something resembling a kitchen, as it seemed to me, and a lot of mirrors and lights. A week later, I was able to breathe better. I was jumping with joy, repeating to mom that everything was getting better. And she just puffed on cigarettes, one after another, as if the fact that she had never smoked before no longer mattered. The inhalers vanished from my room. I thought that finally, we were going to live.
+
+Nine months later. I had a heart attack. A call to the ambulance. My pulse stopped. The ambulance wouldn't make it in time. Mother is in horror. Mommy runs down to the basement, the kitchen of which has come to look more like an operating room. "If others cannot help my daughter, I can do it myself." She injected five syringes of painkillers into herself. A long, sharp knife plunged into her chest. Time after time, blow after blow, through the ribs, through the smoke-ruined lungs, everywhere, but not into the heart. She used forceps to tear out her own ribs with the flesh; she craved her heart. Blood poured like rain, the tools became useless, she scooped her intestines out onto the floor with her bare hands, screaming with all her might. Clots of organs spilled out of her body, she was gutting herself, the heart was still pumping blood in HER body. She pulled it out, crawled toward the stairs, cutting her aorta along the way. Out of her own desperate desire to save a life, she passed away.
+
+Now I am sixteen, I have been adopted, I breathe with my mom's lungs, and her heart beats inside of me.  
+I love and hate her with all of her heart.
+
+I'm sorry, mom, for being born.
