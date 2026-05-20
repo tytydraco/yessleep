@@ -1,0 +1,81 @@
+After having been single for the first three years of college, I wanted to dip my toes in the dating scene. I installed Tinder and swiped right until my thumb turned purple.
+
+Excitedly, I got a match fairly quickly. Her name was Bella. She was a petite, 21 year old woman with sandy blonde hair and dimples that made me melt on the spot. According to her profile, she went to the same university as me and she was a junior in college.
+
+After some back and forth between the two of us, she surprisingly invited me to a party in the wealthier part of town. She said she knew some friends who were going to be throwing an absolute thrasher and wanted to bring a date.
+
+I agreed immediately.
+
+We chatted some more and I agreed to pick her up at 10pm. The plans were set. Beaming, I threw my phone on my bed and fist pumped the air.
+
+That was far easier than I could have imagined.
+
+Later that night, I picked her up. I fully expected her to be a catfish but lo and behold, as I approached her address, she was already standing on the curb, smiling and waving excitedly. She was wearing a beautiful sweater and stylish pants that fit her curves well. 
+
+If I’m honest, the outfit she wore kind of made her look older than I initially pictured, almost like a soccer mom, but that’s neither here nor there. She got in my car and we headed toward the party.
+
+As my car rolled up to the address of the party, my jaw dropped in awe. The house was massive and had the appearance of a souped-up grandiose mansion. I asked Bella if this was actually the house and she nodded emphatically. 
+
+On the way to the door, I was in shock at how fancy the yard and exterior was. It truly looked like an establishment owned by a multimillionaire. Strangely, though, there were only a handful of other cars parked in front of the house, despite the loud volume indicating there were far more people inside.
+
+As we got closer to the house, my estimates were right. In the windows, I could see probably over a hundred people dancing and partying inside, while music emanated from the interior. 
+
+As soon as Bella and I came in through the door, however, it felt like everyone in the house froze for a brief second. I’m not exaggerating when I say it looked like every single pair of eyes in that house were on Bella and I just for a moment. Then, as if I had imagined it all, the party resumed and everyone continued dancing as if nothing had happened at all.
+
+I noticed immediately that something wasn’t right, however. These people, who I assumed to be college students, all looked to be in their late 30’s to 40’s. I couldn’t tell if there was a single college student in sight. Much like Bella, they were all dressed as if they were all attending a book club instead of a late-night weekend thrasher.
+
+When I whispered my observation to Bella, she just brushed it off immediately, saying they were probably just all upperclassmen. I suppose she had a point and we made our way to the drinks to loosen up.
+
+As I approached the drinking station, I turned around and realized Bella was nowhere in sight. I texted her asking where she was while I took my first sip of spiked fruit punch. 
+
+While I was standing there, I could have sworn I kept catching people staring in my direction in my periphery, but they shifted their eyes as soon as I turned my head.
+
+I was starting to get seriously disturbed and a knot formed in my stomach as I waded through the crowd trying to look for Bella. 
+
+Eventually, I made my way near the back of the house and found a hallway that wasn’t occupied with clumps of people.
+
+Walking down the hall, I read BATHROOM on a sign and followed it. “Great, just the breath of air I need,” I muttered to myself.
+
+I sat on the sink replaying the oddities of the party in my head when I heard a knock at the door. I yelled “Occupied,” but the guy on the other side of the door insisted he had to use the bathroom. I reluctantly opened the door and to my surprise, the guy was the first person who actually looked like a college student. 
+
+He was young, tall, and was actually dressed like the people I’d been accustomed to seeing across campus during my time at college.
+
+Before he could close the door to the bathroom, I stopped him and asked if he picked up on the strange vibe at the party as well. 
+
+He smirked for a second before leaning in and dropping his voice to an almost imperceptible whisper:
+
+“Take a look around. Do these people really look like college students to you?”
+
+I let out a sigh of relief, as if my concerns had finally been recognized by another person. Before I could say anything, he kept whispering:
+
+“You came here with a girl, right? How old did she say she was?”
+
+Confused as to how he knew I had a date, I said “I met this girl off of Tinder earlier today, she said she was 21.”
+
+The guy laughed under his breath. “Typical. Well, if it isn’t obvious already, she isn’t who she says she is.” Then a pause, before he finally whispered once more:
+
+“Hey man, do what you want, but if I were you, I’d say get out of here sooner rather than later.”
+
+And with that, he shut the door before the hallway became dark and silent once again.
+
+I had heard enough. I quickly made my way to the door, feeling everyone’s eyes on me like daggers. Just as I was about to leave, I heard my name being shouted by a person I could only guess to be Bella.
+
+I didn’t stop to see.
+
+I closed the door behind me and jogged back to my car. I peeled out and started driving back home. Something ate at me though.
+
+On my way home, I drove back to the address I picked Bella up at. Curiously, as I pulled up, an older couple had just arrived home and they were walking to their door. I don’t know what possessed me to do this, but I rolled my window down and shouted a question I already knew the answer to:
+
+"Excuse me sir, do you have a daughter named Bella?”
+
+Confused, the older man made his way to my car with his wife, before telling me—to no surprise of my own—that he and his wife had no kids.
+
+I asked them if they had ever seen a woman who matched the description of Bella, describing her appearance and outfit. 
+
+To my surprise, they mentioned seeing a woman who matched that description identically, standing outside of their house waiting for a car almost weekly. They had just assumed she lived around the area and that was their designated meet-up point, given that their house was on a corner. 
+
+After hearing that, I quietly thanked them and drove back home. No radio. Just silent with my own thoughts. 
+
+I can’t help but think I avoided something potentially fatal, and if it weren’t for that young guy outside the bathroom, I’m not sure I’d be typing this story right now.
+
+One thing is for certain: I’m never using Tinder again.
