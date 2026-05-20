@@ -246,6 +246,4 @@ Sam: "It's just a game, man. Emma?"
 
 He was asking for my vote. Mike's eyes begged me to say no, and not a day goes by that I wish I did. But I was young and stupid. And above all curious. Never in all my life could I have imagined such… terror to come from the four most innocent words a kid knows.
 
-"I want to play."
-
-[Part 2](https://www.reddit.com/r/nosleep/comments/1ti91v8/never_play_with_a_ouija_board_at_the_abandoned/)
+["I want to play."](https://www.reddit.com/r/TalesFromTheCreeps/comments/1th8bwi/never_play_with_a_ouija_board_at_the_abandoned/)
