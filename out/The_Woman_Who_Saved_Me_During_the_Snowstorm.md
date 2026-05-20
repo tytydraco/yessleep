@@ -1,0 +1,235 @@
+I shouldn’t have been driving that night.
+
+The snowstorm had gotten so bad that I could barely see past my windshield, but I kept telling myself I was close to home. Just a few more kilometers. That’s all I needed.
+
+The roads were empty. No headlights. No houses. Just endless snow and the sound of the wind hitting my car hard enough to shake it.
+
+Then my tires lost grip.
+
+Everything happened too fast.
+
+The car spun, the headlights flashed across the trees, and then I slammed straight into a ditch on the side of the road.
+
+For a few seconds, I just sat there in silence, trying to process what had happened. My airbags had gone off. My nose was bleeding. The engine was dead.
+
+I grabbed my phone.
+
+No signal.
+
+Of course.
+
+Outside, the storm kept getting worse. Snow was already piling against the doors of the car. Staying there meant freezing to death.
+
+So I got out.
+
+The cold hit me instantly. My shoes sank into the snow with every step as I started walking down the road, hoping to find literally anything.
+
+After what felt like forever, I finally saw a light in the distance.
+
+A house.
+
+Old. Isolated. Two stories tall with warm yellow lights glowing through the windows.
+
+I almost cried from relief.
+
+I knocked on the door so hard my hands hurt.
+
+A few seconds later, an old woman opened it.
+
+She looked to be in her late sixties, maybe older. Gray hair tied back neatly, soft smile, warm eyes.
+
+“Oh my God,” she said immediately. “Come inside before you freeze.”
+
+The heat inside the house felt unreal.
+
+She sat me down near the fireplace, wrapped a blanket around my shoulders, and made me tea while apologizing over and over for the storm, like she somehow controlled it.
+
+Something about her was… strange, though.
+
+Not creepy at first. Just too friendly.
+
+Too caring.
+
+Like she was overly happy that someone had shown up at her house.
+
+“You can stay the night,” she told me. “My son’s old room is still upstairs.”
+
+I thanked her at least ten times before going upstairs. Honestly, I was exhausted enough that I probably would’ve slept anywhere.
+
+The room looked untouched.
+
+A perfectly made bed. Shelves full of old books. Clothes hanging neatly inside the closet.
+
+It didn’t feel like a guest room.
+
+It felt like someone still lived there.
+
+I sat down on the bed and noticed a folded piece of paper sticking halfway out from beneath a dresser.
+
+At first I ignored it.
+
+Then curiosity got the better of me.
+
+I pulled it out.
+
+It was an old psychiatric evaluation report.
+
+The name matched the woman downstairs.
+
+I remember my stomach tightening as I read parts of it.
+
+Paranoia.
+
+Violent episodes.
+
+Psychotic delusions involving her son.
+
+One sentence stood out more than the others:
+
+“Patient refuses to accept that her son died several years ago.”
+
+I stared at the paper for a long time.
+
+The wind outside howled against the windows.
+
+Suddenly the entire house didn’t feel warm anymore.
+
+I looked around the room again.
+
+The clothes.
+
+The books.
+
+The perfectly made bed.
+
+She hadn’t preserved this room out of grief.
+
+She genuinely believed her son was still alive.
+
+I wanted to leave right then.
+
+But outside was a blizzard, my car was wrecked somewhere down the road, and I had no signal.
+
+So I convinced myself I was overreacting.
+
+I locked the bedroom door and tried to sleep.
+
+I must’ve drifted off eventually because the next thing I remember was waking up to a deafening crash downstairs.
+
+It sounded like furniture being thrown over.
+
+I checked my phone.
+
+3:07 AM.
+
+At first, I thought maybe the old woman had fallen.
+
+I slowly opened the bedroom door and stepped into the hallway.
+
+The house was dark now except for the faint orange glow coming from downstairs.
+
+Then I heard a man’s voice.
+
+Calm.
+
+Talking softly.
+
+I froze.
+
+There wasn’t supposed to be anyone else in the house.
+
+I moved closer to the staircase and looked down into the living room.
+
+And that’s when I saw her.
+
+The old woman was lying on the floor at the bottom of the stairs.
+
+Dead.
+
+Her neck bent at an angle that made my stomach twist. Blood had spread across the wooden floor beneath her head.
+
+And standing over her…
+
+was a man.
+
+Tall. Thin.
+
+Covered in snow.
+
+He was talking to her body like she was still alive.
+
+“You shouldn’t have let him stay here,” he whispered. “You know what happens now.”
+
+I nearly made a sound right there.
+
+Instead, I backed away from the stairs as quietly as I could and locked myself inside a small storage closet down the hallway.
+
+I covered my mouth with both hands, trying not to breathe too loudly while I listened to him moving around downstairs.
+
+Floorboards creaked.
+
+Cabinets opened.
+
+Then silence.
+
+Complete silence.
+
+I grabbed my phone again.
+
+Still no signal.
+
+My heart sank.
+
+Then, for one second—one tiny second—a single bar appeared.
+
+I immediately called the police.
+
+The dispatcher answered almost instantly.
+
+I whispered everything as quietly as I could. The crash. The dead woman. The man downstairs. The isolated house in the middle of nowhere.
+
+The dispatcher suddenly went quiet after I gave him the address.
+
+Way too quiet.
+
+Then he asked:
+
+“Are you inside the Miller house?”
+
+Something about the way he said it made my blood run cold.
+
+“Yes,” I whispered.
+
+Another long silence.
+
+Then he said something I still can’t stop thinking about:
+
+“Listen to me carefully. Hide. Do not leave your hiding spot. And do not ask any more questions.”
+
+I remember whispering:
+
+“What do you mean?”
+
+But he ignored me.
+
+“I’m sending someone now. Stay quiet.”
+
+Then he hung up.
+
+That’s when I heard footsteps downstairs again.
+
+Slow. Heavy.
+
+Coming toward the staircase.
+
+The closet I was hiding in suddenly didn’t feel safe anymore.
+
+Because I realized something horrifying.
+
+To call the police, I’d had to leave the closet and go into the old woman’s bedroom upstairs where the signal was stronger.
+
+If he had seen the light from my phone under the door…
+
+then he already knew exactly where I was.
+
+And now I can hear him walking through the hallway outside.

@@ -8,7 +8,7 @@ I could see the handle of the strainer clearly through my fingers. The topmost t
 
 I blinked, rubbed my burning, sleep-deprived eyes, and looked again. Still gone.
 
-I know pregnancy does weird things to the body -and obviously to the mind-but this was too much. The terrifying part was that I could still feel things with my phantom fingertips. I could feel the cold granite of the countertop. I could trace patterns in the water droplets. Heck, I could even hold up the tea strainer, effortlessly pour the liquid into the cups, and arrange the saucers and biscuits on the tray.
+I know pregnancy does weird things to the body, and obviously to the mind, but this was clearly too much. The terrifying part was that I could still feel things with my phantom fingertips. I could feel the cold granite of the countertop. I could trace patterns in the water droplets. Heck, I could even hold up the tea strainer, effortlessly pour the liquid into the cups, and arrange the saucers and biscuits on the tray.
 
 Then where on earth were my fingertips? Why were they invisible to me?
 
