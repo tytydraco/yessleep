@@ -1,0 +1,63 @@
+I don't think so, at least. Ghosts have homes, places to haunt, and they rarely travel from one to another. Ghosts used to live, and now they do not, and so they cling to their unfinished businesses there. I don't remember living, nor will my business ever be finished. No matter what they call me here, I cannot be a ghost, do you understand? 
+
+Memory evades me. Whenever I try to think of my first… no, “possession” isn't the right word. Ghosts possess, and demons possess, but I am neither. “Obsession” might be closer, but it doesn't convey enough of my meaning. English doesn't have a suitable word, and because I can't remember how to speak any other language, I don't know whether there is a word for it at all. 
+
+For now, I’ll call it “Hunt.”
+
+My first Hunt is lost to time. I think that I have existed (“existed” is wrong as well,) for a long time. Maybe as long as humans themselves. When I stretch myself, I can remember being. I remember Hunting Echo, years before Narcissus came along to give her story a name. I remember Hunting Saint Catherine of Siena. I remember Hunting the characters of William Shakespeare, though never the man himself. I remember these. I think it is because their Hunt still spreads. It’s likely I could remain for centuries more on these stories alone, but that is not the nature of me. Motion is what nature told me to be. 
+
+I am running. I am running towards something. I have to be sated. It scares me and I do not want it and it happens anyway because it hurts and because I have no purpose otherwise.
+
+Writing this is difficult. I try to think back, but everything is scattered. Right now, I am in the United States, and right now is all that I can truly grasp. It was a quiet place, before I came. It is called “town,” and it is settled deep inside of mountains. The mountains are older even than I am, I think. (No, that isn't right. I can't think. Whatever I am, it is not something that is meant to think.)
+
+I will try to tell you of my last Hunt. The details are still fresh, and I can pause here for long enough to warn you. The digital world is an amazing thing, to let me reach so vast an audience at once. 
+
+Her name is Elizabeth, though she’s always gone by Lizzy, and she always writes the name in looping cursive, unless she’s told explicitly to print it. She was, depending on the moment, a dancer, a student, a hobbyist astronomer, a jewelry maker, or a photographer. Now, of course, she is none of those things.
+
+Lizzy is not a girl with a suitable sense of self. She never was, even before I picked her. People tell her she is quiet, but when she tries to correct it, they turn around and tell her that she talks too much. Lizzy doesn't know what she's like. She didn't know what she wanted to be, until I told her. 
+
+I positioned myself in the woods outside her house. I am not a ghost, but I can, on occasion, take a physical form. This is what I did for Lizzy. I set my feet carefully on the ground, waited until she was ready to leave for school, and walked past her. Leg forward, lean, fall, switch, leg forward. Walking is just a series of falling and catching yourself. Humans don't think about it that way, most of the time. Lean, fall, switch. I did not look at her as I passed. I didn't need to. She saw me, and that was enough. Like Mercutio, see? Marry, ‘t is enough. T’ will serve. Isn't he funny?
+
+I felt her eyes widen slightly as she took in my form. I never know what I must look like, to each, but I know that I must be beautiful. Sometimes I am a person, in their eyes, sometimes an idea. An ambition. (So you see, I cannot be a ghost, because ghosts are always things. Ghosts are not ideas or motions. Ghosts are things. Ghosts are always things.) That day, I believe I was a person, but there is really no way of knowing, is there? 
+
+Lizzy did not pause for long, but that doesn't matter. I passed her again at school, then again on her walk home, then again at dinner. Her eyes brightened ever so slightly whenever she saw me, and her cheeks turned a spotted pink. The next day, I passed her only once. Three days after that, once again. That is the way to build a Hunt. Suddenly I am there, and slowly, piece by piece, I leave. I root myself in the minds of people, and then I go. I go away. I always go away you need to understand that you need to know.
+
+Lizzy told her friends about me, but not her parents. I must have been a person to her, because she described me as tall. Her friends looked for me too, but I was careful not to be spotted. I had already rooted myself in Lizzy. She became more beautiful and more pitiful by the day. 
+
+Lizzy was not frightened of me. They never are, at first. Slowly, as I passed her less and less, Lizzy became focused. She had never been focused before, and I gifted her that. It is not a gift. I gifted her that. She looked for me when I was not there, and she stared when I was. She stopped looking through her telescope after two weeks. She stopped wearing her jewelry after five. She did not notice either loss, and her skin was radiant.
+
+Lizzy’s friend Eleanor was the one who first called me “ghost.” 
+
+“You still obsessed with that ghost of yours?” Eleanor had asked, eyes all sparkling with amusement.
+
+Lizzy had known that was the wrong word for me, but she couldn't think of a better one, so she gave an awkward chuckle and said “Yeah.” 
+
+As in, yeah. I see her less, now. 
+
+Yeah, she is the only thing I have.
+
+Yeah, not yes. Nothing so sure as yes.
+
+Lizzy’s skin was now a silken, shining thing. Her hair was perfect ringlets, curled around itself like telephone wire. It connected. She was connection. Eleanor and Valerie and Michelle and Dan and Julian all watched her transform into beauty. Eleanor and Valerie and Michelle and Dan and Julian saw her glowing as with radium. EleanorandValerieandMichelleandDanandJulian. This is when the Hunt began to spread.
+
+Am I a disease? Diseases spread. From one to another, little somethings can invade the bodies, and propel themselves from person to person. They are microscopic lives that squirm their way into the supple meat of nasal cavities or esophagi or stomachs. They are natural, diseases, as I am natural. A disease is the crawling action itself, as I am an action. A disease does not know what it does, and would be powerless to stop itself if it did. As me. I though, am one thing, and disease is made of many things. Disease is small. I am not yet small. “Disease” is still not the right word for me, but it is an apt analogy.
+
+Of Lizzy’s friends, only two caught me before the Hunt finished. Julian and Michelle. They never saw me, but they saw what effect I was having on Lizzy, though they did not consciously know that I was the cause. Their disease will grow, and spread, and keep spreading over time, but I should tell you more about Lizzy.
+
+She stopped going to school after five months. She camped outside her house with a camera and a bottle of water every night, waiting for me. Once, she walked in a grid across the woods, because she believed I lived there. When she did not find me, she crumpled to the ground beside a tree and started screaming. 
+
+Lizzy wasted. She forgot all but me. She lost herself, and did not find me. She gave her mind up, so I had her thoughts. She went hungry, so I was fed. She stopped seeing her friends.
+
+Lizzy is no longer beautiful. Her skin began its boil two days ago, and is now nearly melted. Her hair strains and frays against itself, like ribbon pulled across a blade. Her jaw hangs loose underneath her blackened mouth. She is rotting. She is unclean. Disease. Disease. Disease. Soon enough, she will have decomposed around herself, and I will take her. I do not want to. I cannot feel guilt because I cannot feel but all the same I do not want to can I want?
+
+Am I Hunting you? All of you, who come here for your stories, all tucked beneath the weight of a blanket, that it might protect you from the evils that you read. For most of the creatures here, you are correct, but are you safe from me? Could I really Hunt so many here, at once?
+
+No, of course not. There are few who can be Hunted at all, and I don't think knowledge of me is what does it. 
+
+The town has started talking of Lizzy’s “possession.” It was Dan who went to the press, spinning ghost stories. He probably believed them to be true. I don't know Dan like I know his friends. 
+
+According to the local newspaper, I am a ghost. Doctors couldn't find what's wrong with Lizzy, and so the superstitious little town decided what I must be. They needed a culprit, and since there is not a word for what I do, they chose “ghost” and “possession” and “haunting.”
+
+But no matter what they say now, I am not a ghost. I need you to understand that I am not a ghost because you must be more careful with the thought of me. If I am a ghost, I can be warded off with superstition or prayers or salt around the bottoms of your doors I am not a ghost I have never been a ghost you have to believe me I am much worse than a ghost you have to believe me to protect yourself I am not a ghost. 
+
+Do not think about me.

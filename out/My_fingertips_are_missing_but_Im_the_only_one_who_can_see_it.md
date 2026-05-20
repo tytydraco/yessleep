@@ -1,0 +1,67 @@
+The strangeness started six days after my son was born.
+
+I remember because it was his Shashti - the sixth day, an auspicious day to celebrate the birth of a newborn in our household. I was in the kitchen making tea for the ladies who had come to bless the baby, hunched over a bit due to my emergency C-section.
+
+I was pouring the tea through the strainer when I first noticed it.
+
+I could see the handle of the strainer clearly through my fingers. The topmost tips of my right-hand fingers were missing. The part that holds the nails. Just... gone. I put the strainer down and stared at the stubs. There was no pain. No injury. Yet, no fingernails.
+
+I blinked, rubbed my burning, sleep-deprived eyes, and looked again. Still gone.
+
+I know pregnancy does weird things to the body -and obviously to the mind-but this was too much. The terrifying part was that I could still feel things with my phantom fingertips. I could feel the cold granite of the countertop. I could trace patterns in the water droplets. Heck, I could even hold up the tea strainer, effortlessly pour the liquid into the cups, and arrange the saucers and biscuits on the tray.
+
+Then where on earth were my fingertips? Why were they invisible to me?
+
+I wanted to run to somebody—anybody—and ask if they could see it too, but how would that sound? What do I even say? "Hey, I can’t see my fingertips anymore, can you?"
+
+Luckily, my husband entered the kitchen right then. It was a miracle in itself, as he rarely visits the kitchen.
+
+"Is the tea ready? They are waiting," he said.
+
+Now was my chance. I held up my hand near his face. "I spilled some tea on my hand, can you take a look?" I asked. If there was something off about my hand, he would tell me immediately.
+
+Instead, he took a close look and shook his head. "You really must be more careful now. You have to take care of the baby as well. Do your work slowly...with care."
+
+"You really don’t see anything wrong with my hand?" I placed my hand on his, desperately hoping he would notice the lack of physical mass.
+
+He looked at my hand less like a loving husband, and more like a scientist observing a distant meteorite. "No, seems fine. Just pour some water on it and I’ll get you an ointment."
+
+He rushed out as quickly as he’d entered. Needless to say, no ointment ever made its way back to me. A postpartum "mom brain" is just a normal, everyday male brain, I suppose.
+
+I initially brushed it off, thinking the severe lack of sleep was playing cruel tricks on my eyesight. But as the afternoon went on, it remained clear as day: no fingertips on either of my hands. I thought this had to be the weirdest situation I’d ever find myself in.
+
+Boy, was I wrong.
+
+All the ladies were upstairs, discussing their early days of motherhood. Some described having severe brain fog all day, forgetting everyday things. Some described the physical ailments that cropped up after giving birth, like chronic joint pain or liver problems. One aunt in particular described how she almost died while giving birth to her twins.
+
+She described it in such a casual way that I briefly forgot about my own missing fingers.
+
+"There I was, stretched out on the operating table, bleeding out after my first one came out," she said. "The doctor went to fetch some things -I think to stop the blood loss. But then I felt something else. Something was coming out. I had just enough strength to reach down there, catch my second child, and scream... and then everything went black. In those days there were no ultrasounds, and nobody knew there were two. They later told me I was half dead, but my recovery was a miracle."
+
+She then looked at me with a sad, hollow smile. "I think I never really recovered from that trauma."
+
+My mother-in-law couldn’t resist narrating her own tale of bravado, a story I had been forced to hear every single day during my pregnancy. How she walked five kilometers to the nearest hospital while in active labor and delivered my husband.
+
+She added, "Girls these days want the easy way out and go for a C-section... in our days, it was either a normal delivery or death." She laughed out loud, heavily stressing the word 'normal.' According to her, medical advancement to help women survive was abnormal.
+
+I served the ladies their tea, completely ignoring my mother-in-law's boisterous and stupidly insane takes. Apparently, we were only blessed with a son because of her intense prayers and fasting. If praying to random gods and believing in ancient superstitions were an Olympic sport, she would be a gold medalist.
+
+"Finally, our tea is here?" she announced as she saw me enter the room. Typical of her not to notice me, but only what I brought to the table. Anyway, I don’t think I need to go into detail about our relationship. There is no love there. Only convenience.
+
+And besides, this post isn’t about my mother-in-law, no matter how much she tries to make everything about herself.
+
+That was also the day another weird thing happened. And I really want to ask the other new moms on here if you have ever experienced anything like this.
+
+I noticed a weird smudge in the room that day.
+
+I don’t know if calling it a "smudge" is the most apt way to describe it. It was roughly the size of a person, and just... I don’t know, the air just felt entirely wrong in that specific spot. It moved around the room like a living person. It was kind of like a dust devil, but without the dust, the wind, or the noise.
+
+Nobody else seemed to mind it. People moved around it seamlessly, as if it were just a piece of familiar furniture.
+
+I am writing this down right now so I don’t forget. Of late, I have been forgetting a lot. My brain seems to be in a state of constant, suffocating fogginess.
+
+But I know what I saw. And something I saw made my blood go completely cold before I left the room.
+
+As the blurry, distortion of air drifted past the couch, my mother-in-law looked right at it.
+
+And she smiled at it, a big wide unmistakable grin.
