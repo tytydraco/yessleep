@@ -1,0 +1,277 @@
+Content warning (spoilers): >!Non-Graphic Child abuse, Excessive Gore, Bodily Fluids, Sexual Themes.!<
+
+I had never been the type to fear flying. There’s no reason behind it, or a trick that calmed my mind into optimism. The lack of fear was either just pure luck of the draw, or an amygdala that had been labeled irrelevant after a lifetime of emotionless comfort. Either way, the most I had to dread for the upcoming flight, was the cramped seat, and the bladder size of the passenger next to me; that is, if I was not damned by the horror of sitting next to a child.
+
+Since the first flight had gone well enough, my hopes were high for the next. I’d had all three seats to myself, and just enough time to cram a movie in between takeoff, and landing. Then came the mad dash to transfer flights, that, in the end, turned out to be a waste of energy.
+
+I had missed a delay announcement an hour earlier, leaving me with just as much time to spare. I plunked myself down onto one of the many empty chairs, and dug a creased, and faded paperback out of my backpack.
+
+My choice in books had been quite ignorant; it was something I discovered once the terminal began to fill up. I hoped that a curious, prodding gaze would not think to decipher the words ‘Fantastic Orgy’ when they were obstructed by my fingers.
+
+The exhausted frames danced in my peripheral while I read, and with them came the smell of insecurity and medical sterility.
+
+I looked up at these shapes once I reached the bottom of a page, and felt my stomach churn at the sight. Red dotted, pink scalps full of transplanted hair filled the terminal. Black bands stretched across their foreheads, and just above their ears, holding back the swelling like a dam.
+
+Insecure cunts, I thought and ran a hand through my hair. I was not far behind them, an estimate of ten years before I’d have to shave it all off. But I was ready for that commitment. It was the preferable choice over succumbing to insecurities and mutilating myself for the visual preferences of complete strangers.
+
+With this said, I – in all honesty – was not a beacon of confidence myself. It’s something I won’t bore you with. I’m sure it’s a topic you’ve trampled over enough times to turn the self-loathing into a pulpy, blood-pile of meat and bone.
+
+One of the redheads was dragging some poor woman along with him. The skin of her face stretched back. Her lips bloated like the gassy carcass of a beached whale, and lathered in ten sheets of lipstick. The rest of her face was wrapped in bandages, with a focus on her nose. I groaned, and looked back down at my book.
+
+It was either the anger, or the pity that had weighed me down. Either way, the unsure feelings bubbling within me worked as an impenetrable distraction. One that turned my reading into an unfocused stare, and left me blindly waiting until the boarding call came.
+
+I had been the first to my feet, but was beat to the line by three red-heads. The restless passengers shifted their weight from one leg to another. Their bloated, pink scalps jiggled side to side like a bulbous mass of Jell-o.
+
+First class boarding finished up soon enough. As much hatred as I’d had for the rich bastards, I did have to commend them for their punctuality and efficiency. Though, as expected, not all of them were perfect.
+
+A family of three approached the gate just as the doors were opened to the common folk. To the left was the husband who still hadn’t quite mastered maneuvering the wheelchair. His head was covered in three patches of implanted hair, the flared-up chunks of scalp looking like grafts.
+
+Despite the visual effort he had put into spinning the wheels, it still proved to be a great challenge to him. The exhaustion was wearing him down, literally. Sweat and blood dripped down his swine-like, fatty face, and when the condensation rolled too close to his eyes, He simply wiped his hand across his brow, and smeared the mixture of liquids into the already stained, crusty patch of red on his white sweater.
+
+To the right was his wife, some pasty-white bitch with wavy blond hair, and bowling ball tits cresting the cut of her dress. The Silicone stuffed in her cheeks pressed against her stretched-back skin, looking as if they would burst through the tension. Her nose had been thinned down to the thickness of cardboard, and the tip had been yanked upwards until it pointed towards the ceiling.
+
+In between the mangled couple, with his hand raised up to his mother’s was their kid. Maybe seven years old. He was weeping, and stumbling down the terminal each time his mother yanked on his arm. Much like the father, the kid’s head had been plucked and filled with thousands of harsh, red, marks. His face was wrapped with bandages, only leaving his running nose, tear seeping eyes, and gaping mouth out for display.
+
+They pushed through the line, muttering “sorry,” and “excuse me,” with each frowning person they passed. The adults proudly planted themselves at the front of the line. Their child still screaming in a way that felt justified, rather than entitled.
+
+“Hello,” the woman spoke up, pushing a handful of passports, and tickets into the workers face “we missed the advance boarding time for first class…” the bastards waited for the gratification that didn’t come.
+
+“I’m sorry miss, but since the advance boarding time passed, you’re going to have to move to the back of the line.”
+
+“What?” the woman gasped in entitlement, and her chode of a husband followed with an angered grunt “Wha… But we paid good money for these, for the advance-”
+
+The worker – realizing that he was facing an unstoppable force – gave in, rolling his eyes as he snatched the passports out of her hand.
+
+The woman turned the microscopic frown that had cursed her perfectly mutilated face, into the same, per-determined, domestically enslaved, airhead grin. “Alright, come on honey,” she said and continued dragging the bandage wrapped, and stitch headed child onto the airplane.
+
+I’d forfeit all memories of them not long after they left my sight. The dreadful pity still stuck to me though; A feeling like that was hard to discard. Now that I’d swallowed it’s from, it had gained the strength to grow hooks and sink itself into the lining of my stomach, weighing me down enough to bow my spine, and slow my walk.
+
+There was a congestion near the end of the loading dock. The three bulb-heads stood right by the plane door and peeked into the cabin. I stepped up to the doorway and wedged myself into the overcrowded entrance, craning my head to catch a peek into the cabin.
+
+The wheelchair was stuck, wedged between two chairs right by the entrance. Both the wife and the flight attendant were standing at its back, yanking and pushing, trying to free him over and over for minutes on end. The growing, agitated crowd behind me made me turn anxious, their groans and complaints felt personal, as if I was to blame for the delay.
+
+I thought to yell at the crowd to quit their whining when a second flight attendant joined in on freeing the man. With the might of all three, they finally yanked the oversized wheelchair out of the gap, and freed me of the embarrassment.
+
+Just after the man was liberated, I discovered that it had been completely avoidable. Since he had refused the flight attendants instructions, he had taken the incorrect turn towards economy, and ended up wedged between the isles his wheelchair was not designed for.
+
+With their mangled heads hung low, the family turned around and shuffled towards the first-class seating.
+
+I took the walk of shame to my economy seat. Being up front in line gave me the privilege of avoiding another familial congestion. I had been freed of waiting for a family of eight while they figured out their seating, and sorted their bags; until the landing, at least.
+
+Window seat. Ten hours. A crash upon take-off would’ve been the preferable outcome.
+
+The seat was stiff. It felt as if I’d planted my ass atop a stone slab, the bumps of which dug into my rump. It was hot in there too. I looked to the ceiling and only saw lights, no AC ducts. At least I’d have all three seats to myself…
+
+At least there would be a free seat in between me, and the pulsating scalp of the man stuffing his bag into the overhead bin…
+
+The two seats filled up before takeoff, and I was crammed into the corner, hoping that ‘Jurassic Park’ playing on the monitor, would be a good enough distraction.
+
+All the bags had been shoved into the overhead, and all the passengers had packed themselves into the seats just as the main cast descended onto the island. An overly long animation interrupted the movie and went into detail on how to behave during takeoff and emergencies. We had left the ground just before the animation finished.
+
+The only positive of the window seat was the wall beside me. I rested my head against it, and hoped the distraction would be good enough to get me though the ten, sleepless, cramped hours.
+
+It did work. Actually, it worked surprisingly well, and I caught myself drifting in and out of sleep. It was in the midst of this teetering between sleep and consciousness when the man beside me bumped his knee into mine. I glanced towards him, (my sight still hazy from the remnants of sleep) just to make sure I was not the one in the fault. His distant staring gaze said no.
+
+I looked back to the credits rolling on Jurassic Park, had I really been out for that long? Was I snoring? I didn’t bother to put on another movie, just leaned my head back and tried to fall back into sleep.
+
+A few seconds passed, and again, his leg swung into mine. A few more seconds, and another bump, and I gave up on sleep, I’d had one opportunity, and now – despite my best wishes – my body had fully sobered up.
+
+Opening my eyes, I began to see him swiping at his face in my peripheral. I didn’t blame him, it was hot as fuck on that plane, hot enough for the creases on my forehead to have turned to a constant puddle of sweat.
+
+I didn’t even notice our knees bumping the next time it happened. He was reaching for the bag between his legs. After a second of rummaging, he withdrew his hands and bumped his elbow into mine.
+
+I’d forfeit caring about the constant movement at this point. He’d calm himself soon enough. At least, I hoped he would.
+
+It didn’t take him too long pierce my attempted tranquility. I had grown accustomed to the still presence of his knee against mine, but the shaking felt unbearable. His pants rustled against mine in quick, jagged movements until the feeling turned disturbingly obnoxious. I’d have to say something at one point or another, and I thought to do it sooner, rather than later.
+
+I turned to my right and felt shit crown my asshole like an eager newborn. He was staring at me, eyes desperate, webbed with red and lubed by tears. A blood-stained bath towel was wrapped around his head, and more crimson leaked down his forehead, temples, and neck.
+
+“Help!” He whispered, the words a near gurgle that escaped from a pit deep down his esophagus.
+
+“I… I don’t…” I stammered, baffled by the idea that I seemed to be the best person for this task.
+
+“Please!” he stared at me, dead-pan.
+
+“I… I can’t I’m sorry.”
+
+“It’s the pressure,” he said, and grabbed the towel with his right hand. Raising the drenched piece of cloth off his head, strings of mucus-like blood dripped back down to his gore lathered scalp.
+
+Removing The last bit of cloth was a struggle for him. The blood must have dried and glued it to his skull. He was repulsive to look at; the bloated mass on top of him jiggled, rippled waves passing over its surface with each tug. It was impressive how well the towel had stuck to him. It seemed like it didn’t hurt much though, a mild positive among the shitstorm.
+
+“Can you pull this off? I really can’t get good leverage,” he asked.
+
+Whatever would get him to shut up first was within my best interest. At this point, I’d even let him rest his head on my shoulder, and let his squishy skull dribble gooey red all over me if it meant that he would finally fall asleep.
+
+I took my seat-belt off, and got up on my left leg. My right knee bent, digging into the seat.
+
+The towel was sickening to hold; the fluids seemed to stain my hands. I’d have to wash them after this. A part of me expected it to slide off instantly, that the man was exaggerating how strongly the towel had bonded with his scalp, but my first, half-hearted pull ended up being unsuccessful.
+
+I gripped the towel harder, felt Its fibers dig into my skin and tugged hard. The scalp followed the end of the towel; at one point I thought that I had lifted the man into the air.
+
+“you’re going to have to pull really hard,” He commanded “Don’t worry about hurting me, just get this thing off me!”
+
+The wetness engulfed my hand as I wrapped the towel around it. Grunting, I yanked it back, pushing my body weight away with my leg. There was a huge release, one that came after a wet, tearing sound.
+
+Following the release, I fell back, and for the first time in my life, felt true fear. No matter what they could have told me, how secure they could make the glass sound, or how many layers of it they stacked on top of each other – to me – glass was still glass, and having been so close to it, God knows how many miles above ground, triggered something deep within me. My blood curdling scream echoed down the length of the cabin. My head had slammed directly into the glass.
+
+The man was screaming too, his mouth agape, hanging unnaturally low. The tug of the towel had ripped a gash into his skull. It ran down the side of his face, leaving a long, skinless ravine from the top of his head, down to his neck, where the loose skin and the towel still hung. A pulpy, yellow liquid gushed out of the wound, looking like watered-down mashed potatoes.
+
+He shook his head and spread his mouth further, putting his bleached-white veneers on full display. It was surprising that no-one had noticed a thing. Not a ‘Is everything alright?’ from a neighboring seat, or a ‘Shut the fuck up’ from the other end of the cabin. Hell, I’d be contempt with a flight attendant scolding either of us for screaming.
+
+His screams sounded far more bizarre than mine though. They were broken apart by sharp inhales, that he seemed to be trying to hold back. It took me a moment to realize what it was, but it was pretty obvious. He was holding back laughter. He was mocking me.
+
+The man’s mouth continued to gape, and his teeth began to rattle back and forth with a moist chatter. His bottom jaw dropped lower and lower, the skin at its sides stretched with it until his cheeks were paper thin, and nuzzling between his man tits.
+
+“What the!?” The words escaped me, just mildly more defined than the substance-less screams.
+
+The rattling continued, aiding his teeth in protruding out of his gums. The ceramic pillars elongated until they met each other at the mid-point of his mouth.
+
+“He…Help!” I started to scream and pushed my body flush with the wall.
+
+He loved what he was doing, the laughing was undeniable now that he had quit trying to mock me.
+
+I looked to my sides, hoping to find some salvation there, either a person willing to help me, or an empty seat to climb into.
+
+To my right (behind my seat) was a woman, a dozen or so layers of bandages wrapped around her head. She stared at me from the two cutout, eye-holes, and began slowly unwrapping her head. I turned to my left; the jellied heads of the three men had expanded too far for it to have been humanly possible. Their scalps filled the row of seats, pressing against each other. The fusing mass looked like a living waterbed that had developed herpes.
+
+I saw it above them, the button to call over the flight attendant, I reached for it, stretching my arm.
+
+The man was still laughing at me, his voice echoed, bouncing off the porcelain wall that blocked off his mouth. A quick trail of straying thought made me realize that I had not stopped screaming; it felt like I would never be able to.
+
+The elongated grin had widened. I tried to count the teeth, but they were multiplying too fast. Just as I had counted a tooth, a jagged crack appeared down its length. The gap between the haves widened and the crack smoothed over until the two were independent teeth of their own.
+
+I stared into his eyes for another moment and realized that I had to do something. The flight attendants seemed like they would never come, the bastards.
+
+I leaned back, onto the glass (still as terrifying to do as it was the first time) and tucked my right leg back to my body. With a pathetic, high-pitched war cry I swung my leg open, and slammed my heel into the man’s teeth.
+
+It didn’t have quite the effect I wanted it to. My attack had left a light, diagonal fissure running across what must have been at least fifty of the teeth. I was not the only person unhappy with my work; The man didn’t seem too happy with my actions either. His laughing stopped in an instant, and his perked-up brow turned downwards, into a frown.
+
+I kicked again while I had the time, harder this time. The fissure grew into a proper crack, giving me hope for the next. I had been right; the third kick was what did him in. The teeth I had struck crumbled into chunky rubble and landed on his tongue. I quickly drew my foot back, afraid that he would bite it off, or worse, lick it with his broad and bloated tongue.
+
+“My… my teef,” he yelled with a freshly developed lisp. His voice had turned into a low-pitched moan since the last time he spoke “they’re… repulthive.”
+
+There wasn’t a single second spent on debating what came next. He turned to face the seat in front of him, and began swinging his head back and forth, slamming it into the not-so-soft head rests over and over again.
+
+I looked to the woman again; the bandages were off. The place where her face had been was a pit of red, as if her face had been cut off and the insides of her skull were scooped out. Parts of her remained though. All connected by minimal tissue, her nose, eyes, lips, gums and tongue were suspended within the red pit. She was grinning, ear to ear. The suspended mouth stretched far, just an inch shy of touching the remaining flabs of facial skin. She lunged at me, eyes crazed, throat-less mouth releasing a witchy cackle. Thankfully for me, she undershot, and thrust her weight into the back of my seat.
+
+The man next to me was not far off from imitating the woman’s facial pit. In fact, he was on a path to surpass her, with a gory tunnel passing all the way though his head. Each swing of the nearly hollowed, gargantuan dome brought a moist crack of cartilage, and the clicky trickle of blood.
+
+The woman began reaching for me. Her skeletal arms waved over the head rest, nearly clasping the collar of my shirt. I had no other choice; I climbed over onto the row In-front of me.
+
+Bile began to brim my throat as soon as I touched their blown-up heads. The surface was course, like sandpaper, but it moved like an underinflated water balloon. It shifted under my weight, each of my movements causing the liquid swelling to squelch bellow me.
+
+The sensation did not get any better when I started crawling towards the isle. The skin compressed and wrinkled under my foot. I was only allowed to inch myself along after I cough my foot on the scrotum like folds.
+
+When I released, the surface reverted to its original state. The loose skin jiggled back and forth making my body skate across the bile beneath it. Since the skin had been stretched thin, I could feel the grain of the infected pus brush past my flesh from the other side.
+
+I took another batch of minuscule paces forward, and realized that it was becoming harder to do so. My arms were bent at an uncomfortable angle, my heels brushed up against the ceiling. Had I modified me technique along the way? Maybe I grew tired and my movements became sloppy. Or exhaustion itself was what had slowed me down.
+
+No, it was not that at all.
+
+The heads were still inflating.
+
+I flailed harder, now with the time constraint biting at my ass. If I didn’t cover the three feet fast enough, I was sure to be crushed under the fresh haired, STD covered nut-sack under me.
+
+So, I thrashed, I thrashed as hard as I cold, and pushed, and pushed against the ever expanding water bed of filth. It became impossible to keep my arms bent soon after, and I began to wave them as if I was trying to swim.
+
+The swimming simulation became more realistic when the skin stretched too thin to hold in its contents. The yellow, watery, congealed, starchy substance leaked out of the stretched-out pours, working like water to a whetstone against the rough surface, and slowly drowning me in the suffocating squeeze.
+
+Each push had become an agonizing grate against the surface. My lungs were compressed into paper thin plates, quickly pulsating, but struggling to inhale much air.
+
+I pushed all of my body, and the clothes peeled off my back.
+
+I pushed and a scattered mess of colors danced across my vision.
+
+I pushed and breathed in a mouthful of the sour bile.
+
+I pushed and a layer of my skin was stripped from me.
+
+I pushed and the bile was rubbed into my freshly formed wounds.
+
+I pushed and everything spun around me.
+
+I pushed and I fell.
+
+Breathing deeply.
+
+The stale airplane air felt so euphoric as it flooded inside me in bulk. I opened my eyes; the colors still danced across my vision. It all became so apparent to me. My nakedness, and the blanket of pain wrapped around it.
+
+Up on my feet, my lungs still struggled to catch up, my head was still spinning. I had made it, not only past the first isle, but across another set of seats, into the next isle over.
+
+I had been mauled by the heads of the men. The implanted hairs had taken layers of skin and left deep gashes within what was left. Beads of blood sat scattered across my front.
+
+My heart dropped to my ass.
+
+I quickly grabbed my penis; my middle finger and thumb looped around the bottom of the tip. It was wet with blood and infected bile. Their swirling colors of yellow and red made it hard to see what had been done to me.
+
+I was already on my way to the bathroom, but now I picked up pace. The rows were filled with more of the mutilated, but I did not dare to look. My eyes were set on the bathroom, the rest was all a blur of bloated and elongated, coiling reds and yellows.
+
+Thankfully, the run had passed with no major incidents. I did step on a mans stretched, flaccid nipple a few rows back (it had been laying on the ground like a loose cable) but he didn’t seem to mind. He – in fact – moaned in satisfaction.
+
+I barged into the men’s stall and locked the door behind me. “wha… what the fuck is happening?” I finally got a chance question the hell I had been brought into.
+
+I could wait it out in here; I thought and plopped my cock and balls over the rim of the sink. The grime gave way to my freshly circumcised cock. It was a damn shame; I’d loved that thing. Felt so punk with the extra bit of skin around my dick. Each time I tugged on it felt like I was fighting the norms that had been set in place by the church.
+
+I hoped it would heal badly, at least I’d have the jagged, zig-zag like topping at its end. Like a Mohawk. Maybe I could dye them green.
+
+Before I had the time to shed a tear at the loss of my punk-cock, a force slammed into me from behind. An elbow forced my face into the mirror. In the reflection, I saw an alien. Great! As if a plane full of the self-conscious and desperate-for-views influencers melting over one another was not enough, now we have aliens on the plane! I was pissed. Mentally just as over the storm of senseless bullshit as I was physically. I needed answers, but as soon as I tried to ask one, five more were thrown my way.
+
+“Ugh… what the fuck are you?” I asked “Let go of me!” I screamed when the alien forced my face harder into the mirror.
+
+“Shh, they’re gonna’ hear,” it spoke “you’re not infected, are you?”
+
+“Infected? No, I’m not,” I answered and it loosened the grip. “Are you? Sure, as hell look like it!”
+
+“No, I’m…I’m not.”
+
+It finally let me go, and I turned towards it, finally getting a good look at its frame. Its skin was greenish gray; it’s eyes fully black. Thick bumps sat under its skin, bulging at its forehead like growing horns. One more bump was at his chin, elongating it into a point.
+
+It was naked too; Piercings covered its body. At least a hundred just on its face. Some looped through the bridge of its nose, some through its nostrils, and lips. Its nipples and belly button had not been left untouched either, both of them were over-loaded with metal, seeming like an impossible amount for the space they occupied.
+
+Its penis was the most impressive; it made my now not-so-punk seeming penis look like a nine-to-five, wage slave, suburbanite in comparison. Metal hung from the intact length of the foreskin and pierced thought the meat of its flaccid cock. Its balls were pinned in place, the skin of the scrotum itself a mess of jingling metal.
+
+“What are you?” I asked again.
+
+It grinned, seeming proud of itself “what’s that supposed to mean?”
+
+“Are you an alien?” in that moment I noticed that I seemed like an oblivious child, asking the question in awe, or fear, or both at the same time.
+
+It burst out laughing for a while. Every time that I thought he would stop, he looked up at me, and bent over, clutching his chest, laughing once more.
+
+“What?” I asked, baffled as to what was so funny. Then it hit me.
+
+He was human. Covered in tattoos and implants and piercings, but still human.
+
+“Okay, I get it, real fucking funny!” I said “but… do you know what’s going on? I mean what the fuck is happening out there, the guy next to me… his face grew like twelve sizes and-”
+
+“It’s the gas they huffed, it’s supposed to be some type of organic anesthetic. The thing is that, it hasn’t been tested. All of them out there, they’re all guinea pigs. My guess is that news of the side effects came, and they were all re-routed to here. A death trap”
+
+My mind was completely baffled by the idea. It sounded so far-fetched, like a conspiracy theory; but it was hard to deny the evidence, I’d seen it, smelt and tasted it, hell, I still felt the stinging pain they had left me with. I only thought to ask the obvious out loud “And you didn’t...?”
+
+“No, I dropped the surgery right as I heard that they’d use it.”
+
+“But… no, it; cant be, I didn’t get a surgery, I wasn’t set to get one… there has to be another reason, maybe a virus, or… or.”
+
+“Just the luck of the draw man. you’re one unlucky mother-fucker,” he said the last sentence in a tone that was meant to make him sound badass? The way he spoke, it sounded almost theatrical.
+
+“Shit… well, any ideas on how to get out of here?”
+
+“We’ll have to jump out of the door!”
+
+“And how are we gonna’ survive that?” I asked, a hint of sarcasm in my voice.
+
+“See, that’s what I’ve been struggling with. Big ass flights like this don’t hold parachutes, so that’s out of the question. I thought to break into the cockpit and lower the plane, but that’s locked shut, no way to get in there.”
+
+“can’t we make some? Like steal some jackets, tie em’ together?” It was a far shot form a rational plan, but it was the only thing that came to mind.
+
+He took in a breath between his teeth, hissing before speaking up again “I don’t know, chances are that it won’t work; and getting the jackets won’t be easy, but it’s worth a try,” he said, and pulled a fire extinguisher off the toilet lid. The base of it was already covered in blood and chunks of brain matter.
+
+“Wait, already?” I asked when he reached for the door.
+
+“What do you want to wait for?”
+
+I couldn’t answer him, so he turned to the door again.
+
+“Stick close to me, I’ll kill them if they get too close, you can grab anything that’ll look useful.”
+
+The noise flooded the tiny bathroom when he opened the door, Loud, low pitched grunts and moans that echoed along the length of the plane. He turned to the right, knees bent, and crept forward. I followed.

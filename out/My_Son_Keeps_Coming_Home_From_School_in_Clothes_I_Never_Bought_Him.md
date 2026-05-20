@@ -14,7 +14,7 @@ I was not her paramedic. They pulled me off the scene before I could be, which w
 
 She died at 4:17 PM in December.
 
-Toby was eleven. He's twelve now, but he still remembers her. That's the thing I'm most grateful for and the thing that hurts the most, depending on the day.
+Toby was eleven. He's twelve now. I’m grateful he’ll still remember her. That's the thing I'm most grateful for and the thing that hurts the most, depending on the day.
 
 The house got quiet after she died.
 
@@ -48,7 +48,7 @@ Toby looked down at himself like he'd forgotten he was wearing it.
 
 "Just someone from school."
 
-He dropped his backpack by the stairs and went to the fridge, and I stood there with a dish towel in my hand, thinking about the sweater. It was expensive. It also fit him perfectly. Not a hand-me-down fit, with it loose in the shoulders or short on the sleeves, but actually perfect, like it had been bought for him. Like it had been tailored for him.
+He dropped his backpack by the stairs and went to the fridge, and I stood there with a dish towel in my hand, thinking about the sweater. It was expensive. It also fit him perfectly. Not a hand-me-down fit, with it loose in the shoulders or short on the sleeves, but actually perfect, like it had been bought for him. Like it had been bought specifically for him.
 
 I told myself it was nothing.
 
@@ -90,11 +90,11 @@ Yesterday, Toby came home with a bruise on his cheek; it was a contusion, maybe 
 
 "It's nothing. We were just clearing stuff out at Eli’s, and I tripped."
 
-"Clearing what out? Where do you even go after school, Toby? I’ve checked the school roster. There isn't an *"Eli"* in the seventh grade."
+"Clearing what out? Where do you even go after school, Toby? I’ve checked the school roster. There isn't an *"Eli"* in the seventh grade *or* eighth grade.”
 
 Toby pulled his face out of my hand. The easy, shy kid was gone.
 
-"He’s not in my grade," Toby said flatly.
+"He’s not in my school," Toby said flatly.
 
 My stomach dropped. My heart was probably doing 110. "How old is he? Where does he live? Why is he giving you a leather jacket, Toby? Adult men don't just give kids clothes for no reason."
 
@@ -174,7 +174,7 @@ Toby wasn't alone. He was walking with a group of three other boys. They were jo
 
 I felt a surge of relief so sharp it made my hands go limp on the steering wheel. I almost turned the key. I almost went home to move Renee’s nightstand and wait for him with an apology.
 
-But then the group reached the corner of the street, and the other boys turned toward the bus stop. Toby didn't. 
+But then the group reached the corner of the street, and the other boys turned toward the bus stop. Toby didn't.
 
 He kept walking, heading straight toward the gravel paths that led into the deeper parts of town.
 
@@ -186,7 +186,7 @@ A man was standing on the porch. He was tall, dressed in a quarryman's uniform. 
 
 Condition fucking Red.
 
-I didn't think about "Scene Safety." I didn't think about "Calling for Backup." All I saw was a grown man taking my son into a house I didn't recognize. 
+I didn't think about "Scene Safety." I didn't think about "Calling for Backup." All I saw was a grown man taking my son into a house I didn't recognize.
 
 I sprinted across the street.
 
@@ -196,7 +196,7 @@ I hammered my fist on that door.
 
 It swung open, and the man stood there, looking startled. He looked... remarkably average. He had a pair of reading glasses perched on his head and a smudge of white dust on his cheek.
 
-"Where is he?" I screamed. "Where is *hell* is my son?"
+"Where is he?" I screamed. "Where the *hell* is my son?"
 
 The man blinked, holding up his hands. "Whoa! Take it easy! What are you talking about?"
 
@@ -230,7 +230,7 @@ I stood in the middle of their living space and realized I was the only dead thi
 
 Toby hadn't been stolen. He had found a family that was still whole, and he was trying to borrow enough of their life to survive the one in mine.
 
-Toby got up and grabbed my arm, not looking at Mark or his wife, or at Eli. 
+Toby got up and grabbed my arm, not looking at Mark or his wife, or at Eli.
 
 "I-I'm sorry, again," I called out, following Toby out of the house.
 
@@ -251,3 +251,5 @@ I'm sitting at the kitchen table now. Renee's chair is still tucked in perfectly
 I spent weeks convincing myself a stranger was taking my son.
 
 I never stopped long enough to ask him about his new best friend.
+
+EDIT: Fixed a few wording/details after rereading some parts and replying to comments. Nothing major changed.

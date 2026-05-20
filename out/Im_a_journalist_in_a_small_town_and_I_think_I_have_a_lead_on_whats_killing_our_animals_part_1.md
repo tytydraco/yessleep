@@ -1,0 +1,247 @@
+Weird stuff was already happening in my town before I found this diary. Last week, the neighborhood pets began going missing, and everyone blamed a mountain lion. There’d been a drought and wildfires, so people assumed it was causing some trickle-up famine for the wildlife. That all changed today when a cougar showed up dead next to the highway. It was drained of blood and fluids, but the most concerning thing was what it was covered in. 
+
+The local sheriff called it some kind of kudzu species, but he was clueless. This vine, plant, or whatever the hell it is, was covered in thorns. The leaves and vines were near black, and the thorns themselves were bone white. 
+
+As you know, I’m a reporter, so I start doing what I do best and go try to research what the source of all this is. Dead end after dead end led me to look back in the local archives. I am convinced that something like this has happened before, but it’s only led me to more questions. I found an obituary for a botanist from the 1930s, stating the basics you’d expect, but catching my eye with one small detail:
+
+He was from our hometown. 
+
+I tried to find a specific cause of death, but all of the records and notes from the coroner were scrubbed. I bring this to the sheriff, who, in turn, gets me access to the evidence storage. I suspect he really only did this to keep me from snooping on anything actually important and ongoing, but I didn’t care. I was free to search and dodge brown recluses so long as I didn’t tell anyone I was down there. It was technically illegal, but in a town like ours, nobody cared enough to enforce it. I was given the key and told to lock up when I was done. 
+
+Gotta love small-town justice.
+
+There weren’t any files on the man’s death, nor any photos, though for the 30s that was to be expected. There was only one thing bearing the botanist's name and case number, but it all fit into a paper envelope. Besides a few yellow papers scrawled with sparse legal writings, there was a small book in brown leather. It was still intact and was just what I’d been hoping for. 
+
+I’m going to start transcribing his words into these posts for posterity’s sake, and after reading the first few entries, this seems like the best place to start sharing my research as well as the last account of this botanist. Let’s hope the cops don’t notice the missing book. 
+
+Hell. Let’s hope I don’t end up like that poor cat. 
+
+\-  
+   
+*August 22:*
+
+Doctor Weber takes care to keep himself hidden from public life. It’s been three days since we passed Raleigh, and I fear it will be another day still before we make it out of the Blue Ridge and into the Piedmont. Professor Maxwell tells me that patience is a virtue and that before we know it, we’ll be nestled comfortably back home in Virginia, richer than Midas and more revered than Solomon. I dare not point out that half the reason it’s taken us so long to make it down south is that he insisted on driving us down, missing the turn in Spartansburg, and leading us down a mountain path instead of the coastline I was so excited to see.     
+    
+I mustn't be so critical of my mentor, however. Such an accomplished scientist would rarely take his assistant to an almost literal goldmine of discovery. He hasn’t told me much of this Professor Weber. Only whatever he has developed in his greenhouse could change the course of not only our lives but the lives of every starving American living in Hoovervilles and working long weeks for the sake of a quarter. 
+
+I believe he lost a poor relative to starvation sometime last year, though I do not know the conditions surrounding it. I do recall his melancholic state and how often bourbon glasses surrounded his desk. I often heard him muttering a name over and over in his liquor dreams, though male or female, I have no clue. 
+
+What I do know is that the man I sit next to now is not that man. Here, in this truck, his blue eyes transfixed on the road, I see a man of firm resolve. The beard he’s grown in the last few months makes him look like a prospector shoved into a suit. His bowtie is scrappy, as is his mood. He hasn’t even stopped to ask what I’m writing, but has occasionally gone off on winding stories of how he and his family traveled through these hills often when he was a young boy. He alludes to having a sibling of some sort but drops them from the conversation as soon as they’re brought up.     
+    
+I read once that a Spanish explorer traversed this area in search of gold and glory. He died somewhere in the South, I believe. However, I am certain that if his spirit lives on, it is in the heart of my dear mentor.     
+    
+    
+    
+The road grows bumpy, and it’s becoming harder to write. Will resume on smoother ground.     
+    
+    
+    
+*12 pm- or thereabouts:*   
+    
+The oddest people live in this region. Though not unkind, they are certainly a peculiar bunch. We have stopped off at a roadside gas station and drugstore, and a small barbecue hut within walking distance of the place has given me a picnic table to pen my remaining thoughts. After I ate, one of the waitresses- I believe that’s what she is at least- approached me and asked where I was heading. I told her that I was a botanist and that my mentor and I were traveling on business. I was able to point out the professor to her from my seat. He was leaning against the truck, smoking a cigar, and apparently in his own conversation with a clean-shaven man in overalls. Judging by their points and gestures, it was most likely for directions.     
+    
+She gave him an odd look, then wiped her hand on her apron. She was older than both of us by the look of her, with curly white hair tucked neatly under a paper cap. Her clothes had the occasional grease stain, and her makeup was smudged from what I could only imagine was the heat of a kitchen, and yet she stared at us both as if we were tramps in a department store.     
+    
+“Where you folks headin’ again?” she asked.     
+    
+“I forget the name exactly,” I told her, “but I believe its name is something like ‘Portley’ or a place near there.”    
+    
+Her expression changed from confused disdain to wide-eyed concern. She almost dropped her ticket book as she spun around and took a seat next to me.     
+    
+“Listen here, son,” she told me, “Iffin it is Portley you’re going, I suggest you and your professor fella turn right on around and go back to wherever it was you come.”    
+    
+I protested, saying we’d already traveled all this way, and followed by asking what it was that had her so scared. She shook her head and said:    
+    
+“They ain't right up there. They just ain’t. Every once in a while, one of their ilk comes through on the way to Augusta or Athens or someplace like that, but every time they do, there’s trouble.”    
+    
+She went on to mutter something about the way they move or talk, but she shook herself and coughed. When she stopped, she pulled out something from her pocket and placed it on the table near my paper plate. 	
+
+“My family was one of the last catholic families in this region before they got tired of driving an hour to the nearest church every Sunday and converted to Baptists. Iffin you’re headin’ that way, you’ll want this.”
+
+The object was a cheap rosary that was missing more than a few beads and bore a metal cross long since smudged from bright bronze to dull gold. It was brighter around the base, meaning someone had once committed regularly to holding it and praying the creed with it, making their mount cavalry out of a fist and bent knees. It was clearly a family heirloom, and one I tried to refuse, but the woman would have none of it.    
+    
+“Take it, by God, and by God may it either serve you or convince you to go back. The devil walks the earth, boy, and in Georgia, his home is Portley. Anything or anyone there is not worth your soul.”    
+    
+I wanted to ask her more, but before I knew it, she was gone, and the door to the hut was slammed shut. The sliding order door was closed immediately after, and I was left alone at my picnic bench, surrounded by the goliath pines and oaks that spread out like an ocean around me. I find myself thumbing through the beads remaining on the rosary, reliving a bit of my childhood and more than likely disappointing my poor, late mother as I stumble through them. I cannot help but think of the waitress’s words as I write.     
+    
+This cross reminds me of the rosary Marie once had.    
+    
+The professor approaches.     
+    
+    
+    
+*Addendum:*  
+    
+It seems my mentor was able to secure directions, and we are now back in the car heading towards Portley. I haven’t mentioned anything to him about the rosary or the things the waitress said. However, I have noticed something concerning as we stumble into the growing dusk. There is now an old black bible seated between us. When I asked the professor where he’d gotten it, he laughed.     
+    
+“It’s the damnedest thing, John,” he said. “The gas station owner gave me directions, then ran back inside to grab this. He shoved it on me and refused to take it back. Superstitious bunch down here.”    
+    
+I faked a laugh, and he didn’t seem to notice. All is quiet now, but the closer we draw to the doctor’s house and the life-changing development he’s made in his reclusive home, I’m nervous.     
+    
+Must sleep it off.     
+    
+    
+    
+*7:25 PM*   
+    
+I am stirred awake by the roughness of the road. There is a pain in my neck from the angle I placed my head, and my vision is hazy. \\\~\\\~I am filled with-\\\~\\\~    
+    
+I am tired.     
+    
+The professor is still awake but is not up for conversation- that's why I’m writing in my journal for the fourth time in a day. What he has said is that Portley is within the next ten miles, according to the directions the gas station owner gave us. I look forward to a bed, all concerns aside, and pray the doctor has food waiting for us. 
+
+I have a pain in my throat now that makes me cough regularly. The professor isn’t noticeably bothered by this and has only said, “allergies,” in response to my racket. The pain and the coughing make me think of Marie. Her condition and loss still haunt me, it seems. Her, my mother… I fear I have a curse on me that causes women to die.
+
+I cannot wait to have tea or coffee. Anything hot to make this go down and to shove those ideas out of my mind.     
+    
+I see a road sign coming up on our right.    
+    
+Finally,     
+    
+    
+    
+*August 23- close to 5 AM:*    
+    
+I have much to write despite it being so early. I’m struggling to rationalize and place all of the events from the latter half of my journey with what logically makes sense, so I think this is the best way to lay it all out.     
+    
+I find myself holding the rosary in my other hand while I write, but I can’t say solidly as to why.     
+    
+I’ll start with our entry.    
+    
+When we made it into town, I started to find myself disillusioned with the fears the waitress and gas station owner had so thoroughly tried to instill in me. The buildings were sparse, and the main road of the town was lined with very few stores. There were occasional houses and one or two plots that looked like small farms, but nothing overtly stood out. 
+
+There were not many people out, most likely due to the time of night, but there were some. A group of men in their suspenders and work shirts huddled around a tiny storefront, resting on metal chairs and smoking their pipes and cigarettes. I could smell the cheap tobacco from the truck, and I still find its odor on my cardigan. 
+
+From what I was told, I half expected them to throw bottles or rocks as we rode through the street. I expected a gun or knife to greet our tires or at least angry screams. None of that happened. They did the opposite. They waved at us.     
+    
+As I write that, I fear I underplay the effect it had on me. When I say they *waved* at us, I mean *they* waved at us. Every single one of them. Five men were in that group in total, and as soon as we passed by, every single one raised their (right?) hand, waved, and smiled.     
+    
+The professor waved back at them, but I could tell from his grip on the steering wheel that this bothered him, too.     
+    
+We passed by a woman walking in a very rigid fashion, almost painfully erect in her posture, and she did the same. Same hand. Broad smile.     
+    
+It was when passing what looked like the county sheriff’s office that we were greeted by a dark-haired man in a tan deputy's uniform. He too waved and smiled, but lowered them as he stepped down from his perch on the sidewalk and approached the curb. The professor slowed the car down and- albeit reluctantly- rolled the window down.     
+    
+Taking the man in, I was shocked by how smooth his skin was and by how energetic he looked on what I could only assume was the tail-end of a long shift. I had an idea as to how his voice would sound this far down South, and almost jokingly wondered to myself if we’d even be able to understand him.     
+    
+Imagine how red my cheeks became as he spoke not only without an accent but almost impossibly proper English. I couldn’t begin to place a speech pattern. I still can’t, though the voice is still fresh in my mind.    
+    
+“Hello there,” he said. “Where are you from?”    
+    
+The professor explained that we were heading to the residence of Doctor Andre Weber, and if he had any directions. He didn’t drop his smile as he said:    
+    
+“Oh yes! Doctor Andre. He is indeed a very good doctor. He will no doubt expect you. You cannot keep him waiting.” 
+
+There was an awkward pause before the professor asked again where his residence was, reading the address from our telegram that had invited us there in the first place.  I expected to hear another tight response, but was more startled when the deputy shot his hand up and gestured down a right turn. He did not say any other direction besides this. The professor thanked him, prompting a, “It is my pleasure! Please enjoy your time in Portley!” but nothing else. 
+
+His hand did not drop as he did this. 
+
+We drove away, and as we did, I noticed the deputy staring at us from the side-view mirror. He dropped his arm almost mechanically and turned sharply on his heels before walking away. He did so in the same fashion as the woman we’d seen before. 
+
+“Friendly people,” Professor Maxwell said.
+
+ I remember laughing, but not for the humor of it all. Another detail I noticed, just as the main road faded from view, was that the back sides of the buildings- though their fronts were pristine- were covered in thick blankets of ivy and Kudzu.  I do not know what to make of this, nor why it bothers me so much. I will write more about this later if my mind can make sense of it.
+
+We spent another twenty minutes driving through the growing dark as cedar and oak trees loomed over us with long branches that reminded me of fingers. Each one bent unnaturally and scraped against the roof of the truck. The road didn’t grow sturdier either, and at one point it was so rough I was convinced that we were going to pop a tire on some sharp rock or another. I would have worried about deer or other passing animals as well if I weren’t so dazed from the jostling and neck pain I wrote of earlier. 
+
+Winding road after winding road went on until finally, like some specter rising from the grave, the silhouette of a manor house came into view. In a large clearing where the land merged into a grand winding hill, the sharp treeline was conquered by the rising point of a roof. The amber lights of lit windows came into view, and before I could process the magnitude of this large two-story house that sat strangely out of place in the middle of the Georgia woods, we were already parking in the driveway. 
+
+“Finally!” Maxwell said, putting the truck in park. “I thought for sure we’d miss it.”
+
+“Are you sure this is it?” I asked him. I know that sounds like a stupid question in retrospect, but I believe it was brought about by the unease that had settled into my system from the encounters we had in the town. I also still can’t shake the feeling of decay and overgrowth that lingers in the whole house. In the dark, I could see no discernible thing wrong with its face. However, the sides of the building were overrun with blossoming vines and ivy that outstretched to the wood paneling from the trellises. There was a wild look to it all, and even now as I write, I notice the fingers of Kudzu scratching at the base of my windowsill. 
+
+I digress. 
+
+We traversed the dry staircase that led to the front door and went to ring the bell, but the door swung open. I almost jumped, but was immediately disarmed when a small man in a tweed suit greeted us. 
+
+He had a pair of wire-rimmed glasses and wore a slightly crooked and brightly colored bowtie. He sported a thick mustache that put my own to shame and, despite having very recessed pale temples, a thick mane of curly white hair that brushed his shoulders and collar. I expected a staunch and reserved greeting in that similar painful voice the deputy had given us back in town, but to my pleasant alarm, he was downright jovial.
+
+“It must be Professor Maxwell I see before me!” he exclaimed, clasping my mentor's hand and shaking it vigorously. “I have eagerly awaited your arrival, and now here you are! A blessing from… from… Well let's not dive into that. It is too late in the evening to discuss theology. I am Herr Weber-” I was still taking in his charming German accent when he turned to me and looked me up and down. He reminded me of a curious crow as he cocked his head to the side and mused to himself. 
+
+“And who might this be?” he asked, though more to himself than anyone else.
+
+“Johnathan,” I said, reaching out a hand. “It’s a pleasure to make your acquaintance.”
+
+He stared at my hand for a beat, only moving his eyes and his face devoid of a smile. For a moment, I was worried I had done something to offend him in some way. I jumped when his straight face burst into a wide laughing grin, and he took my hand. His flesh was almost alarmingly rigid and cold, but his personality was anything but. 
+
+“Herr Johnathan. The pleasure of acquaintance is all mine. For when I thought I’d only be receiving one guest to this lonesome hill, I’ve been blessed with two! It’s practically a party!”
+
+“Forgive me for the surprise guest, Dr. Weber,” said the professor. “The journey was simply too long to make by myself, and I was concerned for my safety. That and- if I may be so bold as to say in a company such as this- John is a dear friend despite my advantage in years. I trust him as I do my own family.”
+
+For a moment, I thought he almost said brother. 
+
+“There is no apology needed. I agree, the distance is great, but I believe your time here will be worth it. I trust you’ve read my letter?” 
+
+My mentor nodded gravely, and his tone seemed to grow tense as he leaned in to speak. “The claims you make are great, and I am desperate. Can you please-”
+
+It was then I embarrassingly let out a wet, hacking cough that resulted in something flying from my mouth. It landed on the floorboards of the front porch, and my cheeks grew red. 
+
+“I’m so sorry-” I told them. “I picked something up on the road, it seems. I cannot begin to-”
+
+“Hush, my boy!” The doctor took me by the shoulder and had me open my mouth. He examined the back of my throat and said, “As I suspected! An allergy attack. The pollen here is extreme on most days. Oh, your poor throat must be writhing!” He pointed a finger back to the professor and wagged it at him. “We will discuss further over supper, Maxwell. Believe me when I say that not only are my claims true, but they are greater than you can even imagine. In the meantime, I’ve prepared a stew that I think our young friend will find most agreeable. Please, gentlemen. Inside!”
+
+From there, we were led inside the house. I can speak with certainty, now that it is daylight, but at the time, I was perplexed with the house. Its interior was Victorian, with old gilded foil flaking off the molding. There were glass display cases showing knives, pieces of pottery, and papers so old, I thought a mere glance could turn them to dust. The ceiling was high in the main hall, and I saw an open drawing room off to the side with lovely quilted armchairs. The walls were lined with books, which set my mind spinning with excitement. There was also a strange towering device made of glass and metal in the center of the table, but I did not recognize what it was. 
+
+“This way, gentlemen,” he said, leading us to a door on the left. “I have much to discuss with you, and plenty of food for you to eat. Please!” 
+
+As we entered the dining room, he gestured us to a set of chairs nestled into a fine mahogany table. In the center of its face, resting on a linen runner, there was a large silver dome covering a platter. From a china cabinet behind us, he nabbed another plate and bowl, along with an extra spoon. He sat them down in front of me with care.
+
+“Gentlemen,” he said, gripping the top of the dome. “I give you a stew that will change your lives forever.” The professor laughed, but the doctor did not. I suppressed a cough, but Weber did not seem to notice as he turned to my mentor with a voracious eye. I half expected a reprimand, but instead:	“What ails you, Professor Maxwell?” The professor looked confused by the issue. “I say, what ails you? What causes you pain?”
+
+“I’m afraid I don’t understand, Dr. Weber.”
+
+“It is a simple enough question,” he said, brushing his mustache with a stubby hand. “Our young friend here, at the present, suffers from pains in the throat with no ready medicine for his condition. Therefore, I ask you, what is it that ails you?”
+
+“Nothing in particular, sir.” At that, he flashed me a look of concern and amusement, almost as if he’d been stopped in the street by a crazed beggar. 
+
+“We are all afflicted,” said the doctor. “Whether we admit it or not.”
+
+“But I have no wounds!” 
+
+There was a long stare between the two of them. The only movement in the room was the flickering of the candelabras and the trembling of a vase of tulips. Then, with an almost sinister flare, the doctor smiled. “Not all afflictions can be seen, and not all pains are wounds. Think of this as you eat, Herr Maxwell.”
+
+He removed the cover and revealed a large bowl of amber stew, full of carrots, corn, potatoes, and meat, which I believe was beef. He used a small ladle and filled our bowls, then exited the room briefly, leaving us alone with our food. Up close, it looked odd to me. Oil floated in the broth, and the vegetables looked as if they’d been submerged for a long while. It looked almost mushy when looking at it for too long. I looked up to see the professor's reaction, but to my alarm, he was staring at the bowl, wide-eyed and troubled. 
+
+Dr. Weber appeared with a  bottle of red wine and exclaimed, “Multipulciano!” He had already uncorked the bottle and was generously filling our glasses as we sat. “I fell in love with this wine while studying in Italy. I bought enough to last a lifetime- though I hope I outlive the wine!” He laughed heartily, but by himself. Once he sat down, he gestured for us to eat, and reluctantly, we did. 
+
+I am astonished at how nervous I was at the time. I was merely eating soup, and yet I recall my hand trembling as I raised the spoon to my lips. Those first few seconds of taste were nonexistent as I slurped down the broth, but my senses were reawakened as I took in a flavor that reminded me of a soup from my childhood. My mother made a soup that tasted exactly like this, down to the spices she’d thrown in sometimes at random, but always tasted lovely. 
+
+There was no doubt, despite my odd circumstances. This was my mother’s stew. How that could be, I had no idea, but it was. The only odd thing I found was that it was devoid of salt. For moments, I would think that there was a hint somewhere, but for some reason, I could tell there wasn’t. I looked up to ask the professor, expecting to interrupt his meal, but he was actually watching us. His bowl was as full as his smile, and he raised his eyebrows in delight as I asked him for a salt shaker. 
+
+“Apologies,” he said, raising both hands in surrender, “but I’m afraid I don’t keep salt in the house. Sodium doesn’t like me, you understand.”  
+
+I almost commented on how odd that was, and turned to see my professor's reaction, but he wasn’t listening. Instead, he was crying softly, his bearded face inches from the bowl. I saw a tear roll down his nose and drop into the soup.
+
+“Professor Maxwell,” I asked, “are you okay?” 
+
+“Of course he is,” answered the Doctor as he leaned back in his carved chair. “He’s simply healing. Aren’t you, sir?” He looked up with a red face of astonishment. His wet cheeks were wiped by the sleeve of his jacket, and his smile was like that of a terminally ill man being told he was cured. 
+
+“I don’t understand,” he said. “What is this doing to me?”
+
+“I’d like to know the same!” I interjected, “This stew tastes… I mean it’s just like the one-”
+
+“How is your throat, my young friend?” 
+
+It was then that I realized my throat was no longer in pain. I inhaled an incredulous breath and was shocked at the clarity of my throat. I couldn’t even muster a response before the Doctor interrupted again. 
+
+“I imagine your neck must feel better, too.” 
+
+He was right about that as well. Any pains and aches from travel I had held had vanished from my body. I was relaxed, somehow, and my muscles were invigorated. As I write this now, I find myself wondering:
+
+Did I ever mention the pain in my neck?
+
+If I did, I would have forgotten it. For now, I’ll chalk up Weber’s comment to nothing more than observation. Still….
+
+Without elaborating, the doctor stood to his feet and said, “My friends, please finish eating. I have a surprise in the drawing room for when you finish, but for now, eat. Eat, and be healed! There is still much to discuss before bed.”
+
+And with that, he left us, and we were left alone. I stared at my bowl for a second, trying to rationalize the flavors I tasted with what I saw, but was unsuccessful. I looked at Maxwell to find some kindred spirit, but it was useless. He was already pouring himself another bowl.
+
+\-
+
+I’m not entirely sure what to make of this, but I will update once I can get the next few entries transcribed. I got a message from my boss while I was writing the last part, and he told me I need to hurry up and get to the office. There’s been another animal found wrapped in those thorns, and he wants an article for tomorrow's issue. 
+
+I don’t know if this man is connected to the thorns or not, but I feel uneasy. It feels like something is paying attention to me, though what or to what extent, I don’t know. 
+
+I’ll try my best to get to the bottom of this. 
+
+Wish me luck. 
