@@ -1,0 +1,233 @@
+I work with cadavers.
+
+That sentence alone usually kills conversations at parties, which is fine, because I don’t really like talking to people anyway.
+
+I prep bodies at a funeral home in western Pennsylvania. Cosmetic restoration, dressing, cleaning, stitching if necessary. Making the dead look tolerable enough for the living to stand in the same room with them for a few hours.
+
+Most people think the worst part is the smell.
+
+It isn’t.
+
+The worst part is how quickly a body stops looking like a person.
+
+You notice it after a while. They become objects. Heavy things to move around. Waxwork with paperwork attached. You stop thinking “someone’s mother” and start thinking “Case 24-B.”
+
+I know how that sounds.
+
+I also know what I’m about to tell you sounds worse.
+
+I take a tooth from every body I work on.
+
+Not every body in the building. Just the ones I personally prep.
+
+I don’t know why I started. Morbid curiosity, maybe. Some compulsion. The first one came loose during an extraction for embalming prep and I pocketed it without thinking. Then another. Then another.
+
+After a few years I had a drawer full of them at home. Molars mostly. Yellowed old-man teeth. Tiny little pearls from children. Crowns. Silver fillings.
+
+I know it’s disgusting.
+
+I know it’s wrong.
+
+But after a while it felt less like stealing and more like… proof. Proof they existed. Proof I’d touched the border between living and dead and taken something back with me.  
+  
+I rationalized it to myself, and said it was harmless. I never sold them. Never showed anyone.
+
+They just sat in labeled sandwich bags in the bottom drawer of my desk at home.
+
+Until three days ago.
+
+Her name was Gloria Vane. Eighty-three years old. Died in hospice care. Natural causes.
+
+She looked peaceful. That’s important later.
+
+I was alone in prep room two, finishing cosmetics. Her dentures were out already, but among her handful of discolored, broken nubs of teeth, there was one real tooth still rooted in the upper gum, all by itself. Left canine.
+
+Perfect condition.
+
+I remember actually smiling when I saw it.  
+  
+With bated breath, I positioned my forceps around the tooth and gave it a tug.
+
+Nothing.
+
+Usually old teeth come free easily. The roots weaken. The gums have started to rot. Sometimes they practically fall out into your hand.
+
+This thing wouldn’t budge.
+
+I braced my foot against the table base and pulled harder.
+
+Still nothing.
+
+I remember muttering, “Come on, you old bitch,” under my breath. Then I twisted with all my strength.  
+  
+There was a sickening, wet sound, and I felt my stomach drop. The tooth didn’t come free.
+
+Her face did.
+
+As I stumbled backward holding the forceps, the entire upper portion of Gloria’s mouth and face tore open, revealing the meat and bone beneath. Her cheeks were ripped, her lip peeled back. Her left eye collapsed inward from the force.
+
+Her face looked like meat.
+
+I dropped the instrument and stared, wide-eyed and horrified, for what felt like an eternity.
+
+I’ve seen my fair share of “gross” cadavers in my day. Victims of motorcycle wrecks. Suicides. Burn victims. Folks whose bodies weren’t found until way too late.
+
+But this was different because I did it.
+
+For a few seconds I just stared at her. My ears were ringing so loudly I couldn’t hear anything else.
+
+Then survival instinct kicked in.
+
+I grabbed gauze. Tried pushing tissue back together. It was useless. The damage was catastrophic. There was no way to hide it for a viewing. There was no way to even hide it for long enough to get her in a gurney.
+
+I remember thinking: I’m going to go to jail over a tooth.
+
+My hands were shaking so badly I almost couldn’t open the door. Eventually, when I felt like I couldn’t stall myself any longer, I took the long, anxious trudge upstairs to get my supervisor, Martin.
+
+I simply told him there’d been “an accident during prep.” He sighed the exhausted sigh of a man who has worked around idiots for too many years and followed me downstairs.
+
+The whole walk back I rehearsed possible explanations in my head. Faulty instruments. Fragile tissue. Maybe I could say she fell…
+
+Then we entered prep room two.
+
+And Gloria Vane was lying there perfectly intact.
+
+Makeup untouched. Hair curled neatly. Hands folded over her stomach, the way they had been when I first entered the room.
+
+No torn cheek.
+
+No collapsed eye.
+
+Nothing.
+
+I stopped walking, frozen in panic and confusion.
+
+Martin just looked at me blankly and frowned. “What accident?”
+
+I just stared at the body, unsure what to say. I’m sure I looked visibly flustered as I looked Gloria up and down.
+
+“I…” My mouth had gone dry. “I thought I damaged the tissue around the mouth.”
+
+Martin glanced at her for maybe two seconds.
+
+“Seems fine to me.” He sounded annoyed more than anything. “Jesus Christ, don’t scare me like that.”
+
+Then he left.
+
+I stood there for another full minute after the door shut, bewildered.
+
+I checked her face. I checked her up and down, gave her the most thorough visual and external inspection in my career.  
+  
+She was all there. Whole. Undisturbed.  
+  
+I started to think I was going crazy. Maybe I imagined the injury somehow. Stress hallucination. A product of years of guilt over the teeth I’d pilfered.  
+  
+I was honestly starting to calm down… until I checked her mouth.
+
+The dentures, which I had removed earlier, were back in place. But when I removed them, there it was. Her left canine. Exactly where it should have been.
+
+I ran my hand along the length of my waist, and my stomach flipped.
+
+Because I still had the tooth in my scrub pocket.
+
+I took it out and stared at it for a long time.
+
+One root. Slight curve near the tip. Tiny brown discoloration at the base.
+
+Real.
+
+I held it up next to the one in her mouth. It was indistinguishable.  
+  
+Two identical teeth, one in my hand, one still here in Gloria’s gums.
+
+It didn’t make any sense. I couldn’t think of a single plausible explanation. I stayed there for the rest of my shift, not even getting to the other cadaver I was supposed to work on today.
+
+At closing time, everybody else left. I stayed behind. Said I had some paperwork to attend to before I went home.
+
+I wish to God I hadn’t.  
+  
+When I was confident I was alone (well…  alone as far as the living are concerned), I went back to prep room two, wheeled Gloria back out onto the table, and locked the door.
+
+Then I took pliers from the instrument tray. The big, heavy-duty ones.
+
+I remember actually apologizing to her for what I was about to do. It felt wrong, even by my standards. But I had to know.
+
+So I removed every single tooth in her mouth.
+
+This time they came out easily. One after another after another. She only had nine left, but I took every one. Wet clicks. Cracking roots. Bloodless gums.
+
+I put them all into a biohazard bag, for future labeling. I kept the original one I took separate from the rest…    just to be sure.  
+  
+And then, I stood there for a long time, grimacing, because there was something else I wanted to do. Well, wanted is a strong word. There is something else I felt I needed to do. But the part of me that was grateful to have not lost my job earlier hesitated…   and so did the part of me that still felt remorse.                                
+
+But because some sick, more authoritative part of me needed certainty…
+
+…I smashed her face in with the thickest metal rod in my embalming kit.
+
+Once. Twice. Three times.
+
+Bone gave way like damp plaster. Her jaw detached. One eyeball slid halfway out of the socket.
+
+When I finished, I was breathing hard. She didn’t even look human anymore. Just a wet, messy pile of rotting meat. The room smelled like copper and formaldehyde.  
+  
+In that moment, even I felt guilty.
+
+I left.
+
+I sat in my car for twenty minutes, trying not to vomit, and panicking about the possibility that I had just mutilated a corpse that was in my charge…    and could lose more than my job over it.
+
+But eventually, shaking, nervous, and scared, I went back downstairs. Back to prep room two, back to Gloria Vane.
+
+The body was restored. Again.
+
+Not “less damaged.”
+
+Not “different.”
+
+Restored.
+
+Perfectly.
+
+The gums were full. Every tooth was back in place (beneath her dentures). Exactly the way they looked when I first saw them earlier today.
+
+I backed into the wall so hard a tray rattled beside me.
+
+Because sitting in my pocket, still warm from my hand—
+
+was the bag containing all nine of Gloria’s teeth…    and an additional, original copy of her left canine.
+
+Two sets of teeth. Three copies, now, of her left canine.
+
+I took one of her teeth from the bag and held it next to the matching one in her mouth.
+
+Same chip on the edge. Same discoloration near the root.
+
+Identical.
+
+I think that’s the moment I stopped believing this was a hallucination. I started believing something much worse.
+
+Something…    was rebuilding her. Correcting her. Replacing what was taken. 
+
+I should have told someone. Instead, I stole more.
+
+I needed to know the rules.
+
+Yesterday, I cut off three of her fingers.
+
+This morning she had them back.
+
+And now there are three extra fingers wrapped in gauze in my refrigerator at home.
+
+I can’t stop thinking about the implications.
+
+Matter from nowhere. Perfect duplication. Organic biomass generated out of nothing.  
+  
+They’re taking her away, in three hours. For her funeral. Standard procedure, by the books. Unremarkable.  
+  
+Part of me feels like I need to tell someone…    to stop them from…   burying her. I don’t know who you call for something like this. A scientist? An exorcist?  
+  
+But there’s no way to explain it that doesn’t make me sound crazy, or guilty, or worse. And no credible way for me to stop them from taking her to her own damn funeral. That’s what they brought her here for, for Christ’s sake.  
+  
+But I know what I saw. I know it wasn’t just in my head.  
+  
+Because I still have the damn teeth.
