@@ -1,0 +1,213 @@
+My sister steals my clothes.
+
+That sentence alone makes it sound normal. Relatable. Sitcom behavior. Harmless younger-sibling nonsense.
+
+Let me tell you, it’s not *harmless*.
+
+It started with socks.  
+Not pairs. Just a *single* sock. 
+
+At first I assumed the dryer was eating them. But then I started finding them in the strangest of all places.
+
+Inside cereal boxes.  
+Hanging from trees in backyard.  
+Tucked nearly inside the printer.
+
+Hence, I confronted my sister.  
+She stared at me with utmost sincerity and said “they talk too much,  you know”  
+Then, after a moment of consideration, she added:  
+“mostly after midnight.”
+
+My parents, well, ofcourse, they did nothing. My sister was the favorite child.
+
+“Your sister is a once in a generation kind of creative,” my mom would say with a dazed look, which is the kind of thing people say shortly before appearing in documentaries.
+
+Soon enough, my hoodies started disappearing.Every time I asked my sister  to stop taking my clothes, she’d deny it while visibly wearing my clothes.
+
+“That’s my sweatshirt.” 
+
+She’d look down at the sweatshirt, and smile coyly, “Wow. We really do have similar tastes.”
+
+“It literally has my team number on it.”  
+“Well, that’s crazy.”
+
+I tried locking my door.The next morning the lock was *gone*.The screws sat neatly stacked on my desk beside a purple note that read:
+
+“*Sisterhood > any lock (in the whole wide world)*  
+*P.S. your denim skirt is so cute xoxo*”
+
+In bright, pink,glitter gel pen.
+
+Things escalated after Grandma’s funeral.  
+Grandma left me her antique vanity mirror. She had held my hand quiveringly, continuously caressing it, as if to imprint my existence in herself.
+
+***“You’re the only one who looks normal in reflections.”***
+
+At the time I had laughed, but I do not laugh anymore.
+
+My sister, unsurprisingly, became obsessed with the mirror.Every night I’d catch her standing in front of it wearing specific *versions* of me. 
+
+The hoodie I wore when I was *12*.  
+The sweater my Grandma knit last Christmas.Pajamas I had worn at a sleepover once. 
+
+It stopped feeling like she was “borrowing” clothes. It felt like she was *studying* timelines.
+
+One night I abruptly woke up at 2AM.   
+I found her in my room wearing my pajamas, and my sweatshirt, and my retainer.
+
+“You don’t even HAVE braces,” I yelled .
+
+Rubbing her tongue over the retainer, she said:  
+“I like the pressure.”
+
+Then as if realizing something, she giggled.  
+“It still remembers the shape of your teeth, you know?”  
+Then she smiled.
+
+Not like, “*she grinned widely.*”I mean her mouth physically widened farther than a human autonomy could allow , something from a Japanese urban legend.
+
+I heard something in her jaw click out of place.I screamed, but she screamed even louder.
+
+My parents burst into the room.  
+And there was *my dear sister*, perfectly normal, crying because apparently, I had “accused her of unhinging her jaw like a snake”. 
+
+From then on,I’d hear scratching in my closet at night. I’d open it and find *her*  crouched inside wearing six of my shirts at once.  
+**SIX OF THEM.**
+
+Some of them were shirts I thought I’d thrown out years ago. 
+
+This continued.  
+I’d call my parents, and suddenly *she* just *“had a nightmare, felt scared, and wanted to sleep with her sister”* or *“she had just sleepwalked.”*
+
+One afternoon, I came home and every piece of clothing I owned was hanging from the ceiling. No, not with hangers, but with teeth. Tiny human teeth tied together with thread. I stared at it dumbstruck, for around 10 minutes, before *she* walked in casually eating a banana.
+
+“Oh,” *she* said nonchalantly, “you came .”
+
+“*What on earth is this?*.”
+
+“What? They were in the box.” *she* exclaimed rolling her eyes
+
+“What BOX?”
+
+“The box in the backyard.”
+
+I have spent my whole life in this house, and I don’t recall there ever being a box.  
+I checked that night.  
+There was absolutely a box in the backyard.
+
+Inside were dozens of baby teeth, every missing sock I’d ever owned, old family photographs, and a handwritten notebook labeled:
+
+**WAYS TO** **\[****incomprehensible writing****\]** **YOUR SIBLING**
+
+**Chapter 1** was mostly shapes & diagrams of human body.   
+**Chapter 2** made me throw up.  
+One page was just a list of things I’d forgotten about myself.
+
+The mole near my knee.  
+The way I chew hoodie strings when anxious. Which floorboards I avoid at night( I didn’t even know that)  
+Or the fact, I stopped singing to myself after Grandma died.
+
+I turnt the page over,
+
+***A PERSON IS ONLY A PATTERN REPEATED LONG ENOUGH TO FEEL REAL.***
+
+Underneath it said:  
+***CLOTHES HELP THE PATTERN STICK.***
+
+Of course, it was all with a pink, shiny,  glitter pen.
+
+I brought the notebook to my parents.  
+Mom flipped through it quietly.  
+Dad adjusted his glasses, like he does, when avoiding confrontations.
+
+Then Mom sighed and said, “You know *her*, she just processes emotions differently.”
+
+“SHE HAS A SECTION CALLED *“SKIN TAILORING*””I yelled, exasperated.
+
+Dad nodded thoughtfully.  
+“That does sound arts-and-crafty.”
+
+I began sleeping with a chair against my door.
+
+Did NOT matter.
+
+Because somehow *she* kept getting inside.  
+Sometimes I’d wake up and *she* would just be standing over me wearing my hoodie.
+
+Once, *she* gently whispered,   
+“There you go, your breathing pattern has changed. I fixed it.” 
+
+And I realized my room smelled faintly like Grandma’s *lavender perfume*.  
+The one they had sprayed on her scarf before the funeral.  
+I did not ask follow-up questions because I enjoy being alive.
+
+The horrifying part happened last Thursday.
+
+Everyone was sent home from school early because the vice principal said someone had reported “*a disturbing impersonator situation*”, and the school was going to conduct a “*thorough investigation*”.
+
+I entered the house.  
+Mom screamed.  
+Dad dropped a plate.  
+And standing in the kitchen-
+
+was *me*.
+
+*It was me.*
+
+*My face. My hair. My clothes.*
+
+My exact nervous habit of chewing my hoodie strings.
+
+The other me looked equally shocked.
+
+Then *she* walked in wearing Mom’s cardigan and holding a smoothie.
+
+“Oh good,” *she* said. “The whole family’s here”
+
+“What the hell is THAT?” I shouted, pointing at the copy.
+
+*She* frowned.
+
+“Rude, you know. She worked really hard.”
+
+The copy started crying.
+
+“I don’t want to go to school again”
+
+I looked at my parents.
+
+My mother looked exhausted.  
+Dad cleared his throat, and quietly said,
+
+“There are easier hobbies.”
+
+The copy kept insisting she was the real *me*.  
+Which would’ve been more convincing if she hadn’t referred to “*ketchup*” as “*Tomato smoothie*.”
+
+Still, my parents made us both answer personal questions.  
+Favorite movie.  
+Middle name.  
+Allergies.  
+Childhood memories.  
+The copy wasn’t just right, she was *very, very*, specific. 
+
+She remembered the name of my 3rd-grade crush.She also remembered the song playing in the car the night Grandma forgot my name for the first time .She remembered things I hadn’t thought about in years.Every single answer made my stomach drop, nausea was hitting my throat.
+
+At some point I started getting genuinely nervous.
+
+Then *she* clapped *her* hands excitedly.  
+“Okay,” *she* said. “Now, wear the same outfits.”  
+“No.”  
+“Please? That would be hilarious.”
+
+The copy looked at me, and I looked at the copy.And for one terrible second I noticed she was wearing my favorite sweater better than I did.
+
+Cleaner, somehow.  
+Like someone had ironed all the damage out of me. She looked more me, than I ever did.
+
+Then the copy smiled.  
+Her mouth stretched too wide, exactly like *her’s* had.
+
+And suddenly I understood something awful.Maybe *she* hadn’t been trying to become me.Maybe that’s why Grandma said only I, looked *normal* in reflections.
+
+*Because she’d met the original.*
