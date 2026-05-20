@@ -1,7 +1,7 @@
 ([Part 1](https://www.reddit.com/r/nosleep/comments/1rq8e7y/ive_bought_an_rv_that_can_access_unknown/))([Part 2](https://www.reddit.com/r/nosleep/comments/1rtrfnn/ive_bought_an_rv_that_can_access_unknown/))([Part 3](https://www.reddit.com/r/nosleep/comments/1s71hc9/ive_bought_an_rv_that_can_access_unknown/))([Part 4](https://www.reddit.com/r/nosleep/comments/1sbmzwg/ive_bought_an_rv_that_can_access_unknown/))([Part 5](https://www.reddit.com/r/nosleep/comments/1sfae6h/ive_bought_an_rv_that_can_access_unknown/))
 
-(TW: Animal Death)  
-  
+(TW: Animal Death)
+
 Whenever I mentioned The Man With Many Faces, Sod was immediately cagey. At the very mention of his title, she didn’t want to speak of him, now that I’d seen him in the flesh. Being told of his existence has seemed to bring Sod great discomfort. I pressed for questions on who or what he is, but she didn’t answer. Eventually, she did answer a question I had.
 
 “How did you save me?”
@@ -261,3 +261,5 @@ I turned to the front seat of the Jayco and closed the curtain. Jayco wasn't qui
 I pulled out of the parking lot before people started asking too many questions, especially when they found out I didn’t pay the entrance fee. I didn’t know what I was going to do when I got there, but I knew where I wanted to go. A place full of degeneracy, gambling, and a big fucking ball. Also known as the greatest city on Earth.
 
 Las Vegas.
+
+([Part 7](https://www.reddit.com/r/nosleep/comments/1t5r9dt/ive_bought_an_rv_that_can_access_unknown/))

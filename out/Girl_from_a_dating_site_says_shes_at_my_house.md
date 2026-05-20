@@ -1,0 +1,41 @@
+This all started when my girlfriend broke up with me. I caught her texting my best friend inappropriately and she responded by leaving. When I confronted my friend he apologized and said “she just thinks you’re inexperienced in bed - that’s all.”
+
+She wasn’t wrong. I hadn’t slept with any women before her and she had been with older guys. I thought I had improved but perhaps I had miscalculated. It was a brutal reason to lose someone I loved. 
+
+I was in a dark place so I opened my laptop.
+
+I don’t even remember what I searched because I remember the results so vividly. An endless list of links to video chat with real girls. I started clicking around until I found a website that stood out.
+
+Meatchat - chat with girls, meet the ones you like
+
+This might be my chance to get experience with someone new without the threat of having my heart broken. I needed to get my mind off my ex and my best friend so I signed up against my better judgement. 
+
+I browsed for a little bit and I was pleasantly surprised when I noticed every girl was my exact type. There were no filters on the site. Just an endless stream of thumbnails featuring my dream girl. I looked around until I found someone that matched my exact type and I sent her a message. 
+
+*“Hey Sarah! What are you up to tonight”* 
+
+*“So bored! Looking for something to do..”*
+
+I was excited already. I asked if she wanted to go on video chat and she excitedly replied that she did. My excitement turned to nervousness as I positioned my cam in front of my face to meet this attractive girl. 
+
+When I entered the video chat, I was confused. Sarah’s feed was a mirror image of the room behind me but I was not pictured. The room was empty. 
+
+Sarah’s feed went fuzzy for a moment and suddenly the beautiful girl from the thumbnail image appeared. I quickly forgot the strange introduction and began getting to known Sarah. We talked for hours. We had a lot in common and laughed at each others jokes. Just as I was going to ask if she would like to meet, Sarah’s feed snapped back to the same feed of my room from earlier.
+
+This time there was something at the end of the hallway.
+
+I whipped around in my chair and looked out my bedroom door down the hallways but there was nothing there. When I turned back I saw Sarah smiling back at me.
+
+“Oh my god! You scared me!” I laughed as she giggled. 
+
+“I was thinking maybe we could meet up. I really like you” I told her with all the confidence I could muster. 
+
+“I’m already there” she said. 
+
+“What do you mean-“
+
+The feed cut back to my bedroom and the thing in the hallway was much bigger than it appeared last time. It was black except for its seemingly millions of teeth and sunken eyes. 
+
+I signed out of the chat. I turned around slowly but there was no monster in the hallway. 
+
+Should I leave the house? Am I safe here?
