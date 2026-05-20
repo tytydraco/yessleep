@@ -432,7 +432,7 @@ That night Mom was cooking dinner while I watched TV. Mom cooked chicken and ste
 The next morning, Mom made scrambled eggs and bacon.
 We ate breakfast in silence, pretending the chanting from the night before hadn’t happened.
 
-As we stayed outside, just the two of us, I tried not to think about the woods.
+As we step outside, just the two of us, I tried not to think about the woods.
 
 Then teenage girl walked up to our house.
 She wore a pink shirt red jacket and shorts and she told us her name is Maria
