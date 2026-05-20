@@ -1,0 +1,253 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1tg8i1x/never_play_with_a_ouija_board_at_the_abandoned/)
+
+Majority rules. I saw the betrayal in Mike’s eyes as I heard Sam shuffling the bag to the side, setting down his flashlight and setting up the board.
+
+"So!” Sam started us. “There are three rules to Ouija. Number one, never play alone. Check. Number two, never play at home or a cemetery. Check. Number three, always say ‘Goodbye…’ We'll get to that. Who wants to be the voice of the group?"
+
+Mike would never.
+
+"I'll do it." I was actually pretty excited.
+
+We all sat together, on our knees or criss-cross, on the cold, dusty concrete of the promenade, hands on the planchette as we all shared our own looks at one another. Sam was excited, I was curious, Mike was nervous. I started us off.
+
+"Hello? Is there anybody here with us tonight?"
+
+Silence. No movement.
+
+"Spirits?"
+
+"Come on, Emma." Mike muttered, frustrated.
+
+"Spirits?" I announced, "Are you with us?"
+
+I focused all my attention on the planchette, and the three pairs of hands that covered it on all sides, save for the glass eye in the middle space between G and T. I realized then just how insanely cold the air was around us. It was the middle of the night in May, but from the top of my head, to the back of my neck, to my shoulders, to my chest, all the way down my arms felt like the sensation of taking a cold shower, but *dry*. And incredibly still.
+
+Sam: "Are you cold?"
+
+"You don't feel that?"
+
+I felt the chill shiver all the way down to the tips of my fingers, as the planchette started to move. I swear to God, it wasn't me. I know everyone says that about Ouija boards, but I know what I felt. I still remember how stiff my arms were, I didn't move. Not by myself. It's like the air itself was flexing around me, tightening like a sleeve or a cold pair of gloves, lying flat on top of my hands, guiding them to the S.
+
+Sam: “Is that you?”
+
+*H-O-U-L-*
+
+Mike: "No!"
+
+*D-N-T-B-E-*
+
+Sam: "Well it's not me."
+
+*H-E-R-E*
+
+It stopped.
+
+Mike: "Em?"
+
+"'Shouldn't be here…’”
+
+Mike looked at me with the widest, whitest eyes. "That's not funny."
+
+Sam: "Ask who it is. Is it Eddie or Dan?"
+
+Mike: "Sam, I don't like this.”
+
+Sam: "I’m not moving it. If this is real, it’s real. Em, ask who it is."
+
+My throat was so dry.
+
+"Are we speaking to... Eddie? Eddie M-- McK -- ?"
+
+Sam: "*McKinnon*."
+
+"Eddie McKinnon? Are you here with us?"
+
+Slowly, the planchette moved under our hands to the top left corner of the board.
+
+*YES*
+
+Mike: "Guys…? Can we please go?"
+
+Sam: "Ask how he died."
+
+I couldn't move. "Eddie? How did you die?"
+
+Four short scrapes along the second line of letters.
+
+*T-O-N-Y*
+
+Mike: "Sam. I'm asking you to stop."
+
+Sam: "It's seriously not me, man."
+
+Mike: "Emma?"
+
+"It's moving again..."
+
+*Q-U-I-E-T*
+
+I wanted to let go of the planchette, but somehow I just couldn't. It was still moving anyway, just slowly. I could feel the tentative three-way balance between us fall utterly apart when Mike let go, standing straight up.
+
+*H-E-L-L*
+
+“‘Quiet hell…?’” I repeated out loud, looking as my hands slowly kept moving to new letters.
+
+*H…*
+
+"No.” Mike violently shot up, shaking his head, taking his hands off the board to run through his hair. “Fuck this. Fuck you! This isn't funny, Sam."
+
+*E…*
+
+Sam: "Mike, you're not supposed to let go!"
+
+Mike: "You're the one who's doing it, it's bullshit! Let's go."
+
+*A…*
+
+Sam: "I swear it's not me."
+
+*R*
+
+Mike: "Then let go!"
+
+Sam: "We'll lose the connection!"
+
+That's when I realized it stopped.
+
+"'Quiet hell hear...?'"
+
+Sam: "'Quiet *he'll* hear...'"
+
+"Who's he talking about?"
+
+Mike: "Emma!! Let's go!"
+
+"*Mike, shh*!"
+
+Sam: "*Shut up, man*! You don't know what's out there."
+
+Mike: "Oh like you care. You've had your fun, you've dragged her into your game… We're not wanted here. Let's go!"
+
+The pull of my fingers to the planchette and board never felt more pronounced now, more forceful.
+
+"It's moving again."
+
+"Oh Jesus..." Mike walked just a few paces off.
+
+The cold wind whistled, picking up around us, holding tighter.
+
+*Q-U-I-E-T-S-T-O-P-*
+
+Sam and I both read along the words as the planchette shifted faster, more violently with each and every letter across the board.
+
+*H-E-H-E-A-R-S-Y-O-U-*
+
+"Sam..." the frightened word escaped my mouth as something kept pulling my hands.
+
+*S-T-O-P-N-O-W-G-O-*
+
+I looked into Sam's eyes and saw the same fear I felt in my soul.
+
+"I'm letting go now."
+
+*G-O-N-O-W-R-U-N-R-U-N-*
+
+Frantic, his eyes stared into mine, his head nodding almost imperceptibly as our hands moved on their own, frozen to the frantic planchette.
+
+*R-U-N-R-U-N-R-U-N-*
+
+Sam: "Together. On three. One…”
+
+"Do you guys hear that?" Mike's voice trailed off.
+
+*R-U-N-R-U-N-*
+
+Sam: “Two…”
+
+*R-U-N-R-U-*
+
+"Three!" I screamed.
+
+In an instant, we both raised our hands violently up from the board, the planchette flying straight up and down before clattering onto the ground, ceasing its movement. It felt as if the air itself was a rubber band pulled until it snapped, releasing the tension around us as we stared at each other. My hands were practically vibrating as the numbing pain in them receded. I realized I was holding my breath and I gasped, running a hand through my hair as Sam shakily asked, "You okay?"
+
+"I -- I think so," I patted myself as if to feel I was still there, "Are you?"
+
+Sam nodded, eyes wandering and fixing curiously at something over my shoulder.
+
+"Mike?" he started, raising to one knee.
+
+I turned to see Michael, standing ramrod straight behind us, tall back turned away, facing up toward the bright full moon. Silent as everything around him. Still as the statue. Sam picked up his phone light and started walking forward, and all I could do was stare under the light of the headlamp. I could see the pinstripes on the back of Mike's navy jacket, and I realized just how still he really was. Even his pale hands at his sides were stiff as boards, before they started shaking.
+
+"Mike?" Sam asked, hand reaching out to his shoulder, "You okay?"
+
+I could hear his shallow breaths as his head cocked to the side, fingers flicking at his sides. I remember, specifically, in that moment thinking about how he sounded. How the one word, the only word, that came to mind was "hollow."
+
+Sam touched his shoulder. Mike turned with his body and his expressionless face, his wild, front-facing eyes, contorted into a twisted scowl, showing all his teeth. His light breaths turned to a low hiss, and then a high, ear-piercing shriek as he swung an open palm hard into the side of Sam's head. He fell like a rock straight down while Mike dropped to his knees, grabbing and throwing him back against the concrete, screaming, wailing on him like a maniac.
+
+Mike was taller, but Sam was *bigger*. I'd seen him get into so many fights, he was always, always stronger, but here it's like there was nothing he could do. On his back, forced to the ground, he tried grappling, hitting back, getting away, but Mike's long arms batted away Sam's hands effortlessly as he just kept punching. His arms were loose, swinging straight up and down, slamming one at a time with unbelievable force. And screaming, screaming like nothing I'd ever heard before. Huffing, screeching, louder and louder every time his half-open hands smashed against Sam's head. I broke out of my frozen trance, running and shouting.
+
+"Mike! What the fuck?!"
+
+No sooner than I got within arm's distance did Mike suddenly spin around, eyes and teeth catching the light of my headlamp -- one wide swing of his arm clashing with my face. I fell back to the concrete. I saw stars explode across my vision and felt a hard, white-hot stinging pain at the bridge of my nose. I saw my blood dripping onto board just a few inches from my head as the cracked light flickered on and off, and heard Mike's howling cry as he went back to Sam.
+
+Hard thuds of knuckles, pained and curdled gasps, the beginning sounds of pleading snuffed out by more sickening punching. And *hooting*. That's what it was. With every shattering strike that Mike made with the full motion of his body, he yowled with all the air in his lungs. He didn't stop. Not til the gasping and the panicked breaths stopped. The hard cracks of Mike's fists on Sam's face started to give purchase, and it started to sound like smashing fruit. Then it was the sound of panting, light huffs, wet chewing, and smacking lips.
+
+All I could see in the low light was the wideness of Mike's back, hunching over Sam's body, hidden under the folds of Mike's jacket. His shoulders moved up and down with his haggard breaths, he kept his hunchback. He raised his head, turning his body toward me, his knees tucked into his chest. The light flickered on, and he looked at me with black, empty, soulless eyes, mouth and chin and throat dripping with Sam's blood. As soon as his eyes met mine, his mouth stretched thin across his face, showing his blood-stained teeth. It looked like a dentist was using a tool to pull his lips apart.
+
+I pushed up from the ground and ran hard as I could, headlong into the dark. I could hear Mike's fists pounding the ground as he howled just as loud as before, chasing me. I only sprinted faster when the light of the headband occasionally flickered back to life, showing the uneven walkways ahead of me. Thoughts running as fast as I was, I turned it off begging myself to remember the way out by distance. The light gave me away.
+
+The moon peeked over the vine-coated fence and I ran past the splintered silhouettes of the exhibits. Past the downturned fence, I knew I was going in the right direction. Behind me, I heard the shuffling rhythm of Mike's hands and feet. The wind and the light ringing in my ears eventually drowned out the sounds of panting, hooting, ripping cloth. I didn't slow down. Barefoot in the dark, running on concrete and tripping over weeds and roots, I didn't slow down. My only thought was getting out. Get to the car – run as fast as you can to the car. I swore I remember Sam said something about his dad’s gun in the glovebox; if I could get to that… but I’d never even held a gun before. Don’t even know where the safety is. If it’s there at all. That’s when I remembered it was Sam who had the keys.
+
+I saw the branches of a tree overhead and I hid on the other side of the trunk. Caught my breath, covered my mouth, stood absolutely still, and listened. Howls in the distance. Heard him getting closer and stopped hearing the scrapes of his shoes against the pavement. Stopped hearing the sound of pavement at all, even as his high-pitched screeches echoed louder. What I heard was rustling, not ten feet from where I hid.
+
+Slowly, I craned my head to see him. A dark silhouette, naked against the pale moon, crawling with poise along the top of the fence on his hands and feet. Low, curious whimpers as he slowly went along, squatting over the side, long arms hanging down. His body leaned from side to side wherever he moved his head to look.
+
+I moved back, breathing deep and slow, quiet as I could. I had an idea. A Hail Mary. With a shaky hand, I took off the headlamp, wrapping the strap tight around the small heft in my hand. Hand covering the light, I hit the button, seeing the orange glow through my skin. I stepped out, arm back, aiming for the moon.
+
+Saw him lean forward in the dark, almost like he saw me, but as the light flashed and spiraled over his head, his entire body followed its arc, hooting before jumping down the far side. Echoes helped me to gauge where he was and I ran back to the "Great Apes" promenade, cursing myself under my breath all the way. I almost tripped under one of his discarded shoes. Past the giraffe fence, under the archway. Under the moonlight, I could see the planchette, the board, and Sam lying limp next to it.
+
+Couldn't make out his face. Part of me knew I didn't want to. Patted his shirt pockets, damp and thick with his blood. It was on the ground too, more than I could see; I felt a lukewarm puddle at my knees. Pockets were slick shut and I had to pry them open again, only to find them empty. Felt my way down his body to his sides. No keys. Fuck, had he lost them? How could I get back without them? If they weren’t here, what could I do?
+
+Started breathing heavy, racking my brain with the question of where, and I realized just how much I couldn't see, how much coming back was a mistake. If Mike got tired of the light and started looking for me again… I imagined him stalking me in the dark. Getting closer with every pocket that turned out empty. Thought I could even hear his huffing breaths behind me, but all I saw was black stillness. Turned Sam on his side and reached in his only back pocket.
+
+My heart leapt at the sound of clinking metal and the teeth of the keys scraping against my fingers. I grabbed them, clinging them to my chest. I couldn't really see him, hear him, even smell him, but before I left, I touched his shoulder. Even if he couldn’t hear me, I had to say something.
+
+"I can't carry you. I'm sorry, I can't carry you... I have to go, I'm so sorry, I have to go... I'll come back. I promise I'll come back for you..."
+
+That final stretch was the longest few minutes of my life. Running like never before. No light ahead but the faint glow of the moon to tell what blended shapes were the fence, the other enclosures, or the trees in between. Kept running with no regard for the sound of my footsteps or my heaving breaths. Clutched the keys for dear life and swore to God there was nothing that would make me stop or slow til I found the way out. The fact that I'd long stopped hearing the shambling sounds of Mike, still in here somewhere, only lit a fire under my feet.
+
+Felt cloth under one running step that almost made me stumble. Mike's jacket. Kept running. Saw the dim, shiny outline of the statue covered in leaves and kept running. Food court, kids' playground, gift shop – there was the exit! Kept running. I'd forgotten just how dark and enclosed the inside was. Ran as straight as I could, jumping over molded toys and toward the slight blue outline of the double doors. Outside.
+
+I threw open the door and sprinted into the unkempt grass. I could see the outline of the car – glinting windows, the grill that looked like a bulldog's face. Didn't slow down. I remember clicking the key fob to see the headlights blink twice, when I felt a hard, sharp crack on the top of my head. The next moment, I was sideways in the grass, stinging pain rocketing through my skull. My hand covered the painful spot, warm and wet, my vision blurred even in the dark. Felt like the hardest punch I'd ever felt in my life but there was no one there.
+
+Then I heard Mike's excited shrieking. Rhythmic, loud, from a high place. My eyes adjusted to see his sharp silhouette hopping up and down, rattling the top of the fence, before he leapt down, arms raised, into the grass. I let go of my head, clutching fist-fulls of grass and pulling myself upright. My hand slipped. I got up and heard the heavy breaths and beating of the ground get closer. Felt like my head was sizzling as I fell hard into the side of a cold metal slab. The car door. Fumbled it open and crawled headfirst over the clutter of the backseat. My hand pulled it closed and I pushed myself away with my foot.
+
+Could still hear the screaming. Muffled on the outside. Windshield cracked and there was tumbling on the roof. A heavy knocking, beating, pounding right over my head. He screamed louder. The ceiling started denting downward. I grabbed the shoulders of the passenger seat, pulled myself forward with all my strength. Head blaring as thick beads of black sweat fell into my eyes. I rolled into the seat, legs hanging over the console. Heard glass breaking and the roars getting louder as he ran on all fours to the driver's side. Hands kept slipping as I opened the glove box, and I felt the car start rocking. Heard the unnatural strain of metal against metal, screeching as it broke apart.
+
+I looked up to see the wide frame of Mike's chest cover the window. Both arms broke the door clean off its hinges, shattering it. Paper cut my fingers while I reached in blind for Sam’s dad’s gun and watched Mike throw the door off to the side before he started crawling on his hairy arms towards me.
+
+I aimed the gun. Clicked a switch on the side that I guessed was the safety. And I shot him.
+
+Blinding flash, deafening ring in my ear, and a bloom of bright red blood that streamed from his chest. It only made him angry. He roared, teeth bared, reaching for me. So I shot again. And again. Saw his face in flashes from the gun; eyes bloodshot, lips and teeth dripping red, jaws wide in an underbite. I kept firing until he stopped, until *it* stopped. Head throbbing, incessant ringing in my ears, I blinked away the brightness to see Mike pulling himself away, staggering his way out of the car. He was whimpering, arms covering his chest as he walked away. And I hoped he was dead.
+
+That was my last clear memory of that night. I'd passed out once or twice in my life, it kinda felt like falling asleep; gradual, a struggle to stay lucid, then nothing. This wasn't like that at all. One moment I was there, and then it was all black. It was lost time. Apparently it was a rock that he'd cracked my skull with. I was concussed and unconscious for days and woke up in a hospital room. Police picked me up the morning after, a few miles from the zoo, where the Bulldog had apparently rolled into a ditch.
+
+They found me, Daisy Buchanan, comatose at the wheel, broken nose, hole in my head, and a gun at my feet.
+
+They found Mike in the trunk. Naked, shot to death. It still looked like Mike.
+
+They found Sam... later.
+
+I could only imagine what a mess my situation looked like. Even if I was 100% certain of my sanity, there were no words. What possible combination of words exists for me to explain any of it in any way? It was insanity. Real, pure insanity. Sometimes even that's easier to wrap my head around. The meds certainly helped.
+
+I'd have given anything in the world to be at their funerals, but I was still inpatient. And under suspicion. It was weeks before even my parents could see me. But even they looked at me all different now. I get it.
+
+There was never a point in telling my side. I knew no one would believe me. I don't like what all the experts and professionals pretend actually happened, but there was nothing I could do about that from the funny farm. Even my psychiatrist doesn't really believe me. Why would she? She's rational. Because she never saw what I saw. She does fall asleep to the sounds of Mike’s monkey chants. And she doesn’t wake up to see him standing at the foot of my bed, covered in hair. But why would she?
+
+She says my mind is trying to protect itself from something else. Something I'm too afraid to look at in the eye. Maybe it is. She says it doesn't matter that I didn't say goodbye on the board. Maybe it doesn't... I can't honestly say that I know anymore. None of it feels real looking back. But if there's one thing I do know with absolutely certainty, it's this:
+
+Never ever go anywhere near that town. If you find yourself there, at the gates, do what we didn't. Save yourself. Save your friends. And run.
+
+Run as far away as you can.
+
+And for the love of all that's good in the world, never play with a Ouija board at that abandoned zoo.
