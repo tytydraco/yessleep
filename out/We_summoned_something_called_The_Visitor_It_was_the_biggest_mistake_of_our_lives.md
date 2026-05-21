@@ -255,7 +255,7 @@ It spoke again. 
 
 The words reverberated in my ear as if played on loop.
 
-Immediately, I pulled out my wallet. Something of *financial weight? Sentimental weight?* Bank cards and identification were all I could find. *My hands—*rings on them but none of them particularly costly or important—
+Immediately, I pulled out my wallet. Something of *financial weight? Sentimental weight?* Bank cards and identification were all I could find. \*My hands—\*rings on them but none of them particularly costly or important—
 
 My eyes flicked to Mikey—not one for self-preservation it seemed—comically doing what seemed like a pitch.
 
@@ -396,7 +396,7 @@ We used the reprieve we’d been granted.
 
 “Or like, maybe ways to *kill it*?” Liz.
 
-“No, it… no it definitely didn’t have that, but more importantly you *shouldn’t assume it can’t hear us—*we don’t know what the fuck we’re dealing with right now!” Me. 
+“No, it… no it definitely didn’t have that, but more importantly you \*shouldn’t assume it can’t hear us—\*we don’t know what the fuck we’re dealing with right now!” Me. 
 
 “Okay, so what, we’re just stuck *forever?*”
 
@@ -410,4 +410,6 @@ We used the reprieve we’d been granted.
 
 I looked up, my annoying sidebar disrupted by the scene of the entity standing at the top of the stairs, looking down upon us again.
 
-“[Follow the leader](https://www.reddit.com/user/WorldAwayTweedy/)*,*” it said.
+“Follow the leader*,*” it said.
+
+[PART TWO](https://www.reddit.com/r/nosleep/comments/1tjlkth/we_summoned_something_called_the_visitor_it_was/)
