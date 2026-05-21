@@ -1,0 +1,79 @@
+My father used to say that secrets rot people from the inside out. At the time I thought it was just another bitter little phrase muttered between cigarettes and whiskey, the kind of thing old men say when they’ve spent too long disappointed with life. Now I think he knew exactly what he meant.
+
+He died two weeks ago from lung cancer. Nobody was surprised. He had smoked since he was a teenager and drank like a man trying to erase himself slowly. By the end he barely looked human anymore — just skin stretched over bone, yellow fingers trembling whenever he reached for another cigarette he was too weak to light. The doctors talked about treatments, about extending his time, but he ignored them all. My father had never been afraid of dying. If anything, it always felt like he had been waiting for it.
+
+He was a difficult man to live with. Quiet. Cold. The sort of person who could make an entire room uncomfortable without saying a word. Kids in the neighborhood were terrified of him when I was growing up. Even adults avoided him when they could. Back then I assumed it was because of how he looked — tall, broad-shouldered, always exhausted-looking, with dark eyes that never seemed fully awake. Thinking back on it now, I wonder if people sensed something else in him. Something buried deep beneath the surface.
+
+Last week my sister and I went to clean out his house. The place smelled exactly as I remembered: stale tobacco, damp wood, and something older underneath, something moldy and sour that seemed embedded in the walls themselves. My sister stayed mostly upstairs, complaining about the dust and trying not to touch anything, while I worked through the basement. It was packed floor to ceiling with junk. Broken tools, towers of yellow newspapers tied together with string, rusted cans, rotting cardboard boxes collapsing into themselves. It looked less like storage and more like someone trying to bury parts of their life underground.
+
+That was where I found the chest.
+
+It was small enough to carry with both hands, made of dark wood reinforced with rusted iron bands, hidden behind an old water heater beneath a mound of newspapers. Dust coated every inch of it. Whatever it contained had been left untouched for years. My sister told me not to open it down there, joking that something might crawl out of it, but there was something about the chest that immediately put me on edge. A heavy padlock hung from the front, though when I looked closer I realized the keyhole had been sealed shut with glue or melted plastic. Not locked — sealed. As if my father had wanted to make absolutely certain nobody would ever open it again.
+
+That should have been enough warning. Instead, I grabbed a hammer from a nearby shelf and started smashing the lock apart while my sister yelled at me to stop before I brought the ceiling down. After several hard swings the metal finally snapped and hit the basement floor with a heavy clang that echoed through the room.
+
+Inside were old photographs, notebooks, loose papers, newspaper clippings bundled together with string. Everything smelled dry and ancient, like dead leaves trapped in an attic for decades. The first photograph I picked up showed my father as a teenager standing beside another boy around the same age. They looked similar enough that I immediately understood who he was supposed to be.
+
+My uncle.
+
+Except I had never heard of him before in my entire life.
+
+No stories. No photographs displayed anywhere in the house. No mention at family gatherings. Nothing. It was as if the man had never existed at all.
+
+The more I searched through the chest, the stranger everything became. Several of the notebooks were filled with drawings — crude, violent sketches done in pencil and ink. Bodies torn apart. Figures hanging from trees. A woman lying naked on the ground with her throat cut so deeply her head was nearly detached. The drawings were amateurish, but disturbingly detailed in places. Whoever had made them understood what real suffering looked like.
+
+The loose papers turned out to be newspaper clippings about disappearances dating back over twenty years. Men, women, teenagers. Missing persons. Unsolved cases. Every clipping had a number written on it in blue pen, counting upward from one to fifteen. By then my stomach had already started tightening with dread, but things only got worse when I discovered the false bottom hidden beneath the chest.
+
+Underneath was a folded map.
+
+I spread it across the dining room table upstairs. The map showed the region where my father had grown up, and scattered across it were circles marked with the same numbers from the newspaper clippings. It didn’t take a genius to understand what I was looking at. Burial sites. My mind immediately constructed the explanation that made the most sense: my uncle had abducted and murdered those people, and my father had discovered the truth years later. Maybe that was why he erased him from the family entirely.
+
+But there was one detail that didn’t fit.
+
+Alongside the numbers one through fifteen, there was another mark.
+
+Zero.
+
+Unlike the others, it wasn’t hidden in the woods or near isolated roads. It pointed directly at a property in the middle of an almost abandoned village several hours away.
+
+The next morning I searched online for everything I could find about the disappearances. Most of the articles were incomplete or badly archived, but eventually I found the location marked with the zero on Google Maps. The image was years old. It showed a decaying house at the edge of a dying village, with boarded windows and a collapsed fence swallowed by weeds.
+
+I spent the entire day thinking about it before finally convincing myself to go.
+
+The drive took nearly four hours. By the time I arrived the sun was already beginning to set behind the hills. The village looked half dead. Empty streets, cracked pavement, houses with shattered windows and collapsing roofs. A few buildings still showed signs of life, but most looked abandoned long ago.
+
+Then I saw the house.
+
+Same roof as in the photographs. Same porch. Same rusted swing hanging crooked in the yard.
+
+Only now it looked like something left behind after the end of the world.
+
+The front entrance and windows had been boarded shut, so I circled around the property until I found a gap in the fence large enough to squeeze through. The backyard had almost completely fused with the surrounding wilderness. Thorn bushes and weeds crawled over everything, swallowing the remains of the garden and porch alike. I eventually found a side window partly covered with rotten plywood and smashed the glass with a rock.
+
+The smell inside nearly made me vomit.
+
+Dust. Rot. Damp wood.
+
+And something else underneath it all.
+
+Something sweet and rotten.
+
+The house felt wrong from the moment I stepped inside. The silence wasn’t peaceful — it felt heavy, almost watchful. Mold spread across the walls in black stains, and parts of the ceiling had collapsed onto the floor. Every step I took made the wood groan beneath me. I climbed the stairs carefully until I reached the second floor, where I found a bedroom door hanging partially off its hinges.
+
+Inside, lying on the bed, was the last victim.
+
+At least that was what I believed at the time.
+
+Most of the body had decomposed down to bone and leathery skin, but the clothes remained mostly intact. The shirt matched the one from the old photographs exactly — faded dark fabric with thin white stripes across the chest. There were long tears in it, deep cuts consistent with stab wounds. Beside the bed, a telephone hung from its cord, swaying slightly as if it had only recently been disturbed.
+
+For a moment I imagined him lying there bleeding out, desperately trying to call for help while someone stood over him and watched.
+
+I ran.
+
+I barely remember the drive home. Just fragments of empty roads, passing headlights, and the sound of my own breathing inside the car. That night I emptied the contents of the chest across my living room floor and forced myself to go through everything again, slower this time. Every page. Every note. Every drawing.
+
+And then I noticed the detail I had somehow missed before.
+
+The journals were not written by my uncle.
+
+They were written in my father’s handwriting.
