@@ -58,3 +58,5 @@ I'm certain that I've found the entrance I've been looking for. This means that 
 I went home. I ate dinner with my family and did a reasonable impression of a person who hadn't spent the afternoon crouched over a hole in the earth. I brushed my teeth and got into bed and stared at the ceiling.
 
 It wasn't until I was nearly under that the thought surfaced, quiet and awful, and wouldn't go back down. In the cellar, I had turned around to look behind me. It hadn't once occurred to me to wonder what was standing in front of me, just beyond the reach of my light.
+
+[Link to Next Update](https://www.reddit.com/r/nosleep/s/Gb9sK8GJ9G)

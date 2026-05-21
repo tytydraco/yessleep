@@ -2,9 +2,9 @@ We had started out the evening with a bottle of expensive Merlot I ordered off t
 
 "Did you know Merlot is French for 'blackbird'?" I asked as our server poured us two glasses. We were at our usual table, rooftop seating, with an expansive view of the city.
 
-"I didn't know that," Monica acknowledged. I could always tell she was grateful when I taught her something new. I was glad when she didn't ask about the rest of the label. Probably could have figured it out if I tried, though. I've always been good at picking up on context clues.
+"I did not know that," Monica acknowledged. I could always tell she was grateful when I taught her something new. I was glad when she didn't ask about the rest of the label. Probably could have figured it out if I tried, though. I've always been good at picking up on context clues.
 
-"You know, speaking of birds, I read something interesting the other day," I mentioned as I swirled by glass. "They just released a study that found birds in the city are more afraid of women than men. You'd think it'd be the other way around."
+"You know, speaking of birds, I read something interesting the other day," I mentioned as I swirled by glass. "They just published a study that found birds in the city are more afraid of women than men. You'd think it'd be the other way around."
 
 "Who even pays for those studies?" Monica wondered. She surprised me by breaking off a piece of bread—Monica never ate bread—but it was only to crumble it up and sprinkle it near her chair.
 
@@ -40,7 +40,7 @@ When our entrées arrived, I watched her sip wine and move leaves around her pla
 
 "What?" I asked when I realized Monica was awaiting a response.
 
-"I was just thinking, when we move in together, we should set up a bird feeder," she repeated. "Or even a bird house or bath. We can make it really welcoming for all the urban birds in the neighborhood. That way, they'll know I'm not someone they need to be afraid of."
+"I was just thinking, when we move in together, we should set up a bird feeder," she repeated. "Or even a bird house or bath. We can make it really welcoming for all the urban birds in the neighborhood. That way, they'll know I'm not something they need to be afraid of."
 
 "Uh-huh."
 
@@ -50,4 +50,4 @@ I rose without meaning to. "I think I need to use the—"
 
 I was suddenly surrounded by a crowd of people. I sat back down, sweating bullets, hemmed in on all sides. Someone slid a slice of cake in front of me, right next to my untouched meal, and a fleet of servers started clapping and singing in unison. A pair of hands garroted me with an elastic band as a conical hat was affixed atop my head.
 
-"When you were in the bathroom earlier, I told them it was your birthday!" Monica crowed.
+"When you were in the bathroom earlier I told them it was your birthday!" Monica crowed.
