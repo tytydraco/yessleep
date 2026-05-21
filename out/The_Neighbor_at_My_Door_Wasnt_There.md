@@ -1,0 +1,151 @@
+The peephole showed my neighbor smiling.
+
+The building camera showed a tired man in pajamas, standing outside my door with no expression at all.
+
+Both versions knocked at 3:03.
+
+Only one of them was really there.
+
+The building had cameras in every hallway, which is why I thought this would be easy to explain.
+
+It was not.
+
+The first time, someone knocked three times at 3:03 in the morning.
+
+Not hard. Three careful knocks, polite and angry at once.
+
+When I looked through the peephole, my new neighbor from 1702 was standing outside.
+
+His face was too close to the door. The hallway light stretched his skin flat and pale. He smiled, but his eyes stayed flat.
+
+"Sorry," he said. His voice was thin through the metal door. "Could you stop walking around your living room?"
+
+For a moment I just stared through the peephole. "What?"
+
+"The footsteps," he said. Still smiling. "Every night. Back and forth. Back and forth."
+
+I opened the door with the chain still on.
+
+The hallway was empty.
+
+The next morning I almost convinced myself I had dreamed it. Then it happened again.
+
+3:03. Three knocks.
+
+This time his face filled the peephole.
+
+"Please," he whispered. "It is very loud tonight."
+
+I shouted that I was in bed, alone, with nobody in my living room.
+
+His smile stayed exactly where it was.
+
+When I opened the door, he was gone again.
+
+After that, I stopped trusting memory. I put my phone in sleep mode beside my pillow and left an old phone recording audio by the living room window.
+
+At 3:03, the knocks came.
+
+In the morning, the sleep tracker showed I had barely moved.
+
+On the living room audio, footsteps crossed the tile for two minutes. Slow. Barefoot. Back and forth.
+
+Under the steps was another sound.
+
+Breathing, close to the microphone, as if someone crouched beside it, listening.
+
+I went downstairs as soon as the property office opened. The manager looked annoyed until I said "harassment" and "security footage."
+
+He took me to the monitor room.
+
+The hallway camera showed 2:59, then 3:00, then 3:03.
+
+My neighbor's door opened.
+
+He stepped out in pajamas. He looked terrible. No smile now, just a man who had not slept in days.
+
+He walked to my door and knocked three times.
+
+Then he leaned toward my door, not smiling, just listening.
+
+"See?" the manager said, relieved. "It is only your neighbor."
+
+Then something moved in the corner of the frame.
+
+The camera covered the corridor outside my door. A thin line of light showed under the door, dim and gray, the kind that leaks in from a window at night.
+
+My apartment was dark. I had left nothing on.
+
+Something kept breaking that line of light.
+
+Slowly.
+
+Back and forth.
+
+The manager rewound the video.
+
+Someone was walking inside my apartment. Not a clear shape. Just the light under the door, cut again and again by something passing it, at the same slow pace.
+
+Those were the footsteps my neighbor heard.
+
+"Change camera," I said.
+
+The second angle faced 1702.
+
+At the same time my neighbor was at my door, someone else stood at his.
+
+That person was my height.
+
+That person had my hair.
+
+That person raised one hand and knocked on my neighbor's door, again and again, with the same careful rhythm.
+
+Then it turned toward the camera.
+
+The image blurred for half a second, like the camera had forgotten how to focus on a face.
+
+When it cleared, the hallway was empty.
+
+The manager backed away from the desk.
+
+I went back upstairs and knocked on 1702 in daylight.
+
+My neighbor opened the door only a crack. His eyes were red. The room behind him was dark.
+
+"You saw it," he said.
+
+I told him what the camera showed.
+
+He laughed once, without any humor.
+
+"I knew you were not doing it," he said. "That thing has come to my door too."
+
+He said that on the nights he did not leave his apartment, the footsteps still started in my living room. Then three knocks would come from his own door.
+
+When he looked through the peephole, he saw me standing there, showing all my teeth.
+
+I told him that through my peephole, I saw the same smile on his face.
+
+For a few seconds, neither of us said anything. Then the hallway filled with the smell of burned incense, like someone had just made an offering. The yellow talisman paper above the fire door, written over in red cinnabar, fluttered even though there was no wind.
+
+I left before sunset.
+
+The manager promised to export the footage. Later he said the files were corrupted. I believed him.
+
+A month later, the property office texted about my deposit and sent a checkout photo from inside my old apartment.
+
+It was taken from the living room, facing the window.
+
+The room was empty.
+
+But in the dark glass, behind the person taking the photo, someone was standing near the sofa.
+
+The front door stood open behind them. The same reflection caught the corridor outside, and the yellow talisman above the fire door.
+
+It had split straight down the middle.
+
+The manager sent one more message:
+
+Did you come back during checkout?
+
+I let them keep the deposit.
