@@ -18,7 +18,7 @@ I realized the smell was coming from the only place I hadn't checked: the baseme
 
 *8... 9... 10 steps*. No floor.
 
-*15... 20... 40!* It didn't end. 
+*15... 20... 40!* It didn't end.
 
 *50... 100... 300... 900...* I was exhausted, but I remember the final count: ***978*** steps. ***978!*** What kind of basement was this? Finally, I saw light. I hit the floor.
 
@@ -66,4 +66,4 @@ I found his ID card. His name was "Richard." He was 23. No family. He was a "***
 
 I managed to move to a kitchen area and barricaded the door with a cabinet. There’s plenty of food here. I checked my cellphone. It’s 8:03 PM. Only three minutes have passed since I entered the basement. None of my contacts are answering. Reddit is my last hope. i don't know when the post will be published becouse of the signal don't one of the bests
 
-*What do I do? Who is* ***Lea****? If anyone knows anything, please... I’m scared*
+*What do I do? Who is* ***Lea*** *? If anyone knows anything, please... I’m scared*

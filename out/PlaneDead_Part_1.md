@@ -275,3 +275,5 @@ I couldn’t answer him, so he turned to the door again.
 “Stick close to me, I’ll kill them if they get too close, you can grab anything that’ll look useful.”
 
 The noise flooded the tiny bathroom when he opened the door, Loud, low pitched grunts and moans that echoed along the length of the plane. He turned to the right, knees bent, and crept forward. I followed.
+
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1tjt2dx/planedead_part_2_of_2/)
