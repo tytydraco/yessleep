@@ -1,0 +1,392 @@
+I don’t really know why I’m posting this.
+
+Maybe I need someone to tell me I’m wrong. Maybe I need confirmation that I’m not losing my mind. Or maybe I just need people to know that danger doesn’t always live in dark forests or abandoned hospitals or hidden somewhere deep underground.
+
+Sometimes it lives right down the hall from you.
+
+Sometimes it smiles with your little brother’s face.
+
+My name is Evelyn Torres. I’m twenty six years old, and I work dispatch for the police department in a tiny desert town called Mesquite Flats, Arizona. Population barely over four thousand depending on the season. Most people only know we exist because they pass through on the highway between Phoenix and Nevada.
+
+Nothing ever happens here.
+
+At least, that’s what people from outside town think.
+
+The desert surrounding Mesquite Flats stretches for miles in every direction. Empty roads. Dried riverbeds. Rusted trailers half-swallowed by sand. Telephone poles that hum at night when the wind hits them just right.
+
+And north of town, sitting beyond the old rail tracks, are the abandoned fairgrounds.
+
+Diablo’s Pass.
+
+That’s what the teenagers call it.
+
+Technically it used to be the Silver Mesa Fairgrounds back in the seventies. There are still remnants of it out there if you know where to look. Rotting ticket booths. A collapsed ferris wheel. Burned out food stands covered in graffiti.
+
+Most of the stories started after the fire in 2019.
+
+Officially, it was ruled an electrical accident. Four teenagers died after sneaking in to drink one night. The papers said they were trapped inside the old mirrored funhouse when the wiring caught fire.
+
+People in town tell a different story.
+
+They say the firefighters found the doors unlocked.
+
+They say the kids were piled together in the center of the room like they’d been trying to hide from something.
+
+And they say one of the bodies was never identified.
+
+Of course, that turned the place into a hotspot for every bored teenager in town.
+
+Including my little brother.
+
+Luca is sixteen. Smart kid when he wants to be. Funny. Stubborn. Constantly getting himself into trouble.
+
+After our parents died, I became all he had left.
+
+Our father overdosed two years ago in a motel outside Tucson. Mom followed six months later. Drunk driver. Highway 87.
+
+The rest of our family blamed me almost immediately.
+
+They said I should’ve stopped Dad from spiraling.
+
+Said I should’ve made Mom stay home that night.
+
+I was twenty four years old trying to hold together a collapsing family while working double shifts to keep our lights on.
+
+Apparently that still wasn’t enough.
+
+Most of them stopped talking to us after the funeral.
+
+So it became me and Luca against the world.
+
+And honestly? I was okay with that.
+
+Even when he got caught sneaking out.
+
+Even when I had to pick him up from holding after he got busted drinking beer behind the baseball field.
+
+Even when officers at the station started joking that Luca Torres had his own reserved seat in processing.
+
+Because no matter how hard things got, he was still my little brother.
+
+Until three weeks ago.
+
+Luca disappeared on a Friday night alongside his best friend, Mateo Reyes.
+
+They’d snuck out to Diablo’s Pass with a few other kids.
+
+According to the others, Luca and Mateo wandered off toward the old funhouse around midnight.
+
+They never came back.
+
+The search lasted three days.
+
+The entire town looked for them.
+
+We had deputies combing the desert with ATVs. Volunteers searching dry ravines. Helicopters from the county sheriff’s office overhead.
+
+Then Luca walked out of the desert alone Sunday morning.
+
+Barefoot.
+
+Covered in dirt.
+
+Dehydrated.
+
+No Mateo.
+
+I still remember the way he looked sitting in the hospital bed afterward.
+
+Blank.
+
+Not traumatized.
+
+Not relieved.
+
+Just...empty.
+
+The deputies questioned him for hours.
+
+He kept changing his story.
+
+First he said they got lost.
+
+Then he said Mateo ran off.
+
+Then he claimed he blacked out and woke up alone.
+
+Every answer sounded rehearsed.
+
+Wrong somehow. 
+
+But what stuck with me wasn’t what he said.
+
+It was what he didn’t.
+
+He never asked where Mateo was or if he was found.
+
+Not once.
+
+And the strangest part?
+
+Luca hated being touched after he came back
+
+At the hospital, I tried to sit with him. Talk to him. Reassure him.
+
+He kept staring at my face like he was trying to memorize it.
+
+Then he said my name wrong.
+
+Not a nickname. Not a mistake in tone.
+
+He said it like he’d heard it once before and was repeating it carefully.
+
+“Evelyn,” he said slowly. “That’s what you are called.”
+
+Called.
+
+Not my sister. Not Evie. Not even familiar.
+
+Just…labeled.
+
+I laughed it off at the time.
+
+I shouldn’t have.
+
+After that, the small things started stacking up.
+
+He stopped using contractions in speech.
+
+Stopped reacting to jokes the way he used to.
+
+If I laughed, he would look at me a few seconds later and smile like he was copying the behavior after watching it happen.
+
+At night I’d hear him in the kitchen standing perfectly still, listening to the faucet run without touching it.
+
+Sometimes I’d wake up and find him sitting at the foot of the couch staring at the TV screen even though it was off.
+
+When I asked him what he was thinking about, he said:
+
+“I think I’m remembering wrong.”
+
+Wrong.
+
+Not forgetting.
+
+Wrong.
+
+Then the animals started disappearing.
+
+Strays first. Then birds near the power lines. Then someone’s dog down the block.
+
+Three days ago, Deputy Aaron Vega pulled me aside at work.
+
+Aaron’s been my closest friend at the department for years. One of the only people who didn’t treat me like I was already falling apart.
+
+But that day he looked…shaken.
+
+Not just concerned. Afraid in a way he didn’t want to admit.
+
+“There’s something you need to see,” he said.
+
+One of the search volunteers had found a phone out near Diablo’s Pass after the windstorm last week. Buried in sand near the edge of the fairgrounds.
+
+It was cracked. Water damaged. Half dead.
+
+But it was still recording when they found it.
+
+Aaron’s cousin works digital recovery in Phoenix. He sent it up there, thinking it was just corrupted footage.
+
+It wasn’t.
+
+At least not completely.
+
+I asked Aaron how much they recovered.
+
+He didn’t answer right away.
+
+“Enough to know we should’ve left it buried,” he said.
+
+I took the phone home anyway.
+
+Luca was in his room when I got back.
+
+I’m not sure how I knew that.
+
+The door was closed. But I could hear him moving inside.
+
+Not pacing.
+
+Waiting.
+
+The recovered video started with teenagers laughing, flashlight beams cutting across sand and broken metal.
+
+Mateo was holding the phone camera. Joking. Nervous.
+
+Then Diablo’s Pass came into view.
+
+The funhouse sat there like it was watching them.
+
+Too still.
+
+Too intact for something that old.
+
+The group dared each other forward.
+
+Luca walked ahead without being dared.
+
+That was the first thing that felt wrong.
+
+Mateo followed him, whispering.
+
+“Bro…come on. Don’t go in there.”
+
+The video cut for a second signal glitching, audio warping like something pressing against it.
+
+When it returned, they were inside.
+
+Mirrors everywhere. Some shattered. Some still intact.
+
+But the reflections didn’t always match.
+
+Luca stood in the center of the room, staring at one of the cracked mirrors like he was waiting for it to respond.
+
+Mateo called his name.
+
+No answer.
+
+Then Luca finally spoke.
+
+But it didn’t sound like him.
+
+It sounded rehearsed.
+
+“I think I was here before,” he said.
+
+Mateo laughed nervously. “No you weren’t, dude.”
+
+Luca blinked slowly.
+
+Too slowly.
+
+“I think I forgot something important,” he added.
+
+Then he smiled.
+
+Wrong timing. Wrong emotion.
+
+The kind of smile that didn’t belong on a face that young.
+
+Something moved behind him in the mirror.
+
+At first I thought it was another person standing behind him.
+
+Then it smiled.
+
+I still can’t fully describe it.
+
+Its body looked stretched wrong. Arms too long. Skin hanging loose like wet cloth draped over bones. Its face kept shifting slightly every time the camera moved.
+
+But its eyes…
+
+Jesus Christ.
+
+Its eyes looked almost human.
+
+Like a hungry human.
+
+The footage erupted into screaming.
+
+Not all of it clear.
+
+But enough words broke through.
+
+“Luca stop”
+
+“Dude what are you”
+
+Then wet, breaking sounds I still can’t fully process without my stomach turning.
+
+The camera fell.
+
+It pointed upward.
+
+And I saw Luca’s body on the floor.
+
+Or what was left of it.
+
+Something was on top of him.
+
+Eating.
+
+Not quickly.
+
+Not messily.
+
+Like it was learning how.
+
+Mateo was screaming off camera.
+
+The thing paused.
+
+Slowly lifted its head.
+
+And looked into the lens.
+
+For a moment, it wore Luca’s face.
+
+Not perfectly.
+
+Not completely.
+
+But enough that my brain stopped trying to deny it.
+
+Enough that something in me broke quietly instead of loudly.
+
+The video ended.
+
+I sat there for a long time without moving.
+
+Then I heard footsteps in the hallway.
+
+Back and forth.
+
+Back and forth.
+
+I didn’t realize I was holding my breath until my chest started to hurt.
+
+Because I understood something I hadn’t wanted to.
+
+Luca doesn’t ask questions anymore.
+
+He studies my answers.
+
+The footsteps stopped outside my door.
+
+A knock followed.
+
+Soft. Patient.
+
+Like he knew I would open it eventually.
+
+“Evie,” his voice said.
+
+Perfect. Familiar. Wrong in all the ways I now recognize too late.
+
+A pause.
+
+Then he added, almost gently:
+
+“I think I remember what I’m supposed to do now.”
+
+Another pause.
+
+Longer this time.
+
+Like he was choosing the correct way to say it.
+
+Then, finally
+
+“I think I need to eat.”
+
+And he wasn’t asking anymore.
+
