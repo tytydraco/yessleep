@@ -1,6 +1,6 @@
-PART: [ONE](https://www.reddit.com/r/nosleep/comments/1s01yft/the_tall_dog_of_barrow_heights/) | [TWO](https://www.reddit.com/r/TalesFromTheCryptid/comments/1tkvoqi/the_tall_dog_of_barrow_heights_part_2/) | [THREE](https://www.reddit.com/r/nosleep/comments/1s3eis8/the_tall_dog_of_barrow_heights_part_3/) | [FOUR](https://www.reddit.com/r/TalesFromTheCryptid/comments/1tkw9v6/the_tall_dog_of_barrow_heights_part_4/)
+**PART**: [ONE](https://www.reddit.com/r/nosleep/comments/1s01yft/the_tall_dog_of_barrow_heights/) | [TWO](https://www.reddit.com/r/TalesFromTheCryptid/comments/1tkvoqi/the_tall_dog_of_barrow_heights_part_2/) | [THREE](https://www.reddit.com/r/nosleep/comments/1s3eis8/the_tall_dog_of_barrow_heights_part_3/) | [FOUR](https://www.reddit.com/r/TalesFromTheCryptid/comments/1tkw9v6/the_tall_dog_of_barrow_heights_part_4/) | [FIVE](https://www.reddit.com/r/nosleep/comments/1s6fslb/the_tall_dog_of_barrow_heights_part_5/) | [SIX](https://www.reddit.com/r/nosleep/comments/1s7cd5k/the_tall_dog_of_barrow_heights_part_6/) | [SEVEN ](https://www.reddit.com/r/TalesFromTheCryptid/comments/1s7cdli/the_tall_dog_of_barrow_heights_finale/)|
 
-It ended like this:
+It ends like this:
 
 A tremor runs through the armor. It starts at my spine, climbs my ribs, and constricts. The suit peels back from my face, pulsing in tight, rhythmic screams.
 
@@ -108,9 +108,7 @@ A hand closes around Stevenson's throat. The fingers find the soft tissue beneat
 
 ‘The house offered me a choice,’ Inquisitor Torsen whispers into Stevenon’s ear. *‘And I chose—’*
 
-*\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_*  
-  
-
+*\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_*
 
 *… You*
 
@@ -392,7 +390,7 @@ My chest seizes. 
 
 Stevenson’s voice. She’s pleading with me. 
 
-'Please, Jhune.’ Something wet slides down her cheek. ‘Please… just let me save someone tonight*.*' 
+'Please, Jhune.’ Something wet slides down her cheek. ‘Please… just let me save someone tonight\*.\*' 
 
 I hold her gaze, my chest twisting with guilt. ‘Yes, Ma’am.’
 
@@ -416,8 +414,6 @@ He offers his hand. 
 
 I reach out—
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 —and take a drawing. 
@@ -428,7 +424,7 @@ The creature studies me. It’s searching for the trick, the angle, the hidden m
 
 Then it pulls Tyler from its throat. Drops him to the floor. 
 
-I rush to him, fingers pressed against his carotid. He isn’t moving. Isn’t conscious. But the pulse is there. It’s fast, thready, but there*.*
+I rush to him, fingers pressed against his carotid. He isn’t moving. Isn’t conscious. But the pulse is there. It’s fast, thready, but there\*.\*
 
 'You're gonna be okay, kid,' I whisper.
 

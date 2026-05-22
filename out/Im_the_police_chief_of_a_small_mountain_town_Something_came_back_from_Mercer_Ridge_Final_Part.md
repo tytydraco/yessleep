@@ -1,0 +1,599 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1tebtti/im_the_police_chief_of_a_small_mountain_town_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \- [Part 2](https://www.reddit.com/r/nosleep/comments/1tf8ph4/im_the_police_chief_of_a_small_mountain_town_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \- [Part 3](https://www.reddit.com/r/nosleep/comments/1th2cck/im_the_police_chief_of_a_small_mountain_town_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \- [Part 4](https://www.reddit.com/r/nosleep/comments/1tj0y3w/im_the_police_chief_of_a_small_mountain_town/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+The road to Bell County Hospital was empty.
+
+Claire sat beside me with both hands locked together in her lap. Barrett and Pike followed behind us in their cruiser. Their headlights kept appearing behind the curves of the mountain road, then disappearing again behind the trees.
+
+We left the radio on between the cars, but nobody said anything.
+
+When we reached the hospital parking lot, Dr. Lewis was already waiting outside.
+
+His glasses were gone.
+
+Blood ran from beneath one of his ears down into the collar of his coat.
+
+"Jesus Christ doc, what happened to you?"
+
+"They woke up again."
+
+"I got that part over the phone."
+
+He looked back toward the hospital entrance before answering.
+
+"No chief. This time they really woke up."
+
+He brought us inside.
+
+The hallway outside the rooms looked destroyed.
+
+Scratches covered the walls and floor. One of the nurses sat against the reception desk crying into both hands while another tried cleaning blood off the tiles with shaking arms.
+
+Dr. Lewis stopped outside Danny's room.
+
+"They won't stop talking."
+
+I looked through the small glass window in the door.
+
+All three of them were strapped to their beds again.
+
+None of them moved.
+
+But their mouths did.
+
+Slowly.
+
+“Sorry.” Danny.  
+“Sorry.” Tyler’s voice answered from the room beside his.  
+His mother was still praying quietly near the vending machines.
+
+Then the others joined in. 
+
+Claire grabbed my arm hard enough to hurt.
+
+I entered first. 
+
+That same old coin smell filled the room immediately.   
+Stronger than before.
+
+Danny turned his head toward me. Slowly. Like it hurt.  
+His pale eyes fixed on mine.
+
+"Jeremy." I said.   
+All four of them stopped at the exact same moment.
+
+Pike cursed behind me.
+
+Danny’s mouth trembled slightly before he spoke.  
+"Jeremy opened."
+
+Tyler started crying loudly.
+
+I stepped closer to Danny's bed.  
+"What does that mean?"
+
+Nobody answered.
+
+Their mouths slowly opened again.
+
+"Sorry." "Sorry." "Sorry." "Sorry." 
+
+Dr. Lewis leaned closer to me.  
+"Chief..." he whispered. "They've been doing this for twenty minutes."
+
+Claire pushed past me. "Where is my son?!"
+
+For the first time since we entered the room, Danny looked away from me.  
+His eyes moved toward Claire.  
+Then toward the ceiling.  
+Then back to me.  
+And quietly, almost gently, he said: "This is sorry."
+
+Nobody in the room spoke after that.
+
+Not me.
+
+Not Claire.
+
+Not even Pike or Barrett.
+
+Claire wiped her face with both hands and stepped closer to Danny's bed.  
+“What did you do to my son?”
+
+Danny looked at her for a long time before answering.
+
+Not confused. Not scared.
+
+Just tired.  
+“We taught.”
+
+His voice sounded weak enough to disappear between breaths.
+
+Claire shook her head immediately.
+
+"Danny, where is my son?” She repeated once more, calmer this time, like she was comforting a dying animal.
+
+Danny’s pale eyes slowly moved toward me.  
+Then toward the ceiling again. 
+
+“We taught This.”
+
+Pike shifted uncomfortably behind me.
+
+“The hell does that even mean?”
+
+Nobody answered him.
+
+The room stayed quiet for a couple seconds before Tyler suddenly spoke from the other room.
+
+“He was the best at it.”
+
+His mother immediately started crying harder.  
+I walked out of Danny’s room and into Tyler’s.  
+The kid looked worse than the others now.  
+His face was covered in tears and dried blood.   
+His eyes looked swollen enough to burst.  
+Both of his wrists were red from fighting the restraints.
+
+“Tyler.” I kept my voice low. “What are you talking about?”
+
+He looked at me for a second before glancing toward the wall beside his bed.   
+Like he didn't want to say it out loud.
+
+“Jeremy talked to it the most.”
+
+Claire entered behind me.  
+“What does that mean?” she asked.
+
+Tyler swallowed hard.  
+“At first it couldn't understand things.”
+
+“What things?”
+
+He looked at Claire.
+
+Then at me.
+
+“Us.”
+
+The hallway outside suddenly felt very quiet, even the nurses had stopped moving.
+
+Tyler kept talking before any of us could interrupt him.  
+“We tried teaching it.”
+
+Claire stared at him like she didn't understand the words coming out of his mouth.  
+“Teaching it what?”
+
+Tyler's breathing started shaking.  
+“How to act right. How to talk. What things meant.”
+
+I felt my stomach tighten. “What things?”
+
+He closed his eyes.  
+“Fear. Crying. Praying.” A pause. “Being lonely." A pause. “Jeremy said it was scared.”
+
+Danny’s voice answered from the other room.
+
+“Jeremy opened.”
+
+Then the others repeated it again.
+
+Not loud.
+
+Not angry.
+
+Just certain.
+
+“Jeremy opened.”
+
+I grabbed the side of Tyler’s bed hard enough to hurt my hand.  
+“What did he open?!"
+
+Tyler looked terrified now.
+
+Not of me.
+
+Of answering.
+
+“The way.”
+
+Tyler kept crying quietly in the bed while Claire stood beside him completely still.
+
+Pike leaned against the doorway with both hands over his mouth. Barrett stayed out in the hallway talking quietly with Dr. Lewis.
+
+I sat down beside Tyler’s bed.
+
+“How long were you talking to it?”
+
+Tyler rubbed his eyes against his shoulder before answering.
+
+“Since summer.”
+
+“All summer?”
+
+He nodded.
+
+“At first it just listened.”
+
+Claire finally spoke again.
+
+“How did it answer?”
+
+Tyler swallowed hard.
+
+“The radio.”
+
+That made me look up immediately.
+
+“What radio?”
+
+“The old one in the house.”
+
+The abandoned house.  
+The whiskey bottle.  
+The drawings.  
+I suddenly understood why Jeremy kept disappearing at night.
+
+Tyler kept staring at the ceiling while he spoke.
+
+“We thought it was a prank at first.”
+
+“What did?”
+
+“The voice.”
+
+His breathing shook again.  
+“It never sounded right."
+
+Tyler looked toward me.  
+“Like it was trying to copy people.”  
+“At first it just repeated things back.” He continued. “Then it started asking things.”
+
+"Like?”
+
+Tyler closed his eyes tightly. “Why people drink.”
+
+Claire looked at me for a second.
+
+Then away.
+
+“Why people pray if nobody answers.” Another pause.
+
+“Why parents stop talking to their kids.”
+
+I felt my jaw tighten.  
+Tyler kept going before I could say anything.
+
+“Jeremy answered most of them.”
+
+Claire slowly sat down beside the bed.
+
+“He thought it was lonely,” Tyler whispered. “He said it sounded scared to be by itself.”
+
+“What happened at Mercer Ridge?” Barrett asked.
+
+Tyler’s entire body tensed against the restraints.
+
+“We wanted it to see us.” He started shaking so hard the whole bed moved. “So it wouldn't be alone anymore.”
+
+I rubbed my hand across my face.
+
+“And Jeremy?”
+
+Tyler’s eyes filled immediately. “He said someone had to open the way.”
+
+Claire made a sound beside me that I hope I never hear again for the rest of my life.
+
+I looked back toward Danny’s room.
+
+The three men had started whispering again.  
+Not “sorry” this time. Something else.  
+The words were too quiet to understand.
+
+But all three of them were smiling.
+
+Dr. Lewis stepped into the hallway beside me.  
+“Chief,” he said quietly. “I think we should clear the floor.”
+
+Before I could answer, every light in the hallway dimmed for half a second.
+
+The radios crackled at the same time.
+
+Mine.
+
+Barrett’s.
+
+Pike’s.
+
+Even the one at the nurses’ station.
+
+Static filled the hallway loud enough to make Tyler flinch in his bed.
+
+A voice came through the radio.
+
+Weak.
+
+Broken.
+
+“Dad?”
+
+Every muscle in my body locked.
+
+The radio crackled again.
+
+“Mom?”
+
+Nobody spoke. As like we were frozen in ice.
+
+The voice came back a third time.
+
+“Am outside.”
+
+Claire pushed past me before I could react. I followed her into the hallway.
+
+The nurses had already moved toward the lobby windows.
+
+Barrett stood near the entrance with one hand resting on his holster.
+
+The front doors of the hospital were closed.
+
+Jeremy stood outside them.
+
+Alive.
+
+For a second, nothing else in the world mattered.
+
+Not the explosion.
+
+Not Danny.
+
+Not the dogs or the nature.
+
+Just my son standing in the parking lot wearing the same gray jacket he left home with two nights earlier.
+
+Claire put both hands over her mouth.
+
+“Oh my God.”
+
+Jeremy looked exhausted. Pale.  
+His hair hung wet against his forehead and his clothes looked dirty from the woods.
+
+But it was him... It had to be.
+
+Claire immediately moved toward the doors.  
+I grabbed her arm without thinking. “Wait.”
+
+She looked back at me like I had lost my mind.  
+“That’s our son Thomas! Let me go!”
+
+I didn’t answer.
+
+Because I didn’t know why I stopped her.
+
+Maybe because of Mercer Ridge.
+
+Maybe because of the whispering behind us.
+
+Maybe because Jeremy still hadn’t blinked once.
+
+The radios crackled again.
+
+“Cold.”
+
+Jeremy’s lips moved a second after the word came through the speakers.   
+Like the radio spoke first.  
+Claire pulled free from my hand and reached the doors.
+
+“Jeremy baby, open the door!” She screamed while running towards them. 
+
+He stared at her for a long moment.
+
+Then smiled.
+
+Not wrong.
+
+Not unnatural.
+
+Just delayed.
+
+Barrett noticed it too.
+
+I saw it in his face.
+
+Jeremy pressed one hand softly against the glass.
+
+Claire did the same from inside.
+
+For a second neither of them moved.
+
+Then Jeremy finally spoke with his own voice instead of the radio.
+
+Quietly.
+
+“Found the way back.”
+
+Behind us, all three men in Danny’s room started screaming.
+
+Not words... Just screaming.
+
+Claire jumped away from the doors and covered her ears.
+
+Barrett rushed toward the rooms, while Pike froze beside the reception desk.
+
+Jeremy didn't move.
+
+He kept staring at us through the glass.
+
+The lights dimmed again. This time they stayed dim.
+
+The hospital looked gray.
+
+Sick.
+
+Like all the color had drained out of the building.
+
+Jeremy slowly lifted his hand from the glass.
+
+“Dad.”
+
+I stepped toward the doors before I realized I was moving, making sure they stayed close.
+
+Claire looked at me immediately.
+
+“Thomas open the door!”
+
+I stared at my son.
+
+Something was wrong.
+
+Not obvious.
+
+Not enough to explain.
+
+Just small things.
+
+The way he stood too still.
+
+The way his eyes stayed fixed on whoever spoke.
+
+The way he smiled a second too late.
+
+Like every expression reached him after it should have.
+
+Or the fact that there were no emotions behind his words.
+
+But he was alive.
+
+I kept telling myself that.
+
+Alive.
+
+Jeremy touched the glass again.
+
+“Was scared.”
+
+Claire started crying immediately.
+
+“Oh God.”
+
+“Didn’t want to stay alone.”
+
+His voice sounded calm.
+
+Too calm.
+
+Like he had practiced the sentences before saying them.
+
+Behind me, Danny and the others suddenly stopped screaming all at once.
+
+The silence hit harder than the noise did.
+
+Jeremy looked past me toward the hallway.
+
+Then back at me.
+
+“They’re scaring This.”
+
+That word again.
+
+This.
+
+Not me.
+
+Not you or us.
+
+This.
+
+I felt my stomach drop.
+
+Claire reached for the door handle.
+
+“Thomas...” A pause "Please..."
+
+He looked at her for a long moment.
+
+Then slowly shook his head.
+
+He knew I wouldn't open it, and he talked once more.
+
+“They can’t see This yet.”
+
+The lights flickered again.
+
+This time I heard the radios whispering.
+
+Not speaking.
+
+Whispering.
+
+Every voice overlapping each other quietly.
+
+Pike backed away from the reception desk.
+
+“What the hell is that?”
+
+Barrett returned pale enough to look sick.
+
+He kept rubbing at his eyes.
+
+“The rooms are empty.” He said, collapsing to the ground, clawing at his eyes.  
+“I can still see it!” He kept repeating.
+
+Pike rushed towards him, trying to stop him.
+
+I looked back toward Jeremy. And noticed his reflection wasn’t matching him correctly.
+
+When Jeremy blinked, the reflection didn’t.
+
+Just for a second.
+
+Then it matched again.
+
+My chest tightened as Jeremy saw me notice.  
+His smile disappeared immediately.
+
+Not angry.
+
+Not sad.
+
+Just gone.
+
+Like he understood he made a mistake.
+
+And suddenly I understood something too.
+
+Not everything... Not even close... But enough.
+
+Enough to know my son never came back from Mercer Ridge.
+
+Claire reached for the door again.
+
+I stopped her once more.
+
+Jeremy pressed his hand softly against the glass one last time.
+
+“Sorry Dad.”
+
+The radios started screaming.
+
+Every light in the hospital exploded at once.
+
+Darkness swallowed the hallway.
+
+Then, somewhere inside the dark hospital, This spoke.   
+Stealing a different voice for each word.
+
+“Relive This.” 
+
+I relived.
+
+“Tell This.”
+
+I told.
+
+“Warn This.”
+
+I warned.
+
+“Forget This.”
+
+I forgot.
