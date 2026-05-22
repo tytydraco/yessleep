@@ -1,10 +1,6 @@
-**PART**: [ONE](https://www.reddit.com/r/nosleep/comments/1s01yft/the_tall_dog_of_barrow_heights/) | [TWO](https://www.reddit.com/r/nosleep/comments/1s0ykyn/the_tall_dog_of_barrow_heights_part_2/) | [THREE](https://www.reddit.com/r/nosleep/comments/1s3eis8/the_tall_dog_of_barrow_heights_part_3/) | [FOUR](https://www.reddit.com/r/nosleep/comments/1s5f5di/the_tall_dog_of_barrow_heights_part_4/) | [FIVE](https://www.reddit.com/r/nosleep/comments/1s6fslb/the_tall_dog_of_barrow_heights_part_5/)
+**PART**: [ONE](https://www.reddit.com/r/nosleep/comments/1s01yft/the_tall_dog_of_barrow_heights/) | [TWO](https://www.reddit.com/r/TalesFromTheCryptid/comments/1tkvoqi/the_tall_dog_of_barrow_heights_part_2/) | [THREE](https://www.reddit.com/r/nosleep/comments/1s3eis8/the_tall_dog_of_barrow_heights_part_3/) | [FOUR](https://www.reddit.com/r/TalesFromTheCryptid/comments/1tkw9v6/the_tall_dog_of_barrow_heights_part_4/) | [FIVE](https://www.reddit.com/r/nosleep/comments/1s6fslb/the_tall_dog_of_barrow_heights_part_5/)
 
-By the time I finish debriefing the Order, it's late.
-
-By the time I sign the reports and hand over Torsen's Red Book and sit through the decontamination protocols and answer the same questions from three different Handlers who all pretend they aren't recording me, it's later.
-
-By the time I get into my car and pull onto the highway, the dashboard clock reads 1:47 AM.
+By the time I finish debriefing the Order, it's late. By the time I get into my car and pull onto the highway, the dashboard clock reads 1:47 AM.
 
 I missed it.
 
@@ -12,53 +8,49 @@ Abigail's birthday. 
 
 ‘Nice work,’ I mutter. ‘Father of the fucking year, you are.’
 
-The rain starts somewhere around the bridge. Fat, heavy drops that hit the windshield like thrown gravel. I don't turn on the wipers. I let the world blur. Disassociate. I'm remembering Stevenson's face as the ceiling came down. Ellison's ashes in the shape of a man. The boy in his mother's arms, their skulls pressed together.
+The rain starts somewhere around the bridge. I don't turn on the wipers. I let the world blur, disassociating. I'm remembering Stevenson's face as the ceiling came down. Ellison's ashes in the shape of a man. The boy in his mother's arms, their skulls pressed together.
 
-I’m tell myself I didn't have a choice. That some day, when she's older, Abigail will understand why tonight’s job mattered more than a birthday cake. 
+I’m telling myself I didn't have a choice. That some day, when she's older, Abby will understand why this mission mattered more than a birthday cake. 
 
 I tell myself a lot of things on that drive. 
 
 None of them are true.
 
-Sirens behind me.
+Sirens.
 
-They scream past in a red-and-white blur, fire trucks running hot toward the east side. I watch them go in the rearview. Probably a smoke detector. Some drunk on the fifth floor cremating a frozen pizza. I'll get home to find the building evacuated, a hundred irritated tenants standing in the rain while a bored fire crew clears the alarm, and Abigail will be among them—tired, annoyed, wrapped in the quilt her mother made. Another thing to be angry about. Another reason to hate me over something I can’t control. 
+They scream past in a red-and-white blur, fire trucks running hot toward the east side. I watch them go in the rearview. Probably a smoke detector, that or some drunk cremating a frozen pizza.
 
-But the trucks keep coming.
+They keep coming. 
 
-Three. Five. Then more. Engines. Ladders. An ambulance. Then cop cars. The convoy thickens as I get closer, the sirens stacking on top of each other until the sound is a single, sustained wail that doesn't stop.
+Three. Five. Then more. Engines. Ladders. An ambulance. Then cop cars. The convoy thickens as I get closer, the sirens stacking on top of each other until the sound is a single, sustained wail that doesn't stop. 
 
 I crest the hill fast enough the tires leave the asphalt. 
 
 My breath catches.
 
-No. 
-
-The apartment is engulfed in ten floors of flame, the windows blown out, black smoke churning upward in a column so thick it blots out the streetlights for two blocks in every direction. The fire is moving *fast,* climbing from the middle floors in both directions like it’s been fed a diet of gasoline. 
+The apartment is engulfed flames, the windows blown out, smoke churning upward in a column so thick it blots out the streetlights. The fire is moving fast, climbing from the middle floors in both directions like it’s been fed a diet of gasoline and meth. 
 
 I punch the gas. 
 
-I don't remember screeching to a stop. I don't remember leaving the car. All I remember is running; past the barricades, past the trucks, into the crowd of evacuees huddled on the far sidewalk. Faces lit orange by the blaze. Blankets. Bare feet. Children crying.
+I don't remember leaving the car. All I remember is running; past the barricades, past the trucks, into the crowd of evacuees huddled on the far sidewalk. Blankets. Bare feet. Children crying.
 
 'Abigail! *Abigail, are you here?*'
 
-I'm grabbing people. Pulling them toward me. Scanning every face for the one that matters. An old man in a bathrobe. A woman clutching a cat. A teenager with headphones still around his neck, staring slack-jawed at the building like he's watching the climax of an action movie.
-
-She's not among them.
+I'm grabbing people. Pulling them toward me. Scanning every face. An old man in a bathrobe. A woman clutching a cat. A teenager with headphones still around his neck, staring slack-jawed at the building like he's watching the climax of an action movie.
 
 She's not here.
 
+**She's not here.**
+
 '*ABIGAIL!*'
 
-Then, from above, cracking under the weight of its own terror:
+**'Dad!'** Her bedroom window. She's leaning out, coughing, the smoke pouring around her in black curtains. ‘I can’t get out!’
 
-'Dad!'
+I’m spinning, taking stock of our options. The ladders are up. Crews are working them, extending the sections, but they're not going to reach. The rig is rated for seven floors. She's on ten.
 
-Tenth floor. Her bedroom window. She's leaning out, coughing, the smoke pouring around her in black curtains. Her pajamas. Her hair. The ladders are up. I can see the crews working them, extending the sections. They're not going to reach. The rig is rated for seven floors, maybe eight with full extension. She's on ten.
+I’ll do it myself. 
 
-I'll do it myself.
-
-I'm past the first barricade before they even see me coming. A firefighter grabs my arm—I break his grip. Another steps in front of me—I feed him an elbow, hear the crunch of a nose guard folding. The chief is shouting something about a meth lab, about a drug operation on the sixth floor, about accelerants and structural compromise and everyone needing to stay the fuck back before—
+I'm past the first barricade before they even see me coming. A firefighter grabs my arm and I break his grip. Another steps in front of me and I feed him an elbow, hear the crunch of a nose guard folding. The chief is shouting something about a drug lab, about a narcotics operation on the sixth floor, about accelerants and structural compromise and everyone needing to stay the fuck back before—
 
 I don't hear any of it.
 
@@ -66,244 +58,266 @@ My daughter is in that building.
 
 *My daughter.* 
 
-I hit the front doors at a sprint, both hands out, and throw them open.
+I hit the front doors at a sprint, both hands out. 
 
-The flashover catches me full in the chest.
-
-It's a wall of superheated air and gas detonating outward. It lifts me off my feet and throws me fifteen yards across the pavement. I land on my spine. The back of my skull bounces off the asphalt.
+A wall of air and gas detonates outward. It lifts me off my feet and throws me fifteen yards across the pavement. I land on my spine. The back of my skull bounces off the asphalt. 
 
 For a moment, everything is white. Ringing. 
 
-Then I hear a sound like the earth clearing its throat.
+Then I hear a sound like the earth clearing its throat. 
 
-I lift my head in time to see the middle of the building sag. The sixth floor collapses into the fifth, which collapses into the fourth, and the cascade travels upward—seventh, eighth, ninth—each floor pancaking into the one below with a groan of steel and a detonation of glass. The tenth floor tilts. Hangs. For one impossible second, Abigail's bedroom is suspended at a forty-five degree angle against the burning sky, and I can see her—or I think I can, a small shape in the window, reaching—
+I lift my head in time to see the middle of the building sag. The sixth floor collapses into the fifth, which collapses into the fourth, and the cascade travels upward—seventh, eighth, ninth—each floor pancaking into the one below with a groan of steel and a detonation of glass. The tenth floor tilts. Hangs. For one impossible second, Abigail's bedroom is suspended at a forty-five degree angle against the burning sky, and I can see her; a small shape in the window, reaching for her father—
 
 The building folds.
 
-It comes down in a roar that swallows every other sound in the world, a tsunami of brick and fire and shattered lives that washes across the street in a cloud of dust and heat. The firefighters drag me backward. It takes four of them. They barely clear the debris field before the wave hits; a rolling avalanche of rubble that buries the pavement where I was standing three seconds ago.
+It comes down in a roar that swallows the world, a tsunami of brick and fire that washes across the street in a cloud of dust and heat. Firefighters drag me backward, just barely clearing the debris field before the rolling avalanche of rubble buries the pavement where I was standing not three seconds ago.
 
 The screaming stops.
 
-All of it. The sirens, the crowd, the building. Even the fire seems quieter, settling into the wreckage with a low, satisfied crackle, its hunger sate.
+Everything get quiet. Even the fire settles into the wreckage with a low, satisfied crackle.
 
 'Abigail?' I whimper.
 
 She doesn't answer.
 
-She never will, not ever again.
+She won’t. Not ever again.
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-'Mr. Jhune?'
+The basement blurs back into focus. Concrete beneath my knees. The drip of a pipe somewhere overhead. And beside me, a boy whose chest is rising and falling.
 
-The voice is weak. 
+Tyler's eyes flutter open. They find the ceiling first. Then the pipes. Then the empty corner where something terrible had been sitting and whistling and drawing pictures of people dying.
 
-I blink and the fire is gone. So is the rubble. I'm in the basement, kneeling beside a boy I promised to save. Tyler’s alive. He’s awake. 
+Then me.
 
-He looks up at the ceiling. At the pipes. At the empty space in the corner where, moments ago, something terrible had been sitting and whistling and drawing pictures of people dying.
+'Hey, kid.'
 
-Then looks at me.
+His head snaps toward the corner. 'The Tall Dog--'
 
-'You beat it, didn’t you?' he says, voice hoarse. 
+'Gone.' I grip his arm, help him to his feet. 'Told you I'd handle it.'
 
-The thing inside me shifts. A rattlesnake coiling into a new position.
+He searches my face for the lie. I make sure he doesn't find it.
 
-‘Yeah,’ I grunt, helping him to his feet. ‘The Tall Dog won’t hurt anybody else.’
+We crawl back through the ventilation shaft in silence, my body scraping against aluminum while the thing behind my ribs scrapes against bone. Tyler goes first. I follow, biting down each time the Tall Dog shifts its weight inside me, turning every grunt of pain into the ordinary effort of a man hauling himself through a tight space.
 
-His legs are unsteady, but he grips my arm and finds his balance. I lead him through the dark, and we crawl through the ventilation shaft that leads to the stairwell. On the other side, loose bricks are scattered across the floor where Tyler knocked them free coming to my rescue. 
+The stairwell is waiting on the other side.
 
-The Bad Ending. It’s gone. 
+And it's just a stairwell. No rotting wallpaper. No stick figures drawn in haunted Crayola. Just fluorescent light and peeling paint and the ordinary, beautiful mundanity of a building that doesn't know what lives beneath it.
 
-There’s no rotting wallpaper. No stick-figures drawn in haunted Crayola. It's just a stairwell again, fluorescent lights flickering weakly above. We climb to the steps to the lobby. I squint at the moonlight spilling through the slot-window.
+We climb to the lobby without speaking. Moonlight spills through the slot-windows, painting long white rectangles on the linoleum.
 
-'You better get back to your mom,’ I say, nodding upstairs. ‘If she wakes up and you’re gone, she’s gonna lose her mind.’
+'You should get home,' I say. 'If your mother wakes up and you're gone, she'll lose her mind.'
 
-He grips the handrail. 'What about you? Where are you going?'
+'What about you? Where are you going?'
 
-My throat tightens. The Tall Dog is pushing against my bones, clawing at the inside of my skull. 
+'To meet my colleagues,' I say, and my voice sounds almost normal. Almost steady. 'Got to debrief the team. File some reports. Boring stuff. You'd hate it.'
 
-'To meet my colleagues,' I say, trying to keep the tremor from my voice. 'I've got to debrief the team. File some reports. File a lot of reports, actually.’ I force a grin. ‘It’s boring stuff. You’d hate it.’
+The Tall Dog shifts behind my sternum. A slow, grinding pressure, like a fist closing around my spine from the inside.
 
-But he doesn't move. He's looking at me the way children look at adults when they know they're being lied to but haven't yet decided whether to say so. His eyes travel from my face to my arm, the one that’s pressed against my ribs and trembling.
+Tyler doesn't move.
+
+He's looking at me the way children look at adults when they know they're being lied to but haven't decided whether to say so. His eyes travel from my face to my arm, the one pressed against my ribs and trembling.
 
 'You're hurt,' he says.
 
-'This?’
+'Looks worse than it is.'
 
-'Yeah. You're shaking.'
+'You're shaking.'
 
-‘Nah, just shivering. It's bloody cold in here.'
+I almost tell him I'm cold. That the basement air got to me. That it's nothing. But the lie won't come. Not this time. Not to him.
 
-He frowns. 'It's not cold at all.'
+So I just stand there, holding his gaze, with nothing left to hide behind.
 
-I open my mouth to deliver another lie, and that's when he steps off the stairs and walks back to me, wraps his arms around my waist, and says:
+He steps off the stairs. Crosses the distance between us. And wraps his arms around my waist.
 
-'Thank you.’
+My hand finds the back of his head. I mean to give it a pat, the kind of brisk, awkward gesture that says *you're welcome, now go home.* But my hand doesn't move. It just stays there, resting on his hair, and I can feel his heartbeat against my ribs, quick and alive, so close to where the Tall Dog is coiled that for a moment I can't tell which pulse is which.
 
-My hand finds the back of his head, gives him an awkward pat. ‘Don’t mention it. Part of the job.’
+'Thank you for coming back,' he says, voice cracking. 'Thank you for keeping your promise.'
 
-'I'm not talking about stopping the Tall Dog.' He buries his face in my jacket, and I can feel the tears through my shirt. 'Thank you for coming back. Thank you for keeping your promise.'
+I can't speak.
 
-My hand stills on his head. 
+Can't do anything except stand in the lobby of a building that almost killed us both, holding a boy who needed me and realizing that maybe I needed him just as much.
 
-For a moment I can't speak. Can't do anything except stand there in the lobby of a building that almost killed us both, holding a boy who needed me and realizing that maybe I needed him just as much. 
+'It's late,' I manage, when I finally trust my voice again. 'You really need to get going.'
 
-'It's late,' I manage finally, swiping the tears from my eyes. 'Your mom'll be wondering where you've gotten to.’
+He pulls away, wiping his nose with the back of his hand. Sniffles. Then glances down at the Superman figure still clutched in his fist. Turns it over in his fingers, studying it like he's seeing it for the first time.
 
-He pulls back, wiping his nose with the back of his hand. Sniffles once. Then glances down at the Superman figure still clutched in his other fist. He turns it over in his fingers, studying it like he’s seeing it for the first time.
+'I wish I had an action figure of you,' he says quietly. 'You could be part of the team. Right next to Superman.'
 
-‘I wish I had one of you,’ he says quietly.
+I laugh.
 
-‘Of me?’
+'I appreciate that, kid. But I haven't earned a spot next to Superman.'
 
-He nods. ‘You could be part of the team. I’d put your action figure right next to Superman.’
+He squints at me. 'Superman couldn't save me. But you did.'
 
-The laugh comes raw and involuntary. It hurts. But then, so does everything right now.
+Tyler's face shifts. Just for a second. The lobby light catches his eyes at an angle and they're not his anymore, they're hazel, and the hair is darker, and there's a gap between the front teeth that she hated and her mother loved.
 
-‘Thanks, kid, but I don’t think I’ve earned a spot next to Superman.’
+Then Tyler blinks, and he's Tyler again.
 
-Tyler looks at me, unimpressed.
+'What if another monster comes after me?' he asks, chin dropping to his chest.
 
-‘Superman couldn’t save me,’ he says simply. ‘But you did.’
+I kneel so we're eye to eye. 'Then you'll handle it.'
 
-My vision blurs.
+'How?'
 
-Something breaks inside me. I blink, and for the span of a heartbeat the face looking up at me isn’t Tyler’s. It’s hers. Dark hair. Sharp jaw. That gap between her front teeth that she hated and her mother loved.
+'Because.' I take off my jacket, draping it over his shoulders. 'As of right now, you're an honorary Inquisitor. And that means it's the monsters that’ll be scared of you.'
 
-Tyler’s expression falls. All at once, I see the fear creeping in. The trauma.
+His face lights up. 'Seriously?'
 
-‘What if another monster comes after me?’ he whimpers.
+'That's how it works.'
 
-‘It won’t.’
+He grins, standing a little taller, hands running over the fabric. For a few seconds he's not a traumatized boy in a haunted building. He's a kid who just got the best present of his life.
 
-He gets small. ‘You don’t know that.’
+'Tyler?!'
 
-‘Actually,’ I tell him, taking off my jacket and draping it over his shoulders. ‘I do.’
+Mrs. Copeland. Her voice cracks down the stairwell from somewhere above, shrill and terrified.
 
-He meets my eyes, not understanding.
+'Tyler, baby, are you down there?!'
 
-‘As of tonight,’ I tell him, ‘I’m making you an honorary Inquisitor. And that means it’s the monsters that’ll be afraid of *you*.’
+My hand finds his hair. Gives it a gentle scruff.
 
-‘An… Inquisitor?’ His face lights up. He stands a little taller, hands running over the fabric in childlike wonder. ‘Like you?’
+'Sounds like HQ is looking for you, Inquisitor. Better report in.'
 
-‘Like me.’
+His lip trembles. For a moment I think he's going to break. But then something clicks behind his eyes, some decision only he understands, and he throws up a sloppy, perfect salute.
 
-Somewhere in the stairwell above, a door bangs open. A voice calls out shrill and afraid; the voice of a woman who’s checked her son’s bedroom and found it empty.
+'Understood. See you on the next mission, sir.'
 
-‘Tyler?! Tyler, where are you, baby?!’
+He turns and runs, the jacket waving behind him like a cape. 'Mom! *Mom!* Mr. Jhune did it! He beat the Tall Dog and made me a secret agent and—'
 
-I smile.
-
-‘Sounds like HQ is looking for you, Inquisitor. Better get moving’
-
-He hesitates. His lip trembles. For a second, I think he’s going to break down, but then he finds his courage, throws up a sloppy, perfect salute and says, ‘Understood. See you on the next mission, sir.’
-
-I return the salute.
-
-He turns and runs, black jacket waving behind him like a cape. His bare feet slap against the steps, the sound rising through the stairwell like a drumroll, and I listen to it the way you listen to music you know you’ll never hear again.
-
-‘Mom!’ he’s shouting. ‘*Mom!* Mr. Jhune did it! He beat the Tall Dog! He made me a secret agent and he’s going to meet his friends and—’
+His bare feet slap against the steps, the sound rising through the stairwell like a drumroll, getting fainter, getting further away, until there's nothing left of it. I listen to it the way you listen to music you know you’ll never hear again. 
 
 The door swings shut.
 
-It’s quiet again. 
+Quiet.
 
-The worst kind. 
+The worst kind of quiet.
 
-My knees hit the floor. The smile falls off my face like a mask cut loose. 
+I stand there for as long as it takes. Letting the sound of him fade completely. Letting the lobby settle back into its own silence.
 
-The Tall Dog seizes the moment, and a jagged spike of pain splits my ribcage from the inside. My left hand spasms open, the fingers extending past their natural range with a series of wet pops. I double over, forehead against the cold linoleum, breathing through my teeth as my armor reacts, wrapping around my hand to force the Tall Dog back. 
+Then my knees give.
 
-I push myself to my feet, making for the alley exit. I hit the door hard enough the frosted glass cracks, and the midnight air enters my lungs like swallowing a fistful of needles.
+The smile drops off my face like a mask cut loose, and the Tall Dog seizes its moment. My left hand spasms open, fingers extending past their natural range with a series of wet pops. I pitch forward, forehead against cold linoleum, hissing through my teeth as my armor reacts, wrapping around my hand to force the creature back.
 
-My right arm is clamped against my ribs, trembling so violently the elbow is clicking against my hip bone. I can feel it in there. Coiled behind my sternum, pressing outward, testing the walls of its new cage. My armor is doing what it can, constricting around my torso like a tourniquet, redistributing its mass to wherever the pressure is greatest. It's been keeping me alive since the bonding ceremony. Now it's keeping something else from getting out.
+*‘Almost finished,’* I groan. *‘Just a little further, Vincent.’*
 
-But it won't hold forever.
+I make it out the alley doors. The midnight air hits my face like cold water, and three steps down toward the street, my legs decide they're finished. The stairs catch me on the way down. Shoulder, hip, skull. I come to rest at the bottom with my cheek against concrete and the Tall Dog writhing behind my ribs.
 
-And all at once I finally get it; why it chose me. 
+The armor stirs against my chest. Holding it back. Holding me together. 
 
-It coaxes the faintest smile from the edge of my lips. ‘You knew I had something to live for back then, didn’t you?’ I stagger. ‘You knew Abby needed me alive. That someone like Tyler would need me too, eventually.’
+I laugh. Just barely. 
 
-The armor pulses once. Faintly. 
+'I think I finally understand,' I murmur. 'Why you chose me.' Another spasm. I grit through it. 'You knew, didn't you? Even when I didn't. You knew I had something worth—*ngh*—worth living for.'
 
-‘Thank you,’ I whisper. ‘For seeing what I couldn't.’
+A pulse. Faint. Like a heartbeat answering mine.
 
-It shudders against my skin. Settles. The pulse thins to something I can barely feel, like a heartbeat heard through a wall.
+Then, from somewhere beyond the alley mouth: tires. The shriek of rubber on asphalt. The Hearse rounds the corner and brakes hard enough to rock on its suspension, the rear panels already sliding open before the chassis stops moving. Five Pales pour out in formation, armor sealed, faces blank. They fan across the alley with their rifles up, scanning for a target.
 
-Tires scream against asphalt in the distance. 
+They find me instead.
 
-A matte-black vehicle rounds the alley corner and brakes hard, the rear panels already sliding open before the chassis stops rocking. My armor shudders in resonance as five Pales pour out in formation: armor sealed, faces hidden behind featureless white like a firing squad of mannequins. 
-
-I open my mouth to speak.
-
-The words tangle. My tongue moves in two directions at once, trying to form language for two minds simultaneously. All that comes out is a thin, reedy whistle. 
+I try to speak but my tongue won't cooperate. It jerks in two directions at once, the Tall Dog trying to form its own sounds through my mouth, and what comes out isn't language but a thin, reedy whistle.
 
 The Pales freeze.
 
-One steps forward, his posture shifting from alert to lethal in the space of a heartbeat. He takes stock of my bloodied suit, my trembling arm, the way my jaw is hanging slightly too far open.
+The nearest one raises his rifle. I can hear the click of the safety disengaging.
 
-'Inquisitor,' he says, the mask turning his voice to gravel. 'Say again.'
+'Identify yourself,' he says. The mask makes it sound like gravel being poured into a grave.
 
-My throat bulges. A visible, physical distension, as though something inside is trying to climb up. My armor *squeezes,* and the bulge retreats, and I taste copper and ash.
+I reach into my jacket. Pull out the revolver. What's left of it. I toss the wreckage at his boots.
 
-I reach into my jacket with my good hand. The revolver, or what's left of it, comes out in pieces of ruined steel.  
+He looks down. Back up.
 
-My one clean exit. Useless.
+'Inquisitor Jh—'
 
-I toss it at his boots. He looks down at them. Back at me.
+Something surges up my throat. I choke on it, double over, feel the shape of the Tall Dog's skull pressing against the inside of my esophagus, trying to crown. My armor clamps down. Squeezes. Forces it back.
 
-'I can't do it myself,' I rasp. 'There’s an entity inside me. Class 6. It's trying to breach.' A spasm wracks my spine, dropping me to one knee. 'You need to... you need to finish it...'
+The Pale takes a sharp step back. 
 
-My vision whites out. The alley disappears.
+'Entity—' I manage between contractions. 'Inside me. Class 6. Trying to—'
 
-For a moment, I'm not kneeling on asphalt. I'm in the boiler room. I can smell the furnace, feel the heat of it on my face, hear the distant whistle of pipes that have been singing the same song for a hundred years. The Tall Dog is inside me and I'm inside its memory, and the two are becoming difficult to distinguish.
+Another surge. Worse. My jaw unhinges and for one terrible second I hear the whistle pouring from my own open mouth, bright and cheerful and not mine.
 
-The pavement slams back into focus. I'm gasping. The Pale is closer now, three feet away, his rifle trained on my chest but his posture changed from aggressive to careful, a man approaching a bomb he can hear ticking.
+I bite down until I taste blood.
 
-'Hurry,' I breathe. 'I can't hold it much longer.'
+'—trying to breach. You need to—you need—'
 
-He looks over his shoulder. Calls out to the Hearse. ‘Bishop—we’ve got a situation.’
+The alley goes. Sound goes. Everything goes and suddenly I'm somewhere else entirely. The boiler room. I can smell the furnace, hear the distant whistle of pipes that have been singing the same song for a hundred years. The Tall Dog is inside me and I'm inside its memory, and the two are becoming difficult to distinguish.
 
-A tired voice rises from the Hearse. ‘Christ, Yoon. You want that promotion, you’ve gotta run your own bloody mission. That’s the deal. I’m not supposed to be here, so this better be a fucking emergency.’
+Then the pavement slams back into focus. 
 
-The sixth, and final Pale emerges from the back of the Hearse with a yawn. His armor is battered in a way the others aren’t. It’s almost as bad as Stevenson’s was before the house claimed her. It’s covered in deep gouges, lanced by bolts of blood and unwashable grime. He looks out the back of the Hearse and freezes. 
+I'm gasping. The Pale is closer now, rifle trained on my chest like a man approaching a bomb he can hear ticking.
 
-My left shoulder wrenches back\*.\* The sleeve of my jacket splits along the seam as the arm drops another eight inches, the knuckles dragging against the pavement, the fingers lengthening into something inhuman. 
+'Can’t…' I wheeze. 'Can't… hold it in much longer.'
 
-‘Sir, what—’
+He looks over his shoulder. Calls out to the Hearse. ‘Bishop! We’ve got a situation!’
 
-‘I fucking heard you, Yoon.’
+A tired voice rises from inside. ‘Christ, Yoon. We’ve been over this. You want that promotion, you’ve gotta run your own bloody mission for once. This better be a fucking emergency, *pendejo*.’
 
-The Bishop leaps from the Hearse. 
+The Bishop emerges from the Hearse. His armor is battered in a way the others aren’t, almost as bad as Stevenson’s before the house claimed her. He looks at me and freezes.
 
-He launches into full command, knife-handing his subordinates with orders. ‘Gilford, contact HQ. Tell them we need a Warlock here with a curse kit ten minutes go. Milbrook, grab the first aid kit from the Hearse. Actually, you do it, O’Ryan. I’ve seen Milbrook’s work with a suture. Blaise, get me—’
+I try to speak to him, try to explain the situation but my shoulder wrenches back with a violent crack. The sleeve of my jacket splits along the seams, my knuckles dragging against the pavement, fingers lengthening into something inhuman. 
+
+‘Sir, what should we—’
+
+‘I’m fucking thinking, Yoon!’
+
+The Bishop leaps from the Hearse, launching into command. ‘Gilford, contact HQ. We need a Warlock with a curse kit. Milbrook, grab the medkit from. Actually—you do it, O’Ryan. I’ve seen Milbrook’s work with a suture. Blaise, get me—’
 
 My jaw unhinges.
 
-'LET. ME. ***OUT.*****'**
+**'LEt. mE.** ***OUT.*****'**
 
-The voice erupts in a series of barks layered over the wet whistle of the Tall Dog's native tongue. My jaw cracks again. A stuttering arm that’s crayon-gray, and two-dimensional, scribbled with patches of dark fur, reaches past my lips.
+The voice erupts in a series of barks. My jaw cracks again. A stuttering arm that’s crayon-gray, and scribbled with patches of dark fur, reaches past my lips.
 
 No.
 
-I bite down. The arm withdraws, and I swallow hard, forcing the Tall Dog back into my chest, back behind the armor's failing perimeter.
+I bite down, forcing the Tall Dog back into my chest, back behind the armor's failing perimeter. The world flickers. Dims.
 
-The Bishop drops beside me. His hands are on my shoulders, my arms, grabbing at my jerking limbs with the desperate, uncoordinated grip of a man who is trained to fight monsters and has no training for this\*.\* 
+When I open my eyes again, the Bishop is on his knees. He’s holding my jerking limbs with the desperate, uncoordinated grip of a man who has no idea what he’s up against.  
 
-'Hold on,' he says, the words rough behind the expressionless mask. 'Don't you dare give up on me, Juno. You hear me? Don't you *dare.*'
+'Hold on,' he grunts. 'You hear me? Don't you dare give up. Don't you *dare, Juno.*'
 
-*Juno…?*
-
-Only one person has ever called me that.
-
-My vision is strobing—alley, boiler room, alley, boiler room—the Tall Dog's dimension and mine trading places like shuffled cards. But between the flickers, I see the white armor peel back from the Bishop’s face, retreating down his jaw, his neck, past his collar.
+My vision is strobing—alley, boiler room, alley, boiler room—the Tall Dog's dimension and mine trading places like shuffled cards. But between the shifts, I see the white armor peel back from the Bishop’s face, retreating down his jaw and past his collar.
 
 Tanned skin. Bushy mustache. Crow's feet framing dark, jovial eyes.  
 
-'Alvarez…?' I breathe.
+'A-Alvarez…?' I breathe.
 
-He doesn't smile. That's how I know it's real, how I know this isn't the Tall Dog copying him because Alvarez always smiles. In combat, in the Hearse, in the med bay, even on the day we held the funeral for 6th Div. 
+‘Pull yourself together,’ he hisses, clutching my face. ‘If I have to watch you bite the dust next to a dumpster, I’m gonna hate you for the rest of my life.’ He turns, shouting with a fury Stevenson could scarcely manage. ‘Gilford! *Where the fuck is that Warlock?!’*
 
-But he isn’t smiling [now](https://www.reddit.com/r/TalesFromTheCryptid/comments/1s7cdli/the_tall_dog_of_barrow_heights_finale/).
+I grip his forearm. 
+
+'No… time.’ Each word is a slow labour. 'Need you to… help me...'
+
+He stares back like he’s bracing for impact. ‘Help you how?’ 
+
+I cough blood. ‘Protocol…13.'
+
+The words hang in the night air. Alvarez doesn't move. Doesn't blink. His face goes through a rapid, tectonic shift from confusion to comprehension to refusal, each stage lasting no more than a fraction of a second before being crushed by the next.
+
+'Proto...' The last word stalls in his throat like a jammed round. 'You're not—come on, Juno, don't talk like that. Gilford! *Gilford, where the fuck is—somebody find Gilford and get me an ETA on the goddamn curse kit!*'
+
+My head snaps back.
+
+The Tall Dog's skull crests my lips, the first scribbled lines of its ears pushing through my open jaw like a creature being born in reverse. Alvarez recoils. The squad behind him raises their rifles on instinct, a half-dozen barrels tracking the nightmare emerging from my mouth.
+
+I grab it.
+
+Shove it back down. 
+
+The Tall Dog screams in my voice, in Alvarez’, in Florence's. My throat tears. Blood fills my mouth. But it goes down. It goes down, because I am not done yet, and the creature inside me is going to wait until I say what I need to say.
+
+‘How do I kill it?’ Alvarez asks, desperate. ‘Tell me.’
+
+‘Can’t…’ I'm doubled over, eyes bulging. 'Can't be killed from… outside. Bullets… pass through it. Only thing holding it in three dimensions… is me.’
+
+‘Juno—’
+
+I cut him off, blood pouring from my mouth. ‘No other way… If it breaks free, you and your squad are dead…’ My eyes flick to Barrow Heights. ‘So is everyone else.’ 
+
+'You… You can’t ask me to do this.’
+
+‘I’m not asking.’
+
+My voice hardens. ‘This... is an order, [Bishop.’](https://www.reddit.com/r/TalesFromTheCryptid/comments/1s7cdli/the_tall_dog_of_barrow_heights_finale/)
 
 [FINAL LOG](https://www.reddit.com/r/TalesFromTheCryptid/comments/1s7cdli/the_tall_dog_of_barrow_heights_finale/)

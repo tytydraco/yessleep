@@ -1,585 +1,529 @@
-The apartment building eats children. It’s been doing it for almost a century now, ever since the first girl vanished back in 1936. 
+The apartment building eats children. It's been doing it for almost a century now, ever since the first girl vanished back in 1936.
 
-I fish inside my black suit, pulling out a notebook. Inside are newspaper clippings. Notes. It’s a record of this case: The Barrow Heights Anomaly. I’ve been tracking it peripherally for the last six years, biding my time, waiting for the next turn of the cycle. 
+I fish inside my suit, pull out a red notebook. Inside are newspaper clippings. Photos. It's a record of this case: The Barrow Heights Anomaly. I've been tracking it for the last six years, biding my time, waiting for the next turn of the cycle.
 
-And now it’s showtime.
+And now the nightmare’s returned. 
 
-The glare of the sunset is pouring across the apartment's crumbling red brickwork. It’s ten stories tall. A rotting behemoth succumbing to the same poverty as its residents. The sounds of the inner city howl at my back: sirens, honking, and everything else that reminds me of my past, that reminds me of her, that reminds me of—
+The sunset pours across the apartment's crumbling brickwork. It's a rotting behemoth, ten stories tall and succumbing to the same poverty as its residents. The sounds of the inner city howl at my back: sirens, honking, and everything else that reminds me of my past, that reminds me of her.
 
-‘Jesus, Vincent,’ I mutter, clawing a hand through my hair. ‘She’s dead. Let her be dead.’
+I shake the memory, punch the unit number into the buzzer. It rings twice.
 
-I shake the memory, punch the unit number into the buzzer and it rings twice. 
+A woman's voice crackles through. 
 
-A woman’s exhausted voice crackles through. ‘H-Hello?’ 
+'Evening, Mrs. Copeland. This is Inquisitor—'
 
-‘Evening, Mrs. Copeland. This is Inquisitor Jhune—’
+'Who?'
 
-‘Who?’
+I clear my throat. *'Inquisitor Jhune.* With the Order of Alice. We spoke over the phone regarding your son.'
 
-I clear my throat, raise my voice to cut through the static. 'Inquisitor Jhune. With the Order of Alice. We spoke over the phone regarding your son, Tyler’s—'
-
-A sharp intake of breath. *'You’re here. Thank God.'*
+A sharp intake of breath. ‘Oh, you actually came. Thank God.'
 
 Click.
 
-The line goes dead. There’s a harsh buzz as the lock disengages, and I push through the front doors and step into the lobby.
+The lock buzzes, and I push through the front doors into the lobby.
 
-A chill runs the length of my spine.
+The paint on the walls has been splashed over old graffiti in uneven strokes, and beneath all of it something I can't name is pressing outward. A feeling, like this building has been waiting for me.
 
-This place, there’s something about it that’s setting my teeth on edge. Maybe it’s the peeling wallpaper, and the black mold forming beneath it. Or maybe it’s the graffiti scratched across the walls, or the paint splashed over it like scabs on a wound. Or maybe it's what's underneath it all, something I can't quite name. 
+The elevator’s out of service.
 
-A weight. A held breath.
+I take the stairs. 
 
-A feeling like this building has been waiting for me. 
+I start climbing, hating how familiar this building feels. It’s the same claustrophobic air as my old apartment, the same creak in the steps, the same inescapable sensation that the walls are listening to my very thoughts.
 
-A girl's voice echoes in my mind. 
+The case, I focus on the case. 
 
-*Are you even coming home? Or should I just go to bed?* 
+Tyler Copeland. Ten years old. Kid’s been hearing whistling from a basement that doesn't exist. Two months he’s been barricading himself in his room, hiding behind a legion of action figures from a monster he says wants him dead. Antipsychotics haven't helped. Neither did an exorcism. 
 
-It’s been fifteen years since she died. Fifteen years of her memory finding new ways to gut me.
+That’s why I’m here.
 
-I give my head a firm shake and force my legs forward. The elevator doors are covered in overlapping layers of duct tape and a hand-scrawled sign: OUT OF SERVICE.
+His mother’s last hope. 
 
-Of course it is. 
+I reach the eighth floor, slipping my pocket watch from my suit. It’s capable of picking up supernatural activity a mile away, but there’s no alerts. No warnings. Just a pair of antique hands ticking lazily behind scuffed glass.
 
-I take the stairs, my mind churning through the details of the case, distracting itself from how familiar this building feels. How much it reminds me of my old apartment. It’s the same claustrophobic air. The same creaking steps. The same—
+I stuff it back into my jacket with a frown Maybe the kid’s delusional, then. 
 
-*'Tyler Copeland,'* I murmur to the empty stairwell, refocusing. *'Male. Ten years old. Two months of recurring hallucinations. Medication ineffective. Psychiatrist out of options. Mother desperate enough to bring in a priest for an exorcism—which failed, naturally, because real monsters don’t leave when you tell them to.’*
+Or lying.
 
-The kid claims he found a basement beneath Barrow Heights. Says there's a monster down there, living in the belly of the building.
+I knock twice.
 
-Trouble is, Barrow Heights doesn’t have a basement.
+A stampede of footsteps answers. The door swings open to reveal a stout woman with frazzled hair and eyes darkened from sleepless nights.
 
-I checked. 
+‘Hello,’ I begin. ‘I’m—’
 
-I even phoned ahead and got the landlady to pull up the original floorplans, and the documents confirmed that Barrow Heights is strictly above ground, and that's all it's ever been. 
+‘Yes, yes.’ Mrs. Copeland seizes my hand, shaking it with the grip of someone who's been drowning and just spotted a lifeboat. 'Come in, come in. I'll show you to Tyler.'
 
-Which means Tyler Copeland’s either lying, delusional, or knows something I don’t.
+I follow her into a cluttered apartment; carpets overlapping carpets, antiques teetering on the edge of every surface. Still, it feels lived in. Loved. The exact opposite of my own condo: a functional series of rooms devoid of anything that might remind me I ever cared about anything beyond the job. 
 
-I'm still undecided when I reach the apartment. I slip my pocket watch from my suit. There’s no alerts. No warnings. Just a pair of antique hands ticking lazily behind scuffed glass. 
+She leads me to a door with a Superman poster taped to the front. Then hesitates. ‘His action figures,’ she says quietly. ‘Try not to touch them, okay? He's got them arranged to protect the bedroom from, um...’ 
 
-I knock twice. 
+‘The Tall Dog?’ I offer.
 
-A stampede of footsteps answers. The door swings open to reveal a stout woman with frazzled hair and kind eyes darkened from sleepless nights. 
+Her eyes close. It’s like she can’t bear the sound of the name. ‘Yes. That’s what he’s calling it.’
 
-'Ah—Mr. Jhune!' She seizes my hand, shaking it with the desperate grip of someone who's been drowning and just spotted a lifeboat. ‘Come in, come in. I’ll show you to Tyler.’
+‘Do they help?’ I ask. 
 
-I follow her into an apartment that assaults my senses in the best possible way.
+‘I don’t know. Maybe. Kinsley says it's a sign he's developing his own coping mechanisms at the very least. She thinks if we make him feel safe with his rituals now, it might make him more willing to try healthier ones we suggest later.'
 
-It's cluttered. Carpets overlap carpets in clashing patterns. Drapes in jewel tones frame every window. Antiques teeter on the edge of every surface. But it feels lived in. Loved. It’s the opposite of my own apartment: a sparse, functional, series of cube-shaped rooms devoid of anything that might remind me I once cared about something outside my job. 
+‘Makes sense.’
 
-She leads me to a door with a Superman poster taped crooked to the front. ‘Oh—one more thing. Try not to touch his action figures. He's got them arranged to protect the bedroom.’ 
+Her knuckles rap against the door. 'Tyler, dear? There's a man here to see you. His name is Mr. Jhune.'
 
-She lowers her voice. 'Dr. Kinsley says it's a sign he's developing his own coping mechanisms. If I make him feel safe with his rituals now, he might be more willing to try healthier ones I suggest later.'
+A muffled groan. 'Another doctor?'
 
-‘Right,’ I say. ‘No problem.’
+I clear my throat. 'No. I'd just like to talk for a bit.'
 
-‘Bless you.’ Her knuckles rap the door. ‘Tyler, dear? There's a man here to see you.’
+A beat of silence.
 
-A muffled groan from the other side. 'Another doctor?'
+*'Just talk?'* 
 
-'No. I’m an Inquisitor. I'd just like to talk for a bit.'
+'Just talk.’
 
-There’s a beat of silence. 
+The door swings inward to reveal a room that looks like a comic book store exploded. Every inch is covered in superhero paraphernalia, and there, arranged across his desk in careful formation, is an army of action figures led by Superman himself.
 
-‘Just talk?’
+'Cool suit, dude.’
 
-‘Just talk,’ I tell him. 
+I look down.
 
-The door swings inward to reveal a room that looks like a comic book store exploded. Every inch is covered in superhero paraphernalia. And there, arranged across his desk in careful formation, is an army of action figures standing shoulder-to-shoulder like soldiers manning a barricade led by Superman himself. 
+A boy stands before me in Superman pajamas, mousy brown hair sticking up in the back. His bloodshot eyes tell me he's had just as little sleep as his mother. 
 
-‘Cool suit.’ A small boy stands before me with mousy brown hair that sticks up in the back and bloodshot eyes that tell me hasn’t had a proper sleep in weeks. ‘You look like you work for SHIELD, dude.’
+‘You look like you work for SHIELD.’ His eyes go wide at my hip. ‘Whoa! Is that a .57 magnum? Badass!’
 
-‘Not *dude*,’ Mrs. Copeland says gently. ‘Mr. Jhune.’
+Mrs. Copeland sweeps forward, glancing uneasily at my revolver. ‘Guns aren’t *badass*, Tyler. They're dangerous. You should know that after-' Her voice catches. Grief swims in her eyes. ‘After…’
 
-‘Right. Sorry. Cool suit, Mr. err—Jhune.’
+She can’t finish. 
 
-She sighs, turning back to me with an apologetic smile. ‘Right, well I’ll let you two get acquainted then. Supper will be another hour, so no rush. Hope you like roast beef.’
+A small, anguished sound escapes her throat. Then she turns. 'Right, I’ll let you two get acquainted, then. If you need anything, Mr. Jhune, I’ll just be in the kitchen.’ 
 
-I feel my cheeks burn. ‘Oh, I appreciate it but—’
+Before I can thank her, the door closes. She's gone. Moments later, I hear the intentional clatter of pots and pans masking quiet sobs. 
 
-She’s waving her hands as she sweeps past me. ‘Nonsense. You’re a guest, Mr. Jhune. If you’re under my roof, then you’re eating my food, and I won't hear otherwise.’ She levels a finger at Tyler, ruffling his hair. ‘And you, my littlest gremlin, had best behave.’
+'So you’re the Inquisitor,' Tyler says, sizing me up. 'You don't look very *Spanish* to me.'
 
-‘I always behave!’  
+'Very funny,’ I mutter. ‘I'm old, but not *that* old. Doubt the Spanish Inquisition would hire a heretic like me anyway.’
 
-She snorts as she closes the door behind her, clearly not buying it. Her footsteps fade down the hallway, accompanied by the distant clatter of pots and pans.
+'Well, what kind of Inquisitor are you, then?'
 
-Tyler and I stand there for a moment, sizing each other up.
+'The kind that likes stories,’ I say, drifting through his room in search of clues. ‘I'm told you've got a good one.'
 
-'Inquisitor, huh.' His eyes narrow. 'You don't look very Spanish to me.'
+He slumps onto his bed. 'Who said that? Mom hates my story. So does Dr. Kinsley.'
 
-It takes me a second before it clicks. 'Ah… Spanish Inquisition,' I mutter, shaking my head. 'Very funny. I'm old, but not *that* old.'
+'Why’s that?'
 
-‘What kind of Inquisitor are you, then?’
+He picks at a loose thread on his blanket. 'They don't think kids should tell scary stories... or whatever.'
 
-‘The kind that likes stories. I hear you’ve got a good one.’
+I'm hearing them again — screams.
 
-He slumps back onto his bed, pulling his knees up. 'Mom and Dr. Kinsley hate my story.'
+Hers.
 
-‘Why’s that?’ I ask. 
+'Maybe I disagree.' I pull out his desk chair, take a seat, burying my daughter's memory. 'Maybe I think scary stories are the only ones worth telling.'
 
-'Because it's scary.' He starts picking at a loose thread on his blanket. 'They don't think kids should tell scary stories or whatever.'
+Tyler gets smaller. He reaches for a blanket crumpled at the foot of his bed and pulls it around his shoulders like a shield. 'You really want to hear about it?’ His voice breaks. ‘The Tall Dog, I mean?'
 
-I’m hearing them again—Abigail’s screams. 
+'That’s why I’m here, yes.’ I pull out my notebook, clicking my pen. ‘What can you tell me about it?'
 
-‘Maybe I disagree.’ I pull out his desk chair, take a seat, burying my daughter’s memory. ‘Maybe I think scary stories are the only ones worth telling.’
+He swallows. 'Lots. For starters, it whistles at night.’ His eyes swivel, fixing themselves on the rusty pipes running down the wall. ‘From all the way from down in the basement.'
 
-Tyler gets smaller.
+‘I've had a look downstairs. There's a janitor's closet at the foot of the steps, but there’s no basement. Not even room for one.'
 
-He reaches for a blanket crumpled at the foot of his bed and pulls it around his shoulders like a shield, bunching the fabric in his fists. ‘You want to hear about the Tall Dog, then?’
+His expression hardens. ‘It’s there, you just have to know how to find it.’
 
-I pull out my redbook, click my pen. ‘The… Tall Dog?’
+‘And who told you about it?’
 
-He swallows hard. 'That's its name. Or at least, that's what I call it.'
+'The Landlady.'
 
-My pen scratches across the page. ‘What else can you tell me about it?’
+My pen scratches across the page. ‘Agnes Miller? The ninety-six-year-old who runs this place?'
 
-‘Well, it whistles to me.’
+He nods. 
 
-His eyes swivel, fixing themselves on the rusty pipes running down the wall. 'At night. When everybody's asleep. It started a couple months ago, just once or twice a week sorta thing, but then it got worse.' 
+‘Why?’
 
-He pulls the blanket tighter, like he's trying to disappear inside it.
+‘Because she’s like me.’ His grip tightens around the blankets. ‘She hears the whistling too, has ever since she was a girl. She told me she knew how to make it stop.’ His voice cracks. 'But first I’d have to visit the thing in the basement, and make a choice, and then I’d never hear the whistling ever again, and…’
 
-‘It lives in the basement, but you have to know where to look to find the entrance.’
+He trails off. Sniffles. 
 
-‘And how did you know where to look?’ 
+‘And what?’ I press.
 
-‘The landlady told me.’
+‘And then I could see dad again.’
 
-A frown creases my face. ‘You’re talking about Agnes Miller. The ninety-six year-old woman that runs this place?’
+Silence stretches between us. I’ve never been good at grief. 
 
-He nods. ‘She called me on the phone, the old one out there in the hallway that spins.’
+He exhales, wiping a sleeve across his face. ‘But when I got to the bottom of the stairs, she was different. Scarier.’
 
-‘When?’
+My pen scratches across the page. ‘Scarier how?’
 
-‘A few days ago. After Mom fell asleep. The Landlady said she used to hear the whistling too, back when she was younger. But she knows a secret to make it stop, a secret that’ll make me happy again.' His voice cracks. 'A secret that could bring my dad back.'
-
-My chest tightens.
-
-Constable Frank Copeland was killed in the line of duty two years ago. I read the file on the way over. An undercover op gone wrong, caught in the crossfire of a human trafficking bust. 
-
-The kind of grief a predator could smell a mile away.
-
-'So you followed the landlady downstairs?' I ask.
-
-Tyler nods, cheeks red like he’s ashamed to admit it. ‘When I got to the bottom of the stairs, Ms. Miller seemed to change.’
-
-‘What do you mean?’
-
-‘She didn't look right. She was all... *slouched* and fat—like, way, way bigger than I remembered. Her hair was hanging down past her shoulders, and her face looked stretched out like Silly Putty.' He shivers. 'There was this hole in the wall behind her, and she told me it led to the basement, and that only she could make the entrance appear. Then she told me my dad was on the other side. If I crawled through, we could be together again, but first I’d have to make a hard choice.'
-
-Tyler’s voice cracks. His eyes crinkle shut.
-
-‘I crawled through the hole like she said, and it was dark inside. Pretty much pitch black. But I could hear the whistling up ahead and it kept getting louder. The Landlady told me to follow it. I came out into this room full of old laundry machines. Everything was rusty. Brown and orange, like it had been down there since forever. And—' 
+‘Well, her hair was falling out, and her face was all stretched, and stuff was moving under her skin. She showed me a pitch-black hole in the wall, and said if I wanted to see my dad again I’d have to hurry because only she could make the basement appear. So I did. I followed the whistling until I came out into a room full of old laundry machines, all rusty and brown, and…’
 
 His voice snags.
 
-'I shouldn't have listened.' His hands twist the blanket tighter. 'I should've known better—'
+‘What is it?’ I ask. 
+
+He gets small. 'I shouldn't have listened. I should've known better and—'
 
 'You didn't know,' I say firmly. 'You couldn't have.'
 
-His hands shoot up to his hair, fingers tangling in the mousy strands. 'It was obvious! I should've run away, but I was too scared of the Landlady, and I just—I just—'
+'It's gonna kill me,' he whispers. 'It's gonna kill me and then it’s gonna kill—'
 
-My hand closes over his wrist. ‘Tyler.’
+'No. It isn't.'
 
-He looks up at me, shaking. 
+'You don't *know* that!' The panic breaks through, his voice climbing. 'You're just saying it to make me feel better - like Mom does, l-like Dr. Kinsley does! Everyone keeps telling me it's not real, but I *know* it is, and it's gonna—'
 
-‘Let go of your hair,’ I say gently. 
+'Tyler.' My hands find his shoulders. 'Look at me.'
 
-His lower lip trembles. Tears spill over, tracking down his cheeks.
+He does.
 
-'It's gonna kill me,' he whispers. ‘It’s gonna kill me and—’
+'Do you know what an Inquisitor actually does?'
 
-‘No. It isn’t.’
+He sniffles, shakes his head.
 
-'You don't *know* that!' The panic breaks through, his voice climbing. 'You're just saying it to make me feel better—like Mom does, like Dr. Kinsley does! Everyone keeps telling me it's not real, but I *know* it is, and it's gonna—'
+'We hunt. Monsters. Boogeymen. Whatever hurts people, we hurt back. And we keep hurting it until it can't hurt anyone ever again.'
 
-‘Listen to me I grab hold of Tyler’s wrists, holding them and looking him in the eye. ‘I hunt monsters, that’s what being an Inquisitor means. So I’m not going to let anything happen to you.’ I tap the Red Book lying open on my lap. 'Monsters are like puzzles, and every puzzle has a solution. All you need to do is tell me everything that happened and I'll put the pieces together, okay? The Tall Dog won’t hurt you, or anyone else, ever again.’ 
+His eyes widen.  
 
-Tyler sucks in a shaky breath. Wipes his eyes with the heel of his hand. ‘O-Okay.’
+I tap the Red Book on my lap. 'Monsters are like puzzles, and every puzzle has a solution. Help me find it, and the Tall Dog is finished. But I need you to tell me everything. Even the stuff that doesn't seem important. Can you do that?'
 
-I settle back into the chair. ‘You said you saw old laundry machines in the basement.’
+He sucks in a breath. 'I can try.'
 
-‘Yeah,’ he says quietly. ‘And a shadow.’
+'Good. Start with the basement. What did you see?'
 
-'A shadow?’'
+He closes his eyes. Opens them. Closes them again, like he's trying to look at something he'd rather not see.
 
-He nods.
+'A shadow,' he says. 'With long ears. Like a dog's, but too big. Hanging down past where the shoulders should be.'
 
-'It had these long, floppy ears. Like a dog's, but too big, hanging down past where its shoulders should've been. And patches of fur all over, but not like... not like a real animal’s fur. More patchy.' His hands move as he talks, sketching the shape in the air. 'Its arms were really long, too. Longer than broomsticks even. And it was just sitting there, hunched over, drawing a picture with a crayon and whistling to itself.’ 
+I write. 'What else?'
 
-His voice catches. 
+'It had patches of fur, but not like a real animal. More like...' His hands move in front of him, fingers twitching, trying to sketch something in the air that doesn't have a shape. 'Like scribbles. Like someone drew the fur on with a marker.'
 
-'Then the whistling stopped. It dropped the crayon and held up two drawings in either hand, just holding them in the air without even turning around.' His breath quickens. 'And it spoke to me.’
+My pen stops.
 
-I lean forward, heart pounding. ‘What did it say?’
+'And its arms.' He's speaking faster now, the details spilling out like he's afraid they'll disappear if he doesn't get them out quickly enough. 'Really thin. Really long. Almost as long as its legs. And it was just sitting there with its back to me, hunched over, drawing on two pieces of paper. A crayon in each hand and I suddenly got this feeling, like...' He swallows. 'Like it already knew I was there. Like it had been waiting. And then it said…. It said…’
 
-His lips press together. He opens his mouth. Closes it. Tries again. It takes three attempts before the words finally come out, broken and small:  
+His lips press together. He opens his mouth. Closes it. Tries again. Three attempts before the words come out, broken and barely above a whisper.
 
-‘*Here, boy. Come and get it.’*
+'*Here, boy. Come and get it.*'
 
-The tone. The unnerving cheer. It’s enough to make my stomach twist. 
+A shiver crawls through me. 
 
-‘It wanted you to take its drawings,’ I croak. 
+'Then it slid the drawings across the floor,' Tyler says, quieter now. 'And told me to choose one.'
 
-But he shakes his head. 
+My pen finds the page again. 'Choose between what? What did it draw?'
 
-‘No,’ he says softly. ‘It wanted me to choose between them.’
+'All of us. Everyone who lives here. We were stick figures with little labels.' His breath starts coming faster. 'The first one showed me being—' He stops. Swallows. Forces himself through it. '—being eaten. By the Tall Dog. And everyone else was watching. Clapping. Like they were *happy* it was happening.'
 
-‘Choose between what? What did it draw?’
+I keep my voice level. 'And the second?'
 
-Tyler rubs his arm like he's trying to warm himself, but I can see goosebumps rising on his skin. 'Barrow Heights,' he answers. 'All of us, everyone who lives here. We were stick figures, but labeled like *Tyler, Mom, Mr. Andrews in 4E.* It looked like a kid drew the pictures. The first one showed me-’ His voice catches. ‘--showed me being eaten by the Tall Dog. All the other stick figures were watching. Cheering. Like they were *happy* I was being chewed up and---'
+'I was escaping in that one. Running away. But everyone else in Barrow Heights was killing each other.' He stares at a point on the floor between his feet. 'There were bloody scribbles everywhere, and bodies hanging out the windows, a-and a fire blocking the doors so nobody could get out.'
 
-‘The second drawing,’ I say, cutting him off before he spirals. ‘Tell me about that one.’
+I set the pen down.
 
-His voice cracks. 'It showed me running away. Escaping. But then everyone else in Barrow Heights—all the stick figure neighbors—they were all killing each other. There was bloody scribbles everywhere. Bodies hanging out the windows.'
+'Tyler, this is important. Did you take one of the drawings? Touch either page? Nod, say yes, agree to anything at all?'
 
-I cut my voice to an urgent whisper. 'Tyler. This is *critical*. Did you take one? Did you accept a drawing, touch one, agree to anything even in the vaguest terms?'
+He shakes his head so hard his hair flies. 'No! I just ran. Back through the basement as fast as I could, past the Landlady, up the stairs. I told Mom there was a monster and she had to come see, but...'
 
-He shakes his head so hard his hair flies. 'No! No, I just... I ran. I turned around and ran back through the basement as fast as I could, dove into that hole in the wall and crawled until I was back at the bottom of the stairs, then I ran past the landlady, right back to my apartment and told mom there was a monster in the basement and I’d show her right now but…'
+His shoulders drop.
 
-His shoulders slump, all the air going out of him. ‘But when we got there, the Landlady was gone. So was the basement entrance. It was just bricks again like it never even existed.’
+'When we got down there, the Landlady was gone. The basement was gone. It was just a wall again. Like none of it ever happened.'
 
-I squint down at my notes, searching for patterns, for weaknesses, for anything that might tell me how to kill this thing,. The sun's fully set now, the room dim enough that I'm struggling to read my own handwriting. I reach for the desk lamp, click it.
+Silence settles between us.
 
-Nothing.
+I look down at my notes. At the two drawings described in my own handwriting, thinking about what kind of creature forces a ten-year-old to choose between being devoured and watching his neighbors slaughter each other. Nothing's connecting. Tyler's given me enough to know this is worse than I expected and not nearly enough to know what to do about it.
 
-I frown, getting to my feet. Head for the light switch on the wall.
+I'm halfway through scribbling a question mark in the margin when the ceiling light dies.
 
-'It doesn't work either,’ Tyler says quietly. ‘None of the lights do. Not while it’s whistling.’
+The room goes dark. I reach for the desk lamp, but it’s not working either.
 
-I stop, hand halfway to the switch. ‘You’re hearing it right now?'
+‘It’s starting,’ Tyler says, shrinking into the corner of his bed. ‘Can you hear it?’
 
-He nods.
+‘Hear what?’ I half-rise from my chair. ‘Is it talking to you again? The Tall Dog?’
 
-My hand drifts toward my jacket, feeling the weight of the revolver beneath. 'And the voice? Is the Tall Dog speaking to you again, too?'
+His eyes shift past my shoulder to the pipes on the wall. 'Not to me.'
 
-Tyler swallows. Doesn't answer. Then his eyes shift past my shoulder toward the pipes.
+And there it is. 
 
-'No,' he croaks.
+A low, reedy whistle. A series of soft barks morphing into words, like an animal doing its best to mimic human speech. 
 
-Then, more softly: 'Not to me.'
+'*Here, Inquisitor.*'
 
-'Then who is it—'
+My chair hits the floor behind me. I'm standing, revolver drawn.
 
-The question dies in my throat.
+'*Come and get it.*'
 
-There, threading through the groaning pipes along the wall. A voice is emerging. It sounds like torn velvet dragged over broken glass, each word oozing into my ears like hot wax, burning as it settles.
+Tyler’s staring at me. ‘You hear it now, I guess.’
 
-*Here, Inquisitor,* it whistles, the sound warping between syllables. *Come and get it.*
+I nod, jaw clenched.
 
-My blood goes cold.
+'It uses the pipes,' he says quietly. 'Talks through them. Listens through them.' He pulls the blanket tighter. 'That's how it found me, how it finds everyone.'
 
-‘You hear it now, don’t you?’ Tyler asks.  
+The voice curls through the room again, and this time my blood goes cold because I can hear something underneath it. The tired, fraying quality of a woman who hasn't slept in weeks.
 
-I exhale slowly, forcing my heartbeat to steady. 'Stay here. I'm going to find this basement.'
+That voice.
 
-But he grabs me, small fingers closing around my forearm. 'You can't go out there. It's not safe. Not until the whistling stops.'
+I heard it twenty minutes ago, cracking through a door buzzer.
 
-'I appreciate the concern,' I tell him, prying his fingers free. 'But I'll be fine.'
+I make for the door. 
 
-I pull the door open.
+Tyler leaps to his feet. ‘Where are you going?’
 
-Darkness swallows me whole. It’s the kind that presses against your eyeballs, that makes you question whether you've gone blind.
+‘To check on your mom. Stay put, kid.' 
 
-Shit.
+He grabs my arm.  'You can't. It's dangerous!’
 
-‘Mrs. Copeland?’ I call out, voice echoing strangely. 'Are you all right?'
+‘Appreciate the concern. But I’ll be fine.’ 
 
-No answer but the creak of settling wood. 
+I pull the door open. Then shut it. 
 
-I draw my revolver and pull my flashlight with my left, clicking it on. The beam cuts through the dark, revealing an apartment that looks like a carnival mirror. The dimensions are off, walls slanting at angles that shouldn't be possible. The hallway stretches longer than it did when I walked in, doorways sagging like open mouths.
+The apartment outside is gone. It’s just shadows layered on top of shadows. My flashlight flickers to life, illuminating rooms that could pass for reflections in a funhouse mirror. The dimensions are all off, walls slanting at angles that shouldn't be possible while its doorways sag like open mouths.
 
-I move forward, boots creaking against warped floorboards, sweeping the light left and right as I make for the kitchen. Please let the kid’s mother be okay. Please let her just be in bed, asleep, unaware—
+‘Mrs. Copeland?’ I call out. ‘Are you alright?’
 
-My breath stops.
+No answer.
 
-Hanging from the ceiling fan is a woman in a white apron, her stout frame swaying slightly in a draft I can't feel. Frazzled hair plasters across a face frozen in bulging-eyed terror, tongue protruding from slack lips. Below her, on the linoleum floor, a knife lies in a spreading pool of red.
+I make for the kitchen, passing through a shawl of beads when my breath hitches. A figure looms above me. White apron. Frazzled hair.
 
-'Jesus—*no*—'
+Mrs. Copeland’s eyes are bulging, her lips pale blue, a cord of wire wrapped tight around her throat as she sways above the linoleum floor. A knife lays at her feet, sticky and crimson, a trail of blood leading to…
 
-I'm already scrambling onto the kitchen counter, knife in hand, reaching up to cut the rope when—
+My heart skips. 
 
-The blade slips from my fingers.
+It’s Tyler. He's on his back, staring sightlessly at his dead mother above. His Superman pajamas are shredded with so many stab wounds that it looks like an animal tore into him. 
 
-Clatters to the linoleum.
+‘Told you.’
 
-Because there, on the floor behind the counter, is another body.
+I spin, and there's another version of the kid, this one very much alive, standing in the kitchen doorway. He crouches down beside his corpse, studying it with the detached familiarity of someone who's seen this exact scene before.
 
-Tyler’s.
+'The apartment changes when the Tall Dog's whistling,' he says. 'It shows you things, things that happen if you *don't* choose one of its drawings.The Landlady called it the Bad Ending.’
 
-I stagger back, my mind reeling. When? How? He's lying on his back in a spreading pool of blood, arms splayed, eyes staring sightless at the ceiling. His Superman pajamas are shredded across the chest, so many stab wounds that the fabric has turned from white to crimson, the blood still wet enough to gleam in my flashlight beam.
+My throat moves up and down. 'So none of this is real, then.'
 
-'See what I mean?'
+'No,’ he says, staring up at his mother. ‘All of it’s real. It just isn’t real *yet*.’ 
 
-The voice comes from behind me.
+He turns away, holding his stomach like he might be sick. ‘Now you know why I stay in my room. The action figures keep me safe. They keep the Bad Ending out.'
 
-I spin, and there's another Tyler standing in the kitchen doorway with his blanket wrapped around his shoulders. He walks past me, crouches down beside his corpse, studying it with the detached familiarity of someone who's seen this exact scene a hundred times before.
+‘How?’ I ask. 
 
-'The apartment changes when the Tall Dog’s whistling,’ he explains. ‘It shows you what happens if you don’t choose one of the drawings. Shows you the Bad Ending.’ He doesn't look up from the body as he rises to his feet. ‘That’s what the Landlady told me.’
+He shrugs. ‘Don’t know. They just do.’
 
-I look up at Mrs. Copeland hanging from the ceiling. ‘So none of this is real.’
+I start to survey, looking for clues that don’t exist. This sort of power—the ability to create an entire dimension divorced from reality means I’m dealing with at least a Class 5 entity. Probably Class 6. 
 
-‘No.’ Tyler swallows hard. ‘Not yet. But now you know why I stay in my room. The action figures keep me safe. They keep the Bad Ending out.'
+In other words, way outside my paygrade. 
 
-I press my palms against my eyes, heart racing as I try to fit the pieces together. 
+I pull out my pocketwatch, twist the crown three times and bring it to my lips.
 
-An entire alternate dimension. A *prophetic* one that shows potential futures based on choices not yet made. That's reality manipulation on a scale that requires power far behind your typical boogeyman. The Tall Dog would need to be a Class 5 Threat at minimum. More likely a Class 6.
+'Inquisitor Jhune. Case: Barrow Heights Anomaly. Requesting Protocol 5. I say again — Protocol 5.'
 
-That puts it squarely in cosmic horror territory.
-
-Fuck. 
-
-I flip open my pocket watch with shaking hands, twist the crown three times counterclockwise, and bring it close to my lips.
-
-'Inquisitor Jhune,' I whisper. 'Investigating Barrow Heights Anomaly. Requesting Protocol 5. I say again—Protocol 5.'
-
-The watch throbs once in my palm. The vibration travels up through my hand, into my jaw, directly into my inner ear where only I can perceive the response:
+The watch throbs in my palm. The vibration travels up through my arm, directly into my ear where only I can perceive the response:
 
 **REQUEST RECEIVED**
 
-**PALES DEPLOYING**
+**PALES DEPLOYING…**
 
-**CALCULATING ETA…**
+**ETA: 58 MINUTES 12 SECONDS**
 
-**58 MINUTES 34 SECONDS**
+‘What’d you just do?’ Tyler asks.
 
-Tyler blinks up at me. 'What are you doing?'
+‘Call my friends.’
 
-'Calling in the cavalry.’ I snap the watch shut, slip it back into my vest. ‘You said the Landlady showed you how to access the basement. I’d like her to show me too.’
+I crack my revolver open. Six chambers. Six rounds. Each one glows with arcane sigils etched into the brass. Protocol states one round per threat class, so six should be enough. 
 
-He scrunches his face, thinking hard. 'I know she's on the 10th floor.'
+Barely. 
 
-'Good enough.' 
+I snap the gun closed, loosen the tie around my neck and head for the exit. ‘Look kid, this is about to get hairy, so do me a favor and lock yourself in your room.’
 
-I draw my revolver, crack it open. Six chambers, six rounds—each one glowing faintly with arcane sigils etched into the brass. Standard issue for Inquisitors. One bullet per threat class, assuming perfect accuracy.
+Tyler stumbles after me. ‘Where are you going?’
 
-It’s enough. Just barely. 
+‘To chat with your Landlady. She knows how to get inside the basement, and if I’m going to stop this monster, I need to know how to get inside, too.’
 
-I snap the cylinder closed, holster the weapon. Move toward the exit. 'Your landlady knows how to gain access to the basement. Once my friends arrive, we'll need that access point to breach the Tall Dog's lair and put it down for good.'
+Tyler blocks the door. ‘You’ll come back, right?’
 
-Tyler darts forward, small and vulnerable in his too-big pajamas. Blocks my path. 'Promise you'll come back.'
+I heave a sigh. ‘Move, kid.’
 
-The question hits me like a punch to the gut. 
+‘Promise you’ll come back!’ His voice trembles. ‘Dad said he’d come back, but he never did. So I won’t let you leave until you promise!’
 
-My voice stalls.
+His eyes, they’re crinkling with tears. The way he looks in his too-big pajamas is small and vulnerable, and the way he sounds is so much like she did. 
 
-‘I…’
+So much like--
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-'I know, Abby.' 
+'--Abby, listen to me. It's an emergency, alright? I've gotta do this.'
 
-My throat is tight, the phone cord curled around my hand. 'My squad got a call last minute. It's an emergency. I’ve gotta do this.'
+*'When isn't it an emergency, Dad?'*
 
-She sighs. *'It's always an emergency.'*
+The phone cord is wrapped so tight around my fist that my knuckles have gone white. A mile of bedrock separates me from the surface. This deep in the Order of Alice's headquarters, everything smells like gun oil, recycled air, and slow-rotting nightmares.
 
-I'm pressed into the phone booth, gray concrete walls boxing me in on three sides. A mile of bedrock separates me from the surface. This deep in the Order of Alice’s headquarters, everything smells like gun oil, recycled air, and slow-rotting nightmares. 
+*'You said you wouldn't work late. You promised you'd be home for my birthday this year.'*
 
-*'You said you wouldn't work late. You promised you’d be home for my birthday.'*
+My new squad marches past in formation: five soldiers encased in living white armor that shifts with each step. Pales. The Order’s Shocktroopers. Their suits are scratched and gouged, white carapace stained with blood that won't wash out no matter how hard you scrub. 
 
-A squad marches past in formation; five soldiers encased in living white armor that shifts and breathes with each step. Pales. Their suits are scratched and gouged, white carapace stained with blood that won't wash out no matter how hard you scrub. The leader’s armor is the most scarred by far. 
+'Jhune!' Bishop Stevenson's voice snaps like a whip. 'That better be your mother on the phone, and she better be *fucking dying*. Orders were to be suited up at The Hearse ten minutes ago.'
 
-'Jhune!' Bishop Stevenson's voice cuts like a whip crack. 'That better be your mother on the phone—and she better be *fucking dying*. You should’ve been suited up at The Hearse ten minutes ago.'
+I press the receiver against my chest, muffling it. 'It's my daughter, ma'am. It's her birthday and—'
 
-I press the receiver against my chest, muffling it. 'It's my daughter, ma'am. It's her birthday and I—'
+‘Save it.’ Stevenson growls. 'If you're not in The Hearse in the next thirty seconds, I'll make sure you're in the dirt.'
 
-But Stevenson's already turning away, her scarred armor rippling with barely-contained irritation. 'Hang it up,' she barks over her shoulder. 'We deploy in ten. If you're not in The Hearse by then, I’ll make sure you’re in the dirt.’
+There’s a collective chuckle from the squad as they march off. 
 
-My heart sinks. 'Yes, ma'am.'
+My shoulders slump.
 
-I'm the newest addition to the Order of Alice’s shock troopers. The pay is nearly twice what I made as an Analyst, and the abuse is almost worth it. 
+*'Seven years.'* Abigail’s voice cracks, tears thick in her throat. *'You haven't been home for my birthday since before Mom died. Not once.'*
 
-*'Dad?'*
+'Abby-' I close my eyes. 'I'll be home before midnight, okay? I *promise*. I'm not missing another birthday.'
 
-Abigail's voice pulls me back.
+*'Sure, Dad.’* She gives a tired sigh. ‘*That’s what you said last year, too.'*
 
-'Sorry.' I force the words out. 'I've got to go.’
+She hangs up. 
 
-*'Seven years, Dad.'* Her voice cracks. *'You haven't been home for my birthday since Mom died. Not once.'*
-
-'Abigail—'
-
-*'What?'* The tears are audible now, thick in her throat. *'You gonna tell me I don't understand? That it'll make sense when I'm older? That you're doing this for me?'*
-
-The PA system crackles to life overhead.
-
-'Private Jhune.' Bishop Stevenson's voice echoes through the complex, patience worn to nothing. 'Report to The Hearse immediately. Final warning.’
-
-I close my eyes. 'I have to go, Abby. But I'll be home before midnight. I *promise*. I'm not missing this birthday. Not this one.'
-
-A long, tired sigh filters through the phone. ‘Whatever, Dad.’
-
-*Click.* 
-
-The line goes dead. 
-
-An alarm shrieks overhead. Around the corner, an engine roars to life like a demon. Tires squeal against concrete as something massive barrels toward me.
+I’m halfway finished dialing her back when an alarm shrieks overhead. An engine roars to life, tires squealing against concrete as something massive barrels toward me from around the corner. 
 
 The Hearse.
 
-It screeches to a halt three feet from the phone booth; a black, angular monstrosity the size of a garbage truck, panels shifting and realigning like it’s a living thing. Steam hisses from hydraulic joints. The rear door splits open with a metallic scream, revealing the cargo hold: two rows of vertical chambers lining the walls, each one shaped like an upright coffin.
+It screeches to a halt three feet away: a black, angular monstrosity the size of a garbage truck, panels shifting and realigning like a living thing. Steam hisses. The rear door splits open with a metallic scream, revealing the troop carrier: two rows of vertical chambers lining the walls, each shaped like an upright coffin.
 
-My squad stands inside, already locked into their positions. Waiting.
+My squad waits inside. Impatient.
 
-The empty coffin waits for me—third from the left, still stained with something dark around the edges. Beside it stands Alvarez, my assigned fireteam partner, already half-encased in his armor. He flashes me a grin beneath his mustache that feels entirely too relaxed for a member of Stevenson’s crew.
+‘Look who decided to join the party,’ Ellison chides. 
 
-'Ready to light up some boogeymen, hermano?'
+I step inside, finding my empty coffin third from the left. It’s stained with something dark. A memento leftover from the guy I replaced. In the coffin next door stands Alvarez, my assigned fireteam partner. He flashes me a grin beneath a bushy mustache.
 
-I step into coffin with a small nod. 
+‘You picked a hell of a time to join up, hermano. This mission—it’s a real spank n’ shank, you feel me? Make it out of this alive, and I’ll buy your beers for the rest of the year.’
 
-'Good,' Alvarez says, still grinning. 'Cause this is a Protocol 13. A real spank n’ shank. You make it out alive, and I’ll buy your beers for the rest of the year.’
+I try to play it cool, strapping into my coffin. 'Better get your wallet ready, then.'
 
-I give a nervous chuckle. ‘That’s generous.’
+His grin slides off his face. ‘If I were you, I’d get your obituary ready.’ His voice drops. ‘Stevenson didn’t tell ya, did she? This mission, it’s a Protocol 13, compa. And the funny thing about Protocol 13s is that there ain’t been a single rookie that’s ever survived one.’
 
-‘Nah, just playing the odds.’ He laughs, low and cold as the coffin door swings shut. ‘See, no rookie has ever survived a Protocol 13.’
+The coffin swings shut. 
 
-‘Wait—’
+Steam hisses. A mechanical latch locks me in a cage of darkness. 
 
-The door closes.
+My mind reels. My heart slams. Alvarez words echo in my mind, and all I can think about is how I’m going to miss Abigail’s birthday. 
 
-Darkness smothers me. Smothers my voice. I’m clawing at my neck, sucking back air that won’t come. My mind is reeling, disoriented, my fists bashing against a lid that won’t budge. And through all of it, all I can think about is her. 
+How I'm going to miss all of them.
 
-How I’m going to miss her birthday again. 
+My fists pound against the lid, shouting for somebody to let me out. That I don’t want to die here. That I can’t. Not when I promised I’d come home tonight. But my pleas are drowned by the growl of the Hearse, accelerating toward my first mission and my last. 
 
-How I’m going to miss all of them. 
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-My mind dims. My limbs go limp. Somewhere in the void, a child’s voice reaches me. 
+‘You’re going to die,’ Tyler says. 
 
-A boy’s. 
+The memory vanishes. I’m standing back inside the Copeland apartment, staring at a ten-year-old boy wearing a mask of hurt. 
 
-*Promise!*
+‘Excuse me?’ 
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+‘You’re going to die,’ he says again, more forcefully. ‘Just like Dad. He got shot because of me. Because I let him leave without promising to come back. And now you’re going to do the same thing, aren’t you?’
 
-My eyes snap open.
+My chest tightens. ‘Kid-- that isn’t how it works.’
 
-I'm standing in a demented version of apartment 8H, staring at a ten-year-old waiting for an answer I don't know how to give. Tyler looks down, picking at the edge of his sleeve. 'My dad didn't come back. He said he would. But he didn't. So promise you will, okay?'
+‘Then why can’t you do it? Why can’t you just promise you’ll come back?’
 
-My chest tightens.
+The words are stuck in my throat. 
 
-'Sure, kid. It's… It's a promise.' I swallow hard. ‘But only if you stay in your room until I get back. Deal?’
+His tiny fist hits my chest. ‘It’s cause you know you won’t come back! Just like he knew!’
 
-He studies me. Then nods. 
+My vision blurs. Suddenly, Tyler’s gone, and in his place is a girl in an oversized hoodie with a gap between her front teeth. She’s glaring at me with eyes that reminds me so much of her mother’s, eyes that--
 
-He turns for his room, pausing at the threshold to look back one last time. It’s a look I’ve seen before. A look that says he doesn’t believe me.
+I blink and my daughter is gone. Tyler’s holding onto me, squeezing hard enough I wonder if he’s even seeing me, or if he’s seeing his father again, about to walk out a door for the last time. ‘Please just promise, Mr. Jhune.’
 
-Then the door closes, and I’m alone. 
+‘Okay.’ I breathe. ‘I’ll come back, alright? It’s… It’s a promise, kid.’
 
-I make for the exit. 
+His eyes well up, somewhere between gratitude and disbelief. I can’t bear to look at them. 
 
-***Brrrrnngg***
+‘There,’ I say, pushing him off me. ‘Now, a deal’s a deal. Your room. And don’t come out until I say so.’
 
-The phone.
+He nods, retreating before pausing at the doorway. Looks back at me. I’ve seen that look before; it’s the look of a child that’s every bit as sure I’m going to break my promise as I am. 
 
-It’s ringing with the mechanical *trill-trill* of an ancient rotary. I cross the hallway and lift the receiver, bringing it slowly to my ear.
+Then his door closes, and I’m alone again.
 
-‘Hello?’
+I slump against the wall, hand curling into a fist of frustration. A decade. It’s been a decade since Abby died. A decade of her ghost haunting me, reminding me at every turn how much of a failure I am, how much of a--
 
-Silence answers. 
+*Brrrrnngg.*
 
-Then, cutting through the static comes a voice decrepit and papery. ‘*Mr. Jhune.’*
+I startle. The rotary on the wall. It’s ringing. 
 
-My jaw clenches. 'Agnes Miller.’
+I lift the receiver slowly, bringing it to my ear.
 
-‘*I’ve been listening to your discussion through the pipes. Such a precocious lad that Copeland boy is.’* A gravelly chuckle rasps through the line, dry as dead leaves. ‘*And such a perceptive young man* you *are.’*
+'... Hello?'
 
-It’s true, then. The kid’s story has to be true. 
+A decrepit voice cuts through the static. '*Looking for me, are you?’*
 
-‘You tried to killer Tyler,’ I breathe. 
+Agnes Miller. The Landlady. 
 
-*‘Kill is such a terribly loaded word. Let’s retire the dramatics, shall we?’*
+She gives a chuckle drier than dead leaves. ‘*You’d be amazed what conversations crawl through these old pipes. You’ve been chatting with the Copeland lad, haven’t you? Such a precocious child. A sponge of information, isn’t he?’*
 
-My voice shakes with rage. ‘You’ve been feeding children to that monster for years.’
+My teeth grit. ‘Guessing it’s true then. You really did try to kill him.’
 
-*'On the contrary—I'm all that's standing between the Tall Dog and Barrow Heights becoming a slaughterhouse.’* Her tone hardens. *‘I've protected the residents for nearly a century, and now you want to risk their lives by angering something you don’t understand.’*
+*‘Oh, please. Let’s the retire the dramatics, shall we? Kill is such a terribly loaded word. I merely offered the boy a chance to reunite with his father.’*
 
-No, I don’t plan to anger it. 
+‘Same as all the other missing children, I’ll bet.’
 
-I plan to murder it.
+*‘Oh, yes. There have been many over the years.’*
 
-‘Where are you?’ I say coldly. ‘I think this conversation would be better served in person.’
+‘Why?’ My voice shakes. ‘What do you get out of this?’
 
-*‘Apartment 10-R.’* There's a wet, labored sound of her struggling to breathe. *'On your way up, feel free to enjoy my sister's artwork. I had them hung in her memory.'*
+*‘The same as you, Inquistor.’* There's a wet, labored sound like she’s struggling to breathe. ‘*The pleasure of saving others from a fate worse than death. I'm all that's standing between Barrow Heights and the beast below, and now you want to risk the frail peace I’ve brokered by angering something you can’t begin to understand.’*
 
-***Click.***
+My hand tightens around the revolver. ‘I don’t plan on angering anything. Not for long, at least.’
 
-The line goes dead.
+She tuts. ‘*How utterly headstrong. How utterly foolhardy. A portrait of the man that started this nightmare.’*
 
-I make for the front door. Pull it open. 
+‘What man?’
 
-The outside corridor is somehow even more twisted than the Copeland apartment. It stretches long. Too long. Doors line both sides at irregular intervals, some close together, others separated by vast expanses of rotting walls. From behind those doors, voices bleed through: shouting matches, sobbing, the wet thud of fists on flesh.
+She gives a rattling sigh. ‘*Alas, it’s a long story, one better told over tea. Apartment 10-R, Inquisitor. The door will be open; oh, and feel free to peruse my sister’s artwork on your way up. I had her… happier pieces hung in her memory.’*
 
-This is the Bad Ending, broadcasting its distorted prophecies at full volume. 
+**Click.**
 
-'It's not real,' I mutter, forcing my legs forward. \*'\*None of this is real, Vincent.'
+I drop the phone, pull the door open. 
 
-Unless I fail. 
+The outside corridor is somehow even more twisted than the apartment. It stretches long. Too long. Doors line both sides, some close together, others separated by vast expanses of rotting walls, other sideways or upside down or crooked on the ceiling. Voices bleed through behind them: shouting matches, sobbing, the wet thud of fists on flesh.
 
-I shove open the doors at the end of the hallway and my breath goes out of me. 
+The Bad Ending, broadcasting its distorted prophecies at full volume. 
 
-The stairs. 
+I take the hallway at a sprint, shoulder-checking the stairwell doors to find a nightmare of geometry. The stairs. They’re warping, climbing at angles that make my stomach twist. The wallpaper hangs in long, defeated strips, peeling away from the plaster like skin off a corpse, but where I expect to find black mold or water damage beneath, there's instead color. 
 
-They’ve become something out of an Escher nightmare, each flight a different length, some compressing into only three or four steps, others stretching upward for what looks like thirty, forty, climbing at angles that make me want to hurl. The walls tilt inward, then outward, geometry refusing to behave.
+Faded pastel. 
 
-And the wallpaper.
+Children’s drawings.
 
-It hangs in long, defeated strips, peeling away from the plaster like skin sloughing off a corpse. But where I expect to find black mold or water damage beneath, there's *color*. Faded pastels. Crayon strokes in pink and blue and yellow, pinned directly to the bare wall.
-
-Children's drawings.
-
-I slow, angling my flashlight to get a better look.
-
-Stick figures. Crude and wobbly, the proportions all wrong in that way only a young child's artwork can be. And at the bottom of each one, printed in careful block letters:
+They feature stick figures; crude and wobbly things with their proportions all wrong, and at the bottom of each page, signed in careful block letters is a name I recognize: 
 
 **FLORENCE MARIE HOLLIS**
 
-The name hits me like ice water.
+It’s her.
 
-Florence Marie Hollis was the first—the first child to vanish from Barrow Heights, all the way back in 1936. Subject zero of this nightmare.
+The first child to vanish from Barrow Heights back in 1936. Subject zero. And apparently, Agnes Miller’s late sister. 
 
-*How did I miss this?*
+Dammit. 
 
-I'd researched the building. Combed through census records, property transfers, newspaper archives. Agnes Miller had been listed as landlady for seventy years—since 1952. I'd noted her age, her contact information, the fact that she'd been managing Barrow Heights since she was in her twenties.
+How did I miss that?
 
-But I'd never looked deeper. Never traced her maiden name. Never connected her to Florence Hollis, the six-year-old girl who disappeared without a trace nearly a century ago.
+I'd researched the building, combed through census records, property transfers, newspaper archives. All of it. Agnes Miller had been listed as landlady for seventy years dating back to 1952. I'd noted her age, her travel history, the fact that she'd been managing Barrow Heights since she was in her twenties. But I'd never traced her maiden name. Never connected her to Florence Hollis, the six-year-old girl who disappeared without a trace nearly a century ago.
 
-*Sloppy, Vincent. Dangerously sloppy.*
+*Sloppy work, Jhune. Dangerously sloppy.*
 
-Maybe I should've stayed a Pale. That job didn't require thinking, just following orders, pulling triggers, destroying whatever I was pointed at. But I'd wanted more. Wanted to prove I could do more than murder things that went bump in the night. Wanted to prove I could save people. 
+Maybe I should've stayed on as a Pale. That job didn't require thinking, just pulling triggers and destroying whatever I was pointed at. But I'd wanted more. Wanted to prove I could do more than murder things that went bump in the night, to prove I could *save* people. That's how I got to be an Inquisitor. The first Pale in history to make the jump. 
 
-That’s how I got to be an Inquisitor, and I was the first Pale in history to make the jump.
+*Now look at me.* 
 
-And I'm doing about as well at it as I did at being a father.
+*Outmatched by a dementia patient.* 
 
-I grit my teeth, refocusing. Tyler and his mother are on the 8th floor. Agnes is on the 10th. Under normal circumstances, that's two flights of stairs, maybe ninety seconds of climbing.
+I grit my teeth, stairs shifting as I climb them. Florence's drawings are with me every step of the way, a chronological gallery telling the cruel history of this place. The first few are innocent enough: two stick-figure girls holding hands in matching triangle dresses, a mother and father standing behind them proudly.
 
-But in the Bad Ending dimension, nothing follows normal rules.
+But the pictures soon change.
 
-The stairs shift as I watch them, treads rotating like puzzle pieces, railings bending at impossible angles. It could take me ten minutes to reach the top floor.
+Distort.
 
-It could take me an hour.
+Grow darker. 
 
-*Move, Vincent. The clock's ticking.*
+The father begins standing apart from the family. Looking angrier.
 
-I take the steps two at a time, ignoring the way they seem to multiply beneath my feet. As I climb, I study Florence's drawings, a chronological gallery pinned to the stairwell walls. The first few are innocent. Happy. Two stick-figure girls holding hands in matching triangle dresses. A mother and father standing behind then.
+Tears dot the mother’s face.
 
-Then the pictures change.
+Soon, even the once-smiling sun begins hiding behind the spectre of Barrow Heights. The sky itself turns the color of bruises. And then I catch something that makes my heart pound. A figure in the corner. I reach for the page, fingers brushing the paper for a closer look and—
 
-In the next, the father stands apart from the family, separated by a wide gap of white space.
+The world tilts.
 
-In the one after that, there's a shape visible behind a scribbled mess of green bushes. Something dark. Something with *ears*.
+It's a flash, two-dimensional and violent, crayon lines slashing into existence all around me. Florence. I’m seeing her at the mouth of an alley, pink triangle dress, watching her stick-figure father exchange green rectangles with a prostitute. I’m watching Florence follow them back to Barrow Heights, too young to understand the transaction taking place.
 
-I stop on the landing between floors, pulling the drawing free from the wall for a closer look. The shape is rendered in thick black crayon, with heavy strokes that tore the paper in places. It's got long, drooping ears. A hunched silhouette that's too tall, too crooked and—
+And then, in the scribbled shadows at the edge of the frame, something rises. It’s tall, hunched. Long ears hang past its slumped shoulders, and as Florence passes, its head tilts, alabaster eyes gleaming with predatory curiosity as it tracks her. 
 
-The floor drops out from under me.
+A word carves itself above the shape, letter by letter. It multiplies until it covers everything: the building, the alley, Florence herself; until there's nothing left but black crayon and a single word echoing into the white void beyond the page's edge.
 
-I'm falling.
-
-Not down, but sideways, reality tilting ninety degrees as the drawing in my hand expands, swallows, consumes me. Dimensions collapse. The world flattens.
-
-And suddenly I'm not in the stairwell anymore.
-
-I'm in a [nightmare](https://www.reddit.com/r/nosleep/comments/1s0ykyn/the_tall_dog_of_barrow_heights_part_2/).
+# [M I N E](https://www.reddit.com/r/TalesFromTheCryptid/comments/1tkvoqi/the_tall_dog_of_barrow_heights_part_2/)
 
 [MORE](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
