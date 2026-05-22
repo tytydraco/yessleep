@@ -1,0 +1,112 @@
+I was in bed when it started.
+
+The storm didn't really hit until after midnight.  
+It wasn't rain at first. Just pressure.  
+You know that feeling when you dive too deep in a swimming pool?  
+That’s what the inside of the house felt like. Submerged. Every damn window rattled in its frame, chattering like teeth.  
+The gutters outside were shrieking.  
+Wind kept shoving against the siding in these long, groaning waves; like something the size of a whale was leaning its dead weight against my bedroom wall.
+
+Like back in ‘97. Or ’06. Only worse. Way worse.
+
+I woke up sleeping on my stomach, face smashed into the mattress, which always leaves me horribly groggy.  
+Took me way too long to actually get up.  
+I finally dragged myself to the window and yanked the blinds.
+
+And for a split second, through eyes still crusted with gunk, I saw the thing.
+
+Well. I saw its outline.
+
+It stood taller than the streetlamps out in the morning fog.  
+Its shoulders hunched way forward, and it had these two impossibly long arms.  
+They just dangled. Freely. Like a pair of grotesque earrings swinging from a deformed head, the hands completely eaten up by the mist.
+
+I blinked. Gone.
+
+I waded through flooded streets to get to work.  
+By the time I reached the gallery, my shoes were ruined and my nerves were entirely shot.  
+The day itself was a nightmare. We had a delayed inbound pallet for the new exhibition arrive all at once. Nine massive pieces. Total chaos.  
+Curators yelling, phones buzzing off the hook, and thunder hammering the skylights so hard I thought the glass was going to cave in.
+
+I decided to stay late. Someone had to catalogue and process the art, but honestly? The idea of going back to my empty, groaning house gave me the creeps.
+
+The collection was upsetting. Just deeply weird stuff. Every single painting had this pretentious little ritual attached to it; specific instructions on how to properly "view" the art.
+
+I got through six of them before I hit number seven.
+
+Søvnkrammer.
+
+I slid it onto the staging table, popped the metal locks on the crate, and lifted the lid.
+
+All the spit dried up in my mouth.
+
+It was the silhouette. The exact same shape from the fog. Same hunched shoulders.  
+Same dangling, sickening arms.  
+This wasn't a trick of my sleep-deprived brain anymore.  
+The gallery label listed it as Inedito. Unseen. Unpublished.  
+The artist was a notorious recluse who never posted their work anywhere.  
+I couldn’t have just seen it online and dreamed it up.
+
+When I picked up the frame, a piece of scorched paper fluttered onto the floorboards.  
+The ritual instructions.
+
+I should have left it right there. I should have walked out of the building.  
+But you know that intrusive thought you get when you stand on a high ledge?  
+The one that tells you to jump? It felt like that.  
+A sick, magnetic pull.  
+My hands were visibly shaking, but I wrapped my arms around my own chest, hugged myself tight, and read the charred Danish words out loud.
+
+“Åh, undergangens herold, kom til denne jord og opslug mig fuldkomment.”
+
+I held my breath. Waited.
+
+Nothing. Obviously, nothing.
+
+I let out this pathetic, breathy laugh.  
+The sheer stupidity of standing in an empty room, chanting at a canvas, completely broke the tension.  
+I felt like an idiot.  
+Just a tired, stressed-out idiot letting bad weather and creepy art get to my head.
+
+I locked up, went home, and crashed. Didn't eat. Didn't shower.  
+I just collapsed onto my mattress in my work clothes and blacked out.
+
+Until I woke up freezing. Shaking so hard I bit my tongue.
+
+The storm was still tearing at the house, way louder now.  
+Rain hit the roof like buckshot.  
+The pipes inside the plaster clicked and moaned.  
+Somewhere down the street, metal was scraping against concrete; this awful, high-pitched squeal cutting right through the thunder.
+
+But under all that noise, there was the pressure.
+
+It felt like I was buried under a yard of wet cement. I tried to lift my hands.
+
+Couldn't.
+
+Then I felt them.
+
+They weren't hands. They were arms.
+
+Long. Impossibly, freakishly long arms.  
+They were wrapped completely around me from behind, crossing over my ribcage and stomach like seatbelts pulled way too tight.  
+The skin pressing against my neck felt damp and freezing, pulled taut over something that felt like knotted wood.
+
+I heard my ribs groan before my brain even registered the pain.
+
+A slow, deliberate squeeze. Then another.
+
+The mattress sank deeper.  
+Something hot and metallic-smelling gushed out of my nose, soaking right into my pillowcase.
+
+I managed to crank my neck just an inch. Caught a blur of it standing right over the bed.  
+Its shoulders were jammed up against the ceiling drywall, but those endless arms were still winding tighter around my chest.
+
+My spine snapped.  
+It was a wet, heavy pop that completely drowned out the storm outside.
+
+And through the static whining in my ears, through the thick, bubbly sounds backing up in my throat, I heard it.  
+It was breathing. Softly. Right above my head.
+
+Almost affectionately.
+
+Like a lover trying to pull me closer.
