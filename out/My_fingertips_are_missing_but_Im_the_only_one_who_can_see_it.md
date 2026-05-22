@@ -1,6 +1,6 @@
-The strangeness started six days after my son was born.
+The strangeness started six days after my daughter was born.
 
-I remember because it was his Shashti - the sixth day, an auspicious day to celebrate the birth of a newborn in our household. I was in the kitchen making tea for the ladies who had come to bless the baby, hunched over a bit due to my emergency C-section.
+I remember because it was her Shashti - the sixth day, an auspicious day to celebrate the birth of a newborn in our household. I was in the kitchen making tea for the ladies who had come to bless the baby, hunched over a bit due to my emergency C-section.
 
 I was pouring the tea through the strainer when I first noticed it.
 
@@ -44,7 +44,7 @@ My mother-in-law couldn’t resist narrating her own tale of bravado, a story I 
 
 She added, "Girls these days want the easy way out and go for a C-section... in our days, it was either a normal delivery or death." She laughed out loud, heavily stressing the word 'normal.' According to her, medical advancement to help women survive was abnormal.
 
-I served the ladies their tea, completely ignoring my mother-in-law's boisterous and stupidly insane takes. Apparently, we were only blessed with a son because of her intense prayers and fasting. If praying to random gods and believing in ancient superstitions were an Olympic sport, she would be a gold medalist.
+I served the ladies their tea, completely ignoring my mother-in-law's boisterous and stupidly insane takes. Apparently, we were only blessed with a kid because of her intense prayers and fasting. If praying to random gods and believing in ancient superstitions were an Olympic sport, she would be a gold medalist.
 
 "Finally, our tea is here?" she announced as she saw me enter the room. Typical of her not to notice me, but only what I brought to the table. Anyway, I don’t think I need to go into detail about our relationship. There is no love there. Only convenience.
 
