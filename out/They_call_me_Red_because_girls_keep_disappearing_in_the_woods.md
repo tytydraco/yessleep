@@ -1,0 +1,109 @@
+**They call me Red because girls keep disappearing in the woods**
+
+Once upon a time…
+
+No. Screw that. I’m telling this the way it actually happened, because it did happen — and it was messed up.
+
+In my town, everybody calls me Red. Times are dark, and teenage girls have been vanishing in the woods. The cape is bright — easy to spot in the brush if someone has to go out searching.
+
+A lot of people have gotten screwed because of that cape. There’s this girl, Bia, from a few blocks over. She decided to sneak around with Toninho and forgot to take the damn thing off. Her dad followed her and caught them in the act. Do I even need to tell you how that ended? It was gossip for the rest of the year.
+
+“Hey.”
+
+That’s my mom. Not asking. Telling.
+
+“What?” I said, because she’d just yanked my earbuds out like she owned my skull.
+
+She didn’t even bother explaining herself.
+
+“Get dressed. I need you to take cakes, cookies, and sweets to your grandma. She’s buried in orders,” she said in one breath. “And be back before it gets dark. There are too many outsiders in town because of the festival.”
+
+“Fine,” I said. “But I want something for this.”
+
+“Take ten from my profit and bring the rest back. Move. You’re going to be late.”
+
+I was already in jeans and a shirt. I grabbed the cape, shoved my earbuds back in, and started walking to my grandma’s place, trying to pretend things were normal.
+
+Halfway there, I ran into Lupino.
+
+Annoying as hell.
+
+He never got over his little crush on me. He’s been telling people around town that he’s going to date me “one way or another.” Like I’m a prize. Like I’m not a person.
+
+Poor idiot.
+
+“Hey, Red,” he said, stepping into my path. “Going to your grandma’s?”
+
+“To mine,” I said.
+
+“Can I come with you? I heard the shortcut is dangerous.”
+
+“No. We’re not a thing. Stop acting like we are. I’m taking the main road. There’s probably a bus.”
+
+The way he looked at me made my skin crawl. Not a crush. Not even flirting. Something else. A wrong look. The kind that sticks in your head.
+
+So I did something I’m not proud of.
+
+I pretended I was heading to the bus stop… and waited until he walked away.
+
+Then I followed him.
+
+At a distance. Quiet. Through the shortcut.
+
+He was muttering to himself as he walked. Then he stopped — like he knew exactly where he was going — and yanked a backpack out from between the trees, where it had been hidden.
+
+Like it was waiting for him.
+
+He unzipped it and checked what was inside like he was doing a grocery list.
+
+Rope.
+
+A knife.
+
+And duct tape.
+
+My stomach dropped so hard I thought I’d throw up right there. My hands went cold. My mouth went dry. And for the first time that day, I actually felt scared — not “festival rumors” scared, but real, body-deep fear. [\[reddit.com\]](https://www.reddit.com/r/nosleep/wiki/believability/)
+
+He zipped it up calmly and started walking faster.
+
+And my brain just… snapped into place. A bunch of ugly scenarios. None of them good.
+
+It wasn’t hard to connect him to the girls who’d been disappearing.
+
+Not hard at all.
+
+Not me.
+
+I grabbed a piece of wood from the ground. Solid. Heavy.
+
+I stayed behind him without making a sound, waiting for the right moment.
+
+When he reached the tightest bend in the trail, I rushed him.
+
+I swung hard at the base of his skull.
+
+He dropped instantly. No scream. No struggle. Just… off.
+
+Blood came fast.
+
+I didn’t think. I just ran.
+
+Before I stepped into my grandma’s house, I checked my reflection in the glass.
+
+Clean.
+
+No splatter. No obvious mark.
+
+I walked in, delivered the food, spoke normally, even ate a cookie — like the world hadn’t tilted.
+
+A few days later, they found Lupino’s body.
+
+Rotting.
+
+I acted shocked. Like everyone else.
+
+Because apparently that’s what you do in my town.
+
+You act like violence is “out of control these days”…
+
+and you keep pretending you don’t know why.

@@ -1,0 +1,93 @@
+I moved into this flat three months ago. Nothing special. Small place, bad water pressure, one neighbour who coughs like he’s trying to start an engine every morning at 6am. Normal rented flat stuff.
+
+When I first moved in, I did the usual paranoid check. Looked in the cupboards, behind the shower curtain, under the bed, all of that. I know it’s stupid, but I can’t sleep somewhere new until I’ve confirmed there isn’t a man folded into the wardrobe like a camping chair.
+
+Everything was fine.
+
+Last week I dropped my phone charger behind the bed and had to crawl halfway under it to get it. That’s when I saw the key.
+
+It was taped to the underside of the wooden bed frame. Not lying on the floor. Not something I could have missed during a normal clean. Actually taped there, right above where my head would be when I slept.
+
+Silver key. No label. Old bit of tape, yellow at the edges.
+
+I just stared at it for a second because my brain didn’t want to make it a thing yet. Maybe it was from the old tenant. Maybe it was for a suitcase or a locker or something boring. People hide spare keys in weird places. Doesn’t mean anything.
+
+Still, I peeled it off.
+
+I tried it in the front door first, because obviously I did.
+
+It fit.
+
+Not perfectly smooth. A bit stiff. But it turned.
+
+That’s when I started feeling sick.
+
+I rang the landlord and asked if he knew anything about an old spare key being left under the bed. He sounded confused and said no, the locks were changed before I moved in. I asked if he was sure. He got a little offended and said yes, he was sure, and that he only had his own copy and the agency had the other.
+
+I didn’t tell him where I found it. I don’t know why. I think saying it out loud would have made it worse.
+
+That night I put the key in a mug in the kitchen and barely slept. Every tiny noise in the hallway made my whole body lock up. I kept looking at the bedroom door like someone was going to open it slowly and act surprised to see me there.
+
+Nothing happened.
+
+The next morning the key was gone.
+
+The mug was still there. Still in the same place. Empty.
+
+I checked the bin. Checked the sink. Checked under the fridge like an idiot. Nothing.
+
+Then I checked under the bed.
+
+It was taped back in the exact same spot.
+
+Same tape.
+
+Same ugly yellow edge.
+
+I actually said “nope” out loud, which would have been funny if I wasn’t suddenly sweating.
+
+I took it down again. This time I didn’t leave it in the flat. I walked to the canal near my place and threw it in. Not dramatic. Not movie-style. I just stood there in daylight, surrounded by people walking dogs and pushing prams, and threw the thing as far as I could.
+
+I felt stupid after. Like I’d overreacted to a key.
+
+That feeling lasted until 2:13am.
+
+I know the time because my phone lit up on the bedside table.
+
+There was a sound from under the bed.
+
+Not a knock. Not a creak.
+
+Tape being pulled.
+
+Slowly.
+
+I didn’t move. I don’t think I even breathed properly. I just lay there staring at the ceiling while something under me made that soft ripping sound.
+
+Then the bed shifted.
+
+Barely.
+
+Like someone underneath had adjusted their shoulder.
+
+I ran.
+
+I’m not proud of it. I didn’t check. I didn’t turn on the light. I didn’t look under the bed. I grabbed my phone and left the flat barefoot, holding my keys so tight they cut into my palm.
+
+I stayed in my friend’s room that night. In the morning we went back together. He thought I was losing it until he saw my face when we opened the bedroom door.
+
+The key was on my pillow.
+
+No tape this time.
+
+Just the key, lying there neatly in the middle of where my head should have been.
+
+I’m not in that flat now. I’m staying with a friend and trying to break the lease. The landlord keeps saying there must be an explanation. A prank. A previous tenant. Someone with access.
+
+Maybe he’s right.
+
+But this morning I opened my bag to get my charger.
+
+The key was inside the front pocket.
+
+Taped to the lining
