@@ -1,0 +1,521 @@
+Back when I was a teenager, my family was going through some sudden changes. My dad never really told me about the details, but I could figure some things out from context. I have two younger brothers; one six years younger, and one eight years younger. All of a sudden, our family is splitting up. My brothers are moving in with my mom, and I’m staying with my dad. It’s a lot of moving boxes, hurtful words, and late nights with difficult talks. The family tree was a bit more complicated.
+
+That kind of situation is difficult enough as-is; especially for a teenager. You kind of have your own problems at that age, and making sense of the world gets a whole lot harder when your entire life is pulled up by the roots. Dad and I had to move into a smaller place, and I had to get used to a new level of quiet. I still talked to mom and my brothers almost every day, but it was clear things would never be quite the same.
+
+After about a month, my mom was already seeing someone. It didn’t seem like a new thing. My dad was in a bad space, but I think just having me around helped a lot. Still, I had my own life to live, and I couldn’t be with him all the time. That gave him a lot of space for things he couldn’t do before, like fishing, or playing pool with his work friends.
+
+I guess that’s where it started. That’s where Mister Yates came into the picture.
+
+ 
+
+I remember that one Saturday, years ago. I got up at around 11am, made myself a cup of noodles for lunch, and noticed my dad wasn’t up yet. He’s an “up at 6am” kinda guy, so I didn’t know what to make of it. The door to his bedroom was open, so I peeked in.
+
+He was face-first into a pillow, snoring like a boar. He still got his shoes on. I figured he’d had a couple too many to drink, which was unusual. I’d never seen him like that before. It was a moment where I figured maybe he’d taken this whole thing a little harder than expected. I saved him the last glass of orange juice and left him alone, writing a note on the counter that I was going to see a friend of mine.
+
+When I came back for dinner, he was up. I got the impression that he’d only *just* got up. His hair was a mess, and he was wearing the same clothes. He had some ravioli cooking on the stove and yawned at me when I stepped through the door. He clearly hadn’t showered.
+
+“You okay?” I asked.
+
+“Think I’m coming down with something,” he muttered. “Went to fish down the river, and it’s like… I don’t know. Caught something. No fish though.”
+
+“You got the flu?”
+
+He shook his head, stirring the ravioli.
+
+“Not a flu. Not a virus. *Definitely* not an infection. Maybe allergies?”
+
+He shook his head, yawning again.
+
+ 
+
+Then he did this… I don’t know how to describe it. We have this barbeque lighter in a jar on the countertop. He plucked it, grabbed a wooden spoon, and stepped away from the stove. The ravioli was boiling over. He took the spoon and lit the tip on fire. Meanwhile, I’m rushing over to save dinner, asking him what the hell he’s doing. He just looks at me like I’m crazy.
+
+“What?” he asks, holding the spoon like a torch. “What is it?”
+
+“Put that out!”
+
+“Just a minute.”
+
+“A minute for what?”
+
+As I pulled the ravioli away, he put the fire out. And, while holding the burned spoon like a knife, he carved a charcoal ‘X’ on the back of our front door. Before I could even ask, he headed for the bedroom.
+
+“I’m not awake yet,” he said. “It’s all Mister Yates. All of it.”
+
+There was a half-burned wooden spoon on the floor, overcooked ravioli, and dad was passed out in the bedroom again. The only thing that seemed deliberate was the ‘X’ on the door.
+
+ 
+
+I called my mom about it. She asked if I wanted her to pick me up, but I said no. I figured he just needed time. Mom seemed genuinely worried. Neither of us had seen this side of him before. I ended up cleaning the kitchen a bit, watching a movie, and slouching to bed just past midnight. Dad was still a no-show. I tried cleaning the ‘X’ up, but he’d scuffed the paint.
+
+I’m not entirely sure, but I think I heard him walking around sometime in the middle of the night. He wasn’t sneaky about it or anything, he was walking back and forth between the bedroom and the bathroom. At one point I’m certain I heard him kick the trash around. There was also a bit of singing, I think. Strange thing to notice at 2:30am.
+
+Thankfully, it all seemed okay the next day. He was up early, making breakfast. Woke me up at 9am, got the kitchen smelling like pancakes and bacon. He was using the wooden spoon but looking at it like he didn’t understand the burns.
+
+“You feeling better?” I asked, toothbrush in hand. “You were pretty out of it yesterday.”
+
+“No idea what that was,” he said. “All better now. I’m getting two pieces, how many you want?”
+
+He pointed to the bacon in the pan. He knew I wanted two.
+
+“Who’s Mister Yates?” I asked.
+
+He turned to look at me, almost forgetting to flip the bacon. He raised an eyebrow.
+
+“Mister Yates?”
+
+“Yeah, you said something about Mister Yates.”
+
+“There’s no Mister Yates.”
+
+“Then why’d you say it?”
+
+He turned his attention back to the pan, shaking his head. He murmured something under his breath, but I couldn’t make out what he said.
+
+ 
+
+Things were largely back to normal. He would go about his business as usual, and I got buried in assignments. Last year of high school can be relentless, and I couldn’t make time for him, even if I wanted to. Even if I cut out my time with the guys, and my desperate pursuit of a certain girl I liked, there was just too much going on in my life to step back and look at my dad. But even so, I couldn’t help but notice a couple of things that were out of place.
+
+Sometimes the charcoal ‘X’ on the back of the front door had been filled in again. There’d be black stains on dad’s covers, and he’d wash them every other day. He also started getting this really red right eye, like he had an infection. He got a cream for it, but it didn’t seem to help. And every now and then, I could hear him walking around at night.
+
+And sometimes, he’d walk straight out the door and be gone for hours.
+
+ 
+
+One night I decided to confront him. It was just past 2am, and I could hear him rummaging around in the kitchen. I got up, walked out of the bedroom, rounded the corner, and froze.
+
+I could see him in the light of the fridge. From the silhouette, he didn’t look like my dad at all. He was pulling things out and piling them up on the counter. Cereal, orange juice, salami, and this fancy sliced cheese we got at the deli. I flipped the light switch, and he snapped to attention like a cockroach caught in a spotlight.
+
+I could *immediately* tell something was off. Not only the posture, but the way he’d combed his hair. He usually kept it back, but this was parted down the middle. He wasn’t his usual relaxed self. He looked like he was about to burst into a sprint, like I caught him doing something illegal.
+
+“What are you doing?” I asked.
+
+He didn’t answer. He just stood there, looking at me.
+
+“Hello?” I tried again. “What are you doing?”
+
+Still, no answer. He just looked at me like I was accusing him of something horrendous. I took a step closer, and he dropped everything flat on the floor, pulling out a knife.
+
+ 
+
+It was so far from anything I expected him to do that the image has sort of burned into my mind. He had this wild expression on his face, like an animal. But looking a little closer, there was more to it. There were these marks on his face, like pox scars. And his eyes; there was something weird about them. Not just the expression. It took me a while to notice, but it was the redness. He had an infection in his left eye.
+
+The *wrong* eye.
+
+I stopped talking. He wasn’t saying anything either. We just stood there, staring at one another. I didn’t even notice my hands were up, like I was trying to talk him down from a ledge. My heart was racing.
+
+“I’m Yates,” he said. “Mister Yates.”
+
+His voice was low and hoarse with a slightly southern tinge.
+
+“I dun’ know you’re here,” he continued.
+
+“I live here. *We* live here, dad” I corrected.
+
+“I dun’ know you,” he said, circling the kitchen island, keeping the blade pointed my direction. “I dun’ know what you *want*.”
+
+“Dad? What are you doing?”
+
+“Huh?”
+
+He blinked a couple of times and scratched his eye. He looked down, as if inspecting his hands. He yawned, dropped the knife, and walked straight back into the bedroom, shutting the door behind him. I knocked a couple of times, but there was no response. I could hear him snoring.
+
+ 
+
+In the morning, I sat him down to talk. I laid it all out in the open. The ‘X’ on the door. The late-night escapades. The hair, the eye, the fridge raid – all of it. And when it was all out there, dad couldn’t pretend anymore. He threw his hands up.
+
+“I didn’t know he was gonna do that,” he said. “I’m sorry.”
+
+“Do what? Pull a knife on me?”
+
+“That’s *obviously* out of line. *Way* out of line. He shouldn’t even-“
+
+He paused and took a deep breath.
+
+“Look,” he said, slowing down. “It’s not something I talk about. I don’t like to talk about it. But I think it’s reached a point where we have to talk about it.”
+
+“I agree.”
+
+“So,” he said, adjusting his seat. “Mister Yates. Let’s talk about that.”
+
+“You said there is no Mister Yates.”
+
+“And technically, that’s true.”
+
+He looked down, tapping the kitchen counter a little. Finally, he looked up, scratching his right eye a little.
+
+“And in another way, it’s not *entirely* true.”
+
+ 
+
+My dad grew up in a strict household. I never knew my grandparents, but he was very clear about not wanting them in his life. They had this thing where they forced him to draw a charcoal ‘X’ on something he loved whenever he did something bad. It could be on his favorite book, or a painting, or even the family dog. They had a lot of strict and unusual punishments for every petty infraction.
+
+“They used to say that if your soul gets too heavy, it’ll sink deep enough for Satan to pull you down. And while you struggle, he puts something in your place. In my case, it was Mister Yates.”
+
+“So it’s like a second… what, a second you?”
+
+“Not like that,” he said, shaking his head. “He was a thing to scare kids with. My parents would look at me and pretend they didn’t know me, asking if it’s me or Mister Yates in there. It’s this trick they did to hint that you might be doing something bad, and that you need to watch yourself. They did it all the time."
+
+He explained it in greater detail. How they would deny him dinner because they were waiting for “him” to come back, and for “Mister Yates” to go away. It was a way to make him apologize, forcing him to *prove* himself to be good. They could get him to wash dishes, mow the lawn, or do whatever. They’d pull at his feet at night, pretending that Satan was about to drag his soul to hell if he didn’t go to sleep. It created this constant sense of pressure to stay on the straight and narrow, but narrow was never narrow enough.
+
+“But now… I don’t know,” dad explained. “I don’t know where this is coming from. It sounds to me like I’m *sleepwalking*, but I’ve never…”
+
+He trailed off, giving me a moment to catch up.
+
+“It’s not every night,” I assured him. ”Just… sometimes.”
+
+“Yates was always described as a trickster. Sort of impish. Like someone that’d steal an apple pie from a windowsill or tie your shoelaces together. Not the kind to… raid your fridge and pull a knife.”
+
+“But he did. *You* did.”
+
+“You’re right. I did.”
+
+And he nodded. He knew I wasn’t making it up. Something had changed.
+
+ 
+
+We tried to get a better idea of what was going on. My dad started locking his bedroom door at night, but that didn’t seem to help. He wouldn’t be up and walking *every* night, but maybe once every three days or so. Sometimes he’d watch TV, or chug a couple of sodas, but every now and then he’d put on some shoes and walk down the street.
+
+I mapped it out. It would happen somewhere around 1 to 3am. It would only happen when he was asleep, but the exact timing would differ. The changes on him were surprisingly clear, like, it wasn’t just the hair and the posture. He would literally look taller, and he’d get a slight tan. And yeah, the pox marks were there. By morning, it’d all be gone.
+
+He spotted me a couple of times. Once, he just took off running. Straight out the front door, gone with the wind. Another time he locked himself in the bathroom until early morning. But one time, his curiosity got the better of him.
+
+ 
+
+He was standing on the couch, bouncing a little like an overactive kid. He was eating cereal straight from the box, watching the news. There was no sound. I stood in the doorway for a while, watching. He didn’t seem to notice. I got the impression that he wasn’t paying attention as much as he was just enjoying the colors and the serious-looking people.
+
+When he finally noticed me, he pulled back; jumping off the couch with an actual snarl.
+
+“Keep your cereal,” I sighed. “What the hell do I care?”
+
+He hissed at me, backing away towards the door.
+
+“Why are you watching without sound anyway? You can’t hear what they’re saying.”
+
+I grabbed the remote and turned up the volume. His attention whipped back to the screen, suddenly entranced by this development.
+
+“They talk?” he hissed. “They talk to me?”
+
+“You never seen a TV?”
+
+“Is that his name?”
+
+I pointed to one of the newscasters.
+
+“Him?”
+
+“Is he TV?”
+
+“No?”
+
+ 
+
+I had to explain the concept of television to him. Took the better part of twenty minutes. All the while, he was asking the strangest follow-up questions. How can you record the image of a person? How can that image show up in my house? How can I remember what they’re saying without ever being there?
+
+I didn’t even notice it, but we ended up talking for well over an hour. I got the impression that he was confused by absolutely everything. He didn’t understand what was going on. At the end of that hour, he was curled up on the couch like a wounded animal, hugging a decorative pillow.
+
+“I dun’ wanna be here,” he said, shaking his head. “I dun’ *ask* to be here.”
+
+He scratched his left eye. It was hard to tell if he was itchy or crying.
+
+“Then why are you here?” I asked. “What happened?”
+
+He looked me up and down, like he was trying to assess my intention. He must’ve figured I was sincere. He leaned a little closer. Suddenly, this grin spread out on his face. This wide-faced, toothy, grin. In a sing-songy voice, he answered.
+
+“He looked a bit too close, and blinked too many times. He thought he saw an eye above, and now he pays the price.”
+
+“What are you-“
+
+“Specks of dust that ain’t a thing, but things you ain’t perceive. Setting sky, a mother’s love, a soul without reprieve.”
+
+ 
+
+He got up on the couch, clapping his hands once as if demanding my attention. He swung his arms out like he was reciting something from a poem. It was almost Shakespearean. He kicked over a lamp, but it didn’t even slow him down. He was giddy, like a kid on a sugar high.
+
+“Alas, oh so, you can, you will! Bless an eye, oh blessed still! Spin around and look away, live to die another day!”
+
+He turned to me, his face red, screaming at the top of his lungs. I could see the blood clotting in his infected eye.
+
+“Scream and shiver, off you go! Blue’s the secret-“
+
+Tearing up the decorative pillow, he threw the stuffing up like confetti at a parade, letting out a performative laugh with his hands raised to the ceiling.
+
+“-the *sunflowers* *know!*”
+
+ 
+
+I just sat there, panting. He was laughing to the point where he couldn’t breathe. I got off the couch, slowly backing away. He was tearing up pillows, spinning around, kicking furniture, and succumbing to these random bouts of intense screaming. The kind of unfiltered scream that you only hear when someone breaks a bone or loses a loved one.
+
+After a while, he grew catatonic. He collapsed on the couch, but I didn’t dare to approach him. I wasn’t surprised when the cops came knocking. Of course someone called it in, it would’ve been crazy if they didn’t. Two burly men with flashlights, stern faces, and lots of questions.
+
+It took me the better part of an hour to get rid of them, and even then, I had to agree to someone dropping by to double-check on me. All the while, dad was barely coherent. Mister Yates had slipped out of him like a thief in the night, leaving him exhausted and half asleep. I could actually see the change happening in real time as I looked at him. How he subconsciously combed his hair back. How the other eye started itching.
+
+And how the pox marks faded from his face.
+
+ 
+
+The next day, I told my dad all about it as we cleaned the living room. The manic rant didn’t make any sense to him, and having to vacuum the entire living room didn’t make his day any better. He couldn’t figure it out. He wrote it all down and read it over and over, but he couldn’t make sense of it. The poem, or song, was just… nonsense.
+
+“I wonder why he only shows up at night,” I said as dad picked up a broken lamp. “You’ve never been like that before.”
+
+“I’ve always been a sound sleeper,” dad shrugged. “You’re the same.”
+
+“That’s not an answer.”
+
+“I don’t have an answer for this,” he said, slouching his shoulder. “I think it’s best you go stay with your mother for a while.”
+
+“Even after all this?”
+
+“*Especially* after all this,” he said, scratching his irritated eye.
+
+I picked up a shard and dropped it in the trash, then turned to him. I wasn’t gonna entertain the idea of leaving him behind.
+
+“What if we just ask him?” I said. “He can talk, so why don’t we just… talk?”
+
+“You really think that’s a good idea?”
+
+“I mean, he’s gonna show up sooner or later anyway, right?”
+
+“Right.”
+
+He scooped up the final pieces, dropping in the trash.
+
+“Alright,” he agreed. “Let’s talk to him.”
+
+ 
+
+We tried to get the right timing for a couple of nights, but we could never get Mister Yates to show up. Instead, my dad had to try and spend each night sleeping with his hands and feet all tied up; not the most comfortable way to drift off. Maybe that’s what made it so difficult.
+
+But just as predicted, Mister Yates came back. It didn’t take long. And when he did, I was ready for him.
+
+I’d been checking in on dad every night, helping him secure the knots around his hands and feet. Now, finally, something was happening. It started with this wailing sound, then there was a thud. He’d fallen out of bed and was squirming around the floor, trying to get the ropes off. It didn’t take long to recognize the signs. The pox marks, the wrong irritated eye. When he saw me, he stopped moving. I turned on the bedroom light and leaned down toward him.
+
+“I need to ask you some questions,” I said. “Is that okay?”
+
+“Lemme go,” he whispered. “Lemme go, I’ll help.”
+
+“Last time you destroyed the living room.”
+
+“I’ll be nice.”
+
+“Let’s try a question then, see if I can work with this,” I said. “Why do you call yourself Mister Yates?”
+
+“It’s what they call me,” he whispered back. “It ain’t my name. We dun’ get names where I’m from.”
+
+“And where’s that? Where are you from?”
+
+“I answered a question,” he said, holding out his hands. “Now’s your turn.”
+
+ 
+
+I was careful about letting him go, but I didn’t have much of a choice. He wasn’t gonna cooperate if I wasn’t gonna show a sign of good will. Letting him loose helped. We compromised on him getting free access to a box of cereal as we sat down in the kitchen. Meanwhile, I was allowed to ask whatever questions I wanted.
+
+“Why do you only come at night?”
+
+“Slip away when you sleep,” he said, showing fistfuls of chocolate flakes into his mouth. “Dun’ ask to be here. I’m real quiet about it.”
+
+“You don’t seem all that quiet.”
+
+“I been here for years,” he nodded. “But I stay quiet. Look up. No bother. But now it’s just…”
+
+He looked up the little prize at the bottom of the box; a little neon-green plastic toucan.
+
+“…it dun’ *matter* anymore. Might as well do whatever. Have a drink. Kick something.”
+
+“What doesn’t matter anymore?”
+
+ 
+
+He turned his attention to the front door. The faded ‘X’ was still there, albeit somewhat washed away. I could still see the outline of it.
+
+“Orange sands. Rivers of fire. Black boxes, and the reddest, deadest, eyes.”
+
+“Hell? You’re talking about hell?”
+
+“It dun’ have no name. Just like I.”
+
+“Hell is coming here, is that what you’re saying?”
+
+“Guess so,” he said with a shrug. “Dunno why you call it that.”
+
+“Is that where you’re from? From… orange sands? Rivers of fire?”
+
+He looked up at me, mouth stuffed to the brim with chocolate flakes. He held the neon-green toucan with his thumb and pinky finger, changing into a bright voice. He couldn’t help but to laugh, spilling a dozen flakes on the kitchen counter.
+
+“*I dunno!”* he chuckled. “*I’m just a bird!*”
+
+ 
+
+I would have these talks with Mister Yates every now and then from that night going forward. I would get things for him during the day, and in return we’d sit down for a chat. Sometimes he’d get bored and go for a run, but most of the time I could hold his attention long enough to get a couple of answers.
+
+Most of the time it was cryptic nonsense, or something that erupted into an impromptu song and dance number. Nothing quite as screamy as when they called the cops on us though. I think a couple of things he said were lies, or some kind of joke he forgot to laugh at, but there were a couple of things he was unusually consistent about.
+
+He really seemed to be from a different place. He couldn’t remember when he was born, or by whom. They didn’t have *things* there. He really liked to play with *things*. Some of the imagery he talked about was also recurring. The ‘X’ was both a symbol and a kind of literal depiction. In a rare moment of clarity, he confided in me;
+
+“They’re deconstructed,” he said, rolling his eyes. “Don’t you get it?”
+
+Frustrated, he got a piece of paper. He ripped it in half, and put one half atop the other, shaping an ‘X’. Then he started folding.
+
+It turned into a box. One he promptly threw at my head.
+
+“An ‘X’ is an open box,” he said, pointing to the mark on the door. “Means they’re coming. And if they’re getting here, I’m not gonna play nice. I’m gonna have the cheese, and the olives, and the TVs. Because when they get here, that’s done for.”
+
+ 
+
+During the daytime, dad was looking into it too. He was talking to some of the relatives he was still in contact with. Distant half-aunts and third cousins, whoever had been around at some point. Most of them knew about my dad’s upbringing and the way they’d made him do things. Some had even heard about Mister Yates. But it was my grandmother’s half-sister that came with the most interesting factoid. Apparently, my grandparents hadn’t *always* been so cruel. To quote;
+
+“It’s like they woke up one day and decided they were gonna be someone else.”
+
+That caught my dad’s attention.
+
+There had been a time before the ‘X’ drawn on the wall, or the threats of him getting dragged to Hell as a child. But it was like someone flipped a switch, and overnight he was on the receiving end. And the only lead we had was this absurd condition that sometimes struck him in the middle of the night.
+
+We didn’t have a choice but to talk to Mister Yates about it.
+
+ 
+
+He got persuaded a couple of nights later using a bag of pomegranate-flavored gum. Once I realized he’d never really tried *anything* I figured I could get away with introducing him to whatever seems exciting in the moment. I was 100% right. He chewed on ten gum at a time until his jaw hurt.
+
+“Can you take over fully?” I asked. “Like, all the way?”
+
+“Yeah,” he nodded. “If we play the long game. Once people figure out we’re there, they start rejecting us. It’s like a, uh… physical reaction.”
+
+He pointed to his left eye. It looked worse.
+
+“You can see it, right?”
+
+“That means you’re going away?”
+
+“Oh, yeah,” he nodded. “But I’m gonna go out with a goddamn *bang*.”
+
+ 
+
+Dad’s eye got progressively worse too. At one point it was swollen shut, and he had to wear an eyepatch. But it passed, and with it, I started seeing a change in Mister Yates as well. He would slow down, take a little longer to respond, and seem a little sleepier. He started showing up less frequently, and it was more difficult to keep a conversation going.
+
+The last time I spoke to him, we were sitting on the couch. He was digging into a full jar of dill pickles while we watched Jurassic Park. He had only recently understood the point of movies to begin with.
+
+“So this is all gonna end,” I said. “With fire, and sand, and…”
+
+“I mean, yeah,” he interrupted, throwing a dill pickle at me. “So?”
+
+“So?” I scoffed. “That’s not a big deal to you? Literal hell?”
+
+“Nah,” he said shaking his head. “What else is on?”
+
+He didn’t realize you shouldn’t switch mid-movie. Etiquette just wasn’t his thing. I let him have the remote.
+
+“I don’t wanna go to a place like that,” I said.
+
+That made him raise an eyebrow. He turned to me, leaning in needlessly close. Personal space wasn’t his thing.
+
+“You know,” he said, finishing his pickle. “Have you ever considered that I may be an idiot, and a liar?”
+
+“It’s crossed my mind.”
+
+“What if I’m wrong?”
+
+“Then you did all of this for nothing.”
+
+“Not nothing,” he said, waving a pickle at me. “This is *everything*.”
+
+Last time I heard Mister Yates, I was crawling into bed. He was rummaging about as usual, then he just sort of stopped. I could hear his breathing slow, like he was falling asleep. He left something on my nightstand, went back into the living room, and fell asleep on the couch; hand still in the pickle jar.
+
+By morning, my dad’s eye was fully healed, and there was a note on my nightstand. Mister Yates had torn out a page from our bible and written in big, bold letters;
+
+**I THINK YOU GOT ONE TOO**
+
+ 
+
+I showed the note to my dad, and we pieced it together. So, this was something that happened on his side of the family. Something inhabits us. Something that, with the exception of U Mister Yates, is both quiet and insidious. And if left to fester for too long, eventually, it can completely take over. Unless, for one reason or another, it decides not to. For my dad, the thing had rebelled. For my grandparents, well… we could only speculate. I brought up the possibility that maybe my baby brothers had it, but he just shook his head. Apparently, we’re a family, but not that kind of family. He did not elaborate.
+
+It was a strange thing to consider. I’d never had trouble with waking up at night, or sleepwalking. But then again, that’s not a normal part of it. Mister Yates was the deviation, not the norm. Usually, whatever was in there stayed put, waiting for a night where it would just… flip a switch.
+
+My dad started checking on me every night. Sometimes he would wake me up to see if I was still being me. We tried a couple of things to coax a reaction, but our efforts didn’t amount to anything.
+
+ 
+
+One night as I lay awake, drifting in and out of sleep, I felt my eyes open. Not as in waking up, but as in an involuntary muscle reaction. It was this strange sensation of seeing, without being awake. Looking around the room, I felt my hand move. I tried to force myself to wake up, to move, but it felt like trying to run in a dream. Efforts got me nowhere, even blinking was impossible.
+
+I realized this was what it felt like to lose control. That thief in the night, taking my place. Maybe it got bolder once it realized I was on to it. I could sort of move my lips a little if I tried, but I couldn’t speak. I was breathing heavily though. Heavily enough to move my lips and have a word escape on the exhale.
+
+“…see you” I exhaled. “…see you.”
+
+Something inside me jumped to attention. My eyes closed as I lay back down in bed. I could feel myself sinking deeper and deeper into sleep, and a thought crossed my mind.
+
+In those moments where something takes control, what happens to me?
+
+I was about to find out.
+
+ 
+
+It feels like something pulls you down. Physically, downward. It starts with your feet as if you’re wearing concrete shoes. You sink into yourself, deeper and deeper, until you’ve fallen for so long that you can’t feel it anymore. Like pretending you’re going for a walk while falling through the sky.
+
+If I concentrated hard, and closed one eye, I could almost see what was happening outside myself. I was walking around. Looking through drawers. Taking small, careful, steps. Trying not to make any noise. But it wasn’t my steps, and it wasn’t my actions; I was seeing it from the perspective of a distant guest.
+
+There was no loud crash, or sudden impact. You pass into this space of mine where you’re held while whatever happens outside happens. A place where the sand is orange, and the rivers are fire.
+
+ 
+
+To explain a first-hand account of it is an abstract sensation. It’s not a real place. Not a nightmare either. It feels like you’re turning around, and there was this whole other world waiting behind your back. You’re not disappointed, or scared, you’re just angry you didn’t see it before.
+
+The air feels like refined chemicals. The sun doesn’t just burn, it *cooks* you. The rivers of fire sizzle through ever-expanding plains. Ribcage hills litter the world like abandoned corpses. There are no stars. No clouds. And in the moments where you forget that it isn’t all normal, it’s almost beautiful. A reaction, to a reaction, to a reaction.
+
+But then I brought my hand up to my eye. And if I pressed hard enough, I could see what was happening - outside.
+
+I was *fighting with my dad.*
+
+I could see a knife. There was fabric being thrown around. *Blood*.
+
+ 
+
+One moment, I can feel the sizzle on my skin. In another moment, I force a sliver of light through my eye, and I see hands trying to keep me away. A stray pulse rushes through my ear, and I hear someone begging me to stop. All the while the fire roils down the river, snaking around a labyrinth of massive obsidian blocks.
+
+I notice, briefly, that if I press really hard, the image gets a little sharper. I start to scratch and itch at my eye, and when I do, I can almost feel a sensation coming back to me. A tingle in the fingers. I watch, and see my head turn downward just in time for my hand to drop a knife.
+
+I rub, and twist, and turn. My eye goes red, but I’m barely scratching the surface. I’m not getting through. It dawns on me what is going to happen, and what I’m about to experience. There’s this emptiness spreading through my chest as the possibility of being stuck in that place and frame of mind, forever, dawns on me.
+
+ Like a hall of mirrors that won’t stop reminding me that *there is a forever.*
+
+ 
+
+I sat down in the orange sand, feeling the weight of the realization settle in me. I was inconsolable. Even then and there, next to fire and pain, I’d never felt colder in my life. This could be it. The end of things.
+
+I don’t know when it happened, but someone sat down next to me. I remember a skull, and flesh melting off a pristine skeleton. Pieces of sinew and marrow popping before crumbling to dust. And yet, the posture seemed almost casual. Friendly, even.
+
+“…got time?” a distant voice asked, as if echoed from behind a pane of glass.
+
+I shrugged. It asked me a question, but I didn’t understand. Then it asked again.
+
+“…trust?”
+
+I had no idea what we were even talking about. I shook my head.
+
+“…ain’t dun’ yet.”
+
+I didn’t have time to react as bony fingers grabbed the back of my head and dunked me face-first in the river of fire.
+
+ 
+
+That primal pain gave way to the soft breeze of an indoor cooling system. I was suddenly standing in my living room, holding a tenderizer. My dad was on the floor, his hands cut and bruised. I could still feel the fire in one of my eyes. The burn was so intense that I had to cover it with my hand. I dropped the mallet and tried to take a step back, but instead collapsed to the ground. My motor functions were still asleep.
+
+“You made it,” dad said, his hands shivering.
+
+“Yeah,” I said. “Yeah.”
+
+“I think it… fades. That place. You just sort of remember the feel of it.”
+
+I nodded, trying to catch my breath.
+
+“It hurts. Burns like hell.”
+
+“Yeah,” he agreed. “Like hell.”
+
+ 
+
+The next morning, I wrote down what I remembered. Some of it had faded, but not all of it. Most of what I wrote down that day is the basis to the description I can give to you here, today.
+
+It was like Mister Yates had said; once you knew that thing was there, you could begin to reject it. Dad and I had a couple of close calls, but we managed to get through it. Some nights from that day forward I had to be locked up, or tied up, and the swelling in my eye got worse. But little by little, it went away. And with it, the images of that place. Nowadays I just have the words, and this vague feeling in the back of my gut.
+
+Looking back at it, I don’t want Mister Yates to be right. I like to think he was being stupid, or wrong. I don’t want to think about seeing that place again, in any way, shape, or form. But I don’t think he was stupid. Maybe he just didn’t have the whole picture.
+
+Either way, a dry eye heals. So do cuts and bruises. I sleep soundly at night, and those formative high school years are long since behind me. But to this day, there’s a part of me that wonders if I’m really me as I soundly sleep.
