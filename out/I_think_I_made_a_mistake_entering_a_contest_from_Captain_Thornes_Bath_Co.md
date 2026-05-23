@@ -20,8 +20,7 @@ The “captain’s log” was a simple form with a few weird maritime questions 
 
 It was getting late and I had work the next morning, so I set my alarm for 5:30AM on my phone, placed it beside my bed, and went to sleep.
 
-  
-
+\---
 
 It was 2:47AM when I was woken up by this incredibly loud foghorn noise.
 
@@ -45,8 +44,7 @@ Then vanished.
 
 I tried to get a bit more sleep, setting my bedside clock alarm instead of my phone this time.
 
-  
-
+\---
 
 As I drove to the site, I struggled to keep my eyes open after the restless night I had. We were breaking ground on a new construction project out of town, and I entered the site’s address into Google Maps. As I merged onto the highway, I tried to forget the alarm incident and the contest with thoughts of site grading and blueprints.
 
@@ -76,8 +74,7 @@ My phone buzzed. It was the same number from earlier.
 
 I deleted the message, and then turned my car around to get to work.
 
-  
-
+\---
 
 When I got home, there was a small cardboard box in the hallway outside my doorstep. The label was made out to me, but there was no sender address. As I lifted it up, some sand fell out of the seams.
 
