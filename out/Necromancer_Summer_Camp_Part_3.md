@@ -574,4 +574,6 @@ I tried to move my feet, but they felt like lead. My strength failed me and I fe
 
 On the rocks, hundreds of feet below, lay James’s mangled body. His face was still frozen in a gruesome smile. His arms and legs were twisted around him unnaturally, and a pool of red grew around his head—growing larger and larger—and spilling off into the stream.
 
-A chill ran through my body and collected in my stomach. If I had any breakfast that morning, it surely would have landed on the rocks next to James. I dry-heaved as I weakly pushed myself away from the edge, losing what little remained of my strength. I rolled onto my back as my vision grew fuzzy. And right before I faded to black—I saw two cloaked figures approaching me.         
+A chill ran through my body and collected in my stomach. If I had any breakfast that morning, it surely would have landed on the rocks next to James. I dry-heaved as I weakly pushed myself away from the edge, losing what little remained of my strength. I rolled onto my back as my vision grew fuzzy. And right before I faded to black—I saw two cloaked figures approaching me.  
+
+"Dormi nunc!"       
