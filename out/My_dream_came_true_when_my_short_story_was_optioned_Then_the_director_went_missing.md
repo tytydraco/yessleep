@@ -1,0 +1,160 @@
+I had been posting short horror stories online for years, hoping to make it big. I heard stories and scripts from around the internet being picked up by Hollywood studios and figured, why not me? 
+
+I wrote about werewolves and vampires and ghosts and possessions and cults but nothing ever picked up traffic for more than a couple of hours. Was I posting at the wrong times? Did my username turn people off? Were my titles too rote? 
+
+When my hundredth story failed to get more than a handful of comments, I did what I promised my grandma I would never do. I wrote and posted about the Green Sun Ritual, sharing it with the world.
+
+It was uploaded to the horror website Troubled Blood. It became their highest viewed post of all time. Users commented that they couldn’t finish it. That it was gutsy, demented, and timeless. Of the hundreds of direct messages I would receive about it, the one from director Jay Parallel was the one I’d been waiting for. It was brief:
+
+*Hey dude, loved your story, I’m thinking it could be a good movie. Want to chat?* 
+
+I asked for verification that it was him (it was) and if he wanted to talk next week (he did) and we hit it off. And Parallel, of all people. He was on fire lately.
+
+He surprised critics when the straight-to-streaming *Pancake Eyes 2: Summer of Suffer*, became an audience darling. After that, a bigger studio picked him up to direct an adaptation of The Daylight Witch to even more acclaim. Two more solid showings after that with another release on the way and now he wanted my story.
+
+My brother, a lawyer, helped me through the option agreement. $50K for the story and a percentage of box office sales should the film make it past the $50M mark. Even better, Parallel wanted me on contract to consult with writing and some story direction. 
+
+All was going well until I received this text:
+
+*Billy, you won’t believe it. We did the ritual and the feeling in the air was fucking SPOOKY. This is gonna be hype as hell.*
+
+I didn’t believe what I was reading.
+
+*Like with props?* I said in response.
+
+*No dude. The real thing. I got a friend in med research is all I’ll say. But I’m inspired.*
+
+My brain felt frozen, all I came back with was: *Why?*
+
+*To really feel it! Before we make a Hollywood version, I needed to know what it was really like. Help figure out what to tell my actors. You’ll get it if you ever direct.* 
+
+In order to have performed the ritual, Parallel would have had to have six dead bodies and taken them out to a plateau or desert, somewhere with uninterrupted sun.
+
+I got a voice note from him next. 
+
+*It’s like I can't sleep. Did you feel this way when writing it? All this excitement inside your body?*
+
+I just *hearted* the message and put my phone down. Maybe everything would be all right. Maybe, despite my Grandma’s warnings, it was all just fiction.
+
+Days later, his assistant, Paige, emailed me a list of questions that I didn’t really have any answers to. There’s no Wikipedia entry covering the Green Sun Ritual, no mentions of it in any books, and definitely no other media adaptation. Anything that Parallel wanted more info on would have to be made up by him or me.
+
+He sent me a voice note right after I responded to Paige, they were probably right next to each other.
+
+*You never thought to call it the Black Sun Ritual?*
+
+Shit.
+
+*How the hell did you know about that?* I texted back.
+
+He responds in text: *Know about what?*
+
+It’s something my grandma told me that I didn’t include in my own version of the story because it never really made sense to me. She would say “as the sun sets, it turns a rotted, angry green. It’s so green that it’s better understood as black.”
+
+And now Parallel knew that. 
+
+*We can help each other.* A new voice note said. Followed in quick succession by another saying: *We’re in this together, like shared blood.*
+
+I typed a message back to him: *What are you talking about?*
+
+He replies back in text: *What? What are YOU talking about lol*
+
+Two days later I received an envelope in the mail with no return address. I unfolded the photo that’s folded up inside, printed on regular printer paper. The image made me vomit.
+
+It was a photo of a blood-lined skull, with six triangular flaps of face skin pulled back and hanging off on their respective sides of the head. It was like someone took an apple corer to the face and peeled back where the blades made their cuts. What’s left is akin to the kind of sun you’d draw as a kid with triangles outlining a circle. 
+
+Just like what was described in the Green Sun Ritual.
+
+On the back was a hastily scribbled note: *Welcome to inside Hollywood*
+
+My email pinged with the Google news alert I had set up for Parallel. The story was from an LA entertainment news site: *Celebrated Horror Director Skips Own Q&A of Upcoming Grimli’wok Premier*
+
+It’s in reference to the most recent movie he’s finished that had its wide-release the following week. I scanned through the article and paused when I saw another headline hyperlinked on the side of the page. The website’s “Crime” tag was under it: *Medical Researcher Gruesomely Murdered in San Bernardino Lab.*
+
+Everything started to unfurl quickly after that. 
+
+A voice note from Parallel: *Hey, come let me in, I’m inside!*
+
+Another: *Everybody is being a crank right now. Have each other.*
+
+Another: *On shared time now, buddy.*
+
+The voice notes didn’t make any sense to me. I looked outside my peephole and no one was around, so I gave him a call.
+
+“Hey, Jay, it’s Billy. You doing alright?” I asked when the call clicked through.
+
+“Hey… Billy… good to hear from you.” He said back. His voice was labored and slow. “No, not feeling… not feeling too well.”
+
+“Is anyone taking care of you? Where’s Paige?”
+
+“She’s.. Inside”
+
+“She’s inside? So she’s with you?”
+
+“No…” Parallel coughed out, “She’s not here.”
+
+“Look, why don’t you give me your address and I’ll come by.”
+
+It took him a couple minutes and a few nudges from me until he was able to get out his address. Once I was in my car and driving, I called Paige as well.
+
+The conversation was brief. She said he fired her yesterday after spending the better part of an afternoon screaming at her. She said he kept asking her where the ropes were and that she didn’t know what he was talking about.
+
+But I did. The six ends of the intestines, to be held by the person in the center of the six, split-faced bodies under the setting green (*black*) sun. The other end of the intestines are to remain in their respective bodies. The image in my head while I wrote it was a fucked up maypole.
+
+I parked in the driveway of his Bel Air home and ran up to the door. It took a minute for him to let me in. He looked exhausted. 
+
+“Billy… what are you… doing here?” He asked.
+
+I didn’t bother to remind him I said I was coming over. Instead he shuffled into the kitchen. As I followed, my phone started to vibrate.
+
+It was incoming voice notes, all from Parallel. Before I held my phone up to my ear to listen, I spotted Parallel's own phone sitting undisturbed on the kitchen counter.
+
+In the span of thirty seconds, forty different voice notes had come in with more and more fighting their way through to my phone.
+
+“Inside.” One said, followed by “We’re Inside.” 
+
+Each was short, and my phone played them one after another. Back to back to back to back.
+
+*You’re inside*  
+*Happy body*  
+*Shared blood insider after all*  
+*Help each other*  
+*Help each body*  
+*Inside*  
+*Inside*  
+*Happy inside*  
+*Help*  
+*Shared blood*  
+*It’s done body*  
+*We’re inside*  
+Helped each other
+
+I didn’t let them all finish. I put my phone in my pocket and asked Jay again how he was feeling. His response confirmed what I already knew: 
+
+“We’re feeling better.” He said.
+
+You see, the Green Sun Ritual is built around this theory. The reason why other rituals fail in bringing a soul back from the dead is that the afterlife changes it, gives it strength. What the soul lacks in a physical body, it gains metaphysical power. 
+
+To keep that power contained, you don’t bring just one soul back. You bring six. Six souls let in through the green flash of a setting sun, transferred into a healthy body.
+
+It’s why I thought even after sharing it, no one would ever attempt it. Forget needing six dead bodies or the requirement of mutilating them. Why would anyone ever want to bring back five random souls just to get one that they truly missed? It was a quirk of the ritual: just because it’s *how* you would do it, doesn’t mean you would ever *want* to do it.
+
+“Yes, much better.” Parallel said, unprompted.
+
+Only this time, it wasn’t his voice. It came from six different voices harmonized together. 
+
+Then, his (their) eyes widened. They must have realized they were no longer bound by Parallel’s desires, interests, or any other connection to his world. They just turned and walked out the door.
+
+I had no idea what to do and no one to call.
+
+I left his house. Later, after being questioned by the police, I was very thankful that street cameras caught footage of him walking through the streets of Los Angeles, that there was proof that I wasn’t the last person to see him.
+
+In short time, the recorded sightings of him stopped. He was officially declared missing. 
+
+Two months later and I’m finally starting to put this all behind me. At least I was, until the studio that Parallel worked for emailed me today. 
+
+They want to void the old option agreement given his disappearance and create a new one.
+
+They still want to make the movie and asked if I would still be interested.
+
+I told them yes.
+
