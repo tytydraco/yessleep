@@ -1,0 +1,271 @@
+It was a week after graduation.
+
+We arrived at Silent Waters Camp Grounds excited and in a rush to set up our tents and start our vacation sooner. There was a campfire we gathered around to tell scary stories and get drunk.
+
+On the fourth morning at around eight AM one of the park staff was nearly finished his patrol when he noticed our campground deserted.
+
+Our tents along with our cars were missing. Tire tracks led towards the tree line that cut off a few meters ahead of the lake.
+
+Eight days later myself and Nathan stumbled out onto the road in front of a passing car. We were a hundred miles from where we had started.
+
+We told the police almost everything. 
+
+We told them we had brought more than just alcohol. I told them that I had shot a deer. That we had heard people screaming in the woods and they had stalked us for days afterwards.
+
+However I never mentioned the scars on the deer. Nathan still hasn't told me what he saw in the lake. I had no intention of ever telling this story but it's much harder to stay in silence with no one to share it with.
+
+Years went by. I moved somewhere warmed and with more desert than trees.
+
+Nathan and I had stayed friends but I hadn't seen him since moving out of state. He never moved away. He said it was because he didn't want to learn the good fishing spots somewhere else.
+
+He called me last week and told me his wife had talked him into going camping. His daughters had been begging him to teach them how to fish. When he told me the name of the park he was staying at, I asked him if he was crazy. If he didn't remember what had happened to our friends.
+
+He was quiet for a while and sighed loudly. He said he didn't want one bad acid trip to stop him going camping with his family. I asked what he meant.
+
+"We were high, Jes. We ran into the woods in the middle of the night and the others stayed lost."
+
+I couldn't believe what I was hearing. I was yelling when I asked if he really thought that was all that happened to them. He snapped and raised his voice when he said,
+
+"Do you really think an urban legend came to life and ate our friends?"
+
+He softened his tone and continued,
+
+"It's okay to move on."
+
+I hung up. 
+
+If I'm being honest I was worried for him but I was too angry to notice that for days. I wanted to call him first thing monday morning but I had nothing nice to say. It wouldn't have mattered. His family went missing sunday evening. He was never found. Neither was his wife and eldest daughter.
+
+Their youngest was found cowering in a patch of overgrowth clutching a fishing rod. All she would tell them was,
+
+"The lady took them swimming."
+
+I think there's something living in the lakes of Silent Waters National Park. I'm not brave enough to go back. I'm going to write down what I remember from that night in hopes it's enough information to help someone braver than me do something.
+
+Isaac had slept in that morning. He woke up to the rest of us honking our horns outside his house at sunrise. His mom shouted at us to shut up from behind him as he ran outside and into his car following us driving down the road.
+
+Jason and Daisy led the way in his brand new red pickup his parents had got him. Nathan, Issac and myself drove our own, less expensive cars behind them.
+
+We parked and following a trail from the car park we soon found ourselves in a large clearing with a firepit to one side. The tree opened up further to the left and we would find a lake about a hundred meters that way.
+
+After setting up our tents the sun was high overhead and we went swimming to wash off our sweat. Daisy refused to join and sat down on the edge watching the rest of us. After some attempts at convincing her to get in, Isaac splashed her with water. This upset her and she stormed off after yelling at him.
+
+Later that night she snuck into his tent and poured water on him while he was asleep. She denied ever doing so but Issac claimed to have seen someone with long hair run out of his tent. She was the only one of us with hair past their shoulders. I kept mine short so it wouldn't get in my eyes while hunting.
+
+Nathan and Jason caught fish for dinner. The pair worked well together at preparing and cooking their catch. It was the first and only time I ever saw Jason get his hands dirty. 
+
+That night around the campfire he asked if anyone had heard of the quiet people. He told a story about when the first settlers roamed these mountains they found a race of tall human-like people that wore no clothes. Leaves never rustled in their path and twigs that snapped underfoot made no noise. They glided through water silently and with great speed.
+
+They were an odd people. They ate animals while they still lived and rarely left the waters of the many lakes on the mountains. When they moved their mouths to try and speak not even their breath could be heard.
+
+He continued saying they captured one of the beasts and after a day its skin had dried up and flaked off like scales. It didn't live long after that.
+
+When the story finished Nathan laughed.
+
+"So fish people creep around the woods, what if we caught one earlier?"
+
+Isaac joined him laughing and soon Jason was arguing with them over how he would prove the quiet people were real.
+
+Eventually the boys calmed down and we all went to bed.The next morning Daisy complained of the cold in her tent. Jason whined about how uncomfortable the ground was to sleep on. They slept in his truck after that. Eventually I had heard Jason complain about his sore back one too many times and decided to go hunting.
+
+Isaac offered to join me and we set off together. He wanted to set up snares and try to catch a rabbit but after half an hour he got bored and left me. 
+
+I listened to the birds chirping and the wind slowly shaking the branches overhead while I walked deeper into the woods. The air smelled fresh and the silence was welcome.
+
+I went off the trail into the thicker patches of the woods. Eventually I found a deer bed in a small clearing. 
+
+I hid myself behind a patch of dense overgrown bush and waited. An hour later a large buck trot into the clearing. It was missing fur in patches along its hide.  It checked its surroundings and I held my breath. It looked to its left and then to its right where I was hiding. It looked directly at where I was hiding.
+
+I don't know how long I lay there holding eye contact with the buck through my scope. It never looked away as it crossed the clearing and lay down.
+
+It shook its head and looked away for a second.
+
+I took a sharp breath and pulled the trigger.
+
+Its body shook with the force of my bullet passing through its chest. It didn't move. It's head snapped back to look right at me.
+
+When it finally slumped over to the side I sprang up and got closer. Its chest was still heaving as it gave its last wet and gargled breaths. The missing patches of fur revealed chunks torn from the side of the animal. Its back was covered in bite marks. Some were still bleeding but most had scared over.
+
+I left the buck there and ran back to camp.
+
+When I told them what happened they were skeptical. Nathan was the first to see me stumble out of the forest at top speed and ran over to me.
+
+When I had calmed down enough to explain he dismissed it. He asked if it couldn't have been attacked by an animal. In response to this Isaac chimed in.
+
+"My mum told me to be careful of wolves out here, they hunt deer all the time."
+
+I wanted to dismiss it like they did but the teeth marks hadn't looked like the sharp fangs of a wolf. They were more flat and were too precise to have been done by a thoughtless animal. I mentioned this to them and Isaac laughed.
+
+"Stop trying to scare everybody Jes. Jason's stories are more believable."
+
+He gestured to Jason who hadn't said anything until now. Nathan and Issac walked away cracking jokes back and forth. After a moment of hesitation Jason asked, 
+
+"How many times had it been bitten?"
+
+I remember there being twenty or thirty. 
+
+Most of them were shallow except where whole chunks of muscle and fat had been torn from bone. It looked like something had been finding the juiciest parts to bite off.
+
+I went to bed uneasy and left my lantern on overnight. In the morning Jason and Daisy walked up the trail from his truck and straight towards me. They wanted to see the deer. We gave up after a few hours of searching for where I'd left the dying buck. I couldn't find it again.
+
+This only convinced Isaac further that I had only been trying to scare everyone. I wanted to believe that was all I was doing. 
+
+I told myself all I had seen was an injured deer the morning after hearing a scary story and my mind was playing tricks on me.
+
+I still can't remember that night clearly. 
+
+We all got drunk like we had the previous nights but every time I finished a drink I felt like I needed one more to relax. Issac handed me something and I took it without thinking.
+
+Soon after we heard the screams. 
+
+They didn't echo. Each would start and abruptly cut off only to start again from another place.
+
+There was only one at first. 
+
+Soon another joined and after a minute there were half a dozen screaming voices. Each one sounded like it came from a different animal.
+
+Daisy was the first to move.
+
+She sprinted towards the treeline in the direction of the car park. Jason called after her and when she disappeared through the trees he cursed and followed.
+
+The rest of us didn't move.
+
+We all looked at one another and without a word knew we had all come to the same realisation. The screams were coming from that direction.
+
+Jason reached the trees and stopped running. A large hand reached towards him. He was still calling Daisy's name.
+
+A tall figure stepped towards him and placed a hand on his shoulder. After that he went quiet. The rest of us ran as the figure bent down towards him and opened its jaws.
+
+Jason didn't try to escape.
+
+We ran in the opposite direction. 
+
+It was dark and Nathan tripped head first into the shallows on the lakes shore. Isaac and I helped him up and the three of us ran through the trees.
+
+Soon we were running single file through the dense undergrowth. The trees grew closer together and the dense canopy blocked the moonlight overhead.
+
+The screams followed us and I could see glimpses of something pale through the trees every so often.
+
+Nathan was at the front with his arms outstretched to avoid running straight into one of the trunks.
+
+We ran until morning. 
+
+I had to check over my shoulder often to see if Issac still followed behind me. I couldn't hear his footsteps over the screams.
+
+When the sun first rose I went to check on Isaac and nearly froze in shock before he yelled at me to keep moving. 
+
+I saw a tall figure standing a meter behind him. It was hunched over and its chest was rapidly rising and falling. Long hair covered its face. Its skin was chapped and I saw it flaking off revealing bright red tissue underneath.
+
+It didn't make a sound. 
+
+We kept running and the screams stopped shortly after.
+
+In the morning light it became clear we had been running up a hill. The trees were thinning out and behind us now we overlooked a vast forest in all directions.
+
+We couldn't see a road but nor did we see anything following us. A river ran from the east in our direction. We set off in hopes of getting a drink of water.
+
+All we had with us was my cellphone.
+
+Attempting to make our way down we came to the edge of a steep cliff face and had to retrace our steps for awhile to find a way off the mountain.
+
+While walking I asked Isaac if he knew how close that thing was behind him. He told me he didn't but continued,
+
+"I kept feeling something. Like someone was blowing hot air on the back of my neck."
+
+We walked mostly in silence after that. Nathan kept muttering something under his breath. My phone had no reception and every hour its battery slowly drained.
+
+Late in the afternoon we were all near collapse.
+
+Worse we were lost. I couldn't think straight I just wanted to rest. 
+
+I saw a small opening in the side of a steep rock face big enough for us to crawl through. Inside was an area large enough to fit the three of us lying down and not much more.
+
+Isaac covered the entrance with leaves and large sticks and we hoped it would keep us hidden while we rested. I offered to stay up first while the other two slept.
+
+In the confined space I could hear what Nathan had been mumbling to himself.
+
+"I could see them."
+
+I crawled over and sat next to him. He flinched when I put my hand on his shoulder. I asked what he saw.
+
+He was quiet for a long while and kept repeating the same phrase. I thought he hadn't heard me but eventually he stopped and replied.
+
+"When I tripped and went under the water I- They spoke to me."
+
+I asked him what they said. 
+
+His voice caught in his throat and I heard him start crying. I sat there with my hand on his shoulder until he stopped shaking and fell asleep.
+
+I woke Isaac up when it was his turn to keep watch and while I tried to sleep he said something.
+
+"Hey, Jess?"
+
+I turned over in the direction I thought he was sitting in the dark.
+
+"What is it?"
+
+He cleared his throat.
+
+"I uh- I'm sorry I didn't believe you. And that I laughed at you."
+
+I thanked him. I didn't think he knew how to apologise. Soon I couldn't fight sleep any longer.
+
+When I woke up the moonlight trickled in through the entrance. I could see Nathan curled up asleep next to me. Isaac wasn't inside.
+
+My stomach dropped and I scrambled towards the entrance. 
+
+I saw Isaac. He was slung over the shoulder of a large figure. He looked back at me with a blank expression. 
+
+In the faint light i saw the creature carrying him was pale. Its skin glistened and as its long hair was damp and clung to its naked body. There was blood dripping down its back although I saw no wounds on the creature itself.
+
+I hurried to wake Nathan up and half dragged him out of the cave. I nearly tripped on something and turned my phone's flashlight down to see I had kicked a rabbit. It had been bitten several times and its fur was dyed red and matted with blood.
+
+I screamed and ran without checking to see if Nathan followed behind me. He caught up to me and for the next three days we barely slept. We kept moving aimlessly trying to find an escape to the endless maze of tree trunks.
+
+We only stopped long enough to drink water from a lake or pick a handful of berries I recognised to not be poisonous.
+
+We never saw the creatures or heard their screams over those few days. I started to believe they had left us alone. 
+
+The only thing screaming was my stomach. My throat was so dry. The last time we saw water was the night after Issac was taken. 
+
+In the middle of the night we saw a light through the trees. Running towards it we found a street lamp. 
+
+We reached the road. 
+
+An empty two lane highway that stretched as far as we could see in either direction.
+
+We walked directly in the middle and prayed to see headlights as we picked a direction at random and followed the road. Shortly after Isaac stumbled out of the trees and collapsed on the side of the road.
+
+I ran towards him and dropped to my knees. He was staring upwards with a blank expression.
+
+His clothes were torn and he was bleeding from several wounds. My mouth began to water. Nathan slumped to his knees next to me and I heard his stomach growl.
+
+We tore the remains of his shirt off and the only thought on my mind was how hungry I was.
+
+I looked at Isaac's face. His eyes were glazed over and he stared blankly at the sky. With tears in my eyes I said, 
+
+"I'm sorry."
+
+I bent down and slowly opened my mouth. 
+
+He began laughing. His expression never changed but he laughed louder. I backed away as he grew louder and turned to look at me and then at Nathan who hadn't looked moved. 
+
+When something began dragging Isaac's body back towards the trees Nathan scrambled to his feet. 
+
+I had been paying too close attention to his laughter and empty expression that I hadn't seen the large hand wrap around his ankle.
+
+Nathan and I left him there and ran. By the time I dared to glance over my shoulder his body was gone.
+
+A few hours later we were saved. 
+
+We saw headlights ahead of us and ran out in front waving our arms and begging them to stop.
+
+A concerned looking woman let us into her car and drove us back to a town neither of us recognised the name of. We had ended up in a different state and after a week of questioning the police finally let our parents take us home.
+
+The whole town spent months searching for our friends. We weren't allowed to join. Nathan was the only one of us that tried too. 
+
+I moved away shortly after. 
+
+Isaac had lived just down the street from me. I couldn't handle the way his mom looked at me every time she asked what happened to her son. Issac had her eyes and he had furrowed his brow in the same way she does when in thought. 
+
+I never knew what to say to her.
