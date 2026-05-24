@@ -1,0 +1,94 @@
+I’ve worked at The Stockyard for six months now. I still get that little rush when someone takes their first bite and makes that sound they can’t hold back. Shoulders drop. Face goes slack. Like the burger found something they needed.
+
+The place has a warm feel that pulls people in. Exposed brick walls with old vinyl records and posters nailed up. Edison bulbs on black cords giving everything a greasy golden glow. Indie folk music playing low from the speakers, the kind that sticks in your head. 
+
+The menu is all chalk on a big board up front. You order there, then we bring the food out fresh on heavy plates that hold heat too well. The neon sign out front says “The best burgers in town.” It might be true. Each one tastes different. People come from other counties for the weekly special.  
+I’m a server. I see everything. Eyes rolling back. Little sighs. A lot of them cry while they eat. Tears start before they even bite sometimes. 
+
+They don’t wipe them. Sauce and salt mix on their chins. They keep going.  
+“God, what is that?” they ask.  
+“100% locally sourced,” I say. I have the smile down now. “We keep it simple.”
+
+My name is Alex. I took the job after things fell apart at my last place. Pay is okay. Tips are good. Clarksville is small. People know each other but don’t talk much. The Stockyard sits at the edge of town where the road ends and the woods start. It wasn’t here two years ago. 
+
+One morning the lot was empty. The next morning the building was there, neon already on, smell of meat in the air. Most customers say they don’t remember taking the exit. They just saw the sign and got hungry.
+
+One slow Tuesday a guy in a hoodie came in. The neon flickered hard when he touched the door. He ordered the Classic with pickles. When I set it down he paused, then took a bite. Tears came right away.
+
+“This tastes like my mom’s cooking,” he said. “Before she got sick. How do you do that?”  
+I refilled his water. “Glad you’re enjoying it.”  
+He finished it all. Went to the bathroom. Never came out. His car stayed in the lot three days.
+
+You learn the rules quick if you want to stay. If the neon flickers when someone walks in, watch them. They won’t be leaving. If you hear crying in the walk-in freezer, don’t open the door. No matter what they say. One night I heard a man talking about his daughter’s birthday. He described her favorite chili with cocoa powder in it. 
+
+He kept going for nights. Then the crying stopped and three knocks came instead. I closed the place and left. Next day the board had a new special: Emma’s Secret Chili Burger. If the knocking starts, you shut everything down and get out.  
+Mrs. Hargrove comes every Thursday for the Smoky Maple. She’s old, sharp eyes. Last week she nodded at table seven.  
+“That one’s got the look,” she said.
+
+“What look?”
+
+“You know. The one that comes back in dreams.”  
+She smiled like we were talking about the weather. I said our meat is always fresh. The air around her booth always smelled a little sweeter after she left.
+
+Gift certificates come in sometimes. You take the order straight to the chef. The food comes back in a brown bag that leaks warm drops. Customers hug it and leave. One woman took hers and whispered, “This is going to fix things.” Her hands shook. The bag left a dark spot on the table that took extra scrubbing.
+
+The woman with kids comes every few weeks. She orders the children’s meal. The kid colors. She leaves alone. Next time a different kid. The board changes after. New flavors appear.
+
+The businessmen show up once a month. Suits, briefcases. You lock the doors. Move customers outside. They go in the break room. The clock flashes red. Sounds come through. One night I saw a guy step out. Sauce on his cuff. He checked his wedding ring twice, then went back in. They left looking full. We cleaned the floor. Grinder ran late.
+
+At first the rules bothered me. The freezer kept me up. I sat in my car one morning after the knocking started and almost drove away for good. Rent was due. Tips here are good. I stayed.
+
+By month three the sounds in the freezer didn’t bother me as much. Sometimes I answered in my head. Tyler heard it on his third shift.  
+“Alex, someone in there said my name. Asked about my dog.”  
+“It’s the pipes,” I said. “Focus on tables.”  
+He needed the money. Two weeks later he stopped talking about it. He took a gift certificate back himself. Now he smiles more.
+
+I started eating staff meals on slow nights. Scraps from the grinder. First bite I cried too. It tasted like everything I missed. After that my dreams got clearer. I saw faces I served. They looked peaceful. 
+
+I woke up hungry.  
+The night Tyler tried to leave was the turning point. It was after closing. The freezer had been quiet for two days straight. He came out of the break room with his jacket on, keys in hand.
+
+“I can’t do this anymore,” he said. His voice cracked. “Last night I heard my mom in there. She’s been dead four years, Alex. She was asking why I didn’t bring her home.”  
+I stood by the front door.   
+The neon sign outside buzzed low, throwing red light across the floor. The walls felt damp, like they were sweating from the day’s rush. I could smell the iron under the grease.
+
+“Tyler,” I said, keeping my voice even. “You know how good the tips are. You know what the food does for people. Go home. Sleep on it.”
+
+He looked at me for a long second. Then the knocking started in the freezer. Three times. Slow. He froze.  
+I locked the front door.  
+“Help me close up,” I said.
+
+He didn’t fight. He just nodded and went to wipe down the tables. The next morning he was still there when the businessmen arrived. I locked the doors like always. When the suits went into the break room, Tyler followed without being asked. The clock started flashing. I mopped the front while the sounds came through. When they finished, Tyler wasn’t with them. The grinder ran longer than usual that night. I ate the staff meal afterward. It had a new edge to it. Familiar.
+
+Karaoke night is the only time things feel out of control. We push the tables back once a month and let people sing. The lights stay low, the music cozy. But if someone puts on “Cleopatra” by The Lumineers, everything shifts.  
+The first chords drifted out and the room got quiet. Too quiet. You could hear the fryers still bubbling in the back. Someone at the counter set their burger down slowly. Tyler looked over at me from the milkshake machine, eyes wide. “Oh shit,” he whispered.
+
+A man at table four pulled the burger from his mouth and stared at it. “Why does this taste bad?” he said, soft at first. Then louder. “Why does it taste like metal?”
+
+Conversations died. A woman near the window started crying into her fries. Another guy gagged and spit half-chewed meat into his napkin. The smell changed. The warm grease and comfort smell turned rancid, like old blood left in the sun. The Edison bulbs looked too yellow. The brick walls glistened like they were sweating something thicker than water.
+
+I felt it too. Just for a second. A sour taste at the back of my throat. Like I was really tasting what we served. My stomach turned. I grabbed the cord for the speakers but my hands shook.
+
+Across the room a woman gagged and covered her mouth. “Jesus Christ,” she whispered. “What is this?” Then she screamed. Others joined. They clawed at their plates, at their mouths, at each other. The hunger didn’t go away. It twisted. They bit their own arms like they needed to replace what was inside them. The nostalgic little restaurant turned grotesque under those yellow lights.
+
+I dragged Tyler toward the back before it got worse. The walls felt hot. The grinder turned on by itself in the kitchen. We locked the side door and waited it out. When it finally stopped, the place smelled like a butcher shop left open overnight. Nobody talked about it the next day. We just cleaned.
+
+I’ve got the rhythm now. I watch new faces. I recommend the special when the sign flickers. The Stockyard isn’t just a job now. It feels like home.  
+Last night the girl my age came in. Nose ring, AirPods. The sign flickered. She ordered the Classic. Halfway through she was crying.
+
+“It knows me,” she said. “Like it’s been waiting.”  
+I topped off her drink. “Glad you’re enjoying it.”  
+She never came back from the bathroom. I ground the scraps myself after close. It tasted right.  
+If you’re driving near I-87 and see the Clarksville exit with the flickering sign…
+
+Keep going.
+
+Or don’t.
+
+Come in. Grab a booth. Try the special.
+
+We promise a unique taste unlike any other.
+
+100% locally sourced. Always fresh.
+
+I’ll probably be working.
