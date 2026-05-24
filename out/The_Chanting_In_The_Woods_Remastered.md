@@ -14,7 +14,7 @@ She always watched me play in the woods and smiled, even while she was washing t
 
 Back then, I used to wander and play in those woods without a second thought.
 
-"My mom and dad divorced when I was a baby, and my mom won full custody 
+"My mom and Jessica were the closest people in my life my Mother did everything she could to protect me and Jessica wasn’t just my friend Jessica and I were like siblings 
 
 “I live with my mother most days and most nights; it was just the two of us.”
 
