@@ -1,0 +1,105 @@
+I’m typing this from my phone in my bedroom with the door locked. I’ve been shaking badly and not just from the cold. I don't care if you think I’m having a psychotic episode. I just need someone, absolutely anyone, to tell me how to survive the night. If I fall asleep, I am dead. If I leave, I will be found. Please, if anyone knows anything about occult pacts, blood covenants, or how to banish something that used to be a person, comment. Quickly. I am running out of time. 
+
+Most of you reading this, if anyone even bothers to, didn't know me well. I’ve lived my entire life as a ghost, drifting through retail jobs, rarely leaving the confines of this cramped apartment. I am someone you wouldn’t recognize even if I stood right in front of you. I don’t have any remaining family, and I never had a group of friends to grab drinks with on weekends. 
+
+All I had was Mark. That was it. Just Mark. 
+
+We met six years ago at the Copperhead Brewery downtown. I was hiding out in the darkest booth at the back of the bar, nursing a beer I couldn’t really afford. I felt totally invisible until he just walked up and slid into the seat right across from me. He asked what I was drinking, ordered the same, and we ended up talking for hours like we’d been friends since childhood. We were inseparable after that. In a world as fucked up as this one, he was the only person who actually took a second to look at me and decide I was worth a damn.
+
+We used to get drunk at that same corner booth almost every night and talk about the big stuff. The universe. God. What happens after death. In our stupor, we thought our late-night debates were pure genius; Plato and Aristotle reincarnated as two intoxicated idiots. One night, after a few too many pints, we made a pact. We both laughed it off at the time, completely joking around. We shook on it and agreed that whoever died first had to find a way to come back and tell the other guy the truth about the afterlife. Just so we'd know it wasn't some fake mind-trick, we created a secret code word. Of course, we dedicated it to the place that brought us together: Copperhead. 
+
+It was all supposed to be a joke. A mindless, drunken promise made by two guys who thought they had fifty years left to live, but that's the joke of the universe I guess. It was three weeks ago when a semi-truck drifted over the center line on Route 9 and struck Mark's car head on. Mark was killed instantly. It brings me peace that he felt no pain. He would always tell me that one of his biggest fears was a prolonged death. “Just rip the bandage off” he would say during our conversations. “If I’m going to die, might as well die quickly.”
+
+Because I wasn't family, I was barely acknowledged at the funeral. I sat in the furthest row from Mark, watching his relatives weep over a closed casket. They didn't know him. Not like I did. After his death, I was back to being my invisible self, consumed by a grief that felt like a physical weight squeezing the air out of my lungs and tears from my eyes. Each day, I religiously watched my phone and waited for the 4:00 P.M. “Copperhead tonight?” text that I knew would never come. Three days had passed since the funeral when I finally collapsed into the deepest sleep I had ever had. That was the first night he came. 
+
+I had a dream unlike any ordinary dream I had in the past. The atmosphere was thick, heavy, and suffocating, all of the tells of a night terror. I was completely paralyzed in my own bed, simply staring at the bedroom door. The air quickly grew freezing cold. The stench of fresh asphalt and gasoline overpowered the faintest taste of blood in my mouth. I tried to wake myself up, but then my bedroom door slowly creaked open and my eyes couldn't help but stare. 
+
+The door eventually revealed a silhouette of a short, yet burly, man. I wasn’t able to make out any of his features until he took his first steps into my room. It was Mark. Mark was standing in my fucking room. His body was violently broken in ways that were just incomprehensible. His right shoulder was completely dislocated and shoved up his neck, ignoring his collarbone. His horrifying jaw hung open at an unnatural, shattered angle, impossible to close. Pieces of glass were embedded all throughout his skin, glinting in the faint moonlight like stars on a clear night. Most terrifyingly, there was a steady stream of dark red blood that poured from a massive gash in his scalp, matting his hair and soaking through his torn white shirt. 
+
+He dragged himself across my floor, struggling to walk with each step. His broken bones clicked against other bones and tendons with every movement he made. His legs bent at unnatural angles, causing his walk to resemble that of a reptile. He arrived at my bed before I had a chance to breathe. With the sound of his spine separating vertebrae by vertebrae, he leaned over my bed, his mangled face just inches from mine. 
+
+I tried my best to scream, to wake up, but I was trapped in my own body. His jaw twitched, his teeth clicked together, and he forced out a single, wet whisper: 
+
+"Copperhead." 
+
+The moment he said the word, I regained control of my body and he vanished. I woke up drenched in sweat, desperately telling myself it was just a cruel trick played by my mourning brain.  My heart fought valiantly to be contained within my rib-cage as I worked up the courage to turn on all of the lights in my apartment. I was shook for hours. I spent the entire day walking around my apartment, tracking the sun as it traveled across the floor. I was terrified of when the night would return. Unfortunately, that moment inevitably came. While I tried my best to remain awake for as long as possible, it was my body’s desire for rest that was the only thing that convinced me to return to my bed that night.  
+
+That night, the exact same routine played out. The moment my consciousness slipped away, I was rudely awakened by the smell of gasoline and asphalt flooding my lungs. My arms and legs were completely immobilized, as Mark clumsily stepped through the threshold. The sounds of sickening snaps of his dislocated bones echoed in the quiet room before he leaned in, his remaining dead, milky eye staring into mine, and delivered the word. “Copperhead.” Mark's voice was wet, as if gurgling blood. 
+
+By the fourth night, I was consuming enough caffeine pills and energy drinks that I am genuinely surprised that my heart didn't explode. I've kept every television and light in the apartment blaring, but after a while, it all just becomes a sinister white noise that lulls you into a thoughtless shell. The moment I would inevitably nod off, even for just three minutes on the kitchen tile, there he was. 
+
+By the sixth night, the horrors grew worse. Mark arrived and, this time, I could hear the wet squish of his internal organs shifting inside his crushed chest cavity. He reached out with a hand that was missing three fingers, the exposed bone of his knuckles scraping against my cheek, as he whispered the word into my ear. 
+
+Soon, the sleep deprivation began to rot my waking mind. I’d hear the distinct sound of wet, dragging footsteps in the hallway outside my door at 2:00 A.M. I’d look at the carpet, and for a split second, I’d see a dark, damp trail of fluids leading toward my bedroom, only for it to vanish when I blinked. 
+
+I was losing my mind. My eyes were bloodshot, sunken deep into dark, purplish hollows. My skin turned a sickly, translucent gray. When I forced myself to eat, I couldn’t taste anything. I was trapped in a living hell. I began to hate Mark. I began to curse the night we met. I thought the exhaustion would kill me before the madness did, knowing that I was suffering the very fate Mark feared. But then came last night. That was when the nightmare stopped being a dream. 
+
+It happened around midnight. I was in the bathroom splashing cold water onto my face, desperate to wash away the hallucinations that had been dancing in the corners of my eyes all evening. I had the towel to my face when I heard a heavy, metallic click, followed by the groan of my front door swinging open. My tired heart decided to stop, rather than race. The air in the apartment instantly plummeted, turning my invisible breath into thick white clouds. The cold was followed closely by that terrible smell. It was different than before, however. It had evolved from a faint memory of gasoline and asphalt, to the overwhelming stench of stagnant swamp water, damp earth, and rotting flesh. As soon as the scent reached my nostrils, it took all of my focus to keep my dinner down. I forced my trembling legs to cautiously walk out of the bathroom into the hallway. 
+
+"Hello?" I choked out, my voice cracking. "Is someone there?" 
+
+I stood perfectly still, as if expecting someone to respond. I held my breath, but no one ever replied. I crept into the living room and noticed the front door was left completely open. In what I can only explain as an outburst of excited delirium, a giddy relief washed over me. I just forgot to lock it, I told myself with a hysterical laugh bubbling up in my throat. The wind blew it open. You're just crazy. You're just tired. 
+
+I calmly stepped forward, confidently slammed the door shut, and locked the deadbolt. The sound of the door hitting its frame echoed like a gunshot in the middle of the night throughout my apartment complex. I let out a deep sigh and rested my forehead against the cool wood, closing my eyes for just a moment as relief flooded my body. 
+
+"You weren't answering my messages, Joey." 
+
+My eyes shot open in fear, even before the words finished reverberating off the barren walls of my living room. The voice was thick, wet, and raspy, like someone trying to speak through a throat filled with gravel and fluid. Every muscle in my body solidified into hardened stone, begging me not to turn around, but my brain couldn't live without seeing the source of the voice. I turned around, and saw Mark sitting on my couch. 
+
+His head was turned to face me, but the rest of him was a stiff, unyielding presence facing into the middle of the room. The blinding, bare beam of my living room lamp revealed the horrifying depth of the injuries. The left side of his skull was completely caved in, leaving a sickening crater where his temple and brain used to be. Thick, black blood was actively coagulating in the socket of his missing left eye, overflowing down his grey, rotting, dirt-covered cheek. Chunks of dried mud, grass, and flesh flaked off him all while a dark, visceral puddle of body fluids was already soaking into the cushions supporting him. 
+
+"M-Mark..." I choked as I tried to claw back the air fleeing my lungs. I fell backward against the door and slid down until my knees slammed into my chest. "You're... you're fucking dead. You're dead, oh my god... I've finally broken... I’ve finally lost it..." 
+
+Mark tilted his head. The movement triggered a sickening pop deep inside his neck, and a fresh torrent of dark, syrupy blood spilled from his shattered jaw, splashing onto his collarbone. 
+
+"It’s been a while, Joey," he said. He tried to smile, but with the muscles on the left side of his face torn away, it just pulled his mouth into a grotesque, jagged snarl. "I’ve missed you." 
+
+"Please! Get out! Please, God, get the fuck out of my head!" I screamed, burying my face into my knees, sobbing so violently I could barely see. 
+
+"I'm not in your head. I'm right here on the couch," Mark replied. His voice, though hoarse, was eerily, sickeningly calm, completely contradicting the ruined horror of his body. He raised his right hand, idly waving his two surviving fingers about the room like a puppet dangling from strings.  "I had to come visit you in-person. You weren't letting me through anymore. You kept fighting it. But a pact is a pact, right?" 
+
+I looked up through my tears, my jaw trembling so hard my teeth clicked together. The word “pact” hit me like a physical blow. The memory of that drunken night at the brewery five years ago flashed in my mind, suddenly stripped of all its warmth. "No..." I whispered. "No, we... we were just joking..." 
+
+"Copperhead," Mark said confidently. His dead, soulless eye fixed entirely on me, unnaturally wide and unblinking. "I told you. I kept my promise. I proved it to you. There is something on the other side, Joey. The lights don't just go out." 
+
+"What is it?" I gasped, desperate for some sliver of comfort, some holy answer to justify my living nightmare. "What's out there? Is it heaven? Is it..." 
+
+“It's lonely, Joey.” Mark interrupted, his calm demeanor suddenly shifting. "It's so fucking lonely without you." He began to slide forward on the couch, preparing to stand. The sound of his soggy, brown, ruined flesh dragging across the fabric made me want to tear my own ears off. "You're not wanted here. Nobody sees you. Nobody cares if you breathe or die. But I do. I need my friend. I need you, Joseph. Stand up. Join me." 
+
+"No," I whimpered, pressing myself harder against the front door, wishing the wood would just swallow me whole. "No, Mark, please. I'm sorry. I can't. Please leave me the fuck alone!" 
+
+The calm facade Mark always had shattered instantly. He slammed his good hand down on my coffee table, snapping the wood under a strength that shouldn't belong to a human, let alone a corpse. He lunged off the couch. His broken legs snapped out at impossible angles as limped over to me with terrifying speed.  "YOU DON'T GET TO SAY NO!" he roared with a wet, guttural voice that wasn’t his. He stood above me, blood spraying from his mouth, speckling my face and clothes. "OUR SOULS ARE BOUND TOGETHER! WE DON’T HAVE A CHOICE! YOU BELONG THERE WITH ME! WITHOUT YOU THERE, WE’RE BOTH FUCKED!" 
+
+I threw my arms over my face and screamed at the top of my lungs waiting for his cold, dead fingers to grab me. I cowered like this for what seemed like hours, screaming and crying to a God I didn't believe in. But the fingers never came. When I finally had the courage to let my arms down, the room was quiet again. The air was still icy cold, the ghastly smell was still heavy in the room, but the floor was empty. Mark was gone. The only evidence that he was here at all was a single crack running down the middle of my coffee table. 
+
+Now, if you’re going to tell me to just run away, to just pack a bag and hide at the furthest motel, I tried. A few hours ago, I grabbed my keys and ran out to my car. The second I turned the ignition, the air vents started blasting that unmistakable odor of death. After only a few seconds of my face being blown with the scent of rotting flesh, I bailed out of my car and vomited. I ran back inside to clean myself up in the sink, but the water pouring from the faucet was thick, rusty, and smelled violently of oil. When I went to dry my hands, the towel was smeared with coarse dried mud, but a second later, it looked normal again. 
+
+If you want to tell me to call the police, you don’t think I’ve tried that already? I keep being told that they will “send an officer out shortly,” but that’s bullshit. I’ve called numerous times for the last several hours and haven’t even received a call back. 
+
+Mark didn't walk here from Route 9. He didn't track me down with a map. He found me because we tied our souls together with the clink of cheap beers. I’ve now realized that there isn't a corner booth on this earth dark enough to hide from a ghost who holds your signature on a contract. Leaving this apartment won't save me and neither will the police. He is tethered to me. Just me. I don’t know what to do now. If you have any advice, please let me know as soon as possible. I will be watching my phone until the daylight fades. Until Mark comes back for me.
+
+\*\*EDIT #1 (4:31 P.M.)\*\*
+
+I’ve been pacing around my bedroom, refreshing this page over and over again, hoping for an answer, a loophole, a way out of this pact, anything, but my post is being completely ignored. No comments. No advice. 
+
+I did receive one message, however.
+
+While I was frantically waiting for a notification from one of you, my phone vibrated in my palm. My heart jumped straight into my throat. To my horror, it wasn't a comment on this post. It was a text. From Mark. All it said was:
+
+"Copperhead tonight?" 
+
+The second I finished reading it, the glass violently shattered right in my hand into a web of sharp cracks. I reactively dropped my phone once the cracks met my hand and sat in silence on my bed for a few minutes before I finally had the courage to pick my phone back up. In the reflection of that broken glass, I looked past my own sunken, hollow face and saw, looming right behind me in the dark, Mark’s mangled face directly over my shoulder. His shattered jaw was twitching in horrific expectation and pure excitement. I jolted in terror, reflexively throwing the ruined phone across the room in the process. I threw my hands up, bracing for impact, but he was already gone. 
+
+No one online is answering me, and he is invading my waking reality completely. I can feel the temperature in here plummeting, and the air vents are starting to release that awful stench again. I am entirely on my own. Thank fuck, my phone still works after what it survived.
+
+\*\*EDIT #2 (6:18 P.M.)\*\*
+
+He’s here. He's in my house. I can hear him. I’ve been hiding in my closet and he hasn’t found me yet. His wet, dragging footsteps on the hardwood in the hallway leading to my bedroom provides both anxiety and relief each time he enters or leaves my room. I know he’s searched everywhere, but here. He’s come fucking close though. I’ve heard bone clicking against bone mere inches from my ear. He just left, so I am making one last cry for help. He will find me soon. It’s only a matter of time. 
+
+If I let him take me, if I let those bone-exposed hands drag me out of here, I know I will be damned to a prolonged, agonizing tearing of my flesh and mind. He will make me suffer the exact, painful death that he feared so much in life, just so we can be with each other on the other side. 
+
+I love Mark. He was the only person who ever truly saw me. But that fucking thing prowling around my home isn't my best friend. It's a courier sent by a monster that is fueled by a terrifying, cosmic loneliness. 
+
+I have my grandfather's shitty old .38 right next to me. I am not leaving this damn spot until he finds me. If he does, I am putting a bullet in whatever is left of him. Since none of you fuckers are commenting, I don't have any other choice. I know bullets won’t work on him, but it might just be enough to slow him down for me to escape, prolonging my condemned life just a few hours longer. 
+
+I hear him lingering in the hallway now. This is it. If the sun comes up and I haven't updated this post, please call the police to the apartment complex off Callahan Road. Tell them Joseph needs help. They’ll know who I am. Maybe they'll listen to you.
