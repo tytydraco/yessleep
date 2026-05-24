@@ -12,7 +12,7 @@ Terry died about three days ago. 
 
 Now, I realize you may be confused at this point. I certainly was at first. He did die. I’m sure of it, because I found him. Terry has always been a deep sleeper. He even had a CPAP machine for the last five years or so because he slept so deeply he stopped breathing. He had obstructive sleep apnea where his airway was restricted when he laid down. 
 
-Today was like any other day at first. 
+That day was like any other day at first. 
 
 Since it was our anniversary, I got up quietly, made coffee, and started to get ready for work with the bathroom door closed. Terry usually slept late on Wednesdays so I didn’t think anything odd when he didn’t move as I got up. 
 
@@ -20,7 +20,7 @@ It wasn’t until I got out of the shower and went back through the bedroom that
 
 Except that morning, when I said “Happy anniversary, sweetheart. I made some coffee,” he didn’t move. 
 
-His CPAP was still on and he looked kind of funny. 
+His CPAP mask was still on and he looked kind of funny. 
 
 It was eerily quiet. 
 
