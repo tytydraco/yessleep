@@ -1,0 +1,657 @@
+The first time I saw the funhouse mirror, I laughed.
+
+Not because it was funny.
+
+Because for the first time in my entire life, I looked right.
+
+The carnival had rolled into town overnight, swallowing the abandoned parking lot beside the old grocery store with rusted rides and cheap lights. I only went because my coworker Ethan begged me to. He said I “needed to get out more.” Said staying locked in my apartment all day after work wasn’t healthy.
+
+I almost didn’t go.
+
+Crowds made me nervous.
+
+People always stared.
+
+Even when they tried not to.
+
+Especially children.
+
+Children never hide it.
+
+I still remember being eight years old, standing in the cafeteria line while some boy named Marcus pointed at my face and shouted:
+
+“Why does he look melted?”
+
+The entire lunchroom laughed.
+
+I remember touching my cheek, confused, because I hadn’t understood what was wrong with me yet.
+
+Adults called it a birth defect.
+
+Kids called it monster face.
+
+One side of my jaw sat lower than the other. My nose curved oddly. My left eye drooped slightly. My shoulders were uneven. I wasn’t horrifying enough to make people scream, but I was strange enough that they always looked twice.
+
+Always.
+
+Even when they pretended they weren’t.
+
+Especially mirrors.
+
+God, I hated mirrors.
+
+Bathroom mirrors. Store windows. Phone cameras. Polished metal. Every reflective surface felt cruel.
+
+Every morning was a reminder that something had gone wrong when I was made.
+
+By high school I learned survival.
+
+Avoid eye contact.
+
+Keep conversations short.
+
+Sit in the back.
+
+Laugh at yourself before others can.
+
+People are less vicious when you help them hurt you.
+
+That became my whole personality.
+
+So when Ethan dragged me into that carnival, I stayed quiet behind him while he wasted money throwing rings at bottles.
+
+Then I saw the funhouse.
+
+Bright red letters buzzed overhead.
+
+LAUGHING MIRRORS.
+
+I almost walked past it.
+
+But something inside me twisted.
+
+Maybe curiosity.
+
+Maybe self-hatred.
+
+Maybe both.
+
+Ethan grinned. “C’mon, man. You gotta see these.”
+
+I told him no.
+
+He grabbed my sleeve anyway.
+
+The inside smelled like dust and wet wood. The floor creaked beneath us as colored lights blinked in every direction. Kids ran around laughing at stretched reflections.
+
+Tall mirrors.
+
+Wide mirrors.
+
+Twisted mirrors.
+
+I kept my head down.
+
+Then I accidentally looked up.
+
+And froze.
+
+The mirror in front of me distorted everything around me.
+
+Except me.
+
+Ethan looked warped beyond recognition beside me. His face sagged sideways. His limbs bent unnaturally.
+
+But me?
+
+I looked balanced.
+
+Centered.
+
+Normal.
+
+I stepped closer.
+
+My breathing stopped.
+
+My face looked symmetrical.
+
+My shoulders even.
+
+My jaw straight.
+
+For the first time in my life, I looked like everyone else.
+
+No.
+
+That’s not true.
+
+For the first time in my life…
+
+I looked beautiful.
+
+Something cracked open inside my chest.
+
+I stared so long Ethan eventually laughed nervously.
+
+“Dude?”
+
+I didn’t answer.
+
+I couldn’t.
+
+I touched the glass.
+
+The reflection touched back.
+
+My eyes started watering.
+
+Not crying.
+
+Just… overwhelmed.
+
+Like seeing someone you’ve missed your entire life.
+
+Myself.
+
+The real me.
+
+The way I was supposed to look.
+
+“You okay?” Ethan asked.
+
+I whispered:
+
+“That’s me.”
+
+He chuckled awkwardly. “Uh… yeah?”
+
+“No,” I said.
+
+I couldn’t stop staring.
+
+“That’s actually me.”
+
+—
+
+I went back the next night alone.
+
+Then the night after that.
+
+Then every single night that carnival stayed in town.
+
+The old man running the attraction started recognizing me.
+
+“Back again?” he asked once.
+
+I nodded silently and handed him cash.
+
+Sometimes I stayed for hours.
+
+Just standing there.
+
+Looking.
+
+Admiring.
+
+Studying every detail of the version of me inside the mirror.
+
+The normal version.
+
+I started talking to him eventually.
+
+Not out loud at first.
+
+Just in my head.
+
+You look confident.
+
+You look strong.
+
+People wouldn’t fear you if you looked like that.
+
+Women wouldn’t glance away so fast.
+
+Children wouldn’t whisper.
+
+You could exist without apologizing.
+
+At night I stopped avoiding mirrors in my apartment.
+
+Because now I knew the truth.
+
+The mirrors at home were wrong.
+
+The funhouse mirror was right.
+
+That realization infected me slowly.
+
+Like mold growing behind wallpaper.
+
+At work I began noticing everyone’s distortions.
+
+A woman’s eyes slightly uneven.
+
+A man’s crooked teeth.
+
+A teenager’s acne scars.
+
+Tiny flaws.
+
+Tiny ugliness.
+
+Everyone was distorted.
+
+The difference was society agreed theirs were “normal.”
+
+But mine wasn’t.
+
+Why?
+
+Because people voted on it.
+
+That’s all “normal” was.
+
+Majority rule.
+
+I started getting angry.
+
+Not sad anymore.
+
+Angry.
+
+Why should I suffer because people decided my face crossed some invisible line?
+
+Why should I feel ashamed?
+
+The mirror understood me.
+
+The mirror showed truth.
+
+One night I brought Ethan.
+
+I told him I wanted to show him something amazing.
+
+Inside the funhouse, I dragged him to my mirror eagerly.
+
+“Look,” I said.
+
+He laughed immediately.
+
+“Oh my god, this one makes me look horrifying.”
+
+“No,” I whispered. “It makes you honest.”
+
+He looked at me strangely.
+
+I pointed at my reflection.
+
+“Look at me.”
+
+“You look stretched weird too.”
+
+I stared at him.
+
+My stomach dropped.
+
+“No I don’t.”
+
+He frowned.
+
+That was the first moment fear touched me.
+
+Because I realized…
+
+Other people couldn’t see it.
+
+Only I could.
+
+That should’ve stopped me.
+
+Instead it obsessed me further.
+
+I started wondering if maybe the mirror wasn’t changing appearances.
+
+Maybe it revealed inner truth.
+
+Maybe everyone secretly looked wrong beneath the surface.
+
+Maybe I was simply ahead of them.
+
+Enlightened.
+
+The carnival eventually announced it was leaving town Sunday morning.
+
+The idea terrified me.
+
+I couldn’t lose the mirror.
+
+I couldn’t go back.
+
+Saturday night, I stayed until closing.
+
+The old operator finally approached me.
+
+“You really love that mirror, huh?”
+
+I asked him where they were taking it next.
+
+He shrugged.
+
+“Few states over.”
+
+My chest tightened.
+
+Desperation clawed through me.
+
+Then he smiled oddly.
+
+“You know… some people see what they need in there.”
+
+I looked at him sharply.
+
+“What does that mean?”
+
+He shrugged again.
+
+“Lonely people see friends. Sad people see happiness. Ugly people…”
+
+He didn’t finish.
+
+I snapped.
+
+“I’m not ugly.”
+
+Silence.
+
+Then quietly:
+
+“Of course not.”
+
+But I saw pity in his eyes.
+
+I hated him instantly.
+
+That night I broke into the carnival after hours.
+
+I don’t even remember deciding to do it.
+
+I just remember climbing the fence.
+
+Rain pouring.
+
+Lights dead.
+
+The funhouse standing alone in darkness like some sleeping creature.
+
+Inside, everything creaked softly.
+
+My flashlight shook in my hand as I ran to the mirror.
+
+And there I was.
+
+Perfect.
+
+Beautiful.
+
+Normal.
+
+I pressed my forehead against the glass.
+
+“I can’t lose you,” I whispered.
+
+Then something horrible happened.
+
+My reflection smiled before I did.
+
+I stumbled backward instantly.
+
+The reflection stayed still.
+
+Smiling.
+
+My blood turned cold.
+
+I hadn’t imagined it.
+
+I know I hadn’t.
+
+Then it spoke.
+
+Not with sound.
+
+Its mouth simply moved.
+
+Bring them here.
+
+I couldn’t breathe.
+
+Show them truth.
+
+Its smile widened unnaturally.
+
+Make them like you.
+
+I ran.
+
+I ran all the way home through the rain like a terrified child.
+
+But even back in my apartment, I couldn’t escape the idea.
+
+Make them like you.
+
+For days afterward, the thought consumed me.
+
+What if everyone saw themselves differently?
+
+What if everyone could become free from shame?
+
+Why should the world keep pretending?
+
+Why should anyone hide?
+
+I began sketching mirrors obsessively.
+
+Researching optics.
+
+Distortion.
+
+Perception.
+
+Psychology.
+
+Eventually I started building my own mirrors in my apartment using warped reflective panels ordered online.
+
+None worked perfectly.
+
+But some came close.
+
+Very close.
+
+When guests visited, I guided them toward them casually.
+
+“Look at this.”
+
+“Funny, right?”
+
+Most laughed.
+
+Some looked uncomfortable.
+
+A few stared too long.
+
+Those were the important ones.
+
+The broken ones.
+
+The lonely ones.
+
+I told them what I discovered.
+
+“You don’t have to hate yourself.”
+
+“The world taught you to.”
+
+“Normal isn’t real.”
+
+Slowly, people listened.
+
+I found others online too.
+
+Communities of people obsessed with altered reflections.
+
+Disfigured people.
+
+Insecure people.
+
+People who felt wrong in their own skin.
+
+I invited them over.
+
+One by one.
+
+We stared into the mirrors together for hours.
+
+And for the first time in my life…
+
+I belonged somewhere.
+
+No judgment.
+
+No staring.
+
+No pity.
+
+Only understanding.
+
+The movement grew.
+
+More mirrors.
+
+More people.
+
+More truth.
+
+We rented an abandoned warehouse eventually.
+
+Filled it with warped reflections from floor to ceiling.
+
+People walked in ashamed and walked out transformed.
+
+Confident.
+
+Liberated.
+
+Free.
+
+And me?
+
+I became their leader.
+
+The man who helped them see themselves properly.
+
+The irony made me laugh sometimes.
+
+The boy everyone mocked became someone people followed.
+
+But then…
+
+One night…
+
+I walked through the warehouse alone after closing.
+
+Hundreds of distorted reflections surrounded me.
+
+Everyone looked warped now.
+
+Bent.
+
+Twisted.
+
+Unnatural.
+
+And suddenly—
+
+I looked normal again.
+
+Not mirror-normal.
+
+Actually normal.
+
+Average.
+
+Plain.
+
+Everyone else looked strange.
+
+Wrong.
+
+Distorted.
+
+My stomach dropped.
+
+No.
+
+No no no.
+
+That wasn’t possible.
+
+I rushed from mirror to mirror.
+
+Same thing.
+
+Same horrifying thing.
+
+I was now the ordinary one.
+
+The boring one.
+
+Because distortion had become the standard.
+
+My reflection stared back at me with the same face I’d spent my entire life hating.
+
+Except now…
+
+Compared to everyone else…
+
+I was nothing special.
+
+The realization hollowed me out instantly.
+
+All this time I thought I wanted acceptance.
+
+But acceptance only mattered because I was different.
+
+If everyone became distorted…
+
+Then I lost the thing that made me unique.
+
+My suffering.
+
+My identity.
+
+My reflection smiled again.
+
+Before I did.
+
+And finally I understood.
+
+The mirror never wanted to make me happy.
+
+It wanted company.
+
+That’s all misery ever wants.
+
+Company.
+
+I smashed the nearest mirror with a chair.
+
+Glass exploded everywhere.
+
+But every shard still reflected me.
+
+Perfectly normal.
+
+And for the first time in my life…
+
+That terrified me more than looking broken ever did.

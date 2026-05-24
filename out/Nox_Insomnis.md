@@ -1,0 +1,153 @@
+DAY 4
+
+So. I want to start by saying that I understand the irony of what I'm going to post and where I'm going to post it. Anyone who's about to leave a "clever" comment about it, possibly just keep it to yourself? Please?
+
+I'm sorry if I come across as testy. I'm not usually so high-strung. But I haven't been sleeping.
+
+At all.
+
+It started four days ago. I had a particularly vivid dream one night, in which I was wandering through a field of tall grass. I came across my own flat, sitting at the top of a hill. I live in Essex, by the way. It's not in the middle of an empty field, it's close enough to other people that I'm regularly treated to the sounds of my neighbour practicing drums at ungodly hours of the night.
+
+Anyway. I went inside, and, in that classic dream haze where I was making decisions without, you know, *making* them, just sort of doing things, I crept up the stairs. It was pitch black, and I was afraid to go upstairs, but I did anyway, moving like molasses. I got to my own room,  pushed open the door, and- I woke up. In my bed, in the middle of the night. I looked over at the door, obviously, and saw that it was cracked open, when I most *definitely* had closed it the night before. (Sheila, my flatmate, practices moral relativism when it comes to my privacy, so I never forget to close my bedroom door when I want to be left alone.) There was a shape wreathed in shadow standing in front of the crack.
+
+Sorry for being wordy, I just want you to understand what I mean when I say I jumped out of my bloody skin seeing that. For a full five seconds or so I was in a blind panic, trying not to move or scream, before I recognized the fuzz of my own bath towel hanging on the doorknob.
+
+It was childish, maybe, to be that scared of literally nothing, but dreams have a way of relieving us of all sense, at least for a bit.
+
+Once my heartbeat was under control, I had to get up and get some air. The clock read 2:03, but there was no way I was getting back to sleep after that. I put on some tea, read, pet Sprinkles, and generally wasted about three full hours, all the way up until I could hear the birds chirping. Despite having gotten maybe half a night's sleep, I found I wasn't tired, and got ready for work for the day.
+
+Before I left, though, I ran into Sheila, who asked me something strange.
+
+"What were you doing last night, love?" she said.
+
+"You heard me?" I asked, surprised.
+
+"Well, sure. You were moving around and talking for a while."
+
+I frowned. That... didn't track. I (unlike some people I could mention) was very careful if I was up in the night not to do anything that could wake people I lived with. I wouldn't be surprised if she heard when I put the kettle on, but talking? I hadn't said anything all night. No one was around but the cat.
+
+"I don't think I was talking," I said. "When was this?"
+
+"Oh... I don't know. 1:30 or so."
+
+I froze for a second. I didn't know what to say, so I mumbled out an apology and said something about being late for work.
+
+I haven't slept since then. Not a wink. Every night, I lie down and try. I turn on music, wear a mask, drink some milk, it doesn't matter. I don't feel even the slightest bit tired. Eventually, I just get bored and have to start doing something. I haven't ever felt quite as lonely as I have these last few nights. It's really starting to scare me. I scheduled an appointment with my doctor, but they can't see me for at least a week. They told me to go to the emergency room if I need to, but I don't think they really understood, or, at least, believed me when I told them what was wrong. I think they interpreted what I said as "I haven't been sleeping much."
+
+I haven't told Sheila yet. I just... don't know how to approach it. I know I ought to. I haven't told Richard, my boyfriend, either. But that's for a different reason.
+
+Aside from the doctor, you all are sort of the first people I've told about it. Just getting it off my chest helps, at least a bit. I know that humans can't survive without sleep for longer than a few days. But I did some research, and at this point, my body should be feeling the effects. I ought to be getting tired, moving slower, falling asleep intermittently, but I'm just not. I feel completely normal. I don't know if that's a good or bad sign.
+
+For now, at least, I'll just wait on the doctor's appointment. We'll see what happens. Thanks for listening.
+
+
+
+DAY 6
+
+I have some news. Sheila came up to me today, said she wanted to talk. It wasn't like her. Not that we're not mates or anything, but we have a very easy relationship, and we deal with any interpersonal problems pretty casually. I could tell she was being careful right away, like she was trying to be gentle with a sick child. That set me on edge.
+
+"Hey love," she said. "Has everything been alright?"
+
+"Mhmm," I mumbled, in a tone that clearly indicated that I was lying.
+
+"Well, I'm a little worried about you. I've been hearing you moving around a lot lately."
+
+I stiffened at that. "At night?" I asked. When she nodded, I could feel my heart rate quicken. I *hadn't* been moving around at night.
+
+"You've been walking around, talking to yourself, moving things around. I thought you were on the phone, but when I got up to check on you last night, you were just sitting up awake in bed with no one else around."
+
+I was quiet for a beat.
+
+"Have you been sleepwalking?" she asked.
+
+I could have laughed. If there was one thing I was *definitely* not doing...
+
+"I need to tell you something," I said. "I haven't been sleeping, Sheila. Not at all. I can close my eyes, but I'll be conscious the whole time. I don't know why. I don't know what's going on. But what you're hearing... it's not me."
+
+Her eyes went wide. "Not you?"
+
+I cringed internally. I knew this would freak her out. Sheila is incredibly superstitious. She has a ton of crystals in her room, she reads star charts, tea leaves, tarot cards, and fancies herself a modern witch. It seems like every other day I come home and the whole flat reeks of sage or frankincense.
+
+But I'm not like her. I see the world in patterns. I know deep down that it's predictable, understandable. There may be rules we don't know yet, but as soon as someone asserts the existence of something without rules, I have to push back. Mysticism and hoodoo didn't get us airplanes, penicillin, and internal plumbing. The rigorous study of the natural world was what lifted us out of the dirt.
+
+But just as surely as I knew all that, I knew that there was no point trying to argue with her on this. Sheila was a true believer, through and through. And the second I told her what was going on, she would start jumping to conclusions. But I couldn't lie to her about it anymore.
+
+"Yeah," I admitted. "Whatever you're hearing, it's not me. I know because I've been awake the whole time."
+
+"But did you hear it?" she practically whispered. "All the talking and shuffling?"
+
+"No," I said. "But I've been trying a lot of things to help me sleep. Most nights I have earbuds in."
+
+"Why didn't you *tell* me?" she shrieked, punching me in the arm. "I thought it was *you.* If there's some malevolent spirit in this house..." I tuned out her ramblings as she ran back to her room to grab rock salt and incense.
+
+She was superstitious, but she wasn't a liar, and she wasn't dumb. If she'd been hearing things with the regularity she claimed, chances were that it was something real. I needed to investigate. Fortunately for me, I recently acquired brand-new "doesn't need to sleep" superpowers, so a stakeout should be easy. I'm going to camp out in the kitchen tonight. I'll report back here with whatever I find.
+
+
+
+DAY 7
+
+Fuck.
+
+Fuck me.
+
+I've got some real egg on my face right now, and I do *not* appreciate it. In retrospect, I've spent a lot of time in the last post dismissing Sheila's superstitious beliefs, but the "ghost in the house" hypothesis has shot way up after last night's experience. It was around 1 in the morning when I first started feeling strange. I was reading a novel on my kindle, blanket pulled up partway over it so the light didn't spill out too far and any intruders wouldn't necessarily know that I was in there. I didn't hear or see anything, at first. The first thing I felt was cold. Real, to-the-bones cold, the kind that drains you. It was only for a few seconds, but I jolted upright and looked around in alarm. There was nothing.
+
+I started pacing around the kitchen, checking under the oven. I don't know what I was looking for. Perhaps ghosts hide under oven. It was as I was standing up from my crouched position on the floor to check above the cupboards that I heard a voice. It was hardly audible, but it sounded like it was right behind me. The hairs on the back of my neck stood on end and I wheeled round, seeing nothing.
+
+Again, a whisper from behind me. This time in the other direction. I couldn't make out any discernible words. Couldn't even tell whether the voice was male, female, how old they were, anything. I stumbled back towards the table and grabbed the torch I brought downstairs, spinning in a full circle and scanning the room. I went to the light switch, but of course the bloody thing clicked uselessly.
+
+My voice came out hoarse and dry when I tried to talk. "Who is it?" I whispered into the darkness. "Who's there?"
+
+The reply was instant. I could just barely make out what they were saying. "Who," the voice said. This time, it sounded like it was coming from the corner of the kitchen. I flicked my light over to the spot, but saw nothing but tiles in need of cleaning and dishes in need of washing.
+
+"Me?" I said. "What are you talking about? What do you want?"
+
+"Talk," the voice replied. It was moving around me in a circle, I realised. Always coming from somewhere I wasn't looking.
+
+"We can talk." I couldn't control my breathing. I was hyperventilating, with an awful pressure on my back, like there was someone standing right there, knife poised an inch from my neck. I could practically *feel* the blade brushing the hairs, stood up on end.
+
+"What are you?" I called into the dark. "Mr. Disembodied Voice?"
+
+"Me." The voice replied. "Voice."
+
+I shook my head. "You'll need to be more specific, if you want something. I don't understand."
+
+"Specific," it said. "Spuh. Speh. Cific. Siff. Siff. Be. Be."
+
+With each syllable, it was coming from a different direction. Bouncing between surfaces. I couldn't whip around fast enough to look each time before it changed locations.
+
+"Understand." It said. "Understand. Me?"
+
+It was a question. I took a shaky breath and nodded. "I understand you. You... you can only mimic, can you? Repeat what I'm saying?"
+
+"Can only... mimic."
+
+"Do you... are you going to hurt me?" It was a silly question, maybe, but I wasn't in the best frame of mind, and that awful pressure was getting worse.
+
+"Don't. Want. To hurt you."
+
+I couldn't help but notice that that wasn't necessarily the thing saying it *wouldn't,* just that it didn't *want* to. I swallowed. "What do you want?" I asked, again.
+
+"Voice. To talk."
+
+I wondered if responding at all to this thing was a good idea. If it wanted a voice, was it... *taking* mine? That seemed a mite convoluted. More importantly, the idea of some being that was either invisible or able to throw its voice convincingly was a whole lot more plausible than a being that could steal an arbitrary, incorporeal concept like a voice. That was a whole new level of impossible. And if I'm being honest, I was *desperately* curious what this thing was and what it was trying to do. I was scared out of my wits, sure, but I could never resist a proper mystery.
+
+After I was silent for a second, it spoke again.
+
+"Not. H- here," it said. It had almost choked on the word "here," like it couldn't get it out.
+
+I blinked in confusion. "What isn't here? You want to talk somewhere else?"
+
+"No. Not. Here. You. Me. Not here," it said, bouncing around the kitchen.
+
+"Are you?" It said again. It made it a question.
+
+Something was off. I could feel that pressure increase very suddenly, and then the whisper came again, from my left, like it was a millimetre from my ear. "You are not here," it said, and my torch flicked off, leaving me completely blind.
+
+I screamed. I'm not ashamed to admit it. I stumbled around through the darkness, tripping over the chair and bashing my head against the hob. I scrambled for the light switch, and finally, mercifully, the kitchen was bathed in the soft yellow glow from our shitty fluorescent light fixture. As my heart slowed down to a cool, relaxed 160 BPM, I realised that the pressure I'd felt was gone. I didn't feel like there was something standing behind me anymore.
+
+I heard the thumping of footsteps down the stairs. I turned around to see Sheila standing in the kitchen, wide-eyed. I must've looked a mess. Dishes were scattered along the floor, my chair was upturned, and I could feel blood dripping through my hair. Despite it being at the other end of the room, I'd somehow opened the fridge in my blind panic.  
+  
+My mouth was dry as I said, "I think I need your help."
+
+END OF PART 1

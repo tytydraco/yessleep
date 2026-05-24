@@ -143,3 +143,6 @@ But I couldn't. Because the moment I stepped back into the city, things didn't g
 And as I packed my single duffel bag, I realized my internal jukebox still hadn't started back up. The silence was absolute.
 
 And from the street below the window, I could already hear the footsteps waiting.
+
+Part 2: 
+https://www.reddit.com/r/nosleep/s/5HVFb2ddss
