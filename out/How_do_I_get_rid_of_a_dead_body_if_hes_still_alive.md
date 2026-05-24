@@ -1,0 +1,217 @@
+I’m not usually one to post on these sites, but I need your help. 
+
+I just celebrated my 36th wedding anniversary with my husband, Terry. 
+
+Terry took me out to eat at Ruby’s where we’d had our first date. We ate steaks, had wine, and even made love. 
+
+Everything was going great. 
+
+Except one thing. 
+
+Terry died about three days ago. 
+
+Now, I realize you may be confused at this point. I certainly was at first. He did die. I’m sure of it, because I found him. Terry has always been a deep sleeper. He even had a CPAP machine for the last five years or so because he slept so deeply he stopped breathing. He had obstructive sleep apnea where his airway was restricted when he laid down. 
+
+Today was like any other day at first. 
+
+Since it was our anniversary, I got up quietly, made coffee, and started to get ready for work with the bathroom door closed. Terry usually slept late on Wednesdays so I didn’t think anything odd when he didn’t move as I got up. 
+
+It wasn’t until I got out of the shower and went back through the bedroom that things started to feel weird. Terry usually would take his mask off and lay in bed for a few minutes while I showered and when I came out of the shower, I’d make sure he got up. It was our little routine. 
+
+Except that morning, when I said “Happy anniversary, sweetheart. I made some coffee,” he didn’t move. 
+
+His CPAP was still on and he looked kind of funny. 
+
+It was eerily quiet. 
+
+The CPAP machine usually made this constant low roaring sound when it forced air through the tubing and into his mask so Terry could breath. I’d gotten so used to it I hardly even heard it anymore. 
+
+I heard its absence though. 
+
+It was dead silent. 
+
+I had one towel wrapped around my head and another around my body. Both my hands were occupied with keeping those in place so I bumped his foot with my bare leg, but he was ice cold. 
+
+And stiff. 
+
+“Terry, babe, are you ok?”
+
+But, he wasn’t. 
+
+I had to pry that mask off his face and lift him up in the bed to check his heart and his lungs. 
+
+No heartbeat. No breath. 
+
+His eyes were closed, thank god, but he’d already started to turn a funny shade of bluish purple. It was a disturbing sight. His face was the worst of it. Along his cheek red marks lined where his mask had been like he’d tried to claw it off, but couldn’t. 
+
+I was so shocked I couldn’t even scream. 
+
+I didn’t call anyone. 
+
+I didn’t even move for what felt like hours, but must have only been a few minutes. 
+
+My hair was still wet. 
+
+I don’t even remember crying. 
+
+That’s the weird thing. 
+
+Like I could almost tell myself it didn’t even happen. 
+
+Especially after what happened later. 
+
+I know this is the part where you’re going to judge me. But it is what it is. 
+
+I left him there in the bed and went to work. 
+
+I didn’t know what to do. 
+
+It’s not like I could deadlift him by myself. 
+
+I wrapped him in the covers he was laying on and shut the bedroom door. 
+
+Then I drove to work. 
+
+I must have been in shock. 
+
+When I got there, Melanie’s car was already there along with some other part time staff. A few of them were standing by the door since they didn’t have a key to get in. 
+
+I parked and let them in the library and headed to circulation where my office is. 
+
+When I turned the corner, Melanie stood frozen in the lobby like she’d seen a ghost. She was facing towards the mirrored stairway at the center of the building. She had such a funny look on her face, now that I think about it. 
+
+When she saw me, she snapped back to her usual smile and waved to me. I waved back. Then I watched her walk back up the stairs. 
+
+I looked back at the mirror again after she’d left. I had crossed the lobby and walked over near the stairs where the main light switches were. 
+
+I saw how tired I looked in the image reflected back at me. I hadn’t realized how dark the material was before. It had a smoky beauty I’d never noticed. 
+
+Something pulled me closer. 
+
+I noticed motion behind me. 
+
+In the mirror. 
+
+At first I thought it was just the part-timers coming in for the day, but I turned around and nobody was there. 
+
+Voices carried out from the break room in the distance. 
+
+I turned back around. 
+
+There, right behind me, was Terry. 
+
+I’m not sure if I was scared or relieved. 
+
+I just stared at him. 
+
+I didn’t bother to look back. 
+
+I knew he wouldn’t be there. 
+
+What I did instead was even more surprising to me. 
+
+I reached out my hand and touched the mirror. 
+
+My fingers brushed against the cool obsidian surface and for a moment nothing happened. 
+
+Then I felt it. 
+
+Something was pressing back from the other side. 
+
+Soft at first then with more and more pressure. 
+
+Finger tips came first. 
+
+Then a hand. 
+
+An arm. 
+
+A shoulder. 
+
+Then a head. 
+
+Terry’s head. 
+
+Followed by the rest of him. 
+
+I backed away and couldn’t help but stare, open-mouthed. 
+
+He smiled. My Terry’s smile. The one he’d given me the first time we’d met. 
+
+In this very room. 
+
+Tanya came around the corner and waved at the both of us. 
+
+“Hey, Dusty!”
+
+“Aw, that’s sweet that Terry came with you today! Happy Anniversary, guys!”
+
+“Great to see you, Terry! How’s the tomato crop this year?”
+
+Terry smiled. 
+
+His usual smile. 
+
+Then he waved. 
+
+Tanya waved back and moved off around the desk. 
+
+He didn’t move his mouth or his body. 
+
+I grabbed Terry’s hand and walked us out to the parking lot and we both got into my car and drove away. 
+
+I called my boss from the car saying that I was sick so I wouldn’t have to go back to work. 
+
+When we got home, the other Terry was still there. Wrapped in those sheets. Except something was wrong. The smell was unbearable. Like rotten meat. I asked Terry to help me put the other Terry in the closet so he wouldn't stink up the house. 
+
+For some reason, Terry wasn’t speaking still. But he had the same kind eyes. And his smile.  
+
+I realize you may judge me for doing what I did and not getting help or telling anyone outside of this forum. 
+
+I don’t expect you to understand. 
+
+Terry is all I have. 
+
+We got dressed that night and celebrated our anniversary like we planned. 
+
+I had my Terry back. 
+
+It was a miracle. 
+
+That was three days ago.
+
+I haven’t been back to work. 
+
+I read on the news about what happened to Bobbie. They said he dug out his eyeballs and carved the words ARE YOU SCARED into his chest by the time they found him. He’d crawled into an air duct on the third floor of the library. He’d been muttering something about mirrors, apparently. He had been admitted to the state mental hospital for observation. The news had a field day with the coverage. 
+
+I had a couple missed calls from friends and colleagues from work. One from an unknown number. Management had contacted the police. 
+
+There was some kind of investigation. 
+
+Jesus, I don’t know what to do. 
+
+I can’t bring myself to open the closet. 
+
+I can’t lose Terry again. 
+
+I won’t. 
+
+But I think something is wrong with him. The one that came back. 
+
+I told him to stay in the guest room until we can figure out what to do. 
+
+He won’t or can’t speak. 
+
+Sometimes, he gets angry like he doesn’t know where he is. 
+
+He’s been banging on the wall since the sun went down a couple hours ago. 
+
+BANG. 
+
+BANG. 
+
+BANG. 
+
+I don’t know what to do. I’m scared if I talk to the police, they’ll take Terry away. 
+
+I’m just afraid he may not have been the only thing that came back through that mirror.  
