@@ -1,8 +1,8 @@
-I  had gone to see my older brother, who lived in a small house on the other side of town. I went with J.
+I had gone to see my older brother, who lived in a small house on the other side of town. I went with Betty.
 
-Now, even though J wasn’t an actual person, he was the only motorcycle that I ever owned. Traveling with J was like traveling with a best friend, and the things we’d been through together made me closer to J than anyone I’d ever met. J was a gift from my brother on my birthday the previous year. At the time, I thought it would make him happy if I visited him with it. I was right.
+Now, even though Betty wasn’t an actual person, she was the only motorcycle that I ever owned. Traveling with Betty was like traveling with a best friend, and the things we’d been through together made me closer to her than anyone I’d ever met. She was a gift from my brother on my birthday the previous year. At the time, I thought it would make him happy if I visited him with it. I was right.
 
-I stayed with him and his wife for a few hours, laughing and talking about old times. I lost track of time, but as soon I noticed the sun going down, I told him I was ready to head home.
+I stayed with him and his wife for a few hours, laughing and talking about old times. I lost track of time, but as soon as I noticed the sun going down, I told him I was ready to head home.
 
 “Are you sure you don’t want to sleep over?” He said, holding my shoulder as he accompanied me outside.
 
@@ -12,7 +12,7 @@ We said our goodbyes as a chorus of locusts and crickets chirped in the backgrou
 
 I had two options for the journey home: a shorter, more popular road, or a longer back road that I avoided at all costs. Rumors and horror stories from the area almost always involved that road. I decided to do what I normally did and take the shorter road. I knew there might be a little more traffic than the longer road, even though it was getting late, but I figured it would still get me home quicker.
 
-Even before I made it to the road I could hear people honking there horns. The horns told me there was a traffic jam, but it was only when I reached the road that I saw the jam stretched on for miles. I cursed under my breath and my heart started to pump a little faster as I debated turning around and going down the long, lonely road instead. Thinking of my dog, I turned and headed for the other road.
+Even before I made it to the road I could hear people honking their horns. The horns told me there was a traffic jam, but it was only when I reached the road that I saw the jam stretched on for miles. I cursed under my breath and my heart started to pump a little faster as I debated turning around and going down the long, lonely road instead. Thinking of my dog, I turned and headed for the other road.
 
 I remembered hearing stories of gruesome murders and strange disappearances happening along the long road. Despite the fact that I’d always believed the stories were a hoax, a legend most of the nearby towns and cities had believed for far too long, a black cloud of doubt swirled in my chest.
 
@@ -20,23 +20,23 @@ By the time I made it to the back road it was dark. I proceeded with caution. Th
 
 Nearly halfway through the road my bike started making a choking sound, and the engine stopped. I eased off to the side of the road to check things out.
 
-I looked up and down the street. No one was around. I checked J to see if the problem was something I could fix myself. Unfortunately it wasn’t, so I called my brother. At first he said it was too late for him to come to me, but after a minute or so of persuading him, he said I should expect him in about an hour.
+I looked up and down the street. No one was around. I checked Betty to see if the problem was something I could fix myself. Unfortunately it wasn’t, so I called my brother. At first he said it was too late for him to come to me, but after a minute or so of persuading him, he said I should expect him in about an hour.
 
 I debated playing a game on my phone while I waited, but I was low on data for the month so I decided to just look around. Insects buzzing in the nearby forest created a constant cacophony, and every so often a firefly sparkled. I checked the road from time to time, but no other cars came by. Even though it was a little late, I still felt it was unusual for the road to be completely empty. A full moon hung overhead, and seeing how bright it was made me notice that there weren’t any street lights in this area.
 
-The minutes ticked by, but felt like hours. I checked my phone and started to panic. The screen had dimmed and the low battery warning appeared, and suddenly everything about the situation just felt too wrong, like I was living out a scene in one of the Final Destination movies.
+The minutes ticked by but felt like hours. I checked my phone and started to panic. The screen had dimmed and the low battery warning appeared, and suddenly everything about the situation just felt too wrong, like I was living out a scene in one of the Final Destination movies.
 
 In an attempt to conserve the last bit of battery life my phone had, I turned the screen brightness to the lowest setting and put it to sleep in my pocket. All by myself on the dark, empty road, a deep sense of loneliness rolled in like a thick fog. The buzz of the insects grew louder until it turned into a ringing in my ears.
 
-“Hehehe.” The soft chuckle was crystal clear, and I whipped around. The chuckle came from a nearby bush. The chuckled continued and the sound of a child running joined in. The branches rustled a little but no one appeared.
+“Hehehe.” The soft chuckle was crystal clear, and I whipped around. The chuckle came from a nearby bush. The chuckle continued and the sound of a child running joined in. The branches rustled a little but no one appeared.
 
-Even though it sounded like a child, and there were no overt signs of danger or hostility, something about the laugh unsettle me.
+Even though it sounded like a child, and there were no overt signs of danger or hostility, something about the laugh unsettled me.
 
 I backed away slowly but decided to call out. I grabbed my motorcycle helmet and held it up in a protective stance as I spoke. “Hello?”
 
 The laugh immediately stopped, as did the sound of all the insects in the forest, but a strong gust of wind blew through the trees.
 
-Then everything fell silent for at least 2 minutes. I remained spooked, so I risked losing the remaining battery life in my cell with an attempt to see if my brother was close. But my phone never connected and I realized I no longer had a signal.
+Then everything fell silent for at least two minutes. I remained spooked, so I risked losing the remaining battery life in my cell with an attempt to see if my brother was close. But my phone never connected and I realized I no longer had a signal.
 
 Footsteps on dry leaves pulled my attention away from my phone, but this time there was no laughter.
 
@@ -50,7 +50,7 @@ That’s when I recalled the terrifying stories and legends about the road, and 
 
 What could a child be doing in the bushes at this time of the night, I thought, trying to convince myself that I wasn’t scared and the situation was completely normal.
 
-A chill shimmied up my spine. I still didn’t see any signs of my brother or any other car in either direction. As I was about to decide my next line of action, the child voice came again. “Will you help me, sir?”
+A chill shimmied up my spine. I still didn’t see any signs of my brother or any other car in either direction. As I was about to decide my next line of action, the child’s voice came again. “Will you help me, sir?”
 
 “Who are you?” I managed to say, suddenly realizing I was shaking.
 
@@ -76,7 +76,7 @@ A demon, a ghost, an alien, I had no idea what this humanoid figure was. It had 
 
 “Need a ride?” it said. But not in a child’s voice. Now it spoke in a man’s deep voice.
 
-I screamed for what felt like the hundredth time that night and ran back toward J. As I ran I noticed the motorcycle didn’t move, so I assumed the figure was off the bike pursuing me again. I ran even faster.
+I screamed for what felt like the hundredth time that night and ran back toward Betty. As I ran I noticed the motorcycle didn’t move, so I assumed the figure was off the bike pursuing me again. I ran even faster.
 
 From the distance, I could see the now dim light of my phone.
 
@@ -84,11 +84,11 @@ Before I could get to my phone, I felt headlights on me again. I was exhausted, 
 
 “What the hell is wrong?” the voice said.
 
-It was my brother. He got out of his truck with a look of confusion plastered his face. I rushed to him, panting.
+It was my brother. He got out of his truck with a look of confusion plastered on his face. I rushed to him, panting.
 
-“We need to go!” I said, pulled him to his truck.
+“We need to go!” I said, pulling him to his truck.
 
-“What? What about your bike?” he tried to say, pointing at J by the side of the road.
+“What? What about your bike?” he tried to say, pointing at Betty by the side of the road.
 
 “We have to go now!” I screamed at him again, almost in tears.
 
@@ -96,11 +96,11 @@ He was startled, but he got into his truck, and we drove off.
 
 “What’s wrong? What the hell is going on? Were you running from someone?” he asked with a look of concern.
 
-My teary eyes were still at alert. Occasionally I looked forward to see if I’d see Chuck or his motorcycle.
+My eyes stayed fixed on the road ahead. Occasionally I looked forward to see if I’d see Chuck or his motorcycle.
 
 My brother called my name and brought me back to the present. “Can you tell me what’s going on?”
 
-After a few minutes when I was sure we were miles down the road. I told him the whole story. He was disturbed, but one thing that didn’t make sense was the fact that he said he didn’t see anybody while he was driving towards me.
+After a few minutes when I was sure we were miles down the road, I told him the whole story. He was disturbed, but one thing that didn’t make sense was the fact that he said he didn’t see anybody while he was driving towards me.
 
 He had to have seen the motorcycle with the strange figure, I thought. It couldn’t have disappeared. Or could it?
 
@@ -116,6 +116,6 @@ It took me a bit to figure out where it was coming from, but soon I realized it 
 
 I grabbed a bat from the nearby closet and made my way to the door. I slowly opened it with the bat raised and looked around. There was nothing there. My dog came out still barking at what I couldn’t see. She was scared and startled but not as scared and startled as I was.
 
-I gulped and backed into my house when my eyes saw it. J was parked just by the corner of my house. I stared blankly at it for a few seconds, then I slammed the door, headed for the phone and dialed the police.
+I gulped and backed into my house when my eyes saw it. Betty was parked just by the corner of my house. I stared blankly at it for a few seconds, then I slammed the door, headed for the phone and dialed the police.
 
-I no longer live there, and I don’t own J anymore. It was by far the most terrifying thing that has ever happened to me.
+I no longer live there, and I don’t own Betty anymore. It was by far the most terrifying thing that has ever happened to me.
