@@ -1,0 +1,97 @@
+It all started in the winter of 2025... right in the heart of downtown Chicago. I was living on the 11th floor of a massive, ultra-modern high-rise. 
+
+The building was fully locked down—security cameras everywhere, digital keycards for every door. It was the kind of place where neighbors never spoke... everyone just stayed locked away in their own little worlds. 
+
+I worked from home as a data analyst for a tech firm, which meant I could go weeks without ever leaving my apartment. I relied entirely on delivery apps—like Uber Eats—for my food and daily essentials. 
+
+But in early November, I noticed something small... and incredibly unsettling. Every single time I ordered a late-night dinner—specifically after 1:00 AM—the delivery driver would drop the bag at my door and vanish before I could even open it. Now, that’s normal for "contactless delivery." 
+
+But the creepy part? Every single plastic bag arrived with a tiny... perfectly round hole poked through it. It looked exactly as if someone had slid a thick needle—or a tiny probe—deep into the bag before leaving it. At first, I blamed the restaurants. But then, it started happening to sealed canned goods from the grocery store too. 
+
+On the night of November 12th, at exactly 2:40 AM... my phone buzzed. "Order delivered." I walked toward the door. But the moment my hand touched the handle—I heard a sound from the other side. 
+
+It wasn't the sound of footsteps walking away. It was heavy... ragged breathing. And the distinct, sickening sound of someone slowly—very slowly—rubbing their back against my wooden apartment door. 
+
+I took a sharp step back... holding my breath. I crept forward and looked through the peephole. The hallway was pitch black because the smart motion lights were off. But under the pale, flickering glow of the emergency exit sign at the far end... I saw a man's broad back. 
+
+He was wearing the familiar red delivery jacket, pressed completely flat against my door. His head was tilted back at an unnatural, broken angle... and he was whispering something—a fast, rhythmic chant. 
+
+Suddenly... he spun around. Slowly. He wasn't wearing a mask. His face looked completely ordinary... except for his eyes. 
+
+They were wide—stretched open in a dead, terrifying stare. And right under his nose, there was a thin, dried streak of dark blood. 
+
+He looked directly into the tiny glass of the peephole—straight into my eyes—as if he knew exactly where 
+
+I was standing. Then... he raised his hand. 
+
+He pressed his index finger against my doorbell... holding it down. One continuous, unyielding ring that didn't stop for a full, agonizing minute. 
+
+And as the bell rang through my apartment... my phone vibrated in my shaking hand. It was a text from an unknown number. It read: "The dinner is cold inside... but we are warm out here."
+
+The ringing dragged on for a few more agonizing seconds... and then, it stopped. I heard the sharp, frantic sound of light footsteps sprinting toward the emergency stairwell. 
+
+I waited several minutes before cracking the door open just an inch... and grabbing the bag. This time, the hole in the plastic was large enough to slide a finger through. 
+
+Inside the styrofoam burger container, resting right on top of the food, was a small, grease-stained piece of notebook paper. Written in shaking, messy handwriting were the words: "Apartment 1104 is very cozy... especially from the angle of the air vents."
+
+Panic hit me like a physical blow. The next morning, 
+
+I went straight down to the building’s management office. I demanded the security guard review the hallway footage from the 11th floor. 
+
+He sat down and rolled back the tape... and when we hit 2:38 AM, the delivery driver appeared on screen, stepping out of the elevator with my bag. He walked to my door, set it down, and turned to leave. 
+
+But right before he reached the elevator... the door to the apartment directly across from mine—Apartment 1105—swung wide open. 
+
+Now, I knew 1105 belonged to a bedridden, elderly man who hadn't left his room in months. But the person who stepped out wasn't him. It was a massive man... wearing filthy, stained medical scrubs. 
+
+In a flash, he grabbed the delivery driver by the throat—with terrifying speed—and dragged him violently into Apartment 1105, slamming the door shut. 
+
+Exactly two minutes later... the door to 1105 opened again. The massive man stepped out—now wearing the driver's red delivery jacket. 
+
+He walks straight over to my door... and pressed his back flat against it. Exactly what I had seen through the peephole. 
+
+I froze in my seat... the blood draining from my face. The security guard looked at me, completely pale. We called the police immediately. 
+
+When SWAT arrived and kicked down the door to 1105... the apartment was entirely empty of furniture, covered in thick layers of dust. 
+
+The real owner—the old man—was lying in the bathtub. He had been dead for weeks... preserved under heavy layers of industrial salt. 
+
+But what the police found in the living room made my stomach turn. It was a full surveillance setup. Small, glowing monitors connected to wireless spy cameras... hidden deep inside the air vents of \*my\* apartment. They had been watching me from across the hall for months. 
+
+They knew when I slept... when I ate... and exactly what I scrolled through on my phone. And the worst part? Hidden behind the drywall, they had hacked a secret tunnel through the shared structural wall—right behind the AC vents—just wide enough for a thin person to slide through.
+
+I couldn't stay in that building for another second. 
+
+I packed a small duffel bag with my ID, laptop, and some basic clothes... leaving all my furniture and belongings behind. 
+
+I checked into a dingy, low-profile motel on the outskirts of the city using a fake name. 
+
+I just needed to breathe... to convince myself that the police were hunting them, and that I was finally safe. 
+
+By the fourth night, I was lying in the motel bed, tracking the news on my laptop, looking for any updates on the "Chicago High-Rise" case. The media had kept it quiet—there was only a tiny, hidden article about "the body of a delivery driver found in the city’s sewer lines." 
+
+Then... at exactly 1:15 AM... my phone chimed. It was a familiar, distinct sound that made my heart drop straight into my stomach. A notification from Uber Eats: "Your driver is on the way." 
+
+My breath caught. I hadn't opened that app since the night of the incident. I hadn't ordered a thing. 
+
+I scrambled to open the app, my fingers trembling so badly I could barely type. 
+
+I checked the active order—my account had been hacked. There was a live delivery running under my name. And the drop-off address? It wasn't my old apartment in Chicago. 
+
+It was the exact address of the hidden motel I was lying in... with my specific room number written perfectly in the driver notes. 
+
+The air left my lungs. I stared at the bottom of the motel door. The gap between the wood and the floor allowed the bright yellow light from the outdoor walkway to stream into my dark room. Suddenly... that light was cut off. 
+
+A dark shadow of two massive feet appeared, standing completely still... right outside my door. There had been no footsteps. No sound on the gravel outside. He had just materialized there... in absolute silence. 
+
+Then... very slowly... a small, folded piece of paper was slid under the door, scraping against the carpet until it rested inside my room. Tears blurred my eyes as 
+
+I crawled over and picked it up. 
+
+It was a printed screenshot—a live picture of my own phone screen taken from the spy camera days ago. And written across it in thick, crimson ink were the words: "Changing hotels doesn't change the fact that you always order the same thing. Open up... we're hungry too."
+
+The federal investigation is still open to this day. The FBI believes it's part of a highly organized Dark Web ring that targets isolated people living alone. I move every 48 hours now. 
+
+I only use burner phones with encrypted VPNs to post these updates, and I never—ever—order food. But the trauma... the thing that keeps me awake every single night... is that whenever I walk into the bathroom of a new place... I always spot it. A tiny... perfectly round hole drilled into the corner of the ceiling tiles. 
+
+And if I listen closely enough... I can hear the heavy, raspy breathing on the other side... just waiting for me to fall asleep.
