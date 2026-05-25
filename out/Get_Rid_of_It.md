@@ -92,15 +92,17 @@ I was able to leave out of my side door and slip a couple yards over. All the fl
 
 I’ve been a bit afraid to take the next step, but I guess I have to trust myself.
 
-There’s a gas station nearby where I've been hiding. I recall going there some time back and noticing they have produce. I decided to take the plunge. I went inside and there was not much produce, and it was pretty bad quality. Bananas lingering on the edge of rot and some apples that’d clearly been dropped before being placed back in the bin. I bought what I could carry, which turned out to be a bundle of bananas (5 of them) and 3 apples. To me, this meant 8 notes. Perhaps enough to get me somewhere truly safe. Heading back to my hiding spot. Or maybe somewhere else. Going to open one of these and see what it says.
+There’s a gas station nearby where I've been hiding. I recall going there some time back and noticing they have produce. I decided to take the plunge. I went inside and there was not much produce, and it was pretty bad quality. Bananas lingering on the edge of rot and some apples that’d clearly been dropped before being placed back in the bin. I bought what I could carry, which turned out to be a bundle of bananas (5 of them) and 3 apples. To me, this meant 8 notes. Perhaps enough to get me somewhere truly safe.
+
+I'm heading back to my hiding spot. Or maybe somewhere else. Going to open one of these and see what it says.
 
 Update 2:
 
-At this point, I don't see or hear them anymore. I found somewhere secluded to lay low. I want to return home, get in my car, and drive away. I'm afraid they're waiting for me though or hiding in my house. I'm thinking of going to a store and buying a couple things. There have to be more notes waiting for me.
+At this point, I don't see or hear them anymore. I found somewhere secluded to lay low. I want to return home, get in my car, and drive away. I'm afraid they're waiting for me though or hiding in my house.
 
 The first note read: *It’s not too late.* The sun had gone down by the time I was comfortable to begin reading messages. Form my hiding spot, I can see the roadway. Usually, cars drive over the speed limit on this street, there’s even a speedometer that flashes red and blue if you speed, but all the cars I see are driving so slowly today. I’m afraid they’re still looking for me, as if just being alive has enraged the entire town and the only way to settle them down is to capture me. I don’t know what they’d want from me.
 
-Before I met Gia, I worked doing some elevator repair work. Hardly a job I’d call controversial. I guess I got the prestigious opportunity to see maintenance areas, crawlspaces, and some liminal office floors where it seemed no one worked anymore. There was an early job where I signed an NDA, but the secret seemed as mundane as the Coke-Cola recipe.
+Before I met Gia, I worked doing some elevator repair work. Hardly a job I’d call controversial. I guess I got the prestigious opportunity to see maintenance areas, crawlspaces, and some liminal office floors where it seemed no one worked anymore. There was an early job where I signed an NDA.
 
 I tried to fight against sleep despite nodding in and out, being woken by a crashing noise in my head. My body clearly couldn’t decide what it wanted. Instead of rest, I opted to read another note. “*It’s not too late”* didn’t do much expect to put song lyrics in my head.
 
