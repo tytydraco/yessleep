@@ -114,11 +114,7 @@ My own breathing sounded embarrassingly loud.
 
 I told myself I was tired. I told myself auditory hallucinations can happen when you’re stressed, or sleep deprived, or expecting them. I told myself a lot of things very quickly, all inside my head, because even then I didn’t want to speak.
 
-Then my mouth opened.
-
-I didn’t decide to open it.
-
-It just did.
+Then my mouth opened. I didn’t decide to open it. It just did.
 
 And in my voice, but not the voice I use with people, not even the voice I use when I’m alone and stub my toe and forget my own rules, I said:
 
@@ -142,9 +138,7 @@ I almost hung up.
 
 Instead I asked, “When you used to talk in the bathroom, who were you talking to?”
 
-The line went quiet.
-
-Not silent. But quiet. I could hear a television somewhere in the background and the soft scrape of her hand over the phone mic.
+The line went quiet. Not silent. But quiet. I could hear a television somewhere in the background and the soft scrape of her hand over the phone mic.
 
 “What do you mean?” she said.
 
@@ -152,7 +146,7 @@ Not silent. But quiet. I could hear a television somewhere in the background and
 
 Another pause.
 
-Then she laughed, but it was wrong. Too small.
+Then she laughed, but the laugh was too small.
 
 “I was sick.”
 
@@ -186,29 +180,15 @@ Instead she asked, very softly, “Has it started with you?”
 
 I hung up.
 
-I know how that sounds.
-
-I know.
-
 I spent the rest of the day googling symptoms of schizophrenia.
 
 I read about genetic risk. I read about onset ages. I read about auditory hallucinations, disorganized thinking, stress, trauma, sleep deprivation, delusions. I took three online screening quizzes even though every responsible website told me not to use them as diagnostic tools.
 
-Everything scared me because everything could fit if I wanted it to.
-
 I made an appointment with a psychiatrist. The earliest available was six weeks out.
 
-That night, I did not shower.
+That night, I did not shower. The night after that, I didn’t shower either. By the third day my hair was greasy enough that I felt disgusting, so I stood outside the bathroom door for ten minutes with a towel under my arm like an idiot.
 
-The night after that, I didn’t shower either.
-
-By the third day my hair was greasy enough that I felt disgusting, so I stood outside the bathroom door for ten minutes with a towel under my arm like an idiot.
-
-Then I turned on music from my phone.
-
-Not loud. Just loud enough to make the room feel occupied.
-
-I showered with the curtain half open and the bathroom door unlocked. I kept my eyes open when rinsing my face. I said nothing.
+Then I turned on music from my phone. Not loud. Just loud enough to make the room feel occupied. I showered with the curtain half open and the bathroom door unlocked. I kept my eyes open when rinsing my face. I said nothing.
 
 Nothing happened.
 
@@ -216,41 +196,13 @@ For almost a week, nothing happened.
 
 When you’re scared something is wrong with you, you start to miss the symptom because at least the symptom gives shape to the fear. Without it, the fear spreads everywhere.
 
-I started noticing how much everyone talks to themselves.
+I started noticing how much everyone talks to themselves. My coworker whispered “come on, come on” at the printer. A woman in the grocery store sang one line of a song over and over while choosing tomatoes. My neighbor across the hall had entire conversations with his dog in a cartoon voice. On the bus, a man in a suit muttered numbers under his breath and tapped each finger against his thumb.
 
-My coworker whispered “come on, come on” at the printer.
-
-A woman in the grocery store sang one line of a song over and over while choosing tomatoes.
-
-My neighbor across the hall had entire conversations with his dog in a cartoon voice.
-
-On the bus, a man in a suit muttered numbers under his breath and tapped each finger against his thumb.
-
-Normal things.
-
-Human things.
-
-Except they didn’t feel normal anymore.
+Normal things. Human things. Except they didn’t feel normal anymore.
 
 I kept thinking about all the ways people invite something in without meaning to.
 
-Singing in the shower.
-
-Talking through panic.
-
-Praying.
-
-Counting.
-
-Practicing a difficult conversation in the mirror.
-
-Leaving a voicemail to someone who won’t pick up.
-
-Saying “hello?” into an empty house because something fell in another room.
-
-Maybe we were never alone in those moments. Maybe we just assumed the voice that answered back was ours.
-
-I know that sounds unwell. And I’m not arguing with you.
+Singing in the shower. Talking through panic. Praying. Counting. Practicing a difficult conversation in the mirror. Leaving a voicemail to someone who won’t pick up. Saying “hello?” into an empty house because something fell in another room. Maybe we were never alone in those moments. Maybe we just assumed the voice that answered back was ours.
 
 The second time happened in the kitchen.
 
@@ -258,19 +210,13 @@ I was chopping onions. The knife slipped, not badly, just enough to nick my fing
 
 Without thinking, I said, “Shit.”
 
-Then, from the hallway, something laughed.
-
-It was my laugh.
-
-Not a stranger’s laugh. Mine.
+Then, from the hallway, something laughed. It was my laugh. Not a stranger’s laugh. Mine.
 
 But flattened somehow, like it had been recorded on old tape and played through a wall.
 
 I turned toward the hallway. There was nothing there.
 
-My studio is small. From the kitchen, I can see the front door, the bathroom door, part of the bedroom, and the little square of hallway between them. Nothing can hide there. Not a person. Not even a child.
-
-The air looked wrong.
+My studio is small. From the kitchen, I can see the front door, the bathroom door, part of the bedroom, and the little square of hallway between them. Nothing can hide there. Not a person. Not even a child. The air looked wrong.
 
 I don’t know how else to describe it.
 
@@ -386,23 +332,13 @@ Her hands went to her mouth.
 
 “I didn’t turn it on,” she whispered.
 
-The water stopped.
-
-Neither of us moved.
-
-Then something knocked from inside the bathroom.
-
-Three polite taps, like knuckles on wood.
+The water stopped. Neither of us moved. Then something knocked from inside the bathroom. Three polite taps, like knuckles on wood.
 
 My mom began to cry silently. Her whole face folded inward but no sound came out.
 
 I think that scared me more than the knocking. My mom has always been noisy in her fear. Prayers, apologies, little bargains under her breath. But now she was silent. She was quiet in her own house.
 
-The bathroom door opened by itself.
-
-Not all the way. Just an inch. Darkness inside.
-
-The light was off, so it shouldn’t have looked like anything. It should have been a flat black rectangle.
+The bathroom door opened by itself. Not all the way. Just an inch. Darkness inside. The light was off, so it shouldn’t have looked like anything. It should have been a flat black rectangle.
 
 Instead, it flickered.
 
@@ -436,15 +372,9 @@ Then she pulled me close and screamed directly into my hair:
 
 “Don’t answer it.”
 
-The thing in the bathroom tilted its head.
+The thing in the bathroom tilted its head. It did not look at her. It looked at me.
 
-It did not look at her. It looked at me.
-
-And I understood then, in the simple animal part of my brain, that my mom had never been talking to herself.
-
-She had been keeping it busy. For years. Maybe decades. A conversation as a leash.
-
-A mother’s voice thrown again and again into the dark so it wouldn’t notice the quiet child listening from the hallway.
+And I understood then, in the simple animal part of my brain, that my mom had never been talking to herself. She had been keeping it busy. For years. Maybe decades. A mother’s voice thrown again and again into the dark so it wouldn’t notice the quiet child listening from the hallway.
 
 My mom shoved me toward the front door.
 
@@ -458,11 +388,7 @@ Something black-and-white flickered behind it.
 
 I drove away.
 
-I know what you’re thinking.
-
-I know exactly what you’re thinking.
-
-Why didn’t you call someone?
+I know exactly what you’re thinking. Why didn’t you call someone?
 
 I did.
 
@@ -488,25 +414,13 @@ I didn’t answer.
 
 I turned on every light in the apartment and sat on the floor with my back against the front door until morning.
 
-This is where I need to be careful.
+I don’t want a diagnosis. I know what this sounds like. I know family history matters. I know stress matters. I know I may be taking a childhood fear and building a monster. Maybe that’s all this is. Maybe my mother was sick, and now I am too.
 
-I don’t want a diagnosis. I know what this sounds like. I know family history matters. I know stress matters. I know I may be taking a childhood fear and building a monster.
+But before you decide, I want you to do something. Not now, if you don’t want to.
 
-Maybe that’s all this is.
+Later. When your home is quiet.
 
-Maybe my mother was sick, and now I am too.
-
-But before you decide, I want you to do something.
-
-Not now, if you don’t want to.
-
-Later.
-
-When your home is quiet.
-
-Stand in your bathroom with the fan on. Or your kitchen with the sink running. Or your car after you turn the engine off and the world rushes in around you.
-
-Notice how quickly your own voice wants to fill the space.
+Stand in your bathroom with the fan on. Or your kitchen with the sink running. Or your car after you turn the engine off and the world rushes in around you. Notice how quickly your own voice wants to fill the space.
 
 A hum.
 
@@ -524,19 +438,13 @@ Then don’t say anything.
 
 See how long it waits.
 
-I made it eleven minutes tonight. That’s the longest I’ve managed all week.
-
-At eleven minutes and thirteen seconds, my reflection in the dark TV smiled before I did.
+I made it eleven minutes tonight. That’s the longest I’ve managed all week. At eleven minutes and thirteen seconds, my reflection in the dark TV smiled before I did.
 
 Not a big smile. A polite one. Patient.
 
 Then my mouth opened, and I heard my mother’s bathroom voice come out again.
 
-I’m going to type exactly what I said, because I don’t remember thinking it.
-
-I don’t remember choosing the words.
-
-I only remember how relieved I felt once the silence finally broke.
+I’m going to type exactly what I said, because I don’t remember thinking it. I don’t remember choosing the words. I only remember how relieved I felt once the silence finally broke.
 
 I said:
 
