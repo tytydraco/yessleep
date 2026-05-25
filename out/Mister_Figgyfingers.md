@@ -171,3 +171,5 @@ It was a hard concrete floor and it stank so bad. It was humid and muggy. I kept
 *“...Figgyfingers…Figgyfingers…”*
 
 This is all a lot for me to write. I haven’t really even revisited it in such a long time. It’s too much. I’ll come back and write out the rest of the story soon. For now I just. I just need to rest.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/1tmup1c/i_was_kidnapped_by_a_man_who_called_himself/)
