@@ -1,0 +1,121 @@
+Joan said she had a bad feeling about the assignment before I had even spoken the name aloud. She stood at the kitchen window sorting what she had gathered from our herb garden while spring rain traced silver tracks across the glass, the fragrance of basil and damp soil filling our home with the illusion of a world smaller and kinder than the one beyond our windows.
+
+“Whatever it is,” she said without turning toward me, “they don’t actually want a story. They want coverage.”
+
+She was right, as usual. Even now I can hear the disappointment beneath the words. Joan possessed an irritating talent for arriving at conclusions that required several unnecessary miles of wandering on my part. To her mind journalism was not intended as a service performed on behalf of powerful men. It existed to drag concealed things into daylight and embarrass people who benefited from darkness. If I had behaved according to principles I frequently claimed to admire, I ought to have spent my time writing about the Vandermeer family rather than for them.
+
+Instead, I convinced myself that I had fought the good fight long enough. There comes a point, or so I told myself, when principles begin resembling luxuries enjoyed chiefly by people who can afford them. I had spent years standing outside gates I believed ought to be opened and had begun suspecting I was simply tired of remaining there. Before I left, Joan tucked food into my bag despite my telling her I would not need it. She had always behaved as though minor discomforts were problems deserving solutions and larger ones things best endured quietly.
+
+The Vandermeer family maintained a compound and scattered cabins beyond the Prineville badlands, and it was there Carl Vandermeer was believed to be while the world considered him missing. The following morning his daughter Petra met me at a regional airport and drove me eastward through country that appeared increasingly unwilling to accommodate human habitation.
+
+Though polite, Petra made it clear I occupied some lower rung in her world. During our drive she corrected me on the pronunciation of some insignificant town we had already passed, though the correction itself seemed less important than the opportunity to make it. A panel in the divider slid open and a woman offered a tray with two bottles of water and a small plate of fruit and cheese. Petra took one without looking. I took the other. The water had gone slightly warm during the drive and tasted ordinary.
+
+Several miles later her phone rang through the quiet of the vehicle. I remember noticing that her voice softened immediately. She apologized twice and spent several moments reassuring someone that the exploratory reports had been suspended until further notice before ending the call and returning to the subject of her missing father with precisely the same composure she had worn throughout the drive. Throughout the conversation she kept turning a gold band around her finger. She worried it often enough that I began noticing the pale skin beneath it. Her eyes possessed the same pale blue stillness as her father’s.
+
+Years earlier I had written a profile on Vandermeer before he acquired the publication where I worked. I remembered him turning back toward a restaurant once because he had forgotten to thank the waitress. During another trip he had stopped his vehicle beside a mountain road simply to watch a black bear and her cub crossing through distant brush. He stood there smiling while everyone else waited. At the time I took such things as evidence of his character.
+
+He waited beside an aging truck near the trailhead the next day, crouched beside a small campfire eating breakfast from a tin plate. His face possessed a curious stillness, as though expression had gradually abandoned it years earlier and not returned. He had been hired privately and wasn’t unfriendly so much as uninterested in the performance of friendliness itself.
+
+He motioned toward movement along a distant rise where several antelope crossed through sunlight with such speed they appeared almost to glide above the earth itself.
+
+“Still running from something that isn’t there,” Carson said.
+
+I bent to refill my canteen from a shallow runoff and heard him say my name for the first time. I looked up.
+
+“Not that one.”
+
+He pointed farther uphill where water seeped clear through stone. I felt embarrassed afterward, as though I had nearly failed some simple test I had not known I was taking.
+
+Near dusk he handed me a second flashlight without explanation. Later I watched him feeding a faded yellow survey cord through his hands beside the fire before winding it back onto its spool.
+
+Several times I found myself stopping to make notes and discovering that I had unconsciously begun following Carson’s footsteps. Near one of the dry washes a rangy little dog appeared from somewhere among the rocks and followed us for perhaps a quarter mile without sound. Carson broke off a piece of dried meat from his pack and tossed it toward the animal without slowing his pace. I remember watching him afterward and feeling strangely irritated for reasons I couldn’t explain.
+
+I began suspecting he had spent years in work he never mentioned. He possessed a matter of fact and almost administrative knowledge of everything relevant to our crossing. He knew distances without measuring them and weather before I had noticed it. He could identify tracks without slowing and seemed to understand where water ought to exist before water itself had agreed to be found. I tried to imagine him in ordinary circumstances.
+
+Petra had spoken about her father’s disappearance with the composure of someone discussing logistics rather than grief. Carson moved through the country with an assurance that felt difficult to reconcile with a simple search assignment.
+
+That evening we camped beside a dry creek bed. We had eaten most of our supper before Carson spoke again.
+
+“Funny what families worry about.”
+
+I looked up.
+
+“What do you mean?”
+
+He pushed another branch into the fire.
+
+“Not always people.”
+
+He watched the sparks drift upward.
+
+“Some things get left alone for good reasons.”
+
+I slept badly.
+
+Near sunset I noticed a distant patch of green standing strangely against the stone.
+
+“What is that?”
+
+Carson regarded it.
+
+“Could be anything.”
+
+“A spring?”
+
+“Could be.”
+
+I remember feeling irritated then, though I could not have explained why.
+
+“I’ll go look.”
+
+He watched me for a long moment and handed me the spare compass. I never saw him again.
+
+I expected to find Carson waiting beyond the rise.
+
+When I reached the patch of green, I found only stone and scrub. I stood there a moment listening for movement or a voice before realizing how quiet everything had become.
+
+At first, I assumed I had simply taken a wrong turn.
+
+Then afternoon passed into evening and I realized I had stopped recognizing where I was.
+
+By morning I had stopped looking for Carson and begun looking for water.
+
+It seemed that some understanding between myself and the landscape had quietly been withdrawn without informing me. Only afterward did I remember Carson looking toward the patch of green before I spoke, as though he had already noticed it. Several times I could have sworn I saw Carson ahead of me upon some distant rise only to discover a dead tree waiting there instead. Once I stopped and looked back and could no longer find my own footprints among the stone. The antelope still appeared in the distance.
+
+Still running from something that isn’t there.
+
+More than once I caught myself turning to say something before remembering there was nobody beside me.
+
+I became uncertain whether the sun had set once or twice. Hunger and thirst had begun making time feel unreliable. While reaching into my pocket I found the granola Joan had packed before I left, crushed flat sometime during the crossing. For a long while I simply stared at it. Only gradually I noticed the hair tie around my wrist. Joan had handed it to me weeks earlier while cooking because she needed both hands free and I had forgotten to return it. Later I found the folded grocery list Joan had tucked into my coat pocket.
+
+Milk  
+  
+Onions  
+  
+Call mother
+
+The paper had gone soft from sweat.
+
+I smelled moisture on the hot breeze before I saw it.
+
+An opening in the cliff face revealed itself gradually between stone and shadow, less like a cave than a place the earth had forgotten to finish closing. Cool air moved faintly against my face.
+
+I crouched and pushed farther inside.
+
+The sound reached me first, quiet enough that I wondered whether I had imagined it. The walls narrowed and widened unpredictably as I moved farther in. Reflections shifted somewhere ahead beyond the rock, pale and wavering.
+
+Then I saw the pool.
+
+Water lay within the cave so clear I simply stared at it. Light moved slowly across the stone above me while water seeped steadily between the rocks.
+
+I dropped to my hands and knees.
+
+I do not remember deciding to.
+
+I only remember finding myself already there, crawling toward the water as if my body had grown tired of consulting me.
+
+Only then, on my knees over the water, did I see him.
+
+Vandermeer sat motionless beneath the surface as though seated there deliberately. His thumbs had been carefully tied together with faded yellow survey cord and his face, swollen beneath the water, had been battered severely. His pockets had been turned inside out and were now drifting slowly with the current beside him.
+
+I stared back at him and continued drinking.
