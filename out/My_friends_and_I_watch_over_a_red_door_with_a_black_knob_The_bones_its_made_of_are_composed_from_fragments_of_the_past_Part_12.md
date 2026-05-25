@@ -340,7 +340,7 @@ The little princess gave a look of shame, shrinking into herself before defeated
 
 I quickly pulled back up my smile, hating to make her frown, “Hey, that’s alright! There’s nothing wrong with that. A silent ruler just means you’re more action than words. That must make you a pretty good princess, is all.”
 
-Her expression warmed a little, and I saw her lips part to release a noiseless giggle. Despite the sadness of a child’s laugh being stolen from them, I the sight brought a snicker to me too. “Can I ask for your help again, Princess? There’s a lot of questions I have about this place, and I think you may be the only one who can help me.”
+Her expression warmed a little, and I saw her lips part to release a noiseless giggle. Despite the sadness of a child’s laugh being stolen from them, the sight brought a snicker to me too. “Can I ask for your help again, Princess? There’s a lot of questions I have about this place, and I think you may be the only one who can help me.”
 
 The young ruler looked at me cautiously, her face returning to a neutral, trembling one as she analyzed my words and appearance. I thought for sure that when weighted together, she would still think me a threat—I remembered what it was like to be her age and to stare up at my father the same way…
 
