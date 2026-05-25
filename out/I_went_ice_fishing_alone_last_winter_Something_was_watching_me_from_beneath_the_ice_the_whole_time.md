@@ -1,0 +1,39 @@
+I've told this story to exactly two people. My brother, who stopped returning my calls after I described what I saw, and my therapist, who suggested I was experiencing stress-induced hallucinations. I'm writing it down now because carrying it alone is becoming unbearable.
+
+Last February, I drove three hours north to fish a remote lake I'd visited every winter since childhood. The access road was barely plowed, and my truck was the only vehicle in the lot. I should have taken that as a sign.
+
+I drilled my hole around eight in the morning, set up my small shelter, and dropped my line. The ice was easily fourteen inches thick. Safe. Solid. I've fished ice like that hundreds of times.
+
+Around noon, I noticed something in the water below my line. A shadow. I assumed it was a large fish circling, maybe a northern pike checking out my bait. I leaned closer to the hole and peered down.
+
+The shadow stopped moving.
+
+It was roughly the shape of a person. Long arms. A rounded head. It hovered maybe six feet below the surface, completely motionless despite the gentle current I could see disturbing my fishing line.
+
+I told myself it was a submerged log. Told myself the low light was playing tricks. I kept fishing.
+
+At two o'clock, I heard the sound. A slow, rhythmic knocking coming from directly beneath my boots. Three knocks. Pause. Three knocks. Pause. Perfectly measured. Perfectly deliberate.
+
+I grabbed my auger thinking maybe a pocket of gas was trapped under the ice. I've heard that can happen. I started drilling a second hole four feet from the first to relieve pressure.
+
+The knocking moved with me.
+
+Wherever I stepped, it followed. I walked in a full circle around my shelter. The knocking tracked every footstep. I could feel faint vibrations through the soles of my boots, almost like something pressing upward.
+
+I packed my equipment in under two minutes. I've never moved that fast in full cold-weather gear.
+
+As I dragged my sled toward shore, I made the mistake of looking back at my fishing hole. The ice around it had developed a spiderweb of cracks radiating outward in a perfect circle, like something had been pushing up from below with tremendous force.
+
+I've measured the diameter of that crack pattern from memory, sketched it out probably forty times. It spans roughly five feet across. That's the width of a very large person lying flat with arms extended.
+
+The drive home took three hours. I spent most of it checking my mirrors.
+
+I haven't been back to that lake. I looked it up after, quietly, trying to find any history of incidents there. I found one forum post from 2009 describing a fisherman who vanished from that same lake mid-season. His equipment was found in perfect order. His shelter was still standing. His truck was still in the lot.
+
+They never found him.
+
+They searched the lake and found nothing under the ice.
+
+I think about that fisherman a lot. I think about those three knocks. I think about whatever was down there in the dark, patient and waiting, and I wonder if it had knocked for him too.
+
+I wonder if he had answered.
