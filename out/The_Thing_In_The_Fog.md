@@ -1,0 +1,25 @@
+The thing in the fog is not like many things. I don’t think it’s a “thing” at all. I’m not entirely sure what it is or where it comes from. It’s unearthly, and I feel it would be an insult to call it an alien. I don’t think it’s of this realm or dimension or some Marvel multiverse bullshit, if I’m being honest. This thing attacked me out of nowhere and that scream, that spine tingling scream was layered with a guttural growl from the depths of hell. It’s still ringing in my ears. It’s etched in my brain or it’s still here with me. 
+
+Either way, I’m trying to tell you everything I know before I die in this cave. I’ve accepted my fate. I’ve been crawling and wandering for what feels like an eternity. The walls feel damp with smooth ridges, which I imagine is what the inside of a cave feels like. But this cave moves. It shifts. The walls and floor have a slight give to it. I know that’s not normal. The walls glisten but I’m not sure where the light is coming from to cause the glistening.
+
+I found this phone and it’s been my only source of light. I don’t want to drain the battery, so I’ve been conserving what little there is left. I know there’s not much time. What better way to spend my last bit of time than writing in some random persons notes app. Who am I even writing to? No one will see this.
+
+It’s over. This thing has ruined everything. Every hope and dream is now nothing. My legacy is nothing. I won’t be remembered. A passing thought to those who knew me when they see something that reminds them of me. Once they are gone, that’s it. How did every action in my life lead up to this moment. How do you have a funeral without a body. I’ll be another name labeled on a missing persons poster. A cold case. My cold, rotting flesh will exist in this place forever. My bones will be picked clean by whatever creature makes its way to me.
+
+I found this phone but no trace of its owner. I can’t imagine they made it out, but they made it farther than this phone did. I can only continue to wander. I can only hope that you believe me. 
+
+Believe that I truly tried everything to escape this cave. That this steady breath on my neck is only my imagination. That the condensation running down my back is sweat and not the accumulation of humidity from the breath. 
+
+I truly tried everything. I was promised so much success in my life. 
+
+It breathes when I breathe. 
+
+I will never have a family. I will never get that promotion. And I was promised that promotion. I worked harder than everyone and I’m not egotistical.
+
+It brushed the back of my neck, I can feel it.
+
+I am not crazy. 
+
+I am not scared.
+
+I will not die he-
