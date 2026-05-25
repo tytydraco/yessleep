@@ -1,0 +1,17 @@
+I saw a man walking up my street, sunglasses on and a guitar slung over his back.
+
+I couldn’t stop watching as he sauntered along. Blades of grass and branches on trees seemed to bend towards him as he passed. A dog barked then abruptly stopped, letting out a longing whine instead. The air itself seemed pulled to him, and as he got closer, I felt the breath leave my lungs. He turned his head to look at me as he went by, but all I could see was the reflection of my own awestruck face in his glasses.
+
+The next time I saw him, he was perched on a rock at the corner of a busy street, plucking out a haunted tune. The guitar’s notes tugged at my chest, drawing me toward their promises, filling emptiness I didn’t know existed. My mother’s hand yanking me out of the street brought me back; her yells and the screech of car tires drowned out the music. She marched me away, berating me for not paying attention, though I could feel her hand trembling on my wrist. I turned to see the man watching, his fingers continuously roving over the strings.
+
+He was still on the rock when I saw him again, but a crowd of people sat at his feet. They didn’t move, caught in his melodic web. I watched from a distance, hesitant to move closer but yearning to do just that. As I watched, more people joined the cluster, the same slack-jawed look on their faces. I recognized a boy from my school, his books still clutched to his chest as he sat, transfixed. A lady from up my street, fresh from the salon, sat next to him.  The wind carried a note to me, and I felt a stab in my chest, the emptiness that remained after I first heard the melody filling for a single moment. I listened, dreading and hoping for more, but my bus pulled in front of me. I climbed on, and I watched him and his crowd grow smaller as the bus carried me away.
+
+I saw the man walking down my street, sunglasses on and a guitar slung over his back.
+
+The world curled in on him as he strolled, though I braced myself, digging my heels into the dirt. He turned to look at me and smiled as he passed, and I saw my hardened face reflected in his glasses.
+
+An invisible wall surrounds the rock now. Anyone needing to walk past crosses the street abruptly. Children do not play there. Drivers avert their eyes, humming loudly to themselves while they wait impatiently for the light to change. To anyone in town, that corner no longer exists.
+
+The people are still there, quiet as stone. Their hair is brittle and hangs in strings from their parchment scalps, their sunburnt, blistered skin stretched over protruding bones. Their eyes are open, watching in wonder at something we cannot see, their ears listening to a melody we cannot hear.
+
+Sometimes, if I listen closely, I almost can.
