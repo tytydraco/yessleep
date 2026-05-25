@@ -1,4 +1,8 @@
-I need your help. I've loved ghost stories my whole life. Sleepovers with friends streaming horror movies, taking turns with Bloody Mary in the bathroom mirror, falling downcreepypasta rabbit holes at 2am. I always loved being scared. I want to be clear about that, because I need you to understand that what's been happening to me since last week is not that. This is not fun scared. This is something else.  
+I need your help. 
+
+I've loved ghost stories my whole life. Sleepovers with friends streaming horror movies, taking turns with Bloody Mary in the bathroom mirror, falling downcreepypasta rabbit holes at 2am. 
+
+I always loved being scared. I want to be clear about that, because I need you to understand that what's been happening to me since last week is not that. This is not fun scared. This is something else.  
    
 It started with an extra credit assignment. My American History professor asked us to visit our hometown libraries over Spring Break and find out-of-print books about local legends. It felt right up my alley, so I jumped at it.  
    
