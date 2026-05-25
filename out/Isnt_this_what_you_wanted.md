@@ -1,0 +1,53 @@
+#                                                         1
+
+"Ow," I yelled before opening my eyes. I stood up and looked around. "*What happened and why am I here?*" I thought as I looked around in confusion.
+
+The space I was standing in was white, all white. As I looked up, I tried to see if there was a roof or sky above me, but from the perspective I was looking up from, I couldn't really tell. I went down slowly, trying to touch the surface beneath me. It felt like nothing. I couldn’t tell if it was floor, ground, or something else entirely. I looked at my arms. They were pale and white without a strand of hair. I touched my head. There was nothing there either.
+
+“Hello?” I said into the nothingness with my voice, which didn’t echo. I took a few steps, hoping I would feel something, but just like with my hand I felt nothing hitting the floor. I couldn’t even hear my own footsteps. It was a strange feeling.
+
+Curious, I walked around to find out where I really was. I was hoping to see an object, wall or dead end, but after a while, I saw nothing, no wall, no object, no edges, no sky and not even one decibel of sound which wasn’t made by my lips or mind, just nothing. It was as if this place was endless with nothing in it except me.
+
+After walking for a while, I asked myself “How long have I been here?” I couldn’t tell. To me it felt as if such a thing as time did not exist in this place. I wondered if this was all just a dream and slapped myself twice, but nothing happened. When I realized that I wasn't dreaming and that everything was really white, I became desperate. I looked around and screamed: "Is anyone there?"... No answer.
+
+I tried again with more desperation "If someone’s there, please…please, please say something." Still no answer. I didn’t expect any answer, but at the same time I was desperately hoping for one. 
+
+I ran around aimlessly. I ran around screaming. I ran around confused. As I was running, I cried hard. No matter how much I ran I couldn’t escape the empty, silent place. With many tears and sighs, I fell to the surface and cried hopelessly.
+
+“*How did I end up here? Why is everything white? What am I doing here? Am I dead? Will I stay here forever? Could my brain cope with staying here forever? Why me? Is this a punishment? Who bestowed such punishment upon me? Was it a human, a god, a devil or an entity? Will I ever be able to escape this place? Is this hell or heaven? Did earth even exist? Am…I-I…*” At that moment there was a question which shook my body to its core. A question, which made me open my eyes as wide as humanly possible, making my vision blurry. “Who am I?”
+
+The realization of realizing I couldn't remember anything, not even my name made me start to scratch my bald head. I could only remember that I was once a human on a planet called Earth. Nothing else. I didn’t even know the language I was speaking at that moment. I started hitting my head on the surface, trying to feel pain, but instead I felt nothing.
+
+I then went on to hit myself with my fist and felt pain wherever it could reach.
+
+“Who am I? Who am I? WHO AM I?”
+
+There was no one to answer. No way to remember. And no way to get out. I was done.
+
+Emotionally and psychologically done. There was nothing keeping me from…
+
+…from…
+
+My thoughts came to a conclusion.
+
+“I hope to end my suffering” I whispered. With rage I stood up screaming into the nothingness. “NO WAY WILL I BE HELD CAPTIVE IN THIS UNDESERVING NIGHTMARE”
+
+I thought about offing myself. 
+
+Killing myself sounded better than being in this silent, mysterious, white place. I wondered how to take my own life and thought of strangulation. I took a deep breath and held it. My lungs screamed, my vision blurred, but I held on, stubbornly. I even let my hands approach my neck. Both hands held my neck as tightly as they could. In pain, I saw white starting to be replaced by black. In other words: everything went dark.
+
+As the white place vanished I smiled.
+
+…
+
+A loud noise came out of nowhere.
+
+I woke up. Was I gone? Did I finally make it out? I looked around me. I was still there.
+
+What was that noise? And-. Why was I not out of this hell hole? I've had enough.
+
+“Please just let me out.” I screamed.
+
+Please, please, plea-  
+Something was in front of me.
+
