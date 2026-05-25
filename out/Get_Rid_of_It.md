@@ -83,3 +83,49 @@ I scrambled to each door and ensured it was locked. With only a bag of grapes le
 “*R”*
 
 “*E”*
+
+Update 1:
+
+I looked out the window, saw multiple cars, multiple silhouettes. Gia's car was there too. I guess I'm a bit of a coward because I didn't stay around to see more. Maybe she is part of all this, or she's a victim.
+
+I was able to leave out of my side door and slip a couple yards over. All the flood lights kept coming on. I could hear some distant muttering, sounds of heavy footsteps like they were moving faster towards me. I just kept moving.
+
+I’ve been a bit afraid to take the next step, but I guess I have to trust myself.
+
+There’s a gas station nearby where I've been hiding. I recall going there some time back and noticing they have produce. I decided to take the plunge. I went inside and there was not much produce, and it was pretty bad quality. Bananas lingering on the edge of rot and some apples that’d clearly been dropped before being placed back in the bin. I bought what I could carry, which turned out to be a bundle of bananas (5 of them) and 3 apples. To me, this meant 8 notes. Perhaps enough to get me somewhere truly safe. Heading back to my hiding spot. Or maybe somewhere else. Going to open one of these and see what it says.
+
+Update 2:
+
+At this point, I don't see or hear them anymore. I found somewhere secluded to lay low. I want to return home, get in my car, and drive away. I'm afraid they're waiting for me though or hiding in my house. I'm thinking of going to a store and buying a couple things. There have to be more notes waiting for me.
+
+The first note read: *It’s not too late.* The sun had gone down by the time I was comfortable to begin reading messages. Form my hiding spot, I can see the roadway. Usually, cars drive over the speed limit on this street, there’s even a speedometer that flashes red and blue if you speed, but all the cars I see are driving so slowly today. I’m afraid they’re still looking for me, as if just being alive has enraged the entire town and the only way to settle them down is to capture me. I don’t know what they’d want from me.
+
+Before I met Gia, I worked doing some elevator repair work. Hardly a job I’d call controversial. I guess I got the prestigious opportunity to see maintenance areas, crawlspaces, and some liminal office floors where it seemed no one worked anymore. There was an early job where I signed an NDA, but the secret seemed as mundane as the Coke-Cola recipe.
+
+I tried to fight against sleep despite nodding in and out, being woken by a crashing noise in my head. My body clearly couldn’t decide what it wanted. Instead of rest, I opted to read another note. “*It’s not too late”* didn’t do much expect to put song lyrics in my head.
+
+Extracting notes from near-liquid bananas, looking like a raccoon sifting trash, being covered in sticky pulp, resting on the concrete; it all made my self-esteem drop. I felt more visible than ever, felt every wayward eye and slow walker was looking for me.
+
+The next note made me rethink things. *Recall your first job*. I thought back to that day, fought back a cloud of exhaustion, the intrusions of hypnagogia, the cloying scent of banana flesh oxidizing on my fingers.  
+
+I recalled signing the NDA. The building I was sent to work in was brutish, a monolithic concrete slab across from a park. Their work wasn’t disclosed to me because all I needed to know was the job. They told me the elevator kept malfunctioning and “those without permission” were taken to a sub-floor they weren’t authorized to access. I’m not very scared of breaking the NDA at this point, this was some years ago; I wouldn’t scorn the safety of a jail cell either.
+
+A security guard and a suited supervisor directed me to an elevator door.
+
+“This the one?” the supervisor asked.
+
+The guard nodded, then the supervisor gestured with his head, sending the guard back to his post at the metal detector.
+
+The supervisor had no name tag, no tattoos, moles, broken teeth, birth marks—no identifying features. Picked, I now think, to be nondescript.
+
+He examined the work order, told me to ‘get to it’ and told the guard when I was finished.  
+
+The job was nothing extraordinary itself. I did a diagnostic, reproducing the steps which led to the error. I got into the elevator car and selected a higher floor. Immediately the car began to descend. It wouldn’t be the first time I encountered a misread command, so it felt like an easy enough fix. What I didn’t expect was the length of the descent. Given the size of the building and the number of floors based on the directory, I anticipated a descent of 10 seconds. I descended for over a minute.
+
+At the bottom, the elevator dinged and opened to an unlit floor. Disoriented by the unnatural length of descent, I stepped out of the elevator car and into the darkness. I heard the doors close behind me and the whine of the elevator as it made its way back up.
+
+“Damn it.” My voice felt alien in the silent-dark.     
+
+I pulled out my flashlight and scanned my surroundings quickly. My flashlight reflected in unexpected ways, played off surfaces, glared, illuminated walls of glass, transparent rooms, like small apartments, filled with furniture. I could see, then, a dim red light no brighter than an exit sign failed to illuminate each glass-encased room.
+
+I walked ahead, confused and certainly frightened, yet endlessly curious. The hallway was lined with these glass rooms all faintly illuminated. I was reminded of the staged rooms in IKEA. Then I heard the rumble of elevator doors behind me. I turned to see the elevator had arrived. The doors slid open and spilled light into the darkness, a UFO unloading its emissary. That’s when I met Gia.
