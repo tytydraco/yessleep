@@ -1,0 +1,331 @@
+It seemed like easy money.
+
+***WANTED: Weekend House Sitter. Three Days, Two Nights. Will Pay for Food. $500 a day. Call Agatha.***
+
+I should've been more suspicious, but at the time I was fresh out of college, up to my ears in debt, and barely managing to pay rent every month. I'd been looking for steady work (basically anything that would let me get groceries without filing for bankruptcy) when I saw the ad stapled to a tree on one of the city streets.
+
+I'd housesat for friends and relatives before, and the flyer didn't mention anything about pet sitting, babysitting, or anything like that. Plus, the pay would cover next month's rent, and if I did a good job I might be able to make the gig a regular thing. I called the number, thinking there was no harm in at least making sure the offer was legit.
+
+Agatha turned out to be an older woman who answered on the second ring. She understood that the ad seemed too good to be true, and told me that she could prove the offer was valid, giving me an address to look up and her full name to Google.
+
+I put her on speaker and did so. As it turned out, Agatha had been a pretty big deal ten years before: she'd been a fashion critic who was well-known for her refined tastes and almost supernaturally good predictions about what would be "in" every season. Upon retiring, she'd turned into something of a hermit and almost never leaving her house (though the fact that delivery people regularly showed up at her front door proved she was still alive). And she was *loaded*: born into a high-class family, she had more money in the bank than some small countries had in their treasuries.
+
+"While this would be specifically for the weekend," Agatha continued after my Google search, "I have a series of trips coming up that I simply cannot put off. If this weekend goes well, I may hire you back for a following weekend for double the current rate."
+
+My jaw dropped. I could be making three grand in a weekend? At the time, I thought she was either extremely generous or didn't know the value of a dollar. Looking back, I probably should have seen that as a red flag. But I was desperate, so naturally I accepted the job.
+
+I was to arrive on Friday morning, specifically at ten o'clock sharp. Once I'd stepped through the front door, I wasn't allowed to leave the house again until Sunday afternoon (when Agatha would return). Thus, I was expected to bring everything I would possibly need for my three-day stay.
+
+Odd as I thought that was, I was NOT about to tick off the lady who could single-handedly end a few of my money troubles.
+
+Agatha's house was an absolutely gorgeous mansion; it practically screamed old money. It was three stories tall, painted a pristine white, a balcony overlooked the front lawn, the lawn and flower beds were immaculately cared for, a golden statue made up of numerous brass instruments stood proud at the center of the garden... All in all, I was starting to think this gig would be worth it.
+
+But I had to pause when I saw the dolls.
+
+Standing on poles, guarding either side of the porch, were two gigantic dolls. They looked like they were made of some kind of sackcloth, as their skin reminded me of burlap. Both of them were about six feet tall, though the poles they were attached to made them seem at least a foot taller. They didn't have mouths, but there were two massive black circles embroidered onto their faces to act like eyes. They had stringy black yarn to act as their hair, though how said yarn hair hadn't rotted away due to exposure to the elements was anyone's guess. They were made up to resemble a man and a woman. The male doll's yarn hair was made up to look like a mop top haircut, and he was dressed in a black Victorian-style suit. The female doll was wearing a mauve ballet-style dress with black leggings, and her yarn hair was tied up into a sloppy bun. Both had a very Burton-esque feel to them.
+
+As... surprised as I was to see the dolls (especially because of how out of place they were), I shrugged and played it off as a weird interest Agatha had. After all, she'd hardly be the first rich person to have an eccentric hobby.
+
+Agatha all but pulled me inside when I knocked on the door. She was a sharply dressed woman in at least her late sixties. I noticed that a suitcase was sitting behind her. She looked satisfied to see that I'd arrived on time and had a suitcase and duffel with me.
+
+"Got everything you'll need?" She asked in lieu of a greeting.
+
+"Everything I'll need," I reassured her.
+
+"Good, very good. Now... Oh, my taxi's here!"
+
+I looked out the still open front door to see a taxi pull up right beside my beat-up Prius.
+
+"I'll pay you what you're owed as soon as I get back," she told me as she picked up her suitcase. "I don't have time to go over everything, so I left a list of rules for you on the kitchen table. Follow it to the letter and everything will be fine. See you Sunday!"
+
+With that she went out the door, shutting it behind her.
+
+I blinked, wondering if that was normal behavior for someone leaving their (clearly expensive) house to a total stranger.
+
+Setting my bags down in the foyer, I walked through the gargantuan house until I found the kitchen. As she'd promised, a list had been written down. It was written on custom stationary, and left next to a sticky note that read "PLEASE FOLLOW ALL RULES!"
+
+I dutifully read over the list. Some of the instructions were rather self-explanatory, but others were... Just plain *weird.*
+
+1. Please feed the goldfish in the library. The food is in a jar on the cabinet next to the tank. Just one pinch a day!
+2. Every night at nine o'clock sharp, you must be in the living room, staring out the picture window. You must watch everything They do. Do NOT look away; They like an audience. When They bow to you, clap three times and close the curtains. Be sure to open them again in the morning.
+3. Please don't smoke or vape in the house. If you must, please only smoke or vape on the balcony.
+4. If you touch any books in the library, please put them back where you found them.
+5. If you are injured or feel sick, sleep on the couch on the back patio. Be there by nine, and you'll feel better by morning.
+6. On Saturday night, leave a paper plate of frozen crinkle cut carrot slices on the welcome mat. Be sure you do this by six o'clock at the latest. Don't worry about getting the paper plate, They never leave leftovers.
+7. Ross, the gardener, comes on Saturday morning. Jeb, the special gardener, comes every Saturday evening. Do not speak to either of them, and do NOT let Jeb know I'm not home.
+8. Do not make any noise while watching Them. They will excuse a sneeze or coughing fit, but anything else will make Them unhappy.
+9. The streaming service is yours to use as you like. If you order any pizza or food for delivery, leave a note telling me where it was at and what it cost, and I'll cover it. Help yourself to anything in the fridge!
+
+The rules about feeding the fish, not smoking, and picking up after myself were easy to understand and follow: fish were easy to please and I'd never been a smoker. But the other rules were... weird.
+
+Still, like I said, they were all pretty easy to follow. And Agatha was being more than generous... I decided to just grin and bear it.
+
+Though, I have to admit that the constant mentions of "They" left me with a knot in my stomach.
+
+Friday was spent exploring the house and finding all of the rooms listed. The library was on the second floor, right next to my guest room (which looked like a luxury hotel suite). The back patio was a fully covered and furnished deck, with glass doors and windows keeping Mother Nature out and a connected heating and A/C unit keeping it comfortable. The living room was a surprisingly big room: you could've parked a car in there and still had room for ten people. The picture window mentioned in the list was so big it took up most of the wall, and was framed by red velvet curtains (which greatly reminded be of the curtains used in theaters).
+
+After a dinner of ordered pizza and a Mountain Dew, I saw that it was ten til nine. Too curious to disobey, I went into the living room and looked out the picture window. 
+
+The sun had set by that point, with the porch light and various lights in the garden illuminating the front.
+
+Then, at nine on the dot, just when I was starting to wonder what the big deal was... It happened.
+
+The two dolls I'd seen earlier... jumped off of their posts.
+
+There was no warning. One moment they were still and lifeless... and the next they were moving like it was the most normal thing in the world.
+
+The male doll offered its arm to the female one, who took it delicately. They walked over onto a bare patch of grass, one right in my line of sight.
+
+The male doll touched the statue of the orchestra I'd seen earlier. Eerie, unearthly music filled the air.
+
+Then, as I watched... They began to dance.
+
+It wasn't a waltz, or a salsa, or any kind of dance I'd seen before. 
+
+But it was undeniably dancing. 
+
+They stepped in time to the music, never looking away from one another. At times the male doll would dip or whirl the female doll around before they began slow-dancing once again.
+
+My heart hammered as I struggled to rationalize what I was seeing. My eyes were frozen on the pair.
+
+Finally, the music tapered off. 
+
+The dolls stopped their dance, and turned to face me.
+
+They'd known I was there all along.
+
+I was as still as a statue as their black, unreadable eyes focused on me.
+
+Then, perfectly in sync, they bowed at me.
+
+Remembering the rules, I gave three loud claps, and closed the curtains as quickly as possible.
+
+Then I got out of that room as fast as I could.
+
+I made a break for my guest room, avoiding all windows (what if they were still watching the house?) and taking the steps two at a time. 
+
+I slammed the door when I got into my room, breathing heavily. Like a scared little kid I darted under the bed, shaking. 
+
+How in the name of sanity had that just happened? Did Agatha know it would happen?! I had just pulled my phone out of my pocket, wondering what I should do, when it buzzed.
+
+It was a text from Agatha.
+
+*I know you must be frightened but don't be. They only want an audience, nothing more. Just follow the rules, and you'll be safe.*
+
+I sent her a few texts, most of them asking (or, really, begging) for answers, but she never replied.
+
+I spent most of that night under the blanket in my guest room, hugging my plush sea turtle and not daring to look out the window, lest I see one of those dolls staring at me.
+
+Morning eventually came. Exhausted from a fearful, sleepless night, I trudged down the stairs to make some coffee. I froze when I heard someone moving outside... until I remembered the list. One of the gardeners always came Saturday mornings, and I wasn't supposed to speak to them. Tempted as I was to see anyone real, to try and convince myself I wasn't crazy, I decided to abide by the rules. Which meant I had to open those living room curtains.
+
+I held my breath as I pulled them apart, and wasn't quite sure how I felt when I saw that the dolls were back on their poles. Like nothing had ever happened.
+
+I had a bowl of corn flakes and a cup of very strong coffee for breakfast, deciding to try and binge comfort films until I could convince myself it had all been some wild dream. 
+
+Unfortunately, that plan was dashed when, while walking back to the TV room, I tripped on my own discarded sneaker. While my landing was painful, it was nothing compared to the sprained ankle I got in the process.
+
+I bit my arm to keep from screaming, and managed to hobble back into the kitchen for some ice.
+
+I wound up still going on a movie binge, but now it was because I was confined to the couch. I was wondering how I was going to get up the stairs that night if my foot was a mess until I remembered. According to Agatha, I had to sleep on the back patio if I was hurt.
+
+Which meant that I wouldn't have to see those creepy dolls.
+
+While I still didn't know what was going on, I felt much better thinking that I might have a more normal night. I spent the rest of the day following the instructions as best as I could, leaving the chopped carrots on the welcome mat after the "special gardener" left (I understood why he was the special gardener when I saw him dusting those freaky dolls). 
+
+After I'd fed the fish, I went about my nighttime routine (made more difficult with the busted ankle). By eight fifty, I had gotten myself settled on the back patio. 
+
+The patio's couch was as soft as a bed, and there were enough pillows for me to feel comfortable even after I used two of them to prop up my foot. After taking a blanket from the linen closet, I was ready to get a full night's sleep.
+
+I had just closed my eyes, starting to drift off... and then I heard it.
+
+That eerie, unearthly music.
+
+I pulled the blanket over my face, too afraid to think of doing anything else.
+
+As I listened, the music stopped mid note.
+
+I froze, wondering what that meant.
+
+For a few minutes, it was dead quiet.
+
+Then I heard it.
+
+Two pairs of unnaturally light footsteps.
+
+They walked in sync, slowly, as though they weren't in any kind of hurry.
+
+And... 
+
+They were walking towards the porch.
+
+Terrified tears rolled down my cheeks as I silently begged them not to come near me.
+
+The steps started walking onto the deck... and then the door to the back patio opened.
+
+My heart was in my mouth as I heard two sets of feet approach. Every instinct I had was screaming at me to run, but I couldn't. Not with my--
+
+The blanket was ripped off of me. The female doll was standing right next to my head, holding the blanket in one hand as she stared at me.
+
+I was about to let out a scream when her hand dropped the blanket and clamped over my mouth. The other hand settled on my hair. She started rhythmically moving her hand through my hair, like... Like she was petting me. Her eyes never left mine.
+
+Two hands grabbed my bad foot. I shot a glance towards the foot of the couch and saw the male doll holding at my swollen limb. Much like the female doll, he was staring right at me.
+
+He lifted his hand, and snapped, and I lost consciousness.
+
+When I woke up, the sun was out. Everything that had happened came back to me in a flash, and I looked down at my injured foot.
+
+Only it wasn't injured anymore. It looked like it had never been hurt. I got off the couch and stood on it to test it. It was perfectly fine.
+
+Agatha's text came back to me: *They only want an audience, nothing more. Just follow the rules, and you'll be safe.*
+
+I guess part of keeping their audience meant keeping them healthy.
+
+Feeling physically better after a night of rest, I waited impatiently for Agatha to come back at three that day.
+
+When she finally walked through the door that afternoon, she had a resigned look on her face. She dropped her bags on the floor and gave a tired smile.
+
+"I'll unpack, make us a pot of tea, and explain what I can."
+
+That was all the answer I got until she'd unpacked everything and put on her electric kettle. Only when we both had a steaming cup of chamomile in our hands did she start to explain.
+
+"I don't know where they truly came from," she began, "or even what they truly are. But when I turned fifty, my health began to deteriorate, and with my wealth I was a prime target for thieves or home invaders. Jeb's brother reached out to me shortly after my fiftieth birthday. He claimed that he had a way of making sure I was always healthy and protected: all I had to do was give them an audience. The day after I agreed, I woke up to find those two standing at attention in my yard. All their seller told me was that I must not remove them, and that I must always watch them dance at night."
+
+She took a sip from her tea. "At first, I was as confused and petrified as you. But then, when I came down with a dreadful flu bug a week after I got them... they came into my house in the middle of the night and cured me. Since then, I've realized that they truly ARE protectors... as long as you serve as their audience.
+
+"That's why I almost never leave; someone has to be here to make sure they have an audience, that they don't stop protecting the house and whoever stays here. But last week, my brother-in-law was killed in a car accident, and my sister was distraught. I had to go and stay with her to make sure she was alright. That's why I was willing to pay a complete stranger so much money just to watch the place."
+
+Our conversation went on for a little while longer, but in the end I more or less got it. I was still creeped out by the whole thing, but after the dolls had healed me... Well, I wasn't as scared as before.
+
+Thus, I became Agatha's regular house sitter. It was a fair bargain: she finally got to travel and visit people she hadn't seen in years, while I got a steady, lucrative income in exchange for watching her place (and, as a result, the dancing dolls) whenever she called me.
+
+I'd been her regular house sitter for about a year when Melanie called.
+
+Melanie was the kind of sibling you wish you didn't have to associate with. She'd been a little gremlin since the day she was born, and her behavior had gotten worse with age. It didn't matter how many times my parents put her in timeout or she got detention in school: no mistake she made was her fault, anything anyone else got was something she had to have, and anything that didn't go her way was worth screaming herself hoarse over. 
+
+When I got into college, she'd thrown fit after fit about not being able to go to college herself until they let her take an early admissions test. When she passed (I still think she bought the answers off of someone), she packed her bags and went straight to the enrollment office. She immediately made herself the bane of everyone on campus' existence: any time she wasn't in class was spent hooking up with frat boys or getting blackout drunk. She constantly skipped classes, mouthed off to teachers whenever she bothered to show up, and she wound up having to rent an apartment off campus when she yelled transphobic slurs at a trans man and got herself banned from the dorms.
+
+She was eventually expelled, and my parents refused to let her move back in with them until she learned how to act like an adult. She swore she'd show them by marrying rich. In the three years since she'd made that deal, she'd gone through four different boyfriends and nine different jobs (most of them at fast food joints). Refusing to admit defeat, she'd started trying to mooch off of any relative that didn't already hate her.
+
+So it shouldn't have surprised me when she called, talking in the sickly sweet way she always did when she wanted either money or a favor.
+
+"...and he, like, totally left me for no reason, and said I would never get a job at his dad's modeling studio!" She whined, finishing a clearly falsified story and giving a few fake sniffles. "So, anyway, if you know any way I could get a job--"
+
+"Sorry, Melanie, I can't help you job hunt," I cut her off as I finished stuffing clothes and my plush turtle into my duffel. "I have something really important to do this weekend."
+
+"LIAR!" She screamed through the phone. "Mom said you landed a cushy job working for a rich lady! I want in!"
+
+I sighed; Mom didn't have a filter and always blabbed to everyone about everything.
+
+"It's not that simple. This really is a one-person job, and--"
+
+"Great, so quit and I'll take it! What's the address--?"
+
+I hung up; Melanie only ever heard what she wanted to hear.
+
+Given how completely insane my sister had always been, I really should have predicted what happened next.
+
+Agatha's brother was getting hip replacement surgery, and (since it was last minute) she was paying me seven thousand dollars to watch her house for a whole week. Obviously, I said yes.
+
+The rules hadn't really changed, and by then I had them memorized. I thought I knew what to expect: other than keeping the fish fed and watching the dolls dance, my days watching Agatha's house were quiet.
+
+What I didn't expect was the knock on the door I got on the first evening of my latest week there.
+
+Agatha hardly ever got visits that weren't from people she'd hired, so naturally I was startled. I looked at the clock. It was eight-thirty; I thought I'd have enough time to shoo away whoever was at the door before the dolls came alive.
+
+Unfortunately, when I opened the door, preparing to see a Jehovah's Witness or perhaps a salesman, I found my sister.
+
+"Hey, Tiffany! Thanks again for the job!"
+
+Melanie didn't let me say that I had NOT gotten her a job, simply strolling in with her baby pink suitcase and self-centered attitude.
+
+She began chattering about how she managed to manipulate Mom into telling her what city I lived in and the name of the woman I was working for. From there, she just stalked Agatha's name online until she found out where she lived.
+
+From there she started talking about how excited she was to work for a fashion critic and how she was MORE than qualified to critique people's outfits.
+
+I finally found my voice, though I had to shout to make myself heard.
+
+"Melanie! I did NOT find a job for you, and I'm definitely not giving up my job for you! You need to go!"
+
+She froze. I hoped that I'd gotten through to her and glanced at the clock. Eight-fifty. I had to work fast, maybe I could promise to book her a hotel room and--
+
+"You self-centered slut."
+
+"...*Excuse me?*"
+
+"You know how badly I need a job! You knew I was perfect for the job of fashion critic and you wouldn't give up your job for me! You selfish whore!"
+
+"Melanie, you've lost it. Why don't you...?"
+
+"Are you trying to get rid of me?! You are, I can tell! Mom and Dad got rid of me, Grandma got rid of me when I sold her car, Uncle Jake got rid of me when I broke his microwave, my boyfriend left me, my bosses all hated me... Now even my own SISTER?!? Well, tough! You're not getting rid of me that easy!"
+
+She grabbed one of the antique bottles on Agatha's shelves and smashed it against the wall, sending glass shards to the floor before she came at me with the broken bottle.
+
+My self-preservation instincts took over and I ran for the first exit I saw: the back door.
+
+As I ran, the dolls' unearthly music began. I paled: I was too late.
+
+What would happen now that I'd broken the rule?
+
+"COME HERE, YOU FAMILY-BETRAYING WHORE!"
+
+I forgot about the dolls as my sister came at me, screaming like a banshee. I tripped over one of the patio's footstools, landing flat on my back. 
+
+She was on top of me in seconds, her eyes wide with madness as she tried to stab the broken bottle down into my neck.
+
+I pushed her back with all of my strength, my heart beating a thousand miles a minute.
+
+She was stronger than me, stronger than I would have expected. She started pressing the bottle against my neck, cutting into the skin--
+
+Then Melanie saw something behind me, and froze.
+
+"What the--?!"
+
+She was lifted off of me. My hands flew to my neck, gasping as I pressed against the cuts. I didn't have any trouble breathing, and to my relief the cuts were only flesh wounds. 
+
+Before I could get up I felt someone's arms lifting me. I turned, but, for once, I was relieved to see the female doll. 
+
+Muffled screaming turned my attention to the male doll, who was holding my sister.
+
+The female doll continued to hold me as she watched her partner walk out of the patio, the struggling Melanie in his arms. 
+
+From the front yard came the sound of the eerie music.
+
+With the female doll and myself as the audience, the male doll held Melanie in a bridal carry as he went to stand on a bare patch of grass. Then, he began a slow, single dance. It was a bit like a tap dance, only made more complicated due to carrying a struggling woman.
+
+As he spun her, though, Melanie seemed to enter a type of trance. He set her down, and she stood, a dopey smile on her face. Their dance became something more akin to a waltz, with him leading her in one dizzying turn after another.
+
+When the music began to crescendo, he took her into his arms again. She stared at him with wonder, a big smile on her face.
+
+The female doll then turned, making sure I was facing the door into the house instead of the male doll and my sister.
+
+There was the sound of ripping seams... then a blood-curdling scream. Melanie's scream.
+
+Then... Nothing.
+
+The female doll set me on the back patio's couch as the male doll came back.
+
+He was alone.
+
+The female doll put a hand on my throat, examining the cuts.
+
+Then she snapped, and I was out cold.
+
+The next morning, I turned on the news to find that the body of a woman had been found in the woods nearly a mile away. Her broken down car had been right next to her. Judging by the state of the corpse, the general consensus was that she'd been driving through the woods, decided to stop for whatever reason, and had been mauled to death by some sort of animal (with most people thinking it was a bear).
+
+I had a feeling I knew, but I wasn't about to say anything. Seeing as how Melanie managed to tick off anyone who knew her for more than thirty seconds, no one was grieving especially hard.
+
+Agatha heard the news and called me. Apparently, that wasn't the first time the dolls had come to someone's rescue.
+
+"Just be glad they enjoy an audience," she told me. Her tone was grim. "If they ever find that you had no reason to miss a performance..."
+
+A lump formed in my throat as I realized what she meant.
+
+Why am I saying all of this now?
+
+Agatha drafted her will yesterday. She's decided that she'll leave her house to me, to do with as I please. I've already decided to sell it: the money from such a sale would pay off the rest of my loans, and it's not like I need such a big house anyway. I finally managed to talk to Jeb, wondering if he could take the dolls when I sold the house. He said it was impossible: the house was now their home.
+
+It'll be a long while before Agatha passes (especially since she has a guaranteed way to recover if she's sick or injured). But when the time comes, be warned.
+
+If you happen to see a fancy mansion for sale, and are told of a list of rules that must be followed, follow them.
+
+They won't like it if They lose their audience.
