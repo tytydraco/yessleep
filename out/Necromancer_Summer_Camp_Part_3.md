@@ -562,7 +562,7 @@ I jumped up off the ground and huffed over to him, as he continued to point and 
 
 “It’s not funny!”
 
-With all of the strength I had in me, I gave him one good shove—the first act of violence I had ever committed in my life. He didn’t stop laughing as he lost his balance and started falling backwards onto the ground behind him. 
+With all of the strength I had in me, I gave him one good shove—the first act of intentional violence I had ever committed in my life. He didn’t stop laughing as he lost his balance and started falling backwards onto the ground behind him. 
 
 But the ground was no longer there—I had just seen it, how does something like that disappear? It was as if the space between James and the cliff had folded in the blink of an eye, and instead of falling back onto the soft ground next to the tree—James went backwards off the cliff. His laughter turned to silence. 
 
