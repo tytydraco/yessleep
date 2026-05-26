@@ -1,0 +1,65 @@
+My Aunt and Mom don’t talk anymore. I miss what used to be. Today, I got a call from my Mom, she was in tears. Aunt May went missing. I went to her old house, just to feel something I guess. I remember when me and Aunt May would dig in the dirt. I found her journal while I was there. It was in that creepy hole that Aunt May obsessed over. It scares me.
+
+I’m worried about my Aunt. I think I know where she went. Has anybody else had a similar experience? I’ll show you the pages below.
+
+
+
+My digging journal.  
+2/26/2000  
+There’s something deep underneath the ground. It wriggles and writhes, I can hear it scream. Its voice echoes through the town, pleading with the people to help it. But no one else hears its screams. 
+
+3/5/2000  
+I’ve started to dig in my back yard. My sister and nephew are scared for me. They always try to take my shovel away. But I need to help it.
+
+It begs me to. It needs to be free. Sometimes I stay out too late in the night, when the air turns cold. And I can feel how fragile my body truly is. My fingers feel like metal, with wires pulling them together, making them move. I can feel my blood, my veins, and muscles. And I’m reminded that one sharp stab would destroy my body and render it useless.
+
+4/28/2000  
+The creature's cries have grown quieter. It knows I’m helping it. I can feel it now, it’s whispering inside my head. It moves my muscles for me. I feel like a puppet on strings. But I can’t help but feel happy. Soon it will be free. 
+
+7/13/2000  
+My sister moved out yesterday. She said she couldn’t stand me digging in the backyard anymore. Does she not understand how important this is to us? I’ve told her why I’m digging, but she’s not listening!
+
+My nephew visits me on the weekends, he helps out with a little toy shovel. I was fired a week ago. Maybe, I don’t use my phone anymore.
+
+8/1/2000  
+It’s screaming again. Something is wrong. I don’t think I’m moving fast enough. I can hear it dying. I need something stronger. This shovel isn’t enough anymore.
+
+9/1/2000  
+What am I doing wrong? I’m getting nowhere. Nobody is listening to me, nobody is helping me! My sister won’t even let me see my nephew anymore! Maybe I should just stop? Is this even worth it? I don’t want to lose my
+
+9/2/2000  
+I was weak. That was just a moment of weakness. Everyday the hole is getting deeper and deeper. I need a ladder to get in and out of it now. I’m making good progress. This will work. Everybody will be sorry when they see me. They’ll believe me now!
+
+10/22/2000  
+I hit something, I’m getting closer to the creature. I think I accidentally ruptured its vein. I’m covered in liquid now. I need to drain the hole. But how will I do that? I have no money. They want us off this property.
+
+1/1/2001  
+They want us gone, but we can’t leave. Not yet. We still need to free. To free. 
+
+2/0/202013  
+It’s getting harder to see in the ~~cave~~ hole. Tunnel. It’s deeper, moist, soft, firm. I can feel whispers echoing in my ear whenever I’m down here. 
+
+299:92/929;20  
+The landlord can’t find me. They won’t find us. They’re too scared of us. The hole will protect us. I made sure of it. It’s here to protect us, it covers us. We won’t need protecting much longer.
+
+5/4/2001  
+I feel sick. I look at my dirt covered hands, and sometimes, I think I see blood.
+
+333333335  
+I don’t know what I’m feeling anymore, it hurts. My body is aware. I feel things not meant to be felt. I had a seizure yesterday. Caused me to throw up bile. We are sick, we are dying. This was a mistake. I’m just a puppet. A puppet a puppet a puppet a puppet.
+
+**There is no date. Time keeps moving.**  
+I am dead. I’ve been done for a while now. Yet my body keeps moving, I keep breathing, I keep whispering. I feel my skin rot, yet it’s never been healthier. I can feel my body dying, and I can’t do anything about it.
+
+It’s not the body. Our body is fine. It’s my mind. Your mind. Our mind. It’s rotting and rotting and withering away into black dust. Our mind can’t understand what we see, what we’re doing. It’s too great of a creature for that. Under here, in the flesh, lies something ethereal. It just wants to help. To help. It just wants to help. I’ve already had my use. I already did what needed to be done.
+
+Caleb, you will be our voice. You will speak of our existence. You will make the people love and understand us. Dearest Caleb, my most beloved nephew. Our most beloved nephew. When you hear our voice, don’t try to hide. Don’t try to fight it. Please just stand still and listen. Hear our voice, Caleb. We will call upon you soon. You’re almost ready. 
+
+*(I can’t transcribe this onto text. But underneath that paragraph is a scratched out square. It must have been a sentence, But I can’t read what was there. They don’t want me to read it.)*
+
+
+
+My Mom said that Aunt May had gone insane a long time ago. But the thing is, she didn’t. I can hear its voice and what it tells me is true. I’m not scared, I never was! I come to you now, to tell you something grand. Your Savior is here, under Elderberry Grove. 
+
+I must go now, leave you all with my words of wisdom. The doors have cracked open. Things are seeping out now. You better pray.
+
