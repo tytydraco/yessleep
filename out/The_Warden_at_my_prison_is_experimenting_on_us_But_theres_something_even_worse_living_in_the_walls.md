@@ -1,0 +1,401 @@
+The prison riot started over twenty dollars of debt. I don’t know who stabbed who first, but I blinked my eyes and then everybody had their knives out.
+
+The block filled with tear gas. The guards fired off rubber bullets while they yelled at us to lie on the ground. For hours, people kept screaming, though. I didn’t think the riot was ever going to end.
+
+By the time the guards finally had the prison under control again, fifteen people were dead. Two guards and thirteen inmates. Another thirty people were injured.
+
+The Warden blamed the riot on the gangs and gang politics. Florida’s Department of Corrections agreed and started sending known gang members to different prisons around the state, hoping that would ease the tension.
+
+I’d ended up in a prison in North Florida that everyone called The Plantation. The guards there were all white and racist. The Warden bragged about being a member of the KKK. The prison was owned by a private company that didn’t spend a penny more on its inmates than it had to. 
+
+The Warden made a point of introducing himself to every new inmate. After the guards de-loused me and searched me for weapons and drugs, The Warden called me into his office. He was a short, sunburnt man who wore a cowboy hat with his suit.
+
+“You’ve made a lot of bad decisions to end up here in my prison, Anthony,” he told me.
+
+“Yes, sir. I have.”
+
+“In and out of jail since you were twelve years old. Arrested for armed robbery and then drug trafficking and then murder. Your mother must be real proud of you. Does she still visit you?”
+
+“Not very often.”
+
+“I didn’t think so.”
+
+He slid a government form across his desk.
+
+“My whole life, I’ve been working in prisons,” he said. “I used to believe in rehabilitation, but I’ve learned it doesn’t work on men like you. To change, you need to want to change, but men like you don’t want to act better. If you wouldn’t do it for your own mother, why’d you do it for the state? You spare the rod, you spoil the child. That’s the truth. A boy who faces no consequences turns into a man who thinks he can get away with doing whatever he wants. Consequences are the only real cure for bad behavior.”
+
+I picked up the form. The title read, Informed Consent Document for Research. I skimmed the first few paragraphs. It was an agreement to participate in a trial for a new drug called Hyper-Cognexol.
+
+“What’s this?” I asked.
+
+“This is the consequence in my prison. If you don’t follow the rules, you go to solitary. Hyper-Cognexol makes a week in solitary feel like a month. It makes sure you have lots of time to re-think your decisions.”
+
+“I’m not signing this.”
+
+“You are, though, Anthony.”  The two guards in the hallway walked into his office. “Before you leave here, you’re signing it.”
+
+\*\*\*
+
+The nurse gave me two Tylenols to help with the pain of my broken finger. Then she taped my fingers together and said that was good enough.
+
+The guards brought me to my new cell on the second level of D Block.
+
+The prison was old. A hundred and fifty years, I’d heard. Each inmate got a cell to themselves, but the cells were in bad shape. Rusted bars, molded ceilings, cracked brick walls that sweat in the Florida heat.
+
+In the cell next to mine was an older inmate named Reggie. As soon as I’d gotten settled in, he introduced himself. He was part of the same gang as me. He already knew who I was, who my friends were, and what I was in for.
+
+He pointed at a tattooed inmate in a cell across from us.
+
+“That’s Carter,” he said. “He runs the block right now. As long as you do what he tells you, you’ll be fine.”
+
+“Is it pretty quiet here? Or have things been popping off?”
+
+“Quiet as hell. The Warden told you about the new drug he’s been trying out on us?”
+
+“I just signed the consent form.”
+
+“Everybody he’s sent to solitary has come back with their head all fucked up, ranting about a witch in the walls. Last time I got my hands on a phone, I emailed a few reporters and told them what The Warden’s been doing to us, but so far nobody’s done anything about it.”
+
+Reggie put a deck of cards on the walkway between us.
+
+“You know how to play gin rummy?” he asked me.
+
+“I can figure it out.”
+
+\*\*\*
+
+Out of all the guards, Hodges was the meanest. He was built like a linebacker. Ugly as hell. Bright red hair and freckled cheeks.
+
+As soon as he saw me, he hated me.
+
+“I heard about that riot at your old prison,” he told me. “Two guards dead. If I find out you’re one of the sons of bitches who cut their heads off, I’m going to make sure you have a real bad time here.”
+
+He pointed at the window above my toilet.
+
+“The last guy in this cell hung himself,” he told me. “Tied one end of his bedsheet to the window bars, the other end of the sheet around his neck, and then lay on the floor until he blacked out.”
+
+Hodges laughed and then kept walking through the block, making his rounds.
+
+I lay on my bed and watched TV.
+
+I couldn’t fall asleep. The first few nights in a new prison are always the worst. I wasn’t used to all the new sounds yet. The pipes creaking, the crickets chirping, the guards’ footsteps on the metal walkways.
+
+Then, around one am, I heard fingernails scraping across the brick walls of my cell.
+
+I thought it was a rat. I looked around my cell, but I didn’t see one.
+
+I kept watching the TV, but then I heard the scraping again. When I turned my head, I saw two yellow eyes watching me from a crack in the wall near my toilet. 
+
+I jumped off my bed and nearly screamed.  
+
+But then the eyes disappeared.
+
+\*\*\*
+
+The next morning, I told Reggie what I’d seen, but he didn’t believe me.
+
+“You must have been dreaming,” he said. “But there are rats all over this place. I wouldn’t be surprised if one ran through your cell.” 
+
+At eight am, the guards brought us our breakfast trays. A load of rock-hard “nutrient bread”.
+
+After eating, I watched a bit more TV, and then at ten, the guards took us outside for our hour of fresh air and exercise.
+
+In the yard, the guards locked me in a cage next to an inmate with a head full of grey hair. At first, I thought he was in his sixties, but when I got closer to him, his face looked younger than mine.
+
+“I’m Gaines,” he said, introducing himself.
+
+“My name’s Tony.”
+
+“I saw her watching you last night. She always watches the new inmates. She wants to see if they break.”
+
+“Who was watching me?”
+
+“The witch.”
+
+He looked down at the grass.
+
+He must be crazy, I thought. I decided he wasn’t worth talking to more than I already had.
+
+I tried to do a bit of exercise. Burpees, sit-ups, push-ups. The heat was horrible, though. Before long, I was soaked with sweat and panting instead of breathing.
+
+I sat on the grass near Reggie.
+
+“What’s Gaines in for?” I asked.
+
+“He used to be a bank robber, if you can believe it,” Reggie said.
+
+“He seems a little off.”
+
+“Last year, he stabbed a guard. The Warden gave him a big shot of Hyper-Cognexol and threw him into solitary. He did a year that I heard felt like a hundred.”
+
+I looked back over at Gaines. He sat with his arms around his knees, rocking back and forth while he mumbled to himself.
+
+“He hasn’t been the same since,” Reggie told me.
+
+\*\*\*
+
+That night, I was still having trouble getting to sleep. I lay in bed, watching TV, when—right at one am again—I heard fingernails scraping on the walls.
+
+“Anthony,” someone whispered. “You awake?”
+
+I looked back at my toilet, expecting to see those yellow eyes looking back at me, but the crack in my wall was empty.
+
+“Anthony,” they whispered.
+
+It was Reggie, I realized.
+
+I walked to my bars.
+
+“What?” I asked him.
+
+“Carter needs you to hide this in your cell for a few days.”
+
+He swung a tube sock over to me. I pulled it into my cell. Inside the sock was a chunk of metal filed into a knife.
+
+I thought about Gaines, rocking back and forth in the yard.
+
+“How long do I have to keep this here?” I asked.
+
+“I don’t know,” Reggie said. “For as long as Carter needs you to.”
+
+I looked around my cell, trying to think of somewhere I could hide it.
+
+A book? That was too obvious. Inside my toilet drain? But what if I lost it? 
+
+I ended up cutting a small hole in the side of my mattress and shoving the knife inside.
+
+Then I lay down on my mattress again and kept watching TV.
+
+“Anthony,” someone whispered.
+
+I went to my bars. “What?”
+
+“What?” Reggie asked.
+
+“Did you just say my name?”
+
+“No.”
+
+I looked at my toilet. Those yellow eyes blinked twice from inside the crack in my wall, and then they disappeared.
+
+I went to the crack and shoved my fingers inside it. They felt wet. When I took them back out, I saw they were covered with black mold. 
+
+\*\*\*
+
+The next day in the yard, the guards put me in a cage next to Gaines again.
+
+“I saw her again last night,” I said.
+
+Gaines nodded as he rocked himself back and forth on the grass.
+
+“What does she want?” I asked.
+
+“I told you. She’s waiting to see if you crack.”
+
+I tried to do a bit of exercise, but it was still too hot. I ended up just walking in circles around my cage for the rest of the hour.
+
+The guards cuffed us and brought us back to our cells. When I got back into D Block, I saw that while we’d been outside, the guards had tossed our cells.
+
+Hodges was still in the middle of tossing mine.
+
+He’d already thrown everything I’d bought from commissary onto the floor. Stomped all my chips and honeybuns and tubes of toothpaste into a paste.
+
+He put on a pair of gloves and searched my toilet, shoving his hand up the drain.
+
+“Is something wrong?” I asked.
+
+“We got a tip you’re hiding a knife in here.” He took his hand out of the drain and then stood back up. “Tell me where it is, and I’ll ask The Warden to go easy on you.”
+
+“I don’t know who’s making up stories about me,” I said. “But I don’t have a knife.”
+
+Hodges picked up my mattress and threw it against the wall. Then he started feeling to see if anything was hidden inside it.
+
+He noticed the hole I’d cut into the side.
+
+“I’m going to stick my hand in this hole,” he said. “If I cut myself, I’m going to be real fucking angry. So I’m going to ask you one last time, where’s the knife?”
+
+I’d shoved the knife pretty deep inside the mattress.
+
+Maybe he’d find it, but maybe he wouldn’t. It wasn’t a big knife.
+
+“There’s no knife,” I said.
+
+Hodges shoved his hand inside the mattress. Suddenly, he pulled it back out and shook his hand, flicking blood across the wall.
+
+“Son of a bitch!” he yelled.
+
+He’d cut his finger right open.
+
+I didn’t mean to laugh, but I did.
+
+Hodges shoved me into the wall and punched me in the stomach. Then he turned to the other guards.
+
+“I need to go to the infirmary!” he yelled. “One of you take this piece of shit to The Warden.”
+
+The guards cuffed me and led me down the walkway.
+
+Behind me, I heard one of the other inmates yell at Hodges, “I hope you get AIDS.”
+
+\*\*\*
+
+The Warden stood from his desk and took a metal box out of one of his drawers.
+
+“After that accident with your finger, I hoped you’d smarten up,” he told me.
+
+“I’m sorry, sir.”
+
+“Sorry’s not going to cut it anymore, Anthony. I’m already short on guards here. Now, Hodges is going to need to be off work for a few days, so he can get tested and make sure he didn’t pick up any diseases.”
+
+He opened the metal box. Inside was a needle and a vial of clear fluid.
+
+“At any other prison, you’d probably get ninety days in the hole for this. I’m going to give you ninety days, too, but with a shot of this that’s going to make those ninety days feel like a year.”
+
+“A year?”
+
+“And that’s only if Hodges’ blood tests come back clean. If you gave him anything, Anthony—” He laughed. “Well, you’re going to be spending a long, long time alone in the dark.”
+
+The other guards in his office grabbed onto me. Two held my arms while another two held my legs. Then a fifth pulled my pants down.
+
+The Warden jabbed the needle through the vial’s lid and then pulled the needle’s plunger back, filling the syringe with fluid.
+
+“I’m sorry,” I said. “Please don’t. I didn’t want to take the knife. I didn’t have a choice.”
+
+He stuck the needle into my thigh and then injected the Hyper-Cognexol into my muscle.
+
+My thigh burned, but the burning sensation quickly faded.
+
+I braced myself for time to slow down, but it didn’t. Not at first.
+
+The guards took me out of The Warden’s office and led me towards the hole.
+
+I smelled something like sulfur. I looked around the cells, and I saw those yellow eyes watching me from a crack in one of the walls.
+
+ “You see that?” I asked.
+
+The guards ignored me, though.
+
+We walked past a few more cells, and I noticed we were walking slower than we were before.
+
+I looked back at where I’d seen the eyes. My head turned like I was moving in slow motion.
+
+The eyes had moved into the hallway ceiling, right above my head.
+
+“Up there,” I said.
+
+I spoke slowly, too. My words sounded drowned out, like I was underwater.
+
+The guards dragged me into the stairway. It felt like an hour had passed when we finally got to the bottom of it.
+
+The stink of sulfur was even worse in the basement.
+
+The guards opened the metal door to one of the solitary cells, threw me inside the cell and then slammed the door shut.
+
+I sat in total darkness, not sure what was happening to me.
+
+I tried to stand, but I couldn’t tell how fast my body was moving, or if I was only moving faster in my head.
+
+I lost my balance, and I sat again.
+
+“Anthony.”
+
+I looked over my shoulder. Two yellow eyes stared at me from a crack in the wall.
+
+I tried to scream, but the only sound that left my mouth was a muffled whimper.
+
+\*\*\*
+
+Rats began to crawl out of the crack. Just a few at first, but then hundreds.
+
+They scurried across the floor, walking over my body.
+
+Every now and then, one of them would bite me. When they realized I couldn’t move, though, they all crawled on top of me.
+
+They ate my skin while I lay there screaming in agony.
+
+Days passed.
+
+I thought I would die, but I didn’t.
+
+Eventually, the rats got bored of me and crawled into the walls.
+
+For weeks, I lay there alone in the dark.
+
+I started to miss the rats. I missed the warmth on my body.
+
+Then those yellow eyes appeared again. In the ceiling this time.
+
+I heard a scratching underneath, like someone was crawling through the ground.
+
+Next to me, where there used to be cement, a grave appeared. My dead brother crawled out of it and sat beside me, the rotted flesh barely hanging to his face.
+
+He didn’t say anything to me. He just sat there with me. He still looked the same as he did the day he died. Only twelve years old.
+
+I’d only been two years older than him when it happened. I’d taken him to buy drugs with me. When I saw the dealer take out his gun, I ran, and I thought he’d run, too. But then three shots rang out behind me.
+
+I didn’t look back.
+
+It wasn’t until the police came to our apartment later that night to talk to my mom that I learned he’d been killed.
+
+“I’ve been so cold down there,” my brother said.
+
+I started crying.
+
+I cried for what felt like days, while the witch watched me from the ceiling.
+
+I didn’t think the nightmare would ever end, but then the metal door swung open and my cell filled with light.
+
+Hodges walked through the doorway.
+
+Ninety days, The Warden said. Had it been ninety days already?
+
+Hodges wasn’t there to free me, though. He was there to feed me. To make sure I didn’t die.
+
+He shoved a plastic tube down my throat, and force fed me some kind of liquid.
+
+For hours I lay there, gagging and struggling to breathe, tears running down my face and snot running from my nose.
+
+Then Hodges left.
+
+The yellow eyes appeared again.
+
+I didn’t know whose visits I hated worse.
+
+\*\*\*
+
+A year, The Warden had said. It would feel like a year. Maybe it did. How long does a year feel like? How long is a year when you’re trapped in hell?
+
+I didn’t realize the drug had worn off. Time still felt slowed. It wasn’t until Hodges spoke to me, and I heard him like he was supposed to sound, that I realized it was finally over. I wasn’t frozen in time anymore.
+
+“Time to go home, Anthony,” Hodges said.
+
+“How long has it been?”
+
+“Ninety days. Just like The Warden told you.”
+
+He brought me back to my cell. The Warden was waiting for me there.
+
+“Do you think you’ve finally learned your lesson, Anthony?” he asked.
+
+“Yes, sir.”
+
+“You’ve told Hodges you’re sorry?”
+
+“I’m sorry, Hodges.”
+
+“Good boy.”
+
+He patted me on the shoulder and left.
+
+“It usually takes some time readjusting,” Hodges told me. “But a few more weeks, and you’ll be fine.”
+
+I sat on my bed.
+
+Hodges left my cell too, locking the bars behind him.
+
+“I have a phone again,” Reggie whispered to me, after he was sure Hodges and the other guards were gone. “I’m going to try emailing a few reporters again to tell them what’s happening here.”
+
+I tried to ask him to give me the phone. I wanted to send a message to my mom and tell her I was sorry. But I still couldn’t talk. I’d been quiet for so long, I couldn’t remember how to move my lips.
+
+The witch cackled. I looked over at my toilet.   
+  
+Her yellow eyes stared at me from the crack in the wall.
