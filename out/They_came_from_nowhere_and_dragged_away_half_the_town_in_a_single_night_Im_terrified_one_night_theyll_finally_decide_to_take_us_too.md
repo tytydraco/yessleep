@@ -28,7 +28,9 @@ Then, like a fishing line being reeled in, the fingers retracted. 
 
 The force ripped her off her feet. She was briefly airborne. 
 
-Her hip crashed against the sidewalk, but I heard no painful *THUMP*, no shattering of bone, nothing at all. Because the silence never wavers. It’s an invisible current that surges through our town, swallowing everything in its path, silencing anything caught under its swell. 
+Her hip crashed against the sidewalk, but I heard no painful *THUMP*, no shattering of bone, nothing at all. 
+
+Because the silence never wavers once the sun sets. That's how we came up with its name. It's an invisible current that surges through our town, swallowing everything in its path, silencing anything caught under its swell. 
 
 A deadtide. 
 
