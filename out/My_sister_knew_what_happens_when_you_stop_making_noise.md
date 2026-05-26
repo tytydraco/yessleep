@@ -8,7 +8,7 @@ I just didn’t tell you why she knew.
 
 My older sister had it too.
 
-That’s how my mom would say it. She’d make it sound clean and medical because clean and medical is easier to live with. Family history. Early symptoms. Stress. Genetic predisposition. She’d say it runs in families.
+That’s how my mom would say it. She’d make it sound clean and medical because clean and medical is easier to live with. Family history. Early symptoms. Stress. Genetic predisposition. She’d say schizophrenia runs in families.
 
 Maybe she’s right.
 
