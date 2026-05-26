@@ -1,0 +1,179 @@
+I left something out of my [first post](https://www.reddit.com/r/nosleep/comments/1tmttx1/it_only_comes_when_im_quiet/).
+
+That sounds like I did it on purpose. I didn’t. Not really.
+
+I wrote the whole thing too fast. I was trying to explain my mom, and the bathroom, and what happened after I started hearing my own voice answer things. I mentioned my older sister because she was part of it. She remembered things I didn’t. She knew enough to tell me to delete the recording. She knew my mom used to hum beside my crib.
+
+I just didn’t tell you why she knew.
+
+My older sister had it too.
+
+That’s how my mom would say it. She’d make it sound clean and medical because clean and medical is easier to live with. Family history. Early symptoms. Stress. Genetic predisposition. She’d say it runs in families.
+
+Maybe she’s right.
+
+I’m trying not to dismiss that. I have a psychiatry appointment in nineteen days, and I’m going. I have a note in my phone with everything that’s happened. The normal stuff. The embarrassing stuff. The stuff that makes me sound like I shouldn’t be alone after sunset.
+
+Especially that stuff.
+
+But there’s another way to tell the story of my sister, and that version starts with the fact that she was never quiet.
+
+Not even in her sleep, according to the cousin she used to share a bed with during family trips. My sister came into rooms like a radio turning on. She sang along to commercials. She talked to teachers before class started. She had friends from different friend groups who somehow all thought they were her closest friend. She was the kind of girl who could sit next to someone at a bus stop and leave with an invitation to a birthday party.
+
+She made noise. That’s the easiest way to explain her.
+
+The TV was always on if she was doing homework. Her hair dryer ran with the bathroom door open. She played music from her phone speaker even when she had headphones sitting right beside her. When my parents argued, she’d call a friend and talk louder. When my mom murmured in the bathroom, my sister would stand in the hallway and yell, “Amá, I need to pee.”
+
+I used to hate her for it.
+
+When you’re the quiet kid, loud people seem careless. Like they don’t understand how thin walls can be.
+
+Now I think she understood better than any of us.
+
+The incident happened when she was eighteen and I was fourteen. I remember because she had just graduated high school, and I had just started learning how to disappear into my own body.
+
+It was December. The shortest day of the year.
+
+I looked that up last night because I needed to know if I made that part up. I didn’t. Winter solstice. Least daylight of the year.
+
+People talk like holidays are the lonely days. Christmas. New Year’s. Valentine’s Day. But at least those days announce themselves. The solstice doesn’t. It’s just a regular day that gets dark too early.
+
+That year, my sister’s friends were all gone. Some were already away at college. Some were visiting family. One was at some church retreat. Her boyfriend was out of town too, although later she said he wasn’t really her boyfriend, which was exactly the kind of thing she loved clarifying back then.
+
+For once, she had nowhere to go.
+
+Nobody to be loud for.
+
+She told my mom she was going to the store.
+
+She didn’t come home that night.
+
+At first, my parents fought about it instead of looking for her. My dad said she was eighteen and probably wanted attention. My mom said something was wrong. My dad said she was probably with a boy. My mom said she could feel it.
+
+I sat on the couch with my little sister beside me, both of us pretending to watch TV while their voices climbed over each other in the kitchen.
+
+My little sister was nine. She had one of those plastic charm bracelets that clicked whenever she moved. I remember that sound better than I remember what was on TV. Click. Click. Click. She kept turning the bracelet around and around her wrist, and the little plastic hearts and stars tapped against each other.
+
+By morning, my mom called the police. They asked all the questions people ask when they already don’t plan on helping much. Was my sister eighteen? Yes. Did she have her car? Yes. Had she run away before? No. Was there proof she was in danger?
+
+My mom said, “She is never quiet.”
+
+I don’t know what they said after that. I only know my mom hung up and screamed into a towel so my dad wouldn’t hear how scared she was.
+
+My sister was gone for three days.
+
+Three days is not that long unless someone is missing. Then it’s endless. You start thinking about every awful thing you ever said to them. You start picturing their body in places bodies should not be. Ditches. Motel rooms. Trunks.
+
+On the second night, my mom stopped sleeping. She sat in the living room with a Virgin Mary candle burning on the coffee table and religious music playing from a little speaker near the kitchen. Not loud. Just constant. A thin choir voice running under everything.
+
+My dad told her to turn it off.
+
+My mom said, “No.”
+
+The same no she used in the bathroom.
+
+On the third afternoon, my sister came home.
+
+She parked crooked in the driveway, half on the grass. We heard the car door slam, and my mom ran outside so fast that the screen door hit the wall behind her. I got to the window in time to see my sister standing there in the winter light.
+
+Same clothes she’d left in. Jeans. Boots. Thin black sweater she loved because she thought it made her look older. Her hair was down and tangled at the ends. From the window, her face looked normal.
+
+That was the bad part.
+
+My mom tried to hug her. My sister flinched so hard she almost fell.
+
+“Don’t,” she said.
+
+Her voice was gone. Not raspy. Not sick. Gone. Like she had spent the last three days screaming, or like she hadn’t spoken once.
+
+She walked inside without looking at us and went straight to the living room.
+
+My dad started immediately. Where were you. Do you know what you did to your mother. Are you stupid. Are you on something. Answer me.
+
+My sister sat on the couch and stared at the carpet.
+
+My mom told him to stop. He told her not to tell him what to do in his own house. Then they were fighting, and for one second, the house felt normal again.
+
+I was relieved.
+
+I hate that, but I was. My sister was home. My parents were yelling. The religious music was still playing. The TV was on. The refrigerator was humming. My little sister’s bracelet was going click, click, click beside me.
+
+Noise everywhere.
+
+My sister closed her eyes.
+
+For one second, she looked peaceful.
+
+Then the power went out.
+
+The TV snapped black. The refrigerator cut off. The music died in the middle of a note.
+
+The whole house went quiet so fast it felt like getting slapped.
+
+My dad said, “Great.”
+
+My sister opened her eyes.
+
+I need you to understand something. I’ve replayed this memory so many times I don’t even trust it anymore. I know kids remember things wrong. I know fear edits. For years, I told myself what happened next was a seizure. A panic attack. Drugs. Something medical. Something with a clipboard and a name.
+
+But last week, after everything started happening to me, I called my little sister and asked what she remembered about the day our older sister came home.
+
+She said, “Do you mean when she did that thing with her body?”
+
+So I’m going to tell you what I saw.
+
+My sister’s head turned toward the hallway first.
+
+Just her head.
+
+Slowly.
+
+Like something had called her from the dark part of the house.
+
+Then her upper body followed, but not right. Her spine bent too far. Her chest faced one way and her hips faced another, and I remember the skin on her neck stretching pale and tight. I remember her mouth opening.
+
+My dad said her name.
+
+She answered with a sound I have only heard one other time since: from my own bathroom fan, two nights ago, when I turned it off too fast.
+
+It wasn’t a scream.
+
+Screams are human. Even ugly screams have a person inside them. This was a roar made out of thin metal and breath, like a needle dragging across a record while someone laughed underneath it. It cracked. It popped. It skipped.
+
+It came out of my sister’s mouth, but it did not belong to her throat.
+
+My little sister started crying. My mom shouted a prayer. My dad grabbed my older sister by the shoulders and tried to hold her down.
+
+He couldn’t.
+
+That’s another thing I spent years explaining away. Adrenaline. Panic. People get strong when they’re scared. Bodies do weird things. I know all that.
+
+But my dad was bigger than her, and my mom was helping, and my sister lifted them both off balance like they were kids trying to hold back a rabid dog.
+
+Her hands clawed at the couch. Her back arched. Her heels hit the floor hard enough to leave black marks. She kept making that sound, not all at once, but in bursts. Each one ended with this wet, smiling click in the back of her mouth.
+
+Then the house made a noise.
+
+A little tune.
+
+Very faint.
+
+From somewhere near the bathroom.
+
+Three notes, then a pause.
+
+Three notes again.
+
+My sister stopped fighting.
+
+Her eyes moved toward me.
+
+I was standing in the hallway with my hand over my mouth. I don’t remember putting it there. I think some part of me already knew I couldn’t let any sound out.
+
+My sister looked at me like she had never seen me before.
+
+Then she said, in a voice so clear it cut through everything:
+
+“Not her.”
+
+That was the first time I realized my sister wasn’t the one it wanted.

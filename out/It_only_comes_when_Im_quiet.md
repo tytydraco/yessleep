@@ -66,15 +66,9 @@ When you grow up in a house where something is always almost happening, quiet be
 
 I also learned not to talk to myself.
 
-This is where it gets stupid, and I know that.
+Everybody talks to themselves. People rehearse arguments in the car. People narrate recipes when they cook. People sing in the shower. There are studies about it, I think. There’s probably a very normal explanation for why humans fill empty rooms with their own voices.
 
-Everybody talks to themselves.
-
-People rehearse arguments in the car. People narrate recipes when they cook. People sing in the shower. There are studies about it, I think. There’s probably a very normal explanation for why humans fill empty rooms with their own voices.
-
-But in my house, talking when nobody was there meant something else.
-
-So I didn’t do it. Not even as a joke.
+But in my house, talking when nobody was there meant something else. So I didn’t do it.
 
 If I dropped something, I didn’t say “oops.” If I was looking for my keys, I didn’t mutter, where did I put them? If a song got stuck in my head, I kept it there.
 
@@ -82,27 +76,19 @@ My mouth became the one door in the house I could keep shut.
 
 I’m telling you all this because three weeks ago, I heard my mother’s bathroom voice come out of my own mouth.
 
-I moved into a small studio last year, the kind with gray fake-wood floors and a kitchen too narrow for two people to stand in unless one of them is okay being pressed against the fridge. My bathroom has no window. Just a fan that turns on with the light and makes an uneven clicking sound every few seconds.
-
-I hate that fan. I hate the bathroom in general, honestly. Still, I had mostly gotten used to it.
+I moved into a small studio last year, the kind with gray fake-wood floors and a kitchen too narrow for two people to stand in unless one of them is okay being pressed against the fridge. My bathroom has no window. Just a fan that turns on with the light and makes an uneven clicking sound every few seconds. I hate that fan. I hate the bathroom in general, honestly. Still, I had mostly gotten used to it.
 
 Then, three weeks ago, I got home from work so exhausted I felt hollowed out. I dropped my bag by the door, kicked off my shoes, and stood in the kitchen for a while without turning on the light.
 
-Eventually I took a shower. The water was too hot. The fan clicked. The pipes made that old knocking sound behind the tile, exactly like the pipes in my childhood home.
+Eventually, I took a shower. The water was too hot. The fan clicked. The pipes made that old knocking sound behind the tile, exactly like the pipes in my childhood home.
 
 I was shampooing my hair when I heard someone say:
 
 “Finally.”
 
-I turned so fast I slipped and hit my shoulder against the wall.
+I turned so fast I slipped and hit my shoulder against the wall. The shower curtain stuck to my leg. Water ran into my eyes. For a second I couldn’t breathe.
 
-The shower curtain stuck to my leg. Water ran into my eyes. For a second I couldn’t breathe.
-
-No one was there.
-
-Of course no one was there.
-
-I live alone.
+No one was there. Of course no one was there. I live alone.
 
 I turned off the water and stood there dripping, listening.
 
@@ -136,7 +122,7 @@ She sounded normal. Tired, but normal.
 
 I almost hung up.
 
-Instead I asked, “When you used to talk in the bathroom, who were you talking to?”
+Instead, I asked, “When you used to talk in the bathroom, who were you talking to?”
 
 The line went quiet. Not silent. But quiet. I could hear a television somewhere in the background and the soft scrape of her hand over the phone mic.
 
@@ -176,7 +162,7 @@ I didn’t say anything.
 
 I wanted her to tell me something comforting after that. I wanted her to say she had been very sick then, that brains make patterns out of plumbing and loneliness, that I should call a doctor. I wanted her to become the adult in the room for once and hand me a normal explanation.
 
-Instead she asked, very softly, “Has it started with you?”
+Instead, she asked, very softly, “Has it started with you?”
 
 I hung up.
 
@@ -186,7 +172,7 @@ I read about genetic risk. I read about onset ages. I read about auditory halluc
 
 I made an appointment with a psychiatrist. The earliest available was six weeks out.
 
-That night, I did not shower. The night after that, I didn’t shower either. By the third day my hair was greasy enough that I felt disgusting, so I stood outside the bathroom door for ten minutes with a towel under my arm like an idiot.
+That night, I did not shower. The night after that, I didn’t shower either. By the third day, my hair was greasy enough that I felt disgusting, so I stood outside the bathroom door for ten minutes with a towel under my arm.
 
 Then I turned on music from my phone. Not loud. Just loud enough to make the room feel occupied. I showered with the curtain half open and the bathroom door unlocked. I kept my eyes open when rinsing my face. I said nothing.
 
@@ -196,7 +182,7 @@ For almost a week, nothing happened.
 
 When you’re scared something is wrong with you, you start to miss the symptom because at least the symptom gives shape to the fear. Without it, the fear spreads everywhere.
 
-I started noticing how much everyone talks to themselves. My coworker whispered “come on, come on” at the printer. A woman in the grocery store sang one line of a song over and over while choosing tomatoes. My neighbor across the hall had entire conversations with his dog in a cartoon voice. On the bus, a man in a suit muttered numbers under his breath and tapped each finger against his thumb.
+I started noticing how much everyone talks to themselves. My coworker whispered, “Come on, come on,” at the printer. A woman in the grocery store sang one line of a song over and over while choosing tomatoes. My neighbor across the hall had entire conversations with his dog in a high-pitched voice. On the bus, a man in a suit muttered numbers under his breath and tapped each finger against his thumb.
 
 Normal things. Human things. Except they didn’t feel normal anymore.
 
@@ -206,7 +192,7 @@ Singing in the shower. Talking through panic. Praying. Counting. Practicing a di
 
 The second time happened in the kitchen.
 
-I was chopping onions. The knife slipped, not badly, just enough to nick my finger. A bright red bead of blood rose up before I felt anything.
+I was chopping onions. The knife slipped, not badly, just enough to nick my finger. A bright red bead of blood rose before I felt anything.
 
 Without thinking, I said, “Shit.”
 
@@ -222,11 +208,7 @@ I don’t know how else to describe it.
 
 You know those very old cartoons from the 1920s or 30s? The black-and-white ones where everything moves too fast and too slow at the same time? The characters have rubber arms and dead little eyes and smiles that don’t belong to mouths. They bounce, but not happily. Like the film itself is having a seizure.
 
-The hallway looked like that for half a second.
-
-Like the hallway had become a frame from somewhere else.
-
-Jagged at the edges. Flickering. Too many shades of gray.
+The hallway looked like that for half a second. Like the hallway had become a frame from somewhere else. Jagged at the edges. Flickering. Too many shades of gray.
 
 Then it was normal again.
 
@@ -238,13 +220,7 @@ I put my phone on the bathroom counter when I showered. I left voice memos runni
 
 For four nights, the recordings caught nothing but me being alive.
 
-On the fifth night, the sleep recording caught whispering.
-
-I found it in the morning because there was a spike in the audio around 2:12 a.m.
-
-At first it sounded like static.
-
-Then I turned the volume up.
+On the fifth night, the sleep recording caught whispering. I found it in the morning because there was a spike in the audio around 2:12 a.m. At first it sounded like static. Then I turned the volume up.
 
 My own sleeping breath filled the room through the speaker.
 
@@ -334,7 +310,7 @@ Her hands went to her mouth.
 
 The water stopped. Neither of us moved. Then something knocked from inside the bathroom. Three polite taps, like knuckles on wood.
 
-My mom began to cry silently. Her whole face folded inward but no sound came out.
+My mom began to cry silently. Her whole face folded inward, but no sound came out.
 
 I think that scared me more than the knocking. My mom has always been noisy in her fear. Prayers, apologies, little bargains under her breath. But now she was silent. She was quiet in her own house.
 
@@ -350,7 +326,7 @@ Black.
 
 Gray.
 
-A cartoon dark.
+Dark.
 
 Something moved inside with that old-film jerkiness, not walking but appearing in pieces. A white glove first. Or something like a glove. Four long fingers opening and closing too slowly.
 
@@ -400,7 +376,7 @@ My mom has not answered my calls since.
 
 My psychiatry appointment is still three weeks away. I am trying to be rational. I'm trying really hard.
 
-I have written down everything that happened so I can show it to the doctor. I have been sleeping with lights on. I stopped recording myself because listening made it worse. I do not shower without music. I do not cook without a podcast playing. I do not allow silence to gather in the studio.
+I have written down everything that happened so I can show it to the doctor. I have been sleeping with the lights on. I stopped recording myself because listening made it worse. I do not shower without music. I do not cook without a podcast playing. I do not allow silence to gather in the studio.
 
 But it has started finding the gaps.
 
@@ -420,7 +396,7 @@ But before you decide, I want you to do something. Not now, if you don’t want 
 
 Later. When your home is quiet.
 
-Stand in your bathroom with the fan on. Or your kitchen with the sink running. Or your car after you turn the engine off and the world rushes in around you. Notice how quickly your own voice wants to fill the space.
+Stand in your bathroom with the fan on. Or your kitchen with the sink running. Or your car after you turn the engine off, and the world rushes in around you. Notice how quickly your own voice wants to fill the space.
 
 A hum.
 
