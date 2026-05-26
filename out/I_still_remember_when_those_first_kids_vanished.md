@@ -1,0 +1,65 @@
+[Part I](https://www.reddit.com/r/nosleep/s/bkdrB9SYnz)
+
+The night air bit through the thick cotton of my jacket with fangs made of pure ice as I spoke aloud to my deputy, “You never forget how inhuman the screams of a wailing mother can be when you tell her that her baby isn’t coming home.”
+
+I squatted down against the splintered concrete beneath me, “That’s one of the only parts of the job that I regret having to do that every once in a while. My heart hurts for the mother I’ll have to tell that her baby found their way back but still isn’t coming home.” My eyes fell onto the broken mass of flesh that was once a young man ahead of me.
+
+No doubt that it was one of the kids.
+
+Whenever we were called out to this back road, my last expectation was to find the tarnished and bloodied corpse of a possible years-long missing kid. There was no identifiable cause of death besides the cracked bones sticking out from between the fleshy folds of the body. My deputy puked his guts out at the site of it.
+
+About a mile away from the body was a set of tire marks that were left behind as a burnout; but I only figured to chalk that up to teens attempting to drag race in a secluded area. With all the shittiness going on over the last few years, I figured they needed some kind of angsty outlet.
+
+Back when I originally ran to be sheriff of this little community, I expected to have to deal with minor drug incidences, maybe some domestic situations here and there. I didn’t expect to ever have to deal with anything close to the fog.
+
+After about a year or so of being elected, the fog stretched over our sleepy little town like Death himself was reaching over us with his accursed hand. More and more kids vanished, and I had to admit the large growths of failure that had fallen upon me. The only thing I could really do was to make sure to enact a curfew.
+
+***No one under the age of 18 out past midnight***.\*
+
+We did our due diligence by running the ads with the radio broadcast routinely, but nothing was able to stop the fog.
+
+Just two months prior to this, we had a group of young adults vanish during a graduation party. The community was in shambles as we all assumed that this curse was beginning to get worse; then the fog surprised us by receding. Some of us began to heal by accepting that this nightmare was finally over. Others couldn’t bring themselves to that reality as their own children were just seemingly gone. From what I’ve heard, there are possible reports of small vigilante groups out there trying to chase the fog; but for now, that’s none of my business.
+
+At least, that was my thought before a body mysteriously showed up on this dark county road. The young man wasn’t very recognizable, and he was damn near naked besides a pair of torn jeans hanging loosely from his shattered hips. We took our photos and notes to do the little that we could by the time the coroner finally arrived, rubbing sleep from his eyes.
+
+“Any idea who it could be?”
+
+I let out a slow breath, “Not yet, no identification on him, and barely any recognizable features. Just that it’s a young male with dark brown hair, the rest is what we have you for.”
+
+I gave him a light pat on the back, and he gave me a slight sarcastic chuckle in response. It took all three of us, including the deputy, to carefully get the crumpled mass of meat into the coroner’s car.
+
+“Good luck,” I gave him a slight sarcastic wave and turned to my deputy, “I need a smoke.”
+
+With the scene cleared and the body on its way to be examined, I had that smoke. I made my way back to the station to write up my report of tonight’s events. Now, with just minutes until I got there and not even halfway through my second cigarette, my radio chirped to life with a curious message from dispatch.
+
+“Hey, chief,” their voice rang with slight annoyance, “Donnie over at the coroner’s office says he needs you to stop by immediately.”
+
+I sighed and carelessly smudged out my cigarette, then flicked it in my make-shift cup holder ashtray, “Heading that way.”
+
+My hand flipped the wheel, which caused the tires to spin into what was, possibly, an illegal U-turn; making short drive of a few miles back that way. It was now 4:45 a.m. and my groggy attitude was starting to take hold of me as I felt a tinge of annoyance with Donnie start to grow in me. That was until I saw him pacing outside of the building.
+
+From his body language, I could tell he was scared. This made me worried because Donnie is cold as steel; I’ve never seen him get scared.
+
+As soon as my boots hit the firm ground, he rushed over to me. He pointed inside with a trembling hand with no words. I made my way inside then down the harshly lit hallway into the only room with any sign of occupancy.
+
+Lying on the cold steel autopsy table was a body. At first, I looked past it while looking for the familiar shape of the crumpled corpse that was just brought in. Every other table was empty then my eye caught the way this body’s hair was the familiar shade as ours. Donnie slithered slowly into the room with his back against the wall. “He, uh, he unfolded himself.”
+
+“What?”
+
+“The body,” his voice trembled, “after I brought it in…I heard the bones snap and pop, and he…did that.” The same trembling finger pointed towards the perfect looking corpse.
+
+“Could that be rigor mortis?”
+
+“Rigor…?” Donnie seemed baffled, “Are you fucking stupid? How could that be rigor mortis?”
+
+“Woah,” I raised my hands in surrender, “I’m just trying to be logical.”
+
+My eyes scanned down the corpse. There were no signs of trauma visible on him; his skin was almost fresh with a shine to it along with its blubbery and soft features. Just like it was brand new, never marked by the long life you’d expect it to have lived. I placed the back of my hand against his chest and jumped from what I felt beneath it.
+
+“What?” Donnie asked.
+
+“He’s,” My voice trailed off, struggling to find the words, “…breathing.”
+
+At that moment, the corpse arched its back while it writhed against the table. A low moan echoed from the mouth, and the eyes flicked open in panic. I ran as far as I could from the commotion and found myself cower against the wall with Donnie as the now-living corpse raised up on its elbows from the table. Greasy yellow bile escaped from its mouth, the smell was foul and filled the room quickly. His eyes settled to a newly found calmness then they looked over to us.
+
+“Where am I?” He spoke out in a long unused, and raspy voice.
