@@ -12,21 +12,11 @@ In daylight, hiding was impossible. Someone always spotted your shirt behind a t
 
 It was a few weeks before school started again. That's probably why we stayed out so late that summer. Nobody wanted it to end.
 
-"You're cheating," I yelled at Billy as he ducked behind a car.
-
-"Am not! Just being strategic"
-
-"You don't even know what strategic means."
-
-"Do so," he shot back. "It means smart."
-
-"Then why are you losing?" I said laughing.
-
-We'd been best friends since second grade. Our moms trusted us enough to let us roam between the houses on our block as long as we stayed where the porch lights were visible. During the summer, that basically meant we were free.
+Billy and I had been best friends since second grade. Our moms trusted us enough to let us roam between the houses on our block as long as we stayed where the porch lights were visible. During the summer, that basically meant we were free.
 
 There were other kids out that night too. Bikes abandoned in lawns. Someone's baseball glove in the gutter. Normal summer stuff.
 
-I remember Melissa Turner talking about the missing kid first.
+I remember Melissa talking about the missing kid first.
 
 "You know they still haven't found him," she whispered.
 
@@ -36,13 +26,7 @@ That got everyone's attention immediately. Kids love scary things when the sun i
 
 "My cousin said they found blood on it."
 
-"You're lying."
-
-"Am not!"
-
 Billy rolled his eyes and looked at me. "They're making stuff up again."
-
-Melissa crossed her arms. "No I am not. My dad said kids disappear every summer."
 
 One of the older boys lowered his voice.
 
@@ -66,7 +50,7 @@ Billy leaned toward me and muttered, "They're idiots."
 
 I laughed, but lacked the confidence of knowing whether or not scratching things were nabbing kids at night.
 
-The light was changing now. The glow from the horizon had started to fade, and the streetlights woke up one by one. That was usually the signal. Time to go home.
+The light was changing now, and the streetlights came on one by one. That was usually the signal. Time to go home.
 
 "Michael!" my mom called from somewhere down the street.
 
@@ -76,7 +60,7 @@ We started walking our usual route toward the corner where we'd split up. My hou
 
 We'd had the same routine for almost two years. One of us would run to our corner first and stand under the streetlight while the other watched. Then we'd switch. 
 
-It started after some high school kids drove through the neighborhood one night yelling at us from their car. After that, Billy said we should make sure the other made it safely to the lights. Thirteen-year-olds have strange ideas about safety. Still, we did it every night.
+It was silly, but still, we did it every night.
 
 Billy stopped at his usual spot and pointed dramatically down the street.
 
@@ -86,39 +70,31 @@ Billy stopped at his usual spot and pointed dramatically down the street.
 
 Then together, like always, we said, "Get there before your shadow does."
 
-It was stupid because by then the shadows were mostly gone. But routines matter when you're kids.
-
 Billy sprinted first. I watched him run under the streetlight at the opposite corner, shoes slapping pavement. Once he reached the light, he turned and threw both arms into the air victoriously.
 
 "Too slow shadow!" he yelled.
 
-I ran next, laughing as I crossed the street toward my corner. Arms out like I was a plane gliding through the night sky. When I reached the light, I turned back toward Billy. He waved. I waved back. 
+I ran next, laughing as I crossed the street toward my corner. When I reached the light, I turned back toward Billy. He waved. I waved back. 
 
 Then my mother called my name again from the front porch. I looked over my shoulder toward the house.
 
 "Coming!"
 
-When I turned back, Billy wasn't waving anymore. He was looking behind him. Not toward his house, but past it. At something farther down the street. I remember that his expression had changed. The joking look was gone. He looked confused. 
+When I turned back, Billy wasn't waving anymore. He was looking backward, past his house at something farther down the street. I remember that his expression had changed. He looked confused. 
 
-Behind him, stretched across the sidewalk by the streetlight, was another shadow. At the time, I thought it was probably his sister. Rachel snuck out sometimes with older kids and came home late, pretending she’d been there the whole time. I figured maybe she'd walked up behind him, trying to scare him.
+Behind him, stretched across the sidewalk by the streetlight, was another shadow. At the time, I thought it was probably his sister. Rachel snuck out sometimes with older kids and came home late,. I figured maybe she'd walked up behind him, trying to scare him.
 
 My mom called again, louder this time. I looked back toward the porch. She was standing in the doorway now. When I turned around again to say good-bye to Billy, he was gone. His corner was empty. I remember just standing there under the streetlight, staring.
 
 Billy had always messed around. Hidden behind bushes. Ducking behind parked cars. Trying to scare me. But something felt different. I could see his house down the block. The porch light was on, the TV flickering blue through the window. But no Billy.
 
-My mother called my name one more time, sharper this time, the way parents do when you're in trouble. Suddenly I didn't want to stand out there anymore. I turned and ran home. I burst through the door breathing hard enough for my mom to notice.
+My mother called my name one more time, sharper this time, I could tell she was mad. Suddenly I didn't want to stand out there anymore. I turned and ran home. I burst through the door breathing hard enough for my mom to notice.
 
-"Why are you running?" she asked from the kitchen.
-
-I looked back through the screen door toward the street.
-
-"I dunno."
-
-She gave me the kind of suspicious parent look that meant she knew I was leaving something out, but after a second she just told me to wash up because dinner was almost ready. I remember standing at the sink pretending to rinse my hands while staring out the kitchen window toward Billy's street. Part of me expected him to come sprinting around the corner laughing. I waited an extra second. He never came.
+She just told me to wash up because dinner was almost ready. I remember standing at the sink pretending to rinse my hands while staring out the kitchen window toward Billy's street. Part of me expected him to come sprinting around the corner laughing. I waited an extra second. He never came.
 
 During dinner my parents talked about normal adult things while I pushed food around my plate pretending to eat. I kept thinking about the way Billy had looked over his shoulder, like he'd heard someone call his name from far away.
 
-After dinner I sat in my room listening for the sound of bikes outside or kids yelling in the street. Nothing. I laid in bed trying to block everything out and hold on to one Billy. But sleep finally won out. 
+After dinner I sat in my room listening for the sound of bikes outside or kids yelling in the street. Nothing. I laid in bed trying to block everything out and hold on to one thought, Billy. But sleep finally won out. 
 
 A few hours later, voices woke me up. Adult voices. I stayed still in bed listening to them through the hallway. My parents were downstairs talking to someone at the front door. Even half asleep, I recognized Billy's father immediately.
 
@@ -154,7 +130,7 @@ My mother frowned. "What thing?"
 
 "The thing the older kids were talking about."
 
-For a second she just stared at me. Then she crossed the room, sat beside me, and brushed my hair back from my forehead.
+For a second she just stared at me. Then she came and sat on my bed.
 
 "There is no ‘thing’," she said. "He’s just being Billy. Tomorrow you'll be outside playing with him again."
 

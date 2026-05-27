@@ -336,7 +336,7 @@ She turned back to face me and froze. She cocked her head to the side, scanned m
 
 “You’re grinning like you won the lottery.”
 
-“Like hell I am” Despite myself, my hands flew to my face, fingers skimming over my chapped lips and chin just to make sure. “I’m not in the mood for that.”
+“Like hell I am.” Despite myself, my hands flew to my face, fingers skimming over my chapped lips and chin just to make sure. “I’m not in the mood for that.”
 
 Flavie studied me with unreadable eyes, then breathed out a sigh when I still didn’t relent. She didn’t press further or ask any specific questions. I could tell she was also spooked by the night’s abrupt turn of events, but she wanted to steady me first. Yeah, I really liked Flavie.
 
@@ -400,7 +400,7 @@ Neither of us apologized. She retrieved her blindfold and the lights stayed on.
 
 We went to back to bed in silence. It was awkward.
 
-Her mattress was a bit too small for two grown women, so I could feel the stiff line of her body pressed up against mine, the heat of her skin leaking into my clothes. I could sense that she was understandably still just as frightened as me—and probably of me—because she wouldn’t stop trembling. Like she didn’t know whether she wanted to inch closer to me or farther. I’m just glad she didn’t banish me to the couch.
+Her mattress was a bit too small for two grown women, so I could feel the stiff line of her body pressed up against mine, the heat of her skin leaking into my clothes. I could sense that she was understandably still just as frightened as me—and probably *of* me—because she wouldn’t stop trembling. Like she didn’t know whether she wanted to inch closer to me or farther. I’m just glad she didn’t banish me to the couch.
 
 I didn’t fall asleep again. I didn’t dare open my eyes either.
 
@@ -412,7 +412,7 @@ The third night, Flavie called me crying.
 
 “You were at my apartment just earlier.”
 
-My mouth went dry instantly. My hands stopped towelling my hair dry and dropped back down to hang limply at my sides. The towel fell to my feet, which suddenly felt encased in ice.
+My mouth went dry instantly. My hands stopped towelling my hair and dropped back down to hang limply at my sides. The towel fell to my feet, which suddenly felt encased in ice.
 
 “What?” I rasped. “I’m not—*I didn’t*—I’m in my room! But not my apartment, I—”
 

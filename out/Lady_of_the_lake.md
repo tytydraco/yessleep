@@ -1,33 +1,34 @@
-I'm 25 or 26 I am not sure anymore my memory is a bit hazy and time flies by so quickly but I'm here today to write down my memory so I do not forget. 
-
-It was a warm typical Finnish summer and I was enjoying myself chatting with my friends at the beach. Untill I met her or more like saw her. The most beautiful woman I've ever seen. Water glistening against her skin as she rose from the lake at that moment I thought to myself she is the only thing I ever want. I was drawn to her it felt like my body was taken over by something. My limbs moved slowly on its own towards her I stood up and I walked to her my eyes locked on her the whole way.
-
-I did not care about my friends silly remarks "uh oh hide your weomen sven is on the prawl". I only cared for her.
-
-I went up to her and said hello my name is Sven Ragnar. She replied hello Sven my name is Lilith.
-
-Her voice did not match the summer. It was low, calm, like ice. When she said my name, I swear the lake behind her stopped moving. No ripples. No sound. Just her eyes, dark and wide, reflecting me back at myself, but wrong somehow. Younger. Hungrier. So much hungrier like I was a starved. I like she was the only thing that could feed me.
-
-She smiled, and the gulls went quiet.
-
-“Do you swim often, Sven Ragnar?” she asked, tilting her head. Giving me a creepy smile while water kept running down her hair, but her skin was dry. I only noticed it later. Much later.
-
-“Every day,” I lied. I hadn’t been in the lake all summer. My friends I couldn’t even remember their names anymore. When I glanced back at the beach, the towels were there, the volleyball half-buried in sand, but the people were gone. Or maybe they’d never been there. The sun was still warm, but I felt cold.
-
- 
-
-I shook my head breaking myself from her glance. In that moment everything went back to normal. The Birds Sang, kids playing in the sand and my friends chatting.
-
-Lilith stepped closer. The sand didn’t shift under her feet. Not willing to set me free from her illusion “The lake is nice this time of year,” she said. “It remembers everyone who goes in. Do you want it to remember you?” do you want to be remembered forever? Loved for ever?
-
-I nodded. Sucked right back into her illusion I felt such an intense emotion of love that I have never felt in my life ever before. My throat was dry. I should have ran. I should have asked where did everyone go. Instead I said, “Yes. Take me”
-
-She took my hand. Her fingers weren’t cold. They weren’t warm either. They were… absent, like touching a place where something used to be. 
-
-“Then come in,” she whispered. “Just for a moment. So I can hold you.”
-
-The last thing I remember was the water closing over my head. It wasn’t wet. It was like falling into a dream where I felt the most intense amount of pleasure I had ever felt in my life it felt so good that I never wanted to leave.
-
-Eventually I woke up on the shore coughing up sand. And I ran and i ran and ran so long so fast and so far untill I was coughing up stomach acid. As I fell from exhaustion I had one thing on my mind NEVER GO BACK.
-
- Because deep down I knew if I ever went back I would never want to leave again
+The glowing cherry of my cigarette was the only light by the edge of the water. It was a perfect full moon night, peaceful, still, the kind of night where you just want to sit and take in the view.  
+Then, the water rippled.  
+I looked out across the lake and my breath caught in my throat. A woman was out there. She wasn't swimming, and she wasn't drowning, she was walking right on top of the water like Jesus, stepping across the surface as if it were solid glass. She was moving slowly, directly toward me. Her body was draped in a flowing, pure white full dress that seemed to glow under the moonlight. I couldn't make out a single feature of her face because everything was a blurred, shifting shadow, except for her eyes. They were wide, luminous, and locked entirely on me.  
+My instincts screamed. My heart raced, pounding against my ribs so hard it felt about to burst. I dropped the cigarette and bolted.  
+I ran faster than I ever have, the night air burning my lungs. On the way back, I had to pass the old cemetery. It was always right nearby my house, a place that had always seemed completely innocent during the day. But tonight, under that harsh moonlight, the shadows felt alive. A heavy, suffocating dread settled over the headstones, and a terrifying certainty hit me that if I passed those gates, I would die tonight. There wasn't a single other human in sight. The world was completely dead, save for the thing following me from the water.  
+Somehow, my legs kept moving until the familiar gates of my apartment building finally came into view. Gasping for air, I lunged toward the security booth.  
+My flat guard stepped out into the light, his eyes wide as he looked at my trembling frame. "Sir? Where are you coming from so late at night? You are panicked and sweating like crazy!"  
+"I... I just came from the lake," I choked out, wiping the cold sweat from my forehead. "I was just smoking a cigarette there..."  
+The guard’s face went completely pale, all the color draining from his skin. He grabbed my arm and lowered his voice to a terrified whisper. "Sir, don't go there. You shouldn't have been there tonight. A lady committed suicide in that lake just yesterday."  
+The next morning, the terror of that night felt like a bizarre, waking nightmare. Desperate to get out of my own head, I met up with my friends and told them everything, the walking on water, the glowing eyes, the guard's warning. They completely laughed it off. They told me I was smoking something way too strong, letting my imagination run wild in the dark, and that I just needed to get laid.  
+Trying to shake the dread and actually feel good again, I opened Bumble later that day. I started swiping, and suddenly, I hit a match. She was easily the most beautiful girl I had ever seen.  
+Over chat and a quick phone call, we hit it off instantly. The chemistry was so intense, so effortless, that the chilling memory of the lake completely faded from my mind. Everything moved at a breakneck pace. We couldn't stay apart, and within the very same week, she packed her bags and shifted into my flat. She was the perfect, cute girlfriend, constantly telling me she loved me more than anything in the world.  
+But then, things started getting weird.  
+It began the morning I woke up and couldn't find my phone anywhere. After searching the entire apartment, I finally opened the kitchen microwave and there it was, sitting on the glass plate. When I asked her about it, she looked deeply embarrassed, fidgeting and trying to tell me it was nothing. I pushed her on it, forcing her to tell me what happened, until she finally confessed that she had a severe sleepwalking problem. Being the loving boyfriend, I comforted her. I told her it was okay, and promised we would go see a sleep doctor together.  
+But that appointment never happened.  
+A few nights later, she scared the absolute bejesus out of me. I woke up in the dead of night to an empty bed. Walking out into the hallway, I saw a faint light coming from the kitchen. I peeked around the corner and froze. She was standing there in the dark, planning something mischievous, giggling in this completely abnormal, unsettling way that made my skin crawl.  
+When I confronted her and asked what she was doing, her posture instantly changed. She blanked out her expression and started acting like she was just sleepwalking again, shuffling past me back to bed.  
+The mind games only got worse from there. One evening, I walked into the hallway and was hit by the sudden, suffocating drench of stagnant lake water. It was thick and foul, clinging to the air. When I asked her about it, she frowned and told me no, it was nothing like that, insisting I was just imagining things. But when I went back into the hallway with her, the smell was completely gone, leaving only the clean scent of the apartment.  
+Whenever my friends came over to the flat, she was the picture-perfect partner. She laughed at their jokes, served drinks, and behaved completely normal. My friends envied me, subtly reminding me how lucky I was. But the second the door clicked shut and they left, the mask dropped.  
+Suddenly, I felt like a literal prisoner in my own house. The tension was suffocating. When the isolation became too much to bear, I finally snapped and told her I was leaving. She didn't scream or cry. Instead, she just smiled sweetly and told me I was entirely free to walk out the main door. But the moment I actually crossed that threshold and tried to step into the hallway, she began behaving very, very abnormally, twisting her body in ways that weren't human, her eyes widening into a vacant, terrifying stare that made it clear stepping past that door meant death. Driven by pure survival instinct, I retreated back inside, locking myself in the bedroom.  
+Now, I am sitting in the pitch black, completely sleep-deprived and terrified. A private chat room on my phone has become my absolute last lifeline.  
+“You have to believe me,” I type, my thumbs flying across the screen in desperate, frantic bursts. “My girlfriend... she isn't human. I met her on an app, but she's the one from the lake. She tells me she loves me more than anything. But she keeps whispering it. She says she loves me so much she wants to eat me so we can be together forever in her tummy.”  
+A message flashes back from an anonymous user. “Hey man, calm down. It’s just cute aggression. People say weird stuff when they’re in love. You’re just sleep-deprived.”  
+“No, you don’t understand,” I type back, tears stinging my eyes. “It’s literal. The sleepwalking is a lie. I'm a prisoner here. I ran from her, and now I'm trapped in the room.”  
+THUD.  
+The first knock hits the door, heavy and wet, rattling the hinges. I freeze, my breath catching in my throat.  
+THUD. THUD. THUD.  
+She is knocking repeatedly, a rhythmic, maddening sound that echoes through the dark flat. I can hear her skin shifting against the wood outside.  
+“No, no, no,” I send a final, terrifying text. “She's outside the bedroom. She's trying to get in.”  
+The knocking suddenly stops. A suffocating silence fills the room.  
+Then, the wood explodes.  
+With a deafening crack, she breaks right through the door. Bathed in the harsh moonlight cutting through the window, she stands in the shattered frame. Her beautiful features have dissolved back into a blurred, shifting shadow, save for those wide, glowing eyes locked onto mine. In her right hand, catching the pale light, is a long, silver kitchen knife.  
+"I love you so much," she whispers, her voice echoing with the hollow, dripping sound of deep, still water as she takes a slow step forward into the room.  
+The chat room screen goes completely idle, the cursor flashing in the dark, waiting for a reply that will never come.
