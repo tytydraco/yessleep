@@ -1,0 +1,138 @@
+  
+I’ve thought about this story for a while, and its always been something that we would talk about, and laugh about for years. It happened back when Cam was only a little boy, and he’s begged us to tell it to him again and again, which we always do, often with a heavy amount of whiskey to help jog our memory.
+
+It was 2004, and we had been living at the house for a while, we moved in when David was born, and a few years later we were gifted with the presence of Cam himself. The house had come at a low price, something we were extremely thankful for, considering how short for money we were, Jane’s parents having been quite stingy with helping us out. The only stipulation had come when I asked about the history of the house. It’s always been something I’ve been fascinated with, seeing what happened to the house I’m going to live in. I asked the realtor, and when I did, he sighed, I guess he wasn’t a fan of it, probably asked about it enough to make him pissed off at me immediately.
+
+“It’s an old Mental Hospital, from the early 1900s to the 1940s, when it was used as a hospital in the war. Got turned into terrace housing about 10 years ago.”
+
+He said it like he expected us to be scared of it. It almost scared Jane, she’s always been big on spirituality, and she thought there would be ghosts. I however was excited, a mental hospital was extremely intriguing, and I could not wait to learn more about the hospital when we moved there.
+
+When we moved in, we found the house to be rather small and cramped, I didn’t mind it, it was far better than the previous house, one where we had to live through constant disturbances both above and below. We became accustomed to the house rather quickly, baby David seemed to be calmer there than he had ever been in any other place we went. I saw it as a miracle, Jane, ever the scaredy cat, saw it as a ghost being the cause, she’s always been talking about how spirits are supposed to calm down babies.
+
+Six years later, when Dave was 6 and Cam had grown to a little tyke at 4, a new family had moved in, a man by the name of Reginald, same age as me, a single father and sporting a little girl, the same age as Cam. Reggie was a nice man, he seemed slightly strange, the type to be into model replicas of battles and things like that, but Reggie and I began to be good friends, I saw past his strangeness and when I did, we spent more and more time together.
+
+Reggie became not only a favourite of mine, but also a favourite of Jane and Cam, Jane would talk to Reggie about ghosts and cryptids a lot, bullshit to me, but a great deal of fun to them. He would also spend a lot of time with Cam, telling him all about famous battles, about how the houses used to be a hospital in the second world war. And his daughter, she was infatuated with Cam, and it was clear to all three parents, that the two were about in love as two four year olds could be.
+
+The houses didn’t have gardens, so as the six of us, me, Jane, Reggie, his daughter Becca and my two boys would often go out into the small grass courtyard area, having barbeques when the weather was right, though in England, the weather’s never right, so we only had a few of them a year. During these moments, Reggie would often play with all three kids, something that I was very glad for, and after I made lunch, he would take all three inside to go and play in the attic.
+
+One of the many features that the Realtor failed to mention was the attics. The top floor of the mental hospital, when it was turned into houses, was split into pairs of two attics, the attics without walls, allowing for easy access between houses. Reggie would bring them up there, the only one of us three adults that was able to get between the attics, the crawlspace that connected our house’s attic to Reggie’s too small for me and Jane. We trusted him, we knew that he would always keep them safe, and he seemed to get just as much fun out of it as they did, often favouring playing with Cam, getting Cam to play little games with Becca.
+
+“Reggie’s a good man Jane.”
+
+“I know, I know, but its just the thought of them all going into that attic without us that scares me, what if something happens and we don’t know, what if Reggie can’t help them, he’s getting a bit bigger with all of these barbeques we keep having and what if one day he can’t get from one side to the other?”
+
+I would always chuckle every time that Jane voiced her worries, I knew that every time she would have one of these worries, it would be far too specific for anything to actually come to fruition.
+
+“You need to calm down babe, there’s no need to worry, if anything did happened, he’d go down, tell us and we’d get the kids ourselves, you just need to take a chill pill and lie back for once ok?”
+
+Jane would always nod, sighing and moving back to her drink, she’d always drink wine on the barbeques, and I would never get her love for the drink.
+
+Then, one of the nights after the barbeques, about two or so hours after we put the kids to bed, while watching a show together, Cam came down, the toy that was practically attached to his hand, gripped slightly tighter.
+
+“Daddy, Mummy, I had a bad dream.”
+
+I turned around from the sofa, looking back and at all the tears on his face. Cam was a big crier, and today was no different. I came off the sofa, and knelt down to him, I learned the best way to comfort him, the way that Jane always would, yet I could never do it quite as good.
+
+“Hey bud, what happened?”
+
+He looked down at the ground, before looking back up, towards Jane, then to me.
+
+“I had a bad dream, and when, when I woke up,”
+
+He paused, breathing in with that sniffle he would always do, a noise that would always rub me the wrong way, purely  because it reminded me of how upset he was.
+
+“I saw, saw this man.”
+
+This made my heart drop.
+
+“What do you mean a man?”
+
+I looked back at Jane, our expressions both as pale as each other’s, and Jane was already moving for the phone.
+
+“He was.. he was a man who was a part of the old thing.”
+
+“The old thing? You mean the hospital?”
+
+He nodded, the way that he would when presented with an idea that he didn’t fully grasp but knew just enough about.
+
+“Yeah. He, he said that he fell, and that his head hurt.”
+
+“His head hurt?”
+
+I was completely baffled, and I moved away from Cam. I  let Jane take over the conversation, as I went upstairs. Each step I took, I could feel my heart pounding, it was that fear that every Father gets, the kind that makes you furious but also terrified. Upon reaching the top of the stairs, I thought I would find someone there, the man that Cam described.
+
+But I found nothing.
+
+I continued forwards, approaching Dave’s room, I needed to check if he was ok, if he wasn’t getting a visit as well. I opened Dave’s door, rather a little too quickly, causing Dave to wake.
+
+“H-huh? Dad…?”
+
+I exhaled a shaky breath, the room was empty of anyone but Dave, thank god.
+
+“Hey, bud, its ok, just go back to sleep ok?”
+
+Dave nodded slowly, turning back away from me and falling back asleep. I sighed, shaking my head before shutting the door carefully behind me. The next objective was Cam’s room itself. I knew slightly that I should’ve checked there first, but the unquenchable fear of it actually being real, of the Man being inside there made me make sure Dave was fine. Knowing that he was, I had to tackle Cam’s room.
+
+I moved forwards, finding the door still open. Shit. I peered in, but, just as it was like Dave’s room, there was no one in there, thank fuck. I moved back from the room, and began combing the rest of the house as Jane continued to talk to Cam downstairs.
+
+It was about an hour later when I was sure that there was no one there, I even checked that damn attic, despite knowing that there was a very slim chance of the man being in there, considering they’d have to go into Reggie’s house first to get to ours. I finally retired to bed, where Jane and a sleeping Cam were waiting for me. Normally I’m a bit stingy on space in the bed, but I always let Cam and Dave take space if they needed it, and Cam definitely needed it.
+
+As I slipped into bed, I looked over at Jane, silently asking her about it as I got in on the other side of Cam to her.
+
+“Ghost.” Jane whispered back. Of course it was. Of course she’d say it was. I would be more sceptical, or just laugh that she accepted that as the truth, but the alternative was far scarier and I too accepted it.
+
+“That’s it?”
+
+“No, I’m pretty sure that it was a former patient, like he said. He called him Edward, described him as tall, gangly, and in bed clothes. He was asking Cam to come with him.”
+
+“Asking him to come with him? That doesn’t sound good.”
+
+“No it doesn’t, but Cam was sure that he didn’t want to go with Edward, and he told him so.”
+
+Fuck. Maybe this wasn’t as simple as I first thought, it never could be, could it? If Cam told him no, maybe he’ll come back in anger, I’ve heard stories about that, guys who come and hurt the kids if they don’t come with them the first time they ask.
+
+“That’s not good, what if he comes back?”
+
+“Cam was assuring me that as soon as he told Edward no, Edward left.”
+
+“He left?”
+
+“Yeah, said he just disappeared.”
+
+“What, like a human would, or like a ghost would?”
+
+“Like a ghost.”
+
+I sighed, turning over. This conversation was done, Jane was far too quick to believe Cam that it was a ghost. Maybe it was just her way of masking her fear, maybe she really believed the same thing as me, but was putting on a brave face, she was good at that.
+
+The next day, I went over to Reggie’s to talk to him about Edward, see if he had any experience with it. He had.
+
+“Oh yeah man, we’ve met Edward before, haven’t we Becca?”
+
+Becca, who was playing on the carpet in front of us, nodded quickly, continuing her game.
+
+“You have? What did he say?”
+
+“Oh, he would talk about what happened to him, and would ask Becca to come with him. She did, and he showed her to my room, talked about how it was the place that he died.”
+
+“He did? Then, w-why did he ask Cam to come with him too?”
+
+With that, Reggie nods. He stands, walking off and grabbing a thick set book and walking back, handing it to me. On the front of the book was a title that read, “Shenley Hospital: The History of”.
+
+“I got this when I moved in. You can have it, read it.”
+
+I did just that. Over the next few days I poured over every detail, ever aspect of any mention of an Edward. Then I finally found it, a man in his mid 30s, who died in the hospital. He was mentioned purely because he was one of the few people to die in the ward, in a ward that stretches from my house to Reggie’s my bedroom to his. That’s why, Edward was, trying to get them to see where he died?
+
+The thought made me feel a bit funny, but the longer I poured over it, the more research I put in, I began to feel the initial fear ebb away, to give way to relief.
+
+Over the years I began to lighten on the story, sure the night itself was scary, but looking back on it, I find it funny almost, I was getting so worked up and refusing to believe in ghosts, when, it was a ghost, thank god.
+
+ 
+
+That was my Father’s recounting of the events, as you can see he’s lightened on the events. I would also see the thing as just as funny, if it weren’t for what happened last night. When I came home from a long day of work, I retired to bed immediately, and I hid my head in the pillow. Muffled from the other room, was my roommate, Becca. Yes, the very same one, she’s a can of worms, and a total bitch, but I can deal with her.
+
+As I hid my head in the pillow, I heard my phone buzz. I sat up, checking it, seeing if I had gotten any messages that weren’t from Becca or her dumbass chronically online friends, and it was. I looked at it, and my heart froze.
+
+“Hello Cameron. I’m asking to see if you want to take me up on my offer?”
+
+I instinctively threw the phone across the room. It slammed but didn’t break and I stood there, frozen. I could hear Becca giggling in the other room. I don’t know if I’ll ever reply, and that’s for the best I think. Maybe I’m just tired.
