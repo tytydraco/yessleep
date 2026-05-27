@@ -1,0 +1,37 @@
+I live a rather quiet life usually, and any other day I would’ve gotten up the same as ever: leaving the bed as quietly as possible so as to not wake up my wife, brushing my teeth, taking our dog Petey out, getting changed into my work clothes and driving to work.
+
+This morning, though, had stopped me in my tracks.
+
+Let me start by telling you that I don’t use my phone often, and I rarely have any use for it except to ask my wife to remind me of things like shopping lists or to tell her when the dogs were last out for a walk. I don’t have any kind of social media either, neither does she, we’re too old for that kind of thing these days, and when it all started coming out, we had young kids who we didn’t want to embarrass with excessive photos and videos of their swim meets and spelling bees. Our kids are, I think, quite glad about that. That being said, I know plenty of people, our kids included, who use their phones for pretty much anything these days, though I never saw the point.
+
+This morning changed that, though. I wish I had been more tech-savvy when it was all coming out, and I hope someone with more knowledge on phones and social media is listening and can offer some insight into what’s going on.
+
+I thought it was some strange dream when I first saw it, my eyes adjusting to the harsh light of the phone screen. I had woken up to a message from an unknown number, which didn’t seem particularly unusual to begin with, but the message contained three attachments. I couldn’t make much out of the attachments except for the small preview of one of them, which is only when I truly began to worry. From what I could see, dark and grainy as the image was, there was a figure lying, pooled in blood, in the middle of its frame.
+
+I guess it might seem rather common for other people to see a message like this, rather easy to write off as something a friend would send to them as a prank, which I have thought about briefly, but very few people other than close family members have my phone number, and I couldn’t think of anyone who would do this.
+
+I wasn’t sure why then, perhaps it was my body warning me of the horror of it all, but seeing this notification gave me a sudden flush of anxiety and a sinking feeling in my stomach. I should have listened to this reaction; I should have swiped it away from my phone and got on with my day.
+
+Something between a kind of morbid curiosity and a sickening fear had gripped me in those moments, and I tapped my thumb hard to the screen.
+
+*Text Message. SMS*
+
+*Today 3:22*
+
+The sight upon opening my phone was even more gruesome than I had imagined from its preview, and I could see two other images peaking behind them, waiting for my finger to reveal them. The first image was, though still grainy, confirming my suspicions. A dark and barren room, what looked like concrete and rusted pipes, and an elderly man lying naked on the floor in a pool of his own blood. There were cuts and marks on his back, which faced the looming camera from which this photo had been taken, I presumed from the corner of the room.
+
+Shaking now, I pressed my fingers together onto the screen, pulled them apart and zoomed into parts of the image. The room looked damp, full of mildew, perhaps a basement or attic of some kind. My fingers trembled as I moved around the image, wanting to move anywhere but the corpse in the centre. With nowhere else to look, however, I moved towards the man’s face.
+
+I understand you may think me a fool as I continue, or some overdramatic old man with an insufficient grasp on technology. I’m sure many of you will tell me this photo was doctored or the product of A.I, but you must believe the following:
+
+I know what I saw. The man in the photo was myself. The very same hair, eyebrows, lips. Though his eyes were closed, I knew they were my own.
+
+I have no recollection of any event like this, no reason to have ever been in this room. I am old, but my memory is sufficient, and I am absolutely certain that I have never been in this position, but there I was, in this room with my navel to the floor, my back full of cuts, and my body flat and contorted against concrete like roadkill.
+
+You may question the actions that followed this revelation, indeed I do too. Out of the same wretched desire as before, I viewed the next attachment. This time, I could be certain, it was absolutely, without a shadow of a doubt, me.
+
+I heard myself screaming through duct tape, tied with rope to a wooden chair and pleading with the person behind the camera. I knew as certain as I know my own voice, my own face, that it was real.
+
+As I say, I have no recollection of this moment and no idea what I can do.
+
+Was this person threatening me? Is this just some childish prank? I cannot say, but I hope that someone has some advice for me. I am scared for my life, and I do not know how to approach this. As I write this, I am sitting in the kitchen. I called in sick for work, but I am frightened for my and my wife’s safety. Any help would be greatly appreciated.

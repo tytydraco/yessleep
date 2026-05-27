@@ -1,5 +1,3 @@
-
-
 They say the next time I fall asleep, I could die. I risk death every time I blink. They can’t make sense of it. They tell me the surgery was a success, yet all their tests and science have no answer for why I'm withering away. I know what’s happening. I’ve seen it before.
 
 I'm writing this now because when I die, the truth will die with me. I’m the last one who knows, the last living member of the project. I checked as soon as I came out of surgery. I hope that someone will read this someday and find a way to stop it. I’m warning you now, what you are about to read is better left unknown. I’m a fool, I’m posting this because I still believe in some hope. I’ll write as much as I can before exhaustion overtakes me. Before my eyes close and I’m back in that void where it holds dominion over me. These memories were locked away for so long.
@@ -121,3 +119,7 @@ Bershide turned to the man who had been jotting the letters down and held out hi
 “Don’t let it touch me.”
 
 I can’t write anymore. I’m so tired. I’ll post this, and if I wake up, I’ll write more.
+
+
+
+Part 2: [Don't open your eyes part 2](https://www.reddit.com/r/nosleep/comments/1tpcu8a/dont_open_your_eyes_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

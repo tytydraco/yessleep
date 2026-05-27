@@ -1,0 +1,110 @@
+**PART I**
+
+I immediately questioned the wisdom of this trip. I couldn’t really grip anything through the thick, heat-protective gloves I was wearing, but if I could, my sweaty-ass hands would be sliding off the plastic armrests anyway.
+
+\*T-minus 10\* A female voice crackled in my earpiece. 9, 8, 7…
+
+My heart thumped in my chest, feeling like it would leap right out of my ribcage and onto the floor, bouncing on its merry way like a bullfrog out of a pond.
+
+6, 5, 4, 3….Chest pain. Severe now. Gliding up my esophagus and into my throat.
+
+Why did I sign up for this? What was I doing here, with actual professionals, ready to be launched with millions of pounds of thrust by a potent mixture of liquid hydrogen, kerosene, alcohol, off the surface of the planet?
+
+Oh, that’s right. I paid for it. All of it. My past self, in an impulsive stroke of brilliance, decided my future self would want this. My present self remains unconvinced.
+
+My college buddies, some of whom I’ve remained close with over the intervening decades, always told me I was a prototypical billionaire if there was a prototype for that sort of thing. They were rich, but they weren’t billionaires like me, the best of all of them. Most of them were conventionally, professionally rich. Doctors, lawyers, bankers, golf clubs, boats, second homes, second wives, that type of life.
+
+I made a small fortune on Wall Street in the 90s, working my way up to partner and taking millions out of Goldman’s IPO. It was more than enough to retire on, but I’m ambitious to a fault. And, two of my three ex-wives told me in certain terms, I could be domineering. 
+
+I opened a venture capital fund right as the dot-com boom was ramping up. I made a few smart bets, my centimillions grew into billions, slowly at first, until I found myself in the upper echelons of the Forbes list with a checking account rivaling the GDP of a small Central American nation.
+
+So, what do prototypical billionaires do with all that excess liquidity? They ponder the big problems and throw their immense wealth at solving them. That’s at least what I thought when I was starting my career as an idealistic, know-nothing 23-year-old.
+
+But really, that just meant buying myself a literal rocket ship. So, here I was, a tanned-but-slightly-pudgy 62-year-old, about to be hurtled into space with no actual expertise or training besides a few classes I took at Andromeda Industries’ launch center in New Mexico. And billionaires don’t feel the need to take notes.
+
+2, 1…. And we have liftoff.
+
+The G-force pushed me back into the ergonomically shaped seat, custom-made for my body and what my third, and much younger ex-wife once derided as my weirdly shaped posterior.
+
+There was no window, but my visor showed a facsimile of the view outside the Andromeda Starflyer 3.0 I, along with two other astronauts — ex-military, professional, stern — was ensconced in.
+
+Shit, I thought, the word slipping out of my neurons and flashing in front of my eyeballs like a 1970s neon sign. Can’t go back now. That thought became way too real when I realized something was wrong.
+
+The G-force, supposed to mellow out at this point a few minutes into the launch, was getting stronger. I had been through the simulator before, but I was far from my physical prime. I gritted my teeth, trying to bear it, but I felt my eyelids get heavy.
+
+I was falling asleep.
+
+I woke up a few seconds later, but everything was quiet. I turned to look at John, the captain of this particular launch, but he wasn’t there — nothing was.
+
+Fuck.
+
+I picked up my hand to remove my visor and figure out what happened, but there was no hand to pick up. I felt it — it was there, that I was sure of — but when I looked down, it was just empty space. Everywhere.
+
+Fuck, fuck, fuck.
+
+That’s when it set in. Everything around me was pitch black. There was no ship, no ergonomically-shaped seat fitting my weird posterior, no John, no Andromeda Starflyer 3.0. There was just nothing. I was alone, if I was even an “I” anymore. I sure felt like me. But physically, there was nothing. No me, no ship, no light, nothing at all.
+
+I remembered something one of the wackier scientists had said in the class at Andromeda’s headquarters. I didn’t really listen to him, because I’m biased against balding men with ponytails, but perhaps I should have. Sometimes, when you leave Earth’s orbit, the bald pony-tailed nerd said, you gain a cosmic understanding of humanity’s place in the universe. And with that, comes a feeling of openness, of oneness, with the stars, moons, planets, molecules, atoms, quarks, and whatever other particles make up our particular experience of space and time.
+
+Maybe, hopefully, I was asleep and conjuring up some of this oneness as we hurtled out of the upper atmosphere. Or maybe there was an accident, and I was dead, and this was purgatory.
+
+I never got to find out.
+
+The blackness gave way to a rainbow flash, with every shade and tint in between. And a feeling of immense speed. Whatever I was now was rushing somewhere, somehow, but I wasn’t in control. I braced myself, but there was nothing to brace with. I heard a crackle, a sound, maybe it was my earpiece? But I couldn’t understand. It wasn’t English or any language I recognized.
+
+Boom, oblivion.
+
+When I woke up, I was me again. Or so I thought. My hands scrambled up to touch my face, but they weren’t clad in heat-protective gloves. They were torn, damaged, covered in soot and rashes.
+
+I had a shirt on, but the sleeve was ripped, and not in a fashionable way. It was dirty. I could smell myself, and it was bad.
+
+Before I launched into space, I’d sometimes take the train from my apartment in the West Village to my firm’s midtown offices, just to see how the proletarians lived. I knew the smell right away: Homeless. When you smell it, that sharp, acrid, body odor stench, you change cars.
+
+I wasn’t sitting on the Andromeda Starflyer 3.0’s seat, fitted to my weird posterior, anymore, I was now on the sidewalk. And when I wobbled to my feet, I realized where I was: 50th and Lex. My office was 36 stories above me.
+
+Ok, seriously, what the fuck?
+
+But that wasn’t the worst part. Someone was talking to me. I whipped my head around to see, and my jaw dropped. A man, early sixties, looking tan but slightly pudgy, in the kind of cool sneakers, four-hundred-dollar cashmere sweater outfit old rich guys wear when they’re trying to look casual, was staring directly at me.
+
+“I’m gonna call the cops if you keep sleeping here, you piece of shit,” the man said. That man was me. There was no recognition in his face. 
+
+His eyes aren’t mine, I thought. But they were the same color as mine.
+
+Only it wasn’t me, and it wasn’t me who said it. It was someone or something that looked like me. It was posing as me. But it wasn’t me, or it couldn’t have been. I was here, homeless, for some reason. But I was meant to be well above the atmosphere by now. 
+
+The man — me, I, — walked into the building, waved to the doorman, and headed to the elevator bank I usually take. I stumbled after him, my feet moving faster than my brain could handle, and collapsed in the lobby. The doorman, I couldn’t remember his name, was shouting at me to get the fuck out, but I couldn’t. I was too stunned to move or speak. What felt like seconds ago, I was me, a billionaire, on a ship I had paid for, built by a company I owned 40% of, about to become one of the first private citizens to land on the moon.
+
+Now, I was here, on the floor of my office’s lobby, as… not me. And what was me, or posing as me, wasn’t me. I can’t explain it any better than that.
+
+All my memories came rushing into my head, rattling around my skull. I had three kids, all in their twenties now, who lived in the city but wouldn’t have expected me back for weeks. Despite my general shitty behavior toward them in recent years, they’d organized a watch party for the launch that their mother, my first wife, was even planning to attend surprisingly enough (though, it might’ve been a sly way for her to watch me explode on live television). I had friends, a social life, I was basically a public figure. Why was the-not-me casually walking into my office, then? Wouldn’t that have raised questions?
+
+CNN, The New York Times, and everyone else had covered the launch. It was big news. At some point, I’d get recognized, or at least I hoped, and this would all be sorted. Despite the confusion, my stomach gurgled, painfully. I, or, whatever I was now, was also hungry. 
+
+I couldn’t take the doorman’s chain of increasingly violent expletives anymore, so I walked back out into the city, but there was nothing of any value in my pockets. Other than a crumpled up receipt, a cigarette butt, and a piece of used gum I’m assuming some beneficent stranger had thrown at me.
+
+I sat down on the street, and I heaved out a sob. I still haven’t been able to see my face, other than a few glimpses of my reflection. It didn’t look like me, but I haven’t really been able to tell yet.
+
+I was confused. What the fuck had happened up there? Where’s the ship? Why am I here? Who am I? Too many questions, too few answers. No answers, in fact, only more questions.
+
+The office building on the other side of the street had a massive screen, tuned to one of the local news channels. I watched through the window, astonished.
+
+“New York billionaire Chris Castimedes’ successfully launched into space today, in a bid to become the first private citizen to land on the moon. The trip is expected to take 9 days,” the anchor said.
+
+“We reached Castimedes through Andromeda Industries’ satellite link, shortly after the ship exited the atmosphere.”
+
+There was me, floating around the ship in my Andromeda-issued jumpsuit. “I couldn’t be more grateful for the hard work and dedication of the entire Andromeda family,” I heard my voice say, with a bit of an audio delay.
+
+“And especially this clown here, who I’ve spent hundreds of hours preparing for this momentous journey over the past year,” I pulled an unsmiling John into the frame. John braced himself, now smiling for the camera, but I don’t think he really liked me at all. I looked at myself on the screen. My eyes, I knew, or thought I knew, are brown. Whoever or whatever was speaking to the camera had green eyes, too sparkly and clear for a 62-year old.
+
+I’m not sure John noticed, or if he did, he hid it well.
+
+I’m not trying to be cliche when I say a chill went up my spine. It was more like a full-on fucking back spasm.
+
+“We’ve got a ton of work to do over the next 9 days but all signs point to a safe and successful mission,” my voice said again. “Castimedes out!”
+
+I could see the doorman of my office building through the window. He was looking at his phone, one AirPod in, and the color drained from his face entirely. So he had seen it too, I thought.
+
+I had nowhere else to go. Nothing to eat, see, or do. Nowhere to be. I lay down on the sidewalk, and in my head, I made a plan: When I — or that thing that was pretending to be me, the one here in the city — left the office, I’d follow it.
+
+I’d follow it no matter what and I’d figure out what the fuck was going on.
+
