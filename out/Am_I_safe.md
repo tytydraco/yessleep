@@ -1,25 +1,42 @@
-This all started a few months ago. It was really small things at first, like stuff that anyone could dismiss as nothing, and I did, at first.
+Little backstory here: I’m a 25F who moved into a 2006-built house about 6 months ago. It’s a normal-sized two-story home, and I live alone for the first time after years of having roommates.
 
-There was light tapping on the walls in the middle of the night, and I would notice things being displaced around the house (I'm extremely forgetful, so it wouldn't be a surprise it I was the one misplacing them).
-Pretty quickly though the tapping became more focused and happened during the day. It actually sounded like someone was using their fingers to tap on the walls, and it would seem to be coming from just around the corners in the house, as if someone was standing there just out of view. Of course as soon as I would get up to investigate it would stop immediately and nobody would be there.
+Everything seemed fine before I bought the place, but during my first few nights here, I started hearing really loud creaking noises coming from random parts of the house. I couldn’t pinpoint where they were coming from. At first I brushed it off because the house isn’t even that old, but the noises kept getting worse at night.
 
-But my breath was taken away the night that I finally saw something. I was on my bed, watching TV when I heard the tapping again. I looked at the source of the noise, almost getting used to it by now and not really being fazed by it. However, just as I looked over, I could see what looked like a black silhouette with these huge eyeballs with black pupils, and as soon as I spotted it, it backed up around the corner disappearing from my sight.
+I’m a night owl, so I usually stay up late watching shows until I fall asleep. One night about 3 months ago, I heard this insanely loud bang that sounded like it came from everywhere at once. The attic, the walls, maybe even underneath the house. It scared me so badly that I turned on every light in the house and FaceTimed my best friend because I didn’t want to be alone.
 
-It all happened so fast it was kind of hard to really figure out what I saw, but I remember my heart absolutely sinking when I saw it. For a few seconds I couldn't move, but I finally gathered up the nerve to get up, and I couldn't find anyone in the house. I searched literally everywhere.
+After that night, things went completely quiet for a while. Like... completely quiet.
 
-Then the craziest thing happened, nothing at all. For about 3 or 4 weeks, nothing odd happened in that house.
-I didn't hear the tapping, nothing was misplaced. I started to feel somewhat normal again. I somehow rationalize that whatever it was, since I finally noticed it, perhap V decided to stop. At the time it made sense to me that I wanted to mess with me, and since its cover was blown, it had to move on.
+Then about a week ago, I started hearing the creaking again.
 
-But I was so wrong. All of the sudden one night, I was on my laptop doing whatever, and I heard the tapping again.
+At this point I was already freaked out, and I’d spend hours sitting in silence trying to figure out where the noises were coming from. But then something happened 2 nights ago that pushed me over the edge.
 
-Just knowing what I saw the last time I looked, I couldn't bring my self to look in the direction. I was frozen. It stopped after a few seconds, but I was on edge the rest of the night, and truly from then on I was constantly nervous.
+At around 2:37 AM, I woke up to the loudest scream I’ve ever heard in my life.
 
-Before I knew it things were getting truly out of hand. The TV would turn on in the middle of the night with max volume. I would hear footsteps walk, and sometimes run down my hallway. It wasn't long before I started to see it again. It was popping up more and more, sometimes out of the corner of my eye, and sometimes right in front of me. I was going to bed every single night as a sweaty nervous wreck. One time I even caught it peeking over the foot of my bed at me while I was trying to fall asleep.
+I’m not exaggerating when I say it sounded like it came from inside the house. I jumped out of bed, ran into the bathroom, locked the door, and called the cops. I stood there shaking for what felt like forever until they arrived.
 
-It all came to a boiling point the day before yesterday. I had already seen the thing about 4 or 5 times in the last few hours, and I was shaking, in a more anxious state then ever. Then finally, after all this time, I heard it speak.
+Three cop cars showed up with their lights on but no sirens, which honestly made it feel even creepier. They searched the entire house and eventually found me hiding in the bathroom. Outside by one of the cruisers, they started questioning me, and I told them everything, the creaking, the banging, all of it.
 
-I felt a cool, no, a freezing cold breath on my cheek and simultaneously I heard a whisper in my ear "I'm here"
-I couldn't take it. I bolted, heading towards the door, the only think I could think to do was run. It was just pure instinct to stay alive at this point, but as soon as I started running, I felt it gaining on me. It was right on my heel and I mean as close as it could possibly be. I ran outs into the street, and before I knew it, I was face down on the concrete, bleeding all over. I looked up to see a truck stopped in front me, and a man getting out to check on me.
+Big mistake.
 
-It was about that time I realized what had happened. The last thing I saw before blacking out was that thing peeking outside my window, looking at me.
-I'm in the hospital now, luckily the damage wasn't tremendous, but I do have quite a few bruises, cuts, and an overall shitty feeling. I'm going to be in here for a little while.
+One of them ended up handing me a card for a mental health specialist.
+
+I was honestly offended because I KNOW what I heard. This wasn’t a nightmare or some hallucination. I’ve never had mental health issues before, and I know the difference between anxiety and hearing an actual scream in my house.
+
+The cops said there was no sign of forced entry and that they couldn’t do anything else for me. One of them even told me I should “try to get some sleep.”
+
+How am I supposed to sleep after hearing that?
+
+The weirdest part is that I couldn’t even tell if the scream was male or female. It was just... wrong. Loud enough that it felt like it came from every direction at once.
+
+I asked the officers to stay for five minutes while I packed a bag, which thankfully they did. After that, I drove straight to my sister’s house, and I’ve been staying here ever since.
+
+My sister is worried too and told me I can stay as long as I need, but I know I need to figure out what’s going on eventually.
+
+I just don’t understand any of it.
+
+What are the creaking noises?  
+What were those bangs?  
+And what the hell did I hear scream inside my house?
+
+Reddit, could you help me understand what might be going on and how I should proceed safely?
+

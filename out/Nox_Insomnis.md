@@ -1,3 +1,5 @@
+[Next >](https://www.reddit.com/r/nosleep/comments/1touvlg/vox_tenebris_nox_insomnis_part_2/)
+
 DAY 4
 
 So. I want to start by saying that I understand the irony of what I'm going to post and where I'm going to post it. Anyone who's about to leave a "clever" comment about it, possibly just keep it to yourself? Please?
@@ -40,8 +42,6 @@ Aside from the doctor, you all are sort of the first people I've told about it. 
 
 For now, at least, I'll just wait on the doctor's appointment. We'll see what happens. Thanks for listening.
 
-
-
 DAY 6
 
 I have some news. Sheila came up to me today, said she wanted to talk. It wasn't like her. Not that we're not mates or anything, but we have a very easy relationship, and we deal with any interpersonal problems pretty casually. I could tell she was being careful right away, like she was trying to be gentle with a sick child. That set me on edge.
@@ -81,8 +81,6 @@ But just as surely as I knew all that, I knew that there was no point trying to 
 "Why didn't you *tell* me?" she shrieked, punching me in the arm. "I thought it was *you.* If there's some malevolent spirit in this house..." I tuned out her ramblings as she ran back to her room to grab rock salt and incense.
 
 She was superstitious, but she wasn't a liar, and she wasn't dumb. If she'd been hearing things with the regularity she claimed, chances were that it was something real. I needed to investigate. Fortunately for me, I recently acquired brand-new "doesn't need to sleep" superpowers, so a stakeout should be easy. I'm going to camp out in the kitchen tonight. I'll report back here with whatever I find.
-
-
 
 DAY 7
 
@@ -146,8 +144,10 @@ Something was off. I could feel that pressure increase very suddenly, and then t
 
 I screamed. I'm not ashamed to admit it. I stumbled around through the darkness, tripping over the chair and bashing my head against the hob. I scrambled for the light switch, and finally, mercifully, the kitchen was bathed in the soft yellow glow from our shitty fluorescent light fixture. As my heart slowed down to a cool, relaxed 160 BPM, I realised that the pressure I'd felt was gone. I didn't feel like there was something standing behind me anymore.
 
-I heard the thumping of footsteps down the stairs. I turned around to see Sheila standing in the kitchen, wide-eyed. I must've looked a mess. Dishes were scattered along the floor, my chair was upturned, and I could feel blood dripping through my hair. Despite it being at the other end of the room, I'd somehow opened the fridge in my blind panic.  
-  
+I heard the thumping of footsteps down the stairs. I turned around to see Sheila standing in the kitchen, wide-eyed. I must've looked a mess. Dishes were scattered along the floor, my chair was upturned, and I could feel blood dripping through my hair. Despite it being at the other end of the room, I'd somehow opened the fridge in my blind panic.
+
 My mouth was dry as I said, "I think I need your help."
 
 END OF PART 1
+
+[Next >](https://www.reddit.com/r/nosleep/comments/1touvlg/vox_tenebris_nox_insomnis_part_2/)

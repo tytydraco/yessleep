@@ -1,249 +1,169 @@
-It was getting hot in the Uk, no not 10˚, I’m talking 25-30˚. Driving home after yet another backbreaking shift at a job I was pressured into, my mind was simply on autopilot.
+“I one it,” my father’s laughing voice rang out through the truck. 
 
+“I two it,” I replied back from the passenger seat. 
 
+“I three it,” Dad answered back. 
 
-I’d driven these suburban roads countless times, with their only hazard being the speedbumps. At least the cool breeze through my buzzcut and burnt orange sunset was a positive. It was late at that point, somewhere around 9:00 as I rounded the final corner.
+“I four it,” I said. 
 
+“I five it,” Dad laughed again. 
 
+“I SIX it!” I giggled, speaking with emphasis.
 
-Hitting the start of that small hill my house resides on; there was a pigeon just doing its thing in the middle of the road. Nothing new, I thought as I begrudgingly slowed down to sub-20mph. The little shit barely avoided becoming an ornament on my bumper, as it shot out at the last possible second.
+“I seven it!” 
 
+“Oh no. I eight it!” I made a mock puking noise and looked in the side view mirror. 
 
+The dead raccoon on the side of the road was swarming with flies, crawling with maggots. Even with the windows up I could smell the rot creeping in. The sun was no help to the carcass on the side of the road. Heat made things smell more pungent, like farting in the shower. 
 
-There was no sound, but the advent of feathers on the road behind me indicated the fowl didn’t get off scot-free.
+“You ate the roadkill, Blake! That’s nasty!” My Dad reached over to poke me in the ribs. It made me laugh and twitch. 
 
+“Nuh uh! It’s just a game!” I stuck my tongue out at him. 
 
+My Dad was a hardworking blue-collar man. The wrinkles around his eyes had grown deeper over the last few years. I remember when my toddler sized hand would reach up and trace them. He pulled the truck over to the side of the road and hopped out. 
 
-Quickly flicking from my wing to rearview, it had landed on the pavement, now seemingly staring back at my car. Obliviously bouncing over the first speedbump, my focus was quickly trained back on the road ahead.
+I never liked this part much. 
 
+Throwing on a pair of soiled rubber gloves, my Dad walked over to the raccoon and picked it up from where it laid upon the yellow line. He threw it in the back of the truck, it landed with a sickening thump as it hit the bed. 
 
+My father had an odd habit. 
 
-Though it seemed okay, I could tell it wasn’t normal. Something about its proportions, maybe one wing was smaller, or its leg was a little too thick. Regardless though those features didn’t stand out as important.
+Living out in the middle of nowhere had its perks, but it also had its pitfalls. A lot of the time it was your responsibility to keep the roads nice. The county was too stingy to come rake the dirt roads, or plow during the winter. Roadkill was a major problem. 
 
+People from the city would drive to the end of our road, release litters of puppies or kittens, or even the family pet, before speeding away like they did nothing wrong. If I had to count how many times I had personally witnessed such atrocities, I would need double the hands. 
 
+My stepmom had taken up caring for such abandoned animals, while my Dad made sure to clean up the ones that hadn’t made it. He said it was to ‘keep the wife sane’. I never really understood what that meant, not until I was older. This eventually transitioned into my father cleaning up all the roadkill we happened to come across. 
 
-Understandably pissed off, that experience was quickly shoved into the useless memories department of my brain ready to be forgotten.
+The raccoon in the back of the truck was no different. A dead animal was a dead animal. Although it grossed me out immensely, I knew that my Dad’s actions were based upon good intentions. That was all that truly mattered at the end of the day: being a good person. 
 
+To keep me from getting too uncomfortable at such an influential age, my father came up with a game. Whoever spotted the roadkill first had to start with the ‘I one it’ and then go back and forth until we got to the number eight, which sounds like ate. It both kept things light and fun, and made sure I kept my eyes peeled for downed animals. 
 
+Just last week I spotted two deer. One of them was still alive, honking and snorting in a way that sent a chill up my spine. Seeing an animal with three of its legs blown off, trying to crawl around on the ground, was so horrific my brain didn’t even process it fully. My father told me to close my eyes and cover my ears as he pulled something metal from the back seat. Two loud bangs, and the haunting screams stopped. Followed by the slam of two deer carcasses in the bed of the truck. 
 
-That would have been the case if it hadn’t escalated.
+Now that I’m 28, I look back on those days with a sick curiosity. One part traumatized, one part intrigued. My father was never a creative man, yet he’d come up with the game that saved me from a lot of prepubescent mental breakdowns. Twenty years ago, I just thought of these things as normal.
 
+We had a dog, an older black lab with greying whiskers, whose name was Brody. He was a great dog, aside from the one time he knocked me down to steal my chicken nuggets. I remember crying like a baby when I scraped up both of my knees.  My Dad told me to ‘rub some dirt on it’ and walk it off. I choked back my tears and tried to be strong, since boys weren’t supposed to cry. 
 
+“Brody didn’t mean it, so don’t be too mad at him. He loves chicken nuggets just the same as you.” My Dad said, a smile on his face. 
 
-\---
+“O-okay,” I said, through hiccups. 
 
-  
+“Just wait here with your stepmom and I’ll head back to the drive-through.” 
 
+My stepmom was a nice lady, a bit on the weird side. She moved in when I was six years old, bringing her son with her. His name was Alan and he was only a couple of years older than me. I’d hoped having an older brother would make life more fun, but I was wrong. He would always steal my snacks, and tease me when his friends were around. 
 
-Same time, same road a couple of days later, again there was the pigeon dawdling at the start of my hills incline. Taking action once again, this time to the extent of an emergency stop, the dumb bird just flapped off to the side of the pavement, observing as I departed.
+“Your Dad is nasty!” Alan had said one day whilst we were in the middle of wrestling each other for the last bag of chips. 
 
+“No he’s not!” I yelled back. 
 
+“He plays with dead animals! That’s gross!” Alan had his arm around my throat, holding me in a headlock. 
 
-My increasingly rational mind thought up a scenario where the government was checking people’s willingness to stop in the event of an animal on the road, utilising their drone pigeons.
+“No he DOESN’T! He cleans them up so your mom won’t be sad!” I elbowed him in the ribs, causing his grip to release. 
 
+“*She* never asked him to do that! So he must be doing weird things with them!” 
 
+After our spat had finally ended, I stole the chips from Alan’s hands and went to hide in my room. Our house was a mix of wood paneling and shag carpet. My room was no different from the rest of the home - long strands of burnt orange fibers under my bare feet. Jumping into the bed, I hid myself under the protection of my power-ranger sheets. 
 
-Though its basis was on as stable ground as the ocean, I did feel better abound not driving it into the tarmac, mechanical or not.
+As I licked the salty chip seasoning from my fingers, an idea blossomed in my mind. Alan’s taunting had presented me with a question I had never thought to ask. What did my Dad do with the roadkill? Where did he take it, once it was unloaded from the back of the truck? I would see him take the bodies into the woods on the side of our house, coming back a few minutes later with empty hands. 
 
+“Dad, where do you take the roadkill?” I asked him the next night after dinner. 
 
+“I lay them to rest. All creatures deserve a peaceful end,” was all Dad said. 
 
-With those previous experiences fresh in my mind, my final journey home for the week was altered. Opting for a different route, in order to theorise weather that bird was in fact singling me out, I took a right, rather than a left.
+That didn’t answer my question, though. Instead of satiating my brain, it spurned more questions. The next time Dad returned with rot in the bed of the truck, I decided that I would follow him. It probably wasn’t the smartest idea my eight year-old brain could conjure, but it was good enough at the time. 
 
+“Where’re you going?” Jojo, my stepmom had asked me as I headed for the back door. 
 
+“I’m gonna go play outside with Brody,” I lied. 
 
-Yes, the road works shutting off that lane was a deciding factor, though that small portion of my brain still wanted answers.
+“Just stay within ear shot, you know how your Dad is…” Jojo’s voice trailed off. “Oh, and can you feed the strays for me?” 
 
+“Sure,” I answered, grabbing two bowls of cat food. 
 
+On the back deck, seven stray cats hung around lazily. Their chirps and meows greeted me as I brought out the food. The oldest, and biggest cat, was named Tom. He had long grey hair and paws with too many toes. Tom head butted my shin with what I assumed was affection and purred so loud it sounded like the lawn mower. I bent down to pet him for a moment before calling for our dog. 
 
-Funnily enough, he’d brought his friends this time. Five, I repeat five pigeons across the same stretch of road, only 1 kilometre long. Each incident, had them darting away as I slowly lost patience and refrained from even touching my break by the last one.
+“BRODY!” My voice rang out through the open air, “Broooooddddyyyyyyy!” 
 
+A few minutes later I heard the sound of his collar jingling, and saw his tired body running towards the house from the  woods at the side of the property. He held what I assumed to be, the jaw bone of a deer, within his mouth. It dangled and dragged across the ground as he trotted closer. I felt my stomach twist, looking at the shrunken meat that still clung to the bone. A row of molar-like teeth prevalent. 
 
+“Spit that out right now!” I yelled. 
 
-That final bird, being the one I’d seen all week. Lingering there in the centre of the road, its brainless almost mocking head cocks sought to infuriate me further.
+Brody whined and looked up at me with a sad expression before dropping the stinking mess onto the ground. 
 
+“Don’t tell me-” the question that had formed in my mouth was cut off by the sound of the truck engine. Dad would be pulling into the driveway at any moment. If he had anything in the back of the truck, today would be the day I followed him. 
 
+There was a deer and an opossum in the bed, stinking to high heaven. 
 
-Messaging my parents, didn’t give me any reprieve. My father barked that increasingly common line, “you’re not a child anymore Harrison, stop lying and ack like a man.”
+“Dad!” I called out excitedly, running towards him with open arms. 
 
+“Blake, my boy! How was your day?” My Dad lifted me into his arms, crushing them around my chest. The bear hug only lasted a moment before he set me back down on the ground. 
 
+“It was good, I’m just out here playing with Brody. I think he got into something he shouldn’t have,” I said, pointing at the jaw on the ground. 
 
-Five days down, five birds still alive. Rucky numbers in most fps games and far from how my father would have delt with them.
+“Aw hell, Brody. You don’t wanna eat that, that meat is no good.” My Dad bent over and picked up the sullied bone. 
 
+While my Dad took care of the carcasses, I snuck off into the woods with Brody hot on my heels. He wasn’t an attack dog, or even a hunting dog, but he was loyal. One summer night I had camped out in the backyard. Amidst the hooting and hollering of coyotes - which sound like giggling children - he stayed beside the tent all night. I was his human as much as he was my dog, and he protected what was his. 
 
+“Shhhhhh,” I pressed my finger to my lips while looking down at the dog. His tongue hung out the side of his mouth as he panted softly. 
 
-\---
+As my Dad carried the deer in his arms, he headed for the woods. I had chosen my hiding spot carefully, tucked away into the hollowed out trunk of a tree. I waited until he was far enough, the crack and snap of twigs growing quieter with each passing second. Just as I was about to lose sight of him, I shot out from the trunk and followed. 
 
-  
+Keeping my body low, and walking on the balls of my feet, I stalked behind. Brody followed closely, bending his own knees to hover closer to the ground. We both crept through trees and underbrush, avoiding as many dry twigs as we could. That was when I saw my dad, standing still at the top of a hill. He tossed the deer from his arms and it disappeared out of sight. Then, he turned around and headed back the way he’d come. 
 
+“Woah,” I whispered. “What *is* that?” 
 
-That weekend was equally as warm, hitting heights of 32 degrees. My lazy ass slumped back in my desk chair, two fans on me and one on my pc. No driving = no birds, or so I thought.
+Then, the smell hit me. Layer upon layer of the stench of death infiltrated my nose. Slamming my hand over my mouth, I did my best to stifle a gag. If I thought the lone roadkill smelled, this was absolutely abhorrent. Even Brody began to whine, looking like he wanted to retreat as well. Squaring my shoulders, I climbed my way to the top of the hill and looked down. Beneath us was a garbage pit of sorts, a pit full of dead animals. 
 
+Flies swarmed in tangible clouds. Maggots crawled in and out of carcasses, giving them the appearance of breathing. Cats, dogs, woodchucks, opossums, deer, coyotes, rabbits, raccoons, and many other animals laid dead in the pit. Their decomposing bodies formed a thick layer of tar and secretions at the bottom. Had it not been for the smell, or the obvious bones, I would have thought it to be a bog. That was when I saw movement within the pit. A human arm shot out from within the mess, it was small and pale underneath the sickening liquid. 
 
+“You’re not supposed to be out here, Blake.” My father’s voice caused me to jump. Almost tumbling down into the pit myself. One of his large hands shot out, grabbing me by the arm. 
 
-Grabbing a drink and making my way back to my room, my gaze was grasped by a pigeon sitting on my balcony. The old Victorian house I resident at had small extensions, not fit to stand on, though surprisingly welcoming for the occasional bird.
+“I- I’m s-sorry dad. I just wanted to see,” I started crying almost instantly. 
 
+“Go home, boy. This is no place for children.” 
 
+I was an idiot. My half-cocked plan had not accounted for the fact that my dad could only carry one of the animals at a time. *Of course* he had come back. As my Dad steadied me, he pushed me back towards the way I’d come. I stumbled as I walked back down the hill. Brody hadn’t left my side. 
 
-Thinking nothing off it, I hopped back onto my chair, enjoying the incoming breeze from my open window.
+Dinner that night was silent and awkward. Even Alan didn’t poke me with taunts. He just stared at his plate, and shoveled food into his mouth. I wondered if they knew that I had gotten in trouble. Jojo was the only one who seemed to treat me like normal, offering me a slice of pie when I had finished my meal. 
 
+“Cherry or blueberry?” Jojo’s soft voice asked. 
 
+“Blueberry, please, ma’am.” I tried to be on my best behavior for the rest of the night. 
 
-That fact alone froze my previously clammy body, as I was petrified in place. I hate insects in my room, so I only ever crack my bedroom window open an inch or two. As my body thawed, allowing just my head to turn, that same uncanny bird peaked its twitching head under my uplifted glass pane, as a glazed over white eyes scanned me.
+Getting caught didn’t stop me though. It didn’t stop my *curiosity.* I’d made a plan to go out to the pit again, this time when my dad wasn’t around. The old dog followed behind me yet again. Barking as he chased after a squirrel, only to come back with an empty mouth. I chuckled when he returned. 
 
+“Old age is really getting to ya, isn’t it boy?” I asked Brody, as if he could respond. He just panted and licked at his nose a few times. 
 
+When we got to the pit the second time, the smell was a lot easier to bear. I no longer needed to cover my nose and mouth with my hand. Standing at the top of the hill, I looked down, down, down. At first, the mess below was still. And then, like last time, it moved. Almost as if the pit was *breathing.* A small, pale arm appeared from under the body of a mostly fresh cow. That was a rarity for the pit, since their electric fences kept them away from the side of the road. 
 
-I’ll admit, I freaked, grabbing the metal flask to my side and using it like a ram, forcing the bird back and slamming the pane down. The bird twitched again, as I got a better look at its overall appearance.
+“Who’s there?” I heard a small voice. It was coming from below me. “Have you brought me more to eat?” 
 
+“Hello? Is someone down there?” I tilted my head to the side. The pit was so nasty, I couldn’t understand why someone would be in all that…mess. 
 
+“Daddy, is that you? I’m hungry.” 
 
-Practically nothing about the ‘bird’ could be described as natural. That milky white eye was massive, far larger than should have been able to fit into the socket it bulged from. Similarly, its ‘feathers’ were nothing more than patches of matter fur, hair and the occasionally sparce quill.
+“Dad…dy? Who’s your dad?” I asked, confused. 
 
+“The man who brings me food.” 
 
+“Do you mean my dad?” I asked. 
 
-Worse of all were its feet, if you can even call them that. Three small burnt blistering human fingers sprouted from the creature’s leg. Those soft, wet thuds as it crept from one side of the window to the other almost made me gag as I tried not look.
+“Yes.” It sounded like a little girl, probably around the same age as me. 
 
+I only returned to the pit a few times during the remainder of my childhood. Each time I would crouch down by the edge looking for the pale white arm. She would talk to me, but it only ever revolved around one thing. Hunger. Eventually I grew bored of the monotonous conversation, and sick of the smell. 
 
+It was always, “I’m hungry, I’m hungry…” 
 
-Its other appendage was a short, hairless pawlike structure, though significantly small, forcing the creature to waddle with a limp.
+From then on, when we played the Roadkill game, it held a new meaning. My father, like usual, would glove up and hop out of the truck. Slamming whatever poor creature met its demise, onto the sullied bed. I finally knew where he was taking them, and to whom. The little girl who lived in the all too deep garbage pit full of roadkill.
 
+My father passed away when I turned 26. It was a shock to the whole family. One day he was feeling fine, and the next, he just didn’t wake up. He made sure to leave a note for me in his will. It was a list of instructions, and a warning. 
 
+“Always pick up the roadkill. Always dump it in the pit. NEVER go down into the pit. If you get stuck down there, you’ll never make it back up.” 
 
-From a distance its colouration and makeup could have passed for a natural creature, but up close, the horrific facsimile was nothing more than a mishmash of organic parts.
+When Dad died, Jojo and Alan didn’t stick around for long. The stench had grown so intense it started to waft towards the house any time a breeze blew. Eventually, after haggling with some lawyers and the IRS, I inherited the house I’d grown up in. I even drive my dad’s old truck, bed covered in sun-baked blood. The roadkill game still flows through my head as I drive, even if no one is here to play it with me. 
 
+I’ve taken up my Dad’s job, throwing roadkill in the pit. The arm that takes it has been growing along with me. No longer the size of a child, but the size of an adult. 
 
+The *thing* that’s down there is supposedly why my parents divorced when I was one year-old. 
 
-Taking a step back and reaching for the toggle for my blind in an attempt to avert my eyes, it opened its cracked beak, letting out a raspy guttural squark.
-
-
-
-Though my headphones were supposed to be noise cancelling, that creatures’ shrill caws still pierced my ears and just my luck, it was relentless. Somehow, I managed to get a couple hours sleep that night, though waking in the morning and peaking from behind the blind, it was still there, scratching out its incessant tune.
-
-
-
-\---
-
-  
-
-
-Thankful my parents were returning from their weeklong holiday; I was hoping that my farther would at least be able to shoo it off.
-
-
-
-Getting chewed out again for ‘acting like a girl’, my father scoffed at my account as he entered the front door. Sighing and relenting, he strode up and into my room. Opening the window and coming face to face with the creature, he spoke.
-
-
-
-Though it was faint, I could hear him mutter under his breath. “Pigeons, again.”
-
-
-
-Peaking from behind, another bird had joined my roadkill-esque stalker.
-
-
-
-Though not nearly as grotesque as its compatriot, the other pigeon was equally as misshapen, giving the silhouette of a living breathing creature, though adorned with a haphazard arrangement of miscellaneous parts of other fauna.
-
-
-
-Bellowing back to me in his familiar demanding tone, my fathers voice cut through the duet of broken squawks.
-
-
-
-“Make yourself useful and bring me something to smack them off with.”
-
-
-
-His venomous order had me on my heels as I ventured across the hall and into his room. I knew far too well that he kept a bat behind his wardrobe and though my mother didn’t condone it, she was idle in his presence.
-
-
-
-Moments before reaching out for the doorknob, a high-pitched wail emanated from the first floor as the squawks only grew louder, slowly contorting into what I can only describe as gleeful laughter, followed by a thud.
-
-
-
-Though in my heart I think I knew what they’d done, orders were orders. Gripping the bat and slowly stepping back into my room, my father was gone, and so were the creatures.
-
-
-
-Hesitantly stepping to the window, bat outstretched in my trembling hands. Peaking just over the eclipse of the chipped stone balcony, was a body, lying face down in the grass of my front garden.
-
-
-
-A swath of creatures encircled, as they quietly crept closer. There had to be around four or five, with the larger creature easily identifiable. That bird limped over to the body, before hopping on to his upper back. The perimeter of malformed pigeons cued as the larger one pecked.
-
-
-
-After only a few seconds of picking at the cadavers’ throat, it let out another unholy caw, this time resembling the broken scream of a person. Its call to devour elicited the gang of creatures to gorge themselves.
-
-
-
-I couldn’t look down there, regardless of how he was. Soft ripping and snapping sounds followed as my mind crafted a disgusting vision, imprinted on my psyche.
-
-
-
-Her screams quickly followed. Shouts of ‘get away’ or ‘leave him alone’ only momentarily paused their evisceration. What she hoped to gain from her hysteric please, I don’t know. Just stepping out there, however noble, had only sealed her fate.
-
-
-
-Oh, she screamed, unlike my father she was definitely alive, at least for the start. That same clawing, ripping sound had me balled up with my hands over my ears, trying in vain to block out their frenzied swarm.
-
-
-
-It wasn’t quick, at least he’d been silenced in one swift motion. The persistent pecking only seaced with a word. A name.
-
-
-
-Turning slowly, that crude organism was plastered to the window. Its mattered covering now a mixture of skin, fur and feathers, though stretching out from the rounded numb of its wings were three bony appendages, mimicking fingers.
-
-
-
-Flocked by its now quire of malformed raptors, it opened its snubbed beak, revealing a sparce spread of small human teeth and a long pink tongue.
-
-
-
-Then it spoke again.
-
-
-
-In a broken scratchy attempt at human speech, to my fractured mind, it really sounded like that creature said my name.
-
-
-
-\---
-
-  
-
-
-In the days since, I’ve had a multitude of calls and texts about my absence, though killer birds isn’t a strong excuse. I even called the police, said something or someone was trying to break in, it wasn’t hard to make it sound believable, but she stopped me.
-
-
-
-Only asking if I’d seen any strange birds.
-
-
-
-Thinking these creatures were known and they’d be willing to assist, I blurted out what I’d seen and what had happened.
-
-
-
-She let me rant, cry and sputter out the events of the last week, before saying sorry and hanging up.
-
-
-
-Repeated calls all resulted in a deadline. Maybe those creatures tampered with the fuse, or I was just being confined to my fate.
-
-
-
-It wasn’t like I could wait for anyone to just stumble over their bodies, looking down to the lawn below, nothing more than a small pool of stain grass remained in their wake. With me not having any other living family in the country, it wasn’t like I could coerce anyone to freely feed themselves to the swarm in hopes of rescue. 
-
-Could I make a run for it? Undoubtably pointless.
-
-Peeking out from behind my blind, they’d grown. Not just in size but in quantity. Every available branch, power line and spot on my balcony was covered in birds, all in varied stages of modification.
-
-That things now forward-facing eyes gleamed back into mine with a twisted smile cracking as it contorted across that creature’s twisted face.
-
-It must know I can’t stay here forever.
-
-Those ever-present squawks repeat as more join the cacophony of calls, all scratching out my name.
-
-That misplaced feeling of relief for not hitting what I deemed a poor defenceless animal, inverted. Its malicious ego intent to render me unappreciated, like carrion by the roadside.
+That *thing* down there…is supposed to be my twin sister. 

@@ -8,59 +8,59 @@ Anyways, here it is. Let me know what you guys make of it.
 
 . . .
 
-To this day I do not know whether to refer to the body as a “\*\*he\*\*” or a “\*\*her\*\*”. Those features had rotten away long before I had made my acquaintance, and I have not the medical knowledge to make the distinction with what still remained. Hence, I will use “\*\*they\*\*” when speaking of my… well not exactly friend… not any longer… but not a stranger either.
+To this day I do not know whether to refer to the body as a “**he**” or a “**her**”. Those features had rotten away long before I had made my acquaintance, and I have not the medical knowledge to make the distinction with what still remained. Hence, I will use “**they**” when speaking of my… well not exactly friend… not any longer… but not a stranger either.
 
-\*\*They\*\* are still out there. That is why I am setting my account to pen and paper, in hopes that those who may encounter \*\*them\*\* will have some measure of understanding of what they are conversing with. \*\*They\*\* are more, far more, than what \*\*they\*\* appear.
+**They** are still out there. That is why I am setting my account to pen and paper, in hopes that those who may encounter **them** will have some measure of understanding of what they are conversing with. **They** are more, far more, than what **they** appear.
 
-I spent every evening of the last ten years in \*\*their\*\* company. Perhaps you may think that it was against my will. This was not the case. \*\*They\*\* are enchanting. And \*\*they\*\* will only stay in your company as long as you allow \*\*them\*\*. \*\*They\*\* are quite respectful, in that sense. Not so much in others.
+I spent every evening of the last ten years in **their** company. Perhaps you may think that it was against my will. This was not the case. **They** are enchanting. And **they** will only stay in your company as long as you allow **them**. **They** are quite respectful, in that sense. Not so much in others.
 
-I think \*\*they\*\* are attracted to lonely people. Perhaps \*\*they\*\* are lonely too. I do not know. There is so much I do not know about \*\*them\*\*. What I can tell you is that I was quite lonely when \*\*they\*\* found me.
+I think **they** are attracted to lonely people. Perhaps **they** are lonely too. I do not know. There is so much I do not know about **them**. What I can tell you is that I was quite lonely when **they** found me.
 
-The first hint of \*\*their\*\* arrival was a low, pulsing instinct of panic. It felt as though I was being studied. That lasted a few weeks. It felt especially strong whenever I walked through the woods alone, as I often did in those days.
+The first hint of **their** arrival was a low, pulsing instinct of panic. It felt as though I was being studied. That lasted a few weeks. It felt especially strong whenever I walked through the woods alone, as I often did in those days.
 
 (I miss those walks. The woods completely engulf the humble cabin in which I live. I had so many sleepless nights in that cabin, then feeling… now knowing… that I was not alone.)
 
-One day, as I walked through a clearing a little past sunset, I looked behind me. There, at the edge of the tree line, I saw a shape following me. \*\*They\*\* were pretty far away, so I did not then have a good look at what I was staring at. But knowing what I do now (\*\*they\*\* told me years later), it would have been a floating, rotting, nervous system. Brain stem swaying this way and that. A gelatinous, fluid-leaking, grey-matter, blob bobbing up and down. The hundreds of thousands of nerve endings swirling like frills on a dress.
+One day, as I walked through a clearing a little past sunset, I looked behind me. There, at the edge of the tree line, I saw a shape following me. **They** were pretty far away, so I did not then have a good look at what I was staring at. But knowing what I do now (**they** told me years later), it would have been a floating, rotting, nervous system. Brain stem swaying this way and that. A gelatinous, fluid-leaking, grey-matter, blob bobbing up and down. The hundreds of thousands of nerve endings swirling like frills on a dress.
 
 But like I said. I did not get a good look back then. I thought it was perhaps a curious animal (perhaps I was not wrong after all). So, I kept my distance and minded my own business.
 
-\*\*They\*\* are not subtle. Not in the least. \*\*They\*\* were not trying to hide from me. Nor do I expect that \*\*they\*\* will try to hide from you. But I must emphasize that this does not mean that \*\*they\*\* are dull. \*\*They\*\* are of a far sharper mind than either you or I.
+**They** are not subtle. Not in the least. **They** were not trying to hide from me. Nor do I expect that **they** will try to hide from you. But I must emphasize that this does not mean that **they** are dull. **They** are of a far sharper mind than either you or I.
 
-Later that night, I spotted a skeleton strolling through my garden. \*\*They\*\* picked up a flower, a red carnation, and chewed its head off.
+Later that night, I spotted a skeleton strolling through my garden. **They** picked up a flower, a red carnation, and chewed its head off.
 
-(Much later, when I asked \*\*them\*\* about this incident, \*\*they\*\* explained that:
+(Much later, when I asked **them** about this incident, **they** explained that:
 
 “You had several such flowers. I did not think you would mind. I meant no offense. They were quite beautiful.”
 
-As I said, in some ways \*\*they\*\* are quite respectful. In others, not so.)
+As I said, in some ways **they** are quite respectful. In others, not so.)
 
-And just like that \*\*they\*\* were gone. Blinked out of existence.
+And just like that **they** were gone. Blinked out of existence.
 
 I thought to myself: “Surely I am mad.”
 
 If only.
 
-The next night, as I ate my supper (buttery mashed potatoes, caramelized carrots, and roasted mutton so tender it fell of the bone. All downed with a cup of Cabernet Sauvignon. But no dessert. As I mentioned before, the cabin was quite humble) \*\*they\*\* sat \*\*themselves\*\* next to me. One moment an empty chair, the next occupied.
+The next night, as I ate my supper (buttery mashed potatoes, caramelized carrots, and roasted mutton so tender it fell of the bone. All downed with a cup of Cabernet Sauvignon. But no dessert. As I mentioned before, the cabin was quite humble) **they** sat **themselves** next to me. One moment an empty chair, the next occupied.
 
-The naked, rotting corpse asked if it may have dinner with me, and I agreed. I should have screamed, I should have ran, but \*\*they\*\* were so charming. It was intoxicating. All the airs of gentry put into display. I do not remember exactly what \*\*they\*\* said, but I remember how \*\*they\*\* made me feel.
+The naked, rotting corpse asked if it may have dinner with me, and I agreed. I should have screamed, I should have ran, but **they** were so charming. It was intoxicating. All the airs of gentry put into display. I do not remember exactly what **they** said, but I remember how **they** made me feel.
 
 In a word; special.
 
-\*\*They\*\* ate \*\*their\*\* dinner. Bones and all. \*\*They\*\* did so most eloquently. Back straight, elbows off, each move with the utensils so smooth and refined it seemed almost like a dance. All the while \*\*they\*\* introduced \*\*themselves\*\* in between bites.
+**They** ate **their** dinner. Bones and all. **They** did so most eloquently. Back straight, elbows off, each move with the utensils so smooth and refined it seemed almost like a dance. All the while **they** introduced **themselves** in between bites.
 
-\*\*They\*\* are a traveller. \*\*They\*\* are looking for a place to rest. \*\*They\*\* love conversation. \*\*They\*\* hope to stay with me, if it is not inconvenient. \*\*They\*\* are in search of beauty. \*\*They\*\* love my garden.
+**They** are a traveller. **They** are looking for a place to rest. **They** love conversation. **They** hope to stay with me, if it is not inconvenient. **They** are in search of beauty. **They** love my garden.
 
-\*\*They\*\* then asked about me, and I told \*\*them\*\* then what I will tell you now.
+**They** then asked about me, and I told **them** then what I will tell you now.
 
 I am retired. I used to be a teacher. I do not have a family anymore. I am also in search of beauty. I plan to die here.
 
-\*\*They\*\* smiled at that. Flesh hanging loosely from bleeding lips. I remember quite clearly \*\*them\*\* saying:
+**They** smiled at that. Flesh hanging loosely from bleeding lips. I remember quite clearly **them** saying:
 
 “It is a wonderful choice for such an important moment.”
 
-Then \*\*they\*\* told me of an ancient mausoleum, now long destroyed: So tall was the structure that one could scarcely see the statues that adorned its roof. It looked across the Mediterranean, clear blue waters lapping at its feet. It was built for a great king, now long forgotten. \*\*They\*\* said it could not compare with the beauty of these log walls.
+Then **they** told me of an ancient mausoleum, now long destroyed: So tall was the structure that one could scarcely see the statues that adorned its roof. It looked across the Mediterranean, clear blue waters lapping at its feet. It was built for a great king, now long forgotten. **They** said it could not compare with the beauty of these log walls.
 
-When the grandfather clock rang, marking the hour, \*\*they\*\* bid farewell and exited via the front door. \*\*Their\*\* worm infested legs did not look as though they had enough muscle to support \*\*them\*\*, but \*\*they\*\* did not stumble nor did \*\*they\*\* even wobble. I saw \*\*them\*\* walk into the trees, graceful as ever.
+When the grandfather clock rang, marking the hour, **they** bid farewell and exited via the front door. **Their** worm infested legs did not look as though they had enough muscle to support **them**, but **they** did not stumble nor did **they** even wobble. I saw **them** walk into the trees, graceful as ever.
 
 It was only as I slept that night, that the shock of what had happened dawned on me. I awoke, clammy flesh sticking to my shirt as I bolted upright. I explored around my house, clearing each room with a kitchen knife in one hand. Once satisfied that I was alone, I looked out every window of my cabin. Nothing but moonlit forest and creeping mists. Could it have been a dream?
 
@@ -72,27 +72,27 @@ When morning came, I found the courage to emerge. I spent the day barricading th
 
 I could not leave. I had planned to die here in peace and solitude. No car. No phone. No computer. Merely a grocer who came out once a month to deliver a pre-arranged order. Nearest town was six miles away. Nearest neighbour two. Were I younger it would not have been a challenge, but I feared I could not cover such a distance before nightfall.
 
-As you probably imagined, my preparations were for naught. Later that evening \*\*they\*\* appeared again, sat in my now tableless dining room. This time \*\*their\*\* top half was flayed, the skin hanging loose around \*\*their\*\* waist. This provided the only modicum of decency for the naked cadaver.
+As you probably imagined, my preparations were for naught. Later that evening **they** appeared again, sat in my now tableless dining room. This time **their** top half was flayed, the skin hanging loose around **their** waist. This provided the only modicum of decency for the naked cadaver.
 
-\*\*They\*\* looked around confused. I explained that the barricades were to keep \*\*them\*\* out. \*\*They\*\* apologized, got up and began to make \*\*their\*\* way out when I stopped \*\*them\*\*. I asked if \*\*they\*\* would not rather stay for a cup of tea. \*\*They\*\* agreed on one condition: that \*\*they\*\* help put my cabin back to its previous state.
+**They** looked around confused. I explained that the barricades were to keep **them** out. **They** apologized, got up and began to make **their** way out when I stopped **them**. I asked if **they** would not rather stay for a cup of tea. **They** agreed on one condition: that **they** help put my cabin back to its previous state.
 
-So, we spent the night laughing and joking about schizophrenic paranoids while we repaired my humble home. \*\*They\*\* even put the table back together, I do not remember how. Sometimes \*\*they\*\* could just make things happen. \*\*They\*\* liked my Earl Grey; I remember that part quite clearly however.
+So, we spent the night laughing and joking about schizophrenic paranoids while we repaired my humble home. **They** even put the table back together, I do not remember how. Sometimes **they** could just make things happen. **They** liked my Earl Grey; I remember that part quite clearly however.
 
-(It is so surreal to write it all down now. All the signs I ignored because I wanted to believe that the monster before me was something better than what I could see with my own eyes. Even now, I feel disturbingly calm knowing that my death has been appointed to an hour not far. Is this \*\*their\*\* doing also? If so, I thank \*\*them\*\*, for I would not be able to hold a pen straight otherwise.)
+(It is so surreal to write it all down now. All the signs I ignored because I wanted to believe that the monster before me was something better than what I could see with my own eyes. Even now, I feel disturbingly calm knowing that my death has been appointed to an hour not far. Is this **their** doing also? If so, I thank **them**, for I would not be able to hold a pen straight otherwise.)
 
-As was the case before, \*\*they\*\* departed without fuss once it grew late enough. Happy as you please, \*\*they\*\* walked into the mists. Again, I woke up in a cold sweat. Yet now I was a little less frightened than the night previous.
+As was the case before, **they** departed without fuss once it grew late enough. Happy as you please, **they** walked into the mists. Again, I woke up in a cold sweat. Yet now I was a little less frightened than the night previous.
 
-This repeated. Night after Night. Week after week. Year after year until today. Less than six months later I no longer hid in the closet waiting for morning to come. A year went by and I no longer awoke in terror. Five and I found myself missing \*\*their\*\* company in the daytime. Each night \*\*they\*\* came in the form of a different cadaver, unique in its morbidity.
+This repeated. Night after Night. Week after week. Year after year until today. Less than six months later I no longer hid in the closet waiting for morning to come. A year went by and I no longer awoke in terror. Five and I found myself missing **their** company in the daytime. Each night **they** came in the form of a different cadaver, unique in its morbidity.
 
-We spoke of poetry, literature, and film. Lines that made me cry and passages that struck at \*\*their\*\* heartstrings. \*\*They\*\* made me see the works I loved in a new light. Brought life back to books which I had read cover to cover countless times. I cannot express how wonderful our conversations were.
+We spoke of poetry, literature, and film. Lines that made me cry and passages that struck at **their** heartstrings. **They** made me see the works I loved in a new light. Brought life back to books which I had read cover to cover countless times. I cannot express how wonderful our conversations were.
 
-\*\*They\*\* introduced me to so many beautiful things. Things that I had never heard of before like the symphonies of Blecher, and Di Pasqua, and Farkash. There were the paintings of Sebastiani, and Haven, and Gnap too. I remember them all so fondly. \*\*They\*\* told me of how these pieces had been shunned in their time. Of how they were forgotten by everyone but \*\*they\*\*. \*\*They\*\* collected beauty. Forgotten or not. Appreciated or not.
+**They** introduced me to so many beautiful things. Things that I had never heard of before like the symphonies of Blecher, and Di Pasqua, and Farkash. There were the paintings of Sebastiani, and Haven, and Gnap too. I remember them all so fondly. **They** told me of how these pieces had been shunned in their time. Of how they were forgotten by everyone but **they**. **They** collected beauty. Forgotten or not. Appreciated or not.
 
-(To show me these works \*\*they\*\* would slice open \*\*their\*\* stomach and pull-out whichever piece \*\*they\*\* wished to share with me that night from within \*\*their\*\* black guts. These would trail behind \*\*them\*\* for the rest of the night. Sometimes it would be a painting, sometimes a vinyl disc. Once it was a crown. I know it sounds absurd, but I cannot deny what I saw.)
+(To show me these works **they** would slice open **their** stomach and pull-out whichever piece **they** wished to share with me that night from within **their** black guts. These would trail behind **them** for the rest of the night. Sometimes it would be a painting, sometimes a vinyl disc. Once it was a crown. I know it sounds absurd, but I cannot deny what I saw.)
 
-Once I asked \*\*them\*\* where \*\*they\*\* went when morning came. \*\*They\*\* bluntly stated that \*\*they\*\* chased the moon, always and forever, and that \*\*they\*\* did not ever want to see light of day. \*\*They\*\* always made sure to travel ahead of the sun. The one and only time I saw \*\*them\*\* become angry at me during this time was when I suggested the beauty that a sunrise might possess. \*\*They\*\* disagreed vehemently, to put it lightly.
+Once I asked **them** where **they** went when morning came. **They** bluntly stated that **they** chased the moon, always and forever, and that **they** did not ever want to see light of day. **They** always made sure to travel ahead of the sun. The one and only time I saw **them** become angry at me during this time was when I suggested the beauty that a sunrise might possess. **They** disagreed vehemently, to put it lightly.
 
-Last year, I gathered the courage to ask \*\*them\*\* the question which I know you are now wondering:
+Last year, I gathered the courage to ask **them** the question which I know you are now wondering:
 
 “How can a corpse speak? How can a corpse walk?”
 
@@ -100,31 +100,31 @@ This I remember quite clearly, for it scared me (Though, perhaps not as much as 
 
 “I am sorry if my figure is less than refined. Every night I try to improve, but I lack the materials.”
 
-I asked \*\*them\*\* if I could supply the requisite materials.
+I asked **them** if I could supply the requisite materials.
 
 “Yes. But I hesitate to ask you, as you are a dear companion and I have lost many friends over this issue.”
 
-\*\*They\*\* paused for a time. I too remained quiet. Eventually \*\*they\*\* spoke again:
+**They** paused for a time. I too remained quiet. Eventually **they** spoke again:
 
 “I have never felt as close to a soul as I have with you. No other has tolerated my company longer than you. Perhaps one can hope that you will be more understanding of what I would ask of you.”
 
-\*\*They\*\* turned to look at me, \*\*their\*\* failing body making squishing, putrid noises. I looked into an empty socket, and then into the one cloudy eye which remained to \*\*them\*\*. It had maggots crawling inside of it, I could tell from the way it vibrated. I felt love in that gaze.
+**They** turned to look at me, **their** failing body making squishing, putrid noises. I looked into an empty socket, and then into the one cloudy eye which remained to **them**. It had maggots crawling inside of it, I could tell from the way it vibrated. I felt love in that gaze.
 
-I told \*\*them\*\* to ask.
+I told **them** to ask.
 
 “I need living flesh. Your flesh. I have tried to replicate the form, as a painter replicates a landscape. But all my subjects have been… what you see before you.”
 
-I asked \*\*them\*\* how \*\*they\*\* replicate the form. \*\*They\*\* bid me to join \*\*them\*\*. \*\*They\*\* took my hand (\*\*theirs\*\* was frigid cold) and led me outside.
+I asked **them** how **they** replicate the form. **They** bid me to join **them**. **They** took my hand (**theirs** was frigid cold) and led me outside.
 
-I am not sure how in my old age I managed to walk with \*\*them\*\* to a cemetery, as far as I know there is not one for miles. There \*\*they\*\* stood on top of a grave. One lonely, pulsating eye reflecting moonlight. \*\*They\*\* dug out the coffin barehanded with speed, and with grace. Six feet of soil piled beside \*\*them\*\*. \*\*They\*\* ripped the wooden box open and waved for me to come closer. Inside was a nearly fresh body. Barely any worms had yet found it. She was wearing her Sunday best, as we all might when our day comes.
+I am not sure how in my old age I managed to walk with **them** to a cemetery, as far as I know there is not one for miles. There **they** stood on top of a grave. One lonely, pulsating eye reflecting moonlight. **They** dug out the coffin barehanded with speed, and with grace. Six feet of soil piled beside **them**. **They** ripped the wooden box open and waved for me to come closer. Inside was a nearly fresh body. Barely any worms had yet found it. She was wearing her Sunday best, as we all might when our day comes.
 
-\*\*They\*\* got down on \*\*their\*\* hands and knees and began to devour. \*\*They\*\* did not spare the bones. \*\*They\*\* started with the feet, biting off each toe individually. The legs \*\*they\*\* also ate one at a time. Afterwards \*\*they\*\* started on the fingers and hands, then arms. The torso came next, and this took the longest as \*\*they\*\* savoured each organ one at a time. Last came the head. Eyes first, then tongue. Nose and ears followed. All was eaten until only the brain remained. This \*\*they\*\* ate with much glee.
+**They** got down on **their** hands and knees and began to devour. **They** did not spare the bones. **They** started with the feet, biting off each toe individually. The legs **they** also ate one at a time. Afterwards **they** started on the fingers and hands, then arms. The torso came next, and this took the longest as **they** savoured each organ one at a time. Last came the head. Eyes first, then tongue. Nose and ears followed. All was eaten until only the brain remained. This **they** ate with much glee.
 
-“The best for last,” \*\*they\*\* said.
+“The best for last,” **they** said.
 
-All that was left were the clothes. \*\*They\*\* proceeded to put the coffin back together, and the earth too. When all was done,  \*\*they\*\* walked me back to my cabin. I looked back as we left and saw that the site looked as though nothing at all had transpired.
+All that was left were the clothes. **They** proceeded to put the coffin back together, and the earth too. When all was done, **they** walked me back to my cabin. I looked back as we left and saw that the site looked as though nothing at all had transpired.
 
-When we returned, \*\*they\*\* sat me down and prepared a cup of green tea. \*\*They\*\* asked if I would give \*\*them\*\* what they needed. The maggots had since burst out of the eye and were now spilling out, some into my tea.
+When we returned, **they** sat me down and prepared a cup of green tea. **They** asked if I would give **them** what they needed. The maggots had since burst out of the eye and were now spilling out, some into my tea.
 
 “Yes.”
 
@@ -132,11 +132,11 @@ When we returned, \*\*they\*\* sat me down and prepared a cup of green tea. \*\*
 
 The tea was good, maggots or not.
 
-The next night \*\*they\*\* came. Asked if I was ready. I said no. \*\*They\*\* grew angry but left regardless. The same the night after, and the one after that. This has been my life for the last year. As of a couple months ago, \*\*they\*\* would just stand outside my cabin staring into my eyes. This changed not long ago.
+The next night **they** came. Asked if I was ready. I said no. **They** grew angry but left regardless. The same the night after, and the one after that. This has been my life for the last year. As of a couple months ago, **they** would just stand outside my cabin staring into my eyes. This changed not long ago.
 
  
 
-\*\*They\*\* appeared inside my home, first time in nearly three months. \*\*They\*\* said:
+**They** appeared inside my home, first time in nearly three months. **They** said:
 
 “You made a promise. Those of my kind do not take those lightly. Your body is starting to fail. You are dying soon, but trust that before that happens I will have my due. Three nights. Farewell.”
 
@@ -144,13 +144,13 @@ That was two nights ago, and the sun is beginning to set.
 
 I beg of you do not repeat my errors. I was weak and lonely.
 
-Do not trust \*\*them\*\*. Do not let \*\*them\*\* into your home. Do not let \*\*them\*\* into your heart.
+Do not trust **them**. Do not let **them** into your home. Do not let **them** into your heart.
 
  
 
-I am sorry. It will be harder for you than it was for me. For soon \*\*they\*\* will have a living subject.
+I am sorry. It will be harder for you than it was for me. For soon **they** will have a living subject.
 
-And when \*\*they\*\* introduce \*\*themselves\*\*, it will not be as a corpse.
+And when **they** introduce **themselves**, it will not be as a corpse.
 
 . . .
 
