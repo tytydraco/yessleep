@@ -1,0 +1,48 @@
+It was a prank.
+
+We all thought it was just an elaborate prank.
+
+The sun rose and the park was filled with mannequins. What else was the city supposed to think? Cops roped the place off. People laughed. The newscasters had a great time making jokes about the clothesless fashion show. That was Monday.
+
+By Tuesday, people were dying.
+
+It was a bus, found in the middle of the road just to the east of the park. Sitting in the middle of the road, the door locked shut. The cops pried it open and blood spilled out, dripping down the step onto the pavement. The bodies inside had been flayed open, skinned, nothing left but stringy muscle and thick, yellowed fat.
+
+They didn't tell anyone that, of course, and the reporters kept things kosher for any kids that might have been watching but...my cousin is the local ME here in Coppervale. Was. Shit.
+
+Her name was Ginger. She was forty-two and she loved the color pink. The most girly-pop woman you've ever met, except she handled dead bodies for her 9-5. I always ended up getting the dirty details from her when weird cases came in but...she was freaked out this time.
+
+Can you blame her?
+
+Thirteen people. Two of them under sixteen. Skinned.
+
+Their flesh was missing.
+
+I worked the late shift Tuesday. I'm not cool like Ginger. The most interesting thing that ever happens at the Stop N Shop is when one of the locals comes by drunker than usual. I caught someone pissing in the energy drink cooler last autumn.
+
+So yeah, it's just...normal gas station clerk shit.
+
+But that Tuesday, I was freaked. Everyone in Coppervale was freaked. It was almost the end of my shift when I realized someone was in the parking lot, just standing. I cleaned the bathroom, came back out. Still there. Standing by the pump, totally still.
+
+I pushed the door open. "Hey!" My voice carried through the silent dark.
+
+The figure didn't move.
+
+"The hell are you doing out there?"
+
+A car pulled in, headlights catching on the shape—it wasn't a human. It was a mannequin, just like the ones in the park. Cold fear washed through me. I backed into the gas station, closed the door, and locked it.
+
+The car paid at the pump and left. No one else came by.
+
+When I was brave enough to look outside again twenty minutes later, there were three more of them. One of them had something plastered all over it. I thought it was papier-mâché at first. Then another car pulled in, headlights blaring over the forms—this one didn't stop, just picked up speed and went out the other side of the parking lot.
+
+I didn't blame them. In those few moments when the lights were catching on the form of the mannequin, I realized it was *flesh* on it. The missing skin from one of those poor bastards on the bus.
+
+That's when I went into the back and grabbed my phone. Yeah, I've already called 911 but...look, I'm not sure if that matters.
+
+By the time I came back out into the front, there were about a dozen out in the parking lot, all of them crowded close to the door, five of them wearing human flesh. It's clinging to their false faces like a grotesque mask, empty eye sockets coagulated red, clinging in thick globs.
+
+I tried attaching a picture but it won't load. I think the bots are kicking it out because of the gore. If I make it home tonight, I'll post an update. And if not...I don't know.
+
+Maybe I'll end up on Ginger's table tomorrow.
+

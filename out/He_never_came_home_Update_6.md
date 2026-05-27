@@ -1,0 +1,81 @@
+[Link to Original Post](https://www.reddit.com/r/nosleep/comments/1sqvx1e/the_police_refuse_to_recover_a_corpse_in_our/)
+
+[Link to Previous Update](https://www.reddit.com/r/nosleep/comments/1tmqrox/theyre_already_here_theyve_been_here_all_along/)
+
+Hi, Reddit. I'm sorry that you're not getting your usual narrator today. I've never really been one for stuff like this, writing blog posts and all, but it gives me something to do while I wait, and besides, Mace was pretty adamant on me keeping these updates going if something happened to him. Beyond just leaving a paper trail of all that's happened, I think it comforted him some to talk to all of you. 
+
+Looking at this account's history, I guess I'm not exactly a new character in this saga. My name's Jacob, and back in April of this year, the body of an unidentified man was found in our local caves. I can't corroborate a lot of what Mason's written on here; aside from the dead man, I've never seen anyone in First Date, friendly or otherwise. Even so, I can still attest that there's weird shit going down. Me personally, I think I would've left it alone a long time ago, but my brother's always had this thing about helping people. He likes being the hero, I guess, even when everyone can see he's in over his head. 
+
+When he was 10 and I was 7, there was this kid in our neighborhood. Tom. He, my brother, and Noah were thick as thieves. Did everything together. One Spring, after some heavy rain, Tom and Mace went for a swim in Redthread—a big river snaking through the outskirts of our town. Noah was sick with pneumonia or something, and so it was just the two of them. I remember I was watching cartoons in the living room when the cops called my mom to tell her that Tom was dead. He'd swum too close to a low-head dam, obscured by the high waters, and the currents had held him under until he drowned. Awful way to go. Mason ran to the nearest farmhouse for help but there had only been so little time. I'm not here to psychoanalyze or anything, but you can imagine what that'd do to you in the long run.
+
+So, given all that, I knew he was lying when he said he was done with Needle. But what could I do? I was at a friend's house on Sunday night, so I didn't see him. Monday morning, once I got back to the house, he was already gone. That was no surprise—he likes to get an early start. I hoped he was back at the library and not underground. I spent most of the day with friends and didn't come home until dark. By 10 or so, when he still hadn't come home, I sent him a text. By 11, I called him and he didn't pick up. Normally I wouldn't be on his ass like this but with everything going on, I was worried. By midnight I had the idea to go to the garage, and when I saw that all the gear was gone, I knew something he'd run into trouble.
+
+I didn't want to go directly to the police, and telling my folks was just going to the police with an extra step. Instead I snuck out, hopped on my bike (taking a car would've made too much noise) and went directly to Lucy's place. Miraculously none of her kids blew my head off for knocking on Lucy's door in the middle of the night. One of her daughters-in-law opened the door and ushered me inside, and soon I had the audience with the woman herself. She and her kids are a scary bunch, tell truth, but Lucy's always had a soft spot for Mace, and I guess me by extension, so I knew she'd help me out. 
+
+"I think he went back down," I was saying to her. "We saw all sorts of things, down under that old tobacco farm, and we never got to finish exploring. You think Earl and Keith could come down with me, just this once? Help me check for him?" 
+
+When I finished explaining, Lucy looked uncharacteristically tense. She delivered her next words slowly and softly, but her tone did nothing to lessen the blow. 
+
+"Honey, yesterday morning, we saw some county vehicles driving onto the farm: a flatbed, a backhoe, and … um, a concrete truck." 
+
+I've never felt so nauseous in all my life as I did hearing her say that. I told her maybe it wasn't what we thought it was and she agreed, then offered to check with me. She went to wake up her boys and then the four of us took their truck over to the barn. 
+
+I didn't squeeze in through a hole in the wall this time. There was no need; the workmen had left the barn doors wide open. The trapdoor was gone, and in place of the entrance with stairs leading down was smooth, freshly poured concrete. 
+
+I felt like I couldn't breathe. 
+
+Frantically, I started asking Lucy who we could call. I wanted to act right away, while the pour was still fresh and the concrete hadn't yet reached full strength. I thought if we got a jackhammer up to the farm, we might be able to make a small opening after a few hours of work. 
+
+As we were talking, my phone started going off like crazy. I ignored the first few buzzes, but when I took it out to put it on Do Not Disturb, I saw that all of the missed calls and texts were from Kaylee. Her most recent message read:
+
+*Please tell me you're ok.*
+
+I replied: *Yeah fine. Did something happen?*
+
+*Someone broke in*. She texted. *Get home ASAP*. 
+
+As if the night couldn't get any fucking worse. I showed the message to Lucy and she drove me back home. Sure enough, there were two cop cars in front of our house. My parents and siblings were on the porch, talking to the officers. Kaylee ran over and gave me a hug after we pulled up. 
+
+She tearfully told me what had happened: she'd been awoken by noises coming from Mason and my room. Figuring we were sneaking out to go caving, she had walked over to tell us to keep it down. When she had opened the bedroom door, she'd seen someone hunched in the corner of the room, next to the open window they'd presumably climbed in from. She hadn't stayed long enough to make out many details of the person's appearance, but she had seen a long blade in their hand, more like a machete than a knife. She ran to notify my parents, and the police were called immediately. They didn't catch the intruder, whoever they had been. 
+
+"Where's your brother?" was my mom's first question to me. The officer closest to her stopped writing on his clipboard to look up at me, presumably wondering the same thing. I recognized the guy—he'd been one of the cops on scene at the tobacco farm. The name on his uniform read "Belle". 
+
+In retrospect, I wondered if I should've lied, but I felt I was running both out of options and out of time. I explained everything to my parents and the police excluding, of course, our suspicions of the latter. My parents were as pleased as you'd expect to hear about all our breaking and entering, but at least they recognized that the urgency of finding Mason eclipsed their disapproval. 
+
+My mom started urging the officer to get some men up to the farm to break up the concrete, but he raised a hand to tell her to slow down. 
+
+"Hold on now. We're not even sure the man's missing yet. Even if he was, how do you know the tobacco farm's the place he ran off to?" He turned his attention to me. "What do you think, kid? Is there anywhere else he might've gone?"
+
+There was, though I was loath to say it. 
+
+"He spent a lot of time in Needle recently. The northernmost part, by the passage called 'First Date.'"
+
+"Ah. Well, we can check that one off the list. The only two entrances into Needle have been closed and locked for a spell now. He couldn't have gotten down there. Unless, of course … There's an entrance you know about that I don't?" 
+
+The bastard looked at me expectantly, knowing that he'd already won. 
+
+By dawn I was down at the station, walking county Search and Rescue officials through Lucy's farm route. Our local cops looked nothing short of giddy when they looked over my shoulder at the map I'd drawn. It felt fucking awful, but having actual SAR there made me feel a little better. It took them forever to get down to Needle because the cops insisted there was a gas leak, so they wasted hours taking readings that came up clear. I wonder if they were just trying to maintain their story, or if they were purposely stalling.
+
+SAR opted to take the Redding Street Corridor, which was wider and easier to move through. If they didn't find Mason near First Date, they would ascend up through Lucy's Corridor and continue looking for him on the way. They descended in the early morning. The following two hours were the longest of my entire life. 
+
+Then, a miracle happened. 
+
+They brought him out through the Redding Street entrance just after ten in the morning. SAR had him in a flexible stretcher. He was strapped in with his head immobilized, the way they do when they're not sure about the neck. I could see the gash on his forehead from twenty feet away. The blood had dried black against his skin and spread down across his brow in a wide stain. The rest of him wasn't much better—his arms were covered in deep purple bruises and there were scrapes across every exposed inch of skin. One of the SAR team peeled off to intercept my family and tell us he was alive and breathing, that his pupils were unequal and he'd been intermittently conscious underground, and that they suspected a significant head injury. *Significant.* 
+
+I pushed through the crowd that had accumulated to the ambulance as they were loading him. I wasn't allowed to ride with him—the one spot they'd reserved for family went to my mom—but I wanted to see him all the same. The motion must have reached him somehow because his eyes opened and for just a second they found my face. His mouth moved, his words coming out thick and slurred.
+
+"I saw it," he said, before his eyes drifted shut and the paramedics shut the doors between us.
+
+I didn't get to see him again until the evening, but my mom texted us some good news in the interim. The CT scan hadn't shown any bleeding on the brain, but he had a bad concussion and the hospital wanted to keep him for observation. Their working theory was that he'd taken a bad fall somewhere in the cave system, hit his head on the rock, and then wandered for some period of time in a confused state before losing consciousness right near the mouth of First Date. They had no way of knowing how long he'd been down there, but based on his dehydration levels they estimated between thirty and thirty-six hours.
+
+My dad dropped me at the hospital a little after nine. I hadn't been inside a hospital since I broke my arm when I was 9, and walking those halls at night reminded me why I hadn't missed it. In a way, it was kind of like the perfect inverse of the caves: the halls were too wide, the lights were too bright, and every surface was weirdly smooth. A nurse walked me up to Mason's room. There was a police officer sitting in a little chair outside his room, just like there's now a cop car on the side of the road in front of my house. They say it's for our protection while they look into the armed intruder, but I know they're really sending a message to me and Mason. *We've got our eyes on you*. 
+
+The nurse reminded me to keep the lights off and the noise down before she pulled the door shut behind her. Mason looked better than he had coming out of the cave, but he still looked like hell. What the fuck had happened down there, anyway? I wanted so badly to wake him up and ask what he had seen, but instead I settled into the empty bed next to him and played video games with my headphones in for a few hours. 
+
+Around midnight I got hungry and went looking for the vending machines. I found a row of them in this dusty, dimly-lit alcove at the end of the hall. The one I wanted was dark. I pressed a few buttons, then crouched down to look at the bottom and found the power cord running out the back, unplugged, the outlet sitting just visible in the gap between the machine and the wall. I couldn't reach it with my arm. Maybe if I sidestepped into the little gap, First-Date-style, I'd be able to re-plug it. The thought actually made me laugh out loud. I've had enough tight spaces for one lifetime. I went over to the last machine in the row and bought a Coke instead.
+
+When I turned to leave, there was a tall man standing in the entryway. There was something kinda familiar about him, but at the same time, I feel like I'd remember his distinct appearance. He was really pale, for one thing, and had extremely sharp features. His hair was buzzed and his clothes were clean and well-tailored. He had this weird, kinda tense posture about him. I don't know how to describe it exactly, but he looked like he was about to uncoil like a spring. I started walking toward the entryway and he didn't move. 
+
+"You mind?" I asked. He didn't say anything. After a second his lips pulled back in a smile, and the teeth they revealed were yellow and uneven, almost jagged. He reached into his pocket and I actually took a step back, thinking he was about to pull a knife or something. Instead, he pulled out a ballpoint pen. He extended his arm toward me. When I didn't move, he motioned with the pen, clearly wanting me to take it from him. Reluctantly, I did. Once I had the pen in my hand, he gave me a nod, then turned and walked out of the alcove. I heard the door to the stairwell slam shut a few seconds after. I didn't have the vaguest idea what had just happened until I went back to Mason's room and had the mind to look through these posts.
+
+There's not much left to say or do for now. He'll wake up eventually, and with any luck he'll be able to remember what happened down in Needle. If he does … I guess I'll post it here until he's in the clear to look at screens again. He might've been onto something with this whole Reddit thing. It's been kinda cathartic, if nothing else, to jot everything down. Anyway, I'll see you all in the next one.

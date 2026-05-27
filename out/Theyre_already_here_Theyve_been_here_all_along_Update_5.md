@@ -1,7 +1,7 @@
 [Link to Initial Post](https://www.reddit.com/r/nosleep/comments/1sqvx1e/the_police_refuse_to_recover_a_corpse_in_our/)
 
-[Link to Previous Update](https://www.reddit.com/r/nosleep/comments/1tjlcnm/theres_a_whole_other_world_down_there_theres_more/)  
-  
+[Link to Previous Update](https://www.reddit.com/r/nosleep/comments/1tjlcnm/theres_a_whole_other_world_down_there_theres_more/)
+
 I'll try to keep this concise. I've said that before, and end up writing a small novel regardless, but this time I've got no choice but to hurry. I've got somewhere to be. 
 
 To start, the police. I finally got someone official to take me seriously, largely thanks to the advice of all of you. Earlier this week, after the tobacco farm, I went over the heads of my local PD and filed a tip via the Kentucky State Police's civilian portal. Unidentified body, questionable handling by local officers, possible obstruction. I left out anything that might've gotten me referred to a psychiatrist. A trooper called me back yesterday, said she'd look into it, that she'd call me again soon for more details. She wasn't exactly setting her hair on fire over it, but it was still better news than I'd gotten in months.
@@ -79,3 +79,5 @@ I went to the garage and started loading a duffel bag. Drill, two batteries, a h
 My last stop before heading out was to sit down and type this up, so that someone will know where I've gone if it comes to that.
 
 I wanted to say thank you, all of you, for your advice and concern, in case I don't get the chance to say it later. God willing, I'll be back online very soon with some good news.
+
+[Link to Next Update](https://www.reddit.com/r/nosleep/comments/1tonz7r/he_never_came_home_update_6/)
