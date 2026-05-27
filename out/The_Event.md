@@ -1,0 +1,45 @@
+I saw a dream today. I wrote it down before I forgot about it.
+
+There was something terrifying in the dream.
+
+A god. Or something close to one.
+
+There was a trigger for its arrival, but the rules were unclear and inconsistent, like the dream itself couldn’t decide. Maybe it was walking down a specific road. Maybe touching a certain crop in a field. Something ordinary, accidental. Anyone could trigger it if the conditions were met.
+
+Once triggered, the person would witness a vision.
+
+Far away, at the top of a mountain, an impossibly bright azure light would appear. Not just light — a presence. Something so overwhelming that the mind immediately interpreted it as divine. Ancient. Absolute. The kind of thing that makes you think only one word:
+
+“God.”
+
+After the vision, there was a delay. Then eventually, inevitably, they would come.
+
+The beings themselves were unclear. Death bringers. Demigods. Servants of whatever was in the light. But one thing was certain:
+
+If they came for someone, it meant death.
+
+The terrifying part was that the vision itself wasn’t rare or miraculous. It could happen to anyone. The world seemed to exist normally beside this hidden rule, as if humanity had simply learned to live around it without understanding it.
+
+But there were ways to survive.
+
+One method involved gathering in groups of six. If six people who had seen the vision came together, the curse — or whatever it was — could be negated. There was another method too, something important, but it’s forgotten now. Lost with the dream.
+
+What remained strongest was the feeling: that somewhere beyond the mountains, something godlike was watching, and that a simple mistake could make it notice you.
+
+In the dream, it happened to me twice.
+
+One time, I was with my father. He sensed that I had the vision and immediately understood what had happened. He knew a way to negate the event. I don't remember what he did, but it felt like knowledge that ordinary people didn’t have — something only spiritually powerful people knew. He was strong. There was no panic in him. He knew exactly what to do.
+
+The second time, I was with my friend on a bike. We were riding through a narrow road between fields of crops. The entire place had an eerie vibe, like something was waiting for us there. My friend was scared the whole time, hoping we wouldn't trigger the event. I don't know if it was the road or the crops that caused it.
+
+Then a stick from one of the crops flew past us in the wind, and I grabbed it.
+
+My friend immediately started screaming at me.
+
+We were already scared and trying not to trigger the event, but I think we weren’t careful enough. After some time, I saw a fiery path beginning to form ahead of me. Orange and red flares burned through the air like signs of something approaching, something ancient. It didn’t feel like normal fire. It felt like the world itself was warning us that they were coming.
+
+The death bringers had noticed us.
+
+My friend stopped the bike and tried running away. I grabbed the bike instead, started it, and drove the other way as fast as I could.
+
+I don't think I made it far enough, because then I woke up.
