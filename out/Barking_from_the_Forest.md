@@ -1,0 +1,103 @@
+Hey, I don’t really know who to talk to about this, so I thought I’d just post my experience here. Maybe someone can help me out.
+
+First of all, hi. My name is John and I just turned 20. I live in a small town in the Black Forest called Alpirsbach.  
+
+It’s idyllic, mountains, lots of nature and friendly people. I didn’t grow up here, I’m from a big city. I moved down here 2 months ago because I found a better job and of course to be closer to my girlfriend Alina. She doesn’t live directly in Alpirsbach, but a few villages away. We’ve been together for 2 years now and I visited her whenever I had time off. I always loved being with her, and now I can see her more often. We don’t live together yet, but we’re working on it.
+
+Until recently, I thought everything was perfect. I have a well‑paid job, a great girlfriend and I live in a nice area. But suddenly strange things started happening. You need to know, Alpirsbach is right in the middle of the Black Forest, surrounded by mountains, caves and dense woods as far as you can see. People go missing from time to time, like hikers who get lost in the woods. I googled it, and usually in Alpirsbach only one or two people disappear every few years, and they’re found quickly.  
+
+But in the last month, at least one person has gone missing every week, and they haven’t been found. That worries me, especially because at night I hear strange noises coming from the woods. Sometimes it sounds like human voices, sometimes wolves howling, or even bears roaring, even though the Black Forest doesn’t have bears. I tried to calm myself down, telling myself I’m imagining things because I’m sleep‑deprived from work.
+
+The day before yesterday I had the day off and wanted to visit my girlfriend. Since I wanted to take the bus at 6:00 in the morning, I got up at 5:30 and started getting ready. I lost track of time and saw the bus driving away right in front of me. I thought, no problem, I’ll just take the forest path. It takes longer, the forest path is about 30 minutes and getting to my girlfriend takes about an hour, but better that than waiting 2 hours for the next bus.
+
+I walked toward the forest path, even a bit excited because I love that path. Lots of hills, but beautiful nature with a stream running along the side. About 100 meters ahead I could already see the entrance to the forest path. Outside it was getting lighter, but inside the woods it still looked very dark.  
+
+I saw a small dot in front of the entrance. I thought maybe it was a new sign they put up, because there wasn’t anything there before. I got closer and slowly the dot looked more and more like an animal. Then I realized what it was. A dog, sitting right at the entrance. Just sitting there, staring at me. Completely still, its eyes locked on me. It didn’t even react to the squirrel running past it. Its entire focus was on me.
+
+I got closer and thought maybe it was looking past me, maybe something was behind me. I stepped to the right and its eyes followed me. I stepped to the left and its eyes followed again. I also had the feeling its eyes looked almost human. Now I could see the breed too, an Aussiedoodle.
+
+I like dogs, but that stare sent chills through my whole body. I wanted to turn around, but I knew if I didn’t make it to breakfast on time, my girlfriend would kill me.  
+
+I walked past the dog, which still stared at me, and entered the forest. As I passed it, it smelled like wet, musty dog fur mixed with rotting meat and blood.
+
+I kept walking. It was beautiful as always. Light shining through the trees, water flowing in the stream, and it was quiet. But in my opinion, too quiet. At that time of day there should be birds chirping or squirrels running around, but I heard nothing. I felt uneasy.  
+
+And the strangest part was when I passed the deer enclosure. Usually they lie around or stand at the fence waiting for food. But that day all six of them were standing together in one corner, facing away from me.  
+
+My breath caught. I thought, what is going on. No sounds, animals acting weird. I thought about it the whole way, but I kept feeling watched. Sometimes I thought I heard rustling behind trees or bushes. I told myself, calm down John, it’s just the tiredness.  
+
+The path was coming to an end and honestly, this time I was glad.
+
+But what I saw next made my heart drop into my stomach.  
+
+At the end of the path sat the same dog from before. Same stare. Same smell. Just sitting there, staring at me.  
+
+I couldn’t believe my eyes. I told myself dogs are fast, maybe it ran through the woods. But I’ve never seen a dog behave like that.
+
+I walked toward the calm dog, took out my phone and snapped a picture. I thought maybe my girlfriend knew something about it. Then I kept walking. The rest of the way was normal, mostly on the road, nothing special. But I kept thinking about the dog. For some reason it scared the hell out of me.
+
+I arrived at my girlfriend’s place. She saw my face and asked, babe, are you okay.  
+
+I said, yeah, just a few exhausting days.  
+
+I didn’t want to worry her. She’s been through a lot in the past.  
+
+We had breakfast and the rest of the day was normal. At 18:00 I left her place because I wanted to play some games with my friends at home.  
+
+And that’s how the day went, and I almost forgot about the dog.
+
+The next day, which was yesterday, I wanted to go to my girlfriend again in the morning. I got ready, but like so often, I missed my bus again. The father of my coworker Jan, Peter, saw that I had missed it and offered to drive me. I said yeah sure, thanks, and got into his Chevrolet.
+
+We drove past the forest path, since there’s a road running right next to it. I could see the entrance to the path, and what did I see there. That goddamn Aussiedoodle staring straight into my soul. I thought, what the hell, but swallowed my thoughts. Peter and I kept talking about life and work, which distracted me a bit.
+
+After a few minutes we reached the point where I could see the exit of the forest path. If I hadn’t been sitting, I would have fallen over. I saw that dog again. Staring into my soul again. Yesterday I thought, yeah, a dog is fast, but in that moment I thought, how is this possible. A dog can’t be faster than a car.
+
+Peter interrupted my thoughts and said, to my surprise, that people say things roam around in these woods and that he thinks the missing persons cases aren’t coincidences. I didn’t say anything and just looked forward. It was too much information at once. Peter dropped me off at my girlfriend’s place and I thanked him.
+
+I went inside, sat down at the table with my girlfriend and had breakfast with her. I didn’t show anything, but my thoughts were racing. I took out my phone and showed her the picture of the dog. Babe, I saw this dog yesterday on my way here, do you know him by any chance.  
+
+To my surprise she said, yeah, that’s Samy, the dog from the farmer Konrad around the corner.  
+
+I said, weird, he was standing at the forest path yesterday. She just shrugged and we kept eating.
+
+In the afternoon I paid Konrad a visit. The path to his place was a simple gravel road along the street. It was a small old hut that looked like it could collapse any moment. I took a breath and knocked. An old, skinny man with gray slicked‑back hair and only a few yellow teeth opened the door, which looked like it could fall off by itself.
+
+I asked, are you Konrad.  
+
+He growled, who wants to know.  
+
+In that moment I noticed the half‑empty whiskey bottle in his right hand.
+
+I answered calmly, I’m Alina’s boyfriend.  
+
+He spoke a bit softer this time, oh, her, and what do you want.
+
+I took out my phone, tapped on the photo and said, is this your dog.  
+
+He answered coldly, yeah, that’s Samy.  
+
+Are you missing him by any chance, I saw him yesterday and today at the forest path.
+
+He growled again, tears in his eyes, that’s impossible, Samy has been dead for a few days.
+
+There was a long pause.  
+
+I said, I’m sorry to hear that, but I swear I saw him.
+
+He calmed down a bit. You must have mistaken him. I haven’t had the heart to bury him yet.
+
+He walked a few steps outside, lifted a tarp, and I felt like I was going to pass out. Under the tarp was the Aussiedoodle. The exact same one I had seen just a few hours earlier. The only difference was that his throat had been torn open, and where the liver should be, the flesh and the liver had been ripped out.
+
+He said, Samy was a good dog. I found him Sunday morning. I think it was a wolf that did this to him. Wolf sightings have been increasing lately.
+
+I looked at him and said, I’m sorry for your loss, then left his property and went back to my girlfriend.
+
+I told her I had gone for a walk and talked to my mother on the phone. I know, I don’t want to lie to her, but I can’t burden her with this. She’s still dealing with the death of her parents.
+
+I’m writing this right now in the night from Tuesday to Wednesday. Ever since I saw that dog for the first time, I haven’t been able to sleep. He won’t leave my mind. But one thing I know, while Alina is lying in my arms. I don’t want to lose her. She’s all I have.
+
+I’m trying to get some sleep while I hear barking coming from the forest path in the middle of the night.  
+
+If I notice anything else, I’ll post it here.
+
+John W.
