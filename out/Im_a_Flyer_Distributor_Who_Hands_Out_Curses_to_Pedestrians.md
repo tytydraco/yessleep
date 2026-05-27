@@ -94,7 +94,7 @@ Understandably, I thought she was joking. I quipped something about discounts be
 
 “I’m not joking, Mike. This is serious. They are *literal* curses.”
 
-My body tensed with impossible realization.
+My body tensed with impossible realisation.
 
 “Well, more accurately, they’re micro-curses.”
 
@@ -104,9 +104,9 @@ She proceeded to explain it.
 
 “Many big and small businesses make deals with the devil to increase their fortune and revenue,” Lindi told me nonchalantly, sipping her cappuccino. “These powerful, demonic rituals for success have a deadly side effect—in that they generate cursed energy as a byproduct.”
 
-I listened along fascinatedly, my own flat white remaining unzipped. If pedestrians could hear me out, I could hear her out.
+I listened along fascinatedly, my own flat white remaining unsipped. If pedestrians could hear me out, I could hear her out.
 
-“The only way to dissipate these generated curses, is to distribute them to human beings. If allowed to linger for too long, this cursed energy will form a deadly void in reality itself. So, the companies, looking to safely discard this dark byproduct, print them into slips of paper and have schmucks like us get rid of them.”
+“The only way to dissipate these generated curses is to distribute them to human beings. If allowed to linger for too long, this cursed energy will form a deadly void in reality itself. So, the companies, looking to safely discard this dark byproduct, print them into slips of paper and have schmucks like us get rid of them.”
 
 My mouth was numb with guilt by now.
 
