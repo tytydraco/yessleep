@@ -1,7 +1,4 @@
-  
 Part 1: [Don't open your eyes](https://www.reddit.com/r/nosleep/comments/1tobcub/dont_open_your_eyes/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
-
-
 
 Looks like I woke up again. A bit weaker today, everything is just a little blurry. There's an amusing look on the nurse's face as they see me typing away. They probably think I’m writing a letter for my relatives. I’ll let them believe that; it’s a sweet idea. Ok, let's see how far I get today. A lot has been coming back quickly. All the horrors I’ve forgotten circle around my bed as if to taunt me.
 
@@ -157,4 +154,4 @@ Then her body fell over, folding in on itself in an uncomfortable contortion. Sh
 
 I haven’t remembered that day in so many years. I felt it then, as I do now. That hungry presence. Ashley and I were not alone in the room when she died, and I’m not alone in this room now.
 
-I can’t fight sleep much longer. I need to wake up one last time. I need to finish this story.
+I can’t fight sleep much longer. I need to wake up one last time. I need to finish this.
