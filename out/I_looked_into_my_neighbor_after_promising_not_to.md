@@ -1,0 +1,205 @@
+I made a mistake.
+
+I went back on my word the last time I was here. I said I'd prioritize my family at all costs.
+
+Now the one thing I cherish most in life is gone, and I don't know what to do.
+
+This all started mere days after I finished writing about my neighbor. After I had discovered the neighbor's wife...virtually limbless and I could only imagine in excruciating pain. 
+
+I turned my back on her and I've been silent since.
+
+This guilt, however, has been gnawing at me, like a persistent itch that just won't go away, no matter how hard I try.
+
+The woman's screams and hopeless cries for help kept echoing in my ears, over and over, until I couldn't take it any longer.
+
+I had to do something.
+
+What, exactly? That part I was unsure about. I knew he probably had a set of surveillance cameras, covering every last inch of his property. I couldn't just march on over there midday, as that would just jeopardize my family's safety and I'd be back to square one.
+
+Out of options, I've been reduced to watching his house once again, all throughout the night, as my wife and daughter sleep peacefully in my bed.
+
+Mere days passed before something strange and rather unexpected happened. 
+
+Up until this point, I had never seen the neighbor leave his house in the dead of night. He was always methodical in his departures from his house and always made sure to leave when virtually none of his neighbors were home.
+
+This night, however, was different. 
+
+This night, I watched from my little spy window, listening intently as the mechanical whirring continued and watching as shadows danced in the only illuminated room in the house. Everything was as it had been.
+
+Then, in an instant, everything stopped. The light in the room went out in what felt like a blink of an eye, followed by the mechanical whirring ceasing suddenly.
+
+I watched inquisitively as the back door of that house suddenly flung open, and the neighbor I'd been fearing came careening out at blinding speed. Before I could even form a logical explanation for what I had just seen, the man jumped into his car and floored it at a terrifying speed down the road and out of sight.
+
+Equal parts confused and stunned, I looked back toward the house, and what I saw drained all the color from my face.
+
+A woman, standing still as a statue, was lurking right inside the bedroom window. Her figure, barely illuminated by the moonlight, was just visible enough to be deciphered in the pitch black darkness of the room. Her face however, was obscured by shadows. 
+
+I can't reasonably justify my actions that followed.
+
+I blinked and I was in my front yard. Walking briskly toward the increasingly daunting-looking neighbor's house.
+
+My legs moved without thinking, as if my mind knew it had to find out what was in that room. If the wife was still alive, this would be my one chance to save her.
+
+I hopped the fence with ease, adrenaline taking over and the blood flowing to my head, finally conscious of what exactly I was undertaking. 
+
+Upon making it to the back door, I made a frustrating realization: the doorknob wouldn't budge.
+
+The door was locked. 
+
+This problem, however, was expeditiously overcome by the crowbar I held in my left hand.
+
+This startling realization made me think: something deep inside me wanted to know what was inside this house so bad that my actions were preceding my thoughts.
+
+I wasn't leaving without saving this woman.
+
+With a single, determined grunt, I broke through the back door and forced my way into the depths of this house that had caused me so many sleepless nights.
+
+I carefully tiptoed into the house and closed the door behind me with a long, drawn out creak.
+
+Immediately, something felt wrong. Very wrong.
+
+The air inside was...different. A mix best described as rotting flesh and something else...
+
+Death.
+
+Not knowing how much time I had before the neighbor returned from his hasty exit, I leaped up the rickety old staircase, skipping steps and feeling the aged wood crack under the force of my stride.
+
+I yelled out for the wife, announcing my presence and hoping I'd get some sort of response.
+
+What I got instead sent chills down my spine.
+
+Silence.
+
+No settling of the house, no movement at all, not even a breath perceptible to my straining ears. 
+
+No sound at all.
+
+This startling realization made me pause at the same door I stood outside just weeks ago.
+
+The door where I knew atrocities lay behind. 
+
+The door that separated me from the pleading, bloodied, and critically injured wife.
+
+The door that consumed my dreams and most waking thoughts.
+
+The door...that I was now reaching to open.
+
+As my fingers grasped the doorknob, I felt how weathered the handle was. I imagined how often one would have to open and close a door to wear it down to such a degree.
+
+I twisted the handle and pushed the door open slowly, its indescribable weight scraping the floor below. 
+
+My eyes widened with terror as I doubled over in an instant, vomiting the dinner I had eaten just hours before. 
+
+Surrounding me were inexplicable amounts of blood. Blood coating the walls. Blood covering the furniture. Blood painting the floor a crimson shade of red.
+
+The scariest part, however, was that some of the blood appeared fresh.
+
+Trying to push through my violent waves of nausea, I looked around for the wife, calling for any source of human life.
+
+I made my way to the bed and realized in an instant, the sheets were covering something underneath.
+
+I really hoped I was wrong about what was under there.
+
+I manned up and pulled the sheets back. 
+
+The view before me almost made me pass out in disgust.
+
+On the bed, in a pool of coagulating blood, were the body and head of the neighbor's wife. 
+
+I was too late.
+
+The wife, clearly having been dead for quite some time now, had pure fear and agony etched across her face.
+
+I stumbled back and suppressed every animalistic instinct I had to sprint out of the house and distance myself from the abomination that lay before me.
+
+As I was standing there, dazed, I was hit with a disturbing realization: if the wife had been dead all along...who was the woman I saw in the window?
+
+The softest creak in the floor gave me my answer.
+
+I looked toward the doorway and a dark figure was blocking the exit. 
+
+Closer now, I could make out attributes of a girl. This was no woman, it was a child. 
+
+In the darkness, I noticed she was holding something behind her back.
+
+I forced a gentle smile and spoke softly. "What's your name? Are you hurt? How did you get in here?"
+
+The little girl didn't respond. 
+
+In the darkness of the room, the moonlight pouring in through the window reflected something on the girl:
+
+A tear.
+
+Then, more. The little girl started sobbing.
+
+My guard melted away as this sudden display of human emotion juxtaposed the monstrosities I'd just come across.
+
+I made my way over to the girl and gently put a hand on her shoulder. 
+
+"It's okay, I'll get you out of here." I gently told her.
+
+As I was crouching next to the girl, I peered behind her back and identified the object she was holding as a phone.
+
+As I read the screen my heart dropped. The girl was on a call. In all capital letters, the caller ID read:
+
+"DADDY."
+
+In that instant, my whole world crumbled. Something about this situation was very, very wrong.
+
+"Why are you calling your daddy? Does your daddy live here?"
+
+Through tears, the little girl sobbed, "Daddy told me to call him if anyone came into the house when he was away. He told me to do as he said or I'd end up like mommy."
+
+My eyes widened as the realization hit me like a freight train.
+
+I shot a glance out of the window toward my own house and my heart dropped as I identified the anomaly immediately. 
+
+My front door was left wide open, gently swaying in the wind.
+
+I always made sure to triple check its lock before leaving.
+
+"What have you done." I growled at the kid, before pushing her aside and stumbling down the steps, rolling out the door, and flipping over the fence in a desperate attempt to reach the house in record time.
+
+My eyes burning and tears forming with rage, I rushed up the steps to my bedroom, crowbar in hand, and prepared for the worst. 
+
+Whatever I had thought I'd find was far more optimistic than the reality I stumbled upon.
+
+My wife lay motionless on our bed, her wounds soaking our once white bedsheets.
+
+I let out a sob of pure, unadulterated despair before making one final, horrifying realization. My daughter was nowhere in sight. I stumbled around the house, opening closets, thrashing cabinet doors, and scouring every inch of every room until I was certain she was truly gone.
+
+Devastated, with tears rolling down my cheeks, I wished at once to be dead. 
+
+I had failed my family, and now, I paid the ultimate price.
+
+My meltdown was suddenly interrupted by a buzzing sound coming from my pocket.
+
+My phone was ringing.
+
+The all-too-predictable "NO CALLER ID" flashed across my screen.
+
+I answered.
+
+"You shouldn't have gone sticking your nose in other people's business. Their blood is on your hands."
+
+I called the police.
+
+They found nothing of substance. 
+
+The child? Gone.
+
+Evidence of habitation? Gone.
+
+The blood? The body? All gone.
+
+How did he do it? Your guess is as good as mine.
+
+Of course the knife they found beside the bed had my prints on it. 
+
+Of course my daughter is still missing to this day. 
+
+They'll never find her. He's too meticulous to ever be caught. 
+
+As I write this letter from my prison cell, awaiting trial for the first degree murder of my wife and child, I have only one regret that ended up costing me everything.
+
+I shouldn't have spied on my neighbor.
