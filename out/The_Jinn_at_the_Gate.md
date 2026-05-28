@@ -1,0 +1,85 @@
+The Jinn at the Gate
+
+What is a Jinn? In Arabic and Islamic folklore, a Jinn is a supernatural being made from smokeless fire — intelligent, invisible, capable of taking any form. They exist in a realm parallel to ours. Some are benevolent. Most are not. They watch. They wait. And sometimes, they follow you home.
+
+My friend Jack was walking home late one night — past midnight, the kind of dark where the streets belong to something else.
+
+He noticed a cat sitting by the gate at the end of his street. Just staring at him. He didn't think much of it — kicked toward it to shoo it away. The cat bolted and he kept walking.
+
+That's when he felt it.
+
+Something on his shoulder. A weight. A presence. He stopped breathing.
+
+He turned around slowly.
+
+The cat was back. Sitting right behind him at the gate. But this time it opened its mouth — and spoke.
+
+He didn't remember the words later. Just the sound. Wrong. Completely wrong. Like language coming from something that had only learned it by listening through walls.
+
+He ran. He didn't decide to run — his legs just went. Heart hammering so hard he could feel it in his throat. He didn't look back once.
+
+He burst through his front door. His father looked up from his chair and immediately said — "What happened to you?"
+
+Jack just said "I saw something." Then "You wouldn't believe me."
+
+He went to bed.
+
+But sleep wouldn't come easy.
+
+Two hours of tossing, turning, his mind refusing to shut down. Finally, exhaustion won. He drifted off.
+
+And then he was back in his house. But it wasn't his house anymore. Everything was wrong — the walls darker, the air thicker. And in the corner stood a figure.
+
+A man. But his face... it was twisted. Evil. Carved with something ancient and cruel. And his eyes — bright red, burning, staring directly at Jack.
+
+The man reached out.
+
+Jack felt it like electricity. A shock running through his entire body. Not pain exactly — something worse. Terror made physical. He couldn't move, couldn't scream, couldn't do anything but feel it coursing through him.
+
+He woke up gasping. His heart was pounding so hard he thought it would burst. Sweat soaked the sheets. His whole body was shaking.
+
+He didn't sleep again that night.
+
+And it happened again. And again. Every time he closed his eyes, the man with the red eyes was waiting.
+
+What is a Jinn? In Arabic and Islamic folklore, a Jinn is a supernatural being made from smokeless fire — intelligent, invisible, capable of taking any form. They exist in a realm parallel to ours. Some are benevolent. Most are not. They watch. They wait. And sometimes, they follow you home.
+
+My friend Jack was walking home late one night — past midnight, the kind of dark where the streets belong to something else.
+
+He noticed a cat sitting by the gate at the end of his street. Just staring at him. He didn't think much of it — kicked toward it to shoo it away. The cat bolted and he kept walking.
+
+That's when he felt it.
+
+Something on his shoulder. A weight. A presence. He stopped breathing.
+
+He turned around slowly.
+
+The cat was back. Sitting right behind him at the gate. But this time it opened its mouth — and spoke.
+
+He didn't remember the words later. Just the sound. Wrong. Completely wrong. Like language coming from something that had only learned it by listening through walls.
+
+He ran. He didn't decide to run — his legs just went. Heart hammering so hard he could feel it in his throat. He didn't look back once.
+
+He burst through his front door. His father looked up from his chair and immediately said — "What happened to you?"
+
+Jack just said "I saw something." Then "You wouldn't believe me."
+
+He went to bed.
+
+But sleep wouldn't come easy.
+
+Two hours of tossing, turning, his mind refusing to shut down. Finally, exhaustion won. He drifted off.
+
+And then he was back in his house. But it wasn't his house anymore. Everything was wrong — the walls darker, the air thicker. And in the corner stood a figure.
+
+A man. But his face... it was twisted. Evil. Carved with something ancient and cruel. And his eyes — bright red, burning, staring directly at Jack.
+
+The man reached out.
+
+Jack felt it like electricity. A shock running through his entire body. Not pain exactly — something worse. Terror made physical. He couldn't move, couldn't scream, couldn't do anything but feel it coursing through him.
+
+He woke up gasping. His heart was pounding so hard he thought it would burst. Sweat soaked the sheets. His whole body was shaking.
+
+He didn't sleep again that night.
+
+And it happened again. And again. Every time he closed his eyes, the man with the red eyes was waiting.
