@@ -1,0 +1,25 @@
+​I was at my grandmother’s house, sitting on the rooftop with my cousin, when our eyes fell on the rooftop beside ours. A little girl was running around and around on her rooftop, sometimes stopping to laugh, then starting again. My cousin told me we should go downstairs. I argued that we had just come up. He said, “You don’t get it. That girl is possessed.” I smirked and said she might be going through some mental problem—that was the reason she looked like that to me. He still insisted that I go with him. So I did, thinking people in villages always choose the easier explanation because they don’t have the intellect to understand it could be something psychological.
+
+​The next day, my cousin said we shouldn’t go to the rooftop because that girl might be there again. I suggested that we could just go earlier and leave earlier. He told me to check first if she was present, and then he would come. I went up, looked around, and then called him. He told me that the girl and her family were new in the village. When she first arrived, she was perfectly fine. But after they started living in that house, she became… possessed. I liked listening to my grandmother-type stories, so I asked him to tell me more. He said that some people claimed there had once been a tomb there, which the builder broke to construct the house. That might be the curse. Others said that the previous owner had cut his wife and children into small pieces and buried them under the house.
+
+​It was horrifying to hear, but in my mind, they were just myths—made-up stories. Then the girl appeared again on her rooftop. My cousin said that her father locks her on the rooftop every day. I angrily said that was child abuse and that we should confront her father. He replied that her father really loves and takes care of her all day, but he has to do it because she doesn’t sleep at all. “Really?” I asked. “Isn’t it possible she just sleeps during the day?” He shook his head. “No. She doesn’t.” After that, we went downstairs as usual. We had our dinner, and then we went to sleep.
+
+​During the night, I heard shouting. I tried to wake my cousin. “Hey, I heard a shout,” I whispered. Half-asleep, he replied, “Make it a habit. She does this very often. And don’t make the mistake of seeing her. You’ll get disturbed.” Despite his warning, I thought maybe something was actually wrong. So I decided to look from the balcony toward her window, which was right in front of ours. I saw her back facing me, as if she was arguing with someone. I shouted, “What happened?”
+
+​At that exact moment, dark clouds covered the moon. The wind stopped. The lights flickered. Her shadow faded—only her tangled hair glimmered in the dark. As she slowly turned… with a huge, terrifying shout, her face came right up close to mine. I froze, as if my heart would burst out of my chest. I ran back inside and turned to look at my cousin, who had been sleeping by the wall.
+
+​But instead of him… it was her. She looked at me and said, “I told you not to go.”
+
+​“What—where did my cousin go? What did you do?” I cried.
+
+​“You want to see him?” she said softly. “Why don’t you check the rooftop?”
+
+​As I began climbing upstairs, I heard my cousin’s voice. He was panting. As I got closer to the roof, I heard his laughter. I shouted his name, but he was nowhere on our rooftop. Then I saw him… on the rooftop beside ours—in the girl’s place. He was wearing my cousin's clothes, but his hair had grown long and matted in a matter of minutes, as if he had been trapped on that roof for centuries. His back was crooked. He looked much older than his age. He was running in circles, falling, standing up again, laughing… and then running once more.
+
+​I stood there in disbelief. That boy climbed onto my shoulder, holding onto me like a monkey, and whispered in my ear, “Now I am your cousin.”
+
+​I cried, "But... you don't look like him. His parents... they'll know. They'll know you aren't their son..."
+
+​His answer was calm and certain. “No one will know. His parents will think I have always been their child… and your cousin.”
+
+​I couldn't sleep last night; he sat right next to me the entire night. Even though hair was falling over his face, I could still feel it staring directly at me. This morning, he's casually sitting and having breakfast with my cousin's parents. Everyone is behaving as if nothing happened. They are just confused about why the room's light is flickering, but I know the truth. I didn't go downstairs for breakfast today; instead, I am sitting up here writing all of this down. And I just want to say one thing: if you see anyone running around in circles on a rooftop nearby, get away from there.

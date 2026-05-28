@@ -1,4 +1,3 @@
-  
 I can't explain it, every time I explain it to people I'm just told I'm insane or schizophrenic. But every specialist for medical or physical health bullshit never changed what I know . The poster on my wall is breathing at night. Every time it does my life continues to spiral. And no before you ask, I know it's not the wind, it was a different wall each time, and it only happened when I'm in the room. It sounds bullshit, I won't deny that. I just…need to vent. It's stupid and posting anything online like this is gonna have me made fun of or ridiculed but I don't care at this point. This isn't for you; it's for me.
 
 Let me give some info about me, mostly because this…THING has been following me for way longer than I had thought. My name is Andy Summit, I was born in Denver in 2003 and had to move a lot growing up. It was something I had grown accustomed to, always having my most prized possessions in a box in case we needed to pack up. It made meeting people hard, but luckily it never got in my way as a sociable kid. 
@@ -45,7 +44,7 @@ My neighbor, Steve or something, had died of a heart attack the previous night. 
 
 My brain was trying to rationalize it, the poster thing was a nightmare and I was overreacting to it right? But surely enough a week later, I heard it again. 
 
-This time the breathing was deeper and more raspy, it was breaking up as it breathed till eventually a loud cough would be forced out. As I turned my lap on, the poster was yet again hung up on my wall. However, it wasn't the same wall, it was the interior wall of our apartment, directly behind the bathroom. And the poster had a bit of the diagram filled out, with musculature around the arms, legs and torso being held there by duct tape and staples. Yet again it stared, its breathing matching the new pace and coughs. I went to grab it, and felt a sticky substance clinging it to the wall. 
+This time the breathing was deeper and more raspy, it was breaking up as it breathed till eventually a loud cough would be forced out. I turned my lamp on, the poster was yet again hung up on my wall. However, it wasn't the same wall, it was the interior wall of our apartment, directly behind the bathroom. And the poster had a bit of the diagram filled out, with musculature around the arms, legs and torso being held there by duct tape and staples. Yet again it stared, its breathing matching the new pace and coughs. I went to grab it, and felt a sticky substance clinging it to the wall. 
 
 I was growing mad, I yanked and pulled but the poster wouldn't budge. I had thought to myself, maybe it's a dream and went to the window to maybe feel a breeze. But this time the window was closed shut. 
 
@@ -59,7 +58,6 @@ I grabbed them and rushed back as the coughs shook my room notably from the outs
 
 Chad had died in the middle of the night, his lungs were full of smoke and he suffocated after he slept wrong. I didn't believe it, I knew it was the poster and tried to explain it to my mom. It didn't go well, she was still overwhelmed with her new husband dying so soon after they met. It led to a fight that resulted in me getting kicked out, she eventually called to forgive me but I was losing it. I tried telling officers what happened, but they all just thought I was freaking out and ordered me to a therapist that didn't help for shit. 
 
-Whatever it is, I know it's not done with me yet. It wasn't there, when I got back it was gone from my rooms floor some-fucking-how. I'm just not sleeping at my moms place till i see it again, I don't want to risk her in its cross hairs. 
+Whatever it is, I know it's not done with me yet. It wasn't there, when I got back it was gone from my rooms floor some-fucking-how. I'm just not sleeping at my moms place till i see it again, I don't want to risk her in its cross hairs.
 
 if it comes back ill be ready, I'm currently in a hotel about to sleep. Ill update you if a theory of mine works....
-
