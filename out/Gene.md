@@ -1,0 +1,73 @@
+My mother kept pretty much everything I ever created as a child. Boxes of everything I colored, everything I wrote and everything I made. I am guessing something to do with me being an only child.
+
+I am 42 now and my mother passed away in January. A lot to handle because my dad passed away 12 years before, so I had to do it all myself. Eventually I got the boxes of young me and put them in our basement to go through later with my wife, a trip down can’t remember lane.
+
+Most of it was junk and, I feel bad about this, I tossed it. I do not need a coloring page of Big Bird I couldn't stay in the lines for. We did find something different though…
+
+Memories of Gene.
+
+Gene is the name I give him now. He didn’t have a name when I was a kid and I knew a guy named Gene a few years back that slightly reminds me of him, at least the closest I could get. As a child, if I wrote about him, it was “it” or “him”. Hope naming it doesn't come back to bite me.
+
+Now, let me preface this with the standard disclaimers:
+
+I am not crazy. Like I said, 42, married, have kids, career and all those things incredibly crazy people probably don't have.
+
+I am not saying Gene was real. I was a kid, didn't live on an old mystic site, no one that I know of was murdered in my childhood home and, as far as I can recollect, no haunted grandfather clocks or communication with the dead happened in the lead up. As a matter of fact, I never knew why I started seeing him nor why I stopped seeing him.
+
+With that said, Gene was unique. He wasn't a friend and behaved much more like a ghostly presence out to torment me than any imaginary friend would. He didn't look like a ghost though, he wasn't translucent, didn't float and seemed like the laws of physics firmly applied to him. Then again, I never saw his face.
+
+Gene was always backwards, as in facing away from me. He wasn't a child either, he was a full grown man in size. To be specific, Gene was a guy about my father’s height, although much heftier. He wore tighty-whities and socks that looked kind of dirty, he also looked kind of dirty and very sweaty. His hair was short, a dirty light brown perhaps, so I could see he had a normal shaped head for a guy that size and the only extremely weird thing was that his stomach hung to the floor. Imagine if someone with an extremely bulbous stomach had the contents sucked out but the skin remained, that was Gene’s belly.
+
+When he walked it would drag on the floor a bit. I could hear this, along with his coughing, wheezing, mumbling and moaning. He never talked to me, and the closest I would hear to anything considered speech was the rare occasion I would hear him doing something that sounded like mumbling. It could have been other noises that I mistook for that though, as I was a kid.
+
+Perhaps my mind as a child created something that normal children don't create. It wasn't a witch, a purple monster or an insane clown… it was Gene the “him” that looked like a failed liposuction victim in his apartment, during a hot summer without AC.
+
+Gene was also fast. He could do a sort of fast paced backwards shuffle instead of a walk and that part was one of the main reasons my parents actually sent me to therapy, only once, as a kid.
+
+He would never, not once, be in a room with me if my parents were in the room or visible. So when Gene would enter or just be there I had a tendency to scream bloody murder, and if you scream enough your parents start to look for help.
+
+I can only assume I had told them about him on an occasion or two, but kids learn quickly that parents who don't see what you see are very little help in unseeing it. All they can do is offer comfort and if one of them in the room immediately is the way to make the uncomfortable situation go away? Well, the kid is getting you in the room.
+
+I screamed one too many times in my childhood and went to talk to a lady one time. I don't remember anything about her, conversation and my notes only state I went to speak to her without any real details outside of me going because of my frequent screams.
+
+A notable thing that I remember, and wrote down in a journal that either the therapist or my parents told me to keep, was the way Gene would behave in the hallway at night.
+
+My parent’s room was at one end of the long hallway and mine at the other. In the middle was a bathroom door on one side and the cutout in the hallway that led to the dining room. Probably due to Gene in my room at night on an occasion or two, my parents decided to leave my bedroom door open at night for comfort. It provided the opposite. On numerous occasions I would hear him in the dark at the opposite end near my parent’s door. The hall would be extremely dark at that end at night, then lit from the cutout. I would hear a faint Gene cough, which would get me to reluctantly look.
+
+Down the hall I would hear the shuffling like socks on carpet - my mind was sure good at getting the sounds right if that were the case. Then I would hear it get quicker and Gene would become visible shuffling extremely quickly down the hallway towards my room, his belly dragging in front of him, but behind him, because he was always facing backwards.
+
+I am, 100%, with no doubt whatsoever, positive I screamed so bad my throat hurt on the occasions in which this happened. To this day I can still remember it - probably a combination of the various times - and the only part I am unsure of is if I pissed the bed on every occasion.
+
+This scream would get my parents to come rushing in, but there is one thing I can't remember. How Gene disappeared. He just wouldn't be there. I don't remember an elaborate poof of Gene smoke or him saying “Oops” and jogging away, he would just be gone. I don't know if the human mind is capable of really processing something disappearing in the fashion he would.
+
+This wasn't the only thing Gene would do, mind you. He would stand places. In my room at night, both before and after the bedroom door open period, outside windows, in doorways, all over. The strangest part is that it felt like he was watching me even though his back was turned towards me.
+
+There were a few other notable incidents that also took years off my life, such as what I will call the Bathroom Incidents.
+
+Commonly when showering I would hear him coughing, mumbling and moaning while I washed my hair with my eyes closed. I remember getting shampoo in my eyes and doing my best not to close them, which never worked due to the burn, just so that I didn't hear him. Normally, when I opened my eyes he wouldn't be there and the noises would stop. On at least two occasions, that wasn't the case.
+
+One I vaguely remember and one I wrote down.
+
+The tamer of the two was the time I opened my eyes and could see his silhouette through the shower curtain with him facing the mirror. Not only was Gene being there while I was vulnerable frightening, but I was terrified that I would see in the mirror and see his face. I don't think anyone can fully comprehend how afraid I was to see his face after a while of dealing with him, it became the event that marked my death in my mind. I stood in that shower until the hot water ran out, because if I bent over to turn the water off I would be able to see the mirror, and eventually my father came in to see what was taking so long.
+
+The other bathroom incident was the opposite. We always closed the shower curtains when we were done showering, my mother was a stickler about how we did things in the one bathroom in the house. I had showered, dried off and turned around to close the shower curtain. What happened next deeply freaked me out. When I turned, the curtain was already closed and I could see him inside. I was positive I didn't close the curtain because I was still drying my feet on the floor mat, and that was one of the very few times anything else seemed to be interacted with by him. Not the only time though. Him being there and so close nearly stopped my heart.
+
+For a small period my mom put a bead curtain up between the living room and what we called “the back room”, which I believe was an old covered porch that was turned into a small room at the rear of the house. I used to play in that room frequently because it was more space than my bedroom. One time I was facing the back wall painting on an easel I had set up in there - I know this because I wrote what I was doing down - when I heard the beads move. I turned to ask my mother a question, assuming it was her, and it was Gene standing directly in front of the beads. The beads that were, according to what I wrote and remember, still moving.
+
+The few incidents in which things in the physical world seemed as if they were interacted with bother me more now than it did as a child, as Gene was my fear then and the question of just what he was is my fear now. Either answer isn't comforting. I was either imagining a thing and eventually imagining things in the physical world moving, or something was there.
+
+After a couple months of Gene I had the idea of getting a dog. I had convinced myself that a pet would prevent a Gene. My mother, being somewhat anal about the condition of the house, agreed as an outdoor dog only. This still comforted me I suppose and according to my writing my plan was to sneak the dog into my room at night.
+
+I have no idea where my father found the puppy, nor breed and I only remember the dog from my writing, but I got a dog. The dog did not like me or the house, or even the yard from what I wrote. It barked incessantly, refused to come in the house and if it did it would immediately piss the floor and run out, growled and nipped at me constantly and sadly died from Parvo - I wrote got very sick and died, but I think that is a good guess - and my parents refused to get another. I only mention the dog because of how much it genuinely hated me and the house, and question whether that was related or not. If Gene was real did the dog sense him? If Gene was just in my head did the dog sense I was off?
+
+The kitchen was a common place for Gene to torment me as well. The living room led to the kitchen with a small arch-like doorway between the two. Gene would stand in the arch. The issue with that position is the lighting. Due to the lighting of the kitchen Gene was incredibly visible with a dim living room in the background accenting him further. I wish I could have taken a photo of those moments because every detail of Gene was visible, most of which have become possibilities in my mind. What I do know was that in that lighting I could see his repeated labored breathing movements, how his shoulders would lift and fall and his sides expand and contract a bit as he just stood there not looking but looking at me.
+
+Being older a small part of me wishes I was braver, not that I am sure I would be now. I wish I had been the one to approach him. If it wasn't for the way he would shuffle down the hallway at me in bed I would speculate he was trying to get me to follow him and that was why he was facing away, but I could feel the malice in the approach when he would come at my room from down the hallway, and to be honest I felt that much of it was malicious. Never once in my childhood did I believe that he wanted anything other than to harm me. There was no helpless, misunderstood or friendly aura about him.
+
+I understand this writing makes it seem like Gene was constantly there. He was not. In some ways that made it worse, I never knew when to expect him. I could sleep with my bedroom door open for days straight, nervous but left alone, and then he was there. Or he would bother me, in one way or another, for three days straight. There was no pattern to what he did or when he showed up.
+
+Gene eventually stopped showing up. We didn't move or have the house exercised. I didn't start praying or wearing a cross, it was simply there was a last occurrence and the days went on.
+
+In some ways I regret looking, and especially talking, about this. I mentioned him a couple times to my wife who I think thought I was pulling her leg until this box and hopefully does not feel as if her husband of 20 years is crazy. All these details though? I feel like I am poking something either in my mind or some place I don't understand and I hope it just stays as words online.
+
+My kids don't scream like I did, but if they did I think I would probably believe they see what they say they see after Gene.
