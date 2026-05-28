@@ -155,3 +155,4 @@ Then her body fell over, folding in on itself in an uncomfortable contortion. Sh
 I haven’t remembered that day in so many years. I felt it then, as I do now. That hungry presence. Ashley and I were not alone in the room when she died, and I’m not alone in this room now.
 
 I can’t fight sleep much longer. I need to wake up one last time. I need to finish this.
+
