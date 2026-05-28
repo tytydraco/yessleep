@@ -1,0 +1,50 @@
+A few people told me to “just move out” after my last post, but I can’t. Everywhere I look, I am completely priced out. I spent so much on this move, and the apartment really *was* a bargain. For now at least, I’m stuck. 
+
+As for my current status: the breathing in my walls hasn’t stopped. If anything, it’s almost become like white noise to me. And honestly, if that was all that was happening, I think I could deal. I could just pretend it was an animal or weird noise from the pipes or *something*.
+
+But there have been… developments. 
+
+I’m nothing if not a creature of habit. I always leave the TV remote in the same spot (right side of sofa). My shoes are always by the front door. Kitchen utensils in the dishwasher or the drawer, never left in the sink. I’ve always been like that. I’m also pretty observant, so I know I’m not being paranoid when I say that things are… not where they should be.
+
+Whenever I wake up something’s always a little off.
+
+First it was my salt shaker. I have these really cute little chicken salt and pepper shakers, but one of them is just gone now. I’ve looked everywhere.
+
+I thought to myself, ah. Must have misplaced it. Must have misremembered taking it out of a moving box (I still have a few left to unpack). 
+
+Yeah. I don’t believe me either.
+
+Then I woke up the following morning and EVERY SINGLE kitchen cabinet was ever so slightly ajar. Literally an inch or so. I found myself grasping for any explanation – I mean, maybe my window *was* slightly open, and  maybe a gust of wind just happened to blow in at *exactly* the right angle… 
+
+I mean weirder things have happened, right?
+
+And then I couldn’t find my hairbrush. My brush, which I always put  in the same place in the bathroom (right side of sink) before I go to bed, was somehow on the coffee table. 
+
+And there was no longer any [hair on it.](https://imgur.com/a/sFvIh4p)
+
+Last night I reached my limit. I had been out all day at the thrift markets, and spotted this little circus clown figurine in a pile of antiques. I picked it up and inspected it for a while. Quirky and cute. A little dirty, slightly chipped. But alas, too expensive. Even after haggling with the seller, I left without it.
+
+When I got home an hour later, the clown was on my table.
+
+The chip in the side had been fixed with some kind of plaster. It was clean and polished, and placed precisely in the middle of the [table.](https://imgur.com/a/in53tFj) 
+
+*Krsssshh.*
+
+The rasping sound in the walls was back. Closer than ever.
+
+I couldn’t sleep at all. I stayed up, watching the front door from the sofa until sunrise, too terrified to check what might be on the other side. Every now and then, I swore the raspy breathing in the walls had a melody to it. Like a whispered lullaby. 
+
+I feel like I’m losing my mind. I want to change my locks again, but my super refused, says twice was enough. I tried calling the police but they just laughed. “What’s the crime exactly”, they asked. 
+
+Someone is taking things from me?
+
+Leaving things for me?
+
+Someone is… cleaning my hairbrush? 
+
+As I write this, the breathing has started again. It’s behind my headboard this time. I swear I can feel it like a draft on my neck.
+
+If it doesn’t stop, I might just take a hammer to the walls myself. 
+
+See what I find. 
+
