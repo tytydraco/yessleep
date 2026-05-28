@@ -73,3 +73,5 @@ But something is here.
 It’s watching me. It breathes. 
 
 I’m changing my locks.
+
+[Part 2.](https://www.reddit.com/r/nosleep/comments/1tqchpu/my_apartment_is_breathing_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

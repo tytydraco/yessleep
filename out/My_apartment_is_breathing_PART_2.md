@@ -1,3 +1,5 @@
+[Part 1.](https://www.reddit.com/r/nosleep/comments/1tl0yoi/my_apartment_is_breathing/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 A few people told me to “just move out” after my last post, but I can’t. Everywhere I look, I am completely priced out. I spent so much on this move, and the apartment really *was* a bargain. For now at least, I’m stuck. 
 
 As for my current status: the breathing in my walls hasn’t stopped. If anything, it’s almost become like white noise to me. And honestly, if that was all that was happening, I think I could deal. I could just pretend it was an animal or weird noise from the pipes or *something*.
@@ -46,5 +48,4 @@ As I write this, the breathing has started again. It’s behind my headboard thi
 
 If it doesn’t stop, I might just take a hammer to the walls myself. 
 
-See what I find. 
-
+See what I find.

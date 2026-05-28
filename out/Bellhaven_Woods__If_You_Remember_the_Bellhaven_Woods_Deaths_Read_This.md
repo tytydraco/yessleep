@@ -110,7 +110,7 @@ She looked down at me. "The water's green."
 
 "You don't know that," she said, and looked back at her book.
 
-Summer cannonballed off the upper shelf and hit the water six feet away from me and came up shaking water out of her braids. Malcolm was already in, floating on his back with his eyes closed and one arm under his head, entirely at peace with the algae situation.
+Summer cannonballed off the upper shelf and hit the water six feet away from me and came up shaking water out of her hair. Malcolm was already in, floating on his back with his eyes closed and one arm under his head, entirely at peace with the algae situation.
 
 "Iris," Summer said, treading water. "Get in."
 
@@ -176,7 +176,7 @@ I heard most of it secondhand, from Malcom, who had heard it from his mother, wh
 
 "That's it?" Cecile said. She was examining her nails, half-dismissively.
 
-"There's other stuff.” He continued. “Tommy Soviero’s parents pulled him out of school for a week in September to do some kind of retreat out in the woods that was through the church. He came back and Emily said he was different. Like she was talking to him through a wall."
+"There's other stuff.” He continued. “Tommy Soviero’s parents pulled him out of school for a week in July to do some kind of retreat out in the woods that was through the church. He came back and Emily said he was different. Like she was talking to him through a wall."
 
 "Emily’s dramatic," Cecile said.
 
@@ -248,7 +248,7 @@ Cecile cut in: "Obviously you do."
 
 "Don't you want to know what's in there?"
 
-"I know what's in there," Cecile said. "Mold. Asbestos. Teenagers from another school." 
+"I know what's in there," Cecile said. "Mold. Asbestos. Teenagers from another school or squatters." 
 
 "I'm going," Summer ignored her. "Anyone who wants to come can come."
 
@@ -414,5 +414,4 @@ The trip back through the building felt longer than the trip in. Every sound mad
 
 By the time we were through the tree line and back on the fire road, I could feel myself starting to breathe normally again.
 
-  
 This is about all I have to time explain for now, I'll return with more shortly.
