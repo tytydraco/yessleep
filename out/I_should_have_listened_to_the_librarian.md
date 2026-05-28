@@ -1,0 +1,80 @@
+As a woman in her early 20s with an English degree, my career choices were very limited. Luckily, I was able to find a freelance research journalist gig for an independent website that helped me eat and pay rent for the time being. A few months ago, I started working on a project on lesser known cults throughout the country. I stumbled upon a Reddit thread about users’ local legends and folklores when I first heard about the Scribes of Life. The user claimed that his hometown had a group of individuals in the early 1900s that worshipped the goddess of writing, record-keeping, and architecture, Seshat. It started innocently but eventually turned violent as one of the members was caught attempting to sacrifice a local boy in a fire near the woods. He was shot by the police and did not survive. Many of the members kept journals filled with their beliefs and ways of life. Supposedly, these documents were kept in the local library and not available anywhere else. 
+
+The people in Eastcliff acted like the library didn’t exist despite the old brick building sitting by itself in the middle of the quiet tiny town. In fact, it wasn’t even listed on Google Maps when I was navigating here.
+
+I arrived on a gloomy Tuesday morning and decided to stop into a pub for some of the local delicacies. The waitress wearing a name tag that read “Amy” gave me a funny look when I asked when the library opens for the day after paying my bill. 
+
+“We still have a library?” She asked in a tone that almost sounded like an inside joke I wasn’t a part of. I just stared back unsure of how to answer that before heading out for the day. I would take my chances if it wasn’t open yet. 
+
+I figured it had to be along the main street somewhere. After wandering for about a half hour, I saw a dilapidated road that was almost hidden completely by the brush towards the edge of town. I had this feeling of dread looking at it, like I should just turn around. But my curiosity was too great so I drove down it until I reached the very place I was looking for. 
+
+It was a one-story stone building with moss-covered bricks and dusty windows surrounded by old oak trees. The front door creaked like it hadn't been used in a hundred years. Inside, the air was thick with the scent of musty paper.
+
+The librarian was the only staff member I ever saw. She was small, sharp-eyed, and dressed like someone who hasn’t purchased any new clothes in the past 20 years.  
+
+“You’re not from here,” she said when I walked up to the desk.   
+“No,” I said. “I’m a researcher. Folklore and cult history.”  
+“Then let me give you the rule: Never stay here past closing.”  
+I smiled. “Is that a joke? Of course I’ll leave when you close.”  
+“No,” she said. “That’s the rule.”
+
+I chuckled uncomfortably while I asked for her help finding the Scribes information.   
+The journals were kept in the Special Collections room. They were brittle, handwritten volumes filled with elaborate rituals, symbols, and cryptic phrases. They felt like they could turn to dust in my palm. I was consumed by one of the journals a member of the Scribes kept. They started going mad over townspeople supposedly disappearing periodically after visiting the library, convinced their souls were being consumed by Seshat. It seemed like this member, Jonathan, became obsessed with becoming a servant to the goddess.
+
+“They are being made into our texts. And one day, so will I.”
+
+Upon reading further, it became clear that Jonathan was the member who tried sacrificing the child. His journals turned into unhinged rambles until he claimed he figured out how to become Seshat's eternal servant by using his neighbor's child.
+
+I couldn't read any more. It was too disturbing with details. Just as I was shutting the journal, I felt a chill on the back of my neck.
+
+I turned and my eye caught a long and dark hallway behind the Special Collections that I hadn’t noticed before. Reluctantly, I wandered to the end of it and found a door that didn’t seem to match any others in the library labeled, “Archival.”
+
+Inside was silence. The air felt thick.. Shelves stretched impossibly high and deep. I wandered further and saw a room made entirely of card catalog drawers. Thousands of them. I haven’t even seen a card catalog since my childhood. 
+
+I decided to open one of the drawers labeled “S-T” in hopes to discover something I hadn’t seen yet for the Scribes. 
+
+It wasn’t a book reference.
+
+It was a person.  
+STERLING, HENRY (1872–1901): Stole a sacred book. Shelved accordingly.
+
+I opened another. And another. Every card was like a tombstone with their crimes describing the entirety of their beings. 
+
+Then I found mine.
+
+MILLS, MARA (1997– ):  Failed to leave before closing.
+
+  
+My hand shook. The card was unfinished. 
+
+I completely lost track of time and realized too late that the library had already closed. 
+
+I heard a dry whisper saying my name from behind me. 
+
+As I reluctantly turned, I saw a figure. It was taller than any person I’ve ever met. Its body was a tangle of parchment and flesh, its arms long and ending in  piercing points like quills. Where a face should’ve been, there was only a flat stretch of skin covered in tiny handwritten script, writhing as it watched me.
+
+It moved slowly and silently. My instincts kicked in to get the hell out of there. 
+
+While running back down the hallway, the shelves shifted, turning the library into a maze. I screamed for help while my short legs pumped with adrenaline. My voice was swallowed by the endless rows.
+
+I passed other people that seemed to be frozen mid-step, their skin gray and brittle, eyes wide with terror. Each clutched a book. 
+
+I turned a corner and found myself in the Special Collections room again. A new journal was sitting on the desk. It had my name on the spine. With shaky hands, I opened it. 
+
+Blank. Then words appeared, line by line, as if being written right in front of me:
+
+“She stayed too long. She heard the pages whisper. She tried to leave, but she was already written.”
+
+The final line:  
+“Mara Mills: Archivist, 2026”
+
+I dropped the journal and ran to the front doors. They opened easily now. The street was empty. I ran into my car and quickly locked the doors. No matter how hard I tried, my car wouldn’t turn on. Before I could give up hope completely, I fell asleep suddenly, as if I was given a sedative.
+
+I woke up in the library, in the Archival room. I wake up here every time regardless of how far I run away or how long I try to stay awake. 
+
+The shelves shift. The lights never quite work. And I know I’m not the only one. I hear the others at night, whispering and murmuring for help. 
+
+The librarian never speaks to me. But she looks at me with sympathy.
+
+I should have listened. 
+

@@ -188,4 +188,4 @@ I'm going to make an update soon detailing a few things. Mostly, what Marty's do
 
 Please comment with any ideas of how to convince my mom and an idea of who I should report Marty to, as Alice doesn't believe me, and I'm not sure I have faith in the police.
 
-Thank you for listening to this honestly traumatic experience. Again, I'm new to this, so forgive any clarity or writing issues.
+Thank you for listening to this honestly traumatic experience. Again, I'm new to this, so forgive any clarity or writing issues.    [UPDATE](https://www.reddit.com/r/nosleep/comments/1tqgmd1/theres_only_one_nurse_at_the_nursing_home_my/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

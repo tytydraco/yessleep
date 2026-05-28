@@ -40,3 +40,4 @@ And what the hell did I hear scream inside my house?
 
 Reddit, could you help me understand what might be going on and how I should proceed safely?
 
+UPDATE: As of 5/28, I am going back with a close friend to try and figure something out tonight. I will update you all tomorrow. The cops have not updated anything on the case and they seem like they are not willing to help.
