@@ -156,3 +156,4 @@ I haven’t remembered that day in so many years. I felt it then, as I do now. T
 
 I can’t fight sleep much longer. I need to wake up one last time. I need to finish this.
 
+Part 3: [Don't open your eyes final](https://www.reddit.com/user/Fun-Pipe9830/comments/1tqs7f5/dont_open_your_eyes_finale/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

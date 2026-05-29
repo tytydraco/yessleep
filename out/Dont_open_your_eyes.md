@@ -120,6 +120,6 @@ Bershide turned to the man who had been jotting the letters down and held out hi
 
 I can’t write anymore. I’m so tired. I’ll post this, and if I wake up, I’ll write more.
 
-
-
 Part 2: [Don't open your eyes part 2](https://www.reddit.com/r/nosleep/comments/1tpcu8a/dont_open_your_eyes_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+Part 3 (final): [Don't open your eyes final](https://www.reddit.com/user/Fun-Pipe9830/comments/1tqs7f5/dont_open_your_eyes_finale/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
