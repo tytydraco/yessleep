@@ -1,0 +1,73 @@
+I record this not for glory, nor for the satisfaction of curiosity, but because silence has proven more dangerous than speech.
+
+I was trained at Padua. I have opened men from throat to groin and watched the soul flee in steam & blood. I have amputated limbs without laudanum and stitched children by candlelight. I am not given to visions, nor peasant superstition. I believe in the body as a machine of flesh, governed by causes, not curses. What I encountered in \[REDACTED\] village obeyed laws, but not those of God or Galen
+
+
+
+**I**. **The** **First** **Patient:**
+
+They brought him before dawn, wrapped in a wool cloak stiff with something dark & tacky. The boy could not have weighed more than sixteen summers. Shepard, by the smell of lanolin and soil. He was alive when they set him on my table. Barely.
+
+His skin had the pallor of rendered fat. Not the blue of suffocation, nor the yellow of fever, but something drained, emptied. His lips were pale as parchment. When I pressed my thumb into his forearm, his skin did not spring back. I took his pulse. It was there. Then gone. Then there again, as if undecided. 
+
+"Where was he found?" I asked.
+
+"Near the lower pasture." His uncle said. "By the stream. He was walking home. Then he wasn't."
+
+There was no blood on his clothes worth remarking upon. That troubled me at once. When I uncovered his legs, I found the wound. A single incision along the inner thigh, no longer than my little finger, placed with obscene precision over the course of the femoral artery. It was shallow, too shallow. No tearing. No inflammation. The edges were smooth, almost polished. And yet the boy lost more blood than a man struck by a saber. I picked the wound. I pressed. I prayed, thought, I do not often. Nothing availed. 
+
+He died without a sound, staring past me, pupils wide, as if watching something retreat.
+
+
+
+**II**. **Examination** **of** **the** **Body**:
+
+The priest objected to dissection. I overruled him.
+
+By mid-morning the corpse had not stiffened. Rigor was delayed, incomplete. The body was cool to the touch, but not cold as death should make it. There was no odor or decay. Instead, a faint, vegetal scent, like crushed stems left too long in water. 
+
+Upon pending the thoracic cavity, I found the heart intact but altered. Its walls were thickened, darkened, heavy in hand. When struck gently with my probe, it rang, faintly, as if mineral began to replace flesh. The lungs were collapsed, unused. The blood remaining in the vessels was thick, sluggish, & inky dark. It did not clot. 
+
+The liver had been eaten. Not gnawed. Not torn. Consumed. Scooped hollow, as if liquefied and drawn away. The spleen likewise. The marrow cavities of the femur were pale and dry. This was no animal. No wolf drinks marrow. No man feeds so neatly. 
+
+I examined the wound margins beneath magnification. There were impressions, not of teeth as we understand them, but of plates, curved and opposing, leaving compression arcs rather than punctures. Iron residue stained the tissue. I wrote in the margin, without yet understanding why: "Guillotine." I Do not know why the word came to me, but felt like the best analog to compare with.
+
+  
+**III**. **The** **Survivor**:
+
+Two nights later, a miller came screaming into town. He had been feeding his wheel when he saw it (his word, not mine) standing by the sluice gate. He swore it did not move until he acknowledged it. Then its eyes caught the lantern light and returned it, red and green, like a cat's. He struck it with a pole. It did not bleed. Instead, it released a smell so foul he retched and fell to his knees. While he lay there, it fed. Not upon him, but upon the carcass of a goat nearby, lapping blood from the stones with a tongue too long, too thin, moving with terrible delicacy. Then the creature withdrew, it looked at him again, and he said: "Doctor, I couldn't see myself anymore. In the water. I was there, but I wasn't." He has not slept since.
+
+
+
+**IV**. **Pattern**  **Recognition**: 
+
+By the end of the week, there were five dead. Always at night. Always drained. Always near damp soil, loam, or standing water. The wounds varied. Thigh, neck, abdomen, but each lay precisely over a major artery. No wasted motion. No frenzy. I mapped the sites, They formed a circle. At the center: an abandoned salt mine, long collapsed, now just a pit where villagers dumped refuse and dead animals. I sent men to burn it. They refused.
+
+
+
+**V**. **A Living** **Corpse**: 
+
+On the sixth night, they brought me a woman who had "died" hours before. Her skin was cool. Her chest did not rise. I pronounced her gone. While I prepared my instruments, I saw movement beneath her skin. Not twitching. Flow. Along the course of her carotid artery, something rippled, cilia perhaps, or fine tendrils contracting in sequence. I place my ear to her chest. There was no breath. There was no heartbeat. And yet, she lived. Her eyes opened. 
+
+They did not see me. They scented me. I fled my own surgery.
+
+
+
+**VI**. **Hypothesis** **(Heresy)**:
+
+I no longer believe this to be undeath. I believe it to be occupation. A colony. A parasite. A thing that enters through blood and mucosa, rewrites the body, and repurposes it. The heart becomes redundant. The lungs ornamental. The blood itself becomes both food and circulatory medium. 
+
+There are castes. I am certain of it now. The smaller ones hunt. The larger one (she, I think), waits. Coordinates. Feeds last. When I dreamed, I smelled her before I saw her.
+
+  
+**VII**. **Final** **Observation**: 
+
+I went to the mine. I should not have. There was movement in the dark, many bodies, but one presence. Vast. Swollen at the throat, distended with blood not her own. Smaller infected recoiled at her passage, pressing themselves into the soil. 
+
+When she turned her head, I felt it, not fear, but pressure, like a hand closing around my thoughts. I understood then that this was not an outbreak. It was a settlement.
+
+
+
+**VIII**. **Closing** **Statement**:
+
+If this document is found, heed this: Do not call them demons. Do not call them dead. Do not believe there is only one. They are older than our walls, patient as loam, and they remember us better than we remember ourselves. I have sealed these notes. I pray they remain sealed
