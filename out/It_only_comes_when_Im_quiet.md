@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1tog2zf/my_sister_knew_what_happens_when_you_stop_making/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1tre77z/my_mother_begged_them_not_to_come_quietly/) 
+
 My mom has schizophrenia.
 
 That’s the first thing everyone tells me to remember, so I’m putting it first here too.

@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1tmttx1/it_only_comes_when_im_quiet/) | ... | [Part 3](https://www.reddit.com/r/nosleep/comments/1tre77z/my_mother_begged_them_not_to_come_quietly/)
+
 I left something out of my [first post](https://www.reddit.com/r/nosleep/comments/1tmttx1/it_only_comes_when_im_quiet/).
 
 That sounds like I did it on purpose. I didn’t. Not really.

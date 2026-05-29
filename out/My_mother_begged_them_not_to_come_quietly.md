@@ -1,0 +1,301 @@
+[Part One](https://www.reddit.com/r/nosleep/comments/1tmttx1/it_only_comes_when_im_quiet/) | [Part Two](https://www.reddit.com/r/nosleep/comments/1tog2zf/my_sister_knew_what_happens_when_you_stop_making/) 
+
+I didn’t post the rest of this earlier.
+
+I told myself it was because it had gotten late. And that was true in the technical way that some lies are true. It was late. 
+
+But that wasn’t why I stopped. I stopped because the moment I typed what my sister had said, not her, something in my bathroom answered with the same little tune from that night.
+
+Three notes.
+
+A pause.
+
+Three notes again.
+
+It wasn’t loud. If it had been loud, I think I might have handled it better. 
+
+I sat there with my hands over the keyboard and did not breathe for a few seconds. Then, like a coward or a sane person, or whatever thin difference remains between the two, I turned on everything in the room that could speak for me.
+
+The TV. My laptop. A podcast on my phone.
+
+Three different voices filled the studio. A woman on the TV laughed too brightly at something that wasn’t funny. Someone on the podcast uttered the word “consciousness.” My laptop autoplayed a car insurance ad. Under all of it, from the bathroom, the tune kept going.
+
+So I stopped writing.
+
+I’m finishing it now because stopping did not help. 
+
+After my sister said, “Not her,” the lights came back on.
+
+My mother ran to the phone. I thought she was calling an ambulance. What I remember is her screaming at the dispatcher to send police too. My father was shouting over her, demanding to know why the hell she wanted police.
+
+“With sirens,” my mother kept saying. “Tell them with sirens.”
+
+I watch a lot of true crime, and I had never heard anyone request sirens before. They were not something you asked for. But my mother begged for them.
+
+“Do not come quiet,” she said. “Please. Please tell them not to come quiet.”
+
+My sister was still on the couch. My parents had backed away from her. Her hair had fallen over her face, and every few seconds her shoulders jerked, quick and ugly, as if someone above her was testing the strings.
+
+The house went still again.
+
+The power was back. The fridge hummed. The TV glowed black. The candle on the coffee table threw its weak yellow light. But no one spoke. Even my father, who had never believed silence could improve a room, said nothing.
+
+That was when my sister began to smile.
+
+Small, at first.
+
+Polite.
+
+Patient.
+
+The same smile I saw on my own reflection in the dark TV this week.
+
+Then we heard the sirens. Far away at first. Thin and rising. A thread of sound pulled through the dark. My mother collapsed against the wall like her bones had been untied. My father started cursing under his breath. My little sister stopped crying in the middle of a sob.
+
+My older sister took one deep breath.
+
+Then another.
+
+Her body loosened. Her head tipped forward. When she looked up again, she was herself, or close enough that all of us were willing to accept it. She blinked around at the living room, at my parents, at me, at my little sister, at the red and blue lights beginning to flicker through the curtains.
+
+“What happened?” she whispered.
+
+Nobody answered her.
+
+Adults came into the house after that. Police first. Then paramedics. Everyone talked too loudly. My sister cried and said she didn’t remember. My mother told them she had been missing and had come home confused. My father said she was being dramatic. The paramedic asked if she had taken anything. My sister said no.
+
+I stood in the hallway with my little sister pressed against my side, watching the living room fill with strangers and noise.
+
+I remember feeling safe only when everyone was talking.
+
+A few days later, my mother sent me away.
+
+She said it was because things at home were too stressful and she wanted me to focus on school. That was the explanation she gave my teachers. That was the explanation she gave me when I cried and asked what I had done wrong. But I know better now.
+
+She sent me to my cousin’s apartment because it was never quiet there.
+
+Six people lived in a one-bedroom. Five before me, then six with me. My cousin, her husband, their two kids, my aunt, and my aunt’s boyfriend, who was always either watching soccer or asleep with one arm thrown over his face. I slept on a folded blanket between the couch and the front door.
+
+There was no privacy. None. Someone was always cooking, coughing, arguing, laughing, flushing, opening drawers, stepping over me, apologizing for stepping over me, then stepping over me again ten minutes later. I hated it. I complained constantly in my head.
+
+I had spent my whole life being quiet, but inside I was never quiet. I read constantly. Books were the place where I could talk without talking. The voice in my head could become anyone. Girls with swords. Orphans in strange houses. Detectives. Witches. Dead narrators telling you they didn’t know they were dead yet.
+
+I brought a box of books with me to my cousin’s place.
+
+The next day, they were gone.
+
+My aunt said there was no space. She said old paper attracted roaches. She had thrown them away in the dumpster behind the laundromat. I think my mother told her to.
+
+After my books disappeared, my mother called every night and asked what I was doing.
+
+Not how I was doing.
+
+What I was doing.
+
+Watching TV, I’d say.
+
+Good.
+
+Helping with the kids.
+
+Good.
+
+Trying to sleep.
+
+Put music on.
+
+Sometimes I’d get angry and say, “I just want to read.”
+
+And my mother would go quiet.
+
+Then she’d say, “Not in your head.”
+
+At the time, I thought she meant I shouldn’t isolate myself. I thought she was worried that reading would make me depressed or strange. Now I think she meant exactly what she said.
+
+Not in your head.
+
+Do you know how loud reading is when you are the kind of person who hears every sentence? Not out loud, obviously. I am not talking about moving your lips. I mean that private voice that reads for you, the one you probably do not notice unless I ask you to notice it right now.
+
+The one saying these words as your eyes move across them.
+
+Whose voice is that?
+
+My mother filled our house with religious music after my sister came back. All the time. Hymns in the kitchen. Prayers in Spanish from YouTube. Rosaries on loop. A little plastic radio in the bathroom playing a station that cracked whenever the weather changed. My father complained until the complaint became useless, and then the music became another piece of furniture.
+
+My older sister recovered. That's what people said.
+
+She slept for almost a week. She saw doctors. She stopped going out for a while, then started again. Not as much as before, but enough to convince people she was okay. She kept friends around her. She moved into louder apartments. She dated men who played music in the shower and lived with roommates who slammed cabinets and had neighbors with babies and dogs and bad schedules.
+
+She built her life out of noise.
+
+And it left her alone.
+
+That is why she knew what my recording meant. That is why she told me to delete it. That is why she didn’t answer when I asked what liked me.
+
+She knew it had tried her first.
+
+Or maybe not first. Maybe it tried my mother first. Maybe it tries everyone in a family until it finds the one who makes enough room.
+
+My sister was too loud.
+
+My mother was too stubborn.
+
+I was the quiet one.
+
+The peaceful one.
+
+The available room.
+
+After my first post, I called my little sister. I hadn’t planned to. She is the most normal one, or at least the best at looking like it. Married. Two kids. A house with a lemon tree. She is the kind of adult who owns extra batteries and remembers everyone’s birthday. 
+
+I didn’t want to drag her into this, but I needed to know if I had invented the living room.
+
+When she answered, I didn’t explain everything. I just asked, “Do you remember when our sister came home that winter?”
+
+She went quiet for so long I thought the call had dropped.
+
+Then she said, “Are you hearing it now?”
+
+Not, hearing what?
+
+Not, what are you talking about?
+
+Are you hearing it now?
+
+I sat down on my kitchen floor.
+
+She told me she remembered the sirens. She remembered Mom yelling for them. She remembered our sister bending wrong. She remembered the sound from her mouth. She remembered me standing in the hallway with my hand over my mouth.
+
+Then she told me something I had forgotten.
+
+After the paramedics took my sister outside, my little sister and I were alone in the hallway for maybe thirty seconds. Everyone else had moved toward the front door. The living room was empty. The religious music had not come back on. The power was working, but no one had turned on the TV.
+
+For the first time all night, the house was quiet.
+
+My little sister said she heard someone whisper my name from the bathroom.
+
+She said I turned my head toward it.
+
+She said I smiled.
+
+Then Mom came back inside and slapped me.
+
+I don’t remember that.
+
+I remember a lot of things from that night. Too many things. The charm bracelet. The black marks on the floor. The candle wax melted unevenly down the side of my mother’s candle. My sister’s boots still on while paramedics lifted her onto the gurney.
+
+I do not remember my mother slapping me.
+
+My little sister swears it happened.
+
+She said Mom hit me so hard my lip split. Then Mom grabbed both of us and dragged us outside, where the sirens were still going and neighbors were standing on their porches in robes and slippers. She kept us there until the police said they needed to turn the sirens off.
+
+“Mom said you answered,” my little sister said.
+
+“I didn’t.”
+
+“I know.”
+
+“But she said I did?”
+
+My little sister breathed into the phone. In the background, one of her kids yelled something about a missing shoe. A show played too loudly. A dog barked. Her house was full of life, annoying, ordinary, and safe.
+
+“She said your face did,” my little sister said.
+
+I haven’t slept much since that call.
+
+I’m still waiting for the psychiatrist. I keep repeating that. Nineteen days. Then eighteen. Then seventeen. I can make it to an appointment. People make it to appointments all the time. They write symptoms down. They sit in rooms. They get help.
+
+But I need to tell you what happened tonight.
+
+I was trying to test myself. I know everyone will tell me to stop doing that. But fear makes scientists out of idiots, and I have apparently become both.
+
+I turned everything off.
+
+No TV. No music. No fan. No podcast. No sink running. I unplugged the fridge for five minutes because its hum was bothering me, then immediately felt crazy and plugged it back in. I sat in the middle of my living room with my phone stopwatch open.
+
+I wanted to see how long I could handle silence.
+
+At first, it wasn’t silence. Not really. Buildings are never quiet. There was traffic outside, a neighbor’s footsteps upstairs, the tiny electrical tick of something in the wall. My own pulse in my ears. My breath.
+
+At four minutes, my jaw started aching from how hard I was keeping my mouth shut.
+
+At six minutes, I started hearing music.
+
+Not outside me.
+
+Inside.
+
+One of my mother’s hymns from when I was fourteen. I didn’t remember the words, only the melody. I tried not to follow it. Then I realized trying not to follow it was still following it.
+
+At nine minutes, I heard my older sister’s roar from the living room all those years ago, thin and broken and skipping.
+
+At ten minutes, the TV screen brightened even though it was off. Just enough to reflect the room behind me.
+
+I saw myself sitting on the floor.
+
+Behind me, near the bathroom door, stood my older sister.
+
+Not how she looks now. How she looked when she came home. Eighteen. Hair tangled. Black sweater. Face normal from far away and wrong up close.
+
+In the reflection, she raised one finger to her lips.
+
+Then she pointed at my mouth.
+
+My phone alarm went off.
+
+I had set it for eleven minutes, thinking I was being brave. The sound was horrible. Loud and bright and electronic. I grabbed it so fast I dropped it, and the alarm kept screaming from under the couch.
+
+The reflection of my sister vanished.
+
+The bathroom door was closed.
+
+My phone kept shrieking until I got down on my stomach and reached for it. When I finally turned the alarm off, the silence rushed back so hard I gasped.
+
+From under the bathroom door, something gasped too.
+
+Exactly like me.
+
+That’s when I understood the problem with noise.
+
+Noise does not get rid of it.
+
+Noise *teaches* it.
+
+Every song. Every prayer. Every argument. Every TV left on in another room. Every word you say to yourself in the shower so you do not feel alone. It listens. It learns the shape of you. It learns your mother’s voice first, then your sister’s, then the little voice you use in your head when you read something like this and think, that couldn’t happen to me.
+
+Maybe that is what hereditary means.
+
+Or maybe I’m sick.
+
+Maybe my sister was sick. Maybe my mother was sick. Maybe my little sister is lying because trauma makes people build matching stories. Maybe all of this is an illness moving through us exactly the way doctors say it can.
+
+I hope so.
+
+I really do.
+
+Because if it is illness, then there is still a chance the voice in your head belongs to you.
+
+I’m posting this now because the studio has been quiet for too long, and I don’t trust myself to wait until morning. My alarm stopped twenty-seven minutes ago. I turned on music after that, then a podcast, then both at once. I opened a video on my laptop too. Three voices talking over each other in this room, and still, underneath it all, I can hear someone humming from the bathroom.
+
+It’s the same tune from the recording.
+
+The children’s one.
+
+The circular one.
+
+Only now I know where I heard it first.
+
+My sister hummed it when she came home from those three missing days. My mother hummed it beside my crib. I hummed it in my sleep.
+
+And if you’ve gotten this far, if you’ve been reading quietly to yourself, you’ve heard it too.
+
+Maybe not enough to recognize it yet. Maybe only as a rhythm. A little gap between sentences where your mind supplies the next sound.
+
+Don’t test it. Don’t sit in the dark and see how long you can stay quiet. Don’t stand in your bathroom with the fan off. Don’t ask the empty room what it wants.
+
+And please, for the love of God, if you hear yourself start to hum while reading this, stop.
+
+Put on music. Call someone. Say anything else.
+
+Don’t let the first sound you make be the tune, because then you’re giving it your voice.
