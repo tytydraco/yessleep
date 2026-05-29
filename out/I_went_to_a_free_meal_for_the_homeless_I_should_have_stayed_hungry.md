@@ -1,0 +1,653 @@
+I’ve been living on the streets for seven years. Seven long years out here in snow, freezing cold, heat, storms. I know I’m not special, just one of thousands of homeless people living the exact same way. Dealing with the same kinds of problems. Some worse, some easier. People end up out here for all kinds of reasons physical, mental, cut off from any chance at a normal life. From being just another average person who goes to work on Monday and barely does more than sleep until Friday. Just one of many.
+
+Seven years ago, my life fell apart in the span of a single month. One day I was stressing about work, the next my mind just… shut down. The place I worked at closed. Just like that, I had to start looking for a new job. But that wasn’t even the bottom of it. My parents’ house caught fire. They both burned inside… and I broke. I couldn’t sleep at night, or I was fighting off panic attacks. My girlfriend at the time stayed with me for two weeks. I always knew she didn’t love me enough to stick around, and sure enough, she left at the first real chance she got. So I was left alone, with my problems, with my demons. In the end, I had nothing left. Just a bag of personal belongings, untreated PTSD, and a mild paranoid personality disorder. That’s how I ended up out here. With nothing.
+
+So I sat out on the street. Over time I completely shut down. I didn’t trust anyone or anything. Being alone out here felt better. At least I could rely on myself.
+
+Lately, since the weather’s been better, I’ve been spending my mornings sitting in a nearby park. It’s close to the underpass where I sleep at night. The quiet, tree-filled park calmed me down. Especially during the day, when most people were at work. Just a few old folks walking around, a couple moms with their kids. I watched the birds. A few magpies and pigeons pecking at the ground. The whole thing felt like some kind of modern still-life painting.
+
+That’s when he walked up to me. Broke the moment, the soft sunlight warming my face.
+
+My hand immediately slid to the dull pocket knife I keep in my jacket. Don’t even remember where I got it, never actually used it. But I liked knowing it was there.
+
+“Good afternoon, my friend,” the stranger said the second he stepped up next to me.
+
+The sunlight was too strong, I couldn’t see his face. But his clothes… bright white. Spotless.
+
+The complete opposite of my worn-out jacket and jeans that looked like they were a hundred years old.
+
+“What’s your name, my friend?” he asked, and sat down right next to me.
+
+I couldn’t even speak. What the hell was this guy doing? I’m a dirty, stinking homeless man. My beard’s long, my hair’s a mess, filthy, like a stray animal’s. And he just sits down next to me?
+
+“Can I help you with something?” I said, my voice low and rough.
+
+I tried to make myself look even worse. More threatening. Maybe he’d change his mind and leave me alone.
+
+He was practically sitting shoulder to shoulder with me now. His face brown, cheerful, friendly. His eyes were dark, but they had this soft shine to them. Calm. Gentle.
+
+I knew exactly what kind of guy he was. I’d run into plenty like him over the years. I let go of the knife in my pocket and went back to watching the birds.
+
+“My friend, I’m the one here to help you,” he said kindly. “Come with me. We’ll give you clean clothes, a hot meal, medical care. I’m sure there’s something you need.”
+
+“Who are you with?” I asked, dismissively.
+
+I never liked these church types. Sure, they helped, but there was always something they wanted in return. Sit through their sermons. Hand out flyers. Bring in more homeless people. It was never my thing.
+
+“Come, and I’ll show you, my friend,” he said after a moment.
+
+“I’ll pass. Thanks.” I replied coldly.
+
+The man in the clean white clothes just smiled. Like I’d said something funny.
+
+“Alright, my friend,” he said a few seconds later. “We’re just beyond the park. If you change your mind, come by. We serve lunch, and dinner too.”
+
+My stomach growled quietly. I don’t think he heard it. I stayed perfectly still, like some kind of wild animal waiting to strike. But it wasn’t hunting. It was fear. That frozen kind, like when you see someone get hit by a car and you just… can’t move.
+
+The man stood up from the bench. Stretched his arms up toward the sky, letting out a satisfied sigh as he soaked in the sunlight.
+
+“Here, take this, at least,” he said, handing me a small package. “Something to eat, my friend. And our card, in case you change your mind. So you know where to find us.”
+
+Then, with one last kind smile, he walked away. And I put the little package aside. I didn't trust it enough to eat whatever was in it.
+
+I kept my eyes on the entrance, the wide double doors thrown open like it was some kind of concert check-in. But instead of security or ticket scanners, there were just a few white-clothed, cheerful figures standing out front. Homeless people were arriving. Maybe a dozen of them. The people in white welcomed the ragged street folks with warm smiles, inviting them inside like they were long-lost family.
+
+I didn’t want to go in blind. That’s not how I work. I needed to see, to know what I was walking into. Who was inside. What was inside. But hunger had been gnawing at me since yesterday. Water I could manage, from the park fountain. But food? I couldn’t even remember the last time I’d had a real meal.
+
+Meanwhile, the group of homeless people was guided through the open doors. Dirty, worn-out figures, thanking them over and over for their kindness.
+
+Something about the place felt off. But I’d been to a few of these so-called soup kitchens over the years, most of them tied to some kind of religious crap. This wouldn’t be any different.
+
+I go in, eat, and leave. I don’t need anything else from them.
+
+As I stepped out from behind the bushes, I ran straight into someone I recognized.
+
+“Noah?” the thin, bearded man with one eye asked.
+
+I didn’t answer. I knew who he was. But I wasn’t in the mood. I was already dealing with something I didn’t want to deal with, and now he had to show up too.
+
+“Noah, it’s me. Colton. You remember me?” he said, stepping closer.
+
+Colton was a good guy. Well… as much as a one-armed, one-eyed veteran could be. His head was even more fucked up than mine. Coming back from Iraq only made things worse for him. He was unlucky enough to lose his arm to his own grenade, and that’s how he lost part of his vision too. No medals. No recognition. No heroic story waiting for him back home. Just being forgotten. And the streets.
+
+“Yeah, Colton…” I replied flatly. “I know who you are.”
+
+“Ahhh!” he shouted, loud enough for people walking by to turn and stare. “That’s what I like to hear! So where you headed? What’s new with you these days?”
+
+I didn’t answer right away. What bothered me more was the way people were still watching us. Regular people. Staring. Judging.
+
+And then it got worse.
+
+Two of the white-clothed figures waved at us. The third was already walking toward us, smiling. Fuck, Colton… this is not how this was supposed to go.
+
+We walked in together, Colton and I. The guy kept talking nonstop, I swear he didn’t take a breath, but I wasn’t really listening anyway. As we followed one of the white-clothed people, I tried to map the place out without being obvious about it. I pulled my dirty hood over my head. It wasn’t cold, but at least it made me feel a little hidden. Still, I didn’t see many ways out.
+
+We moved down a hallway. Large, empty rooms lined both sides, looked like lecture halls or something. When we reached the end, I could already smell the food. Freshly cooked. Real meat. The kind of smell that almost melts in your mouth before you even taste it. Even Colton quieted down. I could see it on his face, like he hadn’t smelled something like that since he was a kid.
+
+Then we stepped through the door behind the white-clothed guide, and finally saw what we came for.
+
+A big open room. Like a school or office cafeteria. Long rows of tables stretched across the center. Gray metal tables, packed with homeless people. A normal person would probably think the smell alone would make it impossible to eat in there. But when you’re as hungry as we were, that kind of thing doesn’t matter anymore.
+
+Most of them were already eating. And not just eating, devouring it. Thick stew, steaming hot. Heavy, rich soups. Some were still lined up at the serving counter, but everyone who walked away had massive portions. It didn’t feel like a soup kitchen. It felt like a restaurant.
+
+Colton rushed straight to the line like a starving wolf, already watching for his turn.
+
+Something about the place felt wrong. Not just to the broken part of my mind, even a normal person would’ve found it strange. Too clean. Too friendly. Too… perfect. It actually made me less hungry.
+
+Behind me, the white-clothed guy shut the doors, then smiled at me before walking off to a corner where others were handing out fresh clothes.
+
+“Friend, I’m glad you came,” a familiar voice said.
+
+It was the same guy from earlier. The one who brought me here. I could see his face better now than I could in the sunlight before. Just an average young guy. Clean. Normal. His white clothes still perfectly pressed.
+
+“What is this place?” I asked, glancing back toward the door, where another white-clothed woman was guiding in a few more homeless people. Same warm smile. And the moment they stepped inside, she let them loose like starving puppies at feeding time.
+
+“Friend,” the man from the park said, “this is love. You get food and clothes, just like I told you. The Prince’s church keeps its word.”
+
+“The Prince? Church?” I looked at him, suspicious.
+
+My thoughts were racing.
+
+What Prince? What church? Who are these people? Why are they doing this? And why like this?
+
+Only one thought made sense.
+
+I need to get out of here.
+
+“I want to leave,” I said firmly.
+
+He just kept smiling at me, like he hadn’t even heard what I said. I stared at him, getting irritated, my hand already searching for the knife in my pocket.
+
+“Hey, Noah!” Colton’s voice cut through the tension. “I got you some too!”
+
+He was at the front of the line, waving his one arm around, holding two large plates of steaming food.
+
+I just stared at him, annoyed. I didn’t want to be here. Something about this place was wrong. I didn’t want to eat. Didn’t want to sit down. Not even for a minute longer. The white-clothed guy kept smiling at me, like he was just waiting for me to give up and accept it.
+
+“I really want to leave,” I said again, more clearly this time.
+
+“Of course,” he said, still smiling. “Just have something to eat first, since you’re already here. After that, you can go wherever you want.”
+
+He never dropped that smile. Always calm. Always friendly.
+
+That damn smile was getting under my skin.
+
+I almost wished he’d get angry. Or yell. At least then I’d know what I was dealing with. But what do you do with something like this? That smile felt worse than anything else.
+
+I licked my dry lips, trying to think of a way out. Where to run. What to do. Anything to get out without them noticing. I could feel panic starting to creep in. The quiet. The white clothes. The constant smiling. The way everyone ate so calmly, so properly—like they weren’t even homeless.
+
+“How many times do I have to call you?” Colton grabbed my arm.
+
+“What?” I snapped out of it, my thoughts breaking apart.
+
+“One of those smiling freaks helped carry our food to the table,” he said, almost scolding me. “Come on. You can talk to them later.”
+
+Then he started pulling me along like a kid.
+
+There was something in his grip. Something in the way he dragged me forward. The kind of feeling that makes you go along without thinking. Even though he was thin as hell, Colton was strong. Strong enough that I didn’t resist at all.
+
+I just let him pull me between the tables, toward our seats.
+
+Colton sat across from me at the long metal table. To my right, a disheveled woman was wiping her plate clean with her dirty index finger, then licking the brown stew sauce off it like a starving cat. The smell of the food was overwhelming, my stomach twisted into knots, hollow and aching. I don’t think a hot meal had ever felt this tempting and this unbearable at the same time. But I didn’t eat. Neither did Colton.
+
+“Do you remember?” Colton spoke, staring blankly at the steaming food in front of him. “The first time we met. It was a place like this.”
+
+“Yeah. I remember.” I answered flatly.
+
+“You were helpless when I saw you there at that soup kitchen,” he continued. “You told me to leave you alone. Said you didn’t need help. But I could see it on you… you were just another lost soul, same as me.”
+
+His voice was different. More composed. Like, for a moment, he’d gathered what was left of his mind, and the man sitting across from me wasn’t the same Colton from a minute ago.
+
+“I knew I had to help you,” he said with a faint, friendly smile. “So you’d survive out there. So you could become one of us… one of the street.”
+
+“I would’ve survived on my own,” I cut in, a little irritated.
+
+“Sure,” Colton shot back. “Just not as well. But tell me, do you remember what we ate back then? At that place. Must’ve been six years ago now.”
+
+“Something like that,” I nodded. “And no. I don’t remember what we ate.”
+
+“It was stew,” Colton said, distant. “But not like this. I remember it clearly. It was more like watery meat than real stew. The bread was hard, stale. Leftovers for people like us. But this…” He pressed his dirty fingers into the slice of bread on his tray. “This is thick. Rich. Real beef stew. The bread’s fresh, crunchy. Why are they giving us something like this, Noah?”
+
+He already knew. I saw it in the way he looked at me. I could feel it in the way his mind shifted mid-sentence.
+
+Something was very wrong here. Even if the signs were small.
+
+“I don’t know,” I said quietly. “But I don’t want to stay here.”
+
+“I know,” Colton nodded. “But those smiling ones… I don’t think they’re as friendly as they look.”
+
+He tilted his head toward a group of people in white. Maybe ten of them stood in the corner. None of them spoke. They just stood there, smiling, watching the herd of homeless people stuffing their faces. As I looked around, I realized they were everywhere, positioned all over the room. Not moving. Just waiting. Like machines waiting for a command.
+
+“Noah,” Colton leaned in closer. “Pretend you’re eating. I think they’re watching us.”
+
+As if he’d sensed it perfectly, a shadow appeared behind me in the overhead lights.
+
+“Don’t you like it, friends?” a young woman’s voice asked.
+
+I turned slightly. A short-haired brunette stood behind me. Her smile was wide, her white shirt stretched over her soft, round figure. Her teeth were clean, perfect. She reminded me of someone I used to work with, back when I still had a normal life.
+
+“Oh, we do. Of course,” Colton answered immediately. “It’s just… my tooth hurts. Hard to chew.”
+
+The woman didn’t seem to process what he said. She just kept smiling. Waiting.
+
+I knew what she was waiting for.
+
+I scooped up a large spoonful of the thick beef stew. I couldn’t remember the last time I’d seen or smelled anything like it. The aroma was incredible. The meat looked clean, real. This was the kind of food people paid for in actual restaurants. Not something handed out for free.
+
+I brought the spoon to my mouth and took the bite. Reluctantly.
+
+The taste hit instantly, the soft meat melting between my teeth, the rich sauce flooding my mouth. But I didn’t swallow. I kept it there, chewing slowly, pretending.
+
+The woman gave a cheerful nod, then walked away.
+
+It took everything in me not to react. My body begged for it, screamed at me to eat, but my mind was louder. I spat the food out as soon as she was far enough.
+
+“Well?” Colton asked immediately. “How is it?”
+
+“Heavenly,” I said, licking my lips. “But there’s something… off about it. Something I can’t explain.”
+
+“Like it wasn’t made for us?” Colton said, almost reading my thoughts.
+
+A tray slammed down to my left. An older man bald, wrinkled, sat beside us. His clothes hung off him in rags. One of us.
+
+He didn’t say a word. Just started shoveling food into his mouth.
+
+I watched him. So did Colton, squinting with his one eye. The man’s eyes widened as he ate. Faster. Faster. His pupils dilated, his breathing turned ragged. He was practically choking as he stuffed himself. He didn’t pause once. If he could’ve, he would’ve drowned himself in that food.
+
+Colton didn’t speak. Just kept staring at me with that half-lidded eye.
+
+“Excuse me!” a voice suddenly rang out.
+
+At the entrance of the cafeteria, a white-clothed figure stood with a microphone. Tall. Thin. Wearing a one-piece uniform, different from the others.
+
+“Now that everyone has received their food,” he said, “and you’ve eaten your fill… we would like to ask something in return.”
+
+He paused for effect, scanning the crowd.
+
+“We ask that you listen… to the revelation of the God who has given you this meal. Please, listen to the sacred words of the one true son of the heavenly king who has come down to Earth. Please… listen to the Prince.”
+
+Silence filled the room.
+
+But not the kind of silence born from fear. It felt… eager. Like everyone had been waiting for this moment. Like the food wasn’t even the reason they were here.
+
+“Noah…” Colton tapped my hand lightly. “Whatever happens… stay calm.”
+
+The cafeteria kitchen doors burst open. The double doors were pulled wide by two figures in white. My heart was pounding, my mind scrambling, trying to guess what was coming next. How do you stay calm in a situation like this? How do you not completely panic?
+
+I don’t think anyone could’ve been ready for what came through those doors.
+
+Two massive, half-naked men stepped out of the darkness of the kitchen. They wore only long white pants. Their upper bodies were muscular, covered in cuts. I was too far to see clearly, but the wounds looked old, healed over, like something had been carved into their skin. They carried long poles on their shoulders, stretching back into the darkness.
+
+Then more of it came into view. A throne. Solid gold, with a velvet seat.
+
+And on that throne… sat someone.
+
+The figure was wrapped in long white cloth, the kind of fine fabric kings used to wear in old paintings. He waved his hand like a ruler greeting his people, though we couldn’t actually see his hand, he wore a thin, silver chain glove. His face was hidden behind a silver mask. Like the ones ancient kings or pharaohs wore… except this one didn’t have a human face.
+
+It was a lamb.
+
+A polished, shining lamb’s face stared back at us.
+
+There were no openings in the mask. No slits. No holes like a death mask. Whoever wore it shouldn’t have been able to see. Or even breathe properly.
+
+But that wasn’t the worst part. The crown. That’s what truly broke something inside me.
+
+Severed human hands, cut clean at the wrists, woven together like a wreath, rising upward from his head. A grotesque, horrifying crown. The dried fingers stretched toward the ceiling like the branches of a dead forest.
+
+I felt cold fear crawl up my spine. Every instinct in me screamed to pull my hood back over my head and run. Just run. Find an exit, any way out—anything—just get the hell out of here.
+
+“Don’t move,” Colton whispered. “Not even a little. Stay in character.”
+
+I could see it on his face, he was terrified. His one eye twitching, restless. If he could, he’d run too. But there was no choice anymore.
+
+Because everyone else… was completely still. Silent.
+
+Waiting for the ceremony to unfold.
+
+The Prince was fully brought out of the kitchen. Two more of those massive men carried the rear of the throne. All four of them had nearly identical markings carved into their bodies. Their faces looked almost the same too.
+
+Like they’d been mass-produced.
+
+When they reached the tall man with the microphone, they gently lowered the throne to the floor.
+
+The thin, tall man immediately dropped to his knees and held the microphone out to the Prince. The Prince took it slowly, almost weightlessly. His white fabrics drifted around him like smoke, like he wasn’t entirely solid.
+
+“My friends. My followers,” the Prince spoke, his voice distorted, unnatural. “I have come among you once again.”
+
+His voice… it filled the space. I don’t know if it was the mask, but it echoed deep—too deep. I felt it inside my head more than I heard it. Like it didn’t belong to a human being at all.
+
+“Kneel before me!” the Prince commanded, almost graciously.
+
+The crowd of homeless people stood up at once, like they were copying the same motion. Colton nudged me, and we followed, dropping to our knees along with the rest.
+
+But something stood out.
+
+A few of them stayed seated. Two, maybe three people. Maybe they hadn’t eaten either…
+
+“What the fuck is this bullshit?!” one of them snapped, jumping to his feet. “What is this, some kind of joke? You give me food and expect me to kneel too? Fuck you!”
+
+The man was red-faced, swollen, clearly drunk or high. There were plenty like that among us, people who ended up on the street because of it.
+
+He kept yelling, cursing, waving his food around, knocking things over.
+
+“That’s enough,” the Prince’s voice rumbled through the microphone. “The unbelievers are not worthy of the meal. They are not worthy of salvation. Only death awaits them.”
+
+“The hell are you talking about?” the man spat back.
+
+And just like that… The Prince was proven right.
+
+The people kneeling beside the man turned on him instantly. Like animals. They grabbed him, beat him, dragged him down onto the table. One woman lunged forward, grabbed his head, yanked it back, and drove her filthy fingers straight into his eyes.
+
+The rest of it was swallowed by the crowd. Maybe that was a mercy.
+
+All I could hear was the screaming. The struggle. The wet, brutal sounds. The man shrieking like a pig being slaughtered.
+
+Colton didn’t flinch. He just watched. Waiting.
+
+A few moments later, it was like the rage had drained out of them. They pulled themselves together and calmly returned to their places. A long-haired man’s face was covered in blood, a woman’s hands still dripping with what was left of the man they’d torn apart. The Prince patiently waited until everyone stumbled back to where they belonged.
+
+No one remained seated. Either they dropped to their knees quickly… or they had already become prey.
+
+My body was trembling. I lowered my head, staring at the floor in fear. My thoughts weren’t racing anymore. I wasn’t thinking about escape, not about finding a way out. I just wanted to survive.
+
+Even the barely-living existence I had out on the streets felt better than this.
+
+When everything fell silent again, I started hearing something strange. A metallic clanking. Like someone struggling to stand, slow, heavy, like an old man forcing himself upright. The sound was harsh, grinding, like rusted metal shifting.
+
+The Prince slowly rose from his golden throne.
+
+Under the white fabric, it looked like pieces of chainmail moved with him—like something a medieval knight would wear. Did he really believe he was the son of kings?
+
+“My friends. My followers.” The Prince straightened.
+
+He hadn’t seemed that tall sitting down. If anything, I would’ve said he was small. But standing there… he looked at least six and a half feet tall, maybe more. His long, thin arms stretched out from beneath the cloth. One held the microphone. The other lifted into the air, ready to preach.
+
+“Listen to me now,” he continued, his voice rumbling through the space, deep and overwhelming. “You poor, broken, forgotten people. The fact that you are here… that you accept my grace… is the best thing that could ever happen to you.”
+
+He paused, letting the words sink in.
+
+Then, like a prophet, he stepped forward, moving between the rows. The way he moved… it wasn’t normal. Smooth. Weightless. Nothing left of that stiff, mechanical motion from when he stood up.
+
+“The world cast you aside…” he went on, gliding between the kneeling crowd. “A corrupt world, where all that matters is money, power, and the exploitation of others. A world where you suffered. Where you froze. Where you starved. But that is why you are here. You suffered, and without suffering, there is no salvation.”
+
+He turned toward our row. Toward me.
+
+My heart was pounding so hard I thought it would break through my ribs. Sweat beaded on my temples. My mouth went dry. I was terrified of that thing, terrified it would notice I wasn’t like the others. That I wasn’t lost in it. That the moment it reached me, it would unleash its followers on me.
+
+“I have given you food and drink,” the Prince said, his voice metallic through the mask. “As prophets before me have tried. But this food… is the true meal. The true flesh and blood. This is the real gift.”
+
+He kept getting closer.
+
+I glanced up as he drifted past the kneeling people, almost floating, brushing his hand against them like they were pitiful animals.
+
+“The world has forgotten you,” he said. “But I have not.”
+
+Then he reached me.
+
+His cold metal hand slid across my shoulder. I will never forget that touch.
+
+It was freezing. The smooth, silver-covered hand sent a chill all the way down my spine. My breath caught. My throat tightened. My back was soaked in sweat. Colton watched it happen with a hard, fixed stare, watching death itself brush against me.
+
+I’ll say this much… whatever that thing was, it might really have been something divine.
+
+Or something far worse.
+
+“You are my chosen people,” the Prince continued as he moved past me, back toward the kitchen and his throne. “You are the ones worthy of me in this filthy world. You are my flock. And in you… I take pleasure.”
+
+He stopped beside his throne and looked out over the kneeling crowd.
+
+If I had to guess, there were at least a hundred of us. Maybe more. I couldn’t see his face, but I knew, whatever was behind that mask… it was pleased.
+
+“Initiates!” the Prince called out, his voice ringing with triumph. “Let the induction of the new ones begin!”
+
+The ones in white sprang into action like dogs given a command. At first, it didn’t look organized, but somehow each of them knew exactly where they belonged. Some moved toward the entrance we came through, others started clearing the tables, and a few stepped up to the ends of the rows. Without a single word or signal, the kneeling homeless people stood up.
+
+The same thing happened at our table. A middle-aged woman stepped up to the end. She didn’t say anything, just looked over us. That was enough. The others stood immediately and started moving toward her. Colton followed them without hesitation. I didn’t really have a choice. I played along and got up too.
+
+We formed lines. Pairs. Like school kids being led somewhere. We followed the white-clothed woman in a long, winding line. Somehow, Colton and I managed to position ourselves next to each other. I could tell he was holding himself together, keeping control like a soldier would—but he was just as scared as I was.
+
+“Colton,” I whispered. “What do we do? What happens now?”
+
+“I don’t know,” he muttered quietly. “But we need to get out of here.”
+
+The crowd moved in neat, organized lines. Two by two, heading back the way we came, out into the long hallway with the lecture rooms. The woman led us into one of them, like a teacher guiding her class.
+
+Colton and I followed.
+
+I had no idea when he planned to make a move. Or how. But with every step, I felt like our chances of getting out alive were shrinking.
+
+Inside, the room was filled with chairs. Rows and rows of them, like a university lecture hall. The front rows were lower, the back rows rising up behind them. Everything was positioned so the stage at the front was clearly visible. There was a single door at the edge of the stage. A bald, middle-aged man in white stood there waiting, smiling as we slowly filled the seats. No pushing, no confusion, everyone just seemed to know exactly where to go.
+
+We kept up the act and sat down too. Luckily, we ended up at the end of a row. Colton sat one seat in, between me and a stiff-faced, unmoving middle-aged woman. I was right on the edge, closest to the stairs and the entrance.
+
+Closest to a way out.
+
+Once everyone was seated, the bald man on stage stepped forward, a huge grin spread across his face.
+
+“Now that everyone has found their place,” the woman who led us in announced, her voice almost ceremonial, “my friends… listen to the sacred words. Listen to the hidden teachings that our lord, the Prince, has revealed to us. Be blessed. Let the initiation begin.”
+
+The bald man turned and disappeared through the door behind him.
+
+Only for a moment. Then he came back.
+
+And I swear… I wish I hadn’t seen what he brought with him.
+
+He wheeled out a man in a wheelchair. If you could even call it a man anymore.
+
+The figure was naked. His arms were gone from the elbows down, clean amputations, old. His eyelids were missing. So were his lips. Surgically removed. But the worst part… was his throat.
+
+A massive incision cut across his neck. From it, thick metal tubes jutted out—several of them, like the pipes of an organ. They stuck out at different angles, glinting under the lights.
+
+The whole thing… barely looked human anymore.
+
+I couldn’t speak. Neither could Colton. He just stared at the stage with that same hard expression.
+
+“Dear God…” someone whispered behind me.
+
+I glanced back.
+
+A young guy sat a row behind us. Dirty, thin. His eyes were wide with terror, his hand clamped over his mouth.
+
+“I’m… I’m going to die here…” he whispered, louder now.
+
+His face twisted with fear. Tears were building in his eyes. He was on the edge—one push away from completely breaking.
+
+“Shh,” I whispered, turning halfway toward him. “Stay quiet. Stay calm… or we’re all dead.”
+
+He looked at me, confused, still covering his face.
+
+“You too?” he asked, a flicker of hope in his voice. “You didn’t eat either? You’re not like them?”
+
+“No,” I hissed. “Now shut up. They’ll hear you.”
+
+“Look, my friends!” the bald man on stage shouted. “Behold our holy one! Listen to his purified, divine voice!”
+
+The thing in the wheelchair began to make a sound.
+
+A low, unnatural vibration. The tubes in its throat shifted slightly, like something inside them was moving. Maybe it was trying to hum. Maybe speak.
+
+But the sound kept growing.
+
+Louder. And louder.
+
+I felt it in my ears first. The pressure building, my eardrums straining against the rising volume. Then in my chest, vibrating, rattling something deep inside me. A sharp, splitting headache followed.
+
+But the others… they felt something else.
+
+Something stronger.
+
+Almost all of them dropped into a trance at once. Their bodies began to twitch violently. Heads snapping back and forth. Hands clawing into the fabric of their armrests. Their legs kicked uncontrollably, like they were having seizures.
+
+Like they weren’t even human anymore.
+
+The thing on stage kept going, the sound now blasting through those metal pipes, an unbearable, piercing noise. I could barely hold myself back from covering my ears.
+
+The kid behind us broke down, sobbing uncontrollably.
+
+Colton didn’t move. Didn’t react. Just stared.
+
+“Colton?” I leaned in close so he could hear me over the noise. “What do we do? What happens now?”
+
+He didn’t answer right away. Just kept watching the stage. Then he leaned in, close to my ear.
+
+“Noah…” he whispered. “Do you still have the knife I gave you?”
+
+That knife in my pocket…
+
+I got it from Colton, or rather, I hid it for him. How the hell did I forget where it came from?
+
+Back when I was still on good terms with him, early in my time on the streets, it didn’t take long to realize the guy wasn’t all there. He probably never had been, but the war made it worse. One day he came rushing up to me, rambling about god knows what, shoved a folding knife into my hand, told me to hide it, then disappeared.
+
+A few days later, the cops took him. He’d stabbed someone on the street. I never found out exactly why, just that the guy didn’t die, only got seriously hurt. Colton got three years.
+
+And the evidence… was sitting in my pocket the whole time.
+
+“Yeah. I’ve got it,” I said, gripping the small plastic-handled knife inside my jacket.
+
+Colton nodded, then leaned in again. I could see it on his face, the sound from that thing on stage was getting to him too.
+
+“I’ve got a plan… but you have to do exactly what I say,” he whispered.
+
+I nodded. Tried to shift my shoulder up toward my ear to muffle the noise. It was unbearable, like a metallic scream drilling straight into my skull.
+
+“Then give me the knife,” Colton said, holding out his hand.
+
+I hesitated.
+
+Why? In a moment like this?
+
+I don’t know. But something about his face felt… off. I could see he wanted out just as badly as I did, but there was something else there too. Something I couldn’t quite place.
+
+The second I pulled the knife from my pocket, Colton snatched it like a hawk. Flipped it open in one smooth motion.
+
+He glanced at me. Just one look.
+
+But it was enough. Whatever was left of Colton… wasn’t there anymore.
+
+It all happened in a blink.
+
+He half-rose from his seat, spun around, and drove the knife straight into the neck of the convulsing woman sitting next to the terrified kid behind us.
+
+Blood sprayed everywhere.
+
+The kid was instantly drenched in it. And whatever was left of his composure shattered completely, he screamed.
+
+“Unbeliever!” Colton shouted. “Unbelievers must die!”
+
+The twitching crowd stopped almost at once. Like someone flipped a switch. Every single one of them turned toward the screaming boy.
+
+Staring. Like a pack of animals.
+
+“Unbeliever!” the bald man on stage shouted too. “The unbeliever must die!”
+
+The crowd, silent just moments ago, launched at the boy all at once. He screamed, kicked, thrashed like an animal caught in a trap.
+
+I just sat there, frozen, watching it unfold.
+
+Then I felt a hand grab me and yank me out of my seat.
+
+Colton.
+
+I don’t even remember how he got out of the row, but there he was, gripping my arm with what remained of his.
+
+“Move!” he shouted. “We have to get out of here!”
+
+He didn’t give me a second to think. Just dragged me along.
+
+The crowd was still tearing into the kid behind us. His screams were still echoing through the room.
+
+Colton was already sprinting for the door. Just a few more steps and we’d be out.
+
+But then something stepped into our path.
+
+A filthy, long-haired man. Ragged. Standing right in front of Colton.
+
+He didn’t move. Just stared at him with a wild, empty look.
+
+“Unbeliever.” he muttered. “Unbelie…”
+
+Colton didn’t wait.
+
+He lunged at him like a wild animal, knife in hand. But the strike didn’t land right—just caught the man in the arm. And that was enough.
+
+They crashed into each other, struggling. Grappling.
+
+I froze.
+
+Didn’t know what to do.
+
+“Get to the door!” Colton yelled, choking the man against the wall with one arm. “Go! Make a way!”
+
+That snapped me out of it.
+
+I ran. Straight for the double doors we came through.
+
+I shoved them open… The hallway was right there.
+
+Left turn. The exit’s there. That’s it. Just run.
+
+I glanced back.
+
+Chaos.
+
+Bodies piled over each other between the rows. The thing in the wheelchair was still on stage, silent now. The kid… wasn’t screaming anymore.
+
+Colton was still fighting.
+
+What do I do?
+
+The thought hit me hard.
+
+Do I help him? Do I save him? After what he just did? After sacrificing that kid? Killing that woman? Or would he throw me to them next if it meant saving himself?
+
+I didn’t get to decide.
+
+Because when I turned back toward the hallway. I ran straight into one of the Prince’s throne bearers.
+
+Up close, he was even bigger. His entire body was covered in carved symbols and words I couldn’t even read.
+
+I didn’t get a good look. Didn’t have time.
+
+He grabbed my hoodie at the chest and threw me into the hallway like I weighed nothing.
+
+I slammed hard against the wall.
+
+Next thing I knew, I was on the ground, dazed, looking up at him. And then I realized…
+
+He wasn’t alone.
+
+The Prince stood behind him. Floating.
+
+His white robes almost glowing under the lights. The lamb mask shining like polished metal in the sterile brightness.
+
+“Do not be afraid, Noah,” the Prince said, his voice ringing like metal. “You may yet find mercy in me.”
+
+My body trembled.
+
+Even if I wanted to move… I don’t think I could have. Then something crashed through the doorway behind them.
+
+Colton.
+
+Covered in blood, clutching the knife. He charged straight at them.
+
+The big man reacted fast, but not fast enough. Colton drove the blade into his stomach.
+
+It didn’t drop him.
+
+Didn’t even slow him down.
+
+Like an enraged bull, the giant grabbed Colton by the neck and lifted him off the ground like he was nothing.
+
+“Unbelievers…” the Prince said quietly, stepping back.
+
+That was it.
+
+I ran.
+
+Didn’t think. Didn’t look back. Just ran for the exit.
+
+I hit the doors so hard they flew open, knocking aside the white-clothed figures standing guard outside.
+
+I stopped for just a second. 
+
+Turned back.
+
+Colton was already on the ground. His neck bent at an angle it shouldn’t be.
+
+The giant was still standing, blood pouring from his stomach, the knife sticking out of him.
+
+And the Prince… The Prince just watched me.
+
+Through that silver mask. I couldn’t see his face, but I swear, it felt like he was… disappointed. Like I had abandoned him.
+
+Then the doors behind them burst open.
+
+The crowd poured out. An army of the brainwashed.
+
+Coming for me.
+
+So I ran.
+
+As fast as I could.
+
+Through the night, through the half-sleeping city, straight into the darkness. I thought I’d run out of the world itself.
+
+Maybe I did. I left everything behind.
+
+Colton. The Prince. My old life. All of it.
+
+I’m trying to put things back together now. Trying not to end up back on the street. Trying to live something that resembles a normal life again.
+
+But that day…
+
+That day never left me. The fear never left me.
+
+I’m terrified that one day I’ll turn around and see them behind me, that blood-soaked crowd, still chasing.
+
+Or one of those smiling figures in white.
+
+Or worse…
+
+That the Prince will find me.
+
+Because now he knows who I am.

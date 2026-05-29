@@ -1,0 +1,223 @@
+They have been banging on the front door for what seemed like hours but must have only been minutes. The wood around the hinges is starting to split and splinter with the occasional screw falling to the floor like bronze diamonds. We couldn’t tell if the screeches and creaks were coming from the wood around the door or from the gaping maws of the residents trying to get in. Isaac stood by the pile of furniture by the door being jolted with every push , every slam , every bang. His trainers would occasionally squeak on the tiles below sliding through splinters and blood.
+
+“Fuck \*ngh\* Freddy I don’t think we can hold this shit down much longer , I don’t wanna die man !” I stared at Isaac hesitant to help while the events of the last few days rushed through my mind as I thought  ‘this is all my fault’
+
+I’m not going to pretend I’m a good man , In fact some would call me a pretty evil individual Whilst others would beg and call me their hero. I’d only started peddling drugs because I had to , not because I wanted to. I was a primary school teacher in Hackney primarily teaching history but I was a bit of a jack of all trades. The kids didn’t see me as their teacher but more of a parental figure , a lot of these kids were troubled or grew up on the streets. I’d walked in their shoes and I didn’t want the same for them , I wanted to give them something I never had - hope and kindness.
+
+As I said , I grew up on the streets abandoned at the age of two then passed round social services like a hot potato. No one wanted me but I was a little shit so I hold no ill intent towards those who gave up on me. I was adopted however at the age of 12 by two wonderful people who I called “Papa Murph and Mama Dee”. They showed me the kindness and hope I tried to in-still in these young kids and I could never do enough to pay them back for it.
+
+We were hit by a truck with some news a couple of months ago. Papa Murph had been struggling for a while with a cough and pains , the odd bloody hanky here or the late night retching there to a point where Mama Dee took him to the Drs with no if buts or maybes - shortly after he was invited for a biopsy that confirmed our worst fears. Lung cancer.
+
+Shit.
+
+The NHS had offered free chemo to keep him ‘comfortable’ but through hours of research I discovered a programme in Switzerland that claimed to eliminate the cancer completely but there was only one snag. The trip and treatment would cost around £59,000 , and on a teachers salary that seemed like a near impossibility. So I jacked in my job and starting dealing to try and scrape together enough money to get Papa Murph the treatment he needed and then some. I told my folks I was doing some freelance tutoring and every day before I left I’d get a hug and a packed lunch before stepping out into a life that they knew nothing about and I intended to keep it that way.
+
+I sold for a man well known around here and someone I passed a couple of times in the social systems called bishop. A very imposing character always wearing black but you could tell was made of money by the golden grills and balenciagas he wore. He’d give me a brown bag every other night filled with a powerful opiate known as angel drops and a location with a list of people but little else. He’d always give me a couple extra pills ‘for old times sake’ but I just pocketed them to sell for a bit of extra dough on the side.
+
+A couple nights ago I was given a brown paper bag sealed tight , which was unusual as I was normally shown the inside. Before Bishop handed it over however he sighed :
+
+“Listen Freddy , one of your regular drops at Wolford Tower few of your regulars too ! But , be careful yeah ? Troubles brewing over there but honestly just stay safe alright.” With that he handed me the package with a cautious smile and sent me on my way. I do wonder in retrospect If Bishop knew he was sending me on a suicide mission.
+
+My car rolled up to the imposing behemoth of a tower , detail of the building fading into a column of yellow squares that dissolved into the clouds above. Rain smashed down hard onto my windscreen with such ferocity I was surprised the glass didn’t start to crack. I turned the engine off with the head lights once partially illuminating the brickwork ahead faded to darkness and all I could see was the glass doors ahead of me. I slipped the package under my hoodie whilst flicking up the hood , car door creaked open and I made a sprint for the glass doors. Just as I neared they slid open to reveal the dry solace inside but the tiles in the lobby area were particularly slippy and I careered into a vending machine. The glass on the front must have already been cracked as upon impact I was showered with twinkling torrent of tiny knives , luckily as I was wearing my hoodie I’d only garnered a small cut on my left cheek but more importantly the package was safe. I lay there for a moment to catch my breath when a group of young lads in black tracksuits clambered over me to get the treats within the machine. Instead of helping me they continued to climb and laugh at me.
+
+“Bloody ell mate you must have been desperate”  
+“Free snacks on this muppet lads , take as much as you can and run back to mine”
+
+They were there and gone in mere seconds like a swarm of crows picking at the remains of a carcass who’s belly lay open and ready for the taking. I staggered to my feet as the rest of the glass shards crashed to the pile below , cracking and squeaking as I was lied over it towards the lift. I had a glance at the list at the first name.
+
+“Isaac Morton-Jones. Floor 23. Door 9. One bag (s) ”
+
+I made my way up to floor 23 in the lift as the small metal box I was trapped in creaked and shuddered surprising me when it reached the correct floor without error or completely just giving up. I stepped out into a dank rotten corridor dimly lit with a tube light on the ceiling that over time had turned an uneasy shade of blue. Mould grew in the corners creeping up the walls like infected ivy while the pipes rattling above were wrapped thick with moss. This was not a pleasant place to be in atall , I had to pull my mask up slightly just to block out the damp smell that made me gag. I’ve delivered to other floors before which are by no means pleasant but compared to this floor it felt I had previously been delivering to the Ritz. My feet below felt sticky as I walked towards door 9 feeling the rubber of my soles harder to pull away each step.
+
+‘Knock knock knock’
+
+The door creaked slightly open to reveal a blonde sheepish figure wearing a bucket hat and a dressing gown with a beard at chest level attempt to communicate with me but seemed half asleep.
+
+“Hi mate your the … ahhh the bloke aren’t you , you got the stuff right ?”
+
+“Er yeah it’s right here , there you go”
+
+I handed over the bag of brightly coloured pils as he inspected it with a smile.
+
+“Ohhhh yeah , good good Excellent! I don’t touch the stuff but my mates can’t get enough of it , I prefer nothing more than the good ol Devils Lettuce … hey you don’t know any first aid do you ?”
+
+Isaac (or so I presumed) asked cautiously as he looked around my shoulders for anyone else. The sensible thought in my mind was ‘say no , walk away , you haven’t got time for this’ but my kinder soul kicked into gear , remembering the amount of first aid training I did before becoming a teacher so I said yes and he hurried me in. We first walked into the living room over stained dirty laminate with the smell of something sickly and sweet lingering in my nostrils.
+
+“Sooo welcome to my humble abode , you got myself Isaac , lanky Pete over there on the bean bag , Rex over there and this here is the apple of my eye the lovely Linda”Isaac half glided over to a woman completely out of it on a leather sofa just Infront of me as he planted a kiss on her cheek. The other two men half heartedly looked up and nodded but appeared to be zombified , Christ … was this what the Angel drops were doing to people ? I raised my hand back nodding in return telling them my name was Freddy but at the same time Isaac was making his way down the hall on the right. He gestured that I followed him towards a door at the end of the corridor.
+
+“Just through there sat in the chair facing the window ,  he said he felt really sick and needed some air or to ground himself by looking at the world around him , I don’t know mate I’ll leave you to it and grab you a beer”
+
+I stepped through the door and the first thing that hit me was the smell. Sweet rot like roadkill on a summers day was so pungent my mask came straight back up. Sure enough there was a bloke sat in the chair facing the window but he slumped forward slightly forward almost could be mistaken for being asleep. I approached him slowly and pulled some force on his shoulder to lean him back but the regret set in almost instantly. A pale grey face snapped back staring at the ceiling with milky eyes and mouth that creaked open revealing a fleshy tunnel of rot. I stumbled back and made my way out the door slamming it closed behind me. What on earth was I supposed to do ? Call the police and explain I found a body whilst delivering drugs ? Absolutely not ! Before I could think about it any longer Isaac came back grinning whilst holding a beat up can of Stella in his hand.
+
+“Alright Freddy lad ? Look like you seen a ghost or something! Grant give you a scare or something?”
+
+“Issac… how long has your mate been in there for ?”
+
+“Erm.. no more than a couple hours or so why ?”
+
+Instead of dignifying him with an answer I instead opened the door and signalled him to go inside for himself and shut the door behind him. It didn’t take too long for him to start shouting profanity’s as panic began to sink in his skin like a needle. He came back out of the door slightly more composed and a bit red in the face.
+
+“It would seem we have a bit of a problem on our hands Freddy if you..”
+
+Isaac was suddenly interrupted by something that rocked the building. Below us we could here the rattle of metal slamming down floor by floor.
+
+Rata ta a tat a tat a tat , each welcoming a slam that shook the building. Eventually the sound and shakes dispersed as it rattled on down. Myself and Isaac shared a glance while we looked around the flat for any clues of what might of happened With our efforts coming up with sweet nothing while we tiptoed around the others still unmoved. I made my way to the balcony and looked down seeing something quite peculiar. It had seemed that every floor (or from what I could tell considering the darkness) from the 22nd floor down had metal shutters enclosing their balcony’s , strange I thought , Isaac came to join me looking down into the darkness at the strange occurrence.
+
+“Some kind of lockdown or something maybe ?” I asked  him as he leaned over viewing the others balconies now closed off to the world.
+
+“Maybe … shit what if this is about the body ? What if it was in the air vents or there’s a secret camera or or or…” he went back in running his fingers against the walls trying to find any evidence of surveillance. Suddenly we heard a speaker crackle from what sounded like the hallway so myself and Isaac rushed over to inspect.
+
+“\*static\* attention residents of Wolford tower , we do hope your well and we apologise for any inconveniences. However we are aware of a substance that is causing some unforeseen effects has  been found in this building so for the time being the building will remain on lockdown. For your own safety please stay in your homes , lock your doors , and stay safe. Good luck \*static\*”
+
+I opened the door to see darkness , the window at the end of the corridor just emitting a small glow from the streets below but little more , the rest of the corridor was intermittently lit by a strobing red light. I backed away and closed the door slowly , wether I liked it or not It seemed I was going to be here atleast until tomorrow. I turned to talk to Isaac but when I didn’t find him originally I discovered that he’d passed out pissed on the kitchen floor hugging a bottle of lambrini. The only room in the house that seemed somewhat liveable was the spare room that had nothing more than a mattress and a small row of windows that covered the top quarter of the far wall. I lay down , text my folks I was crashing at a hotel and closed my eyes to get some rest.
+
+My sleep would be interrupted in the morning though by a racket next door. My eyes shot open not expecting the sun to be glaring into the room so for a short moment I was blinded. In my blindness I stumbled to my feet dusting myself as I walked towards the door but as my hand touched the doorknob I heard a croaky strained voice that sounded pissed off  rattle violently through the flat .
+
+“Isaac , the Angel drops \*crack , squelch\* where’s the god damn drops ?”
+
+I creaked open the door to see Issac staring up towards the ceiling at something. I exited the room to investigate and to my horror it was Linda. She must of grown atleast a foot taller crouched on the back of the sofa with her back arched in such a peculiar way. Through the back of her t shirt you could see her ribs begin to protrude in her poor posture  like waves rippling within her t shirt. She scratched at herself vigorously like a child with chicken pox but instead of small red blisters she scratched away at yellow blisters that came away like warm butter slapping onto the floor below.
+
+“Linda my darling , you know I don’t have the drops , I gave them to Rex ! Ask him ! He’s in the loo.” Isaacs teeth rattled together in fear as he sentenced Rex to a death sentence watching Linda crawl through cracked bones and torn skin along the floor. Isaac shot me a look making his way out of Linda’s path instead jumping towards the window. I joined him as he rummaged through his pockets but when he caught wind of me pushed me to the floor.
+
+“These aren’t Angel drops you dick ! They are just mints dipped in food dye ? What are you playing at man , what’s happened to Linda?”
+
+“Isaac I can assure you I had no idea they were mints ! But , mints wouldn’t do this to a person how did she turn out like this ?! What happened ?!”
+
+“I have no idea , she woke up in a bit of a daze and asked for some drops , I was about to hand some out but noticed they were just mints , when I told her she flipped out and attacked lanky Pete , I think he’s dead but … I don’t know man ! She started scratching at herself and throwing herself against walls till she looked like , well what you just saw !”
+
+I clambered back to my feet and before I could continue the conversation Linda re appeared caked in blood and ooze.
+
+“\*ngh\* Pete , didn’t , ARRGH, have the Drops” she spotted the bag in Isaac’s hands and from the spot she launched at him with speed. I tackled him to the ground as she flew over our heads shattering the glass window out over the balcony. We looked over our shoulders and just for a moment she hung in the air , clambering onto the bag of mints. Suspended for a moment just like an angel before plummeting to the floor. We did not hear nor see the impact , Infact it took us a moment to muddle over to the balcony and peek over. When we found the confidence to do so all we saw were multiple black SUVs and a white tent surrounded by people In yellow suits.
+
+It was afternoon before Isaac or myself said anything and all Isaac could muster was “whisky ?”  I replied with a sigh and a nod so Isaac jumped up and fetched a bottle of Jack Daniel’s but also brought over some custard creams as a bit of sustenance. We drank and ate biscuits until the sky turned a lighter shade of purple bleeding into the light blue sky that had covered us most of the day listening to the screeches of the chaos below . No sign of the lockdown ending anytime soon and my phone as dead as the bodies littering the flat I made a bold decision.
+
+“Tomorrow we need to find sustenance and preferably a charger so I can text my folks , we arm up , head out there and ransack the flats on this list hoping they have torn each-other apart already.”
+
+“Freddy with all due respect , are you fucking mental ? We step one foot out there and we are done… we could just rob people who perhaps haven't taken anything ?”
+
+I looked at him with a frown as a flicker of empathy danced across him mind leading him to say no and sit back down. I started to look around trying to find any weaponry or protection I could use before Isaac blurted out a genuinely good idea.
+
+“We ask Jason for help ! He opened a little shop in the block about 5 floors down selling all sorts of crap on the cheap to help some of the struggling families. He brought 4 flats down there , smashed some walls down and now it’s like our own little corner shop , he’s mad as a box of frogs but he’d definitely help , owes me a favour”
+
+We concluded that we waited till morning so the hallways were lit with sunlight rather than the red strobes , we arm up and protect ourselves worse comes to worse. That night we shared the rest of the whisky sharing stories of our past life experiences, turns out we aren’t so different. He was born in Essex before being abandoned at a young age so was shipped off to a foster home in Enfield but was not so lucky because instead of finding folks he was spat out into supported living , dwelling here ever since. He loves to read , write , create art but his crippling anxiety can only be suppressed by cheap weed and broken bongs. When he’s high he feels happy but feels he can’t do the things he loves. Tragic really.
+
+The next morning I awoke to Isaac standing over me with two objects in his hands.
+
+“Oi Freddy , you prefer a cricket bat or a machete ? I mean there’s some kitchen knives over there but they’re blunt as anything. OH wait I think I’ve got some brass knuckles somewhere”
+
+He skipped back into his bedroom sure enough returning with some brass knuckles smiling like he was a child presenting his parent with a drawing he did at school. With a cricket bat in hand , large rucksacks on our back and a fair bit still drunk from last night we ventured out into the hallway. The sunlight did provide a bit of visibility but not enough to light out the flashing red beams turning the hallway into a disco. The hallway seemed clear but weirdly quiet , no noise came from the other doors and for now we didn’t intend to disturb them , if they were safe and not stupid enough to venture out that was their choice that we wouldn’t want to jeopardise for our own selfish gains. We decided to take the stairwell rather than the lift thinking the lift would cause way too much noise attracting unwanted attention. Luckily at the top of the stairwell was a fire rescue pack next to the fire extinguishers that contained a first aid kit , two torches , pamphlet , fire blanket and a small glass hammer. The torches were a welcome addition to our loadout as we wouldn’t have to navigate the stairwell blind to danger. We descended down the 5 flights of stairs it took to get to Jason’s floor opened the door to a noticeably nicer floor with less doors on the one side but instead had its own glass double doors with a sign above it buzzing in a pink neon glow  that read “Jas’ Space of the just in case”
+
+Fantastic , we made a b line for the shop not noticing what we had just stepped on. Below something felt crinkled and sticky like walking on a plastic wrapped honey sandwich. We aimed our torches down and the sight was less sweet , but sickeningly sour. On the floor lay a handful of black tracksuits in a red sticky puddle with their pockets stuffed with candy and snacks. I gagged whilst I carefully stepped off the bloody pile realising In some sick irony that they may have trampled over me but I’d just don’t the same in return. Isaac made his way to the pile to pick at the sweets in their pockets but I slapped his hand away glaring daggers at him , instead we both made our way into Jas’ shop.
+
+The shop itself was brightly lit with ice white tube lights , white tiled floors with shelves kissing the ceiling above. Isaac wasn’t exaggerating, this was a whole corner shop inside of the space for 4 flats. I didn’t hesitate, I started filling my bag with bottles of water , crisps , protein bars , energy drinks , to be fair if it fit it was going straight into my bag no questions. Medical supplies were also in abundance which was a surprise as I thought more folks that just myself and Isaac would of thought about getting supplies. I’d just about filled my bag when I went to find Isaac however it didn’t take me long to find him by the fridges stocking his bag full of tins of beer accompanying a selection of spirits too. I checked over towards the counter with no sign of Jason so I asked Isaac if we should just leg it.
+
+“Nahh old bastards probably just out the back having a piss or watching his shows I’ll shout for him now”
+
+Issac called for Jason with no reply. We wandered towards the counter picking bits and bobs up of the shelves as we did throwing in anything from packs of cigarettes to a loaf of bread.
+
+“Jas ? Where you at man , you stuck in the vent again I swear to god ..”
+
+“Ahh Isaac let an old man sleep for god sake , every day you come here ‘Jas I need more Tobacco , Jas I need more whisky , yapper yapper yapper give me a bloody break man ! I’m exhausted and feel like crap”
+
+The beaded curtain at the back of the shop rattled open revealing a little old man , a short south Asian Hagrid looking chap scratching his head and letting out a big yawn. As he scratched his head however we noticed a couple yellowing blisters atop his head no bigger than your average pimple but looked so similar to Linda’s So we backed away from the counter cautiously.
+
+“Christ Jas … you haven't had any of those Angel drops have you …” asked Isaac through gritted teeth.
+
+“God son who do you take me for ? I’m not  Pablo Escobar I wouldn’t touch the stuff , I admit hand on heart I mistook one of my sons bags for a bag of mints , but no ! I was tripping off my head for hours ! Never again ! My sons a troubled boy , loads and loads of the stuff but BAHHH he is … not well.”
+
+We exchanged a look that lingered a moment too long for Jason to ask us if we would check on his son in return our bags would be free of charge so we obliged thinking it couldn’t be worse than Linda plus this time we were more than prepared. We walked out the shop turning into a quiet shuffle as we arrived at the flat. We couldn’t hear much bar the odd groan and shuffle but nothing could prepare us for what we witnessed inside. The door creaked open revealing a figure stood down the corridor in the living room facing away from us. It detected that we were there as it turned to face us what we saw was far removed from anything human. A dark skull devoid of hair draped effortlessly with shreds of skin and muscle that kept the jaw attached aswell as the eyes and tongue. An exposed spine connected the skull and legs with the lower half seeming intact but the torso had completely gone leaving just the spine decorated with a couple organs hanging on for dear life with detached muscle. But the ribs , they were contorted to be completely straightened and outstretched like wings interlinked with yellowed blistered skin. Two spiked appendages came from where shoulders used to sit dug into the floor below creaking as it turned towards us.The 9 foot behemoth at the end of the corridor had finally fully locked its eyes in our direction letting out a low bone rattling groan then charges straight in our direction. We slammed the door to no avail as we were hurled through the air once the door had been smashed off its hinges into the window of Jas’ shop.
+
+Id landed hard on the tiled floor with my leg being torn apart by shelving unit I’d landed on. Isaac tumbled into the freezer section knocking himself out cold on the box freezer with a sickening thud followed by the cracking of glass. Jas’ son stomped out the room using its spiked appendages to drag itself through the window and leaned over me. I could feel what was left ofthe warm buttery skin falling onto my face as the skull moved ever closer to me. Through its rattled wheeze I could vaguely hear a coherent sentence.
+
+“Help … me. I need \*wheeze\* the drops , help me please”
+
+For a brief moment in the grey sludge bubbles resting In his sockets it once called eyes I could see a shimmer of desperation and struggle. This fleeting moment did not last long though as I saw a can of Heinz soup bounce of its head , it quickly whipped round too see where it had come from but I saw who through it. Jas stood there from the end of the isle with another can in hand.
+
+“Oi Son , your a sick sick boy ! I knew something would happen but not this , you brought me and your mum nothing but pain but what the fuck did we ever do to you ?”
+
+In that moment Jas’ son stampeded towards Jas driving each of those bone spikes through his stomach. Jas was lifted up into the air hovering for a brief moment till quick as a bullet Jas was separated in half leaving a waterfall of gore to shoot town the middle of the isle towards my feet. He was then carried into the back through the beads which was followed by cracks and squelches. I took this opportunity to grab our bags , grab Issac who was just coming round and make a run up the stairs.
+
+We thundered back up the stairs till we could feel the whole staircase rumble. Frozen for a moment we switched our torches on and peered into the depths to see what we could see. Darkness for about 8 floors but faintly below we could see an enormous amalgamation that was taking up a large section of available visibility. A glob of bone , yellow pustules and muscle was moving and wriggling before our very eyes. It moves slowly but almost seemed like a trick of the eye. It would groan as it moved with sickening sounds.
+
+Squish. Crunch. Squelch.
+
+We didn’t stay long enough to find out and ran back up. We had reached the 22nd floor and noticed that instead of a staircase there was a gap leading to nothingness. Issac instantly stepped into gear mentioning a ‘vent’ running from flat 9 on this floor that lead right into his. He’d explained that the vent was a facade for friends he had downstairs who use the vent to transport weed to each-other if they were feeling lazy.  
+However he did say it was wide enough for a person to fit inside so we’d be right as rain climbing up and the people who owned the flat were such a great couple. He’d known Paddy and Charleen for years not too long before he’d moved in here filling me in on all the positive memories he’d made with them as we carefully traversed the corridors blood spills and clutter. He’d described them as being like older siblings to him when he moved in having no one of his own but had grown more distant in recent years due to the loss of their kid a couple years ago , they had tried to drown their demons with an ocean of booze but it was still a puddle in comparison to the size of the demon.
+
+Their door was a stark demonstration of the grief they carried , tiny hand prints covered the lower half of their door with different shades of paint. Isaac sighed gently knocking the door to no response from a human but the door accepted the knocks and opened gently. The flat was pitch black yet untouched which by tonight’s events could only be a positive sign. Tip toeing gently through making sure not to disturb what or whoever could still be here our torches shone of small hand made ornaments covered in thick layers of dust , family portraits merged with grime and a small urn on the end of the mantel flashed its golden lining like we were following the North Star back up to safety.
+
+“Paddy ? Charleen ? It’s Isaac , your mate from upstairs ? I know it’s been a minute guys but we wanted to check you were okay after all this nonsense happening”
+
+Silence fell apart from the occasional rattle from a wine or scotch bottle we had inadvertently kicked.
+
+“Shit they must not be here , any idea where the vent is Isaac ? I’m sure they won’t mind us using it , hell if they are hiding somewhere we could even ask them to join us , strength in numbers n all that.”
+
+“I guess so , no where was itttttt … aha master bedroom cmon it’s this way , watch your step though Freddy more bottled up the hall”
+
+We reached the master bedroom trying to open the door as quiet as we could but a small pile of glass bottles behind the door rattled as they crashed over each-other. Isaac shone the light straight at the vent not before we caught a glimpse of a green flash sat on the bed , the torch flipped back to see a woman sat legs crossed on the bed staring at the wall.
+
+“Bloody Ell Charleen what you doing sat in the dark ? Didn’t realise you both were here !”
+
+“Not both , just I ” she replied , she said through sighed breath.
+
+“I ? What do you mean I ? Where’s Paddy ?”
+
+She looked down into her lap , draped across her legs and over each side of the bed was a frail 9ft winged skeleton completely devoid of any skin or muscle. Just dirty bone that looked frail enough to snap. Her eyes began to well with tears sniffing gently.
+
+“I … I told him the drink was bad enough but he got hooked on those damn Angel drops. One swig one drop .. one swig one drop , swig drop swig drop SWIG FUCKING DROP” she pounded her arms onto Paddy’s skeleton causing the structure to snap splintering into her hands.
+
+“ And now … I’m all alone. Everyone’s left me yet I’m still here picking up piece after piece. I’m so tired.”
+
+“Why don’t you come with us ? Don’t suffer alone , come on up and we can keep an eye out for you while this all blows over. It’s not going to fix things but you must have family out in the world right ? Cmon” I asked Charleen , she looked up into my eyes , bright green had now turned into murky bogs devoid of life , she started to mutter “swig drop swig drop” as she collected what broken bones we still in her lap , lay down and the covers over her head. I went to uncover her but Isaac’s had reached out to grab mine , I looked at him and he just shook his head side to side then gestured towards the vent.
+
+We reached the top of the vent tumbling into the bedroom where grant still sat with his head tilted back in the chair looking like he was mid sneeze. We thought better than to settle in that room so took advantage of the spare room I was sleeping in moving all the dining furniture and sofa Cushions in there to lay out a bit of a banquet for ourselves. We ate and drank ourselves to pass out where we sat with our belly’s full and smiles on our face after we shared stories and laughs. I told him about Papa Murphy and why I was doing what I was doing and he sympathised with me admitting he’d do the same.  He’d nodded off first after telling me a story about his childhood about when he found a strange purple gemstone near the river where he was from and he’d always wished to go back - unfortunately he’d passed out about half way through so I’ll never know what the point of the story was but maybe one day he’ll tell me.
+
+Our sleep was rudely disturbed by the speakers outside going off once more.
+
+“Good morning residents of Wolford tower. We are sorry for any inconveniences caused over the last couple of days and we do hope you have remained safe. Whe have identified some residents in the building have been infected with a now identified substance which is causing some adverse side effects. Due to this the building has been deemed unfit for purpose and will be cordoned off and demolished. Please stay in your homes and our team will evacuate you all before demolition begins.”
+
+A smile grew on each of our faces as we jumped for joy , hugging for a brief moment then continuing to celebrate.
+
+“Thank fuck for that , listen Isaac if you ain’t got a place to crash after this I’m sure you can crash with Papa Murphy and Mama Dee , your a good lad and they would love the extra company”
+
+“You know what , I’d like that , I…” Isaac was cut off instantly by faint choir of thudding and screams. We rushed to the balcony and saw some people exit with some of the men with yellow suits but no where near enough people as those who lived here. The screams and thudding became louder and louder so we rushed out the door and to the stairwell to either identify what was making the noise or try and signal for salvation. We shone our torches down the staircase and what we saw was neither of those preconceived ideas but the amalgamation wriggling further up the staircase , more and more skeletons of all stages of decomposition joining the pile and climbing upwards.
+
+“Fuck , back to the flat!” I dragged Isaac back over into his house and slammed the door. We piled the door with furniture , bodies and whatever else we could find in preparation. The thuds became clearer when we realised that they were gunshots , but in their panic the things in the stairwell had nowhere else to go - a torrent of bullets or up to the heavens. Hopefully the people in the yellow suits would reach the the angels before they reached us but our optimism was quickly crushed. The first knock was frail but the fragility did not last long as it was joined with more and more knocks more ferocious than the last. Groans and wheezes of “help” or “Just one drop , please” could be heard the other side of the door. The furniture decided to shift and Isaac jumped infront of it which stopped the shift slightly before the power came to much to handle and the slow shift began again.
+
+“Fuck \*ngh\* Freddy I don’t think we can hold this shit down much longer , I don’t wanna die man !
+
+I jumped to action too holding my body weight against the door but I too could feel my shoes budge Millimetre by millimetre. The rain of bullets became even louder , surely they must be one or two floors below us by now , please hurry up. Isaac looked at me with sweat dripping down from his head asking me if we were going to be okay.
+
+“\*ngh\* of course we are mate don’t be daft , just hang on a little longer , pints on me after this”
+
+“Sounds a plan Freddy \*ngh\* your a good guy you know that ? Thank you for…”
+
+The sweat dripping down his forehead turned a dark maroon , eyes rolled back into his head and I could feel the spray of blood delicately splash my cheek. The defences had failed as one of the bone spikes protruded the top of our debris landing a fatal blow into the back of his skull . Isaac let out a last defining gasp despite the fact it was that quick his pained smile didn’t falter as his knees buckled and plummeted to the floor. Time briefly stood still as he hit the floor , blood gently spattering over my shoes.  I felt tears start to well up in my eyes for a person I had only known a couple days but shared stories with enough substance to fill a library. In that moment I could feel the doors hinges completely give way so I made a run for the bedroom and dove into the vent. Through the cracks I could see a swarm of angels enter the room for only a brief moment when the room started to light up with bloody fireworks cracking and ricocheting off the vents. I could see Isaac lying on the floor staring at me from afar with any once of hope and safety being literally stomped out by the boots of an army of yellow.
+
+The dust settled and the angels had fallen. I clambered out the vent to collect Isaac as I wasn’t about to let him get forgotten in the hellfire when this place tumbled to the ground. I could feel my blood boil as I thought ‘why couldn’t these pricks have arrived any earlier’. My irrational brain switched into overdrive booting open the vent gate and spilling out into the floor. I didn’t make it far till I was met with a row of guns pointed at my head. I threw my hands up in panic shaking , this was it , end of the road.
+
+“Lower your guns men” a voice from behind commanded the squadron. A man stepped through the crowd of yellow in a white Hazmat suit and goggles.
+
+“Jesus Christ Freddy , I thought you’d be dead ?” Bishop said almost bewildered my presence.
+
+“Bishop , what the hell is all this ? What’s a drug dealer doing going round with all this bollocks ?”
+
+“No Freddy , I’m not a drug dealer but a scientist. I’m sorry your here , you didn’t take any of those angel drops did you ?”
+
+“No ? What is it , what the fuck have you been making me give these people, why them ?”
+
+“It’s the research process of a much much bigger picture. We needed a demographic of people that … to be honest were strains on society’s recourses”
+
+“They are still people with their own lives , their own struggles , families bishop , wiped forever ! The fuck kind of sick research is this anyway ?”
+
+“ Withdrawal , addiction , pain , we wanted to see how the human brain ticks , why people get addicted the way they do and how the withdrawal process performs compared to the amount taken - we believe we can help that process to stop the drain on recourse.”
+
+Before I could answer I was interrupted.
+
+“Freddy I’m going to be frank with you , I can’t tell you what happened here , or really what we do. You understand right ? We don’t want anyone out of these towers finding out what’s happened here so , name price ! Forget everything that happened here , get out of Hackney , England whatever , just name a number.
+
+5 towers were demolished that day. All those families , people , lives demolished with it. I’m not reminded of that tower these days , there aren’t any towers like it here in this part of  Switzerland.
+
+Papas was given the all clear on his cancer diagnosis following a bit of an uphill battle with the treatment. His was touch and go for a while but to see him today you would think he was a new man. Him and Mama live just down the road in a beautiful chalet by the river , which is idea as they both love to paddle-board and fish which has been ideal for them. We have dinner there at least twice a week and if anything it’s brought us closer together. I love it here , I’ve got money , family and somewhere I can build my own little family. A short while ago I’ met a beautiful woman Sofia at work. An absolute gem of an individual who is absolutely perfect for me. She’s the type of woman who will snuggle up and game with you but challenge you to a drinking contest then calls you a pussy when she easily out drinks you. She moved in about a month ago , we are expecting our first born sometime in the winter, a little boy , we’ve settled on the name Isaac. Life couldn’t be more perfect.
+
+I may have met the angles , but this is as close to heaven as I’ve ever been.

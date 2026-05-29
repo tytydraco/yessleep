@@ -414,4 +414,4 @@ The trip back through the building felt longer than the trip in. Every sound mad
 
 By the time we were through the tree line and back on the fire road, I could feel myself starting to breathe normally again.
 
-This is about all I have to time explain for now, I'll return with more shortly.
+[Part 2](https://www.reddit.com/r/nosleep/comments/1tr7c7p/bellhaven_woods_2_if_you_remember_the_bellhaven/)
