@@ -1,0 +1,105 @@
+I’m posting this from a long-stay hotel off Jamboree Road right now. My hands are trembling pretty badly, so excuse any typos or if this is disjointed. I honestly don’t know where else to put this. If I post it on a standard medical or legal sub, it’ll probably get flagged or deleted, and I just need to get it out of my system because I haven't slept in two days.
+
+I’m 28, and I’ve dealt with sleep paralysis since college. If you’ve had it, you know the drill. You wake up, can’t move a muscle, feel a crushing weight on your chest, and your panicked brain floods your half-dreaming state with shadows or distorted noises. I’m a software engineer pretty logical, grounded. I’ve always understood the mechanism: REM atonia lingering past consciousness. Knowing the science made it bearable. You just wait it out. It’s never real.
+
+Six months ago, I rented a single-story tract house on a quiet cul-de-sac up in the Orchard Hills area of Irvine. If you know the area, you know it’s sterile, safe, aggressively master-planned. Every house repeats itself in beige and terracotta, the streets curve in identical lazy arcs, and the whole development backs right up against dry, brush-choked foothills and those massive concrete storm drain channels that snake for miles under the subdivisions. You can hear coyotes sometimes at night, but that’s about as wild as it gets. I work from home and just wanted somewhere quiet to code in peace. The place was small, clean, with a two-car garage, laminate floors, and an attic access panel in the hallway ceiling that I never touched.
+
+For the first couple months, everything was completely normal. Then things started getting weird, but in a mundane, easily dismissible way.
+
+I’d buy a loaf of bread, and a few days later, a third of it would be gone. Not a neat slice missing just torn chunks. I live alone. At first, I convinced myself I was just losing track of what I ate, maybe making half-asleep sandwiches during 2 a.m. coding binges and forgetting. Then a jar of peanut butter was scraped almost clean, smeared on the inside of my trash can lid. One afternoon, I went to grab leftover Chipotle chicken I’d put at the back of the fridge the night before, and the entire container was missing. I found it two days later shoved behind the water heater in the garage, licked spotless, the plastic lid cracked.
+
+I genuinely thought I was sleep-eating. I was working 14-hour days, completely exhausted, and figured the stress was manifesting as some kind of dissociative nighttime behavior. I even bought a kitchen scale to track food weights, but I kept forgetting to use it because I was so burned out. I rationalized everything. The tiny dirt smudges on the pantry door? My own hands after hiking in the foothills on a Sunday. The faint, stale odor that would come and go in the hallway? Old house, poor ventilation. Nothing to worry about.
+
+Then the sleep paralysis episodes started again. But they felt wrong from the very first one.
+
+Usually, I just feel a generic sense of dread. But that night, I woke up frozen around 3 a.m. and immediately smelled something awful. It wasn’t sulfur or rot just a dense, organic stench of wet, dirty wool, old sweat, damp earth, and a metallic, copper tang underneath. Like a moving blanket that had been sitting in a car trunk for years, soaked through and crawling with something.
+
+I was stuck flat on my back, staring at the ceiling. Then I heard a sound at the foot of my bed. A tacky, peeling noise on the laminate flooring. Click. Slide. Click. Like someone lifting a sweaty leg off a leather chair and putting it down again, slow and deliberate.
+
+I couldn’t move my head. I could only strain my eyes downward in the dark. The foot of my mattress compressed. The memory foam sank in, and I felt the bedframe creak faintly through my heels. Whatever it was, it was heavy just a dead, unhurried weight, like a sandbag settling into place.
+
+It crawled up the mattress, straddling my legs. I remember desperately telling myself it was just an episode, a hallucination, that my brain was projecting stress onto the canvas of sleep paralysis. But the weight kept moving, up onto my stomach, then my chest. It felt like someone had poured a sack of wet cement onto my lungs. Breathing became a shallow, painful struggle.
+
+Then I felt its breath. Hot, shallow, and carrying a sour, vinegar-like stench of severe dental decay. Not theatrical rot, the specific acidic reek of a human mouth that hasn’t been cleaned in months, living on sugar and whatever else. A bead of lukewarm liquid fell onto my collarbone and rolled slowly down toward my neck.
+
+It lowered its face until it was inches from mine. In the faint orange glow of the streetlight bleeding through my blinds, I could see it clearly. It wasn’t a shadow figure or a demon. It was a person.
+
+A woman, entirely naked. Her skin was a sickly, yellowish-grey, leathery and caked with dried mud in the creases of her neck, elbows, and knuckles. She was severely emaciated I could see the sharp, geometric ridges of her ribs pressing against her skin like a wire hanger under a thin cloth. Her hair was mostly gone, just stringy, greasy clumps stuck to a scabby, flaking scalp. She had no teeth at all; her mouth was a dark, wet void, gums raw and purple, glistening. Her eyes were wide open, completely unblinking, and totally clouded over with thick white cataracts. Milky, sightless, and fixed directly on my face.
+
+Because of the paralysis, I couldn’t close my eyes. I was forced to stare into those blind, wet orbs.
+
+She opened her mouth wider, tilted her head like a curious animal, and pressed her face against mine. She started licking the sweat off my skin.
+
+It was a slow, methodical, rhythmic scraping. Her tongue felt dry and rough, like a cat’s but heavier, wider, dragging with a rasping texture across my forehead. She caught the cold sweat pooling in my eyebrows, then moved down to my eyelids, her hot breath puffing into my nose as her tongue dragged over my lashes to collect the moisture. The sensation was so alien, so invasive, that my mind tried to retreat into static.
+
+Then she whispered. It wasn’t a growl or a hiss—just a dry, clicking, rattling breath forced right against my ear canal.
+
+“Everyone is made in the image of God except me.”
+
+She said it twice, her raw gums actually scraping against my earlobe, before she rested her wet, toothless mouth directly over mine to catch the moisture of my breath. I couldn’t scream. I couldn’t move. I just lay there, feeling the slow, shallow suction as she pulled the air from my lungs.
+
+Eventually, the paralysis broke. My fingers twitched, adrenaline flooded my system, and I gasped and sat up in a violent lurch. The room was completely empty. Weak morning sun pushed through the blinds. My face felt dry. My collarbone was dry. The whole thing was so vivid, so physically revolting, that I immediately convinced myself it was the most disgusting nightmare my brain had ever conjured. I showered, drank coffee, and sat down to work.
+
+But it kept happening. Every three or four nights. The exact same routine. The tacky skin sound on the floor, the heavy weight crawling up my body, the sandpaper tongue, the blind eyes, and that clicking whisper: “Everyone is made in the image of God except me.”
+
+I started dreading sleep. I’d stay up coding until my body gave out, then jolt awake frozen with that smell in my nostrils. Within a few weeks, I was a wreck. I stopped sleeping almost entirely, surviving on micro-naps that I hoped were too short for REM paralysis to set in.
+
+Then I started developing these horrible, weeping, honey-colored crusts all around my lips, nose, and eyes. They were painful and itchy, throbbing with a deep, hot pulse. The skin beneath was raw and fissured, leaking a clear yellowish fluid that would harden into thick, crystalline scabs overnight. I assumed it was a massive stress breakout, maybe impetigo from my exhausted immune system, or an allergic reaction to something in the house. I bought over-the-counter hydrocortisone cream, but it only made it angrier.
+
+Yesterday, the pain and swelling got so bad I couldn’t focus on my screen. I drove to a walk-in clinic off Alton Parkway to see a dermatologist.
+
+The doctor was a calm, middle-aged man with a practiced bedside manner. He listened to my vague explanation (“just some kind of rash, maybe stress-related”) and leaned in with a magnifying visor. The moment he got a close look, his whole demeanor shifted. He went very quiet and very still. He took a sterile swab, rubbed it carefully against the fluid seeping from the deepest fissure on my lower lip, and told me he’d send it for urgent culture. He gave me a temporary antibiotic ointment and said he’d call as soon as the results came back. I could feel him watching me differently as I left.
+
+He called this morning. His voice was strained, the kind of careful tone medical professionals use when they’re trying not to alarm you but have something very alarming to say.
+
+He asked me if I worked with livestock, or if I’d been volunteering at a sewage treatment facility, a homeless shelter, or a medical waste site. I said no, I’m a software engineer, I work from home, I barely even go outside. I live in a clean house in Irvine.
+
+He cleared his throat and said the swab cultured positive for an incredibly aggressive strain of MRSA, combined with massive concentrations of Fusobacterium nucleatum and Porphyromonas gingivalis. I asked him what that meant.
+
+He explained that those last two are anaerobic bacteria found almost exclusively in the human mouth—specifically in severe, advanced, untreated periodontal disease. Trench mouth. The kind of necrotic gum infection seen in people with zero dental care for years, often compounded by extreme malnutrition and methamphetamine use. He said the concentration on my skin was baffling, as if my face had been repeatedly and heavily coated in infected human saliva over a period of weeks. He also mentioned that the lab found microscopic trace elements of a specific soil-dwelling hookworm ovum that typically lives in the damp, unpaved drainage culverts and runoff ditches in the Southern California foothills.
+
+My hand started shaking so badly I nearly dropped my phone.
+
+I hung up and looked up at the ceiling. In the hallway, right outside my bedroom, is the square wooden attic access panel. I’d walked under it a thousand times without a second thought. Now I dragged a chair over and stood on it, bringing my eyes level with the trim. The clean white paint around the edges of the hatch had faint, dark, oily finger smudges. Rounded prints, too small to be mine, leading from the seam upward.
+
+I didn’t go into the attic. I ran outside and called 911.
+
+Because it’s Irvine, three police cruisers showed up in under five minutes. I met them on the driveway, completely frantic, showing them my face and explaining what the dermatologist found, the missing food, the thing I thought was sleep paralysis but wasn’t. They took it seriously, probably assuming it was a squatter or a stalker with severe medical issues.
+
+I led the officers into the hallway. One of them set up a collapsible ladder under the attic hatch and drew his sidearm. A third officer came in carrying a suppressed M4 carbine, the kind with a short barrel and a matte finish that absorbs light. He positioned himself at the base of the ladder.
+
+The first cop climbed up, pushed the wooden panel aside, and shone his tactical flashlight into the dark, narrow space.
+
+“Irvine Police! If anyone is up here, show your hands now!” he shouted.
+
+I stood a few feet back, looking up. The beam of his flashlight cut through a thick layer of grey blown-in insulation, illuminating a narrow, low cavity crisscrossed by wooden trusses. And right there, in the far corner, braced between two roof supports, I saw her.
+
+She was huddled in a nest made of torn insulation, my missing laundry, crumpled plastic grocery bags, and what looked like paper towels smeared dark. When the light hit her white, cataract eyes, she didn’t cover her face. She hissed a wet, spraying sound, her raw gums flapping and snapped her jaw with a click of bone on bone.
+
+“Step back! She’s lunging!” the cop on the ladder yelled.
+
+She scrambled forward violently, completely unhinged, her body low and fast like an animal. But she couldn’t see where the wooden beams were. In her blind, furious panic, she stepped off a joist and planted her full weight directly onto the unprotected, thin drywall between the trusses.
+
+A massive, violent CRACK shook the entire ceiling. Dust and debris exploded downward. The drywall collapsed in a jagged, gaping rupture, and she crashed through the ceiling face-first onto the hard laminate flooring of the hallway, right between me and the officers.
+
+Absolute chaos erupted. Drywall dust billowed through the air like a white smoke bomb. Through the haze, she rolled over, covered in plaster dust and blood from the fall, and lunged directly at the officer at the base of the ladder. Her fingernails were black, thick, and hooked, aiming straight for his eyes.
+
+The cops didn’t hesitate. The space was incredibly tight. The officer with the M4 fired a rapid succession of suppressed pops flat, metallic cracks that echoed deafeningly in the narrow hallway driving point-blank rounds into her upper torso and face. The other officers’ handguns barked in overlapping thunder. The noise was disorienting, concussive.
+
+I didn’t stay to watch. I panicked, threw open my front door, and ran out onto the concrete driveway, gasping for air. I stood by my car, chest heaving, staring back at the front window of my house. The muffled gunshots subsided into tense radio chatter and shouting. A long, still silence followed.
+
+About an hour later, the sergeant came out to speak to me on the driveway. He looked physically sick, wiping drywall dust and dark spatter from his uniform with a trembling hand. I asked him what the hell was going on and who she was.
+
+He told me they ran her prints and got a match from an old arrest record. She was a severe, long-term methamphetamine addict who had gone missing from the Riverside area two years ago. She’d been living completely feral, migrating through the massive underground network of concrete storm drains and agricultural runoff culverts that connect the foothills directly into these Irvine neighborhoods. She slipped into my house weeks ago through an unlatched garage utility door and climbed into the attic. She survived entirely on the food she stole from my kitchen while I worked or slept, coming down only when she was certain I wouldn’t see her.
+
+She didn’t survive the shooting. The sergeant told me, in a very blunt, clinical way, that a high-velocity 5.56 rifle round at point-blank range inside an enclosed hallway creates an immense amount of damage. Combined with the handgun rounds, the hallway and my bedroom were completely destroyed. He basically said the house was a biohazard nightmare of blood, biological tissue, and toxic dust, and that it was completely unlivable.
+
+The property management group was absolutely terrified of a massive liability lawsuit. By this afternoon, they’d already agreed to completely void my lease, refund my entire security deposit, and they’re currently paying for my stay at this hotel. The corporate rep told me the damage to the home’s structural framing from the ceiling collapse, combined with the extreme biohazard contamination, means the entire interior has to be gutted to the studs, and the city is already talking about a partial demolition of that section of the structure because it’s cheaper than trying to clean it.
+
+Honestly, I’m just trying to process everything right now. I’m on a heavy course of oral and topical antibiotics for the MRSA and the mouth bacteria, and the dermatologist thinks the sores should clear up in a couple of weeks. I’ve already reached out to a therapist who specializes in trauma and sleep disorders—I know I’ll need help untangling the paralysis episodes from the reality of what was actually happening to me in the dark.
+
+I haven’t tried to sleep yet. They gave me a mild prescription sleep aid, but I keep staring at the hotel ceiling, listening to the air conditioner rattle, and I can still feel the dry drag of her tongue on my eyelids.
+
+Once my skin heals and I get through the worst of the shock, I’m going to start looking for a new place. This time, I’m strictly looking at renting an apartment in a high-security, gated community with 24/7 guard patrols and zero access to the foothills or storm drains. No attics. No crawlspaces. Nothing above my bed but concrete and steel.
+
+I’m not sleeping in a room with an attic hatch ever again.
