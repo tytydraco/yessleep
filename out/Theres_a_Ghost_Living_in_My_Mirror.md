@@ -46,7 +46,7 @@ I didn’t dare fall asleep that night. How could I? The menacing voice taunted 
 
 The following day at school was a nightmare. I felt sick. Possessed. I couldn’t concentrate. Then I got home from school, and the nightmare grew teeth. 
 
-Mother was frantic, bawling her eyes out, and acting bazaar. “How could this happen?” she sniffled, tears sliding down her slightly freckled face. 
+Mother was frantic, bawling her eyes out, and acting bizarre. “How could this happen?” she sniffled, tears sliding down her slightly freckled face. 
 
 I hugged her. She was like a marionette, weak and lifeless. 
 

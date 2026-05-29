@@ -1,0 +1,29 @@
+I didn’t save her. I want to tell a story saying I saved her and bravely killed the creature but I can’t. I wish I could say I brought her home, that I kissed her, held her, but I can’t. Because she died in front of me. She died in my arms because I’m a fucking coward.  
+I would walk down that path as I did multiple times before but the cabin never came. The path kept branching off, paths that weren’t there before. This forest was fucking with me. And it would keep fucking with me for hours. I kept hearing elk, Kyle's voice, my dads voice, my girlfriend's voice. All around me. I would never find the cabin. Instead, I found Kyle. He was sitting in the middle of a clearing, about 150 yards in a circle. I stopped in my tracks. How was he alive? That thing had killed him, how was he here? And then I remembered, he had a closed casket funeral. Something about his skin they said.   
+This wasn’t Kyle.  
+
+
+“Hunter. Hunter. Come sit down Hunter.” It was identical. It wasn’t like before, there were no stutters or distortion, it was identical to Kyle.  
+It slowly stood up and turned to me. I now knew it wasn’t Kyle. Its face was wrong, twisted and bubbling.   
+I started to back up, but felt the ground end. I adjusted my footing before looking behind me. There was a cliff that wasn’t there before. I was turned back around, ready to see Kyle but when I did, the cabin was there. I don’t remember why, but I walked in. It was not the cabin. At least, not the one that's rotting. On the outside it looked like it was but inside was my Nana’s cabin. One person was in it.   
+Sarah.  
+
+
+It wasn’t a fake. It was Sarah.  
+When she saw me, she ran right into my arms. She was sobbing, begging me to help her. Her voice was hard to listen to, the pain was too much.  
+“I heard elk Hunter, I heard elk! Elk don’t live here, you told me this. Why do I keep hearing elk Hunter?”  
+I held her, unable to speak. I cried, my head on her head. I wanted to tell her it would all be okay, that we would go home and forget about this place but I knew we couldn’t. There would be no place to go. The universe wanted us here. And Crowfoot finds a way to keep you here.  
+
+
+We got evicted. I didn’t tell her before, I didn’t want her to panic. But now we had to live here until we could move into a new place in Vancouver. We had to. I had to tell her.  
+“I want to go home.” She could barely get her words out through tears.  
+I held her tighter than I ever had before.  
+“I want to go home too. I’m sorry babe. I’m so fucking sorry.”  
+I told her we got evicted. Her fear became anger. It would take hours of convincing her to stay here. To stay inside this house. And that's what they wanted. Crowfoot, the universe, that fucking creature. They made us forget we weren’t in my Nana’s cabin.   
+We stayed inside with the curtains drawn for weeks. I don’t even know how long.   
+When we finally opened the curtains, Sarah almost screamed. Someone was standing at the window, facing the woods.   
+With every window we opened there were more. So many. All standing in a circle around the house, all wearing the same red hood. 
+
+I want to say some brave thing now, that I went outside and scared all the men away before getting out of this forest with my girlfriend but that didn’t happen. She went outside to try and scare them away but when she did something grabbed her. Her limbs were bent into inhuman shapes. I grabbed her.   
+I held her. I cried. She cried. I begged her not to die. I begged her. But Crowfoot never gives you what you want. She died in my arms.  
+And now there’s not much food left in the fridge. The men in hoods are turned around now. They get closer to the house every hour. This is my last update. I’m a coward who lived long enough to see the cowardice bite me on my ass. I’m sorry Sarah. I’m sorry Kyle. I’m sorry. 
