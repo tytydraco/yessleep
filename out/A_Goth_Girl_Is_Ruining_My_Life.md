@@ -1,0 +1,36 @@
+I am sick. There is something wrong with me. I must be ill. This disordered desire in my head—this insidious inclination of my mind—it haunts me. Not just in my waking thoughts either, so too into my dreams does it pervade. All I can think about anymore is her dark allure.
+
+My affliction began earlier today. I was returning from the market with a sack of apples when first I crossed paths with her. I was walking along the sidewalk with my apples held in front of me when all of a sudden, I walked into something and tumbled to the ground—my apples strewn about in every direction. I lifted my head to see what had caused my calamitous meeting with the brick path. My eyes were met by those of a dark figure in the same concussed posture as myself. She looked at me through waves of jet black hair that framed her pale face.
+
+Her startled gaze pierced me and took up roots within my soul. Those insidious eyes of umber, they were my undoing.
+
+“Oh my—I’m so sorry!” Her voice was soft and wrought with embarrassment. 
+
+“Here, let me help.” She said, reaching with her ebony nails toward my apples.
+
+In response to her offer I replied “No, it’s quite alright. I shan’t require your assistance.” 
+
+Whilst I was scampering about to recover my apples, the girl had yet continued her efforts undeterred and had fashioned a basket of sorts from the striped sweater she was wearing. She returned my apples to me, gently placing them one by one into their sack. Then she looked once more at me. Although she didn’t look at me, she looked into me—the final nail in my coffin. My being was filled with an unshakable awkwardness. My chest grew tight and my fingers felt wrong. Her presence became an oppressive force gripping tightly to every facet of my mind. 
+
+Despite the unbearable tension in the air and my body alike I managed a “Thank you”. Then I—for some reason that I do not fully understand—felt compelled to prolong the interaction.
+
+“What’s your name?” I asked, shocked at the words I allowed myself to utter.
+
+“Sarah.” She replied with a smile. “And you?”
+
+The world around me collapsed in on itself. Why did she want to know my name? Why did I feel as though I was to be turned inside-out? Why did I like it?
+
+“I am Mark” the words escaped stiffly from my lips. I continued indulging in the interaction, intoxicated by the strange feeling.
+
+“Are you from around here?” I asked.
+
+”Yea. I was actually walking to my house right over there when we ran into each other.” She said letting out a dry laugh of lingering embarrassment as she scratched the back of her head. 
+
+“It was pleasant to meet you Sarah.”
+
+“You too Mark! Sorry again about your apples. Maybe next time we’ll meet under better circumstances.”
+
+Next time—the words hit like bullets in my chest. I could hardly breathe, yet I had never felt so alive. The thought of seeing her again filled me with a delightful dread. 
+
+As she walked away, the chain on her hip clinked with every step. I fear that I too now bear a chain. She has left, yet the feeling she imparted onto me has not. My mind struggles to function in her presence, yet I long to meet her again. What is wrong with me?
+
