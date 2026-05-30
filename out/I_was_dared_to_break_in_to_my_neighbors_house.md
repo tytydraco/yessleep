@@ -1,0 +1,149 @@
+I grew up in a small, rearview town in the middle of nowhere. I won’t say where, exactly, because this is the internet and I don’t trust random strangers, but know it was bumfuck nowhere. Let’s call it Dixon.  
+Growing up in Dixon was isolating. I’ve never really been a social person, people didn’t exactly make sense to me. They still don’t.
+
+I was more the ‘books and anime’ type than cheerleading or parties. I wasn’t bullied, there were no cliche Popular Girls mocking me or stealing my things or jocks making fun of me. Sure, sometimes boys would ask me out as a prank, and I got the odd rude comment here or there, but it was whatever. Kids are mean and it was high school, who cares, you know? I had a handful of friends, and they mattered.  
+One of these friends was Rebecca. She was nothing like me, but I loved that about her. She was funny, and brilliant, and lit up every room she entered with her smile.
+
+Rebecca went missing at the end of summer. I was the last person to see her. I try not to torment myself with ‘would have, could have, should have’s, but it’s hard. Even now, late at night, I wonder if she’d still be here if I’d ridden home with her, or if that just means I would’ve gone missing instead. We’d split at the intersection between our houses, waving goodbye from our bikes. I watched her go, curly red hair streaming behind her like a banner, then turned and rode home. She’d promised to see me the next day. We were supposed to go shopping together for our first day of school outfits.
+
+She never got home that night.
+
+Missing posters went up the next day. Facebook posts, news segments, I remember my mom turning away reporters at our door, insisting that I wasn’t some public spectacle. By the end of September, everyone had lost hope. I still remember the memorial I put up for her in the school art hallway, a red fox running through the woods.
+
+I don’t know why I went to that Halloween party. But I did. Dressed up in my stupid Sailor Moon costume, itchy blonde wig and all. Between games of spin the bottle and seven minutes in heaven, I was way out of my element. Stacy M and Diana J were already drunk, giggling and flirting with a few of the members of the football team who had shown up.
+
+I sat in the corner, nursing a lite beer can I had filled with water, watching it all like I was expecting subtitles to pop up underneath. Robin, lead of every school play and a girl I considered myself friendly with, walked over, giddy and excited.
+
+“Hey, come on! Join the fun! We’re gonna play truth or dare,” she said, grabbing my wrist and dragging me to a circle of people before I could protest.
+
+“Okay! We have everyone!” She grinned, plopping me on a cushion in a circle.
+
+The game started up, and it was innocent at first. ‘Who was your first crush’, ‘I dare you to eat a whole jalapeño,’ that sort of thing. I was starting to relax and even enjoy myself, laughing with friends, when it came to my turn again.
+
+Jonas, a guy in the school Chess club I’d had a crush on since forever, looked at me. “Your turn, Isa, truth or dare.” He grinned.
+
+I wanted to impress him, and so, swallowing my fear,  I replied, “Dare.”
+
+Jonas thought for a moment. “I dare you to break into Coach Stevenson’s house and steal his whistle.”  
+Everyone gasped around us, and a flush broke over my face.
+
+Coach Steve was new. He’d come to Dixon the start of the school year and was the ‘cool’, handsome teacher everyone wanted. He gave out As for effort, and turned a blind eye when you had your phone out in class, as long as it didn’t distract anyone else and you did your work. All the girls had a crush on him, all the boys wanted to be him.
+
+I wasn’t sure how to feel about him. Sometimes, I swore I saw him walking into the locker room after class, but I never followed him.
+
+“Dude, isn’t that, like, illegal?” Robin asked, shoving Jonas.
+
+“Only if you get caught! Come on, you won’t!” He grinned at me.
+
+I bit my lip. I had wanted to impress Jonas more than I was scared of getting caught. “Fine.” I said.  
+And that was how I found myself outside his house, phone in hand as a flashlight, staring up at the windows. I looked over my shoulder, and Robin gave me a thumbs up, Jonas waving me on next to her.
+
+Taking a breath, I eased the bathroom window open and crawled inside as quietly as I could. Thankfully, there were no dogs, no security alarms. Just a rusted latch that had been easy enough to jiggle a knife between.
+
+The first thing that struck me was the smell. Bleach, cleaner, air freshener. It smelled like it had been scrubbed from top to bottom then napalmed with a can of Febreze for good measure.
+
+On its own, the smell didn’t set off any alarms. Maybe he was just a neat freak. My mother made the whole house wake up early at least once a week to deep clean.
+
+What really surprised me at the time was just how empty the house was. Coach Steve was a nice guy, but private. He’d never mentioned a partner or family, but I still thought he’d have…something. The walls were bare, the living room had a single chair in front of a TV with a ps4 next to it.
+
+I crept my way through the house, wincing at every creak of the floorboards. The whistle was nowhere to be found, and I was glad my sailor moon gloves would keep my fingerprints off of anything.
+
+I made my way to the kitchen. Like the rest of the house, it was eerily barren. Just a metal folding chair at a small dining table that had more scratches than paint.
+
+A text popped up on my phone, Robin checking in on me.
+
+Robin—Izzy? You good in there?
+
+I responded quickly, trying to keep an ear out just in case. Coach Steve’s car wasn’t in the driveway, but he could be home any minute.
+
+‘It’s really freaking weird in here dude’ I replied, sending pictures of the inside of his house.
+
+As I made my way up the stairs, I almost forgot about the dare. There was a guest bedroom, completely devoid of furniture. The windows had heavy blackout curtains over them, and I had to scrunch up my face to avoid sneezing as my movement disrupted the layer of dust that had settled over the room.
+
+Across the hall was, what I presumed, Coach Steve’s room. There was a mattress on a wooden pallet and a dresser with a smart TV. No pictures, not even a poster.
+
+I made my way to the dresser, rifling through its drawers carefully as to not disturb anything too much. I didn’t want him to realize I had been here.
+
+My fingers brushed something hard hidden in a junk drawer, and I pulled it out. It was a yearbook, dated 2019. Crosswell High. There were no towns called Crosswell anywhere nearby. As I flipped through the pages, I noticed that Coach Steve had worked there. Pictures of him posing with the girl’s Volleyball team filled the ‘sports section’.
+
+When I got to the senior photos section, I realized that a picture was missing. Not just missing, but cut out. Like Coach Steve had taken an exacto knife and removed it.
+
+My phone suddenly went off, and I grabbed it. Robin was calling me.
+
+“He just pulled in to the driveway! Get out of there!” She whispered.
+
+I panicked, dropping the book and kicking it under the dresser. The bathroom I’d come in through was visible from the front door, he’d see me for sure if I tried to get out there. I couldn’t hide under his bed, and the guest room offered no protection.
+
+As I frantically looked around, I noticed a small closet. The front door opened and I ran inside, shutting it silently behind me.
+
+Again, the first thing that struck me was the smell. Plastic and acetone.
+
+I flicked the light on, and my eyes widened. This wasn’t a linen closet. It was a workshop.
+
+Dolls lined the walls, some still in their boxes. Monster high, Barbie, Bratz, even ball-jointed collectibles worth hundreds on eBay.
+
+There was a small table, fit with a magnifying glass, watercolor pencils and a set of paints. I walked to the far wall, and I saw four dolls on display. One was blonde, and wore a cheerleading uniform. Another was black, her hair in afropuffs, she had on a prom dress and a tiny prom queen crown and sash. The third had long, straight black hair, dressed in a schoolgirl uniform with a calculus textbook in her hands. My eyes caught on the fourth, and my breath stuttered.
+
+It was Rebecca. Long, curly red hair. Green hoodie. Her favorite jeans with the hole in the knee. Even the doll’s face had the scar on her chin from when she busted her face on the sidewalk while trying to ride with no handlebars in third grade.
+
+I took the doll in one shaking hand. Under the base of the stand, a picture of Rebecca had been superglued. One from her Instagram, where she wore the exact outfit the doll wore now.
+
+As I touched the doll’s hair, my blood ran cold. My sister still played with dolls. Plastic hair—Saran, Kanekalon, Nylon—feels smooth. It feels cool to the touch.
+
+This hair felt coarse, and rough, and had tooth to it.
+
+This hair felt like Rebecca’s.
+
+Then, my eyes caught on the desk again, and I noticed an unfinished project. The doll’s body was shorter and chubbier than the others, one of the body positivity Barbies. It had tawny brown skin, and had its face removed, probably to be repainted. Across from the doll was a reference photo.
+
+From my Facebook account.
+
+The doll wore my favorite my hero academia t-shirt, the baggy jeans I preferred, and the pride converse my mom had gotten me for my birthday. He’d even painted the rainbow flag on the soles of the shoes.  
+The only thing missing was the hair.
+
+My spine locked as the door behind me opened. Coach Steve stood there, backlit by the sickly LED hallway light.
+
+He looked genuinely shocked, and almost frightened. His eyes darted to the doll in my hands, and he slowly set down a bag of supplies, holding his hands out like he was approaching a cornered animal.
+
+“Isabella, I can explain. I know what this looks like,” he said, laughing awkwardly.
+
+I took two steps back and slammed into the desk. A bottle of acetone rattled and fell over, pouring onto the floor. The scent filled the air, noxious and dense.
+
+“I—just put her down, and I can explain all of this, alright?”
+
+The wording struck me. He was talking like she was a person. Like she was Rebecca.
+
+Then, I saw his hand slowly move towards the pocket of his cargo shorts, and I knew he wasn’t going to explain anything.
+
+I saw the glint of a knife, and I moved without thinking.
+
+I threw the doll towards the acetone.
+
+“No!” Coach Steve gasped, diving for it. I rushed past him, sprinting for the stairs.
+
+I barely made it two steps down before he was behind me, grabbing the stupid itchy wig I’d worn and trying to yank me back. The cheap plastic claps broke and I stumbled, tripping down a few steps. I ran towards the door, but it had too many locks and chains, I’d never get them all off in time.
+
+I saw him behind me in the glass of the window and spun around, throwing my arms up to protect my face. The knife embedded itself in my right hand, but I was too flooded with adrenaline to register the pain as anything but heat and pressure.
+
+I kicked out, and my foot connected with Coach Steve’s balls. He grunted, hunching over around himself.
+
+I stumbled back and fell on my ass, crawling backwards with one arm as I cradled my right hand to my chest, the knife still embedded in my palm.  
+Coach Steve loomed over me, a crazed look in his eyes. Before either of us could act, there was a knock at the door.
+
+“Dixon police department, open up.” Called Sheriff Johnson. Both of us froze, but I acted first.
+
+“Help!” I screamed at the top of my lungs, “he’s trying to kill me!”
+
+I later learned that a neighbor had seen me rifling through Coach Steve’s things, and had called the police to report a robbery.
+
+I only survived because a housewife had been nosy.
+
+Coach Steve was arrested, and I was taken to the hospital. They had to do surgery on my right hand, and I spent months in physical therapy to try and regain fine motor function. As it is, I can’t really feel my pointer finger most days, and gripping things is hard.
+
+They tested the hair on the dolls in the closet. DNA was found matching to three other missing girls from three states. I was a key witness in the trial, and I still remember shaking in every limb as I swore on the Bible to tell the whole truth, and nothing but the truth.
+
+They got him to confess where he’d dumped Rebecca’s body, and we finally gave her the proper funeral she deserves.
+
+These days, nobody talks about it much except as a creepy story to spread online. Every now and again I have to scroll past some true-crime mukbanger on TikTok  making jokes about my friend’s death between scarfing down bites of seafood boil.
+
+But it’s still real to me. Sometimes, when I can’t sleep, I remember that doll on the workbench, and I wonder how he would have styled my hair.
