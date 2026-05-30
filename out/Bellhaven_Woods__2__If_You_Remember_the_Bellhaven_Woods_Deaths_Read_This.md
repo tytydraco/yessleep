@@ -178,6 +178,12 @@ We sat together near the back.
 
 For the first ten minutes or so, everything seemed normal enough that I started feeling faintly embarrassed by how tense we'd all been beforehand. The pastor spoke calmly. There were hymns. People bowed their heads during prayer. Then I noticed small details that didn’t fit in: A phrase the pastor would say that caused only a handful of people scattered throughout the congregation to respond under their breath while everybody else remained silent. A woman near the front row standing perfectly motionless through almost the entire sermon with her hands folded against her chest and her eyes fixed toward the back pews. 
 
+It was during the second hymn that I saw Sheriff Dale Pruett.
+
+Pruett had been in the position for about six years, which meant he'd been elected far before I arrived in Bellhaven. His name appeared on school fundraiser programs. He had a son who'd graduated from Bellhaven Regional two years earlier. He was the sort of fixture a town like Bellhaven produced every generation — meaning locally rooted if not all that interesting. I'd seen him a handful of times before the church visit, once at the gas station and once at Patsy's 
+
+He was four rows ahead of us and slightly to the left, sitting with his hands folded in his lap, indistinguishable from anyone else in the congregation except that I knew his face: close-cut black hair, green eyes and a five o'clock shadow. He sang when the hymn started, and I sat there watching the back of his head and trying to decide what to do with the fact that he was there, which was nothing, because there was nothing to do with it. Attending a church service was not a crime. People went to church. I knew that.
+
 Summer leaned slightly forward beside me, watching everything with increasing focus.
 
 Then I looked over at Iris.
@@ -192,9 +198,9 @@ Then the older man Iris had mentioned appeared beside us. Up close he looked dee
 
 "Iris Mercer," he said warmly.
 
-I felt her stiffen beside me.
+I felt her stiffen beside me. Through the corner of my eye, I saw Pruett file out with the rest of the congregation. He passed within ten feet of us without looking over.
 
-"It's good to see you return."
+"It's good to see you return." The man added.
 
 Nobody answered. The man smiled faintly and looked between the rest of us.
 
@@ -366,13 +372,7 @@ Iris looked at the map for a long moment. "The reservoir's in this area," she sa
 
 "And the fire roads."
 
-"Yeah."
-
-Iris set the legal pad down in her lap. She said: "I've been there. To the eastern part of the tree line. I think– when I lost time, I think some of it was there."
-
-Nobody said anything.
-
-Summer looked at her lap. "I'm not saying it's all the same thing, but it’s all in the same place."
+"Yeah." Summer looked at her lap. "I'm not saying it's all the same thing, but it’s all in the same place."
 
 Cecile crossed her arms. "You know what this sounds like, right?"
 

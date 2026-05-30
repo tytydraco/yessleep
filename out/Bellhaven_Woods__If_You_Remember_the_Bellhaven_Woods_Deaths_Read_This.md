@@ -224,7 +224,7 @@ Malcolm immediately shook his head. “It’s just other teenagers.”
 
 “What kind of voices?” I asked, intrigued despite myself.
 
-Summer glanced between  us before looking back out across the quarry. “He said his grandson described it as chanting.”
+“He said his grandson described it as chanting.” Summer glanced between us before looking back out across the quarry. "He also mentioned that Sheriff Pruett had come out personally to walk the east wing about a year ago. No report or follow-up happened that Gerard ever heard about.”
 
 Cecile rolled her eyes. “That sounds fake.”
 

@@ -139,3 +139,5 @@ I left the private room and went out the employee door for the smoking section. 
 I had to tell someone about this, someone that isn’t actively in my life, someone who won’t judge me. I had to get this off my chest. To any of you who end up reading this, be wary of working at casinos, you may end up stuck cleaning up bodies like me. 
 
 To those of you who frequent the casino, if you ever find a lone slot machine in a private room, don’t play it. Or do. Just be prepared to deal with the consequences if you’re found unlucky. You may end up dead, or worse. 
+
+[Part 2](https://www.reddit.com/r/nosleep/s/OjcddLy8cH) 
