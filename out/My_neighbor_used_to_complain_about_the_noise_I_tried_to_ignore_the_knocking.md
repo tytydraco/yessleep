@@ -1,0 +1,123 @@
+I’ve never been a particularly restful sleeper. When I do, I snore. 
+
+It’s loud and brash and blaring, and leaves my throat red raw when I wake up. 
+
+It’s made worse by a pair of chunky plastic retainers I wear to sleep. If I didn’t have those, I’d grind my teeth into little flat stumps. When I wake up, my jaw aches, my gums are chafed, and my ears ring. 
+
+As a result, my sleep schedule isn’t ideal.
+
+My mother showed me a home video once, when she could be bothered to get any keepsakes out of the attic. A grainy digital time capsule of the late 90s. A happier time, before the divorce, and the moving, the new school, and the friends left behind. Back when I could sleep soundly.
+
+I’m maybe one year old, face smeared in streaks of chocolate ice cream, and peacefully asleep in my stroller, sticky little fingers clawing at my weathered blanket. Little brown fingerprints left in their wake.
+
+I’m at Disney World, the tinny music of Main Street is cutting through among the laughter of strangers. Even then, I snored. Loud and brash and blaring. It’s cute when you’re a baby.
+
+It’s less cute as a grown man.
+
+I recently moved into an old-school apartment block. Red brick, sash windows, single glazing. The type that’s freezing in the winter, blazing hot in the summer, though I’ve yet to experience either. There are moths in the curtains and I can hear rats scuttling between the walls at night. It’s the best thing I’ve ever done.
+
+It’s as much as my meager salary can afford, rented of course. I don’t come from money, and that’s seemingly the only way folks my age can buy a place these days. Unless you live out in the sticks in a house made of plywood and prayers.
+
+Neither plywood nor prayers can hold up anything in this city.
+
+I’d been in the apartment two nights when I first encountered the man from Apartment 302. We share a garbage chute and a paper thin dividing wall. The red brick outside doesn’t carry on indoors, apparently. 
+
+I retract my previous statement on plywood, I swear that’s what this wall is.
+
+I’d never seen the man from Apartment 302, but I’d heard him. 
+
+I’d heard him shuffle to and from the chute, flick on his TV, flush his toilet. Notably the sink never ran afterwards.
+
+I think he was sick. He had this horrible wet cough, a spluttering ragged noise. Loud, and claggy. As if he was trying to expel a stopper of mucus and phlegm from his throat like removing a cork from a bottle of champagne. It sounded like it hurt, and it would go on for what felt like hours.
+
+It annoyed me, sure. It would interrupt my calls during the day when I worked from home, and wake me up during the night if I wasn’t already awake. It was a nuisance, of course it was, but I couldn’t bring myself to say anything. He couldn’t help it. It was involuntary. I just had to learn to live with it.
+
+I could never have done to him what he did to me.
+
+I’d been here a couple weeks, and the population of boxes was finally dwindling. A couple of DIY projects were still pending, and my flat pack desk still sat scattered across my bedroom floor, screwdriver laid on top of one of the half-assembled drawers (the one I started building, realized I’d made it backwards, and then gave up.)
+
+I’d actually left the house to get more screws, the box was short a couple, and was returning from the hardware store when I saw the fluorescent yellow post-it stuck to my door.
+
+*SNORING TOO LOUD. KEEP IT DOWN. -302*
+
+A pit formed in my stomach. My cheeks immediately flushed scarlet. It was my own wishful thinking, that despite the thin plywood walls, I had willed myself into believing that 302 couldn’t hear me snoring. 
+
+It was shameful, deeply humiliating. I ripped down the post it, crumpled it in my fist, and stuffed it in the pocket of my shorts.
+
+Out of politeness, I didn’t sleep that night.
+
+The next night, I couldn’t do the same. I tried, I really did.
+
+That was when I heard him knock for the first time. Three sharp raps.
+
+The first time, I was confused, I’d thought it was something in my dream, a knocking that had bled out into my waking life. I hadn’t thought it was real, especially as after those three knocks, he didn’t knock again that night.
+
+I realized it must have been 302 when it happened again, a couple of days later. Five sharp raps this time. I was awake for the final two.
+
+Later that day, as I fumbled my keys out of the back pocket of my work bag, my eyes met a fluorescent yellow square, stuck at an angle to my apartment’s door.
+
+*SNORING TOO LOUD. FINAL WARNING. -302*
+
+The red hot shame in my cheeks simmered into fury.  
+I couldn’t help it. I knew that. He knew that, surely.  
+I had given him grace, the dignity of not responding to the knocks, the notes, the incessant hacking coughs. I thought that as one helpless noise-maker to another, he would understand.
+
+Manners be damned. I started knocking back.
+
+It started whenever he coughed, just as it was letting up. Two sharp knocks on our shared wall. I was afraid he hadn’t heard me, but a sharp intake of breath was not followed by a cough. He’d heard.
+
+He continued to knock when I slept. I’d lost count of how many raps. Every time it would shock me into waking, my heart thundering in my chest.
+
+Every time he coughed, I slammed my fist into the wall, grinning. *I got you, 302.*
+
+We went on like that for a while.
+
+I’d not had a proper night’s sleep in days. The rings around my eyes were purple, my cheeks sullen, skin pale. The knuckles on my right hand were fiery red.
+
+I fell asleep at the office. Head lulled onto my keyboard. A continuous string of ddddddddddddddfffffffffffffffffffffffffffdddddfffffff in the subject line of an open email.
+
+Boss wasn’t too happy. Nothing disciplinary for now, but he made it known it shouldn’t be happening again. He’s a real tight-ass. Younger than me with a full head of oily, slicked back hair, a bluetooth, and a lexicon full of Linked-In friendly positive corporate jargon. *Dick*.
+
+That night, I was readying myself for another battle. A back and forth, hunger for a fight rising in my chest. A readiness for a fight that never came.
+
+It was past 3, and he still hadn’t knocked, nor had he coughed.
+
+Excitement sank into disappointment. Had he forgotten me? Had he up and left me? Coward. 
+
+Just as I had lost all hope he would be there, I had drifted off to sleep. My forehead resting on the cool surface of the wall adjoining our apartments. Mouth slightly agape, a snore building in my throat.
+
+Then came thunderous knocking, and an accompanying disgusting wet cough. 
+
+More than one fist was knocking. One, then two, then  arsenals of fists pummeling the plywood wall, the ceiling, the floor, the door. All knocking, all rattling, hundreds of hands slamming into my walls, closing in, threatening to tear the building down.
+
+I pushed back on the wall, once with my bruised right fist, but a violent jolt from the thin wall sent me careening back.
+
+“You motherfucker! You cock-sucking coughing motherfucker! Let me fucking SLEEP!” I spat, strings of saliva dangling from my open mouth, my retainer-less jaw clenched and teeth grinding.
+
+I don’t remember when I picked up the screwdriver. The one lying on top of my half-constructed desk.
+
+I don’t remember at what point I plunged the screwdriver into the plywood wall. Or when the coughing on the other side faltered into gurgling.
+
+I remember feeling resistance on the screwdriver, how it was more difficult to pull it out of the wall than it was to put in.
+
+I woke up, cradling the screwdriver to my chest. There were no more knocks that night.
+
+It’s approaching summer now, late May and as baking hot as I thought it would be. Our apartment building has no air conditioning and my old oscillating fan has come out of the closet in my hallway at last.
+
+The apartment is quieter now at night, save for the gentle whir of the fan.
+
+The cold chill of fear in the pit of my stomach has mellowed into something lukewarm. I no longer have to fall asleep in fear of being awoken, heart pounding, by the knocking on the wall.
+
+As a result, for the last week or so, I’ve fallen into a rhythm. A decent sleep schedule for once in my adult life. The bags around my eyes have softened, from harsh purple to a kinder lilac.
+
+My boss is happier too. I’ve not fallen asleep on the job since.
+
+I try to ignore the sweet, cloying stench of rot as it rises from under the door of Apartment 302.
+
+My fan is on, and pointed at my bed. Optimal conditions. Clean sheets, slightly chilly, retainers in, lights out. 
+
+My eyelids sag lower, iron shutters inching closed. 
+
+My brain packing up its things, ready to log off for an evening, drifting off slowly into comfortable, restful sleep. 
+
+I’m asleep for a while before there’s another knock on the wall.
