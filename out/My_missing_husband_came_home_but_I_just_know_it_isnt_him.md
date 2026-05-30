@@ -25,5 +25,3 @@ I know what you must be thinking. If he was in an accident or something, he migh
 But you know why I'm dead certain that man isn't my husband? He doesn't have a scar. If he was really Rick, he'd have a scar on the side of his forehead shaped like the golf club I hit him with. But there's nothing. Not a mark. Honestly, I'm this close to going out tonight and digging up my petunias just to make sure he's still under there. 
 
 I don't know what I'm sharing a bed with, but I know it's not my husband. So what the hell am I going to do?
-
-[Part 2](https://www.reddit.com/r/nosleep/comments/u9cq7q/my_missing_husband_came_home_but_i_know_it_isnt/?utm_medium=android_app&utm_source=share)
