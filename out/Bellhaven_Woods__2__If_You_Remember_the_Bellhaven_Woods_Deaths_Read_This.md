@@ -180,7 +180,7 @@ For the first ten minutes or so, everything seemed normal enough that I started 
 
 It was during the second hymn that I saw Sheriff Dale Pruett.
 
-Pruett had been in the position for about six years, which meant he'd been elected far before I arrived in Bellhaven. His name appeared on school fundraiser programs. He had a son who'd graduated from Bellhaven Regional two years earlier. He was the sort of fixture a town like Bellhaven produced every generation — meaning locally rooted if not all that interesting. I'd seen him a handful of times before the church visit, once at the gas station and once at Patsy's 
+Pruett had been in the position for about six years, which meant he'd been elected far before I arrived in Bellhaven. His name appeared on school fundraiser programs. He had a son who'd graduated from Bellhaven Regional two years earlier. He was the sort of fixture a town like Bellhaven produced every generation — meaning locally rooted if not all that interesting. I'd seen him a handful of times before the church visit, once at the gas station and once at Patsy's
 
 He was four rows ahead of us and slightly to the left, sitting with his hands folded in his lap, indistinguishable from anyone else in the congregation except that I knew his face: close-cut black hair, green eyes and a five o'clock shadow. He sang when the hymn started, and I sat there watching the back of his head and trying to decide what to do with the fact that he was there, which was nothing, because there was nothing to do with it. Attending a church service was not a crime. People went to church. I knew that.
 
@@ -502,4 +502,4 @@ I looked at my cereal, which had gone soft.
 
 After I hung up, I stayed sitting at the kitchen table for a long time without moving. I kept thinking about the annex beneath the east wing, about the room with the candles and the photographs and the paper pinned into the wall, and the idea that all of it had existed there long before Bellhaven State ever opened its doors. Long before any of us were born. Outside, Bellhaven looked exactly the same as it always had. Somewhere on the east side of town, Saint Germaine’s was still standing with its doors open.
 
-Again, I'll have to stop here for now. I'll continue tomorrow.
+[Part 3](https://www.reddit.com/r/nosleep/comments/1ts6akw/bellhaven_woods_3final_if_you_remember_the/?solution=9f93bbbdca7c09549f93bbbdca7c0954&js_challenge=1&token=7afd7253fec22262ff1c52b1703fe9ecf44915766a19ac7cb029a957fa8b8737&jsc_orig_r=)
