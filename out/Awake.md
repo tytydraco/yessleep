@@ -1,29 +1,25 @@
-My eyes opened, but nothing had changed. 
+Part 1.  
+I woke up to the dark room. Something had pulled me out of sleep. What was it? With a tightening chest I remembered. It was a groaning. Something in the room had made a hopeless and dreadful groan. I looked over at my wife. She lay there sleeping. Regular steady breaths bringing her chest up and down.   
+Supposing it had just been a dream, I let my chest ease and fell back asleep.   
+Again I awoke to that same groaning. It had sounded more distressed this time. Like agony and sadness mixed with fear.   
+My arms were covered in goosebumps and I felt as though I hadn’t even been asleep long enough to dream. Again I looked at my wife, still sleeping, still steady. A small nightlight in the bathroom cast just enough light into the room for me to be able to make out the shadows. I saw nothing out of the ordinary. But I still felt on edge. Like I had just woken from a nightmare. But I couldn’t remember any dream. I tried my best to shake the feeling and let myself fall back to sleep.   
+Eventually unconsciousness took me again. I had only been asleep for what felt like a few minutes when something shook the bed. My eyes flew open and I looked immediately to my wife.  I hadn’t dreamt this one. Something had moved the bed. I looked more closely at her face and saw that her eyes were open. Glistening with tears in the dark of the room. Quiet sobs shook her body. “What’s wrong love?” I began to ask, wanting to reach out to her but finding I was unable to move. I couldn’t move my arms or legs or head or even my lips to speak the words. I’d had sleep paralysis before, but this was different. This was as though I was just a photo, possessing not even a knowledge of how to move.   
+With an ever growing anxiety and fear once again gripping me, I lay stuck watching my wife, who continued to let out croaked sobs. Sadness filled me and I wanted nothing more than to tell her everything was ok and that I was right there with her. But not a finger could I move.   
+So I watched, and as I watched, my wife slowly got up out of bed. Still letting out what were now wretched agonizing choked cries, she reached into the side table drawer. Out came a photo of us and a razor blade.   
+I was frantic now. Everything in me begging myself to please just move, to reach out and stop what I was seeing. Please. And I felt my own agony building up in me as I lay there unable to stop what was coming.   
+My wife lay back in bed. Tears streamed down her face as she, through hushed sobs, kissed our photo and whispered “I miss you”. She then laid the photo on her chest, lifted up her arms and put the razor to her wrist.   
+I watched on with a sadness and panic that felt like drowning. And after a few minutes, she was still.   
+As if her last breath was the key to my chains, with it I burst out of my paralysis.   
+Gripping my wife’s still warm body in my arms, all the dread and sadness and anguish that had built up in me had exploded out of me and I wailed. I blubbered and pleaded and shook her and demanded that she wake up. But to no avail. My wife had died, taken her own life while I lay watching, not moving a muscle, not speaking a sound. I watched and she died.   
+A few days passed. And I spent them in my bed. The light meant nothing to me as days turned into nights. I lay there. Sobbing my way into sleep and then dreaming of what I’d seen. There was no relief for me whether sleeping or awake.   
+And after a few days, I made up my mind. 
 
-&#x200B;
+Part 2. 
 
-I could still see the dream as clearly as a moment before because, aside from the subtle transition of consciousness, my bedroom still appeared precisely the same as it had. Inky shadows blanketed most of the room, their harsh lines cast in electric blue by the blinking device in the far corner. The small space was cramped but organized as it always was, and yet somehow it had shifted, fundamentally altered by the dream. The closed door on my right side, forever a symbol of the safety of this place, no longer held any meaning in the world the dream had created.
-
-&#x200B;
-
-The silence held the only clue to the shift in realities. I could no longer hear the vicious snarling from the window above my head. The enraged barking, the scraping of claws and teeth at the window's frame; all had ceased as my eyes opened. But still each sound echoed in memory, carrying knowledge that I knew, yet could not know. The two hounds, I somehow knew, were as black as the shadows before me. No beautiful creatures were these - beings not meant to be seen, existing only in the absence of light. The dream was short; the two creatures arrived only moments before I awoke, baying at the scant protection offered me by the curtained glass. Yet the sound carried with it a sense of familiarity; beasts that I somehow knew, sounds that I had heard before in silence. The creatures had been a part of the dream. But in the memory of them, I knew that they existed apart from it. In the darkness, a fearful voice suggested quietly that the sounds that had awoken me continued, had I the ears to hear them. 
-
-&#x200B;
-
-Confronted by these unrealities, I struggled to reclaim my waking mind. In the endless moment that followed, the scrambling images and thoughts left in the wake of the dream gave way to a single, overwhelming truth. I could not move. I could not breathe. Awake I may have been, but under the weight of the shadows the dream had left upon me, I lay powerless save for my wandering eyes which, free to explore the darkness, beheld the source of my trial.
-
-&#x200B;
-
-The pale blue light in the corner cast shadows in all directions, the usual dark shapes of the furnishings of the room contrasting sharply against it. Yet the pattern of familiar shadows was somehow broken, the shape of the room somehow wrong. As the dream faded, my searching eyes found the shadow that was out of place, cast by nothing upon my bedroom wall. 
-
-&#x200B;
-
-The being was tall - It could fit beneath the ceiling only because it stooped, its head held slightly to one side. The darkness of the shadow was absolute, covering the being like a cloak of black save for its face which, despite lacking eyes, seemed to hold me in a curious gaze. "Face" may be a misnomer - the indistinct, spiraling shadows where the being's face should have been held the appropriate shape, yet none of the reality of a true visage. The shadow stood watchfully over me, as motionless as my own body, as though it had been interrupted in its work, and waited to observe what would follow. 
-
-&#x200B;
-
-Unable to act, I watched the shadow. It lingered only briefly, though each moment seemed to stretch beyond reason. Still unmoving, the shadow simply faded away, leaving the wall unmarred with its presence. As the last traces vanished, so too did the weight that held me, and I was at last able to take a breath. The dream had now left me, and the room resumed its usual form, proof against danger. But even once the darkness had retreated before the lamp that I quickly switched on, I was unable to answer the question that gnawed at me.
-
-&#x200B;
-
-When had the dream ended?
+I woke up to the dark room. Something had disturbed me in my sleep. It felt like I’d had a nightmare that I just couldn’t remember. I looked at my husband. He lay there, chest moving up and down with his breaths. I supposed it had just been a dream, so I shook off the feeling and let myself fall back into sleep.   
+Not much time had passed I think before something again woke me. My eyes opened and I could see that the room was undisturbed. My husband still lay there sleeping. Seemingly unperturbed by whatever had awakened  me. He was a light sleeper, so I figured it was just my dreams spilling into wakefulness. Still a bit uneasy, but wanting to get some rest, I again drifted to sleep.   
+And again, I woke. This was unusual, and a bit alarming. Now disturbed by what unseen thing had been waking me, I went to turn to my husband, hoping to wake him up so he could help me find the culprit. But as I went to wake him, I found I couldn’t move. Was this the sleep paralysis my husband had spoken of? It seemed likely, as I felt I couldn’t have moved a single muscle. I couldn’t even say his name to wake him. But I could see him. He lay there, eyes open staring at the ceiling. Tears rolled down his face as his chest now shook with quiet sobs. “What’s the matter my love” I wanted so badly to ask him. The look of aguish on his face was heartbreaking. As if he’d been lost somewhere very dark. Sadness pooled inside of me and had I been able to move enough even to cry, surely tears would have wet my cheeks at the sight I was now seeing. My love, if I could only reach out and wrap him in my arms, I’d tell him all would be alright. But I could not. I could not move a single muscle. And although my eyes had opened when I woke, I now felt I couldn’t even blink.   
+So I watched in wretched stillness as my husband got out of bed. He made his way over to the closet and brought down a shoe box. Out came a photo of us and a razor blade. Panic flooded me as I desperately tried to will myself into movement. I screamed within myself, begging my body to move, to please just reach out and grab my husband’s arm. Something, anything. I pounded on my body from within it, trying to break out of my prison. Please please don’t do this I screamed in my mind.   
+And as I lay there motionless, I watched as my husband hugged our photo, raised it to his lips and through broken whispered sobs said “I need you” and kissed it, then laid it on his chest. He raised his arms, one hand gripping the razor blade, and pushed it into his other arm.   
+Unable to do anything to stop it, unable to even look away, I watched. And I watched, and I watched. His breathing went from ragged cries, to slow shallow breaths, to nothing at all. And with his last breath, I suddenly burst free. I jumped over onto him screaming his name, begging him to please wake up. I wailed and blinked through a stream of tears as I tried to shake him awake. “Please” I begged, “please”. I collapsed next to him, his warm blood turned cool as it soaked the sheets.   
+Days passed. But it didn’t matter to me. The blue sky was grey. Night swallowed the day. But with night came no rest from my sorrow. I sobbed when I was awake and through dreams I relived that awful night when I slept. And there was no comfort for me. And after a few days, I made up my mind. 
