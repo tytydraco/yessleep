@@ -1,0 +1,35 @@
+It’s different from other schools. The lights are always dim here, or they just feel that way. Everything smells like the lemon wipes Mom uses to clean the tables at home. My teacher is always nice to me. Her clothes make swishing sounds when she walks over. She asks how I’m feeling and writes things on her clipboard. I tell her I’m okay so she won’t worry too much.
+
+The desks here are strange. They can lean forward or lie flat depending on which buttons I press. There’s this one button that’s harder to push. It made everyone rush into my room. Mom cried a lot after that, so I don’t press it anymore. 
+
+There aren’t many kids in night school. There's this Boy from the other room. He always sounds so happy. He talks with the teachers a lot. Once, we met in the hallway during sunlight time.
+
+“What’s your favorite color?” he asked.
+
+My Mom held me from behind and I turned my head to her. 
+
+“Green,” I replied to him. Mom likes green.
+
+There are a lot of things I miss from regular school. I miss the food there. The food here tastes like nothing. Even the cookies and apple juice Mom would buy aren't as sweet. I smile anyway, so she won’t feel bad.
+
+My teacher said my friends can’t visit me because it’s not safe. That’s okay. They have their own classes to go to. But sometimes I imagine them showing up in my room just to surprise me. 
+
+Mom stays beside me most of the time. She pretends to read, but I can hear she flips the pages too fast. Dad visits too, but not as often because he has to “work extra”. When he does come, he smells like coffee and the outside. I love that smell. It makes me feel like I’m free and healthy again.
+
+Dad tells me many stories about the things he sees on his way to work, how Wafer waits for him by the door every night with his tail wagging. My dad takes him on walks for me now. I miss Wafer, but sadly he's not allowed to be in the school. I try to picture all of the things Dad says, but my head gets tired fast and I fall asleep.
+
+The lessons here are strange. I learn to lie very still while machines beep around me. I learn to count while my teacher guides my breathing. We practice being brave, that’s when they bring the needles, and Mom squeezes my hand until the lesson is over. 
+
+There’s one teacher I don’t like. His hands are bigger and stronger than the others. He always brings the biggest needles of all. He tells me to count backwards, and I try, but the numbers get slippery. 
+
+In night school, there’s this thing called graduation. No one tells me what it means, but it’s when kids leave and don’t come back. Some get better. Some don’t.
+
+Last week, the Boy from the other room graduated. I don’t hear him anymore and he’s never in the hallway. I asked Mom about him, and she said he got better and went home. I think she lies.
+
+Mom’s been quieter lately. She holds my hand longer, even when I’m just resting. Her hand feels thinner. I told her that when I graduate, I want to be brave and happy like the Boy. She didn’t answer. She just kept holding my hand. I’m starting to forget what her face looks like, what Dad and Wafer look like.
+
+I think my graduation is coming soon. I can feel it every time my body gets too achey. That’s okay. I like to think that after I graduate, I can finally see again.
+
+Because at night school, if you listen very carefully, you can hear the other kids who already graduated. 
+
+They’re laughing and whispering to each other about how they could finally play in the sun outside again.
