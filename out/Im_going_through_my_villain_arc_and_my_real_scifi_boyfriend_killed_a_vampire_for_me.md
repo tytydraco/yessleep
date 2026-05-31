@@ -1,0 +1,457 @@
+...[Yeah, that's](https://www.reddit.com/r/RavenKellisWrites/comments/1sjkv20/i_danced_with_someone_i_did_not_know/) the title.
+
+Sorry. 
+
+I recommend you read what I linked above if you're new. It might make the rest of this weird-ass, morally-gone insect-themed rollercoaster make a *bit* more sense. If you're still reading, well, this is everything I've transcribed today from the months that have followed since the last post I made.
+
+ 
+
+It’d been a month since the ballroom. A month since my boyfriend murdered twelve of his exes, before setting his sights on me. I’d spent most of that month in my bedroom, huddled up on the floor, breathing heavily while butterflies fluttered outside my window. A rainbow of shimmering, fluttering colours that I couldn’t look at without remembering that wriggling, fleshy cocoon.
+
+*And those teeth. Those sharklike teeth that could rip me to shreds like a knife through an eyeball.*
+
+I hadn’t left my room. It was lucky we were still in winter break. Less people around meant less questions. Classes were off so I could just panic in my dorm all day, shivering and eating stale ramen.
+
+Aletto used to take me out dining every night.
+
+*Don’t think about that.*
+
+We’d go to random, ludicrously expensive restaurants where all the food was unbelievably tiny. I’d have to order multiple servings of the same thing because they were so delicious and flavourful, and he’d laugh and wave the waiter over to ask for more of the same. The first time, I’d been worried, thinking he might take me for a gold-digger.
+
+But he never said anything. Just smiled and paid the tab.
+
+*I could kill someone and he would pay someone to hide the body.*
+
+*And he did kill someone.*
+
+*But they were just his exes, who–*
+
+I jolted upright, tumbling from my spot on the wall. What the fuck? How could I think that? What…what was wrong with me? I took a deep breath, massaging my temples in an attempt to quell the frantic rush of thoughts running through my head.
+
+The thing about thoughts: the more you try to stop thinking about something, the more you think about it.
+
+Don’t think about pink elephants, guys.
+
+*He killed his exes for you. He obviously cares–*
+
+*He was going to kill me–*
+
+*Is that really what you’re focusing on?*
+
+*You’re the one acting like him killing his exes for you is some weirdo love language!*
+
+*Well, if the boot fits.*
+
+“Oh, fuck you,” I snapped. At *myself.* Because apparently that’s what my life had come to. Arguing with myself and whatever bizarre shred of my psyche had splintered off to become an Aletto-apologist. Truly, the human race was *evolving* with me. Evolving backwards, till we were just puddles of microbes in a sea full of the stuff.
+
+*Do you think his species is more evolved or less evolved?*
+
+“Is he even a different species?” I mutter, groaning as another familiar line of thought came to me.
+
+The *curious* one.
+
+*He grew butterfly wings. How the fuck did he do that? And apparently, he can, what, control butterflies? And speak to me telepathically? And smell people?*
+
+He was also a cannibal, because of course he was.
+
+I walked, slowly, numbly, to my bed.
+
+And screamed into my pillows till my voice was hoarse.
+
+ 
+
+I didn’t spend all my time in my room, despite what the previous incoherent rambles of my broken psyche would have you believe. My university scholarship was enough to cover my tuition and housing, but anything else was on me. Boy was there a lot. Aletto had offered to set me up with paid internships with his family’s company (well, ‘companies’ was the word he’d used, which was a whole other can of worms), something I’d been relying on till…well.
+
+*That happened.*
+
+I was such an idiot.
+
+And now all the part-time jobs I could’ve applied to were goners, and I was just walking along campus, wondering what the *fuck* I was gonna do. Appeal to the financial aid office? They were a business, not a charity. But I might not have had much choice.
+
+*I never do, do I?*
+
+I thought bitterly, careful not to slip over the ice. It was true. I was powerless. The one person who made me feel strong was gone, and took a piece of my fractured heart with him.
+
+*Because of course he fucking did.*
+
+ 
+
+Aletto left me alone three days after the ballroom. I don’t know why. I guess he realized I wasn’t going to speak to him. Not that he…left me completely alone, of course. I’d catch butterflies fluttering nearby and feel my hackles rise. Spot a flash of colour against an otherwise barren sky and freeze, wondering if, when I turned around, I’d find him, still covered in blood and viscera.
+
+Were all butterflies like this? Or was he part of some sort of bizarre, recent species?
+
+*“The French Government pays us…”*
+
+That’s what Aletto had said. So did the French government know? Do all governments know about the murderous psychopaths who can grow butterfly wings? Exactly how many were there like him? Were there other bug-human hybrids? I dunno, maybe *mosquitoes–*
+
+“Excuse me? Is your name Kane?”
+
+A soft voice said from behind me. I instantly stiffened, straightening up from where I’d been walking across the same quad I’d been walking for the last three days. And sleepless nights too. I turned around to find a small, bright looking man staring down up at me.
+
+He was short. Shorter than me, somehow. With a round, friendly face that showed a few buckteeth. He was wearing a brown cap and a large brown fur coat.
+
+“My name is Jason. FBI,” he smiled. Momentarily, my shoulders lowered, relief warring with suspicion before suspicion won out and my guard was up once again. FBI? This was about Aletto. It had to be. Was he in danger? Was *I* in danger?
+
+…Which did I care about more?
+
+“I have reason to believe you were recently in close, *dangerous* contact with a *dangerous* creature that goes by the name of Aletto?” he continued, showing me his badge and credentials. At the sight of those, I felt myself relax again. Right. This was just the FBI.
+
+Talking about Aletto.
+
+*Do I lie or tell the truth?*
+
+“Come. You must be very confused. I’ll tell you the truth about what’s going on,” he told me, gesturing for me to follow him. There was…something very odd about him though. His eyes, they were dark and brown, but with an oddly shimmery sheen to them. Maybe they were just overly wet and watery?
+
+But there was something else. His *expression.* Like he was smiling at the thought of giving me dangerous news.
+
+*He’s FBI, he’s obviously safe, don’t be an idiot.*
+
+*That’s the same thing we told ourselves about Aletto. “Don’t be an idiot”. And look where it got us!*
+
+I’m a slow learner.
+
+But I do, eventually, learn.
+
+“I’d rather we talk here,” I say, forcing a smile. American (actually, most white people) government agencies didn’t exactly have the best track record with black people. My defiance might’ve caused more problems than solutions. But I had a bad feeling about all of this. Something that told me following him would be far more trouble than it was worth. “Or, maybe we can go to a café? If you’re feeling cold or anything.”
+
+“Oh, I’ll be fine,” he responded, beaming. “I ate earlier, so I’m quite warm.”
+
+*And what the fuck is that supposed to mean?*
+
+I tried to say it, but before I could, he kept talking.
+
+“But you seem cold. Why don’t you come with me? I’ll warm you up, and tell you more about that *evil* creature.”
+
+Something was wrong. His voice. It had…a bizarre quality to it. Smooth and deep, with a barely-there buzz underneath it. Like there were two different layers of speech at once; both were being spoken simultaneously. Two voices, one a low, constant buzz, the other a deep, clear sound, were layered simultaneously onto each other.
+
+Something was horribly, utterly wrong.
+
+“Come,” the thing said, its voice taking on a hardened tone as it turned around.
+
+The buzzing grew louder.
+
+I followed, numb, and knowing I was about to die.
+
+ 
+
+We went past the gates. The guards smiled winningly as he told them they were a fine service.
+
+We went into his car. One of those vintage black taxis with comically large headlights and a humped interior.
+
+We went into his house; a large mansion in a secluded area. There were no insects here. No flowers.
+
+But I saw rabbits and chickens and even goats in a small pen, all grouped together.
+
+None of them were moving.
+
+ 
+
+“There are many dangerous things in the world, Kane,” it said, once we were inside. We were in some sort of study, I think. There were books all around us. I was seated on a plush chair against my will, my mind screaming while my body relaxed into the luxurious comforts of a house I knew I had to leave.
+
+He pulled out a flask from his pocket. A gigantic thing that sloshed a red liquid into a nearby wine glass.
+
+Did I say ‘he’? Sorry, I meant ‘it’.
+
+The scent of what he was drinking was remarkably familiar. Almost a callback, really. To writhing flesh cocoons and glimmering wings. It was human blood, its coppery scent clear in the air. And as he drank it, his cheeks distended and bloated, his pale skin gaining newfound color to it. His wrinkly hands smoothed over, and he let out a pleased sigh as he set the glass down on the coffee table between us.
+
+“A vintage,” he said, smiling when I didn’t respond. I couldn’t. He’d forbidden me from talking. My mouth wouldn’t *work.* Even when I tried my best to scream.
+
+“You can talk now, by the way.”
+
+“Let me–” I started, and he just smiled even wider. His eyes were buglike now, larger, almost bulging out of their sockets. His lips were fat and plump, like he’d had them injected with too much filler. I bit my tongue, knowing that demanding to be released wouldn’t work.
+
+Instead, I endeavoured to get as much information as possible.
+
+“You’re…you’re a mosquito? Thing? Mosquito-thing?”
+
+It laughed.
+
+“Mosquito-thing? That’s a new one, but yes, I suppose so. I don’t have wings though. Just, the blood-drinking. And mind-control. That *buzzing* you hear? That’d be my secondary vocal cords, releasing a frequency that activates a set of neurotransmitters in your brain telling your entire body to relax.”
+
+He clicked his tongue, squinting at me. “Usually the mind obeys as well, but you’ve been through far too much trauma for that, haven’t you? A pity. Broken brains are harder to control.”
+
+“I’m not broken,” I snapped.
+
+He just smiled wider.
+
+“No, of course not.”
+
+“What are you going to do to me?”
+
+“Kill you. After getting all the information you have.”
+
+My blood ran cold.
+
+But my body still refused to move.
+
+*Move, goddamnit! He’s weak! He’s scrawny, scrawnier than I am! I can take him if you’d just fucking MOVE!*
+
+“Why?” I asked, trying to buy time. “I-We can work something out, don’t you think? Aletto, he-he still loves me. Still cares about me. You can *use me* to get to him–”
+
+“He’d smell me on you and track me across the city,” it scoffed, setting down its glass. “That’s the thing with those bastards. The *Papillio Ambulans,* your kind calls them. They can smell a drop of blood from across the ocean. I’d have liked *that* ability.”
+
+*I dunno, I think I’d prefer having mind control over bloodhound senses, but maybe that’s just me.*
+
+“Papillio. Like…butterfly?”
+
+“Pretty much,” it nodded. “There are others as well. Spiders. Bees. *Cockroaches.* Some play at civility while others embrace their true animal natures, hunting and killing as they please.” It smiled thinly after saying that, as if expecting me to ask.
+
+*Play along,* my brain yelled at me.
+
+So I did.
+
+“Which ones are those? They sound awesome.”
+
+“*Us,* of course,” the thing laughed. “The *Sanguisugae.* Us blood-drinkers who have *embraced* the animal nature: to hunt, to kill, and, of course, to procreate. To ensure we are the *dominant* species of Earth. To ensure that all others are but bloodbags for us, to do with as we please.”
+
+“And…the spiders?”
+
+Its face darkened, a vein throbbing in its forehead as it let out a loud ‘Bah!’, his hand slicing through the air in anger. I would’ve flinched if it weren’t for the fact my body was still deluded into thinking it was safe. That buzzing hadn’t gone away. Not at all. Low enough to not hinder the conversation, high enough to keep me from running or lunging at my captor.
+
+“The Araneae!” he snarled, red spittle flying from his lips. “Those fucking bastards. Playing at civility, at *sophistication* while my kind’s dead number in the *thousands* because of them! Fucking cunts, always spinning their webs and their venoms…”
+
+*He’s easy to distract. Don’t fuck this up.*
+
+“Venoms?” I asked, secretly wondering how much longer I could keep this up. Even if I kept him talking for ages, did these things even sleep? Aletto did, but he didn’t have mind control powers. Who knew how else this thing, this…*Sanguisuga*, differed from whatever he was.
+
+I was walking and talking blind here. But I decided to keep it going as long as possible. Maybe if I could just stop that goddamn *buzzing–*
+
+“You’re trying to distract me,” the thing breathed, suddenly straightening up. My eyes widened in horror as it slammed the desk to the wall, stronger than I’d expected.
+
+And *furious.*
+
+“You are going to tell me *everything.* Where those butterfly bastards are hiding, their names, their fucking *birthdates, EVERYTHING!”* it screamed, the buzzing growing to a near-crescendo that kept me from doing anything at all. Its eyes were silvery now, pupilless. Its buckteeth had grown to sabre-like tusks that looked ridiculous, but were accompanied by a pair of the same from his lower gums. Ridiculous, and perfectly capable of causing damage that couldn’t be recovered from.
+
+“And then, and *then,* I am going to suck your flesh *dry* till your veins rub against each other like dried SANDPAPER!”
+
+No, no, no, no, no, no–
+
+It lunged at me.
+
+And something lunged at it.
+
+ 
+
+Something covered in iridescent scales shrieked into the thing’s face. It desperately tried to fight back, shoving and kicking. All to no avail. Aletto roared in pure fury, his jaw stretching open before slamming shut around that frantically buzzing head.
+
+*CRUNCH.*
+
+The body twitched. Just once. A panicked kick.
+
+And then Jason, FBI, Sanguisuga, was no more.
+
+ 
+
+My body jolted back to life almost instantly once the buzzing stopped. I jumped to my feet and Aletto did too, reaching for me before thinking better of it.
+
+“Kane,” he said, desperate, pleading. I almost flinched again (was he buzzing too? Could he do that?), but relaxed when all I heard was his voice, begging for me to stay. “Listen, I’m *so sorry,* I’ll…I just-Just, hear me out, please? I just need you to hear me out–”
+
+“Is he dead?” I demanded, voice cracking.
+
+Aletto paused. Then…
+
+“Yes. He’s dead. I can smell it all over him.”
+
+“How’d you find me?”
+
+“T-The butterflies. They were following–”
+
+As if on cue, a pink butterfly emerged from a nearby corner of the room, fluttering merrily out the window now that its job was complete.
+
+“So you were stalking me?” I asked, furious. Not at him. Also at him. I didn’t even know anymore. My brain was a clouded mess and my heart was a piece of flesh being yanked in every other direction and I was so fucking SICK of it. Aletto shook his head, frantic, panicked.
+
+“No! No, *never!”*
+
+But he was.
+
+I took a deep breath, before sitting down on another chair, covering my face with my hands. I wanted to sleep. I wanted to sleep so fucking bad. It took upwards of five hours for us to drive to the mansion. We’d left at about seven PM. It was probably upwards of midnight now. I was so…fucking tired. I only had room for one question before I collapsed on the floor.
+
+“Were you going to kill me? That night at the ballroom?”
+
+“NO!” Aletto shouted, and I looked up to see his face go green with nausea. “Kane, I would *never* hurt you, please, believe me–”
+
+“Stop it,” I whispered. He shut up immediately.
+
+Then I let out a sob. Just one. Then two. Then three, until I was breaking down crying on the floor and Aletto’s hands were hovering all around me. Uncertain whether or not to hold me or give me space. I solved his dilemma for him, yanking him down onto the ground before wrapping my arms around him to sob into his chest. He was naked, wings folded neatly against his skin like sheets of silk that’d been stitched onto him. They felt cold against my hands. But smooth, like what I imagined satin would feel like.
+
+I cried. I cried all night long, till he was crying too, and we both shed tears that we’d wipe from each other’s faces the next morning.
+
+ 
+
+The next day, he was still naked. Making breakfast in “Jason’s” kitchen. I stared at him for a moment longer than necessary. Taking in the sight of him. His spine was covered in those scales. They gleamed like a hundred knives underneath a winter moon, cold and silvery. Quicksilver-like, I thought to myself. Quicksilver is a toxic metal. Once you breathe in its vapours, you don’t have long before you’re driven ‘mad as a hatter’.
+
+*Will you drive me mad too, Aletto?*
+
+*Drive me to my grave.*
+
+His wings were folded against his skin, starting from between his shoulder blades before wrapping all over his body. You’d have never even realized they were there, had it not been for the thin lines of blue all over his body. Even then, he could’ve passed them on for tattoos. The thought made my stomach churn. How easy would it be to rip those wings from him? What would’ve happened to him if Jason had managed that?
+
+*It’s not my fault.*
+
+*But it feels like it.*
+
+Aletto turned around, his eyes widening in surprise when he noticed me staring. A faint blush formed over his cheeks, but he smiled.
+
+“He didn’t have much,” he said, gesturing to the oven. Stoves were, according to him, a dangerous invention that existed purely to frighten the innocent. It wasn’t all that surprising that he refused to make anything on them. I peered inside the oven to find a frozen pizza, rising up, and filling the air with the warm smell of overly processed cheese.
+
+It was heavenly.
+
+“Y-You like it?” Aletto asked hopefully, smiling shyly.
+
+I smiled back. It lasted almost five seconds.
+
+Almost.
+
+“We need to talk,” I told him. Aletto froze, before opening his mouth. Probably to say ‘right now?’ or ‘breakfast first?’. I cut him off before he could voice any of that. “Right now. About…us. And, well, everything.” This was gonna suck.
+
+But it had to happen. Aletto’s face fell, but he nodded, and we reconvened in the dining room. Despite the fact that I hated him, I had to admit, Jason had a great house. His dining room was a work of art. Golden chandeliers from every other corner of the room, marble walls, a mahogany dining table with a sheet of glass on top and lace tablecloth.
+
+I was almost worried to sit in case I accidentally stained the furniture. Aletto plopped his naked butt down into the chair though, so I followed suite.
+
+“I am so–”
+
+“What was that?” I asked, finally letting loose the barrage of questions I’d been holding onto since the dance. “No, like, what the *fuck,* Aletto?”
+
+“…My kind–”
+
+“The Papillio ambulans?” I asked, arching an eyebrow at him. Sure, the mosquitoes got Sanguisuga, and the spiders were apparently the Araneae, but my boyfriend’s species just *had* to be the one whose name sounded like a variant of tuberculosis. Aletto paused, before chuckling softly. Nervously. It was cute, sort of.
+
+*Focus,* I nearly growled at myself.
+
+“The walking butterflies, yes. We…Kane, please, understand–” Aletto cut himself off, shaking his head with a frustrated growl. “No, I don’t get to demand that of you. At least, that’s what my therapist said–”
+
+“You have a therapist?” I asked, blinking in surprise. Aletto nodded again.
+
+“Oh, yes. I got one after the dance. It was my cousin’s suggestion. She said, quote, ‘You’re an idiot who needs to learn how humans actually work, and who somehow hasn’t managed it despite blending in for about twenty years, apparently’.”
+
+“She wasn’t wrong,” I remark, arching an eyebrow at him. “You really did skirt by on pretty privilege, didn’t you? And, well, money, I guess.”
+
+Aletto’s face scrunched up in confusion.
+
+“Pretty privilege?”
+
+*…Yeah, I’m not even gonna touch that.*
+
+*Moving on.*
+
+“You were saying about your kind?”
+
+“When we come of age, we have a transformational ritual. It requires blood. Lots of it. Usually we rely on hospital bloodbags, or prisoners, or, when the family member in question is particularly desperate, *animal blood*,” Aletto spat that last one out with enough disgust to make me feel offended on his behalf. “It’s an important ritual, to stimulate our growth into fully-fledged members of our species.”
+
+“Why invite me then?”
+
+Aletto blushed.
+
+“It’s…also the day we announce that we’ve found our mate.”
+
+I froze.
+
+Did a double-take.
+
+Did a ‘what the fuck?’ take.
+
+“…My therapist told me I should’ve told you before the dance,” Aletto winced. “I…see now that he was absolutely correct.”
+
+“WHAT THE FUCK?!” I yelled, standing up to tower over my seated, cringing, very-much-in-trouble boyfriend. “What the absolute-are you-*yes,* Aletto, you should’ve fucking *told me.* What do you mean, *engaged,* we’ve known each other for six months!”
+
+“They’ve been the best six months of my life!”
+
+“You’re twenty-two!”
+
+“And?”
+
+…
+
+DUDE.
+
+I slid back into my seat, groaning. My head hurt. It was eight in the morning and I already had a *migraine.*
+
+“In human life,” I said, gently, because apparently my boyfriend had no clue how humans worked despite living as one for *twenty-two years.* “People get engaged after *years* of dating. Or, *courtship,* if you’d prefer.” It certainly doesn’t happen in six months.
+
+“That’s just inefficient,” Aletto frowned. “Why would you stay with someone for years if you weren’t intending on staying forever?”
+
+“Because–okay, we are not discussing this. So, we’re engaged. Apparently. And what happens if I say no? Will I die? Will some black-winged assassin come to my dorm to wed me to you at gunpoint?” I asked sarcastically. God, everything sucked and my life was a total mess.
+
+Aletto hesitated. Then…
+
+“My therapist said to tell you the truth.”
+
+“Great. So I *am* going to die–”
+
+“Nothing will happen,” Aletto told me. My words caught in my throat. He stared at the table, looking like every word physically pained him. He took a deep breath, clawed fingers tracing circles into the glass covering the table. “Nothing will happen. I won’t. You won’t die. Nothing. You and I will just…go our separate ways.  Forever. Till the end of time.”
+
+“…Forever?” I asked, my voice a whisper in the quiet. Aletto nodded. We stayed there for a few moments, in silence. Silence that I knew I’d need to fill myself. Aletto had done what he’d promised. He’d answered my questions, given me more truth than I expected.
+
+And now I had to decide.
+
+*He killed people.*
+
+*He killed people for* ***you.***
+
+*He’s a murderer.*
+
+*You would’ve sold him out.*
+
+“I told him that I’d hand him over to you,” I muttered, making eye contact with Aletto. His eyes looked so dark. So…empty. The gleam of life that had been taken from him, drained out of him. He looked tired. So did I.
+
+“The…mosquito thing. Sanguisuga, whatever. I told him that if he let me go, I’d go back to you, pretend to love you, then hand you over to him.”
+
+Aletto’s face fell.
+
+“Why would you–No,” he shook his head, before getting up and walking towards me. “Kane, you were saying whatever you needed to to survive. I won’t fault you for that. *Even–”* he said, crouching down beside me to hold my hand. He looked up at me, making sure I could see his eyes and that he meant every word. “-*Even,* if you meant what you said. Because I’d rather die than see you dead.”
+
+“I would’ve *betrayed you.”*
+
+“You thought I was going to kill you,” Aletto scoffed. “Why wouldn’t you?”
+
+“You killed those girls for me.”
+
+“You always looked so sad whenever you saw them,” Aletto admitted. “I…I thought I’d get rid of the problem for you. Then you’d be happy.”
+
+“You murdered twelve girls in front of me. Why the hell would I be happy about that? You should’ve told me first!”
+
+“I wanted it to be a surprise!”
+
+“No more surprises,” I said sharply, getting up and glaring down at Aletto, who was staring at me with pure, unadulterated relief on his face. He stammered out words that I didn’t care for, instead choosing to pull him up so I could look at him properly. “No more secrets, Aletto. If this is going to work, we keep the *full* truth between us.”
+
+“But I–” Aletto stared at me, mouth splitting in a grin that could’ve been seen from Mars. “-Y-You don’t…you don’t mind? That I killed them?”
+
+*Fuck it, I’m terrible.*
+
+*And I missed him too fucking much.*
+
+Something wet slid down my cheeks. Tears. Or blood. Hard to tell.
+
+“No,” I decided, before sniffling and wrapping him in another teary hug. “*Not at fucking all*. You hear me? Not at fucking all. I missed you, I missed you so much, don't *ever* leave me again–"
+
+ 
+
+So…yeah, that’s my story. It’s morally bankrupt, horrifying, and a bit romantic. If you think I’m an awful person, don’t worry, so do I. But I love Aletto, more than I love anything else in the world. He would kill me for me, something I’ve never had before in my entire life.
+
+This all happened yesterday. Aletto told me he’d have that thing’s body cleaned up and that his family would be ‘communicating’ with the Sanguisugae about their rogue agent.
+
+I pressed him for more details, but apparently even he doesn’t know what ‘communicating’ would entail. Just that the Sanguisugae have a history of pulling shit like this, and that blood must pay for blood.
+
+His heart’s still in my freezer.
+
+I tried to get him to take it back, but he shook his head. Told me it was an engagement gift. That when I eat it, I’ll be just like him. I’ll live for centuries. I’ll grow wings. Be ‘breathtakingly beautiful, though in your case nothing much would change’. Enhanced strength. Durability. Regeneration.
+
+Most of all I’d be immune to the Sanguisugae’s psychic manipulation.
+
+A part of me wants to take the offer.
+
+The other part is telling me to run.
+
+Aletto says that I have years to decide. The heart will take no matter how old I am. As long as I’m not dead.
+
+*How long will that take?*
+
+I don’t know.
+
+And I’m so fucking scared. These...these *things,* they're apparently at *war* with each other. Or, at the very least, hate each other enough to go after me and anyone else who knows anything about them.
+
+What's going to come after me next?
+
+What'll happen to me if I eat [the heart](https://www.reddit.com/r/RavenKellisWrites/comments/1s579tk/hi_quick_primer_and_faq_full_work_compilation/)?
+
+ 

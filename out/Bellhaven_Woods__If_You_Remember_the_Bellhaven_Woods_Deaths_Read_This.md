@@ -6,7 +6,7 @@ Most of those people are working with the same fifteen pieces of publicly availa
 
 Here's what the public record actually contains. On October 14th, 2009, a high school senior named Malcolm Reyes was found dead in his van, which was parked on a fire road about a quarter mile into the tree line off Route 9. He was the fourth person to die in Belhaven that year under circumstances the sheriff's department described as "under active investigation.” Before Malcolm there had been a woman found at the reservoir, a retired teacher, and a sixteen-year-old boy whose case was closed within a week. All four deaths happened within about a two-mile radius.
 
-Approximately five days after Malcolm's body was discovered, the body of Iris Mercer — at that point the presumed suspect in his death — was found by a search team about half a mile into the woods. Her death was ruled a suicide, though the coroner's report noted that the body showed signs of having been moved from the original place of death.
+Approximately five days after Malcolm's body was discovered, the body of Iris Mercer — at that point the presumed suspect in his death — was found by a search team about half a mile into the woods. Her death was ruled a suicide, though the coroner's report noted that the body showed signs of having been moved from the original place of death. The investigation also attributed the deaths of several unidentified individuals believed to be connected to Saint Germaine's Church to Iris.
 
 Local sources described a string of behavior in the weeks leading up to October that didn't make it into any official account. Strange activity around Saint Germaine's Church on the east end of town, where the congregation had tripled in size over the course of about six months and where several longtime members had stopped attending after raising concerns they declined to specify publicly. Three separate noise complaints in the same week about "gatherings" in the woods near the Route 9 fire roads, which the sheriff's department responded to and then filed no report about.
 
@@ -68,7 +68,7 @@ The day I met Malcom Reyes, the van was parked in the student lot at the end of 
 
 I got in the van. The back was set up with a secondhand mattress wedged between the wheel wells with a sleeping bag folded on one end, Christmas lights strung along the ceiling, a little Bluetooth speaker balanced on the flat part above the wheel well. A hand-drawn map of Bellhaven and the surrounding county was taped up next to it, marked in different colored pen, though I couldn't read what the markings meant from where I sat. 
 
-Two other people were already in the back. One of them I didn't know yet — Cecile Vanek, who was cross-legged on the mattress with a textbook open in her lap and a cigarette burning in her other hand. Her hair had been bleached almost completely blonde except for one uneven purple streak near the left side, and she wore long sleeves with short denim skirts and heavy boots that thudded against the van floor whenever she shifted position.
+Two other people were already in the back. One of them I didn't know yet — Cecile Ilao, who was cross-legged on the mattress with a textbook open in her lap and a cigarette burning in her other hand. Her hair was black except for one uneven purple and blonde streak near the left side, and she wore long sleeves with short denim skirts and heavy boots that thudded against the van floor whenever she shifted position.
 
 And then there was Iris.
 
