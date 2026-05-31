@@ -74,15 +74,15 @@ And then there was Iris.
 
 I've spent a lot of time over the past fifteen years thinking about how to describe Iris Mercer to people who didn't know her, and what I keep running into is the problem of the ending. Given her perception now being what it is, she’s stopped being a person and instead is either a victim or a monster, depending on which version the storyteller needs.
 
-I’ll tell you what half these posts don’t say about her: She grew up in a strict religious household. By the time I met her she'd created distance from a lot of that, or was in the process of creating it. She'd still go on Sundays or whenever she felt she needed comfort. She'd done ballet for several years as a child and stopped when her family moved. She had a documented aversion to pain, her own and other people's. She didn't watch horror movies. She winced when you stubbed your toe. She crossed the street to avoid aggressive dogs. 
+I’ll tell you what half these posts don’t say about her: She grew up in a strict religious household. By the time I met her she'd created distance from a lot of that, or was in the process of creating it. She'd done ballet for several years as a child and stopped when her family moved. She had a documented aversion to pain, her own and other people's. She didn't watch horror movies. She winced when you stubbed your toe. She crossed the street to avoid aggressive dogs. 
 
 The day I met her, she was sitting in the back of the van with her knees crossed, an open bottle of purple nail polish on the floor beside her as she painted her nails. 
 
-She had long dark curls falling forward every time she tilted her head down, and there was a small silver cross necklace resting against the front of her dress. Most days after that she wore long skirts or dark tights or oversized cardigans over dresses that looked half thrifted and half homemade. At the time I mostly just registered that she looked very sure of herself in a way I wasn’t used to people being.
+She had long dark curls falling forward every time she tilted her head down, and there was a small silver cross necklace resting against the front of her dress. She typically wore sweaters, jean shorts with ripped tights under them, or dresses that looked half thrifted and half homemade. At the time I mostly just registered that she looked very sure of herself in a way I wasn’t used to people being.
 
-After Cecile greeted me, Iris looked up long enough to say, “Hi,” before turning back to her hand.
+After Cecile greeted me, Iris looked up long enough to say, “Hey,” before turning back to her hand.
 
-Cecile and Iris had known each other since seventh grade, Malcolm told me. They had what I can only describe as a frenemy dynamic in the classic sense of the word. Despite this, they fell into routine with the rest of our group like it was nothing.
+Cecile and Iris had known each other since seventh grade, Malcolm told me. They had what I can only describe as a frenemy dynamic in the softer sense of the word. Despite this, they fell into routine with the rest of our group like it was nothing.
 
 In the following weeks, after school or on weekends, we'd all end up parked somewhere in Malcolm's van: the lot of the Kmart that had closed in 2003, the pull-off where you could see the whole valley on clear days, sometimes just Malcolm's driveway with the back doors open and the string lights on and the speaker playing whatever Summer had decided we were all listening to that week. Cecile would do homework on the mattress, one leg folded under her, making corrections in pencil. Malcolm would be half-in and half-out of the front, trying to fix whichever thing had most recently stopped working. Summer would be talking, as usual. And Iris would be reading, or would have her head tipped back against the door and her eyes closed.
 

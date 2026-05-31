@@ -466,7 +466,9 @@ Cecile had separated from Summer for about ninety seconds during our exit. What 
 
 Iris was found at 7:41 the following morning, half a mile south of where we'd found her.
 
-There wasn’t much to identify beyond confirmation. Her jacket was the same one she’d been wearing in the clearing. Her hands were still scraped with dirt that matched what was under her nails the night before. The leaves stuck in her hair had dried overnight and turned brittle. No one was allowed anywhere near the site. The note in the coroner's file about the body having been moved was accurate — she had not died where she was found. Where she had died, and who had been with her if anyone, was not something the investigation pursued with much energy, because by the time she was found the case was already, as far as the sheriff's department was concerned, resolved. Malcolm's death was attached to her name, hers to the woods, and the whole thing was filed away.
+She was found in worse shape than when we'd last seen her. The jacket she had been wearing in the clearing hung loose on her frame. The scrapes on her hands were deeper, packed with dirt. The leaves tangled in her hair had dried and become brittle overnight, and new bruises and open scratches marked her skin in places that hadn't been there before. 
+
+A short distance west of the site, search teams later recovered the remains of four or five additional people. Based on what remained of their clothing, they were believed to have been members of Saint Germaine's Church. None could be identified. No one was allowed anywhere near either site.
 
 The forest and fire road access was taped off for three weeks during the investigation. I never found out what Malcolm had found on the path. 
 
