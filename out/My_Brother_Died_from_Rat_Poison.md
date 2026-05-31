@@ -1,0 +1,179 @@
+When I was fifteen years old, it was announced that my brother’s official cause of death was from ingesting rat poison. His name was Chris. At the time he was twenty years old. He was tall, had blonde hair, blue eyes, and a smile that got the attention of all the older ladies at the grocery store. Chris worked at a factory that produced chemicals necessary to make rat poison. Although, I don’t think the rat poison was made in the factory. I won’t go into the super nitty-gritty details, but it wasn’t a safe job at all. 
+
+Especially for someone who was only twenty like my big brother Chris. 
+
+Chris and I had a one of a kind bond. We kind of had to. Our mom left us when I was only five, and my brother had to take care of us, even though we were put into the foster care system. They tried to break us apart sometimes, but my brother would never let that happen. They spent years trying to find the right house for us. They never did. I would always act up, being loud and obnoxious, rude and disgusting. No one wanted me. 
+
+So, naturally, my brother would do what any sibling should do, and stayed with me, turning down family after family. If I wasn’t going with him, he wouldn't go either.
+
+Him and I would play pretend a lot. We loved any game that used our imaginations. From being Paladins and Wizards in DnD, to being rich capitalist whales, we loved pretending to be someone else. I used to draw our old Dungeons and Dragons maps we would use for our adventures. Drawing our characters and monsters we would come across. All of this was something that helped us bond.
+
+Pretending made life seem different, like we actually were someone in the world. Sometimes we would escape from the group home and get out in the town for the day and play sword fight in the dollar store with the crappy toy swords they had in the back. I still think back fondly on those memories, cherishing them for the time I got to spend with my big brother. 
+
+I would continue to cause trouble. Doing things like overflowing toilets on purpose, egging the windows and then acting as if I didn’t know who it was, and even duct-taping a kid to his bed while he slept. 
+
+That last one got me kicked out of the foster care system for a while and I was given to the sheriff’s office to deal with. I just couldn’t help it! It was fun to mess with people. Everyone always treated me terribly besides my brother. Why would I care about anyone other than my brother? I didn’t!
+
+That was something I thought was never gonna be different. 
+
+Chris was the best. Although he did have his issues. I remember that one day, Chris took a nasty fall while at a skatepark. His head was all red and bloody. He was put in a hospital for a couple weeks while recovering. After he got released back to the house, he started using these pills. I think they were for the pain…that’s what I remember Chris telling me. I tried to get into them one time, and he yelled at me for an hour straight when he caught me trying to eat them. I thought that was kind of funny.
+
+When I turned twelve I started having nightmares. I never had nightmares. In fact, I had never had a dream before I turned twelve. These nightmares…were so vivid, though. They were like I had been directly transported into them. Experiencing them with my real hands, legs- body. The first dream I ever had went something like this:
+
+A large room. Glossy pewter floors stretched for miles all around. The massive room was dimly lit, and I could only make out what was about a mile out from me, before it seemed to taper off into complete darkness. The ceilings were also miles high. I was in the middle of this room, I remember specifically because there were three tall, marbled white pillars.
+
+If I was in the middle of them, the shape made a triangle. One directly in front of me, one to my left, and another to my right. The pillars were about a couple hundred feet away from me. The large shadows of each pillar poured down onto the ground below, but the shadows that were supposed to fall on me, from the one front pillar, lacked a shadow.
+
+In front of these massive stone obelisks, people stood. A single person for each pillar. They were visible, but completely darkened. Not a feature on them was visible to my eyes. On the opposite view of the top pillar, there was a man. Like the others, I could not see a single feature on him. Although, unlike the others, I could tell it was a man. A young man. I just knew. It was just one of those weird dream things where your brain just tells you certain narrative aspects of the story.
+
+I stared at the man for a few moments before he started briskly pacing back and forth a couple feet from side to side. He halted, then danced his way over to one pillar, moving towards the person that was standing in front of it. The man looked at the person he was now a foot away from, and looked over at me. My heart stopped for a moment, before he looked back over to the person, put out his index finger, and touched the person on the forehead. The black shadow of a human instantly fell to the ground, limp.
+
+I was terrified at this point. Not a single muscle fiber in my body would respond to the flight reaction my brain decided on. The man then waltzed over to the second person, and repeated the finger to head movement. 
+
+*Clunk.* 
+
+The shadow fell. He skipped over to the final pillar, and paused for a minute. He looked at his hand, and then rapidly slammed his finger into the final person’s forehead.
+
+ *Clunk.* 
+
+The man looked over at me, staring. I couldn’t make out his face, but I knew his eyes were scolding red. He slowly walked over to me- God it felt like an eternity. The man positioned himself just a few inches away from me, his face darkened by a shadow. He slowly reached out his index finger towards the midsection of my forehead, and quietly croaked out one word.
+
+“Poison.”
+
+I woke up in a cold sweat. It was nearly six in the morning. I shot up from my pillow heaving, attempting to catch my breath. My red and white striped bed was soaked with sweat and…something that indicated that I was definitely scared. I tried to calm my breathing as the word the man spoke to me rang out through my head. It screeched through my mind like nails on a chalkboard. All I could think about was that word. What did it mean? Did he kill those people with a “poisonous” touch? Did he kill me with it? My eyes quivered alongside the rest of my body, and I sat there… pondering.
+
+ For my first dream, I was not a fan.
+
+ I stayed up until breakfast, where I talked about it with my brother.
+
+“So…this guy killed you with his finger? He just put it up to your forehead?” Chris chuckled.
+
+“Yeah…” I replied, “What’s so funny about that? I was scared half to death!”
+
+“Well, you just got killed by E.T. in a dream, my man,” my brother started laughing, alongside a couple other kids at the table with us. I was heated. I thought I was going to die and he’s just laughing at me. 
+
+“Laugh all you want, dipshit, it wasn't funny to me!” I yelled. 
+
+The Administrator got mad at me for swearing. I mean, he’s my brother! What did they want me to do? They kept pretending like I just said the S word to myself, or called the kid across from me dipshit. I didn’t. I called Chris a dipshit. I got sent to my room as punishment. I didn’t even get to finish my stupid breakfast. 
+
+Regardless, my brother snuck into my room. He brought a candy bar and some cheese slices. My favorite lunchtime snacks. 
+
+“Sorry about that earlier, man. That sucks what happened with your dream. You really never had a dream before that, huh?” Chris asked.
+
+“Yeah, never. Is that not normal?’
+
+“Nah, not at all. I’ve been having dreams since I was a toddler. I just thought you never talked about them,” Chris sat down on my bed with me and grabbed a cheese slice from my hand. 
+
+“It was just…so real…are dreams supposed to feel real?” I asked, shaking a bit.
+
+“I mean, sometimes. Some nights I have dreams where I’m flying through the air like Super-Man! Y’know, saving people and doing cool shit. Other nights, I feel like I’m a little kid again…wondering if a monster is gonna come out of my closet, and it always does! I hate those kinda dreams,” Chris went on.
+
+“Wait…like you have had that dream more than once?” I questioned further.
+
+“Yeah, man! Totally possible, and pretty normal honestly. A lot of people have recurring dreams. Especially ones you like a lot. I don’t know why we have dreams, but a part of me thinks it’s because it helps us feel happy when we’re going through some stressful times, y’know?”
+
+“What about if that recurring dream is always…not ones you like a lot?”
+
+“Well,” Chris stopped to think, “that can happen, but if you’ve only ever dreamed once, then I wouldn’t worry about it too much, my man,” Chris smiled.
+
+ I didn’t. I was petrified. A bad dream? That comes more than once? Especially if it’s…THAT dream. Hell no. I did not like that at ALL. The night of the talk I had with Chris, I could barely sleep. I stayed up until about 2am trying to stay awake so I didn’t have that dream. However, I like my sleep, so I gave in.
+
+That night I had a dream. But it was a different dream. But being different isn’t always a good thing. The dream went as follows: 
+
+I woke up in a dark room. Lights slowly blinked all around me. On the ceiling, on walls, on weird metal stands I could barely see the outline of. I had no clue where I was. I felt around for some kind of light. I grabbed onto a small object. A lighter. It turned on the second I grabbed it.
+
+Dream magic.
+
+ I put the light up to objects around the room, and as I walked, I realized what I was looking at. It was some kind of…factory. The blinking lights were red buttons on control panels. I pressed one of them and the entire factory screeched on. Conveyor belts started moving, liquids started pouring, and lights flashed on. The entire factory was alive now, but there was no human besides me there. 
+
+I ran up to the belts that were moving small containers labeled with big words I didn’t understand written on them. I grabbed one, and looked inside it. A white liquid sloshed around inside. I dipped my finger in the liquid. As I did this, a burning sensation flooded my finger tip, and a rancid smell emanated from the liquid all at once. I threw the container back on the belt, liquid spilling everywhere. I ran to the nearest bathroom and ran my finger under the water faucet as the sensation swiftly disappeared.
+
+I paused and turned around. One of the bathroom stalls was not a regular old metal twist-latch door. There was a wooden door that had a golden handle on it. It seemed familiar. I walked over and pulled it down. When I walked through it, I felt a chill go down my spine that was so cold, I genuinely felt as if I was going to pass away then and there. 
+
+Before me, was a bed with a child sleeping in it. A blonde, white boy, with a striped blanket over him.
+
+My bed. 
+
+I woke up in a sweaty mess again, and looked around my room. I observed the clock as it pushed over from two-fifty-nine to three. The air stiffened. A chill crossed my space and intimidated me. A stale, dry feeling wafted around my room. I looked around anxiously at my window, my closet, and then my bedroom door. It was all as it should be. I looked back at the window, my closet- my door. My door wasn’t open when I went… I stared at it for what felt like hours. I was shaking so rapidly my teeth were clattering. I wanted to scream for Chris but my mouth just clammed up and wouldn’t make a sound. 
+
+As I observed a dark figure walk into the doorframe, my vision blurred and I began losing consciousness. The last thing I remembered of that night was a large body looking over me, barely illuminated by my red nightlight. It was long, lanky, and I made out skinny fingers that had one outstretched finger pointed directly at my head.
+
+I woke up later that day in a hospital bed. I was suffering from seizures that night, and was rushed to a hospital after the Admin heard me fall out of my bed. Chris was sitting in the chair next to my bed when I woke up, the doctors gave us some alone time after they had made sure I was stable. 
+
+“I was so worried man. What even happened?” Chris asked me.
+
+“I just…had a bad dream was all,”
+
+“A bad dream?” Chris yelled, “I’ve never had a bad dream give me a damn fit of seizures!” I remember he closed his eyes for a moment and brushed his fingers through his hair, “Before you woke up, you were sleep-talking about a tall guy looking at you. Was that part of the dream?” 
+
+“I… think so. But then again, I'm pretty sure that I was awake when…” I stopped talking. I don’t remember how long I stopped for, but Chris later told me that it was for a good couple of minutes, he tried to break me out of it.
+
+“Stop it dude you’re scaring me!” He shouted at me.
+
+“Sorry,” I shook my head wildly, “I just had the idea that…I am pretty sure the guy- he was like standing over me, he walked up to my door and-” My door. It was open when I woke up. “My door was open when I woke up. It was closed when I fell asleep. In my dream…” I postured myself upright in the bed a bit straighter, “I opened my own door in my dream, and I saw myself on my bed when I opened it. When I woke up, that thing was in the doorframe, with the door open-”
+
+“Come on man you’re creeping me the hell out! It was probably just a dream within a dream thing. Happens to me when I’m super worn out from the day before,” Chris interrupted me.
+
+“No Chris! I swear that’s how it went! It felt so real, I felt like I was in real danger,”
+
+“Yeah, that’s how dreams work, dude,” Chris seemed annoyed at this point, like he was the one who was struggling here. I didn’t feel like arguing, so I laid back down. 
+
+“Whatever. I’ll see you later,” I said to him in an annoyed tone, “Do you know when I’ll be out of here?”
+
+“The lady at the front said you should be checked out later today. The Admin said she was gonna pick you up,” Chris stood up and started out of the room, “See ya later man,”
+
+I looked up at the ceiling, listening to the buzzing noises coming from those horrible fluorescent lights, alongside the beeping from the heart monitor machine next to me. 
+
+That night I returned home, and was able to sleep in my own comfy bed. I remembered my nightmares. I didn’t want to sleep anymore. I locked my door, something the Admin hated us doing. I didn’t care. It wasn’t like I was doing something illegal.
+
+I laid there all night. I listened to the bugs outside my window hitting the glass idiotically. I stared at my door, making sure the lock never shifted, and the hinges never moved.
+
+That was the first night I never slept a wink. 
+
+Every day since the night of the seizure, I developed insomnia. Assuming you are not familiar with the term, I find it more than difficult to fall asleep, or get any kind of genuine sleep. I stay up nights not even being able to sleep at all, and feel absolutely exhausted the day after. It is a chronic thing that I had dealt with for years. It is possible for me to sleep, I would die otherwise, but it is more difficult for me to complete that task than the average person. 
+
+Due to this, I began to hallucinate some days. Sometimes I would hear voices in a quiet room, some days I would see my by-gone mother standing in a corner of a restaurant, staring at me. Every time I would hear or see these hallucinations, I just didn't acknowledge them. I noticed that it helped my nerves whenever they appeared. If I didn’t give them the time of day, they seemed not to bother me.
+
+ By this time, Chris was working in that chemical factory I talked about at the start of all this. I remember being scared when he told me. I told him about my dream…the one with my door, and he just laughed at it, telling me it was just a dream and to grow up. I begged him not to work there, but he didn't listen.
+
+As he got older, he started to push me off more. By eighteen he had a job and had coworker friends. I was just his lame, burdenful, insomniac little brother who just draws all day and can’t sleep a wink at night. I cried a lot at night. Most nights, actually.
+
+Chris stopped playing pretend with me. No more Dungeons and Dragons, no more Monopoly, no more sword fighting in the back of a crappy dollar store. He would also just ignore me most days, he wouldn’t even say hi to me at breakfast most mornings. I was all alone now. 
+
+The night of October 23, 2018, everything changed. I remember that date so vividly. I slept like a baby. However, I did have a dream. A dream I hadn’t dreamt in three years. The poison dream. 
+
+I stood in the same glossy, dimly lit room I once had years before, and stood around me were three pillars. Two of which now had a crack in them. With all three of the people standing in front of them now visible. They weren’t just dark shadows- they were people, or well, a single person, actually.
+
+Chris. 
+
+The three perfect replicas of my brother stood so incredibly still staring at me. I turned around and saw him. The same tall man I saw that first night I had a nightmare. He skipped over to one of my brothers, danced to another, and waltzed to the final one. I was horrified again, I was watching my brother die over and over again. Although, it felt…strange. After a moment of seeing the last brother fall to the ground… a sense of joy fell over my body.
+
+The tall man slowly lurched over to me. Each step he took made a loud clack, which was something I hadn’t noticed before. His large black dress shoes shone from the dim light trying its best to pour over the space. Once he got within a distance to which I could notice the wrinkles on his black clothes, he outstretched his finger, pointing it at my forehead. The man’s face came into the light, and my smile that had stretched out from my face grew a tad bit wider when I saw his facial features.
+
+He looked at me with a loving expression. As before, he said one word, and one word only:
+
+“Poison.”
+
+The man’s smile felt so familiar to me. I stood up straight and replied with one word to the man:
+
+“Poison.” 
+
+I woke up that next day feeling rested and recharged. My smile grew from cheek to cheek, something I hadn’t done since Chris and I had stopped playing pretend. I waltzed downstairs to the kitchen, and danced into my seat at the table. Chris was there watching me as I sat down.
+
+“Dude, you've gotta be the biggest idiot ever, you have the ugliest smile!” he looked at the other kids around the table and began to laugh.
+
+I just continued to smile at him and looked forward in another direction. I could tell my smile made him uncomfortable. It was funny. I was happy. I was now fifteen. I ate my breakfast, everyone but my brother sang happy birthday, and I smiled through all of it. Chris later came up to my room with his buddies from work and made fun of me.
+
+While they were calling me names and throwing out jokes at my expense, I stood up from my drawing area and glided over to Chris, with the biggest grin I ever had. He stopped laughing and looked at me. His friends watched as I walked closer. 
+
+I looked over at my drawing, that big smile was mesmerizing to me. I had been obsessed with it, that man in the doorway. I drew it over and over, every time hoping to get closer to making it as real as when I first saw him. I returned my attention back to Chris. The dark figure I saw in my dream, and drew on that sheet of paper, appeared several feet behind the boys. His smile shone to me from the hallway outside the doorframe. 
+
+As I moved within inches of my big brother, his bright blue eyes stared back at mine. His dimple slowly disappeared from his cheek as his expression shifted from a smile to one of discomfort. I noticed the hairs on his chin he forgot to shave that morning. His entire demeanor was one I hadn’t seen before on Chris.
+
+I lifted my index finger onto his soft forehead, and whispered just one simple word.
+
+“Poison.”
+
+The official statement noted the cause of death was by the ingesting of rat poison. The police department announced that no foul play was involved, besides that of Chris’ own doing. I often think back on our time together playing pretend. Sword fighting in the dollar store. Beating up villains with Spider-Man in front of the television. Arguing over who would get the bigger mansion when we were rich.
+
+ It's fun to play pretend.
