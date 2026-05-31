@@ -1,0 +1,124 @@
+I’m writing this because the recording said I wouldn’t make it past midnight.
+I know how that sounds. I did too, at first. But I’m out of other explanations now, and I don’t have much time left to pretend this is a misunderstanding.
+
+The voice recorder appeared in my apartment three days ago.
+I didn’t buy it. I didn’t order anything. It was just… there. On my kitchen counter, like it had always been part of the clutter I’d learned to ignore.
+Old model. No branding I recognize. Cassette inside already.
+The first thing I did was rewind it.
+
+There was a recording already loaded.
+It was me.
+Sleeping.
+At least, it sounded like me.
+Same breathing pattern I’ve heard in my own headphones when I accidentally leave voice memos running. Same small pause I take before I exhale fully.
+But the timestamp didn’t make sense.
+It was dated for the next day.
+
+I remember laughing the first time I heard it. Actually laughed out loud. I told myself someone was messing with me—maybe the previous tenant left it behind as a joke, or the landlord had a twisted sense of humor.
+Then I heard the second recording.
+This one had no sleeping. Just silence for eight seconds.
+Then my voice, awake, alert—too alert:
+“If you’re hearing this early, don’t go to sleep in that room again.”
+There was a click after that. Like the recorder being set down.
+
+I checked every room in my apartment after that.
+Nothing was different.
+Except I stopped sleeping in the bedroom.
+
+Last night, I moved to the couch.
+That’s when the third recording appeared.
+I didn’t record it.
+But it was already waiting when I pressed play.
+And it only has one line:
+“You moved. That’s good. We adjusted.”
+After that, there’s breathing again. Not mine this time. Too close to the mic. Too steady.
+And then my voice—again, but wrong somehow, like it’s being shaped mid-sentence:
+“You’re writing this down now. That means you still think you can leave before midnight.”
+
+I stopped the recording immediately after that.
+Because I wasn’t writing anything when I heard it.
+But now I am.
+And the recorder is on my desk again.
+Except I didn’t move it there.
+
+---
+
+I sat still for almost an hour after that.
+The apartment made its usual sounds—pipes creaking, the refrigerator compressor cycling on and off. But underneath it, I kept thinking I could hear something else. A low, almost imperceptible hum, like a wire vibrating inside the walls. Or maybe that was just my pulse in my ears.
+
+Around 10 p.m., I decided to test something.
+I took the recorder and placed it inside the microwave. Not to destroy it—I wasn’t that brave—but to see if it could still move on its own. I shut the door, didn’t set a timer, just left it there. Then I sat on the couch with a clear line of sight to the kitchen.
+
+At 10:17, I blinked.
+That was all it took. One blink.
+The microwave door was open. The recorder was back on the counter, red light blinking softly.
+
+I didn’t play it immediately. I made tea instead. I’ve never made tea in my life. But I needed something to do with my hands that wasn’t pressing play.
+
+At 11:03, I gave in.
+
+The fourth recording started with static—not the normal kind, but rhythmic, almost like syllables being erased in real time. Then my voice again, but layered. Two versions of me speaking at once, one slightly behind the other, like a bad echo.
+
+“You think the apartment is the cage. It’s not. The cage is the time between when you fall asleep and when you wake up. We’ve been living there. You just never noticed.”
+
+A pause. Then, softer:
+
+“Don’t check your bedroom closet.”
+
+I didn’t. I swear I didn’t.
+But my feet took me there anyway.
+
+The door was already open two inches. It’s never open. I keep it shut because there’s nothing in there except winter coats and a vacuum cleaner.
+
+I pushed it the rest of the way.
+
+The coats were rearranged. Not thrown around—rearranged. One sleeve of my parka was tied in a loose knot around the vacuum hose. And written in the dust on the wall, in capital letters large enough that I had to step back to read them all:
+
+YOU SLEEP HERE. WE WATCH. TONIGHT IS DIFFERENT.
+
+It’s 11:47 now.
+The recorder is on my desk again, even though I put it in the bathroom sink with a pot over it.
+I don’t know how it keeps getting out.
+
+My phone says midnight in thirteen minutes.
+I’ve been writing this whole thing on a notes app, but now I’m looking at the screen and realizing—I’m not typing anymore.
+These last few sentences are appearing on their own.
+Not deleted. Not overwritten. Just… added.
+
+The latest one just showed up:
+“You were right not to check the closet a second time. But we’re not in the closet anymore.”
+
+I’m not going to turn around.
+I’m going to keep facing the screen until midnight.
+
+That’s the deal, isn’t it? That’s what the recording meant.
+“You still think you can leave before midnight.”
+
+Not leave the apartment.
+Leave the story.
+Stop writing. Look away. Pretend this is fiction.
+
+But I can’t, because every time I try to close the app, a new line appears.
+The latest one:
+“Seven minutes. Don’t blink again.”
+
+I don’t know who “we” are.
+I don’t know why they need me asleep.
+But I know one thing for certain now.
+
+When I played the fourth recording again just now—the one I didn’t make—there was something at the very end I missed before.
+After the breathing stops, and after the wrong version of my voice fades out, there’s a whisper.
+Quiet enough that you’d need headphones to hear it.
+
+It says:
+“Midnight is just when we start talking back.”
+
+The cursor is blinking.
+I’m not moving my hands.
+
+Four minutes.
+The closet door behind me just creaked.
+
+I’m not going to check.
+I’m not going to stop writing.
+That’s the only rule I have left.
