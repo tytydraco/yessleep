@@ -36,7 +36,7 @@ The high school was called Bellhaven Regional High and sat on the west end of to
 
 I had been hoping that four hundred miles of distance might mean starting clean. It did not. A couple seniors asked outright whether the rumors were true within my first week there. One kid in gym class asked if I had ever been arrested before he even asked where I moved from. But honestly, the adults were the worst of it. I remember one teacher stopping me after class during my second week because another student had claimed I threatened him in the parking lot. The threat turned out to be me telling him to move his truck because he was blocking my car in. The teacher still spent ten minutes explaining that Bellhaven High had “zero tolerance policies regarding intimidation.”
 
-Bellhaven was small enough that I probably could have laid low and waited for the story to fade. I was considering doing exactly that when Summer Okeke-Pruitt sat down across from me during the second week of school without asking.
+Bellhaven was small enough that I probably could have laid low and waited for the story to fade. I was considering doing exactly that when Summer Okeke-Dirie sat down across from me during the second week of school without asking.
 
 She set her tray down, dropped into the seat, and looked at me across the cafeteria table. Summer wore oversized clothes almost constantly — hoodies with the sleeves pushed halfway over her hands, huge jackets once the weather cooled off, loose jeans — and her long twists were tied back that day with a faded blue bandanna.
 
