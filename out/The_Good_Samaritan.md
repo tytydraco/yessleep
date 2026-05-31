@@ -200,11 +200,11 @@ I saw it, a solitary, rhythmic flash of red in the distance. I limped towards it
 
 And there, tacked to the fence, illuminated by the flashing red light, was a plastic-sleeved flyer. On closer inspection, a missing persons flyer.
 
-I took a step closer, my curiosity getting the better of me. The face on the flyer was a smiling, bearded man in a pastel pink polo shirt. The text read: MISSING: GREGORY MORRISON.
+I took a step closer, my curiosity getting the better of me. The face on the flyer was a smiling, bearded man in a pastel pink polo shirt. The text read: MISSING: GREGORY M.
 
 I stared at the flyer, my mind refusing to process what I was seeing. The man in the picture was the man who had picked me up. The man who had tried to kill me. Or, so I thought.
 
-I studied the photo and found some slight differences , subtle but undeniable. The man in the picture had a scar that was thin and white over his left eyebrow. The man who had picked me up didn't. Other than that, their resemblance was almost uncannily the same. I looked down to read the details under the photo. Gregory R. Morrison, 38, last seen Tuesday evening. He was on his way home from a business trip in the city. He was driving a late-model silver crossover. He was last seen at a gas station just off Route 9.
+I studied the photo and found some slight differences , subtle but undeniable. The man in the picture had a scar that was thin and white over his left eyebrow. The man who had picked me up didn't. Other than that, their resemblance was almost uncannily the same. I looked down to read the details under the photo. Gregory M., 38, last seen Tuesday evening. He was on his way home from a business trip in the city. He was driving a late-model silver crossover. He was last seen at a gas station just off Route 9.
 
 The world tilted on its axis. My mind reeled, struggling to make sense of it all. The friendly smile, the rehearsed lines, the dead eyes. It all clicked into place with a horrifying clarity. That man, or thing, in the car wasn't Greg. The real Greg, then, the smiling man on the flyer, was the pale, blood-spattered hand I'd seen clawing at the trunk.
 

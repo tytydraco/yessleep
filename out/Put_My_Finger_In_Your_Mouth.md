@@ -1,0 +1,135 @@
+When I was ten, I read a story about a creep circulating on an internet forum.
+
+I wasn’t supposed to be on sites like that at that age, but my parents barely monitored what I did online, and by then I’d already seen worse than gore videos and fake ghost stories.
+
+The post was short and barely written properly. It told of some middle aged man approaching kids who were alone and asking if they would let him put his finger in their mouth. When the kids refused, he became insistent, following them and sometimes getting forceful…
+
+And that was it. The entire story.
+
+Then the thread disappeared. I distinctly remember thinking about how weird the whole thing sounded compared to the rest of the obviously fake stories on the site, but it didn't cross my mind much after that.
+
+Three years later during summer break, I was sitting alone at the park beside the canal near my house. I'd told my mom I was at a friend’s place, but really I just wanted to be somewhere quiet for a while. I was sitting on the swings listening to music on one of those old iPod nanos while I watched the water moving slowly beneath the bridge. The park was mostly empty, except for a few teenagers smoking beside the basketball court in the distance.
+
+Then I heard footsteps crunching over the gravel behind me.
+
+At first I ignored them, as people walked through the park all the time. But the footsteps didn’t pass me - they stopped. I took one earbud out and looked over my shoulder.
+
+A tall, thin man in his late thirties stood behind me. His greying hair was plastered to his forehead with sweat. He was wearing a dark blue hoodie despite the heat, and dark patches spread beneath the arms.
+
+“Sorry,” he said, as he cleared his throat. He shifted his weight between his feet.
+
+I stood up immediately and frowned.
+
+“Sorry,” he repeated. “Can I ask you something weird?”
+
+“What?”
+
+He swallowed, then glanced over his shoulder toward the canal path before stepping slightly closer.
+
+“Can you put my finger in your mouth?”
+
+Every muscle in my body locked.
+
+I hadn’t thought about that forum post in years, but suddenly it came rushing back so vividly it made my blood run cold.
+
+“W-what?” I stammered.
+
+“Just for a second,” he said quickly. “Please.”
+
+My heart started hammering.
+
+“No!”
+
+He stepped closer.
+
+“Please don’t walk away.”
+
+I should have run then, but I didn't. Part of me was terrified, but I couldn’t stop staring at him because the situation felt impossible. I thought for a second I must've been in the middle of a nightmare about that post I'd read years ago.
+
+Then the man lifted his hand toward me slowly, index finger outstretched. His hand was shaking violently.
+
+“I said no," I repeated.
+
+“It has to happen,” he whispered, taking another step closer, far too close as the panic locked me in place. "Please."
+
+Just then I heard laughter. 
+
+I turned to see the group of teenage boys wandering over from the basketball court, maybe sixteen or seventeen years old. One of them had clearly overheard what was happening.
+
+“What the fuck?” one of them laughed. “Leave the girl alone.”
+
+“Man, you’re a fucking creep.”
+
+The others joined in immediately, circling closer, but the man didn’t leave. Instead, he turned toward them so fast it almost looked desperate.
+
+“You’ll do it?” he asked. “Any of you?”
+
+The boys burst out laughing again.
+
+“Oh my god.”
+
+“Twenty quid says Tyler does it.”
+
+The man’s breathing had become shallow now. It was then I noticed something.
+
+His eyes kept flicking somewhere behind us. 
+
+Not randomly - repeatedly.
+
+“I just need someone to do it,” the man said again.
+
+One of the boys stepped forward grinning while the others shoved him toward the man.
+
+“Fine.”
+
+The relief on the man’s face was immediate. He stretched out his hand, and the boy opened his mouth mockingly. The man slid his finger inside and scraped it against the inside of the boy’s cheek for less than a second before the boy bit down hard.
+
+The man screamed and jerked away. The boys exploded laughing and sprinted away across the grass.
+
+I remember expecting the man to get angry, but instead he just stood there clutching his bleeding hand, staring after them with this look of absolute horror… Then again, he looked back toward the trees. The park had gone quiet.
+
+Against every instinct telling me not to, I slowly approached him.
+
+“Are you okay?” I asked.
+
+Up close, he smelled overwhelmingly of sweat. His pupils were huge and his face looked pale enough to be sick. Then he looked directly at me and repeated, louder this time:
+
+“Please. Just put my finger in your mouth for a second.” His eyes darted between me and the trees again, back and forth. 
+
+I finally followed his gaze to the trees beyond the canal.
+
+And that was when I saw it.
+
+A shape moved between the trees.
+
+Not clearly, just a black outline slipping behind a trunk the second my eyes focused on it. But something had definitely been standing there. 
+
+Watching.
+
+A cold feeling spread through my body so suddenly it almost felt physical. And then I ran.
+
+I burst through the front door shaking so badly my mum thought someone had attacked me. After calming down slightly, I told her there was a man harassing children at the park. I left out the rest because I didn't know how to explain it. She called the police immediately... and that should have been the end of it.
+
+But when officers arrived at the park, they found the man dead.
+
+Shot once in the back of the head. It must have happened sometime between me leaving and the police arriving. 
+
+My mum barely reacted when the news came out a few days later. She just muttered something about creeps getting what they deserved and changed the channel.
+
+There were never many public details about the case, and the entire thing vanished from attention strangely fast. For a while after that, I’d think back on what happened, but the horror of it gave way to an uneasy sense of dread. Not knowing how to put together what I'd seen, I eventually wrote it off as a bizarre childhood experience and filed it away for over a decade...
+
+Until this morning.
+
+I was scrolling through Facebook before work when a post stopped me cold.
+
+*Has anyone else seen the guy asking people to suck his finger at the Park?*
+
+My stomach dropped instantly as I scrolled down to the post. The story in the post was almost identical to the one I’d read online as a child. Identical to what happened to me.
+
+I swallowed as I opened the comments. Most people were calling him a freak, a creep, a pedo. But I just stared at the screen for a very long time after reading that.
+
+None of them knew it like I did.
+
+Then I picked up my phone and called the police. But this time, I told them everything, as I told it here. Not just about a man, but to look for someone else watching nearby.
+
+And this time, I sincerely do hope they find whoever... or [whatever](https://www.reddit.com/user/TwistedUrbanTales/) it is.
