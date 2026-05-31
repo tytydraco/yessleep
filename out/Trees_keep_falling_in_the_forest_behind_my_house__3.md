@@ -1,0 +1,217 @@
+Since the [last time](https://www.reddit.com/r/nosleep/comments/1t1506x/trees_keep_falling_in_the_forest_behind_my_house_2/) I posted about my peculiar problem, I haven’t been able to sleep.
+
+I laid in my bed, surrounded by safety of warm blankets. A shield from all the evil this world had to offer. My brain refused to shut off and rest, so I just laid there and stared. At slightly blue-gray ceiling, black walls adorned with countless white words and drawings.
+
+It could be the stress. Could be genetic predisposition to problems with sleep catching up with me. Or could be that extremely rare disease where human suddenly looses the ability to sleep. All that’s left then is to wait for death. Although I’m fairly certain the disease is just a myth. I could be wrong, in which case – what a horrible way to die.
+
+I laid in my bed and thought over my life. Choices and mistakes I made. Turmoil of my life manifested in bruises, on my body and soul. Broken bones, broken perception of myself. Despite my body being closer to thirty than twenty, my mind instantly reverted back to nine the second he walked into a room. I couldn’t help but think – would it be better if that thing, that moving mound of dirt, caught me? Would I feel like this? Useless, lonely. Maybe I would belong there. Maybe-
+
+*Tap.*
+
+All my thoughts vanished, leaving me with black canvas. Fear grabbed paint and got to work. What could this… thing… look like?
+
+*Tap, tap, tap.*
+
+As much as I wanted to see it, I pushed the painting away. I tried to block out the sound. Even thinking about failure of my life smelled like fresh flowers in that moment.
+
+Four sounds. Four taps against cold glass. Like four drops of water that caused the flood.
+
+I decided to run away. Not from home, I never felt like I had one. From my life as a whole. I needed to get away, start over. Build from the grave up.
+
+Warm blanket turned into a suffocating cage. Black walls became a prison. I felt something move in my chest. Like a parasite I tried to burn for years. It did not die in any way that’s important. It laid dormant. Waited for the perfect moment. Such like this.
+
+*Tap, tap, tap.*
+
+Monster waited patiently, but made itself known. In subtle ways it always walked with me, but never attacked. Mere fact of its presence filled me with bottomless dread. My shadow moved on its own in ways only I noticed. A twitch here and there, quick unexplainable darkening of the shape of me, quick movement disappearing around the corner where there was no corner. It choked me, filled my throat with tar. Clogged, stuffed it full so only few atoms could pass through at once. The anticipation of an attack that never came.
+
+I looked at the duffel bag in front of me. The only thing I could bring with me aside from worn out backpack. So many things I had to leave behind. Collection of books and bones, CDs, black walls adorned with my own writing, old beloved furniture I collected over the years – equally as unwanted as me. I packed only most important things. Few changes of clothes, basic toiletries, medical history, medication. Although I didn’t know why I felt the need to bring with me the latter. Sleeping pills didn’t work anymore. I could as well flush them down the toilet. Small thing that once granted me a moment of peace of mind, shape of tiny coin in color of fresh salmon meat. I stood and stared at white and blue packaging. It looked back at me.
+
+Why was I still alive?
+
+After all those years. It had countless opportunities to kill me, but instead it settled on silent observation. A torment. It chased me, but only in the forest. Was it keeping me alive for something? What did it want if not my death?
+
+I zipped the bag shut. It felt heavy on my shoulder. I carried twenty six years down the stairs. Silence followed me like a stranger I never met. Meaningless hug, and a second, and third, then fourth. Some cliché words exchanged, void of any promise. *Call us* and *Visit us.* Or *We’ll visit if we can.* I closed white door with rust specs already eating away at the metal beneath the paint. All four of them probably stood in front of the house I grew up in. The place I never left for more than two weeks at a time. Maybe they waved. Probably not. They probably just stared, maybe exchanged some words about me. I wouldn’t know, because I never looked back.
+
+Driver tried to make some small talk. I answered as well as I could. I never learned how to talk to people. How to make connections that lasted more than a month. Awkward silence hasn’t been broken by any of fellow travelers, so I too put on my headphones to drown it out. To run away from it as I did with all my problems.
+
+First hour of my journey to new life. We passed meadows, farmhouses, seas of golden wheat and green pastures. Grazing animals looked at us, still grinding grass to dust between molars. Trees lined the road mot of the way. None of them were broken.
+
+By the third hour I closed my eyes. Sleep tried to take me into peaceful, silent void, but something prevented this from happening. Each time something else. Other passenger’s phone rang so loud I heard it over the sound of music blaring in my ears. She spoke equally loud. Her shrill voice shot needles through my brain. After she stopped talking with ‘her darling son’, driver didn’t slow down before bigger hole in asphalt. The whole van shook violently. I decided to power through without sleep. Maybe this was the best course of action anyway. I knew what lurked in the darkness. Waited patiently. For me? For the right moment to strike? Who knew.
+
+I unbuckled my seatbelt for a second and leaned forward to reach under my seat. My bag felt even heavier now as I pulled it out. I rummaged through the contest of smaller pocket in search for the one book I brought with me. To my surprise, I saw another one right next to it. Unfamiliar with the size and edges of hardback cover I pulled it out. Thick and heavy. Complete mystery wrapped in brown, tattered paper, held together seemingly only by thin, linen twine. I knew better than to open it. The present could as well be a trap. I was running away from something I didn’t understand and during my journey I found a book which inexplicably made its way into my bag? No, thank you.
+
+Sudden pressure on my forearm startled me. Book almost tumbled to the ground, but I caught it at the last second. The woman who talked loud on the phone earlier was looking at me.
+
+“Are you okay?” She asked when I pushed headphones off my ears. Barely contained curiosity in her eyes rubbed me the wrong way. “You’ve been looking at it for the last hour.”
+
+I felt immense urge to hurl that book out the window. “Uh, yeah, I’m fine. I’m listening to audiobook and probably got lost in it a bit. Thanks for checking in.” Woman didn’t look convinced, but that was all she would get from me. Once again I lost myself in music – the only peace I’ve ever known.
+
+I still didn’t want to believe anything weird was happening. Or I just tried to will this into existence. Nevertheless, I tried to reason how anything got into my bag without my knowledge, but for the life of me I couldn’t come up with anything. In my desperation I wrote to both my siblings.
+
+*Hey. Did you put anything in my bag when I was in the toilet?*
+
+Van screeched to a halt. Seatbelt dug painfully into my body, pressed into my skin as if desperate to cut through it to get to my blood. I pushed headphones off my ears to ask what happened, but all I heard was Loud Nosey Woman hurling insults at the driver. “Where did you learn how to drive!? This is your fucking job and your performance is unacceptable! I will be filing a complaint after this trip is over!” Thankfully, I caught only the tail end of it. Driver, seemingly not phased by the screaming, calmly exited the vehicle. Other passengers tried to calm the woman down, but she firmly believed in her own version – it was all driver’s fault. I craned my neck to see what sparked the commotion in the first place.
+
+In the middle of the road stood moose. His head hung low, weighted down by giant antlers, and bobbed slowly from side to side.
+
+My first thought – rabies. Any time wild animal behaves weird it’s best to avoid it and contact whoever in power – police officer, forester, veterinarian – and they either will ask for all of the details to pass to correct institution or just tell you where to go. In no situation should you approach the animal.
+
+Something scraped against the asphalt, something hard and big.
+
+I felt blood drain from my face. Memory popped up in my mind and forced its way to the front of my brain. It was hazy, as if I looked at it through murky water during algal bloom. Grandma Maria stood in the shade of our apple tree, one of many. She turned her head up to meet my eyes as I pressed my cheek against coarse bark. Sweet smell of surrounding flowers overwhelmed me, I could barely make out strange tone of my grandma’s voice, one that I would hear more and more often.
+
+“Bad things happen to people who leave this village.”
+
+Moose took another step, this time faster. “Get the fuck back in!” Scream almost shattered my eardrums, but it did work. Driver stopped filming approaching animal and hopped into his seat to reverse. His movements so nonchalant and calm as if it was just another day. Van turned around and for split second, when it stopped parallel to the road I saw eyes. Milky white, yet darker than any night I ever lived through.
+
+Hand reached out of the deepest depths and lunged for my throat.
+
+Loud Woman chewed driver’s ear off. She went on and on about suing the company, endangering her life – not *our lives*, her life specifically. Others joined her at first, but with each passing minute they crumbled away into their own post-adrenaline-rush exhaustion. I don’t know when my headphones died. Hour ago? Two? I wouldn’t be able to tell. My body refused to move even a centimeter. When did I blink last? Was I even breathing?
+
+“Bad things happen to the people who leave this village.”
+
+Coincidence. Plain and simple. A collection of factors conducive to events which could be perceived as fate, a predestined future. Everyone in their life heard something similar. “Leaving this place is risky!” and “Future anywhere else is uncertain!” Following incidents then seemed like fulfilled prophecy.
+
+But I’ve heard of more accidents than weddings. More funerals than births. More people mourned than celebrated life.
+
+Dying village full of old people, disabled people. Those who spread their wings just for them to be cut off and the carcass to be tossed back into our territory. But there were few who moved out and lived a good, happy life.
+
+Then why me?
+
+Muscles around my dry eyes twitched, forced eyelids to close – a painful movement of steel wool scraping against wood.
+
+No. It wasn’t just me. My aunt, all three of her kids, my grandfather, his brother, whole lineage of that side of my family. They went out into the world, tried to make something of themselves. They all came back hurt, came back wrong, if not physically then mentally. Or came back in wooden box. It took months, sometimes years to conclude them crawling back. But they all did. Without exception they all came back to be laid down in the ground they grew up on.
+
+Tears flooded my vision. I remained comfortably empty without any space left for any emotion. My eyes fell on the leather. I caught the last of my hands’ movements as they settled, like children hiding something from their parent. From the corner of my eye I saw Loud Woman make a face, try to sit as far away as our tight seating allowed her to. I stroked the cover, this time consciously, deep down enjoying what I saw in her eyes.
+
+During the next stop, she demanded the big, burly man switched places with her. He put up a good fight when he thought I didn’t hear them.
+
+“With all due respect, I’m too wide to sit in the middle. Ask that woman or driver’s son.”
+
+“I wouldn’t want to compromise their safety.”
+
+Hot, bitter coffee flushed the last of the meal down my throat. If you could call a dry bun a proper meal.
+
+“Oh, so you’re not concerned about my safety then?”
+
+“You’re much bigger than her. If anything happened-”
+
+“And what do you think can happen? She’s been quiet and calm all this time. Why am I even arguing with you? I’m not switching. That’s final.”
+
+His shoulder pressed into me. I know he tried making himself as small as possible, but to fit comfortably in the middle seat he’d have to break both his collarbones. Only about three hours remained of my journey. Not that it mattered. I barely registered the world around me anymore.
+
+*Hey. Yes, I put grandma’s journal into your bag. You know, a parting gift. I know you’re into things like what’s inside so I think it’ll be better for you to have it. I don’t know why granny didn’t leave it to you in the first place.*
+
+I stroked the cover. My heart guided my fingers to the buckle, yearning to get to know the content. I stopped myself at the last second every time. I pressed my scolding hot forehead to the cool dark glass.
+
+Pain shot through my head in hot white flash. I felt my eyes open, but darkness persisted. Lips parted to let out at least a fragment of my agony, but no sound wanted to be away from the madness. It pressed up against my skull from the inside, stretched my intestines and stomach until they almost burst. I rolled over. Pain spilled out my lips onto wooden floorboards. They met in quiet splash. Cold sweat poured out of every crevice of my body. I trembled – in fear, in pain, in anticipation. Another wave came soon after. My body contorted, wrapped around itself.
+
+It’s been few weeks now. Each night looked the same. I went to sleep, woke up suddenly just to puke my guts out and writhe in pain until sunrise. I came to completely different country to work and I wasn’t able to do even that. Company manager sat me down. I knew what she’d say before she opened her mouth.
+
+Last night of the nightmare. Fear of excruciating pain kept me awake. I sat up on my makeshift bed – a blanket laid out on the floor. Darkness surrounded me, consumed me, pushed against my body feeling for a way in.
+
+*Tap tap tap.*
+
+Notebook laid on the bottom of my bag, hidden away under the real bed. A bed I left untouched since my second day here in fear of dirtying it again. I slid my hand across the floor, feeling for the strap. I pulled the bag towards me. My fingertips danced across smooth, soft leather cover. Small belt came undone and once again I peeked inside. Simple log book from the start of World War I. First page marked handwritten contract between ten or so families. Everyone was mentioned by full name. All in all I think around fifty people signed it, their varying handwriting adorned whole three pages. I flipped the pages. Page six was left blank. After that there were a lot of names. And dates. Full government name, hyphen, date. Most of them written in black, some in blue.
+
+My first thought – this was a log book of an old timey crime ring who smuggled people. But I noticed a lot of last names repeated. People written into this book had the same last names as people who signed the contract on the first page. After fifteenth page last names started to change. I compared them to the signatures on pages three to five. It all matched with comments left next to some signatures about last name changes, through marriage or divorce. I skimmed the pages, curious to see if I recognized any of the people mentioned.
+
+*Tap tap tap.*
+
+Excruciating pain shot through my spine. Electricity jumped from one nerve ending to the next. My teeth ground against each other, enamel cracked and splintered away.
+
+I saw some last names I recognized. Everyone mentioned lived in my village – one of the natives to this land. To tune out the pain I tried remembering who lived in which house, what they looked like, what I knew about them.
+
+Soft night shirt soaked up all the cold sweat my skin produced.
+
+Near the end of the notebook only three last names repeated. Then only two. I stared at lines on the paper. Familiar handwriting – like this of a handicapped chicken – stared back at me from yellowed pages. Names so familiar sent shivers down my spine. Why? It shouldn’t be weird. This was grandma’s journal. It shouldn’t be weird. My grandfather’s writing could very well be in it. It shouldn’t be weird. I turned the page and saw white. It shouldn’t be weird. My name, there on the page, along with my date of birth. It shouldn’t be weird.
+
+*Tap tap tap.*
+
+And the names of my siblings, their birthdays. Names of children I heard about once, but they did belong to the family. It shouldn’t be weird. But it was. Notebook containing only a contract and names of the descendants of those mentioned?
+
+*Tap tap tap.*
+
+Early morning sun didn’t have my attention. Shadows danced under my bloodshot eyes as I packed my belongings. Once again the awaiting journey filled me with dread, but this time for entirely different reason.
+
+Milky white eyes flashed in my mind.
+
+“Bad things happen to the people who leave this village.”
+
+I pushed past all the people waiting for the driver to open the door. Muffled grunts and whispers flew around me and I paid them no mind. Door opened. Like a ghost, I appeared in the furthest corner of the small bus. I plopped down on the window seat and pulled out the notebook.
+
+First I chose someone born in 1950s. Internet had many search results for me, but none of the people seemed to be the one I looked for. I tried adding the name of my village. Still nothing. I chose the next on the list. Nothing.
+
+Nothing.
+
+Nothing.
+
+Nothing.
+
+Nothing.
+
+I nearly jumped out of my skin when phone I’ve been holding started to buzz. I tried calming my wild heart before answering.
+
+*Tap tap tap.*
+
+“Hey. Can we talk?”
+
+I looked around. People slept in every uncomfortable position imaginable. Only few squinted at their phones, trying not to fall asleep.
+
+When did sun set again?
+
+“Yeah.” I whispered, not wanting to draw any attention to me. Notebook laid on my lap still open. I managed to get through all the people born in 1950s, 1960s and I just started on 1970s. I looked down on it as my mother stumbled through her words. I couldn’t hear her. I stared at the year 1973. It looked much different the day before.
+
+“Are you there? Hello?”
+
+“Uh, yes. I’m sorry, the reception is spotty. What did you say?”
+
+I could hear my mother sigh and try to hide it. “I said aunt Anna had an accident. She didn’t survive.”
+
+I think I realized that before my mother even said it. Something in the way black ink glistened in dim light, as if still fresh, told me that. Curiosity got the best of me, I pressed index finger into her name. It didn’t smudge, not even a molecule of ink moved out of place on the page.
+
+But it transferred to my fingertip.
+
+“I’ll be back in time for the wake.” I said absentmindedly, realizing my mother waited for me to respond again. I didn’t know what she said. I think she knew that, because she only told me to call them when exactly I’d arrive back home and hung up.
+
+Most written in black, some written in blue.
+
+“I’m sorry for your loss.” Quiet voice slithered up to me. I smiled and threw equally quiet thanks in the rough direction it came from. My eyes quickly returned to the notebook in my hands.
+
+The more I stared at the yellowed, delicate pages, the more I felt my brain dissolve. It sloshed around in my skull with tiniest movements. I could barely make out written words in dim light my phone’s screen produced. Yet I read them again and again, and again. By the time clock struck 3am, I probably could recite the contract word for word. Short few sentences about relocating and keeping each other accountable, as well as safe. Worded strange, but it was contract written at the beginning of 20^(th) century. Language evolves constantly, words become less or more used.
+
+Relocating?
+
+What did I know about the village I was born in and lived all my life? Close to nothing. It’s not that uncommon actually. History taught in schools focused on biggest, most relevant events, places and times. Villages like mine were often omitted from books or even official documents.
+
+Relocating.
+
+A lot of people relocated at the start of any war. Did any of them formed a pact with another families and put it to paper? If so, it’s not really common knowledge. And what was it about keeping each other accountable?
+
+Exhaustion finally cut me away from reality and I fell into dreamless void. Much needed rest didn’t last long though. Three hours later someone shook me awake. I got up, still groggy with only one eye barely open, and shuffled out of the minibus. There was no tearful reunion. No one waited for me by the gate or even opened the door. My bag hit the ground, feet followed familiar route to the kitchen. I saw movement out of the corner of my eye and instantly forgot why I walked there. I could just stand there and look. He looked back. Few painfully slow heartbeats passed before I managed to turn away. I grabbed strap of my bag and almost ran up the stairs to my room. To safety.
+
+I didn’t stay long at the wake. It’s not like I liked to look at dead people and I wasn’t that close to aunt Anna. Our relationship could as well be described as strangers since I began distancing myself from my relatives around the age of fifteen.
+
+He saw me move to stand up and shot me a look. I saw devil’s face and it wore my father’s anger.
+
+I pretended I didn’t see that and quietly left the room on trembling legs. I drove home slowly, more so than usual. Front door shut behind me. I stayed in one place, in the dark. Haven’t moved a muscle. Just cried.
+
+Bottle sang sweet nothings from the closet. It never sounded more enticing, but I resisted. With all my might I focused on my breathing. I needed to turn on the light. I needed to do something. To change. Myself, my life, anything. I needed a change.
+
+But I tried and failed. I went to a different country to start new life, got sick and had to come back to the place I wanted to ran away from, the source of my suffering.
+
+The source of my suffering.
+
+I looked down at light brown wood. Priest’s croaky wailing, an attempt of leading black shapeless mass of mourners, sounded in the background. I stared. Bored holes in shiny, polished wood. No matter what happened, we all end up in the wooden box. Cremation and ashes in urns weren’t common practice in my country, especially not in my village.
+
+What did I know about my village? Close to nothing. I decided to change that. Better that than standing in place and letting life pass me by.
+
+I looked down at the light brown wood. Heavy dark clouds hanged low. If I wanted to I could reach my hand up and touch them. Scoop a handful and toss it at my sibling like dirty snow on the side of the road. But I didn’t. I only stared at shiny wooden box containing my aunt’s body. Four men in pristine black suits put on their white gloves. Priest wailed another, hopefully last, prayer. Box slowly disappeared into the hole. Black shapeless mass of mourners stepped closer to throw a handful of dirt on the lid. No one looked inside. No one had time when another person behind them already grabbed their piece of dirt to throw. I stood on the other side of the grave with only gravediggers and funeral home’s employees behind me. I bent over to join the ritual. And I looked. Down the dark hole, encased in shadows. For some reason I thought about milky white eyes of a moose.
+
+Earth shook slightly and opened. Black tendrils wrapped tight around the casket. Wood creaked and first cracks began to form before it got pulled in and the earth closed again.
+
+I stared at the light brown dirt. Big hand moved me gently to the side. Gravediggers grabbed their respective shovels and moved all the dirt back into the hole they dug. Mourners still cried and sniffled, priest still wailed, sky was still covered by thick black blanket. No one noticed a thing.
+
+I stared at the empty grave.
+
+I needed to know more about my village.
