@@ -1,0 +1,245 @@
+I wasn’t delusional enough to think that I could compete with trained Search and Rescue Officers. If there was something left of Thomas that the dogs couldn’t sniff out. Some sign that the infrared helicopters couldn’t spot. That dozens and dozens of park rangers and military volunteers somehow failed to see, I didn’t think I had any chance of finding it. But what I did believe was that they conducted their search logically. And that perhaps Thomas hadn’t behaved logically when he got lost. 
+
+If he even got lost at all. 
+
+And no one else was going to go into the woods and try to find him based on something completely illogical. No one else but me. Because he was my best friend, and even though the searchers were packing it in, I wasn’t ready to give up on him. 
+
+With each hour that passed on my journey into the middle of nowhere, with every mile I covered, I felt more and more sure that I was on the right track. And I felt more and more certain that Thomas had not gotten lost in the woods. I believed that something had lured him away. 
+
+Searchers had only had a few hours between when I sounded the alarm and when a storm came through the area, but it was enough time to garner something very peculiar. Thomas had been heading exactly in a straight line. 
+
+Thomas had told me that he was hiking a short backpacking loop over the weekend. But the dogs that the rangers could scrounge up on short notice were certain that he’d left the trail the second it swung south. He’d kept going, straight northwest. And just before the rain began, the dogs tracked him going into a small lake. We might have worried that the answers were in there, but just before the rain washed everything out, the dogs circled to the other side, and they picked up his scent. Exactly northwest. As of he’d swum through the lake in a perfectly straight line so as not to lose his heading. 
+
+And it was this heading that I was now following. The rangers had searched in a circle, about 10 miles in every direction from where he vanished. Because they assumed he was lost. I was assuming he wasn’t. I was assuming he had gone somewhere. And wherever it was, I was going to go there too. 
+
+When I reached the lake, I didn’t swim through it. Markers left by searchers ensured I wouldn’t lose my path. But past that, it was up to me to keep perfectly northwest. 
+
+And over boulders, down steep hills, and through creeks and shallow branching rivers, I kept to my path. And as I saw broken sticks, freshly turned leaves, and even the occasional footprint, I felt increasingly hopeful that Thomas was still alive. I was certain I could still find him, wherever he’d gone. 
+
+As I got deeper into the woods, the hills grew taller, and the land felt older. That was a correlation throughout all of the wild places in our state. There was enough flat land that the spots with hills, caves, and ravines were left alone simply because they were more difficult to civilize. So as the hills grew taller, so did the trees, and the flora and fauna grew older. 
+
+Plants that had been spared the glaciers thousands of years ago were also spared the axe when humans came through. The honeysuckle of the plains was replaced here with waxy-leaved rhododendrons. Ferns and moss took the place of the lowland grasses. And the shaded streams were all lined with bamboo.
+
+Down here, there were rattlesnakes and bears, beasts long ago driven out of the farmland just hours north. And even older reminders of the past stuck around. The honey locust trees with their giant thorns stood at the ready to protect them from mammoths and ground sloths that hadn’t troubled them for millennia. But the thorns did a great job of protecting those trees from me, and slowing my pace when I had to bushwack in their presence. The threat of rattlers and cottonmouths kept me going even slower still.
+
+I loved the woods dearly enough to know that it was not a safe place. That danger could be lurking under every rock, around every bend. That was part of what made it so special. 
+
+As I sweated and slogged through the brush, I found myself enjoying parts of the hike. It had been so long since I’d been able to commune with the woods, and I’d missed it. Enough to find myself forgetting for brief moments why I was out there in the first place.
+
+The sun-dappled leaves, the birds that were so much more plentiful than in the young woods back home, would lull me into almost a trance. Then I’d snap out of it, and I’d remember Thomas’s life was at stake. I’d turn my eyes to the ground, my eyes watching for snakes and thorns and poison ivy. And above all, watching for tracks. 
+
+But the further into the woods I went, the more the almost perceptible boot prints vanished. And the more I found myself trying to divine meaning from dents and slips in the mud that could have been nothing more than the natural imperfections of the ground. But I so desperately wanted them to be signs. 
+
+As the sun started to grow low, I kept watch for clearings and flat spots. But the woods were thick and unforgiving, and eventually I settled for an old tree well. I left my tent packed and just set up my tarp, tying one end to the ripped-up tree roots, and staking the other end in the dirt. 
+
+Normally, I slept like a baby in the wilderness. But that night, jammed into the shallow tree well, with the roots and rocks digging into my back, and dark thoughts digging into my mind, I hardly slept at all. 
+
+As I mentally tossed and turned, because physical tossing and turning was impossible in the hole I slept in, I pondered what exactly it would mean if I found Thomas. I wondered what state I might find him in, if I did find him. And of course, I wondered what exactly he might be looking for out here. I wondered if it might be something he’s been searching for for a long time. 
+
+Because this was not the first time Thomas had gotten lost in the forest. In this forest no less. 
+
+I’d heard the story dozens of times over the years; it had happened just a bit before we met. And as we grew up, his parents told it with more and more levity, as time helped them forget the true terror of the experience.
+
+It had been the middle of summer. A decade ago, half our lifetime ago. Thomas and his family were camping at a park much further north. Different park, sure, but it was the same forest. 
+
+And just as they were gearing up for a night of s'mores and scary stories around the fire, Thomas took off. His parents watched him wander slowly, but purposefully, into the trees. And they figured he just didn’t want to make the trek to the camp bathroom. 
+
+But as the minutes ticked by, and he didn’t emerge from the dark woods, they knew something was wrong. When they called in the rangers, they could only do so much in the dark. 
+
+They found Thomas by chance the next day. He’d been spotted walking through a farm, six miles away. And the man who spotted him had to yell his name over and over again to get his attention. He’d said Thomas was so tired, so dehydrated, he was almost in a trance. 
+
+Once he recovered, his parents started quizzing him on why he’d left. And he said he’d spotted a dog, and he was worried it was lost. But it kept running away from him, just out of reach, and by the time he gave up, he was completely lost. But Thomas was hardheaded enough back then that he was sure if he just kept walking, he could find his way home. 
+
+In preparation for this journey, I’d dug up the old news story where they’d interviewed the farmer who found Thomas. And I’d traced a line from his farm back to the campground Thomas’s family had been staying in. If he’d gone in a straight line, he could have been heading south and a bit to the west. Towards the primeval center of the national forest. Woods that had been spared any logging, even hundreds of years ago. True old-growth forest. 
+
+His heading when he’d vanished this time, straight northwest, left from a very different vantage point. But it also pointed towards those ancient woods. 
+
+I’ve always believed in supernatural things, even if I’ve never been lucky enough to witness them. And that was a coincidence I simply couldn’t ignore. I’d become convinced that something had tried to call Thomas away all those years ago, and it had failed. But this time, it had called him away again, and, this time, perhaps it had succeeded.
+
+After my night in the tree well, I was sluggish. I felt both the lack of sleep and my lack of recent exercise. I was no stranger to the woods, but it had been a long time since I’d hiked like this. 
+
+I had a satellite phone and a portable GPS with me. And Thomas was supposed to have one or both of those things with him as well, but if he did, he wasn’t using them. 
+
+I checked my progress on the GPS and saw I’d covered serious ground yesterday, enough to move slowly today and still reach the center of the forest well before nightfall. 
+
+By mid-morning, I was already noticing a change in the trees. They reached up higher, and the trunks grew wider. And the extra sun between them made the undergrowth denser, snagging at my shoes and my pack and slowing my progress.
+
+Though my arms were sluggish, and my eyes heavy, I kept careful watch of anything that might signal I’d reached my destination. I was certain that whatever had called Thomas out here, well, it would be noticeable in some way, wouldn’t it? 
+
+I kept watch for some grand waterfall, or a massive cave, anything at all to signal that there was something otherworldly here that had unfinished business with my best friend. And as I failed to see any sign of something wondrous, I started to grow jealous that I myself couldn’t sense whatever it was out here that called people away. I was jealous that Thomas had some mysterious cosmic connection that I was lacking. 
+
+It was an irrational feeling, of course. Because for all I knew, something terrible had happened to him in these woods. But still, he was deemed worthy enough to meet a mysterious fate that I’d been spurned, and that hurt. I’d grown up camping and hiking in these woods just as he had, and they’d never called me away into the dark. 
+
+After hours of hiking through the ancient woods, I checked my GPS again. I was right in what should be the center of the forest; if anything, I was a little past it. I started to wonder if maybe I was being delusional. 
+
+I peered into the forest desperately for some mysterious clearing, some elusive animal. Any kind of sign that there was something fantastical here. That Thomas had not simply gotten himself lost in the woods and was either starving or already dead.
+
+My tired eyes grew even heavier in the afternoon sun. Just as I was contemplating lying down and taking a nap, I spotted something ahead of me in the brush. 
+
+I saw a hand first, skeletal, filthy, and clawed around a tree. And after I flinched, after I recognized it for what it was; something human, I forced my eyes to look further up the trunk. And there I took in his features all at once. Dark hair, eyes that looked just as tired as mine, and a face that looked almost familiar. But not so much that I recognized him right away. And that scared me. 
+
+It was Thomas, but his time lost in the woods had made his cheeks sunken, and his flesh leathery; he was borderline unrecognizable. 
+
+“Thomas?” I meant it as a greeting, but it came out as a question. He didn’t say my name back. And the way he looked at me, peering from behind the tree, unsettled me. Like he was watching me with eyes that didn’t recognize me at all. Eyes that had somehow forgotten we’d been best friends since middle school. 
+
+“Thomas, it’s me.” I said, “I came to find you, to bring you back.” 
+
+He studied me a second longer, and I fought the urge to back away. I fought the urge to run. 
+
+Finally, he came out from behind the tree, and I was shocked at how thin he looked. Even under the ratty flannels and jeans, I could tell he was all joints and sharp angles, poking out beneath the thin layers of fabric and skin. 
+
+And despite the alarm bells going off, despite the escalating instinct to run away, I walked up to Thomas, and I hugged him. He was all tendon and bone. And strangely, he seemed a little taller than I’d remembered. He took a second, but eventually he reached his skeletal arms around me. 
+
+I broke out of the hug. “Sorry, what am I doing? Here, let’s get you some water and food, and here I can call the rangers -” I handed him my water bottle and pulled my pack off to unzip the pocket I kept my satellite phone in.
+
+But the pocket was already unzipped, and the phone was gone. 
+
+I had my camping knife in that pocket as well, and it too had vanished. “What?” I said. Then I thought of Thomas’s bony arm reaching around me, around my backpack. But I pushed the thought away; it was nonsensical. 
+
+Thomas studied me with eyes devoid of any affection, of even the barest hint of familiarity. And I realized I hadn’t yet heard him speak. 
+
+“My sat phone was right here, right in this pocket. Will you help me look for it?” And he didn’t answer, but he nodded, and together we searched through the brush, on hands and knees. I waited for him to break the silence. But he didn’t.
+
+“Thomas, buddy, how are you doing? Did you drink any water?” I saw the bottle sitting untouched on a small boulder. But I just wanted him to answer me. 
+
+And as he studied me with feral eyes, eyes that seemed to be assessing me, I thought of all those stories you hear of things that look like people but aren’t. And I tried to brush that thought away, too, but it would not leave. 
+
+Then finally, mercifully, he broke the silence. 
+
+“I’m not supposed to drink the water.” And with those words, in what was unmistakably his voice, I calmed down just a little bit. And I figured he was probably delirious. 
+
+“It’s okay to drink this water; it’s been filtered.” I stood up, my hopes of finding the satellite phone and the knife slowly fading. 
+
+I opened the water bottle and held it up to his face. 
+
+“Where am I?” He asked me. 
+
+“You got lost for a while, but I’m going to bring you home. But first, I’m going to need you to get hydrated a little bit.”
+
+He narrowed his eyes, as if I was trying to trick him. But he grabbed the water bottle, and he took a few swigs. And even though it was cloudy with iodine and dirt, he said, “That’s amazing.”
+
+We sat down, and I explained to him we’d have to hike out, because my sat phone was gone, and my normal one wouldn’t get reception even if we were all the way back in the trail parking lot. But I’d brought extra food, and we could filter all the water we needed.
+
+I tried to coax him into eating a protein bar, and he said, “I'm not supposed to eat the food.” 
+
+After lots of assurances and after taking a bite myself to demonstrate it was safe, he finally wolfed it down. 
+
+I remembered learning in school about people who were rescued from starvation situations, prison camps, and the like, who died from eating too much too quickly. So I told him that was probably enough for now. 
+
+We checked one more time for any sign of the satellite phone, the camping knife, but they were gone. And with that, we were off. 
+
+Thomas kept pace with me surprisingly well. And I gave up on conversation, quickly. I just needed to get him home, where people more qualified than me could figure out how to help him. 
+
+We made it over halfway back before the sun began to grow low. I started looking for a spot to camp. And this time I found one almost right away. It was a small clearing, one I hadn’t remembered passing on the way in.
+
+When it came time to build the fire, Thomas took over instinctively, and I let him. And once it was going, he said: “That’ll keep the monsters away, right?”
+
+And I told him it would. 
+
+We split a dehydrated meal; I would have felt bad eating too much when he couldn’t. I talked to him about how much everyone was missing him, how hard they’d been trying to find him. He only gave small nods or vague sounds. It was like talking to a brick wall. 
+
+I caught him up on other things too, because it had been a few weeks since we’d last seen each other, even before he vanished. And I couldn’t stand the thought of sitting in silence. 
+
+He absorbed it all, listening closely and watching me strangely. 
+
+It reminded me of when we were young and both outcasts. Both slow to figure out those nuances that made others feel at ease, that made one likeable, soacialble. In middle school, he’d lagged further behind, and I’d catch him watching me, studying me as I started figuring things out. As we went into high school, he jumped ahead of me. Sociability was not static, and he’d kept up with changes better than I. 
+
+As we learned to drive, as we prepared for college, I found myself studying him the way he’d studied me only a few short years prior. And by the time we’d graduated, we’d mostly figured things out together. We’d mostly figured out how to behave around other people, banishing that strange otherness that had made both of us pariahs when we were young.
+
+But sometimes, when it was just us, we dropped the pretense, and we would just be quiet and strange together. In a comfortable way, though. And this strangeness was anything but. 
+
+The way he was watching me now, it was like he’d reverted back to being the middle school outcast. Back to being the only person who seemed to be worse at speaking to others than I was. And it tugged at my heart, and made me feel immensely guilty for the thoughts I’d been having about him creeping me out. As well as the thoughts I’d had earlier in the day about being jealous that he’d been summoned out here for some grand unknowable purpose. 
+
+Looking at his skeletal frame, I felt silly for the idea that had brought me out there. The idea that this was all part of some cosmic plan. One I’d been furious I’d been left out of. 
+
+When it was time for bed, it was a close fit. I only had a one-person tent, and a backpacking one at that. We unzipped the sleeping bag and lay it down to keep out the nighttime cold of the earth, and we wrapped a thermal foil blanket over top of us. 
+
+And though I’d hardly slept the day before, though I was exhausted, I felt my thoughts creeping back into paranoia as the night grew late. I watched the stars overhead start to move, and I pondered how exactly my backpack pocket had come open. The one that held the precious satellite phone, and a knife that was now unaccounted for. 
+
+We’d slept in close quarters before, at sleepovers, but never like this. Thomas’s bony arm was jabbing into my side, and I felt like I could scarcely breathe without disturbing him. And I couldn’t shake the strange thought that this was not the Thomas I knew. Because when you know someone so well, when you’re best friends, you’re aware of the way they carry themselves, the way they talk, the way they walk, the way they breathe. 
+
+And as Thomas sat breathing next to me, I became aware of the fact that his breathing did not sound familiar to me at all. 
+
+With my thoughts drifting to the uncanny valley, to mimics and skinwalkers, and all those horrible things you hear about that you hope are just urban legends, I decided I wouldn’t sleep at all. I decided to stay awake, just in case. 
+
+I watched the stars drift, and I watched the clouds come out and cover them completely. Hours into my restless, feigned slumber, I heard Thomas’s breathing shift. It became slower, quieter, as if he was trying to be silent. I kept my head straight, and I looked into the corner of my vision, peering over at him. And there I met his eyes, staring straight back at me. 
+
+Neither of us blinked for what felt like an eternity. And eventually, I looked back up at the stars, but I never felt his gaze leave me. I felt his eyes on me all night. The eyes that studied me so closely, yet seemed to have no idea who I was. 
+
+I spent the night suffocating, breathing as quietly as I could so I’d hear the slightest movement. And next to me, I heard him doing the same. 
+
+When the sky began to gray, and the birds started to sing, we both got up, neither giving any pretense that we’d just woken up. 
+
+The daylight banished my fear with amazing quickness, though. 
+
+I had Thomas drink more water, eat just a little, and I did the same. The one thing I didn't feel bad about doing that he couldn't though was drink a cup of coffee. I’d need it to get me through the day. I offered him a sip and said he probably shouldn’t have more than that. He accepted and spat it back out instantly. 
+
+“What is that?” He asked me, genuinely bewildered at the taste. 
+
+And with that, I felt my heart sink. Just how much of the starvation damage would be permanent?
+
+We walked silently again, and he kept pace. When I started to lag, he forged ahead, his wiry frame holding a boundless energy. And I stopped thinking those horrible thoughts, about him being some kind of creature, about him plotting to hurt me. And I started wondering what kind of future he might have when we got back. 
+
+Thomas was always the smart one. The one with ambition. He was always making these grand plans about what he was going to do when he grew up. And he’d never stopped making them, because we didn’t really feel like we were grown-ups yet, not until we graduated from college. Real adulthood hadn’t even started, and already his future might be gone. 
+
+But, sometimes, if I was being honest, I’d found myself worried about what Thomas might do with his future. 
+
+Thomas was the kind of person who was always holding something back. The kind of friend who’d feign oversharing, but really, you could tell there were things they kept locked up. Secrets that had never seen the light of day. And sometimes, at night out at bars or sitting by the fire, that side of him scared me just a little. And then in the daylight, those feelings would evaporate.
+
+Daylight brought me back to the present. It prompted Thomas to finally break the silence.
+
+“It’s so bright here.” He said, his voice startling me. “And it’s so quiet.” He stopped walking. “Is it like this all the time?”
+
+“Thomas, what are you talking about?” 
+
+He pointed up at the sky, “Is the sun always out like this?” 
+
+And the way he looked at me, with genuine wonder, as if a sunny day was something completely new, it scared me. 
+
+“Thomas, what's my name?”
+
+His budding smile vanished. “I don’t know.”
+
+“You don’t remember me at all?” I asked him. “We’re best friends.” 
+
+He didn’t answer that. He just forged ahead, striding through the undergrowth as if the branches and the thorns didn’t bother him in the slightest. As if walking through the brush was second nature. 
+
+As we got closer to the trail, I started to recognize more and more spots from helping the searchers. And I worried that once we got out of here, I’d never get any answers from Thomas about what had happened to him out here. 
+
+I told him to stop, and we sat around some logs, around the ashes of another camper's fire. Perhaps even one he’d set up on his way to wherever he’d gone. 
+
+And around the ashes, I said: “Tell me what you do remember.”
+
+He responded, almost childlike, “I don’t want to talk about where I’m from. I like it here so much better.”
+
+“Tell me about the last time you were here then, Thomas, what you remember before you got lost?”
+
+He grabbed at a nearby rhododendron, running his fingers over the dark foliage. I thought he was studying the leaves, grounding himself, but he said. “My hands look so different in the light.” 
+
+I didn’t know what to say to that, so I just nodded at him to continue. 
+
+“I don’t remember much.” He said quietly. “I wish I remembered you. I think you’re nice.” 
+
+“That’s okay,” I told him. “Just tell me what you do remember.”
+
+“I remember camping. My mom and my dad were with me. And we were going to make marshmallows and tell scary stories.”
+
+And as he talked, I studied him. The way he curved his mouth when he talked, the way he brushed his hair out of his face, it was all different. None of it matched the way he’d talked before. All of his mannerisms had shifted entirely. 
+
+“And I had to pee, so I went into the woods real quick, but someone had lost their dog. And I couldn’t leave him all scared and alone in the woods out there, so I followed him.”
+
+I watched the way he reached his hand up to his mouth to start chewing on his fingernails. A nervous habit he’d never had before. At least not the Thomas I’d known.
+
+“But the dog wasn't a real dog. And he wasn’t lost. And he took me to the bad place.” Thomas, this Thomas, looked around, gazing up at the sun, and he smiled.
+
+“I never thought I’d get back here. I thought I was going to get old, and get slow, and the monsters would get me, and that would be it.”
+
+He looked back down at me. “Thank you for finding me.” 
+
+All I could do was nod and stand up. 
+
+We booked it to the trail, back to the entrance. I was desperate to get this man home. He’d been away for so long. Only when we got back to my car and closed the door did I let myself relax. And I put my hand on the bony arm of the stranger beside me, and gave it a reassuring squeeze. 
+
+He wasn’t who I was looking for, but that was okay. Because he was who Thomas had wanted me to find, so I’d take care of him. 
+
+The Thomas I’d grown up with wasn’t coming back. My best friend, whatever he was, had decided that he couldn’t stay here if it meant leaving a child to suffer in his place. My Thomas had gone back home. Back to a place where the sun never rose, and monsters prowled in the dark. 
