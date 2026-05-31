@@ -88,7 +88,7 @@ He stays silent. His helmet light illuminating only the support beam and a bit o
 
 He goes back to welding.
 
-*“Bell, dive control. I say again:* ***status check***\*, all divers, how copy?”\*
+*“Bell, dive control. I say again:* ***status check***, all divers, how copy?”
 
 I answer back.
 
