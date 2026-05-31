@@ -228,9 +228,7 @@ He said it with the same careful neutrality he'd maintained for the entire conve
 
 I don't fully remember standing up. The chair went back. I remember that clearly,  the sound of it against the floor, and I remember Pruett's expression changing for the first time in the whole conversation, something shifting behind his eyes. Then my hand connected with the side of his face and the room came apart into pieces: voices, hands on my arms, the wall very close, the floor moving under my feet.
 
-They kept me in a holding cell for the rest of the afternoon and into the next morning, a small room at the back of the building with a bench, a drain in the floor, and a window too high up to see anything through. I sat on the bench for a while and then lay down and stared at the ceiling. I could hear voices from the front of the building occasionally, indistinct, and once what sounded like a door closing hard enough to shake the frame, but nobody came back to talk to me and I didn't ask for anything.
-
-At some point, a deputy slid a paper under the door that I didn't pick up until it was nearly dark outside, which informed me in fairly flat language that I was being charged with assault of a law enforcement officer and would be formally processed at a later date. Apparently, they’d decided that holding me through a classmate's funeral while Iris was still missing was not a situation worth the attention it would draw.
+They kept me in a holding cell for the rest of the afternoon and into the next morning, a small room at the back of the building. I sat on the bench for a while and then lay down and stared at the ceiling. I could hear voices from the front of the building occasionally, indistinct, and once what sounded like a door closing hard enough to shake the frame, but nobody came back to talk to me and I didn't ask for anything. At some point, a deputy slid a paper under the door, which informed me in fairly flat language that I was being charged with assault of a law enforcement officer and would be formally processed at a later date. Apparently, they’d decided that holding me through a classmate's funeral while Iris was still missing was not a situation worth the attention it would draw.
 
 My dad was there when they released me, standing in the hallway with his coat still on and his keys in his hand. He had the same expression he'd had in the parking lot at the last school, the one I'd spent a year hoping not to see again. 
 
@@ -244,7 +242,7 @@ The casket was closed. 
 
 Malcolm had a gift for knowing a lot of people without appearing to work at it, and all of those people came. His coworkers from the grocery store were standing near the back wall in their street clothes, looking too young and slightly lost. Teachers. Neighbors who'd known him since he was a kid on a bike. A group of guys from the school's JV basketball team he'd been close to freshman year, before the van became the thing. His mother in the front row holding herself very straight and Alicia beside her. Alicia had given me the map from the van the day before. I kept thinking about that — the map in my jacket pocket, where I'd put it that morning before I left the house, the only thing of his I had.
 
-I sat in the back with my dad and tried to listen to the minister, who was a Methodist from the west side. I looked at the closed casket and I thought about the van. The map above the wheel well and the Christmas lights and the way the engine turned over on the second try. I thought about the last conversation on the Route 9 shoulder, the way he'd said tomorrow, the way I'd said tomorrow back. I thought about my phone on silent on my nightstand and three missed calls at 11:47 and 12:08 and 12:23 and nothing after that, the calls stopping in the middle of the night.
+I sat in the back with my dad and tried to listen to the minister, who was a Methodist from the west side. I looked at the closed casket and I thought about the van. The map above the wheel well and the Christmas lights and the way the engine turned over on the second try. I thought about our last conversation, the way he'd said tomorrow, the way I'd said tomorrow back. I thought about my phone on silent on my nightstand and three missed calls at 11:47 and 12:08 and 12:23 and nothing after that, the calls stopping in the middle of the night.
 
 About forty minutes in, my phone buzzed in my pocket.
 
@@ -296,11 +294,9 @@ There had been a long silence on the line. "I remember being stabbed," Cecile ha
 
 "We’ll find her" Cecile had said, before pausing. "But Kolby… I need you to hear me when I tell you I don't know what we're going to find when we find her. I'm not going in there with any assumptions. I think you shouldn't either.
 
-That had been two days ago. And now here we were, the three of us in dress clothes cramped into Cecile’s car on the road. I had an idea of our location — the woods outside of the facility, where Iris had mentioned being drawn to. Summer had a printed map covered in handwritten notes. The legal pad had been replaced weeks ago with it, every piece of information she had reduced to its essential coordinates.
+That had been two days ago. And now here we were, the three of us in dress clothes cramped into Cecile’s car on the road. I had an idea of our location — the woods outside of the facility, where Iris had mentioned being drawn to. Summer had a printed map covered in handwritten notes. 
 
-By the time we reached the trailhead off Route 9 the last of the daylight had drained out of the sky. Summer had bolt cutters for the gate on the southeast trailhead in her bag, which I didn't ask about. The metal snapped louder than I expected. All three of us froze afterward automatically and listened for movement in the trees even though there was no reason there would’ve been anybody else out there.
-
-Two days earlier, there’d been a hard frost and the ground still held onto it in places where sunlight hadn’t reached. Leaves cracked softly under our shoes instead of rustling. Every so often, one of us would catch a branch with a sleeve or shoulder and the sound would seem absurdly loud against everything else. Summer walked ahead with the flashlight angled low toward the trail. Cecile stayed close behind her. I took the rear mostly because somebody had to, and because every few seconds I kept looking back toward the road through the trees even after it had disappeared completely from view.
+By the time we reached the trailhead off Route 9 the last of the daylight had drained out of the sky. Two days earlier, there’d been a hard frost and the ground still held onto it in places where sunlight hadn’t reached. Leaves cracked softly under our shoes instead of rustling. Every so often, one of us would catch a branch with a sleeve or shoulder and the sound would seem absurdly loud against everything else. Summer walked ahead with the flashlight angled low toward the trail. Cecile stayed close behind her. I took the rear mostly because somebody had to, and because every few seconds I kept looking back toward the road through the trees even after it had disappeared completely from view.
 
 The south path was harder to find than Summer had made it sound during the drive over. She’d come out once during the afternoon earlier that week to scout it and even with that, she overshot the turn the first time. The branch in the trail looked almost invisible until you were standing directly in front of it. At first glance it resembled a narrow animal path through the brush, but once the flashlight hit the ground you could see the dirt was packed too flat and evenly for that. People had been walking there repeatedly for a long time.
 
@@ -444,7 +440,7 @@ Her expression changed abruptly as she froze: "Where is Iris?" 
 
 I looked to my left where Iris had been standing. I turned my flashlight in a full circle across the fire road. Empty. The beam caught pale gravel, damp tire ruts hardened into the dirt, brush crowded close on both sides of the road. Beyond that there was only the trees, black and uninterrupted, the light flattening against them without reaching very far in. The road stretched away in either direction without movement.
 
-I didn't know when she'd gone. I had been watching the gate, watching for Cecile, and Iris had been beside me and then she was not, and there had been no sound of movement, no direction she'd gone in.
+I didn't know when she'd gone. I had been watching the gate, watching for Cecile, and Iris had been beside me and then she was not.
 
 I went back toward the gate and Summer caught my arm. She had come through while I wasn't watching, moving quietly despite the limp, and she caught me before I got back into the trees.
 
@@ -462,13 +458,15 @@ I listened. I did not go back through the gate.
 
 Summer had a broken fibula. She'd caught her foot on a root in the dark and gone down, which was the sound I'd heard, and what she'd seen in the trees while she was on the ground I have never been able to get the full account of. She's told me pieces over the years, different pieces at different times, and I've never pushed for the whole.
 
-Cecile had separated from Summer for about ninety seconds during our exit. What happened in those ninety seconds she has not told me and I have not asked. She walked to my car when we got to the road and she got in the back seat and she sat there until Summer got in beside her, and then the three of us drove back to town in silence and I dropped them both at the hospital and waited while they were treated and said nothing to anyone in the waiting room about where we had been or what we had seen.
+Cecile had separated from Summer for about ninety seconds during our exit. What happened in those ninety seconds she has not told me and I have not asked. She walked to my car when we got to the road and she got in the back seat and she sat there until Summer got in beside her. The three of us drove back to town in silence, I dropped them both at the hospital, waited while they were treated, and said nothing to anyone in the waiting room about where we had been or what we had seen.
 
 Iris was found at 7:41 the following morning, half a mile south of where we'd found her.
 
-She was found in worse shape than when we'd last seen her. The jacket she had been wearing in the clearing hung loose on her frame. The scrapes on her hands were deeper, packed with dirt. The leaves tangled in her hair had dried and become brittle overnight, and new bruises and open scratches marked her skin in places that hadn't been there before. 
+She was found in worse shape than when we'd last seen her. The jacket she had been wearing in the clearing hung loose on her frame. The scrapes on her hands were deeper, packed with dirt. The leaves tangled in her hair had dried and become brittle overnight, and new bruises and open scratches marked her skin in places that hadn't been there before.
 
-A short distance west of the site, search teams later recovered the remains of four or five additional people. Based on what remained of their clothing, they were believed to have been members of Saint Germaine's Church. None could be identified. No one was allowed anywhere near either site.
+A short distance west of the site, search teams later recovered the remains of four or five additional people. Based on what remained of their clothing, they were believed to have been members of Saint Germaine's Church. None could be identified. 
+
+The note in the coroner's file about Iris’ body having been moved was accurate — she had not died where she was found. Where she had died, and who had been with her if anyone, was not something the investigation pursued with much energy, because by the time she was found the case was already, as far as the sheriff's department was concerned, resolved. The church members and Malcolm's deaths were attached to her name, hers to the woods, and the whole thing was filed away.
 
 The forest and fire road access was taped off for three weeks during the investigation. I never found out what Malcolm had found on the path. 
 
