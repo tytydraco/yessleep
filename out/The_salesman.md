@@ -1,0 +1,41 @@
+I thought it was going to be a normal day. I woke up and poured my morning coffee. I had the radio on as I fixed some breakfast. The local radio station played its normal schtick of two goofball hosts and they shared there would be clear skies all day. Perfect, it was time for me to weed the garden and maybe try out the new spinning rod I purchased this month. It was looking to be a great day off of my day job.
+
+\*knock knock knock\* Great, who could that be? I have a no solicitor sign by my door but it often times doesn’t stop the bravest of salesman from trying to pitch a sale and not take a no. Sure enough as shit, I see a man standing on my porch. He is tall and skinny, probably middle aged but his skin is tight on his face, almost like he used Botox on the regular. He’s wearing a long sleeved green scratchy patterned overcoat on top of a sweat stained white shirt. That makes sense, its 90 degrees. All of this complimented by a red tie, some khakis, and some loafers. His blonde hair in a balding combover and pearly white teeth.
+
+“Hello”, he says. His voice being somewhat deep. “My name is Eugene and I work for On the Edge Cutlery”. He reached out to shake my hand, and I did indeed shake it. I didn’t want to be rude.
+
+“Hey man, it’s nice to meet you, but I don’t discuss sales. I have a no soliciting sign, maybe you didn’t see it”. I went to point to the sign and noticed it was vandalized. Damn teenagers must have spray painted it lately, it wouldn’t have been the first time I’ve had trouble. This area has its fair share of tweakers and bored teens. “No, I didn’t see a sign. So, like I was saying, I work for On the Edge Cutlery. We sell premium knives. Do you know your neighbors, the Runyons. You know, four houses down?”
+
+“No”, I tell him. “I don’t know the Runyons and I’m not interested in the knives”.
+
+“Oh, come now, sir”, said Eugene. “I have never had a dissatisfied customer, and I don’t intend to start now”.
+
+“That’s the thing, I am not a customer”, I tell him. While trying to put it through his head that I have no interest, he drops his duffle bag and goes fumbling through it. Meanwhile, some storm clouds begin to roll in. Great, just great. The weatherman says clear skies, but this is how that Kansas weather works sometimes. Probably a pop-up storm that will be here and gone in a matter of moments.
+
+He pulled out one of the kitchen knives and a piece of paper and began slashing it to show me how sharp the blades are as rain falls on us. The rain progressed to heavier and I told him to get the fuck off my property before I heard the sirens. Really, a twister? Great.
+
+“Euguene, it looks like a storm is coming. Let’s wait this out in the cellar. I can’t let you go during a storm”.
+
+He and I made our way into my storm cellar. In there, I handed him a towel and a bottle of water. “Wow, this is a bad storm”, I say as I take a mental inventory of where all of my emergency supplies are. “It’s not that bad”, he says. “I have seen much worse than this. Now like I was saying, these blades are incredibly sharp, and I see you are a man who drives a hard bargain. I am going to go against my normal routine, and I am going to offer you a free cleaning kit to go with the large set of blades. This set has everything you need from a butcher’s knife all the way to a simple butter knife”.
+
+“Again, I am not interested in the damn knives”, I shout. As I shouted, the power went out. Reaching round wildly, I turned on a battery powered lantern so dimly light the room and he now is closer to me with his sleeves rolled up and his eyes much wider. Those white teeth have turned yellow and he has a panicked look on his face. His arms are full of scars, both new and old. “So, you see sir”, he panted and rasped quickly. “These knives are extremely sharp. Looks how they take the hair off my arm”. He began to scrape his arm with one of the blades and peel the hair off, making small knicks along the way. “Sharp enough to circumcise”, he cackled. Outside, the wind was howling and thunder crashed. Water trickled in my cellar store, it only ever did this when the storms were intense. He came closer to me and reached in his duffle bag once more. “I will even throw in a free sharpener. You see how sharp these knives are, sir. But, on top of the cleaning kit, I will even throw in a sharpener”. Out came a can of spray paint. Black spray paint. The color that ruined my sign.
+
+“oh”, he clucked. “You weren’t supposed to see that”. He began to pick his teeth with the knife he was holding. It sounded like a train was passing through us outside. This was no ordinary twister; this is one that could ruin everything I own. “you’re making this much too hard”.
+
+“What are you talking about”, I asked. “You vandalized my property and now you are holding me at knife point”. I picked up a shovel I kept in the cellar. “You better stay away from me”, I shouted.
+
+“Stay away from you”, he chuckled. “Why would I do that? I am not trying to hurt you. If I wanted to do that, I would really show you how sharp these blades are”, as he swiped at me, but missed. I clocked him with the shovel, and he fell into a pile of canned goods. He laughed and looked up at me as he caught his bearings.
+
+“I gotta say Mr. You got balls. And I could cut them off. You wouldn’t be the first”.
+
+Outside the flashes were growing more rapid, and the thunder began booming.
+
+“I can make all of this stop, you know”
+
+ 
+
+“What are you talking about”, I demanded.
+
+He stood up and straightened his tie. “I can make the storm stop”. He wiped the blood off his forehead. “This can get a lot worse. You can’t kill me, I know you are thinking about it. You wouldn’t be the first to try. You won’t be the last either. We can both walk out of this cellar, I’ll take a jar of those peaches your grandma canned. Your house won’t get destroyed and that truck you almost paid off won’t get turned upside down. This can get so much more worse and I don’t have to touch you”. He grinned and chuckled again, “Or you can let me sell you the knives and I will go on my way”.
+
+To save you further trouble….I now have a set of knives sitting in a block on my counter talk and he began walking East. If you happen to see a middle aged salesman with a bundle of knives in a duffle bag, just spend the $90.
