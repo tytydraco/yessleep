@@ -28,9 +28,9 @@ My brother had joked one day at dinner, before my mom cut him off with a glare.
 
 I did not say it, but I agreed with my brother. Even as an obedient kid; I would refuse to be present around Gertrude or her family despite being screamed at for being "disrespectful" thousands of times. There just something deeply *wrong* with them.
 
-But shamefully, I had adopted my parent's naïve mindset of being a bystander, stupidly I believing that I was exempt from their cruelty due to not being a direct victim.
+But shamefully, I had adopted my parent's naïve mindset, stupidly I believing that I was exempt from their cruelty due to not being a direct victim. Of being a bystander.
 
-I was not only wrong, but I had paid heavily for it too.
+I had paid heavily for my mistake.
 
 When my ninth birthday rolled around, one of the happiest days in my young life. Not just because I was surrounded by cake, pizza, family and friends. But because it was my first day with her.
 
@@ -70,6 +70,27 @@ I stewed in hate the following days. I fantasized about Connor or siblings being
 
 Nothing. Exactly nothing.
 
-When the worst flash flood in my region hit town and I saw Gertrude's car struggling to surface from the local river. I did not call for help or tell anyone what I saw.
+Unlike my family, who was perfectly willingly to pretend everything was fine. I was forced to be a bystander, to watch as the killer of my cat walk around freely, as he didn't strangle the life of animal days earlier. As he didn't cruelly murder his neighbors pet simply because he could.
 
-I did nothing.
+Little did I know, while being a bystander had killed by cat, it also helped me enact revenge. 
+
+Because the water did not remain on the ground for long.
+
+Days later, the worst flash flood in my region had hit town. And to say we were unprepared would be understatement of the century. Over 30 people were dead, 15 people were missing among the watery wreckage. 
+
+Among the missing, was Gertrude's family. Massive search teams formed; people searched for them alongside those lost in the flood, me included. 
+
+But unlike the others, I knew exactly where Gertrude and her family were. 12 hours earlier, from the safety of my room; I witnessed her car, half submerged in the roaring water. Bobbing up and down as it attempted to fight against the current.
+
+I knew they were in there; Connor, Gertrude and the rest of their awful family. All trapped in a cage made of metal, no escape from the murky water that undoubtedly was rapidly filling the car.
+
+And do you know what I did?
+
+Nothing. 
+
+I watched as the car sank below the depths. I watched what appeared to be a hand desperately bang against the window before it was forced under. 
+
+I stood and stared, even when it had been hours and I saw no signs they survived. And I did not tell my parents, the police nor the neighborhood rescue team. 
+
+I was a bystander.
+
