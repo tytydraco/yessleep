@@ -1,0 +1,536 @@
+I was convinced that I’d never speak with our frontman, John Miller again. That really, *none of us* from the band would ever speak again.
+
+The breakup was ugly, after all. It was marked by ego and baggage and that oh-so-special flair for self destruction creatives can’t seem to shake. John, the creative mastermind of the group, ultimately struck the final blow and pulled the plug, before going solo—and making a killing doing it.
+
+And now… well, now John's dad was dead. *Friar Miller.* The famous one. The musician whose career made John's look almost modest by comparison. He'd died alone in his mansion, surrounded by possessions and possessions alone, after his heart decided to play the *funniest* trick on him.
+
+And to put it plainly, the news put a bizarre damper on my day.
+
+You see, a standard working day consisted of me staring ahead at my screen like a zombie, thinking about what could’ve been. Working a dead-end gig with a salary that was flirting with minimum wage. *Aggressively flirting.* “Will they, won’t they” energy.
+
+But today, my internal monologue was occupied by a new question: 
+
+*What do you say to your megalomaniac ex-bandmate who just lost his father, especially when there’s no love lost between you two?*
+
+And it was a tough question! So tough, in fact, that I was chastised—*not a rare occasion*—for dozing off in our team meeting thinking about it. 
+
+“Marc,” they’d say, “did you catch that?” to which I’d begrudgingly say no, *apologize,* then ask them to repeat. 
+
+And mercifully, they would. But with a certain look in their eyes—as if they were frustrated by my lack of investment.
+
+“*Too bad,*” I’d want to say. “*I used to be a rockstar, you know.*”
+
+But instead, I’d just go back to it—coasting. Doing my absolute best to do as little as possible while still keeping myself employable. And then I’d go home.
+
+*Home.* Where I’d eat dinner, then try to rekindle my creative flame by working on a new song. Usually fifteen minutes of attempt—nothing of substance produced—and I’d give up.
+
+I didn’t imagine that this somewhat miserable night would go any differently from the others. 
+
+But then—I heard my phone ring. 
+
+I checked it to see a number I didn’t recognize, from an area code where I would’ve only known one single, complicated person. 
+
+“Hello?”
+
+At first, only the hiss of static. It dissolved, as a voice came through. “Hey man, long time.”
+
+“Oh, uh, hey man, I—” *fuck me what does a normal conversation sound like again?* “how’s uh, how’s… everything?” 
+
+“Yeah. Pretty good man,” he said. “You?” 
+
+“Yeah. Good.”
+
+A solid minute of no words exchanged after this. Just the sound of John shuffling down a corridor. Finally, his voice cut through the ambience again:
+
+“Probably heard about my old man croaking, hey?” 
+
+“Yeah. Yeah I did man. I’m, uh, sorry for your loss.” 
+
+“Nah,” he said. “Not much of a loss. Yeah, not really… much of a loss. Heard how it all went down?”
+
+“Yeah. A heart attack, right?”
+
+“Yeah. They found his body like three days after he’d died. Asshole didn’t have anybody in his life, so, was pretty hard for anyone to even notice.”
+
+“*Jesus*.”
+
+“Yeah.”
+
+Then—even more stagnation. As if the call had run its course. As if I’d hear the dial tone any second now.
+
+“So, yeah man, calling because I think we should all do like a reunion or something.”
+
+My automatic response came without full comprehension of what he’d said: “Yes.”
+
+“Yeah, sweet. And, assuming all goes well, maybe we could try to make it like a permanent thing?” 
+
+“Yeah. *Absolutely,*” I said, still lost, but a bit more emotive.  
+“We’ve still got some demos from the second album we never polished up. Think we could start by rounding those out. Go from there.”
+
+“Totally. Still some demos,” I said, repeating his words back to hopefully hypnotize him into seeing this through. 
+
+“Killer,” he said, then all too much silence before, “So, that a yes?” 
+
+And for just a second, a flash of all of the miseries associated with the band came my way. The stress, the arguments, the perfectionism, the thought that something—on an almost atomic level—was innately incompatible within our group.
+
+All of that, counterbalanced by the hole of debt I was in. And the reality that I wanted to feel *real* emotions again. Be complete again. John wasn’t just my ex-bandmate. He was a heroin dealer tracking down a heroin junkie who was convinced that the world had run out of heroin.
+
+I wanted the heroin.
+
+“A hundred percent. Yes.”
+
+—
+
+He’d set the reunion for three weeks later.
+
+It was going to take place at *The Pinnacle.* The secluded studio where Friar had recorded all of his record-smashing, critically acclaimed albums. It was located near the top of a mountain, if you can believe it—the secrecy surrounding it making it a sort of “Area 51 for music nerds.” 
+
+While he was subtle about it, John had always mentioned—usually in throwaway comments—his interest in recording here. It never quite panned out for the first iteration of our band, nor for any of his solo projects, which forced me to believe he must’ve barred the location—the ban *just now* lifted with his father’s death. 
+
+It was a convoluted journey to get there, to say the least. A half-day train ride to a remote town, followed by a long wait at a designated pickup spot until an unmarked black car pulled up and a driver stepped out, checked my ID, and then waved me in. 
+
+And from there, the glossy black carriage continued into nowhere. Into alienation, into cold, into a height—a steep slope—I hadn’t fully expected but should’ve. Along the way, I resolved within myself that I’d be on my best behavior. *Stable and grounded.* Those were the two words I’d fully embody. 
+
+Sure, I could think of at least one person who thought that *I was the sole, actual reason* the band broke up.
+
+But really, all of this was way more complicated than that.
+
+The car abruptly stopped, right as a distant gate came into view—secluded and weathered. 
+
+The driver eyed me from his rearview mirror.
+
+“Do I get out?” I asked.
+
+A light nod from the stranger. 
+
+I obliged. I stepped out, closed the door, and trudged towards the towering gate. I heard the car turn behind me, its subtle late-afternoon headlights fading as tires rolled over frost and the hum of the engine grew distant.
+
+I closed the distance to the barrier, noticing two familiar faces standing by the tall, iron bars. 
+
+“Marc!” I heard Noa shout as he noticed me. *Drums.*
+
+“Hey guys,” I called out, sheepishly even with my raised voice. 
+
+The gate really was massive. *What the fuck was this?* The journey to the supposed Narnia of recording studios was convoluted, clearly.   
+   
+Each step of snow crunching under my boot was a step nearer to the awkward, baggage-filled dynamic our rag-tag group had been left with. I prayed that time had eroded most of it.  
+
+“You think Jon’s gotten over it yet?” Ravi asked as I reached them. *Rhythm and keys.* 
+
+“Hard to say,” I said.
+
+“Yep,” said Noa, turning towards the gate. “Dude was always pretty hard to read.”
+
+“No I’d say he was pretty literal. Just changed his mind every thirteen seconds,” said Ravi.
+
+“*Yeah. So, hard to read,”* from Noa.
+
+“I think we have different definitions of the word ‘read,’” said Ravi.
+
+I gave my paltry contribution of an agnostic **“totally,”** under my breath. Some light, flavorless seasoning for their exchange. 
+
+Wind blew, and a sense that we’d be stuck there for quite some time permeated. Small talk already had few subjects remaining—we already knew what the weather was like, after all.
+
+“He’s probably gonna put a pin in all this,” Noa said, with on-brand, wary cynicism, “like, five minutes into practice.”
+
+“Probably,” said Ravi. “But can’t say I have shit to do besides this.”
+
+“Yeah…” said Noa half-heartedly. 
+
+I kept quiet. The words bubbling from my chest were, “*I really need this and don’t want this to get fucked up,*” so I kept it all in. 
+
+Then, a familiar sound started coming through, faint at first, like the turn of a dial. An engine humming, wheels gliding over ice, the screech of a turn. Subtle lights appeared, and then—someone stepped out.
+
+Eleonora. *Bass.* Appropriately overdressed. Probably someone I was still in love with—but I didn’t need to think about that right now. 
+
+Her ride disappeared down the road nearly as fast as mine did. She reached us.  
+
+A hug for me first. 
+
+“Marc,” she said, before detaching herself quickly. Then hugs for the other two. Then they all broke into conversation. I stood close enough to be a part of it, far enough to not be a meaningful one.
+
+“You think he invited Benny too?” she asked. 
+
+“Fuck no,” said Noa. “Those two hated each other.”
+
+“They didn’t *hate* each other,” said Eleonora.
+
+“Yes they did,” said Noa.
+
+I’d followed up with a staggered “Yes they did,” of my own a mili-second after Noa’s delivery. I owed him a Coke.
+
+Then, the strangest thing. The subtlest flair of disdain in Noa’s eyes at me. And the slightest side-eye from Eleonora. As if I’d spoken out of turn. As if I, of all people, shouldn’t have been commenting on this. 
+
+“Pretty surprised he invited you, actually,” said Ravi, and it stung—much more than I ever would’ve imagined. I’d played out the fantasy of us reuniting in my head countless times in the years following our blow-up, but I always assumed that if it ever did happen, my skin would be thicker. Instead, I was just as paper-thin now as I was then. *Angry*, but paper-thin.
+
+I wanted someone to say something unrelated, maybe change the subject, but no one said much of anything, though the gates did part shortly after, and now another car was in front of us, same make as the one that had delivered me, Eleonora, and presumably the others.
+
+We all got in. It took us further up the mountain’s incline, deeper into nowhere. 
+
+And for reasons—some which I could place, others that I couldn’t—I felt pretty off. 
+
+—
+
+We’d been inside the studio for quite some time. I tried my best to focus on John’s endless monologue, though my eyes kept inadvertently darting to the elegant scenery around me. It was a space with a surprisingly sleek and modern finish, with wall art and records lining the walls. We were seated in the lounge. John—*across the table*. The rest of us—*huddled together on the couch.* 
+
+“And that’s the thing, I mean… it became—*consuming*, to try to be better than him. It became an obsession. I was obsessed. And the whole time, in the back of my mind, I was thinking: we’d talk. One day, we’d reconcile his—essentially—lifetime of not being a father to me. But instead… he just died. And that was it.” 
+
+I wanted to pay attention, but hearing him wax forgettable made me dream of lending Mike Tyson my ears. 
+
+“And it finally landed on me: it was all an illusion. There was no world where reconciliation would’ve happened. Or any sort of payoff. And in a fucked up way, it’s kind of a blessing that it happened like this.  ‘Cause, I mean, if he were still around, I’d just be doing that same bullshit. But instead, I’m here, *all of it finally off my shoulders.* Ready to focus on what I actually want.” He motioned to all of us. “*This.* The gang together again.” 
+
+He let his words hold in the air for a while.
+
+Noa was the first to follow up with a question. A semi-nervous hand-raise. 
+
+“Yeah?” John asked. 
+
+“We all have lives,” Noa said, immediately causing me to grimace. He was the only one from old money, and from the light cyberstalking I’d done on Ravi and Eleonora, it was clear the rest of us didn’t have much going on. “Obviously, super appreciative of the opportunity. But—how do we know this is a sure deal, and not just, y’know—”
+
+“Me having a weird, grief-fueled impulse?”
+
+“*Yeah*,” said Noa, after a second of delay.
+
+“I mean,” John started, “I don’t know if the answer’s gonna land but I guess I just… really… *missed* you guys? And so, I’m pretty… serious about making this work?” 
+
+I didn’t dare say a word, and I could sense Eleonora and Ravi holding steady as well. In terms of answers meant to curb existential concern, his was, well, *fine.*
+
+Noa’s caving of a pretty sincere-sounding ‘alright’ under his breath felt like the last piece of permission we needed to finally exhale. 
+
+And from there, we went right into it. John gave us a quick tour of our space—*other parts of The Pinnacle were deemed off-limits by the labe*l—and then ushered us into the recording room. For the first time in ages, we jammed. A bit of reorientation. A bit of rebuilding shared language, with John making it clear—with the subtlety of a nailbomb—that all that actually mattered was *getting this done.*
+
+And though we didn’t sound great we didn’t sound terrible either. 
+
+It was a start. 
+
+And as night fell, we trudged out to the bunks. 
+
+The Pinnacle had a room for John. That’s where he was staying. But the bunks were a bit further off—about ten minutes of walking, if you didn’t account for the foot-and-a-half of snow blanketing everything. We marched like penguins through the tundra.
+
+“I mean,” Noa started, “that wasn’t that that bad, right?”
+
+“No, it was great,” Ravi responded. “I mean, *obviously he’s manic*, but yeah—great.”
+
+“*So optimistic.*” Eleonora.
+
+“Not trying to be a downer. Just want to be realistic. We need him. He doesn’t need us.” Ravi.
+
+Then, we arrived. Up the steps to the cabin with the bunks. To the warmth. 
+
+We filed in and shook off the cold. Exhales, stretches, and more than one proclamation of “*Thank fuck*,” as the heat of the space wrapped around us. 
+
+Cell service was a little shoddy, but that was fine and to be expected. We were here for music, after all—for our futures. 
+
+So, naturally, all of us started drinking. We took kindly to the selection of fancy spirits and liquor bottles set out on one of the counters. 
+
+We sat in the common room afterwards, spread out on the sofas. Talking.
+
+Eleonora was beside me, but I felt like an extension of the furniture. She wasn’t really looking at me. 
+
+“I’m in A&R now. Big three, but every week that feels less cool to say. Pays decent,” she said.
+
+Ravi made a face. “Pays decent” he echoed, almost as if considering.
+
+“Decent pay compared to like the shit jobs out there,” Noa chimed. Eleonora pointed at him—*that’s right.*
+
+“I mean, I’m back in trades,” Ravi said, “So, don’t know about you, but A&R sounds pretty sweet to me.” 
+
+Noa tilted his mug towards me. “What about you, Marc?”
+
+*Don’t make me talk, guys. Clearly, I’m bad at it.* 
+
+“Uh, *yeah*. Admin assistant. At an accounting firm.”
+
+“Nice,” from Noa.
+
+“Yeah, nice,” said Ravi.
+
+It felt like they were sizing me up. Like they wanted me to say something more.
+
+“Yeah, I’m pretty sure I hate it. Like, the work is mindless but it somehow still takes from me. I make like—no money. Ramen noodle diet, like I’m back in college again. *Yeah.*” 
+
+And to my relief, it looked like the pity card was enough to stave off the wolves. For now, at least. 
+
+Eleonora finally turned towards me. Sympathy in her expression just like I’d hoped.  
+Noa glanced down at his phone. He didn’t have much to add to the ‘financial woes’ conversation—his family was wealthy enough to bankroll him and a small municipality. He was good. A quiet, thrilled affirmation to himself—it looked like cell service had returned. 
+
+A buzz across our phones. Synchronous. *Yep*, it was back. 
+
+We all grabbed our respective squares, the glow of static lighting up our faces. 
+
+“Oh wow,” said Ravi, scanning. “Guess Benny’s coming.”
+
+“Huh,” said Noa.
+
+I caught up to the newest message in group chat. Yep—it was there. *Interesting.* 
+
+“You guys were saying they had bad blood earlier?” asked Eleonora. 
+
+“I do remember—yeah, Jon *did* say he wanted to drive a mic stand through Benny’s head… numerous times before the break up actually,” Noa said.
+
+“Well that’s time for you. *Heals all wounds*, or whatever the saying is,” Ravi said. 
+
+“You really think the guy with lifelong daddy issues would learn to let things go?” asked Noa.
+
+And once again, Ravi subtly turned his eyes at me and did that stupid, ‘Well, *he’s* here,’ smile, and I dropped it, though it was growing harder not to. I wanted to best him. I wanted to tell him that a match to tinder didn’t mean the tinder wasn’t there the whole time. 
+
+But then time passed, and he drank some more, and hence became more affable. 
+
+Noa went upstairs. I stayed, but I wasn’t particularly sure why.
+
+I’d remembered at some point in time after the split, hearing that Ravi had a lot of trouble staying on the wagon. He wasn’t much of a drinker pre-superstardom. It was unfortunate to see that his vices had more staying power than the first iteration of our band. 
+
+I caught Eleonora’s concern for him as he got up, seemingly to raid the never-ending liquor stash. But this time, it looked like he was merely checking out the wares. Running a hand over shelves, peeking into cupboards, eyeing trophies and plaques, games set on side tables, a keyboard tucked in the corner of the common room.
+
+“Oh shit!” he exclaimed, lifting something proudly in his left hand.
+
+A karaoke mic. A large white, tacky-looking karaoke mic.
+
+“This is like one of those ones you don’t need to plug in,” he said, turning it on and speaking into it. “*Test, test.* Yep, see? Jacked up with reverb.” His voice boomed, laced with a distorted echo. 
+
+Catching inspiration, Eleonora got up, searchlighted her surroundings, spotted what she was looking for—remote—and pointed it at the TV bolted high on the wall. She clicked over to Youtube, slowly and painfully typed in “Dancing Queen - Karaoke” and selected the first video on the list. “Gimme,” she said, snatching the mic from Ravi’s hand before he could protest. 
+
+And immediately, the pulsing piano bounced against the synthesized strings in the intro.
+
+She was already dancing. She’d look for any excuse to, ever.
+
+*“You can dance, you can jive…”*
+
+Absolutely out of my element, I stuck my face in my phone, and half-assed a reply in the group chat Benny had just sent his message in:  
+‘Stoked you can make it,’ I typed.
+
+Back to Eleonora.
+
+*“Anybody could be that guy, night is young and the music’s highhhhh”* 
+
+She dragged that ‘high’ out. As over-the-top and dramatic as she could make it. Good karaoke is stupid and painful, after all.
+
+And as she rolled into the chorus, I was surprised to find that the mask of the song was helping her look at me, smile at me, playfully, like she used to before our splitting up and splitting off. I would take theatre as an excuse. I wasn’t above it.  
+
+*“Dancing queen, feel the beat from the tambourine, oh yeah…”*
+
+Another buzz.
+
+I checked to see a new note in the group chat.
+
+From Jonathan, this time. 
+
+*“You’re a teaser, you turn ‘em on…”*
+
+The text: ‘Time for us to outshine this guy, hey? Out with the old, in with the new ;)’
+
+*“Leave ‘em burning and then you’re gone…”*
+
+Underneath his message, a picture of Friar’s open casket at his funeral, taken from a distance. Flash on. A disturbed-looking expression on the face in the coffin. 
+
+*“Looking out for another…”*
+
+And suddenly the lights cut to black.
+
+The backing track died as the TV flickered off. 
+
+*“Anyone will do*,*”* she sang with nothing to support it, her words transforming into a distorted loop—into a harsh, piercing ring of microphone feedback.
+
+I clamped my hands over my ears in the blackout, trying to block out the shrieking sound as Eleonora fumbled for the off-button on the mic. It finally cut off with a harsh crack.
+
+The noise faded.
+
+A few seconds later, the lights surged back on. The TV restarted. 
+
+Ravi detached his palms from the sides of his head. 
+
+We all looked at each other. 
+
+“Guess God hates karaoke,” Ravi said.
+
+—
+
+We all went to bed shortly after the karaoke fiasco. Vodka-tonic-powered sleep was the best sleep.
+
+The next morning, the legitimately glorious breakfast that John had laid out almost made the trek through the snow worth it.  
+
+We had gathered around the dining table in the studio for a spread that just about steamrolled anything I’d ever considered ‘breakfast’ before. 
+
+“Jesus, you made all of this for us?” asked Ravi.
+
+“The label’s the one that stocked this whole place,” John said—using his fork to tap jam onto his toast. *Weird fucking guy.* “But if you’re asking—*did I cook?* Then yes. That was me.”
+
+“And Benny?” Noa added. “Not to change the subject, but I guess he's gonna be here soon too?”
+
+“Yep!” said John, without missing a beat.
+
+“And like, are you guys cool?”  
+
+And for a second, it looked like John was in his own little world. A sort of soft smile—but one that seemed like it was covering something else: a buried misery. 
+
+“*John*,” Noa said again.
+
+“Ah—yeah, sorry,” John replied, snapping back to Earth. “Yeah. We got to talk and patch things up a bit.” After a bit of silence—“He was the one who reminded me about The Pinnacle, actually.” 
+
+“Really?” asked Ravi.
+
+“Yeah. He thought it might be a nice way for me to pay tribute. *Face my demons.* Move on. All that good stuff.”
+
+“Cool,” I mustered, in the awkward silence following, just to add my piece to the conversation. I kept my eyes low to avoid clocking everyone’s subtle expressions of approval, or more likely—disapproval. For whatever reason, the band’s judgment felt like it would be too much for me to deal with right now. 
+
+—
+
+And with a *clash* of drums, the song was over.
+
+“I’m not mad, but it’s not working,” John said.
+
+We were already back to old habits. Perfectionism creeping its ugly head into the live room. He wasn’t totally wrong though. That old unreleased single from our golden days started as a good demo, but now with more added to it, it was turning into a patchwork mess of half-baked ideas. 
+
+The group had an almost synchronized exhale of disappointment at John’s disapproval—perhaps the most we had been in sync that entire session. 
+
+“I think…” he continued, mouth tugged to the side, eyes angled towards the ceiling,  
+“that we need to remember why we’re here. Remember what we’re trying to push for. We want this to be *something else.* We want *ours* to be the best album ever recorded here.” Then—“Let’s take five. Or thirty. Or whatever everyone needs. Get out of our heads. Shake off the tunnel vision. Cool?” The slightest bit of repressed rage bleeding through at the end.
+
+With that, we all broke. I flashed my quick, closed-mouth coworker smile to Jon, then Eleonora, then placed guitar on guitar stand, then walked out the door, into the hallway, around a few turns, until I saw—
+
+Benny. *Our producer.* 
+
+Standing in the corridor. Fixed in front of a portrait of Friar Miller. Looking at it with some degree of reverence. 
+
+I reached him and gave the obligatory tap on the shoulder to avoid the even weirder side-hug. He acknowledged, but kept his gaze squarely ahead at the artful rendering of the elder Miller.
+
+“That’s the guy that made all of this,” he said. 
+
+“Yeah,” I replied. “You just get here?”
+
+“Nah, I’ve been hanging out for a few hours now.” Head tilted towards me, finally. “Heard you all playing but didn’t want to mess with the energy.”
+
+*Would it one day be refreshing to meet a musician who wasn’t superstitious.* “That’s thoughtful of you, man. And hey, glad you and Jon were able to work through everything.” 
+
+“Totally. You guys too,” he said. Then—“And for what it’s worth, I *do* forgive you. And I wouldn’t worry too much about the others. I’m sure they’ll come around soon.” 
+
+*What?* “Yeah man.” 
+
+“We all have our problems and our baggage. *Don’t let the thought that you might’ve broken us up weigh you down.* You deserve to have a good time here.”
+
+*I’m not the reason we broke up, you fucking—*“Appreciate that, man.” I gave him a squeeze of the shoulder that I tried my best to keep light and not punitive, and then left, thoroughly offended, while Benny returned to admiring the framed pieces lining the walls.
+
+Like basically always, I pushed it down. 
+
+I was aware that the whole ‘alpha’ and ‘beta’ male thing was just a dumb construct—astrology for dudes to help us make sense of the world. But I had the horrifying flash of the thought that perhaps it was the ‘betas’ of the whole operation who looked at it that way. 
+
+The unnecessary notion vanished when I saw Eleonora standing in the entranceway. *What would a confident person do right now?* was the next thing on my mental conveyor belt. I walked past her, hoping, from the outside, that I looked like someone with his spine straight, uninvested in what the world—and certainly what ex-lovers—thought about him. 
+
+“Marc,” she called. 
+
+I stopped. “Hey.”
+
+“Do you wanna talk?” 
+
+—
+
+Our boots waded through crusted snow, and it was colder than I think either of us thought it would be. She was smoking. I was envious of the lit end of her cigarette. Being ablaze wouldn’t have been terrible right now. 
+
+“You didn’t break up the band,” she said. 
+
+“*Thank you!* I—”
+
+“But you *were* the catalyst.”
+
+“Oh, *come on* Elle—”  
+
+She pointed at me with the cigarette pinched between her fingers.
+
+“*Don’t.* Don’t do that passive thing you always do.”
+
+“I actually don’t know what you’re talking about.”
+
+“That fucking thing. *Woe is me,* I’m small, the world is *enacting itself upon me—”*
+
+“Th–ch, I, that’s a—complete misrepresentation—”
+
+“Sure.”
+
+“It is! It actually is!” I said. “Look. *Seriously*. Everyone was sick of each other by the end of it. Couldn’t even be in the same room together for more than an hour. And once, *just once, I’m the one who storms out—”* 
+
+“You didn’t just storm out. You tore everyone a new one. It was like pure unadulterated darkness. Legitimately didn’t think you had it in you, and *hey*, actually would’ve appreciated you speaking your mind unfiltered—if you hadn’t picked the *worst fucking time for it.*”
+
+I wanted to argue, but it felt pointless. 
+
+“It was like… angry slam poetry,” she said, almost laughing.
+
+“Oh fuck you,” I said, jokingly. “But no, yeah, got it, loud and clear. Don’t have emotions, never react. *Be a blank slate.*” 
+
+“Aww, poor baby Marc can’t expwess his feelings,” she said, mockingly. “No. What I’m saying is, if you take the mantle of diplomat—which by the way, you *always did*—then you can’t torpedo things the second you reach your breaking point. It’d be like Ringo dropkicking Paul ‘cause he was sick of playing *Maxwell’s Silver Hammer.*” 
+
+“I will have you know I think that song is great.”
+
+“I mean, it *is* Marc coded. It’s a happy, chipper song about a murderer. *Pumped Up Kicks* for boomers.” 
+
+“Absolutely, and it is now dawning on me that you compared me to Ringo,” I said.
+
+“Shhh, Ringo’s great.” 
+
+And for some reason, that was the moment when our walk descended into a comfortable, familiar silence. The one where neither of you feels the need to talk. 
+
+And I wanted to hold her hand—but I wasn’t sure if that was a Beatles reference that would’ve gone over well.   
+And as if in some strange way she could sense my internal monologue—she turned to me. We both stopped in the snow. Looked at each other.
+
+*Then*—to my complete bewilderment—she leaned in. The universal signifier of a kiss. I matched her gesture. 
+
+*Is this actually happening?*
+
+She stopped. Abruptly. As if romance had entered her eyes and then promptly left, lucidity jumping in to replace passion. Her brows furrowed, she looked a bit thrown, and in a strange touch, she pressed the side of her fist against my chest for a quick reset, before nodding.
+
+“We should go inside,” she said. I caught the slightest, confused shake of her head as we turned back to The Pinnacle.
+
+—
+
+Back in the recording room, the awkward, somewhat stilted feeling between everyone unfortunately remained. 
+
+John brought us around to another demo from our previous life. One that, in a lucky twist, *hadn’t* aged poorly—the little deviations and flourishes everyone added as we played actually serving to enhance.
+
+Benny manned the control room. He gave John a light nod, which John returned. Still some tension there, it seemed, but— 
+
+*The performance sounded good*. We had a song. An actual, *viable* song. 
+
+One that, unlike everyone else, I was fucking up. Minor fuck-ups, sure, but the missed notes and offbeat timing were starting to add up.
+
+I wasn’t sure what was throwing me off. What I was picking up on. It felt like I was grappling with too many things: *wanting to redeem myself, wanting to prove I could do this, wanting Eleonora to like me. Wanting. This. To Work.*
+
+*Wanting to be famous again.* 
+
+The group called it a night afterwards—something genuinely earned after hours of writing and practice.
+
+I stayed behind. 
+
+Alone in the space, I tinkered with my guitar, practicing my parts—headphones in, backing track looping to block out distractions. The restlessness didn’t subside. My playing, my control, just as sloppy as it had been when the others were around. 
+
+By the time I gave up on my efforts, it was well into the night. I set the guitar on a stand, put down the headphones, and left.
+
+Down the hallway on my way out, I felt a new urge this time. One to explore the studio more thoroughly—to go beyond the section we’d been relegated to. 
+
+Part of it was the wiring I noticed—subtle white cables taped along the hallway walls, snaking around corners, leading somewhere deeper into the studio.
+
+The curiosity, initially overwhelming, eventually passed. I didn’t follow. 
+
+Never really understood how all this production stuff worked anyways. 
+
+—
+
+At the bunks, I made my way up to my room. Everyone else was already asleep at this point.
+
+I shifted to the bathroom and started brushing my teeth. Somewhat mindlessly, I opened up some cabinets with my free hand.  
+
+Inside one of them, I found a rather interesting pamphlet.
+
+*“Getting the Most Out of Your Time at The Pinnacle”*
+
+I flipped through. The language was definitely a bit dated and tacky. Callouts to “*tune into the vibration*” and “*follow your instincts for the perfect performance*.” Not exactly granular advice to leverage for a high-stakes production. 
+
+My eyes lowered to the bottom of the last page, where it read, in smaller text and a completely different font:
+
+*“Let it inside you.”*
+
+I slid it back into the cabinet and finished brushing.
+
+On my way to bed, I noticed something in the corner of my room. Perhaps it was there the whole time. Or maybe someone was tinkering in my room earlier. 
+
+It was a white microphone, on a mini stand, diagonally facing the bed. *Huh?*
+
+I put it away in the dresser. I probably just never noticed it before. 

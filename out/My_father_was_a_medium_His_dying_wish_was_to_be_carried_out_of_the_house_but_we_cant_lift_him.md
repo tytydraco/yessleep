@@ -1,0 +1,345 @@
+My father spent his entire life acting as a filter for other people’s nightmares.
+
+He was what most people would refer to as a medium, though he absolutely hated the term. He did not use crystal balls, or even conduct elaborate seances in darkened rooms, and he never once accepted money for his services. He operated out of the front living room of our house, sitting quietly while desperate, exhausted people sat across from him and poured out their horrors.
+
+They came from all over. Grieving parents who could not stop hearing their deceased children crying behind the drywall. Widows who woke up to find wet, muddy footprints pacing around their beds. People who had accidentally brought something terrible into their homes and did not know how to get it out. My father would listen, close his eyes, and simply speak to whatever was attached to them. He would negotiate, demand, or forcefully sever the connections.
+
+He was incredibly effective, but the work took a massive, cumulative toll on his physical body. Every time he successfully detached an entity from a client, he seemed to age another year. His hair went completely white in his early forties. His joints became stiff and inflamed, and as time passes he developed a chronic, rattling cough that never fully went away.
+
+For the last twenty years of his practice, he conducted every single session sitting in one specific piece of furniture. It was a massive, antique reading chair upholstered in heavy, dark green velvet, resting on thick wooden legs carved to resemble animal paws. He claimed the chair was his anchor. He said that when he opened his mind to the things waiting in the dark, the current was incredibly strong, and he needed a solid, heavy object to keep himself from being pulled entirely out of his own body.
+
+As he grew older and his health began to severely decline, he stopped taking visitors. The front door was locked, the curtains were drawn, and our house fell into a stagnant silence. I moved back into my childhood bedroom to act as his full-time caregiver.
+
+Three nights ago, his breathing became incredibly shallow. I sat next to him in the living room. He was resting in the dark green reading chair, a thick wool blanket draped over his frail legs. He refused to lay down in a proper bed.
+
+He reached out, his skin completely devoid of warmth, and gripped my wrist with a sudden, surprising strength.
+
+"I am not going to leave this room alive," 
+
+he said, his voice a dry, scraping rasp.
+
+"You are just tired,"
+
+ I replied, trying to offer comfort.
+
+ "We can call the doctor in the morning to adjust your medication."
+
+"Listen to me," 
+
+he commanded, his grip tightening painfully against my bone. 
+
+"I know exactly where I am going, and I know exactly what is waiting for me. I have spent my entire life pulling people out of the dark. I made a lot of enemies in places you cannot see. They have been waiting for me to get weak."
+
+He paused, coughing violently into his chest before forcing himself to continue.
+
+"I am going to die in this chair,"
+
+ he stated, his eyes locking directly onto mine with absolute, terrifying certainty. 
+
+"When I pass, you must not leave me here. You must physically carry me out of this house. You must carry me to the cemetery and put me in the ground. No matter what happens, no matter what it feels like, you have to lift me out of this chair and carry me out the front door."
+
+"I promise,"
+
+ I told him, entirely unsettled by the sheer panic radiating from a man who had never shown fear in his entire life. "I will handle everything."
+
+"Do not let them pull me down,"
+
+ he whispered, releasing my wrist and sinking back into the heavy velvet cushions.
+
+ "They are going to try to pull me down."
+
+He closed his eyes. He did not speak another word.
+
+I woke up the following morning, walked into the living room, and found him completely still. The ambient temperature in the room had plummeted overnight. His chest was no longer rising, and his skin had taken on a pale, waxy pallor. He had passed away exactly as he predicted, sitting upright in the antique reading chair.
+
+I sat on the sofa for a long time, staring at his motionless body, processing the heavy, suffocating reality of his death. Eventually, I picked up my phone and called my older brother and my younger sister. They both lived a few hours away, but they dropped everything and drove straight to the house.
+
+They arrived early in the afternoon. The house was somber and quiet. We stood together in the living room, looking at the man who had raised us.
+
+"We need to move him to his bedroom,"
+
+ my brother said, keeping his voice low out of instinctual respect for the dead.
+
+ "We need to lay him flat, clean him up, and get him dressed before we call the funeral director to come collect the body."
+
+I thought about the promise I made the night before.
+
+"He told me he wanted us to carry him out of the house," I explained. 
+
+"He was incredibly specific about it. He wanted us to physically lift him."
+
+"We will," 
+
+my sister agreed, wrapping her arms around her own torso.
+
+ "But we cannot leave him sitting in a chair. We have to prepare him properly first. Let's just get him down the hall to his bed."
+
+It seemed like a logical, reasonable compromise.
+
+My brother approached the right side of the reading chair, and I approached the left. Our father was a remarkably thin, frail man at the end of his life. He could not have weighed more than one hundred and thirty pounds. Moving him should have been a simple, delicate task.
+
+"I will take his shoulders,"
+
+ my brother instructed, sliding his hands carefully under our father's armpits.
+
+ "You grab his legs behind the knees. On three, we lift him straight up and clear the armrests."
+
+I nodded, bending down and sliding my forearms under his cold, stiffening legs.
+
+"One,"
+
+ my brother counted. 
+
+"Two. Three."
+
+We both engaged our muscles and pulled upward simultaneously.
+
+Nothing happened.
+
+My father’s body did not move a single millimeter. He felt as though he was bolted directly into the structural frame of the heavy chair.
+
+"You didn't lift,"
+
+ my brother grunted, adjusting his grip and wiping a sudden bead of sweat from his forehead.
+
+"I pulled as hard as I could,"
+
+ I argued, flexing my hands.
+
+ "He feels stuck."
+
+"Rigor mortis might have set in awkwardly," 
+
+my sister suggested, stepping closer to observe.
+
+ "His center of gravity is off. Try pulling him forward first, away from the backrest."
+
+My brother grabbed our father's shoulders again, digging his boots into the hardwood floor for better leverage. I gripped his legs tightly.
+
+"Pull forward," 
+
+my brother commanded through gritted teeth.
+
+We threw our entire combined body weight backward, attempting to drag the frail corpse just a few inches toward the edge of the velvet cushion.
+
+The resistance was completely incomprehensible. It felt exactly like trying to manually pull a parked car by the bumper. My father’s body weighed literally tons. The extreme exertion sent a sharp, agonizing pain shooting up my lower back.
+
+As we strained, a loud, violent sound echoed through the living room.
+
+Crack.
+
+The thick oak floorboards directly beneath the antique reading chair groaned in severe structural distress. The wood actively splintered and bowed inward under the four clawed feet of the furniture.
+
+My brother let go instantly, stumbling backward and gasping for air. I dropped my father's legs, massaging my cramping forearms.
+
+"What the hell is going on?" 
+
+my brother demanded, staring at the body in disbelief. "He feels like a block of solid lead. Did you bolt the chair to the floor?"
+
+"No," 
+
+I answered, my heart rate accelerating as a cold dread began to pool in my stomach. 
+
+"The chair is completely freestanding."
+
+"The floor is breaking," 
+
+my sister pointed out, her voice trembling slightly as she stared at the fractured wood beneath the front legs of the chair.
+
+ "He is too heavy. The floor is actually giving way."
+
+It defied all known laws of physics. A frail, deceased old man was generating enough downward force to compromise floor.
+
+"Everyone step back," 
+
+I instructed, my mind racing to find a logical, grounded explanation. 
+
+"Let me look at the floor. Maybe the casters on the legs are caught in a structural gap. Get some water from the kitchen. Take a five-minute break."
+
+My brother and sister retreated to the hallway, clearly unsettled by the bizarre impossibility.
+
+I went to the utility closet and retrieved a heavy tactical flashlight. I returned to the living room, dropped to my hands and knees, and pressed my cheek against the cold hardwood floor.
+
+I engaged the beam of light and directed it into the narrow, dark space beneath the antique reading chair.
+
+The four heavy wooden legs were resting directly on the floorboards. However, the wood between the legs had fractured significantly. A jagged, irregular crack roughly two inches wide had opened up in the center of the planks, running the entire length of the chair. The floorboards were bowing aggressively downward into the gap, drawn by an immense, unseen pressure.
+
+I shined the flashlight directly into the dark crack, trying to illuminate the crawlspace beneath the living room.
+
+The beam did not hit dirt, or even hit concrete blocks or plumbing pipes. The intense, high-lumen light simply terminated into darkness. 
+
+I turned off the flashlight and stood up. My father's warning echoed loudly in my head. Do not let them pull me down.
+
+I needed to see exactly what was generating the downward force. The gap was too narrow for my head, and the angle was impossible for the flashlight. I walked into the kitchen, retrieved a roll of heavy duct tape from a drawer, and grabbed a long wooden broom from the corner.
+
+I pulled my smartphone from my pocket. I activated the camera application, set it to record video, and forced the camera flash to remain continuously on. Using thick strips of duct tape, I secured the phone tightly to the very end of the broom handle, ensuring the camera lens pointed directly downward.
+
+I walked back into the living room. The house was entirely silent, save for the muffled sound of my siblings talking in the kitchen.
+
+I knelt beside the antique chair. I gripped the wooden broom handle and carefully slid the taped phone into the jagged crack in the floorboards.
+
+I pushed the handle down. It went in one foot. Then two feet. Then three. I kept feeding the wooden pole into the gap until my hands nearly touched the splintered floorboards. The phone was dangling four feet below the foundation of the house.
+
+I held it there in the darkness for exactly thirty seconds.
+
+I pulled the broom handle straight up, retrieved the phone, and peeled the heavy tape away from the casing. I sat back on my heels, stopped the recording, and opened the video gallery.
+
+I pressed play.
+
+The video began with a chaotic blur of splintered wood and dust as the phone scraped through the narrow gap. The camera flash brightly illuminated the broken edges of the floorboards.
+
+As the phone descended past the wooden subfloor, the video quality severely degraded. The screen filled with digital static and visual distortion. The audio track captured a thick, rushing sound, similar to heavy wind blowing through a deep tunnel.
+
+The camera stabilized.
+
+The video displayed a massive, cavernous expanse of pitch-black nothingness existing directly beneath the floor of our living room. It was a bottomless, structural impossibility.
+
+The camera flash illuminated the perimeter of the abyss directly beneath the antique chair.
+
+My breath caught in my throat. I stared at the screen, my entire body locking into a rigid, paralyzed state of sheer terror.
+
+Reaching up from the suffocating darkness of the abyss were dozens of hands.
+
+They were pale, completely devoid of blood or warmth. The skin was necrotic, rotting away in ragged strips to expose yellowed bone and dark, ruined muscle tissue. The fingers were impossibly long, ending in sharp, hooked nails packed with dark soil.
+
+The video clearly showed dozens of these rotting hands going to for the exposed underside of the floorboards and the heavy wooden frame of the antique chair. 
+
+Then suddenly the video just closed by itself, I tried to run it again, but all I saw this time was just the static, I closed the video application. My hands were shaking so violently I nearly dropped the device onto the floor.
+
+I stood up and walked into the kitchen. My brother and sister were leaning against the counter, drinking water from glass tumblers.
+
+"We have to try one more time,"
+
+I told them, keeping my voice carefully controlled. I did not mention the video, or the abyss. If I told them the truth, they would run, and I could not lift him alone.
+
+"It is physically impossible," 
+
+my brother argued, shaking his head.
+
+ "We are going to blow our backs out. We need to call the professionals. The funeral home has stretchers and equipment."
+
+"He asked us to do it,"
+
+ I insisted, staring directly into my brother's eyes. 
+
+"He made me promise. We are his children. We owe him one final effort. We are going to use leverage this time. We will push from the bottom and lift from the top simultaneously."
+
+My sister sighed, setting her glass down on the counter. "One more try. But if the floor cracks again, we are stopping."
+
+We walked back into the living room and positioned ourselves around the heavy velvet chair.
+
+"I will get behind him," 
+
+I instructed, moving to the rear of the furniture. 
+
+"I am going to wrap my arms entirely under his armpits and lock my hands together over his chest. Brother, you take his left leg. Sister, you take his right leg. Do not pull forward. Pull straight up toward the ceiling."
+
+I leaned over the backrest, sliding my arms under my father's cold, stiffening shoulders, lacing my fingers securely over his sternum. My siblings crouched down, each grabbing one of his legs just behind the knee joint.
+
+"We lift on three," 
+
+I said
+
+"Use your legs. Do not stop pulling."
+
+"One," 
+
+my brother said.
+
+"Two," 
+
+my sister echoed.
+
+"Three. Lift!"
+
+ I shouted.
+
+We engaged every single muscle in our bodies. I pulled upward with desperate force, my boots pressing hard into the hardwood floor.
+
+The resistance was immediate and devastating. The downward pressure generated by the unseen hands intensified dramatically, fighting aggressively against our upward momentum.
+
+A loud, agonizing groan echoed through the entire house.
+
+The floor directly beneath our boots just sank.
+
+The solid oak planks dipped sharply inward, sloping aggressively toward the cracked center beneath the chair. I felt my balance shift violently as the architectural integrity of the room began to collapse into the abyss.
+
+"The floor is caving in!"
+
+ my sister screamed, struggling to maintain her grip on our father's right leg.
+
+"Keep pulling!"
+
+ I yelled, refusing to let go of his chest.
+
+Suddenly, the power went off.
+
+The living room was plunged into darkness. The humming of the refrigerator in the kitchen ceased. The ambient glow of the digital clocks vanished.
+
+The heavy, unyielding weight of the unseen entities pulling against us seemed to multiply in the darkness. The temperature in the room plummeted to freezing in a matter of seconds. The air pressure shifted violently, creating a popping sensation deep within my eardrums.
+
+Through the front window, the municipal streetlamp positioned on the sidewalk outside flickered erratically.
+
+The faulty orange light surged momentarily, sending a brief, harsh strobe of illumination cutting through the living room window before dying completely.
+
+The flash of light lasted for a fraction of a second, but it illuminated the entire room with horrifying clarity.
+
+We were not alone in the living room.
+
+Standing directly behind my brother, illuminated by the harsh orange strobe, was the tall, decaying figure of a man dressed in a rotting, mud-stained suit. The corpse had its pale, emaciated arms wrapped tightly around my brother's waist, hugging him from behind, adding its heavy, dead weight to the downward pull.
+
+Standing directly behind my sister was a bloated, waterlogged woman. Her skin was a sickening, translucent blue, her long, wet hair plastered across her ruined face. The drowned corpse had her swollen arms draped heavily over my sister's shoulders, locking her fingers together over her collarbone, dragging her toward the sinking floor.
+
+I felt a sudden, freezing pressure against my own back.
+
+I felt the unmistakable sensation of two thin, bone-chilling arms wrapping entirely around my chest, crossing directly over my own forearms. I felt the wet, freezing texture of a ruined cheek press intimately against the side of my neck. The smell of stagnant water washed over me.
+
+The streetlamp outside died completely, throwing the room back into darkness.
+
+The psychological dam broke entirely.
+
+My sister released a raw, deafening scream of terror. She dropped our father's leg, scrambling frantically backward, her boots scraping wildly against the sloping floorboards.
+
+"Get off me!" 
+
+my brother roared, thrashing violently in the darkness, the sound of heavy fabric tearing echoing through the room as he violently threw the unseen weight off his back.
+
+The sudden loss of their upward leverage was catastrophic. The entire, massive weight of the dead body, the velvet chair, and the rotting hands pulling from below shifted entirely onto my arms.
+
+I was violently jerked forward over the backrest. The physical force shattered my grip. My fingers pulled apart, and I was thrown heavily onto the sloping hardwood floor.
+
+I heard the frantic, chaotic sounds of my siblings scrambling out of the living room. I heard the front door violently ripped open, the heavy wood slamming aggressively against the interior wall. I heard their boots hitting the concrete steps of the front porch, retreating rapidly toward the driveway.
+
+I lay in the dark, gasping for air, listening to the chaotic revving of a car engine outside. The tires squealed aggressively against the asphalt, fading rapidly down the street until the neighborhood was completely silent again.
+
+I was left entirely alone in the pitch-black house.
+
+I did not move for a long time. I remained perfectly still on the sloping floor, terrified that if I moved, the freezing arms would wrap around my chest again.
+
+Eventually, the faint, grey ambient light of the moon began to filter through the front window, providing a weak, shadowed visibility.
+
+I slowly pushed myself up onto my hands and knees and looked toward the center of the room.
+
+My father was still sitting in the antique reading chair.
+
+The heavy furniture had sunk nearly six inches into the fractured floorboards. The jagged crack separating the oak planks had widened significantly, exposing more of the absolute, pitch-black abyss directly beneath the foundation.
+
+I crawled slowly backward, moving carefully up the sloped floor until I reached the safety of the hallway.
+
+I am writing this account on my phone, sitting alone on the kitchen floor.
+
+My siblings will not answer my calls. They will not reply to my text messages, I cannot blame them, and I know they will never set foot on this property again.
+
+I cannot call the police. I cannot call the coroner. No one will understand, no one will grasp the abyss under our foot.
+
+The gaping, bottomless hole in my living room floor remains. It is actively widening. I can hear the sharp, rhythmic sound of dry wood cracking and splintering as the immense weight slowly drags the heavy velvet chair deeper into the gap.
+
+Worse than the breaking wood, I can hear the scratching.
+
+It is a frantic, chaotic sound of long, sharp fingernails scraping aggressively against the underside of the intact floorboards. 
+
+I am completely trapped in this house. I cannot leave without breaking the promise I made to the man who spent his life protecting people from this exact horror.
+
+I am posting this here because I desperately need occult advice. 
+
+Please tell me how to sever the grip of the things waiting in the dark. Tell me how to stabilize the floor long enough to lift him out of that chair. I need to know how to carry my father out of this house, because the scratching is getting louder, and the chair is sinking deeper into the void.
