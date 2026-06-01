@@ -351,3 +351,5 @@ My heart beat fast in my chest from disbelief, realizing that my oldest plan had
 Her tiny palm disappeared into my baseball mitt of a hand, and she let it linger there for a moment, eyeing the scar across the back of my fingers and thumb. I think it made her wonder if she’d made the right choice.
 
 If she was, then she must not have given in to her concerns, because she turned then began to pull me along, setting out to help a subject in need.
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1ttdapa/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

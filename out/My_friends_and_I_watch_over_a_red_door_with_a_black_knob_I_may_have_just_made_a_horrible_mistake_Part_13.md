@@ -1,0 +1,399 @@
+[{Original Post}](https://www.reddit.com/r/nosleep/comments/1qzmk9s/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1re3ii9/my_friends_and_i_watch_over_a_red_door_with_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+*Content warning*: >!Mentions of child abuse!<
+
+I really hadn’t known what I was asking the princess for when I requested some answers. As far as questions went, we had too many to count, and I hadn’t even asked a single one before she grabbed my hand and started tugging me along. Did she already know what we’d been looking for? Had she been watching us from the other side of the mirror this whole time?
+
+She had shown me she couldn’t talk, so I figured her ‘leading me’ was her way of answering. I followed under this mindset but was very confused when our walk ended quickly. We’d stopped maybe five feet from where we’d began; staring at a nearby wall.
+
+“Is… everything okay?” I asked.
+
+The princess didn’t face me at all, she just gripped my hand tighter and reached out her opposite one, hovering toward the wallpaper. When she touched it, I thought her hand might pass through, or perhaps we would suddenly flash to a new location, like all of my other visions.
+
+My latter guess was closer, but it didn’t happen the way that I expected it to.
+
+Her tiny fingers brushed over the wallpaper, and as they did, they pulled away several strings; something like fine cobwebs that had been so still and translucent I couldn’t see them before. The princess kept tugging, and soon there were hundreds of them cradled around her fingertips, pulled out tight from the wall like a dense cluster of guitar strings, each one glittering and sparkling like crystal.
+
+She moved her thumb up to strum at them, causing the places she touched to excite with a soft glow. I could hear sounds ringing from them—laughter and music and talking and thunder; noises seemingly trapped within the threads. As this happened, the surrounding room changed, rapidly flickering between light and dark, as well as different objects around the room appearing and disappearing.
+
+They were more images of the past. The threads were like files in a cabinet, and the little girl was slowly thumbing through them each time she strummed a chord, popping us into that reality.
+
+Were these what I was finding in my own plane of existence when I touched the cracks in the walls? That would explain why I had passage into these unknown pockets; they were tangible, just not visible to the naked eye, and only once you were seeing on this plane of existence could you make them out.
+
+Still, that left some questions. Why was I the only one who seemed able to interact with them? I suppose I wasn’t certain that my friends \*couldn’t—\*I had really been the only one to touch the dilapidated parts of the manor so far, so maybe they could enter too if they did the same. I thought about calling out to Carly to have her pull me back to reality and we could test this theory, but I had just found Ariadne, and I wasn’t about to split up from her.
+
+That aside, it was also curious that only the princess seemed able to tug at the strings. When I attempted to do so, I only felt the solid surfaces containing them. This one I chalked up to her more ethereal nature. As sad as it was to say, she was no longer human like me, and I guessed that a mortal shell had its limits.
+
+Ariadne landed us in a version of the sewing room that was dark and devoid of any living bodies. Outside, the blue hour cast its languid glow through the window, and crickets began to sing their nighttime symphony. The rest of the house seemed still and quiet; nobody home.
+
+“Is… this another memory of yours?”
+
+She looked up at me.
+
+“I was just down in the yard a moment ago in a place like this. I saw you having a tea party with the ladies who used to live here. Was that something that happened a while ago?”
+
+Ariadne nodded, but her eyes betrayed discomfort when she quickly turned away again. She squeezed my hand a little tighter, then pulled me along toward the door. I followed.
+
+The house remained silent until we reached the stairs and began moving down. The crackle of gravel rumbled from the driveway, and I looked out the window ahead on the landing. Out of the dark forest, I saw headlights break through. An incredibly sleek, vintage, convertible red Mercedes chugged along, top down and all of its seats full.
+
+It seemed familiar, and I realized that I’d seen it in the tea party memory too—it was the housemistress’s vehicle. I paused for a moment on the landing to watch them from above, and saw as they got out that Margret moved to the back passenger side to aid a smaller rider.
+
+In the dull light and from so far away, it took me a moment to recognize the little girl outside of her royal dress. Her blonde hair was not nearly so shiny and vibrant—it was teased and greasy. Her clothes were a simple floral dress that looked far too big on her, and it was just as ragged too. Despite having no packed bag or any visible possessions on her, it was pretty easy to read the situation.
+
+“Is this the night you arrived?” I asked my young friend.
+
+She didn’t give a response this time. She just looked vacantly down at her old self from her tip-toes before pulling me onward.
+
+I could hear Margret from the porch before they even got the door open, “Isn’t it marvelous, dear? Just wait until you get inside—it’s like a fairytale!”
+
+The door swung open easily, having been left unlocked, and the women filed inside, tagged along by a little girl with eyes full of stars. She regarded the expensive furniture and crystalline light fixtures with the same reverence one might toward a holy cathedral, and though she had been clinging close to Margret’s leg thus far, the allure was strong enough to draw her a few steps in.
+
+Natellie giggled at her, “I think she likes it.”
+
+For the first time, I heard our little Ariadne speak, her voice a fragile murmur, “This is… where you all live?”
+
+Margret joined in the giggling, “We’re very lucky ladies, Lucy.”
+
+Finally, I had a name for the little girl whose hand was in mine. I looked down to take her in with the new title, but she didn’t seem to care that I now had something to call her other than ‘your majesty’. Her eyes were distantly fixed on the scene. Even so young, it was easy to see the longing in her eyes; a melancholy behind what she was looking at.
+
+Lucy—the one in the memory—continued scanning the space with awe, “I’ve never seen a place so big…”
+
+“You know, my dear,” Adeline spoke, her beautiful, regal form gliding near the girl with the elegance of a dancer. She placed a hand on her shoulder before continuing, “It could be your home too, should you wish to stay with us.”
+
+Those words finally broke the girl from her trance, and she spun around to face the mistress. The woman had a warm, maternal smile on her lips, and in the golden light of the chandelier above her, she looked like an angel.
+
+Lucy was speechless, “I… I could… stay?”
+
+Adeline nodded, then reiterated with a playful tap on the nose, “If that’s what you wish, we would be honored to have such a delightful young woman as yourself for company. We could care for you and feed you and give you all the schooling you need.”
+
+Lucy’s jaw hung loose, the words lost from her lips. She processed everything that had just been said to her before a semblance of reality snuck in, and she folded inward, “My mommy; she might be mad… she’ll get mean and hurt me…”
+
+“Oh, darling,” Natellie gently cooed, “You wouldn’t have to worry about her anymore, we’ll get all of that taken care of for you. You’d be safe here.”
+
+The poor little girl’s eyes flickered up to peer through her curtain of tattered locks to stare like a puppy. It was like she couldn’t bring herself to believe such a reality could be true. She tugged awkwardly at the skirt of her oversized dress and shuffled on her feet, the floor hot with the urgency of the question.”
+
+Margret seemed to sense this from her expression, and she stepped forward, shooing her sisters back before speaking to Lucy, “You don’t have to worry about all of that right now, honey. Tell you what; why don’t we just fix you up dinner like we talked about, and you can think on it, yeah? Maybe seeing more of the house might change your mind?”
+
+“I think that’s a lovely idea, Margret,” Adeline tacked on, running a hand gently through Lucy’s hair, “And why don’t you see if you can’t get these gorgeous golden locks to shine like I know they can, hm?” she added with a wink.
+
+Lucy smiled for the first time since she’d exited the car. I wondered how long it had been even before that.
+
+“As for the rest of the house, it’s yours to explore, my dear,” Adeline told her before adding a playful tone, “Anywhere you’d like—though, the tower has all the toys.”
+
+That wondrous gleam appeared in Lucy’s eyes again, and she looked between the ladies as if asking permission a second time, just to be safe.
+
+Margret took her hand and gestured to the stairs, “Come on, love. Let’s go together!”
+
+The little girl clung tightly to her new friend and practically floated up the steps with elation, trying not to tug Margret too harshly along.
+
+Adeline's smile remained as she watched the two go up, but Natellie’s melted away once the girls were out of view.
+
+“You worded that a little too openly, I think—the whole house? She may try to go into the basement.”
+
+A shiver ran through me, and I suddenly felt the presence of the staircase door down the hall like glaring eyes. I may not have known what she meant by that in this present circumstance, but the sentence made it clear that the home of the red door hadn’t gained its threatening status so late in life. What could possibly be down there currently that was safe enough to live next to, but so dangerous that you wouldn’t want a kid near?
+
+Adeline shook her head, “She’s a child, Nattie—they’re naturally afraid of basements; how do you not know this by now? She’d open the door, take one look at that dark staircase, then turn right back around. She’ll be alright.”
+
+“Even so, if she *is* brave enough to go down…”
+
+“Then that will be okay too. To her, all that is down there is a concrete box, nothing more. I swear, Natellie, you’re growing awfully worrisome as of late.”
+
+The raven-haired woman’s face grew stern as she moved off towards the kitchen, her sister in tow, “We’ve worked hard to finally reach an understanding of how it works, Addy—the slightest disturbance could disrupt that and destroy everything. I feel I’m justified in my concern.”
+
+“Maybe,” her sister agreed, “but perhaps that understanding is why you should relax. The hardest part is over—all we need to do now is make sure we stay on the right path, and keep the children there as well. Make sure they feel welcome and at home here—that is a vital part of that. now, get out the canned peas, would you?”
+
+The two women continued talking into the topic of the meal they were preparing, but my ears didn’t follow them into that conversation. They were still taken by the last conversation I’d just heard. My head spun trying to make any sense of it at all, but it was all worded so vague and abstract that I couldn’t get a solid thought around it.
+
+They were talking about whatever was down there like it was a *good* thing—not bad. None of it lined up with what we knew so far about the red door, which only begged the question further as to what disaster happened here that made it all fall apart.
+
+Was it exactly what Natellie had been worried about? Or was it always broken to begin with?
+
+I’d gotten so caught up in the onslaught of information I’d just received that I hadn’t even noticed I no longer felt the tiny hand of the princess in my own. I turned back from the kitchen doorway to see her standing a few steps behind me, her head turned towards the basement door and eyes distant.
+
+I pursed my lips and put my priorities on hold, moving back to comfort her. She eyed me as I knelt, and I smiled at her, “Princess ‘Lucy’, huh? So that was your real name?”
+
+She shyly nodded.
+
+“What a fitting name for royalty,” I told her, trying to cheer her up. It didn’t seem to work as she tucked her chin to her chest, trying to hide that she was still casting glances to the door.
+
+I peered over my shoulder at the door and bit my cheek, “You don’t like it down there, I take it?”
+
+Lucy took a beat before shaking her head.
+
+“Something bad happened?”
+
+She nodded.
+
+“I see,” I told her, swallowing and trying to think of what to say. I didn’t ever interact with children much, let alone *ghost* children. Given the history of how my bloodline treated their young, I usually feared that I would just scare them away.
+
+Even so, I shoved my own insecurities aside and did my best to find something to say. “You’re afraid of what’s down there, and yet you still came to save me and my friends when we were lost, huh?”
+
+Her face lifted ever so slightly.
+
+“You’re very brave, Miss Lucy. I think we owe you even more than we already do for that.”
+
+Her arms clasped together and stiffened out against her stomach, her small form swaying and rocking on her heels with bashfulness.
+
+I snickered softly to myself at the endearing sight, then turned back to the basement, hoping to not sink her mood again with my next question, “The way it is down there with the door… was it always like that?”
+
+Lucy pondered the thought for a moment, then shook her head slowly. Her mouth parted and spoke words, but I couldn’t read them, and all that came out instead was the sound of a faint breeze.
+
+I nodded, feigning understanding, but I at the very least got the answer I was looking for. Still, I wanted to know to what extent the basement was inhabited by the curse of the manor, and was half tempted to turn and try the handle.
+
+I refrained because not only would it not budge within this memory, but also I didn’t want to scare Lucy off. She may have been brave once, but if whatever had traumatized her so badly still scared her enough to be on edge when it didn’t exist yet, I wasn’t going to make her relive it. Instead, I tried to gently ease into it, taking her hand once more and meeting her eyes.
+
+“Lucy, sweetheart, I know you’re scared of that place, but… is there any way you can take me to a memory where that door is open?”
+
+She shook her head fast—almost immediately—and tried to back away, to which I gripped her hand tight in reassurance and put up one of my own, “Okay! Okay—it’s okay—you don’t have to! That’s alright, love, honest.”
+
+It took a long beat, but finally, her wild eyes settled, and she eased her stance. I quickly tried to mend my mistake further, “Sorry, darling, I didn’t realize it was that bad. I won’t ask again, okay?”
+
+I wanted to believe myself on that, but the fact was, I was desperate. An answer to what the door was before it became the twisted portal that haunted us had to be down there, and with it, a possible answer of how to revert it without giving it blood as sacrifice. I wanted to believe that I wouldn’t make the girl relive whatever trauma was haunting her, but if things got any worse, I wouldn’t have another option…
+
+Her reaction only reinforced what I’d told her earlier, though. If she was brave enough to follow us down there on her side of the mirror just to save us when we needed help, she really was one of the bravest children I’d ever seen.
+
+“You okay?” I asked her to be sure, placing my hands on her shoulders.
+
+She seemed to be trembling which made the guilt in my stomach turn over, but she nodded anyway.
+
+“It’s gonna’ be okay,” I assured her, “You don’t have to take me anywhere that scares you, alright? Is there any other place here that might make things a little clearer for me?” I already knew what I wanted to know next, so pursing my lips, I clarified, “Lucy, when you lived here, were you the only kid they ever had?”
+
+The princess nodded, but looked a little uncertain of her own answer, like there was more to it.
+
+I tried to fish it out, “It seems like something about you was special to them. Do you know what that was?”
+
+The girl looked anxious again, but the expression was undercut with grief as she met my eyes. She shook her head no and spoke more windy gasps, but this time, I could actually make out what the last word was by the movement of her lips.
+
+*‘—Me.’*
+
+“Could you say that again?” I asked her, hoping I could glean a little more. She obliged, but it was still only that one word I caught, alongside her instant head-shake of disagreement. I could tell there were at least three, so I put it all together and filled in the blanks.
+
+‘*No me*.’
+
+‘*Not me’*
+
+Add the missing word.
+
+*‘Not just me.’*
+
+I looked at her confused, “Are you talking about the other children that came after you? I saw a boy in a memory up in the tower—was he someone special too?”
+
+Lucy bit her cheeks and furrowed her brow, clearly frustrated that I couldn’t fully understand her. She tried speaking again, this time only two words, but the only one I could make out was the single one I had already gotten from the last sentence. ‘Not’.
+
+When she still saw that I couldn’t understand, she grabbed my hand and pulled me through the kitchen. I gave one more once-over to Adeline and Natellie as they bustled about before I was pulled into he dining room out of sight from them.
+
+Lucy moved to the wall and ran her fingers over it again, plucking out more threads and flickering through the scenes.
+
+When she landed on one, it appeared to be morning time. Light shafted through the window of the parlor and landed with radiance upon the back of a new child; neither Lucy, nor the boy I’d seen upstairs. It was another little girl, this one with dark hair and a pristine white swing dress, a matching band across her swooping hair. She looked straight out of the sixties.
+
+The little girl munched happily on cereal while across from her, Adeline sat watching with a smile, resting her cheek against the back of her folded hands. The girl continued chowing down as she watched the sunlight’s fingers crawl over the Appalachians outside, and after a beat, Adeline spoke.
+
+“Millie, dear. Do you like it here?”
+
+The girl turned her with a beaming smile, then nodded emphatically, swallowing her latest bite and speaking, “Yes, ma’am. I like it here very much—I’ve never had such a nice place to stay.”
+
+Adeline laughed softly, “I’m very flattered to hear that, and also glad. I do so because I know you were a little hesitant to join us at first. The last thing I want is for you to feel uncomfortable here.”
+
+The girl, Millie, shook her head, “N-No! I was only a little shy at first, ma’am, honest! I love it here, though; these last days have been amazing!” Her head fell shyly, and she eyed her bowl, “I only wish I could stay…”
+
+“Well, my dear,” Adeline crooned, a smile gracing her lips, “that’s actually why I’ve asked. I have a proposition for you, if you’re interested?”
+
+Millie’s mood lightened again.
+
+“I know we only discussed a few days of you staying with us, but you are more than welcome to remain for good, should you like? We have more than enough room here, and you seem to have taken a shine to all those toys that we already have .” Adeline winked.
+
+Millie looked as if the earth had fallen out from under her, leaving her hanging high above the cliffs. Weightless and in awe. She let her spoon set back carefully into her bowl, then sat up straight, her lips parting as if to blurt ‘yes’ on instinct alone. Something seemed to catch her words before they could escape, though, and she sunk back into her seat, sadly turning to the side.
+
+“I… I don’t know if that would be okay…”
+
+“Is it your father that concerns you, my dear?” Adeline asked, her warm tone replaced by one dripping with empathy.
+
+Millie’s head bowed deeper, substituting a verbal answer.
+
+“He hurts you at home, does he not?”
+
+“He… he drinks a lot… it makes him act mean…”
+
+“And your mother; she does nothing to stop him, does she?”
+
+Millie’s eyes flickered to the mistress, and she spoke in a quiet whimper, “He hurts her too sometimes. They both get loud and yell a lot…”
+
+Adeline made a noise of compassion and stood from her chair, moving to one closer and reaching to take the young girl’s hand. Millie met her enchanting pools, and the woman clicked her tongue, “Millie, dear, if you stayed with us, we would never act such a way. We would keep you safe and happy, and you would never need to worry about your parents ever again.”
+
+Millie’s eyes fixed the table and lingered there for a long time. I could almost see the thoughts churning in her head, and feel the tight, ill sensation in her stomach that came with dreading punishment. She wanted what Adeline was offering, but she was too afraid to take it.
+
+“What if they get angry that I’m gone? Won’t they come find me? Won’t you get into trouble?”
+
+“Oh, Millie, my dearest, you need not worry about me and my sisters. None of that will be any issue, and we’ll take perfect care of any trouble that arises. It is what we do here at our home.” The woman leaned forward out of her chair, and reached her arms out.
+
+Millie’s face finally broke with relief, and her eyes welled as she fell forward into them, accepting the embrace like it could heal any sickness.
+
+“The only important thing is that you remain happy, my dear,” Adeline cooed softly in her ear, “That’s all we aim to do.”
+
+The earnest act dripping from Adeline’s words seemed to sway the young girl, and she pulled away before nodding emphatically, “Yes, ma’am. I’d like to stay please.”
+
+Adeline dried the girl’s tears with her thumb, “That’s splendid to hear, my darling. Positively splendid.”
+
+In any other circumstance, when the two embraced once more before resuming their morning, the sight might have been heartwarming. But with the context of what was just said, and knowing what the manor became, I found it nothing but horrific, my stomach turning to knots.
+
+I’d already been skeptical towards the women and their cursed red house, but that aside, the way that they were acting about taking children from their homes didn’t seem very ‘official’. My theory of them being some sort of early CPS organization had already been disrupted by Carly’s theory, but with these last few visions it was dismantled altogether.
+
+They were indeed rescuing abused children from their homes, but everything about the act seemed so murky. I had a feeling when they said they would ‘handle any trouble’, they didn’t mean ‘getting the law involved to handle any legal issues of adoption’. It sounded much more like they were taking them without anyone noticing, then hiding the children away here.
+
+Kidnapping them…
+
+The thought made me feel the way I did when the red door would swing open; an impending monster in the space with me. Adeline’s eyes as she went back to silently staring at the little girl next to her no longer felt full of love and adoration, they looked focused and cunning. Her smile seemed more sinister than warm.
+
+I turned to look down at Lucy, who seemed content that I had gained more insight. I was pretty sure I put together the second thing she’d said to me.
+
+‘Not just me. Not special.’
+
+This wasn’t some science fiction story about children with unique talents being whisked away to an orphanage like Carly and I’d thought. There was no strange power in them that might cause a catastrophe if too many of them gathered in one place.
+
+The children were normal, and they were probably kept isolated from one another so that none of them ever began to realize the threads they all shared. That they’d been tricked and taken. That the abnormal factor they had was what had been done to them; the abuse. It was what they all shared. The women were targeting children who had poor home lives and offering them a permanent escape, one that a child so young and desperate would never refuse.
+
+This, like everything in this damned mystery, only invited more questions. Was this tactic only so that the children would willingly stay and not try to escape after being taken? Or was the abuse integral to what the sisters were doing here? That seemed to be the case since Adeline had made it a point to mention that making the kids happy was their utmost priority.
+
+Were they just lunatics? A group of infertile women who’d always wanted children of their own and opted to steal the ones of those they deemed unworthy?
+
+This didn’t seem likely, mainly for one haunting reason. If these kids were made happy, grew up, then released back into the world, then why did we never hear of them in Stillwater? Why was there never any mention of the kind women on the mountain who rehabilitated abused kids and then helped them escape their hellhole town?
+
+I already knew the answer; there was really only one possibility. Especially with each child in the manor being taken a decade or less apart.
+
+They weren’t making it out of this place once they came in. So how many children were brought here, and what happened to them before a new one was taken?
+
+My mouth felt dry as I sensed the tiny hand in mine, and I slipped my fingers a little firmer around it, as if the small act might prevent the past bringing it here. She looked up at me, and I frowned, shaking my head at the princess’s innocent face.
+
+“Lucy… what happened to you here?”
+
+She hugged herself and did a tiny shuffle on her feet, but if she was planning on answering my question, she never got the chance.
+
+A raspy, screeching wail erupted from behind us in the guts of the house, followed by a frantic thumping down the stairs. Both me and my ghost jumped in surprise, whirling on our heels and looking between the kitchen and parlor door to see which way it would come from. Lucy’s eyes remained there, but I turned to look at Adeline and Millie, wondering what on earth was meant to happen next in this memory with a sound like that.
+
+My body felt numb and weak when I saw both were still sitting casually at the table, faint smiles on their faces and looking out the window.
+
+It wasn’t something they could hear because it was wasn’t part of the memory. This was in here with us.
+
+Lucy yanked my arm as the frantic pounding drew closer; four clumsy limbs drumming the hardwood with nails long enough to create harsh clacking sounds. We moved back towards the far wall of the space as she scanned the wallpaper like the text of a book, searching for what I assumed to be a new memory to jump us to.
+
+Fear was obviously gripping her the same way it was me, but she looked more collected toward it, as if this was something she’d experienced before.
+
+“Lucy, what is that?” I hastily asked.
+
+It turned out I didn’t need to. Through the opening into the parlor, the approaching threat rounded the corner, and I got to see a familiar creature in its full glory.
+
+It was the thing from Kait’s apartment—a pale, gangly form with long, gnarled black locks that dragged against the ground like a mop. Its ghastly skin was taut to the bone, and its nails were grimy and slate black, chipped and cracked but still easily sharp enough to rip open human flesh if given the chance.
+
+For all of its awkward, jagged movements, it still moved fast like a sprinting dog, stumbling over itself and letting out its angry, sobbing screams all the way through yellowed, crooked teeth. I couldn’t see eyes behind the black curtain of hair, but I knew they were boring straight into me.
+
+As the demon moved closer, its hair, hands and feet hitched on the hardwood the same way Lucy could pluck at the walls, pulling up sparkly, spindly threads from the ground that released echoes of the past to swirl with her incessant screaming.
+
+The pale thing reached the dining room, and I quickly dashed to put myself between it and Lucy, but just then, the princess plucked at a thread.
+
+The dining room went dark, and in the parlor I could see the sisters enjoying a fire by the mantle while sewing and listening to a record. If there was information to be found in the memory, it was going to have to stay lost, because Lucy instantly took off running towards the spot the creature had just been standing.
+
+I didn’t fight her, trusting she knew best, and thank goodness I did. Not a moment after we passed the creature's position in the dining room did I hear a wail again, from beneath us. Threads stretched up from the floor, and like tearing through a mesh net, the grey hands burst through, clawing at our feet and grabbing my ankle. The grip was strong, but easy to kick off with how far we’d already passed.
+
+“NO!” I heard a guttural sob erupt from the things lips as it breached its head fully through, “NO!”
+
+It quickly yanked its grotesque body the remainder of the way through, but by then, Lucy and I had reached the entryway door. We moved past the blissfully unaware women on the couches until the little girl reached her arm out as we did so and ran her fingers along the wall, flickering us to a new scene.
+
+Behind us, as if it was muffled beneath the floor, I could hear the wailing from the center of the room where we’d just left our pursuer. It began ripping past the threads again, and I hoped that the slowdown would give us even just a little more of a head start in our escape, but that word didn’t exactly feel feasible no matter how much I thought it.
+
+Just like at Kait’s apartment, this thing had found us out of nowhere, and it knew exactly what memory to follow us to each time we jumped. My comparison of the threads to spiderwebs might have been more accurate than I’d thought; this thing was a spider reading the ripples across its home and running us down.
+
+I prayed that in my frantic running back in my reality, Carly wouldn’t snap me free—I couldn’t leave Lucy on her own with this thing, even if she seemed like she knew how to handle it. I didn’t know what would happen to a ghost child should it get its hands on her, but given that its form seemed just as attuned to this environment as her, I guessed it would be able to hurt in one way or another.
+
+The spider continued to run us down with its muffled wails trailing us through the house, but Lucy always kept us several memories ahead, weaving to new ones when she could. Much like the halls below, the top of the manor was just as much of a labyrinth, only this was one that couldn’t be seen with the naked eye.
+
+Years upon days upon hours of memories all captured in time and laid out across space, letting us run past new children and instances of the sisters walking through their home. The time periods varied, and the lights dulled and dimmed with the passing sun, but the house never seemed to change, always pristine and perfect in its design.
+
+It made me shiver to think how long the operation was truly going for.
+
+After several minutes of ducking back and forth through the manor, backtracking on dead ends through different realities and running in circles through the same room, the princess pulled me to a stop. We were in the library at the center of the room, and all was silent, even the distant chirp of crickets from the night outside at a hush.
+
+We couldn’t hear the sound of the wails anymore, and I didn’t see any surfaces of the wall begin to part with threads as the spider made its way through. We had lost it for now.
+
+While the space was silent, we weren’t entirely alone. I turned, and Lucy followed to see that Adeline was sitting crisscross nearby, books splayed across the floor. When I tell you that by that point, I had seen every book in the manor from us doing research, I meant it, but there was one I noticed prominently out in front of the woman that I’d never seen before. It was a leather-bound journal with handwritten writing on it, several symbols and sigils drawn as well, from what I could see.
+
+That wasn’t the most occult thing about the scene though. In a ring surrounding her from the rest of the books, the woman had placed candles in a perfect circle upon small cast-iron plates, each of them containing a small loop facing toward her. Through the loops, a web of scarlet yarn had been threaded and wrapped inward, creating a perfect symmetrical pattern that eventually met at her waist, where a belt of the string looped around her.
+
+Her eyes were closed, but her lips moved softly, speaking words even more silent and breathless that Lucy’s. Her elegant hands stretched out with grace to her sides, tracing patterns over the red web she’d woven with intention and purpose.
+
+To my complete and utter surprise, I watched as she lifted her hands at an intersection of string, plucking the yarn and causing a new thread to arise from it. This one wasn’t red, though. It was silvery and sparkled and released a faint hum of forgotten noise from it.
+
+The same string that Lucy and the spider could manipulate. The strings of the past.
+
+I stared, positively transfixed, but Lucy didn’t feel the same. I felt her give my hand a tug to lead me away, and I looked over at her, suddenly realizing how insane what I’d just seen was. This was a moment from the past, and the woman before me was reaching outside of reality to the present to pull at the very fabric of time.
+
+She was afraid of it, and I supposed I was too. I was about to find out that we were afraid for very different reasons, though.
+
+“Was this what they were doing here?” I asked Lucy, my voice barely above a whisper.
+
+It turned out that volume didn’t matter. I jumped as, the moment the words left my mouth, Adeline whipped her head to look at me. *At me.* Not behind me, not at an object like any other fragment from the past we’d seen so far might.
+
+Straight. At. Me.
+
+Her eyes were wild and shocked, and she looked just as startled as we were. Lucy pulled me a little further back as the woman called out, “Hello? Is someone there?”
+
+My breath was stuck in my throat, and I couldn’t make a sound. She wasn’t just interacting with the threads; she was fully connecting with them, and if that was the case, then that meant she was in a similar state as me; able to glimpse into this place, but not touch.
+
+Whatever plane she was on, though, it didn’t seem to be nearly as elevated. She was looking where she’d heard the noise coming from, but she didn’t seem to *actually* see me.
+
+Part of me debated calling out. I thought about answering her and telling her that there *was* someone here, and that it was her who had brought me. If there was any time to get answers, it was right then, demanding them straight from the mouth of one of the three who I presumed were responsible for this whole mess.
+
+Lucy squeezed my hand tightly, though, begging me not to, and even if I went against those wishes, what Adeline said next made my breath hitch again.
+
+She smiled a wild, happy smile, released a shocked giggle past her lips, and said, “It works… it actually works…”
+
+It took a beat for those words to fully settle into my mind, along with the weight they held.
+
+When I said that nothing changed about the manor over the years, I meant that it never appeared worn or dirty. It did change with the times, however. Technology and electricity appeared more frequently through the years the further that Lucy and I travelled towards the present. In our current time, the library had several lamps and foot heaters about—things to make the place a modern, cozy study.
+
+The one we stood inside of at the moment had none of those things. Only gas lamps and candles.
+
+This memory was old—older than a lot of the children I’d seen in the memories so far, including Lucy. If Adeline was able to hear me just now, it meant that she and I were effectively time travellers.
+
+It also meant that I had just gone back in time to confirm for her whatever dangerous theory she’d been brewing in her head…
+
+I felt numb as the princess next to me pulled close to the wall, touching a thread and banishing us to a new place, one without the witch or the candles or the threads. It was bright out, the sun shining through the big round window straight onto us. The lamps were back in the room, as well as the overhead chandelier.
+
+I turned slowly to Lucy with shallow breath and knelt down to her, taking her tiny, innocent face into my scarred, calloused hands, “Lucy, I didn’t mean to… I… I am so, *so* sorry…”
+
+By her watery young eyes, I couldn’t tell if she understood why I was saying that, or if she just didn’t blame me to begin with, but she began to shake her head. Her lips parted to make more noiseless sound, but before I could even read a word of it, I felt my body get yanked back.
+
+The sun blinked away, replaced by a fluorescent white beam illuminating a cone of the room.
+
+“Jessie! Jessie snap out of it—are you okay?!”
+
+I spun fast to see Carly staring wild-eyed up at me, fear on her face. She wasn’t alone, though—all the others were with her.
+
+“Guys, what the hell is going on!?” Bryce shouted, looking off towards the door, “What the hell was that thing!?”
+
+“The door didn’t even open,” Lacey said, aiming her gun in the same direction, “Please don’t tell me that they can come from anywhere…”
+
+Carly didn’t address them and instead looked at me, “What did you do in there? What just happened?”
+
+Kait shook her head, “What do you mean ‘in there’? What the hell were you two doing just now?”
+
+I had the more burning question, “What’s going on out here? Is everything okay?”
+
+“No, dude!” Carly scolded, “You were just standing down in the dining room and then something started screaming upstairs!”
+
+“We heard footsteps around the house too,” Lacey said, “We thought something came back to life from the bottom of the cliff or something.”
+
+I swallowed, “Was anything actually here, or did you just hear it?”
+
+They all looked at each other, and Kait spoke, “No, we all rushed over because Carly started screaming for us, then we followed you while you ran. Whatever it was, it was thrashing all over the house, but it never touched anyone.” Her face went grim, and she added, “Jess, it sounded like that thing that attacked us at my apartment…”
+
+Carly faced me again and tried one last time, “Jessie, *what is going on*?”
+
+I looked off toward the door, hoping that whatever layer the spider was in, it wouldn’t come to the surface for us. Given what happened at Kait’s house, it seemed to be an inverse of myself. Something from that plane that could temporarily breach into ours.
+
+Unlike me in the memories, though, I had a feeling that it was more than capable of touching us.
+
+“Group meeting in the basement,” I told everyone, “We need to talk, and the next hour is about to hit.”
+
+Kait reached out and touched my arm, seeing how ghost white I’d become, “Jess, is everything okay?”
+
+I glanced to the spot where I’d just left Lucy standing alone, wherever she may be, and blinked the watery regret in my eyes away, “I’m not sure…”
