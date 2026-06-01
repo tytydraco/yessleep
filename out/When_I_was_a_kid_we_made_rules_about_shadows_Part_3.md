@@ -104,8 +104,6 @@ I shoved the last of the trash into the can and ran. Halfway to the house, the f
 
 The light went out. Hands grabbed me instantly.
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/1tr3515/when_i_was_a_kid_we_made_rules_about_shadows_part/)
-
 Warm hands. Wrapping around my arms and chest and waist. One clamped over my mouth before I could scream.
 
 I remember the smell most. Wet air. Dirt after rain. Slightly rotten.
@@ -131,5 +129,3 @@ The yard was empty again.
 Except for the words written across the glass in one last moist breath. 
 
 “WHERE DO THE SHADOWS GO.”
-
-  

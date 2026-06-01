@@ -1,0 +1,78 @@
+The Route Before Mine  
+   
+I’ve been hunting this land since I was nine years old. Forty-three acres of mixed hardwood and creek bottom in central Pennsylvania, passed down from my grandfather to my dad and then to me. I know every game trail, every scrape, every low spot that holds water after a rain. I know which trees the turkeys roost in and which ridge the does use to cross between properties. I know this land the way you know your own face.  
+So when something felt wrong last November, I noticed.  
+   
+It was a Tuesday — off-season, nothing open but small game — and I was doing my monthly card pull. I do it the same way every time: start at the creek crossing near the south fence, work northeast along the ridge, cut back through the hollow, and finish at the big white oak where I’ve had a camera running for six years. Twelve cameras total. Takes about two hours if I don’t stop to glass anything.  
+   
+The morning was cold, the kind that sits in your sinuses and makes your eyes water. No wind. The woods were quiet in a way I’d normally call “perfect” — that deep, held-breath stillness that means the deer are moving. But that morning the quiet felt different. Less like the woods were waiting and more like they were listening.  
+   
+I pulled the first card at the creek crossing, swapped it, kept walking. I didn’t look at the footage in the field anymore — I’d learned to just wait until I was home and warm and could watch it on the laptop. So I had no idea, not yet.  
+   
+The second camera was on a scrape line about three hundred yards up the ridge. Card out, card in, keep moving. I remember pausing there to check the wind with my lighter. It was still. Perfect still.  
+   
+I hit all twelve cameras in about an hour fifty. Nothing unusual out in the woods — no tracks I didn’t recognize, no hair on the fence wire, nothing broken or knocked over. The only thing I kept noticing was the quiet. The way the birds weren’t talking. The way I couldn’t hear the creek anymore even when I knew I was close enough to.  
+   
+Got home. Made coffee. Sat down with the laptop.  
+   
+Most of the cards were normal. Deer, a coyote on camera six, a raccoon that had somehow learned to look directly into the lens like it was posing. I was on camera eight — the one I’d set along the north edge of the hollow, facing a natural funnel between two thickets — when I stopped.  
+   
+There was a figure in the frame.  
+   
+My first thought was neighbor. But the neighbor to the north is seventy-two and doesn’t walk the fence line. My second thought was trespasser, and I leaned forward and put my face about six inches from the screen.  
+   
+It was at the far edge of the frame, partially behind a tulip poplar, and what made me stop wasn’t that it was there. It was the way it was standing. Both arms hanging too low. Head tilted at an angle that made my inner ear do something unpleasant — the kind of angle you only see when something is broken or wrong, the kind that takes a moment to register because your brain keeps trying to correct it into something normal.  
+   
+I told myself it was a trick of the light. Compression artifact. The camera was three years old and the housing had cracked the previous winter.  
+   
+I moved on to camera nine. Then ten.  
+   
+I was on camera eleven — the one set on the east fence, looking back toward the house — when I noticed the timestamp.  
+   
+Camera eight. The figure had been on camera eight at 9:47 AM.  
+   
+I had pulled camera eight at 9:51 AM.  
+Four minutes.  
+   
+I sat with that for a second.  
+   
+Told myself I’d misread it. Went back to camera eight and checked again. 9:47:03, the figure steps partially into frame. 9:47:31, it’s gone — not walking away, just gone, the frame empty between one second and the next.  
+   
+I pulled up camera nine. Checked the timestamps.  
+   
+A shape at the left edge of the frame. Same low arms. Same tilted head. Timestamp: 9:54 AM.  
+   
+I had pulled camera nine at 9:58 AM.  
+   
+I didn’t want to check the others. I checked the others.  
+   
+Every single card. Whatever was on it showed up four to seven minutes before I got there.  
+   
+Twelve cameras. Twelve appearances. It had been moving through the property ahead of me the whole time, staying just out of eyeshot, keeping pace.  
+   
+I sat with that for a long moment. Then I opened the Ring app.  
+   
+I scrubbed back to that morning — around eight o’clock, when I’d left the house. I watched myself come out, pull the door shut, cross the porch, step off into the field and disappear into the tree line.  
+   
+At 7:54 AM — six minutes before I’d stepped outside — something crosses the porch.  
+   
+It moves through frame left to right, unhurried, heading toward the field. The way it moves is wrong in a way I can’t fully articulate. The proportions are close but the timing is off, like watching a second hand that hesitates slightly before each tick. It drops off the porch steps and goes into the tree line at almost exactly the spot I would use six minutes later.  
+   
+It had already run the circuit before me. I’d been following it the whole time without knowing.  
+   
+I kept scrubbing.  
+   
+At 10:46 AM the camera picks up motion again. It comes back out of the field the same way it left — same gait, same wrong timing — and crosses toward the door. It tries the handle.  
+   
+I don’t lock my door. Never have. Forty-three acres in the middle of nowhere, nearest neighbor a quarter mile off. Never once felt like I needed to.  
+   
+The door opens.  
+   
+It goes inside.  
+   
+I watch it for a long time after that, the empty porch, the door left open a few inches the way it always swings back when the latch doesn’t catch. At 10:51 AM I watch myself walk up the steps and go in after it without breaking stride.  
+   
+I’ve been sitting at this table for three hours.  
+The woods are always quiet out here. That’s what I’ve always loved about it. But this is different — the same wrong quiet from this morning, the kind that doesn’t feel empty so much as it feels full. Like something is in it with you, holding very still, not breathing any louder than it has to.  
+   
+The kind of quiet that listens back
