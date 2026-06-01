@@ -1,0 +1,73 @@
+Have you ever had those moments where you wake up and something just feels odd ? The world feels different and you just, can’t shake off the feeling that something is not right ?
+
+Well usually it goes away after a while right ? You just need some time to wake up, perhaps a morning coffee. But that feeling has been with me for days now. Days upon days.
+
+And something truly doesn’t feel right. Well, enough of that, let’s move on to what happened.
+
+When i woke up, on the first day this feeling came over me, it took me some time to realise I was in my house. I could see clearly it was my house. But it didn’t feel like it. I felt out of place, like I should not be here.
+
+After fully waking up, the feeling went away in the back of my mind, drowned in the sound of morning news and the coffee maker. I grabbed a cup and filled it with the freshly brewed coffee and took a sip. The moment it made contact with my lips, I felt a stutter. A pause. Not like a brain zap. A true pause. I saw the coffee in the cup freeze for a split second. My eyes kept seeing, I kept moving, but the entire world around me stood still for a moment.
+
+It quickly left my mind though, as at the time, I dumbed it down to my brain acting up. Plus, I didn’t have time to think about a random little thing. I had woken up a bit too late and barely had the time to shower before making it to work.
+
+What I experienced when I got there will be stuck with me forever. I stepped through the front door and took the elevator for the second floor. Upon reaching it, I once again felt the stutter. Right before the doors opened. I stepped forward but I felt the world around me freeze. For three second. I know what I saw and what I felt. Even the air froze. I could not breath for three seconds.
+
+The seconds passed and finally, the doors opened. I went straight to my desk and sat down, greeting my co-worker. She said hi. And turned to look at me. This was unmistakably Marie. But here eyes, here mouth… they were stiff. With no sign of emotions. To say the least it felt awkward. She was staring at me with the eyes of a fish staring out of its tank.
+
+Her arm reached out to me, with mechanical stiffness, and grabbed my shoulder. And then she gave me that smile. A smile that looked like the result of teaching an alien what a smile is. They could do it but I would be forced, with no meaning behind.
+
+“Hey, Martin, follow me, I have something to tell you”, She told me, her mouth barely moving.
+
+To say the least the blood drained from my face. This was NOT Claire. I looked around, to see everyone else typing on their keyboards. The same, rhythmic typing, the same repetitive pattern. Tac Tac Tac Tac. On the screens: “Lorem Ipsum Dolor Sit Amet. Lorem Ipsum Dolor Sit Amet.” There was no meaning behind their frantic typing.
+
+My gaze went back to Claire’s face. She was still holding my shoulder.
+
+“Hard at work aren’t they? Today’s a busy day. Better not bother them. Follow me”, she said, in the same monotone voice as before.
+
+The moment I stood up, I fell right back down onto my chair, startled by the sound of a gun. Right when I felt myself back on the chair, in front of me brain matter flew out of Claire’s brain and onto the wall by her side. She fell down on the floor in front of me, a bullet hole through the skull. And then next moment her body was evaporating into black, square particles floating into the air.
+
+I froze. I just saw someone die in front of me. And then, turn into… Black squares. My eyes were locked on the floor where the body was seconds ago. And this feeling of something being just wrong today came back in full force. And I fainted on the spot.
+
+When I awoke, I was on a couch, back at my apartment with someone standing next to me. A tall man with blonde hair wearing a dark blue suit, a gun strapped to his belt.
+
+“Here, take a glass of water,” he offered, before even presenting himself. In the moment, I downed the water. And only then did shaky words leave my mouth: “The hell is going on…?”
+
+“Have you seen Matrix?” He asked me, and then followed with, “Imagine that but even worse. Body horror you cannot look at without fucking up your brain forever.”
+
+“So you’re saying this is all some kind of simulation?”, I replied. Honestly I could not think in the moment, I did not even put thought behind what his words truly meant. After what happened at work, everything seemed normal.
+
+“Yes, precisely. And in your case, I don’t know how… but your brain unplugged without causing your death. When you were plugged back in… You ended in this world. You could call it the test world. This Is where they experiment before pushing updates onto the main simulation.”
+
+My eyes were staring dead into his. I wanted to ask questions but my brain was fried.
+
+“Martin… I’ll be blunt. You have two options. Either, you wait, let another program find you, same as what happened with Claire, and let yourself be unplugged, killed. Or, I save you from them, and bring you to a safe place. But if you take the second option, you’ll have to help me tear down this machinery.”
+
+I replied instantly. I did not want to die obviously.
+
+“Good choice. Follow me”, he said, turning around and walking through the window. He did not fall though. He disappeared through it.
+
+I stood up from the couch, and I made my way to the window. This all felt like a fever dream. I wanted this to end. But what else was I supposed to do but follow along? So I stepped through the window. Once again the world froze around me as I stood in the air, 10 meters over the side-walk. Ten seconds passed, and suddenly I was in a different place. A living room filled with computers and other technological stuff. I looked around and there was the man, sitting in front of screen, typing away.
+
+“Come, let me show you something. Oh, by the way, the name’s Frank.”
+
+I stepped towards Frank and stood next to him, looking at the screen. He pressed enter. And what I saw did indeed make me wish for death. Because this was the easiest way to be freed from this hell.
+
+On the screen I saw horrors. He showed me the real world. Compared to this, Matrix was kid’s movie. Because we were no even treated as humans. He showed me videos of every process. Videos taken by hacking into the cameras of multiple machines. When a baby is born… They are kept asleep in a pod until 3 years old. Then, they are plugged into the simulation. Doesn’t seem too horrible right? A few cables, a few brain machine interfaces… Wrong. Because upon reaching adult age, they are moved on to the real part of the machinery. They are unplugged. Kept asleep. Modified.
+
+First, they chop off the limbs as to prevent escape if unplugged. Second, they add tubes directly through the skin into the stomach for food. They remove any unnecessary body part. They optimise the human body for easy maintenance. They even go as far as gauging out the eyes.
+
+And after all that, they cut off the entire top of the head, wire hundreds of cables directly to the brain, and replace the top of the skull with more machinery. We are turned into meat sacks used for god knows what.
+
+Frank told me; he has no idea why they do that, or for how long this has been going on. He said, these processes made sure no one could ever escape.
+
+“But the process is not perfect. A few mistakes go through sometimes. Sometimes people keep their eyes, their legs, their arms. Mistakes that work in our favour. Because they are the only way we could ever escape and save humanity", Frank added to his previous statement.
+
+I didn’t hear his words. I fainted again. It was too much for me to process. This was actually hell. There was no discussing it. This was real, and the sickest, most inhuman thing I ever witnessed in my entire life.
+
+Even today my brain is stilled fucked from seeing that. Now reader, you know what is going on. From our safehouse, we have ways to access the web of the main simulation.
+
+Frank tasked me with sending this story, to be seen only by people who could be of help for us, people who kept limbs and eyes, who were mistakenly kept in one piece by the machines.
+
+If you can read this, your body still has legs, eyes, arms, whatever. And you actually have a chance of running away after being unplugged, instead of instantly dying. You people, are whole and the only hope we have.
+
+We are only Frank and myself for now. Be not afraid if you are approached by either of us. You can always refuse.
