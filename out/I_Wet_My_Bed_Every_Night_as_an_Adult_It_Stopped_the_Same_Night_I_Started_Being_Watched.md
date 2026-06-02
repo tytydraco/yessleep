@@ -1,0 +1,127 @@
+I killed my mother on the day I was born.
+
+At least that's what my father used to tell me, usually around his third drink, when the grief needed somewhere to go and I was the most convenient address.
+
+The truth is less dramatic and more sad. Mother had a heart condition that had nothing to do with me. The pregnancy became complicated, so she was delivered early and didn't survive it. I came into the world at thirty-one weeks, in an incubator that probably cost more than my father made in a year. I don't blame him for needing a story. I know that people need stories.
+
+What I also know is that I was diagnosed with autism at age five. For those who don’t know- autism is a spectrum, like colors on a rainbow, as my therapist puts it. I sit in the part of the spectrum called the Asperger's Territory, which is a polite way of saying ‘*almost normal, but not quite’*.
+
+I have spent 28 years of my life without telling anyone about it. I've managed, mostly. I have a stable job as the Maths teacher at a junior school. I have two friends that I actually like. I have the aforementioned therapist I see every Thursday.   
+
+But I do have my issues. I'm a little slow to learn things that other people seem to absorb without effort. I'm bad at showing the right emotion at the right moment, so my face is expressionless most of the time. And I wet the bed every single night without exception.
+
+Yes, I have done this every single day since I was a child. My body works a bit differently compared to the average ‘normal’ adult, so I am not as ashamed about it as I should be. I have a waterproof mattress cover. I do laundry on Tuesdays and Fridays. I have made my peace with it and learnt to build my life around it.
+
+I'm telling you this because it matters. It is the only reason I noticed what I noticed.
+
+My apartment is on the fourth floor of a building that had seen better days. The building directly across the street is close enough that on quiet nights I can hear someone else's television. My window faces their windows. Everyone here is three meters from a stranger at all times. This is the best I could afford on a schoolteacher’s salary, so I have never given it much thought.
+
+About three months ago, my therapist suggested that the bedwetting might be connected to obstructive sleep apnea. She referred me to a specialist, who confirmed it and prescribed a CPAP machine. I was told to use it every night. The side effect nobody warned me about is that the mask wakes me up. I'd find myself conscious around 2 AM, lying in the dark with the machine humming quietly beside me, too awake to go straight back to sleep. I started getting up and standing at the window for a few minutes. Just to have somewhere to be while my brain caught up with the fact that it was supposed to be resting.
+
+That is how I first noticed the light.
+
+The light seemed to come from the fourth floor of the opposite building, second window from the left. It turned on every night somewhere between 1:30 and 2 AM. I assumed it was a fellow insomniac. A night-shift worker on a late schedule, perhaps. I noticed it the way you notice anything you see repeatedly from your own window. Passively, without interest.
+
+Then one night the mask woke me earlier than usual. I lay in the dark for a few minutes. When sleep didn't come back, I got up and went to the window with a glass of water. It was just past 2 AM. The light across the street was on.
+
+And for the first time, someone was standing in it.
+
+Just standing. No phone. No movement. Facing outward. The kind of stillness that feels deliberate.
+
+I watched for perhaps two minutes. I decided it was strange, but it was not my business. I drank my water and went back to bed.
+
+The next morning I woke up and the bed was dry, for the first time in 28 years.
+
+I assumed it was the CPAP. That was the rational explanation and I held onto it. Improved breathing, improved sleep quality, problem resolving itself exactly as my therapist had predicted. I stripped the sheets out of habit anyway. I didn't think about the figure again until the following night, when the mask woke me at 2 AM as usual. I went to the window like I always do.
+
+The light was on, and the figure was standing there again. The same way it was standing the previous night.
+
+I was dry again in the morning.
+
+I told myself I was sleeping differently. Waking briefly in the night disrupts the cycle that causes the problem. That is probably true. That is almost certainly true. And that’s what I kept telling myself.
+
+For the next two weeks I quietly, superstitiously, got up every night when the mask woke me up. I stood at my window and looked across at the figure. And for two weeks, I went back to bed and woke up dry.
+
+It was the best two weeks of sleep I'd had in years.
+
+Then one night, I decided to test it. I took the mask off, set it aside, and stayed in bed. Told myself I was being ridiculous. Fell back asleep. Woke up at 7 AM.
+
+The bed was soaked.
+
+That was the night I stopped pretending it was the CPAP.
+
+I started observing more carefully after that. The figure was always in the same position. Always the same window- fourth floor, second from the left. Always there between 1:30 and 2 AM. I could never make out a face. Just a silhouette, backlit by the room behind. The figure stood still in a way that people aren't quite still when they're just standing. The kind of still that takes effort, or practice, or neither.
+
+I told myself it was a mannequin. A coat hung on a stand. Something mundane, something rational. And I almost believed it until the night I waved.
+
+I want to be precise about why I waved. I had been standing at my window for ten minutes, watching a silhouette in a lit window across the street, becoming aware of how strange this had become. I am not good at knowing when a situation has become strange, thanks to my condition. I tend to normalize things efficiently, sometimes too efficiently. But even I could recognize what this was.
+
+So I raised one hand, barely, just a slight lift of the wrist. I wanted to prove to myself that nothing would happen. I wanted to be relieved so that I could go back to bed and stop cataloguing a stranger's insomnia.
+
+The figure raised its hand back.
+
+Not immediately. There was a pause of maybe three seconds. Then a slow, deliberate raise of the right hand. Then stillness again.
+
+I went back to bed. I didn't sleep. I woke up dry.
+
+I am not good at letting things go once I have noticed them. It is one of my issues. I started observing with more precision. I kept tracking the exact time the light came on, and the exact position of the silhouette. I wanted to see whether it ever varied. It did not.
+
+The figure was always backlit, always a silhouette, face never visible. But I became increasingly certain that it wasn't looking at the building in general. The angle felt specific. The position seemed too directed. It felt like it was watching my window. Only my window.
+
+I tested this. I moved to the left side of my window one night. The figure's silhouette shifted almost imperceptibly. It was a slight turn of the head, nothing more. I moved to the right. The head turned back.
+
+I closed my curtains entirely one night and lay in the dark. I told myself I was done with this. I woke up at 4 AM. I was soaked through.
+
+I opened the curtains. The window across the street was dark.
+
+I have opened them every night since.
+
+The pointing happened on a Thursday.
+
+That night, I was at the window at my usual time when the figure raised one hand. It was not a wave. It was a single extended finger, pointing downward, at the street below.
+
+I looked down. The street was empty. A parked car. A streetlight. A crisp packet moving in no wind that I could feel.
+
+When I looked back up, the figure was gone. The light was still on. The window was empty for the first time since I had started watching. I waited for an hour. Nothing returned. I went to bed unsettled, slept badly, woke in the morning.
+
+Dry.
+
+That was three weeks ago. The light has not come on since. I checked it at 1 AM, 2 AM, 3 AM. The window stays dark. Whatever was there has stopped coming.
+
+I still wake up dry every morning.
+
+That is the part I cannot explain away. The logic I had constructed was that the figure's presence was the mechanism. The watching was doing something. That framework, however absurd, had a certain structure to it.
+
+But the watching has stopped and the mechanism hasn't.
+
+Which means either the connection was never real and I have been having three weeks of coincidental good nights, or something was established during those weeks that no longer requires its presence to continue.
+
+Maybe it is my autistic mind overthinking, but something was set in place. It was either inside me, or around me, or both. I have been trying very hard not to think about it, and I am not succeeding.
+
+Last night I was standing at the window at 2 AM. It was out of habit now, not ritual, the way you still check a door you know you already locked. That’s when something occurred to me. It was a question of geometry. I teach mathematics to eleven-year-olds. I notice when angles don't resolve correctly.
+
+I have been looking at that window for two months. Fourth floor of the opposite building, directly across the street. I have always assumed the figure was visible because it was standing at its own window, lit from behind.
+
+But I found myself thinking: from street level, would that figure have been visible? Would anyone below have seen what I could see?
+
+I worked out the angles. The height difference. The distance. The way the light fell from behind the silhouette.
+
+No. From any external position, whether on street level, adjacent buildings, anywhere outside… the figure would have been obscured. The geometry does not work.
+
+The only position from which that silhouette would have been visible clearly is from inside my building. From the corridor. From a position roughly three feet behind where I stand every night.
+
+What I have been seeing is a reflection. My own window glass, catching something behind me and bouncing it off the building opposite and back to me. Which means whatever casts that silhouette is not across the street.
+
+It is behind me. It has been behind me every night for two months. I have been turning my back to my corridor and watching its reflection and waving at it. It has been three feet behind me this entire time.
+
+Except reflections don't point at things their source isn't pointing at. And I was not pointing at anything on that Thursday.
+
+I am still standing at the window. I have not turned around. I can see my reflection in the glass and the dark corridor behind me. I cannot make anything out clearly and I have been standing here telling myself to turn around for a long time now.
+
+The light across the street just turned on.
+
+I haven't touched my corridor light.
+
+I'm going to turn around now.
+
+ 
