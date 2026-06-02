@@ -1,0 +1,253 @@
+“David, good morning! How are you feeling today?”  
+The nurse asked me as she came in with a small paper cup filled to the brim with water. I hauled my typing and set my laptop beside me on the old hospital bed. 
+
+“I’ve been worse…”  
+I managed a smile as she handed me the cup of water.   
+“Thank you.”  
+After some friendly banter while she checked my vitals, I pulled my laptop back over and began to type out my story, while the trauma was still fresh in my mind. 
+
+By all accounts, this was going to be a normal vacation for me. My parents lived on the opposite side of the country; therefore travelling by plane was the fastest way to get there. I never liked heights and had taken an anti-motion sickness pill and fallen asleep before the plane took off. I slept easy, thinking that I’d see my parents at an airport in Alberta soon. I was a fool to think so. This is where the tragedy began. Thousands of feet in the air above the unexplored wildlife. 
+
+The loudest sound I ever heard had woken me, the grinding of the metal, and the roaring of the wind were all I could hear. Instantly, I was dazed. I half thought that I was still dreaming at that moment. Everything was fuzzy and my ears rang. A red light flashed from somewhere in the plane and, though I could not hear it, I imagine that an emergency siren was wailing as well. The overhead oxygen masks dangled around me, and people were struggling to put them on. A mother rushed from her seat beside me towards her two children sitting a row ahead of us to help them with their masks. A hostess ran to help the woman with her children. A man reached for someone. A young woman screamed. One man sat and stared ahead in a state of shock. Chaos; that is the only word that can describe what was happening. As I felt the plane begin to drop, I began to realize that my worst fears were coming true. The plane was going to crash.
+
+I grabbed the overhanging mask and secured it over my face. I tightened my seatbelt. No matter how hard I pulled the seatbelt, it never seemed to be snug enough. The woman took her seat next to me and strapped herself in after ensuring that her children were as safe as they could be. I looked out the window to my right and noticed a thick, dark, gray cloud of smoke emanating from the cockpit. Was there some sort of explosion? Surely I would have heard if there was? The plane appeared to be dropping nose-first towards the ground. I clenched my fists and held my breath. I closed my eyes and imagined my parents finding out that I had died in a crash. I waited. Waited. And waited. Screams and cries filled my ears. I think I heard a priest screaming some sort of prayer. I wasn’t listening to any of that. The little voice in my head screamed in terror and imagined a horrible death for every passenger, myself included, and then black. 
+
+I woke up probably a few minutes after the crash. It’s funny how the human brain works. I may have been awake and fully lucid during the crash however, I cannot for the life of me remember any details until after the event. That’s neither here nor there. When I came to, the ringing was the first thing that assaulted my senses. I was unable to hear anything and my vision blurred. Slowly, the ringing faded and my ears were filled with the cries and wails of the survivors. I pulled my mask off gradually and my vision eventually came back. The plane had landed on one side and I was suspended in the air. Most of the shuttle was filled with the deceased or horribly wounded. I took note of my surroundings for a few more minutes and allowed myself to feel around and move my arms and legs. I then positioned myself so that I would land on my feet once I unbuckled my seatbelt. Then I unbuckled. 
+
+I screamed in pain as I hit the side, or I suppose new floor, of the plane. My knees buckled and my ankles gave out. I crawled my way towards the gaping hole in the plane where the cockpit once was. Most of the survivors were already outside, a few of them taking inventory and going through luggage bags, most were still in shock. A young man about my age was tending the best he could to the wounded. The first thing that I felt was the cold, hard, frozen ground. Snow, or maybe ash falling from the sky. The clouds were dark and stormy. Snow-covered evergreen trees were in every direction. We were lost, cold, hungry and most of us wounded. I collapsed in the snow and lay there, my whole body aching. 
+
+The next few hours were the longest few hours of my life. The young man who tended to the injured early on, whom I came to learn was named Thompson, had looked at my legs. My left ankle was shattered but everything else was fine. He advised me to stay off my feet and sit. 
+
+“You’re a doctor?” I asked him.
+
+“Uh, no. Not really. I mean I have some basic medical background. My mother was a nurse.” His voice was soft, nervous. He sounded like he was on the verge of crying. I think we all were. “No, I uh,” He cleared his throat and spoke with a fake confidence that I wish I had. “I’m a social worker. Child psychiatrist. PhD in Psychology.”
+
+“Oh, wow, I’d never be able to manage that,” I stuttered out. “I’m a head chef in Toronto.”
+
+Thompson sat beside me. “Kingston. My parents are from Toronto though.” We talked a while and got to learn each other’s life stories. Honestly, it was just to keep our minds off of what had happened. I don’t think anyone there really knew what was going on. I didn’t really process the crash for a few days after it had happened anyway.
+
+Thompson had gone to speak to the mother and her two kids and help keep them calm after a while. She was the same lady who sat beside me on the plane. I learned that her name was Katherine, but she went by Kate. Her sons were Luke and Zach. Luke was three years older than Zach. Kate had a sister, Erin. Erin was apparently the hostess who was working on that plane, the same one who tried to help secure the children, her nephews, during the crash. They looked nothing alike. Erin had short, blonde hair while Kate had long, reddish brown hair. Honestly, Kate’s two boys seemed to resemble their aunt rather than their mother. 
+
+A tall, muscular man was taking charge and ordering the less wounded to look through luggage for food and tools. Obviously there was no cellular reception out in the woods, almost everyone tried anyway but to no avail. The bald, buff man dropped a few suitcases by me and told me to ‘find anything useful’ and I complied. An older man and his new chunky friend had begun picking up branches and wood from the crash site and lit a small fire outside the plane's new entrance. Everyone huddled inside the plane and by the fire when nightfall hit. 
+
+Thompson suggested out loud that we get to know each other.
+
+“If we’re going to be stuck here, together, we should get to know one another. Even just a name. Sharing private information is a big first step in trusting strangers.” He spoke charismatically. I thought that he might take the leadership role from the muscular man, but I was wrong. 
+
+“I’ll start…” The tall, muscular man spoke after a long pause. 
+
+“I’m John. I’ll be taking charge here. I spent the better part of my life in prison. I think I know a thing or two about survival.” Nobody made eye contact with him. We all just stared into the fire. Fear began to rise up my spine. “Do what I say and we’ll get along just fine.”
+
+“Did you know the man who walked inside my cockpit?” The pilot spoke up. She was young and had burn marks all across the right side for her face. “He said that he was never going back to jail right before he blew himself and my copilot up to hell.” She stared at John. I could see the hatred in her eyes. Everyone began to whisper. 
+
+“I didn’t know that he was going to bomb the plane.” John began. 
+
+“But you knew him?” The pilot retaliated. 
+
+“Ladies and gentlemen! Calm yourself!” A well-dressed and elderly man wearing chipped glasses rose to his feet. “All we can do is pray. God will answer our cries for help.”
+
+I dozed off when the priest began to preach. I was never really religious; however, I wasn’t against people having blind faith in what they believe in. I was exhausted. I wanted nothing more than to be anywhere but in that wreckage, by that fire and with those people. Especially John. He scared me. He openly admitted he was a criminal… Why? To keep fear instilled in the survivors? Why was he interested in keeping us alive? Or was this some sort of game, some sort of trick? My head rushed and my thoughts didn’t make any sort of sense. Slowly, my thoughts faded and eventually, so did the priest’s prayers. The glow of the fire eventually dimmed to black and somehow, I had fallen into a deep slumber. I was startled awake in the middle of the night by Thompson.
+
+“David!” He whisper-yelled as he shook me. 
+
+“Wha-What? Thompson?” 
+
+I nearly jumped out of my skin. I glanced around in a panic before looking over to Thompson’s thin frame barely visible in the glowing light of the ashes where our fire used to be.
+
+“I think…” He paused. “I think I heard an animal, a- a bear or,” As my eyes adjusted, I could see his face filled with fear as he looked towards the pitch black forest.
+
+“I don’t think anything will get too close to here, there’s a lot of us, man. And there was a fire, I’ll bet the ashes are still warm.” I whispered back, trying to reassure him. “If you’re worried, just go-” I began but was cut off by a loud cry from the woods. It was hard to explain the sound. The noise almost resembled a big moose or a bear huffing or grunting combined with that of an enormous bat creating a shrill wail. It was both the deepest and highest-pitched sound I have ever heard. I had never heard anything like that before in my life. I froze instantly. The hairs on the back of my neck stood on end. In all honesty, I nearly wet my pants then and there. The sound was just so… haunting…
+
+“That’s the sound…” Thompson whispered. He was so quiet that I hardly heard him speak. “And it’s getting closer…”
+
+After about an hour of silence, Thompson had eventually moved further into the plane and likely had fallen asleep. I didn’t sleep for a few more hours. I kept scanning the treeline. It felt as though the animal that created that sound was still there. Honestly, it likely had left long ago, but I just kept searching for it. I did fall asleep again, but I think I only got about an hour of sleep before the bald man, John, began to wake us up. 
+
+“There’s a lot that needs to be done today. I’m going to put everyone into groups of two and give you jobs for today.” He began.
+
+“George and Bill,” He pointed to the two men who started the fire the night before. “Look for water. We need fresh water, and we’ll need fish if we can find some. Then it's fire duty.” The men quietly nodded. The older man, George, was apparently a local butcher in a small town outside Toronto. He and his wife were going out west on vacation. Sadly, his wife didn’t survive the crash. I would later find out from Thompson that George had tried to ask John on several occasions to stay back with his wife’s body to mourn but John wouldn’t let him.
+
+Bill, on the other hand, was the shorter, chubby man who was a farmer and a fisherman. He was going out west to sell his old hunting rifles to a friend of his. He had a heart condition that deemed him unfit for hunting alone. When John found out that there was a rifle on board the plane, he seemed too excited for me to be comfortable with. 
+
+“David, you and Edwin are going to sit tight and go through some more luggage. Clothes in one pile, potential weapons in the other, food and water in its own pile and so forth.” John told us. 
+
+Edwin’s parents moved from a city in Africa when they were young and came to Canada to live. Edwin was born and raised in Ottawa and became a hockey player. No, he’s not famous, only local. His right leg was crushed in the crash and Thompson had tied it off above the knee. It was really gnarly looking. We chatted for hours as we organized our findings. 
+
+John, the priest, the pilot, Thompson and the hostess, Erin, gathered the dead in piles on a makeshift sled and moved them away from the crash site. It was hard to watch when they took away George’s wife, knowing that George would come back and find his wife gone forever. 
+
+“The guy’s messed up,” Edwin commented while staring at John. I only nodded in agreement. 
+
+Later that day a woman wearing a thick, green jacket approached Edwin and I. She dropped three, fairly clean rabbit corpses beside me.
+
+“What the Hell?!” If I had eaten at all I probably would have thrown it all up. The young tan woman brushed her long black hair out of her face, and asked;
+
+“You told the doctor that you’re a chef, right?” She motioned at the rabbits as though it was obvious. “There. Meat.” She turned and began to walk away. I noticed that she had a fairly sophisticated-looking bow strapped to her back. It almost looked to have been home-made. The wood was smooth and had extravagant patterns carved into it. A leather band for grip was wrapped around the wood where she would hold the bow. 
+
+“Her name’s Yura. She was headed out to an archery contest in Alberta.” I looked back to Edwin. He gave me a slight smile.
+
+I looked at him in confusion.
+
+ “She, uh, sat next to me on the plane.” He explained. Edwin and I continued to gossip about the other survivors until George and Bill had returned to camp, bringing along several plastic food containers of water with them, but unfortunately no fish.
+
+“It’s the darndest thing…” Bill told John when they had arrived. “The stream was massive, quite large across and yet there wasn’t a single trout swimmin’ around!”
+
+I allowed George some time to grieve over his wife before I asked him to help me clean the rabbits and cook them over the fire. I had found a box of vegetable-flavoured crackers and crushed them over the rabbit meat to make a sort of crunchy coating before we put them on a homemade grill looking piece of metal, scrap from the plane, and allowed them to cook over the fire. I overheard John talking to Edwin behind me as the food cooked. 
+
+“We won’t survive on one meal a day.” John said sternly.
+
+“Talk to Yura, she’s the hunter.” Edwin quickly replied.
+
+“Bill has a hunting rifle. You two need to find that. Fast.” John left before Edwin could reply. John marched off elsewhere, leaving Edwin in stunned silence.
+
+It was almost pitch black outside by the time the food was ready. It wasn’t late in the day; the days are just so short in a Canadian winter. It was likely around four thirty in the afternoon. By nightfall, John began to hand out extra clothes to keep everyone warm. He also set up the classic ‘one person on guard at all times’ system. I offered to keep watch first but John refused.
+
+“We want someone who can stand a chance in a fight, not someone who can’t even stand at all.” I didn’t understand his logic, because my new handicap didn’t prevent me from yelling to wake the group up, but I decided not to argue with him. I figured it was best to stay on the criminal’s good side. “How do you expect to protect anyone by *just* sitting there?” I knew he didn’t want an answer to that question, so I didn’t reply.
+
+Before we settled inside the plane for another night in the woods, Thompson led a group activity to get to know everyone better and the priest, Father Garbiel, led a group prayer session. He had a fancy term for it, but I don’t remember the word he used. I also learned that the pilot’s name was Grace and this was her first solo flight. Her co-pilot was her trainer and was there to oversee the flight and whatnot. A sort of ‘final exam’ if you will. As I dozed off, I tried to remember everyone mentally.
+
+Kate was the mom. Her kids were Luke and Zach. Her sister was the hostess… What was her name? Erin, that was it. John, he’s not hard to forget. George. Poor George. Bill, the farmer with heart problems. Edwin and Thompson, my newest… Friends? Father Gabriel and Grace the pilot. And then there’s Yura, our hunter. I think Edwin said she was a photographer who had taken up archery at a young age… About two hundred people were on the plane and now there’s only thirteen survivors… Thirteen… I dozed off listening to the others talk quietly amongst themselves.
+
+“David! Psst! David!” Thompson had, again, shook me awake.
+
+“Hmm?” I groaned as I came to.
+
+“The thing, I-I-I,” He stuttered. “I think it’s back.”
+
+“What thing?” I whispered. I had somehow completely forgotten about the animalistic snarling from the night before. I suppose I had a lot on my mind with the whole crash and its aftermath.  The shrill, bone-chilling monstrous cry sent fear rippling through my body. I sat up straight, now fully awake. I remembered instantly what Thompson was talking about. 
+
+“What the *fuck* was that?!” John screamed out. I suppose the creature had awoken everyone. People murmured and whispered in confusion. 
+
+What was left of the plane suddenly felt even more dangerous than the open, dark woods. We were caged animals. Sitting ducks. The sound of knives being dragged across metal came from the wall behind me. I didn’t dare look out any of the plane windows in fear of what I would see. Everyone was frozen in fear for what felt like hours. The dim light of the fire was only enough to reveal the terror in every one of the survivors’ faces. I glanced around at everyone. It was so quiet that I could almost hear Erin's heart beating from the opposite wall. She was shaking the most, tears streaming makeup down her cheeks all over again. Her uniform was drenched in sweat. 
+
+Suddenly, a pained gasp blurted out from towards the firepit. I quickly glanced over to see Bill clutching his chest and gasping for breath. Bill’s heart couldn’t take the stress, I thought. Then, Bill was simply gone, almost as though he had never been sitting there a moment before. If he had screamed, I wouldn't have noticed. I think Bill was pulled into the darkness by a demonic entity. At first, I had barely seen it. I didn’t even see from which direction it had attacked from, just a blur. Everyone was in shock until the morning. I don’t think anyone moved from their positions even to blink. 
+
+The morning came and so did the arguing. Everyone saw something different the night before. John was blamed for taking charge of the survivors and leaving the poor man to die. Some folks thought that Thompson had woken the animal up and led it to us somehow. The details of what the creature looked like differed from person to person. I had personally thought the creature had a deep, black fur coat, but Erin said it had no fur. I think one of the kids said they saw a deer take Bill away. Kate tried to keep her kids out of the discussion as much as possible, rightfully so. John wanted to look for the beast during the day, when it was most likely asleep, but Yura disagreed.
+
+“Travelling in a group away from the rest of the survivors to find a hostile animal? Without any real weapon? That's not even mentioning how unlikely it is that you’d find the creature before nightfall.”
+
+“Then you go, Princess!” John ordered but Yura only chuckled to herself and shook her head.
+
+“Like anyone’s gonna listen to the man who’s getting us killed,” She retorted. George quickly stepped in.
+
+“What the hell was he supposed to do?! There’s nothing that anyone could have done differently!” George backed up John fiercely. “This guy seems to know his stuff, we’d be lost without him!”
+
+Yura began to curse them both out in a burst of anger. At some point Thompson had tried to intervene and calm the quarrelling but to no avail. John was quick to shove Thompson to the ground.
+
+“Stay out of this, Tommy!” John yelled at the poor guy who cowered in the snow beneath him. “I’m taking a party to search for him!” He yelled at everyone, scanning the crowd as he did so.
+
+“Tommy here has volunteered!”
+
+“What?! N-no I haven't!!” Thompson tried to argue back.
+
+“I'm taking all the hands I can spare, Tommy… You, George, Gabriel and I are going. Half of the others are crippled or children…” John stated as though his mind was already made up. Then he looked over to Erin as she cowered in fear. “Or just plain useless…” He added. 
+
+Nobody said anything for a long while. George sharpened a few sticks as weapons and Father Gabriel packed a lighter, some more of the vegetable crackers, some water bottles, a wristwatch and a compass into a backpack. After John and his search party ate some small snacks and gathered their supplies, they began to head towards the treeline. John made sure to give us all our jobs for the day and he expected to see some progress when he returned. 
+
+Yura and the pilot, Grace, headed towards the wood in a different direction in search of small game.  I stayed with Edwin, sat against the wall of the plane wreckage, sharpening sticks to use as spears or pikes to stick around camp. Kate sang quietly to her two boys as she sorted through clothing to see what was salvageable. Her and Erin took the non-useable clothing and then sorted it between items we could use for bandages and items we could just burn. By about lunch hour, Erin, Kate and the boys, Luke and Zach scavenged the clearing for more wood to burn. Nobody dared get too close to the treeline. After sharpening a few dozen sticks between the pair of us, I turned to face Edwin. He was looking feverish by now. 
+
+“Hey, man…” I started. “You doing okay?”
+
+Edwin only shook his head.
+
+“Let me look at your bandages, okay?” I didn’t wait for him to reply. I unwrapped the blood-soaked cloth from around his crushed leg and gasped. The little that I could see beneath his shredded jeans was not looking good. The leg had begun to turn a deep black colour and was obviously beginning to decay. “Can you feel your toes?” 
+
+“No…” He said slowly. “It needs…” his voice trailed off, however, I knew what he was going to say. The leg needs to be removed. I took a torn shirt from the pile of clothing to be used for medical care and began to tightly rewrap his leg.
+
+“Just, take a break from sharpening the sticks Edwin…” I quietly spoke to him. That haunting image of his leg burned into my mind and as I pictured it again and again in my head, my own ankle didn’t hurt as much. “Drink lots of water too, okay?” I handed him a half used water bottle.
+
+Not long after Erin, Kate and the boys returned with wood, Yura and Grace came back with only one rabbit and two squirrels. 
+
+“There isn’t a lot of wildlife in the area…” Yura said as she dropped the carcasses in my lap. “It's too quiet out there. I don’t like it.”
+
+“It’s winter though, so there isn’t going to be a lot of wildlife anyway, right?” I questioned.
+
+“It’s the tail end of winter.” Yura quickly corrected as she looked around the clearing. “There should be a lot more wildlife out and about by this late in the season. My father was a hunter in what should be Métis territory, he taught me how the land and its animals provide during the different seasons.” She paused for a moment, staring off into the forest. “The search party back yet?”
+
+“No. Haven’t seen them around.” Kate spoke up, still sorting through the luggage.
+
+“It’s almost dark, they should be back soon.” Grace said out loud, as she looked up to the sky. Her short brown hair falling back slightly, exposing the burns on the side of her face more. They looked painful. “I hope.” She quietly added after a moment of looking into the cloudy sky, now growing darker by the minute.
+
+“I can’t imagine hoping to see that John guy come back alive.” Yura scoffed and walked towards the treeline. “I’ll keep an eye out for them. Once the sun sets, I'm coming back.” She called to us over her shoulder. Grace knelt down to get a closer look at Edwin. 
+
+“He’s not doing good.” I told her. Edwin was barely conscious by this point, his eyes fluttering open occasionally. Sweat laced his brow and his face had slowly turned a pale shade of green. He was dying, and we all knew it. “Isn’t there a radio or something? A tracker in the cockpit that we can use?” I asked Grace as she opened Edwin’s bandages to get a closer look. She winced as she saw his wounds. 
+
+“There isn’t much left of the cockpit to begin with…” Grace finally said as she tied Edwin’s bandages tightly. “John’s buddy blew it the hell up…”
+
+Yura, accompanied by John, George, Thompson and Father Gabriel, returned moments before the sun had set, sending the world around the campfire into darkness. Everyone had defeated looks on their faces. John told Yura and George to collect the sharpened sticks that Edwin and I had made all day and stick them firmly into the ground around the opening of the plane. Yura made no verbal retort, but her body language said what was on her mind. John didn’t make any comment on her attitude. 
+
+“We found Bill.” John announced. “Or, what was left of him, I should say.” John had a small smirk on his face. I don’t really know how anyone would think this is funny but John sure seemed to think there was something worth laughing over. He chuckled slightly before continuing.
+
+“The poor bastard was skinned alive; the thing hung his damn skin out to dry in a tree outside a cave.” Gasps escaped the survivor’s lips and murmurs began.
+
+“Do you *really* need to tell us this?!” Kate spoke up. “We’ve had it hard enough as is! I don’t want my boys to hear anything more from you about-”
+
+“Look, miss, it's important you hear this.” John quickly interrupted her. “I’m being transparent with you on what we found. If we stick together, and you follow what I say…”
+
+Erin then interrupted John. “Do you have any kind of rescue plan?!”
+
+For a moment, John just stood there in stunned shock. It was clear to everyone now that John had no idea as to what he was doing. He simply stood there, looking everyone over.
+
+“‘Cause, I wanna go home alive and not in some freakin’ box!” Erin yelled at him. Thompson and Kate tried to quiet her by putting their hands on her shoulders and shushing her but she brushed them off and stood up. “And I’m not playing ‘Survivor Man’ out here with you any longer! I say, in the morning, you and George over there walk into the woods and find help!” She continued to scream, her voice shrill and full of panic.
+
+“At this point…” John started calmly. “It’s not about rescue. It’s about survival.”
+
+Yura slowly walked towards the rest of the group, her finger to her lips indicating everyone to be silent. Erin kept screaming at John for a few more seconds before she noticed Yura and she finally stopped. Everyone was absolutely quiet and still. The cackling of the fire was the only thing that I could hear for the longest time. Then my heart quickened and my stomach dropped. I heard some sort of heavy breathing. There was some sort of large animal in the clearing, just outside the reach of the fire’s light. It was watching us, listening to us. Everyone seemed to hear the animal’s breathing, as panic began to overtake us. 
+
+“Inside. Now.” Yura whispered and nobody objected. Everyone quickly and quietly made their way through the plane and towards the back. They formed a single file line with John pushing his way to the front and Kate, Luke, Zach and Erin following him. Yura and Grace helped George and Father Gabriel climb past luggage bags and fallen seats and towards the back of the plane. Thompson and I tried desperately and quietly to wake Edwin, but he didn’t move. Thompson searched him for a pulse, but found none. Edwin died in his sleep very recently. Thompson and Grace helped me into the plane and Yura followed. I glanced back at Edwin, his body sitting upright and leaning against the inside of the plane. His body faced the dying light of the fire.
+
+We took turns staying up and keeping watch. John was supposed to wake me when it was my turn to keep watch, but I was awoken suddenly by screaming. When I finally came to, all the wooden pikes around the opening of the wreckage were knocked over. All except one, which was firmly placed into the ground directly in front of the opening, with Edwin’s severed head mounted on it. He stared back at us, his gaze empty. Erin was finally convinced by Thompson and Kate to calm down. John had just woken up too, and began to berate me for falling asleep on my watch.
+
+“John, man, you never woke me up for my shift!” I protested but John lied to everyone, telling them that he did. I don’t know if anyone believed him, but nobody said anything. They were likely still in shock from the severed head of our friend still staring us down from across the wreckage. John and George went to remove the head and rebuild the wall of wooden spikes around our camp. Father Gabriel trailed behind them, insisting on giving prayers on behalf of Edwin and laying his head to rest nearby. Edwin’s missing body was not found. 
+
+By the time the rest of us had gotten to the entrance of the plane, the fire had gone out. Yura worked on getting the fire to light again and Thompson began to speak to Kate and her boys. Those poor kids, having to go through what they went through…
+
+The air was cold and dry, much colder than it had been the past few days. The sky was a dark grey and snow began to fall slowly in thick flakes. I heard George and John muttering something about how I was the one who lied to everyone. I didn’t care anymore, I just wanted the nightmare to be over. I hobbled my way to Kate as Thompson worked his child psychology magic on her kids.
+
+“It’s going to be cold today…” I said absentmindedly. 
+
+“He never woke you up?” Kate replied suddenly.  Looked to her and blinked for a moment. Finally I realized that she was referring to the outburst that John had this morning.
+
+“No… he never did.” I said slowly. She nodded along. 
+
+“He’s going to be the death of us.” She replied. It was refreshing to hear that at least one other person here could see how John wasn’t as good a leader as he believed he was. “I don't trust him. I don’t think Erin or Thompson do either.”
+
+“We need to be careful about this, he’s a criminal.” I start but Kate quickly cut me off. 
+
+“What about Yura?” 
+
+“Yura? What do you mean?” Kate looked at me quizzically. 	“She seems to be a natural-born leader, what if she-” John walked past us, I didn’t bother to finish my thought. I don’t want to imagine what John would do if he heard us protesting his leadership.
+
+“What we *need* is to send a few of us out there and find help!” She nearly yelled. I nearly jumped out of my skin, not expecting her to become so passionate suddenly. “We can’t stay here, we’re sitting ducks! And with that… *Thing* out there… It’s picking us off one by one! We need to leave!”
+
+“I know, I know.” I held my hands up to try to calm her down. “I agree.”
+
+“Well then leave.” John said as if it was a simple decision. “If you don't want to be here…” He walked up to Kate and looked down into her eyes. He towered over her. For a long moment, he let the words hang in the air before finishing his thought. “Then you’re welcome to go.”
+
+Kate said nothing, she only scoffed and walked away.
+
+“Listen up everyone,” John began loudly. “I understand that some of you aren’t happy about how things are going. I’m not either. But there’s something you need to understand,” He took a slight pause.
+
+“Nobody is keeping you here. You can all go if you want, I won’t stop you. But if you go, I can’t help you. If we wait here, if we stay put, they will come for us and they will find us. They will save us. But if you go out there, I can’t guarantee they will find you.” His words lingered in the air. Nobody said anything. Nobody made any move to leave. Everyone slowly looked around at each other. “Good. Now that you're all staying here, let's make something clear. No more bitchin’ and moanin’ about me, got it?”
+
+Reluctantly, the remaining survivors nodded in agreement. A smile crossed John's face. It wasn't a happy smile, it was a smug reminder that he always gets his way. He put all of us to work, collecting things to use as weapons, food, medicine and even using old clothes to make curtains to drape over the entrance of the plane. He had plans, that's for sure. George found one of the hunting rifles in a compartment in the plane. There was a half full box of ammo to go with the gun, I don’t even know how they managed to get it on the plane to begin with but there it was. John took the rifle briskly and loaded a round into the chamber. He walked the camp with George as everyone else worked on the jobs they had been given. I worked with Yura, cutting up the rabbit carcass and cooking it over the fire.
+
+“We need to get that gun away from that moron…” Yura muttered.
+
+“He’s gonna get someone killed…”
+
+“Why don’t you take a group out to look for help? You know your way around the woods, don’t you?” I whispered to her. She looked at me baffled. 
+
+“No I don't, I'm good enough to get some meat with a bow but I'd die out in those woods!” She shook her head.
+
+The snow fell faster by now. It was hard to keep the fire going and we were running out of usable wood. Most of the gathered kindling or logs were damp from the snow. By the time five pm rolled around, it was nearly pitch black everywhere. A blizzard rolled into the area with strong winds and chunks of hail and snow falling from every direction. Everyone was huddled inside the plane. I heard Father Gabriel whispering prayers and Grace and Erin joined along. John stood by the entrance with the rifle in his hands. The howling of the wind was almost deafening, but despite that, there was still the unmistakable sound of footsteps outside the wreckage. The snow crunched under the footsteps of something large.
+
+“It’s back…” John muttered more to himself than anyone else. I just watched in horror as John surveyed the blizzard outside. I kept waiting for something to snatch him and pull him into the dark storm. My heart pounded loudly in my chest. The cold air nipped at my nose. I wanted to be anywhere else but there at that moment. I slowly looked around and realized that the entire group of survivors had gone quiet, all intently watching the hole in the plane that John stood by. The only audible sounds were the howling of the wind outside and the crunching of heavy footsteps in fresh snow. It made a loud grunt suddenly. John pointed the rifle to where the sound was made. “It’s around the corner,” He whispered before slowly turning to face the rest of us. “Shhh.” He held a finger to his lips. 
+
+Suddenly, there was that high-pitched wailing. At first, I hadn’t realized what had caused the sound, but quickly I came to realize that it was the sound of something tearing through metal. Everyone turned to face the back of the plane, where the two boys, Luke and Zach were closest to. The creature had slashed into the wreckage with ease and was working its way inside. Panic coursed through the entire plane as the survivors either ran away from the beast or ran towards it, trying to protect the boys. John aimed down the plane, but was unable to line up a shot in the dark with everyone running around. He kept cursing and yelling at everyone to “Move out of the way”. George got to the boys as the monster finally shoved its massive head into the side of the plane. The creature snapped its mouth at Luke, and George began to kick the animal in the side of its head. I hobbled my way over, trying to help George protect the boys. Thompson and Yura followed close behind me. As I reached the animal, I paused. I had never seen anything like it before. It appeared to have an oversized canine skull for a face with long dagger-like teeth.  Two long incisor teeth bent inwards were at the front of its skull. Hot air blasted furiously from the hole in its skull where a nose should have been. There were empty sockets in the skull however, there was occasionally a glint of white from where its eyes were.
+
+The beast viciously thrashed about as George kept kicking it in its face. It wailed and screeched in various high-pitched tones, the freshly cut metal digging into its black and scraggly fur around its neck. The boys screamed and cried from the other side of the animal’s monstrous form. My ears popped as John shot the rifle down into the plane. George stumbled towards the beast and screamed in pain, clutching his now wounded shoulder. John had missed his shot, and the bullet flew into George's shoulder. The monster clamped its mouth onto George’s wounded shoulder, forcing him to scream even louder in agonizing pain. The sharp teeth sank into his flesh with ease, like a hot knife through butter. The animal pulled its head back through the hole in the plane with incredible speed. George was pulled towards the new exit with such force that he was knocked off his feet. He reached out to grab anything that would help save his life, but there was nothing stable enough to grab. His arm got caught on a jagged piece of metal, but as he was pulled away with such power, it did nothing except deglove his arm from his elbow down within a second. All that was left of George was the skin of his left arm still caught on the jagged metal, dangling in the wind and a small blood trail leading further into the storm.
+
+Kate, Thompson and Yura rushed to the boy’s side, searching them for wounds. Grace helped me back away from the new hole in the wreckage. John pushed past Erin and Father Gabriel to look at the fresh hole in the plane. 
+
+“It cut its way right through the damn thing…” He examined the area closely. “In the morning, we’re hunting this thing. It's gotta be nocturnal.” I heard him think out loud, speaking to nobody in particular. Nobody slept that night.
+
+The fourth morning was coldest up to that point. The storm was raging still, without any signs of stopping. The smell of rot and decay was strong in the air. John put us into two groups; those who stay behind and those who go out to hunt. Specifically, John, Thompson, Yura and Grace are to go out and hunt down the demonspawn that keeps haunting us nightly. Kate, Erin, Father Gabriel, Luke, Zach and I were to stay behind. I sat in silence as John took his group of makeshift hunters and marched into the storm, following the ever-fading blood trail into the woods. My ankle throbbed, I hadn't checked it since Thompson had wrapped it on day one. I slowly looked under my bandage to see my skin a deep purple. I let out a shaky breath as I rewrapped my bandage around my ankle, knowing that I desperately needed medical attention. 

@@ -1,0 +1,193 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1toungb/when_i_was_a_kid_we_made_rules_about_shadows_part/), [Part 2](https://www.reddit.com/r/nosleep/comments/1tr3515/when_i_was_a_kid_we_made_rules_about_shadows_part/), [Part 3](https://www.reddit.com/r/nosleep/comments/1ttalew/when_i_was_a_kid_we_made_rules_about_shadows_part/)
+
+I couldn’t stop thinking about the shadow in the backyard.
+
+It wasn’t the heat or the hands or that the flashlight died. What terrified me most was the feeling that it knew me, and that I think I knew it.
+
+I barely slept after that. Every time I closed my eyes I saw the thing standing at the sliding glass door while the porch light framed it from behind. Faceless, yet familiar.
+
+And underneath everything else were the words left on the glass.
+
+WHERE DO THE SHADOWS GO
+
+Billy had written those words over and over again before he disappeared. Rachel had shown me the drawings herself. So how did the thing outside my house know them too?
+
+That question sat heavier in my chest than fear because it meant one of two things. Either Billy had seen the shadows before he vanished. Or Billy was somehow still with them.
+
+The next afternoon the neighborhood kids gathered near the end of the cul-de-sac again. It wasn’t really playing anymore. It felt more like meetings.
+
+There were maybe twelve of us sitting in a loose circle near the curb. Some older kids. Some younger ones. Everyone looked tired.
+
+Nobody said Billy’s name at first. I finally broke the silence.
+
+I told them about the drawings Rachel showed me. The pages filled with shadows and scribbles. The words written over and over again.
+
+WHERE DO THE SHADOWS GO.
+
+Then I told them about the backyard. About the flashlight dying. About the thing near the garbage cans. About the message on the glass door.
+
+Nobody laughed. A few months earlier, if I’d told a story like that, the older kids would’ve called me an idiot. Instead everybody just listened.
+
+“Maybe they are shadows,” Trevor finally said. “Like… actual shadows.” He shrugged. “Maybe everybody has one. Maybe yours came loose or something.”
+
+Another kid said maybe the shadows took people and turned them into more shadows. Somebody else said maybe Billy wasn’t dead at all. Maybe he was the thing I saw in the backyard.
+
+I hated hearing that. Not because it sounded impossible, but part of me already wondered it too.
+
+Then Emily spoke up. Emily was seven years old and small enough that she still sat crisscrossed on the sidewalk like little kids did.
+
+“I think it’s imagination,” she said quietly.
+
+Everyone looked at her.
+
+“My grandma says if enough people believe in something, it becomes real. If everybody keeps thinking bad things then bad things happen.”
+
+“And good thoughts stop monsters?” Someone asked.
+
+“Maybe.”
+
+Nobody said anything for a bit. The strangest part was that every explanation sounded possible now.
+
+Then kids started talking over each other.
+
+Stories spilled out fast. Scratching against windows. Shapes beneath streetlights. Movement crossing yards too quickly. A boy named Darren swore something grabbed his backpack while he was running home even though he stayed under the lights the whole time.
+
+“They’re changing the rules,” somebody whispered.
+
+That shut everybody up. Because we had all been thinking it.
+
+That night I sat at my bedroom window again. Everything beyond the street light looked wrong. I can’t explain how, just not the same.
+
+The next morning I met Rachel again. She looked exhausted. A cigarette burned almost down to the filter between her fingers.
+
+I told her everything. The backyard. The message on the glass. The theories the kids came up with. The shadow that felt familiar.
+
+She listened without interrupting.
+
+“You think it was Billy?” I finally asked.
+
+Rachel looked away.
+
+“I think people want answers,” she said.
+
+“That’s not an answer.”
+
+“No,” she admitted. “It’s not.”
+
+For a while neither of us spoke
+
+“You said Billy knew. Before, with his drawings, you said he knew. What did you mean?” I asked.
+
+“Billy drew those pictures before any of this started,” she said. “I think he knew what this was, somehow. Knew what was going to happen.”
+
+I didn’t say anything. How could that be, how did he know before anything happened?
+
+“You know what my house feels like now?” she asked suddenly.
+
+I shook my head.
+
+“Like living with two corpses. My mom just stares at the wall all day,” she continued. “My dad doesn’t even yell anymore.”
+
+She laughed, bitter and exhausted. “Sadly, that’s worse.” She tossed the cigarette into the dirt.
+
+“A couple of my friends wanna leave. Go to the city. Get jobs or whatever.”
+
+“You can do that?” I asked.
+
+“I’m seventeen,” she said. Which sounded ancient to me. She smirked. “Not legally,” she said.
+
+Then the smile disappeared. “But honestly? This neighborhood might be the safest place to be right now. Feels like whatever’s happening here is about to move on.”
+
+We sat in silence for what felt like the entire morning. Then Rachel had an idea to meet that night near Billy’s streetlight.
+
+“You can show me. Tonight,” she said. “Maybe I’ll see what you mean. Show me the shadows the kids talk about.”
+
+Every part of me wanted to say no. But she was older than me. Smarter. Braver. And I didn’t want her thinking I was a little kid. So I agreed. Eleven o’clock. After everyone went to bed.
+
+Before we left, I reminded her of the rules.
+
+“Stay under lights.”
+
+“I know.”
+
+“Don’t cut through yards.”
+
+“Okay.”
+
+“And bring a flashlight.”
+
+She smiled slightly.
+
+“Okay, Michael.”
+
+I spent the rest of the day preparing. I changed the batteries in three different flashlights. Replaced the laces in my running shoes because one of them was fraying and I was convinced that if it snapped while I was running I would die.
+
+I mapped the safest route between streetlights. No alleys. No yards. No shortcuts. I even picked bright clothes to wear because somehow that felt safer. Yellow shirt. Red shorts. A windbreaker stolen from my mom’s closet because it reflected light. I looked ridiculous.
+
+Right before dinner I set deodorant on my dresser so I wouldn’t forget it later. That part felt important too. Not because of the shadows. Because of Rachel.
+
+After everyone went to bed that night I got dressed, grabbed the flashlights, put on my running shoes. Then I reached for the deodorant…. Something moved out by Billy’s streetlight. I froze.
+
+It was Rachel. She was already standing near Billy’s streetlight. Way too early.
+
+“Oh my God,” I whispered. “What is she doing?” 
+
+She couldn’t stay out there that long. I grabbed my backpack and climbed out the window so fast I almost fell. I sprinted toward the streetlight. I forgot the route I planned. Forgot the rules. All I could think was, get to Rachel.
+
+The shadows felt different away from the house. Closer. The air turned humid and hot around me. I smelled that awful smell again, wet earth and something rotten.
+
+And there was a sound this time. Soft scratching. Like fingernails across fabric. The kids were right.
+
+I rounded the corner and saw Rachel wave. Then I saw the shadow behind her move. Move against the light.
+
+“RACHEL!” I screamed.
+
+She turned just like Billy had.
+
+And that was when I tripped.
+
+Maybe on the curb. Maybe on a toy left in the road. Maybe on nothing at all. One second I was running and the next I slammed into the pavement hard enough to lose my breath. I crawled desperately toward the streetlight. Then I looked up in horror.
+
+Something stood directly in front of me, moving toward me through the light. They’re breaking the rules again.
+
+It stretched out an arm, casting a long shadow across the pavement. I recoiled backward so fast my elbows scraped the road.
+
+Then the figure grabbed my arm. Softer than before, but still warm.
+
+“Michael!”
+
+It was Rachel. Panic had completely taken over her face.
+
+“Run,” she gasped. “RUN.”
+
+We sprinted straight down the middle of the street, forgetting the rules. And somehow, through all of it, one thought kept repeating in my head over and over. I forgot deodorant.
+
+We turned into the cul-de-sac and my stomach dropped. Our porch light was off. My parents never left it off anymore. Never.
+
+The shadows got closer. I could feel them around us now. Warm and wet.
+
+I spotted our neighbor’s porch light glowing faintly across the yard. Not bright. But maybe enough. I grabbed Rachel’s hand and pulled her toward it. She followed without speaking.
+
+We reached the edge of the light and stopped. I pointed toward my bedroom window.
+
+“We climb through there.”
+
+“The bush?”
+
+“Just help me up!”
+
+We ran across the yards, wet grass soaking through our socks. We pushed through the raspberry bush as it clawed at our legs.
+
+I could hear movement behind us now. Rachel shoved me upward and I grabbed the windowsill, fumbling desperately with the latch.
+
+“Hurry,” she begged.
+
+My hands slipped twice before the window finally jerked open. I turned back toward Rachel, the darkness behind the bush moved violently. She climbed up a bit, then slipped. She paused, looking back over her shoulder.
+
+“Rachel, please,” I pleaded.
+
+She turned back and climbed through the bush and lunged through the window just as I slammed it shut behind her.
+
+We both collapsed onto the floor gasping. Outside, something moved past the glass. Rachel stared at me with wide terrified eyes.
+
+“Was that,” she paused. “Was that Billy?”
