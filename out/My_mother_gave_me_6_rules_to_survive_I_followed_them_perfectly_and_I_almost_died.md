@@ -36,7 +36,7 @@ I waded through knee-deep water, my heavy, soaked shirt clinging to my skin. I f
 
 Just then a white SUV pulled up beside me. The window rolled down.
 
-It was Sharma Uncle… thank God! He lived two doors down from us. He was a genuinely kind man - a retired government officer who spent his pension funding a local library for girls, a man who treated me like his own daughter, and a man my father deeply respected.
+It was Sharma Uncle… thank God! He lived two doors down from us. He was a genuinely kind man - a retired government  officer who spent his pension funding a local library for girls, a man who treated me like his own daughter, and a man my father deeply respected.
 
 "Beta," he called out, his voice warm, dripping with fatherly concern. "The roads are entirely blocked. Come inside, sit in the back. I’ll drop you home. It’s not safe for a girl out here. The dark is setting in."
 
@@ -64,9 +64,9 @@ He didn't answer. He cut the engine. The dashboard lights died, plunging us into
 
 *Shit! Did the car count as one?*
 
-He opened the back door and climbed in next to me. The smell of cheap cologne, wet leather, and stale tobacco filled the cramped space. But as he drew closer, I noticed something that turned my blood to ice.
+He opened the back door and climbed in next to me. The smell of cheap cologne, wet leather, and stale tobacco filled the cramped space. But as he drew closer, I noticed something that turned my blood to ice. 
 
-His hand grazed my thigh. He grabbed my wrist with a terrifying, brutal strength.
+His hand was grazing my thigh. He grabbed my wrist with a terrifying, brutal strength.
 
 "U-uncle..." I whimpered, shrinking against the door, clutching my wet scarf tightly over my chest. Look down. Don't look the demon in the eye. Rule 1.
 
@@ -86,13 +86,13 @@ Rule 6: Do not scream. Do not fight. It angers them.
 
 I roared. A raw, primal sound that tore from the depths of my throat, shattering the silence of the concrete basement. I didn't beg. I didn't call him Uncle. I fought back. I dug my fingernails deep into his face, ripping skin, gouging toward his eyes.
 
-He shrieked, backing away, clutching his bleeding cheek in disbelief. "You bitch…"
+He shrieked, backing away, clutching his bleeding cheek in disbelief. "You bitch…" He slapped me hard and held my neck in a tight chokehold. He was old but strong for his age.
 
-But as my blood boiled with defiance, something else answered the call.
+As my blood boiled with defiance, and I thrashed about kicking him with whatever strength I had left in me, something else answered the call.
 
 The air in the car began to vibrate, and the temperature dropped visibly. Our breath bloomed into white plumes. The rain outside seemed to halt, suspended in mid-air. From the shadows of the backseat floorboard, the darkness began to thicken, rising like black smoke.
 
-I felt… not scared. No longer bound by rules, I felt a terrifying density filling my chest. 
+I felt… not scared. No longer out of breath...no longer bound by rules, I felt a terrifying density filling my chest. 
 
 Unlike what we had been taught, there was never any phantom demon coming to claim us. The real Entity wasn't born of the dark; it was born of us. It was the suppressed, choked-back rage of the many girls who had been violated and died in rooms just like this, waiting for a savior that never came. It had been fed by centuries of our silent compliance, and now, it was awakened by my rebellion.
 
