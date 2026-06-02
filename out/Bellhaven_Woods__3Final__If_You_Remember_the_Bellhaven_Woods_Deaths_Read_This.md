@@ -294,7 +294,7 @@ There had been a long silence on the line. "I remember being stabbed," Cecile ha
 
 "We’ll find her" Cecile had said, before pausing. "But Kolby… I need you to hear me when I tell you I don't know what we're going to find when we find her. I'm not going in there with any assumptions. I think you shouldn't either.
 
-That had been two days ago. And now here we were, the three of us in dress clothes cramped into Cecile’s car on the road. I had an idea of our location — the woods outside of the facility, where Iris had mentioned being drawn to. Summer had a printed map covered in handwritten notes. 
+That had been two days ago. And now here we were, the three of us in dress clothes cramped into Cecile’s car on the road. I had an idea of our location — the woods outside of the facility, where Iris had mentioned being drawn to. Summer had a printed map covered in handwritten notes.
 
 By the time we reached the trailhead off Route 9 the last of the daylight had drained out of the sky. Two days earlier, there’d been a hard frost and the ground still held onto it in places where sunlight hadn’t reached. Leaves cracked softly under our shoes instead of rustling. Every so often, one of us would catch a branch with a sleeve or shoulder and the sound would seem absurdly loud against everything else. Summer walked ahead with the flashlight angled low toward the trail. Cecile stayed close behind her. I took the rear mostly because somebody had to, and because every few seconds I kept looking back toward the road through the trees even after it had disappeared completely from view.
 
@@ -304,7 +304,7 @@ The path curved and descended and then leveled and then opened into a space that
 
 And in the middle of it, sitting against the base of a tree with her knees pulled up, her head back, and her eyes open, was Iris.
 
-She looked terrible. She’d lost weight fast enough that it changed the shape of her face. Her once-tan skin now was pale and bruised. There were leaves tangled through her hair and caught in the hood of her jacket. Her jeans were wet from the knees down, stained with dirt and what seemed like dried blood. Even from several feet away I could see her trembling.
+She looked terrible. She’d lost weight fast enough that it changed the shape of her face. Her once-tan skin now was pale and bruised, and what seemed to be dried blood was splattered in areas. There were leaves tangled through her hair and caught in the hood of her jacket. Her jeans were wet from the knees down, stained with dirt. Even from several feet away I could see her trembling.
 
 But her eyes were tracking. 
 
@@ -464,7 +464,7 @@ Iris was found at 7:41 the following morning, half a mile south of where we'd fo
 
 She was found in worse shape than when we'd last seen her. The jacket she had been wearing in the clearing hung loose on her frame. The scrapes on her hands were deeper, packed with dirt. The leaves tangled in her hair had dried and become brittle overnight, and new bruises and open scratches marked her skin in places that hadn't been there before.
 
-A short distance west of the site, search teams later recovered the remains of four or five additional people. Based on what remained of their clothing, they were believed to have been members of Saint Germaine's Church. None could be identified. 
+A short distance west of the site, search teams later recovered the remains of four or five additional people. Based on what remained of their clothing, they were believed to have been members of Saint Germaine's Church. None could be identified.
 
 The note in the coroner's file about Iris’ body having been moved was accurate — she had not died where she was found. Where she had died, and who had been with her if anyone, was not something the investigation pursued with much energy, because by the time she was found the case was already, as far as the sheriff's department was concerned, resolved. The church members and Malcolm's deaths were attached to her name, hers to the woods, and the whole thing was filed away.
 
