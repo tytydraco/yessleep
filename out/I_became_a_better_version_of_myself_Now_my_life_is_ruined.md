@@ -1,0 +1,63 @@
+My mom always said there were two versions of me: the perfect one and the troubled one. She always hoped the perfect one would shine and I tried my best to be her version of perfect. 
+
+When she died, the troubled version became the only version. I couldn’t control my sadness. I was a mess without her and there was nobody left to be perfect for. My dad and I had barely communicated since we lost her. I had ignored texts from friends and family. I hated everyone and I missed my mom.
+
+One day when I was riding the bus I noticed I didn’t remember getting on the bus. I shrugged it off and continued listening to music. The volume seemed to turn itself down on its own. Everything went blurry and then black. 
+
+I woke up in class and everyone was laughing. 
+
+“That was so funny. Only you could come up with that” said my friend sitting next to me. 
+
+I laughed it off but inside I was panicking. What had I said? When did I get off the bus?
+
+The rest of the day was fairly normal. I didn’t really talk to anyone but I managed to stay awake for all my classes. As I was walking to the exit, I felt weird again. My vision blurred and I fell into blackness. 
+
+I woke up on the bus again. I didn’t move a muscle until I reached my stop. I was terrified of blacking out. I felt like part of my day was just missing. When I went inside I was actually excited to see my dad. As soon as I saw him, my eyes blurred again and I fell to my knees before everything went black once again. 
+
+The next day was much more erratic in blackouts. I would wake up and fall asleep every 20 minutes or so. This created chaos being thrown into conversations and decisions I didn’t remember making. It seemed like someone else was living part of my life for me. 
+
+They were unfortunately better at it than I was. People were thanking me that I didn’t remember meeting. People were referencing inside jokes I didn’t remember making. It wasn’t really fair. It seemed like I blacked out at any opportunity I had to be happy. As a result I was spending what little time I had being cognizant very angry and upset. 
+
+Over time, I started missing full days during blackouts. I was making life decisions and forming relationships without my own consent. I felt like my life was being reconstructed by someone else. Someone I hated. Who could be doing this for me while I’m blacked out and making it look like it’s me? 
+
+When I missed my first full week and came back on a date with a woman I had never met, I realized what was happening. The perfect version was taking over. The sad, troubled version will only experience the worst parts of life until my other half had taken over completely. 
+
+If my conscious hours keep dwindling down, I will cease to exist. 
+
+I tried explaining it to people.
+
+"You're not blacking out," Jessica said. "You've just finally started acting like yourself again."
+
+My dad actually smiled for the first time since Mom died.
+
+"I'm proud of you, son.”
+
+The words made me sick because he wasn’t talking about me. He was talking about someone I had never met using my body to slowly push me out of my own life. 
+
+I started leaving notes for myself before bed. 
+
+**YOU ARE NOT THE REAL ME.**
+
+Every morning I would wake up to replies written in my own handwriting.
+
+**Neither are you.**
+
+One afternoon I found a letter in my backpack. It was addressed to me. The handwriting was mine.
+
+*I know you're scared.*
+
+*Mom was right. There were always two of us.*
+
+*You think I'm stealing your life, but I've been carrying it for years. Every time you froze during a conversation. Every time you were too afraid to ask someone out. Every time you wanted to disappear. I was there.*
+
+*After Mom died, you stopped living.*
+
+*Someone had to continue on.*
+
+I burned the letter and I kicked the ashes around the backyard. I tried my best to stay in a negative state of mind just to hold onto my reality. I stayed up as late as I could that night but my eyes started to get heavy. 
+
+My phone woke me up with frantic vibrations under my pillow. I opened my phone to hundreds of angry text messages and DMs. Friends, family and people I hadn’t spoken to in years were viciously responding to something I had texted them. When I read one of the conversations, I was horrified with the message that had been sent from my phone. It was like I had set my life on fire in my sleep. While I was happy to be conscious, I was miserable.
+
+As tears filled my eyes, I noticed a note sitting on my bedside written in my handwriting.
+
+*I ruined your life so you could have it back.*
