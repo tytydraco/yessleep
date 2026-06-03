@@ -260,7 +260,7 @@ Malcolm explained the circle to us that same day. He'd been driving the Route 9 
 
 "Not to the facility. To the fire roads. I want to see what they're doing out there."
 
-"Absolutely not," Cecile said.
+"Absolutely not," Cecile half-laughed.
 
 "If we go during the day–"
 
@@ -388,7 +388,7 @@ Nobody said anything. I kept looking at Iris.
 
 There was mud dried along the side of one of her shoes. Her hands were folded tightly together in her lap. She looked exhausted to the point where she looked physically smaller somehow.
 
- I had the horrible realization that Cecile might think Iris was connected to it somehow. I wondered if the thought had already crossed everyone else's minds too. I wanted to say something, but the truth was I didn't fully know what I believed anymore either. 
+I had the horrible realization that Cecile might think Iris was connected to it somehow. I wondered if the thought had already crossed everyone else's minds too. I wanted to say something, but the truth was I didn't fully know what I believed anymore either. 
 
 "We should still go to the police," Cecile said eventually, quieter now.
 
@@ -460,9 +460,9 @@ She looked at her hands. "She knew what she'd done," she said. "The second it ha
 
 I said I did too.
 
-"If I tell the police it was Iris, they’ll just arrest her, and we’ll have no understanding what's actually wrong with her." She paused. "I'm not protecting her out of sentimentality."
+"If I tell the police it was Iris, they’ll just arrest her, and we’ll have no understanding what's actually wrong with her." She paused. "I'm not protecting her out of–."
 
-"Okay," I said.
+"No. It’s– I know," I said.
 
 "I need you to not argue with me about it."
 
@@ -492,7 +492,7 @@ A pause on her end. "I've been trying to figure out how to describe it." She was
 
 "Do you think that’s linked to the annex?" I said.
 
-"It has to be," she agreed. "They basically built the hospital around it”
+"It has to be," she agreed. 
 
 I looked at my cereal, which had gone soft.
 

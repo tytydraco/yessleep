@@ -48,7 +48,7 @@ I blinked. “...It was actually his cheekbone.”
 
 I didn't say anything for a second because I was waiting for the pivot — the ‘so what's wrong with you?’ It didn't come. She just ate and looked around the cafeteria, then looked back at me like she expected us to have a normal conversation, which we did.
 
-We talked about her, mostly, because she kept asking questions and I kept answering them and by the time the bell rang I had learned that she'd been at Bellhaven since freshman year, that she ran cross country badly and did it anyway, that she had a complicated relationship with her parents that she described as a work in progress, and that she spent most of her free time making strange plush animals out of felt and mismatched buttons: rabbits with too many eyes or foxes with stitched smiles. 
+We talked about her, mostly, because she kept asking questions and I kept answering them and by the time the bell rang I had learned that she'd been at Bellhaven since freshman year, that she ran cross country badly and did it anyway, that she had a complicated relationship with her parents that she described as a work in progress, and that she spent most of her free time making strange plush animals out of felt and mismatched buttons: rabbits with too many eyes or foxes with stitched smiles.
 
 Summer introduced me to Malcolm that Friday afternoon, which is when I found out about the van.
 
@@ -76,11 +76,11 @@ I've spent a lot of time over the past fifteen years thinking about how to descr
 
 I’ll tell you what half these posts don’t say about her: She grew up in a strict religious household. By the time I met her she'd created distance from a lot of that, or was in the process of creating it. She'd done ballet for several years as a child and stopped when her family moved. Her favorite color was purple and she loved to journal. She had a documented aversion to pain, her own and other people's. She didn't watch horror movies. She winced when you stubbed your toe. She crossed the street to avoid aggressive dogs. 
 
-The day I met her, she was sitting in the back of the van with her knees crossed, an open bottle of purple nail polish on the floor beside her as she painted her nails. She had long dark curls falling forward every time she tilted her head down, and there was a small silver cross necklace resting against the front of her dress. She typically wore sweaters, jean shorts with ripped tights under them, or faded dresses. 
+The day I met her, she was sitting in the back of the van with her knees crossed, an open bottle of purple nail polish on the floor beside her as she painted her nails. She had long dark curls falling forward every time she tilted her head down, and there was a small silver cross necklace resting against the front of her dress. She typically wore sweaters, jean shorts with ripped tights under them, or faded dresses.
 
 After Cecile greeted me, Iris looked up long enough to say, “Hey,” before turning back to her hand.
 
-Cecile and Iris had known each other since seventh grade, Malcolm told me. They had what I can only describe as a frenemy dynamic in a softer sense of the word. Despite this, they fell into routine with the rest of our group like it was nothing.
+Cecile and Iris had known each other since seventh grade, Malcolm told me. They were, at a glance, people that seemed like their differences would'vekept them apart, but they were also probably closer than anyone else in the group. Despite this, they fell into routine with the rest of us like it was nothing.
 
 In the following weeks, after school or on weekends, we'd all end up parked somewhere in Malcolm's van: the lot of the Kmart that had closed in 2003, the pull-off where you could see the whole valley on clear days, sometimes just Malcolm's driveway with the back doors open and the string lights on and the speaker playing whatever Summer had decided we were all listening to that week. Cecile would do homework on the mattress, one leg folded under her, making corrections in pencil. Malcolm would be half-in and half-out of the front, trying to fix whichever thing had most recently stopped working. Summer would be talking, as usual. And Iris would be reading, or would have her head tipped back against the door and her eyes closed.
 
@@ -142,9 +142,9 @@ I'd heard about it by then. Bellhaven State Psychiatric Facility had operated fr
 
 "Have you ever gone?" I asked.
 
-"No." She kept looking at the roofline. "Summer thinks it's stupid to be interested in it."
+"No." She kept looking at the roofline. "Cecile thinks it's stupid to be interested in it."
 
-"Summer thinks it's stupid to be interested in a lot of things."
+"Cecile thinks it's stupid to be interested in a lot of things."
 
 Iris looked at me. "She's not wrong most of the time," she admitted. "She has a better sense of what things deserve attention than almost anyone I know."
 
@@ -264,7 +264,7 @@ The window we found on the west side was low, its frame and glass long gone, eas
 
 Inside, it smelled of mildew and something else I couldn’t place. Whatever it was, it wasn't fully identifiable or quite right, and it got stronger as we moved further from the window.  
 
-Four flashlight beams went in four directions and found the first-floor corridor: long, doors on both sides, most of them open, peeling paint and water damage on the walls, and at the far end a section of collapsed ceiling that had brought part of the floor above down with it into a rubble heap that blocked the hallway entirely. The patient rooms off the corridor were small. A rusted metal bedframe sat in most of them, its mattress long gone.
+Four flashlight beams went in four directions and found the first-floor corridor: long, doors on both sides, most of them open, peeling paint and water damage on the walls, and at the far end a section of collapsed ceiling that had brought part of the floor above down with it into a rubble heap that blocked the hallway entirely. The patient rooms were small. A rusted metal bedframe sat in most of them, its mattress long gone.
 
 We moved down the corridor toward the collapsed section and found a stairwell branching off to the right before we reached it. Luckily, the stairwell was intact, concrete with plaster debris that crunched underfoot and made it impossible to move quietly. We went up single file.
 
@@ -370,7 +370,7 @@ Summer stood up so fast the papers slipped from her lap and scattered across the
 
 All four of us looked at the same empty section of stone floor.
 
-Summer swung her flashlight slowly around the room, breathing harder now. “She was literally behind me like thirty seconds ago.”
+Summer looked slowly around the room, breathing harder now. “She was literally behind me like thirty seconds ago.”
 
 We had all been facing different directions. Somebody should have seen her leave. The room was silent enough that even shifting your shoes against the stone echoed.
 
@@ -387,8 +387,6 @@ She was standing maybe fifteen feet down the corridor on the intact stretch of f
 Every instinct in my body told me not to get closer.
 
 Malcolm spoke first: “Iris.”
-
-She didn’t respond immediately.
 
 For a few seconds nothing happened at all. Then she turned around slowly.
 
