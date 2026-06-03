@@ -51,7 +51,7 @@ Even with his eyes shut he seemed to know. “No swiping!” he screeched at me 
 
 “Your hands,” he went on, his eyes opening up again and locking onto mine. “They feel strange. Heavy. Useless. Not like hands at all. Someone else’s. Not yours, Jordan, never were yours, never ever not at all. Only meat. Not yours to take.”
 
-A wave of nausea washed over me. My hands did feel numb, clumsy, foreign at the ends of my arms. I tried hitting him, tried to even make a fist, but I couldn’t. The sensation was dull, distant. The world swam, the tacky stars on the box blurred into real constellations, the room warping at the edges in strange ways. He grasped my shoulders and I heard the metronome and the world spun and he said, \*“*You* \*are a duck and a duck you shall be.”
+A wave of nausea washed over me. My hands did feel numb, clumsy, foreign at the ends of my arms. I tried hitting him, tried to even make a fist, but I couldn’t. The sensation was dull, distant. The world swam, the tacky stars on the box blurred into real constellations, the room warping at the edges in strange ways. He grasped my shoulders and I heard the metronome and the world spun and he said, “You are a duck and a duck you shall be.”
 
 I tried to fly away, but my wings were insufficient slabs of meat. He seized me and locked me in an upstairs room with a purple door and a black door.
 
@@ -83,7 +83,7 @@ When I got to the light, there was a frame propped up against the wall at my duc
 
 I started to remember something then. The sound was so much louder than I'd expected. The bird fell in a spiral of brown and green and now red and hit the water with a sound like, like a sack of wet gravel.
 
-I was crying. Why was I crying? Because it was so beautiful and then it was gone. Because Dad’s hand on my shoulder felt like a weight, holding me down. Because the other duck, its mate, was calling out for it over and over, stretched and distorted, like *"Jor-dan... Jor-dan..."*  
+I was crying. Why was I crying? Because it was so beautiful and then it was gone. Because Dad’s hand on my shoulder felt like a weight, holding me down. Because the other duck, its mate, was calling out for it over and over, stretched and distorted, like “Jor-dan... Jor-dan..."  
 No. That wasn't right. That was now. That was a voice in the house. I couldn’t tell where from. I had to move. I continued into the dark ahead of me.
 
 There was no light anywhere here. It was wider here and dark all around. I sensed movement in the dark around me and heard someone snickering. They kept giggling louder and louder until they were laughing at the top of their lungs. I had to keep going. The laughter never stopped. It felt like it was all around me.
