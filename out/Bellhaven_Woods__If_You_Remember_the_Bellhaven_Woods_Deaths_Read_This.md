@@ -38,7 +38,7 @@ I had been hoping that four hundred miles of distance might mean starting clean.
 
 Bellhaven was small enough that I probably could have laid low and waited for the story to fade. I was considering doing exactly that when Summer Okeke-Dirie sat down across from me during the second week of school without asking.
 
-She set her tray down, dropped into the seat, and looked at me across the cafeteria table. Summer wore oversized clothes almost constantly — hoodies with the sleeves pushed halfway over her hands, huge jackets once the weather cooled off, loose jeans — and her long twists were tied back that day with a faded blue bandanna.
+She set her tray down, dropped into the seat, and looked at me across the cafeteria table. Summer favored oversized hoodies, thick sweaters, loose jeans, and old jackets in muted greens and browns. Everything she wore looked comfortably lived-in. Her long twists were tied back that day with a faded blue bandanna.
 
 “Okay,” she said. “I have a question. Did you actually fracture his orbital socket or were people just being dramatic?”
 
@@ -48,41 +48,39 @@ I blinked. “...It was actually his cheekbone.”
 
 I didn't say anything for a second because I was waiting for the pivot — the ‘so what's wrong with you?’ It didn't come. She just ate and looked around the cafeteria, then looked back at me like she expected us to have a normal conversation, which we did.
 
-We talked about her, mostly, because she kept asking questions and I kept answering them and by the time the bell rang I had learned that she'd been at Bellhaven since freshman year, that she ran cross country badly and did it anyway, that she had a complicated relationship with her parents that she described as a work in progress, and that she had strong opinions about which gas station had the better hot food, which was the Sunoco on Route 9 and not the Shell, no contest.
+We talked about her, mostly, because she kept asking questions and I kept answering them and by the time the bell rang I had learned that she'd been at Bellhaven since freshman year, that she ran cross country badly and did it anyway, that she had a complicated relationship with her parents that she described as a work in progress, and that she spent most of her free time making strange plush animals out of felt and mismatched buttons: rabbits with too many eyes or foxes with stitched smiles. 
 
-Summer introduced me to Malcolm two weeks in, on a Friday afternoon, which is when I found out about the van.
+Summer introduced me to Malcolm that Friday afternoon, which is when I found out about the van.
 
 It was a 1993 Chevy in a yellowish beige that had oxidized down to something closer to the color of an old newspaper, and it ran about sixty percent of the time. He'd bought it for four hundred dollars from a guy his cousin knew and spent six months making the back of it livable. We spent more hours in the back of that van than I can account for, parked in various lots and river pull-offs and dead ends.
 
-The day I met Malcom Reyes, the van was parked in the student lot at the end of the school day. He was sitting on the hood eating chips when Summer walked me over. He had locs down to his shoulders and wore bright sweaters even when the weather probably didn’t justify them. He was a few inches shorter than me, but I still felt intimated when he looked me over before nodding at the van behind him.
+The day I met Malcom Reyes, the van was parked in the student lot at the end of the school day. He was sitting on the hood eating chips when Summer walked me over. The day I met Malcom, the van was parked in the student lot at the end of the school day. He was sitting on the hood eating chips when Summer walked me over. He wore his locs down to his shoulders and seemed to own an endless rotation of bright sweaters, colorful hoodies, and heavily customized jeans covered in doodles, song lyrics, or signatures from people he'd known over the years. He was a few inches shorter than me, but I still felt intimated when he looked me over before nodding at the van behind him. He was a few inches shorter than me, but I still felt intimated when he looked me over before nodding at the van behind him.
 
 "You can get in if you want. We usually just hang here for a while on Fridays."
 
 "Malcolm's van is Bellhaven's third-best hangout spot," Summer said, climbing up onto the hood next to him.
 
-"Second," he refuted. "The quarry is first and then there's us and then the k-mart parking lot."
+"Second," he refuted. "The quarry is first and then there's us and then the Kmart parking lot."
 
-"The k-mart parking lot is not a hangout spot."
+"A parking lot is not a hangout spot."
 
 "Tell that to the kids who are always there."
 
-I got in the van. The back was set up with a secondhand mattress wedged between the wheel wells with a sleeping bag folded on one end, Christmas lights strung along the ceiling, a little Bluetooth speaker balanced on the flat part above the wheel well. A hand-drawn map of Bellhaven and the surrounding county was taped up next to it, marked in different colored pen, though I couldn't read what the markings meant from where I sat. 
+I got in the van. The back was set up with a secondhand mattress wedged between the wheel wells with a sleeping bag folded on one end, Christmas lights strung along the ceiling, a little speaker balanced on the flat part above the wheel well. A hand-drawn map of Bellhaven and the surrounding county was taped up next to it, marked in different colored pen, though I couldn't read what the markings meant from where I sat. 
 
-Two other people were already in the back. One of them I didn't know yet — Cecile Ilao, who was cross-legged on the mattress with a textbook open in her lap and a cigarette burning in her other hand. Her hair was black except for one uneven purple and blonde streak near the left side, and she wore long sleeves with short denim skirts and heavy boots that thudded against the van floor whenever she shifted position.
+Two other people were already in the back. One of them was Cecile Ilao, who sat cross-legged on the mattress with a textbook open in her lap and a cigarette burning in her other hand. Her black hair had an uneven purple and blonde streak near the left side, and fitted shirts or tank tops with denim skirts, layered jewelry, and heavy boots that thudded against the van floor whenever she shifted position. I hadn't met her before, but I'd heard of her. Most people at Bellhaven High had. She'd been a cheerleader until the year before, and I remember being mildly surprised to find her here instead of wherever I'd unconsciously assumed popular people spent their afternoons.
 
 And then there was Iris.
 
 I've spent a lot of time over the past fifteen years thinking about how to describe Iris Mercer to people who didn't know her, and what I keep running into is the problem of the ending. Given her perception now being what it is, she’s stopped being a person and instead is either a victim or a monster, depending on which version the storyteller needs.
 
-I’ll tell you what half these posts don’t say about her: She grew up in a strict religious household. By the time I met her she'd created distance from a lot of that, or was in the process of creating it. She'd done ballet for several years as a child and stopped when her family moved. She had a documented aversion to pain, her own and other people's. She didn't watch horror movies. She winced when you stubbed your toe. She crossed the street to avoid aggressive dogs. 
+I’ll tell you what half these posts don’t say about her: She grew up in a strict religious household. By the time I met her she'd created distance from a lot of that, or was in the process of creating it. She'd done ballet for several years as a child and stopped when her family moved. Her favorite color was purple and she loved to journal. She had a documented aversion to pain, her own and other people's. She didn't watch horror movies. She winced when you stubbed your toe. She crossed the street to avoid aggressive dogs. 
 
-The day I met her, she was sitting in the back of the van with her knees crossed, an open bottle of purple nail polish on the floor beside her as she painted her nails. 
-
-She had long dark curls falling forward every time she tilted her head down, and there was a small silver cross necklace resting against the front of her dress. She typically wore sweaters, jean shorts with ripped tights under them, or dresses that looked half thrifted and half homemade. At the time I mostly just registered that she looked very sure of herself in a way I wasn’t used to people being.
+The day I met her, she was sitting in the back of the van with her knees crossed, an open bottle of purple nail polish on the floor beside her as she painted her nails. She had long dark curls falling forward every time she tilted her head down, and there was a small silver cross necklace resting against the front of her dress. She typically wore sweaters, jean shorts with ripped tights under them, or faded dresses. 
 
 After Cecile greeted me, Iris looked up long enough to say, “Hey,” before turning back to her hand.
 
-Cecile and Iris had known each other since seventh grade, Malcolm told me. They had what I can only describe as a frenemy dynamic in the softer sense of the word. Despite this, they fell into routine with the rest of our group like it was nothing.
+Cecile and Iris had known each other since seventh grade, Malcolm told me. They had what I can only describe as a frenemy dynamic in a softer sense of the word. Despite this, they fell into routine with the rest of our group like it was nothing.
 
 In the following weeks, after school or on weekends, we'd all end up parked somewhere in Malcolm's van: the lot of the Kmart that had closed in 2003, the pull-off where you could see the whole valley on clear days, sometimes just Malcolm's driveway with the back doors open and the string lights on and the speaker playing whatever Summer had decided we were all listening to that week. Cecile would do homework on the mattress, one leg folded under her, making corrections in pencil. Malcolm would be half-in and half-out of the front, trying to fix whichever thing had most recently stopped working. Summer would be talking, as usual. And Iris would be reading, or would have her head tipped back against the door and her eyes closed.
 
