@@ -24,7 +24,7 @@ I told him I did. 
 
 "I got down on that night and it was swinging again. Maybe that should've been my sign. I moved through Lucy's Corridor in gold time or so. I got to the mouth of First Date and called out his name in the dark but nothing came back this time. I tried again and it took my voice like everything else." 
 
-I nodded along to Mason's story. I could understand, overall, what was being said to me, but his slips here and there were concerning to me. "Gold time or so"—probably some combination of "good time" and an estimate of time, like "40 minutes or so." It was almost eerie to hear my brother, who has always chosen his words so carefully, talking like that. I wondered if it would resolve itself in time, or whether something in his head had been altered for good. 
+I nodded along to Mason's story. I could understand, overall, what was being said, but his slips here and there were concerning to me. "Gold time or so"—probably some combination of "good time" and an estimate of time, like "40 minutes or so." It was almost eerie to hear my brother, who has always chosen his words so carefully, talking like that. I wondered if it would resolve itself in time, or whether something in his head had been altered for good. 
 
 He continued. 
 
@@ -86,7 +86,7 @@ I was off the cot before he could do it a third time. I got my hand between the 
 
 I sat on the edge of his bed. He was still shaking but less now, the laughter or whatever it was tapering off into something that looked more like exhaustion. He seemed certain of what he was telling me in a way that was its own kind of frightening.
 
-"It happened just like he said it would. Just like the picture he drew me. Some men came down. They had me watch it all. They talked while they did it, I remember that. One of them looked so familiar—blonde, blue-eyed, clean-pressed and tan. I think Kaylee plays soccer with his daughter. I wonder if he ate dinner with her that night, after he flattened a man's skull under his boot." 
+"It happened just like he said it would. Just like the picture he drew me. Some men came down. They had me watch it all. They talked to eachother all casual while they did it, I remember that. One of them looked so familiar—blonde, blue-eyed, clean-pressed and tan. I think Kaylee plays soccer with his daughter. I wonder if he ate dinner with her that night, after he flattened a man's skull under his boot." 
 
 He leaned in close, putting one hand on my shoulder. I think I was shaking too, at that point. He whispered in my ear: 
 
