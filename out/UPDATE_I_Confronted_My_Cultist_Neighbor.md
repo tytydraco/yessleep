@@ -1,0 +1,398 @@
+Hey there, guys! Before you jump into this, I urge you to read my first post on the matter linked here:  
+  
+[My Neighbor is Definitely a Cultist, But He's Also a Pretty Nice Guy!](https://www.reddit.com/r/nosleep/comments/1tual1j/my_neighbor_is_definitely_a_cultist_but_hes_also/)
+
+\---
+
+Okay, so a lot happened.
+
+First of all: The world did not end.
+
+Second: I shot my neighbor.
+
+Third: I owe several people apologies.
+
+Including Charlie.
+
+Possibly God.
+
+I’m currently writing this from a hospital bed with what doctors are calling “extreme psychological stress,” which I feel is the appropriate medical terminology for my current state of mind. Especially after what I witnessed last night.
+
+Anyway, let’s get to it!
+
+\---
+
+As you already know, last night I grabbed my shotgun and went out into the street to confront my cultist neighbor, Charlie.
+
+As soon as I stepped outside, the world felt shifted. The road was oblong, with these strange sigils scraped across every square foot of concrete, and a large amount of chalk drawn across my driveway.
+
+And the chanting—
+
+Jesus Christ.
+
+The chanting was as loud as possible, filling the air.
+
+Every home on the street glowed faintly through the windows with candlelight, and I could see silhouettes standing perfectly still behind curtains. I could even see many of my neighbors standing in the street just singing and mumbling.
+
+I started to shake a bit, I won’t lie. But I was the only sane one left. I had to stop this!
+
+So, against my better judgment, I continued down the street.
+
+The entire road had been covered in ash-black spirals painted across the asphalt. The symbols moved slowly when you stared at them too long, rotating inch by inch like living things.
+
+Dozens of hooded figures stood around the spiral speaking in a language I can’t comprehend.
+
+And, standing within the pinnacle of the cul-de-sac, stood Charlie. He was holding several candles, looking exhausted.
+
+Above him, there was something in the sky.
+
+At first, I thought it was clouds. But it didn’t take long to realize they were something else since clouds don’t typically convulse. The night overhead had seemingly split open into a gigantic vertical crack stretching across the stars. 
+
+The insides were writhing with massive shapes drifting slowly through impossible distances. Every few seconds, something huge would press against the opening from the other side.
+
+The sky bulged outward each time it happened.
+
+The neighborhood dogs were going insane.
+
+Every car alarm on the street started blaring at once.
+
+Out of sheer shock, I gulped. Despite all the other noise surrounding us, Charlie somehow heard it, and in an instant, he turned to face me.
+
+His face lit up with what I think now was relief.
+
+“Oliver!” he yelled. “Thank God!”
+
+That should’ve been my first clue that things weren’t as I thought.
+
+Instead of trying to hear him out, I raised the shotgun and screamed, “WHAT THE HELL DID YOU DO?”
+
+The chanting around us intensified.
+
+The hooded people didn’t even look at me; they just kept repeating:
+
+“IAH VORATH… IAH VORATH…”
+
+The spiral beneath Charlie’s feet started glowing red through the cracks in the pavement.
+
+He stepped toward me carefully.
+
+“Oliver, listen to me very carefully. We don’t have a lot of—”
+
+“No! You listen! THIS ENDS TONIGHT! DON’T YOU KNOW PEOPLE HAVE BEEN GOING MISSING!”
+
+“Yes, I know. As I was saying—”
+
+“THERE’S A GIANT THING IN THE SKY!”
+
+“Again, I know.”
+
+“YOU STOLE MY WIFI!”
+
+Charlie actually winced at that.
+
+“...I said I was sorry.”
+
+Then the ground moved.
+
+Like something enormous rolled underneath the neighborhood.
+
+One of the hooded cultists collapsed, screaming as blood poured from his nose.
+
+And then, the spiral on the ground opened.
+
+The asphalt physically split apart in the center of the cul-de-sac with a sound like tearing meat.
+
+The black spiral peeled open into layers of wet red flesh underneath the road. I saw teeth. Human teeth. Thousands of them were embedded inside the opening, chattering violently.
+
+The stench emanating from the pulsing orifice was unbearable.
+
+Like rotting seawater and burnt hair.
+
+It was truly something ancient and diseased.
+
+And beneath all of that—
+
+A familiar, savory smell. I know how stupid that sounds, but it smelled like Charlie’s cooking.
+
+Then something inside the opening looked up at us.
+
+I don’t have the proper words for it. My brain keeps rejecting parts of the memory like it’s corrupted footage.
+
+Eyes.
+
+Too many eyes.
+
+Opening one by one inside the darkness and reflecting different skies. Some had stars rippling through them, while others produced storms. One of them reflected a city I didn’t recognize, where everything was underwater.
+
+And behind those eyes was movement.
+
+Something impossibly large was trying to force itself upward through the crack in reality, mirroring whatever was in the sky.
+
+\---
+
+The hooded figures started screaming, their hymns now displays of agony instead of forms of speech.
+
+Charlie turned toward them, shouting:
+
+“HOLD THE SEAL!”
+
+Then he looked back at me.
+
+“Oliver, you need to shoot the pillars!”
+
+That’s when I noticed the four black stone pillars that began to extend from the edge of the sigil. Each one was covered in glowing symbols and vibrating violently.
+
+Apparently, this was extremely important to whatever ritual was occurring.
+
+Unfortunately, my brain had already stopped functioning.
+
+Because instead of shooting the pillars—
+
+I shot Charlie.
+
+The bullet slammed into his shoulder. The blast knocked him backward into the street.
+
+He screamed, “Oliver, WHAT THE HELL?”
+
+In my defense, there was a fucking screaming flesh-hole in the road.
+
+Communication had deteriorated significantly, and everything after that became absolute chaos.
+
+The thing beneath the street pushed upward harder. The crack widened, and reality began to bend around it. One parked SUV slowly folded inward like it was made of paper.
+
+The sky overhead peeled wider as some of the cultists exploded into miasmic sludge.
+
+No dramatic build-up.
+
+No warning.
+
+One second, they were screaming. The next second, he burst apart into wet red mist.
+
+The remaining members, still shouting, pressed against their hoods and collapsed to the floor. I think they were praying.
+
+Charlie was still sprawled on the pavement, clutching his shoulder.
+
+He looked furious.
+
+“The pillars, Oliver! Destroying them will stop this mess!”
+
+“WAIT!? I THOUGHT YOU WERE SUMMONING IT!?”
+
+“WE’VE BEEN HOLDING IT BACK, DUMBASS!”
+
+*What?*
+
+That was a very bad moment for me emotionally.
+
+\---
+
+So, turns out Charlie’s cult wasn’t trying to destroy the world.
+
+They were basically cosmic maintenance workers.
+
+Their rituals and other shenanigans were apparently to keep the breach contained.
+
+The disappearances were accidents. Things that slipped through before being dragged back. Charlie had spent YEARS secretly protecting the neighborhood.
+
+The various recipes?
+
+Protective ward mixtures.
+
+The bay leaves?
+
+Apparently legitimate anti-eldritch herbs, mostly used in witchcraft sabbaths.
+
+The barbecue?
+
+A collaboration from his organization with the HOA to provide ritual anchors and to ascertain the current state of the people and environment.
+
+THIS MAN WAS FIGHTING INTERDIMENSIONAL HORRORS WITH COMFORT FOOD.
+
+I cannot process that.
+
+\---
+
+The thing beneath the spiral shoved part of itself through the opening, and I saw enough to understand why Charlie looked exhausted all the time.
+
+Its body unfolded in pieces that didn’t connect logically. The limbs emerged from inside other limbs, and its skin looked translucent in places, revealing galaxies moving underneath like organs.
+
+And its face—
+
+Its face kept shifting into various human faces. Hundreds of them stretching across its head like melting wax.
+
+What truly terrified me was that one of them looked exactly like me.
+
+I switched my gaze rapidly between the thing from the Spiral and Charlie. I wanted to run more than anything. However, it seems like my body was able to move before my mind could finish trying to rationalize any of this, as the next moment, I fired the shotgun at one of the pillars.
+
+The symbol-covered stone exploded apart instantly.
+
+The entire neighborhood reverberated in response. Every house groaned at once with all of the windows bursting outward.
+
+The thing in the opening, sensing a disturbance, let out a screech as a hand emerged; if you can call it a hand.
+
+It had too many joints and bent sideways in places. The fingers alone were miles long, and each fingertip had a human mouth opening and closing desperately.
+
+Shadows poured out of the opening and dragged three of the collapsed cultists, screaming into the crack beneath the street.
+
+Charlie staggered to his feet, bleeding heavily, and grabbed me by the jacket
+
+“You have to finish this, Oliver.”
+
+Then this absolute psychopath rushed to pick up one of the ritual candles and started limping directly toward the creature.
+
+“Charlie,” I yelled, “WHAT ARE YOU DOING?”
+
+“Distracting it!”
+
+“WITH WHAT?”
+
+He looked back at me like the answer was obvious.
+
+“ME!”
+
+Charlie proceeded to chant louder than ever before. The creature turned toward him instantly. Every face on its body stretched into horrible attention.
+
+The mouths opened, all at once, unleashing a deluge of indescribable shrieks.
+
+Charlie kept walking toward the opening, holding the candle with one shaking hand while shadows wrapped around his legs.
+
+And he screamed at me:
+
+“SHOOT THE PILLARS NOW!”
+
+So I did.
+
+My third round shattered the second of the black pillars instantly.
+
+The creature recoiled as the spiral beneath the street boomed violently.
+
+The thing emerging from it suddenly jerked sideways as gravity seemed to start forcing it back down.
+
+Charlie was still chanting, even as black veins crawled up his neck and the shadows around him started pulling at his clothes.
+
+Not hesitating any longer, I fired again.
+
+Third pillar.
+
+Gone.
+
+The entire cul-de-sac started collapsing inward.
+
+The asphalt rippled like water. One nearby house slowly twisted in on itself with a groaning noise like metal screaming underwater.
+
+And Charlie stood there, continuing to hold the line.
+
+The creature, tired of this cat-and-mouse game, lunged toward him. Its massive hand burst forwards, reaching my neighbor in under a second.
+
+Charlie looked at me one final time and smiled.
+
+Not dramatically.
+
+Not heroically.
+
+Again, just tired.
+
+Before the mass of flesh slammed against him, he shouted, “LAST ONE, OLIVER!”
+
+Nodding, I fired the final shot, and like the rest, the fourth pillar exploded.
+
+The creature screamed as both the crack in the ground and the sky began to shrink. Its body was dragged backward into the opening.
+
+The sound of it scraped across my brain like broken glass.
+
+I put my hands over my ears and shut my eyes, trying to block out the noise and maddening sight in front of me. But before my eyes fully closed, I saw Charlie, still gripped by the monster, disappear into the collapsing spiral with it.
+
+Before he was fully engulfed, he said something. Reading his lips, I was able to make out:
+
+“See ya, Ollie.”
+
+Then he was gone.
+
+As soon as the creature vanished from sight, the entire cul-de-sac imploded, forcing me back.
+
+I crashed to the ground as the asphalt folded downward into itself like water draining from a sink.
+
+Then silence.
+
+Complete silence.
+
+Half the street was gone.
+
+There was just a massive sinkhole where the opening was.
+
+Police and emergency crews showed up around twenty minutes later, just in time for me to fall unconscious.
+
+\---
+
+I woke up this morning sitting in a hospital bed. The police and doctors stood around me, asking me various questions and filling me in on what transpired. Well, at least what they thought transpired.
+
+Officially, there was a massive explosion from the gas main under the neighborhood. Apparently, it was very badly maintained. 
+
+How convenient.
+
+I asked about my neighbors and if anyone else was hurt.
+
+The officer said everyone was found alive, but distressed in their homes. The people closest to the “explosion” suffered from minor contusions and temporary hearing loss.
+
+Charlie’s body, however, was never found.
+
+Neither were the cultists.
+
+I keep replaying everything in my head.
+
+All the signs.
+
+All the chances I had to actually listen to him.
+
+And the worst part is that Charlie never once got angry at me for acting the way I did.
+
+Well, he got a little upset after I shot him, but that’s valid.
+
+That man spent years protecting a neighborhood full of people who probably would’ve called the cops on him if they knew the truth.
+
+He fed people.
+
+Helped them stay positive.
+
+Babysat their kids.
+
+And every single nice thing he did was apparently part of keeping unimaginable horrors away from us.
+
+I thought he was a monster.
+
+But he was just being a good neighbor.
+
+If you’re alive and out there somewhere, I’m sorry, Charlie.
+
+I should’ve tried harder to understand you.
+
+You were a hero.
+
+A deeply unsettling, obsessive, WiFi-stealing hero.
+
+\---
+
+Now, you may be wondering, “Oliver, how do you think he could be alive after that!?”
+
+Like I said at the beginning of this post, I’m writing this from a hospital room right now.
+
+About ten minutes ago, a nurse walked into my room carrying a covered bowl.
+
+She said someone had it delivered for me.
+
+No name attached.
+
+Just a note.
+
+The nurse left before I could ask questions.
+
+Not one to deny free food, I opened the lid.
+
+Chicken noodle soup.
+
+Still warm.
+
+And wouldn’t you know it.
+
+There’s extra bay leaf drifting in the broth.
+
