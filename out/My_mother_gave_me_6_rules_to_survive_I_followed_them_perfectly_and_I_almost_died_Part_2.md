@@ -124,7 +124,7 @@ I opened my mouth, and the black smoke inside me erupted forward, backed by the 
 
 The impact was a silent, concussive wave that shattered the glass of the streetlamp above us, plunging the alley into total darkness. The air vibrated so violently my teeth ached.
 
-For a second, we were locked in a stalemate—two vessels fueled by the exact same historic agony, but split by a fundamental choice. Geeta had been in the dark longer, consumed entirely by the void. She was back from the dead. With a brutal thrust of her arm, she shoved my energy back into my chest, sending me stumbling against the white SUV.
+For a second, we were locked in a stalemate - two vessels fueled by the exact same historic agony, but split by a fundamental choice. Geeta had been in the dark longer, consumed entirely by the void. She was back from the dead. With a brutal thrust of her arm, she shoved my energy back into my chest, sending me stumbling against the white SUV.
 
 “You were lucky the entity found you alive. You are stronger than us." 
 

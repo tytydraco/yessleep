@@ -1,0 +1,17 @@
+I think my neighbor is a witch. I also think she's put a curse on my street.
+
+Ever since I was born, I've lived next to my neighbor Ms. Violet, and ever since I was a child, she's looked the same. She's had the same house, same plants, the same little tuxedo cat, and the same youth in her appearance. I never really questioned it when I was younger, but now that I'm back from my first year of college, it struck me. 
+
+How has she remained the same?
+
+Ms. Violet is a beautiful woman, don't get me wrong. She has a round but long face, warm brown eyes, eloquently done braids reaching her hips (that usually are adorn with flowers), and skin that always seemed smoother than anyone elses I've met. This wouldn't be too odd if she was my age, but I'm pretty sure she's my parents age atleast. Her cat, Edgar, I believe IS actually my age, and he's probably the most well behaved yet playful cat I've ever met for being, like, 20??
+
+Now, about the street being cursed thing. My family and I live in a cul-de-sac like road, Ms. Violet's house being the end of the road. Behind her house and my parents is a forest the stretches on for miles, I think. Every night, sometimes faint sometimes not, I can hear howls and growls of what I thought were coyotes- until I had my first sleepover.
+
+So, I had my first sleepover in elementary school. It was a warm summer evening and I was playing with my friends at one of their houses. It was about 9 pm, and the parents of whatever girl was hosting were getting the bonfire started. As we played tag, weaving through the neighbors looming corn field, howls and yips echoed nearby. I had never heard howls like this before and immediately ran to the parents scared. They assured me it was only coyotes, but we would have to stop our game of tag for the night. I was even more scared, for these were nothing like the "coyote" howls on my street. I was quickly dismissed as an over imaginative kid before i could even begin talking about the sounds from my road.
+
+Another reason, and probably what I should have started with, are the disappearances. Every year, like clockwork, in the last week of December somebody disappears. Sometimes a man, sometimes a child, sometimes somebody that's only visiting for the holidays. But every year it happens. No one knows what or why, only that something is out there and it comes every late December for our street. Most people leave for the holidays now. 
+
+A few years ago I remember my father's friend stayed with us for Christmas because of some financial troubles. My father tried to deter him at first, but to no avail. As you can guess, to our horror, he was that years victim. My parents had hid it from me at first, but after a week or so, it clicked what really happened. I've since learned the last trace of him were footsteps that headed towards the forest, vanishing at the property line between my parents house and Ms. Violet's house.
+
+It may seem silly, but this summer as I'm back from college, I think I'm going to try investigating her more. There has to be a connection between her youthful appearance and the monster in those woods. And I know I sound crazy, but I have more evidence, just you wait. If you'd like to hear what I find out, plus some more evidence, stay tuned because I know there's something up.
