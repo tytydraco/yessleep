@@ -107,3 +107,5 @@ Mason was alone. He didn't look up when we came in. He was sitting up in bed wit
 I promised an update in my last post, so I wanted to put this up, but I don't think you'll be hearing from me again. I'm sorry. I know there are unanswered questions, many of which I don't know the answers to myself, but I don't think I can do this anymore. My family's getting out of here on this upcoming Sunday, June 7th, and that's what I should be putting my focus on. We're just staying with some extended family in Virginia for now, but I'm hoping I can convince everyone to make the move permanent. It'll be hard, of course. I mean, I've lived in this town my entire life, largely without incident, and it's hard to believe how quickly everything fell apart. At least everyone is still alive, even Mason, despite all his bad luck and bad decisions, and I'd like to keep it that way. 
 
 Thank you, all of you, for coming along for the ride with us. Take care, and goodbye.
+
+\[Link to Part Eight (Final)\]

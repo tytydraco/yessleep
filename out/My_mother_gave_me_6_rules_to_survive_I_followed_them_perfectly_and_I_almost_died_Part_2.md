@@ -1,12 +1,12 @@
 My new rules were much simpler than my [mother’s](https://www.reddit.com/r/nosleep/s/8xxBShLhwQ).
 
-Unlike the chaotic, cruel world we lived in, the Entity inside me wasn't a senseless beast. It possessed a terrifying, absolute moral clarity. It was bound by a cosmic ethics - a strict law of equal and opposite retribution.
+Unlike the chaotic, cruel world we lived in, the Entity inside me wasn't a senseless beast. It possessed a terrifying, absolute moral clarity. It was bound by some kind of cosmic ethics - a strict law of equal and opposite retribution.
 
-**Rule 1: The Gaze.** We no longer look at our shoes. You will look into our eyes, and we are equals till the scales are tilted by your malicious intent.
+**Rule 1: The Gaze.** We no longer look at our shoes. You will look into our eyes, and we are equals till the scales are tilted by your malicious intent and thought.
 
 **Rule 2: The Measure of the Debt.** The Entity does not strike the innocent, nor does it punish out of cruelty. The weight of the judgment will precisely match the depth of the violation. No more, no less.
 
-**Rule 3: The Absolution of the Innocent.** If blood has not been spilled, if a boundary has not been crossed, the Entity remains asleep. We only reflect the monsters you harbor.
+**Rule 3: The Awakening** If blood has not been spilled, if a boundary has not been crossed, the Entity remains asleep. We only reflect the monsters you harbor.
 
 For the past week, Sharma Uncle had been driving me to college in his white SUV. To my parents, and the rest of the neighborhood colony, he was still a saint - the polite, retired government officer who kindly offered to carpool their daughter through the flooded roads.
 
@@ -14,11 +14,11 @@ They didn't notice the milky film over his pupils. They didn't notice how his mo
 
 His wife, Sharma Aunty, noticed something was off, but because this was a middle-class Delhi suburb, her conclusions were entirely domestic.
 
-"I don't know what got into him, beta," Sharma Aunty had confided in my mother just yesterday on the porch, handing over a plastic container of leftover aloo poori. "Since last Thursday, he hasn’t argued with me once. I told him to clean the fan, he cleaned the fan. I told him his brother’s family is coming for Diwali and he needs to sleep on the couch, he just stared at the wall and said, ‘Yes, sure’ No drama! No blood pressure complaints!"
+"I don't know what got into him" Sharma Aunty had confided in my mother just yesterday on the porch, handing over a plastic container of leftover aloo poori. "Since last Thursday, he hasn’t argued with me once. I told him to clean the fan, he cleaned the fan. I told him his brother’s family is coming for Diwali and he needs to sleep on the couch, he just stared at the wall and said, ‘Yes, sure’ No drama! No blood pressure complaints!"
 
 My mother chipped in, adjusting her spectacles. "Must be the meditation app he downloaded. Or maybe he’s finally getting a conscience."
 
-I had just stood there, holding the tiffin box, looking Sharma Aunty dead in the eye. Usually, I’d be staring at her Bata sandals, nodding politely. Now, my unblinking, heavy stare made her physically uncomfortable. She fidgeted with her gold bangles, her gossip-fueled confidence faltering under my gaze.
+I had just stood there, holding the tiffin box, looking Sharma Aunty dead in the eye. Usually, I’d be staring at her sandals, nodding politely. Now, my unblinking, heavy stare made her physically uncomfortable. She fidgeted with her gold bangles, her gossip-fueled confidence faltering under my gaze.
 
 "And what about you, beta?" Sharma Aunty asked, her voice dropping to that classic, passive-aggressive auntie register. "No dupatta today? Your neck is completely visible. And you’re looking so... sharp. And is that Jeans you are wearing? And tie up your hair…girls shouldn't stare so much, beta. *Nazar lag jayegi* (you'll attract the evil eye)."
 
@@ -50,13 +50,13 @@ Verma was a slimy, middle-aged man who let his eyes linger too long on college g
 
 It wasn't the case of a bitter college boy throwing a tantrum. It was a business. Rahul was the supplier, installing the cameras. Verma was the distributor, processing the files, wiping the digital footprints, and selling them to dark web forums and black-market syndicates.
 
-The scales balanced perfectly. The guilt was absolute. The Entity in my chest practically growled, its ethical boundaries verified.
+The scales balanced perfectly. The guilt was absolute. The Entity in my chest practically growled, it was hungry to consume.
 
 The monsoon clouds had bruised the sky into a premature twilight by 6:00 PM today. The streetlights began to flicker.
 
 Sharma Uncle parked the SUV in the pitch-black alley behind Verma’s shop. I stepped out into the damp air. The heavy, suffocating dread that used to paralyze me was gone; I was the dread now.
 
-I walked into the alley, my eyes fixed straight ahead. Verma was there, smoking a cigarette, locking up the back door of his shop, a heavy laptop bag slung over his shoulder. The bag that contained Priya’s life. When he saw me walking alone, a familiar, predatory smile crept onto his face.
+I walked into the alley, my eyes fixed straight ahead. Verma was there, smoking a cigarette, locking up the back door of his shop, a heavy laptop bag slung over his shoulder. The bag that contained Priya’s life and perhaps many other girls like her. When he saw me walking alone, a familiar, predatory smile crept onto his face.
 
 "Late night at college, beta?" he asked, throwing the cigarette butt down. "You shouldn't be out alone. It's dangerous outside, come in…"
 
@@ -64,7 +64,7 @@ I walked into the alley, my eyes fixed straight ahead. Verma was there, smoking 
 
 Verma froze. The smile died on his face.
 
-I opened my mouth, ready to let the freezing black smoke spill from my lungs. The ethical weight of his crimes gave me the right to hollow him out, just like I did to Sharma Uncle, before I tracked down Rahul.
+I opened my mouth, ready to let the freezing black smoke spill from my lungs. The weight of his crimes gave me the right to hollow him out, just like I did to Sharma Uncle, before I tracked down Rahul.
 
 But before the smoke could leave my lips, Verma gasped. He clutched his throat, his eyes bulging in absolute terror. He didn't look at me; he looked past me, at the brick wall behind him.
 
@@ -76,7 +76,7 @@ When the dim light hit her face, my heart stopped.
 
 It was Geeta.
 
-The girl from three houses down, my friend Geeta. The one who had disappeared three months ago. The aunties had whispered that she deserved it because she didn't follow the rules. They said her broken body was probably rotting in a ditch somewhere. We had all accepted that fact with a surprising casualness.
+The girl from three houses down, my friend Geeta. The one who had disappeared three months ago. The aunties had whispered that she deserved it because she didn't follow the rules, she wore western clothes...too revealing. They said her broken body was probably rotting in a ditch somewhere. We had all accepted that fact with a surprising casualness.
 
 She wasn't dead. But she wasn't human anymore, either.
 
@@ -98,9 +98,9 @@ The Entity wasn't just inside me. We were a web. A massive, interconnected hivem
 
 The vision snapped. I was back in the damp Delhi alley, gasping for air.
 
-"You see it now, don't you?" Geeta said, stepping closer. The air between us dropped to a freezing, painful cold. "We are waking up. Everywhere. No more hiding. No more compliance. The good girls have gone baaad...." She mocked.
+"You see it now, don't you?" Geeta said, stepping closer. The air between us dropped to a freezing, painful cold. "We are waking up. Everywhere. No more hiding. No more compliance. The good girls have gone baaad...." She smiled.
 
- "We can fix it," I whispered, looking down at Verma’s empty body, then at the laptop bag. "We can find the boys like Rahul. We can measure their guilt. We can make them follow the rules. We can make the girls safe."
+"We can fix it," I whispered, looking down at Verma’s dead body, then at the laptop bag. "We can find the boys like Rahul. We can measure their guilt. We can make them follow the rules. We can make the girls safe."
 
 Geeta laughed, a harsh, grating sound. "Fix it? Measure it? You think this is a courtroom, Ananya? You think this can be settled with spreadsheets of guilt? You're playing house with these monsters. Always the stupid one."
 
@@ -112,15 +112,15 @@ She turned, her black eyes locked onto a small residential house at the corner o
 
 Geeta’s shadow-tendrils began to creep toward the windows of that house like liquid night. She was going to demolish the house with the inhabitants burying them alive.
 
-"What are you doing?" I panicked, stepping in front of her. "They haven’t done anything! The Entity is bound by the debt - they don't owe us anything!"
+"What are you doing?" I panicked, stepping in front of her. "They haven’t done anything! We are bound by the debt - they don't owe us anything! You've killed Verma, we need to go after the perpetrators."
 
-"They will, that’s Verma the Vermins son" Geeta’s voice boomed, layering with a terrifying, absolute nihilism that shattered the very laws of the smoke inside me. "He is part of Verma’s bloodline. To build a new world, we must burn the old one to the ground. Out of my way, sister. The collective rage doesn't care about your tiny metrics of justice."
+"They will, that’s Verma the Vermins son" Geeta’s voice boomed, layering with a terrifying, absolute nihilism. "He is part of Verma’s bloodline. To build a new world, we must burn the old one to the ground. Out of my way, sister. The collective rage doesn't care about your tiny metrics of justice."
 
 "No," I roared.
 
-I snapped my head up. The ethical core of the Entity inside me recoiled at her words. This wasn't justice; this was butchery. The entity had saved me because I was an innocent victim; it would not allow me to become the predator to another innocent.
+I snapped my head up. The ethical core inside me recoiled at her words. This wasn't justice; this was butchery. The entity had saved me because I was an innocent victim; it would not allow me to become the predator to another innocent.
 
-I opened my mouth, and the black smoke inside me erupted forward, backed by the absolute, rigid weight of cosmic law, clashing against Geeta’s chaotic shadows.
+I opened my mouth, and the black smoke inside me erupted forward, backed by the rigid weight of cosmic law, clashing against Geeta’s chaotic shadows.
 
 The impact was a silent, concussive wave that shattered the glass of the streetlamp above us, plunging the alley into total darkness. The air vibrated so violently my teeth ached.
 
