@@ -117,7 +117,7 @@ She rolled her eyes at the people walking in and responded, “Sure, I’d love 
 When she got over to the register I noticed the dog put its hackles up and began growling at Addie. The lady who brought it in tried to calm the dog but it started barking furiously at Addie, which seemed to freak her out. The lady dragged the dog around the corner over to the lockers we had available for peoples shoes, apologizing profusely. She handed its leash to one of her children and went back to pay, but the dog kept staring in the direction of the registers.
 
 I walked over to them.  
- “What was that about?” I asked
+“What was that about?” I asked
 
 “I have no idea” the lady said as the register beeped, telling her to remove her card. “He’s usually very friendly to everyone”
 
@@ -298,7 +298,7 @@ Hornet looked at me, confused. “What are you on about dude?”
 He just laughed at me. “You are so drunk dude,” he said. “Let me get you some water.”
 
 I was confused. I know I was drunk, but I wasn’t that drunk. Nowhere near. I watched him walk to the kitchen and noticed Addie glaring at me.  
- “What?” I asked her.
+“What?” I asked her.
 
 “Nothing.” She scowled.
 
@@ -340,15 +340,15 @@ I just looked down, hugging my stuffed animal tighter.
 
 My mothers gaze softened more and she asked, “What is there to be afraid of? We’re here, you’re safe in our house, in your own room, and you’ve got your stuffed animals to hug. Nothing can hurt you here. What are you scared of?”
 
-When I answered I didn’t answer as 10 year old me. I’m not sure why, but I answered as present day me.   
- “I guess... I’m afraid of a few things. Mostly just worried that someone is watching me or stalking me, even worse now with this new husk threat. Part of me is even worried that I will be accused of those murders, even though I have no connection to them.”
+When I answered I didn’t answer as 10 year old me. I’m not sure why, but I answered as present day me.  
+“I guess... I’m afraid of a few things. Mostly just worried that someone is watching me or stalking me, even worse now with this new husk threat. Part of me is even worried that I will be accused of those murders, even though I have no connection to them.”
 
 My mom leaned in a little closer. “But there’s something else you’re not telling me. Where’s the base of all this fear coming from?” she asked.
 
 I thought for a second before admitting, “I think I’m just afraid of the unknown. Like when you’re in the dark and don’t know if that’s a creature or just clothes in the corner. I don’t know what’s going on around town, I don’t know what will come next, I just.. something about only having part of the information is really upsetting to me. Especially if it pertains to me, either in a dangerous way or in a lifestyle way, or however. Even the internet scares me, having no idea who I’m really talking to behind the screen or if I can trust a word they say.”
 
-In that moment everything stopped. All sound ceased. Both my parents sat straight up and all expression on their face dropped and they just stared at me, emotionless, unmoving.   
- “Uh.. mom? Dad? What’s wrong?”
+In that moment everything stopped. All sound ceased. Both my parents sat straight up and all expression on their face dropped and they just stared at me, emotionless, unmoving.  
+“Uh.. mom? Dad? What’s wrong?”
 
 They didn’t move. Didn’t even blink.
 
@@ -382,8 +382,6 @@ I don’t think I had been dreaming that.
 
 Whatever that thing was, it was real. I didn’t know how any of it could be explained. All I know is it happened, and I was terrified.
 
-  
 End Part 1
 
-I will post part 2 tomorrow; the link will be here
-
+[Part 2](https://www.reddit.com/r/nosleep/comments/1tw0eww/something_in_the_appalachians_wants_to_know_what/)
