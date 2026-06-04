@@ -1,0 +1,347 @@
+I had housesat for them before. 
+
+Before they moved. 
+
+Before Zoe had gone missing.
+
+I should have known that things would be different. I just didn't understand *how* different as I pulled up to the beautiful two story home at the end of the cul-de-sac.
+
+"Thank you again so much, Celia," Mrs. Calhoun said as she let me in. "We know, even with your scholarship, money's tight, so we're happy to help." 
+
+Mrs. Calhoun gave me a walkthrough of the downstairs. We passed through the kitchen, the living room, and she gave a grand gesture from the dining room to the massive backyard, which looked out onto the sloped hillside of a canyon. The Calhouns loved to throw parties, and the backyard was certainly a perk, if not *the* selling point.
+
+We continued our tour downstairs, passing the office, and entrance to the garage, and then, back at the entry way, I saw my favorite family member.
+
+"Murphy!" I cried out "Oh my gosh you've got grays." Despite his age, the spotted English Pointer wasn't too old for a belly rub. He slowly rolled over.
+
+"His front legs are giving him some trouble, so," Mrs. Calhoun unlatched the gate at the stairs, "we're limiting him to downstairs. It is super cute, though; any time someone's upstairs, he'll just wait right at the bottom." She nodded up. "Shall we?"
+
+"It's what you'd expect up here," Mrs. Calhoun remarked, as we walked past family photos. "Bedrooms. And, uh..."
+
+I knew there would be no dodging this moment. I had dreaded it when I first saw the coordinating details. 
+
+I would be staying in Zoe's room.
+
+Zoe was the middle child. Where Jenny was a social butterfly and Sammy was athletic and a boundless ball of energy, Zoe had been inquisitive and attentive. She would tip her head, like a lopsided doll, heavy with curiosity. Her golden curls and thick glasses always came with questions. And then, at nine, *she* became the question, when shortly after moving into their new home Zoe vanished.
+
+Nothing about the night before had been unusual. Mrs. Calhoun had read a few chapters to Zoe; at the time they were reading *Matilda*, and Mrs. Calhoun even remembered going in a little later that night to check on Zoe sleeping after she had let Murphy out one final time that evening to use the backyard. 
+
+Yet, in the morning, Zoe was gone. 
+
+The door sensors hadn't been triggered. The lights outside hadn't detected motion. No windows were open. 
+
+She had simply evaporated.
+
+This put the Calhouns in the uncomfortable position of so many cold cases. Do you hold a funeral or do you hold out hope? They chose the latter, but in the year that had followed, nothing had changed. 
+
+Except that now I would be sleeping in her room.
+
+Beyond the fresh bedding, the room appeared to be nearly untouched since her disappearance. Some of Zoe's drawings, like one she had drawn of her in front of their new house, had been stuck to the wall. The furniture was all set, but there were also boxes that had been left mid-action. Half of her chapter books were on a shelf while a box labeled "Toys" had remained untouched.
+
+I set my bag down next to the low twin bed, adorned with colorful kitten sheets and looked up at Mrs. Calhoun in the doorway. 
+
+I didn't know what to say. Neither of us did. 
+
+Fortunately, we didn't have to as we heard the front door open.
+
+"If I'm not mistaken," I heard Mr. Calhoun's jovial voice musically accompany the jingling of his keys, "that Kia Soul can only mean that one Miss Celia Tan is here!"
+
+Mr. Calhoun had a tendency to double-dip on duties, and expected everyone else to perform such multi-tasking, so I joined him and his wife in their bedroom as he did a double-check of their packed bags and their kids, Jenny and Sammy, did the same in their rooms. 
+
+Mr. Calhoun had been reminding me to turn lights off when I wasn't in rooms as the electricity bill was almost double their old place, when he snapped his fingers. "Right. There's a safe in the walk-in closet. We're not keeping jewels or a gun or anything exciting in it. Just birth certificates, passports, that type of thing. Speaking of," he said, showing me as much as, taking out documents before locking it back up. "That would have been embarrassing if we forgot these."
+
+With suitcases set, I followed them out into the hallway. "Oh, and there's an attic. See, one of those pull down stairways. With some time, I'm hoping to maybe turn it into a hang for the kids, but for now it's just got some holiday storage." He smiled, "Kids, you ready? We're taking off in ten!"
+
+I saw them off in their final flurry to the door, with all of them waving good-bye, and then...
+
+...it was quiet. 
+
+Just twelve *calm* days.
+
+The first few were fine. I enjoyed the pantry snacks, as well as their streaming services - I finally started watching *Supernatural -* and I gave my boyfriend, Brett, a video tour. He was quick to call out what I already knew.
+
+"Celia. Yo," he crackled a bit on the call, "I'm looking at Street View and this neighborhood is, like, crazy rich. How much are they paying you?"
+
+"$500," I said, curled up in a blanket on the living room couch. I had been petting Murphy but he had wandered out to the backyard through the ajar sliding door, so my hand was now dangling, listlessly.
+
+"I'm sorry, but you're a business major. You should know that's a terrible deal."
+
+"They're family friends-"
+
+"-who can afford to go on vacation. They can afford to pay you more."
+
+"Okay. Fine. Next time," I said, trying to move to *any other* topic.
+
+"Wait. Oh, shit. Was this the family you told me about? With their daughter?"
+
+Oof. Not *that* topic either.
+
+"Yeah. Zoe."
+
+"Well, now I feel like an asshole. Sorry. I'll make it up to you."
+
+Brett was sweet like that. He would apologize when he screwed up. He was always trying to better himself. He read *self-help books.* What twenty-year old does that?
+
+"Hey, how about this?" Brett shifted in his childhood bedroom, and I could see the yellow birch trees outside. He was all the way in Maine over the summer and here I was housesitting. I missed him. "What if you posted the disappearance to Reddit or contacted one of those true-crime podcasts?" 
+
+I rolled my eyes. His need to fix things was sometimes too much.
+
+When our call ended, I ushered Murphy back inside, and was met with the all too oppressive stillness that comes with the suburbs. 
+
+With the valley behind the house, and neighbors only further up the cul-de-sac, there was a muting that overtook the house when night fell. The backyard stared out into the void. Though I loved watching the sunset, I was quick to close the curtains to keep that blackness from peering in. The shadows and size of the house made me feel small.
+
+And that was when I heard the scratching.
+
+Sh-ch-sh.
+
+It was a faint scratching. It echoed through the house.
+
+Then there was a pause. And then it resumed.
+
+Ch-ch-sh-ch.
+
+Standing at the now closed sliding door, I turned my head hoping to identify the source of the sound. I was standing in the shadows of the kitchen, back to the door, and the beam of light from the living room beckoning me back. Back to safety.
+
+But as I walked towards the light, the scratching grew louder, if only ever so slightly.
+
+Sh-sh-ch-ch.
+
+As I walked forward, the reverberance softened. The sound was above me. The sound was coming from the ceiling. But what was above me? Was it a bathroom? Maybe a leaking pipe? Or a bedroom? It was. I was below the Calhoun's walk-in closet.
+
+And then I saw Murphy.
+
+Seated at the bottom of the stairs.
+
+He only did that when someone was upstairs.
+
+*Someone was in the house.*
+
+Like a flash, everything cascaded in my mind: I had left the sliding door to the backyard open earlier in the day. And the house was so large that I could have been in one room and not seen...
+
+*Someone had come in and was now upstairs.*
+
+I was frozen in the middle of the living room.
+
+The sound continued and Murphy stayed at the base of the stairs.
+
+Without lifting my feet, I leaned to reach my phone on the couch and texted Brett.
+
+"There's someone in the house."
+
+My phone buzzed as he called and I clenched it tight to my body, quickly declining.
+
+"Don't call. Can't make noise."
+
+Bubbles.
+
+"Where r they?"
+
+"Upstairs. I hear scratching. I think they're trying to get into the safe in the bedroom."
+
+"Okay."
+
+More bubbles.
+
+"Get a knife and approach the sound."
+
+*No fucking way.*
+
+I'm not proud of this, but I bolted. In one swift move, I dashed for the front door, abandoning Murphy still at the stairs. He didn't even turn.
+
+There weren't any vehicles parked on the street beyond my own, but that didn't stop me from quickly getting into my car, revving the engine, and driving the hell away.
+
+And then I called the cops.
+
+Maybe it was because I sounded frantic. Maybe it was because it was an affluent neighborhood. Whatever the reason, five squad cars showed up to perform a sweep of the entire house. It was more of a spectacle than I would have liked. I saw a few of the neighbors step outside to watch this all unfold.
+
+One of the neighbors stayed out longer than the rest. He was two houses over on the right. He was older, maybe late-sixties, early-seventies with wispy white hair, and even at a distance I could see his thick beard, illuminated by the cop sirens. He had gone inside, but returned later with a notebook and was jotting something down. I didn't like that.
+
+I mentioned the neighbor to one of the younger cops, who had stayed with me as flashlight beams made their way through the Calhoun house.
+
+"Oh. That's Phil. You know how it gets. Retires. Needs a hob-"
+
+A crackle on officer's radio startled me. "All clear. No one inside."
+
+*No one. No one?*
+
+The cops offered to give me a full walk-through, but I declined. I had seen their flashlights. They had gone in the garage, the backyard, linen closets, even the attic. It just didn't make any sense. I had *heard something*. And now I had made a scene for the neighbors.
+
+I didn't want them talking. I knew they would, though, so...
+
+"Hi, Mrs. Calhoun," I called, seated in my car. "I know it's late, but..." I laid out all of the events of the evening. When I finally stopped, there was a long pause, then a sigh on the other line.
+
+It was rats. The Calhouns explained that, in the winter, there had been a fire in the valley which drove all the animals up the hill into the overlooking yards. They had tried to humanely deal with the problem, buying rat traps and releasing them back into the wild, "But either some of them have come back or we missed one or two," Mr. Calhoun stated through his long-winded but sleepy explanation. "If you want, we kept the traps. They're in the garage on the left stacked above the camping gear."
+
+"But no pressure, Celia," Mrs. Calhoun chimed in.
+
+"If I hear anything again, I'll consider it," I said. "At least now I know. And you know. Sorry again."
+
+"It's quite alright. We're just glad you're okay."
+
+I didn't sleep upstairs that night. I chose to move Murphy's dog bed over to me and sleep on the couch. He didn't get up to go the stairs, at least not while I was awake.
+
+The next day, I tried to go on like nothing had happened. I felt embarrassed. I had let my imagination get away from me. I had feared the worst. I had let myself believe I would be the body mentioned on a true crime podcast, which - admittedly - was what I had been listening to when I walked Murphy.
+
+Really, though, I shouldn't have had headphones in at all when-
+
+"Jesus Christ!" I screamed when Phil stepped out from behind his car.
+
+Phil recoiled too, just as surprised. "Oh!" He stumbled back against some shrubbery. He moved his wispy hair out of his face. "I thought you heard me over here." He had been watering his garden. My face reddened.
+
+"I'm so sorry." I gestured to my AirPods, then realized how rude I was being and took them out. "I was listening to music."
+
+"So am I." He pointed over to the brick wall, where a staticy melody faintly played, maybe in a different language. "Short wave," he said, as if that explained what it was.
+
+"Well, uh, I didn't mean to take you away from your music," I said hoping the conversation would end.
+
+"It's Celia, right?"
+
+"Yeah, and you're Phil. Mr. Calhoun mentioned you," I lied.
+
+Phil began shuffling back to his watering can. "I should hope so. I'm in charge of Neighborhood Watch. It was rats last night, yeah?"
+
+"Yeah..." *Dear god, please stop talking.*
+
+"Thought so. I told Kurt I could take care of 'em. The rats, I mean. He needs to understand, I'm not talking out of my ass. When I say to take action, maybe I'm saying it for a reason."
+
+I smiled, ready to leave. "Well, if anything else comes up, I'll let you know."
+
+"We haven't had a burglary on this street in over eight years. But it never hurts to put on a little show to dissuade anyone, so good on you for having the attic light on like that last night."
+
+*What? The attic light?*
+
+I tried to remain calm.
+
+"Do you need extra timers?"
+
+"Sorry, what?"
+
+"For the lights. I mean, you've obviously got one for the attic, 'cause it was off when I was back up at five." *What the fuck are you talking about? A light in the attic?* "I'm not Dracula, mind you. But there *is* a broadcast from Radio Romania that plays exceptional folk music that I was up to listen to. So early though. For me anyway." *And it turned off? But the police said there wasn't anyone-* Murphy pulled on the leash. "Ah, sorry. If I'm not giving you treats, why stick around, huh? I'll let you be. And remember, if you need help with those rats..."
+
+"Of course," I blinked, readying myself to go back into a house with a *magic fucking light in the attic*. "Will do."
+
+And then we were back. Inside. And upstairs. A choice.
+
+I shouldn't have gone, but I did.
+
+I pulled the cord, and brought down the stairs to the attic.
+
+I didn't see any light. 
+
+Not from a bulb anyway. 
+
+Just the daylight from the window facing out to the street; the one Phil had seen through.
+
+I stared up the ladder.
+
+It was nothing.
+
+It had to be nothing.
+
+But I also needed to know it was nothing.
+
+I called Brett.
+
+"Okay, here's the deal," I said quietly from downstairs, "I'm going to keep you on speakerphone and if you hear anything or the call drops, you call the police, okay?"
+
+I truly couldn't believe I was doing this, but there had to be an explanation.
+
+"Babe, Celia. You don't have to do this," Brett said. "You could probably just straight-up take the dog and leave. Let that old guy watch the house."
+
+I should have listened, but it was daylight and I felt braver; more in control.
+
+"It's going to be fine, I just," I realized, "I miss you."
+
+Maybe I wanted a fun, risky activity to do together in some form. We weren't bad kids or anything, but we definitely had streaks of danger, like breaking into a lecture hall and drinking with some friends. I wanted that *slight* edge, where everything was more or less safe, but not *totally safe*. The edge of the *edge* of any real danger.
+
+This wasn't that.
+
+I made my way up the ladder, slowly. 
+
+The first hurdle was my head clearing. Maybe it was Brett's concern, or maybe the thought would have occurred anyway, but there could be someone waiting at the top of the attic, ready to slice my throat the moment they had a clear swipe. I shook the thought from my mind as I narrated my movements to Brett, despite it now being a video call. "We are go-ing up and..."
+
+"Well... it's... an attic. Thankfully." Brett was maybe more nervous than I was.
+
+The attic was a little stuffy, but otherwise pristine. Dust softly floated in air, displaced by my feet. I looked around. As described during the tour, there were a few boxes, but not much else to speak of.
+
+"Light test," I declared and pulled the cord in the center of the room. *Cuh-lick.* It turned on, then flickered slightly, but stayed on. "Huh."
+
+"Maybe the police forgot to turn it off and it's a bad bulb," Brett suggested.
+
+*Could that be it?* Could I have just not noticed the light was on when I walked back to the house because I was still so shocked and scared? Maybe.
+
+"How's the view from the window?" asked Brett.
+
+Well, we were up here, I might as well check.
+
+Phil was still outside. "Dude, you weren't kidding about his beard," Brett laughed, "Can you zoom in for me?" As I zoomed, Phil noticed me and waved. I dropped my arm, to not feel like such a creep, and waved back.
+
+"Wow. Shit. Okay. Thanks for the ceiling view." Brett called from my hand.
+
+"I think we're done here," I declared.
+
+"Feeling good?"
+
+"Yeah," I said. "Much better."
+
+But when I turned back to the ladder my stomach dropped.
+
+I saw my footprints from the scuttle hole to the window, but on the other side of the hole were other footprints.
+
+Smaller footprints that went to the wall and stopped.
+
+"Brett," I zoomed. "What. The. Fuck."
+
+"Uh... one of the kids was up there?"
+
+My curiosity got the better of me. I stepped around the scuttle hole, careful not to step on the footprints.
+
+I was wrong. The footprints didn't stop at the wall. There was a small series of rotations layered on top of each other on the floor.
+
+"Any ideas?" I asked Brett.
+
+"Very small dance party? I don't know. Kids are fucking weird. Like, I tried to glue rope to my wall to prank my brother when I was six or something. It's a whole thing I can tell you about it later," but I was only half-listening, because my eyes had risen up the wall and saw a small notch on the left side about at hip height.
+
+"Brett. Look."
+
+The notch was as long and maybe half as wide as a key fob. The recession was shallow.
+
+"What is it?"
+
+I looked up and saw what I was beginning to suspect, the wall continued up into the ceiling ever so slightly. I felt a little give as I pushed the notch to the right.
+
+"I think it's a sliding door."
+
+"For an attic closet?"
+
+"Or a burglar, or a murderer. Just remember, if anything happens, call the cops."
+
+It was now or never. I readied myself. My hand was sweating.
+
+"One, two, three!"
+
+The door slid open and it wasn't a closet.
+
+There wasn't anyone waiting to harm me.
+
+There was more attic. Almost identical to the one we were in.
+
+The same layout. The same boxes. But in this attic, it was night.
+
+"What the fuck?" Brett was as confused as I was.
+
+We could see out the window. The moon. Street lights.
+
+"There shouldn't be street lights." I softly said, still standing in the doorway.
+
+"Shouldn't be street lights? It should be-"
+
+"We should be looking into the backyard," I said, acutely aware of the layout of the house. "This should be the valley in the backyard."
+
+"Celia, what the fuck are you saying?"
+
+I didn't know what the fuck I was saying, but I did know what I heard next, even though it was faint. And this time the thing that chilled me came from below.
+
+"Hello? Is somebody up there? Celia, is that you?"
+
+It was Zoe's voice. And it was downstairs in the Night House.

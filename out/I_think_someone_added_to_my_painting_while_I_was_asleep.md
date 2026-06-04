@@ -1,0 +1,127 @@
+I don’t know—it had to have been me right? like sleep-painting or something? 
+
+I found this blank canvas yesterday leaning against the gate of a brownstone—just—put out for trash. it was big—almost as tall as me and I’m 6 foot. it had a rectangular outline of dirt on the upper left corner, a shoe print, and a dusting across the whole bright white surface. it was odd—almost too coincidental. I was hesitant, but after some deliberation, I took it.
+
+Getting it up the stairs to my apartment was a little cumbersome, but i managed and lugged it carefully through the tight hallways to set it against the wall in my room.
+
+it felt bigger in there, taking up a third of the space. I set it on top of the cardboard box from my bed frame and grabbed a pale blue pigment stick(They’re basically just big crayons made out of oil paint and wax.) The texture you can get with them is unbelievable.
+
+i spent a couple hours adding and taking away paint, trying to find the image within, but by 2 am, it was still unfinished. I liked it—but it definitely wasn’t my best work; I could still do more—it wasn’t dead yet.
+
+I snapped a photo, washed up and knocked out. 
+
+though… when i woke up in the morning and looked at the painting—it wasn’t how i remembered. there was something different… some shifted color maybe? something real, real subtle that I couldn’t put my finger on. The thought caused my stomach to tense. 
+
+“I’m just tired..”—I told myself.
+
+feeling lethargic I got ready and made my way to work. When I got there, I opened the store and plopped myself in the chair behind the register—I could tell it was going to be a slow day. 
+
+I played chess on my phone for a bit as the hours passed. after losing a couple times, I got distracted and my thoughts drifted back to my painting. I was trying to pinpoint that weird feeling i had when i saw it in the morning, so I opened the picture i took of it last night.
+
+it didn’t irk me like it did when i saw it earlier today. I started to worry because i knew that I took that photo right before I fell asleep. if something changed in the painting after that… It couldn’t have been me…
+
+the day slowly came to an end and it was raining so I hung out in the store past closing and looked at the picture again. i laughed at myself.
+
+i said out loud—“You’re just being dramatic.”
+
+The rain turned into a drizzle, so I left.
+
+Only a little wet, I got back to my apartment and looked at the painting agin, hoping it’d be just like the picture, but I got that suspicion again, right in the pit of my gut.
+
+I looked at it closely, but couldn't really make up my mind on if i was imagining it or not. unsettled, I took another photo and sat at the head of my bed turned slightly away from the painting. I couldn't bring myself to look at it directly. Comparing the new pic to the one I took last night, I couldn’t even figure out what changed…
+
+Heres the link to the 2 different photos.  
+Do you guys see anything weird?
+
+[https://imgur.com/gallery/oRfjyFj](https://imgur.com/gallery/oRfjyFj)
+
+Maybe it’s just a sign to get working.
+
+I’ll update this if anything else happens—it might be nothing.
+
+(UPDATE)
+
+I woke up in the middle of that night to some noise, like a wet thump. I didn’t even remember getting into bed or falling asleep. 
+
+I just laid there with my eyes open looking at the ceiling. It was silent. 
+
+all I could make out was that ambient sound quiet rooms tend to have in the night, that barely audible hum with some wooden creeks mixed in. 
+
+I heard the clicking thud of my window unit activate and the mechanism whirring up, water trickled through the innards and I felt a cool breeze start to creep over my room.
+
+through the sounds of my AC bringing down the temp, I heard it again. a wet thud—just one single 
+
+\~thoop\~
+
+I sat up fast and aimed my head towards the noise. it was quiet again. in the dim light of my clock, I saw nothing out of place and no intruders… 
+
+I looked around but the glow from the numbers reading 3:47 left the edges of my room in shadow. all was normal, but something about one of the corners drew my gaze. Once I centered my attention on it, I got this feeling, some primal instinct deep down that didn’t let me turn away, as if my whole body locked and tensed. My heart started to race, but the darkness just stood there in the corner—silent and empty. I patted around my nightstand for my phone, grabbed it and turned on the flashlight. It was just the corner of my room like always—but the way the darkness disappeared… the light didn’t immediately illuminate the corner, it was delayed—almost as if something stepped aside just as I aimed my phone. Thats when i quickly stood up and turned on the light, just my room and that painting... 
+
+After doing a sweep, I found what made the noises, 2 of my pigment sticks were stuck to the floor, the paint bursting from the wrapper and blooming out like a flower. usually if they’d roll off my table, they would hit the ground and keep shape, but these looked like someone threw them… or—
+
+I looked up.
+
+finger prints... 
+
+they were faint and all over the area right above my canvas, frantic and messy, like the remnants of someone groping around, trying to open a door that didn't exist.
+
+I looked back at the sticks and felt my stomach tighten. I pulled my chair over and stood on it to reach. I had to fully extend my arm to get at the spot. I went to touch them but my finger retreated, i hesitated and almost lost my balance.
+
+I stood there on the chair studying them. something felt familiar, as if they were mine? Suddenly, I grabbed windex, a paper towel and wiped them away. why did I do that? it felt like i was on auto pilot—cleaning as a compulsion. something about thinking that I put those there flipped a switch in me and i just instinctively felt the need to wash it away, as if I fumbled a bottle of soda and I needed to clean it before the floor got sticky. I wish I took a picture…
+
+After the finger prints were gone, I went to turn off the light when I looked at the painting one final time.
+
+“I’m freaking myself out—just stop thinking so much about it”
+
+I flipped off the lights.
+
+Morning came in an instant.
+
+I blinked through the bright sunlight and found myself sitting on the floor with my legs crossed, staring at the painting. i scrambled to my feet and backed away as if it were going to attack me. it was... finished!? 
+
+I stood there in the presence of it. my heart started to beat faster and faster as panic overtook my body.
+
+using all the courage i could dredge up, i stumbled past the painting out of my room and crashed into the bathroom.
+
+My reflection terrified me. I was covered in paint—my shirt, hands, and face were caked in it as if i were hugging and rubbing my body all over the canvas. i looked down and saw that my feet left muddy grey footprints. I started to feel sick. 
+
+I ripped off my clothes and got into the shower. I turned the water to as hot as it went and cleaned myself so furiously that i left my skin red from scrubbing—then I’d scrub it more thinking it was paint. When i was clean and the water started to practically boil, i got out and dried off. I looked at the floor; my foot prints were everywhere and my clothes left a puddle of paint under them... it was that weird tone that you get when you partially mix every color on the palette. it made my stomach gurgle
+
+i walked out of the bathroom, tip toeing around my foot prints, and looked down the hall towards my room. 
+
+I turned the other way and went into the kitchen to get paper towels and cleaning supplies. I still felt sick but i had to clean.
+
+I spent almost an hour scrubbing away the foot prints and the mess i left on the bathroom door. I ended up putting my clothes into a garbage bag—not worth cleaning. then i came to the doorway of my room. it felt hostile, like some stranger was hiding inside. i peered around the door to look at the painting...
+
+did I make this?
+
+I walked in and took a picture.
+
+[https://imgur.com/gallery/xpA4vKN](https://imgur.com/gallery/xpA4vKN)
+
+the marks reminded me of Francis Bacon while the construction of the head was George Condo. it’s messy and emotional yet cohesive, and the colors feel grounded yet bright and confronting. it was everything I’ve never been able to accomplish… and yet… i cant even say for sure that i painted it.   
+i mean—it had to be… 
+
+i think it was me…
+
+my attention shifted to the floor. pigment sticks were everywhere and the majority of them were almost completely gone—just a bunch of nubs and crumbles. then one caught my eye and i picked it up to inspect it closer.
+
+the awful realization hit me. 
+
+the stick fell from my hand as i ran to the bathroom and threw up—violently. it came in wretched waves that heaved my head into the toilet with each expulsion. it just kept coming, more liquid left my body than I thought was possible.
+
+it was paint. The sickly grayish brown color of my footprints.
+
+that pigment stick i picked up had clean bite marks in it. 
+
+I spent the whole day with my head in the toilet, just expelling more and more paint. it kept climbing up my esophagus, scorching my throat and exploding out of my mouth. i tasted intense licorice mixed with stomach acid and pennies. 
+
+The paint got redder each time my body forced it out of me.
+
+I feel weak and deflated… The bathroom is coated in the now deep crimson vomit overflowing from the toilet. I’m lying down in it now, uncontrollable shivers wracking my body every couple of seconds. With no energy to pull my head up to the bowl, each time it comes up, I just let my body wring me like a tube of toothpaste, spilling chunky red sludge onto the floor right in-front of my face.
+
+I fear i may continue to throw up everything inside me. 
+
+Im typing this while there’s a lull in my sickness. I hope that i can get someone’s attention on this subreddit. 
+
+if this is my last painting—someone better fucking see it.
