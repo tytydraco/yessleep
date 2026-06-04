@@ -1,0 +1,138 @@
+This is a confession, of sorts. I know it isn’t likely to be believed but I have to get it off of my chest somehow. No one, not even my therapist, really thinks this happened. I don’t know what to say or do at this point- the guilt is eating me alive. 
+
+I grew up in a small town in the midwest. It’s hard to even call it a *town*. When I left the population was barely a hundred and fifty. 
+
+Less than that, actually.
+
+My half brother and I were fifteen and sixteen, respectively. Last kids in town, I’m pretty sure- unless someone was pregnant when I left. I don’t know. I haven’t checked in. There’s no reason to. No one believes me anyway. They all think I’m crazy. Coping with the tragedy as my principal said.
+
+I just need you all to know that I loved my brother. I really, truly did. It was all a fucked up accident and I never would have hurt him on purpose. We were just BORED and had nothing to do. The old movie theater had always been there and there were so many urban legends around it we just-
+
+We were dumb. We were dumb kids. I was a dumb kid. I should have known better, I was the eldest, it was supposed to be my job to look after him. 
+
+Instead I woke him up early on a saturday, grabbed my stepdad’s crowbar, and took him down to the alleyway behind the theater. *Knowing* the whole time that my mom would have kittens if she knew where we were. The building had been condemned for years. It was supposed to be unsafe.
+
+I just wasn’t prepared for the KIND of unsafe it turned out to be. 
+
+Breaking in was laughably easy. There wasn’t even a lock. It was just a sheet of plywood over the back door. Someone else had already half pried it up. All I had to do was knock a couple of the nails flat so we didn’t get stabbed when we squeezed through. 
+
+I remember thinking how *tiny* everything was. All the fixtures, chairs, tables, even the water fountains seemed like they’d been built for a race of people a third of our size. I felt like a giant wandering between them, peeking through doorframes so low I had to duck and peering around hallways too tight to walk side-by-side down. 
+
+“Mmm, smells like asbestos.” Henry joked. I remember looking back and thinking how round his face still was in the dim glow of the flashlight. He was just starting to grow a beard. He was so damn proud of that beard. 
+
+“Ewwww, gross\!” I laughed back, baselessly confident it wasn’t. I didn’t even know what asbestos was. I bet Henry didn’t either. Pretty sure we both thought it was just a different kind of dust. 
+
+“Why haven’t they torn this place down yet?” He asked as we edged around a fallen chair. I don’t know why I didn’t just move it, but he didn’t either. He squeezed between it and the wall just like I had. The problem was that the wall was about seven decades old and whatever HAD been holding it up clearly wasn’t up to the task anymore. It survived my passing, but by the time Henry got there- 
+
+It collapsed. It just gave out under him. I heard it crumple with a sound like tissue paper but by the time I realized what I was hearing and turned back he was gone. He didn’t even yell- not at first. There was just a gaping hole in the wall where my brother had been. 
+
+Of course I immediately ran over, aiming my flashlight at the pitch black place where he’d been- and there he was. What felt like forty or fifty feet below, laying silent on a pile of something colorful. It was too dark for me to make out what. My flashlight’s beam didn’t make it that far. It wasn’t very steady, either. I was already panicking, my hand shaking and throat tightening. 
+
+“HENRY.” I screamed so loud my throat was raw with it. I think that, combined with everything that came after, messed it up permanently. 
+
+“*HENRY.”* I remember looking around for something, anything I could use to lower myself down to him. My flashlight bounced across a dozen things, leaping from spot to spot until it glanced off of something unexpectedly glossy in the darkness. Dusty, but still glass. I came back around, picturing a fire hose case in my mind for some stupid reason.
+
+It wasn’t that. It was a claw machine. An old looking one with the words ‘Skill crane’ scrawled across the top in some kind of carnival script. I twisted away from it, pointing my flashlight back down toward my brother- and noticed something light up out of the corner of my eye. 
+
+I turned my head without turning the rest of me and realized it was coming from inside the claw machine. It hit me what was happening when I turned completely, thinking- 
+
+Honestly, I don’t know. In fact, I may not have been thinking anything at that moment. 
+
+But a weird thing happened. The light inside the claw machine went out. Until I turned back to my brother- at which point it came back, and it finally started to click in my mind what was happening. It all really started to come together when I heard him groan and call for me. 
+
+Not from down below. 
+
+From the claw machine. 
+
+“Henry?” I remember how dry my throat was when I croaked his name. I crept closer, hardly able to believe what my eyes were telling me- but I saw him. The closer I got the clearer it was. Something was moving around in the pile of prizes. Weakly lifting its head and looking around. 
+
+My brother. A tiny, perfect version of my brother. 
+
+I stopped beside the machine with my jaw hanging wide, an unspeakable horror in my chest. 
+
+What was I looking at? What was *happening?* My reality as I knew it was coming apart at the seams. What I was looking at *could not exist* and yet, here it was. I reached out to touch the brittle plastic handle. A bit of it flaked off, sticking to my fingers. 
+
+A weird urge took control of me. It felt like- almost like I was standing to one side, *watching* myself twitch the stick forward. 
+
+The claw juttered to life, swinging a half-inch more. The metal twinkled merrily. It seemed to me at the time that it was… laughing, almost. Urging me to go on. I’m honestly not sure how much of that was in my mind and how much was real. It FELT real- it ALL felt real- and the effects certainly were, but- 
+
+How can I know? 
+
+I don’t know what to believe anymore. All I know for absolute certain is that I looked down into the mess of ‘prizes’ and I *thought* I saw my brother there. 
+
+*If I lift him up with this thing-* I remember thinking, piloting it toward him- *will it lift him up back there?* 
+
+In the real world? If there even was such a thing anymore? 
+
+I only made it about halfway to him before the claw timed out and dropped on its own. I swore and jolted the machine, trying to stop it or swing it toward him- but it landed on a toy car instead. It was an ugly thing more rust than metal, with a pitted bumper that looked hideously familiar. I thought for sure it wouldn’t snag, but as it was reeling back in it caught the hood and-
+
+Metal crumpled on the other side of the wall. For a terrified moment I thought it was in the room with me- the reality was so much worse. 
+
+Later, after I’d left, I found out the car accident that killed three happened right outside that wall. The driver lost control of the vehicle and slammed into the light pole beside me. It was a ‘miracle’ it didn’t bust through the wall. 
+
+I heard people scream, I tried to yell back but it was like they couldn’t hear me, and I was too scared to leave him down there all by himself. 
+
+The toy car dropped into the receiving slot. I fished it out and stared the crumpled, crushed hood. It took a second for me to register that it was dripping wet. I flung it out of revolted panic and listened as it fell away into the darkness behind the concessions stand.
+
+It struck me immediately that I never heard it land. 
+
+The darkness ate it, just like it had taken my brother. I looked back at the machine and swallowed my panic. Nothing about this made any sense, but I recognized what I’d done by pulling the car out. The drop had been too much for it. The claw too harsh. If I was going to get my brother out I needed to be more gentle- and I needed something to cushion the fall with. 
+
+I took the handle again, forcing myself to breathe. 
+
+My eyes fell on a plush dog. *Its* eyes glinted back at me. I bit my lip, hoping that I was imagining the soft laughter behind me. I didn’t see anything when I glanced at the reflections in the glass, but that meant nothing to me. Nothing had made sense since we’d crawled under that plywood. A bead of sweat trickled down my jaw. I remember how it itched while I trembled, trying to decide what to do. 
+
+I decided that SOMETHING in that theater was trying to frighten me away from the claw machine. The laughter and the metal? Not real. My brother in gut of that claw machine? Real. I know in my heart of hearts that I was doing the best I could with the information I had at the time, but I was wrong. 
+
+I was so very wrong. 
+
+I pushed the handle. It slid forward, jerking and spasming every now and again. I felt my heart jolt in my ribs every time it acted as if it were going to stop working- but if anything, the light seemed to be growing brighter. The paint on the case seemed fresher too. Maybe it was just the dust shaking off, or the adrenaline, but I swear the  smiles on the painted people were more red than they had been before- the eyes more menacingly blue.
+
+I’d been counting mississippis in the back of my head, trying to get a feel for the timer when it *dropped*. Just barely on top of the stiff-legged, white-spotted dog. I watched the claw tighten around the muzzle and lift it precariously into the air. 
+
+The return journey was suspiciously smooth. It never juttered or spasmed once. It didn’t even clip the edge when it dropped into the slot. 
+
+I left it there. 
+
+God help me, I left it there. I didn’t know that-
+
+Getting mauled by a dog is a terrible way to go. Especially a beloved companion. I hope wherever he is, Mr. Jenson can forgive me. No one else will ever know why his dalmatian turned on him like it did. 
+
+They say it took five people to get Ralph off of him. By then it was far too late. 
+
+I heard the barking but, again, I assumed that it was an attempt to scare me off. Nothing bad had happened to *me* after all. I saw no dog. I saw no car. All I saw was my brother, lying quietly in the plastic dirt. 
+
+I licked my lip and tried hard to ignore what was going on around me, trying to decide how I was going to grab my brother without impaling him with the claw. I was pretty desperate by the time I noticed the pocket watch in the back. The long gold chain sparked an idea in my mind.
+
+“Henry? Can you hear me?” I yelled at the machine. He stirred, looking up at the lights. He might have said something, but it was too soft for me to make out.
+
+“I’m going to drop something to you, I need you to grab it and hang on, okay?” I’ll never be sure if he really heard me, but as I piloted the claw toward the watch in the back I swear I saw him look at me through the glass. 
+
+God knows what I saw. 
+
+I don’t remember the next part well. I think I blocked it out deliberately. My mind’s feeble attempt to protect itself. I *had* to hold on to the rest. In case I ever get a second chance, you see. I have to remember what happened so I can keep watch, and tell other people. 
+
+My clearest memory is of the watch, gleaming in the cradle of the claw. I *think* I remember the chain dragging across my brother and his hand lifting to wrap around it. After that? Maybe a glimpse of him in the air. A growing sense that something, already terribly wrong, was somehow *worse*. A sense of dread in the pit of my belly like nothing I’ve ever known since.
+
+The look on my brother’s face. The face of a teenager. And then a child. And then a toddler, and then- 
+
+The sound of something falling into the reward box. 
+
+The weight of my newborn baby brother in my arms, his umbilical cord still dripping- and a shiny gold watch in my hand. Walking out the back door with an infant clutched in my arms, absolutely dead certain I could hear something laughing behind me. 
+
+I didn’t know what to do, so I just stood there. I just stood there holding my brother until the cops and paramedics found me. They called my parents, who met us at the hospital. I tried telling them what happened, but they clearly thought-   
+They checked the old theater. They even found the hole in the wall that my brother had fallen through. What they didn’t find was an old claw machine. Or an arcade at all. Or him. No one ever did figure out where the baby had come from. There’s a lot of theories. People used to whisper about them whenever I was nearby. 
+
+Some people were even bold enough to ask me to my face. No one ever believed the truth. 
+
+My parents put me in therapy. When that wasn’t enough they moved us out of town. That baby? He was given up to an aunt and uncle who couldn’t have kids of their own. I see him on the Christmas cards they still send around. 
+
+I wonder if it freaks them out how much he looks like Henry. If they ever wonder. 
+
+I’m not allowed to talk to him. None of them talk to *me*. They all think I’m unhinged, at best. Some of them think I’m a murderer and a kidnapper. 
+
+I’m the only one who knows for sure. 
+
+And you guys, now. 
+
+So if you see it before I do, smash it for me. Destroy it like it did us.   
