@@ -1,0 +1,241 @@
+I don't really have much time, but I wanted to get this out.
+
+Let me start from the beginning.
+
+My name is Dean (fake name so they can't track me down), and I've been a fan of Reddit horror stories and creepypastas ever since I was 16, back in 2018. At the time, I came across MrCreepyPasta's YouTube channel, and I fell in love with Reddit horror stories. As a result, I searched for similar content. Around that time, NoSleep stories were blowing up in popularity, and I loved them. I listened to them at work, when I worked out, or just as I was falling asleep, especially the ones from my favorite subreddit of all time, NoSleep.
+
+It ignited my passion for reading even more, and I wanted to get into writing so I could write my own stories, share them with people, and have fun overall. I made a Reddit account and got to writing.
+
+I kept it up for 9 days, and after long nights of writing, waiting for inspiration, and rewriting sections of my story, it was finally done. My masterpiece was finished and ready to be published.
+
+I was really nervous about how people would react to it.
+
+Will they hate it?
+
+Will it just die and get one or two upvotes?
+
+Did I waste my time?
+
+I thought to myself as I pressed the "Post" button, turned my phone off, and went to work.
+
+Two hours later, as I turned it back on to check my texts, my phone froze. Over a hundred notifications from Reddit.
+
+People loved it so much, and I was at about 3,000 upvotes. People were going crazy about it, sending me money and tips, commenting on my post, and begging for a sequel.
+
+I was ecstatic. I felt the heaviness on my chest subside because I no longer had to worry about a negative reaction to my writing.
+
+By the end of the day, it reached 75,000 upvotes, making it the highest-upvoted NoSleep post of all time. People even said it was as good as, or maybe even better than, my favorite story and probably the best story of all time:
+
+"I Dared My Best Friend to Ruin My Life — He's Succeeding."
+
+I was just about to go to bed when I got a notification.
+
+Unknowingly to me, my life would flip 180 degrees after that point.
+
+I was banned from NoSleep, and my post was deleted for not following the subreddit guidelines.
+
+"But I followed everything perfectly," I thought to myself.
+
+I was so upset that I couldn't sleep (I guess that's why they call it NoSleep, huh?), and I ended up contacting the mods, asking what rules I broke.
+
+"Hey, I followed all the rules you listed in the subreddit sidebar. Can I know what I broke so I can fix it?"
+
+They responded with:
+
+"The fact you don't know what you did is proof of why you should be banned."
+
+Then they muted me for 28 days and linked me to a document containing 459 pages of rules.
+
+"What? That's crazy. 459 pages of rules in a hidden link? Who actually follows that?!"
+
+I was so mad that I made a Reddit post complaining about it and finally went to bed. I had to work really early tomorrow.
+
+Surprisingly, when I woke up, I only had a single Reddit notification on the post I made complaining about NoSleep.
+
+It had been taken down and had one comment:
+
+"You will regret this deeply."
+
+I laughed and thought it was cringe.
+
+I got ready and went to my job.
+
+Nothing unusual.
+
+My toothpaste tasted a little different, and my shampoo was surprisingly empty despite being a new bottle. I didn't really think much of it.
+
+I got my car keys and tried to start my car, but it wouldn't start. I had no idea at the time why.
+
+I thought I was just having a bad day.
+
+I Ubered to work and got to my office. It's a small company, and there were only two other coworkers there that day.
+
+I got busy working on my computer. When I went to pull out my phone, it fell.
+
+As soon as I bent down to pick it up, my coffee mug exploded.
+
+I got up quickly to look at it. Coffee was all over the place.
+
+Then I noticed something.
+
+The glass window near me was shattered.
+
+I looked down and saw a red dot on my chest.
+
+Jack screamed,
+
+"GET DOWN!"
+
+He jumped and pushed me out of the way.
+
+(My best friend of a week and a half.)
+
+I started processing what was going on.
+
+Someone was shooting at us.
+
+We quickly moved and hid away from the windows.
+
+That's when I realized Jack had been shot in the arm.
+
+It was really bad, and we had to get him to a hospital ASAP.
+
+I pulled out my phone and called the police.
+
+Our third coworker had already run away.
+
+Fifteen minutes later, the police arrived.
+
+The shooter was gone.
+
+They took our statements and asked me to come down to the station for some more questioning.
+
+Still in shock, I agreed.
+
+I walked down with one of the officers, checking rooftops in case the shooter was still there.
+
+Then the cop looked at me and said,
+
+"Don't worry. They're gone."
+
+He tried to point to his gun but accidentally pointed to his pepper spray first, then quickly corrected himself.
+
+A thousand internal alarms went off inside me.
+
+As Law By Mike said on TikTok, you can spot fake cops by checking how familiar they are with their equipment.
+
+I knew instantly he wasn't a real cop.
+
+"Hey, I don't really feel comfortable going to the station right now. Can I come down later? I'm still pretty shocked from the whole thing," I said.
+
+Immediately, he attacked me and tried to subdue me.
+
+I managed to get away and run.
+
+He started shooting at me, but luckily he didn't hit me.
+
+I realized I was being hunted.
+
+"But by whom? I don't have any enemies."
+
+Of course, the silly mod interaction still hadn't clicked in my mind.
+
+I got to the closest ATM and withdrew as much money as I could.
+
+Then I rented a car and tried to drive out of the city.
+
+It was getting late, and I was really hungry.
+
+I stopped at a diner on the side of the road and sat down.
+
+The waitress was nice. She got me my food, and I started eating like I hadn't eaten in two days.
+
+Then two suspicious-looking guys, both at least 6'3", walked in.
+
+They looked around the place.
+
+I looked away and tried to hide.
+
+They sat down, ordered coffee, and waited.
+
+I left money on the table and rushed outside.
+
+The guys caught on.
+
+As soon as I saw them leave their seats, I bolted.
+
+I started my car and floored it out of there, but they were right behind me.
+
+I tried calling the police.
+
+No service.
+
+"Fuck!" I screamed.
+
+I kept trying to drive away and lose them.
+
+At that point, they rammed the back of my car, rocking the entire vehicle.
+
+I was about to throw up.
+
+Then they pulled up beside me.
+
+They kept smashing their car into mine.
+
+The windows shattered.
+
+I was bleeding.
+
+Then I noticed a car approaching quickly in the opposite lane.
+
+So I swerved into their vehicle, causing both cars to collide.
+
+That's when my service came back.
+
+I knew because I got a call.
+
+Unknown number.
+
+I picked up.
+
+"Hello? Who is this?" I said, terrified.
+
+They responded with just one sentence:
+
+"I told you. You will regret this."
+
+Then they hung up.
+
+It all made sense.
+
+"Are these the mods? Are they literally trying to ruin my life over a fucking Reddit post?"
+
+I tried calling back, but it went straight to voicemail.
+
+I left my car, my phone, and everything else that could be used to track me.
+
+All I had was cash.
+
+I ran as far as I could and eventually found a motel.
+
+I bought a prepaid phone, and this is what I'm using to type this post.
+
+I can't trust anyone.
+
+Not even the police.
+
+All I have on me is a knife.
+
+I've barricaded my door and I'm waiting for morning.
+
+I have no idea how I'll sleep tonight.
+
+NoSleep, huh?
+
+I'll keep you updated.
+
+I just wanted to vent all of this because it's been absolutely crazy.
+
+I'm really scared for my family.
+
+I contacted them and what I got was **The Mods WON'T reconsider, discuss or debate this decision, nor will they answer any questions or offer in-depth explanations which are already provided in the guidelines.**

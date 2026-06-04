@@ -1,4 +1,4 @@
-this is part 2; read [part 1](https://www.reddit.com/r/nosleep/comments/1tuywtn/something_in_the_appalachians_wants_to_know_what/) first so you're not confused. 
+this is part 2; read [part 1](https://www.reddit.com/r/nosleep/comments/1tuywtn/something_in_the_appalachians_wants_to_know_what/) first so you're not confused.
 
 The next few hours is a bit of a blur, but I’m pretty sure I just spent them sitting in my room trying to cope with what I just witnessed, before Hornet knocked at my door, wanting to come in. That forced me to get out of bed and slowly walk to the door, checking around every corner as I went.
 
@@ -15,7 +15,7 @@ He came back, handed me my drink, and asked if I wanted to talk now about what h
 I then proceeded to tell him about what had happened. I told him about the bird dream, the spiders, last nights dream, and what happened when I woke up. As I spoke, his soft look slowly turned to concern, and he looked deep in thought.
 
 I finished recounting what happened, and he sat in silence for a minute, staring at the floor.  
- “Wait…” he said. “Wait wait, hang on”
+“Wait…” he said. “Wait wait, hang on”
 
 “What?” I asked, leaning forward slightly.
 
@@ -118,7 +118,7 @@ Reluctantly, he stood back up. “So, the smell was Addie’s body under your fl
 I looked back at Addie’s husk. I tried not to think about how eerily similar it was to how she looked when she fired the gun.
 
 I looked down and noticed I had some blood on my hand. I thought maybe I scratched myself so I inspected my hand, and noticed the whole thing was covered in blood, as was one side of my arm, down my shirt and all over my shorts.  
- “What the…”
+“What the…”
 
 I shone the light back to where I had just fallen and saw blood. A lot of blood. It seemed to be pooling from somewhere further back. I shined the light deeper into the crawl space.  
 
@@ -315,7 +315,7 @@ I recoiled at the memory of those bodies. “Yah. I mean, I feel like it does. O
 “I don’t think it’s that long before lions eat again but I get your point, and you could be right.”
 
 I went back to thinking when something outside the window caught my eye. Someone was walking towards the woods between this house and the neighbors.  
- “Who’s that?” I asked, watching them.
+“Who’s that?” I asked, watching them.
 
 “Who’s who?” Hornet asked, turning around.
 
@@ -359,6 +359,6 @@ Hornet sighed. He knew I was right.
 
 He went to go grab his shoes, and I put mine on. Once we were ready, we headed out to follow Addie.
 
+End of part 2
 
-
-End of part 2. I will post part 3 tomorrow 
+[part 3](https://www.reddit.com/r/nosleep/comments/1tx2npz/something_in_the_appalachians_wants_to_know_what/)
