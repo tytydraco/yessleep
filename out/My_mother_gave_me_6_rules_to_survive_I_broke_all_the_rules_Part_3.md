@@ -1,0 +1,109 @@
+**Rule 2: The Measure of the Debt.**  *The weight of the judgment will precisely match the depth of the violation. No more, no less.*
+
+I truly believed that [rule](https://www.reddit.com/r/nosleep/s/ThlVhrpU6B) would keep me from becoming the very thing I hunted. I believed that because I possessed a moral compass, I could navigate the rot of this world without letting the darkness consume me entirely. These perpetrators had innocent families who still needed them. A reset was what I believed in, not a purge.
+
+I was wrong.
+
+After discovering how Verma, the printing shop guy, was running a black-market syndicate using hidden camera clips provided by Rahul - the golden boy of our college  - I didn't immediately hollow Rahul out. I had Verma’s encrypted laptop bag sitting in the back seat of Sharma Uncle’s white SUV. The ethical move, the measured move, was to let the  law handle it first.
+
+Yesterday morning, using a burner phone, I sent the entire database of decrypted video files, bank transfers, and Telegram chat logs directly to the Cyber Crime cell and the local police station. I watched from the tinted windows of the SUV as three police jeeps rolled into campus and dragged a pale, sweating Rahul out of his management lecture in handcuffs.
+
+Priya texted me a few hours later, weeping, but this time with relief. *They caught him. It’s over. We are safe.*
+
+I smiled, leaning back against the leather seats of the SUV. Sharma Uncle sat in the driver’s seat, his hands resting motionless on the wheel, his milky eyes staring blankly at the dashboard, waiting for my next command. "You see that?" I whispered. "We don't have to be butchers. The scale works."
+
+He didn't answer, of course. He just blinked, a slow, mechanical twitch.
+
+The satisfaction lasted exactly six hours.
+
+By 5:00 PM, the sky had bruised into its familiar, violent monsoon purple. The streetlights began their rhythmic, warning flicker. I commanded Sharma Uncle to drive me past the local police station, just to ensure the paperwork was being finalized.
+
+As we pulled up to the gate, a sleek, black luxury sedan was idling by the curb. The station doors opened.
+
+Rahul walked out.
+
+He wasn't in handcuffs. He wasn't sweating. He was wearing a fresh linen shirt. Walking right beside him was a prominent local politician and a man I recognized from the newspapers. Rahul’s father, a multi-millionaire real estate tycoon who practically owned half the civic board. They were laughing with the Station House Officer, who was politely bowing and shaking the father's hand.
+
+The digital files? *Corrupted during transfer*. The physical evidence? *Procedural errors during the raid.*
+
+Rahul stopped by the luxury sedan, lighting a cigarette. As he looked around the street, his eyes landed directly on Sharma Uncle’s white SUV. He couldn't see me through the dark tint, but he knew the car. He knew our neighborhood. A slow, repulsive, victorious smirk spread across his face. He raised two fingers in a victory sign, giving the car a mocking, defiant wink.
+
+A second later, my phone buzzed. It was Priya. *The college dean just called my father,* her voice was fractured, hyperventilating. *They said if I pursue these 'false allegations' against Rahul, they’ll expel me for character assassination.* *Rahul's father threatens to sue us for defamation. My dad is yelling at me... he's screaming that I've ruined the family name...what do I do? What do I do?*
+
+Something inside my chest snapped. It wasn't the calm, cool gravity of the Entity. It was me. A white-hot, entirely human rage erupted beneath my ribs, bypassing the cosmic scales completely.
+
+The system was too rigged. The ground the scale stood on was entirely tilted. And if the law wouldn't balance the debt, I would force it down his throat.
+
+"Follow him," I growled.
+
+Sharma Uncle’s hands instantly gripped the wheel, shifting the SUV into gear.
+
+We followed the black sedan into the upscale, gated sectors of New Delhi, waiting out the heavy downpour. By 9:30 PM, the rain had thinned into a miserable, humid mist. Rahul’s father dropped him off at a secluded, high-end rooftop lounge where he was meeting his friends to celebrate his 'exoneration.'
+
+I didn't wait for him to get into a dark alley. I didn't care about the rules anymore.
+
+When Rahul stepped out of the elevator into the dimly lit, concrete parking structure of the commercial complex to smoke a cigarette alone, I was waiting. Sharma Uncle stepped out of the SUV first, his stiff, grandfatherly frame moving with terrifying, supernatural speed. Before Rahul could even drop his cigarette, Sharma Uncle’s hand closed around his throat like a vice, slamming his head against a concrete pillar.
+
+"What the hell … Sharma Uncle?!" Rahul choked out, his eyes widening in recognition and absolute confusion. "Are you crazy? Let me go, you old bastard, my father will…"
+
+I stepped out of the shadow of the SUV.
+
+"Your father isn't here, Rahul," I said.
+
+I didn't use the layered, resonant whisper this time. I let the Entity explode out of me. I opened my mouth, and a torrent of freezing, thick black smoke poured into the air, instantly plunging the concrete parking lot into a sub-zero tomb. The fluorescent lights overhead shattered one by one, raining glass onto the asphalt.
+
+**Rule 2: The Measure of the Debt. The punishment must match the crime.**
+
+He had stolen peace and dignity from dozens of girls. The measured debt was to do the same to him. To terrify him, to expose and shame him, to break his pride. But I didn't want a balanced scale. I wanted annihilation.
+
+"Please…" Rahul whimpered, his teeth chattering violently as his breath turned to white plumes. Black ice began to crawl up his expensive leather shoes, anchoring him to the floor. "I'll delete everything! I'll tell the police the truth! Please!"
+
+"Too late," I spat.
+
+I reached out, my fingers elongating into smoky, jagged claws. I drove the darkness directly into his chest. I didn't just force him to feel Priya's terror; I tore into his mind, shredding his memories, ripping away his free will, his intellect, his speech, his very soul. I tore and tore until there was absolutely nothing left but a breathing, hollowed-out piece of meat.
+
+He collapsed against the concrete pillar, his eyes wide, vacant, and completely empty. A permanent vegetable. A fate worse than death.
+
+I breathed out, expecting the rush of triumph.
+
+Instead, a horrific, agonizing pain ripped through my chest.
+
+I fell to my knees, gasping for air, clutching my throat. The black smoke inside my lungs suddenly felt like boiling, liquid tar. It was burning me from the inside out, rejecting my body. The Entity was thrashing, coiled tight around my ribs, constricting my heart.
+
+You broke the covenant, a thousand whispers hissed inside my head, no longer a supportive chant, but a deafening accusation. You tilted the scale. You let malice override justice.
+
+Blood…black, freezing blood…began to drip from my nose onto the concrete. I couldn't breathe. The anchor that held the cosmic horror in place had snapped, and now the monster was going to tear me apart.
+
+Through the haze of my blurred, painful vision, I saw the shadows on the wall begin to liquefy.
+
+Geeta stepped out of the concrete pillar, her western denim jacket completely dry despite the rain outside. She looked down at me, a cruel, pitying smile on her shadow-veiled face. She looked at Rahul's brain-dead body, then back at me, choking on my own blood.
+
+"I told you, sister," Geeta’s voice echoed, smooth and deafeningly layered. "You tried to play judge in a world built by executioners. You thought your little 'ethics' could survive in a soil this deeply poisoned?"
+
+I tried to speak, but only black smoke and a wet gasp escaped my throat.
+
+"The Entity didn't choose you because you're a saint, dearie..." Geeta said, kneeling beside me, her freezing, smoky fingers gently tracing my jawline. "It chose you because you were angry. But you tried to cage it with the same rules the elders used to cage us. Look at him." She pointed at Rahul. "You had to become a monster to get real justice, didn't you?"
+
+The pain in my chest was blinding now. My heart was slowing down. The Entity was rejecting its vessel.
+
+"Let it go," Geeta whispered, her black eyes locked onto mine. "Stop trying to balance a broken scale. Accept the truth. The entire system has to burn. Join the hive. Let the rage be lawless."
+
+I looked at Rahul’s vacant face. I thought of Priya’s sobbing voice. I thought of the politician and the police officer shaking hands. Geeta was right. The rules were a lie, and even my new rules were just a prettier cage.
+
+With the last bit of strength in my lungs, I surrendered. I stopped fighting the tar. I stopped trying to enforce the balance. I opened my heart and let the lawless, unyielding nihilism of the collective void flood my veins.
+
+The pain vanished instantly.
+
+The boiling tar in my chest turned into a roaring, beautiful, freezing hurricane. My eyes rolled back, and for a terrifying, magnificent second, I didn't just see a thousand girls - I felt them. We weren't a courtroom anymore. We were a wildfire.
+
+I stood up, my wet, torn clothes completely forgotten. The black blood on my face froze into beautiful, dark crystals. My voice, when I spoke, was no longer just layered - it was a seismic chord that made the entire concrete structure tremble.
+
+"Where do we start?" I asked.
+
+Geeta smiled, her shadow extending out, wrapping around my shoulders like a dark, protective cloak.
+
+Behind us, Sharma Uncle stood perfectly still, a useless relic of my old, pathetic attempt at controlled justice. We didn't need puppets anymore.
+
+"The monsoon is ending soon" Geeta whispered, looking out toward the glowing, crowded skyline of Delhi. 
+
+"And we have a lot of houses to burn."

@@ -1,51 +1,337 @@
-**MISSION LOG 3XC-0R1A7I-On-8R (1a-N),**
+My skin itched.   
+Not the kind that starts out as a tickle.   
+Not the kind that is satisfied by a simple, gentle scratch.   
+The kind that was inside.   
+The kind you cannot reach. 
 
-**INTERVIEWING** [REMOVED AT REQUEST OF PARTICIPANT]
+I ignored it.   
+I showered in hot, scalding water.  
+Scrubbed my skin in hopes it would minimize the itch.   
+It was futile.   
+The itch remained.
 
-**NOTICE: This recording and associated transcript has been flagged by Staff Counselors as potentially disturbing. Continue at your discretion.**
+I dried my hair.   
+Put make up on.   
+Dressed for work.   
+Slipped into my short heels.   
+Grabbed my purse. 
 
-**Beginning Playback**
+I looked in the mirror before leaving.   
+Hair, perfect, curls soft and loose.   
+Skin, luminous, refreshed, bright.   
+Clothes, stylish, professional, chic.   
+I saw it then. 
 
+I ignored it.   
+My schedule did not allow time for this.   
+I got into the awaiting car.   
+Said good morning to my driver.   
+Gave the go ahead to take me to work.
 
+I pulled my laptop out of my work bag.   
+I checked my email.   
+The itch persisted.  
+I rolled my shoulders, annoyed.   
+I ignored it. 
 
-“Oh, so I speak right into this?”
+Coffee was handed to me as I entered the office.   
+I nodded my appreciation to the assistant.   
+I knew she needed a raise.   
+I wanted to thank her.   
+But the itch… 
 
-……….
+The first meeting was boring.  
+The kind that should have been an email.   
+The kind that were always a waste of time.  
+I lacked the focus for it.   
+The itch demanded my attention. 
 
-“Ah yes. Understood, sir.”
+I ignored it.   
+It festered by the end of the third meeting.   
+My leg bouncing the entire duration of the meeting.   
+My perfectly manicured nails, digging into my palms.   
+I wanted to dig them into my calf. 
 
-“I have been informed that, as the sole witness to the scene of Dr. Sereboro’s death, I am to give my account of events leading up to me discovering the body of the aforementioned. I swear, under threat of perjury, that what I am about to say is the truth, the whole truth, and nothing but the truth; so help me God.
+I wanted to remove the itch.   
+Someone asked me for my approval.   
+I had not been listening.   
+I looked at my laptop.   
+My assistant had summarized what he had proposed. 
 
-…..God help me.
+Indeed, a raise was needed.   
+I gave my approval for the project to proceed.   
+I dismissed the team and gathered my things.  
+My assistant handed me my preferred afternoon tea.   
+I gave her a grateful nod and my thanks. 
 
-I met Dr. Sereboro almost a year ago. Though he wasn’t Dr. Sereboro to me. Despite me being a lowly grad student interning at his lab, he always treated me as an equal. Demanded I refer to him as Diego, or Professor Diego if I had to be formal about it. He was just that sort of man. Never looked down on anyone. For fuck’s sake, the guy would buy breakfast for the same homeless man every day on his way to work.”
+I shut the door to my office.   
+I stared out the window, overlooking the city.   
+I gazed past the city to the ocean.   
+I glanced at the time.   
+Two more hours and I would leave. 
 
-………
+Two more hours.  
+Then I could take care of the itch.   
+I sat at my desk.   
+My monitor brightened at the move of my mouse.  
+The itch demanded my focus. 
 
-“Would I say that I admired him? Absolutely! The man was brilliant! Have you read his papers on human anatomy as it relates to psychology? In the single year I’ve known him, he was awarded by the committees for the natural sciences three times over! It was a marvel to work by his side. He would ponder a question or sit on a project for weeks only to finally wrap it all up in a single night.
+I felt my hand move of its own will.   
+I felt my fingertips graze down my stocking.   
+I felt the nylon against the pads of my fingers.   
+My blood screaming at me.   
+*Scratch it, scratch it, scratch it…* 
 
-Regardless, it would seem he took a liking to me as well. There were only two of us in the lab alongside him and the other student was always quick to leave when her duties were done. So Professor Diego and I would often enjoy spirited conversation while I finished my schoolwork. Honestly I think I learned more from speaking with him than my actual professors.
+My phone rang.   
+My hand returned above my desk instantly.   
+I reached for the phone.   
+‘Yes?’   
+‘Your least favorite client is on line 2.’  
+The itch begged for relief. 
 
-As the months went by, Diego took me on as his full time research assistant. We became good friends and colleagues. Wasn’t uncommon to see us enjoying a few drinks and discussing our research before going home after work.
+I took the call.   
+It was my least favorite client.   
+Always lying.   
+Always complaining.   
+Always taking the easy way out. 
 
-It was one of those nights at the bar that I asked him. I said ‘Professor, how do you come up with all of this? I can’t imagine what goes on inside that head of yours.’ And his answer never really sat right with me. It was the sort of answer that seems to make the warm light in the room get just that tiny bit dimmer. Cause even though he phrased it like a joke, there was something in his voice that just seemed exhausted.”
+One hour left.   
+My eye was twitching out of irritation.   
+I googled how to get rid of an annoying itch.   
+‘Apply a cool damp cloth.’   
+‘Hydrocortisone cream’ 
 
-………….
+‘Colloidal oatmeal bath’   
+I could do that.   
+A bath sounded like heaven.   
+I sent a text to my assistant.   
+Asking for her to run to the nearest pharmacy. 
 
-“What did he say? I was getting to that, sir. He said, ‘Each time I ponder the essence of a question, it is as though the answer is wriggling inside my skull. Waiting to hatch forth and be born! Like the goddess Athena!’
+She returned as I was packing up.   
+She handed me the bag.   
+I saw the oatmeal and the calamine lotion.   
+A raise, immediately.   
+I felt my body relax. 
 
-We laughed then. But I could hear it then and I can still hear it now. That tired sigh behind the smile. Oh god I should have known.
+I exited the revolving doors.   
+My driver held the car door open for me.   
+I nestled into the backseat.   
+I placed my order at my favorite Indian place.   
+I gave the destination to him. 
 
-The next few days at work went by normally but I couldn’t shake that strange feeling from the night at the bar. I watched the Professor carefully as he worked, curious to see what could have him so exhausted. The answer, I believed, was simple enough. As the hours dragged on into the night, the Professor would lay awake at his desk scribbling and reading and generally working but never sleeping. Whenever exhaustion took him, he would simply scratch at the back of his head and yawn before working even faster than before. The strange thing was the scratching. You’d swear the man had lice from how he scratched the back of his head. His hair was normally so neatly trimmed and slicked back but in those moments he looked more like a dark haired Einstein. And he just kept scratching; even though his nails were soaked in blood and skin. Until he simply stopped and shot up straight and started working again. Like a light bulb went off in his head.
+It would be ready in twenty minutes.   
+We would be there in seventeen.   
+From there another fifteen minutes until I was home.  
+Another five to get my food and bath setup.   
+Thirty-seven minutes and I would deal with the itch.
 
-Then one day he didn’t come in to work. The Professor usually worked from a home office whenever he was sick. So I thought nothing of it at first. But someone had left grant paperwork that needed to be signed right away on his desk in the lab. Delivering it to his home was the least I could do. I’d done it a hundred times before with a spare key he’d given me after my promotion.
+I could handle thirty-two minutes in the car.  
+I inserted my ear buds and selected a playlist.   
+Music could help take the mind off of anything.   
+I sat back in the seat, closing my eyes.   
+I let the music wash over me, claim me. 
 
-The house was quiet when I got there. That eerie sort of quiet that leaves your ears ringing just to fill the air. But Diego’s car was in the driveway, and the lights were all on. No one called back when I yelled, so I started looking around. Every room in the house was empty. So I went to check the basement, where the Professor’s office was.
+The second song started and it was unfamiliar.   
+I looked at my phone.   
+It slipped from my fingers.   
+Landing softly in my lap.   
+‘Itch’ by Nothing But Thieves was playing.
 
-He was on the ground when I came in. There was blood everywhere. The man had scratched a patch of his scalp clean off of his head, down to the bone. His nails still oozed with pus and sinew, and were stuck in the leftover skin around the wound. But the strangest thing was his skull. Oh, god, his skull! There was a hole in the damned thing bigger than my fist! But it looked like it had been chipped away from the inside! Like something had tried to crawl its way out but could only scratch and writhe and dig with dozens of fingers against his skull until it could break free.”
+I removed the ear buds.   
+I turned off the music.   
+Twenty-six more minutes.   
+The itch whispered its demands.   
+*Scratch me, please…*
 
-……….
+I bit my lip.   
+My fingers clenched.   
+Crescent moon marks etched into my palms.   
+I loosed a shaky breath.   
+I steeled my mind. 
 
-“Why did I phrase it like that?
+I counted my breaths.   
+One after another.   
+I prayed there would be no red lights.  
+I prayed the driver could sense my silent urgency.   
+There were red lights, the driver remained oblivious. 
 
-Because I saw his brain still wriggling around on the floor! Fingers and all!”
+The itch was mocking me at this point.   
+Its incessant demanding would not cease.   
+I felt it consuming me.   
+I felt the jittery energy building within.   
+I felt it moving under my skin. 
+
+As if it was trying to get closer to me.   
+As if it was sentient.   
+The car stopped.   
+The itch receded.  
+The smell of curry filled the car.
+
+Fifteen more minutes left.   
+I focused on the smell of the food.   
+The itch tempted me to touch it.   
+My mouth watered.   
+I ignored it. 
+
+The red light was long.   
+My leg was bouncing.   
+Anxious, nervous energy built again.   
+Seven more minutes.   
+I was ravenous. 
+
+A text notification lit the screen on my phone.   
+I glanced at it.   
+The assistant.   
+Checking in on me to make sure I was okay.   
+I thanked her and said I was fine. 
+
+I was not fine.    
+I wanted to scratch.   
+To claw.   
+To gouge.   
+I wanted to feel anything other than its unending presence. 
+
+It threatened to unravel the carefully curated exterior I had.   
+It threatened to rip me apart at the seams.   
+It threatened my grasp on reality.   
+It threatened to devour me whole.  
+It threatened to end me. 
+
+The car came to a stop.   
+Relief lay at the top of the building on my right.   
+I mindlessly thanked the driver.   
+I had the door open before he could unbuckle the seatbelt.  
+I grabbed my belongings and exited. 
+
+The doorman smiled at me and greeted me by name.   
+I gave him a rushed smile.   
+I made a beeline for the elevator.   
+The doors parted and I entered.   
+The button illuminated as soon as I pressed it. 
+
+I began rapidly pressing to close the doors.   
+I wanted privacy.   
+I wanted peace.   
+I was so close.   
+A shoe halted the doors. 
+
+They reopened just as they were going to shut.   
+I felt tears amass.   
+I felt them threaten to spill over.   
+Shuffling my bags, I moved over to let the stranger in.   
+He gave a brazen smile. 
+
+I kept my focus on the metal of the elevator doors.   
+He pressed a button.   
+Twelve floors below mine.   
+My fingers were back to digging into my palms.   
+I heard him take a deep inhale as the doors closed. 
+
+‘Indian? I know a really good place on 7th street.’   
+I could not care about anything this man said.   
+I gave the empty smile and nod I was so used to giving.   
+‘I’ve got an incurable itch for good Indian food lately.’   
+I flinched at his words. 
+
+Itch, scratch, gouge, rip, claw.   
+I watched as the elevator rose.   
+Bringing us closer to his floor.   
+Bringing me closer to solace.   
+I registered his scoff. 
+
+I ignored him entirely.   
+The elevator slowed.   
+I heard him mutter something under his breath.   
+It meant nothing to me.   
+Nothing meant anything to me except the itch. 
+
+I watched the numbers go up.   
+Almost there.   
+The doors opened.  
+I sighed in relief.   
+I pressed my finger onto the pad next to my door. 
+
+The smell of warm vanilla hit me as the door opened.   
+Soft yellow light flooded the open space.   
+I set my things down in a rush.   
+Grabbed a plate, piled my food onto it.   
+Took the bag from the pharmacy.   
+The itch urged me to the bathroom.
+
+Urged me to scratch it.   
+To claw at it.   
+I ran the water, not too hot.   
+Dumped a generous amount of the oatmeal in.   
+Swirled it around, watching as the water turned milky. 
+
+I piled my hair on top of my head.   
+I began to undress.   
+My skin hissed as I removed the stockings.   
+The itch, free from its nylon prison.   
+Renewed in its demand for satisfaction. 
+
+I glanced at my calf, where the itch lingered.   
+There was nothing marking my skin.   
+No bump.   
+No cut.  
+Nothing. 
+
+Flawless, smooth skin.   
+My mouth was agape.   
+Could this have only been in my head?  
+I felt it.   
+The urge, the itch. 
+
+I turned the water off and stepped into the bath.   
+The water was warm and comforting.   
+As I settled down, the water covering my entire legs.   
+The itch stopped.   
+I reclined back and felt the tears slide down my skin. 
+
+Relief.   
+Pure relief.   
+For the first time since I had woken I felt relaxed.   
+I took my time, ate my food, even spent time reading.   
+I even spent a little time responding to emails. 
+
+By the time I got out the itch no longer occupied my mind.   
+I laughed it off.   
+Some fluke.   
+Some phantom itch my brain conjured.   
+A figment of the imagination. 
+
+Wrapped up in a robe I ended my night with a movie in bed.   
+I have no idea when I finally fell asleep.   
+I just know that I woke up to a coppery smell.   
+The room was dark in the morning as always.   
+I yawned and made my way to the bathroom. 
+
+Unaware of the trail of blood behind me.   
+Unaware of the blood staining my sheets.   
+Unaware of the hole in my leg.   
+I turned the light on and saw myself in the full length mirror.   
+Color drained from my face. 
+
+The itch had returned in the night.   
+I scratched at it.   
+I clawed at it.   
+I gouged my leg with my own hands.   
+Not once did I wake up from my own actions. 
+
+The itch remained.   
+Even with the leaking hole in my leg there.   
+It still begged me to scratch it.   
+Keep going, scratch me, touch me, do it.   
+I slid to the floor, staring at myself in the mirror. 
+
+The tears were freely sliding down my face.   
+My leg was bloodied and marred.   
+I caught a glimpse of my hands.   
+Rust colored flakes were wedged underneath my nails.   
+They covered my fingers, my palms, my arms. 
+
+The need to itch was potent.   
+As if the first scratch at it had broken some dam.   
+All I could do was heed it.   
+All I could do was scratch at it.  
+All I could do was *itch*.

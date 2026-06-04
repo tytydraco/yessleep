@@ -143,3 +143,5 @@ But as I looked up at the flickering lights of Delhi, I realized the war hadn't 
 The girls who went missing aren't all dead. They are coming back.
 
 And they want everything this time. No rules can stop them from unleashing their fury.
+
+[update](https://www.reddit.com/r/nosleep/s/fwa77C3lwg)
