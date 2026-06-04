@@ -1,0 +1,31 @@
+(https://www.reddit.com/r/nosleep/s/1TBQl9gYUm part 1)
+
+The last day and a half has been a blur—an emotional rollercoaster of caffeine, adrenaline, and looking over my shoulder.
+
+I saw it again. At least, I'm pretty sure it was that thing. He’s been stalking along behind my truck, never getting too close, just keeping his distance. Every single night, during any slight break in my drive, I see his shadow. Any stop for gas or food, he just stays far enough away for me not to see him fully.
+
+The monster who murdered my parents is haunting me, teasing me like a toy. His shadow looks to be draining the light around him, keeping him hidden. As if the lights themselves fear touching him. June in Texas and I feel cold anywhere I go.
+
+The thing that killed my best friend, and maybe Andy too. I've finally made it out of Texas. Right now, I'm parked at an abandoned rest stop in some small town just outside of Tennessee writing this out, but something else is seriously wrong. I'm forgetting things.
+
+I'm starting to forget what my parents looked like. I can still hear that robotic tone they used when they spoke to me right before it happened, but my brain completely blocks out their faces. Every time I try to force it, it's like this sharp pain in my head followed by a low buzzing sound. I can't even remember their first names.
+
+It’s the same with John. I’m reading his name right now by looking back at the last post I typed out, but his face is just a blank void in my mind. I remember the blood, I feel the intense mourning in my heart, and yet there's no picture of my best friend attached to it.
+
+Memories of us growing up together—things I know happened—are just missing. I can't picture my childhood home, my bedroom, or even remember my own address. I tried typing my old street name into the GPS a few minutes ago, but my fingers just froze over the keyboard. The memory literally dissolved while I was trying to type it.
+
+The only thing my mind can grip onto right now is the image of an old, rusty sign at the edge of my hometown.
+
+HOLLOWAY, TEXAS. POPULATION: UNKNOWN.
+
+But every time I look it up I can't find anything? Am I going insane? I just... I don't know where I'm going or what I'm even doing.
+
+EDIT: Andy just replied. He didn't answer any of my questions, he just sent one sentence:
+
+"Look under the back seat of your truck. It's important I don't know why but trust me, Shaun."
+
+I’m staring at the screen shaking. I dropped my phone on the floorboard and scrambled into the back seat. I reached around in the dark, tearing at the carpet, and there actually was a hidden patch in the carpeted floorboard. A small space built directly under the seat. I pulled it up, and there's a heavy lockbox sitting right there in the dark.
+
+But guys... I don't remember putting a lockbox there. I don't remember my dad ever mentioning a hidden compartment. I don't remember ever seeing this thing before in my life. It was just there, tucked away, waiting for me to find it. It's rusted in spots, but on the top is what looks like an Ace of spades playing card etched deep into the metal.
+
+My hands are trembling so bad I can barely hold my flashlight straight. Do I open it?

@@ -91,3 +91,5 @@ I'm stopped at this rest stop to use the bathroom and write out this post. Pleas
 I’m honestly shaking as I write this out, my heart racing. Any little sound outside makes me jump. I'm terrified the moment I leave this bathroom that thing will be waiting for me outside. I don’t have anything but my wallet, my phone, and the clothes I’ve had on since Sunday morning. My truck has a shotgun in the back as well, but after the little the rifle did to this thing, I doubt it'll even leave a dent and Sara if you're reading this I'm sorry.
 
 Please give me any advice y'all have.
+
+(Part 2 https://www.reddit.com/r/nosleep/s/YYueehhg56)
