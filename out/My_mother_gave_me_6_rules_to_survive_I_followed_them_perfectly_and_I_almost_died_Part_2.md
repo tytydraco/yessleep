@@ -102,13 +102,13 @@ The vision snapped. I was back in the damp Delhi alley, gasping for air.
 
 "We can fix it," I whispered, looking down at Verma’s dead body, then at the laptop bag. "We can find the boys like Rahul. We can measure their guilt. We can make them follow the rules. We can make the girls safe."
 
-Geeta laughed, a harsh, grating sound. "Fix it? Measure it? You think this is a courtroom, Ananya? You think this can be settled with spreadsheets of guilt? You're playing house with these monsters. Always the stupid one."
+Geeta laughed, a harsh, grating sound. "Fix it? Measure it? You think this is a courtroom, dearie? You think this can be settled with spreadsheets of guilt? You're playing house with these monsters. Always the stupid one."
 
 She stepped past Verma’s body, pointing out toward the main road where the lights of the city hummed.
 
 "The soil itself is poisoned," Geeta hissed, her shadow stretching up the walls of the alley, eclipsing the light. "The mothers who silenced us to 'protect' us. The fathers who looked away. The brothers who laughed. The entire system fed the Entity. Where were they when I was violated and buried alive?” 
 
-She turned, her black eyes locked onto a small residential house at the corner of the alley. I recognized it. It belonged to Verma’s family. They had a ten-year-old boy who played cricket in the street. He had never touched anyone unlike his father. He was just a child.
+She turned, her black eyes locked onto a small house at the corner of the alley. I recognized it. It belonged to Verma’s family. They had a ten-year-old boy who played cricket in the street. He had never touched anyone unlike his father. He was just a child.
 
 Geeta’s shadow-tendrils began to creep toward the windows of that house like liquid night. She was going to demolish the house with the inhabitants burying them alive.
 
