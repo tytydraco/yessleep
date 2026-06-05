@@ -1,0 +1,61 @@
+Let me start by saying I love the outdoors and I am a competitive shooter but I am not a hunter. I grew up in a far-flung suburb of Denver called Brighton, which historically was a farm town and when I was a kid it still had a Ray Bradbury-esque small town feel but I had a lot of friends with farm property. One of those friends is a guy I grew up with named Aaron, and we were buddies in college and still keep in touch from time to time. 
+
+Aaron's dad had hunted for elk in the same mountainous area outside Carbondale for over 40 years, on the side of Mt. Sopris. Interestingly enough, he vehemently refused to invite Aaron to go with him and his hunting buddies until he was fully an adult. I don't recall what age specifically, but he was weird about it and, in retrospect, I believe it's because he had terrifying experiences out there himself over the years.
+
+Anyhow, my friend Aaron, at the time of the occurrence, was an ultra marathoner, fit as a fiddle and he invited me to come along with him and his dad on their annual hunting trip, mostly just because he knew I loved to hike and at that point his dad's hunting crew had shrunk down to just the two of them so I knew he just wanted some company that wasn't his old man. I agreed to come along and hike through the backcountry with him and bought some safety orange clothing.
+
+So we made our way up to Carbondale on the 29th of October and planted our trucks/camper in the parking lot of the Mt. Sopris Trailhead. Aaron's dad was named Steve and he was really pushy about me staying in the camper with them. Despite his insistence I threw up my tent anyway at the base of a hill  Steve said they used to call "Shit hill" back in the day before there were public toilets there. Again, I didn't think anything of it at the time, but my tent was probably ten yards from the trailer, just far enough away to not be "camping" in the parking lot. The first night passed without incident and we went to bed pretty early so we could get an early start the next day.
+
+At about 4:30 AM on the 30th Aaron and I set out up the trailhead while Steve stayed in the lowland area for the day because of bad knees. We followed the trail for a couple miles before setting out into the backcountry to zip up and down peaks and valleys all day. It was absolutely beautiful weather, probably in the low 60's, which I learned made for abysmal hunting but good grief was it pretty. The hiking was great. We wound up doing about 13 miles that day and around 2pm in the afternoon we stumbled across what I now believe to have been a sasquatch bed.
+
+I took a bunch of photos and what stood out to me at the time was the sheer size of it. It was about seven feet long and four feet wide and comprised of pine bark scrapings shaped into the shape of a bowl. There were a couple piles of scat at the edge of it full of nuts and berries. Later telling Steve about it he said it sounded like a bear bed but I made the case it was strange that NONE of the trees surrounding it had any signs of claw marks where bark had clearly been scraped off to make the giant bed. Anyway, we spent some time poking around at it. I've been into Bigfoot since I was a kid and at that point I'd read some books on the subject and listened to a few podcasts but I wasn’t an active Sasquatch hunter or anything. I was a believer, but not an avid one. My buddy Aaron, on the other hand, was (and still is) about the biggest skeptic in the world and didn't really care to waste a lot of time looking at an animal bed and piles of fresh crap.
+
+So we made our way back to the trailer, both Steve and Aaron skunked by the warm weather. We drank beers and played cribbage late into the night, before going to our respective beds.
+
+Here's where things went sideways.
+
+It was 4AM on the morning of Oct. 31. It's worth noting here that I had almost zero cell service.
+
+I woke up to the buzzing of my phone alarm. Again, I had no service but had kept the phone in airplane mode to save the battery and I'd set the alarm knowing we planned to set out again that morning at 4:30. As I groggily squeezed the phone I became aware of another immediate noise. There were big, heavy footsteps just outside my tent. Instantly I was awake.
+
+My first instinct was to reach into my sleeping bag and grab the 10mm Glock I had in the bag with me. As I quietly slipped it out of the holster I listened intently and realized that the footsteps were slowly, heavily, circling my tent. My first thought was that it was a moose, because there was literally moose scat everywhere and the Rockies are rife with them. But then it struck me that I was hearing bipedal steps. Crunch, crunch, crunch, slowly and rhythmically in the rocky dirt. I listened to it make one full circle around my tent before I thought "could this be a man?" but there was no way because it was the first weekend of rifle season elk hunting and you'd have to be an absolute lunatic to screw with somebody in the woods during hunting season. However, there are lunatics out there. I will admit, at that moment, sasquatch did not cross my mind. I thought it was a person, albeit a large person, and just as I started to unzip and slide myself out of my bag in the dark, getting ready to dive out the tent in my underwear like sleepy John Wick, I heard muffled voices. Then there were shuffling noises and the screen door of Aaron’s trailer squeaked open. Then I heard my buddy Aaron say something to his dad and whatever was circling me made an immediate beeline away from my tent and away downhill. 
+
+I shouted out of my tent "Aaron, did you see that?" as I threw my pants and boots on. Neither he nor his dad had seen anything, but their alarms had also been thankfully set for 4AM and they had scared away my visitor. That was just the start.
+
+We spent the next 20 minutes making instant oatmeal, taking Advil, and admitting we'd stayed up too late. I was still troubled about the visitor outside my tent but Steve reassured me it had to have been a bear and he reiterated that I should have stayed in the trailer.
+
+Finally, at 4:30 we headed out again in the pitch black. Aaron and I went up the trail in the darkness, hoping to get to the area they called the meadow by about 7:30, where I planned to turn around and hike back to head home while they stayed out on the mountain for a few more days.
+
+We only made it about a half mile before the incident took place. The terrain on the trail was rocks sloping uphill to our right and insanely dense scrub oak trees/bushes on the downhill side to our left. We each had dinky headlamps that functionally lit up about ten feet in front of us. Aaron was in front of me with his .30-06 slung over his shoulder and I was right behind him hiking with the 10mm on my hip. 
+
+Completely without warning there was a series of three deep whooping noises from behind us, maybe ten yards away. The whoops sounded like they had come from an animal with an enormous chest. They were deep and resonated through the air. It sounded like the kind of noise a gorilla would make. We both stopped in our tracks. Aaron was surprised but I think he was doing everything he could to not be scared. I knew instantly what that noise was.
+
+"What the hell was that?" he said.
+
+"Dude," I said. "You know of anything that makes gorilla noises that lives out here?"
+
+He shook his head, trying to scoff, but I knew he was unsettled. He started walking again.
+
+I had listened to a fair number of Bigfoot “experts” on various podcasts and for whatever reason I heard the heavily-twangy southern voice of one of the hosts in the back of my head saying "You'd better not take a shot at one unless you're ready to die." And so I said that to Aaron. 
+
+He shook his head again and told me to shut up as he continued up the hill. Despite there clearly being something large out there in the woods with us he never unslung his rifle. With that same thought in my head I made no move whatsoever for my own gun. We took probably ten more steps before there was a responding call, this time from up ahead of us, roughly another ten yards in the distance. Another three whoops. An exact response. This time my blood ran cold. Because at that moment I knew that what we'd heard was exactly what I thought it was and that there were multiple of them. And coming from opposite sides of us on the trail, I knew they were communicating ABOUT us.
+
+Now Aaron was scared. I could see it in his eyes when he turned to look at me. I spun and looked around, could see nothing besides some fallen branches and brush. I cursed my pathetically weak headlamp and how it barely cut ten feet into the night ahead of me. 
+
+I tried to slow my heart rate, taking deep breaths, as I debated what I was going to say, when all of a sudden there was a thundering sound from the downhill slope to our left. Footsteps landed like anvils, smashing their way rapidly uphill, directly through the brush, coming right for us. We could see literally nothing but the scrub oak, easily ten feet tall, shaking violently as the footsteps smashed right toward us. Instinct took over then. Neither of us ran, and honestly there wouldn't have been time to.
+
+Just as it looked like the thing was about to crash out of the brush right in front of us...it stopped.
+
+Everything stopped, and it was silent. Zero sound except Aaron and I breathing heavily. I looked down and saw that I was holding a small fallen tree (I think it was an aspen). I was holding it like a damn caveman holding a makeshift club, pointing it toward the downhill, while six feet of its dead branches danced in the air behind me.
+
+"Holy shit," Aaron said. He was holding his rifle now but not pointing it. "what do we do?"
+
+I looked around and could just barely see a bend in the trail ahead of us. A low boulder sat right at the curve.
+
+"I think we should sit on that boulder and wait for sunrise,” I said. 
+
+I threw the tree down, feeling like a moron, and never moved my hand from the butt of my gun again.
+
+And we sat on that Boulder until sunrise, one of us facing up trail, and one facing down the other way. All I wanted to do was talk about what had happened but Aaron brushed it off as “just an animal" and made it clear he did not want to discuss it further. The sun started to come up and I continued on with him for a couple miles, but I felt like we were being watched the whole time. Eventually, I told him I was ready to go and we parted ways. I told him to be careful, which he actually shrugged off. In the daylight I watched the hilltops beside me like a hawk all the way back down to the trailhead. I didn't see Steve again that day. I just packed up my tent into my truck and hauled ass out of there. I did ask Steve about it later and he got very weird about it. I still keep in touch with a lot of Brighton friends and the kid of one of Steve's old hunting buddies confirmed that they'd absolutely had Bigfoot experiences up there over the years.
+
+To this day I’m just glad to have made it out of there. Having felt the size of their presence and how it tore through that scrub oak like it was cotton candy I have no interest in ever seeing one of those godforsaken things.
