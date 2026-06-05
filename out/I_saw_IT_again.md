@@ -1,0 +1,127 @@
+&#x200B;
+
+It happened when I was in high school. My parents had gone out for a cousin’s marriage and wanted me to join them, but I begged them to let me stay back alone because of midterms.
+
+At that age, staying alone felt exciting.
+
+The whole day was ordinary to say the least. I had lunch at my aunt’s house across the street, came back home, fooled around and tried to study for a few hours.
+
+And then came night
+
+Around 9 PM or so I got hungry enough to make noodles.
+
+so I went to the store on 11th Street and bought the usual Maggi.
+
+This is where everything went wrong.
+
+I thought, why not take a detour to get home faster? The shortcut road was never really used by people
+
+Years ago there used to be houses there, but some construction company bought the whole area through political connections. They demolished most of the houses and started building apartments before the project got abandoned halfway through. After that the whole place just stayed empty.
+
+So now back to the detour.
+
+The street lights were off, and all I could see was the road and the abandoned buildings in the moonlight. And as dumb a teenager as I was, I chose to walk through it. I could literally hear my own slippers against the road.
+
+Then halfway through I saw IT standing near one of the abandoned compounds.
+
+Tall and Thin while being completely still.
+
+At first I thought IT was just another guy walking home, but the closer I got the stranger it felt because he wasn’t moving at all.
+
+As I crossed him, I saw him slowly turn his face toward me in my peripheral vision
+
+Not fast.
+
+Slowly
+
+Something about IT scared the hell out of me instantly.
+
+Then there was stillness.
+
+The only thing I could hear were my footsteps and after that, I heard another set of footsteps
+
+At first I thought it was just him walking away in the opposite direction, but after a few seconds I realized the footsteps were matching mine perfectly.
+
+When I sped up, IT sped up.
+
+I wanted to look back so badly but something in my head kept telling me not to.
+
+The moment I reached the corner leading to my street, I ran like hell.
+
+I genuinely don’t remember unlocking the door properly. I just remember getting inside, locking everything, and sitting in the hall trying to calm down while convincing myself I had panicked over nothing.
+
+After a while I even felt embarrassed.
+
+cooked the noodles i bought and finished my dinner
+
+And then I went to my room.
+
+That is where what I saw froze my blood.
+
+My window faces the street.
+
+And there IT was.
+
+Standing near the far corner under the orange streetlight.
+
+Tall and Thin
+
+I couldn’t really picture ITs face because ITs eyes were engulfed by shadows, but IT was grinning directly at ME.
+
+I closed the curtains immediately and didn’t sleep the entire night.
+
+The next day I begged my cousin to stay over without telling him why.
+
+and I forgot about it entirely.
+
+Until years later.
+
+I was cleaning the storage room before renovating the house and found some old stuff left behind by the previous owners. Among the junk was an old tape with our house number written on it.
+
+I don’t know why I watched it.
+
+The recording was from some old camcorder on the street outside our house.
+
+and IT appeared again.
+
+Tall and Thin and being completely still.
+
+Same place.
+
+Same grin.
+
+Exactly how I saw it.
+
+it never moved once.
+
+Not even slightest
+
+an old man, presumably the owner of the house, stepped outside and looked toward the figure.
+
+He stood there staring at it for almost a full minute.
+
+Then slowly raised one hand.
+
+The figure imitated him. I don’t mean similar movements or anything. I mean exact. Same hand. Same speed with a static grin.
+
+The old man backed into the house immediately.
+
+A few seconds later every light inside turned on.
+
+The figure didn’t move the entire time. Not once. I kept waiting for it to at least shift a little or turn or something, but it just stood there
+
+Then the tape ended.
+
+Later I asked my mother about the previous owner.
+
+She told me he died after becoming mentally unstable during the last few months of his life.
+
+Apparently he gouged his own eyes out because after a while, all he could see was IT.
+
+Then she told me what keeps me sleepless at night. The Old man wrote on the walls of the house  "IT Chooses You.”
+
+And yesterday, I woke up in the middle of the night sweating profusely.
+
+Through the small gap in the curtain…
+
+I saw IT again.
