@@ -1,0 +1,217 @@
+It's been a long time since this incident occurred but I really just want to get it off my chest. My wife and I are having our ten year anniversary tomorrow and something brought me back to that night.
+
+Senior year, graduation was coming up. I had one final left, a literature review. 
+
+Mind you I was already on track to graduate with or without this paper, and this teacher hated me. I spent all of high school deep in the closet but people had suspicions. I was extremely butch and didn't hide it well.
+
+My literature teacher didn't hesitate to make her homophobia my problem. So I chose to write about a sapphic author as a final farewell and fuck you.
+
+That night, I was upstairs in my room writing.
+
+My parents had the office computer downstairs and I got my own in my room. 
+
+One of the perks of being comfortably middle class, I guess.
+
+My parents were the kind of people that thought nothing bad could ever happen in their neighborhood.
+
+I'm sure my mother would have thought me liking girls was pretty bad though.
+
+It was really late and I thought my eyes were just playing tricks on me. I swore I saw something outside in the yard, but only out of the corner of my eye. 
+
+Whenever I got up to look there was nothing there.
+
+No one.
+
+Every house on my street was well illuminated and fenced in, there was no way anything could have gotten back there unseen.
+
+So I turned back to my work. I was almost done and I'd go to sleep afterwards.
+
+My hands rested on the keyboard but, before I managed to type another word, my head jolted towards the window.
+
+Tapping.
+
+My stomach dropped.
+
+But then, there she was. Shadya.
+
+I let out a deep breath and walked over, pulling open the window to meet her eyes.
+
+"What do you think you're doing here?"
+
+She smiled and threw her legs over my windowsill, "Coming to see you, I was bored and wanted to see you, is that a crime, Amara?"
+
+I rolled my eyes and pulled her in, holding her close, "Breaking into my parents’ house is technically a crime my love."
+
+She kissed me firmly, following after as I pulled back before finally parting, "Technically.. you let me in." She teased, grinning from ear to ear.
+
+I scoffed and shut the window. I couldn't stop my eyes from scanning the backyard.
+
+Had it just been her..?
+
+I locked it up and pulled the curtains closed. I couldn't have our neighbors looking into my room.
+
+"You cannot imagine that could hold up in a court of law?"
+
+She shrugged and sat on my bed, "Who cares.. your parents won't know I'm here anyways. You're not gonna tell them.. I'm too pretty to send out to the streets."
+
+"No.. but I have to finish my paper. So you will just have to sit there and look pretty until I do. Deal?"
+
+She groaned and fell back onto my bed, "I guess I can be patient."
+
+She waited as patiently as she could. About an hour later I finally finished up. I groaned and leaned back, stretching.
+
+She stood and walked over, draping her arms over my shoulders, humming into my ear, "What book are you writing about anyway?"
+
+"Oranges are Not the Only Fruit."
+
+"What's that one?"
+
+"It's about a girl and coming to terms with who she is..."
+
+Shadya looked at me and hummed, "mhmm so you made it personal?"
+
+"A little bit," I saved the document and shut off the computer, "but now I'm all yours."
+
+"Good because I am absolutely ravenous."
+
+And she kissed me and pushed me down onto the bed.. and we.. well.. I don't need to go into the details. She knows my account and she'd either think it was super hot that strangers read about us fucking or she'd make me sleep in the garage. Not worth the gamble.
+
+After a while, we did finally go to sleep. I made sure to lock my door so she would have time to hide if my parents woke up before us.
+
+I'm still so glad I locked that damn door.
+
+I'm still not sure what time it was when I woke up but we both did. It was still dark outside and my doorknob jiggled.. the door shook once.. twice..
+
+And I could hear my mother's voice..
+
+"Amara? Are you... Awake..?" She called. I couldn't tell you why I didn't move. To this day I could not tell you why my body refused to get out of that bed.
+
+Maybe it was the footsteps or just her tone...or just the fear she would see Shadya but I didn't get up or say a word.
+
+And she left, stumbling away from my door. The steps weren't consistent, some hit the floor much harder than the others.. like a child learning how to walk.
+
+It took us longer to fall asleep after that. Shadya fell asleep before me but I swore I could hear voices downstairs.
+
+It sounded like my parents but what they said.. didn't make sense. It felt more like they were.. practicing saying each other's names rather than.. speaking to each other.
+
+"Harold. Hah.. rold... haarr old."
+
+"Janice... Janeice... Jaahh.. nice."
+
+They didn't try my door again for the rest of the night.
+
+When we woke up in the morning, it was late. Almost 8 am, we should have been at school an hour ago.
+
+Fuck.
+
+Shadya kissed me and slipped out my bedroom window and ran off down the street. I watched her go before I readied myself to face my parents' wrath for sleeping in.
+
+I got dressed and grabbed my bag. Breakfast was probably out of the question. Mom would have already cleaned up.
+
+I opened the door and carefully made my way to the kitchen. The kitchen smelled awful, like burnt toast and spoiled eggs.
+
+I peered my head in and stared. My father sat at the kitchen table reading his paper and my mother was standing over the stove. 
+
+“Uh.. sorry I woke up so late, I'm not sure what happened.” I joked, expecting any reaction.
+
+My mother turned her head, whisking a sickly-looking bowl of eggs, “Good morning dear!”
+
+I couldn't move my eyes from the bowl in her hands.
+
+She looked at me and barely tilted her head, “good morning?”
+
+I glanced up, meeting her eyes. They seemed.. dull. Muted really. My mother's eyes had always been a bright green and now they looked almost brown.
+
+“Good morning.” Her voice was firmer now.
+
+“Morning I… I don't have time to eat breakfast. I'm late for school.”
+
+“Oh.” She looked down at the eggs, “I see. More for your father and I then.”
+
+She walked over and poured the sickly green liquid into the coffee cup my father usually drank from. And he hummed affirmatively and sipped from it without taking his eyes from the paper.
+
+I nodded some and stared, “Yes.. yes I'm sorry Mom, I have to go but I'll be back tonight.”
+
+“Good! I've got something I want to show you!” 
+
+I nodded and made my way towards the door.
+
+As I grasped the door handle and pulled it open, something touched my shoulder.
+
+I flinched and turned, meeting my mother's gaze, “and bring that girl home too. She doesn't need to sneak around outside. It's dangerous out there.” 
+
+I stared. My parents room was on the other side of the house.. there was no way they could have seen her.. my eyes traced down and landed on my mother's neck. 
+
+Her rosary.
+
+As long as I had known my mother, I had never seen her take it off.
+
+At church.
+
+At funerals.
+
+To sleep.
+
+So where was it?
+
+I barely nodded to her and left, climbing into my car and driving off down the road.
+
+I didn't go to school, instead I went to Shadya's home.
+
+Her mother opened the door and saw my face. I looked petrified. She only asked me one thing.
+
+“Are you alright?”
+
+I nodded to her and she made breakfast. Shadya made it home a few minutes after I had. I couldn't tell her what I saw because I didn't understand it myself.
+
+When she made it into the kitchen her mother turned, “Shadya, go make up the guest room. And make sure your brother knows he's grounded for lying to me.”
+
+Shadya stood there, tense, “What- what do you mean? What- what's going on?”
+
+Her mother turned, “He told me you left early this morning. That boy knows lying by omission is still lying.”
+
+“Is.. Amara staying in the guest room?”
+
+Her mother looked at me. I didn't raise my eyes from the cup of coffee shaking in my hands, “Something happened.. with them.. I.. I can't go back.”
+
+Shadya frowned and went upstairs.
+
+I finished the school year at their house. Their father had passed a few years prior but Mrs. Neign took care of me the best she could. Her food was always so much better than my mother's.
+
+We moved away for college, Shadya, her brother, and I. It was about a year before I received a call from Mrs. Neign. The police had been called to do a wellness check on my parents.
+
+The house was pristine. 
+
+The beds were made.
+
+The dishes were clean.
+
+The cars were in the garage.
+
+But my parents were gone.
+
+People looked for them, the church helped the search parties for months.
+
+They held a vigil, praying for their return.
+
+I didn't go.
+
+I've long since distanced myself from the church. Whatever answered to my mother's name that morning, no God I was ever taught about could have made it.
+
+Tomorrow will be ten years.
+
+Ten years of sleeping next to the woman I love.
+
+Ten years of her teasing me for locking the door like I did when she'd sneak in through my window.
+
+I'd laugh and kiss her goodnight.
+
+And after she fell asleep I'd get back up and check every door and window in the house.
+
+Because I still remember what my mother sounded like on the other side of that door.
+
+Some nights, when I patrol the house, I still hear her voice.
+
+Just outside our kitchen window.
+
+“Ahh..marrr.. ahh….. good mooorning..”
