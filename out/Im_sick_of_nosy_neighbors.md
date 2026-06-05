@@ -1,0 +1,458 @@
+*Clickclickclickclick.* 
+
+The sound cut through the foggy haze of my poorly-medicated sleep and had me sitting up in bed. On instinct, I reached out and felt the space next to me. Empty. But the sound continued. Something about it made my skin crawl. Worse than nails on a chalkboard— it wasn’t just the sound itself. It was the idea of whatever had made it; it was a *painful* sound. 
+
+For a little background, I’d only been living in the city for a short time. The bedroom around me, and the flat as a whole, was still new enough that I struggled to find my way around in the dark, after we’d gone to bed. Most of my life had been spent living in little knotholes of houses, far from the noise of urban sprawl. I was still getting used to being disturbed at all hours of the night; the constant traffic, the distant wails of police sirens, and the occasional bloke yelling his head off on the street below. 
+
+No one ever tells you that the city makes noise itself, too. If you peeled away every sound and trace of life in this cruel metal island, you would hear it. A low, droning hum that would drive you mad. 
+
+*Clickclickclickclick*. 
+
+This sound wasn’t part of any normal. I rose from my bed and slipped on my robe, feeling hand over hand through our small, shadowy home until the clicking got closer. Every step was less sure than the last. With each inhale, my breath caught in my throat, and I tried to keep it there and stay quiet. No use. 
+
+The city had a high crime rate. My mother, when I’d been foolish enough to answer her calls, had put thoughts of break-ins into my head. With Mickey around, I hadn’t worried so much. But I was alone, and the front door hung wide open as it came into view. 
+
+*Clickclickclickclick.*
+
+Our tiny excuse for a living room, barely enough to put in a couch and a tellie, was torn apart. There was rubbish all over the floor, and the books we’d had on the tiny coffee table were scattered amongst it. Our collection of board games and puzzles, kept in the wardrobe, the only other furniture to fit, were similarly displaced. I focused on the wardrobe itself as I began to tremble. The door was ajar maybe a centimeter, and a lone, glowing eye peered from the gap. The clicking came again, and I knew at last where it was coming from.
+
+Mickey had insisted upon the wardrobe. We’d found it for sale at a strange street fair driving through Mississippi. It was made of dark swampwood with odd carvings in its paneling. It was a gorgeous piece, don’t get me wrong. But there was a clear favoritism between the two of us. 
+
+Not giving my fear long enough to gain footing, I charged forward and wrenched open the wardrobe door. In the small space for shoes at the bottom was a tangle of pale, folded limbs. The feminine body was crammed in unnaturally, and a neck protruded from the middle of it like a thorn. Her head was hung low with her jaw pointed to the ceiling, like someone had snapped her neck. Blood ran down her bare skin in fat rivulets, staining the wood and puddling on the cheap carpet along with slivers of bone. For a position that would’ve left most as dead as a dormouse, her silver eyes were racing around, and the clicking was coming from the constant chattering of her teeth. 
+
+“Mickey?”
+
+I walked over and flicked on the light. 
+
+“Love, what did I tell you the last time? No more grinding your teeth. You’ll lose them! Is that your blood?”
+
+I began to coax Mickey from the wardrobe, and she unfolded herself from its confines. I couldn’t see any visible wounds, and her displaced bones shifted back to their original posture. 
+
+“Saoirse.”
+
+Her voice was gravelly with disuse and something else all her own. Still, I caught the faint Southern drawl in her words, dark like raw honey. 
+
+“Butter me up all you want, but you’re not getting out of a bath after this one.”
+
+I ran the tub full of hot water, scrubbing the red out of her blonde hair and prying dirt and old flesh from beneath her fingernails. 
+
+“Hungry.”
+
+I pulled a towel from the small cupboard and drained the now rust-colored water. The lights flickered. 
+
+“I know. But you could stand to not bring your leftovers here, or to give me such a bloody scare. You’re going to help me clean up?”
+
+Mickey nodded, and I wrapped her in a towel as she climbed out of the bathtub. A few whispered words in an archaic language I’d come to recognize, but not yet to understand, and the living room was back in order. I followed her back to the bedroom, watching her skitter across the wall and pull herself through the doorway with a tired sort of relief. I slipped back under the covers and she crawled in from the left side like usual, tucking herself under my arm and stretching out her long body like a lazy housecat. The lamp beside us flickered and went out, plunging us into a much more comfortable darkness than when I’d woken.
+
+“Next time you’re planning on a late night snack, just give me a shake, love.”
+
+She tilted her head up toward me, a little too far not to look painful, but plenty enough to kiss the corner of my mouth. The crackling of her uneven breaths lulled me back into a deeper sleep.
+
+That night, other than the dead fright Mickey gave me, was mostly normal. That’s not why I’m writing this post. 
+
+The trouble all started when I met our next door neighbor. 
+
+We’d only been in the flat few days when I met the man I’d come to know as Carvel. To our left was a lovely old woman named Miss Kettel with two miniature schnauzers. Mickey would often sit with her ear pressed against the wall, listening to them squeak what new little toys she bought them every Tuesday. I knew she didn’t like house pets, so I figured it was less of hunger and more of fascination. 
+
+I ran a rag over the last dish and sat it in the rack beside the sink before turning to my crouched wife. 
+
+“Having fun over there?”
+
+Her head snapped to look at me, and the muttering sound she’d been making for the past five minutes stopped. A glistening line of drool ran down her chin from her open mouth, and instead of two rows of normal teeth, it was filled with the canines of a dog. From what I could see, they spiraled further down into her throat. 
+
+“Oh, that’s one for the Halloween party for sure.”
+
+Her crowded lips curled into a smile.
+
+“Aw, hell, that reminds me! I needed to go grab toothpaste from the shop down the block.” 
+
+At this, Mickey frowned. I watched each tooth sink back into her flesh like quicksand. She wasn’t the biggest fan of being alone here yet, especially during the day, and I did my best to mitigate that. But the shop closed in an hour, and it was still summer, when the light was long. 
+
+“Oh, don’t give me that look. I won’t be gone forever, you know. Need anything?”
+
+Mickey shook her head and stood, walking jerkily backward into the living room. I’d still pick out something small to bring her as a consolation. I always did. 
+
+I’d only just stepped out of the flat and locked the door when a voice came at my side.
+
+“Well, I’ll be damned. Right when I’d just started to think the world had run out of neighbors.”
+
+I looked toward the voice— an older man stood in front of the door to the right of ours. His hair was receding and grey, and his face was the kind, wrinkled sort. He was dressed in athletic wear and shoving a key back into his pocket. It *was* a lovely day for a run, if a tad hot outside.
+
+“Oh, hello there.”
+
+“Craig mentioned something about a new tenant, but I just thought it would be another floor. Been about a decade since anyone’s lived next door. Back when I still had hair.”
+
+He let out a good-natured chuckle, and I answered it with my own. Nothing seemed off yet; just a friendly chat between new neighbors. 
+
+“Well, I’m Saoirse. I’m still a little fresh off the boat, but my wife is from Louisiana.” 
+
+The man rubbed his chin.
+
+“You’re married?”
+
+I nodded, a bit of pride sneaking in at having bagged such a catch. 
+
+“Certainly. Mickey and I have been married for three years now. We’ve known each other about six. She’s my better half.”
+
+There seemed to be a subtle shift in his expression, but back then, I chalked it up to imagination. 
+
+“Well. That’s lovely. I’m Robin, but most people around here call me by my last name, Carvel. If you ever need anything, you know where to find me.”
+
+I gave him an acknowledging dip of the head and glanced over my shoulder at the stairwell. 
+
+“Right, of course, thank you. It’s so good to make your acquaintance, Carvel. I’m sure we’ll be great neighbors. And while I’d love to stay and have a crack, I’ve got an errand to run.”
+
+His brow furrowed ever so slightly, but he nodded. 
+
+“Say, Sasha, before you go.”
+
+I’d already taken a half step toward the metal door, but I paused at his words. 
+
+“Yes?”
+
+He looked puzzled, staring at my closed door.
+
+“Is it just the two of you? No men in the house?”
+
+I didn’t catch it then, just how strange of a question that was. But unconscious alarm bells were beginning to sound regardless.
+
+“Just the two of us. Mickey’s a ‘three’s a crowd’ sort of gal.”
+
+He leaned against the wall, chewing slightly on his lip. Going a night without brushing my teeth started to seem like a better and better idea, though I couldn’t parse why.
+
+“You sure? It’s just, these walls are thin, you know. And I swear I’ve heard a man talking in the late hours of the night the last day or so.”
+
+I weighed my options for lying, and went with the most believable.
+
+“Oh, I’m so sorry. Have we disturbed you? My wife likes to watch TV late at night sometimes, with the volume too loud. I’ve told her we don’t live in the middle of nowhere anymore. Won’t happen again.”
+
+He shook his head adamantly and put on an apologetic smile. 
+
+“No, no, don’t trouble yourself about it. Just wondering, is all. If you ladies ever need any help, anything at all, I’m good friends with the super. Just give me a ring!”
+
+He rang his own doorbell for good measure, and I thanked him for his kindness. We parted ways, me a little quicker in step. It had just been an honest question, a genuine interaction, and yet, I was on edge. 
+
+I ran my errand with my head on a swivel. I told myself that I was being silly, that being in a new place was still somewhat getting to me. I puzzled over different toothpaste brands for longer than I should have, trying to lose myself in the mundane. Eventually, I gave up and grabbed the kind we always used, along with a trotter for Mickey.
+
+By the time I’d walked back into the lobby, I’d convinced myself that I’d been looking too closely at things that weren’t there. That unsteady peace of mind lasted for about fourteen flights of stairs and half of a hallway. When I looked up from my bag, where I’d been searching for my key as I went, I saw him approaching from the other direction.
+
+“Look at that, Sasha.” His shoe was untied, the same as when he left. “Eleven years without someone next door and I ran into you twice in the same day!” His water bottle was still full. “What’re the odds?” 
+
+I scratched the bottom of my bag and began to search my pockets as he spoke, trying not to make my mounting anxiety obvious. My key was nowhere to be found, and I wanted nothing more than to be back in the flat with Mickey and away from this weird man who definitely did not just go on a run and just so happened to return at the exact same time.
+
+“Yeah!” I answered, trying to keep my voice from trembling. “Life’s funny like that!”
+
+Upon reaching his own door, he stopped. I froze too, giving him my best disarming smile. 
+
+“You know, I’m glad I caught you. I wanted to apologize.”
+
+One last sweep into my purse and shopping bag turned up nothing.
+
+“What for?”
+
+“I shouldn’t have pried so much earlier. About the voices. You have your business.”
+
+I could’ve sworn he’d moved closer as he spoke. The gold chain that hung from his neck dangled as he leaned over me, cross pendant swinging slightly. 
+
+“Really, that’s not necessary. Didn’t think a thing about it.”
+
+He *was* closer. And I was locked out of my flat.
+
+“I’d like to make it up to you, though. Let me cook you dinner. You should bring your wife.”
+
+Right. I did have one of those. I knocked on the door loudly, and not more than a few seconds later, I heard the loud slap of bare feet on cheap vinyl flooring. 
+
+“That sounds lovely,” I lied, “but it’ll have to be some other time.”
+
+The lock unlatched and the door cracked open. Carvel had been moving even closer, but the sound of the hinges creaking made us both turn to look. Mickey peeked her head out just slightly, only enough space for a red eye to glance out. A long strand of her blonde hair hung through the gap. She was paler than usual today, I only noticed then, almost white against the cheap, unpainted brown of the door. 
+
+“Hi, honey. Locked myself out again. You know me.”
+
+She didn’t respond with words. Instead, a sound built just behind the door. A death rattle that rose in pitch and wobbled, tapering in a hiss, like a freshly opened soda can. 
+
+“She’s a shy one. How was your run?”
+
+All the color had drained from his face.
+
+“Didn’t go.”
+
+Mickey opened the door just a little wider. A sliver of teeth. 
+
+“Why not?”
+
+“Hotter than hellfire out there.”
+
+I couldn’t argue with that, and I didn’t want to spend another moment around him doing so.
+
+“Well, let’s hope tomorrow is a better one for it. See you later, Carvel.”
+
+I slipped inside without waiting to hear his response, and Mickey slammed the door shut after me. I tried to offer her the snack I’d brought, but she didn’t show any interest until she was sure that I was okay. 
+
+The next week, things steadily started to get weirder. Carvel began to catch me in the hallway at a level that slowly became alarming. He tried to rope me into conversations, sucking me into endless spirals of thought that went nowhere. For the apology he gave me, he sure kept on prying. The small talk, though, I could handle. It was the times he went beyond that that truly had my nerves.
+
+“Do you think every man has a purpose, Sasha?”
+
+I’d made a late-night-almost-morning run to snag some takeout when he’d caught me in the stairwell. It was early on a Sunday, and he was usually gone all of that day. I was learning his schedule— adapting to avoid him. It wasn’t that I hated him. Not yet. Interactions with him had just become draining, and my alarm bells were still ringing with reckless abandon. 
+
+Despite all that, there he was. It took me a moment to process his question.
+
+“I… Well, I would say so. A wise man once said no man is useless in this world that lightens the burden of another.”
+
+He looked down at me over the railing and nodded thoughtfully. I clutched my greasy bag close to my chest and hoped I’d said the right thing to gain passage past him. 
+
+“Do you think it’s better to know what calls you? Or not know?” His voice was a whisper, like he was worried someone would hear him talking. Would hear us talking.
+
+“I think it’s better to let it alone until it comes to us.” 
+
+He stared at me, and I had to fight to keep from shutting my eyes tight. I finally let myself feel it without denial: the way my skin crawled and goosebumps rose, sweat beading between my eyebrows.
+
+“You may be right,” he said softly, almost dreamily. Then he walked past me and down the stairs, out of sight. I took the rest two at a time. 
+
+I redoubled my efforts to avoid him after that, and it seemed to work. I didn’t set my sight on him for almost two weeks, and then I got too comfortable.
+
+It was largely in part to the night before. It was the kind that makes you forget all of your troubles. Like waking up from a beautiful dream and lying comfortably in bed for the ten blissful minutes it takes you to remember you have work that day. 
+
+It had been a bit since Mickey had been out, and even longer since we’d spent some good, quality time together. The neighbor situation had me on edge, and she had noticed. When she suggested a date night, I couldn’t refuse. 
+
+I’d helped her pick out her best dress, and a quarter ‘til midnight, I’d taken her out to ride on the tube. Mickey was fond of trains, and the kinds of people that rode it around that time of night weren’t inclined to pick into anyone’s business, no matter what they looked like. We’d been catcalled once or twice, but a deep, rolling growl from Mickey had been enough to change their minds. After a quick bite at one of the larger stations, Mickey let me lay my head on her shoulder as we made our way home. I knew we looked strange, a short redhead in sweats and a beanie, and a too-tall blonde in a yellow sundress, dark red staining her teeth and dried onto her fingertips. But I didn’t care. 
+
+Riding that high made me careless. I was coming back from grabbing an iced coffee before starting work for the day when it happened. 
+
+“Sasha! Been a while, hasn’t it? How’ve you been?”
+
+Ice flooded through my veins, and I almost dropped the sweating to-go cup. I was too caught off guard to scurry back into the flat, and that was before he stood between me and my door.
+
+“Uh, I’m great, you know. Just out for a pick-me-up before another nice, long stint on the word processor.” 
+
+Nothing seemed terribly out of the ordinary. The sun was shining through the grimy windows and he was clad in his usual dress, a neat button up and tan slacks. The pendant he wore twitched as he spoke. Maybe, I thought to myself, I would get out of this one unscathed. 
+
+“Good, good. Listen, I just wanted to check in on you.” His voice took on a note of concern. “I heard you make it in late last night, and that was before I heard quite a lot of…”
+
+I knew the various ways that sentence would end. Bangs. Thuds. Scratching. Cursing. Screaming. The guttural, ragged moans of the damned. But I’ll never know which one he would’ve picked, because he trailed off, eyes going wide. 
+
+I followed his gaze to where I hoped it wouldn’t land but did. It was a hot day, and I’d found my favorite blue blouse at the back of our closet, the one I’d lost moving in. In my desire to look cute and stay cool, I’d forgotten about the long, angry scratch running up the length of my forearm. 
+
+Despite me bearing my soul on the internet right now, I’m usually a pretty private person in my own life. The last thing I’d do is explain what exactly we’d been doing the night before. But rest assured, the scratch I wore now, along with all the other assumed horrors my creep of a neighbor had heard, were consensual. 
+
+“Sasha…. Sasha, what happened?!”
+
+I wish he’d just been looking at my tits.
+
+“Who did this?” He said, outraged, before grabbing my wrist and pulling me closer to examine my arm. I yelped, but he didn’t seem to care.
+
+“Did *she* do this to you?”
+
+I tried to pull my hand away, but his grip was strong. The coffee slipped out of my other hand and splattered all over the floor. 
+
+“What? What kind of question is that?!”
+
+“You deserve someone better.” His voice was sharp and authoritative. 
+
+With those words, the growing fear that had been keeping me from my normal life finally alchemized into something else: anger. I shoved him with my other hand and ripped my arm away. Being the center of attention again, fresh scabs had reopened and it was bleeding down into my palm.
+
+“And you need to LEAVE ME THE HELL ALONE!”
+
+He held up his hands, trying to placate me with a gentler tone, but it was too late. He’d gone much too far, and I wasn’t listening. 
+
+“AND IT’S SAOIRSE! NOT SASHA. SIR-SHUH!”
+
+I wrenched open my flat door and slammed it in his face when he tried to come after me. The living room was as dark as the grave; the new blackout curtains were doing their job considerably well. I barely had enough room to catch my furious breath when the knocking started. A third emotion took center stage, much more powerful than the first two: a tired, quiet despair. This man wasn’t giving up, even if he eventually decided to leave for now. I slid against the door as my eyes adjusted to the absent light. 
+
+The love of my life was crouched on the coffee table, messily devouring the last scraps of a rat she must’ve caught earlier. Leftover blood bubbled out of her nostrils and painted her face as I tried to tune out the knocking to the sound of her huffing breaths and noisy chewing. She was the most beautiful thing I’d ever seen, especially compared to the monster trying relentlessly to get me to open my door. 
+
+As careful as I had been leaving the flat before, I tripled my caution after that. But something had changed, and at first, it was a relief. I didn’t see Carvel anywhere, no matter when I decided to set a nervous foot outside. He had all but disappeared. For about a week, it seemed like things were on the up. 
+
+Then, one day, I caught the faintest glimpse of him, staring at me intensely from the bottom of the stairwell as I was heading out to pick up groceries. By the time I made it to the ground floor, the only sign he’d been there was the heavy, echoing *shunk* of the metal door closing. 
+
+I started paying a closer mind, and in turn, I started noticing him more. He was just around a corner one minute, and gone the next. He was in the next grocery aisle over, and I’d caught his face between the shelves more than once. He was the shadow behind me as I raced home from an emergency ice-cream run. 
+
+I’d been stalked by a boy in secondary. He’d spread rumors about me, alienated me from my friends, and when I’d had no one left to turn to, he began to follow me just about everywhere I went. This culminated in him breaking into my bedroom one night. My father “dealt with him” after that, though he’d never tell me what that entailed.
+
+The boy’s not particularly important, and last I heard he was cleaning up sheep afterbirth. But the point is, the way I’d felt then was the way I felt now. It’s not just the act of being watched that’s so heinous, but the things it does to your psyche. It sticks with you, forcing itself into every waking moment. Even in a lit room with no way in or out, you’d never truly feel safe, or alone. In the back of your mind, there’s always that feeling of being watched. 
+
+I stood in the first shower I’d taken in three days, trembling, with my arms wrapped around myself. The water pressure came and went, leaving me itchy and uncomfortable. I tried to shake off the paranoia, but I only got part of the way into washing my hair when it all became too much. My eyes stung, from tears more than soap, and I shut them tight and clapped a hand over the sob that punched out of my chest. 
+
+The shower curtain shifted beside me, and I could feel the prickle of eyes on the back of my neck. A ghostly presence stood behind me, watching me, taking in a fiendish delight at my perceived ignorance and breathing in short, excited gasps beneath the hiss of the water.
+
+“*Boo.*”
+
+I turned, and Mickey’s smile dropped when she saw my bloodshot eyes. In an instant, her demeanor changed, leaning down to pull me into her arms. 
+
+“I will protect you,” she rasped in my ear, and in the coldness of her embrace, I let myself calm down.
+
+She kept her word. Whenever I went out after that, no matter what it was for, she always insisted on going with me. I had only given her brief explanations of what was going on; I didn’t want to worry her. But she’d always been good at piecing things together. The one drawback to it was that she didn’t like going out during the day, but in such a sleepless city, that wasn’t a problem for a while. The hiccups were worth it. Having her consistently by my side reminded me of better times, the long walks we would take together when we lived in the country. It was almost enough to make me forget the entire Carvel situation. That is, until he decided to stop being sneaky about it. 
+
+We’d come back from any manner of things we needed to do, at a quarter past fuck o’clock in the morning, and he’d stand outside his door, watching all the while we walked up. The most he would do was wave, but I quickly learned to turn my eyes elsewhere. Mickey, however, always stared him down. The one time he did try to speak to me, she pulled out the dog teeth, a snarl building in the back of her throat. If he hadn’t gotten the hint from me, she gave the game away.
+
+And yet, the watching continued. From windows. In the lobby. In the stairwell, walking only a flight of stairs behind. I found notes that I refused to read under my doormat, and scratches around the keyhole of my doorknob. I wasn’t stupid enough to believe that the cops, or anyone else for that matter, would be any help. My sanity was stretching thin and taut. I did my best to stay calm despite the escalating circumstances, but that little voice in the back of my mind kept telling me it was all building to a damned ugly head.
+
+In hindsight, a part of me wishes it had been something a bit more spectacular that started the slow nosedive into catastrophe. No mail bombs or butcher-knife-wielding manics. It was simply a minor technological failure that was the beginning of the end. 
+
+I’d had my work laptop a good many years, but the battery was giving the ghost. It couldn’t be reasoned with, and having it replaced was one of those special tasks you can only complete during the daylight hours. Mickey tried to insist on going with me despite her obvious dislike of the idea, but I told her I’d be fine. 
+
+Other than the desperate dash into the street, like the building had been lit on fire, the trip was nice. In spite of the everpresent unease, I could tell that my stalker was oddly absent. I chalked it up to maybe just a single afternoon’s worth of luck. I even got a deal on replacing the fried battery. 
+
+When I made it home, though, any notions of good fortune were instantly gone. My door hung open, the front mat slung halfway into the doorway and the doorknob looking worse for wear. 
+
+“MICKEY?”
+
+She was my first and only thought. I didn’t care if I walked into a flat stripped down to bare walls and floors. As long as she was still there. I went from room to room, checking under, behind, and inside of things. Very little was out of place, but I could tell someone had trounced through each room multiple times. 
+
+Eventually, I found her on top of the wardrobe, her body sandwiched in the thin space between the wood and ceiling. When she saw me, the scowl stuck on her face melted into worry, the red light of madness fading from her eyes.
+
+She needed a good tug to get unstuck, her claws coming free from the wood with a *ssscccratch*, her shoulder blades cracking as they bent inward and then snapped back into place. 
+
+“Mickey,” I caught her before she could hit the ground, “what happened?!”
+
+No sooner had I spoken the words, a storm of knocks filled the room, on every available surface. Then, though I’d closed and locked it as soon as I’d made sure the place was empty, the door swung open with a slow, metallic whine. Mickey looked at me poignantly.
+
+I didn’t have to ask who. I already knew. 
+
+“He came in here. While I was gone. What did he do?”
+
+“Not much,” she hissed. “Looked around.”
+
+If only he had stolen something— anything. If only I could have any other implication other than the one lonely, terrifying thought that what he was looking for wasn’t there, so he’d left. 
+
+Mickey licked her top row of teeth: a silent offer. I shook my head.
+
+“No, not yet. I think… I think we’re just going to stay inside for a while.”
+
+Mickey nodded, and without having to ask, brought and shoved the kitchen table in front of the door, slamming it shut with force and barricading it. I laughed, letting myself briefly think of zombie movies instead of home intruders and attempted assault. 
+
+For two weeks, I didn’t step a full foot past the threshold of the front door. Anything we needed, I had delivered, and I picked up the extra work to afford it. I felt sorry for the poor delivery drivers that I surprised at the door, leaping out at them like a snake in the grass to snatch whatever they held. I couldn’t give anything the chance to be tampered with, even at the expense of giving some kid the scare of his life. Mickey told me stories in her jilted words, and encouraged me to play games with her. But despite her efforts, I was sinking into paranoia. 
+
+I stopped going into the living room, unable to be next to the door to the outside. Then it was the kitchen. Finally, we both camped out in the only room that felt safe anymore. The place where I’d cleaned her up and cooed to her on many nights before, where I’d scrubbed bloodstains off of the tiles. Mickey tucked a blanket into the tub and settled into the corner of the ceiling, humming in an ancient tongue as I drifted. 
+
+I awoke to cold water on my face. In my groggy daze, I thought I might’ve accidentally turned on the shower head. When I opened my eyes, the truth was less easily fixed and much worse.
+
+A long, thin crack ran through the drywall above me, seeping water at an increasingly alarming rate. Morning sunshine was bleeding through the sliver of a window above me, and I had a single fleeting thought of how beautifully the water caught the light before the weight of impending doom set in. 
+
+Mickey wanted to go with me to talk to the super, but I refused. Us, our home— it would be safer if she stayed put. I locked the door tight behind me, feeling like I’d stepped into a minefield. I barely even let myself breathe. The lights felt too bright; the general building sounds were too loud. Before I could lose my nerve, I took off on tiptoes to the stairwell door. 
+
+The super was nice enough. I’d spoken to him once or twice before. But now, I was having to reevaluate ‘nice’. Carvel had been perfectly nice, if a little odd, until he’d suddenly changed. 
+
+Mr. Lockley, the super, was in his tiny office with the door ajar. It was three in the afternoon, and I realized that before now, I’d lost all sense of time. He looked up from whatever he’d been filling out to greet me with a kind smile and raised, bushy eyebrow.  
+
+“What seems to be the problem, Miss?”
+
+I’d meant to tell him about the leak, but the words that I stuttered out were: “someone wants to hurt me.” He sat his pen down and gave me a serious look, one that prompted me to continue. In a rush of tears and stumbling over my words, I laid out the last month and a half, hoping he’d get the gist. I just had to tell someone else; I couldn’t sit with it anymore. 
+
+When I’d caught up to the break-in, he held up a wrinkled hand. 
+
+“It’s alright, ma’am. I’ve seen your issue.”
+
+“Oh that’s… that’s good. I think maybe I should phone the police. I was hesitant at first, but I don’t think I can take—“
+
+“And don’t worry about your pipes,” he said, picking his pen back up, “I’ve gotten someone to take care of it.”
+
+It only hit me then. The odd word choice. I stood up from the chair I’d collapsed in. 
+
+“I didn’t tell you about my pipes.”
+
+Lockley chewed on the end of his pen with crooked teeth, staring down at his desk like it was the most interesting thing in the room.
+
+“Right. Suppose not.” 
+
+*Just give me a ring.*
+
+“Either way, they’re being seen to.”
+
+*Just give me a ring.* 
+
+“A good friend of mine was a plumber for about ten years. Before he decided to become a priest, of course.”
+
+*Just give me a ring.* 
+
+“I stay pretty busy, so I asked him if he could cover this one. He was pretty adamant about fixing your pipes.” He looked up at me. “And your wife.”
+
+I stared at him, dumbstruck. He watched me back,  almost expectantly. When it finally hit me what was *really* happening here, what had been happening this whole time, a wave of relief and clarity washed over me. 
+
+The first one started small, but I couldn’t keep it contained for long. I cackled, shattering the tension like glass. I laughed into my hands, folded over my face, until tears pooled in my eyes. Lockley didn’t look even half as amused.
+
+“There’s few people I’ve met in this world that I thought would be this unphased at the idea of an exorcism.”
+
+At the mere mention of the word, the laughter spilled out of me again, so intense it was almost painful.
+
+“And I get the feeling it’s not the reaction you or your little faith healer were hoping for.”
+
+I wiped the stray tears from my eyes. 
+
+“No, no, just wait. I can do better. Ah, just give a moment!”
+
+After a deep breath to fight off the rest of the laughter, I gave him a deep, overexaggerated gasp and took off out the door, calling Mickey’s name. I walked up the stairwell then. I wasn’t worried.
+
+My door was, predictably, wide open. It had been bashed in, and now hung off its weak hinges. 
+
+Carvel’s back was to me, and it was a shame I couldn’t see his face. Despite the cross he held out toward her, Mickey was advancing on him like a lion. He was chanting something, and she was gurgling in reply. Her limbs had stretched out, skin pulled tight over bones sitting at unnatural angles. She flashed him her jagged teeth in a malignant smile.
+
+She was showing off, like she’d always done.
+
+I know this isn’t a great place to stop for an anecdote, but a little context is necessary. Why wasn’t I afraid? Why wasn’t Mickey writhing around on the ground, subdued by the Lord’s Prayer?
+
+I met Mickey when I was studying abroad in Atlanta. I’d originally meant to go to New York, but some last minute clerical errors meant it was the only place left for the money I had. I took the disappointment in stride, and grew to really like the place.
+
+Not only that, but it proved to be the perfect background to work on my journalism dissertation. I’d be covering the fight for independent agriculture in an increasingly commercialized world. Armed only with a camera, a recorder, a rental car, and a blanket in my backseat, I made a trip across the South, documenting the sights and interviewing the locals between online coursework. 
+
+That one fateful stop was in Louisiana, deep in Cajun country. I’d met an old cane farmer while stopping in for a snack who took a raving interest in my topic, and he was all too eager to tell his story. Especially to a foreigner, so far removed from his tiny, humid world. 
+
+The next day, I drove up the dusty road to the farmhouse address he’d given me. We’d sat on his porch while I recorded his ramblings about Monsanto and rising fuel costs, trying my best to pick through his fascinating accent. When the night began to fall, and the bugs started to come out, he’d invited me inside. 
+
+“I was wondering,” I’d asked, as I sat down at the table with the glass of lemonade he’d offered me, “do you know someone that could show me around your little town? I want to get a feel for the culture here. I don’t want my piece to be *all* doom and gloom.”
+
+His eyes lit up and he whistled high and pleased. In hindsight, I’m sure he was trying to figure out which of his sons to try and marry off to the pretty Irish girl. 
+
+“Oh, sure, child. You got lots to see.”
+
+Like she wanted to be first, a young blonde woman shuffled into the room, in a pair of worn overalls. I could tell immediately that she wasn’t your typical farmer’s daughter. Yellow eyes and pointed nails, not to mention the strange, heavy aura she came in with.
+
+“Is this one of your daughters?”
+
+The answer came sharp and sure. He didn’t even look back at her. 
+
+“Mickey. Don’t pay her no mind. She a weird’un.”
+
+She paid me plenty of mine, though. She locked eyes with me and gave me the widest smile I’ve ever seen on anyone before or since. My heart fluttered. Then she flipped the switch by the sink, and the garbage disposal roared to life. I still think the strangest thing I saw that night was the fact that they even had one. 
+
+When Mickey shoved her hand inside, the farmer winced, and I screamed. Red flew out and splattered against the sink and wall as metal ground against bone. All the while, Mickey kept smiling. 
+
+I rushed over and yanked her hand out, bile rising in my throat at the sight of her mangled knuckles. Blood the color of the rising sun ran down her arm and dripped onto the wood. It stained my hands as I scrabbled for any idea of what to do. And then, in the space of a blink, I was holding her perfectly normal hand. There was even a bit of dirt still smeared into the palm, the remains of a hard day’s work. The only change was a few extra knuckles where they shouldn’t have been. 
+
+“That’s a really neat trick you got there, huh?”
+
+Mickey closed her hand around mine, and I blushed.
+
+“What about you? I’ll bet you’ve got plenty of things you can show me.”
+
+The farmer finally turned to look at us. His expression wasn’t unkind, but it was serious.
+
+“You take her? You gon’ keep her. Always been that way. Girl flew outta her mama on the wings of Hell and I been puttin’ up with her nonsense all the time then. No more.”
+
+I looked at him, then back at her.
+
+“What do you say? Would you like to come home with me?”
+
+In a voice straight from the grave, Mickey answered with the first word she’d ever say to me. 
+
+“*Deal.*”
+
+Mickey wasn’t a vessel for an ancient evil. An exorcism wouldn’t work on her, because there was nothing *to* exorcise. It was just the way she had always been. She was herself, and I loved her with all of my heart. 
+
+I stood in the doorway, watching her creep toward Carvel, when an idea struck me. I stalked up behind him, the way he’d done to me so many times before, and in a single, defiant moment, I leaned up close to his ear.
+
+“Boo!”
+
+He wheeled around to face me, his face red with rage and frustration. That was all the permission— all the opening Mickey needed. He only got out the word “you” before she leapt onto his back. He yelled, and in one quick motion, her jaw unhinged to her chest and she sank her teeth into the meat of his neck. Always the softie, of course she’d went in for the quick kill. 
+
+Lockley ran up about the time Mickey was devouring the bottom half of his head. When he locked eyes with me, lounging on the couch next to my feasting wife, all the color drained from him.
+
+“I think it would be best for everyone involved if the pipes in my apartment were so badly damaged that I wouldn’t get penalized for breaking my lease.”
+
+Mickey lifted her head from the body, staring him down as she chewed through a mouthful of gore.
+
+“Or maybe someone else would need to get *fixed*,” I added.  
+
+Lockley nodded slowly and backed his way out of sight, then took off down the hall. I just smiled, and walked over to sit next to my wife, glad the whole thing was finally over. I didn’t care about whatever he thought he was going to do. Nobody would believe him. Just like I’m sure that nobody will believe me. I’d almost prefer that, and in any case, it’s not the reason I wrote all this down. 
+
+After all of this unpleasantness, I think it’s best Mickey and I find somewhere else to go. Any advice would be appreciated. Preferably somewhere quiet— somewhere neighbors know how to mind their own business. 
+
