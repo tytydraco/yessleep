@@ -1,0 +1,245 @@
+There is no hope in this world of never-ending tragedy. The bar was set so high as a kid, only to end up in this lonely town that never moves. Might as well put a spade on the end of that bar and start digging your own grave. If the exhaustion doesn’t kill you, the boredom will.
+
+Speaking of boredom, that’s why I’m here. I’m not exactly sure where here is, but it’s where I am. You see, when you grow up in the middle of nowhere in Missouri, you find ways to entertain yourself. Where our property ends, the Mark Twain National Forest begins. What better way to cure boredom than to explore an endless world of trees, trails, cliffs, and caves? Did I mention no one knows where I am?
+
+There’s no thrill in safety.
+
+I haven’t walked these woods in over 10 years.
+
+I faintly remember the landmarks. The dry creek that acts as a natural property line. The crooked tree extending over the trail, pointing north. The sunken cliff face that acts as shelter from the spring rain or an icy fortress during cold winters. Some landmarks have stories.
+
+Dog Bluff is the fatal end of a trusty coon dog’s final hunt. A perfectly placed tree in the middle of a 30-foot-tall, crescent-shaped bluff provided the perfect escape route for a raccoon. I’ll spare the details on the dog. Just know hunters always get their revenge.
+
+And where do I find myself today? Lover’s Leap.
+
+Lover’s Leap’s story is fairly boring on the surface. Two lovers who were destined to drift apart decided to take matters into their own hands. The lovers… leaped. Hence the name.
+
+But I think it’s deeper than that.
+
+I don’t think people give enough horror credit to the Ozarks. In these woods, you see and hear things. Animals mostly. Mostly being the key word.
+
+I continue down the trail leading up to the base of the hill. The treetops sway in the breeze. Light breaks through the heavy foliage, casting shadows across the forest floor. The moss is soft beneath my shoes. The trail climbs sharply for a quarter of a mile before it begins to level out. If you’re not careful, the loose rubble from the weathered rocks will slip out from under your feet. I tread carefully, using a broken branch that resembles a wizard’s staff as a walking stick. I’d be casting fireballs at random squirrels if this were 15 years ago. 
+
+I hear a branch break farther up the trail. I quickly look up from the ground. I don’t see any movement. 
+
+“I guess I need to pay more attention.”
+
+I arrive at the branch that now lies across the path. I grab the thick end of the branch and it snaps in half. Rotted. The tree it fell from looked healthy. I look down at the rest of the branch and shake my head. 
+
+“Ah, forget it.”
+
+I toss the broken bit aside and step over the rest of the branch. It catches my right pant leg. I hop on one foot, trying to catch my balance as the rocks slip out from under my feet. I throw my arms out to catch myself. My palms sting from the sharp rocks.
+
+“Ow, God damn it! Fucking branch.”
+
+I can only blame myself for being lazy. 
+
+I wipe the dirt from my hands onto my jeans. It feels wet. 
+
+I glance at the glistening red rocks, then at my hands, shaking my head in disappointment.
+
+I didn’t bring anything with me. 
+
+There’s no thrill in safety.
+
+The trail finally levels out as I near Lover’s Leap. I’ve been so focused on staying upright that I didn’t notice the ringing.
+
+Or the silence behind it. 
+
+“Are you okay? I thought I heard someone fall earlier.”
+
+I freeze. 
+
+She must have come up a different path. 
+
+“Oh, yeah. Thanks. I-I’m all good.”
+
+I pause.
+
+“I didn’t expect to see anyone else up here. Not many people know about Lover’s Leap.”
+
+She smiles.
+
+“If you’re here, you might as well look with me.”
+
+She waves me over toward the cliffside. 
+
+I shrug.
+
+“Sure, why not.”
+
+There are multiple ledges that stick out 5 to 6 feet from the cliff wall. None of them are thicker than 3 to 4 feet. 
+
+I stop right before the ledge. 
+
+“This is far enough for me.”
+
+She giggles.
+
+“What, are you afraid of heights? You know, it’s not the fall that hurts. It’s the ground when you land.”
+
+Her smile widens.
+
+“I just don’t trust the ledges, that’s all…”
+
+She takes a step back further onto the ledge.
+
+“What’s not to trust?“
+
+She sticks her hand out.
+
+“Just don’t look down.”
+
+I grab her hand and she gently pulls me onto the ledge with her. 
+
+“I’m trusting you with my life right now.”
+
+She giggles, staring into my eyes. 
+
+“Maybe you shouldn’t have…”
+
+“W-what?”
+
+Her grip tightens around my hand as she takes another step back. Her heels are almost on the ledge. 
+
+“Why don’t you trust me?”
+
+She doesn’t blink. Her giggle turns into a laugh. 
+
+“Why don’t you trust me?”
+
+Her smile stretches to an uncanny length, still laughing. 
+
+She’s crushing my hand. 
+
+“Hey! You’re really starting to freak me out!”
+
+She puts her other hand around my wrist and throws herself back. 
+
+I pull back as hard as I can, keeping us both on the ledge. My shoulder pops. Pain shoots down my arm.
+
+“AAAHHHH!!! Fucking stop you crazy bitch! I don’t even know you!” 
+
+The laughing cuts off.
+
+My heart is pounding in my ears. 
+
+I can’t breathe.
+
+I look down at my hand. My fingers are purple from her death grip.
+
+She sighs. 
+
+My eyes hesitate to look up, but I force them to.
+
+Her body is relaxed. Expression blank, with eyes dead to the world. 
+
+It’s almost as if she is looking right through me.
+
+I pry at her hand. Trying anything to break her grip. 
+
+Her eyes twitch into focus.
+
+“No… no…. no…”
+
+In one smooth motion, she effortlessly pulls me closer. 
+
+“No! No! NO! NO! NO!”
+
+I lower myself closer to the ground, trying to get any leverage I can. 
+
+“WHY DON’T YOU TRUST ME?!”
+
+My vision blurs. 
+
+“WHY DON’T YOU TRUST ME?!”
+
+I reach back, searching for anything to hold onto. 
+
+“WHY DON’T YOU TR-!”
+
+I slam a rock into the side of her head. A haunting thud echoes below Lover’s Leap. 
+
+“WHY DON’T Y-“
+
+I feel her skull give under the blow of the rock. 
+
+Her speech slurs. 
+
+“WHY DON-!”
+
+Again. 
+
+“W-!”
+
+Again.
+
+Again.
+
+Again.
+
+Her grip loosens and blood rushes back to my fingers. 
+
+What’s left of her face is unrecognizable.
+
+She begins convulsing, stumbling back. 
+
+I reach for her, but my arm swings forward limp. 
+
+She disappears over the ledge. 
+
+I can’t move. Tears run down my face. 
+
+The sound of her hitting the ground cracks through the air.
+
+Followed by a scream that wasn’t mine. 
+
+“W-w-what have I done…”
+
+I peek over the ledge but I can’t see the bottom through the trees. I don’t know who’s down there. The screaming doesn’t stop. 
+
+Panicked, I back away, hoping they didn’t see me. 
+
+A guttural growl vibrates up the cliffside, followed by faint scratching. 
+
+The scratching gets louder, to the point it’s unbearable. 
+
+Silence. 
+
+Her voice whispers softly in my ear. 
+
+“Why don’t you trust me?” 
+
+I spin around. Nothing. 
+
+I turn back. 
+
+A mangled hand reaches up over the ledge. Only the arm stretches far longer than it should. 
+
+“Fuck this.”
+
+I run faster than I’ve ever run before. 
+
+Heart beating out of my chest. 
+
+Sliding down the hillside. 
+
+I can hear branches breaking behind me. 
+
+Trees being pushed over. 
+
+It’s frantic and frustrated. Struggling to mimic her voice, instead sounding like multiple people at once. 
+
+“WHY DON’T YOU TRUST MEEEEEEEEEEEEE!!!”
+
+I leap over the fallen branch, hoping that it ends this nightmare. It catches my leg again, slamming me into the ground without warning. 
+
+I can’t stop. 
+
+The sunken cliffs. 
+
+The crooked tree. 
+
+The dry creek. 
+
+Home.

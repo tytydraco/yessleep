@@ -68,7 +68,7 @@ As the characters danced on the screen, acting out the story of the week, Kayla 
 
 “I guess so.” She replied.
 
-We sat there, watching the characters on screen dance for an hour. We then went to the playground across the street for an hour. My mom drove us to an ice cream place near the beach, where we hung out for an hour. The sun wasn’t beating down on us, as it would before school let us free. I remember I had vanilla. Kayla had cookie dough. I had mint chocolate chip. We walked along the shore for a while. The waves splashed down beside us, and the seagulls squealed above us.
+We sat there, watching the characters on screen dance for an hour. We then went to the playground across the street for an hour. My mom drove us to an ice cream place near the beach, where we hung out for an hour. The sun wasn’t beating down on us, as it would before school let us free. I remember my mom had vanilla. Kayla had cookie dough. I had mint chocolate chip. We walked along the shore for a while. The waves splashed down beside us, and the seagulls squealed above us.
 
 We got back to the apartment complex not long after and saw kids walk into the clubhouse. We didn’t see Darren; not yet anyway. We did see Sammy, our tomboy. She was really into basketball and played for the school team. She also had a level of sass to her that we wouldn’t dare replicate unless we wanted a smack upside the head from our mothers. Mom parked the car in our spot at home, and we walked to the clubhouse.
 
