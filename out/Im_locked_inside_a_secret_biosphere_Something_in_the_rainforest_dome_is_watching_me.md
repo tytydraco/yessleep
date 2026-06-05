@@ -1,0 +1,103 @@
+So I’ll start by saying that i’m just a normal guy. I’m not a scientist, or math guy. I am a normal middle aged dude that needed money and therefore a job.
+
+I spam applied to a bunch of places. Shitty restaurants, bars, hotels whatever - I have a record. Nothing crazy before anyone asks. But yeah beggars can’t be choosers or whatever they say. 
+
+Most places ignored me. BUT after a week or so..
+
+I got a response from one. The one i’m at now. As a night security guard. 
+
+The company is called Grey Ark. Yeah it's a stupid name but it paid double all the other shit I applied for. 40 bucks an hour PLUS an overnight bonus. 
+
+Fast forward - I accepted it, and they sent me text with office address and a date/time to show up. 
+
+For context I live in Southeast kentucky. Right along the stateline, Grey Ark’s office is in the Appalachian mountains. 
+
+Aka middle of fuckin nowhere. It isn’t that far from me - but we didn’t even hunt there growing up. It's straight woods, and dense. You ain’t finding buck or anything up there. 
+
+So I drove about 40 mins northeast. Of course it's a sketchy ass dirt road, with a weirdly modern electronic gate. The gate lifted when I got there. Automatic. No one was in the booth. 
+
+I kept driving for another couple minutes before I saw the tunnel. It was cut straight through the mountain ahead of me. Now this is coal country. So it's not uncommon that you’d drive through weird tunnels, or mines. 
+
+But still. It was strange.
+
+I drove through the tunnel - water was running from the walls. It felt freshly drilled even though it probably wasn't. 
+
+When I exited it - that was my oh shit moment. 
+
+Tucked in around thick Appalachian forest and huge mountains were 5 MASSIVE glass domes. And one smaller glass dome at the entrance. 
+
+It looked amazing to be honest. It looked like a giant bird structure you see at a zoo so they can’t get out. 
+
+All the domes were connected by tubes, dome to dome. I couldn’t really see through the glass, it was bright out - but it looked like some sorta nature element inside of it. Some of the domes super green others reddish. 
+
+But huge. Each dome is football field sized in length and width, and maybe 5 stories tall.  
+
+I parked my truck out front - not a single car outside. I went to check the address on my phone. No service. But the right place. 
+
+I got out and headed to the front door. 
+
+It looks futuristic in a way. Double sealed from the outside. PROJECT GREY ARK imprinted in metal on the door. 
+
+I stepped closer, and the first glass door opened. 
+
+This is where I fucked up. My gut said it. My heart said it. Shit I practically said it. 
+
+TURN THE FUCK AROUND AND LEAVE. 
+
+Well I didn't. I stepped through the first glass door - and it slid shut behind me.
+
+Then once in the space between the two glass doors. Roughly elevator sized. A white smoky mist came down into it. 
+
+It felt warm to the skin and smelled like chemicals. Disgusting chemicals. 
+
+I turn around to leave - the doors locked. Thats when I knew I fucked up. 
+
+I covered my mouth. For sure I was being kidnapped, or something worse. Some sorta fucked up thing but….
+
+The doors opened. 
+
+And I was in a lobby - empty. The walls covered in maps, and almost promotional signs. Signs you’d see at a zoo…except this one forgotten. Everything is SUPER clean, like no one has been here in years. 
+
+So what is this place? 
+
+Well from what I can tell, it’s some sort of biosphere. 
+
+You may have heard of biosphere 2. The giant structure out in Arizona USA. It was all over the news. (my dad was a bio teacher so knew about it)
+
+If you’ve never seen a biosphere, picture a bunch of huge glass domes connected by concrete tunnels.
+
+Like oversized greenhouses, except each one is built to represent a different part of Earth.
+
+One dome is a rainforest. Another is a desert. Another is frozen over like tundra. There are plants, insects, animals, soil, water systems. All of it sealed inside these giant glass domes. 
+
+The idea is that nothing comes in, and nothing gets out. Ya know - for science, testing stuff and what not. 
+
+So from what I’ve gathered - maybe this is biosphere 3 but ran by different people? Called “Project Grey Ark”. The map says similar stuff. Theres a tundra room, a rainforest room, a desert, an ocean etc. Theres a couple unlabeled rooms.
+
+I’m currently at the entrance. To the right of me is the rainforest room, then it basically loops around in a circle, passing through each dome. It says “exit” at the end of the circle after the tundra dome. But I don’t really buy that considering the front door doesn’t open. 
+
+To be clear there are only two doors in this lobby area. One is the exit (that doesn’t fucking work) the other is the rainforest room.   
+  
+Through the glass I can see into the rainforest room. There are definitely animals from what I can see, shapes moving beyond the glass door. More every hour. Mist clouds it a bit. 
+
+Next to the rainforest entrance is a metal rack full of stuff I guess you take in with you?
+
+Rubber boots. Gloves. A hooded rain jacket. A backpack. A flashlight. Some kind of mask or respirator. A machete…
+
+So yeah - That was 3 hours ago. You're caught up now. 
+
+I was able to get into one of the computers sitting on the reception desk. 
+
+I never said I was dumb. I am not that smart school wise BUT I am great at cracking into stuff. Well, actually thats part of the reason I got locked up in the first place - but thats a story for another time. 
+
+The computer looks new and has internet(i think) but everything is weirdly old? Like the websites and news is stuff from 90s? I can't actually access any modern web page? 
+
+I’m not even sure this is going anywhere? It’s just a message board with a post button. There are old messages on it but they don’t really make any sense....
+
+There it is again.
+
+Another shadow behind the rainforest door.
+
+This time it's not moving away from it. Just standing there. 
+
+Can anyone read this?   
