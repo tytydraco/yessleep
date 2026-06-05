@@ -64,7 +64,7 @@ Not one skin. Many.
 
 A patchwork of arms, stomach flesh, thighs, and faces stretched over a shape too tall to be human. One shoulder was broad and dark. The other was narrow and white and stitched crooked. Its chest pulsed in sections, like separate hearts were arguing inside it. Tubes ran under the surface of its body, squirming like worms.
 
-Fresh parts shone pink and wet. Older ones sagged gray-green. One hand was small, maybe a woman’s. Another was swollen and [rotting](https://www.reddit.com/r/PageTurner627Horror/comments/1qkltm4/the_unwrapping_party_revised/) at the fingertips.
+Fresh parts shone pink and wet. Older ones sagged gray-green. One hand was small, maybe a woman’s. Another was swollen and rotting at the fingertips.
 
 Its head turned toward me.
 
@@ -138,4 +138,4 @@ You can live without part of a lung.
 
 You can live without an eye.
 
-Because once you learn your [body](https://www.reddit.com/r/PageTurner627Horror/comments/1tsovdx/resist_the_devil_part_1/) can be turned into money, every piece of it starts looking like a paycheck.
+Because once you learn your body can be turned into money, every piece of it starts looking like [a](https://www.reddit.com/r/PageTurner627Horror/comments/1jfen0f/the_unwrapping_party/) [paycheck](https://www.reddit.com/r/PageTurner627Horror/comments/1tsovdx/resist_the_devil_part_1/).
