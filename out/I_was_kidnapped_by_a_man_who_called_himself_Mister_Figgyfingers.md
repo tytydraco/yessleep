@@ -16,7 +16,6 @@ Across from me I heard the-
 
 *(grunting)*
 
-  
 \-groaning again and I finally saw Cody’s broken figure. I went to him quickly and he winced and screeched at me not to touch him.
 
 “Cody, Cody, it’s me! It’s me!” I said desperately. He didn’t have a clue.
@@ -27,8 +26,8 @@ Across from me I heard the-
 
 I looked around. It was a big room. Almost completely bare. Stains all over the floor and-
 
-*(mud)*  
-  
+*(mud)*
+
 \-dirt smeared everywhere. The section where Cody and I were was lit by that large bulb and the far section straight ahead was veiled in shadow. That’s where the stains were darkest on the floor, leading straight into a void completely absent of light. I strained and strained to see. There were shapes but I couldn’t quite make out…
 
 Cody began to whine and cry and I looked down at his leg. It was bent forward at the knee unnaturally. Swollen like some rotting fruit and it looked like it was about to burst out of his pant leg.
@@ -79,7 +78,6 @@ Cody began to scream and cry and I felt my bladder go. Nothing like that has eve
 
 *“...You boyth can call me Mister Figgyfingers…”*
 
-  
 He held up his hands for us to see in the light, grinning like a child on Christmas. Nine of his ten fingers were missing the ends at the joint. All but one of his fingers were nubbed off at the end, leaving an old scarred stump where his fingertips and nails should be. The only one left, being his right thumb.
 
 I gagged. Cody was silent in awestruck horror. Mister Figgyfingers smiled.
@@ -96,3 +94,4 @@ The man licked his torn lips. Mucus and spittle leaked from the gaping maw of *t
 
 *“Would yu like to meet nvy Figgies?”*
 
+[Part III](https://www.reddit.com/r/nosleep/comments/1tx7ow3/mister_figgyfingers_made_me_dinner/)

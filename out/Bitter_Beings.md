@@ -2,7 +2,7 @@ When my mother was alive, she was quite the storyteller. 
 
 My brothers and I were constantly told stories of her youth, how she met our father, what we were like as babies—but those were never our favorites. No, what we loved were her scary stories.
 
-She was a master of horror; she would go all out with flashlights, spooky music, everything. We’d hear the usual stories of crazy axe murderers, escaped mental hospital patients, even a story we were sure was Slender Man, despite her denial of knowing what that was.
+She was a master of horror; she would go all out with flashlights, spooky music, everything. We’d hear the usual stories of crazy axe murderers, escaped mental hospital patients, even a story we were sure was Nightmare on Elm Street, despite her claimed ignorance of it. 
 
 But there was one story we heard more than the others, one we always wanted to hear: The Bitter Beings. 
 

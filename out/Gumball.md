@@ -1,0 +1,73 @@
+“I’d like to pay for your services tonight.  Thirty-minutes of dancing.”
+
+“You understand payment is required up front before the show begins.”
+
+“Understood.  I have a heavy wallet.”
+
+There was no hint of excitement or nervousness in the man’s voice.  A purely transactional monotone voice.  Rather unusual for my line of work as an escort. 
+
+“I imagine you are familiar with the optional add-on services?”
+
+“Indeed.  I’d like the session to include touching.”
+
+“Okay honey, I will see you tonight.”
+
+My stage name was Veronica Viper. 
+
+WATCH OUT, SHE WILL STRIKE!
+
+That’s what my ad in the papers said about me.  Men loved it.  They drooled at the thought of me lashing out at them.  It turned them on quickly.
+
+Even though I was pushing thirty and getting tired of satisfying disgusting men, I needed the money.  It was the only good gig I’d ever had.
+
+After freshening up and getting dressed, I drove over to Mr. Wallace’s house.
+
+When Mr. Wallace opened the door, I almost threw up; he was revolting.  Obese and a stench of rotted mayonnaise. 
+
+“Come on in and get comfortable,” he said with a flat, unenthusiastic voice while handing me a stack of cash. 
+
+He studied me up and down with his brown, lifeless eyes, breathing heavily after shutting the door.
+
+There was something different about this man, and it made me a little anxious.  He took his seat in the recliner, his eyes never leaving me.  I lifted my legs on top of his and straddled him.
+
+“No, I want you over there.  Next to that table.”
+
+He motioned for me to walk over to a round table with a bucket on top of it.
+
+“They are gumballs.  Chew one,” he said.
+
+Normally, I would refuse such a request, but this Mr. Wallace was starting to give off an unsettling vibe, so I complied.
+
+“Do you have like a music speaker?”
+
+“Not necessary.  Just dance and chew.  Take another gumball and put it in your mouth.  I want you to blow a bubble big enough to cover your face.”
+
+I looked down at the bucket; it was filled with dozens of gumballs.
+
+“Another please.  Fill your mouth.”
+
+By the time I had six or seven gumballs in my mouth, I was finding it difficult to chew.  But then I did it.  I was able to create a huge bubble.
+
+“Pop it,” he whispered.
+
+The gum popped and spread over my face, reaching just over my nose.
+
+Mr. Wallace jumped up and approached me.  He slammed me to the ground and pressed his meat hook of a hand against the chewed gum.
+
+“Get off of me you creep!” I tried to scream.
+
+“You don’t remember me, do you?  Dorky Derek, you used to call me in school.  Those damn bubbles you’d pop with your pink gum after insulting me.”
+
+His hand squeezed harder against my face.  I could feel him firming up beneath his jeans.
+
+“I…”
+
+“I can’t hear you.” He stuck a sweaty finger into the gum to poke a hole.
+
+“I remember you.  I’m sorry we were so mean to you.  We were just dumb teenagers.”
+
+With his finger brushing my tongue, I figured it was my only shot to save myself.  I bit down and chewed into his bone.  He flailed backwards and let out a whine like a crying baby.  I stormed out of there and drove off.
+
+When the police made it to his residence shortly after I had left, he was gone. 
+
+Three days later though, they found his body near a small creek.  His mouth was filled with chewed gum. 
