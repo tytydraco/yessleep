@@ -1,0 +1,161 @@
+[Previous Part.](https://www.reddit.com/r/nosleep/comments/1l8n241/im_a_private_investigator_for_the_vatican_i_will/)
+
+Linked above is my account of how I began my work as a PI for the Vatican three years ago. Since then, I have not had any other investigations under their employment until a week ago. In that time though I was not just sitting on my ass, I have traveled and learned more about the faith. This was in part due to the potential supernatural dangers that could occur on the job.
+
+Due to what had occurred on my last job, for those who haven’t read I encountered a vagrant practicing satanism, I also have been taking martial arts and have begun carrying a firearm. That’s enough talking about the past, as everyone I’m sure is interested in what my most recent investigation had in store.
+
+It began with me being flown to the Vatican, I will say the experience was comfortable but was far from first class. I spent the night in a hotel, before meeting with Cardinal Christoph of Austria to discuss my investigation. He informed me that they’d lost contact with a monastery located within the town of Gussing. In 2013 it was renovated, making it more comfortable for those who stay. It has become a place of pilgrimage due to its historical roots in the Catholic Church.
+
+“How have they cut off communication, aren’t they a popular pilgrimage destination? I mean someone would have seen them.” I responded to the Cardinal.
+
+“Pilgrims still flock to the monastery but get no response. No self-respecting pilgrim would break into the place and stay in town hoping to visit.”
+
+“What about the local law enforcement, shouldn’t they do a wellness check?”  
+
+
+“Law enforcement avoids interfering with church business when they can, as far as they’re concerned it may be some kind of religious practice.”
+
+I had hoped for a different answer. “So, what is the plan, you want me to break in alone?”  
+
+
+“No not alone, a local priest from a nearby village will assist you.”  
+
+
+After some more discussion it was clear I was off to Austria. I won’t bore you with the details of the trip. The priest I was to work with was from Vienna about two hours away from our destination in Gussing. His name was Father Otto, he was 42 being a priest for 14 of those years, and he spoke both English and German. We had a pleasant conversation about our experiences with the church and theology on our drive. I told him about my previous job and how that went haywire.
+
+Once we reached Gussing we parked our car in town and waited for nightfall, considering we would be breaking into the monastery. He deferred to me and let me take the lead as this was more my area of expertise.
+
+While waiting I asked Otto what I should expect there. He told me the monastery was built on top of a crypt, which could be accessed from the courtyard in the center of the monastery. The crypt was made to house the remains of the Ballarat family and monks who had died at the monastery. In total over 150 people were buried under the monastery including 43 monks. There were 12 living monks who had stayed at the monastery.
+
+Night fell as I worked my way around the monastery looking for some kind of window. I eventually found one with a stained-glass picture of the virgin Mary, since there was no other way in, I shattered the window and began to make my way through the broken glass careful not to cut myself. As I entered, despite not being an overly religious person, I made the sign of the cross asking for forgiveness.
+
+Immediately upon entering, a wave of drowsiness hit me. I then turned to help Otto through the window. We made our way through the halls of the monastery to the room with the main altar. I believed if I were to find those missing monks that would be the best place to do so.
+
+It was difficult to see as there were no lights, we had to use flashlights throughout the halls. As I opened the door to the main altar room a smell hit my nostrils that snapped me out of my drowsy state. I had smelled it before back in the abandoned house.
+
+I held Otto back telling him he didn’t want to see what was inside. He insisted on entering with me. As we entered, we could see both the front door and the door into the courtyard. The courtyard door was open allowing in a chilly breeze. The front entrance was barricaded with furniture; I assume from the rooms that the monks would stay in. No one would be able to enter or exit.
+
+The candles that would normally light the hall had all of their wax melted, meaning they were burning for some time. Eventually I looked towards the pews and saw them. The bodies of the monks were prostrated on their knees bowing towards the shrine. Upon closer inspection they were just beginning to rot, meaning they had been dead for only a couple weeks. Guilt immediately hit me, had we sent help sooner they may still be alive.
+
+One thing was odd though; upon examination of three corpses there were no signs of trauma or lacerations. I could not determine how they had died. I did a headcount and noticed that there were only 11 corpses in the room. Perhaps Otto had added one by mistake I thought to myself. When I looked, back Otto had begun to tear up and had prostrated himself facing the shrine.
+
+I went up to him and grabbed him, “hey come on we need to look around for clues that’s what this job is about.”
+
+He followed my lead as we went into the courtyard, the doors to the Ballarat family crypt were also pried open. “Come on if whoever is responsible is still there, we need to confront them.” I flashed him my firearm to reassure him “I’ll keep you safe and we can avenge your brothers.”
+
+We descended into the crypt. As much as I would like to say the descent was terrifying, it wasn’t, there was little noise and little out of place on the way down. Once we reached the bottom, we noticed that the candles were still burning, and that the sarcophagi were ajar corpses missing.
+
+We made our way through, finding nothing until we reached the Ballarat matriarch and patriarch’s sarcophagi. They were the only two not disturbed except for the patriarchs having a carving in the top. I read it out loud: “Baal Peor? What the hell does that mean?”
+
+Father Otto gripped his crucifix tightly clearly shaken by some kind of revelation. “Baal Peor is another name for Belphegor. The demon that many attribute to sloth.”
+
+“So, you’re telling me all of this has to do with sloth?” As I said it, I put the pieces of the puzzle together. The bodies out there had no marks because they were not killed with a weapon or by some extraordinary means. It was their inaction that led to their death they probably had died of dehydration. “Why would a demon like Belphegor want to target a monastery, isn’t that risky?”  
+
+
+He responded with his knuckles growing whiter as he gripped his crucifix. “It is said that the demon Belphegor likes amethyst as it has calming properties. The Ballarat family wore amethyst pendants.”
+
+His words seemingly made no sense, but to get to the root of this mystery I determined that I would have to open the sarcophagi. As I opened the patriarch’s sarcophagus a stronger wave of drowsiness hit me and the last thing I remembered was my head hitting the stone floor.
+
+I awoke, but I did not know how much time had passed. Father Otto was no longer with me, so I made my way through the crypt and towards the stairs up. Light beamed in which told me it must be morning. I ascended the stairs into the lush grass that made up the courtyard, and I could see the white stone used to make the monastery beautiful during the daytime.
+
+On the grass was a young woman in her early twenties, she was brunette and had on a nun’s outfit. I don’t mean to sound perverted, but she had curves the outfit could barely contain and had gorgeous features. She patted the ground and asked me to sit with her. She spoke in a perfect midwestern accent.
+
+As I sat, she began to speak “Wow you were out for a while. Father Otto went to get help, and they found the bodies. Those poor twelve monks.”  
+
+
+I thought for a second. “Twelve there were only eleven, unless one was found.”  
+
+
+She replied, “Yes he was found in the sarcophagus of the matriarch I do not know how he ended up there” She chuckled.
+
+It was an uneasy chuckle, but I went along with it. “How long was I out, for you to be here it must have been a while.”  
+
+
+Her chuckle continued “Yes, you’ve been out for over a month, they didn’t want to move you though as you were somehow surviving in that state. Since then, we have begun repopulating this monastery with other monks, you’re a real hero you know.” She then touched my leg.
+
+Once she moved her hands to touch me, I saw her crucifix it was upside down. I chuckled and reached for my firearm, trying to keep cool. As I reached, I felt nothing on my hip, did I leave it in the crypt, did it fall out in the monastery? My mind scrambled to find an answer.
+
+As I turned to look for my gun she began to speak, her voice distorting from female to male, while remaining calming. “Why did you have to go and ruin our moment I thought we had something.” As I looked back towards the voice there was now a different being.  
+
+
+I will do my best to describe its looks from memory. It had a sheep’s head with a blueish tone, while it had a humanoid shape to its body. Its feet were hooves, and the sheep’s head had fangs of some kind almost like a viper.
+
+“What the hell are you?” I asked quickly, scrambling to my feet in an effort to retreat.
+
+It responded “Sit I will do you no harm here. You are safe and I will answer your questions.”  
+I sat back down realizing that it would be useless to resist I was clearly out of my realm here. It chuckled attempting to pat me on the head as I pulled away. “I am Baal Peor or as you call me Belphegor, the patron of sloth.”  
+
+
+“Patron? More like a demon” I retorted as it continued speaking.
+
+“I am no demon!” He responded the first time I heard any emotion other than calm.
+
+“Then why kill those monks only something as evil as a demon would do that.”  
+
+
+“Only one holy man had to die for my part it was his request that the rest died” Belphegor seemed almost saddened by that statement.
+
+“Who asked you to kill those twelve monks?”  
+
+
+He quickly corrected me “Eleven, it was at the request of another monk though I will not tell you, his name.”
+
+Another monk I thought to myself. Why would someone devote their life to being a monk and throw that away to summon a demon, unless…
+
+Belphegor raised its hand and within it was a large book. “I understand you are a private investigator. Stop investigating for the Vatican and this book could be yours.”  
+
+
+“Why would I want some old book?” I asked, “What good does that do me?”  
+
+
+Belphegor let out another chuckle. “This book will have the answers to every case you will ever work if you leave the Vatican’s employment. Use it properly and you will be the most popular private investigator in the world; you will join the ultra-wealthy.”  
+
+
+I must admit that was an enticing offer. I’m not proud to admit this next part but I truly considered it for minutes before deciding what my next move should be. In my defense both of my jobs with the Vatican have put me in danger, this would be a chance to keep myself safe on future jobs while leaving this dangerous, and quite frankly terrifying life behind.
+
+As I thought about the dead monks inside though I quickly snapped to my senses. “No deal, I don’t know what your game here is, but I will not accept it. So, you might as well just kill me.” I instantly regretted the last words of that sentence as they came out.
+
+“Foolish mortal, I offer you a way out, a way to the life of luxury. This game we play will go on far after you are gone and have been running since far before you have ever known life!”  
+
+
+I reasserted my answer “I decline now either let me wake up or finish me off I will not give in to your temptations.”
+
+“I should just leave you here!” it snapped as it disappeared. I began to freak out thinking back to the monks, they may have been in a similar predicament to me. Thankfully I did not have to worry for long as within a few minutes I had awoken back on the cold hard stone floor of the crypt.
+
+As I stood up my head hurt and I immediately felt for my gun, I would not make the same mistake twice. Thankfully it was still there, meaning I had probably woken up for real. I looked around and noticed that the patriarch’s sarcophagus lid was on the floor from when I opened it. Father Otto was also nowhere to be seen in the crypt, meaning I would have to look around the monastery for him.
+
+I peered into the sarcophagus thankful to see nothing but bones and the glint of metal as a shined my flashlight into the sarcophagus. It was the pendant that I was told about by Father Otto, where the amethyst should be nothing. I opened the matriarch’s sarcophagus and noticed that the pendant still had its amethyst. I wondered to myself why stop at just one if it was so important to you.
+
+I began to make my way through the crypt and up the stairs. Light did not shine like my dream meaning it was still nighttime. As I made it to the courtyard, I took note of how barren it was compared to my dream, and the door to the monastery was closed, I could have sworn it was left open.
+
+I opened the door and stifled a gasp. Father Otto was in a trance-like state on the floor similar to mine. He was surrounded by bodies, and that is when it clicked there were far more than the original 11, there were at least 40. I walked in cautiously pulling my firearm and aiming it at the bodies being careful not to aim it towards Father Otto.
+
+As I walked towards him, I noticed they were nothing but skeletons in robes and they were not moving. That’s why the sarcophagi were empty. I walked over to Father Otto, and he was in a catatonic state. I lifted him up in a firemen’s carry and began making my way towards the broken window.
+
+Walking through the hall, I realized I hadn’t seen the original 11 bodies and decided to shine my light into the rooms we had passed on the way to the window. In them were the bodies of the decaying monks in their own beds. Once I reached the window, I tossed Father Otto outside and climbed through. Once I was through, I began to lift him up as he awoke.
+
+He screamed before I shushed him and asked him what he saw. His response still gives me goosebumps to this day. “I saw nothing, nothing but you trapped in the patriarch’s sarcophagus while I was trapped in the matriarch’s sarcophagus. We were being buried alive.”  
+
+
+I tried to calm him and drove him back to Vienna that night. By midday I was back on a flight to the Vatican to give my report. Despite how tired I was I couldn’t sleep out of fear I would see Belphegor again.
+
+The official story is that upon investigation the monks had all died of carbon monoxide poisoning explaining the lack of marks. The skeletons and the missing amethyst have been credited to graverobbers.
+
+I was given a nice bonus of $50,000 for my work in Gussing and still keep in touch to make sure Father Otto is doing alright. I have also been able to sleep at night much easier, avoiding any encounters with Belphegor, even though I sometimes dream of that book and what could have been.
+
+I still wonder about three things. First why only take one amethyst if Belphegor was so fond of them? Secondly, who moved Father Otto and the bodies of those deceased monks. Finally, what did Belphegor mean by this has been far longer than anyone has known.
+
+I still don’t know exactly why I stayed after this, I believe it was my curiosity. I want to know what happens next and figure out why those poor monks had to die. As for why I’m writing this let’s say it’s to get the truth out there, there are forces beyond our comprehension at work, and those monks deserve the truth to be spread. Even though they said it was a carbon monoxide leak I know what truly happened at the monastery in Gussing.
+
+Postscript:  
+I have been called back to the Vatican regarding another case. Hopefully I can share the details of this case quicker than the last one. Thank you for allowing me to share my thoughts with you and checking in to make sure I was alright after I left you all without answer about this case.
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
