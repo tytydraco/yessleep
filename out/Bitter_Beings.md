@@ -36,7 +36,7 @@ I counted center lines on the road as she slept, a long sigh escaping me.
 
 With Angie here, it was easier. But, with her asleep, with my own thoughts, I had to remember; Mom was dead. I was driving back home to bury her. 
 
-It wasn’t the fact that she died that ate away at me. She had been dying for years. I was happy her suffering ended. What is killing me is the guilt—the guilt of never telling her, never telling her about Ashley and me, never coming out to her. She died without knowing her daughter was in love. 
+It wasn’t the fact that she died that ate away at me. She had been dying for years. I was happy her suffering ended. What is killing me is the guilt—the guilt of never telling her, never telling her about Angie and me, never coming out to her. She died without knowing her daughter was in love. 
 
 I was far too scared to tell her. When I told Dad, that was the last thing I’d ever said to him. \*No daughter of mine is fucking a black girl,\* he shouted through his closed front door. If Dad thought that way, I couldn’t take the risk of Mom feeling the same. I couldn’t have her die hating me, resenting me, wishing I was someone I wasn’t. 
 

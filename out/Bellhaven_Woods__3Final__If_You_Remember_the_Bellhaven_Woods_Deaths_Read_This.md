@@ -388,7 +388,7 @@ The north trail climbed uphill sharply and Iris could barely keep pace. Half the
 
 Then my feet went out from under me.
 
-I don't know exactly how it happened: a root, a dip in the trail, Iris's shoulder suddenly against mine at the wrong angle. The edge of the trail had given way to a steep embankment hidden beneath leaves and undergrowth. We hit it sideways and went rolling down through the darkness. My flashlight tore free from my hand and disappeared ahead of us, the beam spinning wildly between the trees before vanishing altogether. Something struck the side of my head hard enough that a burst of white exploded across my vision.
+I don't know exactly how it happened: a root, a dip in the trail, Iris's shoulder suddenly against mine at the wrong angle. The edge of the trail had given way to a steep embankment hidden beneath leaves and undergrowth. We hit it sideways and went rolling down. My flashlight tore free from my hand and disappeared ahead of us, the beam spinning wildly between the trees before vanishing altogether. Something struck the side of my head hard enough that a burst of white exploded across my vision.
 
 The world tilted and tilted and then stopped.
 
@@ -400,11 +400,11 @@ The beam flickered once before coming back to life, and I raised it to see Iris 
 
 Her eyes caught the light, reflected it back, stopped, then did it again, as if they were toggling on and off. Her cross necklace had come out from under her shirt. It hung against her jacket, catching the beam.
 
-Just as I tried to push myself up, she began to speak. The first words sounded vaguely familiar without being understandable. I recognized enough of it to suspect Latin, though I knew almost none of it beyond what I'd briefly heard her speak before. Listening to Iris then, I understood exactly what Cecile had meant months before.
+Just as I tried to push myself up, she began to speak. The first words sounded vaguely familiar without being understandable. I recognized enough of it to suspect Latin, though I knew almost none of it beyond what I'd briefly heard her speak before.
 
 But the language changed.
 
-She was speaking in full sentences in what seemed like a real language, but kept pausing. The words became harsher and less recognizable. Certain sounds stretched unnaturally. Others seemed to stop midway through. The longer she spoke, the less human it sounded.
+She was speaking in full sentences in what seemed like a real language, but kept pausing. The words became harsher and less recognizable. Certain sounds stretched unnaturally. Others seemed to stop midway through. The longer she spoke, the less human it sounded. Listening to Iris then, I understood exactly what Cecile had meant months before. 
 
 I spent several seconds trying to understand what I was hearing before realizing: she was speaking it backwards.
 
@@ -418,7 +418,7 @@ The sound that came out of her mouth wasn't something I'd ever heard another per
 
 The pitch of her scream, if you could call it one, shifted unnaturally as it continued, rising and dropping in ways that made it impossible to place.
 
-The scream finally broke apart as Iris staggered.
+Iris’ scream finally broke apart as she staggered.
 
 She stood there, her eyes looking at the necklace still clenched in her hand. When she spoke again, her voice was fragmented and barely audible.
 
@@ -482,7 +482,7 @@ I listened. I did not go back through the gate.
 
 Summer had a broken fibula. She'd caught her foot on a root in the dark and gone down, and what she'd seen in the trees while she was on the ground I have never been able to get the full account of. She's told me pieces over the years, different pieces at different times, and I've never pushed for the whole.
 
-Cecile had separated from Summer for about ninety seconds during our exit. What happened in those ninety seconds she has not told me and I have not asked. She walked to the car when we got to the road, got in the back seat, sat there until Summer got in beside her, and then the three of us drove back to town in silence. We went to the hospital and said nothing to anyone in the waiting room about where we had been or what we had seen.
+Cecile had separated from Summer during our exit. What happened in that time, she has not told me and I have not asked. She walked to the car when we got to the road, got in the back seat, sat there until Summer got in beside her, and then the three of us drove back to town in silence. We went to the hospital and said nothing to anyone in the waiting room about where we had been or what we had seen.
 
 Iris was found at 7:41 the following morning, half a mile south of where we'd found her. The jacket she had been wearing in the clearing hung loose on her frame. The scrapes on her hands were deeper, packed with dirt. The leaves tangled in her hair had dried and become brittle overnight, and new bruises and open scratches marked her skin in places that hadn't been there before.
 
