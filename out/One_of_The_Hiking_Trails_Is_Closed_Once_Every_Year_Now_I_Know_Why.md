@@ -109,8 +109,8 @@ And that was why.
 
 There was little to no sound as soon as we reached the treeline near the trail.
 
-No birds.  
-  
+No birds.
+
 No bugs.
 
 Just this weird, dead stillness.
@@ -193,8 +193,8 @@ TOK.
 
 TOK.
 
-Mara stepped closer to me.  
-  
+Mara stepped closer to me.
+
 “I think we should head back to the parking lot.”
 
 I nodded in agreement, but our two other friends looked displeased.
@@ -223,8 +223,8 @@ Connor chuckled nervously, “I didn’t know gangs could claim national park te
 
 But then we saw another. Then dozens. Hundreds. Some brand-new, some rotted to nothing, even a tiny pink rain boot twenty feet up, tangled next to a hiker's boot coated in dry blood.
 
-Mara stopped cold. “No. Nope. We’re leaving.” Eli, for once, looked shaken too. “Yeah… That’s seriously messed up.”  
-  
+Mara stopped cold. “No. Nope. We’re leaving.” Eli, for once, looked shaken too. “Yeah… That’s seriously messed up.”
+
 Even worse was that tucked into a small grotto nearby, we found an abandoned campsite.
 
 While looking around, we found what was probably the tent hanging shredded between trees. On top of that, there were coolers split open, and various lawn chairs were tossed around.
@@ -307,16 +307,16 @@ A few seconds later, another pebble hit Eli’s backpack. Then another.
 
 Soft little tosses, like someone trying to get our attention.
 
-I felt the need to do something, so I reached for my backpack, grabbed my flashlight, aiming it into the woods.  
-  
+I felt the need to do something, so I reached for my backpack, grabbed my flashlight, aiming it into the woods.
+
 “Who’s there!”
 
 Nothing.
 
 Then from the darkness came Connor’s whistle again, echoing from just out of my flashlight’s line of sight, followed by a little girl’s voice, “Hello…”
 
-After hearing that, Connor was no longer frozen, because he began to back himself toward Eli as fast as he could.  
-  
+After hearing that, Connor was no longer frozen, because he began to back himself toward Eli as fast as he could.
+
 “Dude, dude, wake the fuck up! Something’s out there!”
 
 Eli groggily opened his eyes.
@@ -375,8 +375,8 @@ I recognized it.
 
 “We gotta help him,” Connor said, moving towards the scream.
 
-Mara grabbed his arm hard.  
-  
+Mara grabbed his arm hard.
+
 “What, No! We don’t know what’s out there.”
 
 “Someone has to! Besides, maybe he knows how to get out of here.”
@@ -409,8 +409,8 @@ Eli looked elated and said, “Connor! We’re over here. What happened to you? 
 
 The laughing just continued, but the longer it went, the more off it sounded. It was as if something was physically pulling apart his voice as it moved between trees impossibly fast.
 
-Closer. Farther. Then closer again, until it was right in front of us.  
-  
+Closer. Farther. Then closer again, until it was right in front of us.
+
 I looked at Eli and then Mara, and uttered one word, “Run.”
 
 —
@@ -503,14 +503,14 @@ It had “RANGER LOG” stamped faintly across the front.
 
 Water damage ruined most of it, but some entries were readable.
 
-The handwriting changed throughout the journal, too. The earlier entries looked neat and professional, while the later ones looked rushed.  
-  
+The handwriting changed throughout the journal, too. The earlier entries looked neat and professional, while the later ones looked rushed.
+
 Shaky.
 
 —
 
-OCT 24  
-  
+OCT 24
+
 Closure started this morning.
 
 The North Ridge team reported hearing knocking again around 0500. Three distinct impacts spaced evenly apart.
@@ -523,8 +523,8 @@ Again.
 
 —
 
-OCT 25  
-  
+OCT 25
+
 Found another shoe hanging near Mile Marker 6.
 
 Child’s sneaker this time.
@@ -539,20 +539,20 @@ Nothing.
 
 Miller says we should stop documenting this stuff altogether.
 
-I disagree.  
-  
+I disagree.
+
 —
 
-OCT 25 — 2130 (9:30 PM)  
-  
+OCT 25 — 2130 (9:30 PM)
+
 Heard it for the first time tonight.
 
 Thought it was Alvarez outside the station.
 
 Sounded exactly like him.
 
-He was standing beside me when we heard it call my name from the trees.  
-  
+He was standing beside me when we heard it call my name from the trees.
+
 —
 
 OCT 26
@@ -565,8 +565,8 @@ Says he saw something crouched in the trees near the old fire road.
 
 Wouldn’t describe it.
 
-Just kept repeating:  
-  
+Just kept repeating:
+
 “It smiled at me.”
 
 —
@@ -619,8 +619,8 @@ It watches the station constantly now.
 
 Saw it clearly for maybe two seconds through the trees.
 
-Tall with patched skin.  
-  
+Tall with patched skin.
+
 Why does it move like that?
 
 It tilted its head when it saw me looking at it.
@@ -717,8 +717,8 @@ Then somewhere outside the station:
 
 TOK.
 
-Mara flinched violently.  
-  
+Mara flinched violently.
+
 “Yes.”
 
 The ranger cursed quietly under his breath.
@@ -729,8 +729,8 @@ The ranger cursed quietly under his breath.
 
 “You got a map?”
 
-Eli nodded automatically before realizing the ranger couldn’t see him.  
-  
+Eli nodded automatically before realizing the ranger couldn’t see him.
+
 “Yeah.”
 
 “Good. Write these coordinates down.”
@@ -771,8 +771,8 @@ The beeping continued softly.
 
 Closer this time.
 
-Mara whispered:  
-  
+Mara whispered:
+
 “Connor had it.”
 
 Another beep sounded. Then the ceiling creaked, causing dust to rain down right above us.
@@ -801,7 +801,7 @@ We didn’t have time to think about it, as the second we got to the door, somet
 
 Wood exploded inward, and pale limbs unfolded through the darkness inside the cabin.
 
-It had gotten stuck, giving us our we saw our opportunity to run.
+It had gotten stuck, giving us our opportunity to run.
 
 —
 
@@ -871,12 +871,12 @@ Pause.
 
 “...here…”
 
-Then the light blinked out, and the monster landed beside her on all fours. It had used Connor’s light to trick us!  
-  
+Then the light blinked out, and the monster landed beside her on all fours. It had used Connor’s light to trick us!
+
 Noticing the darkness now enveloping Mara, we quickly turned our lights in her direction and saw its arms wrapped around her body as it continued to speak broken and disjointed words. 
 
-Mara screamed my name as a long finger covered her mouth.  
-  
+Mara screamed my name as a long finger covered her mouth.
+
 Unable to think rationally, I slid halfway down the bank trying to reach her, but was stopped as Eli grabbed my jacket.
 
 I extended my hand, and for one second, our fingers actually touched. But I was too late.
@@ -988,4 +988,3 @@ Well, I’ve been hearing about a group planning to host an event out on the tra
 This usually wouldn’t be a problem, but here’s the thing…
 
 It’s October, and Black Pine Trail closes again tomorrow.
-

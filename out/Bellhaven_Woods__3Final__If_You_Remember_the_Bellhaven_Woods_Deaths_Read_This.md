@@ -420,13 +420,9 @@ And the entire time Iris kept talking — rapid whispering under her breath betw
 
 At one point, I became convinced I could hear footsteps matching ours somewhere deeper in the trees to the right of us. I never turned the flashlight enough to confirm it because some part of me had already decided I did not want confirmation.
 
-The gate finally appeared ahead through the dark and relief hit me so hard it almost made me dizzy. The open space beyond the woods felt impossibly huge after the claustrophobia of the trail.
+The gate finally appeared ahead through the dark and relief hit me so hard it almost made me dizzy. The open space beyond the woods felt impossibly huge after the claustrophobia of the trail. As I stumbled into the fire road, I bent over with my hands against my knees, trying to catch my breath. 
 
-We stumbled through it onto the fire road beyond. 
-
-I bent over with my hands against my knees trying to catch my breath. Iris stood beside me shaking violently, staring back toward the trail entrance.
-
-We waited at the gate for seven minutes before Cecile came through alone. 
+I waited at the gate for seven minutes before Cecile came through alone. 
 
 "Summer's behind me," she said. "She's slow but she's moving. She said go uphill and wait and she will be there."
 
@@ -438,17 +434,17 @@ We waited at the gate for seven minutes before Cecile came through alone. 
 
 Her expression changed abruptly as she froze: "Where is Iris?" 
 
-I looked to my left where Iris had been standing. I turned my flashlight in a full circle across the fire road. Empty. The beam caught pale gravel, damp tire ruts hardened into the dirt, brush crowded close on both sides of the road. Beyond that there was only the trees, black and uninterrupted, the light flattening against them without reaching very far in. The road stretched away in either direction without movement.
+I tried to explain what had happened. I got approximately halfway through before I stopped making sense even to myself — something about Iris's eyes and the chain snapping and the language that went backward — and Cecile was watching me with an expression I couldn't read and I could see her trying to assemble it into something coherent and failing.
 
-I didn't know when she'd gone. I had been watching the gate, watching for Cecile, and Iris had been beside me and then she was not.
+"She's back in there," I muttered. "We have to go back in."
 
 I went back toward the gate and Summer caught my arm. She had come through while I wasn't watching, moving quietly despite the limp, and she caught me before I got back into the trees.
 
 "Don't," she said.
 
-"She was right here," I said.
+"She’s–” I tried.
 
-"I know. Don't." She held my arm. "I need you to look at me."
+“Kolby, please.” She held my arm. 
 
 I looked at her.
 
@@ -458,7 +454,7 @@ I listened. I did not go back through the gate.
 
 Summer had a broken fibula. She'd caught her foot on a root in the dark and gone down, which was the sound I'd heard, and what she'd seen in the trees while she was on the ground I have never been able to get the full account of. She's told me pieces over the years, different pieces at different times, and I've never pushed for the whole.
 
-Cecile had separated from Summer for about ninety seconds during our exit. What happened in those ninety seconds she has not told me and I have not asked. She walked to the car when we got to the road, got in the back seat, sat there until Summer got in beside her, and then the three of us drove back to town in silence. We went to the hospital, waited while the others to be treated, and said nothing to anyone in the waiting room about where we had been or what we had seen.
+Cecile had separated from Summer for about ninety seconds during our exit. What happened in those ninety seconds she has not told me and I have not asked. She walked to the car when we got to the road, got in the back seat, sat there until Summer got in beside her, and then the three of us drove back to town in silence. We went to the hospital, waited while the others were being treated, and said nothing to anyone in the waiting room about where we had been or what we had seen.
 
 Iris was found at 7:41 the following morning, half a mile south of where we'd found her.
 
