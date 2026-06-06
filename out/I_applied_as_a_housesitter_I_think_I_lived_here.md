@@ -1,14 +1,14 @@
-The gravel of the driveway crunched beneath my worn out flats, a sharp, metallic sound that felt entirely too loud in the dead quiet of the Western Ghats. Before me stood the house - a striking modern monolith of exposed concrete and glass, nestled aggressively against the misty, forested hillside of Lonavala. It was beautiful no doubt. just perfect. As I approached I couldn't help but notice how exact the perfection was. It lacked the soft, chaotic warmth of a real Indian home. There were no fallen leaves despite the extreme foliage, no stray shoes by the door, no smell of flowers. Too pristine and perfect...just what I needed for a break.
+The gravel of the driveway crunched beneath my worn out flats, a sharp, crunching sound that felt entirely too loud in the dead quiet of the Western Ghats. Before me stood the house - a striking modern monolith of exposed concrete and glass, nestled aggressively against the misty, forested hillside of Lonavala. It was beautiful no doubt. Just perfect. As I approached I couldn't help but notice how exact the perfection was. You could say it lacked the soft, chaotic warmth of a real Indian home. There were no fallen leaves despite the extreme foliage, no stray shoes by the door, no smell of flowers. Too pristine and perfect...just what I needed for a break.
 
 I was here because of a listing on a private Facebook group…I think... I don’t exactly remember. The owner, a woman named Maya, was looking for a long-term house sitter. I was desperate to escape the suffocating routine of my life in Mumbai - the relentless, soul-crushing corporate job, the aunts constantly asking when I’d finally "settle down" since I was nearing thirty, and a fiancé chosen more by my family's astrological charts than by me. I had applied instantly hoping it would be one of those strange richie- rich South Bombay people thing. The pay was really good, way more than what my job paid me. Who knows if Maya liked me enough,  it may become a full time gig? I desperately prayed for that.
 
 The heavy teak front door swung open before I could even reach for the calling bell.
 
-Maya stood in the entryway. She was elegant, perhaps a few years older than me, wearing a crisp, raw silk tunic that looked expensive but effortless. She smiled, but her eyes remained intensely focused, tracking my movements with a strange curiosity.
+Maya stood in the entryway. She was elegant, perhaps a few years older than me, wearing a crisp, raw silk tunic that looked expensive but effortless. Perfectly manicured nails, porcelain skin, she was the perfect fit resident for this house.  She smiled, but her smile did not reach her eyes which  remained intensely focused on me. I felt she was tracking my movements with a strange curiosity.
 
 "You're right on time, dear. Come in," Maya said. Her voice had a peculiar cadence, a rhythmic, hypnotic rise and fall that made my head feel instantly heavy.
 
-As I stepped over the threshold, a wave of vertigo hit me. The interior layout was breathtaking, yet deeply unsettling. It felt like walking through a memory that wasn't mine. This house looked like my Pinterest board brought to life.
+As I stepped over the threshold, a wave of vertigo hit me. The interior layout was breathtaking, yet deeply unsettling. It felt like walking through a memory that wasn't mine. This house looked like my Pinterest board brought to life. If I could ever afford a house in this market, this was what it would look like.
 
 "Let me show you around," Maya whispered, walking ahead.
 
@@ -22,13 +22,15 @@ I swallowed hard. How did she know about my future mother-in-law’s subtle hint
 
 We walked up the floating wooden staircase. Maya opened the door to the master bedroom. It was dominated by a massive, floating bed facing a floor-to-ceiling glass wall that looked out into the dark, rain-soaked woods.
 
-"Go ahead," Maya urged softly, gesturing toward the room. "This is your room.”
+"Go ahead," Maya urged softly, gesturing toward the room. "This is where you'll be anchored” 
+
+*What a strange choice of words...I think she meant it'y room*
 
 You know how strange and awkward it feels when you fantasize about something for so long and it just manifests out of the blue? Like meeting your favourite actor or someone buying you that pure silk kurta you’ve always wanted. This room was everything in my moodboard in reality. That wasn't the problem though...it seemed exactly like a collage of the pieces I had liked over time.
 
 I stepped inside, my feet sinking into the plush Kashmiri rug. I walked over to the carved wooden vanity. On the smooth surface sat a silver hairbrush, a bottle of jasmine perfume, and a small, silver-framed photograph. I leaned closer to look at it.
 
-My breath hitched. It was a picture of me. Not Maya. Me. I looked at the other stuff, the silver hairbrush – mine gifted by my grandma, the perfume – my mom’s. 
+My breath hitched. It was a picture of me. Not Maya. Me. I looked at the other stuff, the silver hairbrush – mine, gifted by my grandma, the perfume – my mom’s. 
 
 I took a closer look at the photograph. I was sitting on a cliff in Goa, laughing, hair wild in the wind, looking younger and vastly happier than I felt now. It was a trip I had secretly planned years ago but canceled because my father said it wasn't safe for unmarried girls to travel alone.
 
@@ -64,7 +66,7 @@ The sound wasn't just in the room; it was syncing with the frantic thumping of m
 
 I turned, paralyzed. Maya’s elegant silk tunic began to fuse with her skin. Her features melted like warm wax, bubbling and shifting until I was looking at a perfect duplicate of myself. But her jaw opened just a fraction too wide, and behind her eyes, there was nothing but a crushing, absolute void.
 
-***Beep****. Beep. Beep...*
+**Beep. Beep. Beep...**
 
 "There is no Maya," the thing that wore my face whispered, its jaw clicking mechanically. "You are Sakshi - the witness, trapped in the reality of your breaking bones. I am Maya - the grand illusion, the perfect dream you built to escape it. There is only the life you wanted. The life you built in the dark."
 
@@ -86,7 +88,7 @@ Images flashed in my mind, violently ripped from my consciousness - shattering g
 
 "Your body is a broken shell under white sheets in the hospital," the alternate Sakshi whispered, her cold, dead fingers wrapping around my wrist. Her touch felt like ice, burning into my skin. "Your family is reciting prayers, begging you to wake up so you can marry the man you don't love and live the life they scripted for you. But this house... this house is an apex predator. It feeds on the desperate. It feeds on women like us who want to disappear."
 
-The entity leaned in, its breath smelling of stagnant water and old earth. "If you wake up, you go back to the cage. If you stay here, the house keeps you. You become the house."
+The entity leaned in, its breath smelling of stagnant water and old earth. "If you wake up, you go back to the cage. If you stay here, the house keeps you. You become the house, living the life you built in the dark."
 
 **Beeeeeep**.
 
@@ -110,7 +112,7 @@ I walked downstairs, my heart pounding - no, that wasn't a heartbeat. It was jus
 
 The house hadn't been a manifestation of my subconscious. It was a trap, a localized, predatory anomaly that lured in the souls who wished so desperately to escape their lives that they practically willed themselves out of existence. I hadn't found a vacancy. I had fulfilled a cycle.
 
-I was no longer Sakshi, the witness watching her own demise. I had become Maya -the permanent, living illusion of the house.
+I was no longer Sakshi, the witness watching her own demise. I had become Maya - the permanent, living illusion of the house. I don't know if this was my heaven or hell.
 
 My body began to move on its own, pulled toward the front entrance by a magnetic, supernatural force. I had no control over my limbs. I was merely a passenger in a shell that now belonged to the house.
 
