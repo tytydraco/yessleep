@@ -77,4 +77,4 @@ I didn't make a scene. For some reason, I wanted to watch his reaction first.
 
 But the weird thing is — he didn't seem to notice anything different. If that really was part of the renovation, why hide it? And if it wasn't, why didn't he react when I came out?
 
-I don't know what that thing is — I don't know who made it — maybe that creepy guy from last night has something to do with it. That's a lot of questions. If anyone has any ideas, help me out — I'll be back with more updates.
+I don't know what that thing is — I don't know who made it — maybe that creepy guy from last night has something to do with it. That's a lot of questions. If anyone has any ideas, help me out — I'll be back with more updates.    [part 2](https://www.reddit.com/r/nosleep/comments/1tyv983/i_work_at_the_butcher_shop_and_i_found_something/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

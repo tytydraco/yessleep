@@ -1,0 +1,69 @@
+&#x200B;
+
+I’m writing this because I noticed my hands shaking while trying to calibrate a set of digital calipers at work today. I’m a quality control technician at an electronics assembly plant here in Portland. My entire life revolves around precision, verifiable data, and logic. I don't believe in urban legends, I don't browse paranormal forums, and I don't use recreational drugs. I am a completely unremarkable, practical person.
+
+But three years ago, I saw something in Forest Park that I still cannot fit into any logical framework. I’ve tried to bury it under the excuse of grief and exhaustion, but the truth is, it’s eating away at me. I just need to tell someone who won't immediately recommend a psychiatrist.
+
+To understand why I was even out there, you have to understand where my head was at in October. My dad was dying of small-cell lung cancer. It had metastasized to his bones, and I had moved him into my apartment to be his primary caregiver. Anyone who has ever watched a parent waste away knows the specific, suffocating reality of it. The apartment constantly smelled of rubbing alcohol, stale soup, and sickness. The sound of his labored breathing and his occasional groans of pain filled every hour of my day. I loved him, but I was drowning.
+
+My only psychological escape valve was landscape photography. Specifically, long-exposure night photography. It was the only hobby that forced me to sit in absolute, uninterrupted silence for hours at a time, staring at something that wasn't suffering.
+
+On a Tuesday night, my aunt came over to take the night shift with my dad so I could get some air. I packed my gear—a Nikon D7500, a heavy aluminum tripod, a headlamp, and a flask of coffee—and drove out to Forest Park. For those who aren't local, Forest Park is a massive, dense urban forest right on the edge of Portland. It’s over 5,000 acres of thick canopy—mostly Douglas firs and bigleaf maples. At night, once you get a mile or two off the main roads like Germantown Road, the city completely disappears. The canopy is so thick it swallows the ambient light pollution.
+
+I parked at an unlit trailhead switch around 11:15 PM. My goal was a small, elevated clearing about a forty-minute hike inward, just off a decommissioned fire trail. I wanted to catch the low-hanging autumn fog rolling through the cedar trunks using 30-second exposures.
+
+I reached the clearing just after midnight. The air was freezing, that crisp, sharp Oregon cold that makes your breath bloom into thick clouds. I set up my tripod, leveled the camera base, and began running a few test frames. For the first hour, it was therapeutic. The forest behaved exactly like a forest should—the distant, rhythmic sighing of the wind through the upper branches, the occasional rustle of a nocturnal rodent in the sword ferns, the steady click-whir of my camera shutter.
+
+The shift happened late into the night.
+
+It didn't happen gradually; it was instantaneous. The background noise of the woods simply vanished. The wind didn't die down—it was as if the air itself became heavy, pressurized, and dead. The silence was so sudden and absolute that it woke up every primal instinct in my body. Thousands of years of evolutionary hardwiring screamed at me that I was suddenly vulnerable.
+
+Then came a sound from the tree line, about thirty yards to my left.
+
+It wasn't a footstep on the ground. It was a massive, sickening crack from high up in the mid-canopy—the sound of a healthy, three-inch-wide branch snapping cleanly under an immense, concentrated vertical weight.
+
+I froze, my hand still resting on the camera’s adjustment dial. I didn't turn on my headlamp; doing that in a dark forest is like waving a flag and blinding yourself to everything outside the beam. Instead, I let my eyes adjust to the pale, filtered moonlight.
+
+At first, I thought I was looking at a fallen trunk or a massive root ball tangled in the brush. There was a dark, dense shape hunched over near the base of two twin firs. It was completely obscured by shadows, but it had a strange, heavy mass to it. It was shifting with a bizarre, jerky rhythm—spasmodic, mechanical movements that reminded me of a massive predatory bird re-arranging its kill or unhinging its own skeletal structure.
+
+I kept telling myself it was a black bear. We get them in the Pacific Northwest. It had to be a bear.
+
+But then, it realized I was there. The jerky movements stopped. The silence returned, thicker than before. And then, the creature began to unfold.
+
+That is the only word that accurately describes it. It didn't stand up like a biped, nor did it rise on hind legs like a grizzly. It uncoiled vertically. It kept going up, segment by fluid segment, rising past the brush, past the young saplings, all the way up into the lower canopy. It was a towering, vertical column. Even from thirty yards away, looking up at its angle against the gray sky, I could tell it was easily seven or eight meters tall. It was a height that felt physically impossible for a living organism on land.
+
+I can't tell you if it had a face, eyes, or skin. To claim I saw those details in a midnight forest would be a lie. I saw it purely as a silhouette against the slightly lighter fog, and that silhouette was deeply unsettling. It looked like a rigid, thick central column, but its entire perimeter was covered in thousands of long, thin, hair-like or branch-like extensions. They looked like the stiff barbs of a colossal, ragged feather, or the densely packed, fibrous legs of something centipede-like, frozen vertically in the air. These thousands of extensions were vibrating—a rapid, micro-shaking that made the edges of its silhouette look blurred and out of focus.
+
+I was paralyzed by a cold, clinical terror. My brain completely locked up trying to process the scale of what I was looking at.
+
+Then, it broke the silence.
+
+It didn't roar. It didn't make an animal sound. It emitted a flat, sustained, incredibly high-frequency electronic drone. It sounded exactly like a giant industrial transformer or a high-voltage power line during a storm, but completely clean and steady. The frequency was so high that it didn't just strike my eardrums; it resonated inside my skull. My sinus cavities throbbed, and a sharp, metallic taste flooded the back of my mouth.
+
+While that agonizing hum was vibrating through my bones, the base of the creature contracted. The thousands of fibrous extensions at the bottom shifted against the dry leaves with a collective, frantic hissing sound. It moved maybe half a foot closer to the clearing.
+
+That slight forward movement broke my paralysis. The camera, the tripod, the lens—thousands of dollars of equipment—no longer mattered. I turned and ran.
+
+I didn't turn on my light. I knew that trail by heart, and the fear of becoming an illuminated target was greater than the fear of tripping. I sprinted blindly through the dark, tearing my jacket on briars, smashing my shins against rocks, completely driven by adrenaline. The high-pitched drone followed me through the trees, vibrating in the back of my head for what felt like a mile before it finally faded back into the natural, heavy silence of the night.
+
+I reached my car, threw myself into the driver's seat, locked the doors, and sat there hyperventilating until my vision cleared. My hands were shaking so violently I dropped my keys twice trying to get them into the ignition. I drove straight to the police precinct over in Linnton.
+
+The officer at the desk looked at me like I was a textbook case of a late-night breakdown. I was covered in mud, bleeding from thorns on my face, and speaking too fast. I tried to explain that there was something massive and structurally wrong out in the woods, that my gear was gone. He was professional but completely dismissive. He took a report for "lost property," suggested that I had likely run into a hostile transient encampment or experienced an optical illusion caused by the fog and tree movement, and told me to go home and get some sleep.
+
+I never went back to that clearing. Two days later, I paid a coworker fifty bucks to go retrieve my camera gear during broad daylight. He found the tripod knocked over. The Nikon's body was shattered against a basalt rock, and the SD card inside was cracked in half, completely unreadable. When I asked him if he noticed anything weird about the ground, he just shrugged and said the leaf litter looked "a bit torn up, like a deer had been scraping at the dirt."
+
+My dad passed away three weeks later. The sheer weight of the funeral arrangements, the estate execution, and the emotional collapse that followed effectively forced me to push that night into the background. I spent two years convincing myself that the officer was right. I was chronically sleep-deprived, under unimaginable psychological stress, and human perception is notoriously flawed in the dark. I told myself it was a massive, dead cedar trunk covered in moss and hanging lichen that had shifted in the wind, and that my panic had manufactured the rest.
+
+But I don't think that's what happened anymore.
+
+I still live in Portland, not too far from the lower boundaries of the park system. My life went back to its standard, quiet routine. However, there are specific, damp nights in late autumn when the shift happens again. I don't mean that I look at a clock; I mean that I wake up because the ambient environment inside my room suddenly changes. The structural hum of the refrigerator, the distant rumble of the highway, the wind against the window—it all gets choked out by that sudden, suffocating vacuum of absolute silence. It feels like the air pressure in my bedroom drops instantly, pulling me straight out of sleep.
+
+When I step out onto my back porch during those specific nights to breathe the cold air and ground myself, the forest nearby is always completely dead. And if I look long enough into the tree line where the darkness gets absolute, I can occasionally see a long, excessively tall, bristled shape. It just stands there, blending perfectly with the vertical lines of the trunks, swaying with a slowness that doesn't match the light breeze.
+
+I don't think it followed me. I don't think I'm cursed or that this is a personal haunting. Forest Park is connected to a massive network of continuous green spaces, state parks, and protected wilderness that stretches for hundreds of miles across the Pacific Northwest. I think these things are simply a part of the local ecology that we haven't mapped out yet. They belong to these woods, moving through the deep canopy far away from our noise.
+
+I don't think it's aggressive. If it wanted to hurt me that night, it could have closed thirty yards in a fraction of a second. I think it’s just something old, specific, and completely indifferent to human logic, living in the margins of the places we haven't completely cleared away yet.
+
+If you ever find yourself hiking or camping in the Pacific Northwest, and the woods go completely dead silent around you... don't turn on your light to look for what's making the silence. Just turn around, walk back to your car, and don't look back.
+
+Stay safe out there. Goodnight.

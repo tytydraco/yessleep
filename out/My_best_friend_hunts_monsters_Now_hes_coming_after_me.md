@@ -66,4 +66,4 @@ I took the rest of my strength to pull myself to my room. And I passed out again
 
 Written in a black, foul smelling substance on the floor, was a single world.
 
-**“RUN”**
+[**“RUN”**](https://www.reddit.com/r/nosleep/s/so2q6ROSBb)

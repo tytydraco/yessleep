@@ -1,0 +1,177 @@
+VERSÃO EM INGLES: *for context before reading this post, here's the* [***part 1***](https://www.reddit.com/r/nosleep/comments/1txvpsr/i_work_at_the_butcher_shop_and_i_found_something/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)*. but now let's get to business*
+
+well, after I found that tube I decided to talk to some friends about it to try to figure out what it could be. I have a friend named Jhonn who used to work in engineering, but now he's a cop in another state. I told him about the tube and he gave me a few theories, but when I gave more details, even he didn't know what it was
+
+so yeah, that thing probably shouldn't be there. so I started trying to come up with a plan to investigate it, but Barry was like a guard dog — he basically never leaves the counter, and I have to go past him to get into the walk-in, so it wasn't gonna be simple. but since it was my break, I had some time before going back to work
+
+while I was thinking of something, Barry walked into the room
+
+—"Caleb, I wanted to know if you're free after your shift"
+
+—"well, I literally have nothing going on in my life" "so yeah, I am. why?"
+
+—"I've noticed you've been looking a little down and kinda off" "plus you're clearly malnourished"
+
+that's ironic since I've got a bit of a gut
+
+"look, I've decided to invite you over for dinner tonight" "I'll text you when it's time"
+
+—"do I have a choice?"
+
+—"of course not, Caleb"
+
+well, I agreed both because I didn't have a choice and because it'd be the perfect opportunity — I'd be inside his house. I could try to find something that would explain what that thing was. so I went back to work. the only thing that bothered me was the weird guy — he normally shows up kind of late, when I'm almost leaving, but he had shown up a little earlier
+
+he kept an eye on the butcher shop for a long time, but I just did my work until my shift ended
+
+I went home and did the same thing as last night and always, until I got the notification
+
+—"hey, you remember the invite, right?" "come on over"
+
+I quickly got ready, just threw on some casual clothes — from a distance I might've looked like a bum, but it's what I had to wear. so I hurried over 'cause it was time to find answers and try to help Barry
+
+I got there and even felt embarrassed by what I was wearing — because his house was extremely clean, organized, and I know Barry isn't rich, or maybe he is, but his place was actually pretty fancy — all quality stuff, with red, black, and white tones
+
+I knocked and he answered. he was wearing a beige suit, and I was all scruffy. he looked me up and down, gave a little chuckle, and asked if I wasn't expecting this. I confirmed. me and him went in and sat at the table. we chatted for a bit until I noticed he had a wedding ring. I asked if he was married and he said yes, that he had a wife and two kids. he said they'd gone on a trip a few months back to visit his wife's family, but it was in another country and they weren't coming back anytime soon
+
+he then showed me a picture of his family — they looked really happy. after that we chatted a bit more until the food was ready. he went to the oven, opened it, and took out the food. I couldn't really see what cut it was, but he told me later when he handed me the plate — it was Beef Wellington. Barry said he chose that one carefully
+
+because it's a highly nutritious dish, with protein and carbs. then he put on a sauce made from beef blood — made by him, which he sells — and said now it also had iron and some other nutrients. we started eating
+
+the beef was really good — the taste of the pastry around it along with the meat was excellent — plus the sauce added its own touch. the weird thing was that the flavor was unique — I had no idea what animal or part it came from, just that it was really good. I mentioned that to him and he was really happy that I liked it. he said he made everything by himself
+
+we kept eating, chatting back and forth, until he asked where I lived. I said I lived in the Cinder Ward neighborhood — one of the poorest and smallest in town. he was surprised because the butcher shop was over two miles away — meaning I woke up super early to get there on time
+
+until I finally got something…
+
+—"seriously, Caleb? you really walk all that way so early?" "like, aren't you scared? 'cause the city's dangerous, especially Cinder Ward"
+
+—"no, what would I be scared of?"
+
+—"it's no wonder Grayfield's nickname is 'the psychopath city'!" "plus, there's a guy lurking around the butcher shop"
+
+—"what guy?"
+
+I had to play dumb to see if he'd say more
+
+—"there's a criminal who's been hanging around here" "I don't know how you haven't noticed — he's really dangerous" "I think last month he beat someone to death" "but the main thing is — he's been lurking around the butcher shop for six months now"
+
+—"and you didn't think to tell me???"
+
+—"I thought you already knew"
+
+I now knew more about the weird guy — at least it was progress. we kept talking until I lost a bit of my patience and asked about the tube. when I mentioned it, he made a weird face… like I wasn't supposed to know what that thing was. he was frozen in an expression somewhere between fear, confusion, and a failed attempt at keeping a smile — and he was quiet for about two seconds, until he told me it was maintenance stuff
+
+after that we ate in silence. we finished and he took the plates, but I noticed he hadn't eaten — he just watched me eat. he started washing the dishes and said if I wanted to stay a little longer I could. I said I had to leave but first needed to use the bathroom. he said it was the second door down the hall. I went to the hallway — but I didn't go to the bathroom
+
+I decided to dig deeper, because after that dinner I knew that guy outside was using Barry for something, but Barry didn't want to tell me — so I had to go after it myself. the hallway had four doors — one at the end and three along the wall. I decided to check each one but skipped the second since I knew it was the bathroom. the door at the end was locked, so I had to skip it — but that room reeked
+
+the third door was his kids' room. I just took a quick look but didn't see anything — the weird thing was there was only one bed, but he had two kids. so I went to the last remaining door — the first one was Barry's bedroom — bingo! and that might also explain why there was only one kids' room — apparently he had taken over the other kid's room. I started searching the room, carefully so I wouldn't raise suspicion, until I finally found something useful — on his nightstand there was an anatomy book lying open, and more importantly — the key to his office!
+
+there would definitely be something in there! so I grabbed the key, hid it, closed the drawer, and went to the bathroom just to make it look like I'd used it. then I left and said goodbye. before I left, he asked what day it was tomorrow, and I said it was May 7, 2011 — and then I left
+
+after going down the stairs — his house is on the second floor above the butcher shop — I took the chance to swing by the walk-in to check if the square was still there — and it was. but when I left the butcher shop the first time, the weird guy had moved closer. I didn't even know where he went — I just walked fast, hoping he hadn't come after me
+
+I went home, locked everything, closed all the windows, turned off all the lights, and slept inside the closet to make sure I was safe
+
+the next day when I got to the butcher shop, the situation was terrible… the glass on the door was broken, everything was destroyed and messy — there was… blood in some spots — and Barry was on the floor cleaning up his own blood, which was still dripping as he wiped. he was crying a little, with various bruises and cuts. I immediately asked what happened, and he said the guy who'd been lurking around the butcher shop had broken in right after I left. Barry said the guy had on a bomb vest and his plan was to kill Barry one way or another — but Barry grabbed a knife and they got into a hand‑to‑hand fight until Barry managed to chase him off
+
+I told him to go take care of his injuries — even if they were minor, it was still good to treat them — that I'd take over from there. customers started coming in and everyone asked what happened. I managed to fix up a good part of the place, but we were still gonna have to buy some new furniture and parts of the shop for repairs
+
+so after a while, during my break, Barry came up to me and said he'd have to leave — no set time to come back — and that he'd probably be back after my shift. he handed me the keys to the butcher shop and left soon after. so I took a bit more of my break before getting back to it, because the rest of the day was gonna be long. then I went to serve some customers. after about five customers, I closed up the shop — pulled the curtains shut and all that so nobody from outside could interfere. I felt like maybe that guy would come back for revenge at any moment, so I was on a timer
+
+the first thing I did was go to the walk-in and check the square again — it was there. I propped the door open so it wouldn't close, and I went to examine the tube. looking closer, I could identify what that thing at the end was — it was a force meter. so I grabbed a sausage and put it inside to see what would happen — nothing happened. maybe I had to squeeze the thing at the back
+
+so I grabbed a rag, tied it loosely to the meter, put another sausage in, and pulled the rag — squeezing the meter. the pins moved forward slightly. I took out the rag and the sausage, but when I looked at it, nothing had happened. so I tested it with my arm. when I squeezed, the pins moved forward against my skin — and I got a considerable shock
+
+after that I heard a *"pheen!"* sound, like an error noise — so I knew it didn't work. then I remembered the key and went to Barry's office. it was my first time there. on both side walls were bookshelves running from one end to the other. in the middle was a desk with a computer. it was weird having an office like that inside a BUTCHER SHOP — it looked more like a lawyer's office or a study
+
+I went to the desk with the computer — it had a drawer, but it was locked with a padlock — one I'd never seen before. it was like a numeric padlock, but it had three sections — the first two had two digits each, and the third had four digits. I started searching everywhere for a clue. I looked on the shelves but the only thing I found were several different anatomy books
+
+I looked on the desk — on it was just the computer, a lamp, and an "Employee of the Month" photo of me with Barry. that didn't even make sense since I was the only one working there besides him. I looked under the lamp — nothing. the computer also needed a password I didn't have. so that left the photo — and when I looked behind it, there was a date: "02/07/2011" — that was the date I was hired. since it was pretty much the only thing I'd found that could be it
+
+I put it into the padlock — and it worked. the problem was that when it unlocked, it kinda fell apart in a way that I didn't know how to reassemble it — so I knew everything had to end that night or I'd be caught. inside the drawer were three things: a force meter, a small notebook, and SEVERAL folders
+
+on the force meter there was a Post‑it note that said "70‑80". I picked up the notebook. when I looked inside, I finally found it — it was the design for the tube. I knew it wasn't anything normal — apparently it was a biometric system to open a secret door inside the walk-in — but I still didn't know exactly how to open it. so I closed the notebook and grabbed the folders
+
+that's when I realized something was way beyond wrong — not that it wasn't already. when I picked up a folder and opened it, it was another employee — Marcha Pizzer. I'd never seen her before — so she must've been fired before I was hired. but then I looked closer at the folder…
+
+it had a few sections. at the beginning were two dates — one called "domestication" and another called "yield". there were also two other sections — the second one talked about her personal life, and the third listed all living relatives and acquaintances…
+
+that was morbid. I looked at the other folders to try to understand — they were all like that — employees I'd never even heard of. but there was a pattern — between the "domestication" date and the "yield" date, there was always a three‑month gap — always three months
+
+the problem was that… I found it — *I found* ***my*** *folder*… that's when I started to understand what the dates meant — because my "domestication" date was the same as when I was hired… and my "yield" date was… that very day — something was going to happen to me that day
+
+I panicked, because — all those people who came before — I'd never heard of them. I didn't know where they were — I just knew something had happened and they'd disappeared
+
+was I going to disappear?? what were they going to do to me?? was I gonna get kidnapped? killed?
+
+I then decided to look in the trash can next to the desk to see if I could find out more — and I sort of did… because it was almost full to the top with torn‑up photos… the thing is — they were exactly the same photo I had with Barry, but in each one there was a different person…
+
+people whose "yield" date had already passed…
+
+I then became determined to get into the walk‑in one way or another
+
+so I went back to studying the notebook to see if I could figure out how to open the damn door. looking closer at the designs and notes, I cracked it — because the thing at the end of the tube really was a force meter. well, now the meaning of the Post‑it was obvious — I had to score between 70 and 80 to open the door. so before doing anything, I tested my strength — only 20. I was way off
+
+then I remembered that one of the anatomy books was marked at a specific page — when I went to it, it was a page about the nervous system and muscles
+
+there was the answer I needed — because pain makes muscles contract more, so that could get me to the required value. so I mustered up some courage to test it — I grabbed the force meter and a stapler. when I squeezed the meter, I stapled my arm — it went from 20 to 22 — so it worked
+
+but the amount of pain I'd have to cause to reach at least 70 was enormous… so I did something really drastic — I grabbed a knife and a rag, went to the walk‑in, put my arm inside the tube, put the rag in my mouth, squeezed the force meter — and just as the system was about to read me, I stabbed the knife into my arm. the pain was indescribable — but then I heard the confirmation beep. I pulled my arm out, used the rag to cover the wound, and heard pistons and gears moving — and the door opened before my eyes…
+
+it was an industrial staircase — it was pretty dark in there — but I didn't have much time to think because I heard the sound of Barry arriving. I quickly closed the secret door and the tube, closed the walk‑in, and hid myself among the meat
+
+then Barry opened the walk‑in and came in with a luggage cart — but it wasn't luggage — it was… bags that must've been around five foot three! that wasn't beef! worst of all — they were moving slightly. he went to the square and opened the door — then he went inside
+
+from that point on, I wasn't so sure that the weird guy had anything to do with this anymore…
+
+I pulled out my phone and started to call the police — but before I could dial the last digit, he called out to me…
+
+—"Caleb… Caleb… you don't have to hide" "follow me — I want to show you something"
+
+I stayed quiet
+
+—"come on, you gonna leave me hanging?" "you can come out from the meat"
+
+—"h‑how did you know I was here…"
+
+—"Caleb, seriously? the butcher shop has cameras, you silly boy" "plus you left my office all wide open and broken" "I could call the cops and have you charged with vandalism"
+
+he said it in a calm voice — like everything was actually fine. I admit I was a bit careless about the cameras, but I'm no fool — when he turned his back while I was following him, I called the police
+
+but the moment the dispatcher said "911, what's your emergency?" — Barry pulled out a gun and shot me in the leg. right after that, he hit me with the butt of the gun and I blacked out — I didn't even have time to react properly. when I woke up, I was in a completely different place… I was inside some kind of cage
+
+the place was like a basement — it was small — there was a sink and some countertops with surgical instruments. plus a washing machine and some dirty clothes… on the other side there were several bottles of the sauce Barry sells, and they were next to a bathtub
+
+and in the middle… there was… a stretcher. the first thing I did when I woke up was look for my phone — it wasn't with me. then I looked at the sink again — it was broken inside a jar with water, soap, and salt — so much salt that some hadn't dissolved at the bottom. the cut on my arm had a bandage on it. I looked around me better — the clothes were stained with… blood. plus I managed to see something that told me a lot about what was really going on
+
+in the pile of clothes was the outfit of the weird guy who'd been lurking around the butcher shop. I looked closer at the stretcher — there were two people — one performing surgery on the other. until I saw — it was Barry — and he was operating on… my mother… he picked up one of the instruments, and I saw him remove a piece of meat from her. I recognized it right away — that was one of his most famous cuts. I finally understood… why I'd never heard of the previous employees — why the meat seemed so unique. when I saw that, I was hit with a mix of sadness, disgust, and panic
+
+I immediately yelled at him. he just stopped everything, came over to me, and asked if I'd finally woken up. he said that's what nosy people get — and told me to remove the hoods from the other people. I didn't get it at first — until I looked behind me. there were four other people with me — but they were unconscious. I removed the hoods — and my father, my grandmother, my grandfather, and my best friend were there…
+
+Barry told me they were next — and that he'd make sure to leave me for last, so I could watch everything. I immediately started screaming at him, demanding answers — I couldn't believe that I'd thought he was the victim and that I'd tried to help him, thinking he was being manipulated
+
+the problem is — I found out his limit of patience… he showed me that somehow my mother was still alive — her heart was still beating — but then he made it stop. he then took her body and threw it into a meat processor built for that — and right after that, he came into the cage. I tried to attack him, but he kicked me and took my father, laying him on the stretcher
+
+Barry put an IV in his arm — the IV was connected to a suction pump that would drain into the bathtub. right then I understood the origin of the sauce — holy shit — how could this be happening to me!?
+
+I started trying to find a way to escape — so I examined the cage door. the place was clearly old — so I started looking for rusty or weakened spots
+
+I found one — the bottom hinge was rusty — so I could try to break it. I searched my pockets for anything I still had — I still had the pendant my grandfather had given me. I started trying to use it, but I wasn't making much progress — so I said screw it and started kicking the door with all the strength I had left
+
+but Barry pulled out a taser and fired it at me, telling me to settle down
+
+I thought I might die there — but I had to try. so I gathered my energy and tried to kick the door again. he pulled out the taser again, shocked me — but he got close to the bars. I tried to grab him, but he grabbed my arm and pulled, making me hit my head against the wall. he grabbed a pair of pruning shears… the only thing I can say is that I now have three fewer fingers
+
+but just as he was about to leave, I used my pendant to try to mess up his surgery. he panicked and ended up dropping the shears near me. I really struggled to grab them before he noticed — but I managed to reach them. now with the shears, it was way easier — I still struggled a bit, but I managed to break the bottom hinge
+
+and like that, I managed to push the door open just a little — but enough for me to squeeze through. when I got out, I could see the door leading out of the basement. I snuck over to it, but it was locked. I looked around for the key and noticed it was on Barry — but it was positioned so I couldn't grab it without him noticing. so I had to attack him
+
+we got into a really violent physical fight — I can't even give the details of what happened — but I won. I had to use his own machine against him, if you know what I mean…
+
+so I grabbed the key to the room and took his phone. I unlocked the door, went up the stairs, got out of the walk‑in — I didn't even need to call the cops with his phone because the police had just arrived. they took me to the hospital, where I gave my statements and all that
+
+now I'm at my cousin's house in the neighboring town because I can't even stand being in my own home — plus I'm now completely vegan when it comes to food. well, all of this basically happened yesterday — but now I'm okay — well, I'm an orphan, plus my friend and grandparents are dead too — and the scene of me pushing him into the processor won't leave my head
+
+I'm doing heavy therapy to get over it…
