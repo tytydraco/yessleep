@@ -1,0 +1,365 @@
+(CW Suicide, Child Abuse)
+
+The knock at the door brought me no joy. They hadn’t for some time. I’d grown numb to gifts: mothers are not expected to be the recipient. I’d gone years with getting pre-teen soccer camps, incense, and baby clothes for my birthday. At some point, I stopped expecting something more. After all, I’d already received the greatest gift life could give me, so shouldn’t I be satisfied?
+
+Still, with all the porch pirates in the area, leaving a package out in the open was a bad idea. I pushed myself out of my bed, my shaking arms almost giving out from the effort. I suddenly became aware of the heavy congestion in my head: it had moved from pooling in my eyes, mouth, and nose to the base of my skull, producing an awful throbbing pain in my temple. The image of liquid misery sloshing around inside of me was almost disgusting enough to trigger another fit of sobs.
+
+Nearly tripping over the strew of clothing on my floor, I escaped a tomb to enter standing water. I stepped too loudly across a hallway that was too quiet, hand trailing along a wall that was too empty. I tried to get past the hall and down the stairs as fast as my shuffling body could go. I couldn’t look at the door atop the stairs.
+
+My house was not large. It didn’t need to be. Passing through it, however, made it feel even smaller than it was. The forest of old bouquets scratched at my exposed arms, and the noxious cloud of rotten food was molasses in my lungs. I shut my eyes.
+
+Standing before me was the door, hot and moist. I would think it harbored mold, if not for the fact that nothing could grow in this house.
+
+Who could it be? Every single relative I could imagine had already stopped by, as had most of my coworkers… though, at this point, knowing one another was not a prerequisite to receiving some gaudy gift.
+
+The door creaked open, and at my feet was a basket: not the plastic kind I often received fruit in, but a *real* basket. Hard wicker wove around itself tightly, fibers forcing one another to become a bowl. Its tough delicacy was only cut by the softness of the bedding that filled it, images of rabbits bouncing about blankets and pillows.
+
+Lying within its bosom was a doll. It looked to be about a foot long, though it was curled up as if sweetly comfortable in its cot. Considering its graceful, folded limbs, it was more of a dummy than a ball joint doll. Its painted features and gaping square mouth reminded me of a ventriloquist’s puppet, though it lacked a suit and tie. Instead, it was dressed as a little boy, with blue overalls and a striped white shirt. A bunny was embroidered on the front pocket.
+
+I stared down my nose, which would have crinkled in disgust had I still been an active participant in reality.
+
+The thing was… bizarre, certainly. Looking at it made me uneasy in a way I wish it hadn’t. Who would give this to me? Did they think I’d find it funny? Or… was it some freakish attempt at sympathy?
+
+My deep breaths became sharp huffs as I came back to myself. Surely this was not an act of mockery. It was a gift. I should treat it as such.
+
+My hands felt like ice as they lifted the basket. I felt the uncomfortable sensation of resin sliding across my sweat-slick palms, and so I was quick to get my whole arm under it. Rotating the thing this way and that, I could find no tag or card attached to it. I glanced around the street, even checking both sides of my yard. Beyond a stork and a cuckoo flying through the air, there was no one nearby. Had they already abandoned their gift?
+
+I knew that it felt wrong. While it logically wasn’t that big of a deal, there was something dredging bile through my throat. Maybe it was because I hadn’t eaten. Maybe it was because I hadn’t slept. But it really felt like someone, or something, was playing a cruel joke on me. I put the basket back on the ground.
+
+I turned to walk back inside before something stopped me. My hesitation convinced me I’d gone entirely insane. Receiving such a thing made my skin crawl; likewise, leaving it out in the cold made my skin feel like it was peeling off in freezing waves. The doll was clearly fragile, judging by the intricate engravings in the wood. To leave it to be weathered would break it, right? It seemed a shame to let something so small be destroyed by my own neglect. Besides, leaving it here meant I would see it whenever I left the house, as infrequent as that was. I’d have a shattered, molding offering waiting for me.
+
+Gently, I cradled the gift in my arms and finally went back inside.
+
+I sat down on the couch, placing the thing on the glass coffee table. It teetered anxiously on a valley of unopened mail and half-eaten granola bars, but I barely cared. Quite honestly, I was racking my brain trying to figure out what I was going to do with it. I had half a mind to just forget about it, as I had with the flowers and chocolates and everything else, but this was so bizarre that it hung in my head.
+
+I timidly wrapped my hands around the doll’s little body and lifted it, turning it this way and that. Its skin was surprisingly delicate. As I ran a finger over its cheek, I could barely feel the fine grain on its glossy cheek. It was… delicate. My nail grazed a glass eye, and almost imperceptibly, a scratch was driven into its flesh. I jumped and hurried to buff it with my sleeve, relieved to find it was a shallow blemish.
+
+The weight of the thing also bothered me. It had a certain heft, which was odd given how fragile the exterior was. I’d say… it had to be at least a couple of pounds. There must have been something inside. I shook it a bit, flinching at the way the loose limbs clinked as they flailed against one another, and I wasn’t sure if I could make out a certain sloshing when I felt the center of gravity shift.
+
+My arms were fully outstretched, hands under its armpits, as I stood up and took it to my bookshelf across from the TV. Painstakingly, I set it down right on top, nudging it mere millimeters each time its head seemed to favor one side over the other.
+
+Shadowing it with my hands, I stepped back slowly. It was now at eye level, which was unsettling, but it wasn’t moving. It just slumped against the wall. The inflated head lolled on its chest, chin catching on the overall pocket to *look* at me. It wasn’t enough for the eyelids to shut all the way, so I could just make out little irises glinting at me; a slack-jawed expression I could not read.
+
+I decided to let it be.
+
+The next morning, I awoke with a certainty that something was wrong. It was difficult to describe… An anxiety began to buzz at the bottom of my stomach, a fire that wouldn’t let me lie. Call it instincts, but *something* was terribly wrong.
+
+I rushed out through the hallway. Instinctively, I reached for the handle of the door atop the stairs, and—
+
+I got a hold of myself. I ran downstairs.
+
+What was wrong? What was out of place? I took mental stock of the floor, seeing untouched vases and undusted countertops and any “valuables” still in their place. Taking a few moments to breathe, I realized that none of the garbage littered on the floor had moved. No one could have been in here.
+
+My heart dropped when I finally saw it.  The doll had fallen from its perch. I rushed to its side to check for any injuries. Had it shattered? Were its arms intact? Was its face damaged?
+
+I snapped myself out of it. I shook my head as I recalibrated, and the abnormal fear in my chest subsided. I felt a bit silly.
+
+I leaned down to assess the situation, though I felt uneasy. To my relief, it hadn’t been smashed to pieces. A fall from that height easily could have broken it beyond repair; luckily, it was caught upon its own bassinet. Its body was limply splayed across the cushion, and its head dangled off the side. I gently picked it up and instinctively began to cradle it.
+
+I looked back up at the bookshelf, apparently a poor place to keep something so fragile. The doll’s head was disproportionately larger than it should have been. A hardwood magnet. God, I was stupid.
+
+As if to apologize, I brushed a bit of hair out of its face. That was when I realized that its hair and clothes, delivered to me in perfect condition, were crumpled. Shifting the doll so it was sitting upon my one arm, I went to my drawers and began to rummage around. Every single one of them had become a miscellaneous drawer, so finding anything was a bit frustrating.
+
+Finally, I pushed aside some blunt scissors and extracted an old comb. Returning to the couch, I sat the doll in my lap, such that one hand balanced and the other hand wielded the instrument. It was dumb, but… I couldn’t stand the thought that everything I touched would fall into disarray. I wanted to believe I could still care for something.
+
+A hand as gentle as it was practiced moved through its hair. Caress after caress, it took only a few moments to work through the knots. I was surprised by how human and soft it felt, given its skin was so hard. For the first time in ages, a sense of peace settled upon me. Things were finally quiet, finally… right.
+
+Maybe this was what I needed.
+
+“Th-There… all done,” I managed, my voice choking and slipping. I hadn’t used it in quite some time, and I was talking to a puppet.
+
+Obviously, it said nothing. I tilted its little head up to look at me, which caused its mouth to hang open.
+
+I tried to smile at it, though the act felt foreign to my frozen muscles.
+
+“Let’s not take any more tumbles now, okay? We don’t want you to hurt yourself.”
+
+I tried not to think about the last time I’d spoken in that singsong tone.
+
+Looking around the house, I shifted my focus to finding somewhere suitable to leave the thing. Anywhere high was a death wish, so cabinets or tables were not options. The issue, as I came to see it, was that the place was a mess. I couldn’t remember the last time I cleaned, and that was evident. There was not a single island of cleanliness where I could be confident that nothing bad would happen.
+
+“Wait here a sec.”
+
+I left my doll in its bassinet and started scouting. I leaned towards someplace near the kitchen, as the counter was wide enough that it wouldn’t just topple off, and it had the least amount of general *stuff* littered about. It was covered in a sea of uneaten food and dirty dishes, but at least those weren’t letters and paperwork I actually had to look at before I threw them out. No, getting this place clean would be the path of least resistance.
+
+Once I started, it didn’t feel so bad to tidy up. It felt refreshing. With a big black garbage bag, I threw away trash en masse. Paper plates, unrecognizable piles of mold, and ruined napkins all disappeared, leaving just a plain of dishes of every color but the ones fired into them. I stacked everything by the side of the sink and noticed the awful grime of mold and grease that had stuck to the counter. Rolling up my sleeves, I scrubbed and scraped at the plaque that had built up in my home. The grime amassed under my fingernails, but at least I could see that my marble was, at one point, white.
+
+“Alrighty, I think I’ve got a nice spot here for you,” I announced.
+
+Retrieving my doll, I brought it to the large window by the counter. I pulled the blinds open, wincing at the unfamiliar stream of sunlight. I set my doll down, moving a stack of recipe books on either side so it wouldn’t easily fall over again. It looked so… cute, sitting in the sun like that. Its brown hair looked golden where it caught the light, and its cheeks had a lifelike glow to them.
+
+“Nice and warm, huh? And no big heights. That’ll be good for you.”
+
+Finally, my head felt clear. Actually seeing my counter was lovely, and the burn of the sunlight melted into a soft warmth. My kitchen looked the way I remembered it looking. It was in need of some deep cleaning, that was certain, but it was no longer riddled with clutter and mold. Visions of home-cooked meals flooded my mind, early nights full of pleasant smells and quiet conversation.
+
+Was it wrong to want that again?
+
+I checked the fridge, recoiling at the awful, cold scent that immediately hit me. Within its morgue of plastic rot, nothing was edible. My immediate impulse was takeout, but that made my stomach twist even further. No, today I’d make an effort.
+
+Before I could lose the impulse, I grabbed my purse and shoved on my shoes. I’d surely figure out what I needed when I was there, so bothering to make a list would only take unnecessary time. My careless hand shoved itself into my bag, vaguely feeling the things I needed, and I pushed my way out the door.
+
+“I’m going to the store! Don’t use the stove or answer the door,” I called, the script coming out of me naturally. Trying not to think too hard about *who* I had just addressed, I locked the door and made my way to my car.
+
+It was only when I actually got to the grocery store that the weight of the outside world finally pressed upon me. My car was parked approximately five rows away from the entrance. I sat inside silently, eyes barely above the wheel as my nose rested against it. My hands had not moved from said wheel since I stopped, though their knuckles grew progressively whiter. The tight stagnation in my chest told me I’d stopped breathing.
+
+All sorts of people moved in and out of the sliding glass doors. I could see a busy-looking young woman shove past an elderly couple, a husband and a wife pushing a full cart while a young child sat within, an old man clearly lost and confused… Everything was a dance of people arriving and departing, whether it be pushing and shoving or elegant cooperation. In the ten minutes I’d sat there, I was certain I’d seen nearly one-hundred people pass through those doors.
+
+I was completely motionless in my car.
+
+Swallowing my vomit, I stood up and began my approach. No one would speak to me, surely? They’d barely even notice me; they were too wrapped up in their dynamic lives. I’d just have to go in, buy food, and get out. Simple as.
+
+It was unnatural, being in such a huge building. I felt like a zoo animal who’d grown too used to her enclosure to stand the forest. The tall ceilings gave me vertigo, the bustling shoppers created intimidating traffic, and the mix of artificial scents burned my nostrils. While I couldn’t stand to my full height, I still had the strength and know-how to grab a cart and start perusing aisles.
+
+I mildly grabbed a few things while pretending not to notice the stares of other shoppers. We’d need bread, milk, just some essentials… Then sausages and bacon for breakfast… Perhaps some chicken breast for dinner? And there were absolutely no edible fruits in the house, so I haphazardly grabbed a couple of bags of produce. Actually, a fruit salad would be great in the morning! It’s a good way to get vitamins and fiber to start the day, along with the proteins and the–
+
+Damnit! I forgot the eggs! Right as I prepared to fly back to my nest and be done with this voyeuristic nightmare, I wheeled my cart back around to trudge all the way to the opposite wall. The plastic air was making my head feel heavy.
+
+I sorted through identical cartons of brown eggs, screwing my eyes up to make out expiration dates. Some of them weren’t too near, but I had to remember I was eating for one. How long would it take me to get through a dozen eggs?
+
+“Amy?”
+
+The eggs slipped from my grasp, turning into yellow afterbirth between my feet. A long silence followed.
+
+“O-Oh my god! I’m so sorry, I didn’t mean to startle you-”
+
+I realized I hadn’t moved from my position over the display fridge, my hands still gripping either side. There was a horror to being recognized, of course, but I also hadn’t heard my own name in such a long time.
+
+“No. It was my fault. I’ll ask someone to clean it up,” I responded, my voice shaking with the effort of forcing a single tone upon it. I kept my eyes glued to where the fridge met the dirty floor and began walking away.
+
+“Hey, wait!”
+
+I stopped. There didn’t seem to be a tactful way to get out of this. I didn’t know why I even bothered.
+
+I turned back around, locking eyes with my assailant before immediately focusing on the display at her side. We hadn’t spoken in some time, but I could recognize her. She had gorgeous blonde hair and a plain blue dress, her brown eyes screwed up in poorly hidden pity. It was Jonathan’s mom.
+
+We stood in tense silence for a moment before she spoke again.
+
+“It’s, uh, been a while since we’ve seen each other, hasn’t it?” she asked.
+
+“Yeah, I guess it has… Time got away from me.”
+
+“Really? What’ve you been up to? No one’s seen you around.”
+
+“Not much! Y’know, taking care of the house—” I gestured to my cart with a fake laugh “—and working on some things.”
+
+“Oh! If you ever need any help with keeping stuff clean, I’d be happy to-”
+
+“It’s really not a problem. I do fine by myself,” I snapped.
+
+I regretted my words instantly. In the silence that ensued, I became uncomfortably, vividly aware of my physical body. My matted hair scratched and coiled against my scalp and my oily clothes clung to my malnourished bones and my clogged pores oozed with off-yellow puss and my skin was stretched taut over my skeleton and my eyes were bright red and I looked insane and she stared at me, like I was a wounded animal. In that moment, I realized how hard I’d been scratching myself.
+
+“…How have you been feeling?” she asked, a hint of tenderness seeping through her thick PTA mannerisms.
+
+“I’ve been okay,” I lied. I wasn’t sure how much longer my throat could stand this sweet tone. “It’s been a bit, you know…”
+
+“I-If you ever need something to do, the girls at book club miss you! We just finished the last thing we were reading, so if you wanna rejoin, now’s the time.”
+
+“Yeah, I’ll, uh… check my schedule.”
+
+I put the first carton that caught my eye in my cart, and I began to shuffle away. Hopefully she’d get the idea.
+
+“Oh, I’ll leave you to it then! I gotta get home, my kid’s—” she stopped herself, and I hated the face she made “—I gotta run some more errands after this.”
+
+Finally, she started to roll her cart in the other direction.
+
+“One more thing, Amy?”
+
+I paused but didn’t look up at her. I felt I would fall over at any moment.
+
+“You should get a dog, or… something. It’ll help to have something to take care of. Just to… remember you still can.”
+
+I said nothing. She left.
+
+As I walked, it felt as though I waded through cement, but I couldn’t bear to be here any longer. Every single eye in this supermarket was glued to me. I just had to keep my head down, leave the stupid broken eggs on the floor, and buy my necessities.
+
+Surviving the car ride home was shocking. Every thought I could think was faint, like I heard them from the far end of a cave, but most of them regarded smashing my car into a tree. Any strength that I was empowered with, or that I believed I was empowered with, had dissipated by now. Shame weighed heavily upon me for the idiotic idea that I could face the world.
+
+I hoisted the groceries inside, resisting the urge to let them rot in my backseat or to decorate the pavement with them. The kitchen and fridge not quite smelling like infested candied earth did help, but that didn’t exterminate the colony of spores that had made my organs its hive. My movements slow and rigid like a puppet’s, I put everything in its place before I collapsed.
+
+A puppet…
+
+I snapped my attention to my doll, which should be behind me. I saw its body swaying gently in the air, knees grazing the surface of the counter. The cord to the blinds was wrapped around its neck, and as its bug-eyed body yearned to slump forward beyond its clutches, I saw a gallows before me.
+
+With a scream, I rushed to it and desperately started to untangle it. The layered coils of the wire wrapped around its neck like a snake, and with each wild tug, the delicate joint of the doll’s neck threatened to pop right off. My shaking hands and blurred vision would surely kill the thing.
+
+I pushed and pushed, but the pain in my fingertips was insane. The terror was overtaking my body, restricting breath and sight. I was crying, surely, and I hated the sticky, wet feeling. Each time the cord slipped just a bit, it tightened around another vital part of its body. The pressure was too much to bear, especially for such a small, fragile thing.
+
+Suddenly, there was a handsome little life in my hands. Healthy, breathing, and safe. I cradled him in my arms, breathing deeply as I stared in disbelief. I fell into a dining table chair as I fixed his hair and held him close, savoring the moment of peace for both of us.
+
+Everything was gentle and quiet. Sound faded out, save for one soft heartbeat. I ran my fingers across his cheek, smooth but warm, and shed a tear for the first skin-to-skin contact I’d had in some time. I held that as tightly as I could.
+
+Something to care for, hm…? The thought came to me gently as I rocked him rhythmically. Perhaps that’d be nice. Perhaps I could try again.
+
+I propped him on my arm, sitting him up so I could look him in the eye. His wide-eyed gaze was so innocent, so lovely… and his rosy cheeks brimmed with life. I thought long and hard as we remained connected…
+
+Theodore. That was the name I had in mind for a baby boy.
+
+Ever since I had Theodore, my whole world has changed. I gently descended the stairs with Theodore on my hip, the door atop the stairs but a shadow to his bright light. The ground floor had transformed into a living space with absolutely no flowers or mold: everything inside was *meant* to be alive. A warm family room with updated picture frames welcomed us in, lit gently by the open window and the candle on the table. Every book, remote, pillow, and toy was in its exact place; if I let clutter lie around on the floors, I’d risk Theo getting hurt!
+
+I’d then make breakfast in a spotless kitchen. We normally went for soft foods (pancakes, bananas, and yogurt) as anything hard would hurt Theo’s jaw. Ingredients were always fresh, and it really brought the color back into both of us. He wasn’t yet strong enough to feed himself, so I had to lend a hand.
+
+I sat Theo in his seat at the table; rather, I sat him in his seat *on* the table. I hadn’t gotten around to finding his high chair yet. His proportions, the weight distribution about his body, made it difficult to find one just right for him. Instead, I’d set up a little doll couch for him to sit in, and he liked it just fine. It was the most precious thing!
+
+“Alright, baby… Here comes the airplane\~” I cooed, piloting a green spoon heavy with mushed bananas towards his face.
+
+It collided with his lips with a dull *thunk*. Someone was feeling fussy today.
+
+“Come on, Theo, what’s the matter? Aren’t you gonna have your breakfast?”
+
+I tried again, and once more, he rejected me. He gazed blankly forward, not even looking at me! I grew a bit annoyed, but it was clear I’d have to step in.
+
+Reaching out, I pried Theo’s lips open with just a bit of force until he finally opened his mouth. With a happy giggle, I fed him. He wasn’t chewing, either, so I decided to help. I couldn’t let him choke!
+
+“Now now, you know Mama doesn’t want to keep doing this—” I continued to move his jaw up and down, banana squeezing and smushing around his face “—She wants you to learn to do this by yourself, right?”
+
+We finally finished the bowl I’d put in front of us, and I breathed a sigh of relief. That went about as smoothly as it always went, but I was happy to know my boy was being fed.
+
+“Good job, baby! Are you gonna wipe your face now?” I asked, though I knew the answer. He sat there, rather woodenly, his fist failing to wrap around the napkin I was pushing into it.
+
+I sighed, wiping my brow. He really could be difficult, sometimes.
+
+I grabbed the napkin and wiped his face. Somehow, almost all of his food evaded his stomach in favor of every groove in his skin. At least he didn’t ruin his overalls today. I scrubbed and scrubbed, the process natural yet lengthy, given the unique texture of his skin. In one frustrated burst, the napkin slipped and slid across his face, my finger going right into his eye. His mouth finally opened of its own accord as his head shot backwards.
+
+Gh-! I immediately wrapped him in my arms, shushing him before tears could even threaten to fall. It was okay. He was okay. I was okay.
+
+“Ahh! I’m so sorry, Theo!”
+
+I brushed his hair out of his face.
+
+“I didn’t mean to; you know I didn’t mean to. I’m just trying to get you clean, right? When you eat so messily, and you won’t clean yourself, then I have to. Because I don’t want you to be covered in dirt all the time! Then you’d get sick! Accidents are gonna happen if I have to step in, you know? It’s not because I don’t care about you, it’s–!”
+
+I bit my tongue, taking a breath before anything else spilled out of me. I stared at my boy blankly for a while, just as vacantly as he gazed at me.
+
+Finally, I smiled gently.
+
+“Let’s go run you a bath, why don’t we? You’ve certainly made a mess. Do you think you can do that? Big boy can handle a bath?”
+
+We’re ready, I decided, as I picked Theo up and took him upstairs to the bathroom. Up until now, we had been avoiding bathtime. Theo had an anxious temperament, and the make of his skin didn’t agree with getting wet. When it rained, he became almost too slick to carry… Safe to say, after last time, we no longer went out if the forecast indicated any chance of precipitation. When I missed a dribble of water on his chin, his skin bubbled and cracked in a way that was very hard to reverse.
+
+Still, I wanted to treat him like the real boy he was. He deserved a real chance to be clean, not his mother’s coddling. He was so far along in his development, too… Maybe it was time for both of us to act our age.
+
+Ever since Theodore entered my life, the bathroom returned to the comforting visage I recalled. I was surrounded by a sea of square blue tile that, climbing to the ceiling, mixed and marbled with a bright white sky. I flipped on the sun, a warm glow encasing our little ocean and shining off pearlescent pieces of floating debris. Everything was calm in our seasalt-scented wreck, floating along in a wicker basket of our own.
+
+I left the dirty clothes on the side of the sink and held Theo closely. For a moment, I was overwhelmed by the joy of having my boy so near to me. Then I was taken aback by the chill. His skin was deathly cold, much too frigid for such a bright boy. We’d have to warm him up.
+
+I placed him gently in the shining white tub with a hollow *tap*. His figure was framed so tinily, barely a rabbit to the ark. He sat limply against the incline, and whenever I tried to let go, he slid right to the floor of the bath.
+
+“Really… You can’t do anything yourself?” I muttered under my breath.
+
+After a few more failed attempts, I inhaled sharply and got to my feet. I just let him lie there.
+
+“Fine. Listen, Theo, I’m gonna go throw your clothes in the wash, and you can sort yourself out while I’m gone. I’ll just be a second.”
+
+I grabbed the laundry and marched back onto land.
+
+It wasn’t even worth running the wash: a waste of water and resources for a jobless mother. He only owned that single set of clothing, sweater and overalls that were so lovingly crafted. When I reflected on that, I admit I felt a twang of guilt, an uncomfortable sensation of reality. A good mother would buy a wardrobe of the finest silks and most durable denim for her sweet baby (everyone knows how cruel parents and children alike are to the kid with a ratty shirt), and I certainly did *try*. I bought all sorts of lovely outfits for Theo, but just like with the chair, he simply wasn’t shaped for them.
+
+I slapped myself as I got to the kitchen. What kind of mother was I to think that? I refocused, grabbed a deep bowl from a low cabinet, and began to fill it with soap and water. A low humming shook the walls.
+
+He wasn’t shaped “wrong.” That was an angry word. He was just put together in a way most children were not… that wasn’t something shameful to admit. His joints were too loose, limbs too lanky, and torso too boxy to fit into most things I bought. I couldn’t bear to see my cute, adorable, handsome boy looking so misshapen. I couldn’t divorce the image of Theo from that little rabbit on his chest.
+
+Over and over again, I dunked that little rabbit under the water. It splashed and splashed, fought for air, but something of that size had no chance against either Poseidon or Archimedes. Finally, as every fiber grew wet and heavy, it settled at the bottom of the tub. I could barely make out its animalistic form through the visage of bubbles.
+
+I sighed, drying my hands. That should be good for now; I’d leave this here, and it’d be clean by the time Theo was out of the bath. 
+
+Remembering to smile, I went back upstairs.
+
+That smile instantly dropped when I heard a quiet rumbling in the pipes. The ceiling, walls, and floor all trembled inaudibly, but I had to stumble to maintain my balance. That… That was…
+
+I burst into the bathroom. A sick spew of steaming liquid vomited from the faucet, gurgling as it digested the bunny within. How? I was sure not to leave the tap on, was sure not to put the plug in, or I believed I had? Had I run the bath out of habit? What was wrong with me? What the fuck was wrong with me?
+
+That wasn’t important. All thoughts in my head silenced when I saw Theo’s little bobbing head displaying his only strands of dry hair. His body swayed this way and that as waves of water washed over him, like a drowned kitten in a metal bucket. He wasn’t moving.
+
+I shot my hands in, recoiling at the scalding heat. I quickly forgot the blistering, peeling pain as I reached back in and snatched an arm so hard it stung. He slipped from my grasp like a dead fish. I grabbed him again, and the pain from the heat was so intense I didn’t notice my nail sliding from my ring finger along with my boy. The water grew a pale red.
+
+Finally, I got a grip and tore him into the air, one little arm supporting the weight of one little body. Water spilled from a shining form, running off hand, arm, and hair in hostile crystalline droplets. It ran in fractals down my hand, to the point that I couldn’t tell who the diluted blood belonged to. As if rejecting my help, his head hung magnetically back towards the tub. I sobbed, seeing how his skin and mine bubbled in the same ugly blight.
+
+In that one moment of weakness, time stopped as I lost my grip one final time. No amount of adrenaline could make me fast enough. I couldn’t stop it. I lunged forward, but it did nothing until I heard a loud *crack* of porcelain against porcelain.
+
+I couldn’t think. I couldn’t breathe. I couldn’t hear, couldn’t smell, couldn’t touch, couldn’t taste; all I could do was stand there and look at what was in front of me. Blood blossomed throughout the pool like rosemary, pansies, and rue. It emanated sickly from a chasm placed right at his forehead, a black-red diamond gilded with horrific geometric symmetry. His body floated up and up on the current, a stench of dust, old meat, and fresh ichor reactivating my sense of smell. And my better sense.
+
+I let out a horrible scream as I managed to get him in my arms. He was hot to the touch, though I knew now to cradle him gently as I drained the water. A frantic pair of fingers touched the pulsing gash on his head, and I almost threw up. He still wouldn’t move. His eyes were glazed. He needed a doctor. The ER! I needed to take him to the hospital!
+
+I stumbled this way and that, thoughts running a million miles an hour. Bleeding! Stop the bleeding! I fumbled for a first aid kit under the sink, my fingers unable to move as quickly or nimbly as I needed them to. I hastily unwrapped a stick-on bandage, and it slipped off his skull instantly. He bled more. Oh my god! The plaster? Slid right off. Nothing was taking. I rubbed my forehead and scratched at my skin, smearing blood all over myself, but I didn’t care. The gauze, wrapped several times across his bloated skull, finally did stay. I cleaned the rest of his face with a disinfectant rag, though I felt disgusted at the way the gore seemed to smear like unmixed pigment.
+
+Then I needed to get him dried and dressed. I reached towards the counter where I remember putting his clothes and… fuck! They were stewing downstairs! I picked Theo back up as I spun in circles, thinking of what I could possibly do. Water pooled in puddles absolutely everywhere, and what was normally white and blue was stained red. There was so much blood.
+
+A terrible, horrible thought came to me.
+
+I left the bathroom without even bothering to turn off the light and placed Theo on my bed as I rummaged through my hope chest. The artifacts in here normally would render me immobile with anguish, but I was so full of grief and terror at this moment that there simply was no more space in my body. The blood on my hands was staining the mementos I’d kept safe for so long. If I didn’t act quickly, Theodore’s body would become a memento itself.
+
+I finally extracted a tiny white sundress. It was perfectly-folded linen, and those folds still showed creases when I held it out to the light. Gold lotus flowers grew all across it in a never-ending, metaphysical pattern. It was just as beautiful as the day I bought it.
+
+I hastily dried Theo with my blanket, desperate to get him dry but careful not to exacerbate the injury. My heart fell to the pit of my stomach when he wouldn’t react. I pulled the dress over his feet, as if I started at the head, I’d likely have to squeeze past his wound and bandages.
+
+For a moment, looking at my baby wearing *that dress*, I was too stunned to move. Emotions far too intense for me to process in that moment began to roar in the back of my head.
+
+I came back to myself, remembering who it was in my arms. My tears resumed as I sprinted to my car.
+
+I didn’t even bother trying to fiddle with Theo’s car seat, instead sitting him in my lap and buckling us both in. There wasn’t the time, and with his head pressed up against my stomach, I could feel his comforting heartbeat. I put the car into gear, and my tires skidded as I floored the gas.
+
+It took a mere matter of minutes to arrive at the hospital. I abandoned my car and, keeping Theo warm beneath my cardigan, sprinted under an oppressive sun to the ER’s sliding doors.
+
+Clinical was what I should have expected, but the space was so *very* clinical. A white box of linoleum reflected fluorescent lighting on every single polished surface, no matter how grimy they had grown. Combined with both the harsh scent of antiseptic and the grumbling moans of people in pain, my exhausted brain could hardly process being at the center of this hell.
+
+Its residents were all ruled by suffering. Standing before me was a plain black desk with serious-looking secretaries sitting behind it, holding conversations with frantic, bleeding people. To my left were the invalids, sitting either restless or half-dead in plastic chairs. All were too wrapped up in their misery to pay a dying child any mind.
+
+“My baby! Somebody, please help my baby!” I screamed. The rough force it took for the words to escape my mouth left a steady trickle of blood in my throat.
+
+Suddenly, the incredible noise of the room disappeared. The blinding white light, on the other hand, did not.
+
+I stood there, chest heaving, as my eyes darted around the room wildly. A spotlight intense enough to burn projected from every eyeball in the room: all of which happened to be focused right on me. A sword hung above my head, and I wondered if they were waiting for it to fall. No one made any motion to help.
+
+Putting my hands under Theo’s arms, I thrust him into the air. I prayed that seeing such a gruesomely wounded child would shock *someone* into action.
+
+“He’s hurt! He hurt his head! Please, please, he needs help!”
+
+People were no longer silent. A low murmur of harsh whispers filled the room, and instantaneously, no one retained the ability to meet my eye. The receptionists tried to resume paperwork with the people in front of the desk. The injured began to nurse their wounds like cats. Even the pregnant woman with a broken arm covered her face with the hand that still worked.
+
+“What’s- What’s wrong with you people?!”
+
+Keeping Theo to my breast, I shoved my way past the line and inserted myself before a woman at the desk. She had short dark hair, rectangular glasses, and dark blue scrubs. As she flinched to pull half-filled forms away from my sight, I caught a glimpse of a photograph near her computer. Two young girls.
+
+“L-Look! Look at—” I dropped Theo on the counter between us, leaving a wet imprint on the wood “—him! There was an accident, and- and- he slipped from out of my hands, and he-”
+
+My tears and shallow breaths were becoming too difficult to speak through; regardless, my thoughts and emotions were far too jumbled to communicate in such a way that Theo would receive the help he needed. Instead, I painstakingly lifted the bandage.
+
+“He won’t stop bleeding! He won’t answer me! Please, please, he needs to see a doctor now! He-”
+
+“Ma’am?”
+
+The woman in front of me rotated her gaze between my son and me about five times. Neither the serious expression I’d seen from her earlier nor a look of horror graced her face. Rather, she leaned back in her chair, brows furrowed and nose scrunched, almost as if she were going to sneeze. With her slightly-agape, twitching mouth, I could see the face of pause, of hesitance, of some kind of buffer that I could not even conceptualize.
+
+“What are you waiting for?! Help him!”
+
+“Ma’am, I-”
+
+“Just take him! I’ll fill everything out while he’s being treated, it’s no issue!”
+
+“Please calm down. You need to-”
+
+“He’s going to be brain-dead by the time we finish talking! Just take him!” I shouted, knocking over a cup of pens as I tried to push Theo into her arms.
+
+She recoiled and stood up, and I, sobbing, held Theo closely. As I glared incredulous hate at this useless woman, she wouldn’t face me. Instead, her gaze lay just beyond my shoulder.
+
+Just as I turned around, I was faced by a pair of adult men in blue uniforms sporting dull gold badges. Instinctively, I hid my chest away from them, protecting Theo away as I bore my fangs. Their muscular builds, unshaven faces, and brutish expressions were the opposite of the gentle care my boy *needed* so badly.
+
+“Ma’am, have you taken anything?” one shot, grabbing my left arm and turning it to expose my inner elbow. I ripped it away from him before he could roll up my sleeve.
+
+“Wh-What are you talking about?”
+
+I tried to take a step back, but I was boxed in by the counter behind me.
+
+“You’re preventing other patients from accessing emergency services. We’re going to have to ask you to leave,” said the other. He put a hand on my shoulder and pushed me towards the door.
+
+“Let go of me!” I screamed, thrashing wildly. “What’s gotten into you?! My baby needs help!”
+
+“Then you should take him to Geppetto,” sighed the first with the hint of a laugh.
+
+I have never been a strong woman. Even with the power of a terrified mother, I was no match for a pair of adult men. It was more important I prevent them from touching Theo than overpowering them.
+
+Despite my subconscious surrender, I was dragged out of the hospital kicking and screaming. I flailed, made as much noise as I could, but nothing seemed to reach anyone here. Interestingly, though, they’d all rediscovered the ability to see me.
+
+“You’re sick! Sick!” I sobbed as I felt my shoulder begin to bruise. “Why won’t any of you help him?! Help me?! He’s just a baby, a baby who hit his head; he needs you! He needs all of you! He’s going to *die*! Save him! Please, save my son!”
+
+When I stopped screaming, I was standing before my car. The sky was blue with unbearable heat, but I could barely notice it. The little life in my arms was far too cold.
