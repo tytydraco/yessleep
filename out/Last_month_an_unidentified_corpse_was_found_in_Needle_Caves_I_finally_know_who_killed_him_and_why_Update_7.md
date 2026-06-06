@@ -108,4 +108,4 @@ I promised an update in my last post, so I wanted to put this up, but I don't th
 
 Thank you, all of you, for coming along for the ride with us. Take care, and goodbye.
 
-\[Link to Part Eight (Final)\]
+[Link to Next Update (Final)](https://www.reddit.com/r/nosleep/comments/1tyqnbm/i_now_know_the_truth_final_update/)

@@ -1,0 +1,70 @@
+(Part One) 
+
+
+
+ “Are you ready to start recording Ms. Mortensen?” I didn’t know who the man in front of me was. Was he a detective? A scientist? Some true crime obsessed freak? A government official wondering how the fuck I managed to survive, or how I haven’t killed myself yet? I apologize for my tone, but try to understand. It's hard not to be angry with whatever higher power exists for what’s happening to me. Let alone, that one would even exist. I hope my nihilism proves to be correct.   
+   
+ “Ms. Mortensen!?” The man repeated loudly. I must’ve zoned out.  
+  
+ “Yeah, sorry. Where would you like me to begin?” 
+
+  “Your childhood? And before we start, do you want to come out of the dark? Be more-“ 
+
+ “No.” I said aggressively. If he wanted to see what I looked like. He could go look at the photos. Not at me. “No. The dark is safe. For both of us."
+
+My childhood, I liked thinking back to that time. It makes my external anger bury itself into the pits of my internal hell.
+
+Growing up, I wasn’t like other kids. Not in the way you’re thinking. I had a small group of friends, and I knew what people my age liked: toys, cartoons, and sports. 
+
+But, in the comfort of my home, I gravitated to my interests. I enjoyed film making. Second to that was watching and studying films, and lastly, was researching films and the stories that went with them. Documentaries were my favorite. I remembered coming home from school and watching those instead of cartoons. Nothing compares to the laughter and horror of what life throws our way. 
+
+As a kid I’d always follow everyone in my family around with a hand-held camera. I know that's typically a father’s job but mine didn’t care to do so. Either way, I liked this job more than holding the flashlight.
+
+I have hundreds of hours of footage from my life. Videos I go back and watch now. They bring me comfort, remind me of how good I had things. 
+
+I was in college studying film Total surprise, I know. The campus was a short drive away, so I opted out of dorm life. Though, the freedom of my own space would’ve been nice. I didn’t want to live with a new person. Let alone some stranger. I could handle my family for a few more years. 
+
+My neighborhood was nothing fancy, think of a suburb. Some shit you’d see in a waiting room magazine. If they still exist. The streets were long and felt like they would never end. Until you reach the cul-de-sac that spits you out like a popcorn kernel. Some roads didn’t have that. There were about fifteen hundred residents in my neighborhood. Everyone didn’t know everyone but faces became familiar over time. If there was one thing we all knew, it was to avoid the cul-de-sac on the last street, F street.  
+	  
+As the suburb expanded and more rich people bought up the land the street names became more than single letters. Most of the houses on that street had been torn down due to the loss of buyers interest. They became parks and ground for the forest to infiltrate. It was less of an eyesore. A big playground for the kids made it seem more lively, a gazebo for couples in the day and stoner teenagers at night. I don’t even know how often I got high there.
+
+The cul-de-sac was being overtaken by the land. Unkept grass, trees and bushes slowly ambushed and crawled over the rusted metal fence. There stood the dilapidated house swarmed by the badlands of grass. The siding withered away, brown from years of rainfall. Shingles falling off the roof, becoming snow piling on the ground. Windows painted in dust that could be seen through the cracks in glass. Little dog houses littered the front and backyard. They turned the yard into a cemetery for the living. All lined up in rows, random flowers surrounding them. The grass was not taller than an ankle, a mixed terrain of healthy green and dry brown. Strange, I know. Everyone in the neighborhood knew it.   
+	  
+The house was occupied by an old lady. I didn’t know her name, I don’t care to remember it now. I beg for a day the memories of that place stop persisting to be remembered. 
+
+She wasn’t the only occupant of the house. You could find your way to the house just by using your nose. The stench of ammonia plagued the air. The closer you got to the house, the stronger the scent. The sounds of sparse meows joined in, then muffled disputes of a fight. Sight joined last, the source of smell and noises walked by on their four legs. I don’t know how that lady was nose blind to it, how it hadn’t killed her or how the house was never condemned. 
+
+I avoided that part of the neighborhood until I was twenty-one. I was in my junior year of college and I received full creative control for the first time over a project. I jumped at the opportunity to do a documentary faster than the speed of light. I still can’t put all the words to how excited I was. I didn’t need to think twice about who and what my subject would be.
+
+Throughout the years I’d lived here, the neighborhood was considered safe until nightfall. Everyone decided without saying a thing that children were to be inside no later than 10 pm. It never applied to rule breaking teenagers. We were out until we saw the sunrise more times than I can count. I wasn’t alone when I went out that late. I wasn’t that stupid. I didn’t want to risk going missing. I stayed at a safe distance away from the house, but close enough to watch anything suspicious. I refused to let fear get in the way of living my life.
+
+With or without the ignorant teens, the missing persons cases piled up quickly. Some said it was the mysterious F street lady’s fault. Some thought she was a witch, or, my personal favorite, that aliens sent her to collect people for stage props for the aliens hair metal band. I believed the first half of the theory. I thought the second was fucking ridiculous.
+
+The missing persons posters were in many of the backgrounds of my memories. Faces stapled to light posts and bulletin boards. There was never a pattern. The people who went missing commonly had little family. They were wanderers whose purpose was to get intoxicated by any means necessary. In fact, the cops never found a trace of them. No clothes, blood, DNA, not even their fucking body.
+
+It caused me to always look over my shoulder. The amplitude of paranoia made me terrified to be alone until I was a teen. I was fortunate enough to believe if I went missing I’d be found. I had people who cared about me. I learned that's not true. 
+
+“What happened when you were twenty one?” The man asked and I froze. My brain’s on switch turned off. I could feel every muscle in my body constrict. I let out a shaky breath once I regained control. I could feel him look at me, though he was blind to the sight of me. 
+
+“Take the time you need.” His tone was soothing. “You’re in control here.” I paused. He was right.
+
+“Right..yeah, I was twenty-one when I started working on the project.”
+
+Twenty one. The age my life changed. The one I wanted people to know I died at when they looked at my headstone. 
+
+I was going to do a documentary on the cases and somehow score an interview with the crazy lady. Part of me wanted to give her the chance to clear her name, and another part of me wanted to know if she was guilty. Despite the trauma it would probably hand me, I wanted to find a dead body in her yard. 
+
+While I stared at missing persons posters, seeing which ones were closest to my neighborhood. A pink paper with printed black ink caught my eye. It was hidden behind a few posters, sticking out like a sore thumb. I ripped it off the bulletin board and read it. 
+
+‘In need of an in-home caregiver! Please show up at 327 F Street, Wilmington, MA. Knock on the door for an on the spot interview. I can’t wait to meet you!’
+
+I recognized the address as soon as I read it. I was grateful to be this lucky. This would give me a chance to not only interview her, but to explore her home. See if I could find anything to help solve these cases. If not, hopefully, be a great subject of a documentary about a descent into madness or hoarding or whatever is wrong with her. The only thing that hindered my excitement was having to be up close and personal with the smell of ammonia mixed with other putrid scents. I prayed silently that this would be worth it. 
+
+I heard a cellphone ring. I looked at the man being lit up by the fluorescent lights.
+
+“Excuse me, Ms. Mortensen. I forgot I had other meetings today. Are you free to meet tomorrow?” He silenced the alarm.
+
+“All I have is time. Have a good evening, or rest of your afternoon. Don’t tell me, I don’t like to know its specifics.” I spoke, not showing him any emotion. 
+
+He nodded in response and left the room with a sigh. I returned the gesture, not moving from my spot where I was curled up. It hurts to move.
+
