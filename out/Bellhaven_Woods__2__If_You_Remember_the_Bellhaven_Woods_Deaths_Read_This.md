@@ -308,7 +308,7 @@ I started down the stairs carefully, still trying to process what I was seeing. 
 
 Her eyes stayed fixed over my shoulder, toward the darkness behind me. 
 
-"I needed to make sure it wasn't him," she said quietly.
+"I needed to make sure it wasn't there," she said quietly.
 
 "What?"
 
@@ -492,7 +492,7 @@ A pause on her end. "I've been trying to figure out how to describe it." She was
 
 "Do you think that’s linked to the annex?" I said.
 
-"It has to be," she agreed. 
+"It has to be," she agreed.
 
 I looked at my cereal, which had gone soft.
 

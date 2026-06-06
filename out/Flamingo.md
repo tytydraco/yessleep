@@ -358,4 +358,4 @@ We finished our liquidation of the company and closed another case. Most boxes w
 
 When people ask me about my craziest work story, this is the one I want to tell. I don’t know what to make of it, and the people with all the real answers are long since gone. It’s so much easier to tell stories about creepy old men than trying to explain the Flamingo, but I can honestly say I think about it every day.
 
-I can’t help but to wonder. If we are stripped of the building blocks that make us what we are meant to be – what remains?
+I can’t help but wonder. If we are stripped of the building blocks that make us what we are meant to be – what remains?

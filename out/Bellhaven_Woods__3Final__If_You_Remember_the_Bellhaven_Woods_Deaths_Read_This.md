@@ -350,13 +350,13 @@ Summer still hadn’t approached us fully. She stood several feet back near the 
 
 "We don't know," Summer said. “Five days, maybe.”
 
-"I don't– Some of it I remember. Not in order." Iris muttered. "There are pieces I can access and pieces I can't. I know I was somewhere with people. I know I walked a long way. I know I ended up here and couldn't go further."
+"I don't– Some of it I remember. Not in order." Iris muttered. "I was somewhere with people and I walked a long way. I know I ended up here and couldn't go further."
 
 "I heard things," she continued. "People talking about it. I don't know what I–" She stopped. "I don't know what happened. I don't know if I—"
 
 "We don't know either," Cecile said. 
 
-"It followed us," Iris said. "Out of the facility. Out of that room. The night we went down there– whatever was in that chapel had been waiting and it attached and I don't–" She pressed her hands flat on the ground. "I don't know how much longer I can take it." She looked at all of us, then at the dark between the trees.
+"It followed us," Iris said. "Followed me. Out of the facility. The night we went down there– whatever was in that chapel had been waiting and it attached and I don't–" She pressed her hands flat on the ground. "I don't know how much longer I can take it." She looked at all of us, then at the dark between the trees.
 
 While she spoke, Summer kept scanning the tree line with the flashlight in slow movements.
 
@@ -458,7 +458,7 @@ I listened. I did not go back through the gate.
 
 Summer had a broken fibula. She'd caught her foot on a root in the dark and gone down, which was the sound I'd heard, and what she'd seen in the trees while she was on the ground I have never been able to get the full account of. She's told me pieces over the years, different pieces at different times, and I've never pushed for the whole.
 
-Cecile had separated from Summer for about ninety seconds during our exit. What happened in those ninety seconds she has not told me and I have not asked. She walked to my car when we got to the road and she got in the back seat and she sat there until Summer got in beside her. The three of us drove back to town in silence, I dropped them both at the hospital, waited while they were treated, and said nothing to anyone in the waiting room about where we had been or what we had seen.
+Cecile had separated from Summer for about ninety seconds during our exit. What happened in those ninety seconds she has not told me and I have not asked. She walked to the car when we got to the road, got in the back seat, sat there until Summer got in beside her, and then the three of us drove back to town in silence. We went to the hospital, waited while the others to be treated, and said nothing to anyone in the waiting room about where we had been or what we had seen.
 
 Iris was found at 7:41 the following morning, half a mile south of where we'd found her.
 
@@ -492,7 +492,7 @@ As for myself, every October, without fail, I still receive messages.
 
 Most come from empty accounts with no identifying information attached. Usually they contain copied Bible verses or screenshots from archived paranormal forums or blurry photographs of the woods behind Route 9. Some are obviously sent by people trying to scare me because they recognized my name from old records tied to the case.
 
-A few of them were harder to explain. About six years ago I received a message from an account using Iris’ full name. It contained one sentence: you never told them about the hallway
+A few of them were harder to explain. About six years ago I received a message from an account using Iris’ full name. It contained one sentence: you never told them about the footprints.
 
 I never mentioned that night publicly. I never included it in any statement. The only people who knew Iris appeared inside my house that evening were me and Iris herself. I spent almost a week afterward going back through old messages and archived conversations trying to convince myself I had described it somewhere years earlier and forgotten. I never found anything.
 
