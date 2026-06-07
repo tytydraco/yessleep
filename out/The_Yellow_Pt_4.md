@@ -1,5 +1,5 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1s301hp/the_yellow_pt_1/) [Part 2](https://www.reddit.com/r/nosleep/comments/1s7iwjs/the_yellow_pt_2/) [Part 3](https://www.reddit.com/r/nosleep/comments/1sbgs9y/the_yellow_pt_3/)  
-I got pulled into other things and forgot that I had written this.7 years had passed afterwards. Anyway—where was I? Oh, right..
+I got pulled into other things and forgot that I had written this. There was a major Blackout a day later too but wasn't a huge deal. Then seven years had passed afterwards. Anyway—where was I? Oh, right..
 
 A lot has happened. Too many Yellow Events to count. Too many Newcomers who either stayed or… didn’t. I’m ashamed to admit it, but half the time I didn’t warn them. First impressions matter here, and most of them were rude anyway. I felt bad for their kids, but honestly, the kids weren’t much better.
 
