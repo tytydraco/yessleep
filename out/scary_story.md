@@ -1,0 +1,41 @@
+"Ugh..i barley slept last night . Too much noise from my parents setting the furniture and opening cardboard boxes. I slept on my mattress on the floor, like how it usually is the first night after moving, but it was surprisingly hard. maybe beacause the new house has wooden floors instead of rugs. Either way, I'm happy to be back."        My line of thougths was interrupted as i heard Keven, my childhood friend, running towards me yelling my name with a big smile on his face. Although my face didn't show it, I was as happy as he was. It's my first time seeing him since 4th grade, that's almost 3.5 yaers. We're in 8th grade now,finally together.
+
+Keven pulled me into a big hug, almost choking me. He's just like he used to: strong,energetic, and his aura still as bright as it was 3.5 years ago.
+
+Keven said everything everyone said ever since i came back: how've you been, we missed you, you've grown..etc, but from him everything sounded genuine. I didn't realise how much i missed him until we were face to face.
+
+In no time, i found myself at school, surrounded by kids and teachers asking how California was. They think theyr'e nice drowning me in questions, but i knew they were just curious. And i was right, by lunch period they forgot i was even there and i was back on the wobbly table in the corner acccompanied by Keven.
+
+"Everything okey ?, you've been looking like you you hate your life more than usual" Keven asked noticing the sour expression on my face.
+
+"Nothing, just..tired from moving and stuff."
+
+"I haven't seen you in a while, but i know your face better than anyother. Just spit it out."
+
+"My parents their..getting a divorce." I said after a long pose, my eyes not able to meet keven's.
+
+"Is that why you moved back here ?." Keven asked lowering his face to try and meet mine.
+
+"Yeah, mom is leaving as soon as dad divorces her, I hope it all ends soon so i can finally sleep peacefully for once."
+
+The rest of the day flew quickly from classes to listening to Keven talk about how well he's doing on the football team which I felt a growing bitterness towards as he talked. Despite that, I'm happy for him.
+
+While searching for my new Call Of Duty 4 that my parents bought a while ago, probably to distract me from their shit. It was supposed to be somewhere in the boxes under the kitchen counter, Keven was coming over the following day to try it with me, but something else cought my eye. A dusty VHS tape tucked under a bunch of books. I figured it was dad's since mom already took everything that belonged to her, but it was weird since we never used VHS tapes to store videos. My curiosity got the best of me and I decided to check it out. Rolling the VHS tape in my hand before I popped it in the player, I noticed a date carved on the side "28/11/2008" "weird, that's a week from now, could it be a time capsole of some sort ?" Thoughts were spamming in my head as I put the tape in the player.
+
+Static, strong static that played as soon as I put it in for about 15 seconds, then it started playing showing a birthday party, people singing and music played. In the centre stood..Jenny? why in the world would we have a VHS tape of her ? Jenny is a french girl who moved here a while back according to Keven. I saw her in chem class yesterday I also noticed Keven falling head over heels for her, he'd probably be pissed i have her on tape LOL.
+
+I snapped back to reality at the doorbell ringing a few times in row "Coming!" I said loudly because apparently whoever's at the door has no patience. A man looking to be in his 50s with an over grown salt an pepper beard stood at the door carrying a toolbox.
+
+"Can I help you?" I asked, annoyed
+
+"Uh motion-activated lights ?" He said quietly almost mumbling.
+
+"Ohh yea right, come in" I motioned him to come in.
+
+I had remebered my dad said something about installing motion-activated lights since it's only me and him now, and he'd be at work most of the time, but gosh couldn't he hire someone who didn't look like a homeless person ?.
+
+The guy, Warner, according to the badge on his worn out jacket walked two steps in then stopped, turned to me, and pointed with his fingers to the spots he's supposed to install the lights without saying a word. Mind you he did that in a very slow pace to the point of the whole thing being awkward.
+
+"Exactly, go ahead." I said while retreating to the kitchen, to make him a drink and to save myself from the awkward situation.
+
+Whilst making him a cup of tea, I couldn't help but feel uneasy at how quiet that man worked. After about 5 minutes I took the cup in my hand and headed out the kitchen and into the hallway where he was just to see he was nowhere to be seen, I started to freak out thinking he was a thief, but there they were, the motion activated lights on the ceilling, a trail of mudy shoes the only trace left of him.
