@@ -4,7 +4,7 @@ I was bored and restless and lonely and I was tired of bothering the same three 
 
 The post was on r/MakeNewFriendsHere. I said I was 28F, looking for friends between 25 and 30. Within an hour, I had more than a hundred DMs.
 
-Most were from men. Obviously.
+Most were from men.
 
 Some were normal for a few messages before becoming really weird. Some were lonely in a way that made me feel guilty for not answering. Some weren’t trying to be normal at all. They asked if I was single, where I lived, what I slept in, and what platonic meant, as if they could talk me out of my own request.
 
@@ -52,9 +52,9 @@ I asked what it was.
 
 He paused before answering. “My mother does.”
 
-That’s how he talked about anything strange. He never said he particularly believed something himself. He always gave the belief to somebody else. My mother says. My grandmother used to tell us “people know better than to…” Etc. Etc. 
+That’s how he talked about anything strange. He never said he particularly believed something himself. He always gave the belief to somebody else. My mother says. My grandmother used to tell us. “People know better than to…” Etc. Etc. 
 
-I thought it was interesting and that it was probably cultural. 
+I thought it was interesting and probably cultural. 
 
 At first, we talked about ancestry. Mine, because he’d asked. His, because I asked back. He told me about Greece and Finland in alternating pieces, as if neither place had fully claimed him yet. He sent pictures of food his mother made and dishes he tried to recreate, albeit terribly. He sent snow from his window. He sent voice notes while walking home, his breath catching in the cold.
 
@@ -108,7 +108,7 @@ He hated the jokes. “You’re not that old?” he said, his voice rising at th
 
 By month six, I was going to Finland.
 
-Before anyone says it, I did the safety things, OK. I booked my own hotel. I sent my friend his full name, address, phone number, social media, and every screenshot I had. She made a folder called **IF MARIE DIES IN FINLAND**. Ha. ha. Very funny. 
+Before anyone says it, I did the safety things, OK. I booked my own hotel. I sent my friend his full name, address, phone number, social media, and every screenshot I had. She made a folder called **IF MARIE DIES IN FINLAND**. Ha.
 
 We were supposed to meet in public. Dinner first. No going straight to his apartment. No airport pickup. 
 
@@ -216,7 +216,7 @@ The next day, he apologized. Of course he did. He said he’d slept badly. He sa
 
 He looked at me for a long moment. “It means she should mind her business,” he said.
 
-That night, I went to his apartment. Aaand. OK. I can feel you judging me. 
+That night, I went to his apartment.
 
 His building was old, with yellow light in the stairwell and boots lined up outside doors. His apartment smelled like radiator heat, coffee, and him. The blue cabinets were real. The ugly lamp was real. The sweater he always wore during video calls hung over the back of a chair. I remember feeling almost dizzy with tenderness. Six months of proof had become real. He made tea.
 
@@ -274,7 +274,7 @@ His eyes moved to my lips and then away.
 
 I was tired, and far from home, and very, very in love with the version of him I had carried across the ocean. So I did what I had already done a hundred times before, in smaller ways, through a screen.
 
-I made the silence easier for him. I kissed him first, and when I did, he made a sound like relief. He was scared. I knew he was scared. But he stayed.
+I kissed him first, and when I did, he made a sound like relief. He was scared. I knew he was scared. But he stayed.
 
 His hands came to my waist like he still wasn’t sure he was allowed to touch me, and then his fingers curled into my sweater. He was trembling, but I was too. Nerves. Wanting. The absurd, impossible fact of finally being in the same room after all that time.
 
@@ -290,13 +290,15 @@ Then his breath caught, and my jaw slipped. I pulled back because I thought I’
 
 I tried to answer him, but my tongue was in the wrong place. My teeth didn’t meet. Ari stepped back, and I stepped with him. He said my name again. His eyes kept dropping to my mouth and then lifting back to my face, like he was trying really hard not to look. I wanted to tell him I was sorry and that I was scared too. Instead, I put both hands on his face, gently.
 
-His skin was warm under my palms. His mouth opened like he was going to say something, and my mouth opened wider. There was a wet click near my ear, and Ari made a sound I’d never heard from him before. It was too surprised to be a scream. I pressed his forehead against the roof of my mouth.
+His skin was warm under my palms. His mouth opened like he was going to say something, and my mouth opened wider. There was a wet click near my ear, and Ari made a sound I’d never heard from him before. It was too surprised to be a scream.
 
-His hands hit my wrists, then my shoulders, then the side of my neck. He was trying to push himself out, but there was nowhere for him to push against because I’d already leaned over him. The back of his head slid past my teeth, and then the tea glass dropped and broke against the floor. His body kicked hard enough that one heel struck the cabinet. The blue cabinet. The one I’d seen behind him for six months while he made coffee, while he leaned against the counter during video calls. His fingers grabbed my sweater and twisted in the fabric. His knees buckled, and I went down with him, still holding him like I was comforting him.
+I pressed his forehead against the roof of my mouth.
 
-His breath filled me, hot and panicked, and then it stopped. I could feel the shape of him fighting me: his jaw, his throat, the hard line of his shoulders. My own throat widened around him with a slow, painless ache, and my ribs opened in small clicks I felt more than heard. Ari’s hands weakened against me. One of them slid down my arm and caught at my sleeve like he was still trying to hold on to the version of me that had arrived in his apartment with flowers in her hand.
+His hands hit my wrists, then my shoulders, then the side of my neck. He was trying to push himself out, but there was nowhere for him to push against because I’d already leaned over him. The back of his head slid past my teeth, and then the tea glass dropped and broke against the floor. His body kicked hard enough that one heel struck the cabinet. The blue cabinet. The one I’d seen behind him for six months while he made coffee, while he leaned against the counter during video calls. His fingers grabbed my sweater and twisted the fabric. His knees buckled, and I went down with him, still holding him like I was comforting him. Nurturing him.
 
-I kept waiting for pain, but there really wasn’t any. There was only room. His shoulders were the worst part. I stopped thinking in full thoughts. I remember the floor under my knees. I remember his sleeve bunched in my hand. I remember the sound his shoe made against the cabinet when his leg kicked once and then didn’t again. 
+His breath filled me, hot and panicked, and then his breath stopped. I could feel the shape of him fighting me: his jaw, his throat, the hard line of his shoulders. My own throat widened around him with a slow ache, and my ribs opened in small clicks I felt more than heard. Ari’s hands weakened against me. One of them slid down my arm and caught at my sleeve like he was still trying to hold on to the version of me that had arrived in his apartment with flowers in her hand.
+
+There really wasn't any pain. There was only room. I stopped thinking in full thoughts. I remember the floor under my knees. I remember his sleeve bunched in my hand. I remember the sound his foot made against the cabinet when his leg kicked once and then stopped. 
 
 When the last of him passed my teeth, I was kneeling on his kitchen floor in my wool socks, one hand against the cabinet, breathing through my nose. The radiator knocked in the wall. The snow kept falling outside the window. There was a strand of his curly hair stuck to my lip.
 
@@ -314,7 +316,9 @@ The screen lit up with a message from his mother. It was in Greek, mostly, but I
 
 Lamia.
 
-I knew that word. I don’t know Greek, but I know what people call women like me when they have old names for it. Lamia. Empousa. Xtabay. Siguanaba. Cigua. Yakshi. Pontianak. Mandurugo. Different languages. Same warning. Different mothers telling their sons not to let me in. 
+I knew that word. I don’t know Greek, but I know what people call girls like me when they have old names for it. Lamia. Empousa. Xtabay. Mandurugo. Yakshi. Pontianak.
+
+Different languages. Same warning. Different mothers telling their sons not to let me in. 
 
 The message stayed there until the screen went dark.
 
