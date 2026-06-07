@@ -144,7 +144,7 @@ He looked at my mouth before answering. “Yes.”
 
 “I know.”
 
-“You’re acting like I showed up at your window.”
+“You’re acting like I showed up unannounced.”
 
 He looked at me then, quick and almost guilty. “I know,” he said again.
 
@@ -206,7 +206,7 @@ I laughed because I was embarrassed.  “I’m not *dangerous*,” I said.
 
 He looked at me for a second too long. “I know,” he said shortly.
 
-The next day, he apologized. Of course he did. He said he’d slept badly. He said his mother was super intense. He said she’d called me something in Greek and that he didn’t want to translate.
+The next day, he apologized. He said he’d slept badly. He said his mother was super intense. He said she’d called me something in Greek and that he didn’t want to translate.
 
 “Translate it,” I said.
 
@@ -244,7 +244,7 @@ He smiled at that, but the smile faded quickly.
 
 “I’m just nervous.”
 
-“Uh… That’s allowed.”
+“Ari, I'm *also* nervous.”
 
 He nodded, but he looked past me toward the hallway.
 
@@ -288,9 +288,9 @@ Then his breath caught, and my jaw slipped. I pulled back because I thought I’
 
 “Marie,” he said, and it came out small.
 
-I tried to answer him, but my tongue was in the wrong place. My teeth didn’t meet. Ari stepped back, and I stepped forward. He said my name again. His eyes kept dropping to my mouth and then lifting back to my face, like he was trying really hard not to look. I wanted to tell him I was sorry and that I was scared too. Instead, I put both hands on his face, gently.
+I tried to answer him, but my tongue was in the wrong place. My teeth didn’t meet. Ari stepped back, and I stepped forward. He said my name again. His eyes kept dropping to my mouth and then lifting back to my face, like he was trying really hard not to look. I wanted to tell him I was sorry and that I was scared too, but I couldn't. Instead, I put both hands on his face, gently.
 
-His skin was warm under my palms. His mouth opened like he was going to say something, and my mouth opened wider. There was a wet click near my ear, and Ari made a sound I’d never heard from him before. The sound was too surprised to be a scream.
+His skin was warm under my palms. His mouth opened like he was going to say something, and my mouth opened wider. There was a wet click near my ear, and Ari made a sound I’d never heard from him before. Too surprised to be a scream.
 
 I pressed his forehead against the roof of my mouth.
 
