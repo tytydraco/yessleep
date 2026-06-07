@@ -1,0 +1,140 @@
+Behind the old bowling alley, there is a building on the side of the hill. It’s a small, run-down cabin only hidden by a few sparse trees. Some days when I go out to smoke, I just stare at it.
+
+
+
+I didn't think much of it until I asked one of my coworkers. She got this serious look on her face and went completely silent. After a few seconds, she just took a long sip of her beer and shook her head. Anytime I tried to push further, she was quick to shut me down.
+
+
+
+Later that weekend, I tried to ask my friend Levi, who had lived in the town his whole life. He was normally such a happy, carefree guy, but his face turned nearly white when I asked him. He tried to change the conversation. When I pushed him on it, he said, “*It’s a place where bad shit happens. Promise me you won’t go there- I have to hear you say you promise.*” Seeing how serious he was, I promised, albeit hesitantly. He acted off the rest of the night, leaving early because he had something come up at the last minute.
+
+
+
+Even with what Levi had said, I had to go find out for myself. I had to see it, even if it was nothing, even if it was dangerous- I just had to know.
+
+
+
+When night came, I told my dad I was gonna get food. He nodded, barely looking up from the scattered paperwork and beer bottles that littered his desk. I watched him for a moment before I left for the cabin. When I got there, I made my way down the hill and across the creek. The area around the cabin was silent, no crickets, no birds, nothing.
+
+
+
+I stood at the front of the cabin. The wood warped and darkened. I traced the outside with my flashlight. It was small, probably no more than two or three rooms. I looked down at the cracked wood on the stairs leading up to the porch. I placed my foot on one step and pushed the wood slightly. It creaked, but held well under the weight.
+
+
+
+I stepped onto the porch, which had a single rocking chair, swaying slightly in the faint wind. I stepped up to the wooden door and stood there for nearly a full minute. A part of me wanted to go back, the rational part of my brain telling me that whatever was in here wasn’t worth it. But a bigger part of me had to know what scared people so much about this old place.
+
+
+
+A wooden chair had been wedged beneath the handle, blocking the door from the outside. I moved it aside and pushed the door slightly. It squeaked loudly against the heavily rusted hinges.
+
+
+
+I shone my flashlight inside. The place still had old furniture that looked completely untouched, all covered in a layer of dust. There was an old wooden bed, a small bedside table, and a moldy red carpet. I took a step inside, propping the door open with the chair. The air inside was still, my flashlight illuminating the dust particles floating in the air.
+
+​
+
+I looked over to the door to my left. It was closed, the walls next to it adorned with paintings I didn’t recognize. I walked over to the door and gave it a soft push, as it creaked open. I shone my flashlight through the doorway.
+
+​
+
+I stopped, nearly dropping my flashlight as my heart sank to my feet and my stomach churned.
+
+​
+
+On the opposite side of the room, something impossibly large was crouched against the wall.
+
+​
+
+My heart raced as I stared at it. I took a slow, careful step backward before bumping into the door. I jumped at the sudden contact, dropping the flashlight as it clattered to the floor, illuminating the thing in a sickening light.
+
+​
+
+I whipped around, about to run as far as I could before a pungent scent cut through the air, filling my nostrils. It smelled exactly like the fudge that my mom made for Christmas. It was something I hadn’t smelt in so long. I slowly turned around, facing the thing on the other side of the cramped room. The hair hanging from its face stirred, the rest of its body as still as stone.
+
+​
+
+The smell wafted through the air, latching onto me like an invisible rope. Against my better judgment, I took a step towards it. The hair on its face rustled as its lower jaw began to drop, popping and cracking as it stretched until it hit the floor.
+
+
+
+I walked up to it until it was towering above me. I stared into its maw, a tunnel made of old flesh. It had two rows of flat teeth on its lower jaw that, like pigs fighting for food, pushed against each other.
+
+​
+
+As I got closer, I realized something. The smell was coming from inside its throat. I saw a glint of something peeking out from behind its matted hair.
+
+
+
+It was an eye.
+
+
+
+Staring directly at me.
+
+
+
+My body tightened. I had to run to get as far away from here as possible and never return. I took a deep breath- and I smelled it again. The sweet smell of freshly made fudge. The memory of her was so warm that it was hard to fight against it. I turned my head back down as I gazed into its mouth. It was more repulsive than anything I’d ever seen in my life— but it smelled so nice, so comforting.
+
+​
+
+Before I realized it, I had stepped into its mouth. My shoe sank into its tongue, making a sickening squelch. The inside was covered in dark blood and various, frantic scratch marks. I looked down at its massive, crooked teeth. They were the size of dinner plates, yellowed and covered in what looked like dried blood.
+
+​
+
+It did not react.
+
+​
+
+Its throat stretched, a deep, convulsing tunnel that seemed to go on forever.
+
+​
+
+It smelled so sweet. Now that I was closer, I could smell it so clearly. I closed my eyes and pictured the homemade bars of whipped fudge, topped with crushed bits of peppermint. I could picture my mother smiling as she handed them to me. I felt myself smile.
+
+​
+
+I took another step.
+
+​
+
+I pushed against the saliva-covered walls. My hands were almost sticking to the tacky, slick flesh.
+
+I got on my hands and knees and began crawling. Its mouth was slimy, covered in thick, viscous saliva. I could hear it breathing around me, deep, low breaths that sounded more like a building settling than any living creature. It was calm, remaining patiently still.
+
+​
+
+I saw the light behind me slowly disappear as its mouth closed. I couldn’t go back, nor did I want to. I merely just kept crawling further. Its throat began to constrict around me. My clothes began to rip and tear against the pressure. I couldn’t do anything but pull myself forward.
+
+​
+
+I heard a loud pop as my leg snapped in two, tearing open my skin like wet cloth. The pain was unbearable. I stopped momentarily before clenching my teeth, using the only leg I had to push myself forward, deeper into it.
+
+​
+
+I was so close, I could feel it. If I just kept crawling, I might be able to remember what she looked like, the way she laughed, the way she smiled when she looked at Dad and me.
+
+Things I had not seen in so, so long.
+
+​
+
+I lost feeling in my legs, pulling myself forward with my hands, my nails scraping against the walls of its slimy throat.
+
+
+
+Each desperate pull only moved me a few centimeters, but I could do nothing else but continue to move. I used what hollow strength I had to push against it as I crawled forward. With each pulse of its throat, I felt my grip loosen.
+
+​
+
+I felt an intense pressure build up around my chest, squeezing me until I felt my ribs begin to snap. I felt one of them tear into my lungs as all the air rushed out of me.
+
+My arms dropped, pushed together, then folded backward over my elbow with a loud pop as I felt blood pour out of the fresh wound. Every ounce of strength left my body as I screamed; the sound muffled against the breathing walls.
+
+​
+
+Something sweet began to pool in my mouth as my vision blurred.
+
+​
+
+It tasted like fudge.
+
