@@ -1,4 +1,4 @@
-I knew that before I made the post. I knew that while I was typing “platonic only please,” and I definitely knew that when I added a selfie, which wasn’t my smartest choice, but I’d just gotten a cute haircut and my eyeliner finally matched on both eyes(!!).
+I knew that before I made the post. I knew that while I was typing “platonic only please,” and I definitely knew that when I added a selfie, which wasn’t my smartest choice, but I’d just gotten a cute haircut and I'd finally gotten my eyeliner to match on both eyes(!!).
 
 I was bored and restless and lonely and I was tired of bothering the same three friends with the same three complaints. I said I was looking for platonic friendships because the last person I met hurt me more than I wanted to admit.
 
@@ -26,7 +26,7 @@ I stared at that for a long time.
 
 It made me uncomfortable, which was probably why I answered.
 
-My family history has always been a room where everyone talks over each other. Mexican, yes. Indigenous, probably. Spanish, maybe? Mestizo, likely. A great-grandmother nobody liked to describe. A grandfather who changed the subject. A relative who once told me that some families survive by forgetting which door they came through. No one agrees on anything, and everyone acts like they know more than they’re saying.
+My family history has always been a room where everyone talks over each other. Mexican, yes. Indigenous, probably. Spanish, maybe? Mestizo, likely. A great-grandmother nobody liked to describe. A grandfather who changed the subject. No one agrees on anything, and everyone acts like they know more than they’re saying.
 
 So I asked him what he meant.
 
@@ -174,7 +174,7 @@ He was standing so close, and the snow had melted into his hair, making the curl
 
 I wanted to kiss the worry off his face. So I did.
 
-It was quick at first. A small kiss. His mouth was cold from the air, but softer than I expected, and his fingers tightened around the paper-wrapped flowers in my hand.
+A small kiss. His mouth was cold from the air, but softer than I expected, and his fingers tightened around the paper-wrapped flowers in my hand.
 
 For half a second, he kissed me back.
 
@@ -206,7 +206,7 @@ I laughed because I was embarrassed.  “I’m not *dangerous*,” I said.
 
 He looked at me for a second too long. “I know,” he said shortly.
 
-The next day, he apologized. Of course he did. He said he’d slept badly. He said his mother was intense. He said she had dreams sometimes and believed them too literally. He said she’d called me something in Greek that he didn’t want to translate.
+The next day, he apologized. Of course he did. He said he’d slept badly. He said his mother was super intense. He said she’d called me something in Greek and that he didn’t want to translate.
 
 “Translate it,” I said.
 
@@ -220,7 +220,7 @@ That night, I went to his apartment.
 
 His building was old, with yellow light in the stairwell and boots lined up outside doors. His apartment smelled like radiator heat, coffee, and him. The blue cabinets were real. The ugly lamp was real. The sweater he always wore during video calls hung over the back of a chair. I remember feeling almost dizzy with tenderness. Six months of proof had become real. He made tea.
 
-I stood in his kitchen wearing wool socks because he’d asked me to take off my shoes. He was moving around too much, touching things and then not using them. The kettle. A mug. A spoon. The box of tea. He kept starting little tasks and abandoning them halfway through, like his body had too much feeling in it and nowhere to put it.
+I stood in his kitchen wearing wool socks because he’d asked me to take off my shoes. He was moving around too much, touching things and then not using them. The kettle. A mug. A spoon. The box of tea. He kept starting little tasks and abandoning them halfway through, like his body had too much feeling in it and nowhere to direct it.
 
 It really was cute. He was blushing all the way to his ears, and his curls were still damp from the snow, and every time I looked at him directly, he looked down like I had caught him doing something embarrassing.
 
@@ -260,7 +260,7 @@ That got a real smile out of him.
 
 Then I stepped closer, and he went still.
 
-I think he was trying to be careful? I thought he was one of those guys who wanted so badly not to make you uncomfortable that they accidentally made everything more awkward. It made me like him more. 
+I think he was trying to be careful? I think he was one of those guys who wanted so badly not to make you uncomfortable that they accidentally made everything more awkward. It made me like him more. 
 
 “You know, you can touch me,” I said.
 
@@ -274,7 +274,7 @@ His eyes moved to my lips and then away.
 
 I was tired, and far from home, and very, very in love with the version of him I had carried across the ocean. So I did what I had already done a hundred times before, in smaller ways, through a screen.
 
-I kissed him first, and when I did, he made a sound like relief. He was scared. I knew he was scared. But he stayed.
+I kissed him first, and when I did, he made a sound like relief. He was scared. I knew he was scared.
 
 His hands came to my waist like he still wasn’t sure he was allowed to touch me, and then his fingers curled into my sweater. He was trembling, but I was too. Nerves. Wanting. The absurd, impossible fact of finally being in the same room after all that time.
 
@@ -288,7 +288,7 @@ Then his breath caught, and my jaw slipped. I pulled back because I thought I’
 
 “Marie,” he said, and it came out small.
 
-I tried to answer him, but my tongue was in the wrong place. My teeth didn’t meet. Ari stepped back, and I stepped toward him. He said my name again. His eyes kept dropping to my mouth and then lifting back to my face, like he was trying really hard not to look. I wanted to tell him I was sorry and that I was scared too. Instead, I put both hands on his face, gently.
+I tried to answer him, but my tongue was in the wrong place. My teeth didn’t meet. Ari stepped back, and I stepped forward. He said my name again. His eyes kept dropping to my mouth and then lifting back to my face, like he was trying really hard not to look. I wanted to tell him I was sorry and that I was scared too. Instead, I put both hands on his face, gently.
 
 His skin was warm under my palms. His mouth opened like he was going to say something, and my mouth opened wider. There was a wet click near my ear, and Ari made a sound I’d never heard from him before. The sound was too surprised to be a scream.
 
@@ -296,7 +296,7 @@ I pressed his forehead against the roof of my mouth.
 
 His hands hit my wrists, then my shoulders, then the side of my neck. He was trying to push himself out, but there was nowhere for him to push against because I’d already leaned over him. The back of his head slid past my teeth, and then the tea glass dropped and broke against the floor. His body kicked hard enough that one heel struck the cabinet. The blue cabinet. The one I’d seen behind him for six months while he made coffee, while he leaned against the counter during video calls. His fingers grabbed my sweater and twisted the fabric. His knees buckled, and I went down with him, still holding him like I was comforting him. Nurturing him.
 
-His breath filled me, hot and panicked, and then his breath stopped. I could feel the shape of him fighting me: his jaw, his throat, the hard line of his shoulders. My own throat widened around him with a slow ache, and my ribs opened in small clicks I felt more than heard. Ari’s hands weakened against me. One of them slid down my arm and caught at my sleeve like he was still trying to hold on to the version of me that had arrived in his apartment with flowers in her hand.
+His breath filled me, hot and panicked, and then, finally, his breath stopped. I could feel the shape of him fighting me: his jaw, his throat, the hard line of his shoulders. My own throat widened around him with a slow ache, and my ribs opened in small clicks I felt more than heard. Ari’s hands weakened against me. One of them slid down my arm and caught at my sleeve like he was still trying to hold on to the version of me that had arrived in his apartment with flowers in her hand.
 
 There really wasn't any pain. There was only room. I stopped thinking in full thoughts. I remember the floor under my knees. I remember his sleeve bunched in my hand. I remember the sound his foot made against the cabinet when his leg kicked once and then stopped. 
 
@@ -310,7 +310,7 @@ I started crying now too, right there on Ari’s kitchen floor, with broken glas
 
 Ari’s phone buzzed on the table.
 
-The screen lit up with a message from his mother. It was in Greek, mostly, but I recognized one word immediately.
+The screen lit up with a message from his mother. It was in Greek, but I recognized one word immediately.
 
 Λάμια.
 
@@ -318,11 +318,13 @@ Lamia.
 
 I knew that word. I don’t know Greek, but I know what people call girls like me when they have old names for it. Lamia. Empousa. Xtabay. Mandurugo. Yakshi. Pontianak.
 
-Different languages. Same warning. Different mothers telling their sons not to let me in. 
+Different languages. Same warning. Different mothers telling their sons not to invite me in. 
 
 The message stayed there until the screen went dark.
 
-I opened my own phone after that. My Reddit post was still up!! :)
+I opened my own phone after that.
+
+My Reddit post was still up!! :)
 
 There were new messages waiting. Men saying hi, hey, saw your selfie, I’m lonely too, platonic is fine, you have interesting eyes, where are you from, you look familiar, where are your features from?
 
