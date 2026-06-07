@@ -1,0 +1,515 @@
+Part 1: https://www.reddit.com/r/nosleep/s/oM7snDTpgW
+
+My grandfather died two years ago.
+
+For most people, that would have been the end of a story.
+
+For me, it was the beginning.
+
+The funeral was small.
+
+Just family, a few old friends, and several gray-haired men from town who looked like they'd spent their entire lives working the mountains. Men with scarred hands and bad backs. Men who rarely showed emotion.
+
+A few of them cried.
+
+That bothered me.
+
+Not because they cried.
+
+Because of the way they looked at Granddad's coffin.
+
+The fear in their eyes.
+
+Not grief.
+
+Fear.
+
+As if the only man who understood something dangerous had just left them alone with it.
+
+I noticed it then.
+
+I didn't understand it until much later.
+
+After the funeral, life moved on.
+
+At least it tried to.
+
+Mine didn't.
+
+Every few months another child disappeared.
+
+Another headline.
+
+Another search party.
+
+Another family standing in front of television cameras begging for information.
+
+Every single time, I found myself thinking about Granddad.
+
+About those nights on the porch.
+
+About the Childabites.
+
+About all the things he'd refused to tell me.
+
+By the time I turned twenty-nine, the questions had become unbearable.
+
+I needed answers.
+
+Not stories.
+
+Answers.
+
+So I started digging.
+
+The deeper I dug, the stranger things became.
+
+The first surprise came from old newspaper archives.
+
+The second came from county records.
+
+The third came from people.
+
+Old people.
+
+The kind who remembered things they weren't supposed to.
+
+Most didn't want to talk.
+
+Some hung up the phone.
+
+Others simply changed the subject.
+
+But every once in a while I'd find somebody willing to share a little.
+
+One old woman from Marion County told me something that stuck with me.
+
+"You remind me of your grandfather."
+
+I smiled.
+
+"Thanks," I said 
+
+"No," she said. "That's not a compliment."
+
+I remember feeling confused.
+
+"What do you mean?"
+
+The woman hesitated.
+
+Then she lowered her voice.
+
+"That man spent his whole life chasing things that should've been left alone."
+
+I sat up straighter.
+
+"What things?"
+
+Silence.
+
+Then:
+
+"The things under the mountain."
+
+The line went dead shortly afterward.
+
+I spent the next three weeks trying to call her back.
+
+She never answered.
+
+That wasn't the only strange conversation.
+
+An old retired deputy remembered my grandfather immediately.
+
+"He was obsessed."
+
+"With what?"
+
+"Missing kids."
+
+That didn't surprise me.
+
+"What else?"
+
+The deputy stared at me for several seconds.
+
+Then he said something that made my blood run cold.
+
+"Your granddad always seemed to know where to search."
+
+"How?"
+
+"I don't know."
+
+The old man frowned.
+
+"But every time a child vanished, he'd show up before anyone else."
+
+"Maybe he heard the news."
+
+The deputy shook his head.
+
+"I'm talking before the news."
+
+That sat with me for days.
+
+How could Granddad know?
+
+How could anybody know?
+
+Then I found the journals.
+
+The metal box beneath the floorboard contained seven notebooks.
+
+Every single one handwritten.
+
+Every single one dated.
+
+The oldest was nearly sixty years old.
+
+The newest was written only a few months before his death.
+
+I spent an entire weekend reading them.
+
+By the time I finished, I barely slept.
+
+Because Granddad hadn't spent his life telling stories.
+
+He'd spent his life hunting.
+
+The first journal explained everything.
+
+Or at least where it began.
+
+According to his own writing, he encountered a Childabite when he was eleven years old.
+
+He and his younger brother had wandered into the woods while searching for blackberries.
+
+They stayed out too late.
+
+Darkness fell.
+
+The forest changed.
+
+Then they heard their mother calling.
+
+The voice came from deeper among the trees.
+
+His brother started toward it immediately.
+
+Granddad knew something was wrong.
+
+Their mother was home.
+
+Two miles away.
+
+Yet somehow they could hear her.
+
+Calling their names.
+
+Over.
+
+And over.
+
+And over.
+
+His brother followed the voice.
+
+Granddad followed his brother.
+
+The journals described what happened next in terrifying detail.
+
+The voice led them to the mouth of a cave.
+
+A narrow opening hidden among rocks.
+
+The voice came from inside.
+
+Their mother sounded scared.
+
+Crying.
+
+Begging for help.
+
+His brother stepped into the darkness.
+
+Then stopped.
+
+Something moved.
+
+Granddad never described it clearly.
+
+Only fragments.
+
+Long limbs.
+
+Pale skin.
+
+Eyes reflecting light that wasn't there.
+
+And a smile.
+
+A smile that stretched far wider than any human face should have been capable of.
+
+His brother looked directly at it.
+
+Granddad grabbed him.
+
+Pulled him backward.
+
+Then ran.
+
+The thing followed.
+
+Not fast.
+
+Not chasing.
+
+Walking.
+
+As if it already knew where they would end up.
+
+They made it home.
+
+His brother survived.
+
+But Granddad wrote something strange.
+
+Something that appeared repeatedly throughout the journals.
+
+"Once they notice you, they don't forget."
+
+At first I thought it was paranoia.
+
+Then I kept reading.
+
+Over the next seventy years he encountered them again.
+
+And again.
+
+And again.
+
+Sometimes years apart.
+
+Sometimes only months.
+
+Always near tunnel systems.
+
+Always near disappearances.
+
+Always after reports of strange voices in the woods.
+
+The journals described dozens of encounters.
+
+One happened in the late 1970s.
+
+A missing boy.
+
+A search party.
+
+Granddad volunteered.
+
+Three days into the search he found tracks leading into an abandoned mining entrance.
+
+Most people turned back.
+
+He didn't.
+
+According to the journal, he followed the tunnel nearly a mile underground.
+
+There, he found evidence of children.
+
+Tiny shoe prints.
+
+Clothing.
+
+Drawings scratched into stone.
+
+Then he heard something.
+
+A voice.
+
+His own voice.
+
+Calling from farther down the tunnel.
+
+The realization nearly made me drop the journal.
+
+They could mimic anyone.
+
+Even you.
+
+Granddad wrote that he immediately shut off his flashlight and closed his eyes.
+
+Then he backed out of the tunnel blindly.
+
+He never looked.
+
+Not once.
+
+When he reached daylight, he vomited.
+
+The next page simply read:
+
+"They almost got me."
+
+Years later it happened again.
+
+Different county.
+
+Different mountain.
+
+Same result.
+
+This time he saw one standing near an old logging road.
+
+Watching him.
+
+Waiting.
+
+The journal described its eyes in disturbing detail.
+
+Not glowing.
+
+Not monstrous.
+
+Human.
+
+Too human.
+
+That was what made them dangerous.
+
+According to Granddad, the eyes created a feeling.
+
+Not hypnosis.
+
+Not mind control.
+
+Recognition.
+
+The overwhelming certainty that you knew the creature.
+
+Trusted it.
+
+Belonged with it.
+
+Needed to follow.
+
+He looked away before the feeling could fully take hold.
+
+Another escape.
+
+Another close call.
+
+Another entry ending with the same sentence.
+
+"They almost got me."
+
+By the time I reached the final journal, one thing became clear.
+
+My grandfather wasn't lucky.
+
+He was experienced.
+
+He had spent decades learning their habits.
+
+Learning their hunting methods.
+
+Learning their weaknesses.
+
+And unlike most people, he lived long enough to pass that knowledge on.
+
+Sort of.
+
+The final notebook contained pages and pages of observations.
+
+Rules.
+
+Warnings.
+
+Patterns.
+
+Things he believed to be true.
+
+Things he knew were true.
+
+One passage was underlined so heavily it nearly tore through the paper.
+
+CHILDREN FOLLOW THE VOICE.
+
+ADULTS FOLLOW THE EYES.
+
+DON'T GIVE THEM EITHER.
+
+Another sentence appeared several pages later.
+
+One that made my stomach twist.
+
+I must have read it ten times.
+
+"They aren't hunting because they're hungry."
+
+I sat frozen.
+
+The mountains outside the cabin were completely silent.
+
+My flashlight illuminated the page.
+
+I read the sentence again.
+
+And again.
+
+And again.
+
+Because if they weren't hunting for food...
+
+Then why were they taking people?
+
+The answer wasn't on that page.
+
+It wasn't in the next one either.
+
+Instead, I found something else.
+
+A map.
+
+Hand drawn.
+
+Covered in notes.
+
+Dozens of circles.
+
+Dozens of tunnels.
+
+Dozens of locations.
+
+And in the center of the largest circle, Granddad had written three words.
+
+I had never seen them before.
+
+Not in any journal.
+
+Not in any newspaper.
+
+Not anywhere.
+
+The words were simple.
+
+Yet they immediately filled me with dread.
+
+Because whatever they meant, Granddad had written them in capital letters.
+
+THE DEEP NEST.
+
+And beneath those words, he left one final note.
+
+A note addressed directly to me.
+
+"If you're reading this, I've been gone awhile.
+
+And if you're anything like me, you've already decided you're going looking.
+
+God help you.
+
+I just hope they haven't noticed you yet."

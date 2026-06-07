@@ -221,7 +221,18 @@ At work, I kept zoning out until coworkers snapped me back. Sleep became difficu
 
 But no matter what I did, the memories lingered — sharper than they’d been in years.
 
-And like always, days kept merging together. Work was the same, and so was household life. Halloween passed — a very terrifying one at that. A haunted house had opened up there. I wasn’t disappointed by it, and there was a hay maze as well. I’ve not been a fan of them since I got lost in one as a kid. Mazes creep me out — the atmosphere is disturbing, and the fact that anyone or anything could be in there with you is a whole other level of creepy. Then Thanksgiving passed, uneventful. Everyone came over. Charrie was stressed for the first half, but Fawna and Laura visited to help her. Two turkeys and many dishes later, it was finished, and everyone loved their cooking. Sorry, I’m getting off track.
+And like always, days kept merging together. Work was the same, and so was household life. Halloween passed — a very terrifying one at that. A haunted house had opened up there. I wasn’t disappointed by it, and there was a hay maze as well. I’ve not been a fan of them since I got lost in one as a kid. Mazes creep me out — the atmosphere is disturbing, and the fact that anyone or anything could be in there with you is a whole other level of creepy.   
+While writing this, I just remembered something. after Halloween, me and her were watching some TV, Charrie said she was tired and heading to bed, and I heard her footsteps fade upstairs. About an hour later, there was a knock on the pantry door. Then her voice came through.
+
+**Not Charrie:** “Hello? Can someone open the door for me? Josh? You there?”
+
+I started toward the kitchen before it hit me — Charrie was upstairs and asleep. So who was in there? My stomach dropped. There must’ve been a candle in the pantry, but maybe it burned out. That’s all it takes. One dark room, and they find a way in.
+
+The voice sounded exactly like her. Same tone, same rhythm, even the little pause she always makes before saying my name. I stood there listening, trying not to breathe. It knocked again, softer this time.
+
+I didn’t answer. I just waited until it stopped. Then I made a note to buy more candles tomorrow and tried not to think about how even inside isn’t safe anymore.  
+  
+Then Thanksgiving passed, uneventful. Everyone came over. Charrie was stressed for the first half, but Fawna and Laura visited to help her. Two turkeys and many dishes later, it was finished, and everyone loved their cooking. Sorry, I’m getting off track.
 
 It was January when it happened. Strange — it felt like Christmas was yesterday. You know, I wondered what happened to the Blood Moons in the town. I looked it up, and two had already passed while we lived here, and I didn’t see one.
 
@@ -272,15 +283,27 @@ I almost dozed off a couple of times, but each time I snapped awake with my hear
 
 But they’d inch closer.
 
-The candles would bend toward the door, flames leaning like they were being pulled by something outside. A few flames turned blue for a second before flickering back to normal. That’s when the banging started — slow at first, then harder. It woke the younger kids and a few of the adults. Everyone backed away from the door.
+The silence between the screams was worse. That’s when the mimicry started. It wasn’t just random noises anymore — the things outside started breathing our names. I heard my own voice, or something trying to be it, begging Marcus to open the door. It sounded broken, like someone stitched words together without knowing what they meant. My hands were shaking so bad I dropped the lighter twice, the plastic hitting the floor like a timer counting down. Every time I reached into the dark to grab it, I was sure something under the bed would grab me first.
+
+But not long after, the candles would bend toward the door, flames leaning like they were being pulled by something outside. A few flames turned blue for a second before flickering back to normal. That’s when the banging started — slow at first, then harder. It woke the younger kids and a few of the adults. Everyone backed away from the door.
 
 The bangs grew louder and more continuous. The door creaked and bent inward, the wood warping like it was softening under heat. Something slammed against it hard enough to rattle the frame. I was honestly surprised it held up as long as it did.
+
+The wood bowed inward until a thin crack split the doorframe. Through it, the air turned freezing, and for a second, a pale eye rolled into view, staring right at me. My chest locked up. I couldn’t even breathe,
 
 We added more candles until the creatures backed up again. A few candles had burned through all their wax and wick, so we replaced them. The new ones flared to life with a strange hiss, and the creatures retreated — but only a little. Just enough that the stairs creaked under their weight as they paced back and forth.
 
 Slowly, everyone drifted back to sleep. Marcus offered to take my place, but I was too anxious to even think about lying down. Every time I blinked, I saw movement in the corner of my eye — shadows stretching too far, shapes that didn’t belong.
 
-After five more hours and several close calls, the sky finally began to lighten. But the creatures lingered, their silhouettes pressed against the windows like frost patterns. Only when the first real rays of sunlight hit the house did they finally retreat.
+The banging stopped for maybe ten seconds. That silence felt wrong — too heavy, too still. Then the front window shattered and everyone became alert. A hand shot through the glass, pale and twitching at an imposable rate, fingers bending the wrong way as they clawed for the frame. Marcus yelled and grabbed my arm, dragging me back just as another hand reached through, scraping the floorboards. I swear I felt its nails catch my shoe.
+
+The candles nearest the window went out all at once. The air turned freezing, and the smell hit — like burnt hair and metal. I grabbed the box of matches, but my hands were shaking so bad I couldn’t strike one. Marcus snatched it from me, lit three at once, and threw them toward the sill. The flames caught, and the hands jerked back, leaving streaks of blood and ash on the wood.
+
+For a second, I thought the whole house was going to cave in. The walls flexed, the roof groaned, and every candle leaned toward the door like gravity had flipped. I remember thinking, *this is it — we’re done.* Then, just as fast, everything stopped. The pressure lifted. The air warmed. The candles straightened.
+
+We didn’t say anything for a long time. Marcus just sat there, shaking, staring at the broken window. I kept my eyes on the door, waiting for it to move again. It didn’t. But I knew if we’d been a second slower, we wouldn’t be here to talk about it.
+
+After five more hours and several close calls, the sky finally began to lighten. But the creatures lingered, their silhouettes pressed against the walls like smoked paint. Only when the first real rays of sunlight hit the house did they finally retreat.
 
 I cautiously looked outside. Our house was in a terrible state. Furniture knocked over and torn, pictures shattered on the floor, tables flipped, glass everywhere. If I hadn’t experienced through that night, I would’ve thought a tornado had come through.
 

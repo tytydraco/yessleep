@@ -1,3 +1,6 @@
+Part 2: 
+https://www.reddit.com/r/nosleep/s/XNAzAhrJju
+
 I grew up believing there were things in the woods that weren't supposed to exist.
 
 Most kids are taught to fear bears.
