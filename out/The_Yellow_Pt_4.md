@@ -174,7 +174,7 @@ It was a memory.
 
 One I’d buried deep.
 
-The night I said something cruel to my sister. Something I still don’t like talking about. She’d been sneaking out with boys, and I said something I never should’ve said. She ran to her room and cried quietly for an hour. I hated myself for it then, and seeing it now — seeing them reenact it — made the guilt feel fresh and sharp again, like it had only happened yesterday instead of seven years ago.
+The night I said something cruel to my sister. Something I still don’t like talking about. She’d been sneaking out with boys, and I said something I never should’ve said. She ran to her room and cried quietly for an hour. I hated myself for it then, and seeing it now — seeing them reenact it — made the guilt feel fresh and sharp again, like it had only happened yesterday instead of eleven years ago.
 
 Sixteen minutes later, their shapes shifted.
 
@@ -252,11 +252,11 @@ Only one room was big enough to fit everyone. Now, it sounded like candles did a
 
 It was five minutes till night, and the moon was already peeking over the horizon with an orange hue. As everyone started going upstairs, I looked outside and saw my older brother. Of course, it wasn’t him — but as the moon rose higher, I saw the shape contorted, corrupted, and twisted into an abomination that didn’t come close to looking human. The voice sounded broken, distorted into noises only a child could dream up. I couldn’t make out a single comprehensible word.
 
-I can’t even put into words its appearance — the best I can describe is one of those SMF entities: stretched, twisted, cursed. The voices, too, were impossible to describe — dark‑toned and demonic, like they came from the deepest corners of hell.
+I can’t even put into words its appearance — the best I can describe is one of those SFM entities: stretched, twisted, cursed. The voices, too, were impossible to describe — dark‑toned and demonic, like they came from the deepest corners of hell.
 
 More figures appeared — some faces I recognized, others I didn’t. I assumed they were family members of the others inside the house.
 
-They bloated toward the glass doors, and I ran upstairs. I slammed the door shut, and Marcus and I started lighting the candles as fast as we could, burning our fingers in the process. The crashing and thumping grew closer, then began to slow. As we finished the last candle, they backed away — just far enough that the stairs creaked under their weight.
+They bolted toward the glass doors, and I ran upstairs. I slammed the door shut, and Marcus and I started lighting the candles as fast as we could, burning our fingers in the process. The crashing and thumping grew closer, then began to slow. As we finished the last candle, they backed away — just far enough that the stairs creaked under their weight.
 
 I dared not look out.
 
@@ -272,7 +272,7 @@ I almost dozed off a couple of times, but each time I snapped awake with my hear
 
 But they’d inch closer.
 
-The candles would bend toward the door, flames leaning like they were being pulled by something outside. A few flames turned blue for a second before snapping back to normal. That’s when the banging started — slow at first, then harder. It woke the younger kids and a few of the adults. Everyone backed away from the door.
+The candles would bend toward the door, flames leaning like they were being pulled by something outside. A few flames turned blue for a second before flickering back to normal. That’s when the banging started — slow at first, then harder. It woke the younger kids and a few of the adults. Everyone backed away from the door.
 
 The bangs grew louder and more continuous. The door creaked and bent inward, the wood warping like it was softening under heat. Something slammed against it hard enough to rattle the frame. I was honestly surprised it held up as long as it did.
 
@@ -282,7 +282,7 @@ Slowly, everyone drifted back to sleep. Marcus offered to take my place, but I w
 
 After five more hours and several close calls, the sky finally began to lighten. But the creatures lingered, their silhouettes pressed against the windows like frost patterns. Only when the first real rays of sunlight hit the house did they finally retreat.
 
-I cautiously looked outside. Our house was in a terrible state. Furniture knocked over and torn, pictures shattered on the floor, tables flipped, glass everywhere. If I hadn’t lived through the night, I would’ve thought a tornado had come through.
+I cautiously looked outside. Our house was in a terrible state. Furniture knocked over and torn, pictures shattered on the floor, tables flipped, glass everywhere. If I hadn’t experienced through that night, I would’ve thought a tornado had come through.
 
 The town was worse. Cars were damaged or completely totaled, some crushed like they’d been stepped on. Light posts were bent into the ground at impossible angles. Houses were torn apart inside and out. And the worst part — we lost 351 people. Entire families gone. Couples who would never grow old together. Children who would never see another morning.
 
