@@ -12,7 +12,7 @@ It was maddening.
 
 The next day, I listened closely, and sure enough, it was still there. I quickly realized that I could track its tiny, little movements. The scampering would go from the leftmost vent in my room, run along the wall bordering the ceiling, and end right at the top of my closet doorframe. Then, it did it all over again. With heavy, sagging eyelids, I realized I had to do something. So, I just watched that white painted vent, waiting and ready for anything. The plastic vent had clearly been given the landlord special, haphazardly glossed over just in time for me to move in.
 
-I don’t know what I was expecting, if anything. Tiny insect legs, maybe the delicate putter-patter little mouse claw. Alas, despite my mounting frustration, I saw nothing, I heard only the back and forth cupid shuffle of invisible, erratic feet.
+I don’t know what I was expecting, if anything. Tiny insect legs, maybe the delicate putter-patter of a little mouse claw. Alas, despite my mounting frustration, I saw nothing, I heard only the back and forth cupid shuffle of invisible, erratic feet.
 
 Tick, tick, tick.
 
@@ -34,23 +34,23 @@ Tick, tick, tick.
 
 I laid for hours my second night, trying to fall asleep, eyes screwed shut tighter than a freshly sewn pair of buttons. But I just couldn’t escape it, the constant noise. Back and forth, from the vent opening, to the doorframe of the closet, on repeat.
 
-Eventually, I just couldn’t take it anymore. At 2 am, I bolted straight up in the dark with a groan. Bug, rat, didn’t matter what manner of critter it was. 
+Eventually, I just couldn’t take it anymore. At 2 am, I bolted straight up in the dark with a groan. Bug, rat, didn’t matter what manner of critter it was.
 
 I was determined to get it.
 
-I found a screwdriver in my kitchen drawer. In the dark, I fought with the vent opening. I quickly found, to my luck, that it wasn’t even screwed in properly, just painted over like everything else. Within seconds, the plastic cover came off with a comical pop. Only then did the scattering come to a confused, blissful halt. 
+I found a screwdriver in my kitchen drawer. In the dark, I fought with the vent opening. I quickly found, to my luck, that it wasn’t even screwed in properly, just painted over like everything else. Within seconds, the plastic cover came off with a comical pop. Only then did the scattering come to a confused, blissful halt.
 
 Peace at last, but to what end?
 
 Whatever it was, was maybe a foot from the mouth of the urban cave. That only pissed me off more.
 
-“Oh, so now you wanna stop, eh? Is that it?! Get over-,” I hissed, standing on my tip toes and reaching into the hole. 
+“Oh, so now you wanna stop, eh? Is that it?! Get over-,” I hissed, standing on my tip toes and reaching into the hole.
 
-The little miscreant scrambles back. 
+The little miscreant scrambles back.
 
-I grit my teeth, reaching in further. 
+I grit my teeth, reaching in further.
 
-It retreats deeper. 
+It retreats deeper.
 
 I’m real pissed.
 
@@ -60,11 +60,11 @@ Tick, tick, tick.
 
 Tick, tick, tick.
 
-It stayed just out of my reach, yet just close enough that I could feel my fingertips brush against its sweaty skin, what I assumed was some vermin’s tail. I felt it slipping further and further into the wall, and I only had so much arm that I could twist to fit into the vent. 
+It stayed just out of my reach, yet just close enough that I could feel my fingertips brush against its sweaty skin, what I assumed was some vermin’s tail. I felt it slipping further and further into the wall, and I only had so much arm that I could twist to fit into the vent.
 
 My mission could not be clearer, in that moment.
 
-I needed to grab it, and I needed to do it quickly. 
+I needed to grab it, and I needed to do it quickly.
 
 My last chance at un-interrupted sleep was literally skittering centimeters away from my fingers.
 
@@ -76,11 +76,11 @@ I know it was a stupid decision, all of this.
 
 Why didn’t I try to shine a light in? Or put down pest bait? Admittedly, it was a compulsive thought, to shove my arm into a vent, spurred by desperation and a lack of proper sleep. Illogical.
 
-My fingers wrapped around something cold with a soft exterior. Clammy, icy to the touch, but disyinctly… wrong. Too firm. Not like a small animal. I was instantly sobered by a horrific sensation. I had gripped something that felt like a... 
+My fingers wrapped around something cold with a soft exterior. Clammy, icy to the touch, but disyinctly… wrong. Too firm. Not like a small animal. I was instantly sobered by a horrific sensation. I had gripped something that felt like a...
 
 It tried to fight, but I just fumbled with it until I had wrestled more into my grasp. More of the thing.
 
-Creases, bends. Multiple long, cold, phallic objects, each no more than a few inches long. They varied in length, and fought my grasp vigorously. 
+Creases, bends. Multiple long, cold, phallic objects, each no more than a few inches long. They varied in length, and fought my grasp vigorously.
 
 It was when I found the distinctly hard shell that adorned one of their otherwise soft tips that I truly realized what I was holding in my hand.
 
@@ -104,7 +104,7 @@ Anyhow, the way I was gripping this hand, I knew it was disembodied, it had to b
 
 Imagine my fingers are tightly wrapped around the top of the wrist, so to speak. The entire hand is in mine, and where the top of the wrist would connect to an arm, it's just a nub, like it had grown entirely separate from the body it was assigned to.
 
-Maybe it was never assigned to a body at all. 
+Maybe it was never assigned to a body at all.
 
 I don’t know.
 
