@@ -288,9 +288,9 @@ Then his breath caught, and my jaw slipped. I pulled back because I thought I’
 
 “Marie,” he said, and it came out small.
 
-I tried to answer him, but my tongue was in the wrong place. My teeth didn’t meet. Ari stepped back, and I stepped with him. He said my name again. His eyes kept dropping to my mouth and then lifting back to my face, like he was trying really hard not to look. I wanted to tell him I was sorry and that I was scared too. Instead, I put both hands on his face, gently.
+I tried to answer him, but my tongue was in the wrong place. My teeth didn’t meet. Ari stepped back, and I stepped toward him. He said my name again. His eyes kept dropping to my mouth and then lifting back to my face, like he was trying really hard not to look. I wanted to tell him I was sorry and that I was scared too. Instead, I put both hands on his face, gently.
 
-His skin was warm under my palms. His mouth opened like he was going to say something, and my mouth opened wider. There was a wet click near my ear, and Ari made a sound I’d never heard from him before. It was too surprised to be a scream.
+His skin was warm under my palms. His mouth opened like he was going to say something, and my mouth opened wider. There was a wet click near my ear, and Ari made a sound I’d never heard from him before. The sound was too surprised to be a scream.
 
 I pressed his forehead against the roof of my mouth.
 
