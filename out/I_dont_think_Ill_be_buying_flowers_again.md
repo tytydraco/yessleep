@@ -142,7 +142,7 @@ It was dark. Far too dark for a greenhouse.
 
 Something felt awfully...*wrong* with the place. There was this foreboding pressure pressing in on my ears, the silence only carrying the quiet huffs of the AC.
 
-I shook my head. There wasn't anything particularly wrong with the place right now. In fact, it seemed better than the last time I had seen it. Rob, or whoever was sustaining the place, was doing one hell of a job.
+I shook my head. There wasn't anything particularly wrong with the place right now. In fact, it seemed better than the last time I had seen it. Rob, or whoever was taking care of the place, was doing one hell of a job.
 
 But I just...couldn't shake the feeling.
 
@@ -162,7 +162,7 @@ But God, it stunk to high hell. The smell wafted over when I was a few steps in 
 
 Gagging, I stepped back, only to find that something glinted when I swung my light towards it. It was directly next to the orange bud, and I stepped down to quickly grab it.
 
-I had guessed it was probably loose change, or something like that. In retrospect, I should've just minded my own damn business. 
+I had guessed it was probably loose change, or something like that. In retrospect, I should've just minded my own damn business.
 
 When I had swooped down to reach it, the shiny thing had felt like it was connected to something else, and it hadn't come out with my first tug.
 
@@ -182,37 +182,39 @@ I couldn't tell *what* it was. It felt pretty small, almost the size of a die, a
 
 Taking my phone from my pocket I turned the flashlight beam back to my hand, only to find a human molar.
 
-The humming from the AC stilled when I looked back to the orange bud, only now, in the mess of roots, I could clearly see similarly planted teeth, their crowns just barely breaking peeking through the dirt they were placed in. 
+The humming from the AC stilled when I looked back to the orange bud, only now, in the mess of roots, I could clearly see similarly planted teeth, their crowns just barely breaking peeking through the dirt they were placed in.
 
-31. Counting the one in  my hand, that made a full set. 
+31. Counting the one in  my hand, that made a full set.
 
-"MARK! I FOUND THE DAISIES!" 
+"MARK! I FOUND THE DAISIES!"
 
-I cursed out loud, and I guess in my panic, I had slipped the tooth in one of my pockets. 
+I cursed out loud, and I guess in my panic, I had slipped the tooth in one of my pockets.
 
 Walking quickly back towards the door we had entered from, the sludge that I had been carefully stepping around made it onto one of my boots, and the more I walked, I realized that it wasn't quite grey. By the time I had made it to the door, and when I had just started to see the light from Star's flashlight, I realized that I had been walking in congealed blood.
 
-I'll be perfectly candid here, I nearly puked. Bile burned its way up my throat as I felt woozier by the second. What the hell? Who's blood--, no, who's *teeth* was planted here? Did both things come from the same person? Why hadn't I *smelt* the blood? 
+I'll be perfectly candid here, I nearly puked. Bile burned its way up my throat as I felt woozier by the second. What the hell? Who's blood--, no, who's *teeth* was planted here? Did both things come from the same person? Why hadn't I *smelt* the blood?
 
 By the time I had stood next to Star, looking at the daisies, all the questions in my head had come to a careful halt. All I wanted to do was *leave*.
 
 She handed her phone to me, and I pointed the flashlight at the flowers as she held up her shears.
 
-"How many daisies would you like?" Her voice came out a little less confident than a few moments ago, and considering the current situation, I didn't blame her one bit for being scared. Had she known about the teeth? About the blood? God, the floors were sticky! 
+"How many daisies would you like?" Her voice came out a little less confident than a few moments ago, and considering the current situation, I didn't blame her one bit for being scared. Had she known about the teeth? About the blood? God, the floors were sticky!
 
-"I don't-- three. Three daisies." I swallowed, pulling a bag out of withered daisies I had collected from other stores. 
+"I don't-- three. Three daisies." I swallowed, pulling a bag out of withered daisies I had collected from other stores.
 
-You see, what I had learned from working here, ten years ago, was that the greenhouse was alive, in a sense. 
+You see, what I had learned from working here, ten years ago, was that the greenhouse was alive, in a sense.
 
-It had never been something I really cared much about, but Rob certainly did, and he was the main attendant. There were a few rules about respecting the place, and keeping it clean, making sure you were mindful of how much you were taking and whatnot, but the standout rule was the following: whenever you take anything from the greenhouse, you must replace it with something of equal or greater value. 
+It had never been something I really cared much about, but Rob certainly did, and he was the main attendant. There were a few rules about respecting the place, and keeping it clean, making sure you were mindful of how much you were taking and whatnot, but the standout rule was the following: whenever you take anything from the greenhouse, you must replace it with something of equal or greater value.
 
-The greenhouse would always find a way to sustain itself. The most common payment was usually uglier flowers, or even weeds worked, but one should never, ever, take from the greenhouse without giving back. 
+The greenhouse would always find a way to sustain itself. But that didn't mean there weren't ways to take care of it.
+
+The most common payment was usually uglier flowers, or even weeds worked, but one should never, ever, take from the greenhouse without giving back.
 
 Star held her hand out for the bag, simply shaking out its contents into the dirt before  cutting three flowers from where they were growing. Breathing a sigh of relief, she gives a quick, reassuring smile.
 
 "Alright! We can go back upstairs and get this wrapped up for-"
 
-Her sentence was abruptly cut off my a low rumbling, and what sounded like the AC malfunctioning, before it waned into a shriek. 
+Her sentence was abruptly cut off my a low rumbling, and what sounded like the AC malfunctioning, before it waned into a shriek.
 
 Star flinches, looking between the flowers in her hand and the ones she had shaken out, eyes darting between the two before they turn to me.
 
@@ -220,23 +222,23 @@ Star flinches, looking between the flowers in her hand and the ones she had shak
 
 My stomach dropped as I was suddenly very aware of the human molar in my jean pocket.
 
-I watched a few roots slowly stretch towards where I had been standing just a few moments ago, near the door, and the shrieking only grew louder, and louder. Star furrowed her eyebrows, covering her ears and waiting for my answer with less and less patience. 
+I watched a few roots slowly stretch towards where I had been standing just a few moments ago, near the door, and the shrieking only grew louder, and louder. Star furrowed her eyebrows, covering her ears and waiting for my answer with less and less patience.
 
-The walk back to the counter was silent. I kept finding my tongue soothing the new gap in my teeth, as Star walked quietly with three, fresh daisies in hand. 
+The walk back to the counter was silent. I kept finding my tongue soothing the new gap in my teeth, as Star walked quietly ahead with three, fresh daisies in hand.
 
-It hadn't been pretty. I was sure there was some lingering blood on the hedge clippers I  had used as impromptu dentist equipment, and I still felt sick about the teeth and jammy blood, even sicker upon hearing my own nerve root snapping away from their home in my gums. 
+It hadn't been pretty. I was sure there was some lingering blood on the hedge clippers I  had used as impromptu dentist equipment, and I still felt sick about the teeth and jammy blood, even sicker upon hearing my own nerve root snapping away from their home in my gums.
 
-The tooth I had taken earlier burned a hole in my pocket. 
+The tooth I had taken earlier burned a hole in my pocket.
 
 I still have no idea who's it is. Was that the consequence of not giving back to the greenhouse? Was *that* how it sustained itself?
 
-By the time we had gotten back to the counter, the bell chimed once more as Star turned to the mini fridge behind her. We both turned our heads at the same time, only to find Lysander, sporting a gardening apron and a duffel bag. He smiles at Star, raising a hand in greeting. 
+By the time we had gotten back to the counter, the bell chimed once more as Star turned to the mini fridge behind her. We both turned our heads at the same time, only to find Lysander, sporting a gardening apron and a duffel bag. He smiles at Star, raising a hand in greeting.
 
-"Hey, kiddo." He looks in my direction, smile becoming just the tiniest bit flatter. "Hello, Mark."
+"Hey, kiddo." He looks in my direction, smile becoming just the tiniest bit flatter. "Hello, Mark." 
 
-I only give him a slight nod, still more concerned about my throbbing mouth than him. Star, however, jumps up.
+I had found it a little strange that he had recognized me so quickly, but still, I only give him a slight nod, far more concerned about my throbbing mouth than him. Star, however, jumps up.
 
-"Lysander!" She slides a frozen sponge in a ziplock bag across the counter, before turning her attention to her boss. "The greenhouse, it, uhm. Is it normal for it to make so much...noise? I'm not really sure if I messed up in there.." 
+"Lysander!" She slides a frozen sponge in a ziplock bag across the counter, before turning her attention to her boss. "The greenhouse, it, uhm. Is it normal for it to make so much...noise? I'm not really sure if I messed up in there.."
 
 Lysander's smile doesn't leave his face as he answers.
 
@@ -250,7 +252,7 @@ Success, it seemed, was way more different than how *I'd* define it. Star, howev
 
 Star waves, and then begins wrapping my daisies.
 
-"Sorry about your tooth...I had no idea any of the plants were worth that much.." She says guiltily, and I shoo away the apology. 
+"Sorry about your tooth...I had no idea any of the plants were worth that much.." She says guiltily, and I shoo away the apology.
 
 I hadn't told her about my discovery. Sure, I was freaked out, but I decided that she didn't have to be, too. Besides, It was my own curiosity that made me take the tooth in the first place.
 
@@ -258,11 +260,11 @@ But whatever the hell was going on here, I wanted no part of it. Maybe I'd send 
 
 Star finishes wrapping them up, and handing them to me, she smiles once more.
 
-"Happy birthday to Daisy!"
+"Happy birthday to Daisy!" She raises her hand in a friendly wave.
 
-I wave goodbye, and begin to drive back. 
+I wave goodbye, and begin to drive back.
 
-Looking around at the 7PM February sky, I thought about the look on my girls faces when they woke up tomorrow morning to find flowers in the living room. The wind came in through my window that was open just a sliver, cooling me down from the humid, sticky greenhouse, and while I started to let myself forget, I remembered one other odd thing. 
+Looking around at the 7PM February sky, I thought about the look on my girls faces when they woke up tomorrow morning to find flowers in the living room. The wind came in through my window that was open just a sliver, cooling me down from the humid, sticky greenhouse, and while I started to let myself forget, I remembered one other odd thing.
 
 Star had mentioned a manager messing around in the greenhouse. And among the teeth, the blood, *Lysander..* I began to wonder.
 
