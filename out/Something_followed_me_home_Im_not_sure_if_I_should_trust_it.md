@@ -1,6 +1,6 @@
 This is what it happened:
 
-I lived on the fourth (and top) floor of that building. Among all the ones in the complex, that was the cheapest block. I believe the owners didn't think four floors were worthy enough to for an elevator and decided to spare their pockets, so if you wanted to go up, you'd have to face the stairs.
+I lived on the fourth (and top) floor of that building. Among all the ones in the complex, that was the cheapest block. I believe the owners didn't think four floors were worthy enough for an elevator and decided to spare their pockets, so if you wanted to go up, you'd have to face the stairs.
 
 From the first floor to mine, there were sixty-four steps. During the first few months, it was hard to get used to, especially when I had to, all by myself, haul up new furniture and appliances.
 
@@ -76,9 +76,9 @@ Not only that, but it was almost midnight. If I disturbed anyone… *Fuck.* That
 
 *Thud… Thud… Thud…*
 
-He was coming.
+They were coming.
 
-*WHY IS HE COMING?*
+*WHY WERE THEY COMING?*
 
 I decided then that I *could* be fast enough — I'd run to the fourth floor, get inside my apartment, and be safe.
 
@@ -88,13 +88,13 @@ I realized that, by walking in sync with me, the person would still have to go t
 
 It was so obvious, and it had taken me so long to see it.
 
-He must have figured that out first, which is why he was using the time I stood still to close the distance between us. *Smart —*
+They must have figured that out first, which is why they were using the time I stood still to close the distance between us. *Smart —*
 
 *Thud…*
 
 Now.
 
-I have no more time. They must be just a few steps from the second floor.
+I had no more time. They must be just a few steps from the second floor.
 
 I took a deep breath… and ran. I ran the way a deer runs from a sure-shot hunter. I don't remember stumbling, but if it ever happened, I simply ignored it and kept going.
 
@@ -110,7 +110,7 @@ I turned the key in the lock more times than I thought were possible, and, panti
 
 *…turn off the lights.*
 
-Then I had an idea.
+I had an idea.
 
 If my apartment went dark, I'd have a better view of the light coming through the door undercut. The light from the hallway. Following my logic, as long as the stalker was standing out there, the hallway light would stay on, and once they left, after ten seconds, it would turn off.
 
@@ -162,4 +162,4 @@ I crouched down and noticed its color was cream, like the page of a book. I pick
 
 Holding it with both hands, I lifted it to eye level. The light helped me make out some dark lines on the back, so I flipped the note over. Printed in a serif, italic font, it read:
 
-*When help arrives, the doorbell will ring twice.* ***Do not answer the door*** under any circumstances — *you* ***will*** *die.*
+*When help arrives, the doorbell will ring twice.* ***Do not answer the door*** under any circumstances — *you* ***will*** *die.* 
