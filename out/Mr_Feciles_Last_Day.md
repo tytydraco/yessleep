@@ -1,0 +1,131 @@
+It's my birthday today, to be accurate, it's my 80th birthday.
+
+I'm sitting on the biggest chair in front of the antique sterling table, it's my honor. My children and my lovely wife surround me, they talk loudly across the room, it used to brings smile on my face, I can feel this, alongside from the fear of getting older day-to-day, like seeing my legs becoming weaker and weaker that I need to stuck on a damn wheelchair for whole day.
+
+You know? People can change, the time doesn't make a difference. When I was 15, I went to my grandpa's birthday, at that time, I didn't know what happened, but the second I saw his cake and the candles, I suddenly realized that someday I will sit at the same spot as he used to sit, and when that day has come, my loved ones will be gone, they might just stay in the blurry memory that's far, far away from me forever.
+
+So here I am, I'm at the same age as he passed away.
+
+I'm glad that made my life with my own way, not repeating the old days. Around 30 years ago, we brought this mansion in the town, it's the biggest, just like it's the first house built on the land, long long before the village developed.
+
+It's 12 PM now, my family stopped talking, and all gazing at me, my little son Roman brings up the cake, and my maid Susan is absent. It's decorated by dark chocolate and some pearls on the top, I should be ecstatic, but I'm too tired, even when they begin the birthday song, I still leave my body like that, same as a zombie, of course I love them, which I already know, this will be the last day of my life. I want it to good, I wanted a sunny day, when the clouds are white, sky is blue, and roses bloom, but unfortunately, the soft rain doesn't stop ever since I wake up, the rain drops fall on the roof, making a sound of bullets.
+
+Crazy, you know how crazy this is? I'm crazy for trying. I was such a wonderful person, if you see my in the neighborhood 10 years before, you sure will called me Mr.Fecile by pleasure, they know me, because I made a successful business, earned millions from it, that's how I get this house. And now, all of my family members, which the ones I put my entire life into, they wanted me to die. I never know what did I do wrong! My wife, poor woman, she sticks with me everytime I meet an adversity, I love her, yes, I do, but now, she's lying to me, I saw her bribe my doctor to say that I'm healthy, because of this, I'm crippled to the end of the chapter. 
+
+Not only her, my younger brother, I'm always a good example to him, I shared my fortune and my lessons to him, helped him build a big family, now with my wife, he's turning on me: he's being kind to me, that's true, but we know, it's facade. Why? No why! Maybe it's from the jealousy, or they purely hate me for being superior.
+
+How about my son Roman and John? They seem to be clean and serene, therefore only I could see, they had already owe someone a big debt, they tried to hide it from me, they treated me like a moron! Are they putting poisonous stuff in my cake today to get money from my insurance? Sweet lord, I can't tell, I can't. I saw them talking secretly in the kitchen, is that how they plan my death? I thought at least they will leave some mercy.
+
+I wasn't angry, not at all, you see? They are seething with greed throughout my life, that's not an excuse, I'm utterly disappointed!
+
+"Hey, pa, you wanna have a taste of palm sugar?" 
+
+John uses a golden fork, put a piece of cake on it, and carefully hand it to me.
+
+You think I will eat it like a kid? No! I love them, so I will die as they wish, but nor this disgraceful!
+
+I hardly grab his face to a close distance, then whisper: "John, oh my dear John! I shall not eat this cake!"
+
+His pupils dilated instantly, this makes me feel even worse, I always trusted that he's smart because he carried my gene instead of his stupid mother's, and turns out, he doesn't know how to act at all!
+
+I let him go, and hand over the fork, smash it on the floor as fast as I can.
+
+I laughed, and don't the same thing to Roman, his handsome face slightly reddened. Yes, yes, I'm not wrong, I'm not, I'm not!
+
+I reminded how my grandpa died, oh lord! exactly the same! No wonder no one besides me cry on the funeral, because there's always this part of a damned betrayer in my blood, my dear mother, my dear father, they are doing the same as what my children's doing to me, it's a curse, oh John, oh Roman, oh Mary, my wife, do you understand? It won't stop until eternity, or, or the family has gone to the dust! As I think to myself, my family stares at me with worries, no, it's called "fake worries", the only worry in their heart is "why he's still alive?"
+
+"Fecile, you don't have to eat this, we respect you, darling, here, you want to take a walk?"
+
+My wife shows me her friendly smile, this would be so touched to me yesterday, but today, I pushed her way, she falls on the floor, the edge of my portrait cuts her elbow badly that blood is leaking incessantly.
+
+"Where's. Dr.Reardan?"
+
+Peterson, my brother, yells to the hallway, the echoes flow, the clock shakes and rings.
+
+Well, of course, where's Dr.Reardan? He's tied up and dropped into the basement so he can finally stop struggling, this idiot fool me with everything, he gave me wrong medicines, wrong report, now he earned what he deserves, no one believes him anymore, especially his denials.
+
+My lord, can you tell? There's still one person keeps the loyalty, and that's my maid, Susan, my lord, thank you for giving me such a treasure. She's such a great youth, she's poor and needy, she got sick parents in the hospital, what I did, nothing! Yeah, I think I had a dream about shouting at everyone I meet, then somehow when I wake up, I see her standing alone, I see dread in her deep, blue, beautiful eyes, she told me everything. I was shocked, but how could I blamed her? I hugged her, gave her multiple thousands dollars. 
+
+She's a good kid, a really good one, or may I say, she's a good daughter to me?
+
+"My brother!"I moved my wheelchair towards him, "he's on vacations."
+
+"What should we do about ma!"
+
+both John and Roman cries to me, begging me like two vagrants.
+
+"I'll go tell the neighbor!"
+
+Peterson runs out of the mansion, he's in a hurry that he dropped something from his pocket. I picked the thing up, it's a photo with my whole family, everyone is included, but where's Susan? I guess I need to take another picture if I still have a chance.
+
+"That hurts!" Mary presses some napkins on the cut. "Why would you do this?"
+
+It wasn't my intention, I never intended to hurt anyone, I don't know why people are so overwhelming and overprotective, she's just got a fresh cut and that's all. Back in my days, during the war, I saw so many customers had their chin, their arm, or their foot blown away, they never complained, same as me, now threatened by my family members, and I even need to kill myself today, nobody will understand how suffering it is.
+
+"Susan! Come get Mrs.Mary some bandaids!"
+
+I yelled. Not a voice come out. She's busy with the doctor, maybe.
+
+"Who the hell is Susan! We hear you talking about her everyday! Did you cheat on Ma?"
+
+John looks at me, tears falling down. The tears of a crocodile. He just moved back to this big castle, it's normal that I can't meet all my "friends".
+
+Besides, how on earth can my son accuse for my own loyalty?! I made my business, all my damn partners know how much of a person I am, Noone, not my son, not my wife, can question my personality! It's a disaster, a disaster of lack of rules, manners,  and trustworthy!
+
+I love Mary more than rest of you!
+
+I feel a strong force coming inside my body through the veins. I barely stands up, but my back aches like it's burning. So I turn my body around, I pick up the fork, cut another slice of cake. I need the prove, I know you all tried to kill me for my money, and right here, I will use your own bloody lies to crush you filthy words, especially you, John, my son.
+
+"What are you doing, pa? Answer the question, please!"
+
+"You see the cake? This cake! The cake...the....oh....you, you!"
+
+I'm extremely anxious based on resentful anger that I can't speak, so I rise up the cake, using the worst tone in my life, speaking out, words by words.
+
+"This, cake, is, deadly!  You, tried, to, kill, me!"
+
+"What are you talking about! You are rotten,Pa! You should go to hell!"
+
+Roman takes away the cake, dump it into the trash can, and pushes me as hard as I pushed Mary. Soon, he realizes something, so he glares at me, opens his mouth, intensely, he grabs a huge part of the cake, then quickly eat them all.
+
+"Happy now? Happy now! You don't love Ma, not at all, not even us!"
+
+It's poisonous. I want to warn him, but on the second thought, they always have their way to help themselves. If they wanted to kill a wise old man, they need to be clever first. I see, they are too tired to pretend now, they want to end my sorrows on my party, yes, I just know that, oh lord, what shall I do!
+
+"My child, you shall follow my steps to my paradise..."
+
+I hear this quite and smooth voice appears in my ears. That solidify my plans.
+
+Without a doubt, I leave the room, at the same time, Peterson steps into the door. I immediately takes off my grandpa's old shotgun from the wall. It's loaded, yes, someone put bullets in it while I'm asleep, it must be Susan, I know.
+
+"Oh my god, what are you..."
+
+I don't wait for him to end his guilty confession, I press the trigger. Suddenly, the sound a lightning and thunder explodes inside the room, the blood flies out from the body, it spills on my expensive door. This door, I customized it 30 years ago when we moved into the house, there's each of my family's names on it: Fecile, Mary, John, Roman...
+
+Accompanied by screaming and hoarse sentences that keep accusing me for the sins I made, I enter the room again, for a long time,
+
+After all the sounds are gone, I move into the elevator peacefully. I killed the betrayers, ended my betrayal bloodline myself. Now, I bring my elegant and dignity, rise up to the 3rd floor. It's literally just like I'm rising to the heaven.
+
+About 10 seconds after, I move out from the elevator, and slowly going to my bedroom. You may remember, I said I'm crazy for trying, but I waived it already, I relinquished, it's followed by the lead of my lord and my beloved mansion.
+
+I open the door, oh, dear. Susan is inside.
+
+"You look exhausted, mister Fecile."
+
+"You hear anything downstairs?"
+
+"No, you did what you want, didn't you?"
+
+She stretches her arm, it's a pistol, a really luxurious one with my name on it.
+
+"I'm ready." 
+
+I make a sincere smile on my face, I'm comforted.
+
+I told you, she's my daughter, forever. Then, without a pause, I place the gun barrel into my mouth.
+
+"Last words, sir?"
+
+This is the last thing I hear. I'm not afraid, not at all, I'm followed by my shadows. The trice I was born, I had my life.
+
+The ones that tried to kill me, I won't let them achieve their wish. It's a damned family, can't you understand?
