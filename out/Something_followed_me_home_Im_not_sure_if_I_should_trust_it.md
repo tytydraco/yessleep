@@ -26,7 +26,7 @@ Each floor had a motion sensor that would switch on its own lights whenever it d
 
 I reached the second floor and heard the click of the sensor activating and the lights coming on. I crossed that hallway and began climbing again. The concrete steps were gapped, which meant you could look down and see whoever was on the floors below, though it have you no view of the steps *between* each floor.
 
-Then, standing midway between the second and third floor, I noticed the first floor lights switching on beneath me. 
+Then, standing midway between the second and third floor, I noticed the first floor lights switching on beneath me.
 
 I saw nobody.
 
@@ -92,7 +92,7 @@ He must have figured that out first, which is why he was using the time I stood 
 
 *Thud…*
 
-Now. 
+Now.
 
 I have no more time. They must be just a few steps from the second floor.
 
@@ -138,11 +138,11 @@ Then I understood. I understood just how wrong and naive I'd been.
 
 The hallway light would turn off if it detected no movement, yes — but I'd been foolish enough to think the stalker wouldn't be bold enough to simply… *stand still*.
 
-He stopped.
+They stopped.
 
-He waited.
+They waited.
 
-He tricked me.
+They had tricked me.
 
 *...Damn it.*
 
@@ -152,7 +152,7 @@ The man who answered asked me not to take matters into my own hands and, if at a
 
 "It's okay," I whispered, my voice shaking. "Breathe in… one… two… three… breathe out. It's okay."
 
-Heading toward my bedroom, I crossed the living room again, my eyes locked on the door. Through the gap, only darkness seeped through. The hallway light was still off. *Why hasn't he left yet?* I thought. He must have heard when I dialed the front desk…
+Heading toward my bedroom, I crossed the living room again, my eyes locked on the door. Through the gap, only darkness seeped through. The hallway light was still off. *Why haven't they left yet?* I thought. *They must have heard when I dialed the front desk…*
 
 That was the moment I noticed something. There was a piece of paper in front of my door that could only have been slid through the gap at the bottom.
 
@@ -162,4 +162,4 @@ I crouched down and noticed its color was cream, like the page of a book. I pick
 
 Holding it with both hands, I lifted it to eye level. The light helped me make out some dark lines on the back, so I flipped the note over. Printed in a serif, italic font, it read:
 
->!*When help arrives, the doorbell will ring twice.* ***Do not answer the door*** under any circumstances — *you* ***will*** *die.*!<
+*When help arrives, the doorbell will ring twice.* ***Do not answer the door*** under any circumstances — *you* ***will*** *die.*
