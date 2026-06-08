@@ -1,0 +1,165 @@
+This is what it happened:
+
+I lived on the fourth (and top) floor of that building. Among all the ones in the complex, that was the cheapest block. I believe the owners didn't think four floors were worthy enough to for an elevator and decided to spare their pockets, so if you wanted to go up, you'd have to face the stairs.
+
+From the first floor to mine, there were sixty-four steps. During the first few months, it was hard to get used to, especially when I had to, all by myself, haul up new furniture and appliances.
+
+Eventually, though, I went up and down with such ease that I barely even noticed the trip.
+
+That is, until that night.
+
+That night when I became aware of every single step I took. When I became aware of how each step could seal my fate.
+
+The following morning was a Monday, but I was unemployed and suffered from insomnia. Since I'd been lying down for a few hours and had miserably failed to fall asleep, I gave up for the time being and decided to stop by a convenience store for a snack.
+
+This was at, I believe, around eleven at night, and twenty minutes later I was heading back to my apartment. Outside, it was cold and the sky was clear. The entire building slept — windows dark, doors locked, and a silence broken only by the usual chirping of crickets.
+
+When I reached the entrance, I shifted the bags of cereal and chips to my left hand and fished my key ring from my pocket with my right one. I unlocked the glass door that led into the building and stepped inside. When I turned to keep the door from slamming shut, I saw someone out there, coming towards me.
+
+It was one of the residents from the first floor. I recognized him by the unkempt black beard, along with the blue plaid shirt, the faded jeans, and the worn shoes that seemed to be the only clothes in his wardrobe.
+
+I held the door in a polite gesture and he quickened his pace. When he came in, he gave a nod that I couldn't tell was a greeting or a thank-you, but I returned it either way with a forced smile.
+
+I slowly closed the glass door, muffling as best I could the thud it always made whenever it met the security latch. I walked down the hallway and finally began climbing the stairs.
+
+Each floor had a motion sensor that would switch on its own lights whenever it detected movement in the hallway. Once lit, if no movement was detected for the next ten seconds, the lights would switch off automatically.
+
+I reached the second floor and heard the click of the sensor activating and the lights coming on. I crossed that hallway and began climbing again. The concrete steps were gapped, which meant you could look down and see whoever was on the floors below, though it have you no view of the steps *between* each floor.
+
+Then, standing midway between the second and third floor, I noticed the first floor lights switching on beneath me. 
+
+I saw nobody.
+
+I thought I didn't remember seeing the resident step into his apartment, which I was fairly sure was on the first floor. Either way, I didn't worry about it. Well, of course he could've been busy with something and—
+
+*Thud… Thud…*
+
+*Footsteps. Heavy footsteps.*
+
+I stopped.
+
+The footsteps ceased as well.
+
+For about five seconds, I stayed still, my ears alert… and nothing. I started walking again, slower this time. I climbed one step. Then two. Then three. Then four—
+
+*Thud… Thud…Thud… Thud…*
+
+Almost perfectly in sync with my own, the footsteps down below echoed again.
+
+By then, I had reached the third floor. I wasn't sure of anything, but my heart was already pounding hard in my chest. I wanted to believe it was too much of a coincidence, but the more I thought about it, the more unlikely it seemed.
+
+I looked down, through the gaps between the steps, and noticed that the light on the first floor had gone out, but the one on the second hadn't turned on yet. That meant whoever was climbing must now be somewhere between the first and second floor.
+
+I stayed still, waiting for the second floor light to switch on, hoping it was just another resident… but nothing happened.
+
+The person had stopped.
+
+They were standing still. Standing in the dark, on the steps between the first and second floor.
+
+*Waiting for me?,* I thought.
+
+I realized that if I still had any shred of love for my own life, I should assume the worst: *I was being followed.*
+
+I figured that as long as I stayed still, the stalker wouldn't move either. They probably wanted to climb at my pace so the sound of my footsteps would muffle their own.
+
+*It's okay*, I repeated to myself.
+
+*Stay still and breathe in. One… Two… Three… Breathe out.*
+
+I reached for my phone in my pockets, but remembered I'd left it at home charging. All I found was my bank card and a key ring with the apartment and building entrance keys.
+
+*It's okay.*
+
+I could ring someone's doorbell on the third floor, since I was already there… but it was too risky. Whoever was behind me could simply flee through the front door of the building, which was only locked from the outside and allowed anyone to leave freely from the inside.
+
+Not only that, but it was almost midnight. If I disturbed anyone… *Fuck.* That was out of the question.
+
+*Thud… Thud… Thud…*
+
+He was coming.
+
+*WHY IS HE COMING?*
+
+I decided then that I *could* be fast enough — I'd run to the fourth floor, get inside my apartment, and be safe.
+
+I realized that, by walking in sync with me, the person would still have to go through the second and third floors. Following that logic, by the time I reached the fourth… the stalker would still be on the second.
+
+*Thud… Thud…*
+
+It was so obvious, and it had taken me so long to see it.
+
+He must have figured that out first, which is why he was using the time I stood still to close the distance between us. *Smart —*
+
+*Thud…*
+
+Now. 
+
+I have no more time. They must be just a few steps from the second floor.
+
+I took a deep breath… and ran. I ran the way a deer runs from a sure-shot hunter. I don't remember stumbling, but if it ever happened, I simply ignored it and kept going.
+
+As I climbed, I looked down. Through the gaps between the stairs, I could see the second floor light snap on almost the instant I took off.
+
+It's funny how in the worst moments we think the most trivial things, and right then I found myself wondering whether my stalker was even human.
+
+Still, I had counted on my lead, and within seconds I was standing in front of my apartment door, number 404. Keys already in hand, I unlocked it quickly and stepped inside. The adrenaline had taken over, and in that moment I didn't hold back — I slammed the door. I slammed it so hard it shuddered from the impact, but not before I caught a glimpse of a dark figure in front of me.
+
+If I had to describe it, all I could say was that it was at least 7'5". Its skin traced the exact outline of a spine and ribs beneath a blue plaid shirt, and its limbs were just as thin and long. Its jaw was dislocated and drooping, twisted to the left.
+
+I turned the key in the lock more times than I thought were possible, and, panting, I remained standing, wondering whatever the hell that thing wanted to do with me.
+
+*…turn off the lights.*
+
+Then I had an idea.
+
+If my apartment went dark, I'd have a better view of the light coming through the door undercut. The light from the hallway. Following my logic, as long as the stalker was standing out there, the hallway light would stay on, and once they left, after ten seconds, it would turn off.
+
+In other words, I'd know I was safe.
+
+As soon as I hit the light switch in the living room, I was plunged into darkness. I held my breath, eyes fixed on the gap under the door. Even as I tried to calm myself, my heart still pounded like a drum in my chest. I just wanted it all to be over.
+
+After forty seconds, the sliver of light beneath the door went away. I'm certain it was exactly forty seconds, because I counted every single one.
+
+My relief was so great that the tears on my face mixed with sweat.
+
+I dragged my feet toward the kitchen, trying to pull myself together. If I reached the intercom, I could call for help, warn someone—
+
+*Ding, dong…*
+
+The chime rang through my freshly furnished apartment.
+
+Someone had rung my doorbell.
+
+I felt frozen in time; my body refused to move. My stomach turned, and more than throwing up, more than crying, I wanted to *run*.
+
+*How?* I asked myself. *How did they…?*
+
+Then I understood. I understood just how wrong and naive I'd been.
+
+The hallway light would turn off if it detected no movement, yes — but I'd been foolish enough to think the stalker wouldn't be bold enough to simply… *stand still*.
+
+He stopped.
+
+He waited.
+
+He tricked me.
+
+*...Damn it.*
+
+Without even looking back, I ran to the kitchen. I yanked the intercom off the hook and dialed the front desk number. In tears, I explained the situation, occasionally pushing strands of hair away from my mouth or peeling them off my wet face.
+
+The man who answered asked me not to take matters into my own hands and, if at all possible, to lock myself in my bedroom while help — two night security guards — was on the way.
+
+"It's okay," I whispered, my voice shaking. "Breathe in… one… two… three… breathe out. It's okay."
+
+Heading toward my bedroom, I crossed the living room again, my eyes locked on the door. Through the gap, only darkness seeped through. The hallway light was still off. *Why hasn't he left yet?* I thought. He must have heard when I dialed the front desk…
+
+That was the moment I noticed something. There was a piece of paper in front of my door that could only have been slid through the gap at the bottom.
+
+I approached. The room was still dark, and when I turned the lights on, I could see the paper was blank.
+
+I crouched down and noticed its color was cream, like the page of a book. I picked it up, feeling its rough texture. All I could hear was the buzzing hum of the LED bulb in my apartment, and that dim light made the piece of paper look even more yellowed.
+
+Holding it with both hands, I lifted it to eye level. The light helped me make out some dark lines on the back, so I flipped the note over. Printed in a serif, italic font, it read:
+
+>!*When help arrives, the doorbell will ring twice.* ***Do not answer the door*** under any circumstances — *you* ***will*** *die.*!<
