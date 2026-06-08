@@ -41,3 +41,5 @@ I tried talking about it with my family when I got back, but they seemed incredi
 With fewer answers than I had before, I flopped onto my bed, drained from the day, which was a foreign feeling for me. It was a restless night, but right before I was slipping into unconsciousness, I heard urgent buzzes ping off my phone. I opened it up, and across my lock-screen I saw Liam's name.
 
 “I need you to meet me tomorrow; there’s something here you need to read. And please, for the love of god, don’t talk about Amberly to \*anyone\*”
+
+[This isn't a normal disappearance.](https://www.reddit.com/r/nosleep/comments/1tzrcrr/this_isnt_a_normal_disappearance/)

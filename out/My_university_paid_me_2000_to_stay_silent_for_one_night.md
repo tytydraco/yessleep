@@ -1,0 +1,519 @@
+My university is performing strange overnight studies.
+
+
+
+I first learned about them during my second semester, when I was down to less than forty dollars in my checking account.
+
+
+
+The flyer was pinned to a bulletin board outside the psychology building.
+
+
+
+OVERNIGHT SILENCE STUDY
+
+Compensation: $2,000
+
+Duration: One night
+
+Requirements:
+
+Must remain awake
+
+Must remain silent
+
+Must follow all instructions provided by research staff
+
+If interested, please go to PSY213 ‘Studies and tests’ on the second floor of the Psych Building.
+
+
+
+I must have read it ten times.
+
+
+
+Two thousand dollars for one night was ridiculous. It was more money than I made in a month working part-time at the campus bookstore. At the bottom of the flyer was a handwritten note: *Participants who leave early will not be compensated.* For some reason, that line bothered me more than anything else. Not because I would leave earlier, but because whoever added that in felt like people would want to leave.
+
+
+
+My empty wallet is what finally made up my mind. Taking the flyer in my hand, I entered the building and headed to the second floor. On the other side of the door marked PSY213 was a small waiting room with a handful of chairs, and at the far side of the room was a hallway guarded by a small desk. Sitting behind the desk was a young woman, not much older than me. As I entered, she looked up and smiled
+
+
+
+“Hello,” she said pleasantly, “Can I help you?”
+
+
+
+“Um, yes,” I said as I walked up to the desk. “I was actually wondering if there is still time to sign up for this?” I slid the flyer across the desk to her. As she saw it, her smile lowered slightly, and she quickly glanced up at me before her eyes returned to the paper and her smile again widened.
+
+
+
+“The Silence study? Yes, there are still slots available; would you like to sign up?”
+
+
+
+A burst of excitement ran throughout my body
+
+
+
+“Yes, I’d love to! $2,000 is too good to pass up.”
+
+
+
+She forced a laugh before asking for my information. She took down my name, phone number, emergency contact, and medical history. After she had everything she needed, she said
+
+
+
+“Alright, I think I have everything. You will need to be at the Garner building by 9 PM this coming Tuesday. The study will take place in vacant dorms at the top level. You are welcome to bring with you any books or homework you want, but please don’t bring anything that can play songs or movies. Since this is a silence study, those aren’t allowed.”
+
+
+
+I nodded quickly
+
+
+
+“Garner Building at 9 PM on Tuesday, got it.”
+
+
+
+As I turned to leave, she said
+
+
+
+“Oh, one more thing, I nearly forgot.”
+
+
+
+I turned back around
+
+
+
+She slid a packet across the desk.
+
+
+
+"Please read and sign the consent forms."
+
+
+
+The packet was nearly an inch thick. I didn’t bother to read it all, just signed the last one. As I left, the secretary called after me
+
+
+
+“Good luck.”
+
+
+
+Tuesday came quickly. I spent the day sleeping and putting together a backpack full of snacks and books for the night ahead of me. By 8:50 PM, I was standing in front of the Garner Building. A few moments later, a balding man in his 40s came out and asked
+
+
+
+“Are you here for the study?”
+
+
+
+I swallowed hard before nodding
+
+
+
+“Yes, sir.”
+
+
+
+“Great! Please follow me.”
+
+
+
+He led me inside and into the building's elevator. Hitting the button for floor 5, we headed to the top. The elevator opened to a hallway dimly illuminated by fluorescent yellow lights. The hallway was nearly identical to the other dorm halls on campus, only this one was strangely lifeless. It felt as though no one had used this floor in years. The man led me further down the hall before stopping in front of room 504
+
+
+
+“Here’s where you’ll be staying tonight, just so you know we have installed security cameras everywhere except in the bathroom, just so we can confirm that you remain silent all night. We have also installed an intercom system.”
+
+
+
+I looked at him, confused
+
+
+
+“What’s that for?”
+
+
+
+He responded, “At the beginning of every hour, we will announce the time for you. If everything goes well, this will be the only voice you hear all night.”
+
+
+
+The answer wasn't particularly reassuring, but two thousand dollars had a way of making concerns feel smaller. I turned the doorknob, and I walked in. The man said
+
+
+
+“Remember you are free to leave at any time, but just know that those who leave early will not be compensated.”
+
+
+
+ With that, he reached in and closed the door. I heard the quiet click of the door locking, and realized that the study started now.
+
+
+
+I turned to face the room, finding it to be not much different from my own dorm room. It was quietly lit by a single overhead light and a small lamp that stood on the desk in the corner. The floor was carpeted, and a lofted bed took up one full wall; beneath it was a small reading chair and a mini fridge. Across from the bed was a full-size wardrobe and a poster of a cat hanging on a branch with the phrase ‘hang in there’. The outside wall was home to a large window that granted a view of the courtyard. Unlike my dorm, this one had a short hallway shooting off to the right of the door. Here was a tiny kitchenette with a few cabinets and a sink. There was a miniature coat closet. At the end of the hall was a door to a small bathroom with a toilet, sink, and tight shower.
+
+
+
+Instinctively, I opened my mouth to comment on the room before remembering I wasn't supposed to speak again until morning. Taking the backpack off my back, I pulled out one of the books and took a seat in the chair.
+
+
+
+The first hour was boring; I didn’t leave the chair, nor did I put down the book. I jumped an hour later when a loud monotone voice broke through the silence
+
+
+
+“It is now 10 PM.”
+
+
+
+I released a breath I hadn’t realized I was holding. Rebuked myself in my head for so quickly forgetting about the intercom before returning to my book.
+
+
+
+At 10:30, I needed a break from reading; the words on the page were starting to hurt my eyes. Standing up, I stretched and began to absent-mindedly examine the dorm. I opened all the cabinets in the kitchenette, but only found a few cups and bowls. I stared out the window, watching my fellow students come and go. Then I went to the bathroom and opened the closet, which was empty except for a single winter jacket. Finally, I opened the wardrobe, and as I did, a crumbled piece of paper fell to the ground. Seeing that something was written on it, I picked it up, and here’s what it said:
+
+
+
+If You Found This, Read It Before Midnight
+
+The researchers won't tell you everything.
+
+Stay silent. Not "don't talk." Stay silent. The researchers are studying what happens when nobody speaks. Do not interfere with the observation.
+
+If another participant enters your room, do not acknowledge them. Participants are assigned one room each
+
+If the intercom asks you a question, the study has ended. Leave immediately.
+
+The hourly announcements should only happen on the hour. If the intercom speaks at any other time, cover your ears and do not listen to what it says.
+
+Do not look into the hallway between 1:13 AM and 1:20 AM.
+
+If someone knocks three times, ignore it. But if someone knocks four times, move away from the door immediately.
+
+If you hear crying from the bathroom, do not investigate.
+
+If the lights go out, close your eyes and count to one hundred.
+
+If you see someone standing in the courtyard staring at your window, close the blinds and do not open them for 2 and a half hours.
+
+At some point during the night, you will hear your own voice. It will ask you a question. Do not answer.
+
+If the intercom announces "It is now 3:07 AM," hide in the coat closet until another announcement is made.
+
+Whatever happens, do not open the wardrobe a second time.
+
+
+
+I couldn’t help but roll my eyes after reading it; clearly, someone who did the study before me had gotten bored and wanted to prank the next participant. I crumbled the paper and tossed it into the trash can. After filling a glass of water and grabbing a snack, I returned to the chair and my book.
+
+
+
+I glanced up from my book at 11 when the intercom announced
+
+
+
+“It is now 11 PM.”
+
+
+
+I scanned the room slowly. After two hours of silence, I felt like the room itself had grown louder. Every squeak and groan of the building felt far louder than it should be. After glancing around the room a few times, I returned to my book.
+
+
+
+Around 11:40, I started feeling drowsy, so I stood up and did some jumping jacks and ran in place for a while to get the blood flowing. I was on the toilet when the clock struck midnight. The intercom declared
+
+
+
+“It is now 12 AM.”
+
+I finished in the bathroom and returned to my book. I nearly jumped out of my skin when 20 minutes later, at 12:20 AM, the intercom said
+
+
+
+“Participant three is now reading a book.”
+
+
+
+I lowered my book and looked around quickly. That was weird; I thought it was only for telling the time, and am I participant three? I sat frozen for a few minutes, waiting to hear anything else. I noticed a low hum that hadn’t been there before, but after waiting for 10 minutes, I stood up and grabbed a snack from my bag. As I did, the intercom said
+
+
+
+“Participant three is eating.”
+
+
+
+I froze mid-chew and looked up at the little camera in the corner staring down at me. Why would they announce my actions like this? The hum grew louder as I returned to my chair. At 12:39, the intercom spoke again.
+
+
+
+“Participant three is breaking the rules.”
+
+
+
+I looked around in confusion. What rule had I broken? I hadn’t said anything. The hum was now so loud that it was hurting my ears. Five minutes later, at 12:44, the intercom announced.
+
+
+
+“Participant three is going to die.”
+
+
+
+Panic filled my mind as the hum grew painfully loud; it felt like my brain was going to explode. But in that moment I remembered the note I had thrown away, and rule #4. I squeezed my hands over my ears; even with them covered, I could feel vibrations radiating through my hands. But after a few moments it stopped. Cautiously, I removed my hands from my ears, and everything was perfectly quiet again. The hum was gone, as if it had never been there.
+
+
+
+Sweat formed on my forehead as I moved to the trash can and unwrinkled the balled-up paper. I stared at the rules for several minutes. But then I heard the jiggle of keys and the sound of someone fumbling with a lock, before I turned and saw the front door swing wide open.
+
+
+
+At the door stood a man who looked roughly my age; he had shaggy blonde hair, wore shorts and sandals, and a sweatshirt bearing the school’s logo. There was a bag at his feet. He looked at me and smiled
+
+
+
+“Hey, man,” he said, “guess we’re going to be roommates. What’s your name? I’m Chris.”
+
+
+
+I was too confused to answer. But he kept going
+
+
+
+“what’s you’re major? Mine's business. Are you as pumped as I am to be here?”
+
+
+
+I was about to answer, but the rules in my hand caught my eye. Rule #2: ‘*If another participant enters your room, do not acknowledge them. Participants are assigned one room each’*. I felt cold as I read it.
+
+
+
+“Whatcha got there?” the man asked as he noticed the sheet in my hand.
+
+
+
+I lowered my eyes to the floor and didn’t respond. He went quiet as he walked closer to me. He stood mere inches from me.
+
+
+
+“Is that orientation information?” he said as he pointed at the paper
+
+
+
+“Why don’t you give that to me?” he asked smoothly
+
+
+
+I instinctively pulled my hand away, but as I did, he screamed
+
+
+
+“Give it to me!” my hands shook as I folded the paper and put it in my pocket.
+
+
+
+He grunted and said, “Look at me.”
+
+
+
+His voice had changed, growing deeper and cracked.
+
+
+
+“Look.”
+
+“At.”
+
+“Me.”
+
+
+
+I swallowed as I closed my eyes. I could feel his hot breath on my face. It smelled rotten. I stood there with my eyes closed for what felt like hours, but when I opened them again, he was gone. The door was shut and locked; it was 12:57 AM.
+
+
+
+I was a wreck; the rules in my pocket must be real. I wanted to leave; I wanted to get out of there and never come back. But after what I had experienced, I seriously doubted that I truly could leave. It felt safer to listen to the rules and make it through the night. After taking a few minutes to calm my nerves, I pulled out the rules and reviewed them.
+
+
+
+Rule #5: Do not look into the hallway between 1:13 AM and 1:20 AM.
+
+
+
+It was 1:05 AM. I looked at the little hallway leading to the bathroom, wondering what could possibly happen there in 8 minutes. Whatever it was, I wouldn’t be looking. The chair faced toward the door, and I could see the hallway from where it sat. So I turned the chair to face the window. As I did, I glanced out the window. There in the courtyard was a tall figure, holding a single lit candle in its hand as it stared directly into the window. I couldn't tell how far away it was. I only knew it hadn't been there a moment ago
+
+
+
+Without hesitation, I shut the curtains and set a timer for 2 and a half hours. As I did, I felt the room become noticeably colder. The hairs on the back of my neck stood up as I heard the sound of dishes moving coming from the hallway. I didn’t dare to even turn around; I couldn’t risk seeing what was in the hallway. It sounded like someone was trying to cook a meal.
+
+
+
+I heard the sound of vegetables being chopped and a pot of water being boiled, even though the kitchenette I saw didn’t have a stove. Every now and then I heard someone trying to whistle a tune, but it was monotone and lacked any sense of music. At around the 6-minute mark, I heard a quiet, dry voice say to itself.
+
+
+
+“Hmm, need to get some rosemary.”
+
+
+
+Then I heard heavy footsteps leave the hallway. They crossed the carpet slowly. One step. Then another. Then silence. Complete silence. I could no longer tell where it was. I was about to turn around when, directly in my right ear, I heard a mocking whisper.
+
+
+
+“You’re still here, huh?”
+
+
+
+After that, I heard footsteps walk away and the sound of the door slamming.
+
+
+
+Slowly I turned around. It was 1:21 AM.
+
+
+
+Everything was pretty quiet for a while. At 2:30, loud wailing came from the bathroom and lasted about 20 minutes. After it stopped, I cracked the bathroom door open. It was empty.
+
+
+
+Sometime after 3:20, I was getting pretty tired. The silence was making my eyes heavy, and right as I started nodding off. The lights went out. The darkness pumped adrenaline through my veins, waking me up. From the bathroom, I could hear a clicking sound. It sounded like a dog with long nails walking across a hardwood floor. It was getting closer. Remembering the rule, I squeezed my eyes shut and began counting to myself.
+
+
+
+“1,2,3,4,5…”
+
+
+
+The sound was now right in front of me.
+
+
+
+“10,11,12,13…”
+
+
+
+The sound stopped, and directly in front of me I heard creaking bones.
+
+
+
+“20,21,22,23…”
+
+
+
+A cold bony hand gently caressed the side of my face
+
+
+
+I squeezed my eyes tighter
+
+
+
+“30,31,32,33…”
+
+
+
+A raspy voice vibrated off of long dead vocal cords
+
+
+
+“Just open your eyes.”
+
+
+
+My throat went dry as I continued counting in my head
+
+
+
+“45,46,47,48…”
+
+
+
+A damp, rough tongue licked the side of my face.
+
+
+
+“67,68,69,70…”
+
+
+
+Right as I hit 100, the lights flipped back on; even through my closed eyes, the sudden brightness was a shock. I opened to see the empty room just the way I left it, though my cheek was still slightly wet.
+
+
+
+For the next 2 hours, I hid in the bathroom. I figured that since the only rule involving the bathroom had already happened, it was probably the safest place. I sat on the toilet lid waiting. Hoping time would move faster. Near 5:15 AM, I heard a quiet voice behind me.
+
+
+
+“You sure have been quiet for a long time.”
+
+
+
+It was my voice, not in my head, but in my ears. It was my exact voice, like I was listening to it on a recording. I tried to ignore it.
+
+
+
+“Why did you stop talking to Mom before she died?”
+
+
+
+I clenched my teeth. How did it know about Mom?
+
+
+
+It asked again
+
+
+
+“Why did you stop talking to Mom before she died?”
+
+
+
+And again and again. From 5:15 till the sun rose, it asked the same question over and over again. I couldn’t take it; I was near my breaking point when the sun peeked over the horizon. As it did, the voice stopped. Everything was quiet once more.
+
+
+
+Between sunrise at 7:30 and 8:30, nothing happened. I braced myself for the worst, for something terrible to jump out of the wardrobe but nothing did. At exactly 9 AM, the intercom announced
+
+
+
+“It is now 9 AM, the Study is complete, do you have any questions?”
+
+
+
+I immediately rose from the chair, grabbed my bag, and headed out the now unlocked door. By the elevator stood the same man from last night; he smiled and said
+
+
+
+“Congratulations on remaining silent the whole night. Your time has been very beneficial to our study.”
+
+
+
+He handed me a check for $2,000 and what looked like a business card
+
+
+
+“Here is your pay, and if you’d like to participate in any of our future studies, please call the number.”
+
+
+
+I stared at him in silence
+
+
+
+“Please follow me,” he said, ushering me into the elevator
+
+
+
+I decided to go home to my dad's for a while. I’m even thinking of transferring schools; I just can’t be there right now. I’m writing this late at night while I’m lying in bed. I haven’t spoken much since this all happened; I’m scared something will hear me.
+
+
+
+My clock just hit 3:07, and as it did, a cold mechanical voice just filled the room
+
+
+
+“It is now 3:07 AM.”

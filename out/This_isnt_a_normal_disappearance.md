@@ -1,0 +1,111 @@
+[Part one](https://www.reddit.com/r/nosleep/comments/1tyu69t/amberly_and_the_silent_city/)
+
+
+
+I didn’t sleep for one second that night. In all honesty, I was livid.
+
+Liam knows how I can get hung up on the smallest details; then he drops that on me and goes radio silent. I left **two** hours early just because I had to get myself occupied.
+
+What felt like an onset of mania lasted for the early hours of the morning, until finally 8am hit and I made my way over to Liam’s place. I don’t know what I looked like when he saw me, but I can tell you he probably looked worse.
+
+I told him I’d been going down the street for the last two hours and he looked at me with an unbridled haste.
+
+“I said leave an hour early- why walk around the streets by yourself and risk it?” Liam stuttered with a cadence unlike himself.
+
+“Risk it? Has Amberly got under your skin that much? Nothing ever happens, it’s fin-“
+
+He cut me off.
+
+“It’s not fine. I don’t know what this letter is, or what it means exactly, but **don’t** spend any unnecessary hours out there.”
+
+“Read it” he demanded as he handed me a piece of paper, worn from the corners as if they’d been holding onto it all their life.
+
+*Liam, or whoever this reaches- God, I hope it reaches the right person…*
+
+*I don’t know where I am. I don’t know why I’m here.*
+
+*All I know is they took me. They took me when I was out after dark by myself, walking along the city edge.*
+
+*They weren’t coherent- no clear messages… I heard their voices. Glimpses of sense through the bag they’d put on my head.*
+
+*“Outlier…..no use to th…….contacts soon..”*
+
+*“Dispose”*
+
+*That’s all I got from them. I’m scared. I’ve been in this chamber for almost a week. They’re moving me soon; they opened a slat and said so, but not where they were taking me.*
+
+*I don’t know how you’ll get to read this, but I want it to exist in writing.*
+
+*I think that they think we’re bad produce, Liam. Me and you both. I’m not sure if you know other people who don’t belong here, but keep them close enough to you.*
+
+*And those who do belong… You need to keep your distance, Liam; I think they want you too.*
+
+*Amberly*
+
+I read it twice.
+
+“Liam, what the fuck is this- I thought you were worried shit like this isn’t funny-“
+
+He cut me off again.
+
+“Alex, if you think for one second I’d go through the trouble, being the state I am myself, for a joke, you wouldn’t be friends with me.”
+
+He was right. I knew it wasn’t him. But there was nothing to make sense of it.
+
+“How did you even get this? Did you see her?” I questioned.
+
+“No. It came in the fucking post. Government-issued. Whoever sent this sent it from an actual office, in an actual building.”
+
+“One of those dominos towering the city.”
+
+He sounded almost breathless.
+
+And I don’t know if it’s in good faith or bad faith.”
+
+I sat in silence, processing what I’d been given.
+
+“So we don’t know if it’s actually her?” I questioned once more.
+
+“Well, it sure fucking looks like her handwriting; it’d have to be the best forgery I’ve ever seen to be someone else.”
+
+It felt like a warning. It felt like a ‘**we know you don’t belong here. Leave before you don’t have a choice.’**
+
+But even considering the fact this might be real felt absolutely insane.
+
+“Do we… listen to it? Do we find another place to go? And not in a ‘I want to run away and start a new life way, in a it might be our only option way.’ I said in a drawn-out breath.
+
+Liam sat lost in his thoughts for a moment.
+
+“No.” He muttered.
+
+His rationality got the better of him, but in this situation I really wish it hadn’t.
+
+“We don’t know anything, Alex. Listening to some letter that could be anything- maybe they found out I was a friend and it’s someone being overly cruel-“
+
+“You said it was government-issued,” I almost plead, dreading dealing with the anxiety of being here any longer.
+
+“You think no one’s ever managed to make a letter official when it isn’t?” I’m not saying it’s nothing, but to up and leave now off of just this is insane.” He said, trying to reason with me.
+
+“And plus, I’d have a pit of guilt leaving this place without any closure on Amberly.” He added.
+
+I hated it. I hate that he had an answer for everything. I hate that I thought he was wrong. But just because I thought he was wrong doesn’t mean he wasn’t thinking more realistically than me.
+
+“Well, what do you want to do then?” I asked, defeated.
+
+“She said she was at the city edge; I think we should have a look. During the day, of course. If you think you can handle everything.”
+
+The only way to combat anxiety is to truly square up to it, I suppose.
+
+“What do you want to find out there?” Hoping he’d have yet another answer for me.
+
+“Anything to give this letter something legit to go off of. I want to know how serious this is. I want to know if we’re in harm's way. And if so, I want to know how much time we have.”
+
+More answers than I’d expected.
+
+He continued. “I want to know if there’s something I can do- we can do. If it’s real, if we’re ‘outliers’...”
+
+“... it means we’re a threat. We can make a difference others won’t.”
+
+He sounded serious. Determined. He sounded like he didn’t believe his earlier words. This wasn’t some letter from a cruel kid in the centre. He knew it. He said himself the forgery would have to be perfect.
+
+But he needed to prove it.
