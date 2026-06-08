@@ -1,0 +1,450 @@
+The quarry was about eight odd miles from our tiny town of Winona. If you were fast, that was a 45 minute bike ride. 
+
+45 minutes on the bike and about 15 minutes more on a forlorn trail. An hour of your energy and you were transported back centuries to a place unmolested by all modernity. The quarry was where we’d find ourselves nearly every day of summer back when we were kids.
+
+Kathy rode there on a rusty old bike she had long outgrown. It was the bike she first learned to ride on. The training wheels had been hastily stripped off many years back by her loud father. There were matted bike streamers dangling from the handle bars. We called her bike “Sissy Shit.” She hated it and so did we.
+
+Jeff took his older brother’s Schwinn everywhere, it had working gears and everything. It was easy on the eyes, painted a deep forest green. The chain had this neat trick of always popping off, though. Still, that bike was a nice ride and its green color made it easy to stow in bushes.
+
+Beau would ride around on one of those BMX bikes with the pegs that stuck out of the center of the wheels, which was funny because Beau was too much of a marshmallow to actually try any tricks. He wouldn’t even stand on those pegs when coasting down a smooth paved road. Beau read too much to take risks. 
+
+I had a dark blue Huffy with faded flames painted on it. I remember it didn’t have the regular handlebar brakes, instead you had to pedal backwards to brake on mine. The kickstand didn’t work and the whole damn thing jerked when you first took off, eventually smoothing out with enough speed. It was a bike though and I suppose that was all I needed.
+
+The quarry sat in a deep pocket of old growth and no one really knew much about it. All of our parents and older folks seemed to agree it was already there when Winona was founded way back in the early 1800s. 
+
+It was a great big hole in the world and, over who knows how long, the quarry filled with water. The water there was an enchanting shade of blue and it was always the perfect temperature. There were cliffs around the north side and you could plunge off those all day and night without ever having to worry about striking a random rock or the bottom itself. The depth of that water was unknown and the cliff face continued underwater until it disappeared into the black. It could’ve been a hundred feet deep or a thousand, lord knows we tried to figure it out.
+
+We’d throw things into the quarry, any old thing. Beau would bring loose change that reflected sunlight and we probably dropped fifty dollars down into the water just trying to see if we could catch them hitting the bottom. Kathy would bring swim goggles and Jeff and I would dive down as deep as we could, chasing the sinking change. 
+
+I still remember the feeling. That tremendous pressure that’d wrap around my head and make it feel like it’d soon burst if I didn’t float back up. The temperature of the water would plummet the deeper I’d go, coating my entire body in a silky suit of ice. Then came the dark. 
+
+All that godlike power the sun shone down on us wasn’t enough to penetrate just twenty feet of that quarry’s thick syrupy water. It’d get really dark down there, and I’d get the feeling of eyes on me. That’s where I always paused. 
+
+The pressure was nearly unbearable by that point, so I’d just pause in the cold dark depth. I’d use the few extra seconds to watch the coin fall lower and lower until it too could no longer reach the warm rays of sun. 
+
+The coin would disappear and I would shoot back up as fast as I could, always feeling like something would rise from the dark and snatch my leg. A few seconds down into that murk was all it took to bring a kid into another world, one even further removed than the old growth forest surrounding it.
+
+The quarry was a mysterious place, that was for sure. And it comes as no surprise that nearly every kid that lived in Winona would have their phase of journeying out to that forgotten place. 
+
+Winona itself is a tiny little town strangely positioned in the middle of a vast sea of forest. There was never much to do. The quarry was not only our swimming hole, but also the lovers’ lane, the smoke spot, the place to peruse through porno mags. It was our local stage for adolescent sin.
+
+All this stuff happened in the summer between eighth and ninth grade, Kathy, Jeff, Beau and I lived out our quarry phase in full.
+
+Every day, we’d have some scheme or some new adventure to get into at the quarry. Cliff jumping one day, fishing the next. Then, we were smoking Jeff’s stolen cigarettes and shooting off firecrackers. Then, we tried rock climbing on the steep cliffs we tired of leaping from. After that became boring, we would “survey” all the trails around the place and try to find something new or old out there. 
+
+It didn’t take long for us four teens to wear out that entire area. 
+
+We were still young enough to be adventurous and just square enough to not indulge in other pastimes, like smoking Jeff’s brother Terry’s skunk weed.
+
+We had barely broken into July when we all started to go out to the quarry at night.
+
+Sneaking out of our respective houses and making the hour commute to the quarry in the night was just the thrill our little prepubescent heads were after.
+
+Leaving my house was easy because my mom slept like the dead and my dad worked through the night. Jeff had no trouble at all because his folks couldn’t find a shit to give. Kathy and Beau, however, now they had to do the elaborate stunts or face a beating. Sneaking out a window and climbing down a tree, memorizing every wood panel that squeaked, real cat burglar type antics.
+
+Winona was a weird place at night. It got so dark on some nights you could make out the faint clouds of the milky way. You’d hear the strangest sounds spilling from the black forest and you’d just roll your bike on by as quietly as you could. 
+
+Those night rides out to the quarry were long and stained with paranoia. 
+
+The forlorn trail was the worst because you’d have to walk it and really get intimate with the black forest that contained all those strange, unnatural noises. 
+
+Some nights, Jeff would pop out behind some tree or rock and send me into a fight or flight response. He was a real jackass sometimes, just like his older brother Terry. 
+
+Terry was the one that told us about the Licking Thing.
+
+\-
+
+“You guys are too chicken shit to try this,” Terry said in his low, creaking voice he’d adopt after ripping his sticker-bombed bong. “But, if you wanna experience something that’ll fuck you up, like really stick with you, y’all should meet the Licking Thing.”
+
+We were all standing around a raging trash burn that Jeff’s family would do every month. Terry was there tending to it as he continued on about this “Licking Thing.”
+
+“It’s the craziest shit you’ll ever do. I did it when I was about y’alls age.”
+
+“What the fuck are you talking about, Terry?” Jeff asked. “You’ve literally never said anything about a *Licking Thing* before,” Jeff said “Licking Thing” mockingly in his Forest Gump voice.
+
+“He’s just trying to scare us,” Kathy said, bored and messing with her frizzy hair.
+
+“You’re gonna have to come up with something more creative than *Licking Thing*,” I said.
+
+“Yeah, like what is it, a fucking dog?” Jeff exclaimed and then his tone became subdued. “Terry, have you been doing the peanut butter trick again with the neighbors poodle?”
+
+Terry sent a punch into Jeff’s chest and Jeff sent a harder one back, almost causing Terry to fumble his bong. Terry showed his size and raised his arm in a classic older-brother-hammerfist which sent Jeff cowering.
+
+“You flinched, pussy,” Terry barked.
+
+“Guys!” Kathy screeched. “Y’all are unbelievable.”
+
+“For what it’s worth, I think the Licking Thing sounds pretty messed up,” said Beau, applying his social glue. He was the embodiment of neutrality and petrified of hurt feelings. 
+
+“Thanks, Switzerland,” Terry said. “Hey, y’all don’t believe me? That’s fine, try it for yourselves. You’ll see. Next time y’all are having another late night play date at the quarry, take a dip.”
+
+“We’ve swam all over the quarry, what’s your point?” I asked.
+
+“No. You gotta do it late at night. Swim out into the center and wait.”
+
+“You’re so fuckin’ stupid, dude,” Jeff said while rubbing his freshly punched chest.
+
+“What’s so special about swimming out into the middle?” I prodded further, expecting it all to just be bullshit. *But what if it’s cool bullshit?* I thought to myself.
+
+“What if one of us gets a cramp and can’t swim back?” Beau asked, expecting all of us to rally behind him. 
+
+There was communal secondhand embarrassment at that.
+
+Terry looked at him, confused. “Then you’ll drown and they’ll never find your body, fuck nuts, duh.”
+
+“We just won’t eat beforehand, Beau,” Kathy said, sounding like a disappointed mother.
+
+“So, we swim out to the center and do it late at night, simple. Shit, I’ll do you one better and do it during the witching hour,” Jeff said, all macho and confident.
+
+“Sure, I don’t give a shit. Do exactly that and give it a few minutes. Watch what happens.” Terry said and hit another herculean rip. “Y’all ain’t gonna do it, though. You’re too chicken shit.”
+
+That was all the motivation we needed. 
+
+“Chicken shit.” 
+
+We would all go to the quarry the very next night with our swim gear.
+
+\-
+
+I’d be lying if I said I wasn’t getting those nervously-excited electric jolts throughout the entirety of the next day.
+
+My mind was on fire with conflicting thoughts and feelings about the whole objective of the upcoming night.
+
+*The Licking Thing? What the hell does that even mean?*   
+***A thing that licks, dumbass.***   
+*Yeah but like what’s Terry talking about going out into the center of the lake? What’s that about?*  
+***He’s just messing with you guys. Nothing is going to happen. He’s just trying to scare you because that’s the only joy he receives in his miserable little life.***  
+*He’s never done anything else to scare us though, except maybe on Halloween when we were younger. Come to think of it, Terry’s never really that talkative unless he’s super stoned.*  
+***Exactly. He was stoned last night. Stoned to the heavens, absolutely fucking sautéed.***  
+*Maybe that opened him up to talking about something messed up that happened to h-*  
+***This is pointless. Thinking about this over and over all day is just going to get you freaked out and it’ll all be over nothing. Some half assed scary story from a stoned ape. Chill.***
+
+As the sun crept below the trees and stars began to come out to play in the evening sky, I began to feel that twisting, bubbling sensation in my stomach. Fake or not, I wasn’t into the idea of swimming way out into a bottomless pit at three in the morning.
+
+Half of my fears were rooted more in reality, like getting bit by a water moccasin or something. And even though Beau was as sissy shit as Kathy’s bike, he was right, what if one of us *did* get a cramp and sink to the bottom? Wherever that may be.
+
+\-
+
+Jeff brought hotdogs and successfully shoulder tapped a six pack of beer for the first time that night. Kathy rode in on Sissy Shit equipped with swim goggles and glowsticks. Beau brought as many pool noodles as he could fit in his backpack “in the case of a cramp.”
+
+I brought a couple of airsoft guns in anticipation of the Licking Thing being a total bust, although part of me was still deeply nervous about it all.
+
+The ride out to the quarry that night was the most fearful one I’d experienced up to that point. 
+
+Most of the time, I’d sneak out around eleven and that wasn’t so bad. Even in a tiny town like Winona, you had plenty of house lights still on and even some TVs still glowing. A car might even pass by. 
+
+That night, I set off for the quarry around one thirty in the morning thanks to Jeff’s insistence on swimming out at three in the morning. 
+
+There was nothing awake. No lights, no passing cars, nothing. I could hardly see where I was going. If it wasn’t for my decent mental compass, I doubt I would’ve been able to find my way.
+
+Kathy, Beau, and Jeff all lived on the other side of town, and most of the time they biked to the quarry together if they could. I was afforded no such luxury. I was all on my own for all eight miles in that abyssal dark.
+
+Once the reaches of Winona surrendered and I transferred into the black wall of forest, I felt millions of eyes on me, as if I was already deep down in the quarry’s water.
+
+It was a physical feeling, I swear. Like a tingly, burning sensation on the back of my head and neck. 
+
+And the strangest thing of all was that the lush forest was totally silent that night. Usually there was a deafening opera of insects and hooting owls and maybe a wailing pack of coyotes way out in that old world. Nothing sang to the dark that night. It was just the rhythmic rubber sound of my wheels turning.
+
+It was as if the world around us was lying in wait.
+
+\-
+
+Kathy cracked the glowsticks and a bright green hue slowly illuminated our kiddish faces.
+
+The quarry’s water was still and it almost felt like it had a sort of pull on me. I couldn’t keep my eyes off of it.
+
+It was still silent all around and no one else seemed to notice. I chose to keep it to myself so as to not freak anyone out even more than they may have already been. 
+
+Light gusts of wind swaying the tall trees and the unsettling slap of the quarry’s water against rock were the only sounds not being produced by us.
+
+“I’ll lead the way guys,” Jeff said as he battled to take off his shirt.
+
+“Do you want a skinny noodle or the fatter kind? You can swim faster with the skinny ones but you’ll float a lot better with the fat-“ Beau was cut short by Jeff’s thunder.
+
+“I don’t want a damn pool noodle, Beau. I’m not five. Do I look- okay, look, just drop the noodle shit, man.”
+
+“They’ll probably just complicate things,” I added calmly, trying to be like Switzerland.
+
+“Your funeral,” Beau muttered and silently pulled out a skinny pool noodle for himself.
+
+“I’ll have a skinny one,” Kathy said quietly. 
+
+Beau’s face lit up and Jeff’s melted into disgust.
+
+“Chicken shits,” Jeff muttered.
+
+The insult was still echoing off the invisible cliffs across the black water when Jeff jumped in. That sudden sound felt almost rude, it was so loud in that strange silence.
+
+I watched Jeff paddling around in that water, that wise and knowing water, and I felt deep dread. Around him was a small glowing perimeter of green from his glowstick and then pure, utter dark beneath him. A strong nausea overtook me and I swear I felt older and more mature at that moment.
+
+In that brief moment, I decided I wasn’t getting in the water. Something was off and the whole world knew it. Even the bugs knew it.
+
+That’s when Kathy pushed me in.
+
+\-
+
+The world went pitch black and muffled sounds of laughter could be heard far away. Water swished and sloshed and bubbled in my ears. Daggering cold needled every part of me.
+
+It took a couple lifelong seconds until I gathered I was now underwater in the quarry, exactly where I didn’t want to end up.
+
+It was so dark that I couldn’t even see my feet, only a few inches ahead of me and then the biggest, most expansive feeling of nothing below me. 
+
+It was as if I existed in a time before creation or something heady like that.
+
+I floated back to the surface and, just like that, was a teenager again.
+
+Kathy, Beau, and Jeff were all laughing their asses off.
+
+“I’m sorry, you were just standing there zoned out. I had to,” Kathy said through gasps and laughter.
+
+“You flopped so hard dude, oh my god,” said Jeff, who was swimming over to hand me a glowstick.
+
+I remember feeling embarrassed enough to snap out of whatever existential crisis I had experienced before getting pushed in and focused on being young and dumb. 
+
+The last one to get in the water was Beau, of course. I was even begging him to get in despite my sure intention to stay ashore just moments ago.
+
+*We all just need to unwind. It’s just some water and it’s the same at night as it is in the day.*
+
+Beau didn’t jump in, instead he opted to slip into the quarry by scooting off the ledge.
+
+“It’s s-s-so c-c-cold tonight,” Beau stuttered through chattering teeth.
+
+“Yeah, it’s a real ball shrinker,” I said.
+
+“Ew, shut up!” Kathy screamed.
+
+“Don’t worry, Kat. He doesn’t have any balls,” Jeff said. “C’mon guys, we gotta get moving.”
+
+\-
+
+The swim out to the middle of the quarry probably wouldn’t take too long if attempted by a competitive swimmer, but we were four lazy teens who were uninterested in sports. Jeff was the most athletic, but it was only thanks to his genetics playing out.
+
+It took about ten or fifteen minutes of pathetic butterfly strokes until we all agreed on being as “in the middle” of the quarry as we could gather based on the low visibility.
+
+“I think - I think this’ll do,” Jeff wheezed.
+
+“I really thought I was cramping there for a second,” Beau said.
+
+“I will drown you if you keep talking about cramps, bro.”
+
+“So, what do we do now?” I asked. I was beginning to feel uneasy again. In between our words was the most heavy silence. Only the subtlest little burps of the water could qualify as sound.
+
+“I don’t know, we wait I guess, like Terry said” Jeff muttered, looking around with his glowstick.
+
+“How long? I’m kinda freaked out,” Beau whimpered as he clung to his pool noodle.
+
+“Me too, the water’s so deep and cold,” Kathy agreed.
+
+“That’s the fun,” Jeff sang. “The Licking Thing won’t be long now.”
+
+“Ew, quit it, Jeff. I don’t like that voice,” Kathy said.
+
+“What if it’s like a big snake that lives in the quarry?” Jeff continued. “Or maybe, just maybe…”
+
+“Jeff!” Kathy yelped and the echo chanted back to us twice.
+
+“Maybe it’s the ghost of a girl who drowned here,” Jeff now held the glowstick right under his face so the shadows made him look like an impersonation of himself. “And this ghost girl has a curious tongue.”
+
+Jeff embraced the silence and his grin grew wide. That’s when he slowly looked down.
+
+“Oh my god!!” Jeff screamed as loud as he could.
+
+We all thrashed around, panicking.
+
+All of that dread I had felt for the whole night boiled over and I was filled with some primal kind of fear.
+
+Water splashed around violently, our glowsticks went flying.
+
+Jeff shouted, “guys! Calm the fuck down, oh my god!”
+
+I caught on quicker than Kathy and Beau, who were still a mess of kicking arms and legs.
+
+“It was a joke! I didn’t see anything,” Jeff said through maniacal laughter.
+
+I grabbed Kathy and tried to calm her down. When she settled, she did the same to Beau.
+
+I was livid.
+
+“The fuck, Jeff! You jackass,” I growled.
+
+“It was a joke, bro. Chill,” Jeff said through annoying little giggles.
+
+“Yeah, real funny. Your stupid joke just cost us all our glowsticks.”
+
+Jeff looked at me, confused. Then he looked down into the water.
+
+Four green glowsticks were falling fast into the abyss. We watched them slowly fade into darkness, never reaching the bottom of the quarry.
+
+“You are such an idiot, Jeff,” Kathy said with acid.
+
+“Oh my god,” Beau yelped, “how are we gonna get back?”
+
+“We’ll be okay,” I said - not knowing if we would be. “We’re surrounded by land, alright? We’ll be cool no matter which way we swim, yeah?” I didn’t know what I was talking about. It was true the quarry was landlocked, but it was also probably at least a mile or two long and just as wide in some places, not to mention almost all of the north side was dominated by steep cliffs. I didn’t have much faith in Beau and Kathy noodling those distances in the cold dark water. And me and Jeff, well, I bet we’d succumb to cramps with all that aimless swimming.
+
+It was pitch black now that the dim gleam of our glowsticks had gone away. Overcast skies had rolled in and eaten up almost any natural light that could’ve aided us. The only visual I can recall seeing was the faintest change from ground to sky, with the low hanging clouds taking on an off-black shade while the quarry and the surrounding forest was obscured in voidlike, can’t see your hand in front of your face kind of dark.
+
+We floated there for a while, unsure of what the next move was.
+
+The silence had become deafening and we let it intrude to the point where it seemed we were all afraid of breaking it.
+
+The next thing I remember was a feeling that something in the water had changed. It got even colder and then there was this sensation of some undercurrent moving beneath us.
+
+The perfect silence was shattered when, out from the dark before me, Kathy screamed.
+
+“There’s something in here with us!” she screeched.
+
+“Fuck! Kathy, you scared me!” Jeff screamed back.
+
+“It’s under us!” Kathy continued. “It’s under us! It’s under us!”
+
+“Kathy, hey!” I tried to snap her out of her panic. “It’s okay! You’re okay!”
+
+Kathy screamed again, and this time it was full of pure and true terror.
+
+“It’s licking me!” Kathy thrashed around in the water, but I couldn’t even see her. I only felt the resulting waves of her flailing and the spits of frigid water whipping me.
+
+*She’s just imagining things. There’s no way there’s something actually licking her.*
+
+“Calm down, Kat! You’re good! You’re all good!” Jeff shouted.
+
+“Screw this, I’m out of here,” Beau said and I heard the frantic rhythm of strokes follow.
+
+“Beau!” I yelled. “We gotta stick together, man!”
+
+*We’re all just paranoid. That’s the real killer here. We’re all stupid and paranoid. We’ve got to calm down.* *This is how kids drown.*
+
+A few seconds passed where it was just Kathy hyperventilating and the sounds of Beau fleeing and I noticed Jeff wasn’t saying anything anymore, which I found strange. Jeff always had something to add.
+
+“Jeff, where are you?” I asked the void all around me.
+
+I heard Kathy flailing and grunting still, Beau panting as he swam further away into the unknowable dark. 
+
+Nothing from Jeff, though.
+
+“Jeff, you chicken shit, where are you!” that would get him to respond, surely.
+
+“I feel it, too,” a soft monotone voice said from the dark off to my right. “I feel it. It’s licking my feet.”
+
+“Jeff, you’re bein’ crazy man. We’re all just scared shitless,” I said with no confidence at all.
+
+Beau must’ve been half a football field away now, his strokes were just dim slaps off in the distance.
+
+“Please make it stop,” Kathy whined in an awful, cracking voice. It sent a full body shiver down my spine. It sounded like she was right next to me, but I couldn’t see her at all. “I hate it. I hate it. I hate it so much.”
+
+“Just try not to move,” Jeff said. “I don’t know, just stay put Kat and it’ll be okay.”
+
+Fear devoured me now. This was real. Jeff was talking all weird and had no more insults to dish out. Kathy was in some frozen shock and was just letting out these hideous rattles. This was *real.*
+
+I kept floating there, pretending I was invisible. I couldn’t see anything at all, so how could anything else possibly see me? It was so unbelievably dark and I was so cold. 
+
+That’s when the hot fleshy thing communicated with the bottom of my feet.
+
+The Licking Thing licked and licked and licked.
+
+At first I gasped, but then I fell into a similarly frozen state as Kathy.
+
+It felt colossal, whatever it was, I don’t know, like if you flipped a whale inside-out and it swam against the bottoms of your feet. God, it was so weird feeling. Over and over, those long and methodical passes of something huge underneath us, but it was being so gentle at the same time. It was the most delicate feeling. It felt like licking, like we were being tasted. Sampled.
+
+I prayed, I was never religious, but I prayed regardless. I didn’t even know how to pray, really. But I did my best at that moment.
+
+*Oh God, please don’t let me die right here. Oh God, please, please just give me a heart attack or cancer later on. Please, God. Please. Please. Please.*
+
+It must’ve been several long and silent minutes of the Licking Thing’s tasting before the heat of it disappeared and that unfathomable licking sensation ceased.
+
+It was still pitch black and silent. Beau had either swam so far he could no longer be heard, made it to shore, or drowned. Kathy and Jeff made no signs that they were still around, either. 
+
+I was beginning to fear they were both taken by the Licking Thing while I was distracted by my tasting.
+
+It took a lot of courage to speak out into the world after all that.
+
+“G-guys?” I whispered. “Are you guys still here?”
+
+Silence. On my left, a tiny wave of water sloshed against me. Maybe an echo of Beau’s retreat, or maybe of the Licking Thing which lived below us.
+
+“Guys!” I whisper-yelled.
+
+“I’m here,” Jeff said.
+
+“We need to leave,” Kathy said through sobs. “Please, we need to go. Now.”
+
+“What if it comes for us when we start swimming?” I asked.
+
+“I think it’s gone now,” Jeff said. “I don’t feel the heat.”
+
+“Me neither, so can we go already?” Kathy begged.
+
+“Let’s just start slow,” I suggested. “Really slow. Until we’re far enough away.”
+
+With the caution of hunted prey, we all began to slowly swim away from the middle of the quarry.
+
+\-
+
+I’ve always had a decent sense of direction, and I’ll forever be grateful for that ability. That subtle tug always within my mind of where I am in relation to somewhere else is what got us back to shore and it only took a little longer than when we initially swam out and we were only a couple hundred feet away from our camp.
+
+Beau had more trouble. He’d gone north and hit the cliffs and had to swim all the way back across the quarry. We had to start a fire to help guide him and luckily he saw it. That was something we should’ve done from the very start, but you don’t think ahead when you believe you’re untouchable.
+
+Kathy, Jeff, and I all learned that we were very touchable, vulnerable, edible.
+
+When Beau climbed out of the quarry, he found three petrified husks of his friends chugging their first few beers and eating cold, bunless hotdogs despite the steady fire.
+
+I’ll always remember my first beer. It was in a blue can, tasted like warm, metallic piss, and I couldn’t drown in it fast enough.
+
+Beau was a mess of complaints. He had all sorts of scrapes and cuts and bites and bumps. He was freezing to death and had turned into a prune from all his time in the water. 
+
+We could offer no help. We were all lost in our heads. Only one thing on our minds.
+
+“Did you feel it?” Jeff asked Beau.
+
+“Feel what?”
+
+“Never mind.”
+
+Beau almost pressed further, but I could see in his eyes a level of understanding. He sat by the fire and warmed his hands and feet. He didn’t ask for a beer nor a hotdog.
+
+\-
+
+Eventually, the sun came crawling up into the horizon. The quarry was reflecting brilliant reds and oranges. To me, it just looked like a body of blood before us.
+
+We hiked out of there, none of us talking unless it was Beau trying to start a conversation. No conversations were started despite his efforts.
+
+Something in us had changed or snapped. Kathy, Jeff, and I were different. And we would stay different.
+
+Kathy ripped Sissy Shit out of a thornbush and rode off without a goodbye or anything.
+
+Jeff hopped on Terry’s Schwinn and peddled off fast after some short nods in our direction. I watched him fly and thought that Terry better skip town before an act of siblicide occurred.
+
+Beau gave me a fist bump and got on his BMX bike.
+
+“I’ll see you guys tomorrow?” Beau asked.
+
+I looked at Beau with my new eyes and I lied. “Yeah, man. See you then.”
+
+“So much for the Licking Thing, right? Still, it was a fun night, even though I was lost at sea for half of it.” Beau smiled and rode his BMX down the street like it was a tricycle.
+
+I watched them all vanish as they passed the first curve on the way back to Winona. I felt the urge to cry, but I didn’t. I just let it all sit right below the surface.
+
+I lifted up my downed Huffy and observed the faded orange flames on it. They looked so childish to me now.
+
+I started peddling back towards Winona myself, my bike buckling and stuttering until I hit the speed where all of its injuries faded into a smooth momentum.
+
+That was the last time I’d ever talk to any of my best friends.
+
+The Licking Thing had changed us, jaded us into a new chapter of our lives where we were no longer compatible with one another.
+
+While I don’t wish to murder Terry as Jeff might’ve on that morning after our encounter, I certainly resent him for carelessly shattering our innocence and our friendship.
+
+As I grew older, I came to find out a lot of teens knew about the Licking Thing. It was seen as a sort of rite of passage for many. Something you had to meet with to become a real badass.
+
+It stayed surface level for most. It was just some strange phenomenon that happened when you went out into the quarry at night. Some kids happened upon the Licking Thing by accident, while some were like us and ventured out into that black water after being egged on by some older sibling or a friend with higher social status. It was just something to do in our little town. Hardly any questions were ever asked. Adults either didn’t know about the Licking Thing or thought it was just a tall tale.
+
+The whole challenge of it all never sat right with me. I did my best to dissuade people from going out to the quarry to meet the Licking Thing. Who knows if my efforts ever worked? FOMO is the real monster, after all.
+
+\-
+
+It’s been around thirteen years since I met the Licking Thing, and I still feel its warm gliding tongue licking the bottoms of my feet on some nights. 
+
+Swimming out into the water that night is still one of my biggest regrets. 
+
+Even though I now live hundreds of miles away in a big city with new friends who’ve never even heard of Winona and I have a busy job and expensive hobbies and there’s been so many days between then and now, I still feel like the Licking Thing can find me. 
+
+Or worse, maybe one day, I will be compelled to come back and find it.
