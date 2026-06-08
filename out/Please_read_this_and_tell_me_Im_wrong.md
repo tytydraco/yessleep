@@ -1,0 +1,113 @@
+I’m writing this because I just don’t know what else I can do. I haven’t told many people about what happened, and every time I try to piece it together, it sounds ridiculous even to me. Even writing it now, part of me feels stupid. I try to tell myself that maybe I was tired or possibly imagining things. I don’t know, I just want some logical explanation for everything that happened the other night. 
+
+I went for a walk a few days ago along a wooded path that led through the park behind my apartment. It was around 10:30 PM at the time and though it was late, I’ve taken the path hundreds of times and I knew exactly where it led. It was about a ten minute walk forward and back; about twenty minutes total if I kept a good pace. 
+
+My mind was clouded after a going down a rabbit hole of several missing people near my city. I was always the type of person you’d find digging through all sorts of conspiracy theories, cold cases, the minds behind killers; often to the point i would just need a break. So you could bet that I’d be up all day and night looking into something so close by. 
+
+The path had two benches about five minutes down and a few light post were lined along the path. It was quiet, relaxing; I never brought headphones with me to maintain full awareness but also to enjoy the momentary absence in noise and presence. But suddenly, about two minutes into my walk, I heard the crunching sound of gravel and dirt pick up as a man wearing shorts and a hoodie came jogging by from around a slight bend in the path. It wasn’t unusual to come across people getting some light cardio in around this time or just a late night walk like myself. 
+
+I approached the first pair of benches. One on the left side of the path, one on the right. I took the left and sat down for a moment. I took out my phone and subconsciously began scrolling through threads of people talking about weird local sightings and unnatural phenomenon occurring; a bad habit of mine anytime my mind isn’t occupied with something. I wasn’t really focused on anything at first, just dead scrolling until I routinely snapped out of it. 
+
+The time read 10:37 PM as I continued to scroll. That’s when I heard footsteps again. It sounded like another jogger but the footsteps slowly came to a stop and from my peripherals, I could see person sit down. My eyes slightly lifted towards the person and it was the same guy that jogged past me about three minutes ago… or at least I think it was? He wore shorts and a hoodie just like the other guy but perhaps it could’ve been different. I’m not so sure anymore. 
+
+I continued back to my phone reading through various comments. But i noticed that the man in front of me hadn’t moved since he sat down. He just sat hunched over, hands on knees with his head down. Completely motionless and almost absent from reality. I won’t lie and say that it didn’t slightly cause some unease and force me to get up and continue on my walk. I went to turn and take one last glance as I got a few feet but when I did… the man was gone? 
+
+I turned back toward the path and continued to walk but up ahead another bend in the path appeared. Now i haven’t been on the path in a couple of days but like I said, i knew this path well and.. there was never a bend there. Only two and the next one was further than I was and I know I didn’t clear that much distance in just a minute. 
+
+When I came around, the path straightened out again but a singular bench that hadn’t been there before was there now and it was at this point that I genuinely began to question if i had been sleep deprived or just.. I don’t know. Something. But the bench never disappeared. Even when i approached it, touched it and continued walking it was still there. It was real. 
+
+I believe i was about eight minutes into the walk when I checked my phone again. What I saw when I pulled out my phone made me go from thinking I was sleep deprived to just totally losing my mind. Opening my phone, the time read 10:37 Pm. But how? It was 10:37 when i sat down? 
+
+That’s when the sound of a low, unnatural giggle came from down the path; it was as if the sound of it had a subtle glitch and as I looked up… the man in the same hoodie and the same shorts was sitting on a bench with another across from it. Just like the pair I already passed. And this time, he was staring directly at me.
+
+You know that feeling when your mind reacts to something before you realize it? Or when you are on the bridge of the fight or flight feeling. I actually don’t know how to explain what I felt in that moment but I knew that now something wasn’t right. 
+
+I approached the benches; not even considering on checking behind me. I was too focused on figuring out just what the hell I was looking at. As I got closer, I noticed something that made my stomach tighten. His smile was already there. It wasn’t growing or forming from any other expression. It was Just there.  
+The longer I looked at him, the more familiar he seemed. Not like somebody I knew but more like somebody I’d forgotten. Who had already been smiling for a very long time. 
+
+ I couldn’t say anything. It felt like my throat tightened inside and my body just… kept moving. But my head, my eyes, they stayed on him and his on me. With that unnatural smile, a smile that had no change. No emotion.
+
+I was finally able to turn back ahead and pick up my pace. At this point I had no plans in going back through but rather out the park and back around the long way to my apartment. I looked back at my phone and opened my steps app to see how much was tracked. Maybe the time was just messed up and thankfully the app I used counted my steps even when I was off the app. 
+
+However, When the app opened.. it read “0 steps.” I cursed under my breath. I like to say at this point a sort of dread began to truly sink into my core and that’s when the sound of a cry that sounded far too deep came from behind me. Not a few feet away or a certain distance. 
+
+Right behind me.
+
+I turned around so fast that I lost balance and my phone flung from my hand landing somewhere off to the side. But I turned to nothing. After a few seconds of just standing there looking stupid, I began to desperately look for my phone when I started to hear footsteps again. But this time, they weren’t running. I stopped and looked up from the ground to see a woman. Tall, slim, with long black hair that touched her waist. She carried an opened umbrella and that was already weird enough because it was completely clear out. Though there were two things that stood out more than all of that. She wasn’t walking forwards… 
+
+She was walking backwards. 
+
+Other than that, there was nothing off about her movements but rather they were almost… too perfect. There was no misstep, no change in direction or even a subtitle change in pace. As she got closer, and walked passed, I turned back to look for my phone. 
+
+I finally found it and turned back to the path. I checked both ways to see nothing. No woman, no benches and the most comforting, no signs of that man. I checked my phone for the time again and it read 3:00 am. Now I’m familiar with the whole ghost stories and hauntings of this hour so it really made me put my situation into perspective and the next second that followed, I was booking it down the path.
+
+I didn’t stop running but I wasn’t pushing myself. I kept a manageable pace while consistently looking over my shoulder. After several glances, when I looked back in front of me my entire soul left my body. The man from before was down the path and he was running straight for me… each light post he passed, the light to it went out but all sounds—even the sound of his steps were completely absent. 
+
+I stopped running and fell back. Shelling up into a ball and closing my eyes; preparing myself for whatever the hell was about to happen. I sat that way for what felt like minutes. Then suddenly, i heard a close sound of a mourning dove. I uncovered my face and stoop up to see the woman again. Back still turned towards me. But she wasn’t moving this time. She was just standing there in place and the sound of the mourning dove… was coming from her. 
+
+She continued making the noise until i finally decided to say something.  
+“Excuse me Ma’am?”
+
+The sound cut out like flipping a switch. And a feeling of fear washed over me as I tried to figure out what to say next and then, what felt like an instant, the woman began walking towards me. Backwards but this time, her movements were abnormally wrong. Like a puppet trying to walk without strings. 
+
+I had enough at this point and began to run full speed back the way I came. I didn’t care what I would see and I didn’t care about what it was I was experiencing. I just wanted to get off this path. I ran faster than I’ve had in years and this time I didn’t bother looking back. As I continued to run, I kept seeing a green bike in the same spot, same side every few minutes… I’ve already felt like I’ve been running for fifteen when out of nowhere a curve up ahead came. And from around it… me. 
+
+At first all I noticed was the clothes, then the face and then the bike. The same green bike I’d been passing over and over again. It or… “i”, had a smile that I don’t know how to describe. It wasn’t wide or unnatural. It was worse than that. It looked exactly like the smile I’d make if somebody told me a joke, but the smile never met the eyes. 
+
+It caused me to slow down just a bit but I’ve already seen enough and so I kept running and eventually, I made it back to behind my apartments. I ran up to my back door, opened it and slammed it hard enough to wake my neighbor but who cared at that point. 
+
+I quickly checked all locks in the house and even the windows, went up to my room and shut the bedroom. I don’t own a firearm so I just sat helpless in my bed hoping whatever was going on out there, wasn’t happening in here. It felt like hours passed and I don’t even remember falling asleep. The next thing I recall is sunlight coming through the blinds and for a few minutes I just laid there staring at the ceiling, trying to convince myself that the whole thing had been some kind of panic attack or nightmare.
+
+Too many conspiracy threads, too much caffeine. Anything. Eventually I got out of bed and went downstairs and that’s when I noticed something.
+
+The back door was unlocked.
+
+I was sure I locked it when I got home but just moments before I began to write this I realized something…
+
+I had been in a panic last night, and I wasn’t exactly thinking straight. The more I think about it, the clearer it becomes. I never locked it at all.
+
+I remember grabbing the handle, I remember throwing the door open and slamming it behind me. But the one thing I remember now that I put more thought into last night, I never actually locked it. Meaning the whole night… someone could’ve entered.
+
+I tried not to think about that, even now I don’t. I spent most of the day distracting myself trying to write this up without sounding crazy or like I’m making up some new story. It’s the only thing keeping my mind occupied.
+
+But, little things are started to happen.  
+Nothing major. Just things that feel… off.  
+A kitchen cabinet I never use will be left open, a dining room chair will be pulled out from the table, sometimes my bathroom light is left on. And I live completely alone. I know that’s what everyone says in stories like this, but I genuinely live alone. I don’t tend to socialize or converse with people much. 
+
+Yesterday around noon I started checking the locks every thirty minutes and by two o’clock I was checking every room. I had convinced myself I was just being paranoid. Then I went to make dinner. And that’s when I noticed the first major sign. Something that I still can’t explain.
+
+There was mud on the kitchen floor.
+
+Not much, just a few dried footprints.  
+I followed them and they started at the back door, crossed the kitchen, through the hallway and stopped outside my bedroom. Not inside, outside. As if they just stopped and stood there. 
+
+I checked the size and… they were my footprints. Same shoe pattern, same size.  
+I knew because I put my shoe over one of them and yeah, a perfect match. 
+
+I spent the next hour trying to come up with an explanation. Maybe I’d tracked it in the night before. But there’s one problem. I’ve somehow never really noticed them before hand and now that i do, I noticed something else… the footprints only go one way
+
+There aren’t any leading back out. And before anybody says it…
+
+No.
+
+I did not take a picture.
+
+At least I don’t think I did.
+
+Because when I checked my phone a few minutes before I began writing this, I found something. It was a photo in my gallery taken at 3:17 am. One I don’t remember taking. The image is dark and mostly black but after turning the brightness up, I could make out my bedroom doorway.
+
+The photo was taken from the hallway just outside my room, looking in. And I was asleep in my bed. And in the corner of my room it almost looks as if someone is standing there. Someone that looks familiar but no matter how much I zoom I just can’t be sure.
+
+So my question to everyone is this.
+
+If I was asleep when the photo was taken, And I was alone in the house…
+
+Who was standing in the hallway?
+
+Who took this damn photo?
+
+Please read this and tell me I’m wrong. Tell me there’s something obvious I’m missing.
+
+Because if there isn’t…
+
+Then I think whatever I saw on that path last night didn’t stay there.

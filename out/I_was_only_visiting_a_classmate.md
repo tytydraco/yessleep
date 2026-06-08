@@ -1,0 +1,371 @@
+A classmate of ours fell ill, as the teacher declared. Thus my class was told to prepare some well-wishing gifts for her.  
+(And the homework she missed the past week.)
+
+Allie, being the class president, had to go. I volunteered, since no one else did and there were two giant barely liftable overflowing bags of gifts to carry.
+
+So there I was, witnessing my dear friend lift both bags in one hand like they were papier-mâché, in a *suit* of all things.   
+Her other hand was empty, yet was only used to motion for me to reach for the doorbell. With a little smirk on her face.
+
+I clutched my protection amulet while my other hand pressed the doorbell. Heavens above… 
+
+*The amulet bursts. What is that in front of you?*  
+…what?
+
+The Kaneshiro mansion was stand-alone, placed somewhat far from civilization, the general design betraying its age.   
+Of course, the walls were clean and freshly painted; the rooms were illuminated warmly; the lawn was mowed and the doorbell rang clearly. Just an ordinary household.
+
+“We are here to wish our classmate well,” my friend chirped sweetly, “if you wish, please let us in.”
+
+The front door swung open, revealing a lean figure, the parental resemblance with her daughter obvious. Same silver hair, same purple eyes, same sharp face- but this one had a warm smile.
+
+“You two must be tired, coming here so late,” he said. “Come in and have some tea.”
+
+The mansion's guest room resembled that of a luxury hotel, complete with cameras about everywhere. He went into the kitchen while we took out and arranged the gifts on the table, placing a few bottles of mineral water on a wood-and-marble chair.  
+(There was a family picture, a single parent and two kids, that we didn't dare touch.)
+
+Most of them were bottles of cordial or tins of powdered milk with ‘get-well-soon’ cards attached.  
+*Someone* brought an entire 24-book set of classic novels. Someone that I was staring at.
+
+Allie was fidgeting a scalpel; of course she'd bring one even here. Her left hand remained still.  
+“She seemed the type.” 
+
+I gave up and reached for my phone. “Weekly News: Global Mechanicals has just released the Mark-I android caretaker,” powered by a glorified chatbot- no point using valuable processing power for this, I assume, “the pressure is now on Cyberdyne to catch up.”  
+About time.
+
+Now, our classmate… didn't like to *blend in* with others. Ever since she transferred here three years ago. She walked alone, had her meals alone, sat alone in the library, never tried to make any friends. I was about the only person that knew anything about her, and it was clear that she didn't trust me with much.
+
+What was also clear was how she had looked… nervous the past week. Her eyes already had bags, but they were now obvious.  
+   
+A police car drove into campus for some scam awareness campaign, and she jumped out a window and tried to make a run for it. I tried to advise her to see the counsellor, and she left without a word.  
+That was when she fell sick and went on leave.
+
+When I relayed this to Allie she looked as if she had just figured out relativity. Before she could say anything, however, our host returned with two cups of tea and a plate of butter cookies, all smelling delightful. They were warm, even, who even made cookies this late at night?
+
+I reached for a swirl-patterned-
+
+*Your eyes are still wide open, staring at nothing. Allison pockets her blood-stained scalpel, closes your eyes, and calls the police.*  
+“I’ll pass, thanks.”
+
+Our host looked at me incredulously. “You've made quite a journey here, you know. Are you sure you don't want anything?”  
+“I'm not hungry, thanks.” What could he have added in those cookies…?
+
+“Also,” noted Allie, sipping her tea, “we did make most of said journey by car anyway.” She eyed my cup, since I had no chance of drinking *that* either.  
+Our host looked saddened- it's clear that *someone* put effort in that plate, I almost went for one out of politeness- but he got up and walked away.
+
+As soon as the last of his footsteps echoed away, someone leaned into my ear-  
+“Thallium.”
+
+—
+
+What did we do to deserve this? Why did he want us dead? We haven’t even met until now. My parents aren’t powerful enough to earn anyone’s ire.  
+… the person mad enough to kill strangers had a *child*. Heavens above, what has her life been like until then? Did he hide himself enough to give her a normal life, or…
+
+The sound of flesh separating. I couldn’t help but stare while Allison inspected the internal components of her arm, fiberglass and fluid pipes plucked aside to reveal a mess of frayed, sparking wires- the suit cloaked over her left. A blue-splattered scalpel pulling the other wires carefully aside.
+
+“Five days ago,” she began, “a homeless man went- *warning, left wrist joint servo unresponsive*\- missing. He was reasonably known around where I live, a kind old lad that sold donated bottles of mineral water and told people tall tales about his past…  
+“Please pass me the napkin box; something- *warning, fluid damage*\- this *arm* will have to be handled in a *hazmat suit*,” she sighed, collapsing on the couch, while I drew out a few paper napkins. 
+
+“...as such, a concerned citizen called the police. The alleyway he sometimes slept in had no cameras- there was nothing there to steal anyway. They could not find anything, and he was eventually forgotten.”   
+This was said with the tone of “class starts tomorrow”.   
+But it was clear where she was going.
+
+“The same type of mineral water as provided here?”  
+She wrapped a rubber band tightly around her arm, until the skin around it whitened. “*That* might have been a coincidence. *Kameshiro-san running from sirens* might have been a coincidence…  
+“...about that, the old man had, in the months before disappearing, talked about a fellow homeless woman *also* vanishing. Make your conclusions.”
+
+It was as obvious as it was horrible. “Why?” I went for the door, but she grabbed my hand.  
+“People *do* that, I guess. There is no point in running anyway, notice the cameras.”  
+“Allie, *you* might be reasonably skilled with that blade of yours,” I noted, “but *I’m* defenseless. What do you think we *do* anyway?”  
+She tossed me… a dart gun. A bright red dart gun with the point jutting out the barrel.   
+I should stop being surprised.
+
+“As the saying goes…” she pocketed the scalpel, jumping out the couch, “the only way out is through. This will certainly be a fun night.”  
+I kept staring at her.  
+My amulet was vibrating?
+
+Was there someone at the staircase?
+
+“Come on, I *will* be covering you.” She walked away. “Note to self: get an arm panel-”
+
+—
+
+\-and a new face, apparently, as a leg somehow materialized into it, the rest of the attacker brushing past me. Sending her flying straight onto the floor, tumbling. Unmoving.  
+My body reacted before I could, raising the dart gun. “Who are you?”
+
+The attacker wore a black, long-sleeved shirt with long-sleeved pants. Their head was covered by a motorcycle helmet, and they held a small silver revolver to my face.  
+I gripped my weapon like my life depended on it. Which it did. “Why are you doing this? We didn’t do anything to you, did we?”
+
+They slowly tightened their grip on the trigger. Their hand was…shaking-
+
+They disappeared, revealing an Allison charging forward knife first- I dove to the ground, weapon trained, as she stabbed into the couch. 
+
+The scalpel was positioned right at the attacker's throat.  
+The attacker's height… that figure, even… familiar. Too familiar.
+
+Why did you do this…? We were here to bring you *gifts*, even.
+
+Allie slowly got up, half her face a torn mess of artificial muscle, an eye dangling from wires, the other glowing red. That *was* just a kick, wasn’t it? Did the intruder tape sandpaper to her boots?  
+“Baseline human,” she groaned. “I was just ambushed by a *baseline human*, of all things.”  
+I had to ask. “‘Baseline’? What ‘baseline’ pops in and out of existence? You had less than a second to-”
+
+“It does not matter.” She cut the dangling eye, ignoring yet another error warning, and drew a second dart gun. A blue one. “My instincts are *beyond* what is possible for humans, I was on edge at the time- and she *still* got the drop on me. It was like she did not *exist* before her foot connected.”  
+…but my *amulet* picked up on the attacker. 
+
+I took it off. “This might help.”  
+“Save it for yourself,” she pushed it back, saying, hand stained blue. “It will probably save your life tonight.”  
+“Since *I* can’t defend myself,” I argued, “anything that helps *you* also helps *me*.”
+
+“Do you think that she-” *She?* You managed to figure it out as well? “-is the *only* problem in this house? You are smart, figure it out yourself.” Allie walked towards the other direction.  
+…hey! I’ve just nearly died to my classmate-turned-assassin and her father just now- forgive me if my brain wasn’t thinking clearly enough!
+
+…her hands shook. She recognised me- or perhaps she simply wasn't prepared to kill yet- but she still tried to pull the trigger. What even was she doing this for?  
+Her father? Perhaps he somehow convinced her that it was for some greater good. What greater good, then…?
+
+—
+
+It might be time to explain what the italicized text was. I have the power to see into other timelines, usually bad ones to be avoided, by touching something related to said timeline.
+
+It does require heavy concentration, however-  
+\-or it could just fire at will. Usually during imminent danger.
+
+Anyway, the halls. For such a large house there’s a surprisingly low amount of activity there- no sounds of people anywhere, nothing out of place- certainly most people will eventually be too lazy to put even just one thing back, shoes or clothes or books.
+
+It’s almost as if no one lived there.
+
+Allie walked in front of me, because “I can be rebuilt; you can’t”. And because she had infrared sensors despite not being military. I’m not complaining- that vision showed my head being cut off despite our attacker not blinking in. She used a gun, didn’t she?
+
+Should I call the cops? A brief discussion later, we’ll do that when we have further proof. Otherwise they’d send, what, two unarmed officers? Who’d *die*?
+
+The rooms were all locked. While we have already made enemies of the mansion’s residents, but somehow it felt weird to kick in the doors. The kitchen provided us with a few knives and not much else, Allie picking up and feeling the weight of their fork collection before pocketing them.  
+“Upwards or downwards?” she asked.  
+I didn’t reply.  
+“Upwards it is.”
+
+Upwards was a small staircase, unlit, decorated with more pictures of happier times. I turned on the lights, just to be safe. Kame-san never told me about having a sister- she’s always called herself an only child. 
+
+But the pictures stopped at around-
+
+Allie suddenly stopped- gleaming in the light was-  
+My amulet went off again. I hastily grabbed the railing to avoid falling over.  
+\-glass wire. Why did she even *have* glass wire of all things? Where were they even attached to?
+
+There she was again, standing below us. Saying nothing.  
+I drew one of the kitchen knives and slashed at the wire. The *knife* broke.  
+Allie did the same with her left pinky. In the silence I could hear coolant dripping. “I did not even use much force…”
+
+Well, we were trapped. If she drew her gun we weren’t running.
+
+…now might be the only time.
+
+I stared her down as she reached into her pockets: 
+
+“Kane-san?”
+
+She stopped.  
+Took off her helmet- some part of me held out hope- silver hair, purple eyes, sharp face twisted in shock.  
+Then sighed before taking her gun out anyway. “I *have* to do this. I *have* to.”
+
+“We have not guessed any of your secrets,” Allie called out. “If you could just let us go, we can-”  
+A round went straight into her face- it was less loud than I thought- a gas gun?- she nearly fell over, but grabbed the railing just before that, slumping to the floor.  
+“I *had* to,” Kaneshiro said softly, hand shaking slightly. “You *cannot* be allowed to leave this building alive.”
+
+“You could as well tell us why!” I replied. “Is this some gangster’s hideout? A government facility? Why invite us here then? You don’t have to remain alone!”  
+She remained silent.
+
+Why did my amulet react to an otherwise ordinary target? Who other than you and your father live here? When did you start killing people, how many, where did they go?  
+Where, exactly, is your sister…?
+
+These I could not ask, for one reason or another.  
+I felt tears flow down my cheek. We’re still trapped here, anyway, no way to escape with what we have on hand. Perhaps if I had a lighter, or a bottle of acid…
+
+“I’m finished…”
+
+Kane-san? What are you saying?
+
+“That android,” she pointed at Allie, “has been masquerading as human for… three years, minimum? No flaws. No tells- someone must have put effort to making-”  
+Said android struggled to get up. “-‘her’, thank you very much.”
+
+“I’ve- we’ve earned that person’s ire. They’re going to destroy us, that’s for sure! All our plans… all for her… gone… we hid so well…”  
+*Her?* Your sister, perhaps?
+
+(Honestly, I’ve never thought about that. I’ve known Allie since childhood- it’s easy to forget her *background*.)
+
+Then she disappeared, just like that.
+
+—
+
+We’re still trapped in that staircase. Allie tried to pry the wires off from their connecting points. She got one- the thing sprung into her *face*.  
+“...are you OK?” “...it works, at least. Stand back.” She raised her left arm to cover her face-
+
+\-an arm that more or less ceased to exist by the time we reached the second floor.
+
+I finally called the police. On one hand they didn’t immediately brush me off- “what if that wasn’t a prank call”, I guess- but…  
+“It’ll take quite a bit of time for anyone to show up…” the operator had said. “ten minutes at least.”  
+…how long had it been since we arrived?
+
+Her left arm hung limply, dripping blue on the floor with every step.
+
+Where had Kane-san even teleported to? Was there a chance that she was in one of these rooms?  
+How did her ability even work, anyway? Line-of-sight? Mental image? *Was* it even teleportation, even-
+
+“Tell me why you think they are doing this.” My thoughts broke and I nearly jumped. The slightest hint of distortion tinged her voice, not yet enough to be unintelligible.
+
+The pictures stopped at when Kane-san was *twelve*. Not a single spot out of place in the giant mansion. “All for her”- but how? How does killing people somehow help the younger Kaneshiro, whatever happened to her? 
+
+“...would she have wanted this?” I asked. “What probably happened was a tragedy, sure… but *why*?”  
+“Think about it,” Allie replied. “Protection amulets are meant to deal with the *supernatural*. Perhaps they knew of… *technological* ways to their problem- but perhaps the cause of her untimely demise…”
+
+Surely, I thought, they couldn’t have been desperate, insane enough to do… whatever Allie was suspecting them of doing.  
+But I have never lost anyone close to me… how would I know…
+
+“I knew her for three years. I should have done something.” I should have been there. I should have told her to see a counselor, perhaps. Share her grief, perhaps. Guided her off this track.  
+“Tell me what you could have done,” she said, “not suspecting a *single* thing about her.”  
+“She was aloof. Never really played along with anyone. She tried to *run from the police*. I should have known-”
+
+“Cold people automatically have dark secrets, apparently,” she interrupted, turning around. “The deaths- if they *did* die- of those people have *nothing* to do with you. You *did* try to help, as you have always done.   
+If anything, *I* could have noticed. But by the time anything was obvious…”
+
+She sighed, grabbing my shoulder, her one glowing eye staring into me. “You *cannot* help someone that refuses it. Dragging her kicking and screaming into the counselor’s office would have made her *hate* you, and you would have *died* on that staircase. I am *not* good at giving eulogies.”
+
+We entered one of the rooms. The door wasn’t even closed- which wasn’t an invitation to barge in, but they wanted us dead anyway.  
+Or perhaps we shouldn’t enter? Maybe she’d be less willing to- never mind.  
+The sound of someone jumping out the window.
+
+Like everything else, the room was spartan. One hard blanketed bunk bed, one table- neatly ordered, some books, a closet. A toy box left unused, dusty- the only colorful thing that I could see.  
+A rack on the wall holding a few guns, each shined so regularly they hurt to look at. The drawer contained a stone-looking amulet, more glass wire- and a lighter.
+
+—
+
+“Allie?” I asked. “Do you think that Kane-san… can be…”  
+“Again, it depends. Kaneshiro looks as if she is already doubting her actions- *this* is the hardest part done.”
+
+Leaning into her ear, I asked: “Do you think she can hear us?”  
+I got a simple nod in reply. “Tell me what kind of being you think her father is working with.”  
+“I’ve zero knowledge of the type of deities that would do any such thing!”  
+“Splendid, nor do I. Perhaps we shall have to find out elsewhere-”
+
+The doorway was strung with wire once more. I took out the lighter as slow footsteps rang out- in the room.  
+“Congratulations for coming this far…” Kane-san’s hollow voice declared. “...but tonight this shall be your resting place.”
+
+Why?
+
+“We will go missing in your house,” Allie noted, “and then the police will naturally suspect you.”  
+“We- we can restart,” Kane-san said. “Just need to be more careful, but we can do it.”  
+“The police are coming. I hope you can-”
+
+A gunshot rang out, and she collapsed to the floor. And another, and another.  
+“Of course I heard you call them!” Kane-san yelled, voice trembling. “We could just burn this house down- father’s probably packing right now! And you two can be…   
+“can… be…”
+
+I stepped in front of her weapon, and grabbed it. It still had two shots, but somehow…  
+*She is wearing a black long-sleeved shirt. There are tears in her eyes. You attack her. She vanishes. Your head falls off-*
+
+“...you won’t do it.”  
+She pulled the trigger.
+
+The round brushed near me, and hit the wall.  
+“You want to know why?” I asked. “Because you are *not* irredeemable. You can still-”  
+“I’ve killed five people. I’m too far gone.”
+
+“The fact that you *consider* yourself irredeemable proves that you’re *not*!” I argued. “Morality still exists within you-”  
+“But I *still did it anyway*!” she cried. “I’ll be lucky if I’m not hanged, but *her…* she was only *five*, we- we could give her to relatives, a chance at a normal life-”
+
+“If you succeed.”  
+Allie wasn’t getting up, only her voice was working. “*If* you succeed- of course, we shall all give her a chance. How one was born should not influence how they grow, after all- but *if*.   
+“The police are coming in ten minutes- I do not think you want your friend’s blood on your hands-”
+
+“No. No, no, no, no!” she collapsed. “I should have killed you both when I had the chance! I should have… I…  
+“I *couldn’t*, could I? I saw the only person that tried to be my friend, and I *hesitated*\-”
+
+The figure on the ground stirred. “Do not say that like it was a *weakness*, Kaneshiro-”
+
+“-Our plans. *Years* of planning, of *murdering*, of- of everything. All for nothing, nothing, *nothing*. She’s…not waking up, is she?”  
+Tears rolled down her face.  
+“I’m a failure…”
+
+I knelt down, only to realize that I didn’t bring anything to wipe tears with.   
+“... I should have been there… when that car…”  
+“It wasn’t your fault… you shouldn’t have had such a responsibility at that age.”  
+“I didn’t notice! I thought I could… I just wanted to see her again… I just wanted to apologize-”
+
+—
+
+Her phone rang. The caller ID said “Father”.  
+Allie stumbled towards us. “Give me that.”
+
+The call was connected.
+
+A cold, sneering voice immediately came out: “You *idiot*.”  
+“Father-”  
+“You are no child of mine. What now? We’ve targeted people that the police would focus on; they’re going to *arrest* us, you good-for-nothing-”
+
+Allie snatched the phone away. “-a term that suits *you* more. Your younger daughter is *dead*, mister, and there is *nothing* that will bring her back. You could have-should have put your love on your eldest- instead she was trained to be a *killer*.”  
+“Nothing?” He suddenly laughed. “Oh, how naive you are. I have found a way- I can raise her right this time. All alone, of course, away from all those prying eyes.”  
+“...alone. You do have a- *why are you chanting-*”
+
+Perhaps the threat of dying finally ignited my brain, but
+
+They got hasty and tried to kill us, despite only taking five lives in *six years*\- homeless people that no one would have cared about. Why? Perhaps they were on a time limit-
+
+“The basement!” shouted Kane-san, snatching the lighter from me and running towards the door.  
+I grabbed a pistol and helped Allie up.   
+“...so there *was* a basement,” she chuckled, taking another.
+
+Out the hallway, down the staircase, where we had to stop while the wire there was cleared out. My amulet was vibrating and jumping around, there was a *glowing dark red* from beneath the tiles. *When did they set up such a thing?*
+
+“This somehow escaped me,” Allie noted, “when this is over you will tell me *how*.”  
+Kane-san couldn’t open the hatch. Her father was the only person who *could*.
+
+He wants to kill us. What is he doing so with? He’ll have to come out at some point-   
+“-but if he’s got some sort of spell-”  
+“-he would have done it long ago- but perhaps this is a last ditch effort-”
+
+The thing swung open, and we fired. Kane-san caught the hatch before it closed, while the silver-haired figure fell back down with a thump.  
+I fired down the hatch again before climbing down, Allie not following as she couldn’t really move that well.
+
+—
+
+There was a glowing fissure in the ground. Naked corpses floated around it, all middle-aged people that weren't well treated in life.  
+Mr. Kaneshiro clutched a dagger- a dagger! You’re having your daughter run around with gas guns and razor wire, so whatever you’re doing doesn’t need the dagger to draw first blood. A *dagger*! I tried to pull the thing out of his grip, but it was impossible.
+
+I did not want to go anywhere with him behind me, so… “Kane-san?”
+
+About half a second later I realized my mistake. Either I tell her to guard her own *father* or go near the eldritch being and the people she condemned.  
+But she was already in front of me.  
+“… please keep an eye on him-”
+
+He got up, charged, knife first. She dragged me down to the floor- but he didn’t turn around.   
+He rushed straight for the fissure.  
+And plunged the thing into his-
+
+I fired my weapon a second too late.
+
+My amulet shattered, enveloping us in glowing yellow against glowing red.  
+Someone impacting the floor behind us. *“Get up. Get up and run-”*
+
+Out of the light came… a little girl. A serene little girl with silver hair and closed eyes.  
+“...sister?”
+
+Six people. There were only six people sacrificed thus far- how did this happen?  
+The only thing I knew was that, whatever that was, it couldn’t have been-
+
+“Sister!” I tried to grab her, but naturally she just teleported.  
+“I- I’m sorry… I should have kept an eye on you…” She couldn’t get words out under all the tears. I shifted positions to get a clear shot, whatever that would have done. “Please… I know that I don’t deserve your forgiveness… but it was… it was an accident… I should have-”
+
+The little girl’s eyes opened. Instinct told me to open fire.  
+Her- *its* eyes were blood red, as it slashed downwards towards what would have been its elder sister.  
+Another figure leapt on top of it. *“I did tell you to-”*
+
+The last thing I saw in that basement was Allison’s face, mostly gone, what remained frozen in mixed conceitedness and worry- twisted the entirely wrong way.  
+*“\[SELF-DESTRUCT INITIATED.\]”*  
+I swung out a hand to cover Kane-san’s, turning my head around, as the being was burnt to ashes by multiple thermite charges. It smelled of charring flesh and melting plastic- which was a good reason to leave as fast as possible.
+
+(I’ve always considered it drastic. She said it was to ‘protect company secrets’. Did GM’s official releases also have that sort of thing?)
+
+—
+
+We waited outside for the cops to arrive. Tried to strike up a conversation with Kane-san, but there wasn’t much that we could really… say.  
+So I went for the latest anime adaptation on television. She’s never actually seen much of it though, so I more or less spoiled the plot in my excitement.
+
+So much for tonight being normal.
+

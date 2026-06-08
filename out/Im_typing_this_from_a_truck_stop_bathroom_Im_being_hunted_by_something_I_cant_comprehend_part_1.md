@@ -92,4 +92,8 @@ I’m honestly shaking as I write this out, my heart racing. Any little sound ou
 
 Please give me any advice y'all have.
 
-(Part 2 https://www.reddit.com/r/nosleep/s/YYueehhg56)
+Part 2 https://www.reddit.com/r/nosleep/s/WnTJp2cQ59
+
+Part 3 https://www.reddit.com/r/nosleep/s/Hh8cerRxY2
+
+Part 4 https://www.reddit.com/r/nosleep/s/zIJWexU1oH
