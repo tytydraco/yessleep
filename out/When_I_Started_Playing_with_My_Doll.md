@@ -1,0 +1,85 @@
+Additional Flair:
+
+\*\*Animal Abuse\*\*
+
+Potential \*\*Series\*\*
+
+I didn't used to always play with my doll. I didn't get it at first but I still remember when I started a long time ago. We were very little as we played our games in the front yard.
+
+I sat up as much as I could in my seat while looking over the large wheel in my tight grip. I only glanced for a moment at my little sister playing in the grass next to the car and then back to the wide open road. With white knuckles bearing, I took my toes off the brake and pulled back on the stiff gear shift. I then plunged my foot down on the unforgiving accelerator pedal and through clenched teeth, I yelled out “I'm gonna get you!” while quivering with excitement.
+
+I could feel the engine in my chest getting louder and took my foot off the accelerator to lightly tap the clutch again while pushing forward on the unflinching gear shift. I gripped the wheel tight as I pulled back into the seat and felt the rumble in my chest growing again. My eyes quickly darted away from the windshield to the left, past the side mirror and I yelled “You're not getting away!”
+
+I touched the clutch again while jerking the gear shift to the left, towards myself. I slid my hands over the wheel counter clockwise and pulled up on the hand brake while trying to keep the motionless wheel steady. The tires screamed in my ears til I lightly jerked the gear shift back to the right and down. I pulled back on the wheel while fighting to turn it clockwise and gritted my teeth while I tamed the roaring engine.
+
+The trembling built up in my chest til I kicked the clutch and flicked forward on the gear shift. I kept the engine to a steady rumble while glaring out through the windshield onto the empty road. I gripped the wheel tight to brace myself and bounced up in my seat with a triumphant grin. I looked into the rear view mirror and called back “I got you, Fucker!”
+
+I quickly covered my mouth and with wide eyes, looked back to my sister playing in the lawn but she was clearly unaware that I swore. I looked away and back into the rear view mirror, staring through the white garage door at my twisted prize and whispered again “I got you, Fucker.”
+
+I watched my sister pick two dandelions from the grass and bring them to her doll laying by the driveway. She set them on top of the doll's stomach and said “Here, I got these for you instead.”
+
+She listened for a moment then shook her head and said “No, I don't wanna do that but we can play something else. It's fun playing in the grass too.”
+
+I struggled to understand her game then looked back out at the road and saw a squirrel slowly making its way into the street. It abruptly stopped and continued every couple feet until it completely sat in the middle of the road. I gripped the wheel tight while peering over to see the squirrel sitting perfectly still in the road. Then I saw a distant car approaching from down the street and I instinctively put my hand on the gear shift. I pretended to shift into the first gear and then pushed down onto the accelerator that barely moved as the other car approached down the street. Through clenched teeth I muttered “I'm gonna get you.” to myself.
+
+The squirrel looked up at the approaching car and I stood up on the accelerator causing the engine roars to turn to an unbearable whine in my ears. The squirrel darted out of the street as I frantically grabbed the gear shift harder than I really should have. The engine reeled out a painful noise in my ears and I tensed up, expecting to really lose control. The other car slowly passed by and looked at me cussing in the car, alarm blaring and lights blinking in the driveway.
+
+My startled sister started to get up from the grass but the front door suddenly slammed open. She quickly sat back down and turned to her doll as I fumbled with the spare key I had in my pocket. Our father marched out like a storm, cursing as loud as he could, “What in the hell are you doing out here!?”
+
+She tried to cover her ears with her hands but she could still hear us screaming at each other over the car alarm. She tried to hum but she could only make herself whine, trying to drain out our screaming.
+
+“I said, what in God's name is wrong with you!?”
+
+Tears streamed down her cheeks as she held her ears tighter but we were still screaming. Our father screamed at me and used her to blame me and I used her against him while screaming at him. Even her doll used us against her as it screamed at her too.
+
+“Do you really want me to smack the devil out of you!?”
+
+“I wish you would just die!”
+
+“They don't deserve you!”
+
+The next day started the same as any other day. As I played on the sidewalk, she played in the lawn with her doll again. She combed her fingers through a patch of clovers to find one with four leaves just to prove that she really could to her doll. I kept watching her and trying to understand what she was doing but I gave up to play a game I like.
+
+She kept running but didn't know where to find her mother or her sisters. She was lost without them and most importantly, they needed her. She was terrified and confused because a black 1977 Pontiac Trans Am was chasing her down the sidewalk and continued to nearly run her over. Every time she thought that she found a way home, my car came barreling at her and only made her more lost. After each near miss, I cackled at her confusion and steered the car back around to make another swipe. I yelled out “Not so fast, Fucker!”
+
+My sister looked up from the clovers and quietly called out “Dad's gonna come out if he hears you.”
+
+I picked up my car and sneered at her, “Why do you always have to tell on me?”
+
+“I'm not telling on you.”
+
+“You do too.”
+
+She looked to her doll, “No. It's just, dad always asks and you're always swearing loud.”
+
+She saw me put my car back down and start to drag it on the sidewalk again. “Hey, I'm not trying to tell on you.”, she tried.
+
+I couldn't hear her over the loud V8 engine of the Trans Am. I raced along the sidewalk tracking down the one that almost got away. Back and forth she wandered over old trails that only confused her more. In her countless circles she felt the familiar rumble of the Pontiac Trans Am and barely dodged the collision. I steered the car back around again and this time aimed for her head on. The rumbling approach of the car caused her to panic and I ran over her legs.
+
+Her crushed legs writhed and twitched as the other legs spasmed uncontrollably. Even though she was in deep shock, all she could think about was her family and how she failed them. In her last dying efforts she warned her family to stay away while she still could. The ground lowly trembled as I steered the Trans Am around to slowly face my victim. I heard the tires squeal as I raced forward and over her twisted body, getting caught around the wheel. I lifted the car all the way off the ground and carefully examined her mangled corpse.
+
+“I told you we'd find one!”
+
+She could barely believe her eyes. She was actually holding a clover with one big oblong leaf that was partially split, making it almost look like a four leaf clover. She knew it wasn't exactly right but she believed it was just as special. She stood up to show her doll but she didn't see it near the clover patch. She looked around at the yard and got a little scared but then she heard a familiar voice calling out “I'm under here.”
+
+She wandered off of the grass and on to the driveway, following her doll's voice to the car. She got on her hands and knees, looking under it to see her doll near the front right tire smiling back at her. She carefully slid herself over the rough asphalt and carefully ducked under the dark rusted metal above her head, “You know we aren't supposed to play under here.”
+
+I was looking at her mangled corpse hanging around the tire and saw it as my twisted prize. Thinking about not wanting to wash it, I noticed a dog loose in the yard across the street. I knew it didn't belong to anyone on our street so I knew it must be very lost. Wandering from one yard to the next and after looking around, the dog started moving towards the street. I looked to my house and then to the car, I looked all around. I thought it was just me, alone with the lost dog and the spare key already in my pocket. I sneared back at the house, “Fuck him, this’ll be worth it.”
+
+As she carefully avoided hitting her head, she looked up for her doll but it wasn't by the tire anymore. She struggled to look around but she then saw it right under the front bumper. She continued crawling over the hard asphalt until she heard the car door quickly open and shut. She almost froze while hoping that nobody would start the car but she quickly continued after her doll. The engine roared to life over her head and it rattled her bones to the core. I felt the idling engine waiting for my commands and could barely hold my foot down on the brake. I felt it slowly give as I tried to move the gear shift handle. I struggled to pull it back and with my eyes barely over the wheel I stepped on the accelerator. As the car lunged forward, I lost sight of the windshield and bounced off the seat. I felt the car shake and the engine grunt as the wheels rolled over what was underneath. I couldn't see what was outside but I pushed down on the brake pedal with all my weight til it finally stopped moving.
+
+My father tore open the car door and grabbed over me to pull the keys out of the ignition. He was screaming so loudly and wildly, not making any sense as he pulled me out of the car. I tried to understand as my father smacked my face and forced me to look under the car. My father kept screaming but I didn't understand and as my father held my head down I finally realized there's something really wrong with myself. All I could see was a crushed ant.
+
+“I'm sorry, little sister.”
+
+The sun had set and it was getting darker but I was still outside in the driveway. I used a hose, spraying water over the stained asphalt but I couldn't wash anymore away. Then I saw it laying on its side with a smile and I didn't understand how I missed it before. I threw down the hose and walked over to it. I picked up the smiling doll smeared in old blood and as it blankly stared back at me, I could hear her small voice. “It's not your fault, big brother.” and my heart immediately ached when hearing those words.
+
+My eyes welled as the pain released deep in my chest. “It was always dad's fault.”, she told me exactly what I wanted and I finally felt recognized.
+
+Hesitantly, I struggled to ask “Do you really mean that, sis?”
+
+I stared down at her sewn on smile and the two buttons pointing off into the dark sky, wishing to hear her words again, “He deserves what I got.”
+
+“I promise, I'll be a better brother from now on.”
+
+Now we both can enjoy playing our twisted games together.
