@@ -1,16 +1,14 @@
 Additional Flair:
 
-\*\*Animal Abuse\*\*
+**Animal Abuse**
 
-Potential \*\*Series\*\*
+Potential **Series**
+
+**Evil Doll Story**
 
 I didn't used to always play with my doll. I didn't get it at first but I still remember when I started a long time ago. We were very little as we played our games in the front yard.
 
 I sat up as much as I could in my seat while looking over the large wheel in my tight grip. I only glanced for a moment at my little sister playing in the grass next to the car and then back to the wide open road. With white knuckles bearing, I took my toes off the brake and pulled back on the stiff gear shift. I then plunged my foot down on the unforgiving accelerator pedal and through clenched teeth, I yelled out “I'm gonna get you!” while quivering with excitement.
-
-I could feel the engine in my chest getting louder and took my foot off the accelerator to lightly tap the clutch again while pushing forward on the unflinching gear shift. I gripped the wheel tight as I pulled back into the seat and felt the rumble in my chest growing again. My eyes quickly darted away from the windshield to the left, past the side mirror and I yelled “You're not getting away!”
-
-I touched the clutch again while jerking the gear shift to the left, towards myself. I slid my hands over the wheel counter clockwise and pulled up on the hand brake while trying to keep the motionless wheel steady. The tires screamed in my ears til I lightly jerked the gear shift back to the right and down. I pulled back on the wheel while fighting to turn it clockwise and gritted my teeth while I tamed the roaring engine.
 
 The trembling built up in my chest til I kicked the clutch and flicked forward on the gear shift. I kept the engine to a steady rumble while glaring out through the windshield onto the empty road. I gripped the wheel tight to brace myself and bounced up in my seat with a triumphant grin. I looked into the rear view mirror and called back “I got you, Fucker!”
 
