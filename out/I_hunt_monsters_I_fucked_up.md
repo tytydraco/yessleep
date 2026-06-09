@@ -84,4 +84,4 @@ Anyway, enough self pity. I’ve got some library books to return. If you’re r
 
 Best,
 
-Solomon.
+[Solomon.](https://www.reddit.com/r/nosleep/s/evIQ17koNk)
