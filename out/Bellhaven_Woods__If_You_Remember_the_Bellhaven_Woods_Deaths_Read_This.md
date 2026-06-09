@@ -48,7 +48,7 @@ I blinked. “...It was actually his cheekbone.”
 
 I didn't say anything for a second because I was waiting for the pivot — the ‘so what's wrong with you?’ It didn't come. She just ate and looked around the cafeteria, then looked back at me like she expected us to have a normal conversation, which we did.
 
-We talked about her, mostly, because she kept asking questions and I kept answering them and by the time the bell rang I had learned that she'd been at Bellhaven since freshman year, that she ran cross country badly and did it anyway, that she had a complicated relationship with her parents that she described as a work in progress, and that she spent most of her free time making strange plush animals out of felt and mismatched buttons: rabbits with too many eyes or foxes with stitched smiles.
+We talked about her, mostly, because she kept asking questions and I kept answering them and by the time the bell rang I had learned that she'd been at Bellhaven since middle school, that she ran cross country badly and did it anyway, that she had a complicated relationship with her parents that she described as a work in progress, and that she spent most of her free time making strange plush animals out of felt and mismatched buttons: rabbits with too many eyes or foxes with stitched smiles.
 
 Summer introduced me to Malcolm that Friday afternoon, which is when I found out about the van.
 
@@ -184,7 +184,7 @@ Cecile made a face that communicated polite disagreement.
 
 "Okay," Cecile said finally, and got out her own homework, and that was the end of it.
 
-.The last Friday before we went to Bellhaven State, we were all at the quarry again, but thanks to the weather, the water was too cold to get into. We sat on the upper shelf and watched the water go dark below us. The tree line was orange and red and just beginning to go bare at the edges. From this angle you could see more of the facility than you could in the months before: the roof clearly visible now through the stripped branches, and what might have been a window, or a gap where a window used to be.
+The last Friday before we went to Bellhaven State, we were all at the quarry again, but thanks to the weather, the water was too cold to get into. We sat on the upper shelf and watched the water go dark below us. The tree line was orange and red and just beginning to go bare at the edges. From this angle you could see more of the facility than you could in the months before: the roof clearly visible now through the stripped branches, and what might have been a window, or a gap where a window used to be.
 
 “I met this guy named Gerard Fitch yesterday,” Summer began. “He stopped me outside the pharmacy because he saw me taking pictures of the old Bellhaven State sign. He worked maintenance at Bellhaven State Psychiatric Facility from the late sixties until seventy-four.”
 
