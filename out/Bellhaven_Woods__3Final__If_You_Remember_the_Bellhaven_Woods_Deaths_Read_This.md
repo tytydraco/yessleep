@@ -42,11 +42,11 @@ I waited.
 
 "Any lights?"
 
-"They didn't need them," he said, and paused. "Kolby, they knew the path. They walked it like they'd walked it a hundred times." A pause. "I followed them for a while. I kept back in the trees. They went to the facility access road and then turned off before it. There's a path that branches south, I didn't know it was there, it's not on any map I've looked at. It goes down toward the eastern ridge."
+"They didn't need them," he said, and paused. "Kolby, they knew the path." A pause. "I followed em for a while. I kept back in the trees. They went to the facility access road and then turned off before it. There's a path that branches south, I didn't know it was there, it's not on any map I've looked at. It goes down toward the eastern ridge."
 
 "Malcolm, you shouldn't have followed them."
 
-"I know," he said simply. "I didn't go far. I stopped where the path curved and I watched them go and then I went back to the van." He paused. "But I went back in the morning. Early, before anyone else would be out there. And on the south path, past where I'd stopped, I found something."
+"I know," he said simply. "I didn't go far. I watched them go and then I went back to the van." He paused. "But I went back in the morning. Early, before anyone else would be out there. And on the south path, past where I'd stopped, I found something."
 
 "What did you find?"
 
@@ -56,7 +56,7 @@ He paused for a long time.
 
 "Is it bad?"
 
-"I don't know what it is," he said. "I know it's not good. I know it matters. I think it's proof of something. I don't know proof of what exactly."
+"I don't know what it is," he said. "I know it's not good. I think it's proof of something, but not sure of what."
 
 "Okay," I said. "Tomorrow. Don't go back out there tonight."
 
@@ -220,7 +220,11 @@ The casket was closed.
 
 Malcolm had a gift for knowing a lot of people without appearing to work at it, and all of those people came. His coworkers from the grocery store stood near the back wall looking too young and slightly lost. Teachers. Neighbors. A group of guys from the JV basketball team he'd been close to freshman year. His mother in the front row holding herself very straight and Alicia beside her. Alicia had given me the map from the van the day before. I kept thinking about that — the map in my jacket pocket, the only thing of his I had.
 
-I sat in the back with my dad and tried to listen to the minister. I looked at the closed casket and I thought about the van. The map above the wheel well and the Christmas lights and the way the engine turned over on the second try. I thought about our last conversation, the way he'd said tomorrow, the way I'd said tomorrow back. I thought about my phone on silent on my nightstand and three missed calls at 11:47 and 12:08 and 12:23 and nothing after that.
+Every thought led back to him.
+
+I sat in the back with my dad and tried to listen to the minister. I looked at the closed casket and I thought about the van. The map above the wheel well and the Christmas lights and the way the engine turned over on the second try. I thought about our last conversation, the way he'd said tomorrow, the way I'd said tomorrow back. I thought about my phone on silent on my nightstand and three missed calls at 11:47 and 12:08 and 12:23 and nothing after that. I kept wondering what he had found. If he had been scared. I thought about how unfair it felt that somebody like Malcolm had ended up here. I thought about how many times I'd assumed there would be another chance to see him.
+
+I wanted another chance to hear him say *tomorrow* and believe there would actually be one.
 
 About forty minutes in, my phone buzzed in my pocket.
 
@@ -266,11 +270,15 @@ Cecile had gone quiet.
 
 "Was it?"
 
-There had been a long silence. "I remember being stabbed," Cecile had said, "and I remember her face the second after. The second it happened she came back. She was horrified. She left before she could do more because I think the part of her that was still Iris had taken over long enough to get her out of there."
+There had been a long silence on the line. "I remember being stabbed," Cecile had said, "and I remember her face the second after." She had paused. "She was horrified. I think she left because whatever was happening to her slipped for a second.”
 
-"We need to find her before the police do."
+The line went quiet again.
 
-"We'll find her," Cecile had said. "But Kolby — I need you to hear me when I tell you I don't know what we're going to find. I'm not going in there with any assumptions. I think you shouldn't either."
+"I used to think I knew her better than anybody," Cecile said eventually. “"But now I'm not sure…”
+
+"We need to find her before the police do, because if they do—"
+
+"We'll find her," Cecile had said. "But Kolby, I don't know what we're going to find. I'm not going in there with any assumptions. I think you shouldn't either."
 
 That had been two days ago. And now here we were, the three of us in dress clothes cramped into Cecile's car. Summer had a printed map covered in handwritten notes.
 
@@ -476,7 +484,7 @@ I went back toward the gate and Summer caught my arm. She had come through while
 
 "She's–" I tried.
 
-"Kolby, please." She held my arm. "I need you to understand something. What I saw in the trees. What was there." She paused. "It was not something that was going to let you follow her. Whatever you would have gone into after her, you would not have come back out. Either because of whatever's inside her, or because of it. I need you to listen to me."
+"What I saw in the trees. What was there." Summer paused. "It was not something that was going to let you follow her. If you’d gone after her, you wouldn’t have come back out. Either because of whatever’s inside her, or because of it.” She held my arm. "I need you to listen to me."
 
 I listened. I did not go back through the gate.
 

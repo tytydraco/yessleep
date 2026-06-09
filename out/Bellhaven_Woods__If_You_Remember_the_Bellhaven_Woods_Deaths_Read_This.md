@@ -170,17 +170,17 @@ I heard most of it secondhand, from Malcom, who had heard it from his mother, wh
 
 "What's wrong with that?" I said. We were in the van, idling in the school parking lot after hours. 
 
-"Nothing on its own," Malcolm said. He had one knee up against the back of the front seat, turned to face the group. "It's the way people talk about it. Like– my mom's coworker, right, she was there for fifteen years, even baptized her kids there. She left this spring and she won't say why."
+"Nothing, really," Malcolm said. He had one knee up against the back of the front seat, turned to face the group. "It's the way people talk about it. Like– my mom's coworker, right, she was there for fifteen years, even baptized her kids there. She left this spring and she won't say why."
 
 "That's it?" Cecile said. She was examining her nails, half-dismissively.
 
-"There's other stuff.” He continued. “Tommy Soviero’s parents pulled him out of school for a week in July to do some kind of retreat out in the woods that was through the church. He came back and Emily said he was different. Like she was talking to him through a wall."
+"There's other stuff.” He rubbed the back of his neck. “Tommy Soviero’s parents pulled him out of school for a week in July to do some kind of retreat out in the woods that was through the church. He came back and Emily said he was different. Like she was talking to him through a wall."
 
 "Emily’s dramatic," Cecile said.
 
 "Emily’s not dramatic."
 
-Cecile made a face that communicated polite disagreement.
+Cecile gave him a look, at which he awkwardly smiled.
 
 "Okay," Cecile said finally, and got out her own homework, and that was the end of it.
 
@@ -190,7 +190,7 @@ The last Friday before we went to Bellhaven State, we were all at the quarry aga
 
 That got everyone’s attention.
 
-Malcolm looked up. “Did he actually talk to you about it?”
+Malcolm looked up. "Wait. He actually talked to you?"
 
 “Sort of.” She tucked a strand of hair behind her ear. “He wouldn’t talk about patients at all. The second I asked, he shut that down completely. But he talked about the building itself.”
 
@@ -214,9 +214,9 @@ Malcolm frowned. “Did he ever go down there?”
 
 Iris finally looked up from her notebook. “What did he say was down there?”
 
-Summer shook her head slowly. “That’s the weird part. He said he couldn’t really describe it properly. But he told me that his grandson was out near the facility property a few nights ago with friends.” She glanced between us. “They saw lights inside the east wing.”
+Summer shrugged. “That’s the weird part. He said he couldn’t really describe it properly. But he told me that his grandson was out near the facility property a few nights ago with friends.” She glanced between us. “They saw lights inside the east wing.”
 
-Malcolm immediately shook his head. “It’s just other teenagers.”
+Malcolm immediately shook his head. "It's just kids breaking in."
 
 “That’s what the sheriff’s department said.” Summer nodded. “But Gerard said the kid came home terrified. He said they heard voices coming from inside.”
 
@@ -240,7 +240,7 @@ Nobody said anything for a few seconds after that. The quarry was quiet except f
 
 Iris exhaled slowly through her nose. "So what are we saying here?"
 
-Summer looked at her. "I want to go see."
+Summer looked at her, eyes bright. "I wanna go see."
 
 Cecile cut in: "Obviously you do."
 
