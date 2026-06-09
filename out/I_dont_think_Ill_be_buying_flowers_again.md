@@ -198,7 +198,7 @@ By the time I had stood next to Star, looking at the daisies, all the questions 
 
 She handed her phone to me, and I pointed the flashlight at the flowers as she held up her shears.
 
-"How many daisies would you like?" Her voice came out a little less confident than a few moments ago, and considering the current situation, I didn't blame her one bit for being scared. Had she known about the teeth? About the blood? God, the floors were sticky!
+"How many daisies would you like?" Her voice came out a little less confident than a few moments ago. Had she known about the teeth? About the blood? God, the floors were sticky!
 
 "I don't-- three. Three daisies." I swallowed, pulling a bag out of withered daisies I had collected from other stores.
 
@@ -234,7 +234,7 @@ I still have no idea who's it is. Was that the consequence of not giving back to
 
 By the time we had gotten back to the counter, the bell chimed once more as Star turned to the mini fridge behind her. We both turned our heads at the same time, only to find Lysander, sporting a gardening apron and a duffel bag. He smiles at Star, raising a hand in greeting.
 
-"Hey, kiddo." He looks in my direction, smile becoming just the tiniest bit flatter. "Hello, Mark." 
+"Hey, kiddo." He looks in my direction, smile becoming just the tiniest bit flatter. "Hello, Mark."
 
 I had found it a little strange that he had recognized me so quickly, but still, I only give him a slight nod, far more concerned about my throbbing mouth than him. Star, however, jumps up.
 

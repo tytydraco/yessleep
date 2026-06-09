@@ -272,11 +272,11 @@ Cecile had gone quiet.
 
 There had been a long silence on the line. "I remember being stabbed," Cecile had said, "and I remember her face the second after." She had paused. "She was horrified. I think she left because whatever was happening to her slipped for a second.”
 
+"I’ve know Iris for years," Cecile added eventually. “…She came to me crying one day in freshman year, and ended up talking about being abandoned by the saints and angels.” She paused again, before: “But Iris was an angel, so why couldn’t she be saved by them?”
+
 The line went quiet again.
 
-"I used to think I knew her better than anybody," Cecile said eventually. “"But now I'm not sure…”
-
-"We need to find her before the police do, because if they do—"
+"We need to find her before the police do.” I had argued. “Because if they do—"
 
 "We'll find her," Cecile had said. "But Kolby, I don't know what we're going to find. I'm not going in there with any assumptions. I think you shouldn't either."
 
