@@ -138,7 +138,7 @@ I remember that very clearly.
 
 She said, “If it’s closure, it closes. If it isn’t, it just keeps bleeding.”
 
-I thought, lady, I have three kids and a man who won’t stop circling my life. I don’t have time for fortune-cookie stuff.
+I thought, lady, I have two kids and a man who won’t stop circling my life. I don’t have time for fortune-cookie stuff.
 
 So I said, “I want him gone.”
 
