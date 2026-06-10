@@ -1,0 +1,37 @@
+Sorry, this took longer to get out than I wanted it to. Do you remember me? I made this post here a few days ago: [Part One ](https://www.reddit.com/r/nosleep/comments/1tzstcu/theres_something_beneath_the_rocks_i_think_its/)
+
+Yeah. Well. I did it. I waited until night fell and then I climbed out the window, nearly broke my leg getting down from the second floor (guess I’m not as young as I used to be) and then I high-tailed it toward the cow field. That cattle were all sleeping, just like I’d been hoping. I don’t know if those eyes sleep or not, but they weren’t open.
+
+So I got over the fence and onto Jenny's property. I don't know what I was expecting. From the way she spoke on the phone, I thought maybe everything would be fine and dandy...but...there was this *thing* in her yard. Right there in front of the house. 
+
+It reminded me of some of the grosser fungi I've seen out in the woods, this mound of flesh and organic growth. Smaller pieces of it were growing all over the place. It scared the shit out of me, but I went up to her front door anyway and gave it a knock.
+
+Nothing.
+
+So I tried the doorknob--and I know that's breaking and entering but all things considered, I feel like it's understandable. 
+
+All of the lights were on inside. And Jenny, she was in the kitchen, wearing one of those cotton dresses she likes. 
+
+"Jenny," I said, "What the hell happened here?"
+
+She turned around and smiled at me, just pleasant as can be. "Oh! I didn't realize I was going to have guests today."
+
+The whole left side of Jenny's face was covered in those same gnarled, fleshy fungi. It was the worst thing I've ever seen, beat everything that happened to my animals by miles. The whole side of her neck was rotted away, tendrils of roots curled in with the tendons of her neck. 
+
+I don't remember what I said exactly. Screamed at her, probably, tried to find out what was happening. But it was just like on the phone, Jenny kept saying everything was fine, that nothing was wrong, that I should sit down, stay for a while, have a drink, have some water. 
+
+By the time I got my legs working again and turned around, those damn magenta eyes had opened up all over the inside of the house. I brought my heel down on one of them and it burst across the floor. 
+
+"That was rude," Jenny said, like she was scolding a neighborhood kid. "We just wanted to see how you were doing."
+
+I ran outside. The cows had all gathered up at the fenceline, pressing against it, eyes blinking and glowing faintly in the dark of night. There was a moment where I didn't know what to do, where else to go. We're out in the middle of nowhere, after all. But then Jenny came and stood in the doorway and she said, "You should go home. Don't make us force you back." 
+
+Something was moving in the house behind her. A piece of mushroom broke off the side of her face. It hit the ground with a meaty thwack and six spindly legs burst out of it. I picked a direction and just started running, down the drive, onto the road. Kept going even after that too. I don't know how far I got, a couple of miles, but eventually I found this car.
+
+Well, shit, you can't see it. It's just this--this car. This really nice damn car sitting in the middle of the road, the driver's door open, key in the engine. There was a bloodstain on the road. I don't know if the driver hit something or if something took the driver, but I pulled myself into the car, closed the door, locked it, and haven't moved since. 
+
+I'm on my phone right now. I don't know if anyone's even going to see this, if anyone else is still normal out there. I'm wondering if the whole town has gone screwy like Jenny. I've got about a quarter of a tank. That's not enough to get to the highway. I'll have to go into town to get gas, and then...I'll try and get out of here. 
+
+I'll come back, if I'm able to. And if anyone out there knows what happened to Jenny, let me know. 
+
+  
