@@ -1,0 +1,161 @@
+Carl was dead. He passed in the night, too weak from the cold and hunger to keep fighting. I couldn’t blame him, I was about ready to go myself. Cold permeated every molecule of my being. The memory of what warm felt like had long since vacated my mind. Forming thoughts had become as hard as moving my fingers, purple from the frostbite that ate away at them. The only thoughts I still had now were those of hunger. Staring at Carl’s corpse, it looked less and less like my friend, and more like another day on this earth.
+
+I lay face down on the stone floor, my head cocked towards what was left of Carl. His pale gray skin was flaked with ice crystals, his tongue hanging out of his mouth purple and bloated. I licked my lips at the thought of biting into it. Aching for the feeling of anything in my stomach. Anything to fill the void in my abdomen that screamed for food.
+
+“Carl,” I rasped, my throat igniting into hellfire at the effort.
+
+I waited for an answer. My ears straining against the howl of the wind for a sound. Any proof of life. I closed my eyes against the hunger.
+
+“Ted. You still with me buddy?”
+
+My eyes shot open. I stared at the corpse on the ground before me. His eyes were still glazed over, tongue still jutting from his mouth like a plum ripe for the picking.
+
+“Teddy, you did it. You lasted longer than me old friend.”
+
+His voice was as it had been when the blizzard hit. He still had the SoCal accent with that nasally note snow always gave him. When was the last time I heard that voice? It had been a couple of days. Or was it weeks?
+
+“Carl?” I croaked again, the strain almost too much to handle.
+
+“That’s right Ted, your good buddy Carl in the flesh.”
+
+I blinked. His lips weren’t moving, but that was Carl’s voice.
+
+“You won Teddy. You remember our deal? Winner gets to eat the other person. Winner, winner chicken dinner right, dude?”
+
+As a matter of fact, I couldn’t remember the deal. I couldn’t remember much of anything since we crawled into the cave. My stomach had resorted to eating memories, anything to keep going.
+
+I attempted to respond but my throat failed me. Only managing a guttural moan.
+
+“That’s the spirit! Looks like the Tedster is still kicking. Look, I don’t want you to die too buddy. No reason for both of us to go, right?”
+
+Carl had a point. He always was the smart one, he had booked the ski tickets at a steal after all. And why should we both die? God couldn’t be that cruel right, taking out two friends who went out for a little fun in the snow? No.
+
+“Now you’re cooking, Teddy. Don’t let me just go to waste, I wouldn’t do that to you.”
+
+My fingers tensed on their own, twisting into claws against the stone. My arms pulled. The sound of my jacket scraping the stone and ice filled my ears as I inched towards Carl. My sense of touch long since killed by the cold.
+
+“That’s it, Teddy. You’re nearly there.”
+
+My legs followed behind me limply as I drew nearer. Closer to Carl. Closer to food. The smell of death began to permeate the air. It was intoxicating, better than any thanksgiving dinner. Every pull towards his corpse gave me renewed energy. Carl really was a good friend. My fingers hooked into Carl’s jacket. With one last heave I pulled myself on top of him, my face pressed into the icy surface of his cheek.
+
+“Way to go Tedster. Hard parts over, claim your prize.”
+
+I licked my lips in anticipation. Slowly forcing my jaw open, my frozen muscles popping and straining from under use. Lowering my teeth down until they touched the pale flesh of his emaciated jaw muscle.
+
+“Nice Teddy. Just a little bite.”
+
+My jaw closed slowly like a hydraulic press. My teeth pressed into his flesh, meeting resistance as the pressure started to grow. The flesh gave like biting into frozen ice cream. My eyes rolled back into my head from the pleasure of eating, I had taken eating for granted. It was no longer a task that had little meaning. I would treasure eating forever, all thanks to Carl. My jaw slowly closed around the hunk of flesh. I chewed once. Twice. Then swallowed. A low growl of pleasure escaped my lips as I felt the flesh slide down into my stomach.
+
+“That a boy, Teddy. Don’t stop now, foods getting cold.”
+
+I started biting and chewing with new ferocity. It was a blur of motion the cave had not seen since the first day we entered. Primal hunger took over as I devoured Carl. As I ate the last gift he had ever given me.
+
+I ate Carl over the next few days. Stripping his clothes and layering them on myself. I didn’t shiver as much anymore. First was all of the flesh. His face, arms, legs, torso even his butt. Then the soft organs. His heart was sweeter than anything I have ever eaten. It makes sense, Carl was a nice guy. By the time I had eaten his trachea, I could stand and walk freely around the cave.
+
+“Look at you go Teddy! Looking just like Schwarzenegger now,” Carl’s voice echoed through the cave.
+
+The last thing to eat was Carls brain. I held the rock in my hand, the sharp edges digging into my palms.
+
+“Waste not, want not, Tedster.”
+
+I wasn’t going to waste any of Carl. The rock echoed off his skull with a dull crunch. I brought it down again and again until I couldn’t take it anymore and began tearing his skull apart with my bare hands, the rock left covered in blood on the cave floor. As I wiped my mouth and sat back, I looked out of the cave’s mouth. The snow had stopped. How long ago had it ended? How long was I eating Carl?
+
+I walked out into the gray afternoon, the sun already starting to dip towards the horizon. Stumbling, I followed it. I walked all night. Night turned to day, then back to night. I walked knowing if I stopped, I wouldn’t get back up. The landscape around me was dead and infinite. All of the trees looked the same, their gnarled branches protruding like bony fingers down towards me. I walked until my legs gave out, face planting in the snow. My eyes got heavy as I lay there. My vision reduced to a pinhole as I drifted off into sleep.
+
+When I awoke, the first thing I noticed was the lack of cold. Warmth? A rhythmic beeping filled the air as I willed my eyes to show me where I was. No matter how hard I tried, how many times I blinked, I could only see white. I groaned, earning a shocked gasp off to my right.
+
+I spent the next 2 weeks in the hospital. I had been missing 3 months when the park rangers found me. Frostbite had destroyed my fingers, toes and other patches of skin. My walk through the woods gave me snow blindness which explained the gauze wrapped over my eyes when I awoke. Worst of all, I had lost almost 80 pounds. But thanks to Carl, I was alive.
+
+I was hooked to a feeding tube for those 2 weeks while I recovered. Doctors said I wouldn’t be able to process solid food for a while after my stomach had gone so long without it, but I knew that was a lie. When they released me at the end of two weeks, I was a new man.
+
+The cops asked me questions about what happened. Where had I gone? How did I survive? Where was Carl? I didn’t answer, unable to remember anything but the taste of Carl’s flesh. That was something I would never forget, and something these people wouldn’t understand. Carl had given me a gift and I wouldn’t waste it locked in a jail cell. They let me go, and I boarded a plane back to California.
+
+The first thing I did when I got home was stop at my favorite burger joint. I sat in my car holding the biggest burger they had on the menu. Real food. I took a big bite and paused, it didn’t have any flavor. I swallowed the hunk of meat disappointed. Maybe my taste buds hadn’t come back yet? I ate the burger slowly, sitting in silence. As I took the last bite, I threw my car door open and vomited all of it back up onto the pavement. Maybe the doctor was right, I wasn’t ready for solid food yet.
+
+I returned to my apartment, getting lost a few times along the way. Sticking the key in the lock and giving it a turn, I saw her. She was more beautiful than I remembered.
+
+“Ted?!”, her hands shot up covering her mouth as tears flowed over her cheeks.
+
+“Hey, Jess,” I said hoarsely, tears welling up in my eyes.
+
+She ran over wrapping me in a hug tight enough to split a boulder. Her words came flowing out like music to my ears. I had made it home, thanks Carl.
+
+Life returned to some semblance of normalcy. I was fired from my job, not that I had a desire to work right now anyway. Jess put me on a liquid diet following the doctor’s orders. The shakes and broths had no flavor and left me hungry no matter how full my stomach felt. That was fine for the first week, but the longer I was home the more frustrated I had become not being able to eat real food.
+
+The only real difference in my life was the dreams. I had 2 recurring dreams that filled my mind at night. The first, my teeth sinking into Carl’s flesh. Except in the dream, he was sitting up. His dead eyes staring into mine while his mouth contorted into a wide smile. His teeth just a little too sharp, his skin pulled a little too tight.
+
+“That’s right, Teddy, gotta get your strength back buddy,” he would coo as my teeth ripped and pulled skin and muscle off his bones.
+
+The second dream was something I couldn’t remember seeing. I was walking through the woods completely nude. Snow and wind whipped past me but I couldn’t feel the cold. I could hear Carl’s voice through the dead woods beckoning me closer.
+
+“Here, Tedster, I’m just over here.”
+
+I was trudging through the snow after him. His voice was different. The accent gone, replaced by a malice I’ve never heard any voice utter. The voice never got any closer no matter how far I walked. I would call out for him in the same voice I’d had in the cave. A hoarse croak that echoed off the trees.
+
+I awoke with a start one night. How long had I been home again? Time was losing meaning. It’s strange how meals help mark the passage of time. I reached over placing a hand on Jess. Her soft, warm skin was a comfort. My stomach growled loudly as I traced the curvature of her arm. Maybe I could eat real food again. It couldn’t hurt, could it?
+
+I padded softly to the kitchen, making myself a sandwich. Sitting down at the kitchen table with only the fridge light illuminating me, I took a bite. Nothing. No taste to speak of. Swallowing, I devoured the sandwhich savoring the feeling of food going down my throat.
+
+“How’s the sandwich Teddy?”
+
+I froze. Looking around the dark kitchen, searching for the source. Searching for Carl. I stood up from the table, an intense nausea flooding my whole body. Running to the guest bathroom, I barely had time to raise the toilet seat before a spew of greasy black bile erupted from my mouth.
+
+“Yeah, I was never much of a turkey guy myself,” Carl’s voice echoed inside the small room.
+
+I heaved until my stomach was empty again. The hunger gnawed at my stomach like a rabid dog. Flushing the toilet, I sat on the floor and cried. My back against the wall as I pulled my knees to my chest.
+
+“Aw cheer up, Teddy. At least you got to have it for a little while.”
+
+I looked around again. Alone in the dark, the cold linoleum pressed into my backside.
+
+“Carl? Where are you?”, I asked quietly.
+
+“Where do you think buddy? I couldn’t let you just leave me in the cave you know.”
+
+I stood up slowly, backing myself into the corner.
+
+“No, you’re dead. I ate you. You let me live.”
+
+His chuckle filled my ears. My skin went cold, goosebumps covering my arms. Did Carl chuckle? He always had that stupid laugh that could bring out a smile even on the worst days. But a chuckle? Unnerved, I went back to bed. That was the first time Carl talked to me, but not the last.
+
+The next few weeks were Hell. I was starving. Jess left to go to a conference in LA for work, leaving me all alone. Surrounded by food I couldn’t eat without throwing up unless it went through a blender first. The gray sludge in the blender had no taste. It had no substance, no matter how much I drank I never felt full.
+
+I sat crying in the kitchen floor with the fridge door left wide open. The shelves were bare as I had blended every morsel of food and consumed it. Egg, ham, lettuce, cheese, even raw hamburger meat jammed into the blender and blended to a puree. It didn’t even scratch the hunger within me.
+
+“Woah, eating for 2 buddy?” Carl’s voice taunted from everywhere.
+
+“Please make it stop,” I sobbed into the empty house.
+
+“Oh I can’t make it stop, Teddy. You made your choice. You have to live with it”
+
+His voice was different. Sharper. Cruel and cold despite his teasing words. I hardly noticed, the growl of my stomach louder than the concern in my head. I crawled over the floor towards the trash can, knocking it to the floor and spilling its contents. In a frenzy, I began devouring whatever scraps of food that were left in the bag.
+
+“How the mighty have fallen, Ted.”
+
+I didn’t care what Carl had to say. Shoveling scraps of whatever seemed edible into my mouth. It had no taste. The familiar feeling of nausea hit me. I ran to the bathroom, standing over the sink as a black bile projected out of my mouth. I cried, panting as I fought for breath. Looking up in the mirror, I froze.
+
+I watched in horror as a piece of intestine quickly retracted from my open mouth back down my throat. I blinked. My mind must be breaking. The starvation making me see things. I stared into the mirror. My shirt moved just a fraction, like a wrinkle releasing from the fabric. I tore it over my head, staring at my stomach. Watching in horror, the intestine snaked its way around my bloated stomach.
+
+“I couldn’t let you leave me in that cave, Teddy.”
+
+I was frozen, the only thought filling my head, was the starvation that racked my body. My eyes fell on my reflection. The eyes in the mirror were not my own. Sunken into my skull, ringed with black bags from exhaustion. My hair had thinned, stringy patches where a full head of brown hair had once grown. The intestine coiling around my abdomen.
+
+“You need to eat, Teddy. You know what you have to eat.”
+
+The intestine continued to coil. I could feel it sliding around my stomach, stoking the flame of my hunger. I heard the key sliding into the lock of the front door.
+
+“It’s supper time, Ted,” the words echoing within my very skull. It was no longer Carl’s voice.
+
+I heard the door open, Jess calling out that she was home. How long had she been gone. My stomach growled audibly in response.
+
+“Remember our deal, Teddy”
+
+I heard Jess gasp as she entered the kitchen. It’s disarray startling her
+
+“Ted? Are you here?” She called shakily.
+
+My fingers tensed on their own, contorting into claws.
+
+“Foods getting cold,” the voice whispered within my soul.
+
+I wish I could say I fought it. That I snapped out of it and got help. I wish I could say I did the right thing. But I didn’t. I sit in the kitchen typing out this account. By the time you find this post and the crushed bones of the woman I love, I will be on a plane back to North Dakota. The hunger is gone for now but it will be back, I can feel it moving within my stomach now. I won’t let it win again. I’m going back to the cave, secluded from anyone else who I could hurt. Back to Carl. Back to where this thing came from. I’m sorry for the mess. 
