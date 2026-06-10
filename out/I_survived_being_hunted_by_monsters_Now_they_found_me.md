@@ -6,7 +6,7 @@ So, for a day or so things were totally normal. super duper normal, actually. Li
 
 My dad bizarrely asked very few questions beyond the normal. Which I was kind of glad for considering my mom was fuh-REAKING out.
 
-my mom seems pretty on edge. More than me. We had a few crows flying overhead yesterday and she nearly sprinted into the house, pulling me in with her. My dad just laughed. 
+my mom seems pretty on edge. More than me. We had a few crows flying overhead yesterday and she nearly sprinted into the house, pulling me in with her. My dad just laughed.
 
 The crows have been nearly incessant since I came home. Watching through the windows, circling the neighborhood and sitting on power lines outside my house. I didn’t think crows did that?
 
@@ -36,7 +36,7 @@ Mistletoe is old, but she’s not out. The old girl took out 10-15 of these bast
 
 “Ah, **darling**, we meet again!”
 
-I look up to see that bitch from my apartment. Standing over me. She looked identical to herself pre-Solomon beating. 
+I look up to see that bitch from my apartment. Standing over me. She looked identical to herself pre-Solomon beating.
 
 “You’re looking good for a **puddle.”**
 

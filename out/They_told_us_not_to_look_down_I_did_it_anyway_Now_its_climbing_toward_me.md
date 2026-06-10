@@ -1,0 +1,79 @@
+We were a group of urban explorers in the Carpathians - the kind of idiots who break into abandoned uranium mines from the 1980s. Places the army seals off with warnings: "Access Forbidden - Risk of Collapse and Radiation." We had cheap Geiger counters and the courage of drunk men.
+
+Our leader, a guy who had served in the French Foreign Legion before returning home, warned us right before we climbed down the rusted iron ladder into the main shaft:
+
+"Whatever you do, don't look down. There's only darkness and echoes down there. If you look, something will look back."
+
+We laughed. Everyone laughed. He didn't.
+
+We'd been descending for about 40 minutes. The ladder seemed endless. Our headlamps cast weak circles on the damp stone walls covered in a black moss that seemed to twitch if you stared at it too long. The air smelled of old metal and something sickly sweet, like meat left out in the sun. At one point, Mihai - the youngest - started breathing hard.
+
+"Guys... does it feel like something is watching us?"
+
+"Shut the fuck up," the ex-Legionnaire snapped. "And don't look down."
+
+I was third on the ladder. Below me was pure blackness. My light hadn't reached the bottom in a long time. It was like the shaft swallowed the beam. That stupid curiosity started gnawing at me. "What if I look for just a split second? Just to see how deep it really is."
+
+I leaned slightly and pointed my lamp straight down.
+
+For a moment, I saw nothing. Just void.
+
+Then it moved.
+
+Something massive and pale, like a jointless arm far too long, jerked back out of the light. It wasn't human. It wasn't animal. It was as if living flesh had twisted itself into a shape that should never exist. And in the middle of that mass, I saw eyes. Too many. Some still opening.
+
+I froze. My heart slammed against my ribs. A cold feeling crawled up my spine.
+
+"What did you see?" the Legionnaire whispered from above, his voice suddenly different.
+
+"N-nothing," I lied. But it was already too late.
+
+From below came the first sound - a slow, wet scraping, like nails on a chalkboard but moist. Like something huge dragging itself up the stone. The ladder vibrated faintly. Not like an earthquake. Like a pulse.
+
+We started climbing faster. No one spoke. Just heavy breathing and the clang of boots on metal. The sound from below grew clearer. Closer. Sometimes it stopped. Then it continued, faster.
+
+At one point, Mihai's lamp slipped. It bounced off the walls and went dark somewhere far below. We heard a soft, wet sound - like something swallowing. Then the crack of bones.
+
+Mihai screamed. Not a normal scream. The scream of a man who feels something being ripped out from inside him. He looked down. I watched his pupils dilate until they swallowed his eyes.
+
+"It's at my feet... Jesus... it has my face... but it's smiling too wide..."
+
+He fell. Or was pulled. I don't know. He vanished into the darkness with a wet thud of flesh against rock, then... nothing. Just slow, deliberate chewing.
+
+We climbed like madmen. The ladder was shaking constantly now. Whatever was down there was rising fast. Too fast.
+
+The Legionnaire was above me. I heard him muttering a prayer in French I'd never heard before. Then he stopped.
+
+"Don't stop, man!" I yelled.
+
+He turned toward me. His face... wasn't his anymore. The skin hung loose, like something was pulling it from below. His eyes were sinking into their sockets.
+
+"Too late," he whispered in a voice that wasn't his. "It saw you. Now it knows what you look like."
+
+Then he let go. Just like that. As if he wanted to go to it.
+
+I was alone on the ladder.
+
+I climbed with the last of my strength. My hands bled on the rusted metal. The sound was right beneath me now. I could smell it - sweet, rotten, intimate, like my own scent after death.
+
+I reached the top of the shaft. I crawled out screaming. Cold rain hit my face. I ran through the abandoned gallery, jumped the fences, and sprinted through the forest until my lungs burned.
+
+I made it home the next day. I locked myself in. I drank. I cried.
+
+But since then...
+
+When I stand on my fourth-floor balcony at night and look down at the parking lot, I feel the same thing. The feeling that something is staring back.
+
+When I go down the building stairs and reach the basement, I hear the scraping. Faint. Distant. But getting closer.
+
+Last night I woke up standing at the window, staring straight down into the darkness between the blocks. I don't remember getting out of bed.
+
+And something whispered in my own voice, but deeper:
+
+"Curiosity won again."
+
+I don't sleep anymore. I don't go on the balcony. But I know it doesn't matter.
+
+Because now it knows what I look like.
+
+And it's climbing.
