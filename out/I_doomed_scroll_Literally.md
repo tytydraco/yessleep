@@ -1,10 +1,10 @@
+I just clicked on a headline that said “Man Writes Story of His Own Imminent Death.” I thought it sounded crazy, maybe a bit spooky, something I would like. I didn't realize it would lead me to where I am now.
+
 I’ll admit it, the algorithm that some coder or AI created works on me without fail. You know, the algorithm that sends you headlines that say things like “You Won’t Believe How Big This Cat Is,” or “This One Food Will Add Ten Years to Your Life.” And not just clickbait either. Headlines like “Man Swallows Snake” and “Woman Accidentally Dates Her Sister” also get me every time. 
 
 It’s creepy that they know me so well.
 
-Anyway, it should be no surprise that a few minutes ago, as I was surfing around, I clicked on a headline that said “Man Writes Story of His Own Imminent Death.” I thought it sounded crazy, maybe a bit spooky, something I would like.
-
-The article isn’t long, I pasted it below:
+Anyway, the article I read isn’t long, I pasted it below:
 
 “A 44 year old Southdale man died today after suffering fatal injuries outside his home in the Darlington Heights neighborhood, authorities said.
 
