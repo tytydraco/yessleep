@@ -1,0 +1,65 @@
+I was trying to apply for a tractor supply card, well I had already applied for one and  
+got it, but I found out there was a better one. So I created this obstacle course for myself,  
+switching between different help lines trying to verify my application while closing out the old  
+account. It was a nightmare, not one unique to me, but it felt like a personal hell.  
+The robot kept telling me to say in a few words what the issue was, but would say she  
+couldn't hear me and switch over to the keypad. Then I get this long chain of numbers,  each one leading to a different part of the world. All these options that sound the same to me, “Press 1  
+to check the status of your Application”, “Press 2 to verify Account information”, “Press 3 to hear Statement Balance”. Eventually I get to, “Press 9 to speak to a Representative”.  
+I press it and try to explain what’s going on and eventually get rerouted to the  
+destination I would've reached if I pressed 4. More dial options follow. To enter your reference  
+number, press 1, to find your account using your SSN, press 2. I press 2. Sorry, we couldn't  
+find your account, please enter your reference number. I didn't have one, I switched back to the  
+speaking option to tell it that, and it understood. Please enter the area code and number of  
+your mailing address. I found the request odd, but I obliged, my address was saved with my  
+account so they could find it either way.  
+"Press 1 if you are (my name)." I pressed 1  
+"Thank you, this number has been logged and traced, goodbye."  
+Odd definitely, but it gets odder. A call comes in a moment later with a Maryland area code. I  
+answer, and a deep voice says  
+"What do you need done?" I nearly shit myself. I hang up immediately, and push my phone away as if that would make my whereabouts less clear. If it was an operator from a call center, he  
+was definitely using a bold introduction.  
+I got curious and decided to call it back. It rang a few times then picked up with an  
+automated message," The line is busy at the moment, at the tone, say the account in which the  
+payment will be deposited." It beeped and I hung up. It was getting weird and I didn't want to  
+keep poking at the number without looking into it first.  
+I googled the number and found it was the number of a small pizza restaurant in  
+Maryland. Again, definitely a bold way to take someone's order. I called the number embedded into their website and a chipper young woman answered.  
+"Helloo, thank you for calling Anchoni's Pizza, what can I get started with you today?"  
+"oh, nothing. I was just returning a call I got from this number."  
+"Umm, well I haven't made any calls. Actually unless you're Rick, I called about the  
+noise in the basement."  
+"a noise?"  
+"Yeah like a rattle, coming from the pipes in the walls. We wanted them looked at. Are  
+you Rick?"  
+"no i'm not."  
+"And you aren't going to order anything?"  
+"no"  
+"Alright, bye then."  
+I pressed the wrong numbers when I called a help center 4526 by Oliver Wright
+
+I wasn't done digging, and after that nothing conversation I felt emboldened enough to  
+call the unknown caller again. The same automated message about the deposit played, but this  
+time I punched in the numbers I pressed when I was trying to get help with my visa card. It  
+worked, and the same deep and mysterious voice picked up with, "What do you need done?"  
+"Who are you?" I asked, probably a little shakier in the voice than I intended.  
+"Don't you know not to ask that?"  
+"I don't know what's going on."  
+"Then why did you call back?"  
+"Because I want to know if I'm in danger"  
+"You are putting yourself in danger by messing with things you don't understand"  
+"This was an accident, I was just applying for a store card."  
+"Well you're here now, might as well have something done."  
+"Like what?"  
+"Whatever you want, it's a flat fee all the same. You've racked up quite the balance so  
+you otta make it count."  
+"Solve world hunger."  
+"I'm a mercenary, not a Genie."  
+"Fix the pipes at Anchoni's Pizza."  
+"Those are no busted pipes. They were replaced in 2018, and I've never known new  
+plumbing to scream for help."  
+"what?"  
+"This number is gonna be wiped after this call so don't bother trying it again. And it'd  
+suggest you forget Anchoni's, you've breezed past hiring a hitman and have involved yourself in  
+crimes against humanity. Bye now."  
+"what the fuck" I murmered as the buzz of the dropped call rang in my ear.
+
