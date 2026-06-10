@@ -1,0 +1,57 @@
+The tree keeps looking at me
+
+&#x200B;
+
+I live in a small rural town where all the houses are quite far apart, and we all have a lot of trees. Sometimes we even use them to divide the terrain between neighbors. But this one tree is different,w it looks like it has a face.
+
+&#x200B;
+
+At first, I knew that wasn’t enough to claim the tree was looking at me or that anything paranormal was happening, even when I didn’t know how a whole tree could grow in the middle of my backyard. I thought it was funny, so I joked about it with my friends and even used it as a reaction picture. The face looked annoyed.
+
+&#x200B;
+
+However, the face soon started shifting its position to look directly at my house. The shape remained perfectly clear and didn’t change at all. I thought that was especially weird because the tree hadn’t grown in height. The trunk and branches looked exactly the same, yet the face had moved.
+
+&#x200B;
+
+On the other hand, the roots of the tree had begun to grow. At first it was subtle, but soon they were pushing out of the ground. I couldn’t even walk around my backyard without tripping over them. Meanwhile, the other trees started to die. It seemed like this tree’s roots were stealing all the nutrients from the soil.
+
+&#x200B;
+
+Logically annoyed, I decided to cut it down. The moment I tried to use my chainsaw, the tree proved far too strong; it damaged the chain. I haven’t bought a replacement yet.
+
+&#x200B;
+
+The next day, the face on the tree was smiling. At first I thought it was mocking my failed attempt, but then I noticed a rotten smell coming from my garden. As I mentioned, this is a rural town, so everything is far away, including the pet cemetery. That’s why I buried my pets in my backyard. I preferred having them close to me rather than making a three hour drive that I would only do once. Now I deeply regret that decision.
+
+&#x200B;
+
+All of them had been pushed out of their tombs: three dogs and two cats. The roots had forced them out of their graves, completely destroying the stones I had for their graves.
+
+&#x200B;
+
+I don’t know what to do. I thought about burning it, but not only is that illegal, the roots are spread all over my backyard, so it would be dangerous.
+
+&#x200B;
+
+I tried talking to a botanist, but it just made things worse. When he arrived, he said he didn’t recognize the tree and that it could be an endangered species, so I couldn’t remove it or else he would tell the police. The only useful information he told me was that it wasn't a native tree and that it was still developing since it didn't have any kind of flowers or fruits, so for now it couldn't reproduce. At least that was a relief.
+
+&#x200B;
+
+Not only could I not physically destroy it, but now I couldn’t legally destroy it either. I was devastated. Those roots… those roots keep growing. They started to grow on my walls and windows, completely blocking my view from all the back windows, and the tree itself still looked the same. It didn't grow; it was just the roots. Now the only way I can see the backyard is by going outside and facing that mocking face.
+
+&#x200B;
+
+The neighbors came to my door. They told me how some of their trees were dying and the roots had started invading their gardens too. The only thing I could say was that it was an endangered species so I couldn't touch it at all. They left my house angry. That tree is destroying everything I have my house, my sanity, and my relationship with my neighbors.
+
+&#x200B;
+
+I have to spend all of my money to fix everything that the tree destroys. Even worse, Jorge, a neighbor of mine, just sued me because one of the tree's roots destroyed a wall of his house. I barely have money to eat now that I have to spend everything covering the damage of that fucking tree.
+
+&#x200B;
+
+I don’t know what to do. The roots keep growing exponentially overnight, and the only thing I can do is watch as this thing destroys my house. If it keeps growing like this... I can’t move out; I don’t even have the money to repair the damage those heavy roots are causing.
+
+&#x200B;
+
+Please, please tell me what I should do.

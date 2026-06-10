@@ -1,0 +1,101 @@
+Three weeks ago I buried my father. Next weekend I'm driving back to the river where we went fishing when I was a child, and before I do, I need to write down what happened there.
+
+I didn’t meet my father until I was nine years old. He and my mother married after they discovered she was pregnant, then divorced shortly after I was born. She was seventeen and he was twenty; I have to imagine neither of them was prepared for the responsibilities of a baby. I was thirty-one when my own son was born—old enough to have money in the bank and old enough to have made most of my worst mistakes already—but the stress of a newborn still put hairline cracks in my marriage. I don't say that to excuse him. I say it because I'm not sure I would have done any better in his position.
+
+My mother took full custody after the divorce, and moved me across the country from Ontario to British Columbia. I grew up in Kelowna, right along the Okanagan valley. My father would still call us every couple of months to check in. I remember holding the phone and knowing I was supposed to feel something. This was my father, something I understood conceptually, but I didn't have anything to attach it to. He was a voice that called, abstract in the way that grief is abstract before you've lost someone. It was a word without weight.
+
+A few weeks before I turned nine, my mother ended her relationship with someone she had been seeing. He didn’t take it well, and began to stalk us. One night, after we were all asleep, he broke in through the front door of our apartment. I woke up to the sound of screaming, but by the time I rushed out of bed and reached the hallway, the apartment had gone dead quiet.
+
+I saw him sitting in the chair in our living room, completely still, holding something in his lap that I couldn't make out in the dark. My mother was backed against the far wall. Neither of them was moving. I stood frozen in my pyjamas, trapped in that terrible, heavy silence. I don't know how many minutes passed like that before the police finally banged on the door. It turns out that one of our neighbours had seen him breaking in and called the cops, and I understand now that it was the only thing that saved us that night.
+
+The next morning, my mother bought two one-way tickets to Ontario. We packed our lives into suitcases and were out of Kelowna by the end of the week. When we landed, my father was waiting at the arrivals gate. He hurried over to pull us into a clumsy, desperate embrace, smelling of stale coffee and the pungent tang of nicotine. I wrapped my arms around him mechanically, pressing my cheek against the jacket of the man who I only knew as a voice through a telephone.
+
+We moved into his mother's house in a city on the edge of Lake Simcoe, an old brick bungalow that backed onto a steep, overgrown ravine. My father and I were strangers performing a relationship we didn't know the shape of yet. He taught me things—how to change a tire, how to read a circuit breaker, the proper way to shake someone's hand. He was always good at practical things.
+
+My father was also big into fishing. Every Sunday morning you’d find him locked in front of the television watching his favourite fishing shows: Fish’n Canada, Bob Izumi’s Real Fishing, Fish TV. A lot of these shows were filmed on lakes and rivers not far from where we lived. One morning, there was an episode where two fishermen were angling for smallmouth bass on the Magnetawan River near Burk's Falls. My father’s eyes lit up in a way I had never seen, like he had recognized an old friend from across the room. He wrote something down on the back of a torn flap from a cigarette carton and tucked it into his wallet. The next weekend we were up at 5:00 a.m., thermoses of coffee wedged between the seats of his truck, driving north in the dark toward a river he'd seen on television.
+
+The drive up took about an hour and a half. He had a binder of CDs in the console between the seats—mostly old heavy metal and punk bands, and a few others I didn't recognize. We didn't talk much. He'd skip to a song he liked and turn it up slightly, and I'd nod, and that was enough to quell the tension in the small cab of his truck. I was nine and I didn't know what to ask him. I'm not sure he knew what to offer. So we sat, letting the music fill the place of the conversation we weren't sure how to have.
+
+We reached the river just as the sky was getting light—not sunrise exactly, more like the dark lifting by a couple of degrees, the way it does under low cloud cover. The light came through flat and grey, no shadows anywhere, the water the same colour as the sky above it. He parked on a gravel pull-off and we unloaded our gear in silence. I remember the smell of the river before I saw it; cold water, mud, the faint mineral smell of wet rock.
+
+He set me up along the shoreline and crouched down beside me to show me how to tie a lure. His hands were quick and certain in a way the rest of him wasn't. He installed fencing for a living, and it had done decades of physical toil to his body in a fraction of that time. Most mornings I would catch him hunched over the kitchen counter taking aspirin by the handful. But here, on this river, there was a youthfulness to him—an energy I associated with the river itself, like it was returning something to him. 
+
+I was watching his fingers when he said *now you try*, and I looked up from the line for the first time since we'd arrived.
+
+That's when I saw the man across the river.
+
+He was standing at the treeline on the opposite shore, maybe forty feet of grey water between us. He was dressed for fishing—a full smock, the old-fashioned kind, the sort of thing you'd see in a photograph from a different decade. But he wasn't fishing. He had no rod, no gear that I could see. He was standing at the edge of the trees where the shadow of the canopy still held, which made him difficult to look at directly, the way a shape in a dark room resists focus. He was completely still, facing our side of the river. I had seen a man be that still once before, in our living room in Kelowna.
+
+I assumed at first he was waiting for something. A fishing buddy, maybe, or for the light to improve. But he didn't move. Not his hands, not his weight from foot to foot, none of the small adjustments a body makes. I couldn't make out his face clearly across the water. But I had the distinct feeling that he could make out ours.
+
+I finished tying the lure badly and my father leaned over to fix it without comment. I kept watching the man across the river.
+
+*There's a guy over there,* I said.
+
+My father looked up. He found the man in the treeline without any trouble, as if he knew roughly where to look. He held his gaze there for a moment—longer than a glance, shorter than a stare—and then he looked back down at my line.
+
+*Don't worry about it,* he told me.
+
+It was the same voice he used for everything. The same flat, even tone he used to tell me to put my seatbelt on or to keep my elbows off the table. It gave me nothing. But I had been watching my father all morning the way you watch a person you are trying to learn, cataloguing everything, and I had seen his face in the half-second before the mask came back down.
+
+He knew him.
+
+We fished until early afternoon, and the man stood in the treeline the entire time. I desperately wanted to leave, to get away from this river and the unmoving fisherman watching us from the opposite shoreline. I was frustrated with my father, I couldn't understand why he wasn't bothered by this. He was treating it with the nonchalance of his joint pain, as if it was something he could just suppress with a handful of pills. While I was packing up my gear, I watched as my father waded out to a flat rock near the middle of the river—carefully, the current wasn't strong but his knees were bad—and set something down before wading back.
+
+The drive home followed the same template as the drive there. He put on a CD, and we didn't talk. But the silence on the way home was a different kind. On the way there it was two people who didn't know each other. On the way back it was two people who had agreed, without discussion, not to talk about something that had happened.
+
+That night I was lying in bed when a smell moved through my room. Faint at first—I thought I'd imagined it—and then stronger. The same damp, mineral smell from the river, of cold water and mossy rocks that didn’t see sunlight. I felt my stomach tie into a knot. Then I remembered I had left my still-wet fishing clothes on the floor next to my bed. I rolled over, picked up my shirt and brought it up to my face. It gave off that same earthy smell, and I let out a sigh of relief. I threw it down onto the floor and rolled back into bed.
+
+I woke up in the middle of the night to a sound coming from outside.
+
+Soft, rhythmic. The slow pull and release of something moving through wet ground—a squelching, patient sound, like the river mud had followed us home and was now working its way across the backyard. I lay still and listened.
+
+A dog, I thought. Dogs got loose in the neighbourhood all the time. But dogs don't move like that. A dog trots, stops, snuffles, doubles back. This was even. *Step. Pause. Step.* The pacing was too slow, too deliberate.
+
+It was coming from the direction of the ravine. I did the math a nine-year-old does in the dark—how far the treeline was from the back fence, how far the fence was from the house. I listened to the sound close that distance one unhurried step at a time.
+
+*Step. Pause. Step.*
+
+It didn't hesitate at the fence. It didn't wander. It moved in a perfectly straight line across the lawn until the squelching sound of the wet mud stopped right outside my bedroom wall.
+
+Then, absolute silence.
+
+I counted to thirty in my head. Then to thirty again. The house settled around me, the particular creaks and exhales of an old building, but I couldn't hear any breathing from outside. I had almost convinced myself I was imagining things when the silence changed. It wasn't the sound of movement. It was a faint, steady trickling against the window, like water running down the siding, slow and steady.
+
+I stared at the ceiling and did not move. I became aware that I was holding my breath and I let it out as quietly as I could. The curtain was thin and the window was behind me, and I made a decision, very deliberately, not to turn over and look. Whatever was outside stood there for a long time. I thought about the fisherman from earlier, standing motionless in his smock on the opposite shore.
+
+I heard the sound of my window slowly sliding open, the old aluminum frame groaning against itself. Cold air moved into the room, carrying the smell from the river with it—the mud, the mineral cold, the green rot at the water's edge. I felt it cross my face like a hand that didn't touch me.
+
+I still did not turn over.
+
+I lay there until the first hint of morning light peeked through the curtain. At some point the smell had faded. I checked my bedroom window and it was shut tightly, the latch turned the way I always left it. I thought it must have been a dream, but then I noticed something on the hardwood floor beneath my window. It was a single bootprint, already drying by the time I found it, now just a faint outline of something that had been wet, the shape distorting into the floor. I looked out my window. In the distance I saw him at the treeline where my backyard ended at the ravine. The fisherman, standing the same way he had stood across the river—impossibly still, no acknowledgment of the cold morning air. Dressed the same. Facing the same direction. As if he had simply relocated here like a chess piece someone had moved.
+
+I ran to get my father. I told him there was a man in the backyard, the man who we had seen yesterday at the river. He looked at me for a moment in the thin morning light, and then he got up without saying anything, which frightened me more than if he had told me I was imagining things. He checked the backyard. He checked the side of the house. He came back inside and told me there was nobody there.
+
+We went back to the Magnetawan River three more times that summer, and the routine never varied.
+
+The fisherman was always there. Same spot, same absolute stillness, his old smock cutting a dark silhouette against the trees. He never moved closer, but he never had to. And after every single trip, the routine followed us home. The wet, heavy steps would cross the backyard at dawn, anchoring at the edge of the ravine by first light, only to vanish by the time my father woke up. I stopped reporting him. I just checked the window latch instead.
+
+On those later trips, I watched my father closely. The ritual at the end of the day became expected. He would always wade out to that same flat rock near the middle of the river to leave something behind.
+
+Once, while he was loading the truck, I snuck down to check the rock before we left. It was already empty, the grey stone bone-dry as if nothing had ever touched it. On our final trip of the summer, I watched him place a specific lure on the stone—a red-and-white casting spoon, the kind that caught the flat light even under a dark sky. He didn't turn back immediately this time. He stood on the rock with his back to me, facing the opposite shore for a long, silent moment, as if waiting for a signal I couldn't see. Then he waded back, picked up his rod, and we drove home in the dark.
+
+I didn't have the vocabulary for what I was watching. But I understood, in the way children understand things before they have words for them, that my father had an arrangement with something. That the trips to this river weren't only for my benefit. That whatever was standing in that treeline knew my father long before he started bringing me.
+
+The trips stopped after that summer. I never found out why. He didn't explain and I didn't ask—by then I had learned which silences in my father were walls and which were doors, and this one had no handle on my side. We never talked about the river again. I spent twenty-three years not thinking about it, but not forgetting, exactly. That was, until he died.
+
+I was standing in his kitchen, going through the things he'd left behind. His wallet was on the counter next to his keys, where he always left it. I don't know why I opened it. Force of habit, maybe. Or maybe there was still a part of me that wanted to be closer to him. Behind his driver's license, worn soft at the edges, was a small piece of folded cardboard—the torn flap from the cigarette carton. He had written something on it in his handwriting, tight and practical, like he did everything.
+
+A name. And below it, in smaller letters, the river.
+
+I stood in my father's kitchen for a long time holding that small piece of memory. I thought about the way his eyes had lit up watching that fishing show, the way he'd written something down and tucked it away before I could see. I had assumed he was writing down directions. A river he wanted to find.
+
+I don't think he needed directions. I think he already knew exactly where it was.
+
+My eyes fixed on the name he had written down.
+
+It was my mother’s name.
+
+I'm going back to the Magnetawan River next weekend. I need to see if the fisherman is still there. I need to understand what my father left on that rock, and why.
+
+I'll let you know what I find.
