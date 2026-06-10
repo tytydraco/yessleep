@@ -1,0 +1,35 @@
+Hello, I am writing this as someone who has previously searched and found for popular audios on short-form video social media with a source that is hard to find, people who are close to me call me the "audio sleuth". But today, I found a unique audio that I considered to be the most impossible to find, since there was no way to find the source of the video it came from.
+
+I stumbled upon a video that used a sound of a friend group asking how many members are there in said group. It went like this:
+
+Person A: How many of us are here?
+
+Person B: Four.
+
+Person A: No, there's five.
+
+Person B: What are you talking about?
+
+Person A: Then who's standing next to-
+
+The audio then cuts off, but no one using the audio realizes that.
+
+I tried to search the source in every place on the surface of the internet. I searched, and searched, but I couldn't find anything, so I had to put it on my audio list, in which I list audios I found and yet to find in a notebook, and labeled the source as "an unknown source". I thought it might be from the dark web, and so I was correct. 
+
+An anonymous whistleblower messaged me and said that they found the source of the audio, with the original video attached to the message, which shows a voice call in a Discord group chat with all of the parties' names cropped by the poster, for unknown reasons. 
+
+They said they found it off a dark web website in which people share strangers' digital photos and videos without their consent and/or knowledge, of course that would be considered doxxing. They handed me the username of the person who posted the stranger's video and the site's name. 
+
+I had to go to Tor, log in to that site, and direct message that person. I asked them in the DMs "Where did you get the video from?", and that person said the video's owner's name, which I didn't expect and which I will not be revealing for privacy. "What happened to the fifth friend?" I asked another question...
+
+"The fifth friend is actually a world-threatening supernatural demonic entity that cannot be defeated." the person answered. I was worried, them he sent me a message that was just a binary:
+
+"01001001 00100000 01100001 01101101 00100000 01110100 01101000 01100001 01110100 00100000 01100101 01101110 01110100 01101001 01110100 01111001 00101100 00100000 01100111 01100101 01110100 00100000 01110010 01100101 01100001 01100100 01111001 00100000 01100110 01101111 01110010 00100000 01110011 01101111 01101101 01100101 01110100 01101000 01101001 01101110 01100111 00100000 01010110 01000101 01000101 01000101 01000101 01010010 01011001 00100000 01100010 01101001 01100111 00100000 01110100 01101111 01101101 01101111 01110010 01110010 01101111 01110111 00100001 00100000 01000111 01101111 01101111 01100100 00100000 01101100 01110101 01100011 01101011 00101110 00101110 00101110"
+
+I had to use a binary translator to understand it, and so the result said:
+
+"I am that entity, get ready for something VEEEERY big tomorrow! Good luck..."
+
+They were the fifth friend all along!? I didn't know...
+
+As of writing this, I am currently having suicidal thoughts about dying earlier. Goodbye.
