@@ -1,0 +1,37 @@
+I moved into the studio on 4th Street about three days ago. It’s one of those old, rent-stabilized places with high ceilings and floorboards that groan every time you shift your weight. It’s cheap, which usually means something is wrong, but I figured it was just the plumbing or the lack of insulation. 
+
+I was unpacking some boxes in the closet when I found them. They were tucked behind a loose piece of baseboard—two old, heavy-duty walkie-talkies, the kind that look like they belong to a construction crew or a security team from the nineties. They were dusty, the plastic casing scratched up, but they looked intact. I thought maybe the previous tenant left them behind. 
+
+I set them on my bedside table, intending to list them on Marketplace or just toss them in the junk drawer. But then, around 2:14 AM, the one on my table hissed to life. 
+
+It wasn't the usual white noise of a dead frequency. It sounded like someone breathing through a thick layer of velvet. Heavy, wet, rhythmic breathing. I sat bolt upright, my heart hammering against my ribs, thinking maybe it was just a neighbor's baby monitor or some weird interference from the apartment next door. 
+
+Then a voice came through. It wasn't a voice, really. It was a sequence of clicks and low, guttural hums that somehow resolved into words. It sounded like a person trying to speak while their throat was filled with gravel. 
+
+"...sector four... clear... no movement..."
+
+I froze. I didn't even breathe. I reached out, my hand trembling, and grabbed the device. I should have turned it off. I should have thrown it out the window. But curiosity is a hell of a drug, and I felt this weird, magnetic pull to see if there was someone actually on the other end. 
+
+I pressed the button. "Hello?" I whispered. 
+
+There was a long, agonizing silence. Just the static. Then, the breathing started again, but it sounded closer. Much closer. Like the person was holding the mic right against their teeth. 
+
+"Who is this?" the voice rasped. It didn't sound like a security guard. It sounded like something that had spent a century learning how to mimic a human. "Are you in the light?"
+
+"I—I'm sorry, I thought this was a mistake," I stuttered. I was already reaching for my lamp, my eyes darting to the shadows in the corners of my room. 
+
+"The light is a lie," the voice replied. The static spiked, a sharp, piercing screech that made me drop the radio. It hit the floor with a heavy thud, but it didn't turn off. It kept transmitting. "The light only hides the edges. We are at the edges. We are coming to the center."
+
+I scrambled out of bed, stumbling toward the door, but I stopped when I heard the second radio. The one I hadn't touched. It was sitting in the kitchen, across the room, and it was active too. 
+
+"He answered," the kitchen radio crackled. 
+
+"He knows," the bedside radio responded. 
+
+I didn't stay to hear the rest. I grabbed my keys, my phone, and ran. I spent the rest of the night sitting in my car in a brightly lit 24-hour gas station parking lot, staring at the entrance of my apartment building. 
+
+I went back this morning with a friend, thinking I was being paranoid, that maybe it was some elaborate prank or some weird radio pirate frequency. The apartment was empty. The closet was empty. The walkie-talkies were gone. 
+
+But here’s the thing that’s keeping me from sleeping in my own bed tonight. I checked my phone. I had a missed call at 2:16 AM. The number was blocked. And when I look at the floorboards in the closet, there are fresh, deep scratches in the wood, right where the radio was sitting. 
+
+I think they're still in the building. I think they're waiting for the lights to go out.
