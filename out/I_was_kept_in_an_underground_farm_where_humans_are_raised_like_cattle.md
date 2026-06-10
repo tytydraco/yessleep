@@ -1,0 +1,363 @@
+Will’s mom lived in a small town outside of Columbus, Ohio. He didn’t visit her often. Just when he needed money, which is why he’d driven out there. To borrow a few hundred bucks to buy drugs.
+
+Will drove back to Columbus during one of the worst storms we’d had in a while. It was hard to see in the rain, and he took a wrong turn and ended up in one of the farm fields.
+
+That’s when he found the house.
+
+“It looks abandoned,” he told me. “One of the windows is broken. Half the roof is caved in. There’s still an AC unit in the backyard, though. I saw an electric meter, too. The house is probably still full of copper.”
+
+He asked me to come back out to the house with him and help him load the copper into his truck. I said I would. I was broke, too, and I thought it would be easy money.
+
+Saturday night, he rang my doorbell.
+
+I looked through my peephole. He stood on my front steps, tweaking, twitching and scratching the scabs on his arms.
+
+“You ready, Jake?” he asked.
+
+I got into his truck, and we drove to the house. It took Will a while to find it again. It was midnight by the time we finally got there.
+
+Like Will had said, the house looked abandoned. All the lights were off. We walked around, shining our flashlights through the windows, making sure nobody was hiding inside.
+
+There was still a couch in the living room, some graffiti on the walls, but that was it.
+
+The front door wasn’t locked, so Will and I just went inside.
+
+I flipped the light switch in the living room. The lights turned on. The house still had power.
+
+“Weird,” Will said.
+
+I switched the lights off, so nobody would see, and then we went into the kitchen. There was a small window above the sink, looking into the backyard. In the yard, I saw a water well with a ladder inside of it.
+
+The phone started ringing, and Will and I both jumped.
+
+“What the fuck,” he said.
+
+Then he noticed the copper wire running across the floor. It came up from the basement and then ran out into the backyard.
+
+“I want to see what’s downstairs,” he said.
+
+I followed him into the basement. The wire was connected to an electrical panel. Near the panel was a water heater. Copper pipes ran across the ceiling, taking the hot water into the upstairs bathroom.
+
+In front of the heater, there were a few bloody bandages on the floor. 
+
+“Maybe we should go,” I said.
+
+“We’ll be out of here in no time,” Will told me. “I’ll cut the pipes, you grab the wire, and then we’ll get the AC unit and go.”
+
+He switched off the breaker. Then he got to work cutting the pipes.
+
+I disconnected the wire from the panel and wrapped it around my arm as I followed it back upstairs and into the backyard, where it disappeared inside the well.
+
+I shone my flashlight into the well. It had gone dry. At the bottom of it, I could just make out the entrance to a tunnel.
+
+I tried pulling the wire up, but it was connected to something.  
+
+If I wasn’t high, I probably would’ve just cut the wire and gone back inside. Instead, though, I climbed down the ladder to see what the wire was stuck on.
+
+There was a tunnel at the bottom of the well. It led deeper underground. I kept following it until it opened to a massive underground cave.
+
+One hundred feet below me, floodlights shone on metal cages. The cages were full of people. Then there was something else standing in the darkness between the cages. Whatever they were, they didn’t look human. Their white eyes glowed in the dark.
+
+My legs started to shake.
+
+I ran back through the tunnel, climbed up the ladder, and ran back into the house.
+
+“We need to go!” I yelled.
+
+“What’s wrong?” Will asked.
+
+“We’re not alone here.”
+
+“You saw someone?”
+
+Before I could answer him, the living room lit up with light. Another car had pulled into the driveway.
+
+I ran into the basement.
+
+“We need to hide,” I said.
+
+The color drained from Will’s face.
+
+He hid in a bedroom closet. I crawled into the crawlspace underneath the stairs.
+
+The front door opened. Heavy footsteps moved across the living room floor. Then someone shouted, “Hello?”
+
+His voice sounded strange. Hollow.
+
+The phone rang again. He answered it. “I brought another one,” he said, and then he went out the back door.
+
+Will came out of the closet and walked up the stairs. 
+
+“What are you doing?” I whispered.
+
+“I’m getting out of here.”
+
+“Are you crazy?”
+
+“I’m going to try to run back to those trees and call the cops.”
+
+He stuck his head into the kitchen, waited a minute to make sure nobody else was in the house, and then he ran for it.
+
+He went out through the front door. It slammed shut behind him.
+
+Three gunshots rang out.
+
+Will started screaming.
+
+I covered my ears. I couldn’t listen to it.
+
+I felt sick.
+
+The back door swung open. “Is anyone else in here?” It was the same hollow voice again.
+
+I held my breath, trying to stay as quiet as I could.
+
+He walked down the stairs. He sounded big. Heavy.
+
+He turned on the lights.
+
+“I can smell you in here,” he said. “I’m going to find you, sooner or later.”
+
+My lungs were burning, but I kept holding my breath, afraid to breathe.
+
+He walked into the bedroom and then came toward the stairs.
+
+His face appeared at the entrance to the crawlspace. Chunks of dead skin flaked off his cheeks. Underneath the dead skin, his skin was green.
+
+“There you are.”
+
+He grabbed onto my shirt and dragged me out of the crawlspace.
+
+“I’m sorry,” I said. “We thought this place was abandoned.”
+
+More dead skin flaked from his arms. Underneath the dead skin, his skin looked hard and green.  
+
+He hit me in the face. I nearly lost consciousness, but I hung on, fighting to get away from him.
+
+He hit me again. Then he tied my hands and legs together with rope and dragged me upstairs.
+
+My head banged against the steps.
+
+I fought to stay awake but soon, everything went black.
+
+\*\*\*
+
+Bright light shone in my eyes.
+
+“Are you okay?” a woman asked.
+
+I saw her face in front of mine. It was caked with dirt. She smelled like she hadn’t bathed in months.
+
+“I think so.”
+
+I sat up and rubbed my eyes.
+
+I was in one of those cages I’d seen before, sitting on a dirty mattress. My flashlight was gone. So were my wallet and my watch.
+
+The woman sat next to me. “My name’s Brenda,” she said.
+
+“I’m Jake.”
+
+I looked around at the other people in the cage with us. Most of them were in their early twenties, the same age as me. Some were just teenagers.
+
+“Where are we?” I asked.
+
+“We call it the farm,” Brenda said.
+
+Two white eyes watched me from the darkness on the other side of the cage. The creature had an enormous, ball-like head that sat on top of four long tentacles.
+
+“What the fuck is that?” I asked.
+
+“We call them Big Heads. They look scary, but they won’t hurt you. They just watch us. It’s the ones who look like us that you need to worry about.”
+
+Brenda said she was a prostitute. Earlier that year, while she was working the street, someone had forced her into a van and shoved a rag in her face. She’d woken up here.
+
+She introduced me to a few of her friends in the cage. Dale, a drug addict who’d fallen asleep on a park bench and then woken up here, and Travis, a teen who’d run away from home and then been grabbed off the street the same way Brenda had been.
+
+“Why are they keeping us here?” I asked.
+
+“All we know for sure is that they want us to have kids,” Dale said. “If you help them with that, they leave you alone. Otherwise, after a few months, they’ll drag you out of the cage.”
+
+“Drag you where?”
+
+“We don’t know. We just know you don’t come back.”
+
+“They make sure we always have food and water, though,” Travis said. “It’s boring here, but they make sure we don’t starve.”
+
+Brenda was already sleeping with Travis and Dale. She offered to help me, too, but I said no thanks.
+
+She’d already gotten pregnant, but she’d miscarried. If she got pregnant again, she didn’t know what she’d do. She didn’t want to have a kid down there, but she didn’t want to die, either.
+
+“What happens if you do have a kid?” I asked.
+
+“They don't let you keep it.”
+
+She looked sad when she said it.
+
+One of the human-looking men walked into our cage with two buckets of food. It looked like some kind of soup. As soon as he set the buckets on the ground, everyone ran to eat.
+
+I was starving, so I went and ate, too.
+
+\*\*\*
+
+Every day, I looked up at the ceiling of the cave. I could just barely see the entrance to the tunnel that led to the well in the house’s backyard. When I’d stood there before, I’d seen a metal ladder bolted into the wall that led down to the cave floor.
+
+“If I can get to that ladder, I can get back to above ground,” I told Brenda. “I can find a phone and call someone for help.”
+
+“I’ve seen a few other people try to run,” she said. “I don’t know if any of them made it. If they did, it didn’t matter. We’re still here.”
+
+“I promise, if I make it, I won’t leave you all trapped down here. I’m going to tell the whole world what’s happening.”
+
+Our cage door opened and one of the human-looking ones brought in another bucket of food.
+
+It seemed like the only time the door ever opened was when they came to feed us.
+
+I counted every meal. Every meal was a day.
+
+It wasn’t until my second week in the cage that I saw them drag one of us away.
+
+Three of the human-looking ones came into the cage. Everyone backed up against the wire mesh across from the cage door.
+
+The men walked towards us. Then they turned toward a teen with black hair. He walked to the other side of the cage, and they followed him. He fell to his knees.
+
+“I’m sorry,” he said. “I’m going to start sleeping with someone. I just haven’t found anyone yet.”
+
+The three men grabbed his arms and dragged him out of the cage. He screamed for help, but then he disappeared into the darkness and the screaming stopped.
+
+I promised myself I wouldn’t die the same way.
+
+If I was going to die, I’d die fighting.
+
+\*\*\*
+
+A few days later, when one of the human ones opened the cage door to feed us, I decided I was going to run.  
+
+I told my plan to Brenda.
+
+“This place is a lot bigger than it looks,” she said.
+
+“I just need to make it past the next few cages,” I told her. “Then I’ll follow the wall right to the ladder.”
+
+“If you do get out, don’t forget about us.”
+
+“I won’t. I promise.”
+
+I slowly walked towards the cage door, trying not to draw attention to myself.
+
+One of the Big Heads stood in darkness just outside the cage door, watching everyone eat. Its tentacles wiggled underneath its head. 
+
+I took a deep breath, and then I ran past it.
+
+One of its tentacles wrapped around my arm. It felt cold and wet. I fell to the ground, though, and I managed to break away.
+
+I got back to my feet and kept running. 
+
+The Big Head let out a horrible, hissing sound.
+
+Another set of white eyes appeared ahead of me. I turned left, between two other cages, and ran towards the cave wall.
+
+The people in the cages started cheering me on.
+
+“Get help!”
+
+“Call the police!”
+
+Once I reached the cave wall, I followed it toward the ladder. I wasn’t too far from it. Maybe a hundred and fifty feet.
+
+I could barely see anything, though.
+
+Suddenly, the ground gave way, and I fell through the floor, into a pool of blood.
+
+I flailed my arms, terrified of drowning, until my feet hit the ground. The blood only came up to my shoulders.
+
+I waded through the blood, pushing forward, so frightened I could barely keep my thoughts straight. I just kept telling myself I needed to escape. 
+
+Eventually, I found a ladder, and I climbed out of the blood, into another tunnel.
+
+This tunnel was filled with old TV screens. The screens showed footage of people’s homes. Bathrooms and bedrooms and living rooms.
+
+Staring at the screens, I recognized my own bathroom, the pirate-themed shower curtain I’d bought at Walgreens hanging from the curtain rod. 
+
+But how was there a camera inside my bathroom mirror?
+
+Someone grunted. Farther into the tunnel, past the TVs, I saw human skin hanging from hooks on the walls.
+
+Near the skin were a few blood-soaked tables. A human-looking butcher in coveralls stood at one of the tables, skinning a dead body that had been laid on top of it.
+
+I crouched behind the other tables and crept past him, trying to ignore the nauseating stink of rotted meat.
+
+I stepped into a puddle of blood and nearly slipped backward, but I managed to catch my balance.
+
+The butcher looked toward me. I thought he’d seen me, but then he kept skinning the body, carefully peeling the skin off its leg.
+
+It was Will’s body, I realized. His face hadn’t been skinned yet. They must have dragged him down here after they killed him. 
+
+I remembered what he’d told me before we’d driven out to the farmhouse. It would be quick, easy money.
+
+I nearly laughed, but I hadn’t forgotten where I was.
+
+I crept farther into the tunnel.
+
+As the light faded, I couldn’t see anything anymore. I held my hand on the wall and slowly walked forward, afraid that every step forward would be another fall into another blood-filled pit.
+
+Eventually, the tunnel brought me back into the larger cave with the cages.
+
+I looked up at the ceiling. I was only twenty feet from the ladder. I ran the rest of the way and then started climbing up it.
+
+One of the Big Heads saw me and hissed. When I looked back at the cave, the darkness had filled with white eyes, staring up at me.
+
+The ladder’s rusted metal tore into my flesh, but I ignored the pain and just kept climbing as fast as I could.
+
+I needed to get back above ground. I needed to get help.
+
+I ran to the well and climbed up into the backyard.
+
+The stars shone in the sky.
+
+The house was dark. Fresh copper wire ran from the back door to the well. They'd already replaced it, like Will and I had never been here.
+
+My hands were bleeding badly, but I didn’t have time to bandage them. I’d worry about that later.
+
+Ducking below the house’s windows, I made my way to the front yard. 
+
+The driveway was empty. Will’s truck was gone, and so was the van. The fields looked empty.
+
+I ran towards the trees in the distance. Once I reached the trees, I crouched on the dirt.
+
+I thought about Brenda still in that cage, probably wondering whether I was dead. I’d get help for her as soon as I could.
+
+I ran through another field and then followed a dirt road until it brought me to the highway.
+
+By then, the sun was rising.
+
+A few cars drove past me. I waved at them until someone pulled over and gave me a ride to the police station.
+
+\*\*\*
+
+I sat in a room across from one of the detectives, and I told him everything that had happened to me. The farmhouse, the well, the underground cages, the Big Heads and the human-looking ones with dead skin flaking off their faces and their arms.
+
+The detective listened to me, but he didn’t say anything. He just nodded his head, smiling along with my story.
+
+I knew what he was thinking. Another rambling, schizo meth head about to collapse from lack of sleep.
+
+“What’s the address of this house?” he asked me.
+
+I gave it to him. He promised they’d go there and look around, but I didn’t believe him. If I wanted to help Brenda and everyone else still trapped in those cages, I’d have to do it myself.
+
+Brenda had given me her mom’s name. I found her mom on social media and sent her a message, telling her what had happened and where Brenda was, but instead of writing back, her mom blocked me.
+
+I decided to ask for help on social media. I recorded a video of myself talking about what happened, and I posted it. A few thousand people saw it. A few conspiracy theorists reposted the video, too. But nothing seemed to happen. There was nothing on the news. No raids, no investigations. No one cared.
+
+Then last night someone rang my doorbell.
+
+I looked through my peephole, and I saw Will standing on my front steps.
+
+He didn’t twitch. He didn’t scratch his arms. He just smiled at me with a mouth full of perfect white teeth.
+
+He rang my doorbell a few more times and then left. I’m sure he’ll be back, though. Whoever is running the farm isn’t going to let me live knowing the truth.
+
+When Will does come back, I’ll be ready for him. I’ve bought a handgun and a box of bullets.
+
+I haven’t slept for three days, but it’s not just because I’m high. I’m nervous and frightened.
+
+If I can kill Will and show people what’s really wearing his skin, then they’ll have to believe me. They’ll have to do something about Brenda and everyone else still trapped in that farm.
