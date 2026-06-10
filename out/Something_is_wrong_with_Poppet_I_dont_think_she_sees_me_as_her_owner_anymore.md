@@ -1,0 +1,29 @@
+For such a sweet little creature, she sure does have an appetite.
+
+The jungle: a South East London flat. The humble victim: myself. I remain static, as there is not much left to do. The radiator ticks. The occasional screech of cars outside attempts to keep me focused, but I have not moved yet, and I do not see myself doing so anytime soon. A half-finished cup of coffee develops an ecosystem beside me. My monstrous companion stalks. She has noticed my newly found sedentary nature and ceased her merciless cries. Her new approach is, undeniably, stalking. There is no hope for me. There is still hope for her. My darling angel will remain sustained for many months, I suppose.
+
+She began with the ankle — certainly aware of my current condition, still very much alive. You’ll spend your life savings on a small creature and it will, sooner or later, betray you. There is no malice in it. It is the nature of things. The beast must eat. I, for one, have not eaten since Thursday. I could not expect such restraint of her.
+
+*“Fair enough,”* I say, to no one in particular.
+
+By the time she had worked her way up to my left knee, I considered being alarmed. I considered standing. Yet my bones remain sedentary, fixed in place like something dragged down by wet cement.
+
+Poppet is not cruel. Poppet grooms the areas she has finished with. Her tongue, rough as pumice, relentless as tide, sends pangs of white-hot pain through my remaining limbs, breaking the silence with deep screams of agony. She no longer flinches at that either. She sleeps on my chest each night with the full weight of her small, terrible body, purring at a frequency I have come to associate with mercy.
+
+I am grateful. I cannot move. I will be sustenance for a good friend instead.
+
+She often sits in the square of afternoon light that falls across the living room floor each day at half past two. I dream of my childhood in a nosey neighbourhood, I’m sure some fat nose would eventually prod through a letter box to find a collapsed frame. I am offered no such solace here. It’s what I deserve for wanting to be a hot shot.
+
+She is, by any observable measure, content. Her tail moves slowly, the way it does when she is thinking about something pleasant.
+
+I sense I am going soon, though I suppose my presence lingers in certain ways. An indentation remains on the sofa from where I once sat. A smaller one is forming from where Poppet peers at me now. I, instead, lie on a mattress soaked entirely with entrails and the contents of one’s left leg.
+
+I choose not to struggle anymore. It was hard enough getting here. There isn’t anything left to do or say.
+
+She yawns.
+
+I yawn too.
+
+Poppet blinks once at the window. Big stretch. Deep sleep.
+
+*The beast must eat. There isn’t much left to discuss.*
