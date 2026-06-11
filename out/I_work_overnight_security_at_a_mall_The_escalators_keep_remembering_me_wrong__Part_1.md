@@ -16,27 +16,27 @@ I have a nice floor lamp. The kind that hangs over the couch like a bug's antenn
 
 For the 15 seconds I stood at that display window, I imagined how they’d look accenting the caramel stain of my acacia wood side tables. Decided they would look good. And then resumed patrols. 
 
-They drifted near the edge of my mind the rest of the night. Flicking on and off in the dark. I almost considered picking them up after shift when the mall opens. Then I recall the number printed on the price-tag tucked under the base of one.   
+They drifted near the edge of my mind the rest of the night. Flicking on and off in the dark. I almost considered picking them up after shift when the mall opens. Then I recall the number printed on the price-tag tucked under the base of one.  
 Deferred purchase.
 
 The lamps don’t have anything to do with what happened. Well, at least not in the way you’re probably imagining. When I recall how things worked out. I always circle back to the lamps. The first chartable, observable thing I did that wasn’t part of my job description.
 
 My job runs on a loop. Sunday nights are early nights. You’ll hear the metal clatter of gates around 6:55 and I have to spend the next 20 minutes asking people to leave the food court too loudly and waving the air behind old people who only come to the mall to walk circles in the AC and call it exercise. 
 
-From there it's walking routes, locking doors, checking gates, switching off lights. Usually, I end up walking one or more of the girls from the make-up and body stores to their car after having to stay late for inventory or a new floor set.   
+From there it's walking routes, locking doors, checking gates, switching off lights. Usually, I end up walking one or more of the girls from the make-up and body stores to their car after having to stay late for inventory or a new floor set.  
 I always liked doing that.
 
-For lunch I always stop by the food court before closing so I can pick up hot wings and a Coke that I’ll keep on ice in the security room fridge until break.   
+For lunch I always stop by the food court before closing so I can pick up hot wings and a Coke that I’ll keep on ice in the security room fridge until break.  
 I always get hot wings because they also have wet napkins, and I can ask whoever is working to throw a few handfuls in the bag for me. 
 
-You see, I have a problem with germs. Bad enough that it became work for everyone around me, like my ex. I won’t go into specifics but I’m better now.   
-And the parts that stuck around—counting, clocking, cataloging—turned out pretty helpful for this job.  
-   
+You see, I have a problem with germs. Bad enough that it became work for everyone around me, like my ex. I won’t go into specifics but I’m better now.  
+And the parts that stuck around—counting, clocking, cataloging—turned out pretty helpful for this job.
+
 I was on the second floor in the security room, wiping the orange ring of heat from around my lips after finishing lunch. I cram several packets into my left pocket after I finish wiping my hands and step out of the office. The first stop on my route is the north exit of the parking garage.
 
-I whistle along to ‘Everybody Wants to Rule the World’ as it plays over the speakers. I love this song. Actually, I’d argue it’s one of the greatest songs ever.   
-Tooth and nail.   
-   
+I whistle along to ‘Everybody Wants to Rule the World’ as it plays over the speakers. I love this song. Actually, I’d argue it’s one of the greatest songs ever.  
+Tooth and nail.
+
 I aim my flashlight through the window after giving each door a solid rattle. Unit 214 sits to the right when I turn around. It’s been empty for a few months now. 
 
 What used to be one of those fast fashion brands that sew together tissue paper and call it a tee shirt, was now nothing but a concrete box with exposed ventilation.
@@ -67,15 +67,15 @@ A sigh passes through me as I let the urge die.
 
 I always say that.     
 
-I make my way back to the north entrance. My light sweeps over the empty parking garage through the windows. I rattle the gate and spin. But, instead of taking the employee stairs, I walk along the storefronts back to the escalators.   
+I make my way back to the north entrance. My light sweeps over the empty parking garage through the windows. I rattle the gate and spin. But, instead of taking the employee stairs, I walk along the storefronts back to the escalators.  
 I adjust my route once I lock all the doors and gates for the night. From there it’s not about locking everything up quickly. But making sure everything is still where it belongs.
 
 Most nights I’ll complete about 5 or 6 laps, maybe more if I'm bored. Tonight I end up doing more than ever. I can’t tell you what compelled me on this particular shift that differed from any other. 
 
 I execute the same ritual on the escalator going down. The two cross one another in an ‘X’ shape. One goes up, the other down. I commit to this same loop 10 times. Maybe I was bored. Maybe I wanted time to go by faster and was too restless to stare at the wall of monitors with my feet up all night.
 
-It was ride 10 that did it. I step on right as my marker returns. I’m looking down at the comb. Watching the stairs fold out of its teeth. Counting each one under my breath.  
-   
+It was ride 10 that did it. I step on right as my marker returns. I’m looking down at the comb. Watching the stairs fold out of its teeth. Counting each one under my breath.
+
 “41, 42, 43—44…”
 
 I stop counting. The escalator doesn’t.
@@ -134,7 +134,7 @@ Sitting on the floor in the very center of the room. Only doing it wrong. 
 
 The lamp. 
 
-Both of them.   
+Both of them.  
 Together. No—not together. Not both of them. 
 
 One of them. 
@@ -179,13 +179,11 @@ Notes:
 1. Mark a section of the black handrail. It doesn’t matter with what, just as long as it survives the machinery. A strip of white tape will work perfectly.
 2. Ride the ascending escalator while counting every step.
 3. Walk the upper balcony and ride back down while counting again after marking the section of rail where you step on. (Always step onto the escalator when your mark appears)
-4. Repeat steps 2 & 3 until the marker disappears.
-5. If the mannequins are all facing the top of the escalator on the tenth circuit, the loop has begun.
-6. Every completed loop adds one step to the escalators. Observation and acknowledgement of this helps sustain the loop.
-7. Do not allow any part of your body to touch the comb. (I don’t know why yet)
-8. The mall will begin changing after the first additional step.
-9. Always count. (VERY IMPORTANT)
-10. If you stop counting, don’t panic. Just start over.
+4. If the mannequins are all facing the top of the escalator on the tenth circuit, the loop has begun.
+5. Every completed loop adds one step to the escalators. Observation and acknowledgement of this helps sustain the loop.
+6. Do not allow any part of your body to touch the comb. (I don’t know why yet)
+7. The mall will begin changing after the first additional step.
+8. Always count. (VERY IMPORTANT)
 
 **\*\*\***
 
@@ -246,8 +244,8 @@ That was it. 
 
 The blink. 
 
-At 43, I turn around and step over the comb. Somehow my legs already know not to go near it.  
-   
+At 43, I turn around and step over the comb. Somehow my legs already know not to go near it.
+
 My stomach tightens. Wet noose. Once again, every mannequin surrounding the escalators is staring at the space where they remembered I’d be. That hunger returns, almost giddy and child-like. My legs move before my mind does, then I remember. I fish a wet napkin from my left pocket, tear it open and scrub my hands. 
 
 I always fold them before I throw them away. I don’t know when it started. Just one day, I was already doing it. 
@@ -319,7 +317,7 @@ Not ‘why does the comb eat stuff?’ Or—‘Why are the lamps I want to buy i
 
 How deep does this go?
 
-On loop 15, I hear something below me. My first thought is; ‘Someone broke inside’ But then I realize the sound is following my footsteps. Mimicking me. It stops when I do, walks when I do. And—I swear—I think I can even hear someone counting.   
+On loop 15, I hear something below me. My first thought is; ‘Someone broke inside’ But then I realize the sound is following my footsteps. Mimicking me. It stops when I do, walks when I do. And—I swear—I think I can even hear someone counting.  
 Second mouth. 
 
 The garbage can lids now bulge. Soiled wet napkins littering the floor.  
@@ -369,24 +367,23 @@ I reach the door. Fumble for my badge. Relief washes over me when I hear the chi
 
 *Beeeeeep.*
 
-The door clicks shut behind me. I sink into my favorite rolling chair. A breath escapes me. Quiet valve release.   
+The door clicks shut behind me. I sink into my favorite rolling chair. A breath escapes me. Quiet valve release.  
 I lean over the controls. Camera 14. This camera makes no sense to me. It’s at a junction of the escalators where you can see both up and down. But the bottom of the descending steps and the top of the ascending steps both trail off camera because of the angle. 
 
 I always thought it was useless until now.
 
 I rewind camera 14. My finger hovers above pause/play. A horizontal, static hiss splits the screen. After a few minutes. I hit play and wait. The screen glitches. Skips frames. Me ducking, my back pressed against the metal, ascending. 
 
-Then, \*it—\*appears.  
-   
+Then, \*it—\*appears.
+
 My heart skips timing.
 
 It looks like me, but assembled wrongly. The first draft. Its face and eyes—they’re…too tall. Its elbows hang below the waist. The security shirt looks tight around the shoulders. Because it’s *supposed* to fit me. Not it.
 
 I rewind again. The video glitches again. Skips a frame. The double appears on the escalator from nowhere. And then it finally clicks. I rewind again, but this time, farther back. I see myself ascending into loop 20, the double already descending. 
 
-My stomach drops a step too late. 
-
-If I’m looking at its back—then it's already seen mine.  
+My stomach drops a step too late.   
+  
 
 **\*\*\***
 
@@ -396,10 +393,6 @@ Updated notes:
 2. Mark the handrail with something that will survive the machinery. (Always board here.)
 3. One step gets added per loop. Always acknowledge it. (The loop needs to know you noticed.)
 4. Don’t touch the comb. Don’t feed it. (Yeah, I know. I did anyway.)
-5. On the 11th loop, all the mannequins around the escalators will reorient. (The loop has pulled you in.)
-6. Stores simplify as the loops compound, only selling one item. This is normal. (Memory compression?)
-7. Objects you interact with gain significance within the loop. This effect compounds exponentially. (The mall remembers everything you do, but not why.)
-8. You will hear the double before you see it. ~~It will fully appear on loop 20.~~  **IT WAS ALREADY THERE**.
-9. The loop’s geometry will prevent you and the double from meeting. Do not interfere with this. (I don’t know what would happen, and I don’t want to.)
-10. The cameras within the loop only show the loop's reality. Not the outside world.
-11. Stick to a routine. Acting unpredictably makes the loop chaotic.
+5. Stores simplify as the loops compound, only selling one item. This is normal. (Memory compression?)
+6. Objects you interact with gain significance within the loop. This effect compounds exponentially. (The mall remembers everything you do, but not why.)
+7. The loop’s geometry will prevent you and the double from meeting. Do not interfere with this. (I don’t know what would happen, and I don’t want to.)

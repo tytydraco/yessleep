@@ -10,16 +10,13 @@ It began with me being flown to the Vatican, I will say the experience was comfo
 
 “Pilgrims still flock to the monastery but get no response. No self-respecting pilgrim would break into the place and stay in town hoping to visit.”
 
-“What about the local law enforcement, shouldn’t they do a wellness check?”  
-
+“What about the local law enforcement, shouldn’t they do a wellness check?”
 
 “Law enforcement avoids interfering with church business when they can, as far as they’re concerned it may be some kind of religious practice.”
 
-I had hoped for a different answer. “So, what is the plan, you want me to break in alone?”  
+I had hoped for a different answer. “So, what is the plan, you want me to break in alone?”
 
-
-“No not alone, a local priest from a nearby village will assist you.”  
-
+“No not alone, a local priest from a nearby village will assist you.”
 
 After some more discussion it was clear I was off to Austria. I won’t bore you with the details of the trip. The priest I was to work with was from Vienna about two hours away from our destination in Gussing. His name was Father Otto, he was 42 being a priest for 14 of those years, and he spoke both English and German. We had a pleasant conversation about our experiences with the church and theology on our drive. I told him about my previous job and how that went haywire.
 
@@ -49,8 +46,7 @@ We made our way through, finding nothing until we reached the Ballarat matriarch
 
 Father Otto gripped his crucifix tightly clearly shaken by some kind of revelation. “Baal Peor is another name for Belphegor. The demon that many attribute to sloth.”
 
-“So, you’re telling me all of this has to do with sloth?” As I said it, I put the pieces of the puzzle together. The bodies out there had no marks because they were not killed with a weapon or by some extraordinary means. It was their inaction that led to their death they probably had died of dehydration. “Why would a demon like Belphegor want to target a monastery, isn’t that risky?”  
-
+“So, you’re telling me all of this has to do with sloth?” As I said it, I put the pieces of the puzzle together. The bodies out there had no marks because they were not killed with a weapon or by some extraordinary means. It was their inaction that led to their death they probably had died of dehydration. “Why would a demon like Belphegor want to target a monastery, isn’t that risky?”
 
 He responded with his knuckles growing whiter as he gripped his crucifix. “It is said that the demon Belphegor likes amethyst as it has calming properties. The Ballarat family wore amethyst pendants.”
 
@@ -60,67 +56,56 @@ I awoke, but I did not know how much time had passed. Father Otto was no longer 
 
 On the grass was a young woman in her early twenties, she was brunette and had on a nun’s outfit. I don’t mean to sound perverted, but she had curves the outfit could barely contain and had gorgeous features. She patted the ground and asked me to sit with her. She spoke in a perfect midwestern accent.
 
-As I sat, she began to speak “Wow you were out for a while. Father Otto went to get help, and they found the bodies. Those poor twelve monks.”  
+As I sat, she began to speak “Wow you were out for a while. Father Otto went to get help, and they found the bodies. Those poor twelve monks.”
 
-
-I thought for a second. “Twelve there were only eleven, unless one was found.”  
-
+I thought for a second. “Twelve there were only eleven, unless one was found.”
 
 She replied, “Yes he was found in the sarcophagus of the matriarch I do not know how he ended up there” She chuckled.
 
-It was an uneasy chuckle, but I went along with it. “How long was I out, for you to be here it must have been a while.”  
-
+It was an uneasy chuckle, but I went along with it. “How long was I out, for you to be here it must have been a while.”
 
 Her chuckle continued “Yes, you’ve been out for over a month, they didn’t want to move you though as you were somehow surviving in that state. Since then, we have begun repopulating this monastery with other monks, you’re a real hero you know.” She then touched my leg.
 
 Once she moved her hands to touch me, I saw her crucifix it was upside down. I chuckled and reached for my firearm, trying to keep cool. As I reached, I felt nothing on my hip, did I leave it in the crypt, did it fall out in the monastery? My mind scrambled to find an answer.
 
-As I turned to look for my gun she began to speak, her voice distorting from female to male, while remaining calming. “Why did you have to go and ruin our moment I thought we had something.” As I looked back towards the voice there was now a different being.  
-
+As I turned to look for my gun she began to speak, her voice distorting from female to male, while remaining calming. “Why did you have to go and ruin our moment I thought we had something.” As I looked back towards the voice there was now a different being.
 
 I will do my best to describe its looks from memory. It had a sheep’s head with a blueish tone, while it had a humanoid shape to its body. Its feet were hooves, and the sheep’s head had fangs of some kind almost like a viper.
 
 “What the hell are you?” I asked quickly, scrambling to my feet in an effort to retreat.
 
 It responded “Sit I will do you no harm here. You are safe and I will answer your questions.”  
-I sat back down realizing that it would be useless to resist I was clearly out of my realm here. It chuckled attempting to pat me on the head as I pulled away. “I am Baal Peor or as you call me Belphegor, the patron of sloth.”  
-
+I sat back down realizing that it would be useless to resist I was clearly out of my realm here. It chuckled attempting to pat me on the head as I pulled away. “I am Baal Peor or as you call me Belphegor, the patron of sloth.”
 
 “Patron? More like a demon” I retorted as it continued speaking.
 
 “I am no demon!” He responded the first time I heard any emotion other than calm.
 
-“Then why kill those monks only something as evil as a demon would do that.”  
-
+“Then why kill those monks only something as evil as a demon would do that.”
 
 “Only one holy man had to die for my part it was his request that the rest died” Belphegor seemed almost saddened by that statement.
 
-“Who asked you to kill those twelve monks?”  
-
+“Who asked you to kill those twelve monks?”
 
 He quickly corrected me “Eleven, it was at the request of another monk though I will not tell you, his name.”
 
 Another monk I thought to myself. Why would someone devote their life to being a monk and throw that away to summon a demon, unless…
 
-Belphegor raised its hand and within it was a large book. “I understand you are a private investigator. Stop investigating for the Vatican and this book could be yours.”  
+Belphegor raised its hand and within it was a large book. “I understand you are a private investigator. Stop investigating for the Vatican and this book could be yours.”
 
+“Why would I want some old book?” I asked, “What good does that do me?”
 
-“Why would I want some old book?” I asked, “What good does that do me?”  
-
-
-Belphegor let out another chuckle. “This book will have the answers to every case you will ever work if you leave the Vatican’s employment. Use it properly and you will be the most popular private investigator in the world; you will join the ultra-wealthy.”  
-
+Belphegor let out another chuckle. “This book will have the answers to every case you will ever work if you leave the Vatican’s employment. Use it properly and you will be the most popular private investigator in the world; you will join the ultra-wealthy.”
 
 I must admit that was an enticing offer. I’m not proud to admit this next part but I truly considered it for minutes before deciding what my next move should be. In my defense both of my jobs with the Vatican have put me in danger, this would be a chance to keep myself safe on future jobs while leaving this dangerous, and quite frankly terrifying life behind.
 
 As I thought about the dead monks inside though I quickly snapped to my senses. “No deal, I don’t know what your game here is, but I will not accept it. So, you might as well just kill me.” I instantly regretted the last words of that sentence as they came out.
 
-“Foolish mortal, I offer you a way out, a way to the life of luxury. This game we play will go on far after you are gone and have been running since far before you have ever known life!”  
-
+“Foolish mortal, I offer you a way out, a way to the life of luxury. This game we play will go on far after you are gone and has been running since far before you have ever known life!”
 
 I reasserted my answer “I decline now either let me wake up or finish me off I will not give in to your temptations.”
 
-“I should just leave you here!” it snapped as it disappeared. I began to freak out thinking back to the monks, they may have been in a similar predicament to me. Thankfully I did not have to worry for long as within a few minutes I had awoken back on the cold hard stone floor of the crypt.
+“I should just leave you here!” it snapped as it disappeared. I began to freak out thinking back to the monks, they may have been in a similar predicament as me. Thankfully I did not have to worry for long as within a few minutes I had awoken back on the cold hard stone floor of the crypt.
 
 As I stood up my head hurt and I immediately felt for my gun, I would not make the same mistake twice. Thankfully it was still there, meaning I had probably woken up for real. I looked around and noticed that the patriarch’s sarcophagus lid was on the floor from when I opened it. Father Otto was also nowhere to be seen in the crypt, meaning I would have to look around the monastery for him.
 
@@ -134,8 +119,7 @@ As I walked towards him, I noticed they were nothing but skeletons in robes and 
 
 Walking through the hall, I realized I hadn’t seen the original 11 bodies and decided to shine my light into the rooms we had passed on the way to the window. In them were the bodies of the decaying monks in their own beds. Once I reached the window, I tossed Father Otto outside and climbed through. Once I was through, I began to lift him up as he awoke.
 
-He screamed before I shushed him and asked him what he saw. His response still gives me goosebumps to this day. “I saw nothing, nothing but you trapped in the patriarch’s sarcophagus while I was trapped in the matriarch’s sarcophagus. We were being buried alive.”  
-
+He screamed before I shushed him and asked him what he saw. His response still gives me goosebumps to this day. “I saw nothing, nothing but you trapped in the patriarch’s sarcophagus while I was trapped in the matriarch’s sarcophagus. We were being buried alive.”
 
 I tried to calm him and drove him back to Vienna that night. By midday I was back on a flight to the Vatican to give my report. Despite how tired I was I couldn’t sleep out of fear I would see Belphegor again.
 
@@ -143,7 +127,7 @@ The official story is that upon investigation the monks had all died of carbon m
 
 I was given a nice bonus of $50,000 for my work in Gussing and still keep in touch to make sure Father Otto is doing alright. I have also been able to sleep at night much easier, avoiding any encounters with Belphegor, even though I sometimes dream of that book and what could have been.
 
-I still wonder about three things. First why only take one amethyst if Belphegor was so fond of them? Secondly, who moved Father Otto and the bodies of those deceased monks. Finally, what did Belphegor mean by this has been far longer than anyone has known.
+I still wonder about three things. First why only take one amethyst if Belphegor was so fond of them? Secondly, who moved Father Otto and the bodies of those deceased monks? Finally, what did Belphegor mean by this game has been going on for far longer than anyone has known?
 
 I still don’t know exactly why I stayed after this, I believe it was my curiosity. I want to know what happens next and figure out why those poor monks had to die. As for why I’m writing this let’s say it’s to get the truth out there, there are forces beyond our comprehension at work, and those monks deserve the truth to be spread. Even though they said it was a carbon monoxide leak I know what truly happened at the monastery in Gussing.
 
