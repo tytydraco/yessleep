@@ -44,6 +44,7 @@ Kwazii said I was told to come in here by barnacles I don't know why really. I r
 
 And then the screen went to Black and I turned off the TV and bought a new set because I'm not showing that to Jeff because I'm over 100% sure that the voice coming from the police interview with Jeff has some things to do with this so I hate my life I really need to leave my town but I feel like I can't for some reason I don't know I don't know I guess that's it for now.
 
-&#x200B;
+&#x200B
 
-.
+. Here is my other post
+ play](https://www.reddit.com/r/nosleep/s/e0Vc4oxwfI)
