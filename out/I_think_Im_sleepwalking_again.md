@@ -1,0 +1,191 @@
+I (31f), recently moved up to Seattle and I’m pretty sure I’ve been sleepwalking again. I used to sleepwalk as a kid. There was almost 100% certainty that I’d grown out of it. I haven’t had an episode for a long, long time. Definitely before I even met my husband(James 30m) almost 10 years ago. He didn’t come with me to Seattle. We’re… taking some time apart. 
+
+That being said, I needed input since he’s *not* here there’s no one to witness what is going on. So here I am.
+
+At first I thought it was your run of the mill apartment stuff, but I don’t really have much to compare it to. I’ve never lived alone before, let alone found my own place. So it was a big surprise when this place definitely wasn’t  what I thought it was–a steal. This place was pretty cheap and came furnished. I was even excited about the “beautiful third floor view”. 
+
+The view in question just being the fire escape and neighboring building. Big mistake not to tour the place before I agreed to give James some space. I thought it would be a perfect place to wait through our timeout. Instead it’s just some abandoned, smelly bachelor pad. 
+
+Unsurprisingly, there’s weird electrical problems–the kitchen light keeps going out. I was going to chalk it up to the storms we’ve been getting, but it happens on clear nights too. Sometimes at night it just doesn’t turn on. It doesn’t even flicker. Although, it’s not much of a problem during the day. My guess is I’m somehow tampering with it in my sleep.
+
+I’ve been phoning Victor(28m), about it and the other problems around this place. He keeps saying it’s about a fuse or a breaker or something. I’ve just been trying to get him over here to help me with it. The least he could do is stay the night- just to see if I’m actually sleepwalking. He’d always told me if I’d ever come up to Seattle that he’d always be around. Now I’m here and I guess being his brother’s wife doesn’t mean anything to him. 
+
+Anyway, the “breaker” doesn’t explain the shitty fridge that keeps leaking. Again, it’s also the smell. It’s simply putrid. It was bad when I first got here, but it’s only getting worse. I’ve been burning candles and showering the apartment in room sprays. I’m just really not sure what’s going on.
+
+We’ve been getting hit with a lot of storms and that could be exacerbating the situation. The leaking started around then. Not that it looks like a new problem. The ceiling is patterned in old water stains. The fridge has definitely seen some better days too. I’m pretty sure that it’s been sitting there a while. After the first storm passed, goop has just been seeping out from underneath it. I can't determine if the storm did this or if I did. 
+
+I do have this horrible feeling that I’ve been interacting with it at night. The evidence– whatever it is– is slathered all over my hands and feet most mornings. They’re grimy, impossibly sticky and the smell has me dry heaving. It’s a mix of the goop on the floor and something… else. I’ve had to get up and shower immediately before investigating. 
+
+Those mornings I’ve been finding silverware in the kitchen. I guess I’ve been eating and leaving a fork, spoon, and knife in the sink. They’re always sticky and smelly too. 
+
+Like I said- I used to sleepwalk as a kid. I allegedly did some weird things. Obviously somebody’s moving stuff around and it’s also, obviously, me. Since that’s the case, I’ll just need help putting this whole mess to bed– no pun intended. 
+
+I was going to tell the landlord about the electrical issues, but I didn't. The silverware made me think it was a bad idea. I figured if I was causing the damage in my sleep, I might have to pay for said damage. I’ve just never had to worry about these kinds of things before. James is a light sleeper, if he were here I wouldn’t be doing all this. He’d always keep the place clean too, so again—I just wouldn’t have to be worrying about it . 
+
+I’m definitely missing his home cooked meals right about now too. I’ve been having the Asian Fusion place across the street almost every night. The food’s alright. Somehow this apartment is out of delivery range for every other restaurant in the area. 
+
+I know Victor has a good burger spot and a couple other places I’d prefer near him. I’ve been trying to see if I could stay at his place for a bit. It would be nice to get away from this nasty goop gunking the floor, and the dishes, and the *smell*. I’ve been getting better at managing the cleaning, but *god,* it’s *so* annoying and *disgusting*. 
+
+I had previously been mopping the gunk in the morning, but it’s too much. I stopped. Not that you can tell the difference. The stains and deep gouges in the vinyl remain unbothered. 
+
+It’s now being dealt with by a towel I wedged underneath the fridge. I can’t imagine why, but I guess I’ve been moving that damn thing around at night too. I usually find it in the middle of the kitchen, drowning in the slime slinking around the uneven floor.
+
+Strangely, a lot of my leftover containers have been disappearing from the trash. I can’t find them anywhere. It’s just weird because none of this makes sense. I don’t know, I guess I’m just not used to chores and the stress is causing some sort of averse reaction. 
+
+The dishes are especially tortuous. Mostly because I just can’t remember using them. All I can hope is that I’m not getting up in the middle of the night and eating styrofoam containers. I don’t… feel like I’ve been eating styrofoam. Everything just points to me coming out here and chowing down on things I shouldn’t be. 
+
+I’ll likely be bunking with Vic this weekend and he’ll help me out, or at least give me a couple bucks. Maybe he won’t need to, what James gave me will probably last until he’s ready for me to come home. I’ll update when I’ve had some time to clear my head.  
+**UPDATE 1:**  
+The silverware thing has really started to freak me out. I got up on Saturday– Fed. Up. I didn’t end up getting a hold of Vic until later that day. I had to be pretty persistent, but he answered by the afternoon. I convinced him to come over and at least help me assess the situation. 
+
+About an hour before he got to mine– someone knocked. I fully expected to see Victor, but it was just some guy. He was somehow more surprised to see me than I was to see him. He asked about some other guy– his friend, Isaac… or something? When I said he didn’t live here, he kept peering around me to look inside the apartment. He started getting upset claiming he could “see all his shit in there”. I managed to close the door and told him to piss off.  
+
+He kept saying,  “Isaac, I know you’re in there” and “Dude, seriously? Whatever.” 
+
+I heard him stomp off before I called the cops.
+
+When Vic got there later, It was hard to get him inside the door. He wouldn’t stop reiterating that he wasn’t staying. 
+
+Obviously, that was fine because the plan was to go to his place anyway. When I told him I needed to grab a few things but he was free to look around he got loud with me. 
+
+I don’t know what I said or did to upset him. I just gently reminded him that James and I were having a misunderstanding. Sometimes you get lucky enough to have a special connection with more than one person. There’s nothing to be ashamed of. While James and I were working things out, there’s no reason lil’ Vic and I couldn’t spend time together. 
+
+He then said some rather unkind things to me. I got upset, obviously and told him he was being an asshole. I still don’t understand why he acted that way. I was clearly already going through a lot between that other guy and this fucking place. 
+
+When my “water-works” were “too much” for him he spewed some shit about James. How he was “devastated” about what we did and how he didn’t want to hurt his brother like that ever again. Suffice to say, Victor and I didn’t spend the weekend together. He just stormed off and didn’t look around or even help with anything! 
+
+I never realized how much of a selfish prick he is. James never acted like that. After Victor and that rando, I just really needed to hear James's voice. I needed to tell him how much I loved him. That I missed him so much. I tried to call him a few times that night. I know he missed me too. 
+
+The first call was before I switched The Fridge Towel. It was really, really gross. I gagged and coughed as I threw it away. I was hoping he’d answer, want me back, and save me from myself.
+
+I called again after I made sure all the silverware was clean, accounted for, and nestled in their drawer. I checked the kitchen light around then. The other lights after he didn’t answer. 
+
+Before Victor had his episode, he’d said that I should check all the lights and outlets. if there were other problems I could give the landlord a call– If not, it could just be a localized issue (one I could’ve caused). Everything else was fine, and so was the kitchen light… for the time being. 
+
+James had never missed this many calls from me. 
+
+My fifth time trying him I was in the convenient store grabbing tape for the drawer and extra bulbs. I made sure to buy additional offerings to appease The Fridge as well. Obviously James had no idea what I was going through here, or he wouldn’t be treating me like this. It doesn’t help that I was clearly wrong about my connection with Vic. Now that I think about it, we were both really drunk when we *connected*–so to speak. Maybe that was what I thought I wanted at the time. I was wrong.
+
+James has always been the one for me. If he’d just talk to me I could make him understand. It’s him. It’s *always* been him.
+
+After my twelfth call and third layer of tape he answered. His voice startled me, immediately broke down after I heard it. He just listened and only said I should be taking better care of myself. When I said if he were here I wouldn’t have to– the line went dead. 
+
+Later that night there was quite a storm that blew in. I didn’t sleep well that night, not after that call with James. While the storm raged I’d gotten up for a glass of water, but of course, it knocked the power out. It felt like it was rampaging throughout my apartment— or maybe just the kitchen. I tried the switch a few times, but nothing. No flicker, not even a spark.
+
+When I fumbled around for my phone, it wasn’t much help either. Apparently, it didn’t catch enough of a charge and died at some point. Afterwards, I just stumbled back to bed and rolled around till morning. 
+
+I wanted to take the day slow, but had to shower after accidentally rubbing the rotten stench in my eye. 
+
+When I shuffled into the kitchen after, the tape was gone. Not peeled or ripped off. It wasn’t cut or anything– just gone. I looked everywhere for the damn tape. The roll too! It wasn’t just the tape I applied to the drawer, but all of it!
+
+ After fighting with myself, I decided that I did buy it and that I wasn’t crazy. I checked inside other drawers, the cupboards, even the stove. Nothing. The trash too– completely empty. All the left-over containers were nowhere to be seen. 
+
+Of course, the usual suspects were in their spot in the sink. There was that godforsaken ooze too. It seeped and stretched towards me around its latest victim. The towel, its green checkerboard pattern just ruined– stinky, discolored and in the middle of the floor. I almost wept.
+
+Like, what the fuck? 
+
+I called my doctor back in San Fran. I have something scheduled a couple weeks out. I’m just not sure what’s wrong with me. I don’t remember any of my adolescent episodes being this frequent or problematic.
+
+Thankfully, the outage didn’t hit the convenience store, so I returned for two childlocks. One for my bedroom door, the other to keep the drawer shut. I’d keep myself out of that kitchen, or at the very least that damn drawer.   
+**UPDATE 2:**  
+For anyone calling me a ‘stupid, man-eating, slut-bitch’, that’s incredibly unkind. Also, you have no idea what being me is like. Grow up. 
+
+To minimize the amount of nightly episodes I’d been having, I decided to cut down on sleeping.   
+The last few days I hadn’t really slept much at all. 
+
+One night, when the apartment was so dark I couldn't tell If my eyes were open or not, a noise erupted in the kitchen. It sounded like a wave of metal crashing into the floor. I could’ve mistaken it for thunder, but no storm raged outside. Just one inside, just outside my bedroom door. I heard the skittering of metal across the vinyl and an awful rumbling that reverberated through the floor.
+
+Then nothing.
+
+ Silence. 
+
+No light. No power. No charge on my phone. 
+
+I’d sat frozen for what felt like an eternity. I really, really, wished that James were there. God, how I wished he were there to protect me. 
+
+My heart nearly gave out as the darkness seemed to press in on me and I heard the knob to my bedroom being turned. I was able suppress my yelp, and tripped over myself to get to the window. I yanked and yanked, begging it to grant me access to the fire escape. 
+
+The twisting of the knob quickly escalated into ramming the door, and I knew it wasn’t gonna hold for long. I could hear the childlock buckling against the strain. 
+
+The moment I shoved at the window so hard I thought I’d go through it– it gave and whipped open. 
+
+At the same time– the door whipped open slamming into the wall. 
+
+No shoes, no jacket, no phone. 
+
+I managed to dive out onto the fire escape. Rusty metal bit into my feet, but I couldn’t afford to stop. I didn’t even spare a glance behind me. My legs clumsily carried me over the brittle steps as I descended. 
+
+Floor three, then two and finally I landed in the grimy alley next to the apartment building. I could’ve collapsed, and I might have. I just remember forcing my body in the direction of Victor's place. 
+
+The journey, long and short, hot and cold, was oddly enough– incredibly forgettable. Victor was hesitant to let me in, but my desperate plea for help had him stepping aside. He called the police shortly after. 
+
+The rest of that day felt surreal. I spent most of it at the station, where no one seemed very concerned. At first, anyway. At some point, Detective Worrwick and I started seeing a lot more of each other. He’d actually insisted I stay at the station for a while to indulge his questions and “routine” checks. If I hadn't known any better I’d have thought I was some sort of suspect. 
+
+When I asked him if I was, he'd confided, “At first, but you’ve been cleared of any suspicion given the nature of the situation.” 
+
+“Nature of the situation? My place was clearly broken into by some sort of deranged criminal!” 
+
+He’d only nodded slowly, and leafed through the file he’d had every time we talked. 
+
+“Right, and just to confirm–
+
+“No, I’m not from here. Yes, I’d only been in that apartment for two weeks. Yes, I thought I was sleepwalking and– Is that what this is about? The fucking kitchen? I have an appointment to get myself checked–”
+
+“Yes, and I *understand* that. I’m just confirming you’ve never met the previous tenant?”
+
+“No, no I’ve never– wait! I never met him, but there was some guy that came by looking for him! Do you think he’s some sort of criminal?"
+
+“No, I do not. This other gentleman, did you get his name?” Worrwick sighed and poised his pen to write it.
+
+“What? No! I– listen! If this Isaac guy did this–
+
+“He didn’t.” He sighed. “Now, you said you hadn’t gotten that other man’s name?”
+
+I ignored the question. ”How can you be so sure! If he lived there before–!”  
+   
+“He’s dead.” 
+
+I, for some reason, was not ready to hear that. Worrwick closed the file and laced his fingers together to sit atop it. He heaved a 
+
+“Isaac has been missing for at least four and a half weeks. Dead likely half that time. So, I don’t think he did this. I’m actually certain, as he’d lack the capacity.”  
+
+“What? If he’s missing… then how do you know he’s dead?” I could hardly get the question out. The weight of his words, the situation– they started to feel very, very heavy. 
+
+“We found him. We found many things, actually.” He opened the file again. “Now, you've been in the apartment for about two weeks, correct?”
+
+I nodded. 
+
+“And during that time, you were having sleep disturbances?”
+
+I nodded again. 
+
+“During those sleep disturbances, do you have any reason to believe you were spending any time behind the fridge?”
+
+My brows scrunched. “Behind… the fridge? What… what do you mean?”
+
+He looked at me for a long minute. He blinked a few times before he dug in the back of the file.   
+He slid a photo across the table. 
+
+Suffice to say, they'd found something–in a space behind the fridge. What explained what was happening in the kitchen much better than any ‘sleep disturbance’ could.
+
+Nothing could prepare me from what I’d seen. I genuinely can’t comprehend that anyone would suspect *me* of the depravity I’d beheld in the picture. 
+
+At first, I could hardly make out the odd shaped little room. There were no lights, save for the flash on the image. Carnage was all that was illuminated. Blood and viscera covered the floor. Amidst the mess were body parts and various containers. Something like a dog bed perched in the far corner. 
+
+Atop it, in pristine condition— a plate. When I looked closer I found it was mine. I don’t need to tell you what three items sat next to it. 
+
+I threw up. Worrwick didn’t move to offer me water. 
+
+“What? You think I did this!?” 
+
+“Of course not.” While he said it he only eyed me carefullly. 
+
+“Then who did!?” It was hard to maintain any composure. Not after what I’d just seen. 
+
+“Thank you for your time. Enjoy the rest of your day.” 
+
+The arrogant bastard. 
+
+Victor filled James in, and he’d flown up. He’ll be here soon. 
+
+Maybe this was just a bad dream. Maybe I’ll wake up to James gently guiding me back to bed. I guess I’ll know for sure when I wake up. 
