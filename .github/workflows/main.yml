@@ -31,6 +31,7 @@ jobs:
         run: |
           sudo apt-get install pandoc
           bash util/gen_ebooks.sh
+          bash util/gen_txt.sh
 
       - name: Push
         run: |

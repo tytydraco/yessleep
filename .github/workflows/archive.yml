@@ -29,10 +29,15 @@ jobs:
       - name: Zip ebooks
         run: cd out_ebooks && zip -r9 "../archive-ebooks-${{ steps.date.outputs.date }}.zip" .
 
+      - name: Zip txt
+        run: cd out_txt && zip -r9 "../archive-txt-${{ steps.date.outputs.date }}.zip" .
+
       - name: Upload ebooks
         uses: marvinpinto/action-automatic-releases@latest
         with:
           repo_token: ${{ secrets.GITHUB_TOKEN }}
           automatic_release_tag: archive-ebooks-${{ steps.date.outputs.date }}
           prerelease: false
-          files: archive-ebooks-${{ steps.date.outputs.date }}.zip
+          files: |
+            archive-ebooks-${{ steps.date.outputs.date }}.zip
+            archive-txt-${{ steps.date.outputs.date }}.zip
