@@ -2,6 +2,8 @@ Part 1: https://www.reddit.com/r/nosleep/s/QrXenEG652
 
 Part 2: https://www.reddit.com/r/nosleep/s/cvZoEjbiz5
 
+Part 4: https://www.reddit.com/r/nosleep/s/tBy9qMRngk
+
 It's 4:38 in the morning.
 
 I haven't slept.

@@ -2,6 +2,8 @@ Part 1: https://www.reddit.com/r/nosleep/s/oM7snDTpgW
 
 Part 3: https://www.reddit.com/r/nosleep/s/ifitLTpUUu
 
+Part 4: https://www.reddit.com/r/nosleep/s/tBy9qMRngk
+
 My grandfather died two years ago.
 
 For most people, that would have been the end of a story.

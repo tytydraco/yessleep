@@ -3,6 +3,8 @@ https://www.reddit.com/r/nosleep/s/XNAzAhrJju
 
 Part 3: https://www.reddit.com/r/nosleep/s/ifitLTpUUu
 
+Part 4: https://www.reddit.com/r/nosleep/s/tBy9qMRngk
+
 I grew up believing there were things in the woods that weren't supposed to exist.
 
 Most kids are taught to fear bears.
