@@ -277,5 +277,5 @@ The being had a point.
 
 *They are but urns; their contents are what I desire.*
 
-I opened my mouth to say something, but nothing came out. I shouldn’t have entertained the thoughts; I can admit that now. But all I could think about was Nora: the way she smiled, the way her hair curled down her shoulders, and the excitement in her voice when she had spoken about Caleb. She had never once looked at me the way I’d always looked at her. And somewhere, beneath all the hurt, a terrible thought took root. Maybe she was worth this.
+I opened my mouth to say something, but nothing came out. I shouldn’t have entertained the thoughts; I can admit that now. But all I could think about was Nora: the way she smiled, the way her hair curled down her shoulders, and the excitement in her voice when she had spoken about Joshua. She had never once looked at me the way I’d always looked at her. And somewhere, beneath all the hurt, a terrible thought took root. Maybe she was worth this.
 
