@@ -1,0 +1,271 @@
+\[Descriptor warning -- GRAPHIC VIOLENCE is depicted in this story. \]
+
+
+
+I’m not one to bicker about the past. There’s no currency in it. What has already happened is something that even modern physics debates about. Whether past events exist somewhere out there after the lens of human existence has seen it. Nevermind why the Arrow of Time is pushing us in the “forward direction.” Too many imponderables. No certainty. That’s why I don’t bicker about it.
+
+
+
+My reverie is broken as the President walks in. She looks as energetic and spritely as a 36 year old should. She is looking at me inquisitively given the unplanned nature of this meeting. As her Chief of Staff, I’ve never asked for an unplanned meeting at the beginning of the day. It makes the meeting look...planned. So why not just plan it?
+
+
+
+“What’s all the hubbub, bub?” She has a radiant smile on her face which is normally reserved for crazy questions from the press. So she’s annoyed slightly.
+
+
+
+Without preamble, I begin, “Noelle, it’s coming to an end.”
+
+
+
+The President raises her perfectly trimmed eyebrows in alarm. She’s never heard me address her by her first name in the Oval. The other news is not entirely unexpected.
+
+
+
+“When?” she asks in a whisper.
+
+
+
+Not ‘how’ or ‘why.’
+
+
+
+“When you converge back onto what we could call ‘normal.’”
+
+
+
+Noelle looks upward at the ceiling of the room. Her eyes trace the bracketed cornice that encircles it shedding a soft white hue that avoids the manifestation of anything as primitive as a light bulb in the room. How many Presidents have looked up there hoping to find an answer hidden in the hidden illumination? There are no answers in that circular light, however.
+
+
+
+She takes in a breath and sighs deeply.
+
+
+
+“Will we know it’s happening?” she asks.
+
+
+
+“You might. I’m not sure how the rest of us will fare.”
+
+
+
+I have no way of knowing if other humans on the Earth have ever faced a decision like this. Someone must have, Noelle can’t be the first one. For that matter were there people around past decision makers who help or hindered the decision? How should I be thinking about this?
+
+
+
+I’ve always believed in my heart of hearts that timelines are features of the cosmos. They must be. All of the forks in the road must reside on an unknowably huge canvas out there. Every decision, every consequence. That I can’t imagine the scale is no more important than how an ant cannot imagine orbital mechanics. I then realize I am pondering the imponderable.
+
+
+
+Noelle and I are both wondering. Casting our glances about in an office where focus and attention has been practiced resolutely for decades. Our eyes meet.
+
+
+
+“I’ve always wondered,” she begins. “When did this start? When I met you? When I was born? When you were born?”
+
+
+
+“I have a sense of that but nothing that makes it definite,” I say.
+
+
+
+“What was happening?” she intones breathlessly.
+
+
+
+
+
+It was raining in the Belgorod direction. As it normally did in the spring. But the mud was what was on my mind. I had just gotten into the trench with my XO and we already had a thin coating of the light brown glaze from nearly head to toe.
+
+
+
+The water and dirt had combined to become a living thing that could fight gravity and summit our helmets. Never mind the smell of it mixed with essence of rotting viscera and poop from the long dead in fields and treelines all around this trench network.
+
+
+
+“Ready for this lady?”
+
+
+
+I said this to Colonel Tolara Szaliech, my right hand in the Ukraine campaign.
+
+For all of this time she had been unfailingly loyal. When the world doubted Themiscyra’s presence and the difference it could make in this bullied-by-Russia and abandoned-by-America nation, she had stood in her duty.
+
+
+
+She now looked at me with both confidence in this strategy and doubt about this first time execution of a vision which was so wild it could only be a work of fiction. But here we were, at the head of a platoon of mercenaries about to prove the world wrong.
+
+
+
+I looked towards the west and saw a cloud of drones approach. Each was a bomber, carrying four munitions. But the explosives were not designed to kill or maim. Rather they were designed to emit a highly tuned EM pulse at their detonation. The pulse designed to do only one thing.
+
+
+
+“Platoon. Report ready!” I yelled this looking over my soldiers in the Russian trench that we had acquired the day before forcing the payment of young (and old) Russian lives. Some of that coin still lay rotting in this trough of death with us.
+
+
+
+The squad leaders came back with their replies crisply and with confidence. A confidence that I myself did not feel. I felt for my weapons with both hands for reassurance that they had not disappeared and this had not been some weeks long fantasy of my tech ingrained brain.
+
+
+
+I listened for the sounds that would motivate this platoon to storm the adjacent trench. It was only sparsely defended by the Russian meat at this point. The country of Catherine the Great was now reinforcing positions without radio communication, without regular resupply and only adding troops to the position in ones or twos.
+
+
+
+*How are the mighty fallen.*
+
+
+
+Birdsong was beginning to resume after the drones had passed and the cool, dense morning air afforded the feathered creature’s spirited flights for their essential errands. I enjoyed the occasional fluttering while I waited with my eyes closed.
+
+
+
+The sounds that then came were unmistakable. The muted thuds of the grenades dropped by the drones started and within the staccato of dozens of these I heard the higher pitched reports of another, different kind. Smaller, sharper percussions which sounded like firecrackers during the Fourth of July.
+
+
+
+Both noises building to a crescendo until they tailed down to silence. The birds, who had abruptly shut down their small ensembles, stayed quiet.
+
+
+
+“Platoon. Advance!” was my practiced declaration.
+
+
+
+As an army of the willing, the several dozen of my troops climbed from their trenches and rapidly advanced towards the enemy positions in a crouched run. The murderously difficult sprint made only slightly easier by our lack of firearms and ammunition.
+
+
+
+Colonel Szaliech and I were the first to drop down in the opposing trench line. I raised myself to stand fully upright and then walked in the direction where there was more trash and detritus. That’s where the Russians would be.
+
+
+
+The cold mud at the bottom of this miserable hollow gave rise to the splashing footsteps of my combat boots. The noise could not fail to be heard by anyone down here.
+
+
+
+As I made another turn in the zigzag of the trench I finally saw a Russian soldier. A older man of the same height as me but much more haggard. He looked as if he had not eaten recently and he was trying in a panic to fix something on his AK-12. I marveled at how even this far out in their trench network, the Russians sometimes managed to get modern weapons down here.
+
+
+
+The Russian started to back away slowly, raising his weapon which bore the scorch marks that I had seen in training. I advanced faster on the hapless soldier. The Russian raised his weapon and sighted me. With only a little hesitation he pulled the trigger.
+
+
+
+And only a small “click” sounded in the trench.
+
+
+
+The Russian’s face contorted into distress and he uselessly slapped the rifle while peering desperately at my advance. His eyes flitted towards the Colonel behind me before settling on my weapons that he had only seen in museums.
+
+
+
+I drew them slowly. My right arm drew the short sword cross-wise from my left hip and my left hand snapped another sword downward and free from the scabbard on my chest.
+
+
+
+The two polished Roman short swords gleamed in the early morning light. Then I went about the business of war.
+
+
+
+With a decidedly stereotypical yell of battle I rushed towards the Russian who was now looking up in utter despair, his eyes wide from the sight of a solder who was wielding weapons that looked far more vicious than the rifles of modern combat.
+
+
+
+The Russian fell backwards into the slop of the trench and I fell upon him in a grotesquely intimate embrace. Screaming something in Russian, the older man held up his hands in supplication.
+
+
+
+I stabbed down through his right hand, the blade penetrating it then going through the Russian’s supposed body armor and impaling his appendage to his chest. A foot of steel now within his body. I realized that this leading attack on his hapless defense now immobilized my weapon.
+
+
+
+It was a good thing I had another one.
+
+
+
+I brought the sword in my left hand to bear and stabbed as Roman Centurions had done in ages past. Perhaps on this very soil. Crouching over my prey, I thrust the sword “up” and cleanly into the underside of the poor man’s chin. I pushed as hard as I could and saw the silver blade of the weapon peek briefly through the teeth of the Russian before it penetrated the man’s hard palate.
+
+
+
+A fountain of blood gushed from the man’s mouth and I gazed into the Russian’s eyes as obscenely as Barabas must have done in ages past. Terror and despair still dominated the dying Slav’s sharp features but a far off, distant sight started to change his expression. I saw the sight dominate this mere pawn’s attention until his head stopped moving. A throaty groan escaped his still intact windpipe and then everything about him became still.
+
+
+
+The colonel behind me grabbed the back of my dragon scale body armor and helped me back to upright. The swords came out easily on the way up.
+
+
+
+“You killed him good, sir.” said the Colonel plainly.
+
+
+
+“Yeah.” was my verbose reply.
+
+
+
+I realized then there was a cacophony of human sounds all around. The screams of my soldiers sounding like marauding banshees, the yells of terror of the Russians on the receiving end of Damascus and Roman steel with the occasional, useless clanking of metal upon metal.
+
+
+
+Looking around for another Russian to defeat, I saw none, while listening to the noise of combat tail back down to the morning stillness.
+
+
+
+I waited.
+
+
+
+When he hadn’t heard anything for five seconds I broke the silence.
+
+
+
+I had been thinking for long months what I would say at this moment. If my insane idea had not only won me a bloody victory but had let me keep my life.
+
+
+
+Making one swipe over my bloody face to clear it I yelled my triumph, “Vincimus!”
+
+I sustained the yell far longer than was comfortable but the adrenalin and my own estimation of the future gave me atomic fuel to overcome any pain.
+
+
+
+The howling chorus came back, “Facemius!”
+
+The hard ‘k’ of the word and the accompanying hoots and hollers told me the Universe was with me.
+
+
+
+
+
+
+
+Noelle sits back. She closes her eyes. She’s thinking.
+
+Something tells me now I should leave her alone.
+
+
+
+I was perfectly comfortable in failing to offer any insight, any solution. *She* is the President. I am merely mortal. Let her make the truly hard decisions.
+
+
+
+My mind wandered to the 2024 election and the nearly two years the world had to endure until the midterms. The answer to the tumult of Trump’s truncated second term warmed the cockles of my black heart. Now, ten years later I peered back into that rayless void just to test if there was more.
+
+
+
+There was.
+
+
+
+As had always been the case, Noelle, had been an unvarying companion in the direction and depth of the ideas that spawned from that onyx moor.
+
+
+
+Suddenly, her eyes flared open with both insight and resolve.
+
+
+
+“So if that’s the beginning, let’s begin it again.”
