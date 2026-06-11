@@ -1,0 +1,87 @@
+For the past few weeks, every day without fail, I've had a song stuck in my head. It's not always the full song, sometimes it's just the melody of a certain part or a line that I like the sound of. This isn't something new to me- I've been doing this since I was a kid- but never to this level. It feels like I'm constantly saying something under my breath and it's even starting to weird out my roommate.
+
+We were sat on the couch watching TV when I could see her stewing over something in my peripheral. I opened my mouth to say something but she beat me to it.
+
+"We need to talk about this repeating thing you've been doing. It's like you're having a conversation with yourself all the time- it's creepy." Amara said with a grimace. She reached over me to the bag of chips on the table and popped a few in her mouth.
+
+"I really wish I could stop! It's like- like automatic, I guess?"
+
+Amara tilted her head at me in confusion.
+
+I sighed harshly, fully turning myself to face her. "It's really hard to explain. It's not something I'm doing voluntarily, it just kind of happens, like breathing or blinking."
+
+Even when I stopped talking, I could feel my lips beginning to form the words I'd been saying on repeat all day-
+
+"Rip me apart."
+
+It's a line from a stupid song in a game I'd been playing recently, but my brain decided it was perfectly fine to say 'rip me apart' over and over again under my breath. Totally normal.
+
+"Even so," She paused to swallow her food. *ripmeapartripmeapartripmeapartripmeapart* came softly out of my mouth. I slapped a hand over my mouth but I could still feel my lips forming the words against my palm.
+
+She furrowed her brow and continued talking. "EVEN SO. I think if this keeps going on the way that it clearly is, you should go to the doctor. I'm starting to worry about you."
+
+We talked like that for a little while longer before we settled into a comfortable silence. I tried, I really tried to keep my mouth shut but it's like the muscles in my jaw had a mind of their own. *ripmeapartripripripripmeapartripmeapart.* My face stretched as I over-enunciated each syllable. Amara's eye twitched.
+
+I stood up with so much force it almost made Amara fall off the couch in tow.
+
+"I'm really, really sorry, I know you might not believe me but I really really can't stop doing it- I wish I could stop!"
+
+Whilst saying this, I could feel the phrase infesting my head. It squirmed from ear to ear before settling into to dull headache at the base of my neck. Clutching my neck in pain, I darted out of the living room and slammed my bedroom door behind me. My eyes were drawn to my wide open blinds, afternoon sunlight filtering through and casting my room in a warm glow. What should have soothed me normally made me recoil in pain, wincing hard enough that the image of my blinds and my bed turned into misshapen blobs in my watery vision.
+
+I closed the blinds hastily. The sunlight radiating against my skull amplified the pain so badly I couldn't see. I don't remember much from this night, but I remember tossing and turning through the night, my attempts to sleep constantly narrated by a murmured
+
+*ripmeapartripmeapartripmeapart*
+
+I woke up slowly, moving at a glacial pace. The coolness of the pillow against my feverish skin was a small relief that temporarily soothed my aching skull. Rolling over to face my window, I was met with a dull, throbbing pain that ended sharply in my ear canal. The pain made me wince- the light streaming through my curtains seemed to amplify the pain every time I opened my eyes fully. Trying to sit up just made it worse- the pain went from a dull throb to an ice pick hacking at the base of my neck. I shrieked in pain and fell unceremoniously to the floor in a crumpled heap. There was thudding on the floor that grew louder as my roommate rushed towards my room and pounded on my door.
+
+"ARE YOU OK IN THERE?! I heard you scream and then there was a massive bang and I was so worried- can I come in?"
+
+All I could muster was a feeble yelp as the pain pressing against the base of my neck got more and more intense, like my eardrums were about to burst from the overwhelming pressure in my head. *ripmeapartripmeapartripmeapart*. A hoarse scream shuddered from a thousand voices howling in every corner of my brain. It felt like my head was about to rip in two. I writhed around on the floor in pain, eyes squeezed shut and lips forming the phrase ceaselessly.
+
+I couldn't tell if I was yelling or whispering due to the racket in my head. All of a sudden, the pain shot from the base of my neck and curled over my right ear like an electric current. It was too much- Amara said she saw my eyes roll back into my head and I passed out not much later.
+
+She said she could still see me weakly murmuring the phrase whilst I was passed out.
+
+I was in and out of consciousness for the next few days. Whenever I would come to, my voice would come out as nothing more than a gravelly murmur. I wouldn't stay awake for long as the obsessive thoughts repeating the phrase took over, a feverish prayer that infested every corner of my brain; making everything simultaneously too loud and too quiet.
+
+I woke myself up in the end with my own sobs. Despite sleeping for days there was an exhaustion that settled deep in my bones, clinging onto every muscle and sinew like a tumor. My voice wasn't even coming out any more, my throat like sandpaper; my face twitched in exhaustion as I repeated it over and over and over again.
+
+*ripmeapartripmeapartripmeapar-*
+
+There was a rustling against the pillow that took me out of my exhausted trance. A hushed wriggling that felt like I was digging a Q-tip too deep into my ear. I tried to ignore it and shut my eyes harshly. The rustling got louder and louder before I swore I felt something brush softly against my tragus. A cold sweat raced down my back. Ignoring the imminent migraine that shot a warning flare against the side of my head, I shot up out of bed and shuffled unevenly towards my bathroom, slamming my side into the sink in the process. I gulped down air, turning the light on and shoving the side of my head close to the mirror.
+
+At first I couldn't see anything. Of course, it was just my imagination, I haven't been sleeping properly and I know that I spiral super easily-
+
+There was something, faintly moving on the inside of my ear.
+
+What looked like a fingertip moved in small circles in the deepest part of my ear. With shaking hands, I grappled with my phone and turned to torch on for a better look. Something murky red and brown covered my inner ear top to bottom, with something long and thin moving slowly.
+
+I let out a broken scream that led to Amara rushing into my room. I tried to tell her something was in there but all that came out was *ripmeapartripmeapart.* My hands flew shakily around my mouth, eyes widening in fear and helplessness as a jabbed a finger as hard as I could into my ear. Pain exploded into my inner ear and I let out a groan, my knuckles going white against the sink.
+
+Amara looked at me with a helpless expression.
+
+"Oh my god, I knew something was up- do you need to throw up? I don't know what's wrong with you? Tell me, please, you're scaring me!"
+
+I just leaned further over the sink and cried pathetically, now howling the words *RIP ME APART* over and over and lifting a shaky finger to point to my ear. Amara brushed my sweaty hair behind my ear and used her phone torch to look even closer.
+
+She shrieked and backed away.
+
+"WHAT THE FUCK IS THAT!? THERE'S SOMETHING IN THERE?"
+
+"R-RRI-YOu ne-ed R-R-IP M...Mmto g-g-get iiiiit O-AP..PPART..TT...OUT!"
+
+She turned, shellshocked, and shoved open one of my sink drawers and grabbed a pair of tweezers.
+
+"Grab on to the sink and DO NOT let go."
+
+She steadied herself and planted a hand on the side of my skull. New tears rolled down my cheeks as Amara started to try to grab whatever was in my ear. I yelped and screamed and cried in pain but that didn't shake her. In my peripheral I could see her crane her neck over me and frown deeply- the tweezers scratching into my ear canal and I cried and cried and cried.
+
+After a while of her rooting through, I felt the tweezers graze something plugged into my ear. I felt a pain so immense that it shot down my spinal cord and rebounded back up to the centre of my skull- it was like she'd grazed a nerve ending. The wriggling intensified as whatever was in there tried to shrink back away from the tweezers but Amara locked on. 
+
+She braced herself and started to drag the tweezers back out of my ear. My ear completely blocked as something sharp and damp came screaming out of my ear. It felt like something was pulling the muscles in my face taught, making my eye twitch and the muscles in my neck contract. It dragged deep gashes into my ear canal with every inch it limped out of my skull. It felt like forever- every agonising second sending new waves of throbbing pain through my head and neck. After a while it finally ended; something warm and wet poured out of my nose and ear. I touched a finger to my ear and saw blood.
+
+Amara screamed again and held what looked like a tapeworm with rows and rows of needle-sharp teeth covering its skin fully. It writhed, covered in blood and mucus, rolling in on itself repeatedly looking for something to latch on to. Amara held it as far away from her as possible and her face was ashen gray. All we could do was look at each other and heave in deep breaths.
+
+My head lolled to the side. Covered in blood, and vomit, and tears, I could feel my lips start to form those familiar words.
+
+*ripmeapartripmeapartripmeapart*

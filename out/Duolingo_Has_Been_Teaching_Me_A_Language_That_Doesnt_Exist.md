@@ -150,7 +150,7 @@ He said that wasn’t Māori.
 
 Not even close.
 
-Lamia looked embarrassed. I tried to explain that maybe I was learning a dialect. He stopped laughing then, but only enough to shake his head and say*, “No. That is not a dialect.”*
+Lamia looked embarrassed. I tried to explain that maybe I was learning a dialect. He stopped laughing then, but only enough to shake his head and say, “*No. That is not a dialect*.”
 
 I tried saying another phrase. Then another. Then another. And by the time I exited her house, Lamia’s entire family was laughing.
 

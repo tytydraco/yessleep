@@ -1,0 +1,51 @@
+I have been working as a freelance drone surveyor for about five years
+now. Mostly it is boring stuff like mapping out timber plots or checking
+for illegal logging in the deep woods of the Pacific Northwest. I use a
+high end industrial quad with a thermal sensor and a 4K gimbal. Last
+Tuesday I was hired by a private firm to map a valley that hasn’t been
+surveyed since the late nineties. According to the GIS data and the
+latest satellite imagery from Google Earth there is absolutely nothing
+in that specific sector except for dense pines and some rock
+outcroppings. No roads and no structures for at least thirty miles.
+
+I was about forty minutes into the flight when I saw a glint of sunlight
+reflecting off something in a clearing. I checked the monitor and saw a
+small cabin tucked right against the ridge. It looked too clean to be a
+ruin. The wood was dark and the windows were spotless which made no
+sense given the location. I pulled up the map overlay on my tablet and
+it still showed a solid green patch of forest right where the house was
+standing. I figured it might be some off-grid survivalist setup that was
+built recently but evrything about the architecture looked fifty years
+old. I decided to bring the drone down to about twenty feet to get some
+high res footage for the report.
+
+As I hovered near the porch I noticed the front window was huge - like a
+picture window you would see in a modern suburban house. I tilted the
+gimbal down and looked inside. There was a desk with a laptop and a
+bunch of monitor equipment. A guy was sitting there with his back to the
+window. He was wearing an orange hoodie with a specific logo on the
+back - a logo for a drone racing club I used to belong to three years
+ago. I stopped breathing for a second because I was wearing that exact
+same hoodie right then. I moved the drone closer until the lens was
+almost touching the glass.
+
+The guy in the window slowly turned around. He was holding a DJI
+controller in his hands. On my screen I saw my own face looking back at
+the camera through the window. It was not a reflection. The lighting
+inside the cabin was different and the “me” in the room looked
+exhausted. I watched myself on the screen as I looked up at the drone
+and then I felt this sudden jolt of vertigo. I looked up from my
+controller in the real world and for a split second I saw a white
+quadcopter hovering right in front of my face in my living room. Then
+the feed on my tablet just turned to static and the drone lost GPS lock.
+
+I hit the Return to Home button but the signal was completely dead. I
+hiked out to the clearing where the house was supposed to be but there
+was nothing there. Just some old rotted stumps and a few pine needles. I
+checked the flight logs when I got back to the truck and the GPS
+coordinates for the cabin are pointing to a spot that doesn’t exist on
+any coordinate system I know. It is like the data just corrupted itself
+the second I saw my own eyes. I am still sitting in my truck and I can
+hear a low buzzing sound coming from the roof of the cab.
+
+I relly do not want to get out and check what it is .

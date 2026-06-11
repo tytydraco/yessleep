@@ -1,0 +1,163 @@
+CHAPTER 1
+
+LOG ENTRY: DAY 214
+
+Some context, because context matters here.
+
+I am six thousand, eight hundred feet underground. That number sounds
+less impressive than it is until you do what I do every morning, which
+is stand at the pressure window of my living module and stare into the
+heavy water tank and think about how much rock is above me. Two
+kilometers of Precambrian Canadian Shield, nickel-laced and ancient,
+sitting on my head like a geological opinion. On the surface, directly
+overhead, there is a Tim Hortons. I know this because when I signed the
+rotation contract, I asked my supervisor what was above the site and she
+said, without pausing, a Tim Hortons and a drainage ditch. I am not sure
+why I found this comforting, but I did.
+
+The lab is called the Deep-Ice Decoherence Project. DIDP. My supervisor
+pronounces it “did-p” which I find unprofessional but have never said
+out loud. I live and work in a pressurized cylinder roughly the size of
+a generous mobile home, sitting at the centre of an acrylic vessel
+containing ten thousand tons of ultra-pure heavy water. The heavy water
+is the point. It shields my sensors from cosmic background radiation so
+I can measure proton decay at a resolution that would make most
+physicists weep, and not in the good way. Month seven of a twelve-month
+solitary rotation. The original plan was that this would be good for my
+career.
+
+The original plan was formed before my breakup with Sarah, so the career
+justification was also, let’s say, doing some extra work.
+
+Every morning at 0600 the comm terminal connects to the surface through
+a fiber-optic cable and pulls down a compressed text packet. News,
+weather, Wikipedia updates. Takes about four minutes and sounds like a
+dial-up modem trying to recite a grocery list. I hate it every single
+time. This morning I was watching Forrest Gump while it downloaded
+because I have seen Forrest Gump approximately thirty times and it
+requires exactly zero percent of my attention, which is what I have
+available at 0600.
+
+The bench scene. You know the one.
+
+Tom Hanks, box of chocolates, the nurse with the sensible shoes.
+
+“My mama always said, life is like a box of chocolates. You never know
+what you’re gonna get.”
+
+I paused it. I wanted to look up what year it won Best Picture because I
+couldn’t remember and it was bothering me the way things bother you when
+you’ve been underground for seven months and your brain has started
+eating itself for stimulation. I spun my chair to the work terminal and
+opened the freshly downloaded data packet and queried the Wikipedia
+scrape.
+
+Under the Legacy section, the article read: The film is famous for its
+iconic quote, “Life was like a box of chocolates.”
+
+Was.
+
+I stared at this. I assumed vandalism. Some kid on the surface had
+gotten into the Wikipedia article right before my scraper ran, changed
+one verb, felt satisfied, moved on. This happens. The internet is
+enormous and much of it is bored.
+
+But I checked the IMDb scrape. Same thing. Life was like a box of
+chocolates. I checked three archived Reddit threads from the pop culture
+dump. People arguing about it. Half of them insisting they remembered
+“is,” the other half explaining patiently that it had always been “was”
+and the “is” crowd were simply misremembering. Someone had given this
+phenomenon a name. The Mandela Effect. Large groups of people sharing
+the same false memory, named after the widespread belief that Nelson
+Mandela had died in prison in the 1980s when he had in fact lived until
+2013.
+
+I rolled my eyes. Mass confabulation. The human brain is a famously
+unreliable hard drive. I had a paper on this somewhere.
+
+But I was also bored, and this was the most interesting thing that had
+happened since I accidentally watched six consecutive episodes of That
+’70s Show and lost an entire Tuesday. So I decided to check. Properly.
+
+I wrote a Python script to isolate the exact audio clip from both files.
+My offline copy of the movie, air-gapped, sitting in a hard drive that
+had not communicated with anything for two hundred and fourteen days.
+The surface packet version. If Tom Hanks had just swallowed an “s” and
+people were mishearing it, the acoustic waveforms would match. Same
+input, same output.
+
+I ran a Fast Fourier Transform on both clips.
+
+The graphs were not the same.
+
+A short “i” sound and a “w” sound have completely different acoustic
+signatures. The phoneme structure of “is” produces a spike in the 2000
+to 3000 Hz range. “Was” has a low-frequency profile, heavier below 500
+Hz. My offline copy showed the spike. The surface file showed the
+low-frequency profile. These were not two recordings of the same word
+pronounced slightly differently. They were two different words.
+
+I pushed back from the terminal.
+
+Okay. So someone had gone to the considerable effort of digitally
+re-editing every copy of a thirty-year-old movie, altering every
+subtitle file, updating every text reference across the entire internet,
+all to change one verb in one sentence. The physical DVD copies sitting
+in people’s homes had presumably also been updated. Retroactively.
+Without anyone noticing.
+
+Or.
+
+I swiveled to the primary console. DIDP runs continuous monitoring on
+the fine-structure constant. Alpha. The dimensionless number governing
+electromagnetic interaction between elementary particles, the bedrock of
+basically all physics. It should read 1/137.035999. It had read
+1/137.035999 every single day for two hundred and fourteen days.
+
+It read 1/137.035998.
+
+I looked at that number for a long time.
+
+The fine-structure constant does not change. It is not the sort of thing
+that wakes up on a Tuesday and decides to be slightly different. It is
+woven into the structure of matter itself. If it changes, everything
+changes, including the specific electrochemical cascades in a
+screenwriter’s brain that produce language, which means in a universe
+with a slightly different fine-structure constant, that screenwriter
+sits down in 1994 and types “was” instead of “is” because that is simply
+the word his slightly different neurons produce.
+
+My offline hard drive had been down here for two hundred and fourteen
+days. No network connection, no surface contact, nothing. A perfect
+snapshot of the universe as it was on the day I carried it underground.
+
+The universe had updated. My hard drive hadn’t. I hadn’t.
+
+Because of the heavy water and the Two kilometers of rock, I was sitting
+inside a quantum-shielded bubble that the reality update wave couldn’t
+penetrate. Every human being on the surface had been quietly rewritten.
+I had not.
+
+A red warning light came on.
+
+WARNING: VESSEL PRESSURE ANOMALY.
+
+The outer edges of the heavy water tank were showing thermal
+fluctuations. The new timeline was pressing against the old one and the
+friction was boiling the shielding. My sensors told me the reality
+boundary was eating through at roughly 4.2 centimetres per hour.
+
+I did the math. Ninety-four hours before it reached the pressurized
+cylinder I lived in. Ninety-four hours before whatever version of me
+belonged to the new timeline replaced this one.
+
+I looked at my empty mug. I had been drinking the same brand of instant
+coffee for seven months. It tasted like someone had described coffee to
+a chemist who had never smelled coffee. I had genuinely never enjoyed a
+single cup.
+
+I went and made another one anyway, because it was that or start
+screaming, and the ventilation system in here was not rated for
+screaming.
+
+Tabarnak…
