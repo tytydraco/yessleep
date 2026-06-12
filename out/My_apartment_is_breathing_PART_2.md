@@ -49,3 +49,5 @@ As I write this, the breathing has started again. It’s behind my headboard thi
 If it doesn’t stop, I might just take a hammer to the walls myself. 
 
 See what I find.
+
+[Part 3.](https://www.reddit.com/r/nosleep/comments/1u44y2l/my_apartment_is_breathing_part_3/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
