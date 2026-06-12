@@ -1,0 +1,21 @@
+\*Restored tape available on my profile.\*
+
+Some backstory: I was exploring a long-abandoned, highly-classified "nuclear aircraft" experimentation facility in the wilds of Dawsonville, GA, USA (called AFP No. 67), in late 2025.
+
+There were often reports of strange sounds and lights by local residents while it was active, and animals akin to unrecognizable species were reported by land surveyors thereafter (though no photos exist), chocked up by the Federal Government to residual radioactive particles missed in the cleanup. According to my prior research, this facility carries potentially hazardous levels of radiation at lower levels, but is fully within safe levels in+around the reactor, which doesn't explain how mutated rats made it to the surface for land surveyors to find. But I was planning to explore the whole shebang, so I went in a hazmat suit with a high degree of radioprotectivity, armed with a geiger counter that detects gamma particles.
+
+\--The Layout
+
+Couldn't find this information available anywhere else, and I may very well be exposing Classified Information by sharing this. Anyways, got into the gap under the behemoth, cubic Reaction Chamber through a part of the wall that had crumbled into an opening. You can find various photos of this online. This subterranian gap was actually a room; the head of at least 10 identical chambers vertically adjacent to each other, linked by ladders and heavy rusted trapdoors. The bottom room branches off into these impossibly long, warehouse-size hallways. with arched ceilings. Abandoned jeeps and cargo vehicles litter two of these corridors, which are collapsed at the end; one about 0.5km beyond the Room, the other at least 2km. No life to be seen by the way, besides
+
+The other two descend on inclines; the first floods immediately with murky, frothy stillwater, while the second fills up about 500m deep. In contrast with the former, water that inhabits the latter is crystal-clear, as if some sort of plankton is filtering it perhaps. It laps the floor it brushes with rhythmic turgidity. Because of the clarity, I'm able to see exquisitely far down the decline. It goes on endlessly, but the most curious element? This magenta light pulsating as the corridor extends, following the BPM of the waves' crowns with a slight delay.
+
+\--The Tape
+
+Anyways, I caught sight of this near-terminal waterlogged VHS tape bobbing along the accelerating waves, approaching the concrete shore until the tape found a steady place on its face. Masterfully engraved in the label spot: "Entity Encounter 001 // Dawsonville GA // 7.30.80 // 'Schizospatial' Orva.Texcu Physicalization." 
+
+The geiger counter was clicking so fast at this point it began to produce a harmonic tone. My phone camera wasn't working and I didn't want cancer, so I dipped out of that zone immediately after acquiring the tape within 45sec. 
+
+The video+audio segment available on my profile is footage from that tape; restored over the course of months, with numerous video production softwares, patching and rearranging frame-by-frame, and using machine-learning algorithms to enhance clarity & definition. I don't know what the fuck that was down there.... but I think a fragment of it's on this tape. 
+
+Unfortunately most of it's is just black and white flashing screens, but the tape on my profile is as much as I could salvage. 
