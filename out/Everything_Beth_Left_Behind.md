@@ -1,0 +1,291 @@
+Priya snores. Not loud. Just this little buzz, like a tiny motor running behind her front teeth. I used to lie there at 2 am listening to it, thinking I could die happy in that moment, just like that. I'm saying that first because I want you to know what I had before any of this started.
+
+We'd been together eight months. Her hoodies lived in my drawers, and my chargers lived in hers. Her roommate, Casey, stopped doing the knock-and-wait thing on weeknights because she knew I'd be there, curled up next to Priya with a textbook I wasn't reading.
+
+That Friday, Casey was gone for the weekend, visiting her sister. Room 14B was all ours, all of its subtle charms included. The radiator clanked like an old man clearing his throat, while the hazy glow of the string lights we put up together in September washed over us. We both stood on her bed laughing about nothing while I held the lights and she stapled them up. Mundane, maybe, but it… and she… felt like home to me.
+
+We put on some corny romcom around ten. Don't even remember the name of it. At some point, I kissed her. Just a quick one. She smiled into it without opening her eyes, already half asleep, and by the time the movie came to a point where nothing was really happening, when people are usually engrossed in a full-on makeout session, she was out cold against my shoulder. I could hear that little buzz starting up next to my ear, filling my chest with a warmth and involuntarily stretching my lips into the widest smile I could muster.
+
+I didn't move. My arm had gone completely numb, but I didn't care. I just watched the ceiling fan and thought about how lucky I was to have her.
+
+Then my bladder won, because it always does.
+
+I eased out from under her, propped a pillow where my shoulder had been, and pulled on her gray hoodie. The smell stopped me in my tracks. It smelt like her shampoo, the lavender one, that I’d started buying for myself too. I inhaled deeply, letting the sweet, sultry scent curl its way through my nostrils as I went out into the hall in my socks.
+
+The hallway lights at night never fully turn off. They dim to this weird half-power mode that hums at a pitch I can feel in my teeth if I think about it too long. I try not to. I learned that freshman year. You focus on the hum, you're up till 4 am.
+
+The bathroom is eight feet from our door, right across from 14C. That room had been vacant for two weeks. A girl named Beth used to live there. I didn't really know her. We were just hallway-familiar, the kind of person you nod at in the dining hall when you see them. She left kind of suddenly. Nobody thought much of it. People transfer. It is what it is. I certainly wasn’t thinking about it in that moment. My bladder wasn’t going to allow that.
+
+I pushed the bathroom door open and stopped.
+
+Under 14C's door, where the hallway light should run in a straight line, there was a shape. It looked like two feet, close together, right up against the inside of the door.
+
+Someone left a light on, I thought, pushing it to the back of my mind almost immediately.
+
+The realization came back, hitting me like a brick to the face.
+
+Beth’s gone. That room's been empty for two weeks.
+
+I just stood there with my hand on the door frame, looking at it. It didn't move or shift. I figured if it were a person standing there, they’d still have to move a little, you know? Shifting their weight from heel to heel. This didn't do that. It was just there. Flat and dark, like someone cut a person-shaped hole out of the light.
+
+"Okay," I said out loud, to nobody. "That's freaky. Shouldn’t have pulled that all-nighter."
+
+I used the bathroom faster than I think I ever have in my life. On the way back, I didn't look at 14C's door, which took actual effort. My eyes kept wanting to go there, though I wouldn’t allow them to.
+
+As soon as I stepped foot back in 14B, I locked the door. Priya, who sleeps like the dead but wakes up instantly at any little click, blinked up at me.
+
+"You okay?" She asked.
+
+"Yeah. Cold out there." I said, rubbing my shoulders.
+
+She wrapped an arm around my waist and was snoring again in like a minute. I lay there with my eyes open, staring at the back of our door, listening to the hall, waiting for someone to open the door to 14C.
+
+I waited and waited, but didn't hear anything. That was worse, somehow.
+
+By the time morning came, it felt stupid, the way it always does when you experience something that nobody else believes.
+
+The dining hall was mostly empty, just the truly hungover staggering around, shoveling powdered eggs and stale bagels in their faces until the pounding in their heads eased up.
+
+"You saw a shadow," Priya said, around a mouthful of cereal. “Under a door at 1 am.”
+
+"I know how it sounds, Priya, but..."
+
+"Sounds like you watched too many of those creepy baby monitor videos."
+
+That was my go-to category on YouTube when I couldn’t sleep. I’d watch some Ring camera videos, and it somehow made me feel more comfortable in my space.
+
+"It wasn't moving, though,” I said. “Even if a person is standing still, they still have to move a little. This was flat. Like it was painted there."
+
+Her smile dropped, not because she believed me, but because she knew the difference between me just being dramatic and when I was actually freaked out.
+
+"So what, you think someone's living in 14C?" She asked.
+
+"Maybe? People do that sometimes."
+
+"In movies, Mar." She snorted.
+
+"Beth left fast, though. You said she didn't even take all her stuff."
+
+Priya put her spoon down. She stared into the cinnamon-laden milk, contemplating what she wanted to say and trying not to freak me out even more.
+
+"She told the front desk it was a family thing. But she told me something different because we used to talk when you were in class. She said her room felt… strange. Like she wasn’t alone. Stuff moved in there every night. Nothing crazy, but noticeable, like a drawer she'd leave open would be shut when she got back. Her closet door, the one that sticks really badly, would just be closed when she got back from class. Every single time. It’s crazy because she’d have to throw her whole body into it to get the thing open."
+
+The cold from last night came back, except now it had context, which made it much worse.
+
+"She told Housing, and they gave her the usual bullshit answer. Doors settle, drawers shift, blah blah, etcetera, etcetera. She was probably hallucinating from all the redbull she drank. A week later, she packed two bags and left. Her desk's still there, though. All of her boxes, too."
+
+"So someone could've been getting in this whole time. Even after she left." I said, concerned and confused.
+
+"Mar, that's an urban legend. That doesn't happen."
+
+"It didn't move," I said again. "Not once. The whole time."
+
+Priya had gone quiet on the walk back, the same quiet I do when something actually gets to me, where I stop joking about it.
+
+We told Soo-Jin about it that afternoon.
+
+Soo-Jin’s our RA. She takes the job more seriously than most. She’s a hardass, but she does genuinely try to help when you have a problem.
+
+She listened to the whole thing without saying anything, then said,
+
+"Show me. I want to see the door."
+
+14C looked normal in the afternoon light. Still the same beige door with the cheap plastic nameplate thing that still said BETH on a strip of masking tape.
+
+Soo-Jin crouched down and looked at the gap.
+
+"No light's on in there. I'd see it if there were."
+
+She sighed, half-annoyed, and knocked sharply three times.
+
+"Hello? It’s Soo-Jin, your RA. I’m doing a wellness check. Anyone in there?"
+
+Nothing.
+
+A couple of minutes passed with all of us still standing awkwardly in the middle of the hallway. Soo-Jin sighed again and stepped toward the door.
+
+"I'm using my key. If anyone's in there and doesn't want to be found, now's the time to say something."
+
+In one quick motion, she pushed the key in and turned.
+
+The lock clicked, and she pushed it open.
+
+The room was empty. Abandoned-empty. Beth's desk was still there, covered in dust thick enough to show that something had disturbed it fairly recently. They were fingermarks. Fresh ones. Five long lines dragged across it, like someone had been feeling around for it in the dark.
+
+The closet was wide open. Soo-Jin said it never stayed shut on its own, and now it was just open, nothing but a couple of wire hangers inside, one of them swinging a little as if it had just been touched.
+
+The room was cold. Way colder than the hall, even with the radiator clanking, the dial cranked up to the max. As strange as it sounds, it felt like something in there was eating the heat as fast as the radiator made it.
+
+"There's no one here," Soo-Jin said, already backing toward the door. "I'm calling this in. Go back to your room, lock..."
+
+"Wait," I interjected.
+
+I was looking at the spot under the door. The same spot as before, except now the door was open, and the hallway light just went straight through. Something about it didn't sit right.
+
+"When the shadow was there, the door was closed. So whoever was casting it was standing right against it, on the hallway side. And when you knocked just now and said you were opening the door, they didn't move. If you're pressed against a door and you hear someone say I'm opening this right now, you move, right? You hide. Unless you wanted to be on this side when it opened. Unless being right up against the hinge side, where the door would block you the second it swings open."
+
+All three of us looked at the open door at the same time.
+
+It had swung in, resting almost flush against the wall. In the little dead space behind it, there was a shoe. Just the toe of it. It was a yellowed off-white color with no laces and the sole peeling off. Worn down to nothing. Like it had been walked in for a really long time without ever coming off.
+
+Soo-Jin shoved the door the rest of the way, hard, slamming it against the wall.
+
+There was nothing there. Just the wall, the door hinges, and a smear at head height with five lines running through it, like a hand braced there and dragged down.
+
+"We need real police," Soo-Jin said, voice shaking. "Not campus security."
+
+The quote-unquote real police took forty minutes. We sat in 14B with the door locked, and my desk chair wedged under the handle. We all knew it wouldn't actually do anything, but it made us feel a little safer.
+
+"The shoe was right there. It was real," Priya kept saying. "And then it wasn't."
+
+"I know, Priya, I know," I said, trying to calm her.
+
+When police got there, they searched 14C, along with the rooms on either side. Then they searched the entire floor, door to door, like they were searching for an escaped convict, not evidence.
+
+They found her in 14D. In the room on the other side of 14C, a sophomore named Wren had overslept for her morning class. When the knocks came, she figured she was in trouble, so she hid. I barely knew her. She was just another one of the girls on the floor.
+
+Wren was fine. Her closet wasn't.
+
+She shared a wall with 14C's closet. In the back, behind clothes that Wren hadn't moved in weeks, there was a hole. A human-sized one. Drywall crumbled and pushed out, into Wren's side. It’d been made from 14C's side, probably taking a long time to hollow out, having to stay quiet enough that Wren, who sleeps with headphones in, never heard it.
+
+If they were thin and didn't mind the dark or the dust, then a person could easily slip in and out through the rooms. Inside, there was a smell. It was faint, almost sweet. Everyone in the hall said the same thing, thinking it was just the smell of the old building, not really worrying themselves with it too much.
+
+The cops found stuff stored in the gap between the walls. Deliberately stored, like someone was hiding something they didn’t want found, but also couldn’t throw away.
+
+I didn't see most of it. I heard about it in pieces afterwards. That there was more than just Beth's stuff in there. Someone said the word *remains* in the hallway, in this voice that made it sound insanely creepy.
+
+What I did see, before the cops cleared us out, was a girl.
+
+Two officers walked her out of room 14D's closet. She didn’t have handcuffs because nobody knew yet who she even was. She hadn't said a word. She didn't even react to her own name once they figured out what it was, days later. Like a ghost, she wasn't on any roster anywhere.
+
+When they walked her past our open door, she looked right at me.
+
+Her hair hung in front of her face, all matted together. I could see her ribs through her clothes. Her hands were weird, fingers way too long, the nails grown out into these thick yellow curls.
+
+But her eyes were clear. Focused, though nothing else about her was.
+
+Her lips moved, but no sound could be heard. But I swear on my life, I could read it anyway.
+
+*Thank you.*
+
+Then they walked her around the corner, and that was it. I stood there with my hand on my chest, rendered speechless. There really wasn't anything to say.
+
+I wish that were the end of it.
+
+They moved us out of 14B that night.
+
+"It’s just precautionary," the woman from Housing kept saying, like saying it enough times made it true.
+
+She put us in a guest suite on the fourth floor, the kind they use for visiting parents, with an actual deadbolt on the door. First deadbolt I'd seen in a dorm in two years.
+
+We didn't sleep that night. We sat on the couch with every light on, Priya holding my hand so hard it left these little white half-moon marks that I didn’t notice until the next morning.
+
+Around 2 am, three soft, almost polite, little knocks rapped on the door.
+
+"Don't," Priya whispered. "Marla. Don't."
+
+I didn't get up. But I looked under the door.
+
+This was a new floor. A new room with a new door, and yet, underneath it was a shadow. The Same shape of the same two feet, close together, right against the seam.
+
+"Priya. Look at the door." I said, shakily.
+
+She looked, and I felt her whole body go stiff against me.
+
+"That's not possible. We're on a different floor. I…I saw them take her away."
+
+The three little knocks came again, and the shadow started to change shape.
+
+It undulated around itself, as if morphing into something else. The two feet stretched out, edges going soft then sharp again into something else entirely. For a second, the shadow didn’t look like feet anymore.
+
+It was hands. Two of them, palms flat, fingers spread wide, reaching toward the gap. They were long, curling a little at the tips, like a weed that had grown for way too long with nothing ever cutting it.
+
+Priya screamed with pure terror. I’ve never heard her scream like that before. Just pure raw sound, nothing behind it but fear.
+
+At the sound of Priya’s scream, the shadow snapped back into the foot shape and disappeared just like that. It was just gone, the hallway light running clean under the door again, like it's supposed to.
+
+We sat there till the sun came up, watching that gap. It didn't do anything else, which somehow scared me even more. I had the feeling that it could have, but chose not to.
+
+Around four in the morning, Priya told me something she'd never told me before.
+
+We were just sitting there, lights on, both of us staring at nothing, and she said, real quiet,
+
+"I used to have this thing. When I was a kid."
+
+"What thing?" I asked.
+
+"Like, a presence thing. I used to feel like there was something in my room at night, standing in the corner, or under the bed, or behind the door. I told my parents, and they did the whole check-under-the-bed routine, *see, nothing's there, go to sleep*. Eventually, I stopped telling them because it wasn't going away, I just... I figured out it wasn't something they could check for. Because it wasn't somewhere you'd look. It was somewhere you wouldn't."
+
+I didn't say anything. I could tell she needed to get this out, and I was more than willing to let her.
+
+"I stopped feeling it around twelve or thirteen. I figured it was just a kid thing. Just a kid brain doing kid-brain stuff in the dark." She went quiet for a second. "Haven't felt it in years. Until just now."
+
+"Until the shadow?" I asked.
+
+"Until the shadow.” She replied. “And Mar, it wasn't new. That's the thing. That’s the same exact feeling as when I was a kid. Same... I don't know. Presence. Like it had been waiting. Like it knew me."
+
+I held her hand really tight. I didn't have anything to say. What do you even say to that?
+
+Over the next couple of days, homicide detectives talked to basically everyone on our floor. Multiple times. There were lots of questions about noises and smells. Stuff people saw and just explained away.
+
+And once someone actually asked out loud, it turned out almost everyone in the building had something to say.
+
+Wren had been hearing scratching for months. A couple of times a week at least. She told her mom on the phone once, and her mom said that it was probably mice, and that old buildings usually get mice. Wren believed it because it was easier than the alternative.
+
+The girl two doors down said she woke up a couple of times, and her door was wide open, when she's slept with it closed since she was a little kid, and can't sleep any other way. She figured she just forgot. Strange occurrence for someone who’s done something for years, never forgetting.
+
+Someone on the third floor said their bathroom mirror fogged up once, no shower running, nothing to cause it, and when they wiped it, just for a second, there was a handprint. Not on the mirror, but on the wall behind it. That doesn't even make sense. Mirrors are flush against the wall. That shouldn’t be physically possible.
+
+Except when maintenance checked, there was a gap behind that mirror. Four inches. Nothing you’d find on any blueprint. It was just always there, apparently.
+
+Four inches. That's it. That's all it takes.
+
+Detectives stopped telling us stuff after that. But Soo-Jin told us one more thing, two nights later, her voice shaking so much that it didn't even sound like her.
+
+The building's original blueprints had a service corridor in them. A maintenance passage ran through the walls on the second and third floors, and was sealed off decades ago, bricked at both ends. It had supposedly remained empty for fifty years.
+
+Except it wasn't empty.
+
+And it wasn't just two floors.
+
+The maintenance passage ran the whole height of the building. All seven floors.
+
+I keep thinking about the fourth floor. The guest suite. The shadow appeared under a door that had nothing to do with any of it, on a floor that had nothing to do with any of it. I never asked if that guest suite's closet, or some bathroom mirror somewhere on four, was connected to the same sealed corridor.
+
+Though I didn’t ask, I think I already knew the answer.
+
+They moved most of the building out after that, into a different dorm across campus. This one was newer, made of concrete and glass, with motion sensor hallway lights that snap on full the second you walk in, no dimming at all. I noticed that within like ten seconds of walking in for the first time, and I've never once taken it for granted since.
+
+Casey transferred for good. Didn't even come back for her stuff, just had it moved over. Nobody asked why.
+
+The old building's still *under assessment*. That’s been over a month now. Construction fences have gone up, the green mesh kind you can't see through. I walked past it a couple of weeks ago, telling myself I just wanted to see it in daylight, to prove to myself it's just a building. Nothing more.
+
+Sounds were coming from inside. Through the mesh. Through walls that should block sound completely.
+
+Slow, soft tapping, and not just random noise. It sounded like someone testing a wall, over and over, looking for a thin spot.
+
+I kept walking. Haven't gone near it since. Don’t have plans to, either.
+
+Weeks later, in our new room, Priya and I spend most nights cooped up, doors locked, too afraid to say anything out loud.
+
+Here's what I know now.
+
+*Remains*. Plural. It means there was more than one person before Beth. How far back does that go? Twenty years? Fifty years since the corridor got sealed? Longer?
+
+What if the corridor was just one part of something nobody's found yet?
+
+The girl from 14D's closet still hasn't talked. Not one word, as far as I've heard. That *thank you* sticks with me. I have no clue what she was thanking me for. I don't even know if I did anything. Maybe I was just the first face she saw that wasn't whatever had been keeping her there.
+
+And the part that actually keeps me up, even now, with Priya's arm across me and holding me tight, is that the girl from 14D couldn't have been the thing at 14C's door that first night. By the time we found her, she'd already been in the walls for a long time. Months, probably. Before that Friday for sure.
+
+So whatever cast that first shadow, the one that didn't move or sway, or do any of the stuff a person does when trying to hold still, was something else.
+
+The same something that knocked three times on the fourth-floor door. The same something that reached its wretched, gangly fingers through the gap.
+
+I check under doors now. Every door, every night. Bathroom, hall closet, our door, even ones I've got no reason to think anything would be behind. I used to think that about every door, right up until I didn't.
+
+Priya does it too now. Neither of us has ever brought it up. We just both do it out of habit… or survival… I’m not sure which.
+
+And every night the light's clean under every door. Empty. Normal.
+
+Every night… So far.

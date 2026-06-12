@@ -160,7 +160,7 @@ I thought about sending Scott another message, asking what kind of “danger” 
 
 It’s late now and I’m watching Breaking Bad for the fourth time, and I have about eight hours before I need to be at the mall. I really should get some sleep, make sure I’m mentally sharp for tomorrow. But my heart’s beating pretty fast and I get the sense that rest won’t come easy right now.
 
-I looked up the address, and it does seem to be a real, active place with real reviews. Nothing glaringly “off” about it other than the location. It’s about a twenty-five minute drive from my apartment and it’s pretty out of the way, not very accessible.
+I looked up the address, and it does seem to be a real, active place with real reviews. Nothing glaringly “off” about it other than the location. It’s about a forty-five minute drive from my apartment and it’s pretty out of the way, not very accessible.
 
 I think I have just enough left in my account to fill up my tank with just enough gas to get me there and back. Then that’s it. So if this does turn out to be some stupid joke, then I’m really screwed tight. I’m done for.
 
@@ -178,7 +178,7 @@ The parking lot here is larger than I’d expected and about a fifth of the way 
 
 No other buildings around. No other sign of life at all. Just a desolate stretch of highway on one side and a dense forest on the other.
 
-It’s about ten minutes out of the city, smack dab between some grey industrial area and a long stretch of farmland. I cannot fathom what the target demographic was here.  
+It’s about thirty minutes out of the city, smack dab between some grey industrial area and a long stretch of farmland. I cannot fathom what the target demographic was here.  
 
 It’s about ten before two. A lot of thoughts running through my head but I’m doing a good job of stamping most of them out. In another five minutes, I’ll head in.
 
@@ -404,7 +404,7 @@ I tried calling for an Uber but the network out there was so shit that the app w
 
 I just leaned on the hood of my car, mulling over my options. Feeling a bit numb.
 
-My apartment was about eighteen miles away. Theoretically walkable. But the bigger problem was, I really didn’t know the way. here was a good chance that if I tried walking, I’d end up in the next town over. Especially in the dark.
+My apartment was about thirty-five miles away. Theoretically walkable. But the bigger problem was, I really didn’t know the way. there was a good chance that if I tried walking, I’d end up in the next town over. Especially in the dark.
 
 Which was something I thankfully didn’t have to risk.
 
