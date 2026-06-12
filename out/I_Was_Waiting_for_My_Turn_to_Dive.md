@@ -1,0 +1,51 @@
+…but I’d just spent a couple of hours, sitting on the beach, waiting for the instructor to shout my name. When he did, I was supposed to swim out to the buoy, drop to a depth of about 15 feet, find the unresponsive diver, and then bring them up to the surface to perform CPR. Simple, right?
+
+Only, the instructor was busy talking up a girl instead of doing his damn job. Some of us hadn’t finished the test and about 10 of us were still out in the water including my older sister. There were about six or seven of us left, and I was getting tired, sitting there under the sun and fidgeting with my medallion of St. Brendan the Voyager, waiting for my turn.
+
+Finally, I walked over to the instructor, this thin, wiry guy with curly hair and leather skin from too many years in the sun. He seemed more interested in the teenage girls in my class and kept acting like teaching teenagers was beneath him.
+
+“Did my sister come up?” I asked. He didn’t look too pleased at being interrupted, but honestly, screw him. I didn’t care. He was supposed to be testing us, supervising us or something, but he’d been hitting on Suzie this whole time.
+
+“She’s in the water,” he said. “It’s her turn to play victim. Go rescue her, dude, you’re up.” Then he went back to Suzie, not even timing me or anything.
+
+I was pissed. I didn’t see the other two assistants, but they were probably down there, evaluating us and doing his job.
+
+I adjusted my weight belt and Buoyancy Control Vest, slipped my fins on in the shallow water (because you don’t want to be on the beach in those things), and walked backwards into the surf. When it finally reached my chest, I kissed the medallion my mother had given both me and my sister, turned and swam for the buoy.
+
+The water was choppy, and I found myself seesawing on the swells, getting seasick. The red and yellow dive buoy kept disappearing too, so I kept my head down while I snorkeled and scanned the seabed.
+
+When I popped my head up again to track my progress, the buoy was gone. I mean just swallowed. I felt lost without a marker between me and the horizon, but when I turned back, I saw the beach and settled down a bit. It was further out than I thought, but still reachable. I could swim back if I had to, but now I started wondering if a current had pulled me off course. Riptides terrified me.
+
+Finally, I spotted the buoy with its red flag and white stripe bobbing in and out of sight, warning boaters we were diving. Here’s the thing, though. The buoy looked faded and further out than before. This time I kept it in sight as I swam. Nausea kept hammering me, but I wasn’t going to lose track of it again.
+
+As I got closer, I realized it looked strange. It was encrusted with barnacles, and the red and white paint was flaking off in places. It didn’t look this old or worn from shore, but I dismissed it.
+
+I pressed the purge valve and released the air from my vest. The weight belt did the rest, and I sank below the waves, dropping into the warm depths. It’s really comfortable down there, when sound gets muffled, and you can just hear your own breathing through the regulator. I had good visibility, probably out to about 50 feet easily, but for some reason, I couldn’t spot the seafloor. It was supposed to be about 20 feet under me, but the depths just faded off into murk.
+
+I followed the buoy’s nylon line, wondering if a current had pulled it off the mark, and kept expecting the seafloor to appear. I should have hit bottom, but after a moment, the red in my vest started turning black. That meant I was past 20 feet, I think, where the water absorbed red from natural sunlight. It felt like my visibility had just gotten cut in half.
+
+I checked the dual dials on my line gauge for my air pressure and depth, but the needles on both were swinging back and forth wildly. I started to panic… I could hear it in my breathing, my regulator hissing on each inhale and bubbles flushing on my exhale. I had to slow down. I was already an air hog, gulping down more air than other divers, but this felt really, really wrong. I tried to force myself to slow down, but I just kept thinking: *Bail, you gotta bail.*
+
+I flooded my vest with a bit more air, trying to level out to give me time to think, but I was still sinking. I could no longer see the surface… my visibility was down to about 10 or 15 feet.
+
+I couldn’t be past 50 feet, could I? I was only rated to Open Water limits—about 60 feet—so I swallowed a gulp of air and reached for the left shoulder strap on my vest, pulling on the oral inflation tube. I removed the regulator from my mouth with one hand and blew into the tube with the other, switching back and forth, trying to manually inflate the vest, desperate to stop sinking. I started kicking and trying to breaststroke my way up by force, but I was breathing harder, struggling not to panic as the yellow strips on my line gauge turned dark grey. Yellow faded out after 60 feet, I think. I was deeper than I’d trained for and I was still dropping.
+
+*Screw it,* I thought, and pulled the buckle on my weight belt. It’s what kept me just heavy enough to sink slowly. It snapped free and I watched it tumble away into the darkness below.
+
+I hovered there for a moment, no longer pulled down, but surrounded by the green murk of particulates and floating silt, my only lifeline to the surface a thin nylon rope connected to the buoy.
+
+That’s when I started scanning the green abyss that swirled around me. It was agitated, a sluggish dust storm underwater. That happened when divers kicked off from the bottom and disturbed the sediment, but this was somehow… beautiful. I felt calmer, staring at the patterns that flowed and shifted, like the currents were a painter’s brush and I was watching a master at work. It felt like I was drifting, falling into a slumber. I think my eyes even closed because when I opened them again…
+
+…I was floating there with the other divers from my class, all of us suspended and floating in this slow churning green tornado of silt and luminescence. It felt warm and calm, and I knew I could just close my eyes and-
+
+\-*this is wrong*. That’s what popped into my head. I struggled to focus properly and shook my head hard. I don’t know why I reached for the medallion. Maybe it was a nervous tic when I got scared, or instinct, but whatever was soothing me into sleep lifted just a bit, enough to shake myself awake. We were slowly sinking, being pulled down into the depths. It was peaceful down there, and I had to shake it off.
+
+I saw four others in the spiral, but no assistant instructors. I recognized my sister by her long brown hair bundled in a ponytail. Bubbles flushed from her regulator, but two others were floating with their heads down, no bubbles. I kicked hard toward my sister and shook her by the shoulders, but her eyes closed almost as soon as they opened. She wasn’t wearing her medallion, she must have left it home, so I pulled mine off and pressed it against her arm. Her eyes opened and then went wide in shock. She started to panic, but I shook her, got her calm, and then dragged her over to a third diver who was still breathing. It was Jack, an older teen in our class, and the minute we touched him with the medallion, he woke up.
+
+The last two divers were dead… they’d run out of air, and I don’t know how much any of us had left.
+
+We didn’t see any of the others, no bubbles were floating up from below. I couldn’t find the nylon rope of the buoy, so I pointed us to swim out of the vortex first. At the edge of it, just for a second, I felt resistance, something pushing against me like a skin or some kind of surface tension, but once we were out of it, we started ascending, slowly, rising up into warmer and clearer waters. On the last half of it, Jack ran out of air, and I shared my regulator with him, buddy breathing on the way up and holding him by the vest to keep him close.
+
+We lost six classmates and two assistant teachers on that dive; their bodies were never recovered, and the instructor was brought up on charges of negligence, and convicted. As for what we saw, they said we were all probably suffering from nitrogen narcosis, which can cause hallucinations and euphoria, enough to make a diver pull off their own mask and regulator, but I don’t buy it. I know what I saw. Something was down there.
+
+My sister and I don’t talk about what happened, but we both kept our medallions of St. Brendan with us ever since.
