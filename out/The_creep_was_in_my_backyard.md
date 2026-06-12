@@ -45,7 +45,7 @@ I'm gonna try and put a little plan right there to try and make it clearer. The 
 
      T   5 stairs    kitchen     |    cellar
 
-         ___________DOOR________DOOR
+         ____________DOOR____________DOOR
 
 
               BACKYARD
@@ -114,7 +114,7 @@ That guy was NOT here to rob us. I know what he could've possibly have been afte
 
 The cops wouldn't have saved us, the showerhead turned all the way to hot water and a dumb kitchen knife maybe would've. 
 
-There's no conclusion to this story, I have no idea who the guy was, who else he's traumatised, and just have a general horrific ideas of his intentions. 
+There's no conclusion to this story, I have no idea who the guy was, who else he's traumatised, and just have a general horrific idea of his intentions. 
 
 This probably isn't as scary and well-written as other stories on this subreddit, also cauz my memory is kind of fuzzy, but it is very real. I'd put a pet tax below if I could, but rest assured, Millie hasn't been traumatised by this event in the slightest (unlike me lol), I truly believe she's saved our lives that night and it's the only time in hers that she's ever behaved like the shepherd breeds she descends from. 
 
