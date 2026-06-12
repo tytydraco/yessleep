@@ -1,0 +1,25 @@
+The OTHERS, they keep moving into MY house. For years I have seen them come into my house and stay. Then they leave and then someone else comes and stays. 
+
+It's the same thing everytime . I hear the door open and HE walks in. HIM with his expensive looking suit and a smile like he is trying to sell you something , HE is the source. HE brings them here, HE  brought all of them here.
+
+I peek at them from the cracks in the walls. I see him as he  brings them into my house. It's someone different everytime. Sometimes they come alone with him. Other times they bring their family with them. I see them as they step into my living room. I see them entering my bedroom. 
+
+Most of them go away and I never see them again. But some return. Everytime I hear trucks outside, I know immediately that someone NEW has decided to stay here. I watch them bring their stuff into my house. Arranging it how they like it. They call their 
+
+"Their HOME". I can't stop laughing everytime I hear that. 
+
+It funny to me. It's funny how they think it's their home because they live here. But they don't know. None of them know That I LIVE here too. I have lived here longer than any of them. I am part of their family too. I watch from the walls as they all sit around laughing in the living room. I watch from ceiling as the man and women make love on MY bed. 
+
+I watch their kids from the gaps in the floorboard. They remind of my little girl Dorothy. Thinking of Dorothy makes me sad. She used to be a beautiful little girl. But time has not been kind to her. Everyday day that passes she rots and stinks even more like all my other children. I still remember when I first got her.
+
+ It was the family that moved here 10 Years before the the ones currently living here. Oh I remember them. Such a beautiful family. A drunk husband who used to love her wife everyday, even when she didn't want it. A lovely wife who kept cutting herself and hanging from the ceiling, but never could. And the beautiful little daughter. When I saw their daughter I decided that I wanted one Just like her. And so one day I just got her from the bedroom. She cried soo much when I dragged her from her bed to floor below. But eventually she behaved like a good little girl and embraced an eternal sleep. And so my Dorothy was born.
+
+The new family living here also has a good little boy. I always wanted a little brother for Dorothy.
+
+But sadly they moved away within a month of moving in.
+
+But I don't have to worry because HE will bring more of them. HIM with his expesive suit and a simple like he is trying to sell you something, he will lure more of the OTHERS. He will tell them it's their house and lure them in. He lies quite well. He knows it can never be their house as it will always be my house. He knows it because he is the one who gave this house to me.
+
+100 Years back it was him who swore this house to me. He called me here by offering me the souls and flesh of soo many children . HE summoned me and and swore this house to me and said as long as I stay in this house, HE will bring More. 
+
+And so that's what he does. He bring more of OTHERS in MY house. 
