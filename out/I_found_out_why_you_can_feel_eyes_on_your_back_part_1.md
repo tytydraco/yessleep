@@ -1,6 +1,6 @@
 Every night as a kid, I felt something watching me from my bedroom closet. The feeling hung heavy in my gut and made my skin crawl. Even with the lights on, I couldn't be convinced there wasn't something there. But I got older and we moved and I forgot all about the closet that watched me.
 
-But nearly a decade later, that feeling was back. Under the moonlit sky, I stood outside an ugly cement building I must’ve driven past a thousand times without noticing. There were eyes on me, I could swear it. And they felt like the same eyes. But despite the dozens of cars in the lot, there was no one in sight.
+But nearly a decade later, that feeling was back. Under the moonlit sky, I stood outside an ugly cement building I must’ve driven past a thousand times without noticing. There were eyes on me, I could swear it. And they felt like the same eyes that had been in my bedroom closet. But despite the dozens of cars in the lot, there was no one in sight.
 
 I’d taken a job at a place called Cosmeir labs. They had one of those tear-a-number flyers on a campus bulletin board. “$18/hr! Lunch Included! No experience! Any Major!” In Texas, with our $7.25 minimum wage, it seemed too good to be true, so I called to schedule an interview. They wanted me there at 9pm. Weird, but… okay.
 

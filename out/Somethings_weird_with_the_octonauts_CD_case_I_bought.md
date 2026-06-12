@@ -48,3 +48,5 @@ And then the screen went to Black and I turned off the TV and bought a new set b
 
 . Here is my other post
  play](https://www.reddit.com/r/nosleep/s/e0Vc4oxwfI)
+
+(HI I get actually banned because I didn't read the guidelines correctly I broke some of the guidelines on accident this is for all the moderators I am so sorry I apologize once again and I hope maybe we can find out solution I will be posting on a different another community until I'm unban I'm apologize if this is kind of weird I'm so sorry and once again life is still a very chaotic especially with the  Jeff thing)

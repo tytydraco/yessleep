@@ -270,9 +270,9 @@ Cecile had gone quiet.
 
 "Was it?"
 
-There had been a long silence on the line. "I remember being stabbed," Cecile had said, "and I remember her face the second after." She had paused. "She was horrified. I think she left because whatever was happening to her slipped for a second.”
+There had been a long silence on the line. "I’ve known Iris for years," Cecile had said. “I thought of her as an angel… But I remember being stabbed, and I can’t forget her face after it happened.”
 
-"I’ve know Iris for years," Cecile added eventually. “…She came to me crying one day in freshman year, and ended up talking about being abandoned by the saints and angels.” She paused again, before: “But Iris was an angel, so why couldn’t she be saved by them?”
+She had paused, before: “She was horrified. I think she left because whatever was happening to her slipped for a second.”
 
 The line went quiet again.
 
