@@ -396,3 +396,5 @@ Updated notes:
 5. Stores simplify as the loops compound, only selling one item. This is normal. (Memory compression?)
 6. Objects you interact with gain significance within the loop. This effect compounds exponentially. (The mall remembers everything you do, but not why.)
 7. The loop’s geometry will prevent you and the double from meeting. Do not interfere with this. (I don’t know what would happen, and I don’t want to.)
+
+Part 2: [https://www.reddit.com/r/TalesFromTheCreeps/comments/1u4dgal/comment/orc6s2k/?screen\_view\_count=2](https://www.reddit.com/r/TalesFromTheCreeps/comments/1u4dgal/comment/orc6s2k/?screen_view_count=2)
