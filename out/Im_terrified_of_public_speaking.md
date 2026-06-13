@@ -18,7 +18,7 @@ In high school, it got worse. During a history presentation on the Triangle Shir
 
 In college, I took one of those required communications classes where the professor insisted that public speaking was a skill like any other, which is something only people who enjoy public speaking say. The final was a five-minute persuasive speech. I chose recycling because I thought absolutely nobody could be mad at recycling.
 
-Halfway through, I lost my place and clicked to the next slide by accident. Then the next. Then the next. Clicking my little remote became the only thing my hand knew how to do. A bar graph. A landfill photo. A concluding slide that said THANK YOU while I was still somewhere near my introduction. The class watched me advance through my own humiliation in silence. Their eyes widened. Their mouths loosened. The room felt very bright and very far away.
+Halfway through, I lost my place and clicked to the next slide by accident. Then the next. Then the next. Pressing the button on my little remote became the only thing my hand knew how to do. A bar graph. A landfill photo. A concluding slide that said THANK YOU while I was still somewhere near my introduction. The class watched me advance through my own humiliation in silence. Their eyes widened. Their mouths loosened. The room felt very bright and very far away.
 
 Afterwards, a girl I barely knew found me outside and said, “Hey, don’t worry. That was unforgettable.” I know she meant it kindly. But unforgettable isn’t always a compliment.
 
@@ -108,8 +108,6 @@ People started arriving around 8:55.
 
 Jen came in first and said, “Oh my god, you brought donuts? Iconic.”
 
-That made me feel good. 
-
 Chris took a maple bar. Christopher took two glazed donuts and said, “Don’t tell my wife,” even though I’d never met his wife and had no plans to speak with her. Veronica cut a chocolate donut in half and then came back for the other half thirty seconds later. Respect. 
 
 Morgan took coffee and no donut. Elise took coffee and said, “This is very sweet, but you didn’t have to.”
@@ -190,7 +188,7 @@ Megan stood up so fast her chair rolled backward and hit the wall.
 
 “What the fuck?” she whispered.
 
-I hated her for interrupting. That was my first clear thought. I’d finally found my rhythm. I’d finally reached slide five without wanting to crawl under the table and become carpet. Everyone was listening. Everyone except Megan.
+I hated her for interrupting. I’d finally found my rhythm. I’d finally reached slide five without wanting to crawl under the table and become carpet. Everyone was listening. Everyone except Megan.
 
 “Megan,” I said, trying to keep my voice professional. “Can I just finish this section?”
 
@@ -198,7 +196,7 @@ She stared at me.
 
 Behind her, Christopher’s jaw clicked. His mouth lengthened, the corners pulling down as if something inside his face had hooked them and was drawing them slowly toward his collarbones. His lips stretched thin around the opening. His tongue shifted forward, swollen and pale, then slipped back into the dark. His head tilted to match Morgan’s. Then Jen’s did too. Then Chris’. One by one, all around the table, their heads cocked to the same side.
 
-They were still in their office chairs. They still had badges clipped to their shirts and crumbs on their napkins and laptops open in front of them. Jen still had powdered sugar on her thumb. Elise still had one hand resting beside her coffee cup. Everything about them was normal except their faces, which had started to look unfinished, like the simple act of maintaining attention was melting them from the inside.
+They were still in their office chairs. They still had badges clipped to their shirts and crumbs on their napkins and laptops open in front of them. Jen still had powdered sugar on her thumb. Elise still had one hand resting beside her coffee cup. Everything about them was normal except their faces, which had started to look unfinished. The simple act of maintaining attention was melting them from the inside.
 
 Their eyes sagged lower. Their mouths opened longer. The dark inside those mouths seemed to deepen as I watched, and for one awful second I had the thought that if I stood close enough, I might hear something moving around down there. 
 
@@ -256,11 +254,9 @@ I stood in the conference room with my laptop still open, the final slide glowin
 
 THANK YOU.
 
-Megan pointed at me from the hallway and said, “She did something.”
+Megan pointed at me from the hallway and said, “She... she did something.”
 
-They sent everyone home for the day.  Nobody knew what had happened. Food poisoning, maybe. Carbon monoxide, maybe. Some kind of mass allergic reaction, maybe. There was a lot of maybe. The office coffee was tested. The donuts were tested. The HVAC was tested. I was asked if I had noticed anything strange.
-
-I said everyone seemed very attentive.
+They sent everyone home for the day.  Nobody knew what had happened. Food poisoning, maybe. Carbon monoxide, maybe. Some kind of mass allergic reaction, maybe. There was a lot of maybe. I was asked if I had noticed anything strange. I said everyone seemed very attentive.
 
 Megan didn’t come back the next week. Or the week after that.
 
@@ -274,7 +270,7 @@ My second team update was two weeks later. Elise asked if I wanted to skip it, g
 
 That Friday, I brought bagels. I made sure there were gluten-free ones this time, just in case Megan came back. She didn’t, which was probably for the best, because the team seemed tense before I started. I talked for seven minutes instead of five. No one minded. No one interrupted. Everyone watched. Their eyes softened and stretched. Their mouths opened. A few people made that low breathing sound I remembered from my dreams, but it didn’t bother me anymore. If anything, it helped.
 
-I’m still afraid of public speaking. Every other Friday, I still wake up with my stomach twisted into a small, useless knot. I still rehearse in the shower. I still change my outfit twice. I still worry my slides are bad, my voice is annoying, my coworkers secretly hate me, and my manager regrets hiring me.
+I’m still afraid of public speaking. Every other Friday, I still wake up with my stomach twisted into a small, useless knot. I still rehearse in the shower. I still change my outfit twice. I still worry my slides are bad, my voice is annoying, my coworkers secretly hate me, and that my manager regrets hiring me.
 
 But then I get to the office early. I set out the coffee, or the bagels, or the little muffins from the bakery near my apartment. I make sure there are options for everyone, because that’s what a considerate coworker does. And by the time I stand at the front of the conference room, they’re already waiting, eyes wet, mouths open, completely unforgettable.
 
@@ -286,7 +282,7 @@ I reached into my purse for my keys and felt the little container at the bottom.
 
 My grandmother’s nerves recipe.
 
-I took it out and held it in my palm for a second. There was still a small amount left inside, dark and slow-moving when I tilted it toward the light.
+I took it out and held it in my palm. There was still a small amount left inside, dark and slow-moving when I tilted it toward the light.
 
 Only a little, my grandmother used to say. I put the container back in my purse, washed my hands, and went out to clean up the conference room.
 
