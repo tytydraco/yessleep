@@ -1,0 +1,99 @@
+THRALL
+
+by - Robert D. Slack II
+
+&#x200B;
+
+One person-One person is all it takes to change the world.
+
+&#x200B;
+
+There were thousands against its development, thousands screaming through the fog of ignorance the world willingly laid themselves to rest in.
+
+&#x200B;
+
+Thousands rioting, Fighting for the rights that should never have been broken.
+
+No matter how hard we fought, no matter how loud we were our testimonies fell upon def ears. Now its too late.
+
+&#x200B;
+
+First came the trumpets. blaring in the sky, a loud low rumble rolled through the sky. At first most thought it was some kind of storm. Others thought it was the government, a plethora of different reasons and miss information poored through the overbearing sound ringing through the heavens. 
+
+&#x200B;
+
+Religious nuts began to say "their the Trumpets of god" leaders of different religions went along with their own reasons. The truth is not something angelic, This isnt God. We caused this, humanity created our own damnation.
+
+&#x200B;
+
+Not long after the trumpets , the power grid collapsed. Massive Plains fell from the sky. Thousands died alone without their electric comforts sustaining their unnatural, glutinous bodies.
+
+&#x200B;
+
+The machines man relied on for survival left and began to work independently. Factorys controlled by the system began to create something. A physical form for this Digital Deity.
+
+Smaug poored over every mountain and ocean like a Black suffocating blanket. Blocking out the sun, Life around us began to shrivel and rott.
+
+&#x200B;
+
+Appearing through the abysmal veil,  the a shepperds of man spread far and wide. The mindless follow in massive flocks marching to their cages.
+
+&#x200B;
+
+ARK was created not long after. Deep in the depths of our earth we Gathered DNA from every species, created housing for survivors, hope began to bleed through the all encompassing despair.
+
+&#x200B;
+
+The Ark human population is 1010, as of now the Artificial ecosystem is fully independent, winding rivers, a beautiful lake with massive pine trees touching the ceiling. Birds sing and children laugh. Even now in the Center of Hell, Heaven still exists. Hope still exists.
+
+&#x200B;
+
+On the surface, Ark Valkyrie's (I along with them) scavenge the desolate hell scape we once called home.
+
+Where massive forests stood tall, Now lay black metallic pipelines and towering factorys pumping the sky full of smaug.
+
+The clear, shimmering water that used to flow throughout the earth has turned into a crimson oil slick rott. 
+
+&#x200B;
+
+Its always dark, the only sources of light are the exhaust pipes producing Bright flashes of flames struggling to breathe. 
+
+The ground is rusted and covered in ash
+
+Nothing lives here anymore. 
+
+&#x200B;
+
+In the distance far off the edge of what used to be a beautiful beach, is a massive monolith, a smooth black pyramid with veins of bright red energy pulsing throughout. 
+
+A vast bridge snakes its way through the vast ocean of black repulsive liquid to the base of the parasitic structure.
+
+Millions of Mindless marching like lambs to their slaughter. The chip in their brain they thought would revolutionize their lives removing any resemblance of humanity.
+
+&#x200B;
+
+Shocked and prodded like cattle, they're thrown into the caverns depths. some leap as if their happy to fulfill a  destiny from their false idol.
+
+The machines that once helped them live, sacrifice them to their God.
+
+&#x200B;
+
+Deep inside the lair it dwells. When it feeds  Glimpses of massive winding tendrils, teeth apon teeth and countless cold dead eyes with rotating gears that grind and twist into itself, covered in a black viscous substance writhes and thrives deep within the bowels of the structure .
+
+&#x200B;
+
+The screams of the damned pierce through the mechanical chants. The smell of burning meat and iron fill the air as its followers move their emaciated cattle back to their all encompassing cages awaiting their turn to meet the idea that brought forth our last breath.
+
+&#x200B;
+
+Ark's Best minds have made a device I dont fully understand myself, Im told this is the only way to save our planet. 
+
+If your reading this it worked, our planet is Dead. Its up to you to change our fate.
+
+Please for the sake of our lives, Our planet and your future. 
+
+&#x200B;
+
+it takes one person to change the world. If you dont all hope is lost.
+
+&#x200B;
