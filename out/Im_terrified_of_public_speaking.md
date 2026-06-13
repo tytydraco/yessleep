@@ -6,7 +6,7 @@ In fourth grade, I had to give a report on sea turtles. I loved sea turtles!! I 
 
 Then she made me her favorite recipe for nerves. She made it with hot water, lemon, sugar, and a few drops of something dark from a little glass bottle she kept on the shelf above the stove. It tasted sweet at first, then bitter, then floral. 
 
-“Only a little,” she said, tapping the rim of the mug with one fingernail. “It helps people listen.”
+“Only a little,” she said, tapping the rim of the mug with one fingernail. “It helps you listen.”
 
 I always thought she meant it helped me listen. To my breathing, maybe, to instructions, to my own common sense. 
 
@@ -276,7 +276,7 @@ But then I get to the office early. I set out the coffee, or the bagels, or the 
 
 Another presentation in the books.
 
-After the last one, I went to the bathroom and checked my reflection under the fluorescent lights. My lipstick had held up pretty well, all things considered. My hands were still shaking, but not as badly as they used to. I was getting better!! That was the important thing. People always say exposure therapy works eventually, and maybe they’re right.
+I went to the bathroom and checked my reflection under the fluorescent lights. My lipstick had held up pretty well, all things considered. My hands were still shaking, but not as badly as they used to. I was getting better!! That was the important thing. People always say exposure therapy works eventually, and maybe they’re right.
 
 I reached into my purse for my keys and felt the little container at the bottom.
 
