@@ -1,6 +1,6 @@
 If you were on paranormal forums in the early 2010s, or those old true crime boards before they all got bought out, you’ve probably seen threads about the Bellhaven Woods murders.
 
-Every October somebody reposts the same blurry newspaper scans or police photos or fake transcripts onto Reddit threads and paranormal forums and YouTube compilations with titles like “The Bellhaven Woods Mystery Explained” or “Top Five Real Demon Possessions.” Iris Mercer’s name shows up constantly on paranormal blogs. Usually beside edited pictures of the woods or screenshots from old local news broadcasts with the contrast turned all the way up so her eyes look black.
+Every October somebody reposts the same blurry newspaper scans, police photos, or fake transcripts onto Reddit, paranormal forums, and YouTube compilations with titles like “The Bellhaven Woods Mystery Explained” or “Top Five Real Demon Possessions.” Iris Mercer’s name shows up constantly on paranormal blogs. Usually beside edited pictures of the woods or screenshots from old local news broadcasts with the contrast turned all the way up so her eyes look black.
 
 Most of those people are working with the same fifteen pieces of publicly available information because there was barely anything released in the first place. 
 
@@ -18,7 +18,7 @@ Those who were directly involved decided a long time ago to stay quiet. I was on
 
 I need to tell you about Jensen before I tell you about any of this, because he is where it starts, and because people who only know my reputation from that year tend to have the wrong idea of it.
 
-Jensen Schaefer was my best friend from sixth grade through the end of junior year. We met because we sat next to each other in earth science and both failed the same quiz and were assigned to redo it together after class, and we spent the whole hour talking, and after that we ate lunch together every day for two years. At the time I had dark curly hair down past my ears because my father had given up trying to make me cut it, and I wore old band shirts so consistently that teachers started recognizing me by them. By sophomore year my nose had already been broken once from a fight at a middle school football game and healed slightly crooked afterward. 
+Jensen Schaefer was my best friend from sixth grade through the end of junior year. We met because we sat next to each other in earth science and both failed the same quiz and were assigned to redo it together after class, and we spent the whole hour talking, and after that we ate lunch together every day for two years. Back then, I had dark curly hair past my ears because my father had given up making me cut it, and I wore old band shirts so consistently teachers recognized me by them.
 
 In November of our sophomore year, an upperclassman named Wyatt Briggs decided that Jensen was worth tormenting. By March, it had been going on long enough that Jensen went home one Tuesday and swallowed most of a bottle of his mother's Lexapro.
 
@@ -28,7 +28,7 @@ I don't have a lot to say about the two days between that call and what I did to
 
 Needless to say, I was relieved when my father decided to move us across the U.S. a month after.
 
-The town of Bellhaven was three blocks of downtown and then neighborhoods spreading out in every direction, older houses mostly. Two gas stations. A diner called Patsy's that had the same menu it'd had since 1987. A Dollar General. A laundromat that also sold lottery tickets. Six churches, which I didn't count until later, when it started to matter.
+Bellhaven was three blocks of downtown and neighborhoods spreading out in every direction, mostly older houses. Two gas stations. A diner called Patsy's that had the same menu it'd had since 1987. A Dollar General. A laundromat that also sold lottery tickets. Six churches, which I didn't count until later, when it started to matter.
 
 That summer was quiet. My aunt lived three houses down on Caldwell Street and came over for dinner twice a week and asked me about my plans. I gave her answers and we got along fine. My dad was relieved to be somewhere smaller and slower, but I think he was also relieved that I seemed to be handling it, or performing handling it convincingly enough that he didn't have to ask. I rode my bike around and learned the town. I stayed out of trouble because there was no trouble available to get into, and that was probably what my dad had been counting on.
 
@@ -46,15 +46,15 @@ I blinked. “...It was actually his cheekbone.”
 
 "Okay, I figured." She picked up her fork. "Taylor Breck said orbital socket and Taylor Breck has never been right about anything since the sixth grade, so."
 
-I didn't say anything for a second because I was waiting for the pivot — the ‘so what's wrong with you?’ It didn't come. She just ate and looked around the cafeteria, then looked back at me like she expected us to have a normal conversation, which we did.
+I waited for the pivot—the ‘so what's wrong with you?’ It never came. She just ate and looked around the cafeteria, then looked back at me like she expected us to have a normal conversation, which we did.
 
-We talked about her, mostly, because she kept asking questions and I kept answering them and by the time the bell rang I had learned that she'd been at Bellhaven since middle school, that she ran cross country badly and did it anyway, that she had a complicated relationship with her parents that she described as a work in progress, and that she spent most of her free time making strange plush animals out of felt and mismatched buttons: rabbits with too many eyes or foxes with stitched smiles.
+We talked about her, mostly, because she kept asking questions and I kept answering them and by the time the bell rang I had learned that she'd been at Bellhaven since middle school,  that she had a complicated relationship with her parents that she described as a work in progress, and that she spent most of her free time making strange plush animals out of felt and mismatched buttons: rabbits with too many eyes or foxes with stitched smiles.
 
 Summer introduced me to Malcolm that Friday afternoon, which is when I found out about the van.
 
-It was a 1993 Chevy in a yellowish beige that had oxidized down to something closer to the color of an old newspaper, and it ran about sixty percent of the time. He'd bought it for four hundred dollars from a guy his cousin knew and spent six months making the back of it livable. We spent more hours in the back of that van than I can account for, parked in various lots and river pull-offs and dead ends.
+It was a 1993 Chevy in a yellowish beige that had oxidized down to something closer to the color of an old newspaper, and it ran about sixty percent of the time. He'd bought it for four hundred dollars from a guy his cousin knew and spent six months making the back of it livable. We spent more hours in that van than I can account for.
 
-The day I met Malcom Reyes, the van was parked in the student lot at the end of the school day. He was sitting on the hood eating chips when Summer walked me over. The day I met Malcom, the van was parked in the student lot at the end of the school day. He was sitting on the hood eating chips when Summer walked me over. He wore his locs down to his shoulders and seemed to own an endless rotation of bright sweaters, colorful hoodies, and heavily customized jeans covered in doodles, song lyrics, or signatures from people he'd known over the years. He was a few inches shorter than me, but I still felt intimated when he looked me over before nodding at the van behind him. He was a few inches shorter than me, but I still felt intimated when he looked me over before nodding at the van behind him.
+The day I met Malcom, the van was parked in the student lot at the end of the school day. He was sitting on the hood  when Summer walked me over. He wore his locs down to his shoulders and seemed to own an endless rotation of bright sweaters, colorful hoodies, and heavily customized jeans covered in doodles or signatures from people he'd known over the years. He was a few inches shorter than me, but I still felt intimated when he looked me over before nodding at the van behind him. He was a few inches shorter than me, but I still felt intimated when he looked me over before nodding at the van behind him.
 
 "You can get in if you want. We usually just hang here for a while on Fridays."
 
@@ -68,11 +68,11 @@ The day I met Malcom Reyes, the van was parked in the student lot at the end of 
 
 I got in the van. The back was set up with a secondhand mattress wedged between the wheel wells with a sleeping bag folded on one end, Christmas lights strung along the ceiling, a little speaker balanced on the flat part above the wheel well. A hand-drawn map of Bellhaven and the surrounding county was taped up next to it, marked in different colored pen, though I couldn't read what the markings meant from where I sat. 
 
-Two other people were already in the back. One of them was Cecile Ilao, who sat cross-legged on the mattress with a textbook open in her lap and a cigarette burning in her other hand. Her hair was wavy and brown, save for an uneven purple and blonde streak near the left side. She normally sported fitted t-shirts or tank tops with denim skirts, layered jewelry, and flashy eye makeup. I hadn't met her before, but I'd heard of her. Most people at Bellhaven High had. She'd been a cheerleader until the year before, and I remember being mildly surprised to find her here instead of wherever I'd unconsciously assumed popular people spent their afternoons.
+Two other people were already in the back. One of them was Cecile Ilao, who sat cross-legged on the mattress with a textbook open in her lap and a cigarette burning in her other hand. Her hair was wavy and brown, save for an blonde streak near the left side. She normally sported fitted t-shirts or tank tops with denim skirts, layered jewelry, and flashy eye makeup. I hadn't met her before, but I'd heard of her. Most people at Bellhaven High had. She'd been a cheerleader for years, and I remember being mildly surprised to find her here instead of wherever I'd unconsciously assumed popular people spent their afternoons.
 
 And then there was Iris.
 
-I've spent a lot of time over the past fifteen years thinking about how to describe Iris Mercer to people who didn't know her, and what I keep running into is the problem of the ending. Given her perception now being what it is, she’s stopped being a person and instead is either a victim or a monster, depending on which version the storyteller needs.
+I've spent a lot of time over the past fifteen years thinking about how to describe Iris Mercer to people who didn't know her, and what I keep running into is the problem of the ending. Given how she's perceived now, she’s either a victim or a monster, depending on the storyteller.
 
 I’ll tell you what half these posts don’t say about her: She grew up in a strict religious household. By the time I met her she'd created distance from a lot of that, or was in the process of creating it. She'd done ballet for several years as a child and stopped when her family moved. Her favorite color was purple and she loved to journal. She had a documented aversion to pain, her own and other people's. She didn't watch horror movies. She winced when you stubbed your toe. She crossed the street to avoid aggressive dogs. 
 
@@ -80,15 +80,15 @@ The day I met her, she was sitting in the back of the van with her knees crossed
 
 After Cecile greeted me, Iris looked up long enough to say, “Hey,” before turning back to her hand.
 
-Cecile and Iris had known each other since seventh grade, Malcolm told me. They were, at a glance, people that seemed like their differences would'vekept them apart, but they were also probably closer than anyone else in the group. Despite this, they fell into routine with the rest of us like it was nothing.
+Cecile and Iris had known each other since seventh grade, Malcolm told me. They were, at a glance, people that seemed like their differences would've kept them apart, but they were also probably closer than anyone else in the group. Despite this, they fell into routine with the rest of us like it was nothing.
 
-In the following weeks, after school or on weekends, we'd all end up parked somewhere in Malcolm's van: the lot of the Kmart that had closed in 2003, the pull-off where you could see the whole valley on clear days, sometimes just Malcolm's driveway with the back doors open and the string lights on and the speaker playing whatever Summer had decided we were all listening to that week. Cecile would do homework on the mattress, one leg folded under her, making corrections in pencil. Malcolm would be half-in and half-out of the front, trying to fix whichever thing had most recently stopped working. Summer would be talking, as usual. And Iris would be reading, or would have her head tipped back against the door and her eyes closed.
+In the following weeks, after school or on weekends, we'd all end up parked somewhere in Malcolm's van: the lot of the Kmart that had closed in 2003, the pull-off where you could see the whole valley on clear days, sometimes just Malcolm's driveway with the back doors open. Cecile did homework, Malcolm fixed whatever had stopped working, Summer talked, and Iris wrote or rested with her eyes closed.
 
-My reputation settled into something manageable by mid-September. The adults stopped watching me so heavily. The students sorted into two camps pretty cleanly: the ones who decided I was going to start something, and the ones who found the story interesting and wanted to talk about it, which I was equally uninterested in. There were a handful of people in between who, like Summer, seemed to have moved on, and those were the ones I ended up talking to. I'd been in Bellhaven for two months. I had somewhere to be after school. I was starting to feel, for the first time since moving to town, like I might actually be okay.
+My reputation settled into something manageable by mid-September. The adults stopped watching me so heavily. The students sorted into two camps: those who thought I'd start something and those fascinated by the story, which I was equally uninterested in. There were a handful of people in between who, like Summer, seemed to have moved on, and those were the ones I ended up talking to. I'd been in Bellhaven for two months. I had somewhere to be after school. I was starting to feel, for the first time since moving to town, like I might actually be okay.
 
 The quarry was about four miles out on Route 9, past the grain elevator and a stretch of fence where someone had been tying ribbons to the wire for years, red and yellow and orange and white, weather-faded and fraying at the edges. Malcolm had shown me the turn-off on a Wednesday, a gravel road that dipped down through tree cover and opened onto the old limestone cut: two levels of flat rock shelf above the water, a rusted ladder someone had anchored into the lower shelf with concrete a long time ago, and the water itself, green-black and deep enough that you couldn't see the bottom on even the clearest days.
 
-It had been a working quarry until the mid-eighties and before that a swimming hole going back further than anyone could trace. Half the adults in Bellhaven had stories about it. The other half had stories about why you shouldn't go. It was private property in the technical sense, but the fence had been down for years and nobody had ever tried to repair it, so in practice it was just another teenage hangout spot.
+It had been a working quarry until the mid-eighties and before that a swimming hole for generations. Half the adults in Bellhaven had stories about it. The other half had stories about why you shouldn't go. It was private property in the technical sense, but the fence had been down for years and nobody had ever tried to repair it, so in practice it was just another teenage hangout spot.
 
 We were there on a Saturday in late September, all five of us. Malcolm had a cooler in the back of the van, and Summer had a portable speaker that she'd zip-tied to a belt loop because she'd learned the hard way that leaving it unattended on the rock shelf meant it got knocked in eventually. Cecile was sitting at the edge of the upper shelf with her feet hanging over. I was in the water. Iris was on the lower shelf, sitting with her knees drawn up and a book resting in her lap.
 
@@ -126,7 +126,7 @@ A beat. Then Iris put her book down, stood up, and jumped off the lower shelf, a
 
 "Very," Summer said.
 
-Cecile came down from the upper shelf eventually and sat at the edge and put her feet in and that was as far as she was going, she said. Malcolm climbed out and sat next to her. I floated in the middle and Summer had found a section of the old quarry wall where the limestone had eroded into a set of rough handholds and was trying to climb it, with no particular success.
+Cecile eventually came down, put her feet in, and declared that was as far as she was going. Malcolm climbed out and sat next to her. I floated in the middle and Summer had found a section of the old quarry wall where the limestone had eroded into a set of rough handholds and was trying to climb it, with no particular success.
 
 I looked over at Iris. She'd drifted to a part of the quarry where the rock wall curved inward and made a shallow alcove, out of the main current. She was looking up at the tree line.
 
@@ -168,6 +168,8 @@ But sometime around spring, it started getting bigger.
 
 I heard most of it secondhand, from Malcom, who had heard it from his mother, who had a coworker whose sister-in-law had gone to Saint Germaine's for years and then stopped. The new pastor had come in about eight months before. Nobody I asked could tell me where he'd come from or who'd brought him in. The congregation doubled by June. People started driving in from outside Bellhaven to attend the Sunday services.
 
+I wasn't especially surprised that Malcolm was the one bringing it up. Summer was usually the one who chased theories headfirst, mostly because she wanted to be a journalist and believed every rumor could be an investigation. Malcolm was different. He loved science fiction, paranormal documentaries, conspiracy theories, all that stuff. He was open-minded enough to consider almost anything for a few minutes before deciding whether it was nonsense. Then again, Malcolm also owned a massive CD collection full of films nobody had heard of and nobody should have heard of, so I wasn't sure his judgment could always be trusted.
+
 "What's wrong with that?" I said. We were in the van, idling in the school parking lot after hours. 
 
 "Nothing, really," Malcolm said. He had one knee up against the back of the front seat, turned to face the group. "It's the way people talk about it. Like– my mom's coworker, right, she was there for fifteen years, even baptized her kids there. She left this spring and she won't say why."
@@ -182,6 +184,8 @@ I heard most of it secondhand, from Malcom, who had heard it from his mother, wh
 
 Cecile gave him a look, at which he awkwardly smiled.
 
+"Look, I'm not saying it's a cult or aliens or whatever." Malcom admitted, half-sheepishly. "But people keep telling these stories, so they must mean something, and I want to believe" 
+
 "Okay," Cecile said finally, and got out her own homework, and that was the end of it.
 
 The last Friday before we went to Bellhaven State, we were all at the quarry again, but thanks to the weather, the water was too cold to get into. We sat on the upper shelf and watched the water go dark below us. The tree line was orange and red and just beginning to go bare at the edges. From this angle you could see more of the facility than you could in the months before: the roof clearly visible now through the stripped branches, and what might have been a window, or a gap where a window used to be.
@@ -190,9 +194,9 @@ The last Friday before we went to Bellhaven State, we were all at the quarry aga
 
 That got everyone’s attention.
 
-Malcolm looked up. "Wait. He actually talked to you?"
+Malcolm looked up, not bothering to hide the grin on his face. "Wait. He actually talked to you?"
 
-“Sort of.” She tucked a strand of hair behind her ear. “He wouldn’t talk about patients at all. The second I asked, he shut that down completely. But he talked about the building itself.”
+“Sort of.” She waved a hand. “He wouldn’t talk about patients at all. The second I asked, he shut that down completely. But he talked about the building itself.”
 
 The wind moved across the quarry hard enough that I could hear it whistling through the trees below us.
 
@@ -202,9 +206,7 @@ The wind moved across the quarry hard enough that I could hear it whistling thro
 
 “It means either somebody built part of the place off-record or somebody deliberately removed it from documentation later.” Summer looked back up at us. “He said the staff called it the annex.”
 
-Nobody interrupted her after that.
-
-“He said the only way into it was through a staircase on the third floor of the east wing.” She paused briefly. “Which apparently bothered him even back then because who builds basement access on the third floor of a building?”
+“He said the only way into it was through a staircase on the third floor of the east wing.” She added. “Which apparently bothered him even back then because who builds basement access on the third floor of a building?”
 
 Malcolm frowned. “Did he ever go down there?”
 
@@ -216,7 +218,7 @@ Iris finally looked up from her notebook. “What did he say was down there?”
 
 Summer shrugged. “That’s the weird part. He said he couldn’t really describe it properly. But he told me that his grandson was out near the facility property a few nights ago with friends.” She glanced between us. “They saw lights inside the east wing.”
 
-Malcolm immediately shook his head. "It's just kids breaking in."
+Iris shook her head. "It's just kids breaking in."
 
 “That’s what the sheriff’s department said.” Summer nodded. “But Gerard said the kid came home terrified. He said they heard voices coming from inside.”
 
@@ -296,7 +298,7 @@ The third-floor stairwell was at the far end of the corridor and it was worse th
 
 Summer found a candle on the landing before we'd gone five feet.
 
-She crouched over it with her flashlight close. White pillar candle, half-burned, set upright in a small glass dish with a rim of solidified wax around the base. She held the light at an angle and looked at the drip pattern down the side.
+She crouched over it with her flashlight close. White pillar candle, half-burned, set upright in a small glass dish with a rim of solidified wax around the base. 
 
 "Someone burned this recently," she said. "If this had been sitting through a winter the wax would've yellowed. It hasn't." She looked up at us. "Someone was up here in the last week. Maybe less."
 
