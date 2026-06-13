@@ -40,7 +40,7 @@ Megan sat two desks away from me and seemed to survive entirely on iced water, r
 
 I liked her, honestly. Or at least, I wanted to. She had a way of looking directly at people when they spoke that felt either respectful or prosecutorial, depending on your blood sugar that day.
 
-My first team update was scheduled for my third Friday, and I started worrying about it the moment Elise put it on my calendar. At first, I tried to convince myself I was being ridiculous. It was five minutes. I wasn’t defending a dissertation. I wasn’t giving a TED Talk. I wasn’t standing before a jury of my enemies while they decided whether I lived or died. I was explaining user onboarding metrics to twelve people in a conference room named after a tree. Still, my body didn’t care that the room was called Cedar.
+My first team update was scheduled for my third Friday, and I started worrying about it the moment Elise put it on my calendar. At first, I tried to convince myself I was being ridiculous. It was five minutes. I wasn’t giving a TED Talk. I was explaining user onboarding metrics to twelve people in a conference room named after a tree. Still, my body didn’t care that the room was called Sequoia.
 
 A week before the presentation, I stopped sleeping normally. The nightmares started small. I would dream I was standing in front of the conference room with no slides, or with slides in the wrong language, or with a laptop that kept asking me to install updates while everyone waited. Basic anxiety-dream stuff.
 
@@ -98,7 +98,7 @@ I found it in my purse five minutes after we hung up, buried beneath receipts, a
 
 It was smaller than I remembered. Smooth, hard plastic, no label. Inside was the same dark liquid she used to keep in the glass bottle above the stove, thick enough to move slowly when I tilted it under the kitchen light. It was my lucky charm. Some people carry crystals. Some people wear the same socks on test days. I carry my grandmother’s nerves recipe in a tiny container with no label.
 
-I put it beside my laptop while I finished my slides. I thought about drinking some, but I didn’t. My stomach was too tight for even water, and besides, just knowing it was there really helped. That’s the thing about charms. You don’t always need to use them. Sometimes you only need to know they’re by your side.
+I put it beside my laptop while I finished my slides. I thought about drinking some, but I didn’t. My stomach was too tight for even water, and besides, just knowing it was there really helped.
 
 The next morning, I got to work early enough that the lights in our part of the office were still motion-activated. They clicked on row by row as I walked past the desks, carrying donuts, coffee pods, and the kind of fragile optimism you can only have before 8 AM.
 
@@ -122,7 +122,7 @@ Megan came in last, carrying her glass water bottle and a container of rice crac
 
 “Yes,” I said.
 
-“Ah.” 
+“Ah.”
 
 “There’s coffee too,” I offered.
 
@@ -154,11 +154,9 @@ She was smiling at me, which should’ve helped, except her smile didn’t look 
 
 I looked away and found Chris.
 
-His eyes were open very wide. And I thought, huh, he looks really focused. That helped.
+His eyes were open very wide. And I thought, huh, he looks really focused.
 
-I said the first sentence from my notes. Then the second.
-
-No one interrupted.
+I said the first sentence from my notes. Then the second. No one interrupted.
 
 I explained that users were dropping off during the second step of onboarding. I showed the funnel. I pointed out that people who completed the profile prompt were significantly more likely to return within seven days.
 
@@ -288,9 +286,8 @@ I reached into my purse for my keys and felt the little container at the bottom.
 
 My grandmother’s nerves recipe.
 
-I took it out and held it in my palm for a second. Tiny white cap. No label. There was still a little left inside, dark and slow-moving when I tilted it toward the light.
+I took it out and held it in my palm for a second. There was still a small amount left inside, dark and slow-moving when I tilted it toward the light.
 
 Only a little, my grandmother used to say. I put the container back in my purse, washed my hands, and went out to clean up the conference room.
 
 Next time, I think I’ll bring brownies.
-
