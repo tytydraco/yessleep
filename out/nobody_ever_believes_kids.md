@@ -1,0 +1,191 @@
+The first time eight-year-old Lily said there was a man in her room, her parents assumed it was a nightmare.
+
+“He stands in the closet,” she whispered.
+
+Her father checked. Nothing. Just clothes hanging in the darkness.
+
+“See? Nobody’s there.”
+
+Lily didn’t look convinced.
+
+“He hides when you’re looking.”
+
+For weeks, it became a routine. Every night between 2 and 3 a.m., Lily would appear in her parents’ doorway, pale and shaking.
+
+“The man is back.”
+
+Every night, her father would search the room.
+
+Under the bed.  
+Behind the curtains.  
+Inside the closet.  
+Nothing.
+
+At first, they were patient. Then concerned. Then annoyed. The story never changed. There was always a man.
+
+Always watching.  
+Always standing in the closet.
+
+“He doesn’t move when you’re here,” Lily said one night.
+
+“What does he do?” her mother asked.
+
+“He just smiles.”
+
+That answer bothered her mother more than she’d admit.
+
+“What does he look like?”
+
+Lily thought for a moment.
+
+“Tall.”
+
+“Okay.”
+
+“And skinny.”
+
+“Okay.”
+
+“He has really big eyes.”
+
+Her mother felt a chill crawl up her arms. Children imagined strange things. That’s all this was. Had to be. Months passed. Lily stopped sleeping. Dark circles formed beneath her eyes. She began refusing to play in her room. Sometimes her parents would find her sleeping on the hallway floor outside their bedroom. One morning her father discovered all of Lily’s toys piled against her closet door.
+
+“What happened here?”
+
+She froze.
+
+“I didn’t want him coming out.”
+
+Her father sighed heavily.
+
+“Lily…”
+
+“I’m serious.”
+
+“There is nobody in your closet.”
+
+Tears instantly filled her eyes.
+
+“You never believe me.”
+
+That night, after another argument, her mother finally snapped.
+
+“No more.”
+
+Lily looked down.
+
+“If you wake us up again, you’re staying in your room. We’re done checking. We’re done talking about the man.”
+
+Lily’s face went white.
+
+“You can’t do that.”
+
+“Watch me.”
+
+“He’ll know.”
+
+Her mother laughed despite herself.
+
+“He’ll know what?”
+
+“That nobody believes me.”
+
+Lily quietly walked back to bed. Around 3 a.m., her parents were awakened by a scream.
+
+Not a frightened scream.  
+Not a nightmare scream.  
+A scream so full of terror that both of them were out of bed instantly.
+
+They ran into Lily’s room. The lights were off. Lily was curled into a ball on her bed sobbing uncontrollably. Her father reached for the lamp.
+
+“No!” Lily screamed.
+
+“Don’t turn your back on the closet!”
+
+The room fell silent. For a moment, nobody moved. Then her father laughed nervously.
+
+“Okay. Enough.”
+
+He walked toward the closet. Lily began screaming again.
+
+“Don’t!”
+
+He grabbed the handle. Yanked the door open.
+
+Clothes.  
+Shoes.  
+Nothing else.
+
+Just as he’d expected. He turned around.
+
+“See? Nobody’s—”
+
+He stopped. His wife was staring at the closet.
+
+Not blinking.  
+Not moving.  
+Just staring.
+
+“What?”
+
+She slowly raised a shaking finger.
+
+Toward the back corner.  
+Behind the hanging clothes.
+
+His stomach dropped. There was something there.
+
+Not a shape.  
+Not a shadow.  
+Something darker than the darkness around it.  
+A human silhouette.  
+Standing perfectly still.  
+Watching them.
+
+For one impossible second, nobody moved. The figure didn’t move either. It simply stood there.
+
+Tall.  
+Thin.  
+Silent.
+
+Then came a sound. A slow inhale. The unmistakable sound of someone breathing. His wife screamed. His fatherly instincts finally kicked in. He lunged forward, ripping clothes from their hangers. The figure exploded out of the closet.
+
+A man.  
+A real man.
+
+He crashed into Lily’s father, knocking him backward. The room erupted into chaos. His wife grabbed Lily. The stranger sprinted through the bedroom doorway. By the time police arrived, he was gone. The search lasted until sunrise.
+
+No sign of him.  
+No fingerprints.  
+No identification.  
+Nothing.
+
+The only thing investigators discovered was that the attic access panel inside Lily’s closet had been tampered with years earlier. Someone had created a narrow crawlspace above the walls. A hidden area stretching through parts of the house. Food wrappers were found there. Empty water bottles. Blankets. Evidence that someone had been living inside their home. For months. Maybe longer. The police eventually asked Lily a question.
+
+How long had she been seeing him? The little girl looked at them and quietly replied.
+
+“Since last summer.”
+
+The officer nodded.
+
+“And what did he do?”
+
+Lily stared at the floor.
+
+“He watched me.”
+
+A pause.
+
+“Did he ever say anything?”
+
+Lily nodded. Her mother felt sick.
+
+“What did he say?”
+
+The little girl looked toward her closet. Even though it was empty. Then she whispered.
+
+“He told me not to worry.”
+
+Her voice trembled.
+
+“‘Nobody ever believes kids.’”
