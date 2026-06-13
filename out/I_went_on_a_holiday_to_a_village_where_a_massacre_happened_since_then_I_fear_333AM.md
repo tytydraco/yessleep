@@ -1,0 +1,23 @@
+I went to a village near Frigiliana (Málaga, Spain) called El Acebuchal in 2020. Something happened there I still think about.
+
+Quick history first because it matters. During the Spanish Civil War, El Acebuchal was a maquis stronghold (anti-Franco guerrilla fighters hiding in the mountains). Franco’s troops eventually wiped out the entire population and destroyed the village completely. It sat in ruins for decades. Then in the 1970s, Franco’s own rural resettlement program rebuilt it from scratch. Like a lot of rural Spanish villages though, it slowly emptied out again over the following decades.
+
+I was 10 when we went. The heat was brutal and from the second we arrived it felt off. There was no phone signal anywhere, not even spotty, just nothing. As far as we could tell the entire population of the village was two people, a woman who ran the guesthouse and her relative who ran the only restaurant. The restaurant owner never said a single word the whole time we were there, he had some kind of severe facial disfigurement that looked congenital, and he’d just silently bring food out and disappear. His relative did all the talking.
+
+On every street corner there were tall statues of the Virgin Mary, plus these small handmade figurines tucked into windowsills and wedged into walls all over the village. As a kid I just figured it was typical old-village decoration.
+
+We were there three or four days. One afternoon we went hiking in the woods and found a building that looked like some kind of small electrical substation. It was completely spotless, no dust, nothing, while everything else around it was dry and decayed. Inside it was totally empty and abandoned, no equipment, nothing running. Someone was maintaining a clean, empty building in the woods near a village with no signal and two residents.
+
+That night was our last night. There was a pool with a jacuzzi at the guesthouse. My dad and one of his friends, both well over 6 feet tall, were sitting out there drinking, planning to get in the jacuzzi later. I was just sitting nearby half asleep.
+
+At exactly 3:33 AM we started hearing heavy footsteps in the woods right behind the pool on the hillside. It wasn’t an animal, I grew up around those mountains and know what wildlife sounds like moving through brush. This was slow, heavy, even, two feet, one after another, like someone walking calmly toward us with no rush at all.
+
+I said “papá, por favor, vámonos.” My dad and his friend were a few drinks in and brushed it off, figured I was just spooked. But the footsteps kept getting closer, never speeding up, which somehow made it worse. Eventually even my dad and his friend went quiet and we all got up and went inside fast.
+
+The second we reached the door, the door knocker started slamming on its own, four hard bangs, nobody touching it. My mom opened the door from inside at almost the same second, already saying she’d heard people walking around outside and had come to check.
+
+We looked at the oven clock. 3:33 AM. The same second my mom said that, wind started blowing through the house, not from any open window or door, just from inside.
+
+None of us slept. The whole rest of the night there were noises through the house, knocking, what sounded like footsteps on the floor above us in a single story building. Nobody investigated. We just sat together until it got light, then packed up and left first thing without saying goodbye to anyone.
+
+I still don’t have an explanation. The timing, the maintained empty building with no signal anywhere near it, the two people running the whole village related to each other with one of them never speaking, the figures on every corner, and 3:33 specifically. We all remember it the same way. I’ve never wanted to go back.
