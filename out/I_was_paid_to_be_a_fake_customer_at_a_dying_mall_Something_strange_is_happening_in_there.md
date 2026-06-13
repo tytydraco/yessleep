@@ -432,6 +432,10 @@ I thanked her and hopped out.
 
 Before she took off, I asked her what her name was. She just shook her head, said it’d be pointless for me to know.
 
+But she did offer one piece of ominous advice:
+
+"If you want to survive in that place, you have to act natural. Think about how a normal person would act inside a mall and then act that way." 
+
 When I got home, I drained the rest of the vodka in my fridge and passed out on my couch. When I woke up this morning, I checked my phone and saw a notification from my bank.
 
 I’d been e-transferred $3,000.  
