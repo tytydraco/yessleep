@@ -6,7 +6,7 @@ College wasn’t my thing, but neither was staying in town; at that point everyo
 
 But that wasn’t enough. I was ready to go big. And the glitzy lights and siren song of jackpots drew me to Las Vegas. Yeah, cliche place, but when you have my luck, the old adage “the house always wins” doesn’t mean jack. That’s when I started making real money, putting my luck to good use full-time. Every pull of a lever, push of a button, throw of the dice… it all came my way. Sure, I got a bad hand or a crap throw often enough, but by the end of the night I always left with more than I started. First few months I was there, I got dragged into back rooms to be interrogated by a bunch of stiffs in tight suits more times than I could count. They were convinced I was cheating. But they never found anything on me: no extra dice, no hidden cards, no cameras, nothing. I told them the truth; that I was just lucky. They didn’t like that answer, but with no proof, they would send me on my way, telling me not to come back for the day. I learned to pace myself: switch up where I was gambling each night, don’t win too much, stop when the dealer was starting to sweat. 
 
-Even with those restrictions, I was making more than enough to not just survive, but thrive. Got a nice little penthouse at the top of one of the hotels, spent my days gambling and my nights partying. Slowly, people started to learn my name, follow me around, and want to get close to me. They all were hoping to sap up a little bit of my luck. And the crazy thing? They did. When I was at their table, suddenly everyone’s hands were coming up in their favor. I watched grown men fight over the chance to sit at the slot machine next to mine. I wasn’t just a great gambler, I was *the* great gambler. The guy who got whispered about when I walked by. The Luckiest Man In Vegas. Hell of a title.
+Even with those restrictions, I was making more than enough to not just survive, but thrive. Got a nice little penthouse at the top of one of the hotels, spent my days gambling and my nights partying. Slowly, people started to learn my name, follow me around, and want to get close to me. They all were hoping to sap up a little bit of my luck. And the crazy thing? They did. When I was at their table, suddenly everyone’s hands were coming up in their favor. I watched grown men fight over the chance to sit at the slot machine next to mine. I wasn’t just a great gambler, I was the great gambler. The guy who got whispered about when I walked by. The Luckiest Man In Vegas. Hell of a title.
 
 In the back of my mind I always thought one day my luck would peter out. I wasn’t expecting it to be so dramatic.
 
@@ -163,7 +163,7 @@ I’m not sure how long I stood in silence, but eventually all I could do was tu
 
 The moment I closed the door the pitter-patter of rain echoed outside the car, turning into a near-torrential downpour in seconds. 
 
-“God damn, it’s really comin’ down!” the driver laughed as he turned his windshield wipers on high. “I usually don’t take this road neither, but my usual route’s backed up. Lucky I came this way or you’d be soaked right now, huh?”
+“God damn, it’s really comin’ down!” the driver laughed as he turned his windshield wipers on high. “I usually don’t take this road ‘neither, but my usual route’s backed up. Lucky I came this way or you’d be soaked right now, huh?”
 
 That word rang in my head and I nodded again. “Yeah. Lucky.”
 
