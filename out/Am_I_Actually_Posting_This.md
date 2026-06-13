@@ -1,0 +1,115 @@
+So, first off, I don’t know if I’m actually posting this. If I could get some confirmation in some way, please, I don’t want to feel like this anymore.
+
+To start off, have any of you tried \[redacted\]? My friend Marcus has been obsessed with the stuff for years. He’s never been a big ‘druggie’ dude, but this guy can’t stop talking about \[redacted\]. “Oh it changed my life”, “Oh you’ll never look at the world again” and all that other shit people love to spout. Me? I never needed any of that. Am I the most happy person in the world? No. Am I the most well off mentally? Also no. But that’s also why I never wanted to even mess around with the stuff.
+
+I’m not proud of it, but I’ve been having a bit of a dark time. I’ve never even thought of something like this, but after hearing so much praise from Marcus I thought, things can’t get much worse.
+
+Long story short, I decided to call up Marcus and ask about everything.
+
+“Dude, it’s not the time to be doing stuff like that, no matter how much I recommend it”
+
+“Why not?” I asked, confused about how he was so eager to get me on board but now being so reluctant.
+
+“Honestly, for your mental well-being, wait until you’re in a better place in life” he sighed. I could tell he only wanted the best for me.
+
+“Fine” I hissed as I shot a look that he couldn’t see, across to the corner of my room.
+
+“But listen dude if you want to go out for drinks or just hang out let me know! I haven’t seen you since Christmas and it would be great to catch up” I could tell his words hid behind a fake smile. “I’ll be alright man, we’ll catch up soon” I huffed as we hung up and I slinked back into my bed. I must have faded off for who knows how long when I heard a loud banging at the door.
+
+“Jesus” I awoke from the thumping of my chest. It sounded like someone was trying to break down the door with how hard they were hitting it. I nervously slid out of bed and shyly made my way to the door.
+
+I poked my head from around the hall to try and catch a glimpse of their shadow. It looked normal. The banging had stopped the moment I walked from my bedroom into the hallway. “What the fuck is going on” I nervously chuckled as I cautiously approached the door. I slid the chain into the door lock to make sure no one could push their way in before allowing the door to let out a squealing creek as it opened.
+
+“Dude! Took you long enough!”. It was Marcus. “What…” I tried to muster out the words, still in a daze and my heart racing from what had just happened, “What are you doing here man?”
+
+“Look what I brought” he let out a devious smile as he pulled a bag from his pocket and held it up next to his face. “Dude!” I tried to signal him, “My neighbors can see, what the fuck” I hissed as I quickly unchained the lock from the door and pushed him inside.
+
+“I thought you said it wasn’t a good idea right now” I spoke as he kicked off his old shoes, the devious smile never fading from his face for a moment.
+
+“I had a change of heart” he hissed through his teeth, still wearing that devious smile.
+
+“O..Okay?” I shrugged, weirded out about the whole situation.
+
+“Let me just go get dressed and I’ll be right down” I spoke as he made his way into the other room. I ran up my stairs, grabbed my clothes from the night before off my floor and quickly started getting changed. I tossed on my pants, socks, everything without a hitch, but the second my shirt was over my head, I heard the loudest bang from downstairs. It sounded like.. someone… hitting the floor. “Oh my god” I quickly threw the shirt over my head, only putting one arm through the sleeve before running back downstairs.
+
+I sprinted down the stairs and into the room. “Are you o-” I stopped myself. Marcus was sitting on the couch with a confused look on his face. “Yeah man, are you?” he chuckled as he looked at me wearing half of a shirt. “Yeah I just thought… Nevermind” I laughed it off as I took a seat next to him. He shook his head and pulled out the bag. The weird part, was I could tell he was still trying to hide his same devilish grin. Like when someone is deeply sad, and you can still see their emotion even through their mask of an expression, but this was just… wrong.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+I’ll spare you the details of what happened, I’d rather not get banned here while trying to look for help, but after about an hour of staring at whatever bullshit was on TV, expecting something, anything to take hold of me, I decided to ask Marcus what was up. 
+
+I had looked over to him expecting to be comforted with his smiling face either staring at the screen, or laughing because he gave me fake \[redacted\] since, well, he was the one to say I shouldn’t right now, but it was much worse. The look on his face did nothing but make things worse.
+
+Marcus looked like he hadn’t blinked in hours. His eyes looked dry and almost wrinkled from the lack of moisture, with the corners almost melting into his view. He was staring at the TV, but I could tell he wasn’t. He was looking ‘past’ the TV. I could tell he wasn’t looking at the screen, but almost as if there was something three houses down he was staring at.
+
+“Marcus” I spoke nervously, hoping he was just feeling the effects more than me. He didn’t move. He just sat there, with nothing but a blank expression, but I knew he was still hiding that devious smile.
+
+“Maybe he just fell asleep with his eyes open” I tried to cope, “yeah that must be it, this guy is always falling asleep here and just got too comfortable” I slightly laughed, my distrust for my statement still tugging at my heart.
+
+I mozied over to the other room to grab some blankets and pillows. Even when I’m scared, I try to be kind. As I opened the closet door and reached up to the highest shelf to grab them when I heard something smash near Marcus. “Great” I rolled my eyes, thinking he fell over and knocked over the water I had put out for him, but the uneasy feeling did nothing but grow.
+
+I closed the closet door and reluctantly returned to the room.
+
+There he was. Still watching the TV with those dry, unblinking eyes. Nothing had changed. Nothing had moved. “What was that noise!?” I spoke in a slight panic. Nothing. Marcus’ eyes were still glued to the screen, or whatever was behind it.
+
+I nervously put down the sheet and blanket next to him before quickly withdrawing to my room.
+
+I got into bed, pulling the covers over me and staring at the door, knowing something was wrong. I stared until I couldn’t keep my eyes open any longer.
+
+BANG. I heard a noise from where Marcus was sitting. The sound was almost deafening. Like a truck bouncing off a curb at high speed, as it echoed throughout my body. I sat there, terrified. Unsure what to do or say. “M…Mar… Marcus” I whimpered. I sat there in silence for a moment before I heard something else. Fast. Heavy. Steps. They pounded from upstairs down the hall, until it reached where Marcus was sitting before, silence.
+
+Was \[redacted\] working? Was this actually what I signed up for and I’m just having a bad time? It must have been, I thought to myself. “Why the hell would Marcus put himself through this on such a regular basis?”, I thought to myself as I shook my head. I creaked out of bed, approaching my door, still, silence. I carefully lifted my laundry basket, overflowing with undone laundry, and placed it behind my door. If it opened, I could buy myself a few seconds at least for, whatever might be happening. I made my way back into my bed in the silence as I threw the sheets over me. Nothing but silence filled the air. Darkness started to cloud my vision and I slowly drifted asleep.
+
+—--------------------------------------------------------------------
+
+I awoke in a panic remembering what happened last night as the sun shined through my cheap, worn curtains. I quickly scurried out of bed, my legs flinging like a cockroach to the light as I shifted over my laundry basket with my foot. With a push I ran into the other room. “Marcus!” I started to shout before looking around, but no one was there. The sheets remained folded nicely in the pile he had been sitting, the pillow neatly placed atop, the water, dripping to the table from the condensation, was still untouched. I stood at the edge of the room, trying to push down any sort of panic. “He must have left, just like him to do that without saying goodbye” I hissed with a touch of doubt. I grabbed the blankets and pillow as I started to walk them back to the closet. That’s when I noticed it.
+
+The door was still locked. “How did.. How did he lock the door without a key” I muttered to myself while my only key dangled from the keyrack as it stared with an ominous shine and a hint of Marcus’ devilish smirk back at me.
+
+I tried to ignore it, pushing my way to the closet to put back the blanket and pillow. The closet door slowly creaked open as I opened it with my leg, hands full of the nice thing I did for Marcus. I reached up to put them away when it happened. Another bang, followed by five heavy footsteps, as if someone was sprinting, across the room where Marcus had slept. Just like last night. “What the hell?” I shrieked as I made my way over to the other room. Nothing. Silence.
+
+“This shit lasts, way too long” I spoke with a hiss, pissed off that Marcus would even suggest we do something like this. He knew who I was. He knew I wasn’t ‘all there’, and he let me do it anyway. “I’m definitely not talking to him for the next while” I hissed again as I made my way back to my room to get ready for the day. I put his chats on "archive" so I could just forget about his ‘help’ when his friend really needed it.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Everything was actually quite normal for the few days. No noises, no paranoia, I thought \[redacted\] just made its way out of my system. I actually ended up seeing Marcus at the corner store a few days later. We locked eyes at the end of an aisle as I tried to quickly dart my eyes away.
+
+“Dude” he hissed at me as he stormed over, “Why the hell didn’t you call me back, I was worried about you. Did you still want to hang out or go for drinks?”, I could tell he was pissed.
+
+“Don’t ‘dude’ me, you just left without saying anything man, that was really rude as hell! I left you out blankets, water, everything and you were just being super weird the whole time. Why did you suggest we do \[redacted\] and then just leave, especially after telling me I shouldn’t? Kind of a shitty thing to do to a friend” I snapped back at him.
+
+He paused as if the words got caught in his throat. “What.. what do you mean?” he asked with a blank expression, obviously trying to hide his concern that peered through the sides of his lips. “Last week man, I haven’t been okay since!” I spoke with a whimper. His words cut through the silence with a dry, concerning tone.
+
+“I haven’t seen you since Christmas man”. I stopped. Frozen. I didn’t know what to say. Was he being serious? Was this real? Did last week even happen? Was it all just a dream? His concerned stare cut the seconds into minutes as he awaited my response.
+
+I didn’t want him to worry, hell, if that were actually him, maybe I’m just too tired, I haven’t been sleeping great, maybe *this* is just a dream. So I threw on my usual mask when things are going wrong and tried to laugh it off. “Of course man, I was just trying to mess with you” I cracked from a broken smile. His expression didn’t change.
+
+“Are… are you sure man? You seem pretty riled up” he spoke from the side of his mouth with an unchanging stare. His face looked porcelain as his unblinking eyes cut a hole in my heart.
+
+“Yeah man” I tried to laugh, “I’ve been getting over this flu and I think it’s just making me feel all whacky” I chuckled wearing my same broken smile. He stood in silence for a few moments before breaking it. “As… as long as you’re sure man. If you need anything you know where to find me” he spoke, the concern unable to be hidden in his voice. “Thanks man” I sighed, before making an excuse to quickly scurry off.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+The rest of my day felt normal, well, as normal as it could be. I finished picking up my groceries, avoided the gas station as my gas light screamed in my face, and pulled into the driveway to unwind for the day.
+
+I carried every bag in one trip, as usual, and shoved the unorganized boxes into the cupboard and fridge to leave future me with that hassle.
+
+I made my way upstairs to the shower, grabbing a towel from the closet along the way. I’ve been pleasantly surprised that everytime I’ve been in this closet since I haven’t heard, well, you know.
+
+I tossed the towel on the back of the door as I cranked the shower and let the steam start to fill the room. I closed my eyes and let my head drift back, just happy to be home for the day.
+
+I peeled open the empty shower, the curtain screeching with old, rusty hooks as I did. “I still gotta find the time to replace those” I mentally added to my list as I stood under the heat.
+
+I stood underneath the water, letting the boiling drops bead off of my face. I filled my hands with shampoo and began to work.
+
+My hair draped my face as the shampoo sudded down the drain. That's when I heard it.. A sound loud enough to knock me back into the wall of the shower. The bathroom door. Flinging open at full force. Three, loud thuds, approaching my soap-blinded-self as I stood in a panic. I tried to open my eyes, only to be hit with a sharp stinging at the slightest glimpse of light. “FUCK!” I yelled as I quickly tried to wash off the soap, “FUCK FUCK FUCK!” I screamed as I almost tore the hair from my scalp, trying to do anything to clear my vision. I heard the shower curtain scream open, as I wiped away my eyes and pried them open in a panic. That’s when I saw…
+
+Nothing. Nothing but the extreme burning sensation in my eyes while they poured with sud filled tears. The shower curtain was closed. The only the sound being of soapy water softly making its way down the drain. I peered through the curtains. Nothing. The door was closed. The ground bare. Only the stinging of my eyes to remind me of what had just happened.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+That was only minutes ago. I’m not sure what to do. I thought maybe someone here might have some experience with this kind of stuff. I’m going to get some cameras or something this week, incase I’m not just going crazy. I’m hoping to get some soon, before things get any worse, but even my gas light is telling me I have other priorities.
+
+I’m not sure what’s going on, or if I’m actually even posting this. Has anyone ever tried \[redacted\]? Is this normal? I can’t find anything like this online. Please, if you’re reading this, let me know. I will keep you updated on anything else if so. Please. I just want to feel normal again.
+
+and Marcus, if you’re reading this, I’m sorry for using your real name, but I really need some help from a friend

@@ -1,0 +1,67 @@
+I used to think the woods were quiet.
+
+Back home, nature was just grids of corn, soybeans, and the occasional state park. It was predictable. But when my dad took a job managing a timber operation in Mason County, everything changed. We moved into a house tucked away in the foothills of the Appalachian Mountains, surrounded by forests so dense they looked like solid walls of black when the sun went over the horizon.
+
+I’m 17 years old and moving during your senior year sucks, obviously. But I managed to make a few friends pretty quickly. There’s Max, who can fix anything with an engine, and Sarah, his girlfriend, who knows all of the local legends like it's law. They welcomed this outsider with open arms, and for the first few weeks, we spent our summer nights driving down winding back roads, windows rolled down, listening to the cicadas.
+
+I thought I was adapting to my new surroundings. I thought the eerie feeling of being watched was just my city brain adjusting to the rural life.
+
+It wasn't.
+
+It started three weeks ago. We were hanging out in the woods in an old abandoned campground with cabins, and even a pool with no water, of course. Local teens have used it as a hangout for decades, but that night, with just the three of us on the tailgate of Max’s truck, I couldn't get over the strange feeling of being watched again.
+
+The air felt heavy. You know that static charge you feel right before a big thunderstorm, where all the hair on your body stands up? It was EXACTLY like that, except it was a clear summer night without any storm clouds in sight.
+
+Sarah was mid sentence when the woods went dead silent. No crickets. No owls. Nothing.
+
+“Did you guys hear that?” I asked, looking towards the forest.
+
+Max laughed, tossing a beer cap into the darkness of the night. “It's just a deer, man. Don't let the shadows freak you out.”
+
+That was no deer. Deer make noise moving through the woods. Whatever was out there was dead silent, but yet I could still feel a sort of weight shifting out in the darkness. Then, I saw it.
+
+  
+Two glowing, deep red circles.
+
+  
+They weren't reflecting off of Max's headlights; they were emitting their own dim and angry light, positioned about seven feet off of the ground. They blinked once. Slowly.
+
+  
+A primal and almost suffocating dread settled in my chest. I couldn't breathe. Have you ever had fear so intense that your entire body locks up? My brain was yelling at me to run, but my boots felt like they were filled with lead.
+
+  
+"Max," I choked out.
+
+Before he could answer, the eyes ascended high in the air until they were suddenly nine or ten feet in the air. A massive silhouette detached itself from the oak, and the sheer scale of it made my stomach drop. It looked almost humanlike, but its shoulders were hunched, and a pair of immense, ragged wings spread out from its back. 
+
+Sarah shrieked, a sound of pure terror that broke my paralysis.
+
+Max scrambled into the cab and cranked the engine. It roared to life, headlights lighting up the clearing. For a split second, the high beams caught the creature perfectly. 
+
+It didn't have a head. Not a real one anyway. Those massive, burning eyes were set directly in its muscular chest. The skin, or hide, or whatever it was, looked like a charcoal gray velvet or fuzz.
+
+It didn't run. It didn't flap its wings to build up momentum. It just vaulted straight into the air with a "zip" sound, like a heavy canvas tarp ripping in a gale force wind.
+
+We sped out of there so fast Max almost flipped the truck on the turn out of the clearing. We were silent on the ride home. What could we say? You can't just casually bring up that you saw a demon of the night.
+
+I tried to tell myself it was a massive owl. A selective mutation. A hallucination from the mix of the alcohol, drugs, and paranoia. I spent hours that night searching the internet for anything that could explain whatever it was away, but deep down, I knew what Sarah was thinking when she kept whispering to herself on the drive home. 
+
+The worst part is, it didn't stay in the campsite area.
+
+A week later, I woke up in the middle of the night. I looked at the clock: **3:00 AM.** My bedroom is on the second floor with a window that faces the woods that surround our home. The room was freezing, and a bizarre, high pitched screeching sound was echoing outside. It sounded like a broken belt, or a woman screaming in the distance.
+
+I dragged myself out of bed, groggy, and pulled the curtains apart. 
+
+It was sitting there on a branch of an old oak tree, barely ten feet from my window.
+
+Its red eyes were staring directly into mine. It didn't move. It just sat there still, just watching, observing, its chest rising and falling in a slow, hypnotic rhythm. I was frozen, staring back into those deep red circles, and a wave of pure, absolute depression washed over me. It wasn't just fear anymore; it was an intense sense of doom, like a physical weight crushing my thoughts. 
+
+I don't know how long we were there, locked into each other's eyes. Eventually I blinked, and it was gone. No sounds of it flying away now; leaves rustling and branches snapping it was just gone.
+
+I haven't slept since that night. Every time I close my eyes, I see those eyes burning through my eyelids. Max and Sarah are avoiding my texts; honestly, I don't blame them. We provoked something out there at that cabin.
+
+My dad says we have to go back into the hills this weekend to scout some new timber lines. I'm petrified. Because when I locked eyes with that thing that night, I didn't feel like it was just watching me; I felt like it was waiting for me. 
+
+I'll keep you guys updated
+
+What the hell is happening with me 

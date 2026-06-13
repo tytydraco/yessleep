@@ -186,7 +186,7 @@ Around 2 am, three soft, almost polite, little knocks rapped on the door.
 
 I didn't get up. But I looked under the door.
 
-This was a new floor. A new room with a new door, and yet, underneath it was a shadow. The Same shape of the same two feet, close together, right against the seam.
+This was a new floor. A new room with a new door, and yet, underneath it was a shadow. The same shape of the same two feet, close together, right against the seam.
 
 "Priya. Look at the door." I said, shakily.
 
