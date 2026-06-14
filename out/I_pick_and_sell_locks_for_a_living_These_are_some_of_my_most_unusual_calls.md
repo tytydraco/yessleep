@@ -236,15 +236,13 @@ The two of us sat in silence for another minute or so. A child blew past us on a
 
 “She gets this dimple—” Thomas started, touching his right cheek, “On the side of her face when she smiles.”
 
-I turned to him as he spoke.
-
-He looked up for a moment, then spoke quietly.
+I turned to him. He was staring into the distance again, an expression as if he were witnessing a slow-motion tragedy far away and was powerless to stop it. He asked, almost inaudibly—
 
 “I wonder what happened to it.”
 
 I stayed silent.
 
-“And she does this thing when she finds something funny. She starts snickering before she even gets to the punchline,” he almost smiled, “Can’t help herself.”
+“She does this thing when she finds something funny. She starts snickering before she even gets to the punchline,” he almost smiled, “Can’t help herself.”
 
 Thomas sighed.
 
@@ -254,7 +252,7 @@ He picked at a thread on his sleeve.
 
 “I guess I knew it was going to be like this from the first,” Thomas muttered. “Thought it was just the stress of moving. Thought we’d get over it. Deep down I knew better.”
 
-He sighed, deeply. Several seconds passed before he continued.
+He was starting to choke up. Several seconds passed before he continued.
 
 “Every time she avoided me it felt like I had broken something. I never knew what it was until it was too late. I’m starting to think—It’s me. I’m the mistake. God—”
 
