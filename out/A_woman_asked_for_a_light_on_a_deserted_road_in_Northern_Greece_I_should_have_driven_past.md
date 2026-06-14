@@ -1,0 +1,251 @@
+​I stopped smoking years ago, right after the events of that night.
+
+I still don't know why I kept the lighter.
+
+There are times I wonder if people would think I'm insane if I ever told this story out loud.
+
+I'm not even sure I'd believe it myself—if it weren't for the lighter still sitting on my desk.
+
+It's red, heavy, metallic, with a silver embossed dragon breathing fire.
+
+I bought it because it stood out. I was tired of my lighters getting mixed up with everyone else's.
+
+Or at least, that's what I tell myself.
+
+Sometimes, when I look at it, I feel like I remember a bar, neon lights, and a pair of eyes.
+
+The memory never lasts long. It always fades into that night.
+
+It was the dead of winter.
+
+Fine, persistent rain hit the windshield in a steady, hypnotic rhythm.
+
+I had spent the evening with a friend in a remote tavern in a small provincial town somewhere in Northern Greece, drinking strong red wine, trying to shake off the cold that had settled into our bones.
+
+We were driving back late at night.
+
+I was behind the wheel.
+
+The road was almost empty—fields on one side, low hills on the other, and between them a narrow strip of asphalt disappearing into darkness.
+
+We were talking about nothing in particular when my passenger suddenly screamed.
+
+"Do you see her?"
+
+I looked up.
+
+In front of us, at the edge of the road, stood a woman.
+
+She was waving for us to stop.
+
+I don't know why, but the moment I saw her, something twisted in my stomach—like time itself had stalled.
+
+She couldn't have been older than twenty-five.
+
+Her hair was jet black, soaked and stuck to her face, falling all the way down to her waist.
+
+Her skin was so pale it almost glowed in the dark.
+
+She wore a long white dress, completely inappropriate for that freezing night, yet she wasn't shivering—despite the storm raging around us.
+
+I stopped the car and lowered the window.
+
+A strange smell of wet earth and old incense filled the cabin.
+
+She stepped closer.
+
+She smiled.
+
+A polite smile, but disturbingly empty—like it wasn't meant for us, but for something standing just behind us.
+
+"Boys, do you happen to have a cigarette?"
+
+My friend beside me had frozen completely.
+
+Almost automatically, I pulled a cigarette from my pack and handed it to her.
+
+"And a lighter, if you don't mind."
+
+I gave her mine.
+
+I still remember the sound of the lid opening.
+
+Click.
+
+The flame sparked to life, lighting up her face.
+
+Her eyes were black and glossy.
+
+And for a fraction of a second, I felt something irrational—like I had seen those eyes somewhere before.
+
+She took a drag.
+
+But I didn't see any smoke come out.
+
+"Thank you. Safe travels."
+
+Her voice was calm, almost gentle.
+
+For a moment I thought she might say something more.
+
+But instead, she turned and walked off into the darkness, disappearing instantly.
+
+Neither of us spoke for a long time.
+
+Only when we reached the first houses of the village did we finally break the silence.
+
+"Who was she? What was she doing there? Why was she dressed like that?" 
+
+My friend's voice was shaking.
+
+"I don't know," I said, trying to sound rational.
+
+"Maybe she got stranded. Maybe she wasn't well... I have no idea."
+
+I dropped him off and continued alone.
+
+I still had about ten kilometers to go.
+
+As I shifted gears, my hand instinctively went to my pocket.
+
+Empty.
+
+"Damn it..."
+
+I had left her the lighter.
+
+The rain had intensified.
+
+The wipers moved monotonously across the glass.
+
+The road was empty.
+
+Then I saw a second woman.
+
+She was standing at the roadside, wearing dark clothes and a black headscarf. 
+
+Older. 
+
+ Maybe mid-fifties.
+
+She signaled for me to stop.
+
+"What is going on tonight?" I muttered.
+
+"Did all the crazy people come out at once?"
+
+Still, I stopped.
+
+I lowered the window slightly.
+
+She approached.
+
+She wasn't smiling.
+
+Not friendly.
+
+Not hostile.
+
+Just sad.
+
+She looked at me like she had known me for years.
+
+"I thought you might need this," she said, holding out her hand.
+
+"It would be a shame to leave it with me."
+
+In her palm was the lighter.
+
+The red lighter with the silver dragon.
+
+For a moment, I didn't understand.
+
+Then I looked at her face again—and noticed something.
+
+Her eyes.
+
+They were exactly the same as the younger woman's.
+
+Not similar.
+
+The same.
+
+I tried to speak, but my tongue wouldn't move.
+
+She tilted her head slightly and looked at me more intently.
+
+Then she said, very calmly:
+
+"Don't you remember me?"
+
+She looked past me and whispered:
+
+"She remembers you. Like before. She came out to reach you."
+
+Then everything started pulling away, as if reality itself was being dragged backward.
+
+The last thing I remember is her hand leaving the lighter on the window sill.
+
+Then—
+
+darkness.
+
+They found me unconscious at dawn, slumped over the steering wheel, the car still stopped in the middle of the road, headlights on.
+
+When I came to, I was in the hospital.
+
+The doctors said it was a sudden fainting episode or extreme exhaustion.
+
+My friend never wanted to talk about that night again.
+
+When I was discharged, I collected my things from the car.
+
+In the driver's door pocket—exactly where the window slides down—was the lighter.
+
+Clean.
+
+Dry.
+
+The silver dragon staring at me with its metal eye.
+
+The next day I went back to the place where I had met the first woman.
+
+There's a small roadside shrine there.
+
+Old.
+
+Forgotten.
+
+Almost swallowed by weeds.
+
+Inside it was a faded photograph.
+
+A young woman with long black hair.
+
+On the back, written in faded blue ink, was a name:
+
+Angeliki
+
+And underneath:
+
+"I'm still waiting for you. —Your mother."
+
+For a moment, I thought I remembered a bar corner lit with neon lights—and a pair of eyes watching me.
+
+Then the image disappeared.
+
+I went home without telling anyone.
+
+The lighter was in my pocket.
+
+Some nights, when I can't sleep, I flick it open.
+
+Click.
+
+The flame rises, and for a moment I swear I smell wet earth and incense.
+
+That's when I remember the woman's last words.
+
+"She remembers you."
+
+And after all these years, I still wish she hadn't.

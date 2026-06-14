@@ -116,7 +116,7 @@ I stopped writing. He said all of this the way you'd describe a painting you'd s
 
 My breathing grew shallow. I just kind of stood there, looking at him.
 
-He had described my house. My bedroom. My drawing. The face-down picture of my ex-husband. Every single detail was perfect. I nearly dropped my pen.
+He had described my house. My bedroom. My drawing. The face-down picture. Every single detail was perfect. I nearly dropped my pen.
 
 He still had that distant, fond look on his face. He looked as if he had described his childhood home. My jaw clenched.
 
