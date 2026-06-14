@@ -1,0 +1,263 @@
+It’s not this place.
+
+Some darkness dwells within me.
+
+There remains nothing now but the eerie certainty that a presence follows my every step.
+
+And as I fear it drawing nearer, I am writing this down.
+
+Perhaps this will stand as my final testimony, the last frontier before I face what I fear most.
+
+May this letter serve as a warning, a humble lesson in our mortal ways.
+
+These are the final threads of thought before that strange sensation will sweep over me once more, and pull me under.
+
+It’s close now. Closer than ever before.
+
+Believe me, I tried. I fled, far and wide. Even crossed an ocean to convince myself I was safe.
+
+I was not.
+
+It has returned.
+
+Or perhaps it never left at all, lingering just beyond the edge of my sight.
+
+I can hear it closing in—tempting me; persuading me to look.
+
+But I won’t.
+
+Not yet.
+
+Not until this letter is done.
+
+I first sensed its presence on a bleak March afternoon.
+
+The recession had taken everything from me. The farm where I was raised was sold.
+
+That was the end of my life in harmony. Days I regret taking for granted.
+
+The banks foreclosed my home soon after.
+
+I found myself wandering from town to town, chasing whatever work I could find. The distant horizon as my guide; day labour the only thing keeping me going.
+
+And on that day in March, in the bar of the small town of Oakland, I first felt it.
+
+It began as a strange shiver—an uncontrollable itch down my spine.
+
+Someone was watching me.
+
+A stench of decay and death washed over me.
+
+I could all but feel a warm breath on my neck.
+
+I dropped the plates I carried, too afraid to turn around.
+
+The room fell into sudden silence.
+
+A cold breeze caressed my face.
+
+For a single moment, I was utterly alone, in a way words cannot fully capture. It was as if I was removed from existence itself, as though I were more a suggestion than a certainty.
+
+The silence stretched for years before sounds slowly seeped back into the tavern.
+
+Then the murmurs stopped.
+
+All eyes were on me and the shattered remains around my feet.
+
+Some made a swift gesture; a quick warding prayer.
+
+The plates had not merely fallen. There was no chaos in the smashed pieces.
+
+In ceramic precision, they marked a perfect circle around me.
+
+To this day, I swear I never heard them break.
+
+As though some strange presence had swallowed not only the sound but time itself.
+
+I was forced to leave the village that same evening.
+
+As I gathered my belongings, I sensed it again.
+
+That same dreadful sensation.
+
+Only this time, it was even stronger.
+
+Again, I didn’t turn around.
+
+Something stopped me.
+
+A primal instinct.
+
+An ancient fear.
+
+The old innkeeper stood before me. Her face was frozen into an expression of unspeakable dread.
+
+She looked petrified. Her eyes fixed sternly on my gaze.
+
+A single tear streamed from her left eye.
+
+She dared not to look away from my eyes, as though something terrifying waited behind me.
+
+Something she feared like death itself.
+
+In the end, it’s the longing that kills you.
+
+The unbearable need to know.
+
+This time, I turned.
+
+I don’t know what I expected. I only knew there was something.
+
+And I knew it to be evil.
+
+I will never forget what gazed back at me with those cold, death-born eyes.
+
+At first it was a shadow. Cold and black as night.
+
+But in an instant it shifted to the specter of a child.
+
+A strangely beautiful dark smile grew on its lips.
+
+And then it warped again.
+
+To darkness itself.
+
+Galaxies swirled where flesh should have been.
+
+Ancient stars flickered and died within its form.
+
+I felt myself staring into something far older than time.
+
+And it burned with desire.
+
+With hunger.
+
+The sight seared itself into my vision.
+
+I had to look away.
+
+But I could not.
+
+And then it shifted again.
+
+A mere shadow, vaguely resembling a child.
+
+When our eyes met, I felt it searching—delving into my thoughts, shifting through memories and sins.
+
+Whispers filled my mind in a language no tongue should form, and no mind should hear.
+
+And then it vanished.
+
+I exhaled.
+
+It broke whatever spell me and the innkeeper were under.
+
+She muttered a prayer under her breath, traced the same sign I had witnessed in the tavern, and fled.
+
+I left at once.
+
+From afar, I watched the inn burn to the ground.
+
+Part of me knew the old woman had set it ablaze.
+
+Another part feared she burned along with it.
+
+The images haunted me for weeks.
+
+Rest became but a distant memory.
+
+Each time I closed my eyes, the vision returned.
+
+The images slowly drove me to the edge.
+
+The not-knowing tipped me over it.
+
+I longed for knowledge.
+
+Blasphemous and forbidden knowledge.
+
+And eventually, I found it.
+
+Deep within the capital’s library, hidden in a forgotten basement, I uncovered discarded letters that spanned centuries.
+
+Letters most dismissed as the ramblings of madmen.
+
+I had all but discarded the oldest letter I found.
+
+At first it was unreadable, a blur of letters chaotically filling the crumbling parchment.
+
+But then I saw.
+
+A single sentence.
+
+Repeated indefinite times until it lost all meaning.
+
+Nowhere to run, don’t turn around.
+
+In the center of the letter, there was something underlined and circled.
+
+The only distinguishable words on the paper.
+
+The Old Vale.
+
+The words meant nothing to me, yet I found myself reading them again and again.
+
+Some buried instinct told me they mattered.
+
+I began searching the other letters for mention of them.
+
+I found none.
+
+Yet every account noted the same two encounters.
+
+They described the same eerie figure, the one silently judging from somewhere just out of sight.
+
+In almost exact words, they penned down what I had seen—what I had felt.
+
+And none wrote of a third encounter.
+
+Not because the creature retreats or spares them, but because none who endured a third lived to write about it.
+
+A grim certainty.
+
+Three encounters.
+
+No less.
+
+No more.
+
+I knew better, but I decided to run.
+
+Some naive part of me hoped distance would save me.
+
+And for a time, its presence waned.
+
+But I know now it merely toyed with me, granting me a false belief of safety so terror might season my soul.
+
+And it’s here now.
+
+I feel its chilling breath upon my neck.
+
+It’s my third encounter.
+
+And thus my last.
+
+I’m afraid.
+
+Yet never have I been more certain.
+
+All madness must end.
+
+It’s time to turn again.
+
+Look behind and face what I fear.
+
+And so, I leave you with this:
+
+When you stand alone and a cold shock races down your spine…
+
+When unseen eyes feel fixed upon you…
+
+Do not ever
+
+turn around.
