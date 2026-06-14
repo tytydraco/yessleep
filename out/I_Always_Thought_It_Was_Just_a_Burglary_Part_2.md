@@ -1,0 +1,311 @@
+Firstly, thank you to everyone who read my previous [post](https://www.reddit.com/r/nosleep/comments/1u4sr9n/i_went_back_to_the_bungalow_now_i_wish_i_hadnt/). 
+
+I wasn't sure whether to write a follow-up. I only wrote the first part because visiting my childhood home and talking to my Mum about Rex had left me feeling unsettled in a way I couldn't explain. I thought putting it somewhere might help.
+
+It didn't.
+
+Over the last twenty-four hours or so, memories have started surfacing. Some came after conversations with family. Others arrived while I was doing completely ordinary things, as if they had been waiting for me to stop looking directly at them.
+
+The difference with this memory is that I've always remembered it. 
+
+And it has always scared me.
+
+Not in the way the memories of Rex scared me. Those felt distant. Half-forgotten. Like trying to recall a dream after waking. This one was different. 
+
+This happened when I was old enough to understand what a burglary was. Old enough to know someone had entered our home while we slept. For years, I'd tell the story the same way people tell old family anecdotes. The sort of thing that gets brought up over Christmas dinner.
+
+"You remember when we got burgled?"
+
+Everyone would nod. Someone would mention the police officers that came to the house, the way they dusted for fingerprints. Someone would laugh about one of the stranger things that had been taken.
+
+And I'd laugh too.
+
+Because children are remarkably good at normalising things they don't understand. We all are. The strange things had explanations. Or at least, they seemed to. I'd carried those explanations with me for twenty years. It never occurred to question them.
+
+Until now.
+
+Because after writing my previous post and speaking to my Mum, some of these details no longer feel strange. They feel frightening.
+
+By the time I was six, we had moved away from the house next to Rex.
+
+My Dad's work took us to London for a few years, and as children do, I adapted quickly.
+
+New house. New school. New friends. Life moved on. Or at least I thought it had. 
+
+Three years later, when I was around nine, we moved back.
+
+Not to the same house.
+
+My parents' marriage was coming apart, although I didn't understand that at the time. All I knew was that Dad stayed in London for work, while Mum, my little sister and I moved in with my grandparents.
+
+At nine years old, it felt less like my family was breaking apart and more like the world had been rearranged while no one was explaining the rules to me. Moving back felt strangely familiar. The village hadn't changed. Or at least not in the way adults mean when they say that. 
+
+The roads were still where I remembered them. The little parade of shops was still there. The smell of wet leaves after rain still hung around the footpaths in autumn.
+
+And Callum was still Callum.
+
+He lived just around the corner from the bungalow next to Rex, where he had always been and still is in my mind. Before we'd moved away, we were inseparable. The sort of friendship children form without really understanding why. One day you're sat next to each other in class, and the next you're playing Halo together every weekend or riding around the neighbourhood on your bikes, trying to find somewhere to make a den.
+
+When I came back, it felt like no time had passed at all. 
+
+Callum was funny. Loud. Endlessly energetic. 
+
+And a liar.
+
+Not in a malicious way. Not usually. Callum lied like life just wasn't interesting enough. His uncle worked for MI5. He had found a secret tunnel in the woods, although he could never remember where the entrance was. He had played games months before they came out. Every week there was something new, and every week the details changed.
+
+Nobody believed him.
+
+Not my parents. Not our teachers. Not me.
+
+The older I get, the sadder that feels. Because children don't always lie for the same reasons adults do. Sometimes they lie because reality isn't exciting enough. Sometimes they lie because they want attention. Sometimes they lie because they want people to like them.
+
+Despite the lies, Callum and I were really close for much of my childhood. When I returned to the area, we connected again instantly and now we were older, we were finally allowed to venture out and explore beyond the little grid of streets our parents considered safe. We could get on our bikes and ride around, go to the park behind my house on our own, head to the woods, it felt like the world had opened up for us.
+
+Exploring with Callum did a lot to distract me from the problems at home for the first few weeks.
+
+Unfortunately, that feeling of relative distraction was shattered one night as I lay in bed.
+
+I'd always suffered from nightmares. But I'd also always suffered with "nighttime" in general. I would lie awake and hear the house move, pipes in the walls creak, animals outside, and as a child it all sounded terrifying. When I was younger, Dad would hear my cries and come into my room. Sometimes he would get into bed beside me and stay there until I fell asleep.
+
+I think a lot of it came from living next door to Rex. The smell, his laboured breathing through the wall, the eerie glow of a light on his living room cascading across the grass in front of his house. I could see it from my window then, and the shadows it created formed monsters in my mind I couldn't rationalise.
+
+At nine years old, I wasn't completely defenceless to it. I'd developed enough self-soothing techniques that I could usually calm myself down, convincing myself it was just my imagination. 
+
+My grandfather always did, and still does, call me "Space Cadet" - always daydreaming, always overanxious about the mundane. That's all it was, and usually at that age I'd realise I just needed to focus on getting some sleep.
+
+That night my defences betrayed me.
+
+I awoke suddenly, jolting into consciousness at the sound of the bottom stair creaking its signature creak. My room was at the top of the stairs straight ahead, and my door was slightly ajar. I sat upright and swung my legs round to dangle off the side of the bed.
+
+I had one of those high sleeper beds: mattress on top, futon and desk underneath. It was pretty neat, but the metal frame was a bit roughed up and so any sudden movement made a bit of a racket.
+
+My feet felt the carpet as I slowly descended down the ladder to the floor. I stopped halfway as I heard a faint muffled sound like somebody in another room was trying but failing to stifle a cough. Probably just Grandad. As I reached the threshold of the doorway, I peered down the stairs into the darkness.
+
+Nothing.
+
+Silence.
+
+I stood there for what felt like ten minutes. It was probably less than two.
+
+Part of me was trying to calm down. The rest of me was busy filling the darkness downstairs with every impossible thing a nine-year-old mind can invent.
+
+I thought about yelling for Dad, but the realisation hit me. He wasn't here. 
+
+I find it hard to describe the feeling that hit me in that moment. It wasn't loneliness exactly. It was worse than that. It was the sudden understanding that the person who usually made the dark less frightening was somewhere else.
+
+Gazing down the steps brought on a feeling of dread. Not because I saw anything in particular, but because I couldn't. I could barely make out any details, only the very faint outline of a bookcase to the left as you got to the bottom.
+
+But I needed to go for a wee.
+
+Fortunately, there was a bathroom just over the other side of the hall. I didn't have to think about venturing downstairs on my own.
+
+I remember deciding that night I'd had enough of letting my imagination get the better of me.
+
+"Was I just going to sit here and wet myself? No. I'm nine, not four. Just go to the toilet you wuss". I imagine I told myself.
+
+I opened my door wider, still keeping an eye on the stairs, and felt for the light switch on the wall.
+
+\*click\* 
+
+The upstairs landing erupted into light.
+
+Nothing happened.
+
+I saw the landing carpet. The bathroom door. The wall outside the room Mum was sharing with my sister. The framed picture my Nan had hanging there that I never really looked at, but could still recognise in the corner of my eye.
+
+The stairs themselves were only half-lit. The first few steps fell away beneath the landing light, then the rest disappeared into the dark below.
+
+I stood with my hand still pressed against the switch. Listening.
+
+The house was silent in the way houses become silent after making a noise. As though whatever had creaked or shifted had realised it had been heard. I told myself it was nothing. The same way I always did.
+
+Pipes. Floorboards. Grandad getting up for a drink. The fridge clicking on downstairs. A branch against the window. Some ordinary explanation that adults would have reached for without thinking. I kept my eyes on the stairs and stepped across the landing to the bathroom.
+
+I remember trying to be quiet.
+
+That detail has bothered me more than once over the years. I was in my own house. My Mum was asleep in the room behind me with my little sister. My grandparents were in the other bedroom. There were people all around me. People who would have come running if I'd shouted.
+
+But I didn't want to shout.
+
+I didn't want to be heard.
+
+I went into the bathroom and left the door open a few inches. Just enough that I could see the strip of landing outside. Just enough that if something moved between my bedroom and the stairs, I would know.
+
+I sat there, barely breathing, angry at myself for being frightened and more angry that I couldn't stop.
+
+Childhood fear comes with shame when you think you're too old for it.
+
+I was nine. Not four. I had told myself that already.
+
+Nine-year-olds didn't wake their mothers because a stair creaked. Nine-year-olds didn't go running into their grandparents' room because the downstairs hallway was dark.
+
+At least, that was what I told myself while I sat there with the bathroom door open, staring through the gap like something might stare back.
+
+Then I heard the cough again.
+
+Not above me.
+
+Not from one of the bedrooms.
+
+Downstairs.
+
+It was low and muffled, the sort of cough someone makes when they are trying to hold it in and fail. It came from somewhere below the landing, past the bottom of the stairs.
+
+Everything in me tightened.
+
+For a few seconds I couldn't move at all. I just sat there, listening to the blood rushing in my ears, waiting for another sound to follow it. There wasn't one. That somehow made it worse.
+
+I finished as quickly and quietly as I could, washed my hands without turning the tap on properly, then stood in the bathroom doorway with my fingers curled around the edge of it.
+
+The landing looked the same.
+
+My bedroom door was still open. The light was still on. The top of the stairs still waited in front of me, bright at first and then darker with every step.
+
+I remember telling myself not to look. That if I didn’t look, there would be nothing to see.
+
+I could go straight back into my bedroom. I could climb into bed, pull the duvet over my head, and in the morning the house would be normal again. Mum would be tired. Nan would be making tea. Grandad would be complaining about something in the paper. My sister would be watching cartoons too loudly.
+
+Everything would be fine as long as I didn’t look down those stairs. So of course I looked. I stepped out of the bathroom and moved towards the banister.
+
+Slowly.
+
+Not because I was brave. Because I was afraid any sudden movement would make the floor creak.
+
+The light from the landing reached a little further than I remembered. It touched the first few steps. It caught the edge of the wall. It showed me the shape of the bookcase at the bottom, or at least the top corner of it.
+
+Beyond that, the hallway was black.
+
+And in the black, off to the side towards the living room, I saw eyes.
+
+Just eyes.
+
+That’s how I’ve always remembered it.
+
+Not a face. Not a body. Not even the outline of a person.
+
+Two eyes in the darkness, looking straight up at me.
+
+They were set level, almost unnaturally so. Perfectly still. Perfectly awake. Not wide with surprise. Not narrowed in anger. Just open.
+
+Watching.
+
+I think I made a sound then, but I’m not sure. Not a scream. More like the beginning of one that never quite escaped. 
+
+The eyes didn’t move. They didn’t blink.
+
+That was the worst part.
+
+I stared at them and they stared back, and for a few seconds my mind did what children’s minds do when reality gives them something too large to understand. It tried to make it into something else.
+
+A reflection. A toy. The shine of something on the bookcase. The glass front of the cabinet in the living room catching the light.
+
+Anything. Anything except a person standing in the dark at the bottom of the stairs, looking up at me.
+
+I wanted to call for Mum. I wanted to run into my grandparents’ room. I wanted to do anything other than stand there.
+
+But I had nightmares. Everyone knew I had nightmares. I had always been the child who heard things, saw shapes, imagined monsters in corners. The Space Cadet. The one who needed calming down. And even then, terrified as I was, some small, stupid part of me was afraid of being wrong.
+
+Afraid of everyone coming out into the landing, switching on lights, finding nothing, and looking at me with that exhausted kindness adults use when they don’t want to be annoyed.
+
+So I didn’t shout. I backed away.
+
+One step. Then another. The eyes stayed where they were.
+
+I kept my own eyes fixed on them until the angle of the wall swallowed them from view. Only then did I turn and walk back into my bedroom, although walk is too generous a word for it. I shuffled backwards through the doorway, afraid that if I moved too quickly the thing downstairs would move quickly too.
+
+Once I was inside, I pushed the door almost closed.
+
+Not all the way. I couldn’t bring myself to close it all the way. To make the door click shut.
+
+I climbed back up the ladder to my bed, every metallic creak from the frame sounding impossibly loud. I left the hallway light on. I left my bedroom light on too. I sat with my back against the wall and the duvet bunched around my legs, staring at the gap between the door and the frame.
+
+I don’t remember deciding to stay awake. I only remember being certain that I would.
+
+I told myself I’d sit there until morning. Until Nan got up. Until the kettle boiled. Until cartoons started. Until the world became loud and ordinary again.
+
+But children can be terrified and exhausted at the same time.
+
+At some point, after what felt like hours, I fell asleep sitting up with both lights still on. The next thing I remember is my Nan shouting.
+
+Not screaming exactly. More like the sharp, panicked voice adults use when something has happened and they don’t yet know how bad it is.
+
+The back door was open.
+
+That was what she kept saying. The back door was open.
+
+At first, everyone thought Grandad must have forgotten to lock it. Then Mum found her handbag emptied onto the kitchen table. My Nan noticed the little pot by the phone had been tipped out, the coins gone. A few drawers in the living room had been opened. Some jewellery was missing, though not much. Nothing like what people imagined when they heard the word burglary.
+
+The police came later.
+
+I remember two officers in the house. I remember one of them dusting for fingerprints by the back door. I remember feeling strangely important when they asked me if I had heard anything during the night.
+
+I told them about the stair. I didn’t tell them about the eyes. For years, I thought that was because I’d convinced myself they hadn’t been real. Now I’m not so sure.
+
+I think maybe I knew exactly how it would sound.
+
+The burglar had gone upstairs too. That was the part Mum had always hated.
+
+My bedroom had been searched. My school bag was open on the floor, exercise books and pencil case tipped out beside it. My clothes drawers had been pulled open. The plastic box under my bed, the one I kept old toys and bits of broken action figures in, had been dragged halfway out.
+
+I remember standing in the doorway while Mum looked around my room, trying not to cry.
+
+I thought she was angry with me.
+
+She wasn’t.
+
+I know that now.
+
+For a long time, the story became one of those strange family anecdotes. The time we got burgled at Nan and Grandad’s. The time someone broke in and barely took anything. The time some idiot ignored the telly and the video player but stole my Spider-Man lunchbox.
+
+That was always the funny bit. Everyone remembered the lunchbox.
+
+I remembered it too. Bright red and blue, with Spider-Man crouched on the lid like he was about to leap out of my school bag and save someone. For years, that was the detail people laughed about.
+
+Who breaks into a house and steals a child’s lunchbox?
+
+I laughed too. 
+
+I don’t anymore.
+
+By the afternoon, the house felt wrong.
+
+Adults were speaking in lowered voices. My Nan kept cleaning things that weren’t dirty. My Grandad had checked the back door so many times that even I knew he was doing it because he didn’t know what else to do.
+
+My bedroom had been put back together, but it didn’t feel like mine anymore. My school bag was back by the desk. My clothes had been shoved into the drawers. The box of old toys had been pushed under the bed.
+
+But everything felt touched.
+
+That was the word I had for it, even then.
+
+Touched.
+
+So with everything happening at home, I asked Mum if I could go over to Callum’s and play Halo. I think she was relieved to have something normal to say yes to. She called his Mum, then told me to be careful and come straight back before tea.
+
+I took my bike from the garden and rode over.
+
+Callum’s bedroom was cramped and too warm, with game cases stacked beside the television and clothes pushed into corners his Mum clearly hadn’t found yet. For a while, we played like nothing had happened.
+
+Then I told him about the burglary.
+
+I expected him to be shocked. Instead, he looked excited.
+
+Not happy exactly. I don’t want to be unfair to him. But there was that look he got whenever life became interesting enough to turn into a story.
+
+He leaned closer and told me he’d seen someone near my grandparents’ back gate the day before. I asked him what he meant.
+
+He said there had been a man standing there.
+
+Just standing.
+
+I asked him what the man looked like.
+
+Callum shrugged and said he hadn’t seen his face. Then, because he was Callum, he added that the man had probably been a spy, or a murderer, or someone from MI5 watching the house.
+
+I didn't tell Mum what he'd said.
+
+Why would I?
+
+Of course he did.
+
+Callum always saw things.

@@ -4,19 +4,13 @@ The place looked smaller than I remembered. The front garden where I had spent e
 
 It was a semi-detached bungalow with a garage and driveway, alongside which ran a narrow path that led to a gate into the back garden.
 
-
-I'd visited my parents like I did a few times a year, but for 
-some reason this visit was different. I hadn't thought of this house for a long time, but for some unexplained reason it popped into my head as I went to go to the shop for my Mum, so I drove over to see it.
-
+I'd visited my parents like I did a few times a year, but for some reason this visit was different. I hadn't thought of this house for a long time, but for some unexplained reason it popped into my head as I went to go to the shop for my Mum, so I drove over to see it.
 
 Part of me wishes I didn't.
-
 
 I stood there outside the house for about ten minutes.
 
 That should have been the end of it. Instead it was only the beginning.
-
-
 
 A couple of days later, having returned home to my wife and kids across the country, I called my Mum, unable to get the thought of that place out of my head.
 
@@ -24,16 +18,13 @@ I don't even remember why. Something about standing outside that house had unset
 
 While we were talking, I mentioned my old neighbour.
 
-
-
 "Do you remember Rex?" I asked.
 
-"God", Mum said. "I haven't heard that name in years". 
+"God", Mum said. "I haven't heard that name in years".
 
 For a moment neither of us said anything. I was surprised she remembered him at all. I barely did.
 
 The memories I have of Rex are strange. Not strange in the way ghost stories are strange. Strange in the way childhood memories are strange.
-
 
 They're incomplete.
 
@@ -43,14 +34,11 @@ When I think of Rex, that's the first thing I remember.
 
 Then the sweets.
 
-
 I couldn't tell you what he looked like with any certainty. I don't remember the colour of his eyes. I don't remember how tall he was. But I remember the sweets.
 
 They always seemed to appear from nowhere. One moment his hands would be empty. The next there would be a boiled sweet resting in his palm.
 
 My parents never liked me taking them and I remember Mum telling me not to bother him.
-
-
 
 "Was he odd?" I asked to bridge the silence.
 
@@ -58,7 +46,7 @@ My parents never liked me taking them and I remember Mum telling me not to bothe
 
 "Rex, was he... I dunno.. strange?"
 
-Mum laughed softly. 
+Mum laughed softly.
 
 "No more strange than any other old man".
 
@@ -68,7 +56,6 @@ Maybe because standing outside that house had stirred up a feeling I'd spent yea
 
 Not necessarily with Rex... Just... around him.
 
-
 I told Mum about the smell. She laughed again.
 
 "He smoked forty a day"
@@ -77,13 +64,11 @@ I told Mum about the smell. She laughed again.
 
 "Probably more"
 
-That explained the smell.
-At least it explained some of it.
+That explained the smell. At least it explained some of it.
 
 There were other memories. Little flashes. I remember him coughing through the wall at night. I remember the orange glow of his living room window after dark. I remember being convinced he never slept.
 
 But none of those explained the feeling of dread that was coming up within me. Mum punctuated my thoughts with what she said next.
-
 
 "You used to talk about him all the time."
 
@@ -111,16 +96,15 @@ Not someone watching me.
 
 Someone watching him.
 
-
 The experience was terrifying, but also frustrating. I simply couldn't piece together a single memory that fully explained the feeling I was having. This was a feeling that I had, for all intents and purposes, completely erased from my mind.
 
 There's something different about childhood fear. Something that feels raw. Distilled. You don't understand the world, so when something scares you, that feeling of the unknown overwhelms your mind and sends you right into terror.
 
 I tried to comfort myself by dismissing it as childhood imagination. I tried to move on.
 
-But I'd opened a door by visiting the house and speaking to my Mum about Rex. An open door that now wouldn't let me forget that feeling. 
+But I'd opened a door by visiting the house and speaking to my Mum about Rex. An open door that now wouldn't let me forget that feeling.
 
-I found my mind wandering to other fragmented and broken memories from that time in my life, and today I spoke to Mum again. 
+I found my mind wandering to other fragmented and broken memories from that time in my life, and today I spoke to Mum again.
 
 I asked her if she remembered a day in the garden.
 
@@ -148,9 +132,7 @@ As I spoke to Mum, another piece returned. Just one.
 
 A sudden feeling of being watched, then looking up toward the back fence.
 
-
 Seeing a hand.
-
 
 Even writing that sounds ridiculous. A hand, nothing more.
 
@@ -158,13 +140,11 @@ No face. No body. No monster.
 
 Just fingers resting on the top of the fence for a second before disappearing.
 
-There was something odd about them. The skin looked uneven. Marked. 
+There was something odd about them. The skin looked uneven. Marked.
 
 I remember staring at the knuckles because they looked wrong somehow. I couldn't have explained why then, and I still can't now.
 
-
 Then they were gone.
-
 
 I don't know why that terrified me. It shouldn't have. Even now, it sounds completely harmless.
 
@@ -172,16 +152,14 @@ But the moment I remembered it, I felt that same knot in my stomach as I had sto
 
 Because I knew something else. Something I hadn't realised until that moment. The hand wasn't what was frightening me.
 
-It was the recognition. 
+It was the recognition.
 
-
-Not the fence.
-Not the garden.
+Not the fence. Not the garden.
 
 The hand.
 
-
 I'd seen it before.
 
-
 I just couldn't remember where.
+
+[Next Post](https://www.reddit.com/r/nosleep/comments/1u5y5iu/i_always_thought_it_was_just_a_burglary_part_2/)
