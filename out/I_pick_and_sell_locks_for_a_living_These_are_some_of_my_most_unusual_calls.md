@@ -136,7 +136,7 @@ It was empty.
 
 I don’t mean it was unremarkable. I mean it was *completely* empty. No furniture. No wallpaper. No upper floors or any staircases leading up there. Just empty space starting from the foundation and going up to the roof three stories up. Like someone built the exterior as a façade to hide something. Except, there was nothing to hide. Just a void where an interior should have been.
 
-The longer I stood inside, the more I got the feeling I wasn’t supposed to be there. The kind of feeling you’d get if you were trespassing onto government property. The kind of feeling that you're not alone.
+The longer I stood inside, the more I got the feeling I wasn’t supposed to be there. The kind of feeling you’d get if you were trespassing onto government property. The kind of feeling that screams you're not alone.
 
 Paul and I didn’t say anything. We just looked at each other, backed out, got into our cars and drove home.
 
