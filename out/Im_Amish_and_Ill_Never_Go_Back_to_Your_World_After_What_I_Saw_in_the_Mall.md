@@ -1,4 +1,4 @@
-I am writing this in the library in Quarryville because it is the only place I can use a computer without my parents knowing.
+I am writing this in the library in Quarryville because it is the only place I can use my phone without my parents knowing.
 
 By the time you read it, I will be home.
 
@@ -204,7 +204,7 @@ I did not answer.
 
 Last Sunday, I told the bishop I had made my choice. I will be baptized. I will put away the phone, the internet, the bright little windows that open into places no person was meant to stand.
 
-After that, I will not come back to your world ever again. 
+After that, I will not return to your world ever again.
 
 Maybe you think I was frightened back into my community.
 
