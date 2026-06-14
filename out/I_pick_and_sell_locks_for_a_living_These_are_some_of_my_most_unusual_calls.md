@@ -272,7 +272,7 @@ My toolbox sat motionless on the steps. I grabbed it and began unlocking the doo
 
 Sarah sat at the table, looking at me. Her eyes were red.
 
-I understood then. She could have, physically speaking. Instead, she called me.
+I understood then. She could have opened it, physically speaking. Instead, she called me.
 
 I didn’t stay long. I got my payment and went home, glancing over my shoulder as the door closed behind Thomas.
 
