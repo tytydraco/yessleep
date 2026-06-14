@@ -24,7 +24,7 @@ I pushed through the door.
 
 On the other side was not outside.
 
-It was a room the size of a barn, but low-ceilinged, with faded wallpaper printed with tiny blue flowers. The carpet was the color of old oatmeal. Fluorescent lights hummed overhead. The air smelled like damp straw and warm plastic.
+It was a room the size of a barn interior, but low-ceilinged, with faded wallpaper printed with tiny blue flowers. The carpet was the color of old oatmeal. Fluorescent lights hummed overhead. The air smelled like damp straw and warm plastic.
 
 Behind me, the door was gone.
 
