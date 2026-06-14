@@ -202,7 +202,7 @@ I did not answer.
 
 —
 
-Last Sunday, I told the bishop I had made my choice. I will be baptized. I will put away the phone, the internet, the bright little windows that open into places no person was meant to stand.
+Last Sunday, I told the bishop I had made my decision. I will be baptized. I will put away the phone, the internet, the bright little windows that open into places no person was meant to stand.
 
 After that, I will not return to your world ever again.
 
