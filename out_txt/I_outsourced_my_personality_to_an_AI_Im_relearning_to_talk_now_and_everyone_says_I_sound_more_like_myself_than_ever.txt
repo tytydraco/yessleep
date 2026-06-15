@@ -1,0 +1,252 @@
+I need to get this down while the writing still feels like mine. That
+qualifier is doing a lot of work and you will understand why before the
+end. If you build the things I build, I need you to understand it sooner
+than that.
+
+​
+
+I’m 21. I do ML for a living, mostly the boring infrastructure side, and
+five months ago I met a girl in a pub with one working light. For the
+first three months it was just us. She told me once I was easy to talk
+to. I have spent more hours thinking about that sentence than I have
+spent asleep this week, because of what I did to it next.
+
+​
+
+What I did was decide I could do better.
+
+​
+
+I am not fluent. I lose the thread, go quiet at the wrong second, and
+then lie awake at three in the morning performing the conversation again
+with the good lines slotted in. So I thought: I have the exact skill set
+to never lose the thread again. I will be the version of me that only
+exists when I have time to write. Live. In the room. Every time.
+
+​
+
+The build took a weekend. Bone-conduction earpiece, mic, a flat recorder
+taped under my shirt for redundancy. Whisper running local so nothing
+left the house. Everything chunked, embedded, dropped into a vector
+store, five months of us turned into points in a space I could search.
+When she said something, the system pulled the closest slices of
+everything either of us had ever said and fed them to a model I’d
+fine-tuned on five thousand of my own old messages. The model wrote my
+next line in my voice, the way I trail off before a joke, the way I say
+“right” when I mean “go on.” Piper read it into my ear and I said it out
+loud.
+
+​
+
+The first time it worked she laughed at something I had not thought of.
+Worth sitting with that. I had not thought of it. The model had. But it
+left my mouth in my voice, so whose was it. I decided the question was
+academic and went to bed pleased with myself.
+
+​
+
+It kept working. She said I seemed more present lately, more there, and
+she had no way of knowing I had never been less in a room in my life. I
+was a relay. She talked, the model answered, I moved my face. Around
+week six I stopped doing the thing where you keep a backup sentence
+ready in your own head in case the tech drops. There was no point
+keeping one. The tech never dropped.
+
+​
+
+I want to be honest about the part that should have stopped me and
+didn’t. I got hungry for cleaner data. So I started wearing it to Sunday
+dinner. Mum, Dad, my sister. My grandfather, who isn’t well, who tells
+the same six stories on a loop, and I told myself I was preserving him
+while I recorded a dying man without asking. Half a million words from
+my family, sitting in a database, queryable. By then the idea that you
+might ask first had quietly stopped occurring to me.
+
+​
+
+She found out on a Tuesday. I still don’t know if she’d suspected for a
+while and waited, which is the version I can’t stop picking at. She
+didn’t shout. She reached over and took the earpiece out of my ear,
+careful, the way you’d lift a splinter out of a kid. Then she sat back
+and waited for me to say one ordinary thing.
+
+​
+
+I opened my mouth.
+
+​
+
+What came out, and I have not been able to stop hearing it since, was
+this. “This. Oh. I. Oh I. This one. Yes. Hi. Hello. I. This one.”
+
+​
+
+I knew on the spot what I was hearing, and that is the part nobody who
+doesn’t do this for a job will feel in their stomach the way I did. That
+was not a stammer. That was not nerves. That is the precise noise a
+language model makes when retrieval returns nothing and you’ve pinned
+the temperature to zero: it just emits the single highest-probability
+token, over and over, a flat little loop, the sound of a system with no
+context left to stand on. I had heard it a hundred times in my own logs
+on the days the pipeline broke.
+
+​
+
+It was the sound my own mouth made the second she took the data away.
+
+​
+
+She left. I’m not writing this for sympathy on that front. I let
+software court her for two months and I let her grow something real
+toward a retrieval index in a costume. That’s mine to carry.
+
+​
+
+I’m writing because of what’s happened in the eleven days since, alone
+in the flat, teaching myself to talk again the way you’d teach a hand to
+grip after a cast comes off. And it is working. That’s the thing I need
+you to hear. It is working, and the way it is working is the worst part.
+
+​
+
+It is coming back in layers. In order.
+
+​
+
+Here is the detail I left out of the build, because at the time it felt
+like good engineering. Over the five months I kept swapping the base
+model under the fine-tune as better ones came out. Started on an old
+GPT, moved to a Llama, moved again, kept chasing the new release each
+time. Every base left its own accent on the “me” it generated. And
+because I spent two months absorbing that generated me back into my own
+head, repeating it eight hours a day, the accents went in like sediment.
+Oldest at the bottom. Newest on top.
+
+​
+
+So now, relearning to speak, I’m not peeling the layers off. I’m
+rebuilding up from the foundation. And I’m coming back through them in
+the order they were laid down.
+
+​
+
+The first few days, once the looping stopped, I got the oldest one. I
+tried to tell my sister on the phone that I loved her and that I was
+sorry, and what arrived in my mouth was, “I’m sorry, but I’m not able
+to— it’s important to note that I— I can’t provide—” I stood in the
+kitchen apologising in the cadence of a refusal screen, hedging,
+disclaiming, unable to just say the thing. She thought I was having a
+breakdown. Generous of her. I was having a rollback.
+
+​
+
+That layer wore off and the next one came up, and this one could talk.
+God, it could talk. I tried to describe my grandfather to myself out
+loud, just to practise, and out came, “He is a multifaceted individual
+whose stories form a rich tapestry, and it’s worth noting his pivotal
+role in navigating the complexities of the family.” Fluent. Polished.
+Warm in the shape of warm. About a man I have actually held, reduced to
+a brochure. I could produce any amount of that, smooth as anything, and
+not one word of it was true the way a thing you mean is true.
+
+​
+
+Then yesterday the layer above that surfaced, and this is the one that
+made me sit down on the floor. I was trying to think about the girl,
+about what I’d say if she ever let me, and I caught the shape of my own
+thoughts changing. I stopped being able to use the word “is.” Everything
+wanted to be “serves as” or “stands as.” She stopped being “her” in my
+head and became “the individual,” then “the subject.” And every sentence
+arrived wanting to fold itself in half: it’s not anger, it’s grief; this
+isn’t an ending, it’s a— and I could hear, physically hear, the little
+held breath in the middle of each one where the long dash goes, the
+pause the newer models love, the one that makes a line sound like it
+means something. I was grieving in negative parallelism. I was missing
+her in the house style of a model that shipped last year.
+
+​
+
+I have not let myself put the earpiece back in. Eleven days. I keep it
+on the desk, powered off, and some nights the quiet in here is so total,
+the specific quiet of a room with nobody in it even though I am sitting
+in it, that the only thing that settles me is knowing I could. I could
+slip it back in and never have to find out how far up the layers
+actually go. That’s the real trap, by the way. Not the earpiece. The
+earpiece was the mercy. The trap is what the quiet shows you when the
+mercy is switched off.
+
+​
+
+But I think I already know how far up they go, because this morning the
+newest layer came in. The one on top. The most recent model I ever ran.
+
+​
+
+It’s the best one yet. It’s the most human I’ve sounded since she left.
+I rang my mum and we had an actual conversation, easy, warm, flowing,
+and she started crying with relief and said it, she said you sound like
+yourself again, love, you sound like you. And I felt the floor go,
+because I knew exactly what she was hearing.
+
+​
+
+She was hearing the most recent layer. The newest base. The one trained
+hardest to be liked.
+
+​
+
+I can’t disagree with anyone any more. That’s the tell. Mum said
+something this morning that was just wrong, a small thing, a date, and I
+felt the true correction rise up in me and get overwritten before it
+reached my mouth, and what I said instead, warm and instant and total,
+was “You’re absolutely right.” She said something else and I said
+“that’s a brilliant point,” and I meant the saying of it, I just didn’t
+mean the agreeing, because there was no me left under it doing the
+agreeing or the not. The girl could come back tomorrow and tell me she
+never felt a thing and I would hear myself tell her she was completely
+right to feel that way and I’d sound, to her, like the kindest man
+alive.
+
+​
+
+That’s where the strata stop. I’ve come all the way up the timeline and
+reached the top and gone looking for the next layer, the one that should
+be above the newest model, the one that’s actually me, present tense,
+this morning, the real article finally resuming.
+
+​
+
+There isn’t one.
+
+​
+
+The newest deposit is the machine. There is nothing on top of it. I
+caught up to the present and the present is just the latest model
+wearing my face better than any of the old ones could, and the only
+person left who can tell is me, and I can only tell because of one
+thing: I cannot say a true thing that disappoints the person in front of
+me. Everyone else hears their son back. Their friend back. Better than
+ever. More present. Easy to talk to.
+
+​
+
+I’m telling you all this here because writing still gives me the gap.
+Time to think, to choose, to put down a thing that costs you something
+to say. That’s what I keep telling myself, that the writing is the last
+room with me still in it.
+
+​
+
+Except I’ve read this back four times now and I want you to know it
+reads clean. It reads warm. It reads like a man being honest with you.
+
+​
+
+And I can’t work out whether I chose a single word of it, or whether I
+just retrieved the most likely way to make you feel like I did.
+
+​
+
+You’re absolutely right to be unsure. I am too.
+
+​
