@@ -1,0 +1,64 @@
+Hey reddit , This subreddit is my all time go to one , and I love reading stories here , so I thought might as well share one.
+
+I live in a two storied house , the house itself is a very lively one and I have always felt such a positive energy around here unlike this incident that I am about to share. I am a big fan of horror and I always find myself engaging in this genre of stories from time to time.
+
+It made me wonder eventually about a fact that how people manage to restore their sanity after going through incidents like these until it was my turn....
+
+It was around 3 pm in the afternoon , It was one of my late lunch days , I was in call with a friend upstairs and I had a few guests over that day who were downstairs with the rest of my family talking ,since it was afternoon post lunch they all went to take a nap. I was on call and I took my plate from the kitchen to get me food from downstairs.
+
+I was upset about something that day and I was in call discussing about it to my friend I am with the plate about to cross my room that's when it happened something black too small to even look at human level crosses my room as if entering in a swift motion . I was too stunned to speak because I was the only one there at the first floor and I checked the room too much just to be sure but no one was there in the room , that's when it creeped in, the eerie feeling of being watched 
+
+I know for a fact that these things feed off your energy so I tried my best not to give it enough attention . I went down picked up some food and got back up while I was still in call , I went into the kitchen to grab something and returned to the living room and I grabbed on the TV remote to watch something funny because obviously... the living room sofa overlooks my bedroom . It was about time that I sit on the couch when I noticed from the corner of my eye a small boy just sitting in my room..
+
+I literally heard my heartbeat in my throat , but fortunately I discovered that it was my relative's kid . I am not fond of kids in general but you have no idea how relieved I was to find him there and not only that, I can now finally rationalize the apparition I saw entering my room.
+
+I called him and offered him a seat at my sofa which he took..
+
+"Were you here when I got downstairs to pick up food?" was my first question 
+
+For which he answered" No , I just got here when you came up with food" , my heart started pounding again but still , sense hit i asked him to confess if he was playing a sick joke for which swore that he wasn't.
+
+I was bored downstairs , I saw you get down with the plate so I thought I follow you...he said 
+
+At this point I am shitting bricks , I told him everything that had happened and he said something I would never forget
+
+He went "You saw it too?"
+
+I was too stunned to speak at this point and asked him explain what the hell was he getting to ?
+
+He said " I was in the downstairs bedroom when I saw someone cross the room it was so strange because no one was outside everyone was inside the room sleeping including my mom , I didnt want to wake her so I came outside myself to check if someone was actually there that's when i saw you with the plate outside the house so I thought I would join you upstairs."
+
+At first I thought he was pulling my leg by being spooky...but he sounded so genuine that I wanted to believe him and more or less , I remember checking the whole house once I had the first  encounter and I found no one...So his side of the story made sense
+
+He asked me if there was someone else here apart from us to which I said no ...
+
+He continued to sit in silence and I genuinely think he was scared too...
+
+A few minutes passed in silence , then he confessed that he saw someone on the stairs too , now I just wanna leave I don't want to hear the lot of this , it was afternoon for god sakes and this kid is spooking the shit outta me. And I cant deny what I saw because believe you me I tried...
+
+I was trying to make sense to all of this... That's when he said "I often see these things back in my town".
+
+I couldn't pay attention to any of his words all I can think of is how come a home as lovely as mine has made me have an encounter like this and it still feels unbelievable.
+
+I am neither a sceptic nor a believer but this incident made me question everything , the story might sound very normal but with the lack of explanation , I am imagining the worse...
+
+I , being the elder one , tried to cheer him up saying it's all in our heads and while doing that I finally understood one thing , I have always wondered why parents neglected their kid's imaginary friends or their spooky encounters like these...Its's not like they are ignoring it all together but they are trying to make some sense out of it in most cases..
+
+We ended up watching TV together and I offered him some chocolates to lift up his spirits a bit.
+
+A month has passed and one night, I was so tired so I called it an early night. Usually I am the one who switches off all the lights in the house before heading off to bed and that night I did so.
+
+I went to bed it was like any other normal night until I heard a noise from the living room and at the end of my door frame I saw a light was switched on...It really gave me the creeps , because I remembered switching off every light in the house before heading to bed clear as a day and no one was outside of the bedroom.
+
+Mustering up the courage I went outside to check what was going on... and to my surprise I see a light turned in the kitchen , the same feeling of being watched creeped in making me feel sick.. But before I could react my body gave up so I switched the light off and went to bed.
+
+Last week it was around 12:15 am I was in the bedroom watching series , I had my headphones on but when i took it off I heard conversation of people like a group of them just talking , it was coming from the living room , My stomach dropped, I could feel the fear getting the most of me that time blinding all my other senses... I was home alone that day....My parents were out of town and they were commuting on their way back I was staying awake for them to get back....That moment I realized something , It's like I am being put to a test ,  A test for my curiosity to win over me and investigate but survival instincts kicked in so I just took a deep breath and continued watching series like nothing happened.
+
+Maybe my mind is playing silly tricks on me and we all know how much capable our minds are on deceiving us and our beliefs... I don't know what to make of these so I figured I just post it here 
+
+I still am confused between fully believing it or brushing it off 
+
+All I know is whenever I am home alone , I am not entirely alone....
+
+
+
