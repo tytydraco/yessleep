@@ -1,8 +1,8 @@
-I am writing this in the library in Quarryville because it is the only place I can use my phone without my parents knowing.
+I am writing this in the library in a couple towns over because it is the only place I can use my phone without my parents knowing.
 
 By the time you read it, I will be home.
 
-My name does not matter. But if you need to call me something, you can call me 'Elsie.' I am sixteen. I was raised Amish in Lancaster County, PA. In a home without electricity. Between cornfields, dairy barns, and roads where cars slow down behind our buggies to take selfie photos like we’re tourist attractions.
+My name does not matter. But if you need to call me something, you can call me 'Elsie.' I am sixteen. I was raised Amish in rural Pennsylvania. In a home without electricity. Between cornfields, dairy barns, and roads where cars slow down behind our buggies to take selfie photos like we’re tourist attractions.
 
 Most people outside the community think Rumspringa is Amish Gone Wild. They imagine secret parties, drinking, and teenagers trying every forbidden fruit at once before settling down and starting a family.
 
@@ -14,7 +14,7 @@ Do you stay with the people who raised you, speak your home language, and live b
 
 One Friday a couple months ago, I made my choice.
 
-A girl from the Mennonite family I was boarding with drove me to Park City Center. The mall. I had never been inside one before. The lights buzzed. The floors shone. Everywhere, windows held mannequins in clothes I could never imagine wearing.
+A girl from the Mennonite family I was boarding with drove me to the mall. I had never been inside one before. The lights buzzed. The floors shone. Everywhere, windows held mannequins in clothes I could never imagine wearing.
 
 I bought a soft pretzel and a cheap phone. I kept touching it in my pocket like it was alive.
 
@@ -174,7 +174,7 @@ I turned and lifted the latch. I shoved through the door on my hands and knees.
 
 Cold air hit my face.
 
-I fell onto gravel behind a gas station outside Bird-in-Hand. It was morning. A trucker found me beside the ice machine with burned palms, no shoes, hair uncovered, and blood dried down my neck.
+I fell onto gravel behind a gas station along a back road. It was morning. A trucker found me beside the ice machine with burned palms, no shoes, hair uncovered, and blood dried down my neck.
 
 I told the police, doctors, everyone that I had gotten lost.
 
