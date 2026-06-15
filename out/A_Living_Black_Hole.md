@@ -86,7 +86,7 @@ I tried to open the door but it wouldn’t budge, it was locked. I looked at him
 
 But he didn’t respond.
 
-I was now terrified, the uncanniness of everything was too much for me. He didn’t say anything, just looked at me while I struggled to get the door open. Then his face started to form into something else, i turned around to look at him and i could see his skin and bones cracking and morphing and i looked away after i saw a bone snap out of his cheek and started to move up his face. For the longest minute if my life i pulled at the door handle trying desperately to get out while facing away from who was once my friend. Eventually the sound stopped.
+I was now terrified, the uncanniness of everything was too much for me. He didn’t say anything, just looked at me while I struggled to get the door open. Then his face started to form into something else, i turned around to look at him and i could see his skin and bones cracking and morphing and i looked away after i saw a bone snap out of his cheek and started to move up his face. For the longest minute of my life i pulled at the door handle trying desperately to get out while facing away from who was once my friend. Eventually the sound stopped.
 
 I didn’t want to turn around and see what he turned into.
 
