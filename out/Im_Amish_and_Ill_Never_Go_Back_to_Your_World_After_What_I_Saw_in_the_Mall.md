@@ -1,4 +1,4 @@
-I am writing this in the library in a couple towns over because it is the only place I can use my phone without my parents knowing.
+I am writing this in the library a couple towns over because it is the only place I can use my phone without my parents knowing.
 
 By the time you read it, I will be home.
 
