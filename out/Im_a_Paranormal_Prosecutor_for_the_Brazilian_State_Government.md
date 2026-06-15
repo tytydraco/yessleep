@@ -1,0 +1,509 @@
+There's a scream in the night
+
+And death on the wind
+
+And a heartbeat that's pounding like rain
+
+There's a flash in the sky
+
+A cry of a hound
+
+As if someone is wailing the dead
+
+
+
+And the nightmare begins as the Devil rides out
+
+From the heat through the gates of Hell
+
+And there's no escape from the curse of the damned
+
+Oh You better beware
+
+
+
+Don't you know it's the night of the demon
+
+When spirits run high?
+
+
+
+Demon, Night of the Demon. 1981.
+
+
+
+I’ve always loved the occult. This profession takes lots of devotion and faith in many ideals, in thyself, the beyond, and the beyonders. The aforementioned song and many similar have been with me from childhood. Heavy metal, hard rock and the classics have stirred a sense of rebellion that has surely influenced my path in life. 
+
+
+
+Throughout history, there have been tales of the paranormal, of ghosts and monsters, rituals and curses. Although easy to dismiss such stories as the product of the fertile human imagination, unable to fully comprehend the natural world, most of them are true or have a foundation of truth within them. Because of that, I am a Paranormal Prosecutor.
+
+
+
+“Prosecutor” is what my office is commonly referred to as. A joke that became a nickname, that became a title. But I am, really, a state-sanctioned ghost hunter, or more accurately a thing-hunter. I’m a public employee that deals in matters otherwordly. I am, by day, a criminal defense attorney. I work cases from theft, robbery, drug traffic, and even murder. At night I venture into the nooks and crannies of town to fulfill whatever task I have been assigned to. 
+
+
+
+I’ve been on this job for about three years now, and have worked as a lawyer for ten, and I haven’t written anything that isn’t an academic paper. Recent, interesting events have sparkled in me the want to share part of the excitement with others. It’s not really a Men in Black type secretive job, more like regular hush-hush police work, and I can talk about anything that isn’t in secret of justice – and even what is I can give you some broad strokes. 
+
+
+
+To give context about the day-to-day, I had my initial jobs working on hauntings, since they’re entrance-level stuff. The very first assignment I had was in a graveyard where a little girl’s spirit was supposedly roaming the place. 
+
+
+
+I’ll tell you, no matter how prepared you think you are to face the supernatural, it will always affect you in some primal way. A natural response of fear is triggered no matter how tough you think yourself to be when faced with ghostly encounters, this being also the reason why many people quit so shortly after being invested into the job. 
+
+
+
+I had stayed up from 18:00 to 03:00 and was starting to get drowsy, sitting on top of a large ornamented tombstone, when I felt a cold hand on my shoulder. Suddenly I turned around in a jolt just to see nobody behind me, but I could hear the sound of laughter mixed with the crying of a little girl.
+
+
+
+This being my first encounter, I was ill-prepared, but I had read and heard accounts from veterans on the job. Despite horror movies painting ghosts as scary and evil, they’re sad and lonely things – but scary, yes. I recognized that despite the initial shock and dread of the situation, a sad melancholy started to set in, and the light, chill breeze of the evening started blowing. 
+
+
+
+That night, although scared, I sat there talking to the air as you would to a child. I sang some nursery rhymes, what stirred the air with a seething tingle of anger, which made me notice the spirit probably thought she was “too grown up” for such things. I played hide and seek, told unfunny dad jokes, and, with the chirping of morning birds, felt the melancholy fade into a nice serenity. The little girl decided to, finally, rest. 
+
+
+
+This line of work is quite fulfilling, but not always so charming. As a paranormal prosecutor, under the watchful eye of the Public Ministry and with the helping hand of the State Civil Police, your job gets much more hands-on than the usual office work. For a paranormal prosecutor, as for a regular one, you have levels of entrance – initial to intermediate, and then to final, when you get the more complex, dangerous cases. 
+
+
+
+You start off dealing with initial entrance, in determined “low-level” areas, meaning ghosts, minor curses, and dismantling already finalized rituals. Things to get you on the groove of the job. Actual physical beings are intermediate to advanced, and they tend to show up in more rural, wooded, or just generally secluded areas. 
+
+
+
+Where I live and act, in the Capital of the southernmost Brazilian state, as is in the country in general, there is a big incidence of physical paranormal occurrences, normally referred to as beings, creatures or entities (umbrella term for most things, really). That includes the well-known werewolves, chupacabras and imps. There are also the merry locals, such as the mapinguary, headless mules and boitatás.
+
+
+
+I had been assigned an advisor, basically a patrol partner, three months into the job – before, I was all by myself, and just this year I got a full, very competent consultancy team. My advisor’s name is Agatha, a stocky, short, long black-haired, and deeply religious catholic woman with an attitude. She also was a newbie and as such we got along very well figuring out the ins and outs of the work – because despite the amount you have to study to pass the exam and the initial course and lectures they give you to get acquainted, when dealing with practical problems you always find yourself in a learning position. 
+
+
+
+Recently, the inciting event of my wish to write this article has come up. I had been informed a few weeks in advance that that night the newest member of the office would be joining us, an intern who, if done her job right, could get a nice appointed position with us, as I did desperately need more people. 
+
+
+
+Petha was not, at first I was informed, the best cultural fit for the position. I wouldn’t say for any position, as a matter of fact. A twenty-year-old juvie detainee, she had been in since her sixteenth birthday. Truth is I knew the girl when she was younger, and referred her to HR, strongly. Her deceased father was a good friend and fellow juris doctor, and he would like to see his girl doing good. She would be released nightly to join us in determined assignments, and if she did good would stay with us and get released on probation. 
+
+
+
+With bright red slim tie, light blue formal shirt, navy blue blazer and pants adorning my body, and Faust’s pentacle laid upon my left chest, I was formally attired as usual and ready for the night. My office was at the other side of town, and I was the usual driver for the team, so I headed to pick up Agatha.   
+
+
+
+She wore a linen white blouse and black pants. A crucifix hung around her neck and an old rusty .38 was tucked on her pants, showing for all to see the worn-out handle. Black hair in a tall pony tail and sturdy round glasses loosely at the tip of the nose. She hopped in.
+
+
+
+“It’s gonna be a calm night, I hope.” She said, dismissively looking to the outside.
+
+
+
+“You know it’s not.” I said and chuckled, starting the engine. 
+
+
+
+It was about 02:00 and we were heading to a location where, supposedly, a ritual for a curse was taking place sometime ago. An almost abandoned apartment complex that still had a few unfortunate residents. Junkies where uppityer than usual, strange people in dark red robes were spotted in this place nowhere near Quimbanda grounds, entering the premises and scaring away even the roaches.
+
+
+
+ That was no place to honor the orishas, those devotees were not of usual creed. No recent reports of movement around the area have come in, but birds, dogs and cats kept going missing or showing up dead, so I had to go dismantle whatever was left behind and report. 
+
+
+
+Driving my trusty Chevette, windows down, the warm summer night made bright with the orange lights from the street poles, and alive with the sound of Layla from my speakers, me and Agatha arrived at the place around 02:30, empty streets making the drive more enjoyable and, especially, faster. 
+
+
+
+Petha was already there. Black jacket with a bright red shirt underneath, ripped jeans with chains hanging around the waist, and black leather boots. Brown hair loose around her shoulders. Fashionable, in character. 
+
+
+
+“Didn’t we tell you to come WITH us? We already had you for quitter, brat.” Agatha exclaimed, hands at her hips. 
+
+
+
+Petha scoffed. “And this is?” she asked, looking away dismissively from Agatha and at me for an answer.
+
+
+
+ “She’s your supervisor. I’m the boss of both of you. You two ought to get along, seriously. And remember Petha, we are doing you a favor, be grateful, okay?” I said, receiving a surprisingly warm hug. 
+
+
+
+“Hey doc, I just wanted to surprise you guys, all right? No need to scold me! And I came all prepared, like you said!” Petha affirmed, in a slightly ironic, but excited, tone. She flashed a knife at me from her belt and proudly tapped her leather jacket with an open hand, as if showing off a piece of high-end gear.
+
+
+
+“I’m not gonna report it, but I know you did just do something to your ankle monitor” and as I looked down, no ankle bracelet on her leg. I sighed. “We’re gonna have to do something about that… later” I said, in a defeated tone, moving on to inside the job site. 
+
+
+
+Agatha begrudgingly held her tongue and shook her head disapprovingly to Petha, following me in hurried steps. 
+
+
+
+The apartment complex the call was related to was shoddy and decrepit. It looked abandoned from the outside, but you’d know the night life in there is bustling with creeps. We entered and, just as we got in, there wasn’t the usual sense of wrongness a curse brings with it, no heavy air, no cold, nothing. A wrong call? 
+
+
+
+Agatha carried an old .38 revolver and kept a crucifix on her neck. I had a dog skull in hand and brass knuckles in a fist. Petha carried a figa tied to the outside of her pant pockets, and a knife on her belt. 
+
+
+
+Now, the weapons go without saying, but the trinkets are very handy things you ought to have in the job, they help keep evil at bay by working as power objects and good luck charms. They need not be inherently magical, the simple act of having them and the attachment you have to them are enough to keep lowly phantasms, bad luck (which is a hassle, believe me), and lesser curses at bay. 
+
+
+
+A little penny you cherish will scare away a monster as much as a cross. That being said, Agatha is a christian gun nut; I used to be a bit of a brawler and like to collect skulls (it takes a special kind of person for this job, as you see) and this one specifically is from an old dog I had cared for when I was younger – morbid, yes, effective? You bet. 
+
+
+
+Petha, I came to learn, was very good with a knife, which is part of the reason she was in the predicament she was in with the law, and her afro-brazilian religious roots made the figa her mom gave her a special item of protection through her life. 
+
+
+
+The rotting walls and dirty floors of the complex were not a welcoming sight, but not an unusual one downtown. The old historic city center was beautifully decayed in its own right, the historical monuments entangled with contemporary depreciation. An almost dystopian look befell the whole area. The inside of this place, however, was just sordid and rotten, and no beauty could be found in it. 
+
+
+
+We kept going up the badly lit stairs to the second floor, ending in a long, dim lighted hallway. The moonlight shone through dirty glass held in place by old and damaged wooden frames. No curtains, only old wood shutters with missing pieces would be used to close the view to outside, now rusted in place at the hinges, left either slightly closed or agape. Floor was cleaner than you’d expect, not much litter. The place was recently used, busy even.  
+
+
+
+Advancing into the hallway, each door and window frame had an iteration of the pentacle, some more elaborate than others. Some also held carvings of the cross, others had parchment paper with holy scripture glued upon them. Looking back to where we came, Tetragrammaton was inscribed upon the top of the doorframe leading onto the hall. 
+
+
+
+“To keep it in, right? Spirits, bad voodoo and whatnot?” Petha said, in a hushed tone.
+
+
+
+“Yes.” I answered. 
+
+
+
+Agatha shushed and looked at her. “Questions later. Now, focus.” 
+
+
+
+“Hey, it’s her first night and she’s learning, now’s the time for questions. Besides, it’s going to be a calm night, right?” I reprimanded Agatha and reassuringly nodded at Petha. We moved on. 
+
+
+
+The place was unusually overprepared for a simple curse. An invocation? Already a step up in difficulty, but doable. The presence of a new intern surely would make things riskier, however. Those reports from local PDs are more often than not, unreliable. 
+
+
+
+The rooms where all empty, save for rubble and old furniture. Up the third floor, same scenario. As we crept to the end of a long hallway, it seemed as if the dark would give way, creeping further away as we advanced, always just so impeding our vision of the other side.  As we reached the halfway point, a wall of darkness could be seen further down. It was a large open doorway to a wide room, a mess hall. The doors laid strewn on the floor, shattered. We all stopped.
+
+
+
+“What is it?” Petha asked from behind us, voice quiet.
+
+
+
+“Bad feeling. You feel it in your gut, your subconscious notices something’s off before you do. Can you step forward?” I asked. She tried to but couldn’t. 
+
+
+
+Agatha chuckled softly “That’s how the first time always feels. Spooky, huh? Need a hug?”. Petha would give her the middle finger, if she could muster the willpower to move. The lightheartedness of the moment then suddenly faded.
+
+
+
+A torchlight suddenly lit the hall before us, slowly advancing forth from the great doors, rising above the doorframe. Stronger than the moonglow but not enough to fully illuminate the thick, viscous dark beneath it, moonlight seemingly afraid to graze It’s massiveness. 
+
+
+
+A visage, an illusion? A goat’s horns were lit by its light, the torch perched up upon its forehead. You could see His countenance. Thump, thump. From behind the visage, mostly shrouded in darkness still, thump thump came heavy steps, floorboards creaking under hoof. 
+
+
+
+Those were not His own, as It was not physically there. She would not make manifest in this place, otherwise the building ought to have been brought to ruin by His sheer magnificence. The Goat of Mendes loomed over the path before us. Petha’s spell of stillness was lifted, and with a most serene expression she stepped towards Him, I grabbed her arm and pulled her in behind us. 
+
+
+
+Not a word. Not a sound more. No movement. The moonlight went away; strong orange torchlight only remained. Then it came from beneath the shadows of the Templar’s Idol. The cackle of a hyeana, then the shriek of a horse, and lastly the deep gargling bellow of a dying bull. The cold and rancid air blew from behind, strong as to push us a step or two forward. The figure dissipated. 
+
+
+
+In its stead, a thing stumbled towards us from the now fading dark that gave way to the white, waning moonlight. Weirdly emaciated yet muscular, it had pale, wet skin, with a long, fine black mane that ran from its head down its thick neck, which connected to an emaciated but rigid trunk. It walked on all fours with a hunched back, hooves on the hind legs, and long, skinny, clawed paws on the front. 
+
+
+
+A human-horse-like face with large cross eyes in their sunken sockets stared at us, six irregular horns atop it’s brow. A large, wide, and long mouth hanged agape, jaw to the side as if broken. The first rows sported human-like teeth, but as they ran along the jaw they gave way to sharp and bent dentition. It drooled over the floor and shook like an addict suffering from withdrawal, head bobbling side to side. The metallic scent of blood and stench of rotting meat impregnated the air. Then came the scent of a nice meal in the making, the soothing fragrance of lavender, and I heard the sound of my mother’s voice. 
+
+
+
+My head fuzzy, the thing lunged. 
+
+
+
+Agatha cocked her weapon and fired a shot. A miss. Another shot, another miss. “That was all I got chambered in” she exclaimed.  
+
+
+
+It barreled towards us, avoiding each shot by jumping from wall to wall. Big and fast, it crawled up the wall and onto the ceiling, tumbling fast in our direction. 
+
+
+
+“Why the fuck do you only have two bullets?” Petha angrily screamed, as she reached for her knife to ready herself for contact.
+
+
+
+“Faith, kid. It would be a hit if your bad luck didn’t fuck us over.” Agatha retorted. 
+
+
+
+As it came closer, I brandished the dog skull in one hand and readied my fist and brass knuckles for a strike on the creature’s face, stance with feet firm on the ground. It abruptly stopped just a few meters away with it’s head tilted to the side, scanned each of us for a few seconds with hectic eyes, and turned around, scampering back into the dark mass hall with a hyena’s laugh echoing the halls. 
+
+
+
+“Whatever the fuck was all that?” Petha asked looking at me with fear in her eyes, adrenaline rushing and making her voice tremble. 
+
+
+
+“I don’t know. But Petha, listen and learn.” I spoke, briefly looking at her, then staring forwards. 
+
+
+
+“In the occultist teachings of the adept Eliphas Levi it is taught that a sort of magnetism of thought binds all of the universe. Primordial, unbound desire is able to affect the world and others as much as physical action. To wish evil upon someone is the start of murder, and an unbridled want, unspoiled by material desire, can be as deadly as poison and kill the recipient of hate. It is the great light that makes up all of creation that is affected by the living beings' thoughts and beliefs and manifests it unto the material realm”. 
+
+
+
+I paused.
+
+
+
+“That is to say, desire and want can hurt and bind, but also affect and change. Most importantly, will to persevere through abandonment of want or to surpass yourself is essential in the path to greatness”.
+
+
+
+Petha looked increasingly confused. I continued.
+
+
+
+“The most powerful thing to reach your goals is manifestation - the delusion of the mind in itself, to believe an untruth and with pure desire make it so the walls of the pleroma bend to your will. Even the greatest archons shall be subjugated by the most awesome and boundless mind, of purest desire”.
+
+
+
+I pointed at my chest. “It is what I believe”.
+
+
+
+“In the words of the madman philosopher Nietzsche, the overman, the superman, Übermensch himself, overcomes reality's limitations and with purest devotion to his cause shall he bear the burden and perch upon his own cross, heart purest. This is me. The stronger will consumes and takes over the weak, this is the magnetism of the universe, the survival of the fittest, the overman's will manifested upon reality”.
+
+
+
+Petha stared at me. She blinked once. And again. 
+
+
+
+“What the fuck? Why did you say all of that?”
+
+
+
+“He is trying to say that faith is a valuable resource.” Agatha interjected. In a matter-of-fact manner she continued:
+
+
+
+“Believe in yourself, you know? The trinkets and whatever else are all to help with that. Your boss? He’s coo-coo, but he’s good.” She smirked at me and took the lead. “C’mon, gotta do the job. Then we can chat.” Two more rounds were loaded into the cylinder.
+
+
+
+The trail of putridness in the air gave a strong lead to the path of the thing. The silence was deafening. Petha stood in between us for safety, she shook like a twig. I took the back. 
+
+
+
+The great room was all dark. Not regular darkness, but the viscous and thick black that overcame the hallway just before. The moonlight made no effort to pierce through the wide and open broken windows, most of which were glassless and even frameless. An awkward visage of shadow and light meeting alike the encounter of salt and fresh water in an estuary, neither penetrating onto the other’s space.  
+
+
+
+The chittering of paws could be heard all around us. Skitter and tap. A table pushed and then a chair knocked down. Nothing to be seen, but to be smelled and heard. Flowers in a field and honey and rain overcame our nostrils, disarming all senses. Cackle, bellow and neigh. Gurgling and the smell of rotten meat came in as a storm. 
+
+
+
+“Shouldn’t we get out of here?” Petha asked.
+
+
+
+“If WE get out, IT stays, and if it stays who knows what happens?” Agatha retorted. 
+
+
+
+“It’s made of flesh and bone; we will kill it. It’s violent and unknown, the devil’s spawn, killing is imperative” I muttered. 
+
+
+
+Crash. Heavy footsteps came barreling towards us, and the darkness suddenly illuminated, giving way to the moonlight in a way that blinded as rays of sunlight. The monster was inches away from Petha’s face, mouth open as wide as that of a feeding python.
+
+
+
+We all flinched at the brightness. The creature, which was just then prepared to lunge, winced and moaned, turning away. I reacted on instinct – a right haymaker to the face. The thing stumbled, it coughed up the most horrid looking blood, thick and with the appearance of molten rotten meat and pus. It splattered on the ground and from it arose a soothing aroma, of fleshly washed clothes swaying in the breeze. It recovered and lunged at me.
+
+
+
+I grabbed it’s upper jaw with my left hand and the neck with the right, feeling the most rigid muscles I had touched, as if touching concrete, slimy and wet but firm concrete. I pivoted onto my left foot, kneeled with the right leg, and tossed the creature over me, it’s slender but tall frame making it easier to toss over.
+
+	
+
+It’s body thumped to the ground face first and within those moments everyone’s vision had recovered. Agatha shot twice for the creature’s center of mass as I quickly got up and away. Bang, bang – no blood. We heard the projectiles hit the ground. 
+
+
+
+“What the fuck?” Petha screamed and ran for the door. The monster that had the wind knocked out of it quickly came back to its senses, hurdling towards Petha and clamping its jaws down on her legs, ragdolling her body like an angry pitbull does to a catch. Her knife made no dent in the beast’s skin, and her screams only aggravated the onslaught.
+
+
+
+I ran towards them but as I approached, the thing stopped it’s assault on her, letting go of her legs and, with an agile step, threw it’s hind legs towards me and kicked me back with the strength of a shire horse.
+
+
+
+Agatha opened up the cylinder of her weapon, loading another single shot into the chamber, spinning it and closing. Then, she pulled a second revolver from the backside of her blouse. A shiny new one, pristine condition. She hurriedly loaded five bullets into this six-gun, then spun the well-maintained cylinder, and jerked it into place.
+
+
+
+She held the shiny sixer to the underside of her jaw, clicking it and readying the finger trigger. The old shooter pointed at the target; she cocked the hammer as well. 
+
+
+
+“Our Father which art in heaven, hallowed be thy name” ephemeral hands could be seen cupping her outstretched arms hand, as if guiding her aim. The arms stretching from a glowing mass behind her, that shone brighter by the second.  
+
+
+
+“Protect me, guide my aim and fall my foe”, she maintained a steady gaze upon the target.
+
+
+
+"I wholly put my life in thy hands, and wish you to give me strenght and protection." She pressed the trigger aimed at her head. Click. An empty chamber. 
+
+
+
+“Thank you, Father” she said, and fired her rusty cannon. A powerful blast shattered all the windows that still remained in the hall, projecting the bullet straight into the creature’s forehead. It fell with a loud and wet thud. 
+
+
+
+“Are you alright?” I asked as I hurried to check on Petha, who was in shock of the whole ordeal. She was surprisingly fine; her pants were ragged at the calves but her skin was merely scratched. She had a closed body, courtesy of umbanda witch doctors. She slowly got up with a groan, and stumbled a bit forward, looking at the thing on the ground.
+
+
+
+No time for respite, the body began moving, wriggling and slowly rising up again to all fours. The air so cold one could see their breath. Agatha’s guns were now useless from the exertion, the old .38 was jammed, the cylinder stuck and unmoving, and the new gun's trigger not working anymore. I was prepared to fight, but my ribs felt like they were broken and I could feel my strength waning. My lucky charms and sheer resolve the only things keeping me on my feet and guarding my body from serious injury.
+
+
+
+Suddenly, darkness thicker than before overtook the whole room, the air grew heavy and impossible to breath, and our bodies just felt so much heavier. The atmosphere grew so tense that it felt as if my own heart was fatigued and felt too heavy or just outright scared to move and pump blood. Everything felt heavy and cold. 
+
+	
+
+“Daughter of Ogum” the deepest and raspiest voice I heard spoke, slowly and in a commanding tone. The walls shook; my whole body trembled to the sound. I knew it was His Magnificence. I caught the briefest glimpse of Her form from the darkness before us.
+
+
+
+“You would not die here tonight. It is not becoming. Not wanted.” Said a lighter, feminine voice. I stared at Petha. Her expression was serene. She was standing tall, confident. A stark contrast to the girl who had wandered into this room, wholly afraid and shaking. I heard a shriek and looked to the battered thing – it was making the most effort to move forwards, lunging at us, but seemed stuck by the right back leg, like a wolf in a trap. It clawed towards us, bit at the air and cried a most horrendous cry. 
+
+
+
+The tension in the air seemed to dissipate slowly. The creature then broke free of whatever held it and barreled towards Petha again, fast and deadly, a dull expression plastered on its face that yet emanated a crazed blood frenzy. With little wasted effort, Petha spun her knife in hand, blade upwards and, as it came the closest to her face before clamping its huge mouth over her entire body, she pushed her weapon onto its neck.
+
+
+
+The momentum could not be stopped; she was struck as if in a car accident. The creature’s body throwing itself over her and pressing her against the floor. I stood there, waiting to see who would rise from it. The thing’s body moved, moved again, and toppled over. Petha was gasping for air and had a pained expression on her face, but was alive and victorious. Gore stained her entire body from the long and gaping wound in the creature’s neck. 
+
+
+
+The air grew lighter. The room illuminated with moonlight brighter than a flashlight. All tension suddenly vanished from our bodies and we could breathe normally again. 
+
+
+
+I had felt the heaviest presence of the goat in the past aswell, but this time its finest features made themselves present. I haven't until that day felt the mellow look of its eyes and the seen its shapely features, as what I had seen before, in past encounters, was but the ragged fur and sharp teeth of a hellish brute, the satanic torch burning with malice upon its crest.
+
+
+
+For all it's worth, and although of dubious nature, Petha had her own guardian angel that night. Her third guide made his hand heavy in that night's affairs. For one, I’m thankful of Their support.  
+
+
+
+After the whole ordeal, as is praxis, we called the police, looked around for anything, knocked on a few doors, and left. People had called the department about weird animals in the same neighborhood, and descriptions of similar things to the creature had come up every now and then. 
+
+
+
+The descriptions and samples we got came back with no matching results in any database. I was very fond of having found a new cryptid. That’s part of the reason I shared this story. It is not common to discover these things. The whole ordeal with Petha’s first night and her own special affinity with the otherworldly made me very excited for the nights to come. 
+
+
+
+Atrocicaballus boscrocuta is the provisory name given to the newfound beastie. The public would be lucky if such a thing doesn’t become so common as to be given a colloquial name.  
+
+
+
+“I don’t really know if I wanna do this again, doc” said Petha in an exasperated tone. 
+
+
+
+“You sure? That’s a shame. But at least you get your 2k when you get out”, I retorted. 
+
+
+
+“Say what? 2k? For a single night?” She said, looking at me with a glint in her eyes. 
+
+
+
+“Yes, standard rate. I mean, for an intern that is” I answered.
+
+
+
+She looked at me and Agatha. Looked around and scratched her head.
+
+
+
+“Yeah… I could, maybe, who knows, think about it?” She said in a shy way. “You know what? Fuck it, I’m down for the next one, whatever.”
+
+
+
+“Then get your stuff and hop in the car, we’re going” Agatha said in a commanding tone.
+
+
+
+“What? Right NOW?” Petha exclaimed, surprised.
+
+
+
+Me and Agatha looked at each other and laughed. 
+
+
+
+“No, that’s all for tonight. She’s just kidding. Go rest” I assured her and gently punched Agatha’s shoulder. She was warming up to our new member. 
+
+
+
+Petha hopped onto the car and we drove her to the facility. Her first night a chaotic mess, but all in all a rewarding one. She would be coming along for the next time. 
+
+ 
+
+What endurance! Petha's tough. I'm excited to see what else she's capable of, to see her full potential. I’m sure she'll shine bright in her role. And that thing? I can't wait to meet more of it. The novelty, the excitement of tonight gave me such a rush. Incredible! One of the creepiest beings I encountered, and such a fun one, too. 
+
+ 
+
+There have been many reports of missing toddlers and children in that area, and the next day we had been told that all the local pets had vanished overnight. There may have been more of it, and we still don’t really know where the Atrocicaballus originated from, were it made, summoned, mutated or a natural occurrence. Research has been invested into it, and I may you all update with any relevant information if prompted.
+
+
+
+Anyone has reports on similar cryptids? It could very well not be a native creature to Brazil that I’m not aware of, and maybe have come from oversees. If that’s the case, it’s just as bad as any invasive species. I also post this here as to gather information on it, if ya’ll have any. 
+
+
+
+For now, to not bore you all, this is what I have to share. If anyone is interested, I can post a follow-up talking about other interesting things I have dealt with, as well as shed light on this, honestly, very thriving and fulfilling line of work. Looking forward to answering any questions as well! 
+
+
+
+And remember, if you hear your floorboards creak at night and no human criminal activity is detected, or you see your neighbor sprouting fangs and walking on all fours, there is someone to help. Feel free to dial the local PD whenever you feel a paranormal occurrence is taking place, and a prosecutor will be dispatched promptly when available. 
+
+
+
+Good night, everyone. 
+
+&#x200B;
