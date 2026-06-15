@@ -1,0 +1,551 @@
+I work at a facility that contains gods.
+
+Or maybe "contains" isn't the right word. You can't really contain something that existed before the concept of walls. Something that remembers the first fire, the first prayer, the first human who begged for mercy.
+
+We don't have an official name. At least, not one we're allowed to use.
+
+Everyone just calls it C.S.P.
+
+Chain. Seal. Protect.
+
+That's our motto. Our purpose.
+
+And before you ask, no, I am pretty sure you've never heard of us. Nobody has. We don't even appear on government records, maps, or budgets. If we do our jobs correctly, the world never learns we exist.
+
+I'm posting this because I don't think anyone will believe me anyway.
+
+Well, that and I've decided to start journaling.
+
+Apparently, it's supposed to be healthy. Helps you process your thoughts, organize your feelings, and all that nonsense. But journaling into a notebook sounds boring as hell. No offense to the suburban moms who write three pages every morning about their yoga classes and pumpkin spice lattes, but if I'm going to write about my day, I want an audience.
+
+And trust me, my days are worth reading about.
+
+I love this job.
+
+That's probably the weirdest thing you'll hear in this entire story.
+
+Most stories like this start with someone who hates their job. They're trapped, desperate, forced into it somehow. That's not me.
+
+Okay, that's only partially true.
+
+I wasn't exactly forced to join C.S.P., but they didn't give me many alternatives either.
+
+The way they recruit people is actually kind of genius.
+
+They don't look for the best candidates. They don't look for the smartest people, the strongest people, or even the most qualified.
+
+They look for people who are already half dead.
+
+People with no future.
+
+People with no family.
+
+People nobody would miss.
+
+That's what I mean when I say "half dead."
+
+You're not actually dead. Your heart still beats. You still wake up every morning. But your existence has already faded from the world. Nobody calls. Nobody checks in. Nobody notices when you're gone for a week. Or a month. Or forever.
+
+You've already been forgotten, so you might as well be halfway in the grave.
+
+That's the kind of people C.S.P. recruits.
+
+Because when you work at a facility dedicated to chaining, sealing, and protecting things that shouldn't exist, employee retention isn't exactly great.
+
+And if one of us dies?
+
+Well.
+
+It's easier when nobody comes looking.
+
+Well, I wasn't always half dead.
+
+I had a family once.
+
+Not a good one, but a family.
+
+Getting into the details would take an entire post and probably trigger another mental breakdown, so let's skip the trauma dump. All I'll say is that I left, and I never looked back. And as far as I'm concerned, even if they all perished, it isn't my problem.
+
+After I left, things got worse.
+
+I hit rock bottom, tried to end it all, and then ended up under state supervision. Officially, they called it counseling. Mandatory sessions. Evaluations. Therapists asking the same questions in different ways, hoping I'd eventually give them the answer they wanted.
+
+It didn't work.
+
+Mostly because I lied through every session.
+
+At least, I thought it was counseling.
+
+Turns out it was recruitment.
+
+A few weeks after my "treatment" ended, I was taken.
+
+Kidnapped is probably the correct word, though C.S.P. would likely prefer something cleaner, like acquisition or transfer.
+
+I woke up in a concrete holding cell with no windows, no clock, and a single metal table.
+
+There was a glass vial sitting on it.
+
+Across from me sat a man in a gray suit.
+
+He gave me two options.
+
+The first was simple. Drink the vial. A painless death. Quick, clean, guaranteed.
+
+The second was employment.
+
+Join the facility.
+
+At the time, I thought it was some kind of sick joke.
+
+Then he explained what C.S.P. actually was.
+
+And that's when I learned the real reason nobody knows about the organization.
+
+Because once you know it exists, you don't get to leave.
+
+You either become part of the facility.
+
+Or you never leave at all.
+
+And despite what you might be thinking, I didn't choose the vial.
+
+Funny how that works.
+
+You can spend years wanting to die, convinced there's nothing left for you, and then the moment someone gives you a reason to keep going, suddenly death doesn't seem so appealing anymore.
+
+Or maybe it wasn't the purpose.
+
+Maybe it was pure spite.
+
+Part of me wanted to outlive my parents. To keep breathing long enough to know I'll never attend their funerals.
+
+Whatever the reason, I signed the contract.
+
+That was two years ago.
+
+Since then, I've been promoted three times.
+
+Not because I'm exceptional. Not because I'm some genius monster hunter or elite operative.
+
+I'm just the only idiot left alive to promote.
+
+Most of my coworkers are fresh recruits. Every few months, a new batch arrives, looking confused, terrified, or numb. Some think they've joined a secret government agency. Some think they're being punished. A few are actually excited.
+
+Those are usually the first ones to die.
+
+Out of every five hundred recruits, maybe fifteen make it past their first year.
+
+Of those fifteen, maybe five survive their second.
+
+After that, the numbers get so small nobody bothers tracking them.
+
+So either I'm incredibly lucky...
+
+Or I'm like a cockroach.
+
+Ugly, stubborn, and impossible to kill.
+
+Personally, I'm betting on the cockroach theory. Before I tell you what happened last week, you need to understand how gods actually work.
+
+First, C.S.P. doesn't imprison gods. That's a common misconception. Humans are incapable of imprisoning a god. Trust me, we've tried. When we say a god is "contained," what we really mean is that it's being managed. Kept satisfied. Kept predictable. Kept from wandering off and collecting worshippers on its own.
+
+How the Containment Division accomplishes that is beyond me. I work in Retrieval, not Containment, and I have no interest in transferring. The mortality rate over there makes our department look like a retirement home.
+
+I'm one of three heads of the Retrieval Division. One of the other managers has survived four years. The third has survived three. Which basically means they're better cockroaches than I am.
+
+Our job is simple in theory. Find newly emerged gods. Negotiate with them. Offer them a deal. A place to stay. Worshippers. Protection from rival entities and human interference. In exchange, they stop kidnapping people.
+
+Most gods don't want to destroy humanity. They just want attention. The problem is that gods attract worship the same way a fire attracts moths. Lost people. Lonely people. Desperate people. A god will whisper into their dreams, promise them purpose, and before long, they're gone.
+
+That's why whenever you see a cluster of mysterious disappearances, odds are good a god is involved.
+
+Gods are classified by the number of active worshippers they possess.
+
+D-Class: 500 to 1,000 worshippers.
+
+C-Class: 1,000 to 5,000.
+
+B-Class: 5,000 to 10,000.
+
+A-Class: 10,000 to 20,000.
+
+Anything above 20,000 is considered S-Class.
+
+Anything above 500,000 becomes SS-Class.
+
+And anything beyond that...
+
+Well, humanity stops pretending that it can control it.
+
+At C.S.P., we currently house two S-Class entities and a single SS-Class. The lower classes are so numerous that nobody bothers counting them anymore.
+
+Anyway, the reason I'm journaling all this is because my therapist won't stop bothering me.
+
+Surprisingly, C.S.P. has its own mental health department now, which is honestly more terrifying than most of the gods.
+
+Every month, they drag me into an office, ask me how I'm feeling, and pretend they're surprised when I tell them I'm feeling terrible.
+
+Apparently, surviving two years in Retrieval isn't "normal," and the fact that I can casually eat lunch while discussing casualty reports is a sign that I've developed "unhealthy coping mechanisms."
+
+Their words, not mine.
+
+So this is my compromise.
+
+I'm not writing in a notebook like some depressed Victorian poet.
+
+I'm putting everything here instead.
+
+If nothing else, maybe it'll save the next poor idiot who gets recruited.
+
+Or maybe it'll just give future psychologists more material to argue about after I inevitably die.
+
+Either way, everyone wins.
+
+Now, let's get to the reason I'm writing this in the first place, with what happened a few hours ago.
+
+A new assignment came across our desk.
+
+People were disappearing in the Sahara Desert.
+
+Now, normally that wouldn't raise any alarms. Hundreds of people vanish in the Sahara every year. The desert is massive, unforgiving, and very good at hiding bodies.
+
+What caught our attention was the increase.
+
+Normally, the annual number sits somewhere between 250 and 500 disappearances. Last year, it hit 600. This year, it had already reached 700. And we weren't even halfway through the year.
+
+Something was taking them.
+
+Which usually means a new god has appeared.
+
+Our team was dispatched immediately.
+
+Unfortunately, I had another problem.
+
+I needed a new assistant.
+
+Again.
+
+"I really need a new assistant, Jacob," I said.
+
+Well, "Jacob" is one of the other two cockroaches. Managers, I mean.
+
+And his name isn't actually Jacob. None of us use our real names here. C.S.P. is very particular about keeping our identities separate from the organization. The fewer connections there are between your real life and this place, the better. If something gets out, nobody can trace you back to the facility. Or the facility back to you. Mine isn't either. I named myself after a hair shampoo I used as a kid. Don't ask me why. It was the first thing that came to mind when they asked what name I wanted on file.
+
+Jacob looked up from his paperwork and sighed.
+
+"No."
+
+"No?"
+
+"No."
+
+"And why is that?"
+
+"Because this is your twentieth assistant this year."
+
+I pointed a finger at him.
+
+"That statistic is incredibly misleading."
+
+"How?"
+
+"Because it implies I killed them."
+
+Jacob stared at me.
+
+I stared back.
+
+"Fine," I said. "Most of them died on my missions."
+
+"Exactly."
+
+"It's not my fault the recruits keep dying. I'm not their mother."
+
+"That's probably what worries me."
+
+I glanced at the clock.
+
+Ten minutes until departure.
+
+If I missed the helicopter, Jeff would leave without me. The pilot already hated me for reasons that may or may not involve an incident with an ancient fertility god and a fuel truck.
+
+"Please."
+
+Jacob groaned.
+
+"Fine. Take Sean."
+
+A young man sitting nearby immediately looked horrified.
+
+Jacob shoved him toward me.
+
+"He's from my division. If he dies, Nayeri, I'm not giving you another assistant."
+
+"Deal."
+
+I left before he could change his mind. Sean hurried after me toward the helipad.
+
+The poor guy looked like he was walking toward his execution. Statistically speaking, he kind of was. 
+
+My retrieval team consists of fifty-six people. Seven are part of the Command Team—myself, Sean, and five senior operatives responsible for actually negotiating with gods. The remaining personnel are security.
+
+Their job is simple.
+
+Get us to the god alive.
+
+Keep us alive while we negotiate.
+
+And get us back alive afterward.
+
+On paper, it sounds easy.
+
+In reality, it's usually the hardest part.
+
+We arrived at the Giza Pyramid. Normally, the place is packed with tourists, but not today. Our team had the site shut down under the guise of renovations. We entered through a route the public doesn't know about. Not the path that leads up into the pyramid, but the one that descends beneath it.
+
+The ancient Egyptians were remarkable builders.
+
+Unfortunately, something had decided to use their masterpiece as a feeding ground.
+
+We encountered the first layer of worshippers near the entrance. They moved wrong. One man had both of his legs bent in directions; legs aren't supposed to bend, yet he sprinted toward us anyway. Another dragged himself forward with a broken spine.
+
+The security detail opened fire.
+
+Ten bodies hit the floor before they got close.
+
+We pushed deeper into the tunnels.
+
+The second layer was worse.
+
+Fifty, maybe sixty worshippers rushed us at once. Some crawled across the walls and ceiling like insects. One dropped directly in front of me before Elayna, my security captain, put a bullet through its skull.
+
+Another came from above.
+
+I shot it in the head, and it landed at my feet.
+
+"Move!" I shouted.
+
+We ran.
+
+The third layer was the last known layer.
+
+And that's where we found the god.
+
+It resembled a massive stone statue stretching from floor to ceiling like the trunk of a gigantic tree. Thousands of worshippers circled it in endless loops, chanting in a language I couldn't understand.
+
+I locked eyes with one of them.
+
+The problem was, it didn't have any.
+
+Only empty sockets stared back at me.
+
+The instant it spotted us, a gurgling screech erupted from its throat, a sound so wrong it barely resembled anything human.
+
+Then every worshipper in the chamber began screeching.
+
+Thousands of voices echoed through the cavern.
+
+"Greetings, my lord," I said, stepping forward.
+
+The intelligence briefing had classified it as a C-Class.
+
+It wasn't.
+
+Not even close.
+
+This thing was at least A-Class.
+
+Which was a problem because I had brought a C-Class team.
+
+"Greetings, my lord," I repeated.
+
+For several seconds, nothing happened.
+
+Then a voice whispered directly into my ear.
+
+"Lowly human."
+
+I resisted the urge to jump.
+
+The thing was at least fifty feet away.
+
+"What brings you to my sanctuary, human?" it asked.
+
+"We represent an organization dedicated to assisting divine entities."
+
+The lie rolled off my tongue so smoothly I almost impressed myself.
+
+Still, peaceful containment beats becoming toast.
+
+"Assisting?"
+
+The god stared at me.
+
+"And why would a god such as myself require assistance from lowly humans?"
+
+"Because, my lord, people are going to stop coming here."
+
+The god tilted its stone head.
+
+"And why is that?"
+
+"The pyramid is being renovated. Humans won't be allowed inside for a lot of time."
+
+The god's stone face twisted.
+
+Its worshippers began to twitch.
+
+"No pilgrims?"
+
+"Not for some time."
+
+"No wanderers?"
+
+"No."
+
+"No offerings?"
+
+"No."
+
+The god's voice sharpened with every question.
+
+Then it shrieked.
+
+Thousands of worshippers turned toward us at once. Gods are prideful creatures. Deny them admiration for even a single day, and it wounds their ego. Tell them new worshippers will stop coming altogether, and the reaction is rarely pleasant.
+
+I cleared my throat.
+
+"That is why we're here—to provide assistance during this unfortunate period."
+
+The god fell silent.
+
+"Continue."
+
+The statue leaned forward, its massive face stopping only a few feet from mine. I could smell incense, blood, and something far older than either.
+
+"We can provide housing, worshippers, protection, maintenance, and a stable source of followers."
+
+"What makes you think I will believe you, little human?"
+
+I gestured toward the empty entrance.
+
+"Today's visitor count?"
+
+The god didn't respond.
+
+"Zero worshippers arrived today."
+
+Still nothing.
+
+"And tomorrow won't be much better."
+
+The statue slowly straightened.
+
+I could practically hear it thinking.
+
+Which was terrifying.
+
+Gods thinking is usually bad for humans.
+
+"And what would you demand in return?" it finally asked.
+
+"Very little."
+
+"Nothing is ever little with humans."
+
+"Fair."
+
+The worshippers resumed their circling, their feet scraping softly against the ancient stone as they moved.
+
+I reached into my bag and removed the sealed scroll.
+
+"We've prepared a formal proposal."
+
+Before the god could respond, I handed it to Sean and shoved him forward.
+
+"Huh?" was all Sean managed to say before he stumbled into one of the worshippers. Several of them immediately grabbed him and dragged him toward the statue while he screamed.
+
+The scroll floated from his hands before it reached the ground.
+
+The god read it. 
+
+I have no idea what was written on it. Nobody in Retrieval does. The scrolls arrive sealed from the Containment Division. They're written in some ancient language only gods can understand. We aren't allowed to open them.
+
+Rumor says reading one drives humans insane, and I've never been curious enough to test that theory.
+
+"Quite a proposition, lowly creature," the god snarled.
+
+For a moment, I thought it was going to reject the offer.
+
+Then it laughed.
+
+"I accept."
+
+And with that, a blinding light filled the chamber, causing all of us to close our eyes. 
+
+When I opened my eyes, the statue was gone.
+
+The worshippers were gone.
+
+The cavern was empty.
+
+Another successful mission.
+
+We returned to the helicopter.
+
+I was halfway on board when I realized Sean wasn't with us.
+
+I looked around. Counted heads. Counted again.
+
+Still no Sean.
+
+I sighed.
+
+"Sorry, Jacob."
+
+I already knew he was going to kill me.
+
+Not literally.
+
+Probably.
+
+But it wasn't my fault.
+
+The god had decided to keep him.
+
+The entity now resides on the forty-fifth floor of the facility under a long-term containment agreement. Sean lives there too. He's one of the worshippers now. Last I heard, he spends his days walking in circles and chanting in a language nobody understands. Officially, he's listed as alive. Personally, I think that's debatable.
+
+Still, that's not what has me irritated.
+
+What has me irritated is what was waiting for me when I got back.
+
+A new assignment.
+
+Apparently, while we were dealing with the pyramid, something showed up in Antarctica. Normally, that wouldn't be my problem. Antarctica is usually Containment's territory. If something decides to crawl out of the ice, they can be the ones to deal with it. Unfortunately, somebody upstairs disagreed.
+
+The report was thin. Too thin. Just three pages. A satellite image. A casualty estimate. And a single sentence highlighted in red.
+
+**POSSIBLE DIVINE EMERGENCE CONFIRMED. RETRIEVAL TEAM REQUIRED IMMEDIATELY.**
+
+I remember staring at that sentence for a long time. Not because of the assignment. Not because of the location.
+
+Because of the casualty estimate.
+
+The last team that went there was erased, never to be seen again. It was a Containment Division team, and apparently, just because I have a one hundred percent success rate, the people upstairs think this is something I can handle.
+
+Side note: I can't.
+
+The previous team vanished into thin air never to be seen again.
+
+Which means whatever we're going to find in Antarctica already has them.
+
+And if that's the case, there's a decent chance my next assistant won't be the only one who dies.
+
+Honestly, I should probably get some sleep before we leave.
+
+The helicopter departs at six, so eight hours from now. At least that means Jacob won't get the chance to kill me. By the time he receives the report, I will be long gone.
+
+Antarctica is waiting.
+
+And for the first time in a long time, I'm not looking forward to a mission.

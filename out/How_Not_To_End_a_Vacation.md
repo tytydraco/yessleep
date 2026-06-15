@@ -1,0 +1,245 @@
+Not sure why my first thought was to tell the community here what happened, but I don't really know where else to go..
+
+I'm pretty sure it started on the trip.
+
+My buddies and I were squished into a tiny car I’ve never heard the brand of. It had just rained and the air still carried small droplets of fog. Small roads littered with potholes reminded us of home. It was our final drive across the countryside before leaving the next morning.
+
+Night had fallen and our headlights painted rolling hills. Small homes and pastures full of sheep raced by. Julian’s breath fogged up one of the back windows as he slept. 
+
+I daydreamed about getting back to my apartment. The trip had been a blast so far but I was ready for my own bed, shower and most importantly - air conditioning. 
+
+We curved around a steep hill and then passed an intersection. The GPS spoke through the car’s speakers, letting us know it was redirecting our route. 
+
+“Way to go, dumbass.” Shane chirped in the passenger seat, throwing his hands in the air mockingly. 
+
+Wayne shrugged, lifting his thumbs from the steering wheel. I was too tired to care about the extra four minutes added to the drive.
+
+We traveled over hillside, scooting to the road’s edge to make room for another passing car. Up ahead, a lonely stone building sat in the moonlight’s glow. It cast a shadow over a graveyard, shielding a small gathering of headstones.
+
+Shane kept his eyes on the structure as we drove closer. I knew what was coming out of his mouth before he even said it - “let’s go in there.”
+
+”We’ve already been inside like, six castles today.” Wayne replied, tired and just wanting to listen to the radio.
+
+“Yeah, tours.” Shane then turned to the backseat, his eyes now stuck on me as Julian remained asleep, “We could have this one all to ourselves.”
+
+I’ll admit I was giving it some thought. Guided tours through ancient buildings were cool, but what about all the things we didn’t get to see? 
+
+Wayne quickly read this on my face through the rear view mirror, “I’m not stopping.”  
+
+I shrugged and looked at the castle coming toward us. It was relatively small, but in great shape compared to others we passed on our journey. How bad could it be? 
+
+”But I mean,” I chimed in, “it is our last night.”
+
+Wayne rolled his eyes and shook his head, “ask Julian what he wants to do.”
+
+I nudged the small man beside me. He woke with his glasses pinned sideways, his hair disheveled at one side and drool lingering on the corners of his mouth. He looked at me, confused.
+
+“You want to do something fun, or what?” I asked him.
+
+Julian, easy going by nature and painless to convince, stretched his arms and yawned, “yeah, sure.”
+
+Shane celebrated as Wayne turned off the road and drove toward the castle. When I think about it now, it might’ve been the dumbest decision we’ve ever made. 
+
+We pulled into a small gravel turnout. The faded sign next to it read;
+
+**Costello Castle**
+
+**There are little to no records of the branch of the Costello family that inhabited this castle. It’s believed this structure was built to mark where the family could revisit their loved ones as the gravesite became larger. Seven members of the Costello family tree were laid to rest here some time during the 12th century.** 
+
+**- Do Not Enter Castle Grounds -**
+
+“Doesn’t sound real promising.” Wayne said.
+
+Shane shrugged, “Who cares? It’s ours for a little bit.” 
+
+The four of us walked toward the fortress, wet grass squeaking under our feet. The headstones were lopsided and worn down by the passing centuries. Names and symbols smoothed into the stone itself, eroding away the person that lay underneath. 
+
+The castle was in no better condition. What roofing remained dripped with moisture. Intricate designs that bordered small windows now sat bloated and round from many rains. The frame of the entrance was broken apart, like small stalagmites. 
+
+We stepped through the doorway, moonlight illuminating narrow corridors and sleek walkways. Vines crawled through cracks in the walls and wrapped themselves around stone columns. A long hallway separated the building in two halves. Each side with three small rooms. Beyond them was a large space that was likely once a dining hall, but the walls had since given away and now showed us our car.
+
+I saw it for the first time there, I think.
+
+When I looked into that room something had moved but only just as I turned my head. It was dark so I figured my mind was playing tricks on me. Looking back now -  it wasn’t.
+
+We searched each room, only to find weathered rock and shoe prints that didn’t belong to us. Julian picked up a heavy stone from the castle’s carcass and handed it to Shane, knowing it would go in his suitcase.   
+   
+Wayne wandered his way toward the entrance, his way of silently leading us out. Julian followed and I lingered behind, waiting for Shane to get one last good look.
+
+”How lucky are we, man?” He said, looking at the stars through the castle’s gaping roof. He sighed and stepped in front of me and through the doorway.
+
+Wayne and Julian made their way past the headstones and toward the car. Shane stepped off the castle’s final steps and turned and faced the road.
+
+As he did, it crawled out from behind a headstone, eyes locked on Shane.
+
+Its face was flesh colored. Tan, wrinkled skin stretched across wide cheek bones, giving itself burrowed eyes. 
+
+I had, and still haven’t, seen anything like it.
+
+The rest of its body was swollen with muscle and long wiry hairs. Lengthy, sharp nails pointed at the ends of its fingers. Arms and legs moved stealthy underneath it, crawling across the ground without sound.
+
+It was built like a human, but certainly didn’t move like one. I couldn't look away.
+
+I called to Shane, horrified at what my mind couldn’t comprehend.
+
+He turned and froze. His mind bending around the creature’s presence like mine was. 
+
+It stood still for a moment as its eyes met Shane’s. Two strangers weighing each other out. It flickered its gaze to me, then back to my friend. 
+
+Fangs hung from its wet lips and its eyes were strikingly human. 
+
+I bolted toward the car and Shane moved as I did. The creature stepped back, startled by our urgency, then pursued us. 
+
+“Start the car!” Shane called, losing his hat in the sprint. Wayne and Julian stood idle, looking for the cause of panic. 
+
+I could hear heavy breaths draw closer to us. I peered over my shoulder. The animal hurtled toward us on all fours, saliva splashing out of its mouth. It’s face nearing Shane’s calves.
+
+“Start the fucking car!” I screamed.
+
+It reached out one of its massive arms and swiped Shane’s legs. My friend tumbled to the ground, his face rubbing into the mud below. The creature, moving too fast, stumbled over the man and fell just feet ahead of him. 
+
+With it maybe being my only opportunity to do so, I kicked the animal in the side. It let out a gasp and I pulled back and kicked again. It squealed and leaped away as I smashed my toe into it once more. 
+
+Shane, now back on his feet, sprinted past me. Wayne wailed on the horn as he started the car. Julian opened the back door for us and leapt into the passenger seat.
+
+I ran after Shane, just feet away from the car. But I could hear that damn breathing again and the animal was behind me in seconds. 
+
+I looked over my shoulder to watch it trip me like it had Shane. I fell over and rolled away, pushing myself off the ground before it could get on top of me. As I got to my feet it lunged at me, pushing me back to the ground. I locked my arms underneath it and tried to throw it off me but this thing was just so damn heavy.
+
+Warm saliva fell into my eyes and mouth as yellowed fangs leaped toward my face. Its nails tore into my arms and shoulders as it flailed its arms. It finally curled its head and bit down on my arm. I let out a blood curdling scream and mustered the strength to toss the thing off me. It released itself, my blood oozing from its mouth. 
+
+I scrambled to my feet and ran to the car. My friends screamed for me, grabbing at the air with outstretched hands. The car inched forward, Wayne ready to escape. 
+
+I was within arms reach when the beast pushed me down once more, shoving me into the car’s frame. I hurried to my feet, keeping pressure on my bloodied arm.
+
+The animal then stood on its legs and faced me. It stretched its back and loosened its gangling arms. Blotches of mud were trapped by its long hairs. I froze in awe as our eyes met. It was human. Or something close.
+
+”Kevin just get in the car!” Wayne screamed from the driver’s seat, pulling me from my amazement. 
+
+I fell into the back seat, Shane reaching over me to close the door as we pulled away. I watched the thing as we drove off. Its freakish body painted pale by moonlight. It’s head followed us down the road as my blood dripped off its chin. 
+
+We drove in silence for some time, Wayne finally broke it by asking how I was. I told him I was fine and that unraveled a discussion about what the hell just happened, and what to do about it. We ultimately decided we paid the price for being dumb tourists in a place we didn't belong. 
+
+When we returned to our hotel I cleaned the wound as best I could. Small punctures wrapped my forearm, but not nearly as deep as I had thought when I was bit.
+
+Julian wrapped my arm with gauze we stole from the front desk’s first aid pack. “We should really get you to a hospital.”
+
+I remember telling him - “we leave in literally five hours. I’ll just go when we land back home.”
+
+I'm an idiot.
+
+
+
+I woke up incredibly ill. A migraine doomed me to sunglasses and noise canceling headphones. Everything I ate or drank tasted bland and bothered my stomach. My nose became a fountain of snot and I thought for sure my bad breath would take someone’s life.
+
+The flight back home was abysmal. I slept when I could but ten hours in a cramped seat only made matters worse. My friends did the best they could to take care of me, but rest was really my only option.
+
+“It’s healing really well. Doesn’t even look infected. Yet.” Shane said as he checked my bandage. 
+
+I rolled down my sleeves and finally snoozed until we landed. Sweat soaked my back and all of the in-flight meals left my system in the closest restroom. 
+
+We went our separate ways in separate cabs. My friends' faces blurred with worry.
+
+“Go see a doctor, don’t fuck around.” Wayne told me as he crawled into his yellow cab. 
+
+“I will, I will.” I said and waved him off. 
+
+When I finally entered my apartment I felt just a smidge better. My own food, my own couch, my own bed. Air conditioning. 
+
+I stripped off my clothes and laid naked in bed. The late afternoon sun pushed through my windows but I didn’t care I was so exhausted. 
+
+
+
+I woke up around two-thirty this morning. My sheets were completely soaked from sweat, I thought that I had pissed myself. 
+
+I leaped out of bed to investigate and realized I no longer felt bad. In fact, I felt great. My body didn’t ache, my arm didn’t hurt. I could move nimbly across the room, like I never even needed to stretch. I felt strong and powerful, yet light as air. 
+
+My nose was clear, and I could smell the stale water sitting by my bedside. And the new book in my bag from the trip. And also the chocolate wrapper I had left in my waste bin. 
+
+I stood next to my bed, huffing the air. I could breathe in the cereal sitting atop my refrigerator. The crumbs of burnt bread inside the toaster. The splattered marinara stuck in the oven and the chicken grease resting in the air fryer. 
+
+From that point on I don’t really know what happened to me. I felt a hunger no stoner could match. I could smell my houseplants from the opposite side of the room. I could hear my neighbors TV downstairs, another night wasted on *Love Island*. 
+
+I unwound the bandage on my arm and the damage had been reduced to scars. Dried plasma and blood flaked off my skin and fluttered to the floor like autumn leaves. I watched them fall through the air as saliva filled the back of my mouth. And in that moment I realized - I’m starving. I picked up the flakes of blood and ran them across my tongue. Like the sweetest sugar, my taste buds lit up. A twisting sensation rose in my back molars and I began to drool. I licked the wood floor, trying to gather any remnants I could. I licked over my wound too, but nothing remained. 
+
+I ransacked my kitchen, digging into every item I owned. Cereal, protein bars, cream soda, steak seasoning, pico de gallo, ranch dressing, butter - everything. Nothing tasted like the scab. 
+
+I dove into the succulents by my windows. Dirt and plush plant life was just as bland as the can of chicken soup I had before. As I pushed another jade plant between my lips I took notice of my view.
+
+I could see the frames of buildings and the alleyways they create. I could see each individual brick from the ground up and the smashed bugs and bird shit on them. Speckles on the sidewalk from crushed gum and bike tires. Streetlights hung away from dark corners but there were no shadows for me.
+
+I opened my window and heaved in the night air. Every scent brought me somewhere I’ve never been before. I was in a blissful haze. My mind wandered through an aroma euphoria. I wondered - is this how it’s supposed to be? Is this what being alive feels like? Is this the feeling philosophers and teachers looked for, and studied? Is this the point?
+
+My nose led me through the dark and onto the fire escape. A cool breeze drifted over my naked body and the sun’s rays reflected off the moon poured onto my face and neck. 
+
+In that moment, I’ll tell you, I’ve never felt more alive. 
+
+I wandered the streets, concealing myself in the dark. Hunger pangs called from the walls of my stomach and demanded an answer. Garbage cans and disposed Chinese food filled my nose but I knew what I needed. 
+
+I found it just a few blocks from my apartment. A squirrel had crossed the street and stood underneath a car. I could hear its fast little breaths and I listened as its nose twitched and told it where to go. Drunken patrons shouted to each other in the bar across the street, driving the mammal over to a nearby park.
+
+I followed it. Shifting my weight in my walk, I yielded no noise as I drew closer. It paced up a tree and moved after it. I scaled the oak with my gripping feet and dug into the bark with what I later learned were my massive nails. 
+
+I got to the branch next to the rodent. It flickered its tail as it listened. It knew I was there, it could hear me, it could smell me. It didn’t matter.
+
+I leaped to the branch and gripped the squirrel. It whistled its tiny scream as I separated its head from its body. I drank in the blood from its corpse and felt the warmth slide down my throat. I broke away its limbs and sipped what I could. Blood rested in its muscles and bone so I ripped those apart too, chewing away until they were dry.
+
+From what I can remember now, the squirrel tasted gamey. It was pungent and didn’t fill me up in the slightest. I could easily have more but it was far from satisfactory. 
+
+I heard a glass door slam open, and leather soles crunch against the sidewalk. I watched a guy walk away from the bar, his hands in his pockets. I followed him through the trees above. He turned north and began walking uphill towards a small neighborhood. 
+
+This was the section of my city where upper class suburbia meets the big lights. Little villas line tight roads and small front yards are maintained by landscapers. 
+
+I got down from the tree and followed him.
+
+The walk uphill barely winded him and his heart beat hardly increased. He was in great shape. My mouth began salivating again. 
+
+I stalked behind him as we entered the neighborhood. Cars seldom drove by and he remained on the sidewalk. I paced him across the street, staying in the black shadows of homes.
+
+He looked around briefly and then scanned the neighborhood. He stopped off the sidewalk and hid behind some small shrubbery. I ducked low behind a bush, thinking I’d been spotted. But the man only relieved himself, and then kept on the same path. 
+
+  
+The road twisted and I began to feel anxious. What if he’s almost home? I just want a taste. I just want to try. 
+
+I began walking on the sidewalk parallel to him but avoided streetlights still. He took notice, craning his bald head around to see me. To him, I was just a figure in the black, walking no faster than he was. But his head turn allowed me to smell his breath - he hadn’t been drinking. In fact, I don’t think he had anything in hours, except for the spit from a waitress. 
+
+I hastened my steps, catching up to his pace. He began to walk faster. Nervousness stretched over his body. He turned to look at me. Again, I was just a shadow he couldn’t see.
+
+We rounded a curve and I continued at his speed. I stared at him and listened to the blood push through his neck and inside his skull. Sweat formed on his back and he rubbed his palms on the inside of his pockets.
+
+After we kept at this for a moment, he grew impatient. He slowed his pace and began looking intently in my direction. 
+
+“Yo, what’re you doing over there?” he shouted to me.
+
+I stepped into the streetlight’s halo, revealing myself. I wanted him to fear me. I wanted him to feel like the space between us was suffocating. 
+
+He stepped backward and began to turn and run but I was on him in seconds. I sank my teeth into his side and bit down as I drove him to the ground. He screamed and I covered his mouth with my hand. Muffled calls for help spilled between my knuckles. I curled my fingers into his cheek and ripped open his mouth, his bloodied lips squeezed in my palm. 
+
+I moved and bit into his throat, silencing him. Blood fell into my mouth and I felt the heat soak my tongue and teeth. His thrashing limbs slowed as his life slipped away into my stomach.
+
+I laid there for what felt like hours. Drinking in the maroon like an infant on a bottle. 
+
+When I finally got to my feet I felt drunk. I stumbled and had to hold myself up on a light pole. My vision blurred and I nearly threw up until I saw headlights dance across the road. 
+
+I sprinted in between two houses and hid behind a pair of trashcans. Their garbage reeked of insect spray and charcoal ash.
+
+A blue car treaded down the street and passed by. It then slammed on its brakes and sat still for a moment. I peaked out from behind the cans. Exhaust fumes drifted next to the man’s bloodied head. 
+
+A car door opened and a pair of heels clicked-clacked across the pavement. A woman in a sparkling dress rounded her trunk, gripping her phone and holding it to her makeup smothered face. 
+
+“Oh my god. He’s laying face down. There’s blood everywhere.” She paused for a moment, taking in a shaking breath, “I don’t think he’s alive.”
+
+I quietly crawled over a nearby fence and into a backyard. I sprinted home, not stopping unless I needed to conceal myself from the late night crowd and speeding cabs. I crawled back up my fire escape and slammed my window shut. 
+
+“It’s a dream.” I thought to myself, “just go to bed.”
+
+I returned to my bedroom and laid on my comforter. Adrenaline had worn off and I felt my body relax. I felt smaller, weaker. 
+
+I woke up not too long ago, and now here I am typing this with blood stained fingers. 
+
+I’m shaking. I don’t know what the hell to do, or why I did what I did. How the hell do I explain this to someone? To my friends? To the police??
+
+I hope you never have the feeling of being afraid of yourself.
+
+Because I am. 
+
