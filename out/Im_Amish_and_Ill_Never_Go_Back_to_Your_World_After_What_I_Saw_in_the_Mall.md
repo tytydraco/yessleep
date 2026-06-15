@@ -52,7 +52,7 @@ The doorway stretched away from me.
 
 Behind me, the breathing became wet and excited.
 
-I turned a corner and found a long hall with windows on both sides. Outside were rural fields at dusk, but empty of houses, barns, roads, cows, fences. Just corn, too tall, pressing close to the glass. The sky was a blue too deep to be sky.
+I turned a corner and found a long hall with windows on both sides. Outside were fields at dusk, but empty of houses, barns, roads, cows, fences. Just corn, too tall, pressing close to the glass. The sky was a blue too deep to be sky.
 
 Something walked between the rows. I could see the stalks parting.
 
