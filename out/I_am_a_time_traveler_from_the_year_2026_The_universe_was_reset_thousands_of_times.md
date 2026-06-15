@@ -1,0 +1,38 @@
+Hello, my name is Joseph James Winfree, a 30-year old white man from Southeast Texas. I am a time traveler.
+
+Firstly, I have no proof. If this post gets deleted then that's fine.
+
+Secondly, I posted about this 2 years ago on the r/conspiracytheories subreddit, but the post was labeled a "schizoid art project" and taken down...
+
+Thirdly, I am posting this after so much time because I had wanted to move on from it, and live my life. But recent events have made this impossible.
+
+And fourthly, I did contact the NSA and FBI about this, but I have yet to receive a response. I will continue to whistleblow this until someone contacts me.
+
+This is my story:
+
+I was sent back in time to 2022 over 10,000 times. Why? Because I time travel when I die: I died over 10,000 times.
+
+But this isn't like the movie Groundhog Day. In that movie, Bill Murray is sent back in time 1 day into the past with his memories intact: waking up as if nothing had happened. Because of this, after learning about events and people around him, he became like a god.
+
+This is not what happened to me. Firstly, I was sent 4 years into the past: not 1 day. Secondly, I was never allowed to keep my memories. If I had, I would be a god like in Groundhog Day.
+
+Though remembering what I'm about to talk about this much could earn me the label of god...
+
+But I'm sure you're wondering about the title: the universal reset. Well, like I said, I go back in time whenever I die. Because of this, the universe is reset 4 years back to the date of February 13th, 2022: a difference of 2 years since I posted on r/conspiracytheories
+
+It was true that I was sent back in time from the year 2024 to 2022. But now it's 2026 to 2022. Why? Well I was still time travelling since 2024: it's just I chose to ignore it. Now the latest I've lived, as of this post, is June 15th, 2026. This is true until I die again, though I will inform you that it's actually been 4 years since I've died in this current timeline.
+
+So with that said, how and why?
+
+Well you might be annoyed to know that I speak telepathically with the people who keep killing me. I've learned a few things in our conversations, and throughout my lives.
+
+1. The known universe is in a firmament: a spacetime bubble. Why? Well, if the universe is infinite then it would still be changing with time travel. A closed system can be infinitely reverted over and over again: and as far as I know, this happens when I die.
+2. How do I know that I time traveled/died? Because I get images and memories of myself dying over and over again, and of situations that I've been in before: not always when I die. Usually I recognize the system being the same as a previous timeline once every 10 or 20 minutes.
+3. Everyone who died between 2022 and 2026 was resurrected, and then died the same exact way. People can be resurrected from the afterlife with time travel: if not death itself no longer being the end.
+4. The entities who did this did this to experiment on humanity. I know this because it was hell on earth in 2022: insectoid creatures ("bug people") were raping and killing people everywhere across the timelines in 2022. This ended as 2022 ended, though they speak into my head to drive me insane. I could also tell how they were mind controlling people because of people acting like robots all around me. This eventually changed to normalcy by years end.
+5. All of the timelines are the same, with no butterfly effect. New things can occur, but it always just ends up the same. We have limited free will, but it's ultimately mind control by higher powers. And as far as I know, this is all because of me...
+6. There was no time machine when I time traveled. My mind was sent back in time instead, as nauseam. I remember what it was like to die. People would constantly try to kill me, and tried to hurt me. But I'm sure you'd be happy to know that death was painless for me.
+
+And that's that. There are other things, but I can't really think of anything right now. I'll answer any questions if you have any.
+
+Thank you for your time.

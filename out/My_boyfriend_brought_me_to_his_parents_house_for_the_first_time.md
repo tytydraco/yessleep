@@ -1,0 +1,73 @@
+My boyfriend (at the time) and I were on a trip to Wisconsin, to see The House on the Rock. It so happened that his parents’ house was on the way, so we agreed to stay the night with them. Then his parents agreed that we’d stay till Saturday night, and *then* that we’d stay till Sunday church service, and—pretty soon—our whole weekend was now centered around hanging around my boyfriend’s hometown, which he’d never spoken of fondly.
+
+His parents were nice enough when I met them, but they had old ideas about how unmarried couples shouldn’t be sleeping together. So, I wound up alone in the second-floor guest room that smelled like mothballs and had a mint condition NordicTrack parked in the corner.
+
+The single bedroom window, which would have overlooked the backyard, didn’t have curtains. Instead, the glass was covered—or encrusted—in layers of tape and yellowed newspapers.
+
+At least I can say the mattress was comfortable. I’ve always had a difficult time falling asleep in a bed that wasn’t mine. I was in that odd drifting point between wakefulness and sleep when I first heard tapping on the window.
+
+Some tree branch must have been poking against the glass. Not a big deal, it happens. Especially during windy nights. If the tapping had continued at a steady pace, I might have been able to tune it out, as if it were a metronome. I could have even used it for self-hypnosis.
+
+But the winds outside weren’t so kind. I’d get used to that staccato beat of tap-tap-tap, then the winds would stop, and there’d be a lull. The silence would ease me back to a half-asleep state. Then, the taps returned!
+
+It must have happened eight or nine times. I couldn’t get any sleep. The bedroom didn’t have a box fan, but the closet outside did. I grabbed the fan, plugged it into the wall, and cranked it to the highest setting.
+
+Finally, the taps were drowned out by white noise. The fan also circulated the air in a room I don’t think anyone had been inside for months. I breathed deep, appreciating anything that minimized the inherent stuffiness of a guest room in an antique house.
+
+I found myself on the cusp of REM sleep when the power to the whole house shorted out. It started with a loud crack, like thunder. Then, the fan stopped spinning, the overhead lights wouldn’t switch on. And the *taps* came back.
+
+The winds were extra strong now. The rush of what must have been a huge storm above us sounded almost like laughter. But that was just a trick of my pattern-seeking mind.
+
+My boyfriends was a deep sleeper, but an early riser. Apparently, he takes after his parents that way. When I stumbled downstairs at dawn, his folks were busy on their flip phones, calling to figure out why the electricity wasn’t working.
+
+The answer was obvious when I looked out the front door. Their house was next to a powerline, which overnight had broken and fallen to the ground.
+
+I was rubbing grit from my eyes—maybe I had gotten a little sleep? “Strong winds,” I mumbled.
+
+“What wind?” my boyfriend asked. He was busy in the kitchen, spreading jam on untoasted bread slices.
+
+“You didn’t hear the wind last night?” I shook my head. I knew he was a heavy sleeper, but to not even hear the raging storm that was here last night, that was strong enough to down a power line?
+
+“I swear,” he said, “It was a perfectly calm night. Outside my window, at least.”
+
+I groaned. These people were expecting me to deal with two more nights of this. Two more nights of that incessant *tapping*. Nuh-uh. Nope.
+
+My eyes burned as I marched my way into the garage. I grabbed a ladder and hedge clippers, and pushed open the side door. The ground my bare feet touched was dry. No rain last night.
+
+“Babe, what are you doing?” My boyfriend asked. I took in that he had already dressed, while I was still in my pajamas.
+
+I wasn’t dressed for the work I needed to do. I pressed forward, regardless. The ladder scraped on concrete behind me.  
+
+My boyfriend followed. Again, he asked what I was doing.
+
+“I cannot sleep in this house till I’ve cut down the branch that kept slamming against my window all night!” I gritted my teeth. “I can’t change the winds, but I can do that, at least.”
+
+My boyfriend squinted. “A branch?”
+
+I turned around the corner into the backyard. The hedge clippers dropped from my hand. For a long time, I couldn’t speak.
+
+After pitching a royal fit, my boyfriend agreed to keep driving north, and not stay the whole weekend with his folks.
+
+His mom asked why we were skipping out so early. I didn’t say anything. My boyfriend made up some excuse, about how we needed a place with working electricity. We wound up spending Saturday night in a Motel 6, but I wasn’t complaining.
+
+We crossed into Wisconsin after that, and finally saw The House on the Rock. We drove home without incident.
+
+We’re still together, but his mom doesn’t like me. Thinks I’m some kind of *prima donna,* too good for her middle-class home. But that’s not it at all.
+
+My reason for wanting to leave had nothing to do with the house, or her, or my boyfriend’s dad. I didn’t admit the truth, because it’s better my future in-laws think I’m stuck up than a total nutcase.
+
+Because here’s what I found in the backyard of their house: nothing.
+
+There was no tree tall enough to have branches that reached the second floor. There were no trees, period. None. Not even a shrub.
+
+Even now, my fiancé insists there hadn’t been any storms that night at his parents’ place. But if there wasn’t any wind, what had knocked down the power line?
+
+You ever been scratched by a cat? I have. Used to own one of those feisty tuxedo cats as a kid. So let me tell you, when I looked over the downed powerline, at the spot where the wood had cracked—the gouges embedded in that wood looked exactly like claw marks.
+
+Maybe the connection seems tenuous to you, but I’m certain whatever had been tapping on my second-floor window, whatever had destroyed the powerline, and whatever had made those laughs that so easily mimicked the wind are all the same entity. Or, barring that, they’re related.
+
+And that’s why I insisted on leaving my fiancé’s parent’s house, even though it made me seem rude. Because come Saturday night, I didn’t want to be in that same spot.
+
+In case it came back.  
+
+ 
