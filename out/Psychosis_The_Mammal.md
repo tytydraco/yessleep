@@ -1,4 +1,4 @@
-Picture it. 
+Picture it.
 
 Place the image in your head and hold it there for as long as you can. 
 
@@ -16,7 +16,7 @@ Please continue, 
 
 and know we appreciate your patronage. 
 
-\- - - - - 
+\- - - - -
 
 When America landed on the moon, normal people were celebrating. They were popping champagne. Hugging their kids. Breaking out their special fireworks, the dangerous ones hidden in the garage that burned white-hot and really lit up the sky. 
 
@@ -40,7 +40,7 @@ Red was as normal as they come. Mid-thirties. Mother of two. Worked as a mechani
 
 She clocked in at the gas station one morning, on time as usual, and began working on her first repair. Per her boss, Red was completely lucid, if not a little groggy, so he walked off to the break room to brew a pot of coffee for both of them. When he returned to the garage, not only was Red gone, but *the car* she was working on - a silver ’66 Chevy Corvette - was gone too. He did some frantic laps around the parking lot, but the car wasn’t there, either. Red had seemingly driven off with the antique vehicle. The boss sprinted back inside and phoned the cops. After that, he pulled up the day’s repair itinerary to determine who the expensive Corvette belonged to, dreading how they would react to the news. He scanned the list - once, twice, three times. 
 
-There was no Corvette scheduled for repairs. Not that day, not the day before, not anytime in the next month. 
+There was no Corvette scheduled for repairs. Not that day, not the day before, not anytime in the next month.
 
 The boss has no clue where the car came from, and he was confident it didn’t belong to Red. 
 
@@ -50,23 +50,23 @@ The police arrived a short time later, and the boss pivoted his story. Told them
 
 According to the cops, the explanation for her disappearance was drugs until proven otherwise. 
 
-Three days later, and there was still no sign of her. Red’s parents were worried sick. After enough pestering, the police finally stopped dragging their feet and put out an APB on that 66’ Corvette. 
+Three days later, and there was still no sign of her. Red’s parents were worried sick. After enough pestering, the police finally stopped dragging their feet and put out an APB on that 66’ Corvette.
 
-About an hour later, they got a call from the local TV station. 
+About an hour later, they got a call from the local TV station, and promptly cancelled that APB. 
 
-An intern had been searching through a cluttered storage closet, rifling through a pile of spare cables, when his hand unexpectedly grazed damp skin. He squinted in the dim light of the closet and discovered Red’s bloodshot eyes gleaming back at him. No one knows why she broke in or what she planning on doing there. 
+An intern had been searching through a cluttered storage closet, rifling through a pile of spare cables, when his hand unexpectedly grazed damp skin. He squinted in the dim light of the closet and discovered Red’s bloodshot eyes gleaming back at him. No one knows why she broke in or what she planning on doing there.
 
 She resisted apprehension violently, clawing and biting at the police, but she did so silently. Didn’t make so much as a peep on her ambulance ride over to *Falling Leaves Behavioral Health Hospital.* The quiet provided the situation an air of calm, but her face betrayed fury. A clenched jaw. Eyes bulging. Veins throbbing down her temple, pushing bursts of hot blood into her already flushed cheeks. 
 
-I was on shift when she arrived. 
+I was on shift when she arrived.
 
 It was a little after one in the morning. Up until that point, the night had been peaceful, which is never a good omen. A relaxed shift is one thing, but complete serenity is a harbinger; it's a sign that the universe is winding up a haymaker. After enough punches, you learn to brace yourself before those cosmic knuckles collide with your skull and snap your nose in half. 
 
-I greeted the ambulance crew at the door. 
+I greeted the ambulance crew at the door.
 
 Red was wheeled in. EMS was holding onto her gurney lightly and with the tips of their fingers, like they were hesitant to put any part of themselves close to Red, even though she was strapped down twenty ways to Sunday. The other night-shift nurses and I took over. We pulled her into the massive patient elevator and pressed “5”. I’ll admit, I rolled my eyes at EMS when I saw their fear, assuming they were easily spooked and green as hell. But in those silent three minutes up to the psychosis unit, as my skin became slick with sweat and my heart began to pound, I backpedaled on that judgment. 
 
-Red was incredibly unnerving. 
+Red was incredibly unnerving.
 
 As the elevator creaked open, I was relieved to see the slim outline of Dr. Balor in the unit's pale light, waiting for us. She was the youngest clinical director in the hospital’s history. In other words, she didn’t need to work like a normal physician; she easily could have chosen to hole up in some swanky high-rise office building and make seven figures without so much as touching her stethoscope. That was never her, though. She was a boots-on-ground, do-the-hard-shit-herself type. We respected her for that. 
 
@@ -236,7 +236,7 @@ Would you like to believe that I got away, even if my escape felt a little too e
 
 Alternatively, would you prefer to believe that I was captured by the cult, and I was forced to witness their new God crawl from Red’s esophagus? 
 
-The truth of what transpired is somewhere in the middle of those two endings, but the truth isn’t the point. 
+The truth of what transpired is somewhere in the middle of those two endings, but the truth isn’t the point.
 
 You know the phrase *“a spoonful of sugar makes the medicine go down”*? *That’s* the point. The story is the sugar, and He is the medicine. 
 
@@ -248,9 +248,9 @@ Every time you think of Him, He becomes a little more real. 
 
 Every time you imagine Him, He digs a little further inside you. 
 
-Dr. Baylor found Red, His first vessel. But there will be more. More hospitable wombs. More glorious rebirths (i’ve never been more horrified and more elated). This story has no particular ending, because all that matters if that you thought of Him. 
+Dr. Baylor found Red, His first vessel. But there will be more. More hospitable wombs. More glorious rebirths (i’ve never been more horrified and more elated). This story has no particular ending, because all that matters if that you thought of Him.
 
-You thought of Him many, many times. 
+You thought of Him many, many times.
 
 So, do you see Him? 
 
@@ -258,7 +258,7 @@ Can you sense Him? 
 
 Can you feel Him growing inside yourself? 
 
-I know you can. 
+I know you can.
 
 So, once again, thank you. 
 
