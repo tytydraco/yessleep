@@ -384,7 +384,7 @@ Bryce shook his head, “It’s not that. I mean, it is, sort of, but…” he t
 
 I nodded again, urging him on. He hardly needed me to.
 
- “The shitty thing is, they barely believe me. They start grilling me with questions to see if I’m lying, so I have to think on the fly—fill in all these blanks with Casey without directly saying his name because he doesn’t even fucking *exist anymore* which just—\*Really—\*fucking sucks. And it starts getting to me, because, of course it does, and I finally just… break down.”
+ “The shitty thing is, they barely believe me. They start grilling me with questions to see if I’m lying, so I have to think on the fly—fill in all these blanks with Casey without directly saying his name because he doesn’t even fucking *exist anymore* which just—*Really*—fucking sucks. And it starts getting to me, because, of course it does, and I finally just… break down.”
 
 Bryce was no longer able to blink away the tears in his eyes, so he tilted his head back, hoping gravity might share the burden.
 
