@@ -397,3 +397,5 @@ Unlike me in the memories, though, I had a feeling that it was more than capable
 Kait reached out and touched my arm, seeing how ghost white I’d become, “Jess, is everything okay?”
 
 I glanced to the spot where I’d just left Lucy standing alone, wherever she may be, and blinked the watery regret in my eyes away, “I’m not sure…”
+
+[{Next Part}](https://www.reddit.com/r/nosleep/s/nl39HJrtdO)

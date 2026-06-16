@@ -179,11 +179,13 @@ Notes:
 1. Mark a section of the black handrail. It doesn’t matter with what, just as long as it survives the machinery. A strip of white tape will work perfectly.
 2. Ride the ascending escalator while counting every step.
 3. Walk the upper balcony and ride back down while counting again after marking the section of rail where you step on. (Always step onto the escalator when your mark appears)
-4. If the mannequins are all facing the top of the escalator on the tenth circuit, the loop has begun.
-5. Every completed loop adds one step to the escalators. Observation and acknowledgement of this helps sustain the loop.
-6. Do not allow any part of your body to touch the comb. (I don’t know why yet)
-7. The mall will begin changing after the first additional step.
-8. Always count. (VERY IMPORTANT)
+4. Repeat steps 2 & 3
+5. If the mannequins are all facing the top of the escalator on the tenth circuit, the loop has begun.
+6. Every completed loop adds one step to the escalators. Observation and acknowledgement of this helps sustain the loop.
+7. Do not allow any part of your body to touch the comb. (I don’t know why yet)
+8. The mall will begin changing after the first additional step.
+9. Always count. (VERY IMPORTANT)
+10. If you stop counting, don’t panic. Just start over.
 
 **\*\*\***
 
@@ -349,7 +351,7 @@ My feet arch wide over the comb. The seams now glowing orange like heat elements
 
 The lamps. Surfacing. Like some targeted social media ad. The wet napkins. Multiplying. The loop running my rituals without me. I’m being remembered. Referenced poorly. 
 
-A worse realization dawns on me. If I go back up—*it* will be his turn to look at my back. The hair on my neck bristles. What happens if it spots me? And then, an even worse—or better—idea pops into my head. 
+A worse realization dawns on me. If I go back up—*it* will be his turn to look at my back. The hair on my neck bristles. What happens if it spots me? And then, an even worse—or better—idea pops into my head. 
 
 Camera 14. 
 
@@ -378,11 +380,13 @@ Then, \*it—\*appears.
 
 My heart skips timing.
 
-It looks like me, but assembled wrongly. The first draft. Its face and eyes—they’re…too tall. Its elbows hang below the waist. The security shirt looks tight around the shoulders. Because it’s *supposed* to fit me. Not it.
+It looks like me, but assembled wrongly. The first draft. Its face and eyes—they’re…too tall. Its elbows hang below the waist. The security shirt looks tight around the shoulders. Because it’s *supposed* to fit me. Not it.
 
-I rewind again. The video glitches again. Skips a frame. The double appears on the escalator from nowhere. And then it finally clicks. I rewind again, but this time, farther back. I see myself ascending into loop 20, the double already descending. 
+I rewind again. The video glitches again. Skips a frame. The double appears on the escalator from nowhere. And then it finally clicks. I rewind again, but this time, farther back.
 
-My stomach drops a step too late.   
+My stomach drops a step too late. 
+
+I see myself ascending into loop 20, the double is already there, descending behind me.   
   
 
 **\*\*\***
@@ -393,8 +397,14 @@ Updated notes:
 2. Mark the handrail with something that will survive the machinery. (Always board here.)
 3. One step gets added per loop. Always acknowledge it. (The loop needs to know you noticed.)
 4. Don’t touch the comb. Don’t feed it. (Yeah, I know. I did anyway.)
-5. Stores simplify as the loops compound, only selling one item. This is normal. (Memory compression?)
-6. Objects you interact with gain significance within the loop. This effect compounds exponentially. (The mall remembers everything you do, but not why.)
-7. The loop’s geometry will prevent you and the double from meeting. Do not interfere with this. (I don’t know what would happen, and I don’t want to.)
+5. On the 10th loop, all the mannequins around the escalators will reorient. (The loop has pulled you in.)
+6. Stores simplify as the loops compound, only selling one item. This is normal. (Memory compression?)
+7. Objects you interact with gain significance within the loop. This effect compounds exponentially. (The mall remembers everything you do, but not why.)
+8. You will hear the double before you see it. ~~It will fully appear on loop 20.~~  **IT WAS ALREADY THERE**.
+9. The loop’s geometry will prevent you and the double from meeting. Do not interfere with this. (I don’t know what would happen, and I don’t want to.)
+10. The cameras within the loop only show the loop's reality. Not the outside world.
+11. Stick to a routine. Acting unpredictably makes the loop chaotic.
 
-Part 2: [https://www.reddit.com/r/TalesFromTheCreeps/comments/1u4dgal/comment/orc6s2k/?screen\_view\_count=2](https://www.reddit.com/r/TalesFromTheCreeps/comments/1u4dgal/comment/orc6s2k/?screen_view_count=2)
+PART 2: [https://www.reddit.com/r/TalesFromTheCreeps/comments/1u4dgal/i\_work\_overnight\_security\_at\_a\_mall\_the/](https://www.reddit.com/r/TalesFromTheCreeps/comments/1u4dgal/i_work_overnight_security_at_a_mall_the/)
+
+PART 3: [I work overnight security at a mall. The escalators keep remembering me wrong - Part 3 : r/TalesFromTheCreeps](https://www.reddit.com/r/TalesFromTheCreeps/comments/1u57efg/i_work_overnight_security_at_a_mall_the/)
