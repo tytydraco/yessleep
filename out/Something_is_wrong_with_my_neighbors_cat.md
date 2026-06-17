@@ -1,0 +1,105 @@
+As long as I can remember, my neighbor always lived next door to my family. Old man, lived by himself, extremely self reliant, didn't like to be bothered, you know the type. I never knew if he was a widower or if he was always single, and he never really talked to his neighbors so it's not like I ever found out.
+
+&#x200B;
+
+And I always remember how he'd always sit on his front porch, chain smoking a pack of Pall Malls, and he'd always have his cat sitting near him or on his lap. I remember one time, when I was a younger, well meaning kid who didn't know better, tried saying to the old man "cigarettes will kill you one day" he just shouted back "the sooner the better kid!"
+
+&#x200B;
+
+Well, one day I was about to learn the man had some secrets. My parents were the ones that told me that he had an accident and would need some time to recover. He would have some home health aides to help him with most tasks, but he would still need help with other chores, and that's where I came in. Things like mowing the lawn, doing laundry, things like that, and he would pay me for it. It was summer and I was home from college, and obviously I wouldn't say no to some extra cash, plus this was a rare opportunity to learn more about the mysterious man I knew nothing about.
+
+&#x200B;
+
+First day was uneventful, mowed his lawn with a riding mower that was sitting in his shed, then went inside his house to let him know it was done. The house was unremarkable, sofa, TV, coffee table, book shelves, dining table, nothing weird. The old man was laying down on the couch and grabbed the wallet off his table and gave me some cash until he told me to feed his cat. 
+
+&#x200B;
+
+I asked him where the cat food was, and he said to check the fridge. I opened the fridge and it was stacked tall with steaks, pork chops, fish, chicken. Before I could make sense of his request he shouted from the living room "grab one of the steaks and put it in his dish!"
+
+&#x200B;
+
+I tried to ask if I should chop it up but he said no. I left the whole steak on the dish and went on my way.
+
+&#x200B;
+
+The next few weeks went uneventfully. Mowed lawns, hedges trimmed, loads of laundry done, dishes washed, and every evening I'd come in to grab a different cut of meat from the fridge to put it in the cat dish trying not to think anything of it. I'd look at the little cat, just a regular unassuming silver tabby, but wouldn't spend too long wondering.
+
+&#x200B;
+
+It was one night when I got finished with my chores late that things got weird. Normally it's still daylight when I leave, but this day, I dragged a bit with my tasks that it got dark outside, and the old man said "no time to explain, get me to my room, NOW!" So I helped the man to his room and he immediately shut the door behind him and locked it. 
+
+&#x200B;
+
+I protested "wait, I need to go home?" 
+
+&#x200B;
+
+He responded "sorry kid, trust me, you don't want to leave this room tonight"
+
+&#x200B;
+
+Again I didn't know this old man, only that he normally hated people, so this was out of character for him. At first I thought he was up to something weird, but before I could finish that thought, I heard the cat clawing at the door
+
+&#x200B;
+
+"Wait aren't you going to let the cat inside?"
+
+&#x200B;
+
+The old man just stood silently 
+
+&#x200B;
+
+The cat's meows and clawing stopped and all stood silent for a tense moment, then, I heard a sound... I don't know how to describe it, but it sent chills down my spine and suddenly I trusted the old man with my life and didn't want to leave the room
+
+&#x200B;
+
+The old man sat down on the bed, and pointed to an armchair in the corner "you can tell your parents I needed extra help tonight, and take the chair if you need to sleep"
+
+&#x200B;
+
+But, I couldn't sleep, I continued hearing unnatural sounds echo around the house, even as the old man slept soundly. 
+
+&#x200B;
+
+The old man woke up the next morning, and I helped him out of bed. He unlocked the door, and his cat ran inside, just a normal silver tabby snuggling on the man's legs. I walked outside, and the house looked normal, no signs of anything weird happening.
+
+&#x200B;
+
+I didn't have a chance for another overnight for a while, and maybe that's a good thing, but, I did try to sneak a nanny cam into his house, just to see if I couldn't get to the bottom of what was going on inside his house at night.
+
+&#x200B;
+
+After one night I checked the footage... Just footage of his living room, and then, black, and the footage ends. Later I saw the camera was gone. Whatever was lurking the house at night must have destroyed the camera and my chance at capturing evidence.
+
+&#x200B;
+
+Finally, whether it was courage or stupidity, I figured out a plan to figure out the mystery. I helped the man to his room and told him I'd help myself out... I opened the front door and shut it pretending to leave but really I waited in the living room. I watched the cat walk around, pausing to lick and scratch itself, basically just being a cat. Then finally it went to the kitchen and for the first time I watched it eat its dinner, and I really wished I didn't... Its jaws opened wide, like really really wide, and swallowed an entire salmon in one bite, not just a little salmon steak, I mean the whole fish with head and tail intact. 
+
+&#x200B;
+
+Now I was frozen in place, the cat didn't pay me any mind yet, it ran to the old man's room and started clawing and meowing at the door... And then, it stood up, and made that sound I described earlier, the sound I couldn't describe but made me feel afraid to my core 
+
+&#x200B;
+
+Then, after I blinked, I don't know what I was looking at, but it wasn't a cat anymore, I don't even know what to call it or how to describe it, I wish I could say it just transformed into some giant panther or something at least that would make sense, what I saw just offends your senses completely and made sounds I still don't know how to describe 
+
+&#x200B;
+
+Whatever the thing I was looking at was... It turned and looked at me and started slowly approaching me. I looked to the door, and didn't know if I could make it in time, then in a quick thought I darted inside the pantry and shut the door. The thing outside pounded at the door for what felt like an eternity, and I was trapped in there cramped among the boxes and shelves of food sitting on the shelves regretting my curiosity. 
+
+&#x200B;
+
+Morning finally came, and I heard a meow outside the door. I opened it and there was the little tabby, now rubbing itself against my legs. I bent down and gave it a few pets before finally getting the hell out of the house and going home.
+
+&#x200B;
+
+They say curiosity killed the cat... Well if you have a reclusive old neighbor, curiosity can get you killed by the cat. 
+
+&#x200B;
+
+Eventually the old man recovered and I returned to college. I thought the nightmare was over until one day, after I graduated and had my own place, my mom called me to say the old man was about to be transferred to a nursing home and asked if I would be willing to take his cat in...
+
+&#x200B;
+
+My nightmare has just begun 
