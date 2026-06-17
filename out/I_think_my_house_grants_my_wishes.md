@@ -1,0 +1,113 @@
+Getting your dream job is everything you could ask for. That’s until you start house hunting in the capital of the country. 
+
+Sure the job pays well but landlords are asking me for more than half of my salary for a 2 bedroom apartment that’s a 15 minute walk from my office.
+
+I don’t really need two rooms but I like the extra space. I’ve got so many figurines at this point that I think I’m less of a collector and more of a hoarder. 
+
+No way they would all fit in the living room unless that’s all I put in the living room. I need a trophy room of sorts and I’m willing to pay extra for it but more than half of my salary is a big no.
+
+For weeks, I had spent hours after work walking up and down the streets near my office hunting for a roof over my collectibles and me. And during my third week, I did manage to snag a 2 bedroom apartment barely 5 minutes away from my office.
+
+The house itself is nothing to write home about (pun definitely intended, I’m vain) but it came in at a quarter of my salary and that’s a steal.
+
+I know it’s a steal because nobody in the finance team believed me when I told them the rent.
+
+There were downsides to the house that I noticed right from the beginning.
+
+It smelled old.
+
+Not dirty. Not moldy. Just old. The kind of smell you find in abandoned houses that have been sitting empty for years.
+
+Which made no sense, because the apartment hadn't been vacant at all. According to the real estate agent, a fairly popular streamer had lived there until a few months ago.
+
+My biggest gripe with the house is that it’s right next to a busy street so it’s almost always noisy or being lit up with lights from passing cars. 
+
+I can deal with the noise since I listen to audiobooks to sleep anyway but I sleep in complete darkness so lights are a big problem. I know what you’re thinking, just get some blinds.
+
+That’s exactly what I did but somehow, these lights defy the laws of physics and beeline straight for my eyes! 
+
+I’m learning how to sleep with eye masks now and it’s not remotely comfortable but I had to put on my big boy pants at some point.
+
+Another big downside to this house is how the house never gets any sunlight. 
+
+While I’m not a big plant whisperer (lord knows I manage to kill every plant I bring home), I like keeping plants in my house. They make the space lively and I feel close to nature. 
+
+The pale blue-white light of the office just sucks the life out of me. If I didn’t love what I do, I would never step foot in the office. 
+
+Plants are the exact opposite. There’s color, there’s texture, everything. 
+
+I take extra care to buy cat-friendly plants. 
+
+Though I don’t have a cat, I dream of finding a stray I would bond with so well that they follow me home. I think I’ve scrolled the cat distribution system subreddit too much. But hey, if people can dream of finding their soulmates in a bar or club, I’m allowed to dream my dream.
+
+There were issues with the plumbing and electrical systems (the usual lot) when I moved in but most of those issues were fixed by the agent once I moved in.
+
+Overall, I love it. Or I did, until last week.
+
+I had been living in the house for a few weeks, having the time of my life. Parties every weekend. New plants every few days because they kept dying in mere days (my personal record was killing a snake plant in 8 hours the day after I moved in). Smooth sailing.
+
+About two weeks ago, I invited a colleague over and we smoked pot and played Counter Strike 1.6 (yeah I’m old) for hours.
+
+Then the munchies hit at around 3 AM.
+
+Unfortunately, most of the food joints had closed by then and I was really craving some pizza. Nothing fancy, just some classic margherita with extra cheese.
+
+We tried calling up some joints we knew operated after hours on the down low but none of them answered.
+
+Then the doorbell rang.
+
+I rushed to the door thinking it could be an emergency with the neighbors but no, it was just the pizza delivery guy.
+
+He apologized profusely saying he should’ve been here an hour ago if it weren’t for a flat tire.
+
+I didn’t remember ordering the pizza so I asked if he’s got the right address. He showed me the bill and it did have my name and number on it.
+
+Turns out the order was placed at 1 AM.
+
+I could swear I didn’t order it but I’m not someone who would turn down a free pizza, so I took it. And I’m glad I did because that pizza was out of this world.
+
+After our second dinner, my colleague crashed on the couch and I headed for my bed.
+
+That night, I didn’t need audiobooks or eye masks. I hit the bed and woke up in the afternoon.
+
+My colleague was gone by the time I woke up. Since it was a Sunday, I had nothing to do except for a few chores that I was done with in an hour. The rest of the day was pretty uneventful and I hit the sack early that night.
+
+Work was hell the next day. Not a bad hell, just the kind of hell I like. A new feature we had launched in beta started bugging out and as the project lead, it was my duty to patch it. It took me a while to figure out the source of the bugs but I was able to plug it during the work hours.
+
+Once I was home, I cracked a beer can open and headed for the “trophy room” (that’s what I call my collectibles room now, there’s even a sign I bought from Amazon). I noticed one of my favorite figurines of Zoro from One Piece is missing.
+
+I turned the house upside down to look for it but couldn’t find it at all. Could my colleague have taken it? Unlikely, he probably doesn’t even know the existence of One Piece. 
+
+I figured I’d ask him about it in the office. Meanwhile I could give the house another check. 
+
+No luck.
+
+I finished my beer and tried to sleep but couldn’t manage to get it out of my head. So I did what any rational person would do.
+
+I ordered some new cases with digital locks.
+
+I’m not losing any more collectibles.
+
+The next morning, I asked my colleague about it and he had no idea what I was talking about. I pulled up my phone and loaded a picture of my collectibles case I clicked the day I moved in. 
+
+I wanted to show him what it looked like but that Zoro figurine was not on the shelf.
+
+I remember clicking the picture after I finished stacking it all up so it should be in the picture but it wasn’t.
+
+I tried several other images from the same day. None of them had that Zoro figurine.
+
+I spent much of my lunch break looking at all the images I had of my figurines and that Zoro figurine wasn’t in any image.
+
+Very on-brand of Zoro to get lost, though.
+
+Maybe I’m just misremembering owning it. But I remember the ebay auction and my bids (I had to outbid many people for this one).
+
+The ebay auction! That’s how I know it’s not all in my head. If I can find it in my history, I can prove it.
+
+So I checked, and after scrolling through hundreds of auctions in my history, no luck. It’s as if the thing never existed.
+
+The pizza. The figurine. The photos. The auction history.
+
+None of it made any sense.
+
+For the first time since moving in, I felt genuinely unsettled.
