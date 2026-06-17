@@ -1,0 +1,534 @@
+I am not using the real name of the mountain, the observatory, or the
+Nation whose land it is on. Partly for privacy, and partly because the
+last thing I want is for this to become one of those stories where an
+Indigenous place turns into somebody else’s fear. 
+
+I’m not from here. I’m a guest here. The observatory exists because we
+have been permitted to do science on a mountain that already has a name,
+a history, and a significance that long predates the telescopes. The
+state maintains the road. The university operates the facilities. The
+Nation allows us to conduct research here by agreement. This
+relationship is explained to us before each run in very institutional
+language, but the practical meaning is simple: stay on approved paths,
+do not disturb natural or cultural materials, do not pick up artifacts. 
+
+The rule wasn’t complicated. Stay on the path. Don’t pick anything up.
+
+I’m writing this from the monitor room because I did both wrong, and now
+there are voices on the other side of the door asking to be let in.
+
+I don’t know how much time I have, and the Ethernet keeps dropping, so
+I’m writing this like a log: what this place is, what I did, and what
+has happened since. If this posts, please don’t try to identify the
+mountain. I mean that. Don’t make guesses in the comments. Don’t message
+me with names. Just tell anyone you know who works at an observatory,
+especially anyone scheduled for a summit run this week, not to go up.
+The road page is wrong. The weather page is wrong. If the cameras show
+children outside after dark, do not open the door.
+
+﹋﹋﹋﹋﹋
+
+I am an observational astronomer, which means that every few months, I
+leave my ordinary desk life and go live at a mountaintop facility to
+collect data from actual telescopes. I love it. I’m so introverted that
+“there will only be three other people on the summit for the next week”
+sounds lovely. No traffic, no errands, no forced social obligations, no
+phone reception, no constant buzzing from apps. If you need someone, you
+use the walkie-talkies. Otherwise, the mountain is quiet.
+
+I’m also two weeks away from defending my dissertation (woop woop!!),
+which means that technically I’m almost Dr. Marie but emotionally I’m a
+damp paper towel. My mom keeps calling me doctora even though I haven’t
+defended yet. I keep telling her not to jinx it. She obviously ignores
+me. She also hates when I travel for observing runs, because in her mind
+every mountain is one missed phone call away from a Dateline episode.
+Before I left, she asked if I packed gloves, medication, extra socks,
+snacks, a flashlight, and a second flashlight “because what if the first
+flashlight dies?” 
+
+The telescope I use sits inside a huge white dome several stories tall.
+I won’t give its exact specifications, but the primary mirror is on the
+scale of several meters across (little over 1/27th football fields in
+freedom units). Large enough that the first time you see it moving, you
+understand why people used to put gods in the sky. Before every
+observing run, I have a tiny ritual. I go up to the deck that wraps
+around the dome, high enough that the access roads below look like
+scratches in the rock, and I watch the sunset while the dome opens for
+the night. The dome slit parts slowly, and then the telescope begins to
+slew for calibrations, its whole body turns with a heavy grace. Snow
+crackles under your boots if there is fresh ice. The air burns your
+nose. The horizon goes gold, then violet, then black, and the first
+stars appear before the last warmth has left the ground. It makes me
+feel like I’m exactly where I’m supposed to be.
+
+The dorm where we sleep is a twenty-minute walk from the big dome, close
+enough that the commute is a gentle stroll when the weather is good and
+like summiting Mt. Everest when it’s not. The dome facility itself is
+built like a safe room. The entire interior is connected by red-lit
+hallways: red light helps protect night vision, limits light pollution,
+and keeps everyone from being fully blasted awake during night
+operations. You enter through an exterior door into a small lobby, then
+another door into a red hallway, then the elevator, then another red
+hallway on the monitor room floor, then finally the monitor room where
+we actually work. The monitor room has the control consoles, camera
+feeds, a few rolling chairs, and a tiny kitchenette. The kitchenette is
+closest to the monitor room door, which means it’s also closest to the
+red hallway that leads back to the elevator.
+
+We astronomers are not the best cooks, and the kitchenette reflects
+that. It has a microwave, a coffee machine, an electric kettle, and the
+usual observing-run supplies: instant ramen, hot cocoa packets, tea
+bags, plastic utensils, and too many paper towels. The minifridge is
+usually half-full of takeout boxes from previous observers who were
+probably too tired to throw them away or forgot to bring them back down
+to the dorms. There are also water bottles with faded initials on the
+caps, old condiments, and a few unlabeled containers that everyone
+collectively agrees not to open. 
+
+The whole place is truly a sequence of thresholds: lobby door, elevator
+door, hallway door, monitor room door. Weather outside, telescope
+inside, and us tucked into the warmest little box at the center.
+
+On my first day of this observing run, there was a group of children
+visiting the small museum near the summit. They must’ve been from one of
+the local schools. They were bundled into puffy jackets and beanies,
+moving in a bright little cluster behind their tour guide. I was coming
+down from the dome deck, carrying my laptop in my backpack and wearing
+too many layers (I’m from SoCal and definitely not accustomed to any
+level of cold), and the guide pointed at me and said, “Look, there goes
+one of our astronomers!” I was so startled that I forgot how to walk
+normally and sort of lurched past them like Sasquatch in boots with
+borrowed snow spikes. The kids giggled nervously. One of them waved with
+both hands. I waved back and then immediately tripped on nothing.
+
+﹋﹋﹋﹋﹋
+
+Tuesday, 18:10. I’m starting this as a record because I forgot my
+medication. Before you say it, yes. I should’ve listened to my mom.
+Anyways, I take an antidepressant, and I left it at home, states away,
+on my bedside table. I asked my boyfriend to ship it to me before I was
+set to go up the mountain. FedEx SameDay® guarantees door-to-door
+delivery within hours, depending on flight availability. But of course,
+FedEx decided it needed the package to take a grand tour around the
+country. 
+
+The road to and from the summit takes about three hours in good
+conditions, including a mandatory stop to acclimate to the altitude, and
+we don’t have good conditions. A wind and ice storm moved in yesterday,
+and tonight the summit forecast calls for gusts around 80 mph, with rain
+turning into snow and then freezing over everything in between. It’s the
+worst possible combination: wet first, then ice. The access road is now
+in that category of “not closed to all vehicles, but no one is being
+encouraged to try it,” which is summit-speak for “absolutely do not make
+this someone else’s problem unless you’re literally dying.” There are
+state vehicles on site, but even with chains and people who actually
+know how to drive in this weather, the ground between buildings is
+turning into a sheet of ice.
+
+The internet exists through Ethernet, but only intermittently. My phone
+has no service except near one window in the control room, and even
+there, it only works if held at an angle. My mom had already sent three
+texts asking if I was alive, which is her normal, so I wasn’t worried. I
+sent back “yes lol” and watched it fail to deliver.
+
+There are four of us here: me, Daniel, Priya, and Mark. Daniel is the
+telescope operator, he’s been here for years, and he’s calm in the way
+that makes you immediately trust him. Priya is another graduate student
+observing for a different program, and the only person I have ever met
+who brings actual vegetables to a summit run. Mark is facilities, which
+means he appears with tools whenever any of the red blinking dots on our
+control panel lights up. We move around the facility mostly by
+walkie-talkie. “Heading to dorms.” “At the control room.” “Checking
+generator shed.” No notifications or casual texts. I love it.
+
+The facility also has cameras everywhere, mostly for normal summit
+reasons: weather, safety, checking access roads, and making sure no one
+is outside when conditions are bad. There are feeds from the dome
+exterior, the service yard, the road gate, the museum walkway, and the
+main entrance. The camera interface is oddly… comforting. Tiny
+rectangles of the whole facility, all accounted for. Snow moving under
+lights. Doors closed. No one where they shouldn’t be.
+
+The first glitch happened before anything else, which I’m only realizing
+now. One of the feeds blinked from the dome exterior to the museum
+walkway for maybe half a second. Empty snow, empty railings, empty path.
+Then something small near the edge of the frame, half-buried where the
+snow had blown against the curb. Low to the ground. Still. I thought it
+was a rock, or a dropped glove, or one of those compression artifacts
+security cameras produce when the weather is bad. The feed corrected
+itself before I could tell. I didn’t mention it. There was nothing to
+mention.
+
+﹋﹋﹋﹋﹋
+
+Tuesday, 23:48. The seeing is better. The telescope is behaving, the
+guiding is clean, and if I were not under-medicated, I would be pretty
+thrilled. Daniel put soup in the microwave around 23:30, and the beep
+pulled me out of a missing interval. One second, I was watching the
+guider image, the screen that tells us if we’re pointing the telescope
+to the right spot. The next, I was standing near the back wall with my
+hand on the emergency stop panel. I don’t remember getting up. Daniel
+asked if I was okay. I said yes.
+
+Symptoms so far: brain zaps, slight dissociation, jagged edges around
+objects, and auditory false positives in the wind. The last is hard to
+explain. The summit wind sounds like it has structure? It hits the dome,
+drags itself through vents, and presses under doors in a way that sounds
+like speech. I keep almost hearing children outside, which absolutely
+makes no sense. The museum closed hours ago, and everyone went down the
+mountain before the storm came in.
+
+﹋﹋﹋﹋﹋
+
+Wednesday, 05:35. I need to write down what I did. Yesterday afternoon,
+before the ice got bad, I walked the approved path between the dorm and
+the big dome. I had my laptop in my backpack, plus my notebook, charger,
+water bottle, two granola bars, and the emergency amount of cough drops
+my mom insists I carry. The path was already slick in places, and I was
+walking like a newborn deer because I’m fundamentally not built for ice.
+
+Near the bend by the smaller dome, my boot caught. I did that thing
+where you almost fall, overcorrect, and thus make it worse. My backpack
+slid off one shoulder, hit the ground, and dumped half my life into the
+snow.
+
+I was obviously embarrassed, even though nobody was there to see it. 
+
+I started grabbing things before the snow could cover them. Notebook.
+Charger. Granola bar(s). Water bottle. My favorite pen that immediately
+tried to roll away from me like it had survival instincts. Near the edge
+of the path, half-exposed where the snow had not quite covered the
+ground, I saw something small and stone-colored beside my things. I
+thought it had fallen out of my bag.
+
+I picked it up before I understood what it was.
+
+It was shaped by hand. I don’t want to describe it too specifically
+because I don’t know what it was, and I don’t want to pretend I have the
+right to identify it. It was small enough to fit in the palm of my
+glove, broken at the base, with two shallow marks where eyes might have
+been. The only thing I can say is that, to me, it looked like it could
+have been a child’s toy.
+
+Then I remembered the rule.
+
+Do not disturb natural or cultural materials. Do not pick up artifacts.
+
+I put it back. Well, I think I put it back where it had been. The wind
+was lifting loose snow across the path, and the light was going blue,
+and my notebook pages were flapping open, and I was trying to keep my
+charger from sliding under the rail. I may have pressed it into the
+wrong patch of ground. I may have put it slightly too close to the path.
+I may have moved it more than I realized.
+
+When I stood up, I thought I heard a child giggle behind me.
+
+I turned around and saw only the dome, the path, and my own footprints
+already softening at the edges.
+
+﹋﹋﹋﹋﹋
+
+Wednesday, 13:20. Could not sleep. The dorm rooms are designed to block
+out all light and sound, which is normally wonderful after an
+observational run until sunrise. Today the stillness felt… trapping? At
+some point, I heard my mother in the hallway calling me Mariantonella.
+Nobody here knows that name. Marie is already a nickname for my name
+Maria; Mariantonella is my grandmother’s name, what my mom calls me when
+she’s angry or scared. Not “text me when you land” scared. Real scared.
+The kind where her voice gets low instead of loud.
+
+I opened the door, and the hall was empty. Red light, carpet, closed
+doors. From somewhere very far down the hallway, I heard several
+children whispering.
+
+﹋﹋﹋﹋﹋
+
+Wednesday, 21:40. I finally told Daniel I forgot my meds. I kept it
+clinical: missed doses, possible withdrawal, monitoring symptoms. He
+took it seriously, which I appreciated. He asked whether I was safe to
+work. I said yes. He told me to tell him if that changed. Then, after a
+pause, he said, “Try not to go outside tonight.” I asked if he meant
+because of the ice, and he said yes, but he answered too quickly.
+
+﹋﹋﹋﹋﹋
+
+Wednesday, 23:05. We decided to stay in the dome facility instead of
+heading back to the dorms. The dorm is only a few minutes’ drive away,
+but the storm made those few minutes a hazard. Rain had glazed the path
+first, then snow started collecting over it, so you couldn’t tell where
+the ice was until your wheel found it. The wind was hard enough that the
+exterior railings hummed. Daniel told me that during one bad wind storm,
+Mark opened one of the sealed maintenance doors that leads outside, and
+the wind caught it so fast it broke Mark’s shoulder. He was out of
+commission for weeks. Mark, turned red in the face, said not to bother
+with the state cars unless there was a medical emergency, because simply
+getting to the vehicle safely was its own problem, and driving down
+would be worse. So we’re staying.
+
+﹋﹋﹋﹋﹋
+
+Thursday, 00:36. Mark’s missing. And he’s not answering the radio.
+Daniel says Mark doesn’t let his radio die. Priya said maybe he fell
+asleep somewhere, but none of us believed that. The telescope is parked
+because the wind is too high, so the three of us were in the monitor
+room pretending to be busy when we all saw the exterior camera feed
+flicker.
+
+The main entrance camera again showed the museum walkway instead. Daniel
+said that shouldn’t happen; they’re separate feeds. The image was grainy
+with blowing snow, but there were children standing in a line outside
+the museum door. Maybe eight or nine of them. Winter jackets. Hats.
+Little bodies turned toward the camera. One waved with both hands.
+
+Then the feed corrected itself and showed only the empty entrance.
+
+A few minutes later, we heard knocking from somewhere beyond the monitor
+room. Not on the monitor room door itself. Farther out. Past the red
+hallway, past the elevator, past the lobby. The exterior entrance.
+
+Three taps. Not the way a person knocks when they’re freezing.
+
+Daniel called Mark’s name on the radio and got no answer. Then he left
+the monitor room and stepped into the red hallway. Priya and I followed
+him. We went down the red hallway, through the door by the elevator,
+took the elevator down to the lobby level, stepped into another red
+hallway, and stopped at the inner lobby door. Past that was the small
+lobby. Past that was the exterior door.
+
+Daniel crossed the lobby and leaned toward the reinforced window beside
+the exterior door, then stopped. I saw it for less than a second. My
+brain first tried to make it into Mark because Mark was the missing
+variable and therefore the expected solution. Whatever it was, it had
+Mark’s jacket. But it was too tall, bent under the top of the window
+frame, with a head or crown or branching structure that caught the red
+light in pieces. Antlers is the easy word, but not the accurate one. It
+looked like antlers translated through frost, radio antennae, bone, and
+bad reception.
+
+Its face was narrow and dark. Or maybe it didn’t have a face? I only
+know it was oriented toward us. In one hand, it held the little stone
+toy.
+
+Then it spoke in Mark’s voice and said, “Marie. You dropped this.”
+
+Priya made a small sound. Daniel stepped backward into me. I said,
+stupidly, “I thought I put it back.” The thing tilted its head. I didn’t
+see a mouth, but I knew it smiled. From somewhere behind it, outside in
+the storm, children started laughing.
+
+﹋﹋﹋﹋﹋
+
+Thursday, 01:12. Daniel keeps insisting we definitely did not see Mark,
+which is maybe true and for sure not comforting. We went back up to the
+monitor room after that, through the lobby door, the red hallway, the
+elevator, the second red hallway, and the monitor room door, locking
+each one behind us. Daniel made coffee and forgot to put a mug under the
+machine. We stood there watching coffee pour onto the counter until
+Priya said his name. When Daniel turned, I saw something behind him, or
+inside him: a pale forked shape above his head. It vanished when he
+moved. Reflection, probably.
+
+﹋﹋﹋﹋﹋
+
+Thursday, 02:31. I thought I called for help. I remember looking at the
+laminated emergency contact sheet posted on the inside of my dorm door,
+getting a woman on the line, and telling her I had missed medication and
+was having hallucinations. I remember her asking, calmly, “Is Daniel
+still Daniel?” I remember my voice breaking. Then the microwave beeped,
+and I woke standing in the monitor room kitchenette with my hand inside
+the empty microwave. The display said 00:00. Daniel was beside me,
+holding a mug.
+
+There’s no call in my phone history. No outgoing message. No record of
+the conversation. Priya says I haven’t left the monitor room.
+
+﹋﹋﹋﹋﹋
+
+Thursday, 06:20. Daniel stepped out into the red hallway outside the
+monitor room a few minutes earlier, saying he wanted to check whether
+the elevator was still working. Weird. I saw him through the narrow
+window in the monitor room door, standing in the red hallway facing the
+wall. The red hallway outside the monitor room leads back toward the
+elevator, so he wasn’t, you know, outside outside. He was still inside
+the dome facility. Still protected from the storm. Still close enough
+that we could hear him breathe if we stood near the door. I said his
+name from the doorway. Without turning around, he said, “She calls you
+Mariantonella when she wants you to come home.” Then he turned to me,
+blinked, and asked, “Sorry, did I say something?” He looked toward the
+elevator and said, “I think Mark came back.” He tapped something in his
+jacket. It sounded like stone against glass. After that, he came back
+into the monitor room and sat with us for a while. None of us said much.
+I think we were all pretending it had been a sleep-deprivation thing.
+
+﹋﹋﹋﹋﹋
+
+Thursday, 12:10. Priya barricaded the monitor room door with a rolling
+chair. This was after Daniel tried to leave again. He said he heard Mark
+calling from the exterior stairs, and before either of us could respond,
+he was already at the monitor room door with his hand on the handle.
+Priya tried to stop him. She grabbed Daniel by the sleeve, and he shoved
+her back through the opening hard enough that she hit the kitchenette
+counter. There wasn’t much space for her to fall. She knocked over the
+electric kettle and a stack of instant ramen cups, and one of the
+forgotten water bottles rolled across the floor toward me. It stopped
+against my boot. There were initials written on the cap in faded black
+Sharpie. I looked at the other bottles beside the minifridge. They had
+initials, too. Were they forgotten, or instead left behind? In the
+struggle, Daniel’s sleeve rode up. Under Daniel’s skin, along the inside
+of his forearm, were dark branching lines, like roots drawn under
+tracing paper. 
+
+We got the door shut between us and him, locked it from the inside, and
+shoved a rolling chair under the handle. Locking him in the red hallway
+outside the monitor room sounds insane, but by then Priya and I were
+both afraid of him, and he seemed almost relieved to be on the other
+side of the door. When I asked Daniel about his arm, he answered from
+the hallway in a voice too young to be his own and said, “I picked it up
+too.”
+
+So those were the options. Stay in the monitor room. Open the door for
+Daniel. Try to get back to the dorms. The dorm meant the red hallway,
+the elevator, the lobby, the exterior door, and twenty minutes of ice
+and wind. Daniel meant Daniel, or whatever was answering for him.
+Staying meant listening to him breathe on the other side of the door.
+
+I don’t want to name it. It’s not mine to name. 
+
+I keep thinking this is guilt making shapes out of weather and red
+light. I keep thinking this is my brain punishing me because I forgot my
+meds and picked up something I knew not to touch. I think I treated the
+rule like a rule and not like a warning. Stay on the path. Don’t pick
+anything up. I did both wrong. 
+
+I don’t know. Daniel is breathing on the other side of the door. And
+something is breathing with him.
+
+﹋﹋﹋﹋﹋
+
+Thursday, 14:45. Daniel knocked on the monitor room door and asked Priya
+to let him in. His voice was normal at first, just tired and irritated.
+When I asked where Mark was, he laughed once and said, “Mark is
+maintaining the road.” Priya whispered that the road was closed. Daniel
+said, “The road is full.” Then he said, in my mother’s voice,
+“Mariantonella, regresa.” Come back. Instinctively, I stood up. Priya
+pulled me back from the door. On the facility camera feed, the museum
+walkway appeared again. The same line of children stood outside in the
+snow, but this time Mark stood at the front of the line, facing the
+camera. Daniel stood behind him, even though Daniel was also speaking
+through the door.
+
+﹋﹋﹋﹋﹋
+
+Friday? 00:04. The timestamps are still automatic, but I don’t trust
+them. Daniel started singing in the red hallway for almost an hour, like
+he was humming to himself. Then the same singing started from the vent
+above the console. Same tune. Same pauses. Same tired shape of Daniel’s
+voice. Priya looked from the door to the ceiling and whispered, “That’s
+not Daniel.” The wind moved through the vent in a short, uneven burst.
+Under it, I heard a higher sound that could have been the ductwork
+changing pressure, or children laughing. The vent cover shifted after
+that. Something pale moved behind the slats, too briefly for me to
+identify it.
+
+﹋﹋﹋﹋﹋
+
+Friday? 02:22. Microwave beep. Priya was walking barefoot toward the
+kitchenette inside the monitor room, asleep with her eyes open. A few
+more steps and she would have been at the door to the red hallway, where
+Daniel had previously been standing for hours. On the camera feed,
+Daniel now stood at the far end of the exterior walkway, facing away
+from the camera. The same deck that wraps around the dome. The same one
+where I watch sunset before each observing run. His shoulders were
+raised, his head tilted back too far. Above him, touching the top of the
+frame, were the branching shapes. They weren’t attached to his head,
+exactly, but they moved with him anyway. When he turned, one side of his
+face was still Daniel. The other side had dark lines running from his
+temple down his neck, and his eyes were red, or maybe they were just
+reflecting the red hallway.
+
+I pulled Priya away from the kitchenette, shook her awake, and shoved
+the rolling chair back under the monitor room door handle. We thought
+about running, but there was nowhere useful to run. Outside the monitor
+room was the red hallway. Past that, the elevator. Past that, the lobby.
+Past that, the exterior door. Past that, the storm. 
+
+﹋﹋﹋﹋﹋
+
+Time not loading? The Ethernet came back long enough to show the weather
+page: CLEAR. But the windows are white with storm. The road page says
+OPEN. The summit camera loaded one frame before freezing. It showed the
+exterior door under a sky full of stars. Mark stood closest to the
+camera. Daniel stood behind him. Priya stood behind Daniel. Behind Priya
+were the children from the museum tour, lined up neatly in their winter
+coats, all of them looking directly into the lens. Behind them was
+something taller than the dome, its head branching into the dark in
+pieces that looked alternately like antlers, frost, antennae, and hands.
+
+My phone showed a missed call from my mom, which should not have been
+possible because there’s still no service. 
+
+Then another one.
+
+Then another one.
+
+Missed call after missed call appearing on the screen, all from her, all
+timestamped tomorrow.
+
+I tried to call back. The phone didn’t ring. It only played the sound of
+the microwave.
+
+﹋﹋﹋﹋﹋
+
+No timestamp. Someone is using the microwave again. Every beep moves me
+somewhere else. Control room. Dorm. Hallway. Kitchenette. Exterior door.
+Dome deck. Museum path. Control room. Dorm. Hallway. Kitchenette.
+Exterior door. Dome deck. Museum path. Snow crackling under my boots.
+Children laughing. Telescope slewing. Dome opening. Red hallway. My
+mother calling.
+
+﹋﹋﹋﹋﹋
+
+No timestamp. I found my medication in my backpack. I know I didn’t pack
+it. My boyfriend sent me a picture to confirm it was the right bottle
+before he shipped it to me. But the orange bottle is here. The name my
+mom calls me is on the label. Mariantonella. When I opened it, the pills
+inside were small stone animals, each broken at the base.
+
+﹋﹋﹋﹋﹋
+
+No timestamp. The voices outside the monitor room have stopped asking to
+be let in. That should be better. It is not better. Now they are reading
+the rules.
+
+Stay on the path.
+
+Don’t pick anything up.
+
+Stay on the path.
+
+Don’t pick anything up.
+
+Daniel is outside my door. Or Mark is. Or Priya is. Or my mother is. The
+voice keeps changing, but the thing breathing behind it does not.
+
+I don’t know how many days or nights I’ve been here. I don’t know how
+many are left.
+
+The microwave just beeped again.
+
+The rolling chair moved.
+
+Under the monitor room door, the red hallway light went dark, blocked by
+several pairs of small boots standing very close together.
+
+I think the children are opening the door.
+
+﹋﹋﹋﹋﹋
+
+No timestamp.
+
+The author is honored to be permitted to conduct scientific research on
+[MOUNTAIN NAME REDACTED], a mountain with particular significance to the
+[NATION NAME REDACTED].
+
+The author was told the rules. The author did not respect them.
