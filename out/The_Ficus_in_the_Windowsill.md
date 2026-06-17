@@ -1,0 +1,71 @@
+I found this board while researching what had been happening these last few months. I’m not exactly what you would call a writer, so bear with me here. Over the last four months, something has been leaving things in my room, and there’s something about them that’s just… wrong. 
+
+It all started fairly innocently back on march first of this year. I woke up that day in a cold sweat at exactly 2:37 AM. Now, one thing you should know about me is that I’m a very deep sleeper. I manage to sleep through  the constant police sirens roaring past my apartment every night, so not much will wake me up at night short of being grabbed. This time when I awoke there didn’t seem to be any reason. I frantically scanned the room for some disturbance I had yet to detect, but I found nothing. My closet door was just as tightly sealed as I had left it, as were my bedroom door and my window. My bedside table was just as messy as always, and the clothes scattered across my floor were undisturbed. The only thing that was odd was that sitting on the window sill, there was a small ficus plant. I’m not the type to keep houseplants, but my roommate is constantly insisting that I might enjoy it, so I figured she decided to make the decision for me tonight and went back to sleep.
+
+Sure enough, the ficus was still there in the morning, ruling out the possibility of it being a dream. I walked over to the window sill to take a closer look. It was just a regular looking plant, though it may have been a little small. The pot on the other hand looked like a piece of modern art, wavy and warped but still that standard brown color. Honestly I thought it was pretty neat, and was happy to keep the plant assuming I could keep it alive for more than a couple weeks. I got dressed and stepped into the tiny kitchen shared by me and my roommate Lori. Lori was making some eggs on the stove, probably trying to redeem herself for burning them a couple days back.
+
+“Nice plant Lori. What is that, a ficus?”
+
+“Huh?”
+
+“The pots pretty neat too, thanks for the late birthday gift”
+
+My birthday had been a couple weeks ago, and Lori had forgotten about it until the day of and was unable to get me a gift.
+
+“I have no clue what you’re on about” Lori cocked her head slightly and looked through my cracked bedroom door.
+
+“I’ve got no clue where that came from, but I’m happy to see you taking care of something for once”
+
+“Hm. Must be from someone else then”
+
+At the time I didn’t really believe Lori, figured she must have been messing with me. 4 days later I woke up again, at exactly 2:37. I did my scan of the room: doors are closed, window was just barely cracked as I left it, clothes undisturbed, ficus in the window. I glanced once more at the door, and I noticed a key in the lock. I had lost my bedroom key weeks ago. Rather than turn the room over looking, I had just gotten one of those ones that you turn to lock, no key needed. I figured I must’ve been dreaming.
+
+I woke up in the morning not expecting the key to stay, but sure enough it was still there. I got up to take a closer look, when I noticed the key wasn’t fully in the key hole. It looked as if someone had taken the key and jammed it as far as they could into the wrong lock. I pulled it out of the key hole with an embarrassing amount of effort, and turned it over in my hand. It almost looked like one of those keys you see in a cartoon, and it was the wrong shade of grey. I figured Lori must still be messing with me, so I decided to confront her. I opened my door and stepped out looking for her, but I didn’t see her.
+
+“Hey! Lori!”
+
+I looked down at the hand that had been holding the key just a second before, and found it empty. Suddenly my allergies started acting up, which must’ve woken Lori.
+
+“Everything okay out there?”
+
+She peaked her head out the door. 
+
+“Uh, yeah…”
+
+I looked around on the floor, figuring I had dropped the key.
+
+“You missing something?”
+
+“No, it’s nothing”
+
+I walked back to my room and looked for it there, but it never turned up. I opted not to tell Lori about my apparent hallucination and went about my day. 
+
+Another four days and it happened again. I woke up at exactly 2:37, searched for a disturbance, and found everything normal except for what appeared to be a very small brassiere on the edge of my bed. In the morning I got up and inspected it.
+
+“Hey Lori! I think I got some of your washing by mistake!”
+
+I stepped outside to show Lori what I assumed was hers, only for the thing to disappear again and my allergies to start acting up.
+
+“Never mind, it’s mine!”
+
+I didn’t feel like seeming crazy, so I once again chose not to tell her.
+
+March sixteenth was when I stopped suspecting Lori. Once again it happened exactly four days later at 2:37. This time I didn’t have to look long, since I heard it first. A faint meow from underneath my bed. I looked under my bed and found a small orange cat. Its legs were short for its size and its paws were larger than they should have been, but otherwise it seemed normal. The cat seemed friendly, and I spent the rest of the night playing with it until it fell asleep on chest, its loud purrs putting me to sleep. In the morning I took a closer look at the cat, and realized I was unable to discern its sex. The thing reminded me of a Ken doll, so that’s what I named them, Ken. At this point I assumed anything that appeared would disappear if it left the room, and Ken was becoming my little buddy. I decided I would do everything in my power to keep them safe in that room. Any time I opened the door I made sure they couldn’t get out, I never left the window open more than a crack, and most importantly I never let Lori know about Ken. She would want to see them, show them to guests, and play with them. It was too risky.
+
+Another four days went by and I woke up again, same as every other night I noticed nothing wrong initially, but I was unable to find whatever may have appeared. In the morning I still found nothing. Later in the day I found a little spider in my room, and being as much of a softy as ever I grabbed a cup and scooped him up. As I carried him out of the room I watched as he crumbled into dust and mingled with the air, and I started sneezing. This was the first I saw something disappear before my eyes, and being able to now link my allergies to it made me confident in the reality of it. Some of you may ask why I didn’t write this off as my brain playing tricks on me, but the only alternative would be admitting that my family history of schizophrenia had finally caught up to me. You would’ve wanted to believe it was real too.
+
+Another four days and it happened again. You know the drill by now, woke up, looked around, and found something strange. This time there was a pile of slightly warped, oddly sized spoons sitting on my bed side table. I decided I would test if they really all disappeared by tossing them one by one out my window. 30 spoons, and every single one faded to dust in midair as soon as it left the room, and every single one triggered my allergies. This only strengthened my belief in the reality of my situation. 
+
+I’ll speed through these next couple as they didn’t really teach me anything new. On march twenty fourth a small warped lamp appeared next to the door, which Ken promptly knocked over causing it to leave the room. On march twenty eighth a large cardboard cutout of Nicolas cage appeared, which freaked me out when I saw it and I promptly threw it out the window. On April second a large fly appeared, and promptly flew out the window. On April sixth things picked back up. I woke up at 2:37 with a cat sleeping on my chest, but it wasn’t Ken. This cat was entirely proportionate, entirely silent, entirely blind, and a deep red color I didn’t believe was possible. I attempted to wake it, but soon realized it was entirely lifeless. Not exactly dead, it just seemed as if it had never been alive at all.
+
+In the morning I examined the cat closer. Unlike Ken, she had sex markers. Her eyes were milky white, with no irises or pupils. Its fur was a deep, solid red with zero imperfections or variations. Everything else about the cat was normal other than that ever present absence of life. I had the idea of dissecting it, seeing if I could glean some new understanding of my situation, but I couldn’t bring myself to do it. I tossed it out the window, unable to bear looking at it anymore. Ken cocked their head and gave me an inquisitive meow, wondering why their new friend was gone. I calmed them down with some chin scratches, and they curled up in my lap and fell fast asleep.
+
+April tenth was the worst yet. I woke up once again at 2:37, to a man standing at the foot of my bed. He was too tall, probably about seven feet. He had short brown hair and was wearing a Walmart employee’s uniform with a name tag that said “lmnop”. He had no eyes, his teeth were a deep brown, and as he stood there his shoulders exaggerated their rise and fall as if he was trying to breathe without understanding the mechanism required.
+
+“Hello?”
+
+No response. The man stood there staring somehow despite his lack of eyes, pretending to breathe for hours. In the morning I couldn’t stand it any longer, and I pulled him out the door, where he disappeared and made me sneeze just like the rest. Four days later the items went back to normal if you can really call it that. First a pineapple, which I attempted to eat only to find it was filled with tiny pinecones, then a swarm of flys that flew out the window, a mouse toy that I let Ken play with, and more things like that until June second.That night I didn’t wake up at 2:37, but instead at 3:00. I woke up to bird flying around my room, perfectly normal looking. Before I got a better look it flew out the window and turned to dust. 
+
+After this I went back to waking up at exactly 2:37, always to pretty average things that would eventually disappear, until June fourteenth when I awoke at 2:37 to a woman standing over my bed. She was naked, but all her body parts were distorted, some too small, some too big, and everything else was just perfectly average. She never spoke, but she immediately began tying what appeared to be a noose with an extension cord. Before she could kill her self I opened the door and pushed her out. She disappeared just like the rest.
+
+On June fifteenth I got a call from my little brother, telling me our mom’s funeral was tomorrow, June eighteenth, in our hometown. I would have to spend the night. As I’m writing this I’m simply staring at Ken and the ficus in the windowsill, terrified of what could appear while I’m gone.
