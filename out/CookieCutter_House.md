@@ -17,3 +17,5 @@ But the wall decor? Every single framed picture is just images of wood grain. Th
 I read the listing again and noticed that it states that the house will come fully furnished like it shows in the pictures. I couldn’t help myself. I messaged Michael and told him I’m not actually interested in buying it, but I’m way too curious not to see it in person. He said he’s intrigued too, so we’re going to check it out next week.
 
 I don’t know, what do you guys think? This place feels wrong. Has anyone ever seen a house like this? I’ll post an update after we go look at it.
+
+Pt 2 here: https://www.reddit.com/r/TalesFromTheCreeps/s/pLSHOL5T0F
