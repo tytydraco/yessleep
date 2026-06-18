@@ -1,0 +1,123 @@
+One of my favorite things to do is take my kids out to the McDonald’s play place. At night, when no one else is there, and it’s quiet.
+
+That’s where we went last night. As soon as we went in my younger son Liam bounded up into the play structure. My older son Jack, who was starting to age out of the play place, sat down at a booth below with his Switch. I followed Liam up, just because I liked to make sure there wasn’t anything gross. I’d seen stale fries and wet puddles of… something on the floor of these things before.
+
+There are three levels to the play place, enclosed in black netting. Adults can really only go up to the second level—the only way to get up to the third is to climb up the slide or crawl up fake rock-shaped ramps, which zigzag on top of each other and create really tight gaps that I definitely can’t fit through. I wasn’t going to do either, so after taking a quick look around (no puke or pee, yay!) I sat down on the plastic floor and pulled out my phone.
+
+A minute later, Liam suddenly darted over to me. He looked grabbed my arm, looking spooked.
+
+“There’s a kid coming down the slide,” he said.
+
+But we were all alone. Weren’t we? Jack was still sitting at the booth down below, playing his Switch. There were no other parents in the play place room. And if there was a kid in here alone, I would’ve seen or heard them before now.
+
+Unless they were hiding?
+
+I swallowed. That wasn’t a great mental picture. Some random kid hiding in the slide? Waiting to scare us?
+
+I stared at the opening to the yellow slide. No one came out.
+
+“You saw someone?” I asked.
+
+“I heard a noise,” he said. “And I got scared.”
+
+“I think that’s just the air conditioning.”
+
+Here’s the thing. If it were any other kid, I wouldn’t be concerned. Kids make up stories, kids have active imaginations, some kids have trouble with speech. My older son has some speech delays, and if it were *him* saying there was a kid on the slide, I wouldn’t have even given it a second thought.
+
+But Liam is *very* articulate and precise. I don’t even remember the last time he was wrong about something. I stared at the yellow plastic, shining under the lights. The shadowed opening, curling up into the bend of the slide.
+
+“Don’t worry, there’s no one there.”
+
+As much as I believed him—there just couldn’t be anyone in there. The slide is right under the overhead lights, and just the slightest bit translucent. When I watch my kids from outside of the play structure, I can see their shadows when they’re sliding down. When they climb up it, I can see the silhouettes of their little hands and knees pressed against the plastic.
+
+I stared at the slide.
+
+There were no shadows.
+
+I explained this to Liam. “If someone was in there, we’d see them.” I even called down to Jack. “Do you see anyone in the slide?”
+
+“No,” he called back.
+
+Liam finally seemed to calm down. The power in the words of a big brother. He got up, started climbing up the fake rock ramp to the third level. I couldn’t fit on the third level, so I stayed on the second, watching him climb. I peered through the black mesh netting at Jack below.
+
+He was looking up from his Switch.
+
+Staring up at the yellow slide.
+
+“Liam! I see you!” he called out with a grin.
+
+*Wait—*
+
+*That’s not Liam—*
+
+I whipped around to see Liam at the other end of the third level, pulling himself up the fake rock ramp.
+
+“You see someone in the slide?” I shouted down.
+
+“Yeah,” Jack laughed.
+
+Again, my son has speech delays. Sometimes he doesn’t say what he means exactly. Sometimes he’s quoting a video, sometimes he’s daydreaming, or sometimes he’s saying what he thinks *would* be funny if it were happening. “Is someone actually in there?” I called down.
+
+“Maybe,” he said. “I don’t know.”
+
+I stared at the yellow plastic slide, looping down from the third level like a snake. Stared at the shiny plastic under the lights. The shadowed opening—
+
+There was a hand.
+
+Two fingers, barely poking out from within the curve of the slide.
+
+“Liam! Liam, come here!”
+
+I couldn’t reach the third floor. Where Liam was. He stared down at me, crawling on his hands and knees. “I want to stay up here,” he said flatly.
+
+*“There’s someone in the slide!”*
+
+I glanced back at the opening. The hand was gone. *Maybe I did imagine it?* Liam started making his way towards the rocky ramp—
+
+*Thunk.*
+
+*Thunk, thunk, thunk.*
+
+I could see a shadow. Moving through the slide. The shadows of two hands pressed against the plastic of the slide. Moving upwards. Climbing the curve.
+
+*Following Liam—*
+
+*“Hurry!”* I shouted. *“Jack, get help—get someone!”*
+
+I got on my hands and knees and crawled towards the rocky ramp. The plastic pushed into my shoulders. There was no way I could make it through the gaps, but I would be right here for him. I held my breath—
+
+In seconds he was pushing himself through the tight space in front of me. I grabbed his hands and helped him through. We made our way down, towards the second floor—
+
+*Thump-thump-thump.*
+
+The kid was running right above us. Little pattering steps shaking the entire play place. But we were almost there, almost at the second floor—
+
+The footsteps reversed direction.
+
+And then I heard it.
+
+A quiet *squeeeaaaak—*
+
+Of someone coming down the slide.
+
+“Run!” I screamed as we made it to the middle of the second floor. I pushed him in front of me, down the stairs, towards the exit.
+
+But just before I followed him, I turned back.
+
+Just in time to see a shape emerge from the yellow slide.
+
+It was a little girl. Something… *mimicking…* a little girl. Something with gray skin, needle-like teeth, yellow eyes. Straggly hair tangled around its face. Its lipless mouth curved up into a smile.
+
+*“RUN!”* I screamed.
+
+I burst out into the dining area. Grabbed Liam and ran. Jack was already out in the main restaurant, I could see him, trying and failing to get someone’s attention. *“There’s someone in the play place, something horrible,”* I breathed to the employees before I ran out into the parking lot with my kids.
+
+The next day, when I’d recovered, I drove there in hopes to give a more detailed account of what happened. But I found that the play place was entirely dark. I could barely make out the curve of the yellow slide, the black netting, in the white light of the streetlamps beaming in. Multiple *OUT OF ORDER* signs had been placed around, even though the McDonald’s itself was open.
+
+A few weeks later, it closed for renovations. I saw a construction crew demolishing the play place. Only the play place.
+
+I’d always wondered why so few McDonald’s have them now. I’d assumed things like COVID, inflation, and general cutting of corners were responsible.
+
+But maybe that’s not it at all.
+
+What if ours wasn’t the only one that was… *occupied?*
