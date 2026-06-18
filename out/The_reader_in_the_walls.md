@@ -1,0 +1,658 @@
+I first noticed the house because it had no windows on the side facing the road.  
+That probably doesn’t sound like much. Plenty of old houses are built strangely. But this one sat alone at the end of Briar Hook Road, surrounded by pines so tall they seemed to lean inward, as if the whole forest had gathered around to hear something.  
+The house was three stories tall, narrow, and dark, with black shingles slick from rain and a chimney that never smoked. Every wall facing the road was blank.  
+No windows.  
+No porch light.  
+No welcome mat.  
+Just a front door painted a deep red that looked almost wet.  
+I was seventeen when we moved there.  
+My mother said it was a fresh start.  
+My father said it was affordable.  
+My little sister, Ellie, cried the entire ride there because she said she saw someone standing in the trees.  
+I told her it was probably a branch.  
+I lied.  
+I saw it too.
+
+The first night in the house, I woke up at 3:07 AM.  
+Not because of a noise.  
+Because the room had gone silent.  
+Real silence has weight. It presses against your ears until you become aware of every small movement inside yourself. Your breathing. Your heartbeat. Your tongue shifting behind your teeth.  
+I lay there in the dark, staring at the ceiling.  
+Then I heard something beneath my bed.  
+A soft inhale.  
+Slow.  
+Careful.  
+Like someone was trying not to be heard.  
+I froze.  
+The room was black except for the gray square of moonlight on the floor. My boxes sat stacked against the wall. My clothes were still in garbage bags. Nothing moved.  
+Then the breathing came again.  
+Under the bed.  
+I wanted to scream, but my body wouldn’t let me.  
+So I whispered, barely louder than air:  
+“Ellie?”  
+The breathing stopped.  
+A second passed.  
+Then a voice whispered back from under the bed:  
+“That isn’t her name anymore.”  
+I don’t remember running.  
+I only remember being in the hallway, slamming into the wall, screaming so hard my throat tore.  
+My father came out first, shirtless, angry, half-asleep.  
+“What? What is it?”  
+“There’s someone in my room.”  
+He checked under the bed. The closet. Behind the boxes.  
+Nothing.  
+My mother held Ellie in the hallway. Ellie stared at my doorway with huge wet eyes.  
+Dad sighed.  
+“Bad dream.”  
+“It wasn’t.”  
+He rubbed his face. “It’s an old house. It makes sounds.”  
+I looked at Ellie.  
+She shook her head once.  
+Not at Dad.  
+At me.  
+Like she was warning me not to argue.
+
+Her room was across from mine.  
+By the third night, she stopped sleeping with the door open.  
+By the fourth, she stopped sleeping at all.  
+I found her sitting upright in bed one morning, holding all her stuffed animals in a circle around her.  
+“Ellie?”  
+She didn’t look at me.  
+“They watch less if you watch back,” she said.  
+I tried to laugh.  
+Nothing came out.
+
+The house had rules. Not written ones. Not obvious ones. The kind you discover by accident.  
+Rule one: never stand in front of a mirror after midnight.  
+Mom learned that one.  
+She had always been gentle, even when stressed. A school librarian with soft hands and tired eyes. Her name was Claire, but Dad called her “C.” Ellie called her “Mama.” I mostly called her “Mom,” because I was seventeen and thought anything else sounded childish.  
+One night around 12:30, I heard her scream from the upstairs bathroom.  
+Dad and I ran in.  
+Mom was standing in front of the mirror, one hand covering her mouth.  
+“What happened?” Dad asked.  
+She pointed.  
+The mirror was fogged from her shower.  
+Written in the condensation were three words:  
+**STAND STILL, CLAIRE.**  
+Dad wiped it away fast.  
+“It’s condensation,” he said.  
+Mom whispered, “I didn’t write that.”  
+He looked at me.  
+Then Ellie.  
+Then back at the mirror.  
+“Nobody’s saying you did.”  
+But his voice had changed.
+
+Rule two: if you hear someone call your name from downstairs, don’t answer.  
+That one belonged to Dad.  
+He was the kind of man who could fix anything. Cars, sinks, broken chairs, cracked steps. He believed every problem had a tool for it. His name was Mark, and until that house, I had never seen him scared.  
+One Saturday, he went into the basement to check the fuse box.  
+The basement door was in the kitchen, painted the same red as the front door.  
+He’d been down there maybe ten minutes when we heard him call:  
+“Sam?”  
+That’s me.  
+Sam.  
+I stepped toward the basement door.  
+Mom grabbed my wrist.  
+Hard.  
+From below, Dad called again.  
+“Sam, come here.”  
+His voice sounded normal.  
+Too normal.  
+Mom’s face had gone white.  
+“Mark?” she called.  
+No answer.  
+Then from the basement:  
+“Sam, I need you.”  
+Mom tightened her grip until it hurt.  
+Then Dad came in from the backyard.  
+Holding a toolbox.  
+Covered in rain.  
+“What’s wrong?” he asked.  
+The voice from the basement whispered:  
+“Too late.”  
+The basement door slammed shut by itself.  
+Dad didn’t touch the basement for three days after that.
+
+Rule three: don’t count the people in the room.  
+Ellie discovered that one.  
+We were eating dinner. Nobody had much appetite anymore, but Mom insisted we sit together like a normal family.  
+Dad was at one end of the table. Mom at the other. Ellie and I sat across from each other.  
+Four plates.  
+Four glasses.  
+Four chairs.  
+Ellie slowly lowered her fork.  
+“What’s wrong?” Mom asked.  
+Ellie whispered, “There are five.”  
+Dad looked around sharply. “Five what?”  
+“People.”  
+The kitchen went still.  
+I stared at her.  
+She was looking at the empty chair beside Dad.  
+The chair had been pulled back slightly.  
+As if someone had just sat down.  
+Dad stood up.  
+The chair creaked.  
+Not backward.  
+Forward.  
+Like something invisible had leaned toward the table.  
+Then a wet clicking sound came from the empty seat.  
+Once.  
+Twice.  
+Three times.  
+Like a tongue tapping against teeth.  
+Ellie started crying.  
+Mom grabbed her.  
+Dad shouted, “Enough!”  
+The clicking stopped.  
+Then every light in the house went out.  
+In the dark, something at the table breathed with us.
+
+After that, Dad decided the house had mold.  
+That was his answer.  
+Mold in the walls. Carbon monoxide. Bad wiring. Stress. Anything that made sense.  
+He bought detectors. Called inspectors. Checked vents. Measured humidity. Tore up carpet in the upstairs hallway.  
+The inspector was named Mr. Voss.  
+He was a thin old man with silver hair, square glasses, and a black medical mask he never took off. He walked through the house slowly, tapping walls and writing things in a small notebook.  
+He didn’t speak much.  
+But when he reached the third floor, he stopped.  
+The third floor had two rooms and one locked door.  
+The locked door was at the end of the hall.  
+No key.  
+No knob.  
+Just a keyhole.  
+Mr. Voss stared at it for a long time.  
+Dad crossed his arms. “Problem?”  
+Mr. Voss said, “This door wasn’t built with the house.”  
+“How can you tell?”  
+The old man looked at him.  
+“Because it’s breathing.”  
+Nobody said anything.  
+Then, very softly, the door exhaled.  
+Mr. Voss closed his notebook.  
+“You should leave.”  
+Dad laughed once. “Excuse me?”  
+“You should take your family and leave before it finishes learning you.”  
+Mom whispered, “Learning us?”  
+Mr. Voss turned toward me.  
+His eyes were pale blue and watery.  
+“Has it used your voice yet?”  
+My stomach dropped.  
+Dad stepped in front of me. “Get out.”  
+Mr. Voss nodded like he expected that.  
+At the front door, he paused.  
+“Do not open the red door in the basement,” he said.  
+Dad frowned. “There’s no door in the basement.”  
+Mr. Voss looked genuinely sad.  
+“There will be.”
+
+He left.  
+Two days later, we found out there was no inspector named Voss registered in the county.  
+The phone number he gave us belonged to a disconnected line.  
+His company didn’t exist.  
+But his notebook was still in our house.  
+We found it on the kitchen table.  
+One page had been torn out and folded neatly.  
+Inside, written in shaky handwriting, were the words:  
+**IT READS FAMILIES FROM THE INSIDE OUT.**  
+Below that:  
+**WHEN IT KNOWS YOUR REAL NAME, IT CAN ANSWER FOR YOU.**
+
+That was when Mom wanted to leave.  
+Dad refused.  
+Not because he wasn’t afraid.  
+Because he was too afraid to admit he was wrong.  
+“We don’t have the money,” he said.  
+“We’ll go to a motel,” Mom said.  
+“For how long?”  
+“As long as it takes.”  
+“And then what? We lose the house? We start over again? We can’t just run because of—”  
+He stopped.  
+Because from upstairs, in Dad’s voice, something called:  
+“Claire?”  
+Mom covered her mouth.  
+Dad looked at the ceiling.  
+The voice called again.  
+“Claire, I’m sorry.”  
+Dad didn’t move.  
+Then it said:  
+“C?”  
+That broke him.  
+Nobody called her that but him.  
+Mom started crying.  
+Dad took one step toward the stairs.  
+I grabbed his arm.  
+“Don’t.”  
+He stared at me like he didn’t recognize me.  
+Then from upstairs, the voice changed.  
+My voice.  
+“Dad, please.”  
+Ellie screamed.  
+Dad backed away.  
+The house groaned around us.  
+Not like wood settling.  
+Like disappointment.
+
+We packed that night.  
+Fast.  
+No arguing.  
+No organizing.  
+Just clothes, wallets, medication, keys.  
+Rain hammered the roof so hard it sounded like hundreds of fingers tapping.  
+Mom carried Ellie.  
+Dad carried bags.  
+I was the last one upstairs.  
+I don’t know why I looked toward the third-floor landing.  
+Maybe because I felt it looking first.  
+The locked door at the end of the third-floor hall was open.  
+Just a crack.  
+Darkness beyond it.  
+And from inside came the softest whisper:  
+“Sam.”  
+I froze.  
+It was not a voice I recognized.  
+That somehow made it worse.  
+It sounded old.  
+Hungry.  
+Patient.  
+“Sam,” it whispered again. “You’re the only one who knows this is a story.”  
+My mouth went dry.  
+I backed down the stairs.  
+The door opened another inch.  
+Something behind it shifted.  
+Not stepped.  
+Shifted.  
+Like a large body unfolding in a room too small to hold it.  
+Then the whisper came again:  
+“Don’t leave before the ending.”  
+I ran.
+
+We almost made it.  
+Dad had the car packed. Mom buckled Ellie into the backseat. I got in beside her.  
+Dad turned the key.  
+The engine clicked.  
+Nothing.  
+He tried again.  
+Click.  
+Click.  
+Click.  
+From inside the house, every light turned on at once.  
+Not normal light.  
+Warm yellow light.  
+Like home.  
+Like welcome.  
+Dad whispered, “No.”  
+The front door opened.  
+Standing in the doorway was Mom.  
+Not my mother in the car beside me.  
+Another Mom.  
+Same sweater. Same wet hair. Same frightened eyes.  
+She looked at us and screamed:  
+“Don’t go with them!”  
+The real Mom made a sound like her soul had been punched out of her.  
+The Mom in the doorway sobbed.  
+“Mark! That isn’t me!”  
+Dad stared between them.  
+Ellie whispered, “Don’t count.”  
+I looked around.  
+Dad.  
+Mom.  
+Ellie.  
+Me.  
+And Mom in the doorway.  
+Five.  
+The empty seat feeling returned, except now it filled the whole car.  
+Something was with us.  
+Dad slowly turned toward my mother.  
+“Claire?”  
+She shook her head, crying.  
+The thing in the doorway screamed in Mom’s voice.  
+“MARK, PLEASE!”  
+Dad looked like he was splitting in half.  
+Then Ellie leaned forward and whispered something I will never forget.  
+“That one has teeth in her shadow.”  
+I looked.  
+The porch light threw fake Mom’s shadow across the doorway.  
+And inside the shadow, something smiled.  
+Dad threw the car into neutral and shouted, “Push!”  
+We pushed that dead car through mud and rain while the fake Mom wailed from the doorway.  
+Then her voice dropped.  
+Deepened.  
+Stretched.  
+“MARK.”  
+Dad didn’t look back.  
+“CLAIRE.”  
+Mom sobbed but kept pushing.  
+“SAM.”  
+I slipped in the mud.  
+“ELLIE.”  
+Ellie screamed.  
+Then the voice said a fifth name.  
+One none of us knew.  
+“THOMAS.”  
+Everything stopped.  
+Dad turned.  
+Mom turned.  
+Even Ellie stopped crying.  
+From the woods beside the house, a little boy stepped into the rain.  
+He looked about ten.  
+Barefoot.  
+Pale.  
+Wearing old pajamas.  
+His eyes were dark holes.  
+Fake Mom smiled.  
+“There you are,” she said.  
+The boy looked at us and whispered:  
+“Run.”  
+The car engine roared to life by itself.  
+We jumped in.  
+Dad slammed the gas.  
+The last thing I saw in the rear window was the little boy being pulled backward into the house by hands coming out of the red door.  
+Not the front door.  
+The red basement door.  
+It was standing open in the middle of the living room floor.  
+Like it had always been there.
+
+We drove until morning.  
+We didn’t stop until the sun came up.  
+For three weeks, we stayed in a motel off the highway.  
+Nobody talked much.  
+Dad became quiet. Mom slept with the lights on. Ellie refused to be alone in any room.  
+I thought we were safe.  
+Then one morning, Mom found a note slipped under the motel door.  
+It was written in my handwriting.  
+**YOU LEFT ONE OF YOURSELVES BEHIND.**  
+That was when Dad told us the truth.  
+When he was a kid, he had a brother.  
+Thomas.  
+Ten years old.  
+He disappeared before Dad was born.  
+Except that didn’t make sense.  
+Because Dad remembered him.  
+Not from stories.  
+From life.  
+He remembered sharing a bedroom with him. Fighting over cereal. Watching cartoons. Thomas teaching him how to whistle.  
+But every family photo showed Dad as an only child.  
+Every document said there had never been a Thomas.  
+Grandma and Grandpa denied it until the day they died.  
+Dad thought he had invented him.  
+An imaginary brother.  
+A childhood coping mechanism.  
+Until the house said his name.
+
+Mom asked the obvious question.  
+“Why would you buy that house?”  
+Dad stared at the motel carpet.  
+“I didn’t know.”  
+But his voice sounded weak.  
+Ellie spoke from the bed.  
+“Yes, you did.”  
+We all looked at her.  
+She was sitting with her knees pulled to her chest.  
+“You knew the road.”  
+Dad’s face went slack.  
+Ellie continued.  
+“You knew the red door.”  
+Mom whispered, “Ellie, what are you talking about?”  
+Ellie looked at Dad with hatred I had never seen in her before.  
+“You brought us there because it called you back.”  
+Dad started shaking his head.  
+“No.”  
+But he was crying.  
+“No, I didn’t.”  
+Then from the bathroom, in Dad’s voice, something whispered:  
+“Yes, you did.”  
+The bathroom door was closed.  
+The light was off.  
+Nobody moved.  
+Then the shower curtain rings dragged slowly across the rod.  
+One by one.  
+Metal on metal.  
+Dad stood up.  
+Mom grabbed his wrist.  
+“Mark.”  
+He didn’t seem to hear her.  
+The bathroom door opened by itself.  
+Inside was dark.  
+From the bathtub came Thomas’s voice.  
+“Little brother.”  
+Dad took one step forward.  
+Mom slapped him.  
+Hard.  
+The sound cracked through the room.  
+Dad blinked.  
+The bathroom door slammed shut.  
+Something inside laughed.  
+Not loudly.  
+Not like a person.  
+Like many children trying to remember what laughter was supposed to sound like.
+
+We moved again after that.  
+Then again.  
+And again.  
+The haunting followed.  
+Not constantly.  
+That was the worst part.  
+Weeks would pass with nothing.  
+Then I’d wake up to find my closet door open.  
+Or Mom would hear Dad whispering from a room he wasn’t in.  
+Or Ellie would draw pictures of our family with too many people standing behind us.  
+One drawing showed the house.  
+Not as we remembered it.  
+As a face.  
+The windows were eyes.  
+The red door was a mouth.  
+And inside the mouth stood a tall black shape holding a book.  
+I asked Ellie what it was.  
+She said, “That’s what reads us.”  
+“What does that mean?”  
+She looked at me like I was stupid.  
+“It reads us until it can write us.”
+
+The last time I saw my father alive, he was sitting alone in the kitchen of our third rental house.  
+It was 3:07 AM.  
+I came downstairs because I heard him talking.  
+He sat at the table with his back to me.  
+A glass of water in front of him.  
+His hands folded.  
+“Dad?”  
+He didn’t turn around.  
+“I remembered something,” he said.  
+His voice was calm.  
+Too calm.  
+“What?”  
+“Thomas didn’t disappear.”  
+I stayed on the stairs.  
+Dad continued.  
+“He opened the door.”  
+“What door?”  
+“The red one.”  
+The kitchen light flickered.  
+Dad’s reflection in the dark window smiled before he did.  
+“He let it read him first.”  
+I whispered, “Dad, come upstairs.”  
+He finally turned.  
+His eyes were full of tears.  
+“It doesn’t want to kill us, Sam.”  
+My stomach dropped.  
+“It wants to be us.”  
+Behind him, in the window reflection, I saw our family standing in the kitchen.  
+Mom.  
+Ellie.  
+Me.  
+Dad.  
+And behind us, dozens more.  
+All smiling.  
+Dad whispered:  
+“I’m so tired of being the only one who remembers.”  
+Then every cabinet in the kitchen opened at once.  
+The basement door appeared behind him.  
+We didn’t have a basement.  
+But there it was.  
+Red.  
+Wet-looking.  
+Breathing.  
+Dad stood.  
+I ran down the stairs screaming.  
+Mom came out of her room.  
+Ellie screamed from upstairs.  
+Dad opened the red door.  
+Inside was not darkness.  
+Inside was our first house.  
+The hallway.  
+The staircase.  
+The windowless wall.  
+And Thomas standing at the bottom.  
+Older now.  
+Wrong now.  
+Smiling.  
+“Mark,” Thomas said.  
+Dad looked back at me.  
+“I’m sorry.”  
+Then something wearing my father’s voice from inside the door said:  
+“You already said that.”  
+Hands pulled him through.  
+The door shut.  
+And vanished.
+
+Nobody believed us.  
+Dad was ruled missing.  
+Mom broke after that, quietly.  
+She still cooked. Still paid bills. Still drove Ellie to school. But she moved like part of her had stayed in that kitchen with him.  
+Ellie changed too.  
+She stopped speaking for almost a year.  
+When she finally talked again, her voice was different.  
+Not possessed.  
+Not monstrous.  
+Just older.  
+Like someone had whispered too much truth into her dreams.  
+She told me one night:  
+“It can’t get in all at once.”  
+“What can’t?”  
+“The reader.”  
+I hated that name.  
+“Why us?”  
+Ellie stared at the corner of the room.  
+“Because Dad was unfinished.”  
+I didn’t ask what that meant.  
+I should have.
+
+Years passed.  
+That’s the part people never tell you about horror.  
+It doesn’t always end with screaming.  
+Sometimes it becomes part of your routine.  
+You grow around it.  
+You learn not to look into dark windows.  
+You learn to sleep facing the door.  
+You learn that when someone calls your name from another room, you wait until they call twice.  
+You learn every mirror in your home must face a wall after sunset.  
+You learn to never, ever read anything you don’t remember writing.  
+I’m twenty-seven now.  
+Mom died last spring.  
+Heart failure, they said.  
+But I found her journal afterward.  
+The final pages weren’t written in her handwriting.  
+They were written in mine.  
+Page after page said the same thing:  
+**SAM WILL FINISH IT.**  
+Ellie vanished three months later.  
+No forced entry.  
+No struggle.  
+Just her bedroom door open and every stuffed animal from childhood arranged in a circle on the floor.  
+In the center was a note.  
+This one was in Dad’s handwriting.  
+**SHE LOOKED BACK.**
+
+I moved after that.  
+Different state.  
+Different name.  
+No mirrors.  
+No basement apartments.  
+No red doors.  
+For a while, nothing happened.  
+Then last week, I received a package.  
+No return address.  
+Inside was Mr. Voss’s notebook.  
+The one from the house.  
+The pages were filled now.  
+Names.  
+Thousands of them.  
+Families.  
+Children.  
+Dates.  
+Some crossed out.  
+Some circled.  
+Near the back, I found ours.  
+**MARK — OPENED**  
+**CLAIRE — COPIED**  
+**ELLIE — RETURNED**  
+**SAM — READING**  
+My hands went numb.  
+Below my name was one more line.  
+Fresh ink.  
+Still wet.  
+**YOU ARE NOT REMEMBERING THIS. YOU ARE BEING WRITTEN.**  
+That night, I dreamed of the house again.  
+Only this time, I wasn’t inside it.  
+I was above it.  
+Looking down through the roof like God.  
+I saw every room.  
+Every hallway.  
+Every version of us.  
+Mom crying in the bathroom mirror.  
+Dad listening at the wall.  
+Ellie sitting in her circle of toys.  
+Me lying in bed while something breathed beneath it.  
+Then I saw the third-floor room behind the locked door.  
+Inside was a chair.  
+A desk.  
+A lamp.  
+And a book.  
+The book was open.  
+Someone sat at the desk writing.  
+Long fingers.  
+Blackened nails.  
+A face hidden by the angle of the lamp.  
+I stepped closer in the dream.  
+The figure stopped writing.  
+Slowly, it turned its head.  
+It had no face.  
+Just a smooth, pale surface where features should have been.  
+But somehow I knew it was looking at me.  
+Then it raised one finger to where its mouth should have been.  
+And the book on the desk flipped open to the first page.  
+I read the first line.  
+**I first noticed the house because it had no windows on the side facing the road.**  
+I woke up screaming.
+
+So now I’m writing this down because I think that’s what it wants.  
+Or maybe that’s what it fears.  
+I don’t know anymore.  
+All I know is that since I started typing, the apartment has gotten very quiet.  
+Too quiet.  
+The refrigerator stopped humming twenty minutes ago.  
+The cars outside stopped passing.  
+The clock on my wall has been stuck at 3:07 AM for over an hour.  
+And something has been standing behind me for the last ten minutes.  
+I can see it in the black reflection of my laptop screen.  
+It is tall.  
+It is thin.  
+It is leaning closer every time I type a new sentence.  
+I haven’t turned around.  
+I won’t.  
+Because if I turn around, it will know I can see it.  
+And if it knows I can see it, it will ask me to count the people in the room.  
+So I’m going to keep writing.  
+I’m going to keep my eyes on the screen.  
+I’m going to pretend the reflection isn’t smiling.  
+I’m going to pretend I don’t hear my mother crying from the hallway.  
+I’m going to pretend Ellie isn’t whispering from under the bed.  
+I’m going to pretend Dad isn’t standing at the door, asking me to come home.  
+And I’m going to pretend I don’t see the words appearing beneath this sentence before I type them.  
+Because I didn’t write this next part.  
+I swear to God, I didn’t.  
+But it’s here now.  
+And you’re reading it.
+
+**Don’t look behind you yet.**  
+**It isn’t close enough.**

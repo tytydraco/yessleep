@@ -8,9 +8,9 @@ By the time I'd collapsed onto the dirt, the small earthquake had subsided. I cu
 
 At first, the panic was manageable. That changed when I realized I couldn’t feel damp earth against my right calf. 
 
-I reached down. From the thigh on, all I felt was plastic. I slammed my eyes shut and feverishly tried to remember. 
+I reached down. From the thigh on, all I felt was plastic. I slammed my eyes shut and feverishly tried to remember.
 
-Who was I? 
+Who was I?
 
 Where am I?
 
@@ -30,7 +30,7 @@ Silence. 
 
 Ms. McDaniel placed a gentle hand on my shoulder, but I bucked my alleged foster mother off and yelled: 
 
-**“*****That*****’s** ***it*****?”** 
+**“*****That*****’s** ***it***\*\*?”\*\* 
 
 The man in the coffee-stained lab coat narrowed his wrinkled eyes. He scoffed. 
 
@@ -40,9 +40,9 @@ The man in the coffee-stained lab coat narrowed his wrinkled eyes. He scoffed. 
 
 It was a long, painful drive *“home”*. 
 
-When we got back, I planted myself in the living room and patiently waited for this fever dream to abate. I commanded myself to wake up. 
+When we got back, I planted myself in the living room and patiently waited for this fever dream to abate. I commanded myself to wake up.
 
-Ms. McDaniel sat down next to me. 
+Ms. McDaniel sat down next to me.
 
 “Memory is a fickle machine, Ally; sometimes it just breaks down, and that’s all there is to it.” 
 
@@ -70,7 +70,7 @@ I did hate the nickname, though. 
 
 Ms. McDaniel was remarkably spry for her age. She knelt beside me, rolling a beige sock over my stump with one hand and snapping the prosthetic into place with the other.
 
-I peered up at the stairs. 
+I peered up at the stairs.
 
 The boy was gone, but he didn’t *feel* gone. 
 
@@ -88,27 +88,27 @@ Muted thumps and giggles reverberated through the floor. I rubbed the sleep from
 
 The fragrant crackle of cooking bacon enveloped me as I stepped out of my bedroom. I paced down the hallway, following the smell, marveling at the strangeness of the house's design. The second floor of that farmhouse seemed more like a barracks than a foster home. I counted fifteen small bedrooms: seven doors on each side, and a single room at the very end. My room was the last room to the left, and naturally, the odd one out belonged to the strange boy. I caught him peeking at me from his doorway as I descended the rickety stairs. 
 
-Breakfast was good, but chaotic. 
+Breakfast was good, but chaotic.
 
 The fosters outnumbered Ms. McDaniel twelve to one. I looked to be the oldest. The youngest was still in diapers.  There was a definite recklessness to the arrangement, but as long as child protective services found Ms. McDaniel’s orphan armada well-fed, clothed, and happy, I suppose they hadn’t preoccupied themselves imagining what could go wrong. 
 
-The strange boy tiptoed into the kitchen, plopped himself in a corner, and began drawing weird little shapes on the floor in chalk. 
+The strange boy tiptoed into the kitchen, plopped himself in a corner, and began drawing weird little shapes on the floor in chalk.
 
 He never ate with the rest of us. Ms. McDaniel didn’t appear to mind, or she didn’t notice. I figured he was embarrassed to be seen mashing his food with those red, toothless gums. 
 
 Over the next few days, I learned about my life. 
 
-It’s assumed that both my parents were killed in the Northridge Earthquake of ‘94. 
+It’s assumed that both my parents were killed in the Northridge Earthquake of ‘94.
 
 I was found on the streets of L.A., dust-caked, dehydrated, missing my right leg from the knee down, but otherwise intact. The Red Cross worker didn’t hear me crawling up behind them. Apparently, I damn near gave the poor sap a coronary when I tugged on their pant leg in the dead of night. 
 
-I told them my name: *Ally.* 
+I told them my name: *Ally.*
 
 They asked about my family, where I’d grown up, and who they could call to claim me, but I didn’t answer their questions. They figured I was concussed and couldn’t remember, because if I knew, why wouldn’t I tell them? Weeks passed. The damage was tallied, and the city was rebuilt. I was never reported missing. No family ever came looking for me. They estimated me to be *“ten-ish*” years old, but that’s all it was: an estimation. My entire existence was a fucking estimation. 
 
 Ms. McDaniel began fostering me in the spring of ‘95, back when Mr. McDaniel was still alive. 
 
-“What’d he die of?” I asked. We were lounging on the porch, watching the others play tag in the nearby field. She stopped rocking in her chair. A pang of regret squeezed my heart. 
+“What’d he die of?” I asked. We were lounging on the porch, watching the others play tag in the nearby field. She stopped rocking in her chair. A pang of regret squeezed my heart.
 
 Why would I ask something like that?
 
@@ -178,7 +178,7 @@ I crept down the hall and entered with unnecessary caution, sliding my prostheti
 
 “You can come closer,” he said, patting my bed without looking away from his work, “takes a little patience and some elbow grease to attract The Wanting Well.” 
 
-I lurched forward. A harsh chill surged through my body. My room was twenty times colder than the hallway, and the air was suffocatingly damp. Felt like I was inhaling slush. 
+I lurched forward. A harsh chill surged through my body. My room was twenty times colder than the hallway, and the air was suffocatingly damp. Felt like I was inhaling slush.
 
 The boy dropped his chalk and stared gleefully at his tableau - a crosshatch of elliptical lines, intersecting with each other at random, crooked angles. Just looked like a haphazard pile of ivory-colored worms to me, but he seemed quite proud. 
 
@@ -192,7 +192,7 @@ He licked his lips, dragging his wet tongue around the perimeter with a delibera
 
 “I meeeeaaaan we don’t get to talk much. Anything you want to ask me?” 
 
-I felt my rage building again. 
+I felt my rage building again.
 
 What the fuck was he expecting me to ask?
 
@@ -224,7 +224,7 @@ His assault didn’t waver. Not for an instant. He just kept bringing the needle
 
 “Why…why do you know how to do this?” 
 
-“Because *ten-ish* years ago, I arrived here in-between, so I can see the in-betweens - like The Wanting Well. Found out how to use it. I had to in order to live.”
+“Because *six-ish* years ago, I arrived here in-between, so I can see the in-betweens - like The Wanting Well. Found out how to use it. I had to in order to live.”
 
 The insect-turned-pincushion wasn't struggling anymore. He took a deep breath and placed his fingertips on the rounded ends.
 
@@ -244,7 +244,7 @@ Somewhere in-between.
 
 \- - - - -
 
-*There’s a* ***whoosh****, like water rushing through a pipe, louder, and louder, a deafening swell, and then,*
+*There’s a* ***whoosh***\*, like water rushing through a pipe, louder, and louder, a deafening swell, and then,\*
 
 *unseen fingers rip my eyes open.* 
 
@@ -254,15 +254,15 @@ Somewhere in-between.
 
 *I should be afraid. There’s plenty to be afraid of. The stone is squishing against itself, quivering like an intestine. The* ***whoosh*** *is reverberating from inside the well. A hand is beginning to descend from the black pit, stretching to an inhuman length in order to reach me.* 
 
-*But I’m not afraid.* 
+*But I’m not afraid.*
 
 *I feel blissful. Or numb. It’s hard to tell the difference.* 
 
 *I smile*, *because I know the answers are in there. My answers.* 
 
-*Who I am.* 
+*Who I am.*
 
-*Where I came from.* 
+*Where I came from.*
 
 *What happened to my leg.* 
 
@@ -272,11 +272,11 @@ Somewhere in-between.
 
 *I hear something. My smile falters.* 
 
-*It’s Ms. McDaniel’s voice.* 
+*It’s Ms. McDaniel’s voice.*
 
 *She’s not saying anything; her voice is just floating through the atmosphere, humming like the wind.* 
 
-*My numbness melts; unparalleled horror takes its place.* 
+*My numbness melts; unparalleled horror takes its place.*
 
 *The well convulses. The hand becomes violent, swatting the air, grasping for my neck.* 
 
@@ -292,7 +292,7 @@ I sprang up, clutching my chest, gasping like I haven’t inhaled for hours. 
 
 It was dawn. 
 
-I surveyed my room. 
+I surveyed my room.
 
 The impaled bug was missing, but a fine layer of white dust coated the floor below my windowsill. The pattern had been smeared into obscurity. It was still proof, though. 
 
@@ -344,11 +344,11 @@ That second trip to the hospital reshaped my life for the better. 
 
 The doctor who examined my nose wasn’t some surly, holier-than-thou chauvinist. He was a young man overflowing with nervous energy. Talked like a machine gun. Zipped around the exam table like a coked-out housefly. He was certainly odd, but he got the job done and then some. My nose wasn’t broken, thankfully. We were about to leave when the doctor started digging into what exactly caused me to trip in the first place. I hesitated, but his slapstick quirkiness was disarming. I trusted him. 
 
-So, I told him everything. 
+So, I told him everything.
 
 The memory loss. The Wanting Well. Alfie. He listened intently. So much so that he didn’t say a word throughout the whole, protracted explanation. After I was done, he admitted me to the inpatient floor to run additional tests. 
 
-Turns out, I’d been suffering from atypical seizures. 
+Turns out, I’d been suffering from atypical seizures.
 
 It didn’t completely explain the memory loss and complex hallucinations aren’t usually the sole manifestation of a seizure disorder, but the evidence was undeniable. The young doctor showed me the electrogram findings. My brain waves looked like a radio frequency gone haywire. I was sent home with anti-seizure meds. Whenever Ms. McDaniel asked, I told her things were improving. My memories hadn’t resurfaced, but I felt much better, and I wasn’t seeing Alfie anymore. 
 
@@ -356,17 +356,17 @@ That was only a partial truth. 
 
 First off, I didn’t feel great. I was pretty depressed. Day by day, the emptiness I experienced seemed to fester. Made life taste like ash, but I think I hid my misery pretty well. That said, I never stopped seeing the door at the end of the hall. It was blurry, but it was there. Sometimes I thought I heard whispering behind it. Incensed muttering that I couldn’t make heads or tails of. I tried to ignore it. 
 
-More importantly, though, Alfie did seem to be gone. 
+More importantly, though, Alfie did seem to be gone.
 
 There were a few occasions where I could’ve sworn I glimpsed his glassy, yellow eyes in the darkness of my bedroom, but it would end up being headlights from a passing car reflecting through my window. 
 
-Time marched on. 
+Time marched on.
 
 I rebuilt myself the best I could, but it was an act. A show I put on for Ms. McDaniel. She was such a kind, generous, beautiful person. She deserved to die believing I had recovered. It was the least I could do. 
 
 She passed six years after I lost my memories. Cancer. Metastatic - in her bones, her lungs, and her brain. She seemed happy to know she wouldn’t burden her fosters for too long. It took her quickly and without fanfare. Per her request, I scattered her ashes in the woods around the farmhouse. She became fixated on the state of Mr. McDaniel’s soul at the very end, worried that, even in death, he was still wandering the forest, lost and alone. She said she’d show him the way home. If anyone could, it’d be her. 
 
-My grief was crippling. 
+My grief was crippling.
 
 Ms. McDaniel was my rock. My anchor to the world. Losing her felt like losing my memories a second time. Without her, I was no one. I had relationships with the other fosters, yes, but it wasn’t the same. Not by a long shot. 
 
@@ -374,9 +374,9 @@ So, with no prospects and nothing better to do, I gave the whole *“apathetic 
 
 Far as I could tell, nothing changed. 
 
-That was pretty amusing. For about thirty seconds. 
+That was pretty amusing. For about thirty seconds.
 
-Then, it was back to the status quo, but it was becoming harder to disregard the emptiness. 
+Then, it was back to the status quo, but it was becoming harder to disregard the emptiness.
 
 My timeworn tricks weren’t fixing the problem. What’s more, I began to believe my memories weren’t lost, because I could *feel* them inside my head. Sequestered, but not truly gone, and for a moment, there was this minuscule glimmer of hope. 
 
@@ -414,7 +414,7 @@ Richter stood and gestured to a nearby door. 
 
 “If you feel ready, if you *want* our help, go on ahead - I’ll meet you in there.” 
 
-I used the edge of his desk as a fulcrum, pushed myself upright, and paced over to the door, beaming with hope. My hand hovered over the knob. Apprehension crackled down my spine. A laundry list of red flags began accumulating in my brain. 
+I used the edge of his desk as a fulcrum, pushed myself upright, and paced over to the door, beaming with hope. My hand hovered over the knob. Apprehension crackled down my spine. A laundry list of red flags began accumulating in my brain.
 
 Richter looked *exceptionally* similar to the young doctor who diagnosed my seizures, someone I trusted. 
 
@@ -422,7 +422,7 @@ The air in this room was cold and damp, and I could barely feel the itch in my s
 
 He chuckled with taut lips, like he didn’t want me to see inside his mouth. 
 
-My body trembled. I closed my eyes, and I heard something. A horrible noise; a desperate, animalistic wail. It wasn’t growing louder. It wasn’t getting closer. It’d been there the whole time, but I couldn’t appreciate it until now. It'd been concealed. 
+My body trembled. I closed my eyes, and I heard something. A horrible noise; a desperate, animalistic wail. It wasn’t growing louder. It wasn’t getting closer. It’d been there the whole time, but I couldn’t appreciate it until now. It'd been concealed.
 
 I glanced over my shoulder. 
 
@@ -470,7 +470,7 @@ I placed my hand on the knob, twisted it, rammed my shoulder into the door, and 
 
 *Her belly is round. It protrudes far from her waist.* 
 
-*My mother was pregnant.* 
+*My mother was pregnant.*
 
 *She was about to give birth before she died.* 
 
@@ -506,7 +506,7 @@ I placed my hand on the knob, twisted it, rammed my shoulder into the door, and 
 
 *It’s deathly silent.* 
 
-*Because she’s gone, dead and buried, no longer with me. I’m nobody.* 
+*Because she’s gone, dead and buried, no longer with me. I’m nobody.*
 
 *Who I am is in the well.* 
 
@@ -516,9 +516,9 @@ I placed my hand on the knob, twisted it, rammed my shoulder into the door, and 
 
 *but I pause.* 
 
-*It’s all a lie, isn’t it?* 
+*It’s all a lie, isn’t it?*
 
-*Knowing the truth won’t make me whole.* 
+*Knowing the truth won’t make me whole.*
 
 *And even if she’s not with me, I’m still somebody.* 
 
@@ -548,7 +548,7 @@ I placed my hand on the knob, twisted it, rammed my shoulder into the door, and 
 
 *My body collapses into an abandoned office.* 
 
-*I see chalk dust and blood stains in one of the corners,* 
+*I see chalk dust and blood stains in one of the corners,*
 
 *but the dying deer is gone.* 
 
@@ -566,4 +566,4 @@ I will 
 
 live. 
 
-[\-Poppy. ](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
+[\-Poppy.](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/) 
