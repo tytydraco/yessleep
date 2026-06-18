@@ -336,9 +336,9 @@ Kait nodded, “They say we’re lined up to be the next teen pregnancy. Don’t
 
 “Well, we’d be living up to our parents' names,” I smiled.
 
-“We at least get a cute nickname,” Kait smirked back, “‘*Beauty*’ and the Beast.”
+“We at least get a cute nickname,” Kait smirked back, “‘*Beauty* *and the Beast*.”
 
-“Wow, that’s rude. They call you ‘ the beast’?” I said with a raised brow.
+“Wow, that’s rude. They call you 'the beast’?” I said with a raised brow.
 
 Kait released my hand and smacked me, which got a hearty chuckle. I admittedly felt a little sad that her palm was no longer slipped into mine, but she made it up to me by setting our spent cigarette butt in the empty can beside our ledge, then locking her arm into mine, fully snuggling close.
 

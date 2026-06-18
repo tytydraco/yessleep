@@ -1,0 +1,79 @@
+Today was my last day of eighth grade. We do this thing called a clap-out for the eighth graders to celebrate our last day. The sixth and seventh graders line up in the halls and clap and throw confetti and spray silly string at us as we leave.
+
+It was pretty cool. Middle school wasn't easy, but on my very last time leaving, I felt like I was part of the group.
+
+In the parking lot, people high-fived me and asked me to sign their year books. I had a really good day.
+
+The parking lot eventually emptied out. Other people had pool parties and BBQs to go to. When I finally got up to leave, I looked back one last time. Maybe high school would be better.
+
+I was halfway home when I realized I forgot my stupid retainer in my gym locker. I remembered the time I accidentally threw it out. My mom made me dig through the trash to get it. I said it was gross. She said it was expensive. I headed back to school.
+
+There was only one car in the parking lot by the time I got back. It started to rain. So much for those pool parties and BBQs.
+
+The doors were still unlocked, but the halls were completely deserted. Mounds of confetti, silly string, and papers littered the floor. The lights were half off, flickering a little.
+
+An hour ago the place felt like a party. Now it made me feel weird. I thought there’d be a few teachers around, at least the janitor cleaning up.
+
+I got that feeling where the back of your neck tingles. I really wanted to go. I’m not sure why.
+
+As I turned the corner, I heard a faint noise. I realized it was singing. My walk turned into a jog.
+
+With each turn the singing got louder and louder. I came to a stop right outside the locker room. It was coming from inside. The hair on my arms stood up.
+
+Then I felt kind of stupid. It’s just music. I remembered how kids made fun of the janitor for listening to old people music on a little portable radio. I calmed down a little. He was probably sweeping in there.
+
+I looked at the massive mess all around me and felt bad. I pushed open the door.
+
+The room was empty, but the tinny music got louder with every step.
+
+I peeked around the corner. The wheelie garbage can and push broom were abandoned right in front of my locker. Where was the janitor?
+
+I don’t know why, but I was hoping I could get in and out without seeing him.
+
+I crouched and grabbed the handle. My stomach dropped. The cold metal vibrated against my fingers. The music was coming from inside my locker.
+
+The skin on my neck prickled. I had to open it. In a messed up way, I had to know what was in there. Plus if I went home without my retainer, my mom would kill me.
+
+I lifted the handle.
+
+The radio was in there. So was the janitor.
+
+His legs were crushed and folded up behind him the wrong way. The soles of his sneakers were up by his ears. One of his arms was twisted back at the elbow. His neck was bent at a right angle. His eyes were open.
+
+I thought he was dead. Then he took a deep breath and smiled at me.
+
+“Hey kid,” he said.
+
+I panicked and grabbed his hand. I thought someone had shoved him in there. I had to get him out. I put all my weight back on my heels and pulled, but he was stuck. He laughed at me.
+
+“You’re going the wrong way.” His rough hands dug into mine. “There’s enough room for you.”
+
+He hauled me forward. I stumbled and my face slammed into his crumpled torso. He was damp and smelled sour. His chest jiggled as he laughed again.
+
+“That’s the spirit,” he said.
+
+He wrapped his arm around my head and tugged me halfway into the locker. My head hit the cold metal in the back and I heard a crack in my neck. I literally saw stars. I thought that was just in cartoons.
+
+I wanted to scream, but nothing came out. I thought about the one car in the parking lot. No one would hear me anyway.
+
+*I’m a freshman now,* I thought. *I’m getting out of here*.
+
+I drove my knees into the frame of the locker as hard as I could. I tasted blood in my mouth, but I didn’t care.
+
+The janitor laughed and laughed. Until I tore myself free and landed hard on the tile floor. He frowned.
+
+“Fine, go,” he said.
+
+Then he pulled the locker closed.
+
+Inside, he sang along with the music. “When times get rough, and friends just can't be found, like a bridge over troubled water, I will lay me down...”
+
+Outside, the rain had passed. The air was dense and muggy, but it felt fresh to me.
+
+The single car in the parking lot roared to life. My sixth grade English teacher waved as she passed and pulled away.
+
+Then it was just me.
+
+In the quiet, I swore I could still hear him singing.
+
+When I got home, I told my mom I stepped on my retainer. She yelled at me, but I didn’t care. I’d rather be grounded than stuck in middle school forever.
