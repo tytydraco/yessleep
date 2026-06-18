@@ -334,6 +334,6 @@ The blankets I painstakingly wrapped them in, laying on the ground, flailing sli
 
 My heart gives a start when my eyes move from those objects on the ground inward, to the outward, to where the doorway is, leading right into the freshly laid snow.
 
-Our footprints are long gone, and in their place there are three new pairs imprinted in the harsh white. But they’re only going in one direction. They’re only going out. 
+Our footprints are long gone, and in their place there are three new pairs imprinted in the harsh white. But they’re only going in one direction. They’re only going out.
 
 \-Dr. Laura Cotts
