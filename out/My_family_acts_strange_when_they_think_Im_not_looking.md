@@ -1,0 +1,127 @@
+Muffled voices bleed up through the floor.
+
+I can’t make out the words from here, but I don’t think they’re actually speaking. It’s just sound. I can imagine my family sitting in a circle, blank-faced, the sounds of laughter and nonsensical speech flowing from their mouths, their jaws wrenched open wide.
+
+My family isn’t real anymore. I don’t know when it happened. Maybe today. Maybe a year ago. But they aren’t in there anymore.
+
+The bathroom is dark except for a candle on the counter. My skin barely registers the lukewarm bathwater I'm soaking in. I still feel dirty, like my not-family is sticking to me.
+
+I rise from the tub, careful not to make a sound, towel off, and press my ear against the floor.
+
+The things that replaced my family try to keep up appearances. But whenever I’ve been out of the room for long enough, their voices begin to slur and jumble together. That’s what I hear now, incoherent noise. It still sends chills down my spine, listening to their idle voices chatter on like this. They overlap one another, laughter interjecting at random.
+
+As bad as it is hearing this, their behavior when I *am* around is a thousand times worse. They’re all smiles and pats on my back, making sure I’m okay, or that I’ve eaten enough. They don’t seem to want to let me out of their sight.
+
+A couple hours ago, when I came upstairs to take my bath, they stood outside the door with hushed voices for several minutes until they finally decided to go back downstairs.
+
+I decided I’m leaving. I don’t drive yet---I'm just fifteen, but I have a friend about two miles away whose parents are on vacation. I don’t have a long-term plan, but this’ll be fine for now.
+
+In my bedroom, I pack light. Two changes of clothes. Phone charger. The pocket knife my dad gave me when I turned thirteen. A water bottle. David will have everything else.
+
+My heart is in my throat. If I breathe too loudly my not-family will be at my door, forcing me to pick what we’re eating tonight.
+
+I shoulder my backpack and slide open the window. The screen pops out easy enough. I toss my bag to the grass below and lower myself out the window before dropping to the ground.
+
+The side gate would be too loud to use, so I creep across the lawn toward the back fence. I can use the neighbor’s gate on the other side.
+
+“Peter?” It’s my mom’s voice.
+
+I turn just enough to see she’s running toward me from the back door, arms as wide as her smile.
+
+“Just have dinner with me, please! One last time…!”
+
+I’m sprinting as fast as I can, backpack bouncing awkwardly as I go. I jump and pull at the top of the fence, but her grippy hands wrap around my waist and pull.
+
+“Mexican, beef tacos with chili powder and cumin and cilantro for topping—“
+
+I land a kick in her chest and she falls away with a gasp of pain. “Peter!” She’s crying. “How could you do that to your mother, Peter?”
+
+I almost feel bad. It’s her real voice, this thing is using. I pull myself up the rest of the way and take a look back. She’s flat on her back, dirt on her blouse. But she’s smiling. That thing isn’t my mother.
+
+Dad and Lily are smile at me from the back porch, too.
+
+I swing over the fence, hurry across the neighbor’s yard, and stride out into the street.
+
+After a few minutes, I slow to a walk. It doesn't seem like they followed. The whole way to David's I'm glancing over my shoulder, but they aren't back there.
+
+The steady, mid-afternoon traffic eases my fear, like there’s still something sane in this world. There’s a birthday party at the park.
+
+And then I’m ringing David’s doorbell.
+
+“Family trouble?”
+
+I try to act nonchalant, chuckle. “Parents are being annoying as shit.”
+
+He smiles, but it’s just a normal smile. Thank god. “You have no idea,” he says.
+
+We're on the couch, scrolling when he turns to me. "Dude, you seen this? It's everywhere."
+
+It's one of those stupid viral rituals. I've seen them in my feed a lot recently.
+
+The girl on screen is in a dark bathroom lit only by a candle. She stares at her face in the mirror.
+
+She takes out a sharpie and draws a weird symbol on the glass. I feel like I've seen it before...
+
+“I invoke thee, Dantalion. Let my arms and legs do your bidding. Let my breath and life be yours forever.”
+
+She screws up her face, her lips twitching. Then the phone drops to the floor, still pointing up at her. She looks scared, eyes darting in every direction.
+
+“Yeah, so after this she clicked post?” I ask.
+
+“Obviously it’s not real, but it has a million likes. You know the ad revenue on that?”
+
+“Don’t. Just don’t.”
+
+He laughs. “Bro, you’re such a lightweight. I did it like a week ago… It’s fake.”
+
+I smirk, brushing it off. “Yeah, I know.”
+
+The rest of the day is quiet. After boxed mac n cheese, hot dogs, and a stupid comedy, David heads to bed. I’m on the couch, the moon crawling in through the windows, casting eerie shadows outlined in silver.
+
+I keep seeing my mom chasing me across the yard, but it’s all messed up. There’s blood smeared across her face. I’m not sleeping tonight… So I scroll. My fyp is full of this ritual crap. I try to scroll past it all, but it’s video after video. Symbol after symbol.
+
+One comment stands out: *“Don’t do this shit. My family is hunting me down, now.”*
+
+I close the app and get up to go to the bathroom.
+
+I splash my face with water. I almost don’t recognize myself in the mirror.
+
+Then I see the symbol scrawled in sharpie before me.
+
+“I’d forgotten I’d done it…” David whispers from his bedroom door, down the hall.
+
+I startle and lock eyes with him.
+
+A slash of moonlight separates him from the shadows. “You killed your family, too, didn’t you?”
+
+“No! I didn’t—they were after me!”
+
+“I thought my parents were, too. That’s why you came here, right? It wasn’t until mine were dead that I remembered doing the ritual…” He nods toward the bathroom. “When did you do it?”
+
+I shove out into the hall and sprint out into the living room, not wanting him behind my back for a second. My knife is in my bag somewhere. I know it.
+
+I’m digging and digging.
+
+He’s slowly walking toward me. “Just admit it.”
+
+“Stay back!”
+
+I can see the evil in his eyes. “It felt good, didn’t it? Carving into their annoying, pestering flesh?”
+
+“I didn’t—” My heart is bobbing up into my throat.
+
+He chuckles, then takes a deep breath. “But you’re free now. It’s all over.”
+
+I lay hands on my knife, flick it open and hold it out toward him. Then I feel the layers of sticky, dried blood on its handle, I see the sheen of crimson across the blade in the moonlight.
+
+“Who did you enjoy killing the most?”
+
+I see my dad and sister, their throats slit, staring up at me from the back porch. Those jagged red lines are almost like smiles.
+
+I see mom round the house, stumbling toward me across the yard, bleeding from her neck, but still alive. *“Peter! Just have dinner with me, please! One last time…”* She’s crying when I kick her in the chest.
+
+I see the symbol still scrawled across my bathroom mirror before I bathe their sticky blood from my body.
+
+I didn’t enjoy any of it.
+
+I’m crying now. But it’s too late.

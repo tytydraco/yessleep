@@ -1,0 +1,139 @@
+Hey all, update. I’ll figure out how to link my [first post](https://www.reddit.com/r/nosleep/s/fS5Kkkoggf) later but for now here’s a bunch of info I get to tell you about me and my neighbors.
+
+I’m on a higher dose of Prozac since regaling my story, I never open the blinds to the window in my bedroom facing their house anymore, and Zoey still won’t stop pooping in my garden. I know it’s her because I see her out of the living room window staring at me. It’s so weird, she will maintain eye contact me. I’m not even sure she blinks. I usually try to look away but every time I try to she starts meowing loudly until I look at her again. It makes me feel gross.
+
+Job had his 9th birthday recently, I was invited. The whole neighborhood was. It wasn’t awkward with Harold and Bianca at this point. They were back to their cheery selves. Not removed from oddity as expected.  
+When I took the long journey of about 30-40 steps into their backyard (War flashbacks briefly) before being greeted by Bianca.
+
+“Oh Tracy! I’m so glad you could celebrate Job with us!” She said seemingly popping out of thin air grasping my hands over the gift box I was holding. It just felt like someone set a random pair of leather gloves over my hands.
+
+She led me to the long table with about 20 chairs and I sat at one as she took the box with her. The way she was carrying the box made it look like she was moving heavy dumbbells. She was hunched forward, grasping the box with both hands. The only visual description I could give of her carrying the gift box to the sliding glass door was that of a moving swing set on stilts.
+
+When she got to the sliding glass door in their backyard, she began slamming her face violently. For what was the equivalent of lightly smacking a purse against glass, it was louder than expected. What I thought was a horror movie trope playing out in front of my eyes, I would come to learn was just her trying to get Harold’s attention to open the door since her hands were full.
+
+I saw Harold rush from somewhere else inside their house to the sliding glass door, to open it for Bianca.
+
+“Sorry Honey, I was just grabbing Pappy.” He said as he let her trudge by him. I noticed he was carrying what I thought was a large white ball underneath one arm and holding a pillow in his other hand.
+
+He walked outside, I noticed Zoey slipping out (I swear) and him walking up to me. As he got closer I realized it was not a ball, it was an eyeball. The eyeball spun around from underneath his arm to look at me with a milky eye that had hints of once being blue.
+
+It blinked in his arm, crusty eyelids emerging out of god knows where.
+
+I didn’t realize he was right in front of me because I was so focused on the eye.
+
+“Oh I see you’ve met Pappy. Don’t call him that though, he’s only ok with family calling him that?” He said cheerfully as he walked past me to set the pillow and then placing “Pappy” on top of it. “Pappy” was positioned at an angle facing towards the open space in the backyard.
+
+“What should I call him then?” I asked.
+
+“Well I know history knows him as Xenith the Warmonger. You can just call him the Ancient One.”
+
+Why do I even bother at this point? I just gave up at that point, it honestly writes itself.
+
+“What is the Ancient One doing here?”
+
+“Oh well you know, every blood member of my family, which means me and Job, have to demonstrate a variety of skills to Pappy on our birthday each year to prove we are worth keeping alive or else Pappy will smite us.” He replied casually, as he walked up to me again with hands on his hips now.
+
+“That’s indeed something that I know now occurs.” I stated, I wished in that moment I never gave up alcohol. I would rather be pissing in my sink again than have a skinless man explain the eyeball lore to me.
+
+“What will happen if he isn’t impressed with what happens?” I asked jokingly. The mood changed when I looked up at Harold to see a horrified facial expression across his face, it was like a wave of negative energy rushed over me.
+
+“Never say that again.” He said in a tone of voice I had never heard from him before, it was sharp and firm but slightly…anxious.
+
+I recoiled and flung my hands up instinctively as though I was at gunpoint as I sat in one of the many chairs at the table.
+
+His demeanor almost as quickly snapped back as soon as he processed my reaction.
+
+“I’m sorry Tracy, I’m just a little more stressed out than usual. I just…I just want Job to have a good day and make Pappy proud.” I could feel a hint of sadness under the forced charisma.
+
+Soon other guests started arriving, all the neighbors. My favorite neighbors were the neighbors directly across from my house. David and Joe are amazing people, great partners, and loving fathers to Job’s classmate, Rosemarie.
+
+It was always a treat seeing them.
+
+“Hi Trace!” David said as he walked towards me with his arms open for a hug.
+
+I got up walked towards him, and we gave each other a hug before stepping back to converse.
+
+“You see the Ancient One?”
+
+“First birthday? I’ve seen this…maybe grandpa…I don’t know for three birthdays in a row now. I know I don’t want my kid to be judgy but it’s a giant eyeball thing.”
+
+“That’s what I have been saying” I whispered to him intensely.
+
+We sat by each other as we watched Job and Rosemarie who were now playing in the backyard with Sparky.
+
+“Where’s Joe?”
+
+“He’s with Bianca, I made him help her with the rest of the party stuff. She’s so sweet but she needs to work on her upper body strength.”
+
+“Well that’s really nice of you guys.”
+
+“It’s the least we could do for the parents of Rosemarie’s best friend.”
+
+We watched as Sparky squared up throwing haymakers at Job’s skull, knocking it off his head. Rosemarie would pick his skull back off the ground and put it back on his neck and the cycle would repeat.
+
+It was somehow so interesting and disturbing at the same time, Sparky was really winding them up too. I didn’t realize he was a southpaw. I’ll try not to ever fight the man-dog thing.
+
+About thirty more minutes passed before everyone was seated. Bianca served us dinner, Boiled eels stuffed with mayonnaise and radishes. I lied and said I was allergic to eel, I was then given a can of baked beans instead. Turns out lots of people were allergic to eel and the few that weren’t ended up throwing up minutes after eating.  
+Harold, Job, and even Bianca scarfed down that amalgamation. Job then walked to the open area of the backyard to make an announcement.
+
+“Hello everyone, I’m Job. Today I will do some cool stuff and watch this.” He said clearly but with some shyness.
+
+He started with somersaults and cartwheels before transitioning into a choreographed dance to the song “Numb” by Linkin Park. A slew of things followed including, taking off his own head and holding it as he monologued some random paragraph from Shakespeare, playing Hot Cross Buns on the recorder, and ending it will Sparky beating the shit out of him again only to be rebuilt like a Lego character.
+
+I saw Harold and Bianca’s heads snap towards the Ancient One in my peripheral vision. I turned to look at the Ancient One.
+
+The eyeball began to vibrate before splitting open like a Venus flytrap. Inside was a pile of wet, red, sloppy flesh being cradled by the split eyeball.
+
+Job walked up to the split eyeball and stuck his hands in, he seemed to be searching for something in the mass. He stopped and pulled out a $100 bill in one hand and a handful of Jolly Ranchers in the other.
+
+“PAPPY APPROVES! PAPPY APPROVES!” He cheered with delight as he held the attempt for gifts in victory above his head while running to Harold and Bianca.
+
+Harold and Bianca got up from their seats, meeting Job halfway, and hugged their child. For a moment despite the absurdity of it all, it was nice to see a family so loving. I couldn’t make out what sweet things they were whispering to Job, his happy giggles gave me everything I needed to know though. Even if a husk, a skinless man, and a skeleton child were what comprised this family. A lot of families cannot feel or express the love I witnessed between them that day, I would know…
+
+Just as soon as the absurdity left and came back.
+
+“Oh honey, don’t forget!” Bianca gestured toward the eyeball as they ended their group hug.
+
+“Bianca, what would I do without you?” He gave her a wet bloody kiss on her cheek before walking towards the split eyeball and picking it up off the pillow.
+
+He let the mound of flesh slide onto the ground as he walked back to his wife and child. He was humming pleasantly during the retrieval.
+
+What I witnessed next is something that makes therapists have a thick wallet.
+
+Harold bit into one of the eyeball slices and started chewing hastily.
+
+I saw Job open his mouth as he stood in front of his father.
+
+“Ahhh” he said as he opened his mouth wide.  
+Moments before I could see Harold spit the chewed up eyeball into Job’s mouth, I felt something yank my arm turning me away from the scene.
+
+I was yanked away by Joe, David’s partner who was sitting across from me. I’m grateful he forced me to turn away. He was gripping my arm so tightly that it left bruising later on.
+
+I know he didn’t mean to hurt me, I knew that because he was using his other hand to help avert and block his vision from the “feeding”.
+
+Joe is a naturally quiet man, he isn’t antisocial rather just a big believer in actions over words. That was exemplified that day, I could tell by the tenseness in his body language he was uncomfortable. I saw David in the corner of my eye who was also faced away from the event happening behind us.
+
+He was chugging a flask of presumably some form of alcohol. We sat there for 20 agonizing minutes. The only noise being Harold crunching into the eyeball like an apple, chewing noisily letting his lips smack before audibly spitting in Job’s mouth.
+
+After 20 minutes followed a moment of silence then I heard small footsteps get closer to me followed by a tug on my shirt.
+
+“Tracy! Tracy! Look!” Job said excitedly.
+
+I turned to see that Job now had icy blue eyes in his eye sockets now. I don’t know what was worse, that they were identical to Harold’s or that despite having no skin Job could blink.
+
+“Wow…that’s cool buddy…” I said forcing every ounce of enthusiasm I could muster along with my smile I forced so hard my jaw hurt for the next day.
+
+“It’s party time! Wooooo!” He said as he ran off somewhere else in the yard.
+
+The rest of the birthday party went on as normal. Opening cards and presents, cake (store bought thank god), and normal yard games. As I played horseshoe, I couldn’t help but notice Sparky and Zoey eating the flesh mound off the ground. Zoey was actually eating it whereas Sparky just shoving it onto his mask-like face leaving a huge stain and more pulverized flesh falling back onto the ground.  
+Job really liked skateboard I got him, he went on a brief rant about how he could go skateboarding and have Sparky pull him.
+
+He ran up to me and gave me a hug before running to Sparky showing him. Sparky looked up, gave him a thumbs up, and returned to mashing flesh into his face.
+
+A couple of hours later, the party was finally over. I never have tried to speedwalk so subtly in my life.
+
+I got in my house and locked the door. I sent the rest of the night trying to find ways to relax, a bath, cartoons, meditation, the whole works.
+
+It didn’t help that when I went to sleep that night, I saw the Ancient One appear in my dreams. He spoke to me in French with a deep distorted voice as he rolled himself in circles on the ground.
+
+I was told Prozac gives you vivid dreams but this even feels too specific to only attribute to drugs. I don’t know how to feel, I’ll update again. I just wish Zoey would stop clawing at my front door these days.
