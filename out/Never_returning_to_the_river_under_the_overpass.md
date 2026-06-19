@@ -68,6 +68,8 @@ I made a wish..
 
 I waited patiently..
 
+And...
+
 There she was..
 
 She was so cold..

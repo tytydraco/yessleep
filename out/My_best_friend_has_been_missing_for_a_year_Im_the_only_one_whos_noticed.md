@@ -1,0 +1,87 @@
+I need to write this down while I still can, because I’m starting to think the writing is the only part that holds.
+
+His name is Danny. *Was* Danny. I don’t know which one to use, because everyone I ask looks at me the way you look at someone describing a dream — polite, a little bored, waiting for it to be over.
+
+It started small. So small I told myself I was being paranoid.
+
+We had a group chat, six of us, going back years. Last March I scrolled up to find a photo Danny posted of us at the lake. The photo was gone. Not deleted — I’d have seen the little *this message was removed* placeholder. It was just never there. The chat flowed around the gap like water around a stone that got lifted out clean.
+
+I asked the group, “hey what happened to Danny’s lake pic.” Three of them thumbs-upped my message. Nobody answered. One guy, Petro, wrote back “who?”
+
+I thought he was being a dick. Petro’s been to Danny’s apartment maybe fifty times.
+
+Here’s the first rule I figured out, and I want you to track these with me, because the rules are the only thing keeping me sane:
+
+**Rule 1: If I don’t say his name out loud, no one brings him up. Ever.**
+
+I tested it for a week. I didn’t mention him once. And in that week, not a single person — not his coworkers, not his sister, not the barista who knew his order — said one word about Danny existing. The silence wasn’t grief. Grief has a shape. This was smooth. Like a field that had been mowed.
+
+So I started saying his name. A lot. To force it.
+
+That’s when I learned 
+
+**Rule 2: Saying his name out loud makes things worse, faster.**
+
+I went to his apartment. His name was on the lease — I’d cosigned it, my own signature is right there. Except now the line where his name should be is just slightly lighter than the rest of the page. Like someone ran a soft eraser over it and stopped halfway. You can still read it if you tilt the paper to the window. By the time I got home that night and checked the photo I took of the lease, the photo showed a blank line.
+
+I went to his mother’s house for dinner. She’s known me since I was nine. I sat at her table and she set five places. There are four of us who eat there regularly. She set the fifth plate, stepped back, and frowned at it for a long time, like it was a word she couldn’t spell. Then she picked it up and put it back in the cabinet without saying anything, and her hands were shaking, and I realized:
+
+She’s not forgetting him. Some part of her is *fighting* to forget him, and losing, and it hurts her, and she doesn’t even know why.
+
+I almost left it there. I want you to know that. I almost let it go.
+
+But I have his voicemail. The last one he left me. I’ve kept it a year, re-saving it every thirty days so the carrier doesn’t auto-delete it. I played it that night to hear his voice.
+
+The timestamp counted up. Forty-one seconds. The exact length it’s always been.
+
+Silence. Forty-one seconds of clean, even silence, and then the beep.
+
+**Rule 3: The proof doesn’t disappear. The proof empties out.**
+
+The lease still exists, it’s just blank where he was. The voicemail still plays, it’s just quiet now. The photos are still in my phone — I have eleven of them — except in every single one, the people standing next to Danny have *turned their heads.* They’re all looking at the empty space where he used to be. In the lake photo I finally found in my backups, Petro is mid-laugh, leaning into a shoulder that isn’t there anymore, his eyes pointed at nothing, delighted.
+
+I figured out why I’m immune. At least I think I did, and this is the part I need someone smarter than me to check.
+
+I’m the one who introduced Danny to every single person who’s forgetting him. Petro, his now-wife, his job, his sister’s boyfriend — all of them, they met him through me. I’m the root. I’m the original copy. Everyone else got him *secondhand*, through me, and whatever this is, it’s working backward up the chain, deleting the branches first. I’m the trunk. I’m last.
+
+So last week I did the thing I’d been too scared to do. I decided that if I could get just one person to *truly* remember him — not the smooth silence, but really remember, with the lake and the laugh and the forty-one seconds — then I’d have proof. Two of us. And two of us is a fight.
+
+I went to his mother. I brought the lease, the blank photos, everything. I sat her down and I said his name and I described him for two hours. The dog he had as a kid. The scar on his thumb. The way he said “anyway” before he hung up. I watched her face the whole time, watched her fight it, and at 11:40 at night something in her eyes finally *caught*, like a pilot light, and she put her hand over her mouth and she said:
+
+“Danny. Oh my god. *Danny*. How could I—”
+
+And I felt it.
+
+I felt it the second she said it. A warmth that started behind my sternum and spread out, and for one stupid relieved heartbeat I thought it was joy, I thought *we did it, she remembers, I’m not alone*.
+
+It wasn’t joy.
+
+The next morning I called her and a man answered, her brother, and he said she’d had some kind of episode in the night, she’s confused, she keeps asking about a son she never had, the doctors are running tests. I drove over. She didn’t know me. She looked at me with the exact smooth, mowed-field face that everyone gives me now when I say Danny’s name.
+
+She remembered him. And the remembering is what took her.
+
+That’s the part I got wrong the whole time. It was never a forgetting. 
+
+**The forgetting is the cure**.
+
+Everyone who forgot Danny is fine — happy, even, lighter, the way you feel after you finally throw out a box you’ve been moving from apartment to apartment for ten years. It’s the *remembering* that’s the disease, and I’m patient zero, and last night I gave it to a sixty-eight-year-old woman who only wanted to set the right number of plates.
+
+I can feel it spreading now. From her. To her brother, who held her hand and asked her who Danny was, and is now, this morning, texting me asking if I knew her son. There was no son. There’s a Danny-shaped warmth moving through the people she touched, and it came from me, and I gave it to her on purpose.
+
+Here’s what I haven’t told anyone.
+
+The warmth behind my sternum never went away. It’s still here. And it doesn’t feel like dying. I keep waiting for it to feel like dying. It feels like the opposite. It feels like the lake, the actual lake, the cold water and Danny’s laugh and being nineteen and certain that none of us would ever leave. It feels like there’s a door, and everyone I ever loved is already on the other side of it, ambient, woven into the afternoon light and the hum of the refrigerator and the reason the bus is always two minutes late — and I’m the only one still standing in the hallway, holding a lease, insisting on the names.
+
+I think being forgotten isn’t losing. I think it’s the only club that ever mattered, and I’m the last one outside it.
+
+I’m going to stop re-saving the voicemail.
+
+If you’re reading this and you don’t remember anyone named Danny — good. That means it worked, and you’re safe, and you should close this and go set the table for however many people are actually there.
+
+But if you got to the end of this and you feel a warmth start up behind your chest, a small one, like a pilot light —
+
+I’m sorry.
+
+You remembered him too.
+
+Anyway.

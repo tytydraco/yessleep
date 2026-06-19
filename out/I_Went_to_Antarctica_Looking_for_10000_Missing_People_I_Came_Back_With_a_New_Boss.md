@@ -1,0 +1,565 @@
+Part 1: [I Work for an Organization That Contains Gods. We Had to Make a Sacrifice This Time.](https://www.reddit.com/r/nosleep/comments/1u6uzz2/i_work_for_an_organization_that_contains_gods_we/)
+
+So I got a new boss.
+
+Well, "got" is a crazy way to put it. Forced into the arrangement is probably more accurate. I have a lot of feelings about the situation, and unfortunately, most of them are terrible; the rest are alcohol-related. So this feels like the perfect time to sit down and write everything out before I convince myself none of it actually happened. 
+
+The short version is that Antarctica went very, very wrong. The slightly longer version is that over ten thousand civilians disappeared, four hundred and five Containment personnel vanished trying to investigate, and for reasons that still escape me, management decided I was the right person to send after them. Apparently, surviving previous deadly encounters qualifies you for future deadly encounters. Human Resources should really stop using that metric.
+
+To explain how any of that led to my current employment situation, we need to go back a few hours, to the moment a casualty report landed on my desk.
+
+**Missing:** 
+
+**Containment Division Personnel: 405**
+
+**Civilians: Over 10,000**
+
+I stared at the report. Ten thousand civilians was tragic. Four hundred and five Containment personnel was a staffing problem. Before you judge me, understand that these numbers directly affect my workload.
+
+According to the file, scientists stationed throughout Antarctica had been disappearing for the past three months. In the first month, three entire research stations were abandoned. One moment, they were there. The next, they weren't. No distress calls. No evacuation requests. No bodies. Just empty facilities and missing personnel. In the second month, four more stations vanished. The third month, five. This month wasn't even halfway over yet, and two more stations had already gone silent.
+
+That was why Containment responded so quickly. Normally, Antarctica buys you time. The continent is cold, remote, miserable, and generally hostile to human life. Emergency responses aren't exactly convenient. But when entire research stations start evaporating off the face of the planet, people suddenly become very motivated. A Containment Division task force was dispatched almost immediately. Four hundred and five personnel. Every single one disappeared. 
+
+I was lucky I'd been in Egypt. Otherwise, that would've been my team. And somehow, I don't think I'd be reading this report right now. I would've been part of it.
+
+There are only a few things capable of making an entire Containment Division team disappear without leaving behind a single body: an SS-Class entity, another Containment Division team, or Antarctica itself. Honestly, Antarctica had the highest kill count out of all three. People romanticize the place because it's covered in snow. In reality it's an enormous frozen death trap that occasionally allows scientists to visit before trying to kill them.
+
+You fall into a crevasse, you're gone. A blizzard rolls in, you're gone. You take one bad step in the wrong direction, congratulations, you're now part of the landscape.
+
+Unfortunately, my money wasn't on Antarctica.
+
+Something was down there.
+
+Something powerful enough to erase entire facilities.
+
+Maybe a god.
+
+Maybe something worse.
+
+Maybe something even the C.S.P didn't know. As ridiculous as that sounds, several incidents over the last three months suggested C.S.P wasn't nearly as informed as it liked to pretend. Gods had started disappearing from containment. Not escaping. Disappearing. One day, they'd be present. The next, they'd be gone. Days or weeks later, they'd casually return as if nothing had happened. Whenever they were questioned, the answer was always the same.
+
+"We had offerings to make."
+
+That was it. No explanation. No details. 
+
+The lack of answers wasn’t unusual. 
+
+Most gods barely acknowledge that humanity exists. Talking to one is like trying to interview a hurricane. They generally don't care what you think and have no interest in explaining themselves. The only exception was a river god Jacob’s team had recovered from the Amazon last spring. The thing loved hearing itself talk. Most gods treated interviews like talking to ants, it treated them like podcast appearances.
+
+When asked where the others were going, it gave us exactly one answer.
+
+"The one with wings and a million seekers calls upon us."
+
+Then it refused to elaborate.
+
+Containment had dismissed the statement. I didn't. Because I notice patterns. Over three months, ten thousand civilians had vanished. Hundreds of personnel had disappeared. And Gods were leaving containment facilities for mysterious gatherings. Either the universe was experiencing the world's strangest coincidence or something beneath Antarctica was powerful enough to summon gods. Neither possibility improved my day.
+
+I had six hours before departure, so I headed for the Library.
+
+The Library wasn't actually a library. Calling it a library would be like calling a nuclear weapon a flashlight. Technically not wrong, but missing several important details. Over a century ago, C.S.P. made a deal with a god living somewhere in the Himalayas. The arrangement was simple. It would provide a fraction of its knowledge in exchange for access to information twice every hundred years.
+
+Most people considered it one of the worst deals humanity has ever made.
+
+Personally, I thought those people were idiots.
+
+Most of C.S.P.'s understanding of the celestial came from deals exactly like this. Besides, from what I understood, the exchange benefited us far more than the god. Imagine spending five minutes talking to an ant colony and giving it centuries of your accumulated knowledge in return. That's basically what happened. The god got a conversation. Humanity got a shortcut through several thousand years of trial and error.
+
+After a few hours of searching, I focused on the statement from the Amazon god.
+
+"The one with wings and a million seekers calls upon us."
+
+The Library returned no results.
+
+That got my attention. The 44 floors of information never returned zero results. Ever. Everything leaves a trail. Especially gods. They're far too arrogant to hide it. If they could, they'd write their names across the moon and expect humanity to thank them for the view.
+
+I tried searching for winged gods instead. Thousands of entries appeared for winged entities, but none matched. The more I thought about it, the less sense the description made. Gods don't have wings. Not real ones. Their forms exist for accessibility. They need followers. They need worshippers. Floating permanently above humanity would be the supernatural equivalent of opening a restaurant in the middle of the ocean.
+
+That's when I realized the thing being described probably wasn't a god.
+
+Unfortunately, that realization only led me to something worse.
+
+One of the historical texts contained a section titled Origins. According to the book, the first gods hadn't simply appeared. They had been created. One passage immediately caught my attention.
+
+"The Makers descended from Heaven and raised the first gods from among lesser beings."
+
+I'd never heard the term before.
+
+**Makers.**
+
+The chapter provided almost no explanation before abruptly ending. Another book mentioned three objects descending into Antarctica thousands of years before recorded civilization. They weren't meteors. They didn't leave craters. The illustration on the next page nearly made me drop the book.
+
+Three winged figures emerged from the ice.
+
+Their bodies were covered in eyes.
+
+Millions of eyes.
+
+My stomach dropped as the Amazon god's statement echoed through my head.
+
+Not seekers.
+
+Eyes.
+
+The translation had been wrong. Or perhaps the god had intentionally used a word that meant both.
+
+The beings in the history books had a name.
+
+**Angels.**
+
+When I searched the Library database for them, only a single result appeared.
+
+One page.
+
+The Library contained millions of books and somehow only possessed a single page about angels. That terrified me more than anything I'd read all day because it meant somebody had gone out of their way to erase them from history.
+
+According to the document, angels existed before the gods. They had been created directly by the Creator and originally maintained reality itself.
+
+But then they got bored.
+
+I stared at the sentence for several seconds.
+
+Bored.
+
+The document compared their behavior to humanity. We were supposed to protect the world, yet we'd spent most of our existence damaging it. According to the page, angels weren't much different. After existing for millions—or perhaps billions—of years, they simply stopped caring. They lost interest in reality. Lost interest in purpose. Lost interest in everything. Somewhere along the way, they started creating gods, not because they needed to, but because they were bored, and apparently, cosmic beings are just as capable of making terrible decisions as everyone else.
+
+This was insane. C.S.P. barely possessed the resources necessary to manage some gods. Several entities remained cooperative solely because they felt like it. An angel? One of the original three? Forget containing it. We probably couldn't even annoy it.
+
+If what I'd read was true, then Antarctica wasn't dealing with an SS-Class entity. We were dealing with something far older. Far more powerful. Something that gods themselves answered to.
+
+I glanced at the clock.
+
+Three hours until departure.
+
+There was no way in hell I was keeping this to myself.
+
+I folded the page and headed for the elevators.
+
+The Board of Directors occupied the one hundred and second floor. Most personnel never set foot there. The directors were usually too busy to meet without weeks of scheduling and enough paperwork to kill a small forest. I didn't have weeks. I barely had three hours.
+
+By the time the elevator doors opened, I was practically jogging. Most of the directors were off-site, which left me with exactly one option.
+
+Mr. Stonehill.
+
+Unfortunately.
+
+Stonehill sat above the Head of Containment and held a permanent seat on the Board. He was also a snob, though that hardly made him unique among upper management.
+
+I knocked once.
+
+"Come in."
+
+The door slid open. Stonehill looked exactly as he always did. Like a snake that had somehow learned how to wear a suit.
+
+I placed the page on his desk.
+
+"Sir, I think I've found something connected to Antarctica."
+
+I explained everything. The disappearances. The gods. The books. The angels.
+
+When I finished, he glanced at the page and sighed.
+
+"The facility already knows about angels."
+
+I felt irrationally offended.
+
+I'd spent hours discovering information he apparently already had sitting in a filing cabinet somewhere.
+
+"Then you know what's beneath Antarctica."
+
+"No."
+
+The answer came immediately.
+
+"Because if an angel were involved, none of this would be happening."
+
+I frowned.
+
+Stonehill leaned back in his chair.
+
+"Gods care about followers. Angels don't. They existed long before gods, humanity, and civilization. They do not need worshippers. No need for sacrifices. No need for attention."
+
+He shrugged.
+
+"Ten thousand missing humans would mean nothing to them."
+
+I looked down at the page.
+
+"The Amazon god said they were being called."
+
+"Gods say many things."
+
+I hated that answer.
+
+"Then what's happening?"
+
+"The entity is gathering followers."
+
+His expression hardened.
+
+"And every hour we waste debating it increases the body count."
+
+I stared at him for a moment before asking the question that had been bothering me since I entered the office.
+
+"How do we know it's gathering followers?" I asked. "What if it's just killing people because it wants to?"
+
+That actually got his attention.
+
+For several seconds he considered the question before shaking his head.
+
+"If something powerful enough to erase four hundred personnel killed purely for amusement, humanity would've disappeared long ago." 
+
+I hated that answer. Unfortunately, hating it wasn't going to buy me any extra time.
+
+Before I could argue, the office door opened.
+
+Stonehill's assistant stepped inside.
+
+"Sir, transport is ready."
+
+Stonehill nodded.
+
+Then looked at me.
+
+The conversation was over.
+
+"Your aircraft leaves in less than two hours, Ms. Nayeri."
+
+I grabbed the page from his desk.
+
+Stonehill had already gone back to his paperwork. As far as he was concerned, Antarctica contained another god. Another mission. Another problem. Nothing more. I knew the C.S.P. viewed personnel as grains of salt, so his indifference didn't surprise me at all.
+
+We reached Antarctica surprisingly quickly.
+
+The aircraft was mostly automated, which wasn't standard for C.S.P. operations. They usually insisted on keeping a pilot on board. This time they didn't. Personally, I figured it was because if all eight hundred of us vanished, they'd still be able to recover the plane. 
+
+The C.S.P loves cutting costs, which is funny considering none of us get paid. People hear "secret government organization" and imagine unlimited budgets. The reality is less glamorous. We live in C.S.P. facilities, eat C.S.P. food, wear C.S.P. uniforms, and usually die before retirement. For the few who somehow survive long enough to retire, there's a pension waiting for them. Most never get the chance to collect it. On the bright side, healthcare is free, so I try not to complain too much.
+
+The automated aircraft landed roughly two miles from the anomaly.
+
+Eight hundred security personnel accompanied me. My negotiation team consisted of twenty specialists selected from various departments. Normally, I'd also have an assistant. Unfortunately, my last assistant is technically still classified as alive, so I don't qualify for a new one.
+
+We approached the entrance of a massive ice cave carved deep into the Antarctic shelf. At first nothing seemed unusual. The tunnel descended in layers, each one deeper than the last. We passed the first level. Then the second. Third. Fourth.
+
+Nothing.
+
+By the time we reached the sixth level, several members of the team were visibly relaxing.
+
+I wasn't.
+
+Something had erased four hundred and five Containment personnel. It was here. We simply hadn't found it yet.
+
+Then we reached the seventh level.
+
+And everything changed.
+
+The cold didn't bother me much. Our suits were designed for Antarctic deployment and could withstand temperatures that would've killed an unprotected human in minutes.
+
+What I saw did.
+
+The walls were covered in bodies.
+
+Thousands of them.
+
+Frozen men and women embedded directly into the ice. Scientists. Containment personnel. Civilians. Some looked terrified. Others appeared completely calm, as if they'd simply stopped moving and frozen where they stood. The tunnel stretched ahead for miles, and every inch of it was lined with human beings.
+
+Nobody spoke.
+
+Nobody needed to.
+
+I stared at the frozen faces surrounding us, then into the darkness waiting ahead.
+
+This was bad.
+
+So unbelievably bad.
+
+Because I finally knew one thing for certain.
+
+This wasn't a god.
+
+Gods need followers. They need worshippers. They need people they can influence, manipulate, and communicate with. Freezing thousands of humans inside a glacier where nobody could ever reach them served no purpose.
+
+We continued downward. Level eight. Level nine. Level ten.
+
+The bodies never stopped.
+
+The deeper we went, the older they became. Scientists gave way to explorers. Explorers gave way to soldiers. Soldiers gave way to people wearing clothing from civilizations that should not have existed. Some of the corpses looked thousands of years old, yet somehow remained perfectly preserved. As if the ice itself refused to let them decay.
+
+By the time we reached the bottom, nobody was speaking anymore.
+
+At the center of the cavern stood something larger than a mountain.
+
+A winged figure covered in eyes.
+
+Millions of them.
+
+Chains wrapped around its body and disappeared into the ice. For one brief, glorious moment, I thought it might actually be imprisoned.
+
+Then I noticed the chains.
+
+They were divine.
+
+The same material found within gods.
+
+The realization hit immediately.
+
+The gods hadn't worshipped this thing.
+
+They'd chained it.
+
+A loud crack echoed through the cavern.
+
+One chain snapped.
+
+Then another.
+
+Then thousands of eyes opened.
+
+I couldn't breathe.
+
+I couldn't even move.
+
+The light pouring from the angel's countless eyes was so bright that I instinctively shut my own. For several seconds I remained frozen in place.
+
+Then I heard the commotion around me. Some people were laughing. Others were crying. A few had fallen to their knees and started praying. Several were screaming for everyone to open their eyes while others couldn't stop talking about how beautiful it was.
+
+Then came the running, the screaming, the gunfire, and the sounds of hundreds of trained personnel completely losing their minds.
+
+I didn't need to see what was happening.
+
+And I refused to die like this.
+
+Think, Nayeri.
+
+Think.
+
+Then an idea came to me.
+
+"I know where the gods are!"
+
+The cavern fell silent.
+
+Even the screams stopped.
+
+My heart nearly exploded.
+
+I swallowed hard and repeated myself louder.
+
+"I know where the gods are!"
+
+A sound echoed throughout the cavern.
+
+Laughter.
+
+Not human laughter.
+
+Something deeper. Older. The laughter of a creature that had watched continents form and civilizations turn to dust.
+
+*"A mere human bargains for her life?"*
+
+The angel sounded genuinely amused.
+
+*"You are quite entertaining."*
+
+I forced myself to keep talking. If it was speaking, it wasn't killing. At the moment, that was good enough for me.
+
+"Weren't they the ones who trapped you here?"
+
+The laughter grew louder.
+
+*"You believe they trapped me? You believe chains can imprison me?"*
+
+For the first time, I risked opening my eyes.
+
+I immediately regretted it.
+
+Millions of eyes stared back.
+
+Every single one focused on me.
+
+*"I remained because I wished to remain."*
+
+The angel shifted one of its wings and the entire cavern trembled. Chunks of ice broke from the ceiling and crashed into the darkness below.
+
+*"The gods occasionally gather and strengthen the chains. They imagine themselves powerful enough to contain me."*
+
+The laughter returned.
+
+*"I find the spectacle entertaining. It relieves my boredom."*
+
+I looked around. People were still disappearing. Others continued walking toward the angel despite every survival instinct screaming at them to run.
+
+This thing wasn't trapped.
+
+We were the ones imprisoned with it.
+
+Then the angel's attention settled on me once more. The cavern became silent.
+
+*"But human."*
+
+Millions of eyes narrowed.
+
+*"What will you offer to relieve my boredom?"*
+
+I had a feeling there wasn't a correct answer to that question. There were only disappointing ones.
+
+So I did the only thing I could think of.
+
+I told the truth.
+
+"I belong to an organization that houses gods. Its purpose is to keep them in check."
+
+For a moment there was silence.
+
+Then the angel laughed harder than before.
+
+The cavern shook violently. Entire sections of ice collapsed. Thousands of frozen corpses shattered against the floor like glass.
+
+*"Humans keeping gods in check?"*
+
+It laughed again.
+
+*"Now, that is genuinely intriguing"*
+
+Then the laughter stopped instantly.
+
+Millions of eyes focused on me.
+
+*"Perhaps,"* the angel said, *"my eternity has finally become interesting."*
+
+The chains rattled. Cracks spread across them like spiderwebs as the cavern shook around us. People screamed while ice collapsed from the ceiling.
+
+I looked around desperately.
+
+Eight hundred personnel. Twenty negotiators. Thousands of frozen corpses. Humanity's greatest containment organization.
+
+And none of it mattered.
+
+Then the angel made me an offer.
+
+*"Promise to relieve my boredom, and I may continue tolerating humanity."*
+
+May.
+
+Not will.
+
+May.
+
+The kind of wording lawyers and supernatural horrors absolutely love. Around me, people continued dying. Eight hundred soldiers. Twenty negotiators. Entire teams vanished while the angel waited for my answer.
+
+I'd love to tell you I accepted because I wanted to save humanity.
+
+That would sound heroic.
+
+But it would also be complete nonsense.
+
+The truth is I was terrified.
+
+Everyone else was already dead. The mission was over. The expedition had failed. The only thing I'd accomplished was becoming slightly more interesting than the thousands of corpses frozen into the walls around me.
+
+The angel didn't value me.
+
+It wasn't choosing me.
+
+I was just the newest thing in existence that hadn't become boring yet.
+
+Unfortunately, that was still a much better position than everyone else's.
+
+Maybe refusing would've saved the world. Maybe accepting doomed it. I didn't know.
+
+What I did know was that I wasn't ready to die in a hole beneath Antarctica.
+
+So I made the only decision that benefited the person I cared about most.
+
+Myself.
+
+"Okay," I said. "I agree. Just make it stop."
+
+The world turned white.
+
+When I woke up, I was inside the aircraft. The engines were running. The autopilot was already returning us home.
+
+The seats around me were empty.
+
+No soldiers. No negotiators. No pilots.
+
+The angel had never accepted my terms. It had offered its own.
+
+As soon as I returned this afternoon, I found myself standing before the Board of Directors trying to explain why I was the only survivor.
+
+"What happened there, Agent Nayeri?"
+
+Madam Leni's voice cut through the silence.
+
+All eight board members, including Stonehill, were staring at me.
+
+"It was an angel."
+
+The room immediately became tense. Several directors inhaled sharply. Others exchanged nervous glances.
+
+"They're all dead," I continued. "But in return, the angel accepted our terms."
+
+Several directors visibly relaxed.
+
+"The agreement isn't permanent," I added.
+
+The relief vanished instantly.
+
+"Not permanent, what do you mean agent?" Madam Leni asked.
+
+I swallowed.
+
+"I think only the angel can explain that."
+
+Then the conference room doors opened.
+
+Every head turned.
+
+A young man stepped inside.
+
+Dark hair.
+
+Perfect smile.
+
+Eyes that seemed far too bright.
+
+For a moment nobody moved.
+
+Nobody breathed.
+
+The young man looked around the room, his smile widening as he took in the expressions staring back at him.
+
+Then he tilted his head slightly.
+
+*"Someone promised me that you all would keep me entertained."*
+
+His gaze drifted across the conference table.
+
+For a moment, he looked almost disappointed.
+
+*"I suppose we'll find out if she was telling the truth."*
+
+Now, if you're wondering, yes, he came back with me.
+
+I know what I said earlier. The aircraft was empty when I woke up.
+
+It was.
+
+There were no pilots. No negotiators. No soldiers.
+
+I never said there were no angels.
+
+Looking back, it's probably a good thing C.S.P. decided to save money and remove the pilot. Explaining why I'd returned to the aircraft with no crew and a perfectly healthy man wearing normal clothes in subzero temperatures would've raised some uncomfortable questions.
+
+So that's how I ended up with a new boss.
+
+Funny how life works. One day, you're trying not to die beneath Antarctica. The next, you're apparently an assistant employed to entertain an immortal cosmic horror older than civilization.
+
+Although "assistant" probably isn't the right title.
+
+If he's the boss of Stonehill, then technically we are all "assistants".
+
+The way I see it, humanity didn't stop an extinction event beneath Antarctica.
+
+We negotiated a performance review.
+
+And eventually, every audience gets bored.
