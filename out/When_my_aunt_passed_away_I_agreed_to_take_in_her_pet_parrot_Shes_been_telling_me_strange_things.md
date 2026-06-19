@@ -74,13 +74,13 @@ I was awoken from a deep slumber by a high-pitch scream. I instantly recognized 
 
 My eyes shot open. I bolted upright, looking for any sign of a disturbance. 
 
-My vision was slow to adjust. When it did, I realized exactly why Liza was shouting. 
+My vision was slow to adjust. When it did, I realized exactly why Lulu was shouting. 
 
 Someone was sitting on the edge of my bed. 
 
 The silhouette of a hooded figure faced the wall, unmoving. The person didn’t react to Lulu’s shrieks. It was as if they wanted to be seen. 
 
-I lay still as a statue. In times of distress, my fight or flight instinct doesn’t kick in. Instead, I freeze. 
+I sat still as a statue. In times of distress, my fight or flight instinct doesn’t kick in. Instead, I freeze. 
 
 That’s why I couldn’t bring myself to move when the figure turned toward me. 
 
