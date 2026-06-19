@@ -124,4 +124,4 @@ I see the symbol still scrawled across my bathroom mirror before I bathe their s
 
 I didn’t enjoy any of it.
 
-I’m crying now. But it’s too late.
+I’m crying now. [But it’s too late](https://imgur.com/a/arPkxJX).
