@@ -1,0 +1,21 @@
+I am a 24 year old female taking care of my 82 year old grandmother, I got sent here by my mum as she didn’t want her mum to be alone. My grandfather has been dead for two weeks.
+
+I arrived on the 17th of December, my car struggled to crawl its way to the house. the house is totally isolated, made of thick logs it has 2 floors and an outhouse we’re the boiler and electrics are kept.
+
+The 17th was spent sorting out my luggage and cleaning, my grandmother has arthritis and is now unable to fully sort the house on her own. She kept silent whilst I was cleaning, I knew she felt worthless. 
+
+Later on I caught her crying drinking herself to sleep  talking to herself. I wanted so badly to comfort her but I knew she wouldn’t want me to, She wants to be as independent as her age will allow.
+
+It was the 18th when the power first flickered out, I was made aware of it by my grandmothers cursed that the tv went out and that her soap operas would be on soon, so I had to layer up and trudge out to the boiler building.
+
+Upon my entering I noticed a sickly sweet smell and thousands of fly corpses spread on the floor. The boiler was a towering unit in the centre of the room with the electric box behind it.  I opened the box and saw the switches were coated in a layer of slime. I luckily had gloves on so I flicked them back on.
+
+The rest of the night was uneventful other than restless wildlife keeping me up with their pestering vociferations. 
+
+Now it is the 19th and the crux of why I am making this. The power went off early today and we were submerged into freezing temperatures, I could hear my grandmothers bones shivering, I of course went back out to sort the issue. However this time the wood planked floor had a layer of liquid bubbling and gurgling. I originally thought it was a boiler issue but now I know it wasn’t.
+
+You see after dinner and the deep night descended on us our lights began to switch on and off every ten seconds. This time I knew it had to be something doing it so I brought a knife to ward away the pests. I entered the outhouse and saw a skeleton covered in a flaking layer of flesh and gunk. It never turned from the electric box luckily but I was so spooked that I turned and ran back into the house.
+
+My grandmother wasn’t there when I returned. I don’t know what happened she wouldn’t have been able to get up without my assistance and I didn’t see anyone while I was coming back. 
+
+The house is totally still and dark. And I don’t know what to do. And I think I heard the corpse call my name it has my grandparents voices and I think I’m soon to join it.

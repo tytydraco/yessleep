@@ -1,0 +1,156 @@
+(TW: geriatric coitus)  
+  
+I had no plan for my future. I was either going to work at my local movie theater until I was promoted to manager, *or* I'd marry some old crow whose husband had keeled over. I don't have the intelligence to navigate the stock market, and college is for suckers. I figured I could clean some old widows' pipes for a couple of years and then live off her fortune as a plan B after she kicks the bucket.
+
+A low chance to be certain, but never zero.
+
+Working at the theater's ticket booth, especially in a smaller town, you get to know all the patrons. We have several regulars. Many of whom I’ve tried to get their number. Surprisingly, you get a lot of tail when working at a movie theater. The pay is *awful,* but the baddies are bad, if you know what I mean.
+
+There was a notorious couple that attended the movies quite frequently. An older couple, probably in their eighties. The husband owned a logging company in the seventies and had been living off the royalties ever since he sold it back in 2000. His wife’s an older woman, but not gruesomely aged. They say some women age like wine; this lady sort of aged like a 1996 Honda Accord. She wasn’t pretty to look at, but she *runs*. More on that later.
+
+I’d notice this couple come in every Friday during new movie releases, but one day she was alone. This surprised me. In the four years I’d been working here, I saw her *every* week with her husband. 
+
+“Where’s the ol’ ball and chain?” I asked casually. I hadn’t imagined anything bad happening to him. He was old, but he wasn’t sick, from what I could tell.
+
+Her lips tensed and thinned until they weren’t visible. “He’s sadly passed.”
+
+“Oh.”
+
+Fucking awkward. I didn’t know what to say. I didn’t charge her for this movie visit. It was the least I could do. She cordially thanked me, and watched the movie in the theater for the first time in a long time—alone.
+
+This woman’s a cinenaphile, through and through. I saw her every week all by herself. Some say that going to the movie theater alone is a red flag, but I find it admirable. You aren’t embarrassed to see movies alone, in a theater, as they are meant to be watched. That’s lowkey badass.
+
+As the weeks went by, I continued not to charge her for the movies, even though I’m sure she could afford them. She lived outside of town, but came to this theater because it’s the god damned best one in the area. She probably has a home theater bigger than our setup. I don't know why she came all the way out here.
+
+But we got to know each other outside of the movies. I’d talk and even flirt a little bit. Hey, plan B was coming into full effect, and I wasn’t going to miss my opportunity.
+
+“So, Shela.”
+
+“Yes?”
+
+ She smiled in a way that *I knew* that I had her on the hook.
+
+“Want to get coffee sometime?”
+
+She appeared to be pondering my request, which surprised me. 
+
+“I will take your offer, but only if *I* get to pay this time.”
+
+“Deal.”
+
+And I was in. I dressed up as best as I could, and we met in the only local coffee shop in town.
+
+She cleaned up nicely for an older woman. We had exchanged numbers previously, and she was surprisingly “with it”. I didn't have to explain what technology was to her or how to send an email or text message. It wasn’t like I was talking to my grandma. Our communication flowed naturally, and, dare I say, it was somewhat fun to converse with her.
+
+During our date, I discovered her husband had had an accident, fallen, broken his spine and gone into a coma. She took him off life support because she didn't want him to live like that. The conversations were heavy. She'd been with him since before he was rich. She was loyal, through and through. I did have to do some reconnaissance, though. If I were going to date this woman until the end of her days, I wanted to know if there was any competition. 
+
+“So… do you have any kids?” I figured this was an innocent question.
+
+Shela just sighed. “Yes. We had one daughter. Peter was impotent. We went through a lot of trouble to have her. We are estranged, currently, as she didn’t believe her father's wealth was obtained morally, and our plans for her were different than her own.”
+
+Turns out, her daughter is older than I am and a notorious environmentalist. Like, chain yourself to trees and shit. Protesting in the Amazon. Real hippy shenanigans. I had to hide my excitement at this discovery. If her daughter wanted to throw away enough cash to set up your entire family for generations, I wouldn't stop her. More for me.
+
+“I'm sorry to hear that.” I consolingly placed my hand on hers. It was wrinkled, but not decrepit. When my hand eventually returned to my side of the table, I noticed she wasn't wearing her wedding ring. 
+
+To make a long story short, we booked a motel, and I did what I had to. Wasn't as bad as you'd think. For some of you, having sex with an older woman is a horror story in itself, but trust me, the horror hasn't even begun.
+
+I’m assuming she’s a nymphomaniac because of how often she asks to do it. For years, maybe decades, her husband couldn't perform, so she had long since buried that desire. Luckily for her, she has a young, active boyfriend who doesn't mind going spelunking. Plus, as an added benefit, she’s been in menopause for years. I ain’t shooting blanks, but I ain’t got to worry about putting a cake in the oven.
+
+Shela was crazy for her age. I had to motivate myself by constantly thinking about the cash this would net me after she found the other side. Hell, I may even help accelerate the process a little bit, once we are married, of course.
+
+About two weeks of dirty motel visits and a trip or two to the movies, and I was already invited to her mansion. Her home is fucking *huge.* I'm talking marble pillars, foreign artwork, statues, servants, your fucking voice echoes in every room, they're so goddamn big. 
+
+It seemed like my plan B was coming together. You always hear of young women dating older men, but never the other way around. Old women need love, too, dammit. I see this as an investment opportunity. Huh, maybe *I can* navigate the stock market.
+
+Anyway. That was my life, I played the doting and attentive boyfriend. I quit my job and spent every waking second with her; in turn, I didn't have to worry about my financial situation. I dare say I was really starting to like Shela, as a person. She was incredibly witty and gave the best sloppy toppy I've ever had. Shit was like a slip-and-slide.
+
+I moved in not long after my first visit. Things were going great. One thing was odd, though: we never slept in the same bed. Well, not for long at least. We may have fallen asleep together, but she was never there when I awoke. As I said, she's an active woman, and maybe lying down for too long was hard on her joints or whatever. 
+
+Despite that, I had her in the palm of my hand. I was going to propose on our one-year anniversary, but that's when something pretty weird happened. I didn't really explore the house; I never had to. I was normally on Shela's hip like a holster. 
+
+Like many a night before, we were watching an old black-and-white movie. I was bored to tears, but Shela didn't know that. I occasionally would say, “Wow, they don't make ‘em like they used to.” Even though, truthfully, I had no idea what was going on. 
+
+She'd nod and smile and tell me all about the directors and the actors who have been dead longer than her husband. It was exhausting, but far better than serving popcorn.
+
+During a lull in the movie—AKA the whole fucking thing—I had to piss. My mind was melting from the poor audio quality, and I needed a good excuse to get out of the room. I gave Shela a quick smooch and looked for a bathroom. Although I'd been living there for a few months at this point, I still got lost. I didn't mind being lost because, if I watched that movie for another minute, Shela was going to be widowed all over again. 
+
+I did my deed, and on my way back, I noticed a vague outline in the wall. Like, there was supposed to be a door there, but there was no handle. I looked around; it was late at night, so most of the servants had already returned to their quarters. I placed my hand on the wall and pushed. I heard a *click,* and the wall moved, revealing a door. I didn't get a good look inside, but I could hear a faint buzzing and a crackling noise. A surprisingly strong grip startled me. It was Shela.
+
+“Dear… don't go in there. Peter is sleeping.”
+
+“Right, sorry, my Love.”
+
+Fucking what? Peter? You mean your dead husband? He was dead, wasn't he? Have I been pounding his wife this whole time, and Peter has been watching from hidden cameras? Have I made this man a cuck?
+
+The mystery “not” door hadn’t come up again. I knew my role, and it wasn’t to look for things I wasn’t meant to find. After Shela died, *maybe* I could go hunting for answers, after the estate was mine, of course.
+
+One day, we were eating breakfast at the table when we both heard a scream coming from *somewhere*. It was definitely a woman screaming. I shot up and went to investigate, and it was the new girl we hired. She’d look like she’d seen the devil or something. She frantically crawled away from nothing as she yelled for help. My heart was racing. She was so terrified, but I couldn’t see what she was terrified of.
+
+We caught up to her, and I stopped her from crawling away. Tears were in her eyes as she tried to escape my grasp. “Hey, hey! Everything is okay. What happened?”
+
+She frantically looked around before finally asking, “You don’t see that?”
+
+I looked behind me and saw Shela, standing, unamused by the situation.
+
+“Pick her up.”
+
+Several servants obeyed her command, and the woman screamed again. Pointing at nothing. “There it is! Oh my God, what is that thing?!” 
+
+I looked to where she was pointing. There was nothing there.
+
+“Take her to the servant quarters. It seems she needs some rest,” Shela declared. The more seasoned servants did as she asked. The woman wrestled in their arms and screamed for help as she was dragged away. That was the last time I ever saw that young woman.
+
+Again, this could be seen as a potential red flag, but I was going to get my payout, one way or the other. One screaming servant wasn’t going to deter me from a multi-million dollar estate. For all I know, she was a druggie and shooting heroin on her lunch break. Or, even worse, she was trying to steal my Shela away from me.
+
+But if it were one creepy (not) door and a screaming servant, I wouldn’t be posting this online.
+
+We were watching a movie together in bed. I fell asleep about halfway through. I had a hard day of making Grandma's pound cake and just didn’t have it in me to watch another movie that’s widely problematic by today’s standards.
+
+I woke up in a daze, and the room was dark, but not pitch-black. The movie must’ve finished. I half expected Shela to be gone, but she was right next to me. Which was different. In the six months we’d been together, I had never woken up with her next to me before. I gave her a kiss on the forehead, and then I saw it. A grey-skinned, long-haired figure was propping itself up in the corner. It was human-shaped, but I doubt it was human.
+
+It was looking right at me. 
+
+Its eyes were black, and they glistened in the moonlight. I tried not to look at it. I tried not to notice it. I just rolled over and pretended to go back to sleep.
+
+I then heard a tapping on the walls, like fingertips drumming on a desk. The noise kept getting closer and closer. Until the noise suddenly stopped right above me. I felt something soft and delicate brush against my face. It was hair.
+
+I tried to play dead, as you would with a bear, but if this is what that servant saw, I get why she was freaking out. The hair kept brushing against my face until it started to curl over. The drumming of fingers continued down the wall right near my head. I heard a soft *clicking* noise as it approached me. Just before I was going to get up, the covers rustled, and I heard a voice.
+
+“Not yet. He isn’t ready.” It was Shela. She got out of bed, and I heard the thing follow her. I only breathed once I knew they were gone.
+
+I had half a mind to run out of the house right then and there. I crept out from under the covers and put on some clothes. I made my way down the hallway and towards the exit. I had seen enough evidence to consider this a fruitless effort, and I was taking my leave.
+
+As I made my way to the exit, I saw the place where the door should’ve been. It was cracked open, and an orange light was pouring out. I knew now was not the time to do some Scooby-Doo investigations and get the *fuck* out of here. But I heard something cry out. It could’ve been Shela. Then I wondered if this thing I saw had a hold on her, the stupid, stupid, stupid, greedy part of my brain said: “You aren’t married yet, if she dies, you don’t get the estate.” 
+
+If I saved Shela from this monster, I was going to propose first thing in the morning. I creaked the door open, and a staircase led down into the Earth. Torches lined the wall all the way down into a blackness. With the power of potential generational wealth by my side, I slowly descended the stairs. Flies buzzed all around the torches. A pungent odor reached my nostrils. I held my nose as I descended further.
+
+When I reached the bottom, I was met with a hallway draped in stone and black. I couldn’t see my own hand in front of my face. I could *hear* something in the distance, but I couldn’t make out what it was. I placed my hand along the stony wall and followed the noise. It sounded like a soft buzzing. A feeble, flickering light was growing brighter as I neared the end of the dark corridor. I stood in the darkness as I peered inside a room at the end of it. Then what I saw nearly made me throw up. I saw Peter. Shela’s dead husband. He was on a bed of corpses. His old and emaciated body was awkwardly draped over the skulls, flesh, and bones.
+
+I heard two noises clearly now. A suckling noise, and a buzzing one. On one end of the room was a dying man on a pile of bodies. It appeared that a worn curtain was dangling just above him, but it wasn’t a curtain. That thing was on the ceiling above Peter. It’s long, gray hair dangled into his mouth, and Peter was suckling on hair fibers, like a nursing baby.
+
+On the opposite end of the room were dozens of CRTs. All of them were playing videos of sexual acts from impossible angles. Then I noticed that *I* was in the videos. Shela sat in a recliner, the lights flickering in front of her. She was naked, fondling herself as she watched the videos I was in.
+
+Before I could leave, a pained voice erupted from the pile. It was Peter.
+
+“When… When will I be better?”
+
+Shela stopped, left the recliner, and strutted over to Peter. “He has donated enough of himself. You will be ready soon.”
+
+She pet his head as he swallowed and chewed on the hair of that *creature.* It looked like it wanted to be human, but it’d never seen one before, so it just *guessed* what we were supposed to look like. I held my breath as I watched Peter eat and eat this thing's hair, leaning in closer with each swallow. 
+
+Shela appeared to be trying to comfort Peter when she looked in my direction. She didn’t say anything. Her gaze seemed to be a warning. As if she were saying, “You should leave.” I didn’t hesitate. I slowly backed away, left the estate, and never returned.
+
+It was a long walk back to town, but I was just happy to be alive. I moved back in with my Mom and begged the theater to take me back. I called the police about what I saw, but nothing ever came of it. I even went down to the station, and everyone sort of just looked at me like *I* was crazy. Brother. There is some fucked up shit going on in that mansion, and *somebody* has to do something about it.
+
+But no one ever did. I consider myself lucky for even surviving, and I wonder if I was part of Shela’s plans. I half expected black cars to be parked outside my Mom’s house as masked men tried to kill me in my sleep, but Shela never came for me. I never saw her again, actually. 
+
+But yesterday, I was working at the ticket counter, and a *fine,* young woman walked up to greet me. I laid on my usual moves, and she was giggling and laughing at every joke I had. She was in the palm of my hand. She wanted to see the newest indie bullshit that had come out. To my dismay, a much taller, handsomer man walked up and placed his hand around her waist.
+
+“Oh, there you are, Shela. I thought we were getting food?”
+
+“No, Peter, I was just saying hello to an old friend.”
+
+A weird coincidence to be sure. It definitely wasn’t *the* Shela I had tried to seduce before she performed weird demon rituals in her basement. I tried to push the thought out of my head of the possibility of it being her when I saw the grey-skinned creature crawling on the ceiling of the building. It followed just above her. Its hair was now shoulder-length.
+
+I watched as it followed them into the theater. I pretended not to notice it.
+
