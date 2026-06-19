@@ -1,0 +1,226 @@
+We moved to Ohio from Mumbai when I was fifteen.
+
+My father had a job offer. My mother had a sister. I had no choice.
+
+The house was a rental. Three bedrooms, one and a half bathrooms, a basement we were told not to worry about. The previous tenants had left in a hurry, our landlord mentioned casually, like that was a normal thing to say.
+
+My parents took the master bedroom.
+
+I took the one at the end of the hall.
+
+The first night I couldn't sleep.
+
+Not because of the move.
+
+Not because of the new sounds.
+
+Because of the smell.
+
+Faint.
+
+Sweet.
+
+Like marigolds left too long in standing water.
+
+My mother would know that smell. She burned marigolds every Thursday, an old habit from her village, something her grandmother had done before her. I never asked why. Some things you don't question.
+
+I assumed she had unpacked her puja things already.
+
+I fell asleep eventually.
+
+
+
+The smell was gone by morning.
+
+I told myself it was nothing.
+
+Ohio does strange things to your senses. The air here is different. Flatter somehow. Like it isn't carrying anything.
+
+Back home the air always felt full.
+
+School started the following week. I was the only Indian kid in my grade, which wasn't surprising, just exhausting. I smiled a lot. I ate lunch alone. I came home tired in a way that had nothing to do with my body.
+
+My mother would have chai ready.
+
+She always did.
+
+Except that Tuesday she didn't.
+
+I found her standing in the kitchen doorway, very still, holding a suitcase I had never seen before.
+
+Old.
+
+Brown leather.
+
+The clasps were the kind you pressed with your thumbs.
+
+"Where did that come from?" I asked.
+
+She didn't answer immediately.
+
+"The basement," she said finally.
+
+"We don't go in the basement."
+
+"I know."
+
+She set it down on the kitchen table.
+
+Neither of us touched it for a long time.
+
+
+
+My father opened it that evening.
+
+Inside were things that made no sense.
+
+A child's sandal. Just one.
+
+A bundle of letters tied with red thread, written in a script neither of my parents recognized immediately. Then my mother went pale.
+
+"This is Modi script," she said quietly.
+
+My father frowned. "That hasn't been used since—"
+
+"I know when it stopped being used."
+
+The letters were not addressed to anyone.
+
+They were warnings.
+
+My mother wouldn't translate all of them. She translated enough.
+
+The word that kept appearing was Nishachara.
+
+I looked it up later, alone in my room.
+
+Night wanderer.
+
+
+
+I want to be clear about something.
+
+My family is not superstitious.
+
+My father is an engineer. My mother has a master's degree in economics. We are not people who believe in things that move in the dark.
+
+Except.
+
+That night I woke at 2 a.m.
+
+Not from a sound.
+
+From the smell.
+
+Marigolds.
+
+Rotting marigolds.
+
+Thick and close, like something breathing it directly onto my face.
+
+I didn't open my eyes.
+
+I don't know why. Some instinct I didn't know I had.
+
+I lay completely still and I listened.
+
+Footsteps.
+
+Not heavy.
+
+Not dramatic.
+
+Just soft, patient footsteps moving from the door toward my bed.
+
+They stopped beside me.
+
+I felt the mattress depress slightly near my feet.
+
+Something sat down.
+
+I still didn't open my eyes.
+
+My grandmother once told me something when I was very small, something I had completely forgotten until that exact moment lying rigid in an Ohio rental house at 2 a.m.:
+
+If it thinks you are asleep, it will wait. If it knows you are awake, it will not.
+
+I breathed slowly.
+
+In.
+
+Out.
+
+Eventually the mattress lifted.
+
+The footsteps moved away.
+
+The smell faded.
+
+I did not sleep again that night.
+
+
+
+I told my mother in the morning.
+
+She listened without interrupting, which is not like her.
+
+Then she went to the basement and came back with the suitcase.
+
+She burned it in the backyard.
+
+Letters, sandal, everything.
+
+She didn't explain.
+
+She just made chai and sat with me until my father woke up.
+
+We moved out three weeks later. My father said it was a plumbing issue. My mother said nothing. I said nothing.
+
+We live in an apartment now, on the fourth floor.
+
+My mother still burns marigolds every Thursday.
+
+But she uses fresh ones now.
+
+And she burns more than she used to.
+
+Last week I asked her what the letters actually said.
+
+She was quiet for a long time.
+
+Then she said: "They said it follows the women in the family. Through objects. Through smell. Through memory."
+
+She looked at me steadily.
+
+"They said it had been following us for four generations."
+
+She went back to her cooking.
+
+I stood in the kitchen doorway for a very long time after that.
+
+Because I realized something she hadn't said out loud.
+
+Burning the suitcase didn't send it away.
+
+It just meant it had to find something else to travel in.
+
+And every Thursday, my mother fills the apartment with the smell of marigolds.
+
+The same smell.
+
+The same smell I woke up to that night.
+
+I haven't said anything.
+
+I don't know what good it would do.
+
+
+
+I still check the foot of my bed before I sleep.
+
+Every night.
+
+Just in case.
+
+
+

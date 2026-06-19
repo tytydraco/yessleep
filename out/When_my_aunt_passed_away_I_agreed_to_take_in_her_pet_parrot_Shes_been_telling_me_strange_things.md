@@ -1,6 +1,6 @@
 My aunt Liza passed away last month. She was forty-seven years old. 
 
-Aunt Liza passed away due to an accidental overdose. As someone who has overcome struggles with addiction, her death left a mark on me. 
+Aunt Liza’s cause of death was determined to be an accidental overdose. As someone who has overcome struggles with addiction, her passing left a mark on me. 
 
 I suppose that’s a big reason why I agreed to take in her fourteen-year-old African Grey, Lulu. 
 
