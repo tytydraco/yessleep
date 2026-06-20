@@ -427,3 +427,5 @@ It’s not just her though. It’s everything. It’s Saltpine itself.
 Looking into the face of such evil, of such depravity, I can’t help but think, how can I not succumb?
 
 \-Dr. Laura Cotts
+
+[Part 11](https://www.reddit.com/r/nosleep/comments/1u94xjz/the_disappearance_of_saltpines_573_residents_part/)
