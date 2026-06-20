@@ -1,0 +1,149 @@
+Your therapist seemed like a nice guy. 
+
+
+
+You were depressed after breaking up with your boyfriend. You’d lost your appetite, you were sleeping all the time, you felt lethargic and unmotivated. Your parents were worried about you, so you avoided them. Your friends noticed your resistance to their attempts to cheer you up, and you avoided them too. You kept hearing ads for therapy on podcasts, so you decided to try to find a therapist.
+
+
+
+You looked online but quickly became overwhelmed. There were so many profiles, so many different specialties and modalities. You scrolled through the profiles until one caught your eye. It was a man with a warm smile and an office just a few miles away from your apartment. So you emailed him.
+
+
+
+Your therapist returned your email within the hour. Your therapist offered you a free 30 minute phone consultation to see if he was the right therapist for you. Your therapist even mentioned the possibility that he might not be the right therapist for you. Which made you feel like your therapist was the right therapist for you.
+
+
+
+The phone call with your therapist went well. He seemed to understand your situation, the sadness after the break up, the depression you found yourself struggling with. You mentioned the idea of seeing your therapist online, but your therapist suggested that in-person therapy would be better for you. You decided to start therapy with him. Your therapist said he could see you the next day. You hung up the phone and noticed you felt a little bit better.
+
+
+
+Your therapist’s office was on a walkable block with several cafes. You arrived early for your first session, and waited in the lobby until your therapist came to greet you. Your therapist shook your hand, and smiled warmly. Your therapist walked you back to to his office. Windows let the morning sunlight in, illuminating a comfortable couch with pillows on each side, and a coffee table with coasters and a box of tissues on it. Your therapist explained his cancellation policy, his note taking practices, and then asked you a simple question: How were you doing?
+
+
+
+It all gushed out like water from a fire hydrant. The deterioration of your relationship with your boyfriend, the arguments, the infidelity, the anger. Your confusion about whether to try to repair things or end them. The aftermath of the breakup, the back and forth, the depression. Your therapist looked at you intently, nodding along in understanding. When you started to cry, your therapist let you. Your therapist didn’t try to cheer you up immediately. He didn’t tell you everything was going to be okay. Your therapist just sat across from you with a sympathetic, comforting look on his face. Your therapist nudged the box of tissue in your direction, and you blew your nose and laughed awkwardly. 
+
+
+
+Before you knew, it the session was over. You admitted you felt better after getting all that off your chest. Your therapist was glad to hear this, and said he looked forward to seeing you next week. Your therapist also offered you his phone number, in case you had any kind of emergency between sessions, and said you could call or text him if you needed to. You thanked him and left. You went home and fell asleep on the couch. 
+
+
+
+Your therapist tracked your progress over the next few weeks, noting that you had become able to talk about the breakup without crying. Your therapist encouraged you to see this as a positive sign, as even if the external events in your life hadn’t changed, your reaction to them had. You admitted that you felt better, but even so that feeling was more of a glimmer of hope within the overall depression. Still, your therapist’s positive attitude gave you hope.
+
+
+
+Your therapist was the one who suggested you start seeing him twice a week. Your therapist was happy with your progress, and wanted to intensify treatment now while you were seeing positive results. You didn’t feel strongly either way, and since you worked remotely it was relatively easy to fit two sessions a week into your schedule. Your insurance was still making it pretty affordable, so you agreed. 
+
+Your therapist asked you about your childhood, your parents, your hopes and dreams. You hadn’t thought about things like that for a long time. You’d been consumed with the trauma of the breakup. It was nice to talk about something else. You told your therapist about your parents. How your father was domineering and your mother submissive. How your father was quick to anger and your mother tiptoed around it. How you couldn’t wait to leave for college and get away from them, but at the same time found yourself relying on them for emotional and financial support. Your therapist assured you he understood. And you felt better knowing your therapist understood. 
+
+One night your therapist took you out to dinner. After one early evening session you walked out together, and when you reached the sidewalk your therapist mentioned he was going to grab a quick bite and invited you to join him. You hesitated, but before you could think of what to say your therapist assured you it would be okay, there was nothing improper or unethical about it. It was just dinner. So you agreed.
+
+
+
+Your therapist took you to an Italian restaurant around the corner, a neighborhood place that was nice but not too nice. Your therapist said he liked to have a glass of wine at the end of the work day, and suggested you have one too. You weren’t sure about this, but your therapist told you dinner was on him, so why not treat yourself? Your therapist ordered you a glass of pinot noir. 
+
+
+
+You had a nice time at dinner. You talked and laughed in a way that you hadn’t in a long time. Your therapist noticed this too, and remarked on it. Your therapist suggested that this was a result of both your clinical work in therapy, as well as this new experience of being together outside of therapy in a social setting. Your therapist said he was glad to see you smile, that you have a beautiful smile, and that he hoped through your work together you’d find more reasons to smile. You blushed, and agreed.
+
+
+
+Your therapist is the one who suggested you add a weekly meal to your weekly sessions. Your therapist explained that these social interactions would help you recover from the breakup. Your therapist described how he would model what an ideal partner would be like, showing you how a man could be trustworthy and supportive, and how you could learn to feel comfortable being with someone who could be accepting of you. Your therapist insisted he wasn’t trying to replace your ex-boyfriend, but that he was trying to help you prepare for your next relationship, a relationship that would be better, happier, and more fulfilling, because of the work you were doing in therapy together. You nodded at that.
+
+Your therapist dropped you off at your apartment after dinner one night. You’d started to split a bottle of wine with your therapist at your weekly dinners, and he observed that it would be safer if you didn’t drive. Your therapist encouraged you to take a Waymo to his office for your session that day, and said he would drive you home after dinner. Your therapist liked the idea of sharing time in the car together, telling you that it would be good for you to continue to develop both your clinical relationship and your friendship.
+
+
+
+You directed your therapist to your apartment, where your therapist pulled up and stopped the car, turning off the ignition. Your therapist told you how proud he was of your progress, how he admired the way you’d overcome your depression and started to enjoy life again. Your therapist looked at you for a long moment, then leaned over and kissed you. You were surprised, but you didn’t flinch. You accepted the kiss without protest. 
+
+
+
+The kiss ended, and your therapist said he was looking forward to seeing you tomorrow, and every day after that. You smiled and nodded, then got out of the car. You walked up to your front door, and as you opened it you turned back to see your therapist in his car, watching you. Your therapist waved, and waited until you’d gone inside and closed the door. Then your therapist drove away.
+
+
+
+Your therapist sympathized when you told him your insurance was going to stop paying for your sessions. Your therapist is the one who suggested your reach out to your parents about paying for therapy. So you asked them, and your parents said yes. They were happy to pay for therapy, because they hoped it would help mend the conflict between you. They were skeptical of the twice a week sessions, but went along with it because what they cared about the most was your well being, and you told them therapy was helping.
+
+
+
+Your therapist enjoyed cooking in your apartment. You started having dinners at your place. Your therapist would pick up ingredients on the way over from work and have you sit on the floor in the corner of the kitchen and keep him company while he cooked. At one of these dinners your therapist explained that the way your relationship was progressing was good for your sense of intimacy. This was something you struggled with in your previous relationships, so it made sense that developing more intimacy with your therapist would help your experience of it. Your therapist insisted that the way your relationship was developing was completely appropriate. 
+
+Your therapist explained that the fact that you were having sex wouldn’t take away from the clinical impact of your work together. One night after dinner your therapist took you by the hand, led you to your bedroom, and had sex with you. No words were exchanged. You didn’t protest. You knew it was something he wanted to do, so you accepted it. Afterwards he cuddled with you, telling you how special you were and how much you meant to him. You smiled and nodded in agreement.
+
+
+
+Your therapist was concerned when you mentioned your recent contact with your ex-boyfriend. He had texted you, asking if he could see you, and part of you wanted to see him. Your therapist listened carefully, then shared his opinion that any attempt to rekindle that relationship would only lead to more heartbreak and pain. Your therapist encouraged to resist the urge to talk to your ex-boyfriend. The conviction your therapist showed made you feel like you should agree with him, so you did.
+
+Your ex-boyfriend had come over unannounced one day. You were reluctant to let him in, so you had the conversation at your front door. Your ex-boyfriend said he was worried about you, that this was less about him wanting to get back together and more about him being concerned about you. He told you your friends had reached out to him with their concerns about you, that you were avoiding them. Part of you did want to reconnect with your ex-boyfriend, but you knew your therapist thought it was a bad idea, so you dismissed that feeling. You assured your ex-boyfriend you were over the breakup and moving on with your life. Your ex-boyfriend seemed skeptical. After your ex-boyfriend drove away you noticed your therapist in his car across the street. Your therapist locked eyes with you for a moment with a look you’d never seen before. Then your therapist drove off. 
+
+Your therapist didn’t mention any of this at your next session. Your therapist was his normal, supportive self. You were happy to avoid talking about that awkward moment from the night before. Later that night you texted your ex-boyfriend asking him if you could see him again, but you never heard back.
+
+Your therapist was alarmed when you told him your parents wanted to meet him. When your parents told you they were going to come visit you didn’t put up a fight, but you didn’t tell your therapist right away. When you finally told your therapist, he wanted to know all the details about how long they’d be in town and what your plans were with them. Your therapist observed that your parents might not understand your relationship, and that they might not approve of your relationship, even though there was nothing wrong with your relationship. Your therapist decided you would tell your parents he was out of town that week. You felt relieved about this plan. Part of you wanted your parents to know about your relationship with your therapist, but another part of you knew it had to be kept hidden from them. You didn’t want your parents to think anything was wrong.
+
+Your therapist was the one who suggested the tattoo. Your therapist said that having his name on your body would be your secret to share, and this secret would increase the sense of intimacy between you. Your therapist chose where the tattoo would go: across your stomach, below your belly button. Your therapist told you that the knowledge that his name was written on your skin would be of comfort to him during the week you were apart when your parents were in town.
+
+Your parents’ visit was difficult. You could tell they were worried about you but didn’t want to alarm you by revealing just how worried they were. Your father assessed your apartment, replaced some light bulbs, and fixed the clicking sound your stove made. Your mother busied herself doing laundry and cleaning out your refrigerator. You went to dinner a couple of times, saw a movie, and spent plenty of time sitting together in your living room, on your phones.
+
+
+
+Towards the end of the visit your parents said they wanted to talk to you about your therapist. Your father wanted to know more about him, and what you talked about in therapy. You were resistant to this, but your father told you he was paying for it, and that give him some right to be included. You mother tried to soften your father’s brusque manner, translating his questions into more a pleasant form so you’d feel less attacked. You were vague, saying your therapist understood you, and that he was a big reason why you were doing so much better. Your father had looked up your therapist’s profile online and had questions about his education and training, but you didn’t have the answers. This made your father angry. You ended up having a big fight, and you told them you were sick of how they didn’t trust you and couldn’t let you live your own life, and if they wanted to stop paying for therapy fine, they could just save the money for your funeral after you committed suicide. Then you went into your bedroom and slammed the door.
+
+
+
+Your parents said goodbye the next morning. You apologized for the suicide threat, and told them you didn’t really mean it. They appreciated this, and seemed relieved, but avoided talking about it further. You hugged them both, and apologized for not driving them to the airport. When your father went to take their suitcases to the street your mother told you she was concerned about your relationship with your therapist, that she didn’t want you to do anything rash, and that you could talk to her about anything, anything at all. You thanked her, and assured her everything was totally fine and normal. 
+
+
+
+Your therapist was happy to move in to your apartment. Your therapist mentioned it first, noting how much bigger it was than his place, how his landlord was raising his rent a ridiculous amount, and how he spent so much time at your place anyways. Your therapist said this was a decision you needed to make together, as therapist and patient, so you went over the pros and cons together, and after some consideration your therapist said that it made sense for him to move in. You didn’t feel strongly about it one way or the other, so you agreed. Your therapist told you he thought that even though you had made this decision together, you should still officially ask him to move in. So, you asked your therapist to move in. Your therapist said yes. 
+
+
+
+Your therapist explained why it was a good idea to add him to your bank accounts. Your therapist said it would easier if you didn’t have to keep track of paying him for each therapy session, especially since now that you were living together every interaction had the possibility of being a therapy session. You felt ambivalent about giving your therapist access to your banking information, but your therapist insisted that this arrangement was best for you, so you went along with it.
+
+
+
+Your friends had an intervention. They invited you to brunch and told you how concerned they were about you. They didn’t think your relationship with your therapist was healthy. They were worried you were being brainwashed, taken advantage of. You listened to their concerns and validated them, then admitted that you’d lost touch with them, and promised to be more available. You convinced them that your relationship with your therapist was totally fine, and there was nothing to worry about. 
+
+
+
+Your therapist said you’d get used to the cage eventually. Your therapist explained how it was really more for him than for you, how knowing that while he was at work you were at home, in a cage that was too small for you to stand up straight in but big enough for you to crouch and lie down, made him feel closer to you. Your therapist knew that him feeling closer to you made you feel closer to him, and that developing these feelings of intimacy would be good for you in the long term. You were surprised you didn’t react with more opposition. Something about the choices in your life being made by someone else made you feel relieved, like somehow giving your therapist responsibility for your life was one less thing you had to worry about. You got used to the cage. 
+
+Your therapist came home upset one day and told you he had gotten a disturbing phone call from a private investigator asking if you were a client of his, and wanting to know more about your relationship. Your therapist also revealed he had gotten a call from a professional mental health organization he was a member of following up on a tip about an improper relationship he was accused of having. Your therapist was worried about these developments, and told you he suspected that your parents were behind it. Your therapist asked you in a threatening manner if you had anything to do with this, and you told him you didn’t, that you hadn’t spoken to your parents since their visit. Your therapist said that your parents were trying to sabotage your relationship, and that if they kept it up they would end up like your ex-boyfriend. You understand what this meant but you were scared to show that you understood, so you didn’t react when your therapist said this, but the way your therapist said this scared you. 
+
+
+
+Your therapist set up the phone call with your parents. Your therapist told you he would do most of the talking, and what talking you did would be about how you were feeling much better and that therapy with your therapist was the reason why. Your therapist put the conversation with your parents on speaker phone, and you cringed as your father got angrier and angrier at your therapist’s attempts to avoid sharing any details about your relationship. Your father revealed he knew about you adding your therapist to your bank account, which flustered your therapist, who motioned for you to say something, so you said that it was your suggestion, because you were so depressed you were having a hard time managing the payments. The conversation ended with your therapist promising to continue the conversation with your parents, who sounded unconvinced but placated for now. After the phone call you were scared, and your therapist held you in his arms for a long time, telling you everything was going to be alright, before he had sex with you and put you in your cage for the night. 
+
+
+
+Your therapist lay on your bed, looking at you inside your cage. There was silence as your therapist stared at you, and you divided your attention between returning his gaze and trying to get comfortable on the pile of blankets. The only sound was the click of the thermostat and the hum of the air conditioning every twenty minutes or so. This went on for a couple of hours, and each time you started to fall asleep, your therapist would say your name loud enough to wake you up, and you would shake off the sleepiness and stare back at him until finally your therapist fell asleep.
+
+
+
+Your therapist was taken completely by surprise when your parents showed up the next morning. Your therapist answered the door and tried to keep them outside but your father pushed his way in, your mother right behind him. Your therapist and your parents stood in your living room, yelling at each other. You sat on the couch, watching them fight, but you weren’t sure whether it was really happening or not. At one point your mother grabbed your arm and pulled you towards her, and your therapist grabbed your other arm and yanked you back onto the couch.
+
+
+
+Your father tackled your therapist, and they fell to the ground together. Your therapist rolled over on top of your father, slamming his head into the ground over and over until your father stopped moving. Your mother screamed and pounded her fists on your therapist’s back. Your therapist grabbed your mother by the throat, squeezing until she stopped moving. You and your mother locked eyes as she slowly stopped struggling, and even though you knew something horrible was happening you found yourself unable to move. 
+
+
+
+Your therapist let your mother’s body drop to the ground, then turned to you and said something in a comforting voice before running out to the garage. You felt the enormity of the situation hitting you but at the same time felt strangely detached from it. Your therapist returned with a can of gasoline and began pouring it on the bodies of your parents, then on the rest of the furniture. Your therapist sat down on the couch beside you and kissed you and told you he loved you, and that this way you’d be together forever, then picked up a matchbox and struck a match. 
+
+
+
+In the millisecond of time it took the match to ignite you were overtaken with a strong urge to not die. It was like all the inaction and paralysis you’d been experiencing over the past few months was suddenly lifted from you, and without consciously deciding to you shoved your therapist aside and leapt up from the couch. As you reached the front door your therapist’s scream for you to wait was drowned out by the whooshing sound of the gasoline igniting. 
+
+
+
+You ran outside and fell on the lawn outside your apartment. You turned and watched as the fire roared. After a moment your therapist ran out onto the lawn, his body completely engulfed in flames, collapsing just feet away from you, his body convulsing. You heard sirens in the distance as you stared at the twitching body of your therapist, as smoke and the smell of burning flesh swirled around you. 
+
+
+
+You don’t remember the fire department showing up, or the ambulance that took you to the hospital. Or talking to the police, or your parents’ funeral. You don’t remember being admitted to the psychiatric unit. You don’t remember the doctors and nurses telling you what you’d been through was traumatic, but that you’d get better eventually, and they would make sure you got the help you needed. You don’t remember anything. 
+
+
+
+Your new therapist seemed like a nice guy.
