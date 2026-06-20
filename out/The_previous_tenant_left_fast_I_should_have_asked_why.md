@@ -1,0 +1,123 @@
+The previous tenant left fast. The super said the previous tenants moved out in a hurry. We didn't think much of it. 
+
+People move in a hurry all the time. Job loss. Divorce. Back rent. The apartment was cheap for the neighborhood, which meant we could finally afford to stop sharing a bathroom with strangers. 
+
+&#x200B;
+
+That was enough for us. My wife Sarah and I have been married eight years. We've got a five-year-old named Charlie and a three-year-old named Emma. 
+
+&#x200B;
+
+We're not rich. We're not lucky. We're just regular people trying to stay above water. 
+
+&#x200B;
+
+This apartment was supposed to be a step up. The first week was fine. Boxes everywhere. That new-paint smell. The kids running up and down the hallway, discovering every corner. 
+
+&#x200B;
+
+Charlie found a small door in the back of the hall closet—a crawlspace, maybe, or an access panel. He was obsessed with it. Kept asking if we could open it. "Probably just pipes," I told him. "Nothing fun." He didn't believe me. Kids never do. 
+
+&#x200B;
+
+The second week, we started hearing things. Not ghosts. Not creaks. Just sounds that didn't line up with our lives. Footsteps in the hallway when both kids were asleep. Water running in the kitchen when no one was in there. The toilet flushing by itself at 3 AM. I checked the pipes. I checked the neighbors. I checked the building's maintenance schedule. Everything was normal. The sounds kept happening. 
+
+&#x200B;
+
+I didn't tell Sarah. She's got enough on her plate—her mother's health is bad, and her job is demanding. I figured it was old building noises. Settling. Expansion. Whatever landlords say when they don't want to fix things. 
+
+&#x200B;
+
+The third week, Charlie started talking about the man. "What man?" I asked him at breakfast. "The man in the hallway," he said. "He walks around at night." "Charlie, that's just a dream." "No, Daddy. He's real. He wears a gray shirt. He walks slow." I looked at Sarah. She looked at me. 
+
+&#x200B;
+
+We both knew we hadn't been sleeping well. Neither had Charlie. We figured it was nightmares. The new place. The stress of moving. We didn't talk about it after that. The fourth week, I woke up at 2 AM and heard the footsteps again. Clear this time. Heavy. Dragging. Not a ghost. Not a creaky floor. A person walking down the hallway toward the kids' room. 
+
+&#x200B;
+
+I got out of bed. I grabbed the baseball bat I keep under the mattress. I walked out into the dark hallway. No one was there. But the closet door was open. The one with the crawlspace. The one Charlie kept asking about. I walked over and closed it. My hands were shaking. I didn't know why. 
+
+&#x200B;
+
+There was no one there. Just a closet. Just a crawlspace. I went back to bed. The fifth week, Sarah woke me up at 4 AM. 
+
+&#x200B;
+
+She was crying. 
+
+&#x200B;
+
+She had her phone in her hand, flashlight on, shining it at the ceiling. "Someone's up there," she said. "What are you talking about?" "Listen." I listened. 
+
+&#x200B;
+
+I heard it. Scratching. Not mice. Not rats. Too heavy. Too deliberate. Like someone dragging their nails across the ceiling from inside the crawlspace. I called the super the next morning. He said there wasn't a crawlspace. 
+
+&#x200B;
+
+The building had sealed ceilings. No access anywhere. I told him about the door in the closet. 
+
+&#x200B;
+
+He went quiet. "Don't open that," he said. 
+
+&#x200B;
+
+"Why not?" "Just don't." I asked him what was behind it. He said it was storage. Private. Not for tenants. I asked him who had access. He said no one. I asked him why there were footprints in the hallway dust leading to it. He hung up. 
+
+&#x200B;
+
+The sixth week, I opened the door. I waited until Sarah and the kids were at her mother's. I told her I had to work. I lied. I opened the closet, and I opened the little door at the back, and I crawled inside. It wasn't a crawlspace. It wasn't pipes. 
+
+&#x200B;
+
+It was a room. 
+
+&#x200B;
+
+Small. Maybe six feet by eight. Low ceiling. No windows. But someone had been living in there. Sleeping on a thin mattress on the floor. Eating out of plastic containers. There was a small battery-powered fan. A stack of books. A backpack. And on the wall, there were photos. 
+
+Photos of our family. Sarah at the grocery store. Charlie at school. Emma in her stroller. Me walking the dog. 
+
+All of us through the windows of our apartment. Taken at night. Through the cracks in the blinds. The man had been in the walls the whole time. 
+
+&#x200B;
+
+Not a ghost. Not a spirit. A man. 
+
+&#x200B;
+
+Living between the drywall. 
+
+&#x200B;
+
+Watching us sleep. 
+
+&#x200B;
+
+I crawled out so fast I hit my head. I called the cops. They came. They searched the room. The mattress was warm. The police never found anyone. But they found fresh footprints in the dust outside the hidden room. Leading away from it. 
+
+&#x200B;
+
+Someone had left after I crawled in. 
+
+&#x200B;
+
+Which means someone was still there while I was inside. 
+
+&#x200B;
+
+I'm writing this from a hotel room. Sarah and the kids are with her mother. I'm not going back to that apartment. I'm not going back to that building. I'm not going back to any building with walls thick enough to hide a person. Because here's the thing that keeps me awake. 
+
+&#x200B;
+
+The super told me not to open that door. He never told me why. 
+
+&#x200B;
+
+And the footprints they found didn't just lead away from the room. They led to the door of our apartment. 
+
+&#x200B;
+
+He had a key. He'd been in our home. The police haven't found him yet.
