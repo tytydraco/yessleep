@@ -66,4 +66,4 @@ Her mouth moved. The same words. They would always be the same words.
 
 I didn't know, anymore, whether she was real. Whether any of this was something outside me or only the shape my mind had made from years of her. Perhaps there was no difference. Perhaps that was the point.
 
-But she was still there. And I was still looking up.
+But she was still there. [And I was still looking up](https://www.instagram.com/nightmargin.stories).

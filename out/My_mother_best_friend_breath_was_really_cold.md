@@ -1,0 +1,73 @@
+So I wrote this account of my life in a haze of memories after I woke up from a dream that it reminded of. I’m sorry if anything in this story is missing details or some things may be strange or lacking sense. All I hope from sharing my story is that Mabye some peace within my own heart Mabye some answers for myself or maybe my soul or something stupid like that.
+
+My earliest memories are of just me and my mom. We had a humble life, but it was nice. We lived in a small two-bedroom trailer in southern Kentucky. That trailer sat deep in a wooded area, with no neighboring homes for what felt like miles. The few neighbors we had were friendly but kept their distance, and that suited my mother just fine. She valued her privacy, and for most of my childhood, it was just the two of us against the world.
+
+I was around five years old when I first remember meeting Lacy. She was a thin blonde woman with blue eyes. Even though I was only a child, something about her struck me as worn down, as if life had aged her far beyond her years. I later learned she was the exact same age as my mother, but at the time I would have guessed she was old enough to be someone’s grandmother.  
+The first time she came to our trailer, my mother let her in without hesitation. As soon as Lacy stepped through the door, I noticed a look on my mother’s face that I had never seen before. There was sadness there, but something else too—something heavy and difficult to understand. Lacy’s eyes carried that same sadness, mixed with a restless energy that made me uneasy. The moment she entered, her gaze locked onto me as though I were the reason she had come.
+
+I immediately wrapped myself around my mother’s leg and hid behind her.  
+“Momma, who’s that lady?” I asked in the blunt, whiny way only a small child can.  
+My mother answered firmly but gently.  
+“Don’t be rude, Keith. This is Mommy’s friend.”  
+Lacy stepped closer, stopping just short of touching me. The expression on her face frightened me more than anything I had ever seen. It wasn’t anger. It wasn’t hatred. It was something deeper—a mixture of longing, sadness, and regret. I had only seen emotions like that on television. Seeing them on a real person standing in front of me was unsettling.  
+I remember wondering if I had done something wrong. I didn’t know this woman, yet she looked at me as if I mattered to her. I searched the room for reassurance from my mother, but she remained silent in the corner, watching. For those few moments, it felt like I was alone with a stranger who somehow knew me.
+
+The visit was brief. After only a few minutes, Lacy left in an old red Nissan Altima that looked like it had survived a war. The passenger-side door was missing entirely.  
+Being five years old, I didn’t think much about the encounter afterward. But looking back, there were signs that something wasn’t quite right.  
+A couple of weeks later, I was playing in the woods behind our trailer. My mother called it our backyard, though it felt more like an endless forest. Since there were no children nearby, I became very good at entertaining myself.
+
+My favorite game was pretending to be a knight. Armed with a stick that vaguely resembled a sword, I battled imaginary monsters by smacking trees, rocks, and anything else unfortunate enough to cross my path. I galloped through the woods on an invisible horse, quoting lines from what was probably a bootleg copy of A Knight’s Tale.  
+As I wandered deeper into the trees, swinging my stick and fighting invisible enemies, something caught my attention.
+
+A blinking red light.  
+It was high up in one of the trees.  
+My imagination immediately took over. Maybe it was a robot. Maybe it was an alien device. Maybe a wizard had hidden some magical artifact in the branches. Whatever it was, I had to know.  
+Curiosity got the better of me.  
+I started climbing.
+
+Slowly and carefully.  
+I wasn’t particularly athletic, but determination can make a child surprisingly brave. Branch by branch, I worked my way upward until I was close enough to reach toward the blinking light.  
+My fingers brushed against something metallic and square. It felt cold.
+
+Then, without warning, someone grabbed my arm.  
+I was pulled away from the tree.  
+For a split second, I thought aliens had come to reclaim their mysterious device. I felt myself being carried downward, held tightly enough to keep me from falling.  
+Certain that my life was about to end, I turned to face my captor.  
+Instead of an alien, I found myself staring into my mother’s face.  
+She looked furious.  
+“Son, don’t you ever go that far up in those trees! You could’ve broken your neck!”  
+Her voice shook with fear as much as anger.  
+“But Mom, there was an alien up there with a red light!” I protested.
+
+“Enough, son. In the house. Now.”  
+She marched me back inside before I could argue any further.  
+Eventually, life returned to normal. My mother became her usual cheerful self again, and I wisely avoided climbing any more trees.  
+Before long, kindergarten arrived.  
+I was more nervous than I expected to be.  
+My mother dressed me in a red polo shirt and khaki pants. Since she didn’t own a car and the school buses didn’t come anywhere near our trailer, we relied on her friend for transportation.  
+That morning, Lacy appeared once again in her battered Nissan Altima, still missing the passenger-side door.
+
+The drive to school took nearly an hour and a half.  
+What struck me as odd was that my mother was driving while Lacy sat in the passenger seat. Even as a child, I found that unusual because I had never seen my mother drive before.  
+The only times I remembered traveling anywhere involved rides from neighbors, especially Mr. Webber down the road. In fact, the only previous car trip I clearly remembered was when Mr. Webber and my mother took me to the zoo for my fourth birthday. I spent most of that day fascinated by the monkeys.  
+The ride to school was almost completely silent.  
+No one spoke.
+
+I sat in the back seat watching the scenery roll past the windows, fascinated by places I had never seen before. Yet beneath that excitement was a strange feeling I couldn’t explain.  
+A knot formed in my stomach.  
+It was the same uneasy sensation I had felt in the woods.  
+The feeling that someone was watching me.  
+I couldn’t see anyone looking at me, but I felt it all the same.  
+I glanced toward the front seats.  
+Neither adult appeared to be paying attention to me.  
+Feeling slightly reassured, I turned back toward the window.  
+As we stopped at a red light near a McDonald’s, something caught my eye.  
+A flash.  
+A blinking red light.  
+The exact same kind of red blink I had seen in the tree.  
+My stomach dropped.  
+Without another word, I squeezed my eyes shut and kept them closed for the rest of the drive.  
+I didn’t want to see that light again.  
+And I definitely didn’t want to feel whatever it was that came with it.
+
+This is really all I really care to share at the moment. I’m sorry for the abrupt ending as I wrote this part of the account I felt my mental health start to take a decline. I’ve spent a long time and many years in therapy getting to a point where I could be a normal person and live in society. I’m not willing to sacrifice that for the sake of documentation I’m truly sorry.
