@@ -1,0 +1,173 @@
+It’s not just that she died. She decomposed. I woke up to her beautiful face marred by bulbous swells and vacant eyes. I have woken up to that face countless times. I can’t stand not waking up to it anymore. The pillow had residue on it when I moved her, when I cradled her. I swept her up from the mattress, pressing her cold skin to my chest. She was heavy. So heavy. I could carry the weight of her forever, but not of this agony. Not of this grief. This torment.
+
+There was a soot, or something like it, darkening her face. My tears cleaned it away when they fell on her skin, like rivers in a burnt valley. I hoped her skin was glowing, as it always had, but it was just as discoloured as the rest of her.
+
+It’s the middle of the night. I’ve set her back down. I tucked her in. If you stand from far enough away it looks like she’s sleeping. Like she’ll wake up any minute.
+
+I’m trying to piece together what happened last night but it’s blurry. I came home from work. She had dinner made. She always did despite how long she worked. She had it set on the table and was waiting for me to eat with her. I had a few drinks before I came to eat. We talked about our days. We hadn’t been fighting as much lately. I couldn’t tell if she had just given up or if she finally saw things my way and wanted to turn things around. I didn’t care which it was then, our house was finally peaceful. 
+
+I’m standing in the doorway of our room. I’m watching her. I don’t know what to do. I’ve cried for what’s felt like hours. I’ve stared at her even longer, pretending she’s still sleeping. Her hair still has its colour. It’s blonde sheen that glowed when the sun would hit it.
+
+I could leave her until morning, resting. No one would know I had woken in the night. I could watch the sun rise on her hair. I could see it glow one last time.
+
+The time reads 64:00 am. The clock on her night stand isn’t moving. I don’t understand what’s going on. I know I’m not dreaming. I’ve banged my head into our wall. I punched our bed frame while I held her and the wood cracked. My knuckles are swollen and still throbbing. This is a nightmare, but it’s not a dream.
+
+The shadows in our house are strange. They’re moving. Downstairs, light usually comes in through the window from the street lamps outside, but it’s black. It looks like a void and there’s a humming noise coming from the darkness.
+
+Do I leave her there? By herself? Is her soul here? Is it at our bedside? I hope she can’t see my pain. Or maybe I hope she can. She’d know for certain how much I love her then. She’d see it. I love you. I love you I love you I love you. I didn’t say it enough.
+
+I need to go downstairs. Something isn’t right.
+
+There is light. It’s not black. The house is just coated in the same thing on her face. It’s like an ash. Like when your fingers touch charcoal. Its residue is on the window, blocking the light. 
+
+The kitchen clock says 00:36 am. There’s symbols on the walls. Circles. They have letters in them, around the border. There’s wings and three crosses inside the circle. 
+
+It looks like someone ran their hand on the soot coating everything to draw them.
+
+“Hello?” I call out. No one answers. Why does my house look like this? A fire? Maybe something electrical. 
+
+I flip a light switch. Nothing. But the clocks work. Why do they work? Why are they different times? Why are they not times at all?
+
+I should check the breaker. I have to go to the basement. The humming is coming from the door to the stairs. Could she have been burned? Shocked?
+
+The bathroom light is on. It stung my eyes as I passed it to get to the stairs. There was a towel on the ground, but I don’t remember doing that last night. How drunk did I get?
+
+I remember now, lingering on the towel I’ve used to clean myself so many times. She wanted to. She wanted to for the first time in a long time but I couldn’t again. I’ve watched too much. Seen too much. I couldn’t get into it, yet I still went to the bathroom after she fell asleep.
+
+The door knob is rattling and the door is vibrating. The humming is loud down there.
+
+I wish I could wake her up and bring her down here with me. I’m scared. I can’t do it. I’m going to go check on her.
+
+She’s gone. She’s not in the bed anymore. I checked under the covers. There’s just the outline of that same black dust where her body was. Is she alive? No. She was cold. There’s empty bottles of vodka on the floor. They weren’t there before. Where is she?  
+The stairs to the main floor have ashen footprints. I didn’t notice them when I came up. She’s alive. She has to be.
+
+I just heard a noise. It was loud. Concussive. The symbols on the walls are glowing red now. The house is crimson. I’m back on the main floor. I walked past the bathroom again. The towel was still there, but it’s red now, soaked. The basement door is open. Her footprints lead to it. I have to go find her. I can’t make sense of it. The basement is dark, yet the red light is also coming from it. It’s glowing but I can’t see past the blackness.
+
+She’s crying. I hear her down there, weeping. I’m coming.
+
+The humming is deafening. Deep and low. It’s shaking the soot from the walls. The black dust is falling in lines of transparent flakes. She’s still crying though. I can still hear her.
+
+The sound stopped. I’m in the basement. I can’t see anything but red silhouettes of our furniture down here.
+
+Footsteps. Skittering. They’re shuffling fast behind me. Now on the walls. Now I hear them on the ceiling.
+
+The red is getting brighter. I can see more. I see her. Her silhouette. She’s on the bar, surrounded by bottles of vodka. She’s squatted down with her hands pressed on the bar in front of her. She looks like a sitting dog. Her head is tilted like she’s curious about me.
+
+“Addie?”
+
+I shouldn’t have spoke. She sprang off the bar like a cat. I could hear bottles smash. I can’t see anything again. The breaker. I need to find the breaker.
+
+There’s a ram's head in the corner. It’s black, a shadow, but I can see it in the red light. A shadowed hand rose next to it, pointing with taloned fingers to the other corner. There’s a  goat's head in that corner. They’re both still, observing. The goat-headed figure begins raising an arm as well.
+
+The footsteps ran behind me again. I need to find her. I need to get her out of there. I turn, looking for her. There’s something scaled behind the bar. I can see the red reflecting off of them. There’s an eye too, like a fish’s, staring at me.
+
+It’s puking. It’s all over the bar. The basement is flooding. I need to find her. The ram's head is gone. She’s in the corner instead now, clung to the ceiling upside down. Her head is hanging like it’s dangling by a string, swaying as her mirrored eyes look at me.
+
+She screamed at me. Her mouth opened impossibly wide and she screamed at me, “How could you do this to me?”
+
+I have to go. I can’t get to her. I’m up to my waist in the puke now.
+
+I’m back upstairs. The symbols are everywhere now. There’s a figure in my kitchen. The red is glowing around it. It has ram and goat horns. Its body is scaled. It stands on hooves. Its fur is spotted. There’s a man’s face on its groin with its eyes rolled back and its mouth gaping.
+
+“Be not afraid,” the figure said. Its voice was gargled and growling. I shouldn’t have understood it.
+
+Skittering again. My wife is clung to its back now, hanging on like a scared child or a hunting spider. 
+
+Be not afraid. No phrase is said more in the bible. Could this be an angel? Ezekiel said that they have four faces. What were the four faces? I can’t remember.
+
+“What are you?” I ask.
+
+“A messenger.”
+
+“A messenger of what? What’s happening to my wife?”
+
+“A vision. Futures. Repentance its bane. Through me. Lust. Gluttony.”
+
+My wife screamed again, “Where is what we once had?”
+
+Our 5 year anniversary. That’s when she said that. I forgot it. I was too drunk. Why am I always drunk?  
+“Repentance, okay,” I say, “I’ll do anything.”
+
+“The fourth cardinal. Wade the bile. Forbid pestilence.”
+
+My wife lunged off the figure’s back, running on four limbs. Her hands slapped the blackened ground. I heard her crash into the basement door.  
+I followed her. The stairs are black again. I can see red reflecting in the flooding vomit. It smells like vodka.
+
+I see myself. Countless of myself. Their eyes are black, glass cylinders, like bottle mouths. They kneel in the bile, scooping it into their mouths in a frenzy, drinking its foulness. They are all staring at me, my copies. Consuming. Ravenous.
+
+I step off of the stairs and into the fluid. They swim towards me. Their hands grab at my leg, many hands, beneath the surface. Their mouths are open as they cling to me, letting the puke drift into their maws with each step I take. They hold me back from reaching the fourth corner of the basement. The south corner. They try to pull me under, to drown me. I look up. My wife is on the ceiling. She follows my slow progress, looking down on me with her neck backwards, smiling down at me. It keeps me above the surface.
+
+A man is in the corner. The same face in the groin of the figure upstairs. His eyes are ablaze, surrounded by burnt sockets that weep puss and clear fluid. He drops as I meet him, submerging himself. I look down. I see the man’s flaming eyes staring back at me in the clear, black bile. His mouth opened and the vomit whirl pooled into it. He spoke with unmoving lips as he swallowed, “Thy gluttony consumed.”
+
+The walls shake. My copies wail. They’re spun into nothingness, evaporated.
+
+I turned around as the last of the water drained. The figure was there again. It raised a taloned finger to the ceiling.
+
+It spoke again, “The ideals of Lamech. Observe the second consort. Forbid indulgence.”
+
+I heard and saw the silhouette of my wife rushing up the stairs.
+
+I follow her. The light in the bathroom is still on, but now the door is shut. I can see the light shining in a line underneath the door. Fluid leaks onto the floor, sudsy and foaming, the light reflecting in it. It’s so bright. I can’t see my wife.
+
+I open the bathroom door. There’s a woman inside. Naked. Splayed on the toilet. She’s running her hand across her body, raking her nails against her skin, drawing red lines of lust. She’s rubbing soaps and oils onto and into her. Her hair is wet. She looks at me, longing. I could do it right now. Why couldn’t I with my wife last night?
+
+Her ashen hand slammed the bathroom door shut. My wife’s face was directly in front of mine. Tears streamed from her milky, clouded eyes. She screamed again, “What do they all have that I don’t?”
+
+Her sob was terrible, her swollen grey flesh bunched and her tears mixed with purge fluid gushing from her eyes and nose. It wreaked. She always smelt so good. She is in so much pain. 
+
+She’s grabbing at her hair, wailing. She’s pulling at her locks. Her beautiful blonde locks. Ripping them out.
+
+A growl rumbles from the basement. Deep and rolling. I look to it, past my wife. There’s two eyes staring at me, low to the ground. Haunched shoulders rise and fall behind them as it comes closer. 
+
+My wife is smiling again. It startled me as I looked back. It’s so large that it’s splitting her rotten skin. Her teeth are yellow, her gums black. She hasn’t stopped crying, but I haven’t seen her smile like this in years. She’s nodding slowly now, staring at me. I can hear nails scratch on the floor behind her. The growling is loud.
+
+My wife throws the bathroom door open. The growl erupts into a roar. A leopard pounces on the naked woman. I watch as it rips her apart. My wife cheers, screaming and clapping next to me, her smile brimming. She hops up and down. I can hear her fluid-filled feet squelching as they hit the floor over and over.
+
+The naked woman is screaming. She reaches for me to help, but I cannot. The leopard tears into her breast. I see clumps of fat leak out of it. It rears its head high, pulling apart threads of torn muscle. Blood sprays everywhere. It plunges its head into her groin, its teeth sinking in the folds. It tears her apart and looks at me, its crimson maw gaping to reveal her flesh. Blood stains the leopard’s fur. Sinewed strands of flesh hang from its lips, stuck between hungry teeth. 
+
+It speaks to me, “Thy lust consumed.”
+
+My wife pets the leopard. It purrs, nudging its head against her rotten thigh. She kneels down and kisses it, the blood of the woman staining her face. She rubs it in, pushes her fingers into her mouth to taste it. I need my wife back. This isn’t my wife.
+
+She scampers off, tip-toeing like a sneaky child. The leopard bounds after her. I see the flame-eyed man emerge from the basement. They are all going upstairs.
+
+The house is shaking. I need to get to her.
+
+I race up the stairs. My wife is bowed on her knees in the bedroom. The figure has split apart again. They form a triangle with their arms. The ram, the fish, and the goat. She bows before them. Her forehead is pressed to the carpet. The leopard and the flame-eyed man walk into the triangle. The floor is cracking. The symbols on the walls are being carved into it. It glows like the others, but brighter. Streaks of light emanating from it illuminate the room. 
+
+Fire erupts around the figures, growing high into twisting, scorching spires. The flames dance around the leopard and the man, covering them as they shift. Shadows cast about its body, retreating to reveal its new form. The man was covered in patterned pelt. His face was feline. I could see it clearly in the light: a leopard with glowing orange eyes. Its forehead bore the same symbol glowing on the walls, in the floor. A long tail played in the fire. Feathered wings sprouted from its back, their tips formed to match the flames around them. The wings are grand, imperial. This is an angel. God has come to save me. To save my wife.
+
+“Can you save her?”
+
+The angel’s wings flapped. Flames billowed forth. I felt their heat. My wife was in them as she knelt. She’s crying again.
+
+“Save her,” the angel says, “save thyself. Thou art beyond forgiveness. Grace garnered, I offer. Commit to her. Commit to me.”
+
+My wife stands, sobbing. She walks into the fire, screaming as the flames touch her.
+
+The angel’s clawed hand reaches. It beckons me. It wants me to walk through the fire.
+
+The bed is on fire. My wife crawls into it, bellowing. 
+
+“Through thy devotion thou shalt bade sin’s corruption. Cleanse in my flames. Awake anew.”
+
+She’s under the covers, burning. The clock reads 64:36am. 
+
+I walk into the fire. It consumes me. I feel my skin peel, blister, pop. Fluid weeps from me. My flesh chars. My eyes melt. All is black. I cannot find my way. I feel a soft paw against my back. It ushers me forward. I reach out, my hands raw. I feel the covers. I’ve found the bed. The covers lift. The paw lays me down. I feel the heat on my teeth. My lips are gone.  
+Something tucks me in. I melt into the mattress. My flesh fuses with it. I’m dying. I will see her in heaven. This angel has saved her. Saved me. Saved us.
+
+Thank you, God.
+
+“Wake up, dear,” she says to me.
+
+She’s alive. My wife is alive. The sun shines through the window. It highlights her blonde hair. Her skin is pure, clean. Her eyes twinkle. She’s hovering over me in bed. She’s  alive.
+
+I wail. I bawl. I bring her to me. I squeeze her tight so that her confused words cannot escape. I can feel her heartbeat against my chest. She is warm again. I wish everyone could feel what it’s like to touch the rewarmed skin of your loved one after touching it cold. She is light again, carrying part of herself with her own strength. It’s as if I’m carrying a feather fallen from the angel’s wings, a symbol of its grace. That’s what she is. Grace. I have been graced.
+
+Our faces pulled apart. I saw her soul in her eyes again. It was a beauty made infinitely rich, for I now knew the poverty of its absence. She was whole again. My beautiful wife. I will never take a moment with her for granted again. I will love her eternally. Never has she been more beautiful, more divine. She is sacred. She is restored. The things I witnessed. Those horrible things. She is restored.
+
+It was a nightmare, but it was not a dream. This morning, I went to fulfill my first oath. I went to the bar downstairs to dump my bottles down the drain. The basement smelt foul, like a vomited distillery. It has water damage up half of the drywall. When I came upstairs, there was soap, oil and water all running out from under the bathroom door. I opened it and found blood and shed, yellow fur all over the toilet. I sent my wife out to get her hair done. Her beautiful blonde hair. I wanted anything but for her to be gone but I needed to clean. What if she remembered?I scoured the house. I found ash under our bed, deep in our carpet. There were smoke stains on the ceiling. The walls faintly showed the symbols in a slightly lighter shade. I scrubbed them all then got in the shower.
+
+I have a brand now, where the paw touched me. A circle with letters around its borders, two wings and three crosses in its centre, the heavenly symbol of the angel. When I first saw it, I remembered all my thoughts and all the sights from last night as if they were happening. I remembered glimpses but now it was vivid. It was everything. The time is confused, like I’m in it at one moment and recalling it the next, but I can replay each step, each breath. The angel won’t allow me to forget her like that, to forget the lessons he taught me, what I might lose. The angel has marked me. It reminds me to fulfill the oath I made to it. I will commit myself to my wife by committing myself to the angel. It reminds me with this mark of its absolving. I am grateful, holy angel, for your correction. You have brought my wife back to me. My beautiful wife. I love you. I love you I love you I love you. I’ll never stop saying it.
+
+I’ve written my recounting as it comes to me, either as a live moment or memory of the past. Such was its nature, the angel, to divine all times, all tenses. I hope this warns whoever is reading this, for though I am grateful for its intervention, I pray no other soul ever has to witness the manifestations of the Leopard Angel. Correct your futures now, lest you wake in the night to find your loved ones dead, and your clock read 64:36.
