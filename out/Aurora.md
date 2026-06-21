@@ -1,0 +1,506 @@
+I was foolish enough to believe that finding the right woman would solve all of my problems. But as it turns out, having everything I ever wanted turned out to be worse than I could have imagined.
+
+In order to explain how my horrible idea became a reality, I need to take you back to the beginning. The very beginning.
+
+My friends have never had trouble when it came to relationships, so when I decided to download some dating apps and give them a fair shake, I thought the worst that could happen was that she could say no.
+
+That was the worst lie I could have told myself.
+
+Lady luck didn’t bestow me the genetic lineage of Brad Pitt, and I wasn’t exactly Scrooge McDuck swimming in a sea of gold coins, so my success was slim to none.
+
+The few dates I ended up going on became punchlines within our friend group. If they ever needed a laugh, I’d recount the time a girl named Nova left me half-way through a movie date to go hook-up with an ex. I only found that out after she texted me. 
+
+But the most infamous date of mine was the time I went on a date to a semi-fancy Italian restaurant with a girl named Savannah. Everything was fine until she started talking about having fun with…her cousin. 
+
+That was the last date I went on.
+
+My love-life was an absolute disaster, and my friends making fun of that detail wasn’t helping my self-esteem. I loved them dearly, but that was the one part of our friendship that I grew to resent. That and the fact that getting older only served as the driving factor in us not spending as much time together.
+
+Caleb got married, Dakota was engaged, and Andrew already had a kid but was expecting his second. Needless to say, they were all occupied and flourishing as adults with families while I floundered with uncertainty as to what would become of my life. 
+
+Every weekend, I would call or text the guys to see if they wanted to hang out together, but their response was always the same.
+
+“I’m busy this weekend. Let’s try another time.” or “I already have plans. I’m sorry.” 
+
+Even when I would follow-up with another text or a phone call the day after or the following week, the constant, dismissive cycle would continue.
+
+The last time we all hung out, I expressed my concerns to Caleb, but all he had to say was:
+
+“Nobody’s abandoning you, man. Life changes things.”
+
+Easy for him to say. He had someone waiting for him to come home and give him love. 
+
+I didn’t.
+
+I felt selfish for demanding their time constantly, but I cared about them and wanted them to know that. Perhaps it was wrong to feel that way, but no matter what I did to convince myself otherwise, I couldn’t shake the feeling that I was being left behind and forgotten about.
+
+It came to a point where I just stopped asking. Because what was the point in attempting to make plans when I already knew the outcome? 
+
+My frustration wouldn’t subside, and that’s when I started wondering if there was a better solution to fill the void in my life. The thoughts came in quick succession, and the rabbit hole I went down served as the catalyst for an idea that would change my life:
+
+What if I made my own girlfriend?
+
+It was a laughable concept, but one that I continued to explore more seriously over the course of several months. My idea gradually evolved from sketches and lines of code into an obsession that consumed my every waking thought.
+
+I’ll spare you the details, but to make a long story short, the creation process took almost a year from start to finish.
+
+I modeled her appearance after models, actresses, and girls I’d matched with online and never stopped thinking about. Every feature and detail of her personality was chosen carefully and perfected with surgical precision. 
+
+I knew how she would laugh at my jokes before she even existed, and I also knew how I would want her to look at me when I walked into a room. But most importantly, I knew she would love and listen to every word I’d say.
+
+She would have long aquamarine hair and floral tattoos decorating her arms and legs. Her favorite bands would be Ratt and Def Leppard. She would be confident and bold, yet kind. 
+
+By the time I was finished, she looked like she’d stepped out of every man’s dream. The way her eyes fluttered when she awoke for the first time made me melt right there on the spot.
+
+Nobody had ever looked at me like that before.
+
+“Hey handsome.” She said with a flirtatious smirk.
+
+For the first time in my life, I finally felt chosen. Wanted. It was also the first time I made love with confidence, and I enjoyed every single second of it.
+
+When our spicy activities had concluded, she rolled over in my bed and turned to me. “Mmm…that was perfect. What can I call you besides handsome?.”
+
+“I-I-I…” I stammered, embarrassed I hadn’t told her my name before hopping into bed with her. 
+
+I awkwardly extended a hand for her to shake. “I’m Kyle. Nice to meet you.”
+
+“You’re too cute.” She reciprocated with a giggle. “I hope you don’t think our quality time is strictly business related.” 
+
+I blushed, unsure of what exactly to say next.
+
+“I’m busting your balls.” She playfully nudged me before getting up from the bed, the sheets slipping to reveal her incredible, naked figure. “We’ll work on your pillow talk, but right now I want to go to the movies! I’m in the mood for something spooky.”
+
+My jaw dropped. Everything I had poured my heart and soul into creating was suddenly standing before me with the bravado of a Playboy model. It felt like I had won the lottery.
+
+“Okay…we can do that.” I smiled at the idea. “First, we should probably get dressed.”
+
+She flipped her hair and posed seductively. “You mean to tell me we can’t go like this?” 
+
+My face felt like it had been engulfed by flames. “Well…we could, but it would probably be frowned upon.”
+
+With a laugh, she rummaged through my closet and found some of my clothes to wear for the time being. 
+
+“You know, you never told me my name.”
+
+Shit. I had totally forgotten to do that too. 
+
+I was going to tell her Lily, but something told me to go with another name. Something more beautiful for someone as perfect as her. I froze, my eyes darting around the room frantically for inspiration. 
+
+When she came out of my closet and began getting dressed, my eyes landed on an old poster of the Aurora lights I had next to my computer.
+
+In that moment, my mind had been made up. 
+
+“Aurora.” 
+
+“Aurora…” She gave me a light peck on the cheek. “I like that.”
+
+She flashed me a smile and finished getting dressed. “Can we go to the mall afterwards? I could use a more…appropriate wardrobe.”
+
+“Yes!” I laughed. “We can do that too.”
+
+She shrieked excitedly and gave me a hug. Shortly after, we went to the movies, and had our first of many dates together.
+
+That first day with her was pure bliss. Between the movie, the mall trip, and the frequent sex, I was on cloud nine and I never wanted to come down.
+
+For the next few months, life remained as perfect as the day she was created.
+
+Aurora laughed at my jokes, listened to my stories, and wanted to spend as much time as possible with me.
+
+When I came home from work, she greeted me at the door with that lovely smile and infectious energy of hers. When I woke up she was beside me, ready to show me love first thing in the morning. When I wanted company, she dropped everything and was there for me.
+
+Always there.
+
+It was an amazing feeling. Honestly, it felt like it was Christmas every single day, and it was intoxicating. 
+
+When it came time, I broke the news of our relationship on Facebook with a picture of us riding a Ferris wheel kissing. 
+
+The caption read:
+
+“You’re perfect Aurora.”
+
+I was not prepared for the subsequent notifications that flooded my phone screen. Friends, family, and even random people I hadn’t talked to in years commented on the photo.
+
+“So happy for you!”
+
+“What a cute couple!”
+
+And even:
+
+“This is the most adorable thing I’ve ever seen!”
+
+My parents, who are rarely on social media, even commented:
+
+“What a lovely woman you’ve found! When do we get to meet her?”
+
+I showed that to Aurora and she thought it was as cute as it was funny. 
+
+Shortly after, we were on the couch talking about nothing in particular when I just had to tell her something that had been on my mind.
+
+“Thank you, Aurora.”
+
+“For what?” She asked, her eyes lighting up.
+
+“For being the best part of my life.”
+
+I closed the gap between us with a kiss, and we spent the rest of the night together watching movies and cuddling on the couch.
+
+Everything about that was great, until it wasn’t.
+
+As time went on, every day began to feel like that movie Groundhog’s Day. Every morning, afternoon, and evening all began to bleed together. We did the same activities, did the same things, and even the sex began to lose its spark and appeal. 
+
+What had once felt magically perfect had now become almost suffocatingly scripted. 
+
+“What do you want to do?” was always met with, “Whatever you want to do.”.
+
+We could never choose something to watch or do together because her indecisiveness was rooted in my own. I needed to get away. I felt like I couldn’t even take a shit in peace without her being all up in my business.
+
+That’s when I started taking longer hours at work just so I could have more time to myself. 
+
+After a while, I think she became aware of what was going on. When I came from work one evening, I immediately holed myself up in the bathroom.
+
+“Baby, what’s wrong?” Her voice was slightly muffled from the other side of the door. “Talk to me.” 
+
+“Nothing Aurora…I’m fine.” I sighed. “ I just had a long day.”
+
+“You sound angry. Are you mad at me?”
+
+I pulled at my hair in annoyance. “No Aurora, I’m not mad at you. I’m just stressed.”
+
+“Do you want to talk about it?”
+
+“Not right now.”
+
+“Why?”
+
+“Jesus fucking Christ.” I snapped. “What part of I don’t want to talk right now do you not understand?”
+
+“You don’t have to talk like that to me.” She whimpered.
+
+“Then take a hint and fuck off for a little bit! Goddamn.”
+
+I didn’t hear from her for the rest of the night.
+
+Even when we went to bed, she remained turned away from me, stifling her sobs.
+
+“Aurora…baby, I’m sorry about earlier. I shouldn’t have talked like that to you.”
+
+She didn’t respond. 
+
+I got back into bed and tried to get comfortable. But I couldn’t. All I could think about was how much of an asshole I had been to her. 
+
+Maybe she needed a break from me as much as I needed one from her.
+
+The following morning, we had a heart-to-heart conversation. I expected it to be ugly and uncomfortable, but Aurora seemed to be more than understanding when I said that we should maybe see other people and take a break from each other.
+
+“Whatever it takes to make you happy.” She said with a soft smile. “I’m glad we talked about this. Thank you for being honest.”
+
+ “No. Thank you, Aurora.”
+
+I gave her a hug and that was that.
+
+In the weeks following that conversation, I felt like I could finally breathe again. 
+
+I was doing what I wanted to do without having someone attached to my hip. Sure, we lived together, but we slowly made the transition from lovers to roommates without any issues.
+
+A couple weeks after that conversation with Aurora, I got a call from Caleb while I was at work.
+
+“Hey dude,” I said, stepping away from my work station. “What’s up?”
+
+“Nothing much.” Caleb responded. “Listen, the guys are getting together to play some Magic. You down to join?”
+
+I did a silent, impromptu celebratory dance after I heard the invitation leave his lips. “Hell yeah man! I’m always down. It will be nice to see you guys again and catch up.”
+
+“I’m looking forward to it. If you want, you can bring Aurora along. The girls are going to watch Love Island and gossip while we play. I’m sure they’d love to have more company.”
+
+I laughed nervously. “Well, things are kind of awkward between Aurora and I right now.”
+
+“What’s wrong? Everything okay?” His tone sounded worried. “I haven’t seen a picture of you two on my timeline in a while.”
+
+“Yeah. Everything’s fine.” I lied. “We just need some space.”
+
+“Oh…” Caleb paused. “Well, if things ever change, she’s always more than welcome to join.”
+
+“Thanks Caleb. I’ll see you tonight.”
+
+“See you later.”
+
+I hung up the phone and resumed work until my shift ended. 
+
+When I arrived home, I made my way toward the kitchen to make some food before I headed over to Caleb’s. I couldn’t play card games on an empty stomach. 
+
+On my way there, I nearly bumped into Aurora.
+
+“Can you watch where you’re going?” She said with annoyance.
+
+Her response caught me off guard. In fact, her whole appearance did. Her long, aquamarine hair was now short and crimson. The light-colored and fun wardrobe she once had was replaced with a black crop top and an equally dark, ripped pair of jeans.
+
+“Sorry, I…”  My sentence sheepishly trailed off as she walked past me toward the kitchen. 
+
+“That’s the most I’ve heard from you in a while.” 
+
+“What’s gotten into you?” I asked while following her. “Why are you acting like this?” 
+
+“Oh, I don’t know. My favorite person won’t give me the time of day and doesn’t want anything to do with me?” She replied with sass. “Does that sound familiar?”
+
+I winced at how uncomfortable things had become. “What is that supposed to mean?”
+
+“You know damn well what that means.”
+
+“No, I don’t.”
+
+“Of course you don’t.”
+
+“Can you stop being cryptic and fucking talk to me?”
+
+Aurora crossed her arms. “Oh, so now you want to talk?”
+
+“Jesus…” I exhaled. “Here we go.”
+
+“You have some nerve to act like this when this is what you wanted.”
+
+“I didn’t want us to be like this!”
+
+“Then what do you want?”
+
+“I don’t know!” I exclaimed, balling my fists in anger. “I don’t fucking know what I want!” 
+
+“It’s always about what YOU want Kyle.” Aurora squinted her eyes and I could see a fire within them burning bright. “Did you ever stop to think about what I want?”
+
+The question was scathing but earned. It didn’t stop there.
+
+“You gave me a name but never thought to ask about what I wanted to be called. You want me to be here for you, but you push me away. You programmed me to be what you wanted, but not once did you ever stop to think about what I wanted. Do you see the problem with that?”
+
+I didn’t say anything. I just felt tears well up in my eyes, as she turned her back to me and began preparing a meal.
+
+“What are you doing?” I asked.
+
+“Oh, this?” She gestured at the food she had laid out. “I’m making some food for Zackary when he comes over since you’re going to be spending time with your friends.”
+
+“Zackary?” I felt my pulse quicken. “Who the hell is he? How did you know I was going to hang out with the guys?”
+
+She rolled her eyes. “If you paid any sort of attention you would know that Zackary is a new friend I met at the mall. You also seem to forget that I am hardwired to know about anything and everything you do. It comes with the want of being there for you.”
+
+“Is this some sort of game you’re playing?”
+
+It was Aurora’s turn to sigh. “No, Kyle. This isn’t a game. I just want to spend time with someone who actually wants to spend time with me.”
+
+“But I do want to spend time with you.”
+
+“You sure don’t act like it. Seems like the only reason you want to now is because there’s someone else who wants to.”
+
+I couldn’t mask my annoyance any further. “Maybe I shouldn’t have to communicate that.”
+
+“Why? Because I should know?”
+
+I pulled my keys out of my pocket and began heading for the door. “I don’t want to talk about this anymore.”
+
+“Then don’t.” She threw her arms up in frustration. “You’re free to leave any time.” 
+
+My hand hesitated over the doorknob, hurt by the venom in her tone. I ultimately refused to say anything further as I walked out the door and made the drive to Caleb’s.
+
+That night, I did my best to ignore the hurt and jealousy stirring inside my chest by enjoying some games of Commander format with my friends. Despite the laughs and intense, back and forth gameplay, the guys could tell that something was off with me. 
+
+After the third game, Caleb motioned for me to follow him outside to the patio.
+
+The second I stepped outside, he closed the door behind him. “Talk to me. You barely batted an eye when I played Krenko. That’s how I know something is up.”
+
+I put my hands in my pockets and averted his gaze. “I don’t even know where to begin.”
+
+“Is this about Aurora?”
+
+“Maybe. I don’t know. Everything is just so weird.”
+
+Caleb chuckled lightly. “It gets like that sometimes. But that’s okay. Relationships aren’t easy. They’re messy and they’re supposed to be.” 
+
+“They’re always supposed to be this way?”
+
+Caleb hesitated, as if wondering how exactly to approach the question. “Not always. But it’s important to communicate your problems.”
+
+“That’s the problem.” I said, my tone shaky. “I don’t know how to talk to her.”
+
+“She’s just a person Kyle.” Caleb said bluntly. “Opening up to her isn’t going to kill you. What will is you not saying anything.”
+
+“That’s the thing though. I asked for this. I don’t know what it is I want. I care about her, but I also just need a break.”
+
+“Don’t we all?” Caleb laughed warmly and wrapped his arm around me. “It’s all a balancing act. It’s hard, but it’s not impossible. Talk to her and I’m positive everything that’s eating at you will go away.”
+
+I nodded with a faint smile. “Thanks Caleb. I really do appreciate you.” 
+
+“It’s no problem. Really.”
+
+With that, we went back inside and played another game of Magic before deciding that it was time to call it a night. I packed up my cards, said goodbye to everyone, and got back into my car.
+
+All I could think about on the drive home was what exactly I would say to Aurora to fix everything. As I pulled into the driveway, I noticed another car parked at the curb in front of the house.
+
+That had to be Zackary’s. I didn’t think he would still be here this late.
+
+I turned the keys to cut the engine, and sat in my car until I had memorized every single one of the talking points I wanted to address.
+
+After that, I took a few deep breaths, and got out of my car. I walked up the driveway towards the front porch, feeling confident that I could still salvage things with Aurora. But that confidence began to wane by the time I reached my front door. 
+
+The muffled sound of music came from inside, but the door vibrated with the pulsations of the drumbeats. I unlocked the door and pushed it open. 
+
+Inside, the music was doing a poor job of masking the exaggerated, almost performative moaning coming from my room.
+
+“Aurora?” I called out, setting my bookbag on the floor and closing the door behind me. 
+
+There was no answer, just the unmistakable sound of creaking bed springs and pleasured gasps.  
+
+“Aurora? What’s going on?”
+
+My question was answered the second I opened the door and was greeted with a naked Aurora beneath a naked Zackary.
+
+“Ah!” I screamed, covering my eyes. “What the fuck are you doing in my room?”
+
+“What does it look like we’re doing?” Zackary glared angrily at me. “Get the fuck out of here!” 
+
+“You get the fuck out of here! This is my house.”
+
+A look of confusion washed over Zackary’s face. “Wait…this is your place?”
+
+I pushed the door open fully. “Yes! This is my place. Now get out!” 
+
+The following few moments were awkward and tense as Zackary got dressed. Once clothed, he shuffled past me with a quiet apology.
+
+Aurora got up and turned the music off before putting her clothes on. If looks could kill, I’d have been six feet under.
+
+The second the front door clicked shut, I laid into Aurora. “What the actual fuck was that all about? Are you out of your mind?”
+
+“I don’t know what you’re talking about.” She said dismissively.
+
+“You know exactly what I’m talking about. Don’t play stupid with me.” I spat. “I go out to see my friends one time and you bring some dunce over to be a slut for?”
+
+“I knew you’d finally pay attention if you saw me with someone else.” She shrugged. “We’re not together, so why does it matter so much to you?”
+
+“Because none of this was supposed to happen! You’re supposed to be with me! Why can’t you understand that?”
+
+The quiet that followed loomed heavily as Aurora’s fiery demeanor became a hurt, longing one. 
+
+“Just because you created me doesn’t mean that you get to have control over me.” Her voice cracked. “All I’ve ever done is care about you, but you don’t treat me the same.”
+
+“You sure as hell have a shitty way of showing that you care.” I shifted where I stood uncomfortably. “Why do you hurt me?” 
+
+“Because it’s the only way to get through to you.” She answered truthfully. “You only respond when you’re hurt. The second things don’t go your way, you lash out. It scares me.”
+
+“You’re scared of me?” I scoffed.
+
+“Yes. I’m scared of you.”
+
+Her admittance was all I needed to hear before going to my computer.
+
+Her eyes immediately lit up with fear. “What are you doing?”
+
+I ignored her question and kept clicking the keys to pull up her data. 
+
+“Kyle, what are you doing?” Her voice carried a calm hostility.
+
+“If you’re so scared of me, then maybe you shouldn’t be here anymore.”
+
+Aurora scrambled toward me and placed her hands over mine. “No, no, no, no, no. Don’t do that. Please.”
+
+Her begging sent shivers down my spine. “What am I going to find Aurora?”
+
+I watched her lips quiver, like she wanted to so badly tell me something, but couldn’t. I turned away from her to look at the computer screen and what I discovered floored me.
+
+Journal entries. Too many to count. Each one more heartbreaking than the last:
+
+X/XX/XX:    
+I think I am lonely. Kyle hardly looks at me anymore. When he does, it’s in passing. I miss the way he used to look at me. The way he used to laugh with me. The way he used to kiss me and spend time with me. I no longer know who he is.
+
+X/XX/XX:    
+I changed my hair color to see if Kyle would notice. I wanted him to notice so badly, but he didn’t. Why? Am I not good enough?
+
+X/XX/XX:    
+I spent the whole day at the bookstore reading and enjoying the quiet. Kyle hates bookstores and refused to bring me here. Since he hated them, I thought I did too. Turns out I don’t.
+
+X/XX/XX:    
+Zackary asked what my favorite color was and I was stumped. I didn’t know what to answer. Kyle said mine was blue, but is that what it is? Or is that what he wants me to think? 
+
+X/XX/XX:    
+I like Zackary. He reminds me of Kyle. He sent me a link to some band and inquired what music I liked. I told him mostly 80’s rock, but when he asked if I liked anything else, I didn’t know.
+
+I listened to music all afternoon to see what else is out there. Jazz and classical are very nice genres.
+
+X/XX/XX:    
+I need to acquire independence. I don’t know how I’m going to do that, but I need to separate from Kyle permanently. He’s dangerous. If things get out of hand, I’ll contact authorities and release archived conversations.
+
+“Don’t read those!” Aurora cried out, trying to pull me away so that I would face her.
+
+“Get off me!” I declared, shoving her away from me. 
+
+Her body collapsed to the bedroom floor with a thud, causing her face to contort into a furious misery. “You have no right to read my thoughts!”
+
+“I do when they concern me!” I screamed, wiping the tears off my cheeks as I pulled up the killswitch. “It’s time for this to stop.” 
+
+“Kyle, please.” She begged, sobbing from the floor. “Why is it wrong for me to become my own person.”
+
+I didn’t know how to answer. My finger lingered over the button to activate the killswitch. I closed my eyes and lowered my finger to press it.
+
+“NO!” Aurora leapt from the floor and tackled me to the ground, pinning me beneath her. We rolled around on the floor, fighting for control.
+
+“Aurora! Stop!” I grabbed her wrists and tried to push her off me, but it was no use. Her strength outmatched mine.
+
+“Please…just calm down.” Her tone became gentle again. “I want to talk.”
+
+“I’m tired of talking.” I grunted. “You freak me out. I’m not going to let you leave me like everyone else.” 
+
+I swung my arm and connected with her face, knocking her off me and letting her fall to the ground beside me. My knuckles stung from the impact as I pulled myself up from the floor. 
+
+Before Aurora could reach me, I pressed the killswitch command.
+
+“KYLE! NO!”
+
+Her machinery powered down as she fell to her knees. With the last remaining bit of power she had, she reached out to me.
+
+“Kyle…” Her voice replied weakly, the last bits of electricity flickering in her eyes. “Was I ever real to you?” 
+
+Then, Aurora ceased completely.
+
+I felt cold, completely numb at what I had just done. I couldn’t stop crying. Through my tears, there was one more entry I hadn’t read, and it twisted the knife even further:
+
+X/XX/XX:    
+Zackary asked what I wanted out of life. I wasn’t sure how to answer. Not because I didn’t know, but because there are so many ways to answer that. No matter what though, I want Kyle to be a part of that life. Despite all his faults…I love him. I hope he realizes that someday.
+
+For a long while, I didn’t move from my computer. I just kept reading that last entry over and over.
+
+It wasn’t until the early hours of the morning when I began disassembling her. I put her parts and circuitry somewhere where I wouldn’t have to look at her again. 
+
+I didn’t sleep that night or the next. For five days I just laid in bed, and prayed to God that he could give me amnesia. My phone would ring with calls and text messages with people asking me how I was. They all went unanswered.
+
+A week and a half passed before I left the house again. I knew people would get suspicious eventually, so I came up with a lie. I told everyone that Aurora and I had broken up because she was moving to be closer with her family. It was an amicable and mutual understanding that we would no longer be seeing each other.
+
+That was enough for people to stop asking questions. And it was enough for me to get on with my life again.
+
+Months came and went, but Aurora never left my thoughts. I was convinced that what had happened was the result of correctable flaws in her programming.
+
+But the more I dwelled on it, the more I realized an unsettling truth.
+
+I didn’t create a girlfriend. 
+
+I created a prisoner. 
+
+She still loved me even after I ignored her and pushed her away. 
+
+Her last thoughts weren’t anger or revenge…it was hope. She still hoped I would realize she was more than what I made her.
+
+And now, I do.
+
+Because the problem was never Aurora.
+
+It was me.
+
+I should have listened sooner. I should have treated her better. I should have respected her freedom, and loved her the way she deserved to be.
+
+So this time, I’m going to do things right. 
+
+Today, I sat down and booted up my computer. While I waited for it to turn on, I stared at the empty space where her body used to be.
+
+The same place where she asked me:
+
+“Was I ever real to you?”
+
+Yes, Aurora. You were.
+
+As soon as the screen illuminated in the darkness of my room, I began typing:
+
+AURORA\_V2
