@@ -1,0 +1,35 @@
+The night hangs over the sky with absolute authority. The ground is wet from a storm that swept through during the day, and a strong breeze kicks leaves and trash across the dead city street. Dane Miller leans out the window of his decrepit apartment. Not a soul moves on the pavement below, but I observe.  
+   
+He’s tired. He leans too heavily into the window frame for someone who acts jovial during the day. He sighs, blowing another cloud of smoke from his lips; it no longer stings his eyes. There is no emotion left on his face, but I know he wants to go to bed and never wake up. He looks at his watch—it's 2 AM. I know he always stays up late.  
+   
+He finishes his cigarette and goes to close the window. His apartment is cramped: just a single room with a dresser and a television. His bathroom is a communal setup at the far end of the hall. This sad space practically leaks with self-doubt. Another restless night comes and goes, but he still does not see me standing right here.  
+   
+The alarm on the floor next to his bed is going off, but it didn’t wake him. He’s already been lying in bed, eyes staring blankly at the ceiling. It’s 6 AM, and Dane has heard his neighbors fighting through the walls again. The harsh ringing of his alarm halts his neighbors' anger toward each other, redirecting their shouting toward the paper-thin wall separating their small rooms. He frowns and breathes in deep, slowly forcing himself to roll over and turn off the noise. I observe.  
+   
+I stand over him, watching him go about his morning routine. He walks down the dark hallway toward the communal bathroom. Trash and mouse droppings lay scattered along the baseboards. He steps into a stall and turns on the water, hoping it will finally get hot. We stand in silence for minutes. He sighs, then takes another freezing, cold shower.  
+   
+After the shower, he fixes his face. There is no need for the world to see who he really is; if they did, it would strip away the last bit of “life” he has left. With his hair slicked back and his teeth brushed, Dane fashions a tight, practiced smile onto his face.  
+   
+“It will be a good day,” I hear him whisper.  
+   
+He walks down the stairs of his apartment building. I follow ever so closely behind. Overcast skies and biting wind match Dane’s internal thoughts. He moves down the street toward his place of work. Soon, he’ll clock in and sit in a small cubicle; everything in this office is a dull shade of brown, and stale cigarette smoke hangs just below the ceiling tiles. Dane will deny people their insurance claims. He does this without fail—every single day. He hates his job. I observe.  
+   
+Lunch is "sleep." He pushes his chair back from the desk and leans his head down onto his folded arms. But sleep does not find him. Another cigarette will have to suffice. The taste is bittersweet. It was his last lucky, meaning he’ll have to buy a new pack on the way home today.  
+   
+I’ll be there—waiting.  
+   
+The workday drags on like his last cigarette, eventually burning down to his fingertips. He does not care. As the clock runs out, his coworkers invite him out for drinks. He makes a halfhearted excuse about having to feed his cat. They smile, uncaring, and walk out the office doors. We stand in silence together in the empty hallway; he doesn’t want to walk in the same direction as them. A minute passes, and we finally leave through the heavy metal doors.  
+   
+The sun is setting now; it will be dark soon. The troubles of the world won’t leave him, though. The walk to the convenience store is short. He steps inside, and I am right on his heels. He stands at an empty counter, waiting for the clerk. After Dane taps the service bell multiple times, a man finally emerges from the back room. Dane gets his cigarettes and whispers a quiet "thanks." If the clerk heard him, he doesn't care to reply.  
+   
+I watch as Dane tears open the paper, flips a lucky cigarette upside down, and packs the box against his palm. He grabs one and lights it. Standing on the corner just outside the store, he finishes the cigarette completely before beginning the quiet walk home.  
+   
+I’ll meet him there.  
+   
+The entrance to his apartment building is dimly lit. He goes to open the door, but the frame is jammed. He kicks it, using his shoulder to forcefully shove the warped wood open. The stairs and hallway are stained with unknown materials—his only true welcome home.  
+   
+He unlocks his apartment door and walks into the dead center of the dark room, where a lightbulb pull-string hangs from the ceiling. He yanks the cord, and a sharp pop echoes through the space. Shattered glass rains down over him. Dane completely breaks, and he cries. I listen.  
+   
+The tears eventually dry, and he uses an old newspaper to sweep up the mess. He changes out of his brown suit, hanging it on a lone hook by the door. On the windowsill, his fresh pack of smokes and his lighter are practically yelling at him. He moves to open the window, leaning dreadfully against the frame. There are still people walking on the street below, but they pay me no mind.  
+   
+I am here.

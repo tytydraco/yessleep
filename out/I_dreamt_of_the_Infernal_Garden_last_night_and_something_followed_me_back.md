@@ -56,7 +56,7 @@ I woke up after seeing it. I am writing now because I need to know what is real 
 
 My room is almost unchanged. It is dark, familiar, and comforting. But I can still smell the garden. 
 
-The sweet stench of rot is thick, coating my mouth with every breath. I tried telling myself that it was nothing more than a lingering dream, but the growth on my wall tells me something else. Something is growing through it. I do not know how to describe it in a way that makes sense. It is not on the wall. It is inside it, pushing outward.
+The sweet stench of rot is thick, coating my mouth with every breath. I tried telling myself that it was nothing more than a lingering dream, but the growth on my wall tells me something else. Something is growing and living inside the sheetrock of my house. 
 
 The wound crawls with thin black roots, moving and searching for something. 
 

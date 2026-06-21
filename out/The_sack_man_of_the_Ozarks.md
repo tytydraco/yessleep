@@ -1,0 +1,73 @@
+**My grandfather used to tell me stories that his older family members told him when he was growing up in the Ozarks, this one was always the one he told around the campfire to his children and lots of older people around my town tell this story to creep out there grandkids**  
+**It normally goes something like this**
+
+Long before paved roads crossed the Ozark Mountains, when families lived in lonely log cabins separated by miles of forest, children were taught to fear one name above all others.  
+**The Sack Man.**  
+Parents never spoke his name loudly, especially after sunset. If they had to mention him at all, they lowered their voices, as though someone might be listening from the trees.  
+No one knew where he came from.  
+No one knew where he went.  
+All anyone claimed to know was what he looked like.  
+Every telling of the story described him the same way.  
+A heavy burlap sack hung over one shoulder, filled with dry sticks, bark, and kindling collected from the forest floor. At his hip rested a **small woodsman’s axe**, its wooden handle darkened from years of use. The blade was always said to be clean, as though it had been sharpened only moments before.  
+Beside it hung a **long, narrow fillet knife** in a worn leather sheath. Old mountain folk claimed he never let the blade rust, no matter how long he wandered the hills.  
+Parents would tell their children:  
+“If you ever see a bearded man carrying nothing but a sack, a little axe, and a long knife, don’t wait to see what he’s doing. Run home.”  
+The axe was said to be used for splitting kindling and cutting a path through the thick Ozark brush. The knife was another unsettling detail repeated in every version of the tale. No one could agree why he carried it, but every storyteller insisted it was always at his side.  
+As the story spread from one mountain hollow to the next, people forgot many details.  
+They forgot the color of his shirt.  
+They forgot how tall he was.  
+But they always remembered the sack on his back…  
+…and the two blades hanging from his belt  
+People said if you ever saw him standing at the edge of the woods, you were already too late.  
+Children who disappeared were simply said to have been **“taken by the Sack Man.”**  
+Whether every disappearance was truly his doing didn’t matter.  
+The warning did.  
+If you think you’ve seen someone standing between the trees, go inside. If you look twice and he’s still there… he’s looking back.”  
+In the summers the hottest nights forced families to leave their cabin windows open.  
+Children were always told not to sleep beside them.  
+The old folks said the Sack Man could slip through an open window without making enough noise to wake a dog.  
+If a child vanished during the night, the window was always blamed.  
+By morning, only the curtain would be moving in the breeze.  
+During the autumn months as the nights grew colder, fireplaces burned until everyone had gone to bed.  
+Parents warned children never to linger near the hearth after the fire had burned low.  
+Some said the Sack Man climbed onto cabin roofs and eased himself down wide chimneys while everyone slept.  
+Others believed that was only a story meant to frighten children into staying in bed.  
+Either way, no child wanted to hear a faint scrape coming from the chimney after midnight.  
+In the chill winters when snow covered the mountains, every family depended on the woodpile.  
+Children were often sent outside to bring in another armful of firewood before bed.  
+Old mountain families warned them never to go alone.  
+They said the Sack Man knew that sooner or later, someone would have to step outside.  
+He waited where the trees met the clearing, hidden behind stacked logs or fallen timber.  
+If the woods suddenly became quiet…  
+You were supposed to run.    
+After a child disappeared, families sometimes noticed a few pieces missing from the woodpile  
+Never enough to matter.  
+Just enough to keep a fire going a few hours longer.  
+During the wet rainy springs people would often spend much of there days planting and repairing crop fields, or lazily dozing around the house.  
+The story said the Sack Man would sometimes visit cabins before dark when people weren’t watching too carefully.  
+Not to enter.  
+Only to make sure he could later.  
+He was said to slip a thin needle into the latch of a cabin door so it wouldn’t catch when locked.  
+The family would believe they were safe.  
+But while everybody went to sleep and dreamt  soundly the door slowly began to drift open.  
+No broken lock.  
+No smashed window.  
+Just a door that hadn’t stayed shut.  
+The oldest versions of the story all agreed on one thing.  
+The Sack Man never called out.  
+He never knocked.  
+He never chased children through the woods.  
+He waited.  
+He watched.  
+He never had to hurry…  
+Some children claimed they found small carved sticks near cabin doors after hearing strange noises at night.  
+Parents would quietly throw them into the fire without saying a word.  
+He looked for the child who wandered too far from home, stayed outside after dark, or forgot the warnings they’d been given.  
+Parents would point toward the dark tree line and quietly remind their children:  
+“The Sack Man doesn’t take the ones who stay close to home.”  
+As the years passed, the story spread from one mountain hollow to another. Every family added something different. Some said his beard was gray. Others swore it was black. Some claimed he whistled softly before he came. Others insisted the only sign of him was the smell of fresh-cut wood drifting through the night.  
+But every version ended the same way.  
+If your mother called you home before sunset…  
+You came home.  
+Because whether the Sack Man was only a story or a real man hiding somewhere in the Ozarks didn’t matter.  
+No child wanted to be the one who found out
