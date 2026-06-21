@@ -1,0 +1,136 @@
+ You know those screensavers your smart TV scrolls through when you're not using it? It’ll be pictures of flowers or canyons or beaches. Crazy rock formations or whatever. 
+
+ It cycles through them, seemingly randomly, and always has the photographer labeled in the corner. You know what I mean right? 
+
+ Did you know it's not always random? Some companies have specific orders, some photographers even pay just to have their photos used, like most stuff it all boils down to money. 
+
+ But if you ever, and I mean this, if you ever see one that doesn't… that doesn't look *right* then turn your TV off. Throw it out the window, burn it, toss it in a lake. If there's no photographer labeled, or their name is too familiar, or the picture is somewhere you know, toss the fucking thing. 
+
+ I'm speaking from experience, so trust me. But let me backtrack and explain a little bit. 
+
+ I had just gotten fired from my job, a job I really liked. It paid well, I liked my coworkers, but my shitty boss fucked up and I paid for it. Got blamed for something I didn't do and ended up taking the brunt of it. I was in shock, broken, dejected. I just laid in the dark of my room, frozen. 
+
+ After a few days I managed to turn on the TV on one morning and plug my laptop in. I scrolled through TV shows and anime and documentaries and movies, but I couldn't bring myself to pick anything. 
+
+ I ended up sliding my laptop to the side and just staring at the screensavers cycling through on the smart TV. The pictures passed by slowly, excruciatingly. I found myself almost entertained, waiting, trying to guess when it would switch, trying to figure out the pattern, or if there was any. 
+
+ The day turned to night as I sat there, watching pictures on my TV swap in and out. I managed to find a pattern for awhile, it would usually be some sort of flower, then a beach, then a city, then a rock formation whether it was a mountain or a canyon. 
+
+ But a few hours after the sun had set, the pattern changed. When it should have swapped to a flower, it turned into a foggy street, and the photographer was named Ethel Sparks. 
+
+ That shocked me for a second, that was the name of my first grade teacher. Mrs. Sparks had been an eccentric Miss Frizzle type, minus the bus, who loved to entertain her kids. At first I figured it had to be a coincidence, and then I decided “no, actually I hope she got into photography, good for her” and almost picked up my phone, for the first time since I got fired, to google it. 
+
+ Almost.
+
+ Then it changed again. This time it was a well lit, large building. The windows were illuminated in a visually pleasing array and framed perfectly in the center of the photo. I was admiring the forethought it took to notice something like that, when I realized two things. One. there was no name for the photographer
+
+ That was new, there was always a name. I had thought “there has to be a name, there's no way a name brand company is robbing people” and then I remembered how awful my job had been and frowned, realizing there was definitely a way. 
+
+ I was about to make sure my old teacher hadn't been robbed by this company too, when I realized the second thing that was wrong with the picture.
+
+ I knew that building. I knew that building very well, in fact. I squinted, finally getting off my bed for a reason other than to piss, shit, or pick up doordashed fast food and alcohol. 
+
+ In the corner, just barely visible, was me, heading into work. The building was my old job, and I was even in this photo. 
+
+ I laughed, I thought it was a crazy coincidence. After all, it's not like I was the subject of the photo, someone had clearly thought the windows looked nice and I was just a casualty. 
+
+ I laughed so long that I didn't notice when the photo swapped. I wiped the tears of mirth from my face and looked back up, making my heart drop. 
+
+ It was a man with a grizzled beard wearing a gray jump suit, staring at me on the screen. I jumped back onto my bed, my blood thrumming in my veins as my mind went into panic mode. The man didn't move, he just stared at me through the screensaver.
+
+ I breathed heavily, holding my chest as my body registered that it was just a picture. Was that supposed to be a joke by the programmer? You sit long enough in the screen savers and his most terrifying selfie shows up?
+
+ I should have turned it off right then. I should have thrown my TV into a lake and gone off the grid. But I was curious, I wanted to see the next photo. 
+
+ It felt like it took a lot longer to change. I sat there on the edge of my bed, staring at the unkempt man for what felt like forever. Right when I was about to grab my phone, and start a timer, the photo changed. 
+
+ It was a beautifully decorated classroom in golden, afternoon light. Streamers and kids drawings and paintings illuminated the autumn colored room. 
+
+ Sitting at a desk was a middle aged woman with big laugh lines and even bigger hair. 
+
+ “Miss… Sparks…?”  I breathed out loud unconsciously. 
+
+ As soon as I did the image swapped again, except it was just the angle, lower and in a different corner. The photo still took place in the same room, however this time Ethel wasn't alone.
+
+ The unkempt man was standing behind her and looking directly at the camera, a bloodstained knife already in his hand. 
+
+ “No… No… Ethel!” I called out, my unused voice sounding weak. 
+
+ The image changed again, Ethel was slumped over her desk, blood dripping onto the floor, and the unkempt man was crouching down to look at the camera.
+
+ I turned the TV off immediately, and puked into my bedside trash can. 
+
+ I grabbed my phone, and started trying to find anything I could about her being murdered.
+
+ Nothing, in fact, it looked like she didn't even teach anymore, she was living with her new wife on a ranch in the country according to her social media posts.
+
+ “Good for her…” I breathed out a sigh of relief. I thought I had to be imagining things. I had barely moved for days now, hadn't left the apartment complex at all. I must have given myself zoochosis or something. 
+
+ Or maybe not. I wanted to know for sure.
+
+ I grabbed the remote, and I clicked the power button.
+
+ There was no logo for the brand as it powered on, which should have been my first hint. 
+
+ The first picture it displayed was completely normal. One I had seen before in fact, a close up of a daffodil. In fact the next ten images, which passed by excruciatingly slowly, seemed to be totally normal. 
+
+ Or at least I thought so. However on the eleventh I finally realized there was something off. 
+
+ In the top right corner of the image, barely even visible unless I got up and looked right at the TV, was a strand of hair hanging down. 
+
+ I furrowed my brow, trying to remember if that had been there the last time, when the next image popped up.
+
+ It was a field of sunflowers, one I had definitely seen before. Sunflowers had been my moms favorite, so I remember taking a long look at that image last time. 
+
+ And I was positive there wasn't supposed to be a figure in a gray jumpsuit with its back turned towards me in the bottom left corner. The lettering on the back of the fiigure’s jumpsuit was unreadable, and as I tried to get a closer look, it’s head turned almost imperceptibly. 
+
+ I took a quick step back, and the image changed again. This time a beautiful lush canyon from the last rotation. Once again, at the top of the screen, were strands of hair, this time coming down from the entire length of the top of the screen. 
+
+ I wanted to run, but where would I go? I had no family, no friends, my old coworkers wanted nothing to do with me after I was blamed for things going wrong, 
+
+ I grabbed my head and pulled at my hair, slapped myself in the face a few times. I got mad at myself, and then I got mad at the TV.
+
+ “Fuck you! Fuck you! Fuck you!” I closed my eyes and yelled to the world. My upstairs neighbors pounded on the floor, their way of telling me to keep it down back when I did things other than rot in bed.
+
+ I tried to find the remote, I had left it on the front of the entertainment system my TV rested on, but it was difficult with my eyes shut. I scrambled around frantically trying to find it, before I resigned myself to opening my eyes and seeing what awful thing the screensavers might show me this time.
+
+ When I opened my eyes, my blood froze. Hanging upside down with a wild smile, was the unkempt man. His grin was impossible, his teeth were bright white and too perfect, which didn't match his scraggly appearance. 
+
+ Worse than that, he was holding something, and I recognized it instantly. It was my remote. I looked down at the entertainment system, realizing it wasn't there, and back up.
+
+ I watched the man wink, and click the power button. My TV turned off. 
+
+ I sat back on my bed, and wrapped myself in blankets. The man had my remote. Did that mean he could come back anytime, turn my TV on whenever he wanted? 
+
+ I laughed. I laughed and laughed and laughed, after all if that was his master plan, I'd unplug the fucking thing. In fact, I threw on real, clean clothes for the first time in almost a week, and carried the TV downstairs. 
+
+ I saw some teenagers throwing glass bottles around and just being general hooligans. I thought I couldn't be any luckier.
+
+ “Hey!” I shouted and the kids froze up, eyes wide, realizing they could be scolded. “Wait hold up, I don't care about the bottles as long as you sweep it up. I need a favor.”
+
+ A tall kid with curly hair, clearly the defacto leader of the group, stepped forward sizing me up.
+
+ “Okay.. what…?”
+
+ “My girlfriend cheated on me with the guy who owns this TV. I'll give you twenty bucks to split with your buddies if you beat the shit out of this TV.” I held out the bill. Even with no job, twenty dollars seemed worth it to me. 
+
+ “Say less.” The kid snatched the money and the TV from my hands, and immediately launched it at a wall. The screen shattered and the plastic frame crumpled. I smiled warmly as I watched the kids have fun breaking the damn thing. When they were done, I went back up to my room and started applying to jobs. 
+
+ I even got a pretty decent one, my interview was yesterday and I aced it, but I have a feeling I won't make it to orientation. 
+
+ I never got around to setting a wallpaper on this thing, and I always have multiple tabs going, so behind the work I was doing, my laptop had been cycling through screensavers. Flowers and canyons and beaches and forests were the backdrop to my cropped tabs.
+
+ You see, I only started this post because I saw a strand of hair hanging down from the top of my computer screen. 
+
+ And now I have to go.
+
+ Because his upside-down eyes are peeking over the tab right now.
+
+ 
+
+   
+   
+ 
+
+   
+ 
