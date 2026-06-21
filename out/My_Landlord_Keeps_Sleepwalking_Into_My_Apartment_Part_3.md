@@ -1,0 +1,227 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1u9w59n/my_landlord_keeps_sleepwalking_into_my_apartment/)   [Part 2](https://www.reddit.com/r/nosleep/comments/1uarb37/my_landlord_keeps_sleepwalking_into_my_apartment/)
+
+Mr. Curl was sitting on his porch when I walked up.
+
+A newspaper rested on his lap.
+
+A coffee mug sat beside him.
+
+He looked up as I approached.
+
+The smile disappeared from his face almost immediately.
+
+His eyes dropped to the phone in my hand.
+
+Then back to me.
+
+"You put up a camera."
+
+It wasn't a question.
+
+I slowed.
+
+"Mr. Curl, we have to talk-"
+
+"I don't appreciate being recorded."
+
+The friendliness I'd seen since moving in was completely gone.
+
+His voice had hardened.
+
+"I'm not recording your house."
+
+"You put a camera on my property."
+
+"It's pointed at my front door."
+
+"I don't care what it's pointed at."
+
+He stood.
+
+For a moment I forgot how old he was supposed to be.
+
+The movement was quick.
+
+Too quick.
+
+"You should've asked."
+
+I stared at him.
+
+"Asked what?"
+
+"Permission."
+
+The word came out sharp.
+
+His jaw tightened.
+
+Then, just as suddenly, the anger vanished.
+
+The smile returned.
+
+Just enough to look wrong.
+
+"You know," he said quietly, "most people would've been grateful for a place like this."
+
+I didn't answer.
+
+"Rent's half what you'd pay anywhere else around here."
+
+His eyes drifted toward the apartment behind me.
+
+"I could've rented it to someone else."
+
+The smile never quite left his face.
+
+"Instead, I decided to help you out."
+
+I tightened my grip on my phone.
+
+"I didn't ask for a favor."
+
+Something shifted behind his eyes.
+
+Not anger.
+
+Irritation.
+
+Like I'd forgotten my place.
+
+"Be careful," he said.
+
+His voice was calm.
+
+"Don't take my kindness for granted."
+
+Neither of us spoke for a second.
+
+Then he added:
+
+"You don't want to find yourself looking for somewhere else to sleep."
+
+The words settled heavily in the air between us.
+
+I stared at him.
+
+Trying to decide whether I'd just been threatened.
+
+Mr. Curl picked up his mug.
+
+Took a sip.
+
+Like we'd just finished discussing the weather.
+
+I turned and started back toward the apartment.
+
+Halfway across the yard, I looked back.
+
+Mr. Curl was still standing on the porch.
+
+Watching me.
+
+The newspaper hung forgotten at his side.
+
+The coffee sat untouched beside him.
+
+He hadn't sat back down.
+
+He hadn't moved at all.
+
+Just stood there.
+
+Watching.
+
+Waiting.
+
+Like the conversation hadn't gone the way he'd expected.
+
+The further I got from the porch, the more irritated I became.
+
+I'd spent all morning working myself up to that conversation.
+
+I'd replayed the footage.
+
+Timed the laps.
+
+Gone over every detail until I was sick of looking at it.
+
+And somehow I'd walked away without a single answer.
+
+The footage.
+
+The circling.
+
+The shadow beneath the door.
+
+The Ring camera.
+
+None of it had come up.
+
+The second Mr. Curl saw the phone in my hand, the conversation became about me.
+
+About permission.
+
+About gratitude.
+
+About how lucky I was to be living there.
+
+By the end of it, I felt like I'd been called into the principal's office.
+
+I stopped at the door and looked back one last time.
+
+Mr. Curl was still standing on the porch.
+
+Still watching.
+
+My jaw tightened.
+
+I wasn't scared.
+
+At least that's what I told myself.
+
+Mostly I was angry.
+
+Angry that he'd dodged every question.
+
+Angry that I'd let him.
+
+Angry that somehow he'd managed to make me feel like I'd done something wrong.
+
+I unlocked the apartment and stepped inside.
+
+The camera sat exactly where I'd left it.
+
+Pointed at the door.
+
+I tossed my keys onto the counter and froze.
+
+Mr. Curl had known what was in the box.
+
+Not just that I'd ordered something.
+
+He'd known it was a camera.
+
+I looked up at the shelf.
+
+The apartment didn't have any windows facing the yard.
+
+No angle from the porch.
+
+No way to see it from outside.
+
+At least none that I could find.
+
+I stared at it for a long moment.
+
+Maybe I'd been asking the wrong question.
+
+Maybe the problem wasn't what the camera had recorded.
+
+Maybe the problem was what it hadn't.
+
+I glanced toward the main house.
+
+Mr. Curl had already disappeared inside.
+
+If he wasn't going to give me answers, maybe his house would.
