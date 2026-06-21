@@ -168,13 +168,13 @@ My older sister was standing there.
 
 And beside her… was me.
 
-Not them, of course. But the first few seconds played out and I knew exactly what they were imitating — or replaying.
+But it wasn't my sister, of course, nether was it me. But the first few seconds played out and I knew exactly what they were imitating — or replaying.
 
 It was a memory.
 
 One I’d buried deep.
 
-The night I said something cruel to my sister. Something I still don’t like talking about. She’d been sneaking out with boys, and I said something I never should’ve said. She ran to her room and cried quietly for an hour. I hated myself for it then, and seeing it now — seeing them reenact it — made the guilt feel fresh and sharp again, like it had only happened yesterday instead of eleven years ago.
+The night I said something cruel to my sister. Something I still don’t like talking about. She’d been sneaking out with boys, and I said something I never should’ve said. She ran to her room and cried quietly for an hour. I hated myself for it then, and seeing it now — seeing them reenact it — made the guilt feel fresh and sharp again, like it had only happened yesterday instead of twelve years ago.
 
 Sixteen minutes later, their shapes shifted.
 
@@ -221,7 +221,7 @@ At work, I kept zoning out until coworkers snapped me back. Sleep became difficu
 
 But no matter what I did, the memories lingered — sharper than they’d been in years.
 
-And like always, days kept merging together. Work was the same, and so was household life. Halloween passed — a very terrifying one at that. A haunted house had opened up there. I wasn’t disappointed by it, and there was a hay maze as well. I’ve not been a fan of them since I got lost in one as a kid. Mazes creep me out — the atmosphere is disturbing, and the fact that anyone or anything could be in there with you is a whole other level of creepy.   
+And like always, days kept merging together. Work was the same, and so was household life. Halloween passed — a very terrifying one at that. A haunted house had opened up there. I wasn’t disappointed by it, and there was a hay maze as well. I’ve not been a fan of them since I got lost in one as a kid. Mazes creep me out — the atmosphere is disturbing, and the fact that anyone or anything could be in there with you is a whole other level of creepy.  
 While writing this, I just remembered something. after Halloween, me and her were watching some TV, Charrie said she was tired and heading to bed, and I heard her footsteps fade upstairs. About an hour later, there was a knock on the pantry door. Then her voice came through.
 
 **Not Charrie:** “Hello? Can someone open the door for me? Josh? You there?”
@@ -230,8 +230,8 @@ I started toward the kitchen before it hit me — Charrie was upstairs and aslee
 
 The voice sounded exactly like her. Same tone, same rhythm, even the little pause she always makes before saying my name. I stood there listening, trying not to breathe. It knocked again, softer this time.
 
-I didn’t answer. I just waited until it stopped. Then I made a note to buy more candles tomorrow and tried not to think about how even inside isn’t safe anymore.  
-  
+I didn’t answer. I just waited until it stopped. Then I made a note to buy more candles tomorrow and tried not to think about how even inside isn’t safe anymore.
+
 Then Thanksgiving passed, uneventful. Everyone came over. Charrie was stressed for the first half, but Fawna and Laura visited to help her. Two turkeys and many dishes later, it was finished, and everyone loved their cooking. Sorry, I’m getting off track.
 
 It was January when it happened. Strange — it felt like Christmas was yesterday. You know, I wondered what happened to the Blood Moons in the town. I looked it up, and two had already passed while we lived here, and I didn’t see one.
