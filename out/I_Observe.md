@@ -1,3 +1,5 @@
+I Observe Dane Miller
+
 The night hangs over the sky with absolute authority. The ground is wet from a storm that swept through during the day, and a strong breeze kicks leaves and trash across the dead city street. Dane Miller leans out the window of his decrepit apartment. Not a soul moves on the pavement below, but I observe.  
    
 He’s tired. He leans too heavily into the window frame for someone who acts jovial during the day. He sighs, blowing another cloud of smoke from his lips; it no longer stings his eyes. There is no emotion left on his face, but I know he wants to go to bed and never wake up. He looks at his watch—it's 2 AM. I know he always stays up late.  
