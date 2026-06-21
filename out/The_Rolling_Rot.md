@@ -1,0 +1,357 @@
+Human skin is marred by oils and buildups that are to be expected, as we produce them daily. Mine, however, is currently plagued by perhaps; no, without doubt, the single most vile assortment of foreign materials that I could possibly fathom.
+
+&#x200B;
+
+I say this while writing in an attempt to distract myself simultaneously from the putrid accompaniment my largest organ is currently faced with, and the searing full body pain I am experiencing with my skin beginning to blister after the redness set in and my flesh had properly swollen from the bleach I was bathing in a few hours ago. Though admittedly the latter is more importantly helping to distract from the former.
+
+&#x200B;
+
+I feel as though I should see my actions as insane, but frankly this disease to my sanity, this rot soaked skin I am struggling to alieve myself of, has bothered me to a point I have no power left to question any form of potential relief.
+
+&#x200B;
+
+While the smell, taste, and feel of my existence are painfully offensive at this moment, why I need to write above all else is to alieve my mind of the memory I just experienced. I apologize, I could not carry it myself, though for you, who have not gone through the actual experience, I imagine this will be nothing more than, at worst, a distasteful mental image.
+
+&#x200B;
+
+To preface, I do not like being dirty. I'm not to a point of being considered a clean freak or someone suffering from OCD, but I do not like feeling greasy, having bugs touch me, or walking barefoot as the sensations make me feel as though something is just wrong. I can still stand most situations without major issue, which is why, adorned with a healthy amount of bug spray, I was alone in the woods.
+
+&#x200B;
+
+I live in a town I will avoid naming, located in Upstate New York, which are often surrounded by wooded areas, as mine also is. Having the freedom of adulthood, I chose to take a small excursion to my families cabin, a small one, but still cozy, and for the first time, I was alone instead of accompanied by my grandfather as was normal during my childhood.
+
+&#x200B;
+
+My plan was just to enjoy myself, I had brought a few things, but the plan was to take a few days to relax and enjoy nature, something I usually avoid, but decided to suck up and give an earnest attempt to appreciate. So after putting it off the first day, I set out early the next day and walked out to the woods.
+
+&#x200B;
+
+I kept track of my direction, but to be honest, not many miles would stand between me and a road if I truly did get lost. The day was enjoyable, aside from swatting away the occasional gnat that flew too close to my face. The woods were quiet, and while I am prone to anxiety, I was surprisingly relaxed during my walk. Being able to breathe in the scent of the towering trees and feel the gentle breeze that carried it on my face. Once it began to hit afternoon I chose to turn back, which I was quite proud of when I arrived back as it began to ever-so-slightly get darker out, meaning my timing was impeccable. The rest of the day I spent in the cabin or on the porch, with some snack or drink in hand a majority of the time, doing what amounted to a grand nothingness beyond listless stares into the skyline.
+
+&#x200B;
+
+Thus I was set to do the same the next day.
+
+&#x200B;
+
+Waking up earlier then the day before, the sun had not rose, but the time was similar to when I would be shoken awake to put on my orange garb and set out carefully watching the angle my rifle would be pointed while we trecked out when I had done so alongside my grandfather. So I decided to setout earlier then the day before, with the mindset I could enjoy nature for longer.
+
+&#x200B;
+
+Fuck, if only I hadn't wanted a "longer" time.
+
+&#x200B;
+
+I had set out in a slightly different direction this time, hoping to enjoy some new sights, even if just an intresting fungus upon a tree.
+
+&#x200B;
+
+Everything felt wrong.
+
+&#x200B;
+
+Walking slowly in the dim light before the sun properly rose, my previously absent anxiety had found itself rising to my throat, though I did my best to stifle it and continue, thinking that once the sun broke the horizon I would then be freed from this worry of the shadows and small noises around me.
+
+&#x200B;
+
+This did not happen.
+
+&#x200B;
+
+Once the sun properly broke past the distant hills, my visibility improved, but my worry did not. I continued to ignore it, attempting to mimic my previous day's enjoyment. While I was able to mostly distract myself, nothing felt exactly right. When I closed my eyes to breathe in the cool, fresh air, instead I was met with what I could only describe as stale, with some scent I couldn't pin ever so slightly dancing upon the winds I inhaled.
+
+&#x200B;
+
+All of this was nearly forgotten as I passed a few more trees and found a large, straight path. 
+
+&#x200B;
+
+Though it looked more as though a large, heavy vehicle had rolled through, like a steam roller, pressing the dirt down a few inches with a complimenting rise on each side.
+
+&#x200B;
+
+With neither end of the path visible and it stretching nearly thirty feet across, the path was strangely straight. It was also clear of any debris aside from rocks pressed into the path. I was truly confused, as this made it seem as though I could expect construction to be going on around nearby, yet nothing but woods stretched on in both directions. Notably, the dirt on the edges seemed loose, as if this was made recently, maybe just a day or so ago, though I am not exactly one who would be able to accurately surmise that.
+
+&#x200B;
+
+Slowly walking on the path, still bewildered at it's appearance, I noticed a dark patch about 30 feet up the path, or down it, I would not be who decides. My curiousity peaked, and I slowly, almost in a trace walked towards it.
+
+&#x200B;
+
+The smell hit me first, though the dark patch wasn't the source, rather it felt as though the air around me had adopted the ability to offend. Covering my nose, I approached the patch and with it only a few feet away, I began to understand what it was.
+
+&#x200B;
+
+Flesh.
+
+&#x200B;
+
+Seeming sloughed off, from what, I could not tell. The leftovers of a coyotes meal would've been my guess, but quickly my theory would be proven wrong. This was due to the new realization that brought itself to my attention. A low rumbling had begun, from the same direction of the path I had been walking for my prior curiousity. Stepping past the flesh I only made it about four steps when I saw what had caused the rumbling. At first, I believed it to be a mud slide, though slower than I'd ever imagine them being able to accomplish. Some part of me was reminded of the molasses floods I read of when I was younger. Then I was able to see what layed ahead in clearer detail, and, unfortunately smelled it too.
+
+&#x200B;
+
+Rotting flesh, puss, bile, brought together by various sinew lattices.
+
+&#x200B;
+
+My heart caught in my chest at the honestly horrific mass approaching me at a crawl. As I said though, the smell had fully arrived now. Which made my head light and vomit rise to the back of my throat. Both of the senses being assaulted were further made distraught when the mass, rolling and lurching forward, like a conveyor brought a milky eyed main mass up, which resembled a bloated corpse, rotting and connected at the hips with arms hanging uselessly at it's sides. The mass stetched on as far as I could see, and while that should bring numerous more observations and questions to mind, the odour had thoroughly broken through my ability to withstand, causing me to back away slowly.
+
+&#x200B;
+
+And then my foot hit the flesh.
+
+&#x200B;
+
+With my attention completely absorbed into the horror encroaching these woods, the flesh and my distracted mind were enough of a combination to catch my balance completely off guard, and before I could even properly pull my hand away from my nose to catch myself, my skull was introduced to an unfortunately placed stone just not flush enough with the path for my head to still hit it hard as my world snapped to black.
+
+&#x200B;
+
+Sitting here now, I wish I had stayed in that world of black, silent, nothingness.
+
+&#x200B;
+
+Instead I awoke to a searing pain where my head had met the stone, coincidentally causing my vision to be blurred as I tried to focus myself enough to be aware of what's around me. Before I could properly see, I could smell, and with every fiber of my being, I wished this to not be true, as the most horrendous scent washed over and into me. Rotting meat mixed with burnt hair, spilled trash bag juices rolled up with cheese fermeanted in the recesses of some random basement, excrement and mildew, every single nauxious smell amalgamating into something beyond words. Tears weld in the corner of my eyes, not due to the smell burning them, but rather from the instant sorrow I felt at being forced to experience the smell.
+
+&#x200B;
+
+Then I heard the rumbling, this time grand in how loud it had grown, but also in how much I felt it in every fiber of my being, the sensation doing nothing to help my aching cranium.
+
+&#x200B;
+
+With my severe pain and assaulted senses, it is understandable that I had not realized what this all meant. That was until my vision cleared partially, and I saw it.
+
+&#x200B;
+
+Eight feet away, was the entirety of the mass.
+
+&#x200B;
+
+Unfortunately, it took me several seconds to process what that meant. Which happened to be enough for the slow moving nightmare to close half of that distance. At this point even a concussion wouldn't be enough to stop me from realizing the immediate danger I was in. Sadly it was enough to stop me from being able to respond quick enough so that my slow backing away was halted by a pressure covering my foot.
+
+&#x200B;
+
+It had rolled onto me.
+
+&#x200B;
+
+I began to panic, pulling my leg back as hard as I could fruitlessly as the diseased mass was too big for me to fight. It continued moving, covering more of me as I began to thrash and scream, that last part ending in a choked gag as the rancid smell and swarming flies took advantage of my mouth agape to further my absolute disgust. The mass had already moved from my foot to my knee, covering my other foot during the time I had been caught up by the foul air. 
+
+&#x200B;
+
+I thought I would die then, and I wish I had. As I relented inch by inch of my own being, I felt the abominations greasy, soft, and practically melting flesh coat every inch of my exposed body. It was a slimy, vile sensation, and made me wish I could just chop my now tainted legs off. That thought would quickly be replaced when my waist began to be covered, and dread filled my soul to its deepest recesses. The weight was crushing, and while it pained me, the overwhelming disgust I felt outweighed that.
+
+&#x200B;
+
+I laid on my back, tears rolling down my face as I left small trails of blood in the dirt as I clawed desperately. This helped naught.
+
+&#x200B;
+
+Soon the mass reached my chest, the pressure made each breathe a struggle, and the smell permeated every cell in my nostrils. I felt the smell as a thick miasma on the back of my throat, no amount of gagging would free me from. Being able to see the rotting being up close was truly terrible, the ripped and melting flesh, tinged with dark shades of green and blackened flesh, poisoned blood and yellow bile, and thick patches of white writhing flesh that did not belong to the mass, but rather were the incorporation of countless maggots that had taken the rolling abomination as their home.
+
+&#x200B;
+
+Every single thing I just described was now covering up to my throat, my arms now pinned at the shoulders. I was completely helpless, my breathless begging reaching no person or god beyond the decayed one who now encroached my chin. Breathing was now difficult, with my chest and throat now being pressed down on. Even so, my mouth was shut tight, as I knew the mass would soon reach it, and a proper breathe would not be worth the horror of the mass overtaking me with an open mouth. 
+
+&#x200B;
+
+Even then, the rot managed to seep through my lips, immediately triggering me to vomit, a substance that was exponentially cleaner then anything around me. Aside from what leaked out due to the pressure in my mouth, the rest I was forced to swallow, yet this was not much of an issue when compared to what other horrors consumed me.
+
+&#x200B;
+
+My nose followed my mouth only moments later, the pressure was significantly more upsetting here as the cartilage was pressed down aggressively. The scent did not change much, but having the pure, in the filthiest sense, scent being deposited by the various oozes protruding from every possible escape this being possessed is an experience I wish not on the most monstrous person.
+
+&#x200B;
+
+Now the part I had dreaded the most had finally arrived. 
+
+&#x200B;
+
+The mass had arrived at my eyes.
+
+&#x200B;
+
+The fumes stung my retinas, and I sealed them shut in anticipation. But this did not halt the horror I felt in my heart as the last of me was covered. 
+
+&#x200B;
+
+I was naught but the dirt under the being now.
+
+&#x200B;
+
+Every cell in my body was now filled with the stench of my oppressor, being repeatedly violated as I could swear that my skin could smell and all of it simultaneously recoiled as much as it realistically could while blanketed by rot as it currently was. I felt the flesh sliding constantly down my body, unrelenting in it's quest to have me experience sensations that not even the most depraved devil would accept.
+
+&#x200B;
+
+My skin itched, it stung, it burnt as maggots, bile, and flaying flesh brushed it nonstop. Yet I had no earthly way of scrathing that itch, alieving that sting, halting the burn. All of them instead spread until every bit of me had the same sensation with equal disgust.
+
+&#x200B;
+
+My mind was swarmed with wishes of death.
+
+&#x200B;
+
+Some say death is the ultimate punishment. They are wrong. I would readily accept death for relieve in that moment, but death would not come, only more of the beast above me. My concussed mind was too panicked for proper thoughts to formulate beyond absolute fear and disgust.
+
+&#x200B;
+
+Even a second of this was worse then any torture I can possibly imagine.
+
+&#x200B;
+
+Yet it continued hour by hour.
+
+&#x200B;
+
+After the first thirty minutes, mouth closed I screamed into the mass, feeling my mind almost break as I yelled like I could command the thing violating my flesh off of me. I could not.
+
+&#x200B;
+
+I never grew numb of the smell, it was not something I believe you could ever. The feeling also never became tolerable, the nature of the being made it impossible as new filth touched upon me endlessly restarting the sensation of vile oils condensing on me before being spread like butter over bread. My ears no longer heard properly, the sludge the being was producing endlessly had seeped around them and drowned out the low rumbling around me in all but the way it moved my chest with its presence. I am forever grateful that when the maggots found my ears, they were never willed past my exposed ear into the intriguing tunnel of its canal.
+
+&#x200B;
+
+At the second hour I thought my mind might die. Repeatedly drinking my own vomit to not drown, tasting, smelling, feeling, and all but seeing this rotten demon in an unending cycle. While my suffering was not numbed, my thoughts were, I had lost all emotion beyond overwhelming despair. Sobbing internally with what I would imagine being glazed over eyes that had lost all hope.
+
+&#x200B;
+
+Then my nose broke.
+
+&#x200B;
+
+The pressure must've been too much, I hadn't processed the steadily growing pain and a particularly dense patch must have slid onto it, crushing it nearly flat. 
+
+&#x200B;
+
+The smell and taste of blood only temporarily relieved me of the all-consuming one around me. Then, my situation worsened as I was forced to open my mouth. It was my only way to breathe now, between swallows of irony blood, was to open my mouth slightly to let some rancid oxygen into my lungs. The rotting sludge seeped through that gap my opened lips made, forcing me to stomach swallowing the unholy concoction of my own blood mixed with rotting, liquified flesh and the occasional maggot. Feeling a slightly solid thing go down my throat filled me with horror every time it occured. Yet I had no choice but to persist in order to breathe.
+
+&#x200B;
+
+I know not when it occured as the hours had long since blended together, only that it did, when for a short time the pressure on my face disappeared. The rest of me was still trapped, but starting at my forehead the pressure released. Once my eyes were free from the pressure I opened them in a squint, hoping too see freedom.
+
+&#x200B;
+
+Freedom was not what I saw.
+
+&#x200B;
+
+All I saw was more flesh and decay. Only visible due to some faint light that found lucky areas with thin enough skin throughout and large enough internal pools of bile and puss. I rolled my eyes up to the top of my skull, straining to look as my mind just wished for something to bring hope to my nightmarish situation. 
+
+&#x200B;
+
+What I saw was the reason for my temporary relief, as I noticed the bloated corpse from before, its heft being rolled under, propping up the flesh just before it's arrival. Its head seemed to have became stuck in the flesh behind it temporarily, as it was not rolled under the mass but instead looking back at me.
+
+&#x200B;
+
+It's eye were milky white, mouth loosely open with a toothless maw that released maggots sporadically with a  nearly black tongue rolling out, purple and swollen. Fear gripped me as it reached me, afraid for what could happen. Would it consume me? Scream? No it seemed lifeless, just a more intricate part of this maggot feast.
+
+&#x200B;
+
+I shut my eyes tightly, the bleeding had subsided a while ago so I attempted to take deep, quick breathes to shut myself from this corpse as it overtook me. The open mouth caught over parts of my face for moments with a wetness lapping at me, it's tongue scraping across my face.
+
+&#x200B;
+
+After all I had experienced, this was nothing much worse to deal with, yet one part of this experience frightened me beyond what I had felt so far.
+
+&#x200B;
+
+The open mouth released a quiet breathe.
+
+&#x200B;
+
+And then another.
+
+&#x200B;
+
+Once the face passed mine, its chest pushed into me and I felt it slowly, and unsteadly lower and raise in a way that could not be excused as the gases of the deceased escaping a corpse. 
+
+&#x200B;
+
+It was not a corpse.
+
+&#x200B;
+
+Fear gripped me beyond anything I had yet experienced, as I stopped thinking of death or the hours of facing this crushing rot.
+
+&#x200B;
+
+I feared that this would continue until I began to rot myself, and my soft flesh would meld into the amalgamation of larva and visceral carnage until my eyes decayed, my muscles rotted, and all that remained was my thoughts as I became the second bloated mass of previous human attached to the mound. I prayed and prayed to not be consumed into it, to not become a part. 
+
+&#x200B;
+
+Every time a snag occured, where a tough piece of flesh caught on me for a moment too long, I shoke in fear that my existence would be combined with that of the corpse slug above me. Sucked up till my legs were swimming in bile and flesh as my body was left to be consumed and used as a nest for countless generations of insects until I lost sensation and became naught but a ruined consciousness forever rolling with the other poor soul on this ride. I gripped the dirt above my head, even with how poorly I could manage due to the way my arms laid, all in preparation to use every ounce of my earthly strength to resist when the mass pulled me in.
+
+&#x200B;
+
+Yet that didn't occur, against my fears, the being never took me. All it did was expose me to the foulest form of every sense. Repeatedly and unrelenting in its goal of ruining my peace of mind for the remainder of my waking hours on this planet.
+
+&#x200B;
+
+And then I could move my feet.
+
+&#x200B;
+
+Then my legs.
+
+&#x200B;
+
+The creature had continued, for a number of hours I cannot properly guess. Until it had passed over me, releasing my waist next. And slowly moving up to my chest. I feared becoming hopeful, that my salvation would be soul crushingly dashed by the behemoths choosing to stop, or, I fear to even imagine, its decisions to reverse its movement.
+
+&#x200B;
+
+Yet my greatest fears were not realized, it continued the same as it had for hours. As if my suffering, my damnation beneath it was nothing but the same suffering the gravel beneath a boot incurs, and perhaps it was the same.
+
+&#x200B;
+
+Once my face was released, painfully slow, I opened my eyes, the lids crusted shut with I wish to not imagine what. I immediately scrambled up, pain shooting through every inch of my body, my concussion not forgetting it's own existence.
+
+&#x200B;
+
+Yet I cared not. I scrambled up, ignoring the pain and frantically ran, tearing through brush and branch alike. I fell more times than I can count, instantly popping back to my feet regardless of how hard I hit the ground.
+
+&#x200B;
+
+I could still hear the rumbling, now truly, thanks to the filth dropping from my ears and clearing one of my senses slightly. Whether the sound was imagined after so long, I do not care as it fueled me to run like I have never and will never again. I traveled miles in a time I would previously consider fantasy, no direction until I had broken past a tree, foot catching a root, and the flesh on my hands being ripped apart by asphalt.
+
+&#x200B;
+
+I had reached a road.
+
+&#x200B;
+
+I didn't stop, my mind may have been plagued with every possible distraction, but I still managed to run the correct direction on that road. I didn't stop, not once my legs burnt as if hellflame had seeped into my muscles, not once vomit laced with the occasional maggot shot out my mouth and behind me, and not once darkness began to set. Not until I saw that wooden cabin and almost crashed into the door. 
+
+&#x200B;
+
+I still didnt rest or stop. I grabbed the large basin used for numerous things while you stayed here, what I used it for would require a new one to be bought. 
+
+&#x200B;
+
+I emptied every jug of water we had gathered and stored from the well behind the cabin for use in washing, cooking, and various other situations into my soon to be saviour, stripping my ruined clothes off thag I would later burn, and pouring the water over myself while I frantically worked. When I went to grab the last jug, I saw it, bleach. I poured the entire jug in without hesitation, with no better judgement to go against, and submerged myself. I held my breathe and let my entirety be taken over by the water until my already burning lungs felt prime to burst and I thrashed to the surface sputtering and coughing. 
+
+&#x200B;
+
+I then sobbed, sitting in my bleach bath I sobbed and vomitted to the side for at least an hour.
+
+&#x200B;
+
+My eyes are still swollen, and I can't taste the vomit as I rinsed my mouth with the bleach water, stifling the urge to drink it and cleanse what had entered my stomach during the ordeal. Hopefully I vomited it all out.
+
+&#x200B;
+
+So I sit here, the sun beginning to rise as I still smell and feel my demeneted and decayed god all around me. I don't think calling what I experienced in would do anything, because that road, and yes, I am not the absolute best with directions, but I swear that road should have ran almost perpendicular to the path, yet no sign of it was there, and with the creatures immense size, the path must've stretched far past that road, yet once again, no sign of it was ever noticed during my fear fueled run.
+
+&#x200B;
+
+I don't think I will ever feel clean. The stinging of my blistering skin helps me ignore it, but only so much. I think I will bath one more time, then find a way to a hospital for chemical burns and a concussion.
+
+&#x200B;
+
+Thank you, whether it be a reader or just the device I write on, for letting me share some of my burden. I know everything I have said sound like the rantings of the insane, and I agree. But I also remember ever inch of that flesh that soiled and tainted my own. Finally, I wish to mention something, and this might be me imagining what I saw in my fear ridden state, but for the sake of my sanity, I will state it as if I am sure it happened.
+
+&#x200B;
+
+When my crusted eyes opened, moments before my scramble and death sprint to safety, I, for but a second, looked at the rot and it rolled on, with the corpse, or person, standing tall adorning its vile nature. Yet instead of facing away in the same direction it had during my torture and even my initial sighting, it was somehow turned toward me. It seemed to hold some look of pride that could be felt in that quick moment.
+
+&#x200B;
+
+And it was smiling.
