@@ -1,0 +1,201 @@
+[Here's the original post](https://www.reddit.com/r/nosleep/comments/1u6i2cv/i_thought_there_was_a_raccoon_in_my_attic_the/)
+
+After the encounter with whatever was living in my attic, I had two choices. I could let it have access to the rest of the house. Or trap it up there.
+
+The thing had already tried to get into my bedroom once. I wasn't about to let it wander around the house while I slept. So I decided to seal it in.
+
+I ran downstairs to the basement and grabbed a couple of 2x4s, my cordless drill, and a box of long wood screws.
+
+The entire time I worked, I couldn't stop looking at the attic panel. It sat there in the hallway ceiling exactly where it always had, looking harmless. If I hadn't seen it slide closed with my own eyes, I probably would have convinced myself none of this was real.
+
+But I had seen it.
+
+Something had been looking down at me from that opening. And now I was about to lock it into my house.
+
+I moved as quickly as I could. If the thing figured out what I was doing before I finished, it could push the panel open and come down into the house.
+
+The first board had to go across the attic panel itself.
+
+I climbed the ladder and held the 2x4 flat against the ceiling. It was awkward trying to balance the board, the drill, and a handful of screws while standing eight feet in the air. I shoved the extra screws into my mouth so I could work faster.
+
+The first screw bit into the wood immediately. The drill whined as it drove through the 2x4. Then resistance as it hit the rafter. “Good” I thought. The screw sank deeper.
+
+Above me I heard movement. A slow scrape. Something dragging itself across the attic floor. 
+
+I froze for a second. Then I forced myself to keep drilling as the sound continued. Growing closer.
+
+The first screw seated firmly into the rafter. I grabbed a second screw and immediately dropped it. It bounced off the ladder and disappeared somewhere below.
+
+"Great."
+
+I spat another screw into my hand and lined it up.
+
+The scraping above me continued. Closer.
+
+I drove the second screw home. The board tightened against the ceiling. Now I just needed one through the attic panel itself so it couldn't slide open. I positioned the screw and started drilling.
+
+The instant the screw punched through the panel, the entire attic hatch shook violently. I nearly dropped the drill. Something slammed into the other side. The panel jumped against the board. Another impact. Harder.
+
+The thing knew. It knew exactly what I was doing. I got the screw seated and climbed down the ladder as fast as I could. The pounding continued. The panel was starting to bow downward.
+
+The screws groaned under the immense pounding. Whatever was up there was a lot stronger than I wanted to think about.
+
+I grabbed the second 2x4.
+
+The impacts kept coming.
+
+Bang.
+
+Bang.
+
+Bang.
+
+The entire ceiling rattled. 
+
+I climbed back up. At that moment, I realized there was less than an inch of drywall separating me from whatever was trying to tear its way out. I could actually hear it breathing. Slow, heavy, wet.
+
+I tried not to think about that.
+
+The first screw of the second board went in cleanly.
+
+The pounding intensified.
+
+I grabbed my last screw. One chance. I lined it up and squeezed the trigger.
+
+The screw sailed through the 2x4. Through the drywall. Through empty space. No resistance. I missed the rafter.
+
+Something screamed. The sound exploded from above me. I almost fell off the ladder.
+
+It wasn't a growl or a roar. It didn’t sound like an animal at all. It sounded exactly like the exterminator. The same exterminator who had been in my attic the day before.
+
+The scream echoed through the attic. Then came frantic movement. Not toward me. Away from me. Something crashed across the attic at incredible speed. Did I just trap the exterminator in my attic?
+
+I stared at the ceiling. My heart hammering. Slowly, I reversed the drill and backed the screw out. When it came free, something was hanging from the tip.
+
+Hair. Several strands of dark hair. And a small smear of fresh blood.
+
+I just stood there staring at it. The thing was flesh and blood and I had just stabbed it.
+
+For the first time since all of this started, the attic went completely silent.
+
+I drove the screw in again, this time finding the rafter. The second board locked into place. Whatever was in my attic was trapped. At least I hoped it was.
+
+That night I slept with my bedroom door closed and locked. I didn't sleep much.
+
+The next morning I drove to the local farm supply store. I needed a trap. A big one. The clerk looked confused when I asked for the largest animal trap they sold. He showed me something big enough for a raccoon. Maybe a medium-sized dog. Not even close.
+
+I explained that I needed something larger. Much larger. He studied me for a moment before leaning across the counter.
+
+"You should talk to Earl."
+
+"Who's Earl?" I asked.
+
+"Old trapper lives over in the trailer park off Highway Nine." The clerk lowered his voice. "If anybody around here knows how to catch something big, it's him."
+
+I got his address and immediately drove the short distance to the trailer park.
+
+Earl's trailer looked exactly like the kind of place you'd expect a man named Earl who traps large animals to live. Animal skulls hung from the porch. Wind chimes made from bones rattled in the breeze. Inside, every available surface seemed occupied by taxidermy. Coyotes. Bobcats. Foxes. A black bear head mounted above the television.
+
+The old man listened without interrupting while I explained everything. The missing food. The stolen clothes. The noises. The attic panel. The scream. The blood on the screw. When I finally finished, he sat silently for nearly a minute.
+
+Then he nodded.
+
+"Sounds like a juvenile Sasquatch."
+
+I laughed. He didn't.
+
+"I've trapped coyotes, mountain lions, black bears. Hell, once I caught an escaped circus chimp."
+
+He pointed a crooked finger at me.
+
+"Never trapped a Sasquatch before though."
+
+The frightening part wasn't that he believed it. The frightening part was that he genuinely seemed to know what he was talking about.
+
+According to Earl, the stolen clothes made sense. The food made sense. The human like scream. Even the size of the attic made sense. By the time he finished explaining his theory, I was halfway convinced. Or maybe I was just desperate for an explanation.
+
+Either way, when he offered to remove the creature for free in exchange for keeping it, I agreed immediately.
+
+As I drove away I saw in the back of Earl’s truck. Large traps, metal contraptions, and canisters filled with things I’m sure I didn’t want to know about. I hoped my house was still standing when Earl was done. I drove to some hotel on the outskirts of town and barely slept.
+
+The next morning I bypassed my house and drove straight to Earl's trailer to see what he caught. I expected to find him celebrating. Maybe posing next to a giant cage. Maybe dragging a dead Sasquatch into his collection.
+
+Instead, he was sitting alone in a rocking chair. A rifle rested across his lap. His eyes stared blankly across the yard.
+
+When I called his name, he jumped. Actually jumped. The man who hunted bears looked terrified.
+
+"Did you catch it?" I asked.
+
+For a long moment he didn't answer. Finally he shook his head.
+
+"No."
+
+"What was it?" I asked.
+
+His grip tightened on the rifle.
+
+"I don't know."
+
+The words hit harder than I expected.
+
+"You don't know?" I pondered. “Well, did you see it?”
+
+"It ain't a raccoon." He whispered.
+
+Silence.
+
+"It ain't a mountain lion."
+
+More silence.
+
+Then he looked directly at me.
+
+"It sure as hell ain't a Sasquatch."
+
+A chill ran through me.
+
+"Earl, what happened at my house?"
+
+He stood up slowly. The rocking chair creaked behind him.
+
+"I left."
+
+"What?" I nearly shouted.
+
+"I left." He swallowed. "I've spent fifty years tracking animals." His voice had become almost a whisper. "Animals don't act like that."
+
+He turned away from me. "I'm sorry about your house."
+
+“What happened at my house?” I asked.
+
+He ignored the question.
+
+"Don't go back there." He said.
+
+"What?" It was my house, of course I would go back.
+
+"That thing doesn't want people in that house." He looked back over his shoulder. "And whatever you do..." His face had gone pale. "...don't let it know you're afraid of it."
+
+That was all he would say. No matter how much I pressed him.
+
+Eventually I got back in my car and drove home. I didn't want to. Every instinct told me to keep driving. But my wife was coming home from her work trip that day. I had gotten a text from her earlier saying how excited she was to be home. To see me. I had to make sure everything was okay. Make sure I still had a house.
+
+As I turned into the driveway, my stomach dropped. My wife's car was already there. She wasn't supposed to be home yet.
+
+I jumped out and ran toward the front door.
+
+"Sarah!"
+
+No answer. I ran inside.
+
+"Sarah!"
+
+The house was silent. The leftovers I'd left on the kitchen counter were gone. The refrigerator door stood open, half the food inside had disappeared.
+
+My pulse started racing. I searched the living room, the guest room. Nothing.
+
+I ran down the hallway toward our bedroom. Then I looked up. The attic panel was open. The two 2x4s were stacked neatly against the hallway wall.
+
+And hanging over the edge of the opening was one of my wife's dresses. The same dress she'd been wearing in the photo she texted me from the airport that morning.
+
+Then, slowly and silently, the dress disappeared into the attic. The panel slid closed. Wood sliding on wood.
