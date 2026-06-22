@@ -1,0 +1,155 @@
+For me, the hardest part of being a nurse has always been seeing my patients suffering from pain. Especially when there’s little I can do to ease it for them.
+
+It comes from what I consider to be my empathetic nature—that’s why I wanted to become a nurse in the first place. So that I could help people and make them feel better. Even so that I could shoulder some of their burdens and take that pain off their hands through my aid. I always knew that my patients’ agony would hurt me, emotionally at least.
+
+But I never thought that it could literally kill me.
+
+And yet, that’s what happened to so many that I knew on that fateful shift.
+
+I had been working in a local hospital in my city, one with a fairly great reputation and resources. St Mary’s Hospital had been somewhere I’d wanted to work at when I was doing my placements, and I fit in so well there. As someone who thrives working under pressure and comforting people in hard situations, I was typically rostered in the hospital’s ICU. You might think it would be overwhelming, but it never was for me.
+
+Not until the day I met Brandon.
+
+My long shift was just starting when a new patient was assigned to me. The patient’s doctor, Dr Harrison, led me to him while explaining his situation. It was all fairly standard. A young college student who had been unexpectedly struck by a car while crossing the road, with multiple broken bones throughout his entire body. He was still being checked for internal damage after several days' admission, but was otherwise healthy and expected to make a full recovery.
+
+I got on well with Dr Harrison, so his calm explanation about the patient put me at ease. In fact I felt relieved to be working with this patient, viewing him as a break from the usual insanity of sepsis and organ failures.
+
+Entering his hospital room, I saw that most of Brandon was in a full body cast, although his head and torso were unbandaged. The poor guy had clearly caught the full brunt of the speeding car that had hit him. Thankfully, his notes told me that he was being sedated with codeine, so at least he wouldn’t be in much pain. I glanced over his charts before approaching his bedside, patient IDing him and introducing myself.
+
+“Hi Brandon, my name is Eileen and I’m gonna be your nurse for the next few days” I told him warmly. Brandon looked like your typical college aged guy, with a mop of messy brown hair, a youthful face and some facial scruff. He greeted me with a sincere smile—but his green eyes were filled with worry. I wanted to put him at ease.
+
+For the next several minutes we made friendly conversation, with me asking about where he went to college and what he studied as I went about assessing his bandages. Then came the time for me to assess his pain level.
+
+“Brandon, I want you to tell me how much pain you’re in right now on a scale from 1 to 10” I told him. 
+
+Gently, I pointed to a chart on the wall with 6 smiley faces on it, ranging from a wide smiling one to a blank faced one to a deeply frowning one. The colours ranged too—the happier faces were moss and green, the neutral faces yellow and orange, and the miserable faces red and crimson. 
+
+I explained to him how each face corresponded to pain levels. 0 meant no pain, 1 and 2 meant mild pain, 3 and 4 meant moderate pain, 5 and 6 meant severe pain, 7 and 8 meant very severe pain, 9 meant excruciating pain. And 10? Meant the worst pain possible.
+
+He hesitated in thought for a moment, before answering.
+
+“5” he said, with a nod against his pillow.
+
+That made sense for his level of injuries—widespread but stable bone breaks, with codeine for pain relief. He seemed to be managing the pain fine, it seemed.
+
+However, what he said next took me completely off guard.
+
+“Look, Eileen, I don’t want to be a burden” he said grimly, fixing my eyes with a serious stare. “But I have to warn you—no matter what, my pain level cannot reach 10 on that chart. If it does…it’ll be fatal.”
+
+I was taken aback by this comment. In the past I had had some patients that were prone to dramatic statements, and others that were deeply frightened. I was used to this. But Brandon had seemed to be level-headed and at peace with his injuries. He’d casually talked to me about his economics course and how long he’d be away from it. He hadn’t seemed like someone that was terrified of dying.
+
+“Oh honey, don’t worry, we’re gonna take good care of you” I reassured him with a smile. “Your injuries certainly aren’t life threatening to you.”
+
+To this, he just looked up at me solemnly, his face framed surrounded by his casted limbs.
+
+“I’m not saying it will be life threatening to me. If my pain level gets to level 10, everyone *around me* is going to die.”
+
+My face went blank. I furrowed my eyes quizzically at this statement. How much codeine was this kid on right now?
+
+“I know it sounds crazy, but it’s been that way ever since I was a baby” he pressed on despite my confusion. “Whenever I was in intense pain—if I fell on the playground, skinned my knee riding a bike, or burned my mouth on hot food—it would happen. Someone random in a 30 foot radius to me would die.”
+
+I continued listening, trying to note his facial expression. He didn’t look like he was hallucinating. He looked like he was recalling devastating, real memories.
+
+“Sometimes it would be a stranger. More often than not, it would be someone I knew. They were more likely to be around me. It always came in the form of heart attacks. The first time it happened it was my cousin Casey, at my house. There were other relatives. Neighbours. Schoolmates. The longer and stronger my pain was, the more people died.”
+
+“My pain would probably spike to 7 or 8 on those occasions” he murmured. “Those few seconds were all it took to kill people.”
+
+Tears started to well up in the corners of his eyes, despite composed demeanour.
+
+“I spent my whole damn life trying to be as safe as possible. Got my flu shots, never played sports, rugged up in winter, barely left my room. I did everything I could—and still got hit by a drunk driver and wound up in a full body cast.”
+
+Brandon turned from his reverie back to face me. His tearful expression was pleading.
+
+“You seem really nice. You’re doing really important work to help people. I don’t want my power….I don’t want to hurt you….”
+
+I decided that I’d let the poor, clearly delirious kid go on for long enough. I calmly assured him that everything would be okay, and made a note to have him checked for head trauma from the accident. The day went on and I continued with my rounds, thinking little of the obviously imagined story he’d told me.
+
+Until I came back to double check his medical records and add my own notes to them. His file was unusually long. Apparently, his family had had a high incidence of cardiac arrests throughout his life. A grandparent here, an aunt there, a sibling too. And there was his cousin Casey—the first person to exhibit his heart condition.
+
+Now my interest was piqued. His school records were also on file, and they had the same occurrences. Classmates of his had died of heart attacks around him, and he’d been investigated for potentially instigating them through violence or pranks. Brandon’s history really was peppered with strange deaths as he’d said it was. Could he have been telling the truth?
+
+Again, I shook it off. While completing my rounds, I reminded myself that I had to remain logical and sound in order to do my job. I couldn’t start believing in crazy superstitions and cursed powers of death.
+
+By the time I returned to Brandon, I could see that he was in a state of even more distress and agitation. I pointed to the chart and asked him again to relay what pain level he was in.
+
+It was a 7 now. Severe pain. The codeine must have worn off—or it wasn’t properly working anymore.
+
+“That level’s enough for people to start dying!” he fretted. “Oh God, after years it’s gonna happen again!”
+
+I wanted to calm him down. I was going to. But before I could, I heard an alarm sound from across the hospital floor. One of the other patients in the ICU was coding at this very moment and staff were needed right now. So I let Brandon know that I would be right back and darted out of his room to the scene of the upheaval.
+
+Just one door down from where Brandon was, a patient had just flatlined out of nowhere. I watched as doctors tried, in vain, to revive him. But Mr Levante was gone. 
+
+Discussing it with my fellow nurse Aria as they called the time of death, I couldn’t help but note the strangeness of it. The patient had been recovering from stomach surgery and was just in the hospital for post-operative care. There was no reason he should have died then—and of a heart attack too.
+
+Aria adjusted her blonde bangs and reminded me that this was the ICU and these things weren’t unexpected. She had no idea about the absurd death-bringing tale I’d been told earlier. 
+
+Then, just as suddenly as before, another patient died across the hallway. This time it was someone who had been in the process of being discharged to another unit, after already recovering from their illness.
+
+I didn’t need another coincidence to convince me this time. I raced back to Brandon’s hospital room and began to administer to him the codeine that I’d picked up along the way. He gulped down the tablets as fast as he could, not even pausing for me to get him water. He hadn’t been due for his next dose for 2 hours but I didn’t care. I’d eat any reprimands the nurse in charge gave me. All that mattered was that I alleviated Brandon’s pain—and stopped the deaths.
+
+It did the trick. Slowly, Brandon’s demeanor relaxed as the pain relief washed over him. No further deaths followed in the passing minutes. I looked at Brandon with a look of shared, bleak understanding. His story finally rang true to me. The rest of my shift would have to be conducted with that in mind.
+
+The pain had been coming from Brandon’s damaged limbs, so I made sure to be extremely careful whenever I tended to them. Changing his bandages, doing wound care and conducting neurovascular checks periodically over the following 12 hours—it was all done with the gentlest, most delicate level of care. Any pinches or rips of pain could send his pain levels soaring again—and I had two examples of what would happen if that occurred. I could be the next one.
+
+How had they even gotten him into the hospital without paramedics dying en masse? The answer quickly became clear. Brandon would have been knocked unconscious during the initial accident. By the time he came to, his pain had been stabilised and medicated. God knows if any bystanders passed away at the scene from heart attacks too.
+
+Against all odds, I reached the end of my shift without any incident. I’d been so preoccupied with Brandon and his codeine that I’d barely paid attention to any of my other patients—taking care of Brandon was taking care of them. But I’d kept the hospital alive that day without a bloodbath. 
+
+Or so I thought.
+
+I had just said good night to Brandon and was headed into the elevator when Dr Harrison pulled me into a conversation. He wanted to discuss my care of Brandon. Or at least that’s where I think he was going with the conversation.
+
+“So, Eileen, before you go” probed Dr Harrison. “I was meaning to check with you about one of your patients. Is it true tha-”
+
+Midsentence, he dropped to the ground in front of me, clutching his chest. I knelt down to assist him, shrieking for help, but a few seconds later he was dead. Another heart attack.
+
+Responding to my cries, a hospital orderly began racing towards us to assist when he, too, dropped dead gripping his chest. My exhausted mind whirled over the long 12 hour shift, organising my thoughts into order. Then, realisation.
+
+Brandon. Something’s happened to Brandon.
+
+Singlemindedly, I leapt up from Dr Harrison’s still body and began racing to Brandon’s hospital room. The chain reaction of deaths was happening faster now. On the way, I passed the concerned wife of a patient asking what had happened to the two dead men near the front desk.
+
+She went down before I could even shout a response her way. The heart attack killed her as fast as the others. I sprinted past the hospital visitor. Brandon’s curse didn’t discriminate.
+
+I burst through the door into Brandon’s room and was met by the cataclysmic sight of him face down on the floor—his casted limbs immobile save for him writhing in pain and moaning into the floor.
+
+On the table across the room as a stray codeine pill. He had been reaching for the pain relief pill I had foolishly dropped in my haste. In the process, he’d fallen out of his bed and—dear lord—potentially rebroken every broken bone in his body.
+
+With a voice of haunted terror, I began to ask him the dreaded question.
+
+“Brandon, wh-what’s your pain leve-”
+
+I didn’t need to finish asking. I realised he had been moaning a word this entire time, again and again.
+
+“9…9…9…” his voice gurgled. His pain was now very severe. The kind of pain that made speaking near impossible.
+
+“Oh God, it’s rising…it’s rising to 10”.
+
+This shook me out of my panicked stupor. If his pain level reached 10, everyone in a 30 metre radius—every soul on this hospital floor—would die. I had to act now. 
+
+I rushed over to haul him back onto the bed, but quickly realised this would almost certainly cause his pain level to jump, which meant certain death for everyone. The same followed for trying to knock him out with force. Codeine was only a moderate opioid—he was gonna need something stronger.
+
+He was gonna need morphine.
+
+Determined, I set about grabbing the morphine drip and setting it up while the screams of hospital chaos echoed in the background. I had just got the bag onto the stand when Aria’s head poked around the corner of the door frame.
+
+“Eileen, my god, I need your help over here!” Aria cried. “One of my patients has just gone into cardiac arrest and I—what are you administering morphine to a patient on the floor?”
+
+Aria was adamant that I come to assist with the domino of flatlining patients and staff alike. She triaged the situation and insisted I leave the non-dying teenager. How was she to know that he was the reason for all the death, that my actions were trying to stop it?
+
+Ultimately, I didn’t need to convince her. My friend keeled over dead seconds later, too, right before my eyes. 
+
+In fight or flight mode now, I worked the IV drip into moaning Brandon’s arm. I located a vein in his wrist and inserted the needle, keenly aware that I could be the next one to go like my colleagues had. At last, though, the morphine started to flow.
+
+I held Brandon, grief stricken, and felt his pain lessen and lessen. Alongside it, my panic lessened. Soon, Brandon had passed out into sweet unconsciousness, parting with his unbearable pain.
+
+The death toll from that deadly day came to 9 people in total—4 staff, 3 patients and 2 visitors. It was the same number as Brandon’s maximum pain.
+
+St Mary’s Hospital explained the tragedy as a mass panic chain reaction, triggering a series of undiagnosed arrhythmias. Even though it didn’t make sense, there was no better explanation. Way more would have died if not for my actions, but they’d never believe that.
+
+I still wonder if it was really luck that kept me alive, or if it was Brandon’s fondness of me that protected me from his effect. 
+
+Regardless, with the guilt I feel for not acting faster, my emotional pain level is at a 10. It is because of this that I’ve dedicated myself to staying on as Brandon’s nurse for the duration of his recovery. My responsibility will remain to keep his pain levels out of the red via care and medication, ensuring there’s no future deaths. It’s a bumpy road ahead, however.
+
+He begins physiotherapy tomorrow.
