@@ -20,7 +20,7 @@ It got a maintenance number. But nobody came that day.
 
 I'd stopped wanting to eat almost right away, and I chalked that right up to the flies. I'd ordered a full veggie pizza the night before, extra olives, even though I hate olives but taking them off cost a dollar more than leaving them on which, don’t get me started, is a crime against the consumer. And the flies had gone ahead and claimed the box like it was theirs by eminent domain. Who wants to sit down to a meal with an audience like that.
 
-Everything started smelling wrong, and I don't mean rotten exactly, I mean pungent. The rice in my rice cooker smelled sour clear across the kitchen. The coffee smelled burnt before the water even touched the grounds, which, if you've ever made coffee, you know is not how that's supposed to work. I opened the fridge and got hit with this thick, sweet smell, like flowers a week past their vase water, and I cleared the whole thing out in one disgusted sweep, didn't even sort it, just bag, bag, trash.
+Everything started smelling wrong, and I don't mean rotten exactly, I mean pungent. The rice in my rice cooker smelled sour clear across the kitchen. The coffee smelled burnt before the water even touched the grounds, and if you’ve ever made coffee, you know that’s not how it’s supposed to work. I opened the fridge and got hit with this thick, sweet smell, like flowers a week past their vase water, and I cleared the whole thing out in one disgusted sweep, didn't even sort it, just bag, bag, trash.
 
 By the second morning there were more flies, and this time they weren't being subtle about anything. Rows of them along the counter, lined up neat as a church pew. A little cluster on the microwave handle, holding what looked like a meeting. I found three in a mug I had personally washed, dried, and put away clean, and one of them walked clear across my phone screen while I was checking the apartment portal, taking its sweet time, and I watched it a half second too long before I flicked it off, because something about the way it moved made me not want to touch it.
 
@@ -118,10 +118,6 @@ I typed out a reply to all of them. *I'm fine, sorry, phone's been acting weird.
 
 The flies had started up a kind of residency on the wall above my couch by then, gathered into a loose, shifting smear that never quite committed to a shape. I'll admit it, some small hopeful part of me kept waiting for them to spell something out. Maybe *redrum*. At least then I'd have instructions. They never did. They just sat there being a stain with wings, and that was worse than if they'd left me a note.
 
-My skin had started doing this thing I don't have a great word for. It wasn’t dry, nor oily, it was slippery, almost, in a way that made my own hands feel unfamiliar when I rubbed them together. A scratch on my forearm, from God knows what, didn't well up red the way a scratch is supposed to. It just sat there, pale around the edges.
-
-I was cold. The whole time. Every single hour, no matter what the thermostat said.
-
 Tonight there were voices in the hallway below mine. Heavy footsteps. A radio cutting in and out, static then a voice then static. Somebody said a unit number, and it took me a half second longer than it should've to realize the number was mine.
 
 I stood up too fast and had to grab the wall. The room tipped, then righted itself slow, like water finding its level. The smell was everywhere now, sweet and thick. I'd stopped really smelling it days back. I only knew it was bad by the way the air seemed to bend in front of it, the way blacktop shimmers in August.
@@ -142,6 +138,6 @@ The bedroom door swung open, on its own or somebody opened it, I honestly cannot
 
 One of the officers said, "How long has she been here?" and I genuinely cannot understand why he's asking that about whatever's on the floor instead of just asking me, since I am standing right here, since I've been right here the entire six days.
 
-I opened my mouth again to finally, finally lay the whole thing out, the requests, the dates, every note, every duplicate-request error, the whole sorry record of it.
+I opened my mouth again to finally, finally lay the whole thing out, the requests, the dates, every note, every duplicate-request error, the whole sorry record of it. But flies kept pouring out.
 
 I don't know why nobody will look at me when I talk. Why is nobody talking to me?
