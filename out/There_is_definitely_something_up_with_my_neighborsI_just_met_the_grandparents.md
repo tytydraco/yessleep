@@ -1,0 +1,106 @@
+Links to previous parts here (at some point):  
+[Part 1](https://www.reddit.com/r/nosleep/comments/1u9aqym/there_is_something_up_with_my_neighbors/?share_id=BMrMqS8JNJhJQHpjSo1PX&utm_content=2&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1) | [Part 2](https://www.reddit.com/r/nosleep/comments/1ua6gj9/there_is_still_something_up_with_my_neighbors/?share_id=kkyNcX-Odxbm7XOvPtFgf&utm_content=2&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1) | [Part 3](https://www.reddit.com/r/nosleep/comments/1uboynz/there_is_definitely_something_up_with_my_neighbors/)  
+As I sit in my front lawn in a cheap lawn chair I bought from Walmart, I type this on my lap top. I am currently watching Job on the skateboard I got him for his birthday. He is holding onto Sparky’s lead as he is pulled in an Olympic style sprint by Sparky, looping around the neighborhood. I’ve counted 8 laps now. Job is laughing and having fun but also seems to be holding on for dear life. His head flew off during lap three as they turned the corner and fully knocked down the bird feeder the neighbors next to them had in their front yard. RIP to the mourning dove that was caught in the crossfire. It was like watching a bowling ball smash through a bowling pin except aerial and with living things.  
+Zoey is sitting on the ground next to my chair, she’s kind of purring? It sounds more like a cicada in the summer only slightly lower in pitch. I think that’s a good sign. It is nice though. Bianca and Harold are also in lawn chairs on their lawn though they have fancy ones that can lay flat and don’t break if you get up too fast. It’s windy out so Bianca’s face keeps inflating and deflating with every rep of the wind gusts. It’s very eerie. Harold zip tied her ankle to one of the chair legs though to prevent her from flying away, oh to be loved like how those two love each other. She looks like those wacky inflatable tube men but if it were made of human skin.  
+Harold has turned the white chair completely red like the khakis and Hawaiian shirt he chose to wear. It’s forming a weird puddle underneath him, like spilt kool-aid on the grass. Bianca is wearing a sundress but it’s all safety pinned to her legs so that she doesn’t flash anybody.  
+Harold just keeps wiping his face with towels, he has a pile of wet towels next to him. I’ve seen him go through five medium sized towels so far.  
+I will update y’all in a bit, Harold just stood up from his chair and is walking towards me.
+
+Ok, so a lot happened while I was gone. I was gone for way longer than expected. He came over to both thank me and bring Zoey back inside because they are worried she will get sunburned.  
+“Thank you again for getting Job a skateboard, he loves it! It helps him get outside, get offline more, and bond with Sparky. No friendship is greater than between a boy and his dog.” He stated cheerfully as he held Zoey in his arms who was licking his face.  
+I wanted to throw up because her mouth started becoming stained red and her tongue would get caught on the exposed muscle fibers of his face, causing her to panic and jerk her head away until it pulled away like Velcro against Velcro.  
+“It’s not a problem at all. If I am being honest, I didn’t really know what to get him. Which I realize is probably something I shouldn’t admit but I just thought about how much he loves Sparky and thought it could be something for them to do together.”  
+“Don’t worry, sometimes we don’t know what to get him too. Kids these days don’t play like we did. My siblings and I would take paper bags, spray the inside with hairspray or bug spray, and we would huff it. Most times afterward would collect gravel along the highway to snack on.” He said like it wasn’t a crazy thing at all.  
+“What?”  
+“Oh yeah, we would usually by then go into the woods, find a random animal and beat it to death so we could have it for dinner later that night.” He said while laughing like he was remembering something funny.  
+“Where were your parents during all this?” I asked jokingly.  
+He opened his mouth to respond but then froze and thought for a minute.  
+“Why don’t we ask them? Come on!” He said motioning with his hand for me to follow him.  
+I got up slowly from my cheap chair, closed my lap top, and set it on the chair before following him to his home.  
+Bianca was still flailing on and off in the wind but gave her best attempt to look at me and wave.  
+“Hi Tracy!” She greeted with cheer.  
+“Hello Bianca.” I replied back.  
+I followed him into the house and the house looked…fairly normal for the most part. He set Zoey onto the ground and started leading me further into the home. I noticed a couple of odd decorations here and there but nothing that screams skinless man, skin woman, and skeleton child live here.  
+Well I guess with one exception being that all furniture with fabric like couches are a deep red color. What I found oddly disturbing in that moment was if the furniture was red to begin with? Same with the rugs they had too.  
+Additionally, they have railings in areas there shouldn’t be. The few hallways, the entryway, the dining room, and in the kitchen.  
+I assumed it may be for Bianca since she does have balance difficulties.  
+I would find out this was only partially true.  
+He led me to a door near the kitchen and opened it revealing a basement.  
+“You’re not gonna murder me?” I snapped at him with concern.  
+“What? No! Never you.” He said with sincerity as he started walking down the steps.  
+I followed him down the steps.  
+Now I should preface that we live in a neighborhood where every house is built almost the exactly same, with slight differences depending on amount of rooms and so on. Usually it is 2 floors and a basement with a front and back yard and an attached garage to the house.  
+So the layout of the house wasn’t unfamiliar to me. What was unfamiliar to me was when Harold flipped on the light switch to reveal the floor was completely uneven dirt instead of what should have been smooth concrete. The basement was completely barren but the walls seemed as expected, there and painted. I would not have gone with lime green though. I scanned the environment to see if there was something I was missing.  
+“Mom? Dad? Hello?” He announced.  
+I just stood there, wondering if he lied and was actually about to beat me to death like a random forest animal.  
+Continued silence.  
+“Hold on a minute, they are getting older so they are also getting hard of hearing.” He claimed as he walked more towards the center of the basement and got onto his knees.  
+Was he about to summon the devil?  
+In the blink of an eye, he cocked his arm back before punching and plunging it deep into the soil.  
+He was really looking for something. He finally stopped moving his arm around in the dirt.  
+“Mom, is that you or is it dad?” He asked.  
+I heard the a muffled and faint response.  
+“You should know by now, sweetie.” The voice replied.  
+Harold pulled his arm from the dirt, lifting with him an elderly woman. She looked normal from the angle I was viewing this from, when I walked around Harold to the other side. That’s when I saw it.  
+It was only the right side of a human body.  
+I was clear as day peering into the exposed side which was caked in dirt filled with worms among pumping blood seeping out and organs clear to see as I saw her eyeball scan the room. She was only exposed from the neck up but trust me when I say, you could see everything.  
+“Mom? Where’s dad?” He asked, hand still palming her half head.  
+“He’s trying to dig to hell again. Says he belongs there.” She replied with heavy indifference.  
+“Well can you get him, I would but I don’t want to be rude in front of a guest.”  
+“Alright dear, just give me a woman”  
+The half woman vanished back into earth as though she were being vacuumed back into it.  
+As Harold got back to his feet, brushing the moistened dirt off of his always blood soaked arm, we waited for 2 full minutes.  
+Suddenly, a hand poked out the dirt like it would in a zombie movie.  
+A left hand.  
+Then a right hand.  
+Then pulling out the dirt a complete human, the left that of an elderly man and the right was that of an elderly woman. Each half as though it was split perfectly down the middle of its original form and glued together into this act against God I witnessed now.  
+They were naked and covered in dirt.  
+I will never get the image of an elderly sliced half penis-sliced half vagina out of my head. I think was slightly worse that the man breast and the woman breast were identical to each other, the only difference being the left side was significantly hairier.  
+“OH MY GOD YOU TWO?! PUT ON SOME CLOTHES?! I’m so sorry Tracy, I’ll get their robe. I’m so so sorry.” Harold said with a panicked tone of voice, then sprinting up the stairs.  
+I averted my gaze with my hand toward the ground, as they remaining unmoving from where they emerged.  
+“You want to be apart of a throuple?” The male voice asked.  
+“No.”  
+“Worth a shot.” He stated frankly.  
+“Bert! You dirty dog! Even after eleven children you’re still sniffing other flowers!” The woman’s voice said with agitation as she used her hand to slap his.  
+“Betty, I haven’t stuck my penis in anything other than you, the dirt, and a vending machine in our 45 years of marriage.” He replied.  
+“You always have a way with words dearest.”  
+Harold came running back down the stairs with a robe and helped his parents to put on the robe.  
+Harold led all three- I mean four of us up the stairs and we sat at the dining room table, Harold sitting next to me and his parents across from me.  
+I was no longer averting my gaze. It was so odd, the man had a slightly bigger nose which made their…situation so uncanny and the same with the lips and the dad had those same piercing blue eyes as Harold does.  
+We sat in silence.  
+What would you have done in this situation? My brain was still processing the weird nakedness that was burned into my consciousness.  
+“Tracy had some questions about my childhood in regard to you both and how we all worked together.” Harold explained.  
+The woman side smiled a toothy smile while the male side maintained a neutral close lipped expression.  
+“Oh how wonderful! What specifically?” The woman asked, her mouth only moving and the man’s side stayed perfectly still.  
+“Mom remember how us kids used to huff the bug spray then we’d eat the gravel and bring home dinner?” Harold explained with a child-like excitement.  
+“Oh yes, Albert and I would be so proud of how hardy you children were. When you have 13 people in a house, money stretches thin. We’d get so creative. I remember one time when the twins would stop playing tug of war with one of the rabbit carcasses you other kids brought home. It was so hard to pull it out of the twins’ mouths.”  
+“Especially when, when it split open and the guts spewed all over Colleen’s face. She wouldn’t stop throwing up.” Harold remarked through laughter.  
+Both Harold and Betty were engaging in full belly laughs, Harold occasionally pounding the table with fist likely due to humor overload.  
+“Betty! Can I add something?” Albert asked which broke the atmosphere.  
+“Oh certainly.” Betty replied, coming down from laughter and wiping a tear from her eye.  
+“The kids would help us a lot. I know we ain’t like typical families but the kids would always be together with the exception of the littlest ones who’d be right on Betty’s hip.” He explained, Betty having a soft smile on her face which conveyed appreciation.  
+“Betty and I would be at home fixing the house, fixing the yard, paying the bills, and feeding the babies. Sometimes the kids felt more responsible than us. I’m grateful we had children who not only looked out for each other but…us during their childhoods.” Albert continued.  
+Betty reached her hand towards Albert’s and held his hand. Harold leaned forward and joined his hand above the grasp.  
+“It’s because we had parents who loved us so deeply.” Harold remarked.  
+I could feel the loving silence, their eyes staring into Harold’s as I witnessed the same love I saw at that birthday party. Some people say that older generations didn’t know how to express love the way we do, which is why so many relationships fail now. I say people like Albert and Betty seemed to have led an example of love that is inherent rather than a product of hopeful thinking.  
+We sat in the loving atmosphere, I would say even with Frankenstein’s monster sitting across from me that the moment was…somehow heart warming?  
+“That and the impending doom of Pappy.” Albert added.  
+“Fair.” Harold and Betty said in unison.  
+“Did that answer your question?” Harold asked now fully back in his seat and hands to himself.  
+“Yes.” I lied.  
+We all stood up from the table and the three of them began leading me out.  
+“MAMAW! PIPI!” Job screamed excitedly while running through the door towards his grandparents.  
+I want to emphasize that “Pipi” was pronounced PEE PEE. Not Pippy despite the spelling. I know it and now you do too.  
+They gave him a hug.  
+Their voices began overlaying as they pulled away from the hug, maintaining eye contact with Job.  
+“My, how big you’ve gotten.”  
+“What a ladies man.”  
+“You look just like your father.”  
+“No, he looks like Bianca.”  
+“Oh, he is skinny like Bianca.”  
+“Did I reach hell yet?”  
+“No, not yet Bert.”  
+It was that cluttered in person as it appears in written form. I’m not even sure who was saying what at one point.  
+Anyway, they led me out. They left poor Bianca in the chair who was attempting to undo the zip tie. I took it off, she thanked me then went inside. I got to my yard and Sparky was doing the WAP dance on my front lawn. I ignored it and went inside my house and locked the door.  
+Now, here I am typing this. Somehow being able to eat. I made 3 grilled cheese sandwiches. It’s fire. I do have a lingering question.  
+When Betty was pregnant, was Albert also pregnant?
