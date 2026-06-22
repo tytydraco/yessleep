@@ -2,13 +2,13 @@ Part 1: [I Work for an Organization That Contains Gods. We Had to Make a Sacrifi
 
 So I got a new boss.
 
-Well, "got" is a crazy way to put it. Forced into the arrangement is probably more accurate. I have a lot of feelings about the situation, and unfortunately, most of them are terrible; the rest are alcohol-related. So this feels like the perfect time to sit down and write everything out before I convince myself none of it actually happened. 
+Well, "got" is a crazy way to put it. Forced into the arrangement is probably more accurate. I have a lot of feelings about the situation, and unfortunately, most of them are terrible; the rest are alcohol-related. So this feels like the perfect time to sit down and write everything out before I convince myself none of it actually happened.
 
 The short version is that Antarctica went very, very wrong. The slightly longer version is that over ten thousand civilians disappeared, four hundred and five Containment personnel vanished trying to investigate, and for reasons that still escape me, management decided I was the right person to send after them. Apparently, surviving previous deadly encounters qualifies you for future deadly encounters. Human Resources should really stop using that metric.
 
 To explain how any of that led to my current employment situation, we need to go back a few hours, to the moment a casualty report landed on my desk.
 
-**Missing:** 
+**Missing:**
 
 **Containment Division Personnel: 405**
 
@@ -18,7 +18,7 @@ I stared at the report. Ten thousand civilians was tragic. Four hundred and five
 
 According to the file, scientists stationed throughout Antarctica had been disappearing for the past three months. In the first month, three entire research stations were abandoned. One moment, they were there. The next, they weren't. No distress calls. No evacuation requests. No bodies. Just empty facilities and missing personnel. In the second month, four more stations vanished. The third month, five. This month wasn't even halfway over yet, and two more stations had already gone silent.
 
-That was why Containment responded so quickly. Normally, Antarctica buys you time. The continent is cold, remote, miserable, and generally hostile to human life. Emergency responses aren't exactly convenient. But when entire research stations start evaporating off the face of the planet, people suddenly become very motivated. A Containment Division task force was dispatched almost immediately. Four hundred and five personnel. Every single one disappeared. 
+That was why Containment responded so quickly. Normally, Antarctica buys you time. The continent is cold, remote, miserable, and generally hostile to human life. Emergency responses aren't exactly convenient. But when entire research stations start evaporating off the face of the planet, people suddenly become very motivated. A Containment Division task force was dispatched almost immediately. Four hundred and five personnel. Every single one disappeared.
 
 I was lucky I'd been in Egypt. Otherwise, that would've been my team. And somehow, I don't think I'd be reading this report right now. I would've been part of it.
 
@@ -40,9 +40,9 @@ Maybe something even the C.S.P didn't know. As ridiculous as that sounds, severa
 
 "We had offerings to make."
 
-That was it. No explanation. No details. 
+That was it. No explanation. No details.
 
-The lack of answers wasn’t unusual. 
+The lack of answers wasn’t unusual.
 
 Most gods barely acknowledge that humanity exists. Talking to one is like trying to interview a hurricane. They generally don't care what you think and have no interest in explaining themselves. The only exception was a river god Jacob’s team had recovered from the Amazon last spring. The thing loved hearing itself talk. Most gods treated interviews like talking to ants, it treated them like podcast appearances.
 
@@ -206,7 +206,7 @@ That actually got his attention.
 
 For several seconds he considered the question before shaking his head.
 
-"If something powerful enough to erase four hundred personnel killed purely for amusement, humanity would've disappeared long ago." 
+"If something powerful enough to erase four hundred personnel killed purely for amusement, humanity would've disappeared long ago."
 
 I hated that answer. Unfortunately, hating it wasn't going to buy me any extra time.
 
@@ -230,7 +230,7 @@ Stonehill had already gone back to his paperwork. As far as he was concerned, An
 
 We reached Antarctica surprisingly quickly.
 
-The aircraft was mostly automated, which wasn't standard for C.S.P. operations. They usually insisted on keeping a pilot on board. This time they didn't. Personally, I figured it was because if all eight hundred of us vanished, they'd still be able to recover the plane. 
+The aircraft was mostly automated, which wasn't standard for C.S.P. operations. They usually insisted on keeping a pilot on board. This time they didn't. Personally, I figured it was because if all eight hundred of us vanished, they'd still be able to recover the plane.
 
 The C.S.P loves cutting costs, which is funny considering none of us get paid. People hear "secret government organization" and imagine unlimited budgets. The reality is less glamorous. We live in C.S.P. facilities, eat C.S.P. food, wear C.S.P. uniforms, and usually die before retirement. For the few who somehow survive long enough to retire, there's a pension waiting for them. Most never get the chance to collect it. On the bright side, healthcare is free, so I try not to complain too much.
 
@@ -563,3 +563,7 @@ The way I see it, humanity didn't stop an extinction event beneath Antarctica.
 We negotiated a performance review.
 
 And eventually, every audience gets bored.
+
+  
+Part 3: [Apparently Using Assistants as Sacrifices Violates Company Policy](https://www.reddit.com/r/nosleep/comments/1uc8w6u/apparently_using_assistants_as_sacrifices/)
+

@@ -1,0 +1,25 @@
+Lately a new trend has been filling out the streets of Detroit, the Designer Cybernetics company U-Tech recently released their "Nano-Vanity" series of products exclusively to the city as a "First drop". Nano-bot based Augs that take the form of the recipient's desire. Ever since December last year, everyone has been going crazy about these things. I don't trust them though. 
+
+For some context, I'm very anti-Augment. I don't trust what those things do to your brain, what chemicals or other harmful materials might be in the components or wires, Ocular Augs scare me the most. I can only imagine how decimated your attention span must be to have TikTok, Reels, YouTube Shorts- Whatever the fuck autoscrolling \*in\* your field of vision all day. 
+
+That's beside the point.
+
+I was scrolling my phone the other night and honestly, exactly what I expected to happen- Has in fact- Happened.
+
+On June 18th, 2026, at 4:12PM, a Nano-Vanity Aug malfunctioned in a Kroger. The article didn't go into detail, but there were at least 9 deaths, the assailant had to be shot dead by the cops outside. U-Tech's PR guy had his work cut out for him, no doubt. Guy said something about "Nano-Vanity products possibly causing malfunctions in augments by other manufacturers." Yeah, bullshit.
+
+  
+Next day I talked with some co-workers about it in the breakroom. We'd all agree that the augments were sketch as hell, but one guy- Bret- A hype beast jaggoff that buys everything trendy or popular, butted into the conversation. Tho it's not surprising, he's aug'd to the teeth, Tat-Screens, Ocular Augs that look like that spiral thing from Naruto, etc. "You're just mad you can't afford Nanity, pal. This shit is absolutely Magnum, you just don't get it!" He said, holding up his hand instead of moving it from a fist, the network of nano-bots shifted and moved around until the hand reshaped to show us the bird.
+
+Yeah, fuck you too Bret.
+
+The day continued as normal, I work Janitorial duty so you can only imagine the shit I put up with in a grocery store. Tho when I went to start my round on the bathroom, I'd see a weird person walking out of the Men's restroom. He was hunched over stumbling out, arm curled around his stomach, his skin was pale, almost grey, and I'm certain I saw strange lumps crawling under his skin. When I went into the restroom, from the stall I could smell the most gruesome odor. I wanted it taken care of first before anything else just so I HOPEFULLY don't gotta smell it rest of the time. 
+
+I opened the door to the stall and saw nothing but red and brown viscera in and around the toilet bowl. I wanted to throw up, my eyes watered and my stomach churned and quivered. I'd reach into my gearpack and pull out a RespMask. Putting it up to my mouth and nose, the odor was basically eliminated. I'd look closer at the mess in the toilet, it was... I don't know- From what I heard later it was a heart. A heart with holes eaten through it. I didn't even clean it up, nined the eleven immediately. 
+
+I thankfully got the rest of the day off, and went home ASAP. I'd see on the news that night that the man didn't even make it to the car when he left the store, having collapsed outside the right hand entrance. Cause of death- Nanobots caused him to vomit his heart out after attempting to replicate it in it's place. Underneath his shirt wasn't skin, but a series of cable-like structures coming out of his chest from where his heart should be. 
+
+U-Tech's PR, the absolute saints of truth they are, said that this was another instance of conflicting augs. Supposedly, this one was brought on by the man having a pacemaker right next to the socket where the Nano-Vanity was installed. How the fuck would they not know that? Doesn't that come up during testing phases?
+
+Whatever, if this shit progresses any further, I'll let you guys know.  
+My name is James, it is June 21st, 2026. Nano-Bots are killing people in ways I doubt I'll see the end of. Stay safe out there. 

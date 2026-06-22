@@ -1,0 +1,39 @@
+It’s me again. I made a post a couple days ago about my.. less than pleasant experience with pigs during one of my delivery routes. Apparently a few folks found it interesting and wanted to hear more of my stories, so I got around to writing out another story to post here. 
+
+Not long (unfortunately) after my run-in with the “pig house,” my boss changed my route to go more away from that general area. Not because he wanted to, but because he couldn’t be bothered with employee negligence claims. Because of this, the new route I got was, to put it simply, a massive pain in the ass. It was during this pain in the ass route that I ended up in the sticky situation I’m writing about today.
+
+It was one of my first days on the new route, and it happened to have been rainy around that time. So I was wandering around on my route, but ended up having to find another way to the house I was trying to get to because a tree had fallen and blocked the way, because of course it had. And then the fog started setting in, and I made a wrong turn, and then it started raining, and needless to say I got hopelessly, helplessly lost. 
+
+After a while of driving around making whatever turns my gut told me to make, I ended up at what I \*thought\* was the right house. Even if it wasn’t, I really didn’t care at that point. I just wanted to move on with my day. So I pulled up the van, grabbed my door handle, and mentally prepared myself for a sprint through the pouring rain as I said a silent prayer that I didn’t get electrocuted. 
+
+3… 2… 1… RUN!
+
+I don’t think I’ve ever run so fast in my life. I arrived at the door, soaking wet, dropped the soggy mail in the box, and rang the bell. I don’t very well remember what the house looked like, if I’m honest. I think it was white. I remember a rocking chair on the porch. The sound of wind chimes furiously crashing into each other as the howling wind blew.
+
+I braced myself against the wall and took a second to recompose myself before leaving, since it usually takes a few minutes for people to get to the door, if they get there before I leave at all. But I was a second too long this time, as a small old man opened the door and squinted at me, rearranging his large, round glasses on his nose.
+
+He gave me a rather concerned look, and asked if I was alright. I said yes, I had just been having a bit of a rough day. I suppose he noticed that I was more worse for wear than I had let on, so he kindly asked me if I needed to come inside to warm up for a minute. Now, normally I would never. It don’t trust people enough for that, and I’m not supposed to enter anyone’s houses anyways. Policy, you know. But I was tired, and hungry, and wet, and really just wanted to rest. Plus, I have always had a hard time declining invitations from older folks, and the old man had such a lonely, sorrowful look about him. So I said yes, I wouldn’t mind coming inside for a moment. 
+
+He opened the door for me, and I stepped inside, making sure to duck below the low door frame. I said thank you, that I wouldn’t be too long. He told me it was no trouble, then led me to a small living room, where I sat down on a small, dingy yellow couch. He told me he was making lunch at that moment, and that he would make extra for me. So I sat, a towel wrapped around my shoulders, and watched the flame dance in the fireplace. 
+
+Almost immediately, I noticed a headache starting to develop. I didn’t say anything, though, because it was clear this old man was very lonely. I glanced around, and noticed something on the ceiling. It was dark, and spotty, and made my eyes hurt. What was it? Water damage? No, not that. Was it-
+
+Before I could finish my thought, the old man came into the room and announced that lunch was ready. He waited patiently as I stood up, and then hobbled his way to the dining room, turning around every now and then to make sure I was following behind.
+
+We passed through a kitchen, then into a dining room. I looked at the table. A nice table, with nice plates set out. There was a woman sitting there. She looked.. pale, sickly. I didn’t ponder on iT, though, as I pulled the old man’s swag out for him. I thought it would be helpful. He thanked me, and then gestured to a chair. It was right across from the woman.
+
+Right before I went to say down, I noticed an absolutely godawful smell. I didn’t react, though. I consider myself a polite man, I would never say something about it to strangers. I was hungry, so I immediately leaned down and started eating.
+
+The old man began to chatter gently to someone who did not seem to be me. The woman, I assume. I had eaten about half of my food before my headache suddenly hit with a sudden burst of pain, and I looked up. As I did, I swear I could have jumped out of my skin and ran away as just my brain and nervous system. The woman across from me was \*dead.\* Her teeth were yellow and her skin was blue and rotting. And then a thought hit me.
+
+\*Black. Mold.\*
+
+That was the cause for my headache. That was the damage I had seen. And that, combined with an old man, with obviously poor eyesight, who was living in a rotting house and probably hadn’t seen another human in months, maybe years, and you get the perfect recipe for tragedy. He thought his wife was alive, and he continued to chatter to her about every little small occurrence in his life.
+
+God, I didn’t know what to do. I didn’t have the heart to tell this little old man that his wife wasn’t.. \*actually\* there. That she was sitting across from him with maggots in her eyes and holes in her flesh. All I knew was that I had to get him out of there. But first, \*I\* had to get out of there.
+
+I finished my food, and told the old man it was almost time for me to go. He seemed sad, but said that it was alright. The rain had died down, he said. His Betty always liked walks in the mist, maybe he would take a walk for her today. She couldn’t walk anymore, so he would take walks for her sometimes. 
+
+I bade him goodbye, said thank you for the food, and got back in the truck. As I pulled out, I could feel myself beginning to worry for the poor man. Where would he go? Would he be alright? What was I supposed to do, who did I tell? Would he be safe? I tried to distract myself from the thoughts, when I noticed warmth on my face. Oh. I was crying. How long had I been crying? 
+
+I finished my route as fast as possible that day. I don’t remember who I called at the end of the day. 911, the police, I don’t know. I was pretty out of it. It didn’t matter, though. I found the man’s face in the obituaries the next day. I know it’s stupid, but part of me feels like I was meant to be there that day. Like he needed \*someone\* to just stop by again before he left, even if it was only a stranger stopping in for lunch. I hope, wherever he is, if he is anywhere, that he is happy. Every now and again I stop by his gravestone to say hello and leave flowers. I think I might be the only one who visits. I haven’t seen anyone else, at least not yet. I think about him a lot. I hope he’s as alright as he can be. 
