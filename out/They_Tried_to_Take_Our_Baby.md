@@ -1,0 +1,37 @@
+The night it happened, the crickets stopped all at once. That’s what woke me. Silence pressing in on the farmhouse, thick as humidity. It was too quiet, even for rural bumfuck Kentucky. I rolled out of bed and stepped onto the porch in my socks. Over the hayfield, a light hung low and wrong—no sound, no drift. Just a hard white oval, pulsing like it was breathing.
+
+My wife, Marlene, came up behind me. “Bobby, you see that too?” she asked.
+
+Before I could answer, something thudded inside the house. Not loud. Careful. Like a drawer being eased shut by someone who knew we were home.
+
+I grabbed the lever action from the rack by the door. It felt heavier than usual. We moved down the hall, slow. The door to my newborn son Dylan's nursery was open a crack, light spilling out that wasn’t ours. The room stank, like burnt hair and copper. 
+
+I pushed it open. 
+
+They were short and bent, four of them, skin the color of wet clay. Big eyes, no whites. Their mouths moved like they were chewing something even when they weren’t. One stood on the crib rail, long fingers wrapped around my son’s ankle. He didn’t cry. He just stared at the ceiling, calm as could be.
+
+Marlene whispered, “Oh God...”
+
+“Get away from him!” I shouted, hating how small my voice sounded.
+
+I brought the rifle up, but my hands shook. One bad angle and I’d put a round through my boy. The thing on the rail turned its head too far, like an owl. Its mouth stretched into something like a smile.
+
+They hissed. One said something in a strange language. One word sounded almost like my name.
+
+Marlene screamed and lunged. I followed. The rifle almost slipped from my hands, but I swung it up and brought the butt down hard on the one holding my son. The crack sounded like hitting a green log. It stumbled, still clutching the crib rail, so I hit it again. It was light. Too light. Its skin split where the stock connected, soft as rotten fruit, and something black leaked down the dresser and onto the floor.
+
+Marlene tore another off the crib and broke a lampshade over its head. She didn’t even flinch.
+
+They fought back, sharp and fast. One clawed my cheek. Another kicked Marlene in the ribs. Then, all at once, they scattered. The light vanished. The crickets came back.
+
+We stood there breathing hard. "What the fuck were those things?” she exclaimed. 
+
+I didn't know how to answer her. 
+
+We locked the doors. We held our boy between us until dawn. 
+
+Weeks passed. The cuts healed. The fear didn’t.
+
+Dylan grew fast. Too fast. He didn’t cry much. When he smiled, it was wide and wrong. Once, Marlene said she heard that alien language, coming from his room.
+
+Last night, I caught his reflection in the nursery window while rocking him. His eyes were jet black, no whites [at](https://www.reddit.com/r/PageTurner627Horror/comments/1tsovdx/resist_the_devil_part_1/) [all](https://www.reddit.com/r/PageTurner627Horror/comments/1tzzn4b/running_around/).
