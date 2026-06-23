@@ -324,7 +324,7 @@ The angel looked genuinely surprised by the question.
 
 *"It appears to involve travel."*
 
-I pinched the bridge of my nose. Around us, nobody was speaking. Nobody was moving. Nobody was volunteering to tell an eldritch celestial entity that he couldn't board the aircraft. 
+I pinched the bridge of my nose. Around us, nobody was speaking. Nobody was moving. Nobody was volunteering to tell an eldritch celestial entity that he couldn't board the aircraft.
 
 The angel tilted his head.
 
@@ -447,3 +447,6 @@ If I'm being honest, that's making me consider several alternative career paths.
 Anyway, they're calling us in.
 
 I'll update this journal if I survive whatever is waiting inside.
+
+  
+Part 4: [I Work for an Organization That Hunts Gods. One of Them Warned Me About the Angel Following Me.](https://www.reddit.com/r/nosleep/comments/1ud5jzx/i_work_for_an_organization_that_hunts_gods_one_of/)

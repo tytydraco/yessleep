@@ -549,3 +549,5 @@ The helicopter departs at six, so eight hours from now. At least that means Jaco
 Antarctica is waiting.
 
 And for the first time in a long time, I'm not looking forward to a mission.
+
+Part 2: [I Went to Antarctica Looking for 10,000 Missing People. I Came Back With a New Boss.](https://www.reddit.com/r/nosleep/comments/1u9om8s/i_went_to_antarctica_looking_for_10000_missing/)

@@ -1,4 +1,5 @@
 [Part 1](https://www.reddit.com/r/TheAftermireArchives/comments/1u81nn0/the_only_rule_never_arrive_after_dark_carters/)  
+[Part 3](https://www.reddit.com/r/TheAftermireArchives/comments/1udkf9o/the_only_rule_never_arrive_after_dark_carters/)  
 The air in the room instantly grew heavy.  
 Years of experience helped me take control of the situation.
 
