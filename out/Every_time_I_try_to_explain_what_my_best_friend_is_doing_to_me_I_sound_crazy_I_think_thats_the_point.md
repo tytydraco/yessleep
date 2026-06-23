@@ -2,15 +2,15 @@ I want to start by telling you who Jeff is, because none of what comes after mak
 
 Jeff and I met the first week of university. Both of us were standing in line to get our student ID cards, and his photo came out terrible. He turned around and showed it to me, a complete stranger, and said This is genuinely the worst thing that has ever happened to me. I laughed. We talked for the next forty minutes, and by the time we got to our first class, we had already decided we were eating lunch together.
 
-We lived in the same residence that first year, different floors, which meant we were constantly in each other's rooms. His was cleaner than mine. He had a rug from home, a lamp, and a coffee maker he was inexplicably proud of. My room had a mattress, a desk, and a poster I had put up ironically and then forgotten to take down for two years. 
+We lived in the same residence that first year, different floors, which meant we were constantly in each other's rooms. His was cleaner than mine. He had a rug from home, a lamp, and a coffee maker he was inexplicably proud of. My room had a mattress, a desk, and a poster I had put up ironically and then forgotten to take down for two years.
 
 We studied for exams sprawled across his floor with that coffee maker running constantly, his notes color-coded and organized by topic, mine written in a single pen in handwriting that got worse as the semester went on. He was better at the numbers. I was better at writing. We figured that out early and used it shamelessly. I am fairly certain neither of us would have passed first-year accounting without the other.
 
-We went to every party that would have us and some that would not. Jeff always knew someone who knew someone. I was always the one driving home at two in the morning while he talked too loudly in the passenger seat about things that felt profound and were not. 
+We went to every party that would have us and some that would not. Jeff always knew someone who knew someone. I was always the one driving home at two in the morning while he talked too loudly in the passenger seat about things that felt profound and were not.
 
 We played beer pong at a Halloween party in October against two guys from engineering who took it very seriously, and we beat them anyway, mostly because Jeff had a gift for cheerful trash talk that disarmed people before they realized what was happening.
 
-Second year we got an apartment together off campus. Two bedrooms above a Vietnamese restaurant. One pot, two plates, and a constant low-level smell of pho that we eventually stopped noticing. 
+Second year we got an apartment together off campus. Two bedrooms above a Vietnamese restaurant. One pot, two plates, and a constant low-level smell of pho that we eventually stopped noticing.
 
 Jeff's high school girlfriend, Clare, broke up with him in November of that year, and I came out of my room at midnight to find him sitting on the kitchen floor with his back against the cabinet. I did not say anything wise or useful. I just made bad coffee in his coffee maker and sat on that floor with him until almost four in the morning. He told me years later that was exactly what he had needed.
 
@@ -20,15 +20,15 @@ That was six years ago.
 
 Since then it has been weekly calls, monthly dinners, double dates, game nights that start at seven and end at two in the morning with everyone too tired to drive home. Jeff and Hannah got married three years ago. I met Amaya the year after graduation, and we got married eighteen months later. The four of us fit together in the easy way that good friendships do, where nobody has to perform, and the silences are comfortable.
 
-Two weeks ago the four of us got back from a long weekend in Montreal. We ate too much and walked until our feet hurt, and on the second night Jeff and I found a dive bar while Amaya and Hannah went back to the hotel and we sat there until last call talking about nothing in particular, the way you only can with someone you have known long enough that you stop keeping score. On the flight home, he fell asleep in the seat next to mine, and I sat there reading and somewhere over the highway it occurred to me that I could not picture my adult life without him in it.
+Two weeks ago the four of us got back from a long weekend in Montreal. We ate too much and walked until our feet hurt, and on the second night Jeff and I found a dive bar while Amaya and Hannah went back to the hotel and we sat there until last call talking about nothing in particular, the way you only can with someone you have known long enough that you stop keeping score. 
+
+On the flight home, he fell asleep in the seat next to mine, and I sat there reading and somewhere over the highway it occurred to me that I could not picture my adult life without him in it.
 
 I need you to hold onto that.
 
 Because I am about to describe things that are going to make Jeff sound like a monster. And the part I keep getting stuck on, even now, is that I am not sure that word covers it. Monsters are simple. You see them, and you run.
 
 That is what made it so hard to see.
-
-
 
 The game night was a Tuesday in October, nothing special about it. Our place, the four of us, a bottle of wine Jeff brought that was too expensive for a Tuesday and which he did not mention the price of, which was always such a Jeff thing to do. Amaya made the dip she always makes, the one Hannah asks for the recipe for every time and never writes down. We sat around the coffee table and talked and laughed, and it was exactly like every other game night for six years.
 
@@ -67,8 +67,6 @@ The rest of the night was completely normal. Jeff was warm and funny and entirel
 I almost convinced myself I had imagined the whole thing.
 
 Almost.
-
-
 
 Amaya fell asleep quickly. I lay next to her, staring at the ceiling and could not have told you exactly what was bothering me. Nothing had happened. Not really. A story told slightly wrong. A look that went a beat too long. A friend in a hallway.
 
@@ -116,8 +114,6 @@ The glow in the window was my phone screen.
 
 The photo had been taken while I was looking at it.
 
-
-
 I woke up in the morning and checked immediately.
 
 The photo was gone. No texts from Jeff at all, just a call log showing his name at 3:04 am.
@@ -145,8 +141,6 @@ I said no, it was fine, just a flat tire.
 He said he could come get me.
 
 I said yes because I did not yet understand why I should say no.
-
-
 
 We went for beers at a place near my office. Jeff was completely himself, asking about work, telling me about a difficult client, laughing at things the way he always laughed. By the second drink I was starting to feel like an idiot for the week I had been having inside my own head.
 
@@ -194,8 +188,6 @@ I watched him through the rear window. He stood perfectly still on the sidewalk 
 
 I did not say a word the entire ride home.
 
-
-
 Amaya was warm when I got back. Normal. She had made dinner and asked about my day and I sat across from her and told her everything. The photo at three in the morning. The shirt. The parking garage. What Jeff had said as the door closed.
 
 Amaya is not a liar. It is one of the things I have always known about her. She does not have the face for it.
@@ -222,8 +214,6 @@ Three words.
 
 I put the phone face down and did not sleep until it was light.
 
-
-
 Breakfast the next morning was the kind of quiet that happens after a fight that has not technically started yet. Amaya and I moved around each other carefully. She left for work and I called in sick and sat at the kitchen table with cold coffee.
 
 I arranged for the tire to get looked at and then called Hannah, keeping it friendly, just checking in, listening for anything underneath the surface of her voice. She was warm and easy. She asked about Amaya, mentioned they should do another game night soon, said Jeff had told her I seemed a bit stressed lately and she hoped everything was okay.
@@ -243,8 +233,6 @@ The smell hit me before I even closed the door.
 Dior Sauvage. Jeff's cologne. I know that smell the way you know a smell that has been in your life for years. It was not a trace of it. It was recent and strong, the way a smell is when the person wearing it has not been gone long.
 
 I sat in that parking lot with the garden spade and the cologne occupying the same morning and understood that I was done trying to talk myself out of it.
-
-
 
 I drove to Jeff and Hannah's. My body knew the route without thinking.
 
@@ -281,8 +269,6 @@ I set the cup down and made an excuse and stood up.
 Hannah smiled and stayed in her chair. She did not move to show me out.
 
 "Jeff will be so sorry he missed you," she said.
-
-
 
 I made it to my car and sat there. The world had a quality I did not like. I knew I should not drive, but I could not stay.
 
@@ -324,15 +310,13 @@ Then the door opened, and Jeff walked in.
 
 He looked worried. He put a hand on my shoulder and squeezed it and told the officer that his friend had been under a lot of pressure lately, hadn't been sleeping, probably just needed to rest. He laughed softly, the laugh of a man who was not embarrassed on my behalf, just genuinely concerned.
 
-I watched the room shift as he spoke. Watched the skepticism I had been fighting transfer itself onto me, cleanly and completely, without anyone noticing it happen. The officers, either out of apathy or charm, dismissed me and my claims. 
+I watched the room shift as he spoke. Watched the skepticism I had been fighting transfer itself onto me, cleanly and completely, without anyone noticing it happen. The officers, either out of apathy or charm, dismissed me and my claims.
 
 Jeff looked at me once during this, briefly, while the officer was writing something down.
 
 He smiled. Just barely. Just enough for me to see it and nobody else. He then winked at me.
 
 I walked out with Jeff because there was nothing else to do. He had made that true without anyone in that room seeing him do it.
-
-
 
 He drove. I sat in the passenger seat and watched streets scroll past that I did not recognize and focused on staying awake. The tea was still working on me, and my thoughts kept sliding sideways.
 
@@ -351,8 +335,6 @@ Jeff glanced at me once.
 He was smiling at the road ahead.
 
 My eyes closed, and I could not get them back open.
-
-
 
 I am going to tell you what I woke up to, and I need you to stay with me.
 
@@ -406,7 +388,9 @@ Then he spoke.
 
 His voice was calm and almost gentle.
 
-He said that I did not need to be afraid. He said that what was happening was not something being done to me but something being done for me. He said that the people in the photos had all felt what I was feeling right now and that every single one of them had come to understand, in time, that they had been chosen for something larger than themselves. He used a word I did not recognize, a name, something that sounded almost like a title, and the way he said it made clear that whatever or whoever it referred to was the axis around which everything else turned. The fires. The photos. The teeth on the mantle. All of it in service of something I was only now being introduced to.
+He said that I did not need to be afraid. He said that what was happening was not something being done to me but something being done for me. He said that the people in the photos had all felt what I was feeling right now and that every single one of them had come to understand, in time, that they had been chosen for something larger than themselves. 
+
+He used a word I did not recognize, a name, something that sounded almost like a title, and the way he said it made clear that whatever or whoever it referred to was the axis around which everything else turned. The fires. The photos. The teeth on the mantle. All of it in service of something I was only now being introduced to.
 
 He said it like he was offering me something.
 
@@ -430,7 +414,9 @@ Then she said:
 
 "There you are."
 
-She pushed the door open a little wider and looked at me with that too-wide expression and beckoned slowly with one hand, gesturing down, toward whatever was below her, toward the basement. Then she leaned close to the gap and said something else, something quiet, something that had the rhythm of words without quite resolving into them from where I was standing. A phrase or a sentence or something older than either of those things, said under her breath like a response in a call and response she had been practicing for a long time.
+She pushed the door open a little wider and looked at me with that too-wide expression and beckoned slowly with one hand, gesturing down, toward whatever was below her, toward the basement. Then she leaned close to the gap and said something else, something quiet, something that had the rhythm of words without quite resolving into them from where I was standing. 
+
+A phrase or a sentence or something older than either of those things, said under her breath like a response in a call and response she had been practicing for a long time.
 
 I did not move toward her.
 
@@ -444,7 +430,9 @@ I ran at her.
 
 I hit her hard enough that she went down and I felt the impact through my whole body and she hit the floor and I was already moving past her toward the stairs when I heard her start to laugh.
 
-Not a pained sound. Not shocked or frightened. Just laughing, fully and completely, her whole body moving with it, lying on her back on the floor laughing at the ceiling the way you laugh at something that has been building for a long time and has finally arrived. I looked back at her for half a second and her eyes were open and she was looking at nothing, just laughing into the air above her, and there was something running from the corner of her mouth that I did not look at long enough to identify.
+Not a pained sound. Not shocked or frightened. Just laughing, fully and completely, her whole body moving with it, lying on her back on the floor laughing at the ceiling the way you laugh at something that has been building for a long time and has finally arrived. 
+
+I looked back at her for half a second and her eyes were open and she was looking at nothing, just laughing into the air above her, and there was something running from the corner of her mouth that I did not look at long enough to identify.
 
 I found the nearest door and there was no knob on my side. Just a smooth plate where the knob should have been.
 
@@ -470,7 +458,9 @@ I want to tell you that I said something to her. I want to tell you that I used 
 
 But I did not say anything, and she did not look at me like she recognized me. She looked at me the way the people in the photos looked at the fire. Like I was the thing at the center.
 
-Jeff walked into the room from the hallway with his hands in his pockets. He stopped near the center and looked around at all of it without any urgency, the way you look around a room you have stood in many times before. Hannah on all fours on the carpet. Amaya in the doorway with her head at the wrong angle. Me with bleeding hands pressed against a cracked window.
+Jeff walked into the room from the hallway with his hands in his pockets. He stopped near the center and looked around at all of it without any urgency, the way you look around a room you have stood in many times before. 
+
+Hannah on all fours on the carpet. Amaya in the doorway with her head at the wrong angle. Me with bleeding hands pressed against a cracked window.
 
 He looked at each of us in turn, and then he looked at me and smiled and said quietly and almost warmly:
 
@@ -487,8 +477,6 @@ His eyes were perfectly still and perfectly open, and they had not moved since h
 I looked at him and understood that whatever Hannah and Amaya were in the visible stage of, Jeff had passed through a long time ago. He had just been better at wearing what came after.
 
 He put his hands back in his pockets and said nothing else.
-
-
 
 I have been sitting here typing this for almost two hours.
 
