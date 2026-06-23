@@ -141,7 +141,7 @@ This was the longest day of my life, where minutes turned to hours and hours tur
 
 When I finally got in my car, I noticed something, a napkin crumpled up right on my passenger seat. I unwrinkled it and a USB slipped out unto my lap and looked at what crude writing was on the small slip of paper. 
 
-“Your voice is soooooooooo sexy, especially when you’re talking to your little friend, I’m a lpostscript.t that she doesn’t seem to like me but I’ll let it slip because your cute and because it seems like you really admire my work, God I wish I could be with you, but compared to you, you’d see me as a bug a little thing to squish, But I don’t mind getting squished by you” another winky face was written next to that and just under the message was a postscript 
+“Your voice is soooooooooo sexy, especially when you’re talking to your little friend, I’m a little upset that she doesn’t seem to like me but I’ll let it slip because your cute and because it seems like you really admire my work, God I wish I could be with you, but compared to you, you’d see me as a bug a little thing to squish, But I don’t mind getting squished by you” another winky face was written next to that and just under the message was a postscript 
 
 “P.S Thank you for the coffee although I wish you had a couple sips, then it’d be like we kissed” a sad face was drawn next to that. 
 
