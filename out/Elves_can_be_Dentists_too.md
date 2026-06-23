@@ -1,0 +1,281 @@
+I do not think they will come for me. I do not think they are still out there. And if they are and they come for me, I do not care. I am old, I lived a lifetime, most of it marked by them. Now, my cirrhosis is far too advanced to have any real chance of escaping. They may come and finish me off, I shall be dead soon anyway. This is why I return home, to Bucharest, the capital of Romania, from my cozy home in Oxford. My children are away, in Australia, they would probably not come to visit, regardless if  I live in the UK or Romania. They have not replied to my messages. So, let's go down with it. It started a long time ago, in the 1950s.
+
+
+
+My mother always told me to keep the rules. I was not sure if she meant it, as I was very small at kindergarten age and I needed to go to bed early. I remember those nights, when I heard cracks next to my window. I hid under the blanket, thinking of some ghost, Strigoi or Elf being there, if I did not sleep or behave. Yes, I think she wanted to scare me into behaving, but I think it was not just that. She told me other things, not just to make me behave properly as a child, but things that even adults have to keep, that can not be explained like that. They sound like superstitions nowadays, but people believed in them back then.
+
+
+
+The Elves are the most beautiful beings on this Earth, I suppose. Angels could be more fair than them? Perhaps, yet Angels are not from this Earth. The Elves are from here, even if Humans do not see them, at least most of the time nowdays. They are in fairy tales, where Humans long for them, ask for their help, but they also fear them. Sometimes they are Light Elves, sometimes they are Dark Elves. I am not sure if they are different beings or the same Elves who behave sometimes in Light, sometimes in Dark. Yet, even the most benevolent Elf has to be respected, otherwise you could be harshly punished and the blessing becomes a curse.
+
+
+
+Humans are not supposed to see them, or not anymore, unless the Elves want to be seen. They have certain days, especially during the Pentecost (Rusalii) or the Feast of the Birth of Saint John the Baptist (the Sânziene), where they are supposed to be their days. Yet, I do not think now that they care about the Christian Feasts, but rather they care of the period, as the Birth of Saint John the Baptist is around the Summer Solstice, and the Pentecost often comes at that time as well, and that the Summer Solstice matters to them. I do not think they follow the Christian ways at all.
+
+
+
+I am old now. I was a child when I first heard of the Iele, the Brides, the Ladies of the forest, of the night, tall, beautiful in white flowing garments, dancing their magic dance that, if you end up seeing it, you need to run or at least hide. If they see you, they kill you or harm you, physically or mentally.  You may end up crippled, mute or insane. Yet, some say that seeing them only for a small amount of time is worth it. 
+
+
+
+Does it? I think not. But if you happen to see them, you would probably say at the moment it is. You forget your life, you would just want to leave your it and the mortal world behind and be with them until you die.
+
+
+
+I knew of them since I was a toddler. I was born in the first years of communism, I never experienced Romania before communism in itself, but the old Romania was still alive, even if  it was sick or dying. As the communists turned the country into a prison, as they suffocated the old ways, no matter how brutal they were, they could not do it fast enough to wipe it all out at once.
+
+
+
+My parents were middle class people before communism. Educated people, of old stock. Exactly the type the communist regime hated and declared officially they need to be destroyed. I am grateful that, no matter how harsh life was then, my parents were next to me, not dead, not in prison, even if they lost their possessions and most of their homes, as we were living in the attic of my father's family mansion, the rest of it being confiscated by the regime.
+
+
+
+As the old Romania was dying, they wanted to make sure I remembered it. So they made me experience as much from it as they could, not just telling me about it. They took me to meet people, to talk to them, to see what was still there. This is why they took me that evening to listen to Cecilia Rădulescu singing her tunes at that restaurant.
+
+
+
+She had her glory days in the 1930s, when people were fascinated by her. A tall, redheaded woman, stunningly beautiful singing romantze, tango, jazz and other fashionable genres, but also old folk music, especially the haunting longing of the doina. Nobody sang like her, it was like, if she would ever tried to sing ”drier”, in a normal way, she would not be able to.
+
+
+
+A record label tried to convince her to have released vinyl EPs or even LPs, but she always declined. Now, it was rumored that the regime wanted her arrested. This is why my parents took me to see her that night, as every show could have been the last. 
+
+
+
+I was ten years old already. I remember when I first saw her coming on stage. She was supposed to be around age 55, yet nobody knew her real age. She did not look that old. She did not look young, she was stunningly beautiful in an ageless way, if it makes sense. She could have been 25, 35, 45 or 55, she would have still been the same. Her dress, her hair, her jewelry, her makeup was pretty toned down, but she was still stunning nonetheless. She was with us, but also like she was graciously floating above us.
+
+
+
+But when she started singing those doinas, it was like a sweet cold shiver down my spine. I had goosebumps on my arms and back. I understood then why people said all those things about her, they were all true. Such a vast and deep longing started in me I never believed possible.
+
+
+
+I do not remember how long it took, an hour, two, three. I could get enough and it all felt like only a few minutes. After it ended and stepped out of the stage she went to the bar, for a small glass of brandy. People still followed her, but like none ever dared to talk to her, to look up to her. I think I was the only one who kept turning to her, even if I was afraid of her noticing me. 
+
+
+
+My mother discreetly scolded me for what I was doing. I think she knew it. I could not stop turning to see Cecilia Rădulescu, even if something in me felt a cold fear at a moment when I locked eyes with her and she gave that smile. My mother pushed my head away when she noticed that I looked at her.
+
+
+
+We ate, drank, talked a bit more, ignoring her and what I was feeling, something I am sure that at least my mother realized I  felt. Cecelia stood up from the bar without me noticing, got dressed and prepared to leave. On her way out, she passed next to our table, probably on purpose and looked me in the eyes, before moving away and leaving.
+
+
+
+We locked eyes for no more than five seconds, I suppose, but those seconds would be enough to remain in my mind for a lifetime. She smiled, a mixture of splendor delight and gentle and total condescending. This was not a middle aged woman, her face seemed flawless and the small flaws were still to be seen , they seemed fake, like some sort of mask. And then, as my heart was beating fast I realized that she was probably *that*. That she was one of *them*. I froze in place and, as I trembled of what she could do to me, if she wanted, but also not wanting to end.
+
+
+
+It was harsh when she left, but my mother tapped me on the shoulder, distracting me. For the whole evening I could not stop thinking about Cecilia Rădulescu, even my parents avoided talking about her. I did not dared to ask what was on my mind while I was there, just later, when we were home, before bed, I dared to ask my mother:
+
+
+
+”When will we be back at the restaurant?” My mother smiled and said: ”I do not know. Perhaps two weeks from now or later on. We have other things to show you next week.” ”No, please, can we go next week there too?” She chuckled softly and said: ”You want to see Cecilia Rădulescu, I suppose.”
+
+
+
+”No, I just… Well, yes, I want to hear her singing.” My mother looked in my eyes, for about ten seconds, in silence. I finally asked:  ”Is she one of the Iele? Is she one of the Elves?” My mother looked at me pale, turned away then looked at me: ”Don”t be silly. Do you think the Iele would go around like this, among Humans?” ”Well, you told me yourself they have those magical masks that can make them invisible or appear Human...”
+
+
+
+She was clearly quite cornered,  but she brushed it off unconvincingly with a smile: ”It is late, go to sleep, tomorrow we shall meet your uncle and aunt at the church.”
+
+
+
+The next day, after church, I spoke with my cousin Peter about Cecilia Rădulescu. He was older than me, around 14, I think. He brushed it off: ”The Iele are mere fairy tales, ghost stories at best. Keep calm, that woman is not an Elf. But, perhaps, you just found her beautiful, something I could understand, soon enough you will stop being a child. Do not let your mind be taken over by a beautiful woman, no matter how beautiful she may feel to you.” I was expecting that type of answer from him, it would have been very strange for him to take it otherwise.
+
+
+
+I could not stop thinking about Cecilia Rădulescu for the next two weeks. My parents did not take me to that restaurant again, even if I asked for it on several occasions. That week, I went to the school library and started to read a borrowed book on folklore for home. I found some information on the Iele, some fascinating, but not much. When I took it back, Mr. Dumitrescu, the old librarian, a former professor who was removed from the University by the communist regime, asked me: ”Interesting book? I never saw you so eager to find out about those things.” 
+
+
+
+”Well”, I replied, ”I wanted to know on the Iele. I wish it had more on them.” Mr. Dumitrescu gave me a bit of a cheeky look and said: ”Well, fortunately for you, I know a thing or two about the Iele.” I rejoiced and started to ask him. Time passed fast, I was late for a class, but I did not care. He gave me a lot of information, perhaps too fast and too much for my age and level of understanding but I remembered some things, the most important is that there is a way to remove an Elf their magical mask, to see them as they are, but that is very dangerous, probably deadly and it was never sure to work anyway.
+
+
+
+In time, my longing for the mysterious singer faded away in the background, but never disappeared.  I think I would have lived just fine with it, if something would not have happened next month.
+
+
+
+While I was eating a sour cherry compot, while I stumbled upon a fruit that still had the kernel, probably my mother forgot to remove it and I felt that a piece of the enamel of my upper left molar left with a pinch. I needed to get to the dentist to get it fixed and that was bad news, as I was really afraid of dentists. For a few days I refused to go to the old doctor that caused me some real pain the year before, he was probably pretty incompetent.
+
+
+
+Finally, my father told me he was recommended by a relative, a lady doctor who was really good at handling children. He told me I would probably feel very at ease with her and I was convinced to give it a try.
+
+
+
+The next evening, my father took me to the clinic where Dr. Andrada Bărbulescu had her practice. He would not be able to pick me up , since he needed to go for an errand, he called my cousin Peter to stay with me until it all ended. I was still anxious about it all. My father knocked at the door, and a crystalline  female voice answered, he entered and started talking, while I still waited outside. He called us in. Dr. Bărbulescu was a young, tall, natural blonde woman, with pale blue eyes and child-like features who gave me a sweet smile.
+
+
+
+I was so surprised that I forgot to greet her. My father apologized for not greeting the doctor, I mumbled a greeting, she smiled and said it is ok, that children are often afraid of the dentist, but that she will do her best to make it as easy as possible. She was so beautiful, her face, her body, her hands, I was amazed. Both excited and afraid, I stepped into the chair. My father excused himself, and Peter sat down next to the door.
+
+
+
+She gently persuaded me to open my mouth, gradually negotiating the procedures, never forcing me into it, she would go in and do something only on my clear acceptance. Firstly, it was just an inspection, after I told her how it happened. The moment her hands touched my mouth, I felt something strong, chill and *familiar*. It was far better hidden now, but unmistakable, especially since her hands were in my mouth, it was like an electrical machine was plugged in at the source. I knew it for sure, she was one of *them*.
+
+
+
+My heart beat fast, a mixture of excitement and fear, not being able to decide. She noticed my state, as she looked into my eyes and I think she realized I sensed something, as her face twitched and became a bit more blank, yet still gentle and child-like, as she said: ”Still afraid? No real reason, the cavity is not deep, it is fortunate that you came now. I can fill it fast and with little pain. I shall finish in no time. ”
+
+
+
+The Elf doctor smiled and I gave a sigh. She chuckled at me, as she turned her back on me to prepare the materials. Yes, she knew I felt something, of course she could not recognize it. I could just ark her directly, but it would have been dangerous, perhaps silly. I did not know what would have happened, as the mixture of chill fear and intoxication with her magical presence that was so sweet, even if she kept it hidden made me breathe uneasy. She turned the light on, since the sun had just set. Peter looked at her a bit intrigued, a bit uneasy.
+
+
+
+She giggled a bit, still having her back on me: ”It will be done in no time, just a little pinch and that is all. ” As she turned around. I was still torn between excitement and anxiety. ”Ready when you are.” I listened to her and laid my head back to allow her to operate. I thought to myself that perhaps this is a good Elf, like those from fairy tales (In Romanian, we have the expression ”Povești cu zâne”, that means, more or less, fairy tales, but the literal translation would be ”Stories with female Elves”), who uses her magic for good, who helps the hero and so on. But then I remembered that even good Elves, if disrespected or if you go upon them uninvited in those moments, can harm you or kill the Human who does such things.
+
+
+
+As she finished removing the damaged dentine and her fingers touched the wound in the tooth, a delightful magical thing entered my body, not strong, but very clear, and something clicked when it happened. When she removed her hands from my mouth, smiling, to get the filling, she looked into my eyes with that classy cheekiness and I knew I could not wait to feel her touch again.
+
+
+
+Her hands entered my mouth and finished the filling, as I realized that, although I felt physical pain, it was like I did not, somehow. Her touch was marvelous. She finished it and said smiling: ”I told you it shall be fast and almost painless.” I raised my shoulders, as I did not know what to say. I looked into her eyes, wanting to rejoice into something from there. She felt it right away and gave a smile that was gentle and sharp at the first time. I think she knew that I knew what she was. 
+
+
+
+”I finished pretty fast, faster than he expected. Do not eat anything for two hours now. It is not very late, I suppose you boys shall be fine. I have another patient who I think has already arrived and I shall treat her as soon as possible.”
+
+
+
+I nodded and said: ”All right.”, almost saying ”Whatever”. No, I could not make myself leave from her proximity, even if it was clear she wanted us out soon. She turned her back to wash her hands at the sink, as I rose from the chair. I needed to do something, I knew this was very dangerous, my heart was beating fast and I was torn apart between fear and the fact that I shall long for the presence of an Elf, of Elvishness after this, drying my heart.
+
+
+
+As she washed her hands she threw some materials into a thrash can, and noticed something on the floor so she went down to pick it up, with exquisite gracious movements, far more gracious than those of a professional, experienced ballerina on stage. Then I remember what Mr. Dumitrescu said about the ritual, it was fast and quite easy. I was not sure it would work, but I needed to try it. In a split second I decided to do it, so I leaped towards her head (I shall not share it, all I can tell you is that it was ridiculously simple) and it was done.
+
+
+
+As she turned around, I left the world of the mortals. Andrada Bărbulescu, in a way, exploded. What was deep and faint came suddenly visible. A huge substance of an ancient, deep and powerful magic engulfed so much fast and strong, that I fell to the floor, but I felt no pain. The Elf shone with a bright silver-blueish light that filled the whole room. Her hair shone with its own golden light and, when she turned to me, her eyes were like two burning blue stars that pierce me with wrath to the floor. I instantly regretted my decision, as I started to hyperventilate, as my heart was beating like wanting to explode. I moved my arms and legs on the floor chaotically, and my mouth was moving without being able to beg for my life. 
+
+
+
+She stood up, removed her bonnet and let her hair flow like a cascade of fluid gold. She also removed her medical coat, to allow the light to flow brighter. It felt like millennia of ancient deep magic pierced me like a bullet piercing a  piece of rotten wood. This magic was so marvelous, impossible to put it into words,  as I was trespassing into another world and another time, ancient and forbidden to mortals. And this being was silently and overwhelmingly angry at me, like wanting to crush me. Tears flowed from my eyes, as my teeth clenched. At this moment, I did not know what would be worse: to kill or just to let me go after I have been in her world, without ever stepping in it ever again.
+
+
+
+The Elf stood tall, looking at me, then at Peter, who stood up with his eyes bulged out and his mouth open. I stood for about a minute, as I noticed on her forehead another light, like a star, that was not an eye, but something different, something that seemed to be something I think can only be described as high, like some sort of crown that was part of the being who wore it. Then she spoke with a voice that was so crystalline and sweet that it was intoxicating, even if it was filled by that deep calm anger, yet sounding somewhat like ethereal singing: ”Now, behold what you wanted to see, if you wanted it.” 
+
+
+
+My mouth moved without being able to beg for my life. My face was soaked in tears. She bent over me, as my mortal heart started to panic, then grabbed me with a delicate, yet stronger than steel force in the air, as my body was like under some sort of electric current that almost brought me to ecstasy. My soul wanted to just stay in her grip until the world ended.
+
+
+
+She raised me from the ground, as my legs twitched desperately in the air, so that my face was close to hers and our eyes locked. I desperately needed to close my eyes, but I could not. She pierced something in my soul like a giant sword breaking an old wooden door like it was cheap, wet, cardboard. I could not resist my soul not being nude in front of her. It felt like hours, but probably there was a minute at most. I managed, I do not know how, to close my eyes and mumble: ”Forgive me…” and she put me down on the floor.  Peter at this point managed to turn his back and open the door, but the Elf gave a sound I can not describe, like a shout or hiss, and Peter was pushed inside by Cecilia Rădulescu, who entered and locked the door, as she was, probably, the patient or supposed patient mentioned before.
+
+
+
+I dared to close my eyes after I felt that the light and radiance faded, at least mostly, and I saw Dr. Andrada Bărbulescu with her mask back on, in her fake Human form, a stunningly beautiful, yet Human woman, but with the terrible calm anger in her eyes now, nothing of her previous child-like benevolence from the beginning. She asked us with the authority of an ancient powerful magical being in Human form:
+
+
+
+”You seem to have known how to do it. How did you know?” ”Mr. Dumitrescu told me… He told far more than I read in the library… The school library…” I managed to mumble, even if my heart was still beating fast and I was hyperventilating. She asked again, in the same tone: ”Who is Mr. Dumitrescu?” ”The school librarian… He used to be a professor at the University...” She became silent; as I let my head down.
+
+
+
+I was a bit calmer now, as the room remained silent.. I turned my head to look at Cecilia Rădulescu on the other side of  the room and I started to shake again, as I met her gaze.
+
+ 
+
+Cecilia's eyes made me turn my head down to the floor again. Andrada started to talk in a monotone, yet heavy voice with Cecilia in a melodic language, that would have been really delightful in itself even if it would have been spoken by the most un-magical Human, a language I could not identify, yet that my heart ached to know.
+
+
+
+Yes, Andrada was angry, yet soon Cecilia seemed so much more than her, so angry that it made the deep anger of Andrada feel faint. Probably if Cecilia removed her mask at that moment, I would have passed out if I had heard her speaking with her real, Elven voice.  The way they spoke, their tone, even with their fake Human voices felt un-Human-like, yet still discernible to a degree. I realized that they argued in a very composed manner, Cecilia was clearly far more angry and hasty into doing something I could not know it was, but that I knew it was terrible.
+
+
+
+I stopped crying, as I was too tired to cry anymore. My whole mind was a train wreck at this point, I laid with my whole back on the cold floor, as they stopped talking. I knew then that, even if I shall escape alive or even unharmed in a physical way, I was damaged for life. This took some time, probably a few minutes in real time, as they kept talking. Cecilia was clearly determined to do something, Andrada was clearly more composed. In the end, they stopped talking, after Andrada said something pretty sharp, making Cecilia quiet.
+
+
+
+Then she turned towards me and  said in a less angry, more composed, almost gentle way, even if still stone cold: ”Stand up.” I obeyed, but still avoided looking into their eyes. Andrada said: ”Look at me, both of you. Now”. Peter was still held firmly by Cecilia and he was shaking. I looked into Andrada”s eyes and, behold, the anger was far more restrained. She said: ”You were foolish. You can not imagine how foolish you were. I could kill you now, or do something to you that you can not even imagine. However, I will give you one chance.
+
+
+
+You shall speak to no one as long as I live of what you experienced here. You shall not speak of our kind to no one, you shall not even suggest that we exist. If you shall ever even suspect that someone is of our kind, you shall mention it to no one and, as best as you could, you shall not speak with that person, you shall not even look at them. If you dare to do otherwise, you shall not receive another chance. Understood?” I nodded my head. ”Now”, she continued, ”we shall put you to sleep. Do your best not to scream, as not staying silent would cost you a lot.” Then, she took her hand to her head and removed the mask.
+
+
+
+The ancient radiance came back and I started to shake and, soon after, Cecilia took her hand to head as well and removed her mask. Andrada turned off the light bulb and left us under complete power of their Light. The radiance became far stronger now and the feeling of stepping out of the Human world and Human time almost completely blew my mind. My knees felt soft when I saw the Elven eyes of Cecilia, that held a far stronger and deeper anger than Andrada had. My teeth started to chuckle again, as Cecilia made a step towards me, holding Peter from the back of his head fiercely. Andrada discreetly touched her arm, making her stop in her tracks.  They started some sort of howling song in that language that felt like being an extension of their nature. I felt drowsy, intoxicated, my mind could barely hold on, it was like a suffocating fog came over me and my body twitched in terror.
+
+
+
+And you know what made it so much worse? Seconds before I passed out (I managed to stay silent all this time, I do not know how.), in time where I was like suspended over a lake of terrible bliss from the Fairyland (I do not know how else to call it, the name is quite bad, I know.), anger became softer. Soft enough to feel in this something else, something even deeper and stronger than anger, underneath it, a deep, unbelievable deep *sorrow*. I started to weep, with different tears than the ones from before. Andrada held a deep sorrowful warmth I could not stand, and then all went dark.
+
+
+
+I woke up on a hospital bed. I was startled when I woke up and it took me a minute to realize what was going on. I was examined fast by a doctor and it was soon decided I was physically ok. I was given some pills that made me feel light headed and I was still forced to take them for a month, until I became as close to the state I was before this as possible.
+
+
+
+Officially, both me and Peter passed out when a gush of blood came out of my tooth cavity. We were ”girls”. Soon after, Cecilia Rădulescu and Andrada Bărbulescu disappeared. Some people said they were taken over by the Securitate, the Political Police, yet others said they disappeared completely. At the same time, Mr. Dumitrescu was found dead, officially of heart attack, in his house.
+
+
+
+Yet, I felt ruined. And I was ruined. My soul was dry, aching, as I could not go back to my old life. I became unfit for joy, for happiness for a long time and, although this became easier in time, it never truly went away. I should have been really grateful but to be alive, physically unharmed, even mentally still pretty functional, but I was not. I could not rejoice in this Human existence, once I tasted the *other side*. But I knew that the land of *bliss* was lost for good. I often sobbed and cried, as I could not speak with my parents, and they did not ask, even if my mother probably realized something and never pushed me into discussing. 
+
+
+
+Peter was broken too. Before, he was quite a straightforward boy, he was not scared easily and stubborn. He became a quite feeble man, as an adult. He was still himself, but he was like he could not live as himself anymore. He hated me for life for this and he was probably right to do so. I think the only reason why he talked  to me from time to time was because I was the only one whom he could still speak of what happened that evening. 
+
+
+
+I became obsessed with things like mythology, folk magic, and paranormal sightings. Yes, I was still afraid of them, but I risked doing my research. At first, I was quite paranoid, then I became more calm. Yes, I wanted to get in touch with *them* one way or the other, the longing for Elvishness became less acute, but more deep and the longing became stronger than fear. I kept remembering mostly the last moments, when that sorrow kind of broke the terror itself with its power, alongside with my heart, something I did not realize at the moment.
+
+
+
+My decision was made. I decided to flee Romania and get into a western country, in order to attempt to seek *them* there, perhaps where there would be other Elves that did not know me. I managed to get my hands and read the works of J.R.R. Tolkien, ”The Hobbit” and ”Lord of the Rings” and I felt it clearly that, somehow, Tolkien experienced *them* somehow and managed to show something in the books, I find it hard to explain. This is why I chose the UK.
+
+
+
+I managed to escape through Yugoslavia, I almost got shot dead as I crossed the Danube. It was a full fledged adventure, but I ended up in the UK. My parents allowed it, even if they knew that either of those two would happen: 1. I shall fail and end up dead or in prison. 2. I shall succeed and they shall become a target for the regime, perhaps even in prison. But they allowed me to flee, as situations like those were pretty common back then.
+
+
+
+In the UK, as a refugee, I lived a few harsh years at first, and this harshness was therapeutic, helping me kind feel the longing for *them* somewhat numb. I managed to get enrolled in a University, eventually, and study folklore and mythology. I met my wife during that time.
+
+
+
+In the end, I became a librarian in Oxford.  One reason why I ended up in Oxford was because J.R.R. Tolkien was there and I hoped that he might know something and guide me to them. Kind of silly, perhaps, but this is how my mind worked. Unfortunately, he died before I ever got the chance to talk to him. Perhaps I could have written a letter, like many people wrote, but I did not dare to ask him what I wanted without being face to face with him. Perhaps this was for the best, as I may have had a deep disappointment.
+
+
+
+I made research while in there, I managed to find clues, but distantly. The closest thing I had managed was one night in a forest in Ireland, in the late 1980s, something far less intense than my experience with Andrada and Cecilia, I hope I shall have the strength to share it later. 
+
+
+
+I never told my wife or my children of what I lived. My children knew of my obsession with Elves (or Fairies, as some like to call them, even if that term is not proper at all), especially since I read fairy tales with Elves, folk tales with Elves and, of course, the Hobbit and Lord of the Rings. I never managed to pursue a true academic career and I admit I tried to imitate Tolkien himself in creating a fictional universe with Elves, but I failed and, after a lot of effort, it all seemed dry.
+
+
+
+After communism fell, I was able to get in touch with my family from Romania. Unfortunately, my father passed away, my mother was old and sick. They were not imprisoned, but the regime made their life very hard. They often were interrogated by the Securitate, the political police. I managed to see my mother for one last time, before she died.
+
+
+
+I was able to get in touch with Peter, who was now a very broken man. I think not just what happened to him that evening, but a lot more, I do not have the strength to get into many details. He still hated me, but somewhat less. We still spoke on the phone from time to time, after I went back to the UK. I met in Romania his daughter, Odette, who became a frequent traveler to the UK where she visited me often, she even lived at times in my house.
+
+
+
+At some point, Odette got married in Romania and had a daughter of her own, Sophie, who was very intelligent and even planned to study in the UK. She also visited me before all that. I was even hoping that she would come to live with me during her UK studies, to ease the pain not just of my wife”s passing, but also of my children leaving for Australia. But her life has taken a different turn, both Odette and Sophie have posted here some time ago about those things. Peter was dead for years before that happened.
+
+
+
+I know that I am sick. I know that I shall not make it. This is why I post this. I do not think *they* shall come for me and, even if they do, I do not know if it matters. I wanted to die either in my homeland, in Romania, or with my children, in Australia. I wanted to go to them, but it was a hard, long story, so I came here. I still hope they shall come to me here, even if I do not think they will, it is a long and bitter story.
+
+
+
+In Romania, I lived in the house of Odette for a little while but I decided not to burden her and her family and move to a nursing home. They have their part of the tale to tell, I hope they will soon. They suggested that I write this down and posted it here, where they posted themselves. Some of you may have read their testimonies. It was very hard and long, but I managed to do it. I wish I was able to share more, but I do not have the strength anymore.
+
+
+
+So, this is my story. This is it. 
+
+
+
+Ștefan Marinescu, out.

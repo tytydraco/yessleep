@@ -1,0 +1,127 @@
+I have never been someone to believe in the supernatural. I hardly even have the faith to take on a religion. But, one night changed my perspective on what could be out there.
+
+This was before I met my wife and at the time I was in college living off campus. My roommate, Julian, was a hardworking student with a high GPA and a flawless transcript. He was sort of a “goody two shoes”, the kind of kid who’d tell on you in grade school for doing something against the rules or the kind of kid you’d be compared to by your mother. 
+
+Regardless of my mild envy towards Julian, he’d been my best friend for years. I had fond memories of getting up to trouble with him. Denting cars by accident playing street hockey and stealing nickel priced candies from the corner store and watching the look on Julian’s scared face when he’d seen I’d stolen from the shop. He’d always been a wuss but I liked him a lot.
+
+Julian wanted to be an architect since he was a little kid, I’ve always thought that was the source of his passion for hard work. Julian had recently acquired an internship working for some company which he told me he had little interest in but wanted to take to spice up his résumé. Apparently he works there in the laboratory but I don’t know much else about it because I hardly talk to Julian since he got the internship. He works the graveyard shift, sleeps all day and heads out at night with his bag. When I do catch him awake he appears solemn presumably because he’s tired. I try not to bother him, I’ve always felt as if I got in his way since we were kids. As if I was dragging him down.
+
+Julian always came home in the early morning, or what I and most others would consider the late night, when it was still dark. Sometimes, during late night sessions in the summer playing games with friends online, I’d see his silver pontiac with the dented bumper pull into student parking through my window.
+
+But, one morning he never came home.
+
+That day I got up wearing my pajamas and stumbled out of my bedroom towards the kitchen. I started preparing a cup of coffee and began thinking about what I was going to do that day. I recall the semester was coming to an end so my workload was decreasing. I figured I’d probably hang out around the apartment all day and maybe order a pizza for dinner. 
+
+The coffee finished, bringing me back to the present and I reached out to grab my mug when my head suddenly hurt horribly, the pain crawled around my skull like a spider in my brain and I had the image of a dark furred elk-like creature in my head. I jumped away startled and ended up knocking the mug off of the counter shattering it and spilling coffee everywhere.
+
+“Great another mess to clean up”, I muttered  to myself as I stared at my coffee on the floor still a little shook. The pain subsided quickly and I forgot about the incident for a moment, focused on cleaning up the spill.
+
+I went to find a broom in the hall closet. “I hope I didn’t wake Julian, he seems like he’s really been pushing himself lately.” I thought to myself.
+
+After cleaning up, I went to check on him. As I approached his room I tried to stay quiet but his door creaked loudly as I slowly opened it. Not that it mattered anyway because he wasn’t in there. 
+
+“Huh, he must’ve got up and went somewhere already.” I checked my watch which I’d forgotten to take off the night before and had slept with, it read 6:48 AM, not a time I’ve ever seen Julian awake in the last few months since he took that internship. I thought nothing of it, though it was unusual and plopped down on the couch turning on the TV.
+
+A while later Julian still wasn’t home and I hadn’t gotten a text from him. I was starting to feel uneasy, he had work the night before and has it again tonight, “Why would he go out on no sleep?” I wondered to myself. I was getting tired as I’d been up late the night before.
+
+I went back to my room to take a nap. This time not neglecting to remove my watch from my wrist.
+
+I woke up, it was pitch black, I wandered out to the hall. The first thing on my mind was Julian, I creaked his door open again, the room looked just as it did this morning and he wasn’t in there. I checked my phone, no texts, 11:58 PM.
+
+I was worried now. I tried to forget about it, “He’s probably doing something with the school or gone on a trip.” I told myself. But, I knew that was unlikely. I walked back to my room, laid down on the bed and tried to return to sleep. 
+
+An hour passed, I wasn’t tired, I couldn’t sleep, and all I could think about was all the terrible things that could’ve happened to Julian.
+
+“What if he got in an accident?, Or had a stroke and went to the hospital from his internship?” I stammered to myself filled with anxiety.
+
+I couldn’t lie there anymore, I got up grabbed my keys and headed out.
+
+I drove around a while looking for- something, I’m not entirely sure to this day what I wanted to find. Maybe I was looking for Julian but I knew that I wouldn’t just find him on the street or in the window of a nearby restaurant. 
+
+After a half hour I’d driven out of the densely packed college area and I’d wound up on a long straight road in the dark that I didn’t recognize. Every now and then I’d pass a restaurant or gas station but mostly it was just trees. 
+
+I was feeling less anxious now, “Julian’s probably fine, I’m getting worked up over nothing like always.”
+
+I almost begun to drift off at the wheel when a bright high visibility orange sign right in the road caught my eye. I hit the brakes and read the sign.
+
+WARNING, RESTRICTED AREA, AUTHORIZED PERSONNEL ONLY
+
+“Well, guess I’ve hit a dead end” I put the car in reverse and begun to turn around. Just then, out of the corner of my eyes I saw a logo on the sign. It was the one on Julian’s coat, the one he wore to work every night. Suddenly, all of my suspicion was aroused once more.
+
+I put the car back into drive.
+
+I drove around the sign going off the road a bit, driving past it. The road kept going and I kept driving down it.
+
+The glare of eyes in the dark entered my vision as I drove slowly. I stopped the car and looked out the windshield as a family of deer crossed the road staring at me as they passed.
+
+One limped behind the rest with a hurt leg and blood pooling in a trail behind it. It stopped and its eyes stared at me like the rest of the deer’s but with a look of pain.
+
+“Poor thing, hurry along, you don’t wanna get separated.” I said to the deer.
+
+It was suffering. I wanted to help it, but I didn’t know how. So, I let it pass.
+
+Suddenly, I felt I was being watched.
+
+My head shot up and my eyes darted around. It’s then that I noticed a faint reflection of metal in the moonlight further down the road. 
+
+I got out of my car and walked forward, it was a car. A silver pontiac with a dented bumper.
+
+My heart sunk. 
+
+“He must’ve been in an accident”
+
+I turned on my phone’s flashlight and at my feet was Julian sprawled out in the tall grass. Flies danced around his body as I looked over it in horror. Blood was dried on cuts and bruises and the grass had red staining. 
+
+My eyes welled with tears and I fell to the ground with my head between my knees and began to sob loudly.
+
+Then, I heard it.
+
+CRRRRRACCCCKKK
+
+I looked up to see the corpse twitch, dead muscle and broken bones twisted and swung to life. On his hands and knees now, Julian tried to stand.
+
+I stifled a scream and darted for my car, I didn’t think he’d seen me, if he even could. I opened the door and got in the drivers seat turning the key in the ignition. 
+
+Looking straight ahead the corpse was missing.
+
+I felt a hand grasp my neck from behind tightening around it. A face came forth, its dark, glowing eyes stared me down. I recognized it as Julian’s. 
+
+I grabbed his hands and clawed at him in an attempt to get him off of me but to no avail. I could breathe but just barely as if I was sucking the air through a straw. He let my neck go once he got ahold of my leg and ripped me from the car.
+
+I expected to be killed immediately, I was horrified but instead I was dragged on the ground towards a lake with bright headlights beaming down through my eyes from another nearby car parked in the grass. I watched Julian’s black furred legs with hooves trotting nearby the vehicle as he pulled me with him.
+
+I started trying to think of a way out.
+
+I looked around at my surroundings for something or someone to help me. It was empty woods, car, trees, grass, lake. Nothing more.
+
+We were getting closer and closer to the lake. The creature made a loud airy groan as it moved. He sounded distressed, scared even. I looked up at him and realized he was becoming less and less like Julian and more of a monster.
+
+My rambling thoughts were interrupted when a howl came from the woods. The creature was startled, it looked around giving me a view of it from all sides. I could see small bumps on its head. It’s likeness uncanny to Julian but not quite him anymore.
+
+It stopped at the lake shore, Its head dipped down and its neck twisted at me. The leaves rustled under its hooves. It grabbed me by the neck again and dragged me in the lake. It pushed my head under the surface and grasped its other hand around my neck supporting its effort to drown me. 
+
+I felt the air in my lungs running out. I thrashed watching the bubbles float up in the moonlight. 
+
+Just before the light left my eyes as I was pulled up. The creature let go and fell to the ground looking startled again.
+
+Another howl came from the woods and the creature snarled and ran off quickly looking frightened.
+
+The howls got louder.
+
+“Whatever Julian’s afraid of must be an even bigger threat to me”, I thought.
+
+I scrambled up from the ground my clothes dripping and my neck and legs scratched and bloodied.
+
+The leaves rustled on the trees to my right and I ran for the car with its headlights still beaming. To my surprise the keys were in the cup holder. I snagged them and sped off as fast as I could.
+
+On the late night drive home, I thought about Julian, what he became, and how I could possibly explain this to his family. I was cold, wet, and terrified. I couldn’t even believe any of it was real. But, everytime my mind tried to verify the legitimacy of what I’d experienced the memory of Julian’s beady glowing eyes ensnared my thoughts. 
+
+I got home and got changed. I was exhausted, I hit the pillow and fell asleep instantly. 
+
+The next day, I woke up late and slept through the whole morning. I got up and then remembered the horrors I’d experienced the night before. I walked to Julian’s room… it was the same as before.
+
+Everything that Julian was and everything he worked for amounted to nothing. I know his transformation was due to his internship but I have nothing to prove other than that later the same year of the incident the company was shut down after a court case of which details have not been revealed to the public.
+
+As of now I’ve tried again and again to explain that night to Julian’s heartbroken mother. She’s never believed me, thinking I’m out of my mind. Honestly, maybe I am. I’ve started to blame myself. Maybe, I’d lost my mind, maybe i’d killed him and blocked it out with this horrible fake story.
+
+But, everytime I close my eyes I see those beady eyes reflecting in the moonlight and I know that Julian’s alive, somewhere in those woods.

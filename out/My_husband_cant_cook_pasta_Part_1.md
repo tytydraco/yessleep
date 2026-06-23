@@ -1,3 +1,7 @@
+Link to [Part 2](https://www.reddit.com/r/nosleep/comments/1ud2s7i/my_husband_cant_cook_pasta_part_2/)
+
+...
+
 I once found comfort in repetition. Perhaps more than comfort—I relied on it for stability. I needed the familiarity of my daily routine to ward off my chronic anxiety. Tucked away within a little Sonoma county town, I didn't have a real understanding of the world until I moved south of the bay. It was a rough transition, acclimating to the chaos of the city. But, I grew to love it. The life, the energy. A communal crescendo, like living in music. The world hummed around me, there was always something to see. Until I saw too much. I lived in San José for over a decade and to this day I struggle. With the crowds, with the noise. My tolerance has atrophied. I haven't been to a city in years, not since I witnessed the tapestry. Out here in the silence, I can perceive at a comfortable pace, grasping each strand one at a time. A metropolitan bustle would unwind every thread of progress I've made. Years of recovery would be undone, and I would end up just like him.
 
 I moved to the city for college. It's where I met Cameron. I studied marketing, he studied physics, eventually veering into the theoretical. Every time I asked him about it, I hardly understood what he was saying, but what I saw clear as day was the passion in his eyes. Immersed in beautiful energy, I envy the beat of the heart I once had. We would talk for hours, lost in the duet of our eyes. I fell for him quick, he told me he fell quicker. I still don't believe him. Who could love someone as fragile as me? Though, Cameron was always there. Through the panic attacks, the lulls in my luck, there to comfort me when the city's tempo became overbearing. We graduated the same year, then moved in together just a few months after. My parents weren't too happy about that, practically shoving us into marriage to appease their biblical understanding of the ethereal—a wonderfully naive perception. A blindness that I wish, desperately, that I could return to. We married in the fall, just as the leaves changed. We were together for nine years before the world unwound around me.
@@ -46,9 +50,9 @@ This was clearly a big deal, I just needed him to explain why. He managed to mak
 
 He then picked up a noodle. "One of these, the most promising, is string theory. Instead of the universe being made of these little points, it might be made of little strings.
 
-He delicately moved both ends of the noodle, attempting to create a steady waving motion, but it was too limp to manipulate. 
+He delicately moved both ends of the noodle, attempting to create a steady waving motion, but it was too limp to manipulate.
 
-I giggled. "And these little strings are supposed to sway around? Like little snakes?" 
+I giggled. "And these little strings are supposed to sway around? Like little snakes?"
 
 "Yes!" His eyes bright, happy that I had matched his pace so far. "Or they could be composed like this!"
 
@@ -76,7 +80,7 @@ Static. Wavered from a crisp crackle to rain patter, but within it, Freya's voic
 
 "…Th… Marg…" Her voice echoed, as if she was speaking from deep within a distant tunnel.
 
-"Margot?" I asked. 
+"Margot?" I asked.
 
 Cam's lab mate? Why was she calling out her wife's name?
 
@@ -98,7 +102,7 @@ But how? Freya made it sound as if fire had already happened. I ran back over to
 
 …
 
-Her sorrow professionally reined, emergency lights flashing all around, a field correspondent gave an update to the newsroom: 
+Her sorrow professionally reined, emergency lights flashing all around, a field correspondent gave an update to the newsroom:
 
 "According to facility maintenance, a fire broke out in a laboratory deep beneath the complex early this afternoon. It was contained to the lower floors for several hours before rapidly spreading upward. At approximately seven forty, it reached the facility's gas line, heating it to the point that it burst, resulting in the explosion we witnessed this evening. Though the upper floors were successfully evacuated, there hasn't been any word from personnel on the lower floors of the complex. We have yet to hear from any security personnel or Stanford leadership..."
 
@@ -106,7 +110,7 @@ Blurred like the early morning, images of Cameron fluttered amongst light and so
 
 Just then, I heard a commotion at the door. Keys sliding in. I jumped up to my feet and ran into the kitchen, nearly slipping across the floor. I looked down the long hall, to the sudden flare of street light in the mirror of the bend, watching as the front door began to open. Through mirrored reflection, I saw Cameron walk inside, grocery bag in hand, a wide smile on his face.
 
-"Cam!" Tears still streaming, I ran down the hall, wrapping my arms around him with an involuntary laugh. 
+"Cam!" Tears still streaming, I ran down the hall, wrapping my arms around him with an involuntary laugh.
 
 I was elated, so relieved to see him. The colors of the night light glowed more beautifully than they ever had before.
 
@@ -134,7 +138,7 @@ A twinge of deja vu brought a raise to my brow. I hesitated. "…yes?"
 
 "Oh. Again?"
 
-"What do you mean again? It's been months! I've had a craving for it lately, I figured, hell, I'll give it a shot! It's only as difficult as I allow it." He shrugged. "Worse comes to worse, we could go out to a restaurant this weekend." 
+"What do you mean again? It's been months! I've had a craving for it lately, I figured, hell, I'll give it a shot! It's only as difficult as I allow it." He shrugged. "Worse comes to worse, we could go out to a restaurant this weekend."
 
 "Yeah, going out sounds like the worst outcome." I laughed nervously. "I don't mind, just don't make it like you did last night."
 
@@ -146,7 +150,7 @@ He remained quiet. I continued to collect things from his grocery run and organi
 
 "Cam?" My voice shivered, like a line from a horror film.
 
-He remained silent for a moment before his eyes returned from the depths. 
+He remained silent for a moment before his eyes returned from the depths.
 
 "Hm?" His voice still warm.
 
@@ -208,7 +212,7 @@ Slumping heavily up each step, Cameron disappeared into the darkness upstairs. I
 
 "It's all gone now. Everyone."
 
-I picked up my phone to call her. But it was already past ten, so I thought it best to try tomorrow. The stress of the evening brought me back to the couch, wine in hand, hoping to finally relax. 
+I picked up my phone to call her. But it was already past ten, so I thought it best to try tomorrow. The stress of the evening brought me back to the couch, wine in hand, hoping to finally relax.
 
 "We are seeing activity at the scene. Unmarked vans and helicopters, likely the FBI. They haven't communicated with us yet, other than to keep us away from the facility. Hazardous chemicals were likely exposed during the fire, we are waiting to hear about any dangerous pollutants in the air. Emergency responders have been allowed access, finding survivors among the wreckage. Eight injured so far, no deaths. Still no word on the personnel stationed in the lower levels of the facility. Stanford has yet to put out an official statement—"
 
