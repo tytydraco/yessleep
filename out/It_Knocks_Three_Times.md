@@ -1,0 +1,23 @@
+It knocked on my door three times at eleven o’clock on Halloween night, promptly. Not a second sooner or later.
+
+I didn’t sleep today, didn’t eat, didn’t move from my perch. I knew that if I missed this single opportunity there’d be no do-overs. There was no coming back from what fate no doubt awaited me like so many others.
+
+Two years ago it had been the Marshes who made the mistake. “Old superstition.” They called it. No decorations, not even a single jack-o-lantern adorned their home that year. But when it came knocking? Well, they say that there wasn’t quite enough of them left for a proper burial.
+
+Before that, it had been a couple of brothers three blocks over. I never did learn their names. Their family was new, we tried to warn them. But the kids didn’t listen, the kids never listened - not until it was too late. They’d found their bodies out in the cornfields, strung up like a couple of scarecrows.
+
+I could go on. But to be frank, the deal is this: in my town, if you don’t observe the holiday, don’t celebrate, don’t dress up, hell if there’s not a single decoration on your house - it’s a death sentence. It’s been that way since my father was little, and his father before him.
+
+No one’s quite sure what does it. Those few that fled or lived to tell the tale of encountering “it” say it always announces itself with three knocks. It’s polite that way, announcing its grand entrance before it tears you apart - I suppose it’s common courtesy. Answer, or don’t, I don’t think it really matters - whatever is on the other end of that door is coming for you.
+
+So why am I sitting here you ask? Shotgun at my side, easy chair pulled up right in front of the door? That’s because of Ruby. See, Ruby is my daughter. She was a damn good kid, and an even better woman. That’s why I got her out of this shithole of a town the second I could. I thought she’d be safe…
+
+Her new boyfriend was a staunch Christian, the type who called Halloween the devil’s night. It was the first year Ruby didn’t decorate, but three states over surely she would have been safe. Surely she’d survive the night.
+
+They found her and her boyfriend hung like decorations in their front yard. And frankly, that’s what they were mistaken for - at least until the stench became too foul.
+
+Ruby was the last kin I have - my folks are dead, my wife’s dead, no siblings. This damned… Thing took the last thing I had left to lose.
+
+So instead of sitting in fear, I sit here and load my shotgun. I hold out my trembling hand, and wordlessly open the door to greet whatever waits for me on the other side…
+
+I smile as I stare death in the face, and without hesitation I fire.
