@@ -170,7 +170,7 @@ I recalled, through near heat exhaustion, the directions on the order sheet. *Th
 
 
 
-A clicking noise echoed from behind me, sounding like a mix between a cricket chirping and a frog croaking. I turned to its source. It came from a small coutyard containing a cement table under a gazebo that looked like it came from an office park. Beneath it, there was a man standing with his back to me, wearing clothing straight out of 1700s England: bright green paisley print tailcoat with silk embroidery at the hems, stockings and black buckled heels, evan a powdered wig.
+A clicking noise echoed from behind me, sounding like a mix between a cricket chirping and a frog croaking. I turned to its source. It came from a small courtyard containing a cement table under a ramada that looked like it came from an office park. Beneath it, there was a man standing with his back to me, wearing clothing straight out of 1700s England: bright green paisley print tailcoat with silk embroidery at the hems, stockings and black buckled heels, even a powdered wig.
 
 
 
@@ -182,7 +182,7 @@ The Englishman turned around, and I immediately regretted saying anything. Where
 
 
 
-He began to walk towards me, heels clacking on the sidewalk with an echo that felt far too loud for the area we were in. The noise it made changed, too. It sounded like someone inhaling deeply after coming up from holding their breath underwater, except it didn't stop. It just kept breathing in. He raised his fingers to his face and tapped on his lower eyelids. Then his hands turned towards my own eyes, fingers curled. Ready to pluck.
+He began to walk towards me, heels clacking on the sidewalk with an echo that felt far too loud for the area we were in. The noise he made changed, too. It sounded like someone inhaling deeply after coming up from holding their breath underwater, except it didn't stop. He just kept breathing in. He raised his fingers to his face and tapped on his lower eyelids. Then his hands turned towards my own eyes, fingers curled. Ready to pluck.
 
 
 
@@ -230,7 +230,7 @@ I cleared my throat. "Thanks."
 
 
 
-As the Englishman scuttled away, powdered wig disappearing around the corner of a staircase with 90s boomerang pattern on it, I approached the Rec center suite. The blinds were closed, but it was well-lit enough inside that I could see the silhouettes of people: about 6 or 7 of them. their shadows were blurry, but at least one seemed like it might have been a woman wearing a bustle. They paced in a slow circle around a shadow of something else, a box-like shape that really could have been anything. I couldn't help getting the feeling it was the same size as a casket. I examined the other moving figures, and noticed a few of them hopping. Missing legs. The woman with a bustle appeared to be missing an arm. I wondered if the fleshbloom would be enough to make up for all those missing body parts, or if they might try to source them from…elsewhere.
+As the Englishman scuttled away, powdered wig disappearing around the corner of a staircase with 90s boomerang pattern on it, I approached the Rec center suite. The blinds were closed, but it was well-lit enough inside that I could see the silhouettes of people: about 6 or 7 of them. Their shadows were blurry, but at least one seemed like it might have been a woman wearing a bustle. They paced in a slow circle around a shadow of something else, a box-like shape that really could have been anything. I couldn't help getting the feeling it was the same size as a casket. I examined the other moving figures, and noticed a few of them hopping. Missing legs. The woman with a bustle appeared to be missing an arm. I wondered if the fleshbloom would be enough to make up for all those missing body parts, or if they might try to source them from…elsewhere.
 
 
 
