@@ -1,0 +1,44 @@
+[PART ONE](https://www.reddit.com/r/nosleep/s/hqZzeYsBhV)
+
+It has been a long time since my first post about my home state of Sequoyah. I wish I could say it’s been eventful, but there’s surprisingly not a lot of excitement that comes from watching your home and identity get erased from the collective memory of everyone outside its borders.
+
+For those of you who didn’t read my first post, which I don’t blame you for since it was almost a year ago, let me catch you up.
+
+My state, Sequoyah, the 38th state of America nestled in the Southeast, still exists. I’m looking out my window at it right now.
+
+The problem is that nobody else remembers it.
+
+So what have I been up to? Let’s see.
+
+My aunt and I tried to keep the café running, but supplies stopped showing up. Turns out you can’t run a coffee shop without coffee. We finally shut the doors over the winter.
+
+We weren’t the only ones. Deliveries don’t come into Sequoyah anymore, and despite what the tourism board used to claim, our state isn’t exactly self-sufficient. Grocery stores, restaurants, food banks, almost everyone has either shut down or is facing the same slow decline as the rest of us.
+
+Shelves are emptying with nothing to refill them. Churches have stepped in to help, but they’re struggling just like everyone else. It’s starting to feel like even God has forgotten about Sequoyah.
+
+Some people, including my neighbor Ama, don’t seem to mind the change. Ama is Cherokee, and while the rest of us are counting canned goods and wondering how much longer the lights will stay on, she’s been strangely at peace.
+
+“The world was formed around these mountains,” she told me one evening from her porch. “Before the first rivers carved these valleys. The wind still crosses their peaks, and the birds still build their nests in the highest branches. The world remembers what is here.”
+
+I asked her what that was supposed to mean.
+
+She just smiled at me and said, “You worry too much about what people remember.”
+
+She’s right. I’m petrified. How could I not be?
+
+Ally, the missing girl from the coffee shop, was found a couple of weeks after she disappeared. She wandered into a rest stop in Virginia dehydrated, exhausted, and unable to explain where she had been.
+
+As far as anyone can tell, she has no memory of Sequoyah. No memory of Gist. No memory of the little coffee shop where we sat together trying to convince each other that the other was insane.
+
+I’m not the only one in distress. My best friend, Will, has family in the Carolinas. He hasn’t been able to reach them in almost a year. Their social media accounts have disappeared, their phone numbers have been disconnected, and every letter he’s mailed has come back undeliverable.
+
+It feels like any trace of Sequoyah that ever existed outside our borders is being quietly erased.
+
+I should wrap this up. My internet connection has been spotty lately, and I have no reason to believe this post will reach anyone beyond the state line anyway. A few friends and neighbors have decided to drive out and try to buy supplies or find help. Ama doesn’t like the idea. She says we belong right where we are, and if the rest of the world forgets us, then they’re the ones in trouble.
+
+Despite her warnings, I think I’m going to tag along.
+
+Really old mountains can’t protect me from starvation.
+
+In the meantime, if you can read this, reach out. We don’t get much news from outside Sequoyah anymore. It would be nice to know that someone, somewhere, still remembers us.
+
