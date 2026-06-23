@@ -1,6 +1,6 @@
 For me, the hardest part of being a nurse has always been seeing my patients suffering from pain. Especially when there’s little I can do to ease it for them.
 
-It comes from what I consider to be my empathetic nature—that’s why I wanted to become a nurse in the first place. So that I could help people and make them feel better. Even so that I could shoulder some of their burdens and take that pain off their hands through my aid. I always knew that my patients’ agony would hurt me, emotionally at least.
+It comes from what I consider to be my empathetic nature—that’s why I wanted to become a nurse in the first place. So that I could shoulder some of their burdens and take that pain off their hands through my aid. I always knew that my patients’ agony would hurt me, emotionally at least.
 
 But I never thought that it could literally kill me.
 

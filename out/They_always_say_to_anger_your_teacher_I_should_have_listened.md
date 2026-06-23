@@ -1,0 +1,133 @@
+Goodmorning reddit, or night I suppose. Honestly, whatever you prefer, I spend a lot of my waking hours playing videogames, I barely even know what time it is as I write this. Although to be honest, I haven’t been gaming as much recently due to the series of unfortunate events that have been plauging my life for the past week or so. 
+
+I have always been a class clown, well me and my friend Trevor. He’s been my friend forever, since we were kids really. But now that we’re in highschool, things have gotten a little complicated but I won’t get into it for personal reasons that I don’t wanna share. We had been paired together for semester’s biology dissection, so things were, welllll, a bit awkward to say the least. Here me and Trevor were, pulling apart a frog with awkward eye contact and even more awkward silence.
+
+Finally, after what felt like forever (Trevor), Trevor decided to make a joke, or, should I say, many of them. It seemed like he was trying re kindel the old days of middle school, but to me, the jokes just weren’t slapping. He kept making unfunny references to things like tung tung tung sahur, which I don’t even know what it means. Apparently it’s the “new thing”. He didn’t really make me laugh until he turnt his attention to the animal. He picked it up, and made it dance around like a meme! He even said “look, it’s tung tung tung frog-hur!” and I just couldn’t help but laugh. It really feel like the good old days of middle school, even just for a second. 
+
+I picked up my own frog with a smirk (this was going to be fun.), and reached for its mouth. I moved its mouth and said “look at me I’m a stupid ugly frog” and laughed, it was like the frog was saying it! Trevor laughed too. 
+
+The next chain of events turned our biology class, which would normally feel like forever (Trevor), into an absolute chaotic mess. Trevor was bold, as he has always been and forever (Trevor) will be, and chucked his frog across the room, which landed in our teacher’s hair. She scrumpt, terrified, and Trevor and I couldn’t help but explode in laugher. For the next few moments, the only word I could make out in the chaos, was “DETENTION”. God fucking dammit. My parents aren’t gonna be fucking pissed. 
+
+I was no stranger to detention, and neither was Trevor, we had gotten into plenty of trouble before this, given we had been known as the class clowns. Sometimes even in the hallways people would say “what up, clown?”. That just goes to show our reputation around our school. I felt my phone buzz in my pocket, and Trevor looked at me from his seat in detention, putting his own phone back in his pocket with a shit eating smirk. I take out my phone.
+
+“What up tung tung suhnerd, looks like we’re in the shitter once again”
+
+I smile to myself.
+
+“You got that right”
+
+Trevor looked around as he felt his own phone buzz, making sure no trifling teacher was eavesdropping (as per usual). 
+
+“Wanna hang 2nite?”
+
+My stomach twists. My parents are definitely gonna fucking kill me. But, Trevor, my best friend forever, comes first. 
+
+“Sure. my place?”
+
+“Hell yea”
+
+Suddenly, before I’m about to put my phone away, another notification pops up on my screen. It;s from a number I don’t recodnize. 
+
+“You’ll pay” My mind can only go straight to my teacher. But how would she get my number? I just brush it off. Must be spam, I ignore those all the time, I have other things to focus on. 
+
+Trevor and I had an awesome night of eating a bunch of pizza and playing a bunch of games. It’s kind of what we’re known for at school, people even pass us in the hallway and say “what up gamers?”. Yeah, that kind of tells you that we’re somewhat of a celebrity in the gaming spheare. 
+
+Eventually, our hands got tired from the gaming marathon we were on, and we finally decided to head to bed around 2am. This was  normal time for me, because my sleep schedule’s kind of fucked. I’m what you call a night owl, but I wanted to sleep early for Trevor. 
+
+By the way, I haven’t mentioned it yet, but my house is kind of in the middle of nowhere. Nearest grocery store is ten miles away. nearest GameStop, even further. My Internet tends to be pretty bad, so that just tells you how dedicated Trevor and I were to the game that night. 
+
+Me and Trevor were getting settled in for the night. I tried to ignore that I had to keep my phone on silent, because of the meriad of texts I was getting. I ended up blocking the original number, but more just kept on coming from a bunch of different numbers. This bastard is persistent. Trevor looked at me from his spot on the floor, using my only extra blanket. 
+
+“Today was epic.” He said. “I’m glad we finally started talking again.” 
+
+“Me too.” I said. “If it wasn’t for that frog, we wouldn’t be here right now.” I said. 
+
+“Yeah. Goodnight.” Trevor rolled over and seemingly fell asleep. As I began to drift off, I heard tapping on the window next to my bed. Trevor sat up with fear, saying “what in the kentucky fried FUCK was that?” 
+
+“It was just a branch.” I said. “Take a chill pill and get off your period.” Trevor rolled his eyes and collapsed back on the floor, falling asleep like the lazy chud he is. Being hyperfocused on my surroundings, its always taken me a long time to fall asleep. Just as about to drift off, I felt a light hit my face from my window. I sat up in my bed, thinking what the actual fuck? And I looked outside to see the motion activated garage light had flicked on. This wasn’t the first time this has happened, but along with the texts I had been getting, it gave me apit in my stomach. I grabbed my phone and scroll through the texts.
+
+Run
+
+You will die
+
+Finding you 
+
+Watch out 
+
+Hide
+
+You will be sorry 
+
+You will regret this
+
+I am coming 
+
+I see you...
+
+The hair on the back of my neck stands up as I read the last text. I feel a tingle, as if someone is watching me, and I sit up once again in my bed and look out the window. My heart stops as I see a silhouette staring at me from outside my window. Suddenly, it runs to the side, and I loose sight of it, seemingly running back into the woods around my house. 
+
+This isn’t the first time I’ve experienced weird things around my house, and it won’t be the last, but this time, this time felt different. This time felt real. Oh shit. 
+
+I quickly go and try to wake up Trevor, and it felt like it took forever, and in our time apart I have forgotten how heavy of a sleeper Trevor is. I decide to leave my bedroom and was promptly shocked. Has my hallway always been this dark? Nonetheless, I make my way down the hallway. The dark has never scared me, because of my f-ed up sleep schedule, but tonight I can’t lie I was on my toes waiting for the next move. 
+
+I feel my phone vibrate in my hand as I enter the kitchen area, where I can see the sliding door nearby. 
+
+In case you didn’t know, sliding doors usually give you a good look at the outside of the house, and slide open when needed. While it still had a locking mechanism, the door itself being a window was a bit offputting to say the least. I check my text.
+
+“Looking for something to eat?” 
+
+My heart stops. Does they know I’m in the kitchen? Or… it? I look around, peering at all of my windows, until I see them. Or… it? Through the sliding glass door, I catch a glimpse of the face. Wrinkly, old, mixed-race…
+
+Is that… my biology teacher? That damn foid bastard. How does she know where I lived?
+
+I decide to confront her. Or… it? 
+
+“YOU DAMN WEIRDO! WHO THE FUCKING HELL DO YOU THINK YOU ARE?!”
+
+Now usually, I can be a pretty intense person, Trevor and I are kind of known for that in school. Sometimes in the hallway, people even come up to us and say “hey, lion.” Guess that gives you an idea of Trevor and I’s reputation as tough guys. 
+
+This time though, the tough guy act wasn’t cutting it. The figure, with a large, inhuman grin plastered on it’s face, started to wave at me. I took a shallow breath. 
+
+What the hell?
+
+Suddenly, the figure ran off, towards the other half of the house. I heard my window break. 
+
+The only thing I could think about in that moment: Trevor.
+
+I exploded into a sprint down my hallway, navigating the darkness of the hallway with ease. I finally reach my room, and look inside. 
+
+Trevor was gone. Completely vanished. As if he was never there in the first place. My heart stops. I look down at the floor, and all I can see is a thin coat of slime over my rug where Trevor had been sleeping so soundly. Suddenly, I feel a cold liquid drip onto the back of my neck. My hearts stops and I slowly look up to face the ceiling. The woman is there, staring at me, as she crawls across my ceiling. She exits out my window using her long fingers and toes, with the thud of her bare feet, leaving marks of the slime on the glass. 
+
+I go red, I ball my fists, and I decide to run out the window and onto the grass outside.
+
+Now, you might be thinking that this wasn’t the best idea. Like I said, this isn’t the first weird thing to happen at my house, and it won’t be the last. I’m no badass, far from it, but tonight was different. Tonight, my best friend Trevor’s life was on the line, and I needed to become a man. I could barely even feel the glass scratching my feet as I ran across my lawn. Shit, I thought to myself. My parents are really gonna kill me after this one. But I can’t think about about that when my best friend Trevor might be gone… forever. 
+
+I make the split second decision to run into the forest next to my house. It wasn’t a good decision, but I did it anyway. I couldn’t hear anything but the blood rushing through my ears and my heart punding in my chest. Although I’m a good runner, I eventually ended up getting tired, an unfortunate human weakness. As I caught my breath, I looked around, trying to find any sign of Trevor. While I don’t see Trevor, I can sense something seeing me. I decide to look up, and staring back at me are hundreds.. No, thousands of tiny eyes. Not blinking, not moving, simply staring from the trees. I stare back. I was always good at staring competitions. Trevor and I are kind of known for that in school. Sometimes, someone would even come up to us in the hall and say something like “hey, bugeyes.” That just gives you an idea of Trevor and I’s reputation at school. 
+
+I hear a plop behind me. I whip my head around, breaking the staring competition. I see.. A frog? Or…it? The frog is slimy, rigid, bulbus, and groteske all at once. Soon, it seems as though every single one begins to fall from their places in the trees, onto the ground around me. Some even hit my head on their way down, flopping off of my hair and shoulders. As some of them land, I notice the differences between them. Some are covered in sores and warts, and some have broken legs. Some even have carvings etched into their skin, still bleeding. 
+
+I look back up at the sound of rustling among the branches, only to see one more pair of eyes staring at me, much bigger than the others. 
+
+I could barely catch my breath before the figure jumped down from the trees and landed on me, knocking me to the ground. I tried to scramble away, but she had me in her grasp. Her face contorted as she laughed, louder and louder by the second, her mouth gaping wider and wider with each inhale, morphing her face with it. I try to fight back, even with my arms pinned. I force one of my arms out from underneath her and give a Mike Tyson special. My fist lands straight in her throat, and she lets out a ribbit.
+
+What the actual fuck? 
+
+I could barely compose myself before she started to… change. I could hear her bones start to shift and crackle from under her skin, and her eyes begin to drift towards the top of her head. I could feel her legs touching mine, getting longer and longer with each passing second. I tried to send her another punch, but she grabbed hold of my fist with her wide mouth. I could feel the cold slime of her tongue wrapping around my wrist, longer than any human tongue could be. 
+
+She took a few inhales, almost resembling a laugh, but plaged by the noise of a deep, wet ribbit. I felt the grass beneath me move past me as her tongue began to pull me closer to her gaping mouth. 
+
+I could barely move with my fist already down her throat, and my head dipping under her mouth. I began to accept my fate, but not necessarily. You see, I couldn’t help but think back to my biology class earlier that day, with the utter destruction of Trevor and I’s frogs. While I could aknoledge the consequences of my actions, I didn’t regret them one bit. As a final “fuck you”, I yelled out: “kill yourself, you frog bastard!” 
+
+The frog woman let out a gurgle of anger, and pulled me in faster and faster, my vision going dark as the upper half of my body cleared her mouth. As I felt her throat gaining on my head, a raging voice exploded from nearby. 
+
+“LET GO OF MY BEST FRIEND!” 
+
+I heard a loud bang, and got forced out of the frog woman’s mouth, the cold air of the night hitting me all at once. The frog woman let out a screech of pain before collapsing in front of me. I flinched as I felt a hand on my shoulder. As soon as I turned around, Trevor appeared before me with a slime-covered Ramboo knife. The frog woman laid unconscious and Trevor wore a smile. Classic. He pulled me up and into a hug. I couldn’t help but smile.
+
+“Trevor, I really thought I lost you back there.” I said.
+
+“Can’t get rid of me that easily.” Trevor said. I laughed. We both laughed. The rest of the night went on in peace, although, we didn’t exactly sleep. 
+
+From then on, I changed my number and got a new phone, keeping my shades closed and my doors locked. The reason why I’m coming to reddit for this, though, is the constant ribbiting I hear in my ear, and the slimy texture my skin has taken on. My legs have been aching, classic growing pains, and I can’t help but stare at those woods every day after school. 
+
+So reddit, am I fucked? 

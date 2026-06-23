@@ -1,0 +1,299 @@
+I hate living near the water.
+
+I’ve watched people romanticize coastal cities my entire life, and it makes me sick.
+
+The souvenirs, the “I’m secretly a mermaid” signs, the lifeguard inspired apparel.
+
+For most people, this is their vacation. They can kick back on the sand, open the newest novel that is being made into some streaming show, and listen to the waves.
+
+And maybe I didn’t always feel this way, maybe there was a time where I enjoyed the tiny rocks. A time where looking for seashells brought me joy.
+
+But I won’t ever know that feeling again.
+
+Not since her.
+
+And since then, this place has become my Hell that I can’t escape from.
+
+I was 21 when I first started working at the ocean equipment rental stand. It was an easy gig. Take some deposits, obtain waivers, and then just hosing everything down at the end of the day.
+
+I don’t think I hated the ocean then, but, you wouldn’t catch me near it if I could help it. 
+
+It’s too dark, too vast. And it always felt too smart. Like it knew us better than we knew it.
+
+It was a Saturday evening, I was closing up the stand alone, but it wasn’t too bad. It was the end of tourist season, so, we weren’t nearly as busy as we normally got. 
+
+I was doing a final count on our boards when I noticed one was missing. Not completely uncommon, but, I had to make an attempt to look for it before charging whatever card was on file for it. I pulled up the system, and figured out it was a red board.
+
+I sighed, put my clipboard down, and took a short glance around the shop.
+
+Not there, obviously.
+
+There were times when people just left their rentals outside, and I hadn’t been out in a few hours, so I grabbed my phone and stepped outside the door.
+
+I scanned the sandy wooden walkway, looking for anything lingering, but found nothing.
+
+I began to give up, when I happened to look up and see a line of red about halfway down the beach.
+
+“Damnit”, I mumbled to myself.
+
+I locked the door behind me, pulled up the hoodie of my sweatshirt, and began the walk towards the missing board.
+
+I was so irritated. I couldn’t stop asking myself why people were so selfish, why they couldn’t just be adults and return what they borrow? I was already figuring out some kind of fee to charge that card, something like “annoyance fee- return your crap!”.
+
+I finally made it to the area, and saw our logo clear as day on the board. I bent down to swoop it up, and then turned to head back to the shed.
+
+I was happy I found the board, but I was already thinking about my plans after work. I even had an alarm set on my phone at my scheduled close time, so I could get out of there asap. My brother Jeff invited me to a bonfire with some of his frat buddies, and I was sure there would be some girls-
+
+Just then, my thoughts were interrupted by a loud scream.
+
+I jumped back, clutching the board in my hands, as I looked up and down the beach.
+
+The scream happened again, only this time it turned into a wail. It was one of the worst sounds I have ever heard. 
+
+“Hello?”, I called out, “Do you need help?”
+
+Sobbing continued on, mixing with the crashing of the waves.
+
+The sun had already set, there was a soft light coming from the horizon but I knew I only had a few minutes before I couldn’t see anything.
+
+I squinted at the shoreline, I didn’t see any human forms. I looked to the opposite side of the beach, the walkway to the parking lot, behind me, I didn’t see anything. There was an older gentleman sitting on one of the benches by the walkway, but he was unaffected. As if he hadn’t heard the sound at all.
+
+I stood still for a moment, my heart was pounding in my head. Thinking I wasn’t imagining the sound, right?
+
+“Hello?”, I called again.
+
+But no one answered.
+
+I stared at the shoreline for another moment, and then turned to head back to the shed.
+
+On the way back, I passed the old man, and we gave each other a standard polite nod. I’m normally not chatty with strangers, but I couldn’t help myself.
+
+“Excuse me, sir, did you just hear that noise?”, I asked him.
+
+The old man was staring out at the ocean, I would have thought he was dead if he hadn’t blinked.
+
+“Noise?”, he asked me.
+
+“Yeah.. Uh.. I heard what sounded like a woman, she was crying I think. It was really loud but.. I don’t see anyone.”, I responded.
+
+“Nope, didn’t hear a thing.”, the old man responded quickly.
+
+“Are you sure? Because I swear I-“, I began.
+
+“I didn’t hear anything, boy, and if you were smart you would pretend you didn’t either.”, he interrupted, finally snapping his cold eyes on me.
+
+What the hell was this guy’s problem?
+
+I stared at the man, dumbfounded, for what felt like several minutes. I was about to open my mouth to rip him a new one when the sound came again.
+
+It was a wail, then a whimper. They sounded hurt.
+
+I then noticed that the old man’s eyes fluttered, just for a second.
+
+“So you do hear it?”, I asked, feeling fairly smug.
+
+The old man put his weight on his cane, and stood up. He was more frail than I originally thought, I immediately felt guilty for pushing him.
+
+“You’re going to do what you want to do, boy. But if you go down that path, ain’t nobody gonna be able to save you. Least of all yourself.”, he told me, before turning and heading back up the walkway.
+
+I blinked at him a few times, trying to decode his cryptic warning.
+
+Then the scream happened again.
+
+This time it sounded like it was right behind me.
+
+I whipped around, dropping the red board in the sand, and saw no one there. But something caught my eye.
+
+High up on the rocks, was a flash of white.
+
+I squinted, and saw a girl stuck on the rocks, she was curled up in a ball. The waves crashed into the rocks over and over, barely a few feet away from taking her with them.
+
+I didn’t think.
+
+I dropped the board and ran to the rocks, waving my arms and shouting.
+
+“Hey! Hey! I’m coming, hang on!”, I yelled.
+
+I saw her face turn in my direction, just barely.
+
+As I got closer I was able to see her black hair weighed down her back by the water. Her skin was like snow and her eyes were red from crying.
+
+I had to help her.
+
+I reached her just as the waves crashed barely a foot away from her. Which made her shriek and attempt to back up.
+
+“Are you hurt?”, I yelled over the sounds of ocean.
+
+She nodded, and fresh tears sprang from her eyes.
+
+“Please help me.”, she said softly. 
+
+And I shouldn’t have been able to hear her, but it felt like she spoke it directly into my head.
+
+My heart did a weird jump.
+
+“Of course, I’m going to pick you up, okay? Put your arms around my shoulders.”
+
+She did as she was told, and I hoisted her up in one swoop. Then carefully treaded down the rocks to the beach. Silently sending thanks to all the rafts I’ve had to retrieve from these very rocks a million times, who knew I would need the practice?
+
+I stepped onto the sand right as the biggest wave I’ve seen crashed into the spot she was trapped in.
+
+I put her down in the dry sand, far enough away from the water, and caught my breath.
+
+She was shaking too, shivering, it seemed.
+
+“Here, take this.”, I said, pulling my sweatshirt over my head and handing it to her.
+
+She gingerly took it, and laid it across her lap.
+
+“Thank you, that is very kind.”, she said softly, peering up at me with the most vibrant green eyes I’ve ever seen.
+
+My heart began to race.
+
+“Y-Yeah, of course..”, I stammered, “How did you get up there anyways?”
+
+She sighed softly.
+
+“I truly don’t remember..”, she said, looking out onto the ocean. And I could have been imagining it, but her green eyes looked happy. Gleeful even.
+
+Who would be that joyful immediately after a near death experience?
+
+“Well, I’m glad you’re safe. Can I call someone for you?”, I asked her.
+
+She pulled her dark hair over her shoulder and began to gently squeeze the water out. 
+
+“No, no thank you.”, she answered.
+
+As the water fell out of her hair, it clung to her white dress even more, and the parts of it that were dry began to leave little to the imagination.
+
+I wasn’t a total virgin, but the idea of seeing something right now when she was in a vulnerable position made my face turn red, and I quickly turned away.
+
+“U-Uh okay, yup. If you need any warmer clothes, I can grab you some at my work.”, I offered, adjusting my stance to stand up.
+
+She quickly placed a firm hand on mine.
+
+“Oh, please don’t leave. I quite like you.”, she said, her voice suddenly deeper. Huskier.
+
+When I looked into her eyes, they were still green, but she looked lit up somehow. Full of life. I figured it was the adrenaline.
+
+“I’ll stay..”, I said, not entirely recognizing my own voice.
+
+“Good..”, she purred, “Because I want to thank you, for rescuing me.”
+
+She gracefully moved closer to me, her eyes going hazy.
+
+And by some magnetic pull, I felt myself lean in to her.
+
+“Are you from here?”, I asked her softly, as we leaned closer together.
+
+She laughed softly.
+
+“Something like that..”, she whispered, gently playing with the ends of my hair.
+
+“Do you wish to come home with me? I can show you so many things..”, she offered, her voice changing again. It was light, airy, it sounded like a songbird.
+
+I felt myself melting, my mind was racing, and I didn’t think it was solely because of the innuendos.
+
+“I.. I..”, I began to say.
+
+Just then, my phone alarm went off. Signaling that it was time to head to the bonfire. The cheery tune began to blast through my pocket.
+
+I began to blink rapidly, my mind feeling a bit clearer but not all the way.
+
+The girl snarled in anger.
+
+“I’m sorry, I’m not rejecting you, I just.. You’ve been through so much today, I don’t want to take advantage..”, I started, before she started digging her hands all around me. Looking for something.
+
+“Turn it off, TURN IT OFF!”, she seethed
+
+The alarm was still going, and the longer it went off, the clearer my head felt. But the most crazed the girl became.
+
+“Hey, Hey, it’s okay. It’s just my alarm. One second, I’ll grab it.”, I said, taking out my phone.
+
+Just as I hit dismiss, she looked up at me.
+
+But this was not the girl I saved.
+
+The green eyes were still green, but the shape was.. changed. 
+
+Her lips were no longer full and plump, but thinned out, showing a flash of small pointed teeth.
+
+“What the..”, I slowly said, scooting back on the sand.
+
+The girl wrapped long fingers around my face, smiling at me so violently that it felt painful to watch.
+
+She opened her sharp mouth, and I clenched my eyes, waiting for a bite.
+
+But she began to sing.
+
+Soft, sweet melodies, that had my mind going fuzzy again. 
+
+When I opened my eyes, she no longer looked terrifying, she looked just how she did when I rescued her.
+
+“Are you alright, my love?”, she asked soothingly.
+
+I nodded, not fully in control of my own movements.
+
+“You’re so tired, you wish to come home with me, yes? You can rest there…”, she whispered into my ear.
+
+I could feel myself beginning to nod, when a gunshot went off.
+
+“Back, back!”, a gruff voice called out.
+
+The girl sharply turned, and she was changed again. Her eyes cold, her skin covered in scales. She was a girl, yes, but she wasn’t human.
+
+I didn’t know what she was.
+
+Another gunshot rang out.
+
+“Next one is going straight at you, be gone! Go! You cannot take him!”, the voice yelled, coming closer. 
+
+The girl hissed, and as my mind continued to clear I watched her tear her dress away. Revealing a gray tail and sharp nails on her hands now.
+
+She swiped at me once, and I was able to move fast enough to dodge it, though I stumbled through the movement.
+
+I heard a gun load right behind me, and the creature hissed and scurried to the shoreline. Once she reached the waves, a large one came out of no where and swallowed her into the black water.
+
+I was breathing heavily, shaking, trying to get a hold on my mind after the horror it just went through.
+
+“You sure didn’t listen, huh?”
+
+I looked up and saw the old man from before standing next to me.
+
+“What was that?” Who was she? What, What just happened?”, I gasped.
+
+The man sighed.
+
+“Got a lot of names, that one. But now you know, you hear a damsel in distress on a quiet beach, you can’t always trust it.”, he told me.
+
+“But, she was on the rocks. She was stuck. If she could swim, why did she need me to protect her from the water?”
+
+The old man laughed dryly.
+
+“Boy, she didn’t need you to protect her from the ocean. The ocean was trying to protect you from her.”
+
+He then patted my shoulder, turned, and headed back up to the beach. Mumbling something about how kids these days never listen.
+
+I sat on the beach silently. For hours. My mind was still a little fuzzy, and I couldn’t make total sense of what happened. I eventually fell asleep, and I woke up when the sun was rising and a bird was pecking at my shoe.
+
+Once I was awake, I felt fully coherent. And I had to tell someone what happened.
+
+I took out my phone and called Jeff.
+
+He answered on the last ring, sounding groggy, and mostly asleep.
+
+“What?”, he grumbled.
+
+“Jeff, something happened.”, I said, choking on my words.
+
+I heard him immediately sit up.
+
+“Where are you?”, he asked.
+
+I began to tell him the whole story. About the red board, and the rocks. The girl with the changing voices, and the old man. Jeff was silent the whole time, but I knew he was still listening.
+
+“I’m freaking out, man.”, I said, finishing my tale.
+
+Jeff was quiet for a moment, then he chuckled.
+
+“Dude, if you didn’t want to come to my party, you could have just said so.”
