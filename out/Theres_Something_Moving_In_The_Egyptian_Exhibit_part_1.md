@@ -13,9 +13,11 @@ Then a single shout broke the silence.
 “What the hell is that thing?”  
 “It’s looking at us.”  
 “What’s wrong with its face?”  
-More panicked screaming echoed from below.   
-  
+More panicked screaming echoed from below. 
+
 I watched as the men burst out of the Egypt exhibit and ran back into medieval Europe. Out of the Egyptian Exhibit emerged the figure. Unlike the men, the figure appeared to be in no rush. It casually strolled past the Greek exhibit, almost like it knew it didn’t have to run to catch them. 
 
 By the time the police arrived, I had lost sight of them. The medieval Europe and Greece exhibit had been trashed. However, the Egyptian exhibit was relatively untouched. The museum has been closed for the past few weeks due to the police investigation and subsequent repairs. I will resume my position at the museum when it reopens in a couple of days. As far as I know, the vandals were never caught. I also have no explanation for the figure. I know it couldn’t have been another security guard, but I have no other explanation. Has anyone else ever experienced this? Because I am at a loss for words.
 
+**EDIT: Part 2 is up:**  
+[**https://www.reddit.com/r/nosleep/comments/1udpny9/theres\_something\_moving\_in\_the\_egyptian\_exhibit/**](https://www.reddit.com/r/nosleep/comments/1udpny9/theres_something_moving_in_the_egyptian_exhibit/) 
