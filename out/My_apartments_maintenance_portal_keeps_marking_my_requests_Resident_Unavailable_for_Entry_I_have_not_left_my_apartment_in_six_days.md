@@ -1,4 +1,4 @@
-Okay. I know how this is going to read. I've typed this out like four different ways already, deleted three of them, and I keep landing back here, so I guess this is the version you're getting. I'm not looking for sympathy, and I am begging you, do not comment "have you tried calling them again," because yes, I have tried calling them again, I have called so many times that the hold music has started showing up in my dreams, some cursed fax-machine remix of what might have once been Vivaldi. I'm posting because I think there's a piece of this I'm not seeing, and I'm hoping someone in this sub is the kind of person who notices things. Because clearly I am not.
+Okay. I know how this is going to read. I've typed this out like four different ways already, deleted three of them, and I keep landing back here, so I guess this is the version you're getting. I'm not looking for sympathy, and I am begging you, do not comment "have you tried calling them again," because yes, I have tried calling them again, I have called so many times that the hold music has started showing up in my dreams. I'm posting because I think there's a piece of this I'm not seeing, and I'm hoping someone in this sub is the kind of person who notices things. Because clearly I am not.
 
 So. Here's the whole thing, start to now.
 
@@ -6,9 +6,9 @@ It started with a fly. One fly, on the rim of a glass I'd just filled at my own 
 
 I remember it with a total clarity, even better than I remember what I had for dinner two nights ago. I dumped the water. Washed the glass. Got a different one, because once a glass has had a houseguest like that, how can you trust it?
 
-By the time the new glass was full, there were two flies working the faucet, and here's the part that should've tipped me off if I had even one functioning brain cell that day: they weren't doing the normal panicky fly thing, the zip-up-and-vanish-the-second-a-hand-gets-close thing. They were casual. One of them kept ducking under the lip of the tap and coming back out, over and over, with the focus of someone checking a peephole before they let you in.
+By the time the new glass was full, there were two flies working the faucet, and here's the part that should've tipped me off if I had even one functioning brain cell that day: they weren't doing the normal panicky fly thing, the zip-up-and-vanish-the-second-a-hand-gets-close thing. They were comfortable. One of them kept ducking under the lip of the tap and coming back out, over and over, with the focus of someone checking a peephole before they let you in.
 
-I absolutely did not want to drink the water.
+The idea of drinking the water made my stomach turn.
 
 I filed a maintenance request that afternoon, because that's what you do, that's the whole social contract: you pay your rent and in exchange somebody shows up when there's a problem.
 
@@ -18,7 +18,7 @@ I filed a maintenance request that afternoon, because that's what you do, that's
 
 It got a maintenance number. But nobody came that day.
 
-I'd stopped wanting to eat almost right away, and I chalked that right up to the flies. I'd ordered a full veggie pizza the night before, extra olives, even though I hate olives but taking them off cost a dollar more than leaving them on which, don’t get me started, is a crime against the consumer. And the flies had gone ahead and claimed the box like it was theirs by eminent domain. Who wants to sit down to a meal with an audience like that.
+I'd stopped wanting to eat almost right away, and I chalked that right up to the flies. I'd ordered a full veggie pizza the night before, extra olives, even though I hate olives but taking them off cost a dollar more than leaving them on which, don’t get me started, is a crime against the consumer. And the flies had gone ahead and claimed the box like it was theirs by eminent domain. Who wants to sit down to a meal with an audience like that?
 
 Everything started smelling wrong, and I don't mean rotten exactly, I mean pungent. The rice in my rice cooker smelled sour clear across the kitchen. The coffee smelled burnt before the water even touched the grounds, and if you’ve ever made coffee, you know that’s not how it’s supposed to work. I opened the fridge and got hit with this thick, sweet smell, like flowers a week past their vase water, and I cleared the whole thing out in one disgusted sweep, didn't even sort it, just bag, bag, trash.
 
