@@ -20,4 +20,4 @@ Ruby was the last kin I have - my folks are dead, my wife’s dead, no siblings.
 
 So instead of sitting in fear, I sit here and load my shotgun. I hold out my trembling hand, and wordlessly open the door to greet whatever waits for me on the other side…
 
-I smile as I stare death in the face, and without hesitation I fire.
+I smile as I stare death in the face, and without hesitation [I fire.](https://www.reddit.com/r/nosleep/comments/1ue0ghl/ive_seen_what_knocks_three_times/)
