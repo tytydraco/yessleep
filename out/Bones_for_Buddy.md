@@ -140,9 +140,9 @@ Buddy had grabbed most of the bones by now so this was to be his last trip.
 
 He knelt down, picking up what was left.
 
-All the bones in Buddy’s hole were long and straight. They looked like the bones he’d seen before, but these didn’t look like an animal.
+All the bones in Buddy's hole were long and straight. They looked like the bones he'd seen before, but what was left in the woods didn't look like an animal.
 
-He reached into the hole and pulled out a skull. Then hands. Then feet.
+He reached down, pushing aside what was left of the bones, and pulled out a skull. Then hands. Then feet.
 
 “Your Ma was the most beautiful woman I'd ever seen.”
 
@@ -154,7 +154,7 @@ Pa knelt down next to Buddy.
 
 “There’s a locket somewhere over here. She gave it to me when we first married, but I know she wanted it to belong to my brother. You look like him, ya know.”
 
-Pa knelt in silence before standing.
+Pa knelt in silence.
 
 “I found that little bone pyre behind the house. Thought maybe you were just collecting bones for Buddy, but now you know my little secret. You trying to lay your Ma to rest?”
 

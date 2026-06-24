@@ -1,0 +1,869 @@
+I am a serial killer.
+
+Not the typical kind, as serial killers go.
+
+I don't kill innocent people. Well, innocent in the eyes of the law, maybe. The kind of innocent that comes from a lack of evidence, incompetent investigations, or expensive lawyers. If you looked at their actual victim lists, most of them should have been buried beneath prisons.
+
+Instead, I buried them.
+
+Officially, I'm a private investigator. Most of my clients hire me for the usual reasons: cheating spouses, missing persons, deadbeat fathers, or old debts that someone suddenly decides need collecting. The job pays the bills.
+
+The other part of my work is what keeps me interested.
+
+People tell private investigators things they would never tell the police. They gossip. They complain. They share rumors over drinks. Sometimes they mention a missing girl from ten years ago. Sometimes they mention a man who always seems to be nearby whenever someone disappears.
+
+Most of the time it's nothing.
+
+Sometimes it isn't.
+
+It's strange, really. I don't remember exactly when I started. I was twenty-one. Maybe twenty-two.
+
+My first was a man the locals called the Florida River Monster. He earned the nickname because of his habit of abducting women, butchering them, and scattering their remains across different rivers so the alligators could finish the cleanup for him. By the time anyone found what was left, there usually wasn't enough evidence to identify the victim, let alone connect her to him.
+
+His preferred victims were blonde women in their early twenties.
+
+I've noticed most serial killers have the same preferences. Women. Children. Sometimes both.
+
+It's ironic, considering I'm a woman myself. A young woman, if being in your twenties still counts as young. According to every profile I've ever read, I should be the ideal victim. Too small. Too trusting. Too easy to overpower.
+
+The River Monster thought so, too. That assumption lasted right up until I drugged him and gave him the same ending he'd spent years giving other people. I remember staring at him afterward. Not because I felt guilty. Not because I was horrified.
+
+I was disappointed. For years, I'd read articles about him, watched documentaries, and followed every development in the investigation. The media made him sound larger than life—a monster, a predator, something almost supernatural. But when he died, he was just a man. A pathetic, terrified man bleeding out on the floor of a fishing shack. That's when I learned something important. Most monsters aren't monsters at all. They're just people who got away with being evil for far too long.
+
+So I kept hunting them.
+
+One killer became three. Three became ten. Then fifteen. Then more. I told myself I was making the world safer. Maybe I was. The truth is, I hated men like that. The ones who stalked women, hunted them, and treated them like prey. Wolves wearing human skin. And wolves need to be put down. Who better to do it than a woman?
+
+Maybe that makes me a hypocrite. Maybe it makes me just as bad as they were. I really don't care.
+
+Unfortunately, homicide pays terribly.
+
+So, I figured I'd spend a few days following a rich man's wife, collect a paycheck, and head home. That's how these private investigative jobs usually went. Take pictures. Write a report. Collect the money. Move on. South Texas wasn't exactly my preferred destination, but five hundred dollars an hour has a way of making a long drive seem reasonable.
+
+I asked Terry to send over the case file. Terry was my assistant, a meek man in his fifties who treated confrontation the same way most people treated unexploded bombs. The file showed up in my inbox before I could finish my coffee, along with an email apologizing for taking so long to send it. 
+
+The file was surprisingly thin. The client's name was Daniel Walker. Forty-eight years old. Oil money. Married for twenty years. No criminal record. No history of domestic disputes. No obvious reason to suspect his wife was cheating. What caught my attention was the note attached to the bottom of the file: 
+
+**Client does not believe wife is having an affair.**   
+**Client believes wife is acting strangely.** 
+
+I stared at those words for several seconds before calling Terry. He answered on the second ring.
+
+"Please tell me that's a typo."
+
+ "It isn't."
+
+I sighed.
+
+ "What does acting strange mean?" 
+
+"I asked."
+
+ "And?" 
+
+"He said it's something he would rather discuss in person." I rubbed my temples. Of course he did. 
+
+"Fantastic. Five hundred dollars an hour and I'm investigating a strange wife."
+
+ "Still taking the job?" 
+
+I looked at the payment agreement again. Five hundred dollars an hour. Some questions answer themselves. "Of course I'm taking the job." 
+
+"What if he's crazy?" 
+
+"Then he's a crazy man paying five hundred dollars an hour." 
+
+Terry sighed. He was a genuinely kind man. If someone robbed him at gunpoint, he'd probably apologize for not carrying more cash. So, the idea of voluntarily meeting a potentially insane stranger offended every survival instinct he possessed.
+
+I hung up.
+
+Three days later, I found myself driving into a small South Texas town that looked like it had been forgotten by time. The buildings were rusty, the roads were cracked, and the locals had elevated being nosy into an art form. By the time I'd stopped for gas, bought a coffee, and asked for directions to my motel, half the town probably knew my license plate number. What surprised me more was how often my client's name came up. The gas station belonged to him. The convenience store belonged to him. The car wash belonged to him. Apparently, half the businesses in town belonged to him. No wonder he was willing to pay five hundred dollars an hour.
+
+I checked into a small motel about ten minutes from the gated neighborhood where he and his wife lived. The room smelled vaguely of cigarettes and regret.
+
+The next morning, I met my client. He was a large man with a round face and the kind of expensive clothes that desperately wanted everyone to know they were expensive. Gold rings covered his fingers—two on one hand, three on the other. Enough gold to sink a fishing boat. I immediately disliked him. Fortunately, taking money from people I dislike has never bothered me. 
+
+He looked me up and down as I sat across from him, his eyes narrowing. "The White Viper is a woman?" There was genuine surprise in his voice. I smiled. "Oh, so you've heard of me." The White Viper was one of many names people had attached to me over the years. Most of them were ridiculous. A few of them are accurate.
+
+"My name is Mara Graves," I said, extending a hand. That wasn't my real name, of course, but clients don't need to know things like that. He shook my hand carefully, as if he expected me to bite him.
+
+"So," I said, leaning back in my chair, "what's the problem?"
+
+His expression immediately darkened. "It's my wife."
+
+That was usually how these conversations started. The details changed. The excuses changed. The tears changed. But eventually, every marriage investigation became the same story.
+
+I pulled out a notebook. "Is she cheating?"
+
+"No."
+
+That answer surprised me. The report had said the same thing, but most husbands accused their wives of cheating before I even sat down.
+
+"Then what exactly am I looking for?"
+
+He glanced toward the restaurant doors before lowering his voice. "My wife isn't acting like herself."
+
+I resisted the urge to roll my eyes. People said things like that all the time. Depression. Affairs. Midlife crises. Secret addictions. There were a hundred possible explanations, and most of them were boring.
+
+"Can you be more specific?"
+
+He swallowed. "She's different."
+
+"How?"
+
+"Everything."
+
+I stared at him. He stared back. Neither of us seemed particularly happy with the conversation.
+
+"Mr. Walker, you're paying me five hundred dollars an hour. Help me help you."
+
+He nodded slowly. "She forgets things."
+
+"Lots of people forget things."
+
+"Not like this."
+
+He leaned forward in his chair. "She forgot the name of our dog."
+
+That was strange. Not impossible. But strange.
+
+"What else?"
+
+"She forgot where we went on our honeymoon."
+
+I wrote it down. "What else?"
+
+"She asked me where the guest bathroom was."
+
+I paused. "You've been married twenty years."
+
+"Twenty-two."
+
+I looked up from my notebook. He wasn't smiling. In fact, he looked terrified. The kind of terrified that can't be faked. I'd seen that expression before. Usually, on victims.
+
+"Medical issues?" I asked.
+
+"Doctors say she's healthy."
+
+"Head injury?"
+
+"No."
+
+"Medication?"
+
+"No."
+
+I tapped my pen against the notebook. "Anything else?"
+
+For a moment, he didn't answer. Then he reached into his jacket and slid a photograph across the table.
+
+A woman in her early thirties smiled back at me. Dark hair. Brown eyes. Pretty. Completely ordinary.
+
+"My wife."
+
+I looked at the photograph, then back at him. "And?"
+
+He pointed at the picture. "That's not how she smiles."
+
+I waited for him to elaborate.
+
+He didn't.
+
+"Mr. Walker."
+
+"You don't understand."
+
+His voice dropped to barely above a whisper.
+
+"She's smiling the right way."
+
+I blinked. "What?"
+
+"The expression is correct." He tapped the photograph with a trembling finger. "But somehow it's wrong."
+
+I stared at him for several seconds.
+
+Then I wrote a single word in my notebook.
+
+Crazy.
+
+He noticed.
+
+"You're thinking I'm insane."
+
+"A little."
+
+His shoulders slumped. "Everyone does."
+
+I tucked the notebook away. "Fine. Let's assume you're not insane. What exactly do you want me to do?"
+
+"Follow her."
+
+"For how long?"
+
+"Until you see it too."
+
+I looked down at the payment agreement one more time.
+
+Five hundred dollars an hour.
+
+I've ignored bigger red flags for less.
+
+I followed Mrs. Walker for the next week. Her schedule was so normal it was almost insulting. Every morning, she attended a Pilates class. After that, she visited a boutique downtown. Around noon, she met a group of friends at a café before eventually heading home. Sometimes she and her husband went out for dinner. That was it. No secret affairs, no suspicious meetings, no hidden bank accounts. Nothing.
+
+I was beginning to think Daniel Walker had paid me five hundred dollars an hour because he was bored. The only thing keeping me on the case was the amount of money accumulating in my bank account.
+
+While I waited for Mrs. Walker to do something interesting, I focused on another investigation. The city next to town had a serial killer. Five women had disappeared over the last year. The victims had nothing in common. Different ages. Different jobs. Different backgrounds. The bodies were what connected them.
+
+Every victim had been found completely drained of blood. Every organ was missing. The bodies were essentially empty skin wrapped around a skeleton. Each victim also had a single incision running from the base of the skull to the lower back. The locals called him the Spine Taker.
+
+One of the victims was seventeen years old.
+
+I took that personally.
+
+I don't pretend to be a good person, but certain things make my blood boil. Children are one of them.
+
+Mrs. Walker spent most mornings at Pilates, which left me with several hours to kill. I used that time to look into the Spine Taker case. My investigation eventually led me to the sheriff's office. Officially, I was there for information. Unofficially, I was there for the free coffee.
+
+Side note: The coffee was terrible.
+
+A woman was screaming at two deputies near the entrance when I walked in.
+
+"I told you she was acting strange!" she shouted. "If you'd listened to me, she'd still be alive!"
+
+The deputies grabbed her by the arms and dragged her toward the door. A moment later, they shoved her outside. She stumbled onto the sidewalk and broke down sobbing while they returned to work without another word.
+
+I recognized her immediately. She was the mother of the seventeen-year-old victim.
+
+That got my attention.
+
+I followed her outside and sat down beside her on the curb, blonde wig and all. People trust blondes. I don't know why, but they do. I introduced myself as a law enforcement officer working on the investigation and asked what she had been yelling about inside.
+
+By the time I left, she was still crying, and I had learned something interesting.
+
+A week before her disappearance, her daughter had started forgetting things. Important things. Her birthday. Her favorite food. The names of relatives. According to her mother, she had become distant and cold, like she had suddenly become a different person.
+
+It sounded familiar.
+
+Daniel Walker had described his wife almost the same way.
+
+I drove straight to the Pilates studio.
+
+Mrs. Walker's class wasn't supposed to end for another hour.
+
+She wasn't there.
+
+Neither was her car.
+
+That bothered me.
+
+So I committed a crime.
+
+As usual. 
+
+The security office was empty. The guard always left for lunch around that time. I knew because I'd spent the last 2 weeks watching the place. I pulled up the security footage and started reviewing the cameras.
+
+At 11:03 a.m., Mrs. Walker entered the women's restroom.
+
+Nobody followed her.
+
+Nobody came out.
+
+The hallway remained empty for almost an hour.
+
+Then, at 12:01 p.m., an elderly woman exited the restroom.
+
+I frowned and rewound the footage.
+
+The elderly woman had never entered.
+
+I checked every camera angle.
+
+Every hallway.
+
+Every entrance.
+
+Nothing.
+
+Mrs. Walker went into the restroom.
+
+An old woman came out.
+
+That was it.
+
+I took screenshots and headed to the restroom myself. There were no windows, no maintenance tunnels, and no secondary exits. It was just a bathroom.
+
+I stood there staring at the empty room, trying to figure out what I had missed.
+
+I couldn't.
+
+An hour later, I found Mrs. Walker exactly where she was supposed to be, sitting at her usual café, drinking coffee and laughing with friends.
+
+Her car was in the parking lot.
+
+That night, I followed her again.
+
+At midnight, she left her house without warning, got into her car, and drove away. I followed from a distance. About twenty minutes later, she turned onto a dirt road near a lake and parked beside the woods.
+
+Then she got out and started running.
+
+Not jogging.
+
+Running.
+
+Fast enough that I almost lost sight of her.
+
+I chased her through the trees until she stopped in a clearing.
+
+I ducked behind a tree and watched.
+
+Mrs. Walker bent forward.
+
+For a second, I thought she was sick.
+
+Then something stepped out of her.
+
+I don't know how else to describe it.
+
+Something unfolded from her back. Something impossibly tall.
+
+Mrs. Walker's body collapsed onto the ground while the thing that had been inside her remained standing.
+
+I couldn't move.
+
+I couldn't even process what I was looking at. It ran towards the car again.
+
+A few minutes later, it returned carrying another body.
+
+An elderly woman.
+
+The same elderly woman from the security footage.
+
+When the creature finally disappeared into the darkness, I approached Mrs. Walker's body.
+
+She was dead.
+
+And empty.
+
+No blood.
+
+No organs.
+
+Nothing.
+
+Just skin.
+
+And a long incision running from the base of her skull to the end of her spine.
+
+I recognized the wound immediately.
+
+I had seen it five times before.
+
+The Spine Taker wasn't human.
+
+That realization hit me about half a second before the creature came charging out of the darkness.
+
+It had tricked me.
+
+I barely had time to raise my pistol before it slipped into the elderly woman's body. The corpse jerked upright like a puppet yanked by invisible strings. I fired immediately. The bullet tore through her chest. The creature didn't even flinch. I fired again. Then again. Nothing. The thing simply kept walking toward me, wearing the old woman's skin like a poorly fitted costume.
+
+"What are you?" I shouted.
+
+The creature tilted its head. I heard bones crack. Its neck bent farther than any human neck should have been capable of bending. Then it spoke.
+
+"You... wil...l be... my next... ves...sel."
+
+The words sounded wrong. Not an accent. Not a speech impediment. More like something trying to imitate human language without fully understanding how it worked.
+
+I am not becoming anyone's vessel.
+
+I'd rather die.
+
+I turned and ran.
+
+Branches whipped against my face as I crashed through the forest. Behind me, I could hear the creature moving through the trees. It wasn't trying to hide. It wasn't trying to be quiet. The thing knew it was faster than me.
+
+A few moments later, the trees opened up and I nearly stumbled into a river. Dark water rushed past below me. Behind me came the sound of snapping branches.
+
+I turned around.
+
+The creature stood at the edge of the treeline.
+
+For the first time, I got a good look at the body it was wearing. In the moonlight, I could see it clearly now. The old woman's legs bent at impossible angles. Her arms hung too low. Her neck twisted sharply to one side as though every bone inside it had been shattered. Yet somehow she remained standing.
+
+The thing smiled.
+
+Then it lunged.
+
+I stepped backward.
+
+Unfortunately, there was no ground behind me.
+
+I fell into the river.
+
+For one brief moment, I thought I had escaped.
+
+Then my head struck something beneath the surface.
+
+Pain exploded through my skull. Red flooded my vision. I felt the current dragging me away as darkness closed in around me.
+
+The river swallowed me.
+
+I remember the impact. I remember the pain. Then everything disappeared.
+
+When I opened my eyes again, I was falling.
+
+I don't know how long I fell for. Minutes. Hours. Years. There was no wind rushing past me. No sensation of speed. Just endless darkness stretching in every direction while I plunged through it.
+
+Then suddenly I crashed into something soft. Black mist.
+
+Strangely, it didn't hurt.
+
+I climbed to my feet and looked around.
+
+There was nothing.
+
+No sky.
+
+No ground.
+
+No horizon.
+
+Just darkness stretching endlessly in every direction.
+
+And a desk.
+
+A single wooden desk sitting in the middle of the void.
+
+With absolutely no better options available, I started walking toward it. 
+
+There was a creature sitting behind the desk.
+
+At least, I think it was sitting.
+
+The thing was enormous. Even seated, it was taller than a bus. A massive goat skull concealed its face, its horns disappearing into the darkness above. Beneath the skull was a surprisingly human body dressed in a perfectly tailored black suit. If I ignored the skull, the size, and the fact that I was in a bottomless pit, it looked like an accountant.
+
+"Welcome to Level One," it said.
+
+The voice caught me off guard.
+
+Female.
+
+Calm.
+
+Professional.
+
+Like a receptionist greeting someone who had arrived slightly late for an appointment.
+
+I looked around at the endless darkness surrounding us.
+
+"Level One?" I asked. "Am I dead?"
+
+"Yes."
+
+The answer came so quickly that it took me a moment to process it.
+
+No sympathy.
+
+No dramatic speech.
+
+No ominous thunder.
+
+Just yes.
+
+Dead.
+
+I considered arguing. Then I remembered smashing my head against a rock while running from a skin-wearing monster.
+
+Fair enough.
+
+The creature reached beneath the desk and slid a thick binder toward me. It landed with a heavy thud. Curious, I opened it.
+
+My stomach sank.
+
+The pages were filled with names, photographs, police reports, witness statements, and dates.
+
+The Florida River Monster.
+
+The Butcher of Pensacola.
+
+The Red Lake Strangler.
+
+Every serial killer I had ever murdered.
+
+Every victim.
+
+Every crime.
+
+Every body.
+
+All neatly organized into a single file.
+
+"What's this?" I asked.
+
+"Your record."
+
+I turned another page.
+
+Then another.
+
+The binder seemed endless.
+
+The creature's eye sockets suddenly ignited with a deep red glow.
+
+"After review of your actions, you have been sentenced to two hundred years of punitive suffering before retribution."
+
+I slowly closed the binder.
+
+"Two hundred years?"
+
+"Correct."
+
+"That seems excessive."
+
+"You murdered seventeen people."
+
+"Nineteen."
+
+The creature paused.
+
+Then it looked down at the file.
+
+"You murdered nineteen people."
+
+"See? That's the kind of mistake that gets organizations sued."
+
+For several seconds neither of us spoke.
+
+Finally the creature sighed.
+
+"I liked you better when you were unconscious."
+
+I shrugged.
+
+The truth was, none of this surprised me.
+
+I had always known this was how my story would end.
+
+I knew what I was.
+
+I knew what I had done.
+
+I wasn't a hero.
+
+I wasn't a vigilante.
+
+I was a serial killer who happened to choose worse people as victims.
+
+There was a difference.
+
+Just not enough of one.
+
+"I see," the creature said.
+
+Then it leaned forward.
+
+"But."
+
+I frowned.
+
+"But?"
+
+"We can make a deal."
+
+That got my attention.
+
+"A deal? What kind of deal?"
+
+The red glow inside the skull brightened slightly.
+
+"The kind that allows you to repay your debt."
+
+I raised an eyebrow.
+
+"Repay my debt?"
+
+The creature nodded.
+
+"There are souls on Earth that belong here. Murderers. Predators. Monsters wearing human faces. Some escape justice. Some escape death. Some are taken by things that have no right to claim them."
+
+I stared at it.
+
+"So you're offering me a job."
+
+"In a manner of speaking."
+
+"You do realize that I have spent years murdering people, right?"
+
+"That is precisely why you're being considered."
+
+I wasn't sure whether to feel insulted or flattered.
+
+The creature folded its hands atop the desk.
+
+"You have contributed greatly to Hell. Many souls currently suffering below would never have arrived without your assistance. Only a few mortals possess such a record."
+
+"That might be the worst compliment I've ever received."
+
+The creature ignored me.
+
+"In exchange for your service, your sentence will be reduced. Continue long enough, and it may eventually be erased."
+
+I glanced down at the binder.
+
+Then, at the endless darkness surrounding us.
+
+Then back at the creature.
+
+"So let me get this straight. My choices are two hundred years of torture..."
+
+"Among other punishments."
+
+"...or I go back to Earth and drag damned souls down here for you?"
+
+"Correct."
+
+I considered the offer.
+
+Honestly, it sounded suspiciously similar to my previous hobby. The only real difference was that this time I had an employer. Unfortunately, that employer was Hell.
+
+"What happens if I refuse?"
+
+The creature leaned back in its chair.
+
+A moment later, another binder appeared on the desk.
+
+This one was significantly thicker.
+
+It opened by itself.
+
+Flames spilled from between the pages.
+
+Screaming followed.
+
+I immediately pointed at the first binder.
+
+"I'll take the job."
+
+The creature nodded.
+
+"A wise decision."
+
+"I've been told I don't make many of those."
+
+For the first time since I had arrived, I could have sworn the thing laughed. Then everything went dark. I woke up lying on the riverbank. For several seconds, I just stared at the sky, trying to figure out where I was before the headache hit. It felt like someone had driven a railroad spike through my skull. Slowly, I sat up. The river was still rushing past beside me. My clothes were soaked, and dried blood clung to the side of my face.
+
+The last thing I remembered was falling into the river. The creature. The rock. Then the desk. The goat-skull woman. Hell.
+
+I pulled out my phone. The screen lit up, and my stomach immediately dropped. Three days had passed. I checked again, convinced I was reading it wrong. I wasn't. The battery icon flashed red. One percent. "Fantastic," I muttered.
+
+I staggered to my feet and followed the river until I found the dirt road. My car was still parked exactly where I had left it three nights earlier. Nobody had touched it. Nobody had towed it. Nobody had even broken a window. Apparently, even criminals had a line they wouldn't cross, and that line was trespassing on private property.
+
+The drive back to the motel passed in a haze. The moment I got inside, I plugged my phone into the charger. As soon as it powered on, I discovered over four hundred missed calls from Terry. I called him back.
+
+He answered before the first ring had finished.
+
+"Mara, what the hell is wrong with you?"
+
+I pulled the phone away from my ear. "Terry—"
+
+"No. Absolutely not. Do you have any idea what I've been dealing with for the last three days? I filed a missing persons report. The sheriff has been looking for you. I've called every hospital within a hundred miles."
+
+His voice got louder with every sentence.
+
+"You vanished."
+
+"I noticed."
+
+"Where were you?"
+
+I considered telling him the truth. I decided against it.
+
+"Long story."
+
+"You're damn right it's a long story."
+
+I rubbed my temples. The headache was somehow getting worse.
+
+"I'm alive."
+
+"Clearly."
+
+"Mostly."
+
+There was a long pause. Then Terry sighed. It was the exhausted sigh of a man reconsidering every career decision he had ever made.
+
+"Call the sheriff."
+
+"What?"
+
+"Call the sheriff and tell him you're alive before they waste another three days looking for your stupid ass."
+
+"Fair."
+
+After reassuring local law enforcement that I wasn't dead, kidnapped, or buried somewhere in the desert, I finally collapsed onto the motel bed and turned on the television. The local news was covering the Walker case. I sat upright immediately.
+
+Behind the anchor was a photograph of Mrs. Walker.
+
+My stomach sank.
+
+Her body had been found.
+
+Authorities believed she had been murdered.
+
+A second photograph appeared on screen.
+
+The elderly woman from the security footage.
+
+Police had identified her as a suspect in the murder.
+
+Then another photograph appeared.
+
+Daniel Walker.
+
+Dead.
+
+I froze.
+
+According to the report, he had been murdered inside his own home. The estimated time of death was shortly after midnight. The same night, Mrs. Walker had driven into the woods. The same night, I had followed her. The same night I had died.
+
+Then the report got worse.
+
+Investigators believed the Walker deaths were connected to the Spine Taker killings. The similarities were impossible to ignore. Mrs. Walker's body had been found drained of blood. Her organs were missing. The same incision ran from the base of her skull to the end of her spine.
+
+The sheriff's department was treating it as another Spine Taker victim.
+
+I knew better.
+
+The Spine Taker wasn't a serial killer.
+
+It was that thing.
+
+And the creature knew I was following it from the beginning.
+
+It knew I was watching.
+
+Daniel Walker had hired me because he suspected something was wrong with his wife, and the moment I started getting close to the truth, everyone connected to the case started dying.
+
+I sat there staring at the television long after the report ended. Then my phone suddenly buzzed, and I nearly jumped out of my skin. The screen displayed an unknown number, and for a moment, I seriously considered hanging up, but instead, I answered.
+
+"Hello?"
+
+For several seconds, nobody spoke. Then a familiar female voice sighed.
+
+"Congratulations on surviving."
+
+My blood ran cold. The goat-skull woman. The manager of Hell. Or whatever her official title was.
+
+"Thank you."
+
+I wasn't entirely sure how one was supposed to respond to congratulations for surviving their own death.
+
+"I suppose you know who your first assignment is."
+
+"The Spine Taker?"
+
+"Very good, little bug."
+
+I frowned.
+
+"Did you just call me a good bug?"
+
+"I called you an intelligent little bug."
+
+"That's somehow worse."
+
+"Humans are very sensitive."
+
+I decided not to argue with the giant demonic bureaucrat and looked back toward the television. The news report had changed. A young woman's face now filled the screen. Light brown hair. Hazel eyes. Maybe twenty-three. Twenty-four at most. Only a few years younger than me. Then the television crackled. The anchor vanished, and the screen filled with the image of a goat skull.
+
+"That is its next victim. Protect the innocent soul."
+
+I stared at the photograph on the screen.
+
+"I still don't know what that thing is."
+
+For the first time since the conversation began, the demon was silent. When she finally spoke, her voice had lost its usual amusement.
+
+"It is a prisoner."
+
+"A prisoner?"
+
+"A demon."
+
+I felt my stomach drop.
+
+"It escaped."
+
+The words hung in the air for a moment.
+
+"It escaped Hell?"
+
+"Yes."
+
+"That seems like a serious design flaw."
+
+"It was not designed to escape."
+
+"Clearly."
+
+The demon ignored me.
+
+"It was undergoing punishment. Somehow, it found a way out. Since then, it has been stealing souls that belong here."
+
+I remembered the empty bodies, the missing organs, the thing climbing out of Mrs. Walker's back, the thing wearing people like clothing.
+
+"You want me to bring it back."
+
+"I want you to drag it back."
+
+There was a noticeable difference in her tone. One sounded like a request. The other sounded like an order.
+
+"What happens if I fail?"
+
+For several seconds, there was only silence. Then laughter erupted from the television.
+
+Not human laughter.
+
+Not even close.
+
+It sounded like earthquakes, screaming, and church bells all happening at once. The motel room shook. The television screen flickered. A crack appeared across the glass. When the laughter finally stopped, the demon spoke again.
+
+"Then you will serve its remaining sentence alongside your own."
+
+"That's not fair."
+
+"Hell is not fair."
+
+I opened my mouth, then closed it again. Fair point.
+
+"Someone must return the souls it has stolen," she continued. "And unfortunately for you, you're the most qualified candidate available."
+
+The television immediately went black. A second later, my phone vibrated. A new message had arrived. An address. A photograph. And beneath it, a single sentence.
+
+"YOUR SENTENCE REDUCTION BEGINS NOW."
+
+I opened the photograph.
+
+It showed the girl—the future victim. The picture had been taken at night through a window, from somewhere outside her house. At first, it looked innocent enough.
+
+Then I noticed the red circle.
+
+Someone had marked a shadowy figure standing in the darkness beyond the glass.
+
+Watching.
+
+Smiling.
+
+If I'm going to survive this, I need to find her before the Spine Taker does.
+
+I'll update this journal if I make it through the night.
+
+If I don't, Terry will probably end up going through my computer trying to figure out what happened to me. If that happens, this journal is all I can leave behind.
+
+Everything I've written here is true. I know how insane that sounds because I thought it was insane too until I checked my pulse.
+
+The only reason I know any of this is real is because my heart isn't beating as I write this.
+
+And you really can't keep calling something a hallucination when you're already supposed to be dead.
+

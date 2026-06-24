@@ -1,16 +1,16 @@
 I want to start by telling you who Jeff is, because none of what comes after makes any sense without it.
 
-Jeff and I met the first week of university. Both of us were standing in line to get our student ID cards, and his photo came out terrible. He turned around and showed it to me, a complete stranger, and said This is genuinely the worst thing that has ever happened to me. I laughed. We talked for the next forty minutes, and by the time we got to our first class, we had already decided we were eating lunch together.
+Jeff and I met the first week of university. Both of us were standing in line to get our student ID cards, and his photo came out terrible. It really looked like a mugshot. ​He turned around and showed it to me, a complete stranger, and said this is genuinely the worst thing that has ever happened to me. I laughed. We talked for the next forty minutes, and by the time we got to our first class, we had already decided we were eating lunch together. Campus hotdogs.
 
-We lived in the same residence that first year, different floors, which meant we were constantly in each other's rooms. His was cleaner than mine. He had a rug from home, a lamp, and a coffee maker he was inexplicably proud of. My room had a mattress, a desk, and a poster I had put up ironically and then forgotten to take down for two years.
+We lived in the same residence that first year, different floors, which meant we were constantly hanging out i​n each other's rooms. His was cleaner than mine. He had a rug from home, a Doctor Who lamp, and a coffee maker he was inexplicably proud of. My room had a mattress, a desk, and a poster I had put up ironically and then forgotten to take down for two years...or one year.
 
-We studied for exams sprawled across his floor with that coffee maker running constantly, his notes color-coded and organized by topic, mine written in a single pen in handwriting that got worse as the semester went on. He was better at the numbers. I was better at writing. We figured that out early and used it shamelessly. I am fairly certain neither of us would have passed first-year accounting without the other.
+We studied for exams sprawled across his floor with that coffee maker running constantly, his notes color-coded and organized by topic, while ​mine were ​written in a single pen in handwriting that got worse as the semester went on. He was better at the numbers. I was better at writing. We figured that out early and used it shamelessly. I am fairly certain neither of us would have passed first-year accounting without the other.
 
-We went to every party that would have us and some that would not. Jeff always knew someone who knew someone. I was always the one driving home at two in the morning while he talked too loudly in the passenger seat about things that felt profound and were not.
+We went to every party that would have us and some that would not. Jeff always knew someone who knew someone. I was always the one driving home at two in the morning while he talked too loudly in the passenger seat about things that felt profound and were not. He also has this thing where his voice changes a little depending on who he is talking to. 
 
 We played beer pong at a Halloween party in October against two guys from engineering who took it very seriously, and we beat them anyway, mostly because Jeff had a gift for cheerful trash talk that disarmed people before they realized what was happening.
 
-Second year we got an apartment together off campus. Two bedrooms above a Vietnamese restaurant. One pot, two plates, and a constant low-level smell of pho that we eventually stopped noticing.
+Second year we got an apartment together off campus. Two bedrooms above a Vietnamese restaurant. One pot, two plates, and a constant smell of pho that we eventually stopped noticing. The Sriracha was always flowing as well. I swear I still can't pronounce it properly and Jeff never lets me forget it. 
 
 Jeff's high school girlfriend, Clare, broke up with him in November of that year, and I came out of my room at midnight to find him sitting on the kitchen floor with his back against the cabinet. I did not say anything wise or useful. I just made bad coffee in his coffee maker and sat on that floor with him until almost four in the morning. He told me years later that was exactly what he had needed.
 
@@ -20,17 +20,17 @@ That was six years ago.
 
 Since then it has been weekly calls, monthly dinners, double dates, game nights that start at seven and end at two in the morning with everyone too tired to drive home. Jeff and Hannah got married three years ago. I met Amaya the year after graduation, and we got married eighteen months later. The four of us fit together in the easy way that good friendships do, where nobody has to perform, and the silences are comfortable.
 
-Two weeks ago the four of us got back from a long weekend in Montreal. We ate too much and walked until our feet hurt, and on the second night Jeff and I found a dive bar while Amaya and Hannah went back to the hotel and we sat there until last call talking about nothing in particular, the way you only can with someone you have known long enough that you stop keeping score. 
+Two weeks ago the four of us got back from a long weekend in Montreal...sorry, Quebec City. We ate too much and walked until our feet hurt, and on the second night Jeff and I found a dive bar while Amaya and Hannah went back to the hotel and we sat there until last call talking about nothing in particular, the way you only can with someone you have known long enough that you stop keeping score.
 
 On the flight home, he fell asleep in the seat next to mine, and I sat there reading and somewhere over the highway it occurred to me that I could not picture my adult life without him in it.
 
-I need you to hold onto that.
+I need you to hold onto that for me 
 
-Because I am about to describe things that are going to make Jeff sound like a monster. And the part I keep getting stuck on, even now, is that I am not sure that word covers it. Monsters are simple. You see them, and you run.
+Because I am about to describe things that are going to make Jeff sound like a monster. And the part I keep getting stuck on, even now, is that I am not sure that word covers it. Monsters are simple. You see them, and you run. 
 
 That is what made it so hard to see.
 
-The game night was a Tuesday in October, nothing special about it. Our place, the four of us, a bottle of wine Jeff brought that was too expensive for a Tuesday and which he did not mention the price of, which was always such a Jeff thing to do. Amaya made the dip she always makes, the one Hannah asks for the recipe for every time and never writes down. We sat around the coffee table and talked and laughed, and it was exactly like every other game night for six years.
+The game night was a Tuesday in October...or maybe it was a Wednesday, nothing special about it. Our place, the four of us, a bottle of wine Jeff brought that was too expensive for a Tuesday and which he did not mention the price of, which was always such a Jeff thing to do. Amaya made the dip she always makes, the one Hannah asks for the recipe for every time and never writes down. We sat around the coffee table and talked and laughed, and it was exactly like every other game night for six years.
 
 Then Jeff told the road trip story.
 
@@ -388,7 +388,7 @@ Then he spoke.
 
 His voice was calm and almost gentle.
 
-He said that I did not need to be afraid. He said that what was happening was not something being done to me but something being done for me. He said that the people in the photos had all felt what I was feeling right now and that every single one of them had come to understand, in time, that they had been chosen for something larger than themselves. 
+He said that I did not need to be afraid. He said that what was happening was not something being done to me but something being done for me. He said that the people in the photos had all felt what I was feeling right now and that every single one of them had come to understand, in time, that they had been chosen for something larger than themselves.
 
 He used a word I did not recognize, a name, something that sounded almost like a title, and the way he said it made clear that whatever or whoever it referred to was the axis around which everything else turned. The fires. The photos. The teeth on the mantle. All of it in service of something I was only now being introduced to.
 
@@ -414,7 +414,7 @@ Then she said:
 
 "There you are."
 
-She pushed the door open a little wider and looked at me with that too-wide expression and beckoned slowly with one hand, gesturing down, toward whatever was below her, toward the basement. Then she leaned close to the gap and said something else, something quiet, something that had the rhythm of words without quite resolving into them from where I was standing. 
+She pushed the door open a little wider and looked at me with that too-wide expression and beckoned slowly with one hand, gesturing down, toward whatever was below her, toward the basement. Then she leaned close to the gap and said something else, something quiet, something that had the rhythm of words without quite resolving into them from where I was standing.
 
 A phrase or a sentence or something older than either of those things, said under her breath like a response in a call and response she had been practicing for a long time.
 
@@ -430,7 +430,7 @@ I ran at her.
 
 I hit her hard enough that she went down and I felt the impact through my whole body and she hit the floor and I was already moving past her toward the stairs when I heard her start to laugh.
 
-Not a pained sound. Not shocked or frightened. Just laughing, fully and completely, her whole body moving with it, lying on her back on the floor laughing at the ceiling the way you laugh at something that has been building for a long time and has finally arrived. 
+Not a pained sound. Not shocked or frightened. Just laughing, fully and completely, her whole body moving with it, lying on her back on the floor laughing at the ceiling the way you laugh at something that has been building for a long time and has finally arrived.
 
 I looked back at her for half a second and her eyes were open and she was looking at nothing, just laughing into the air above her, and there was something running from the corner of her mouth that I did not look at long enough to identify.
 
@@ -458,7 +458,7 @@ I want to tell you that I said something to her. I want to tell you that I used 
 
 But I did not say anything, and she did not look at me like she recognized me. She looked at me the way the people in the photos looked at the fire. Like I was the thing at the center.
 
-Jeff walked into the room from the hallway with his hands in his pockets. He stopped near the center and looked around at all of it without any urgency, the way you look around a room you have stood in many times before. 
+Jeff walked into the room from the hallway with his hands in his pockets. He stopped near the center and looked around at all of it without any urgency, the way you look around a room you have stood in many times before.
 
 Hannah on all fours on the carpet. Amaya in the doorway with her head at the wrong angle. Me with bleeding hands pressed against a cracked window.
 
