@@ -92,7 +92,7 @@ He had thought he got hurt on his little adventure, but there were no wounds, no
 
 Finally, his dog started pawing at the ground. Digging and digging until he pulled out something long and shiny.
 
-Dark hair had knotted around the chain, leaving only the shiny locket exposed.
+Dark hair had knotted around the chain, leaving only the locket exposed.
 
 Buddy grabbed it and stuffed it in his pocket.
 
@@ -142,7 +142,7 @@ He knelt down, picking up what was left.
 
 All the bones in Buddy's hole were long and straight. They looked like the bones he'd seen before, but what was left in the woods didn't look like an animal.
 
-He reached down, pushing aside what was left of the bones, and pulled out a skull. Then hands. Then feet.
+He reached down, pushing aside what was left of the bones, and pulled out a human skull.
 
 “Your Ma was the most beautiful woman I'd ever seen.”
 
@@ -168,7 +168,7 @@ Pa stood, grabbing Buddy by the neck.
 
 They say he didn’t want Buddy to tell his secret. That he wasn’t his son anyway. He thought he was a saint, housing and feeding the child of another man. Justifying it in every way that he could.
 
-It was exactly one year later when they found Pa dead in his house. His head, hands, and feet were missing. They never found who’d done it, but the town talked.
+It was exactly one year later when they found a headless Pa in the house. They never found who’d done it, but the town talked.
 
 I tossed and turned all night after Simon left.
 

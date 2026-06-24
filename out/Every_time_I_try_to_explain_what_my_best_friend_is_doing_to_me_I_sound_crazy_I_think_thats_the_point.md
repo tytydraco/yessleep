@@ -1,36 +1,50 @@
 I want to start by telling you who Jeff is, because none of what comes after makes any sense without it.
 
-Jeff and I met the first week of university. Both of us were standing in line to get our student ID cards, and his photo came out terrible. It really looked like a mugshot. ​He turned around and showed it to me, a complete stranger, and said this is genuinely the worst thing that has ever happened to me. I laughed. We talked for the next forty minutes, and by the time we got to our first class, we had already decided we were eating lunch together. Campus hotdogs.
+Jeff and I met the first week of university. Both of us were standing in line to get our student ID cards, and his photo came out terrible. It really looked like a mugshot. ​He turned around and showed it to me, a complete stranger, and said this is genuinely the worst thing that has ever happened to me. 
 
-We lived in the same residence that first year, different floors, which meant we were constantly hanging out i​n each other's rooms. His was cleaner than mine. He had a rug from home, a Doctor Who lamp, and a coffee maker he was inexplicably proud of. My room had a mattress, a desk, and a poster I had put up ironically and then forgotten to take down for two years...or one year.
+I laughed. We talked for the next forty minutes, and by the time we got to our first class, we had already decided we were eating lunch together. Campus hotdogs.
 
-We studied for exams sprawled across his floor with that coffee maker running constantly, his notes color-coded and organized by topic, while ​mine were ​written in a single pen in handwriting that got worse as the semester went on. He was better at the numbers. I was better at writing. We figured that out early and used it shamelessly. I am fairly certain neither of us would have passed first-year accounting without the other.
+We lived in the same residence that first year, different floors, which meant we were constantly hanging out i​n each other's rooms. 
 
-We went to every party that would have us and some that would not. Jeff always knew someone who knew someone. I was always the one driving home at two in the morning while he talked too loudly in the passenger seat about things that felt profound and were not. He also has this thing where his voice changes a little depending on who he is talking to. 
+His was cleaner than mine. He had a rug from home, a Doctor Who lamp, and a coffee maker he was inexplicably proud of. My room had a mattress, a desk, and a poster I had put up ironically and then forgotten to take down for two years...or one year.
+
+We studied for exams sprawled across his floor with that coffee maker running constantly, his notes color-coded and organized by topic, while ​mine were ​written in a single pen in handwriting that got worse as the semester went on. 
+
+He was better at the numbers. I was better at writing. We figured that out early and used it shamelessly. I am fairly certain neither of us would have passed first-year accounting without the other.
+
+We went to every party that would have us and some that would not. Jeff always knew someone who knew someone. 
+
+I was always the one driving home at two in the morning while he talked too loudly in the passenger seat about things that felt profound and were not. He also has this thing where his voice changes a little depending on who he is talking to.
 
 We played beer pong at a Halloween party in October against two guys from engineering who took it very seriously, and we beat them anyway, mostly because Jeff had a gift for cheerful trash talk that disarmed people before they realized what was happening.
 
-Second year we got an apartment together off campus. Two bedrooms above a Vietnamese restaurant. One pot, two plates, and a constant smell of pho that we eventually stopped noticing. The Sriracha was always flowing as well. I swear I still can't pronounce it properly and Jeff never lets me forget it. 
+Second year we got an apartment together off campus. Two bedrooms above a Vietnamese restaurant. One pot, two plates, and a constant smell of pho that we eventually stopped noticing. The Sriracha was always flowing as well. I swear I still can't pronounce it properly and Jeff never lets me forget it.
 
-Jeff's high school girlfriend, Clare, broke up with him in November of that year, and I came out of my room at midnight to find him sitting on the kitchen floor with his back against the cabinet. I did not say anything wise or useful. I just made bad coffee in his coffee maker and sat on that floor with him until almost four in the morning. He told me years later that was exactly what he had needed.
+Jeff's high school girlfriend, Clare, broke up with him in November of that year, and I came out of my room at midnight to find him sitting on the kitchen floor with his back against the cabinet. 
+
+I did not say anything wise or useful. I just made bad coffee in his coffee maker and sat on that floor with him until almost four in the morning. He told me years later that was exactly what he had needed.
 
 He was quieter for a few months after that. Then in the third year he met Hannah at a party, a friend of a friend of someone neither of us actually knew, and twenty minutes after they started talking he found me across the room and grabbed my arm and said I need you to come meet this person right now. I went. She was sharp and warm and laughed easily, and I understood immediately why he looked the way he looked.
 
 That was six years ago.
 
-Since then it has been weekly calls, monthly dinners, double dates, game nights that start at seven and end at two in the morning with everyone too tired to drive home. Jeff and Hannah got married three years ago. I met Amaya the year after graduation, and we got married eighteen months later. The four of us fit together in the easy way that good friendships do, where nobody has to perform, and the silences are comfortable.
+Since then it has been weekly calls, monthly dinners, double dates, game nights that start at seven and end at two in the morning with everyone too tired to drive home. 
+
+Jeff and Hannah got married three years ago. I met Amaya the year after graduation, and we got married eighteen months later. The four of us fit together in the easy way that good friendships do, where nobody has to perform, and the silences are comfortable.
 
 Two weeks ago the four of us got back from a long weekend in Montreal...sorry, Quebec City. We ate too much and walked until our feet hurt, and on the second night Jeff and I found a dive bar while Amaya and Hannah went back to the hotel and we sat there until last call talking about nothing in particular, the way you only can with someone you have known long enough that you stop keeping score.
 
 On the flight home, he fell asleep in the seat next to mine, and I sat there reading and somewhere over the highway it occurred to me that I could not picture my adult life without him in it.
 
-I need you to hold onto that for me 
+I need you to hold onto that for me
 
-Because I am about to describe things that are going to make Jeff sound like a monster. And the part I keep getting stuck on, even now, is that I am not sure that word covers it. Monsters are simple. You see them, and you run. 
+Because I am about to describe things that are going to make Jeff sound like a monster. And the part I keep getting stuck on, even now, is that I am not sure that word covers it. Monsters are simple. You see them, and you run.
 
 That is what made it so hard to see.
 
-The game night was a Tuesday in October...or maybe it was a Wednesday, nothing special about it. Our place, the four of us, a bottle of wine Jeff brought that was too expensive for a Tuesday and which he did not mention the price of, which was always such a Jeff thing to do. Amaya made the dip she always makes, the one Hannah asks for the recipe for every time and never writes down. We sat around the coffee table and talked and laughed, and it was exactly like every other game night for six years.
+The game night was a Tuesday in October...or maybe it was a Wednesday, nothing special about it. Our place, the four of us, a bottle of wine Jeff brought that was too expensive for a Tuesday and which he did not mention the price of, which was always such a Jeff thing to do. 
+
+Amaya made the dip she always makes, the one Hannah asks for the recipe for every time and never writes down. We sat around the coffee table and talked and laughed, and it was exactly like every other game night for six years.
 
 Then Jeff told the road trip story.
 
