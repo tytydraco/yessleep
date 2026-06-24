@@ -112,7 +112,7 @@ The creature poked its head from the water. Its mouth hung open like a moray eel
 
 I woke up in a hospital room two days later. My leg had to be amputated due to massive tissue damage. I looked over to see my father sitting next to me. His eyes opened so wide that I thought they were gonna pop out of his socket. He hugged me as he became a crying mess.
 
-He had told me that he had gotten a call about what happened, except a few details were left out, namely the sea monster. He was told that we had hit a coral reef and after I fell overboard was attacked by a shark along with some of the group. My dad knows my fear of the ocean and I later found out when he learned that my mother forced me to go. He had raised his hand again for the first time in all his years of knowing her.
+He had told me that he had gotten a call about what happened, except a few details were left out, namely the sea monster. He was told that we had hit a coral reef and after I fell overboard was attacked by a shark along with some of the group. My dad knows my fear of the ocean and I later found out when he learned that my mother forced me to go. He had raised his hand against for the first time in all his years of knowing her.
 
 I cut ties with my mother after I was discharged from the hospital. Actually I didn't even let her see me why I was recovering. I live with my dad now, he actually cares enough about me. The last thing I heard about my mother is that she was emotionally distant, that could happen if you lost your love to some sea creature and your son never wanted to see you again all within a few days of each other.
 

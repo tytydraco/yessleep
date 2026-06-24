@@ -1,0 +1,159 @@
+This is a strange place to ask for help, but to be honest I don't know who else would believe it. I mean even if I was to get officials involved who can take on a company the likes of The Walt Disney Corporation. Trust me I know. Even being the Editor in Chief of this central Florida theme parks and attractions blog has had me brush shoulders with the Mouse's legal team many times.
+
+So much as a suggestion of something tragic happening inside the 'happiest place on earth' might as well be taking god's name in vain. Except you will actually feel the repercussions in this life and not the next.
+
+Like I said, I run a theme parks and attractions blog. A modest one. Nothing that gets as many views as a Tik Tok featuring a 30 year old in overpriced Mickey Ears reviewing a mouse shaped pretzel with a new dipping sauce, but our audience is different than that. We cater to the ride enthusiasts. The ones that really want to know the ins and outs behind the so called 'magic' in the dark ride community.
+
+Animatronics, ride systems, projection mapping, imagine an unofficial popular mechanics for the theme park junkie. We do well for ourselves, and have a pretty credible reputation in the community. Which is exactly why I am not asking them for help. If they heard this we would lose all credibility. How could anyone that knows that the 'magic' is really gears and mechanics go around believing that there is something more sinister at play. Something that breaks the logic of scientific fact, something that breaks the mind completely.
+
+It all started when our best freelancer (who I will not name for obvious legal reasons) promised me a story I couldn't believe. He said he knew a cast member that was going to get him into the Frozen Ever After Ride after park close. He was going to give him a full lights on tour. I called bullshit right away. No cast member that loves their job would dare risk the trouble they would get in for this. Hell, even a cast member that didn't like their job would know that the consequences were probably worse than prison. Lawsuits that would ruin your entire life.
+
+He swore it was legit though. I mean this kid never failed to deliver before. Some of the best videos, photos, and articles on our site were all from him. He has pulled off crazy stuff before too. Mostly at Sea World, sometimes at Universal, but never and I mean never at a Disney park.
+
+It didn't matter to me if it was real or not anyway. There was nothing to lose for me. He was a freelancer so if he got caught he wasn't associated with me. No risk and all the reward seems like a deal you can't pass up. So I told him to keep me posted. If he came up with the content then it would always have a home here.
+
+But that was the weird part. He never did keep me posted. Or maybe that's the wrong way to put it. More like I just never heard from him again. I mean it's not an unheard of thing in this business for freelancers to come and go, but id be lying if I didn't say I missed the kid. Hell I was even worried. If something happened like he got caught, no one would know. When something at Disney happens that isn't supposed to it doesn't go on the news. They shut all publicity about it down. We are talking deaths, robberies, pranks, anything that could possibly harm the brand out the window. I mean sure they can't stop guest posting videos to their social media when they witness things during the day and take video. But this would have been during a time that know one would know except for those on the inside.
+
+So if this kid got in trouble and I mean real trouble, there was a chance I may never hear about it.
+
+Weeks went by and then months went by and by this point I hadn't really even thought about it. All until just yesterday when my inbox received a notification. An email from no sender titled 'Eibon Presented Corpses Over Tsathoggua'. Excuse me what? I am immediately about to send this obvious spam to the trash when something says that I have to open it. I don't know why. I have had my accounts hacked before. I knew better, but damnit if this hacker wasn't good at grabbing someone's attention.
+
+I opened it and half expected my computer to reboot with a blue screen. Instead it was rather unceremonious. I scrolled down to reveal an embedded video and the thumbnail image was what appeared to be the lights on inside the Frozen Ever After attraction. I couldn't believe it the little shit actually did it. And that in itself would explain the cryptic title and no address, he was trying to keep all traces from coming back to him.
+
+I began the video and watched it all unfold before my eyes. It was dark and all you could hear was what sounded like the shuffling of feet and someone fumbling in the dark. Suddenly a loud "Ive got it!" rung out as a click followed by an electric hum buzzed through the room. Only a second later and the entire room was illuminated. I had seen this room a million times. Grey brick with banners and posters of makeshift messages set in the world Arendell. However, it felt so different under the bright florescent lighting. Without the stage lighting and pumped in atmospheric sounds and music that persist through the queue for the day guests, the whole thing had a lifeless yet uncanny eeriness to it.
+
+"Wow. We are actually here. You are positive they didn't see us?" I recognized this voice immediately as my beloved freelancer. Of course, not viewable on screen as he appeared to be the one operating the handheld camera from which the footage was captured.
+
+"I promise no one saw us. And no one will trace it back to us either as long you do your part in keeping this as anonymous as possible." This of course was the voice of my freelancers supposed source. I couldn't really make out any features of the individual though. They were wearing all black pants and a hoodie with the hood pulled up over a ski mask and even a black face mask layered over their mouth so that you could not even see their lips. This person was for sure taking every precaution to not be identified what so ever.
+
+The two continued through the queue which almost looked a different color given the unnatural bright fluorescent lights overhead. What usually felt so warm and comforting felt so artificial and bizarre. Things that in the right lighting played tricks on your mind like the painted backdrops of far off buildings looked so flat and out of place next to what was clearly a log cabin in the middle of an indoor room.
+
+The windows of the cabin which were normally displaying video of characters walking by were obvious black screens with reflections of the lighting. A line of boats were backed up from the attractions loading station all the way into the corridor from which they came. The water they floated on was still. So still that it almost looked solid enough to walk across. Underneath you could see the guiding rails to lead the boats along their path and the vents that would control the jets propelling the boats forward. The camera zoomed in on the mechanics of the vents under the water.
+
+A loud squeak of what could have only been a metal gate opening broke the hypnotizing sound of the humming light bulbs.
+
+"You coming or are you wanting a water sample?"
+
+The voice behind the camera chuckled, "I'm sure I could find a new species of bacteria in there."
+
+"You aint kidding." The masked man responded matter of factly as he held the gate open.
+
+The two walked alongside the rides water path on what was clearly a ride evacuation walkway. Usually in the darkness the path is hardly visible, but here in the light you could see it outline the water and the show environment. As they rounded the corner the camera panned up to the first show scene a high hill top where guests are greeted by the first animatronics, Olaf and Sven. As the bottom of Olaf started to come into view the camera immediately fumbled towards the ground as a loud "SHIT!" echoed from the operator.
+
+"You okay?" said the hooded guide now muffled as the camera was now laying on the ground pointing towards a wall.
+
+The camera operators voice started faint and came in more clear as you could see his knees bend into the frame and hear his hand lift the camera off the ground. "Yeah, I just didn't expect them to be moving."
+
+"They are always moving. This is there idle animations."
+
+"Wait what?"
+
+"Yeah, the operating system they run on is extremely complicated and can be a nightmare to boot up and get everything in sync. That's why they remain constantly on even when the parks closed. Think of it like music. The idle animations help each animatronic keep tempo with the overall song or in this case show scene. That way when the next boat comes in and triggers the show to start they are immediately ready to perform with exact precision never missing a beat."
+
+"Holy shit that's incredible. So wait, how come we haven't triggered them now?"
+
+"Only the ride vehicle tripping the sensor could trigger the show sequence to start."
+
+"Ohh so there's nothing in the animatronics themselves that can sensor where a guest is or follow them."
+
+"Nope. Which is why it is such a pain in the ass to keep these things synced. Each boat has to be at an exact speed once triggering the show to start or else the animatronics will look slightly off looking either a little ahead or behind where the boat should be."
+
+While this conversation was taking place you could see the Olaf waddling back and forth across the snow. Even in the complete illumination of the light the movement looked so realistic that it came across as a living breathing cartoon character. Not in the cute way like a Roger Rabbit, but in the uncanny way of something that is trying to convince me that it is occupying the same world as me. That it breathes the same air I do even though it cannot breathe at all. Still its body moves with the slightest rises and falls even in its snowball stomach that grows slightly when the machine appears to inhale and exhale.
+
+That's what the 'Disney magic' is. It's an illusion designed to make your brain think that the worlds and characters you have seen on screen could reach out and touch you. They say seeing is believing, but that doesn't mean that believing is fact. Your brain can be manipulated to believe some crazy shit with the right mechanics and lighting. And its possible that's what my brain was doing at this very moment because even though the guide had just confirmed there were no sensors in the animatronic it felt that wherever the camera operator moved the animatronic's eyes followed. Yet it continued to move at a slightly slower than natural speed that made the whole thing so unsettling.
+
+As I began to hear the footsteps of the two stars of this behind the scenes journey it occurred to me how quiet it was in this room. You'd assume these heavy machines would make loud noises while moving, but they were dead silent. Even as Sven moved its head around to look with its goofy smile it rocked back and forth with the silence of an insect from across the room. Making something so innocent feel just a bit sinister even if I couldn't really explain why.
+
+As the two journeyed around the next bend you could see the trolls gathered in a circle. Again idly animating. Though this time stationary and ultimately a little less creepy as they were small and didn't appear to be imitating something you are used to seeing somewhat regularly in your life outside these walls. Still the silence had me on edge. Like that moment in a horror movie where you expect a loud bang to come through the speakers at any moment. Only you realize when it never comes you are left with the unsettling feeling of anticipation. A ticklish goosebump inducing uneasiness that can't be satisfied by the expected result just happening. Like the anticipation of a sneeze that never fires.
+
+"Watch your step." Said the mysterious guide who was covered from head to toe in black. "Its a pretty steep hill."
+
+The camera panned up a black hallway. Not at all dark, it was lit. Just quite literally painted black from floor to ceiling besides the very top above a doorway where a miniature of Elsa's ice castle was displayed. It was placed in such a way that as the two climbed the hill it somehow looked to scale with wherever they were standing on the incline. Growing bigger in the frame though it remained the same size that it was the entire time.
+
+"Cool huh? The angle of the walls combined with the black paint plays with your depth perception."
+
+"Yeah this place is like a living breathing lie. It's almost putting my mind on edge. On one hand I can see the ride track and the ceiling illuminated by the overhead factory style lighting, but yet still there are tricks designed to pull me into this manufactured fantasy."
+
+"'Disney magic' is what we call that. Some people get so attached to that feeling they work jobs they hate year after year just so they can take their one week vacation and all the money they saved to experience it again. It's no different than drugs really. The only difference is you won't see a bumper sticker on a car full of kid's that says 'I'm a heroine adult'."
+
+The smugness with which that was said sat strangely with me. It was honest. I think that most theme park enthusiasts know that deep down there is cynicism in the capitalist nature behind the fun. Having it thrown in your face that the intent is designed to keep you spending money is just something that no matter how true it is always feels dirty. It's why in interviews they replace those words with something like 'We do it for the fans' or 'Without you guys none of this is possible'. Still they are right though they could smack me in the face and call me stupid and I would still try to get to the parks at rope drop the next day.
+
+When the two reached the top of the hill I noticed that the Olaf animatronic that was usually ice skating in the first room after the lift was not there. Of course, Im not the only dark ride enthusiast that would notice this.
+
+"Wait, where's the Olaf?" said my freelancer. He knew these rides like me. Which is what made him so great at his job. He began to walk towards the spot where the animatronic would go back and forth on its track. Only strangely there was no track. You could tell the site of this also confused him as he bent down to look around the floor obviously looking for the mechanics that would help the animatronic move.
+
+"I don't know. Maybe it had to be taken in for repairs." You could tell the way the masked person delivered that statement they weren't so sure themselves. Probably because it didn't make any sense if there were repairs to be done they would are then likely be done right here in this room rather than transporting a robotic figure weighing more than likely hundreds of pounds to somewhere else in the park.
+
+Even with lingering questions there wasn't any more discussion as you could tell there was an eagerness to reach the next scene. The first of the two human character animatronics. Ana and Kristoph. There they were in the full work lighting. The two were waving at a the track to a boat that was not there. Even more hauntingly their eyes followed down the path as if they were following where the boat would be traveling had it been there.
+
+I have seen dark rides and animatronics in full work lighting before. I mean of course I have this is my livelihood. It's as common as an urgent care doctor sees someone with the common cold or a mechanic sees the check engine light on a car needing an oil change. Nothing about this should fascinate or excite anything within me as much as it did. Uncharacteristically for me it gave me the absolute creeps. Ive never been one to have a fear of the uncanny valley, but my god there was a chill that ran from my back through my arms and down my legs. Goosebumps covered my skin and the hairs on the back of my neck stood up to the point where it felt like they were pulling on the muscles in my neck causing them to twitch a little.
+
+When the camera got up close enough to lock eyes with these machines it felt like I could see something in their eyes. What could I see? A synthetic eye that was crafted by an artist and placed into a machine. It should be lifeless. Why did I see a hint of life. An illusion, Disney Magic, the voice in my head told me, but my body was already signaling a threat. Hence why my body was sending these signals through my nervous system tightening every muscle I have.
+
+"This is insane. I mean seeing them in the dark on the ride is one thing, but up close in the light like this is..." Immediately the Ana animatronic opened up its mouth a little wider than natural and emitted what can only be described as an animal noise like a fox, but distorted through a synthesized electronic machine. It was so high pitched that the camera operator lifted the recording device up and pointed it to the ceiling. I assume, as a result of covering his ears. I could only see the ceiling the camera was pointing at. Now traveling backwards and suddenly turning back to face the wall and falling rapidly as it hit the water.
+
+The camera flailed violently under the water still being held tightly. Everything became dark. You could hear the water as the panicked flailing continued and then you could hear the camera break the surface.
+
+"Fuck, fuck fuck... Hey are you there? I can't see shit. What happened?" No one responded. It was silent besides the water dripping from the camera. Still you could not see anything.
+
+The camera jerked or at least I think it did based off the fumbling sound that was likely the hand that had a grip on it. You could hear what sounded like running footsteps coming from multiple directions. Strangely they were in quick bursts. Like a sprint and a squeak of a sneaker stopping on a wet floor followed by another sprint but fading in the opposite direction.
+
+"Okay this shit isn't funny!" Suddenly the show lighting came on. Dim but it illuminated the show scenes with the graphics of a snowy backdrop and a magical frost that quickly shot down the darkened corridor on both sides.
+
+As the camera panned quickly and frantically around the room you couldn't make out much, but I immediately noticed there were no animatronics in the show scenes. A whirring hum began to become louder as what sounded like a dam being opened rushed through the speakers. The jets of the ride must have been turned on because again the camera was under water and this time for brief glances you could see the body of the operator being tossed around like a rag doll.
+
+I immediately stopped the video and picked up my phone. I dialed 9 and 1 and then stopped and stared at it. What was I going to say. Someone I know is dead in the Frozen ride at EPCOT. Fuck I don't even know if they are dead yet. I hadn't seen the whole video. I just got the uneasy feeling of seeing a crime. Something I shouldn't be seeing. It made me feel complicit in a way. But still I had not seen the whole event unfold yet. I can't tell the police anything without sounding even more like a maniac than I was already going to sound if I didn't at least have more details.
+
+I despised my freelancer. Yes the one that I am currently concerned beyond belief for. A resentment that I cared enough about him to have to watch the rest of this so that I could somehow help them.
+
+I scrolled over the video and reluctantly and pressed play. Again the body flailed out of frame as bubbles rushed by the camera and it peaked its lens out of the water long enough to see the show continuing on the wall and hear the music playing.
+
+As the camera dipped back under water I could see an arm grab onto the side wall of the ride path. The camera came back over the wall and rested on the ground. You could hear the grunt of the freelancer struggling to pull themselves out of the water. Even over the blaring sounds of the 'Let It Go' song swallowing the room. All of a sudden a leg covered in black stepped into the frame and lifted itself up out of the frame.
+
+A loud snap and stomp could be heard as well as horrible scream that grew faint as you could see my freelancer being carried out of frame by the rushing water. The camera came off the ground as the focus began to come in and out. I can only assume it was now being operated by the one who guided us into this nightmare. As the camera came up it focused down the corridor on the Elsa animatronic that was in full show mode performing like it was normal operating hours.
+
+"It's time!", shouted the voice from behind the camera. The music continued but the Animatronic stopped and turned toward the camera dead panned. It turned backwards and walked out of the scene. What in the actual fuck. This is not something that happens on this ride. That animatronic by all logic should be locked into that platform. But as clear as day I just saw it acknowledge the camera operator and walk out of the scene.
+
+The camera turned off.
+
+I hovered over the dark screen to check the videos run time and it was not over. I was immediately jump scared by the loud return of the camera cutting back on with the ride music at full blast and the water rushing louder than it should have been for this ride operating at normal speed.
+
+I recognized this room as the final scene in the ride only there was my fucking freelancer tied by hands and legs suspended from ropes pulled out like the letter X. He was frantically looking around while attempting to yell, but was muffled by the gag placed in his mouth. A chanting was faintly beginning to drown out the atmospheric ride music as cloaked figures entered into frame forming a semi circle around the victim.
+
+"EPCOT EPCOT EPCOT EPCOT EPCOT" they chanted in unison. The Elsa animatronic came in from the side fully walking. I couldn't believe my eyes. I thought maybe I had been deceived by someone dressed in latex masks imitating the animatronics. No that's not what this was. It was the actual fucking machine walking around with its own autonomy. As it walked over to my freelancer it brandished a knife and quickly slashed at his leg. A muffled scream could be heard over the still droning chants. Elsa collected some of his blood in a vial. She then set the vial on the floor in the center of the circle.
+
+A cloaked figure brought forth a bottle labeled hydraulic fluid and set a funnel into the vial. They began pouring the fluid in mixing it with the blood. Then they stepped out of frame.
+
+"SILENCE!", screamed the voice that was clearly the guide. As they stepped into the center they began removing their face mask followed by their ski mask. What I saw is so ridiculously unbelievable that I half expect everyone reading this to report this story just due to its sheer ridiculousness, but I swear I am not making this up. I have analyzed this front in back to convince myself it is a prank. A sick joke that someone in the community is playing on me. But all I can do is describe what I saw.
+
+With the mask off it revealed a half exposed animatronic head with the other half brandishing a deteriorating latex mask of the one and only Walt Disney.
+
+"I began this place as a dream. A dream that I knew was ahead of my timeline. I saw the original Disneyland grow from the rubble it was built upon to what could become a utopia of the world." He turned around to face the victim.
+
+"But that was the problem with being born when I was. I wouldn't live long enough to see my vision fully see its end. So I put in place that when I died they cryogenically freeze my head until one of my brilliant imagineers could come up with a way to bring me back. They did. They were able to upload my conscience, brain, and soul into this monstrosity of a body. A true work of 'Disney Magic'.
+
+But bringing me back was both a blessing and a curse. Sure my legacy carried on, but my vision had slowed into a mere carnival of merriment meant for wealthy families to buy cheap overpriced souvenirs. Where was the vision. It must have been buried on the day I died. I had invested so much into occult research to bring my visions to life and I come back to find many of these so called imagineers building amusements for children with no vision.
+
+EPCOT was never meant to be a theme park it was meant to be the best parts of the entire world where the most important minds could live together. Creating solutions to all the questions of life and eventually defeating death itself. Living forever in the utopia of the world.
+
+Well today we will take back the vision from the greedy rats that now run this company. I will show them that the vision is still alive and well. After all we have already had several volunteers to be apart of the greatest magic of all time. Eternal life."
+
+As he said this all of the animatronics walked into frame.
+
+"I have already preserved my wife and children into these three living animatronics and now I will show you how."
+
+He took the vial of blood and hydraulic fluid in one hand and removed the gag from my freelancer with the other. Before he could even make a sound Walt grabbed his neck and forced the vial down his mouth. He replaced the gag and tied it tighter at least that's what it appeared as you could see his eyes open wide in a look of discomfort and pain as he squirmed helplessly in his bondage.
+
+The cloaked figures moved into the circle holding the Olaf animatronic on its side and laying it on the ground in front of Walt. Once it was in place Walt lifted the freelancers shirt and used a dagger to slit upwards across his stomach. The screaming was over powered by the chants once again.
+
+"EPCOT EPCOT EPCOT EPCOT"
+
+Walt raised the dagger to the sky.
+
+"Eibon presents this corpse over Tsathoggua! Tsathoggua bring forth your magic and make it mine so that the world shall see what power is capable of. Only a fraction for its full might would bring one who has not yet tasted it to madness."
+
+During this speech you could begin to see the flesh peel forward on the stomach of the helpless sacrifice as his innards slowly slid out of his open stomach cavity pulled by gravity, still hanging by the thread that binds them to the exposed anatomy.
+
+Then what appeared to be a creature or at least I assume it was living as it moved like syrup pouring from a bottle. Slowly stretching its mass from inside the stomach from which it was now being birthed. It had mouths or multiple orifices scattered across its being. Some with teeth some with plaque like build up that resembled the stalagmites in the top side of caves. There were no eyes yet it could see everything. I knew this because it could see me through the video. I don't know how, but it did. There were feathers on it that spread out like wings but they were bound together by flesh that was dripping from one of its heads. I know this doesn't make sense, but if you could see it, it, it was miraculous like maybe it was an angel. Its funny I have never described it before, but it's bringing me comfort now.
+
+Thinking about its beauty as it slid down to the ground and over the husk of the Olaf figure it stood and stretched out its scales to its multiple tongues. The heads licked its wings with its mouths opened wide looking again at me through the screen. Its beautiful. While it burned my eyes to even think about looking at it because its beautiful. My heart races now as I type and I feel a feeling I can't describe as the lion on its back opens the door on its chest to expose its flesh. It's beautiful......it's beautiful........it's beautiful.........it's beautiful........it's beautiful
