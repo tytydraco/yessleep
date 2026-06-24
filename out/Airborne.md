@@ -1,0 +1,105 @@
+Have you ever heard the Flat Line of a heartbeat Monitor?
+
+I was outside a Hospital, well above one when I Jumped.
+
+Suicide, well It Might as well been.
+
+I Originally was apart of the 82nd Division, Paratroopers of Vietnam.
+
+Nothing like 173rd or 101 Division.
+
+After my 10th drop, Death was never an Option.
+
+That was until, They Dropped us Directly into what could only be Described as "Hell on Earth".
+
+That is, Minus the Fire and Brimstone.
+
+When we Landed, even after the Dozen upon Dozens of Practice an Actualized Mission Drops my Jackass landed in a Tree.
+
+An From a Tree is where my story is Told.
+
+Leaning into a Jungle you Got three Options, Die by the Jungle, Die by the Vietcong or Burn an Kill everything in your way.
+
+However there is a Fourth Option, Rot and Die hanging in a Tree like a Hanging Froot.
+
+I wasn't Gonna Let that Happen, and Obviously didn't. Even going for my Gravity knife the Fucker was Gone.
+
+Most in this situation Panic and Shout, that knowledge was a one way ticket to be Killed.
+
+Knowing that was what saved my Life.
+
+As I Hung High In the Canopy below me I could hear Growns and Commotion, another fellow Paratrooper hit the Ground, Hard, Leg obviously broken as he dragged himself crying backwards.
+
+I Couldn't tell who he was from this Distance and was prepared to shout to him when I noticed it.
+
+The Foliage shift and spoke, there was no Haste, a Clear sign of the enemy approaching and they were right below me.
+
+Hastely I explored my belongings, Grabbed a Canteen and tossed it at the Groaning man, his eyes shifted right to me as I laid a finger upon my lips to hush him.
+
+Crunch.
+
+Snap.
+
+Crunch.
+
+Snap.
+
+Bellow me was Something Dark from the leaves, yet this one gap of light was enough.
+
+It was Human, no, Human Like.
+
+A shine shimmered from what appeared to be fish scales, leading into Twitching furred ears, that branched to brown feathers with a red comb that wiggled an shifted as it moved.
+
+The Individual stood in the light, it's stature Dominated over the injured soldier.
+
+Blue and Silver scales Gasped for Air a maw pulling yet never recieved, it's Cattle eyes stared down as it snorted letting out fog of aspersion, beside it towered a Macabre Poultry head Darked around by eager as it's beak point Cardinal directions.
+
+I Felt limp, as if a Possem in the eyes of Hunter.
+
+The Prey However squirmed and begged.
+
+"Oh God, w-what the fuck.. what the fuck are you.."
+
+The Creature bent down stretching an manly arm to lift my Comrade by the throat.
+
+Then it spoke, like the elderly man an aged women who reached their end and a youth with newborn words.
+
+"I am. I am that, was Harvested. That Wich is over Fed, Raised and abused, Schooled and Cattled, Free Range and now Flocked. I am. That I am."
+
+It's Large Middle cattle skull leaned it's mouth wide as the injured his Head found the entrance, Ushered by teeth.
+
+The Brahmans Teeth shut slowly with a sick crunch and pop vanishing the Skull into mulch.
+
+Crunch.
+
+It chewed.
+
+Crunch.
+
+It feasted.
+
+Crunch.
+
+It was unsatisfied.
+
+Its Back Arched and roared to the over cast of leaves.
+
+"I AM LIVESTOCK!"
+
+Someone who may have been my friend collapsed to the ground into a puddle of himself as the Beast pressed on.
+
+I Hung for Hours.
+
+Mabey a Day, who know.
+
+Eventually, I Pulled my HDR sidearm, a pistol adapted for silence.
+
+Each shot hit my branch as I jossled in-between each book bounce before finally snapping and landing me into Dirt and mud.
+
+The Blood of my Companion.
+
+Upon my Return I was Sent on mandatory leave, my account leds those in the high command believe I wasn't Fit for Duty.
+
+Actually the Bastards institutionalized me for a year before being released as absolutely Sane.
+
+Even if I wasn't, being nearly 82 years old, not even Dementia can wipe this Memory, and I will have to carry it to my death bed.
