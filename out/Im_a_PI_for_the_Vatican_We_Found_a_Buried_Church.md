@@ -1,0 +1,146 @@
+[Previous Part](https://www.reddit.com/r/nosleep/comments/1txqr1w/i_am_a_pi_for_the_vatican_after_my_last_case_i/)
+
+Linked above is my last case. For those who don’t want to read the entire case I will shortly summarize it.
+
+As you all know by now, I work for The Vatican investigating possible cases of paranormal and demonic activity. My last case had me investigating a monastery that they had lost contact with. Within the monastery I found the corpses of monks and came face to face with Belphegor, the demon of sloth.
+
+Belphegor had stolen an amethyst from the crypt beneath the monastery and tried to tempt me into leaving the service of The Vatican. I do not know why Belphegor had stolen the amethyst or didn’t want me to investigate further, but curiosity got the better of me and I continued working. This leads to the present day.
+
+A few hours before I posted my last case, I had gotten a call informing me of another one. Apparently, São Paulo Cathedral was having renovations done, and while working on the basement they found a passage into an underground church. The city, out of caution, sent in archaeologists to guide a faith leader in exploring the newly unearthed church.
+
+Only one person reported back, a faith leader named Murilo. He claims that he had been separated from the group and could not find them. Instead of searching deeper into the church, he decided the safe move would be to report the disappearances.
+
+I flew privately to São Paulo due to the urgency needed if we were to stage a rescue for lost researchers. Once I had landed, I was met on the runway by Murilo, who would guide us to the entrance, and an officer by the name of Cristiano.
+
+Let me get my biases out of the way first. I had been led to believe due to my time in the United States that all South American police were corrupt. I was also led to believe those that weren’t were almost primitive to those you would see in the US or Europe.
+
+This was not the case, if I didn’t know any better, I could have mistaken him for an officer down south. The primitive remarks were also proven false as officers in São Paulo have begun wearing body cameras to help combat corruption.
+
+Cristiano was soft-spoken and seemingly held a deep respect for my position. He was almost eager to follow me into the underground church. Murilo on the other hand seemed impatient to get going. I assume he wanted us to find his comrades down in the church before anything bad could happen to them.
+
+I showed Cristiano my holster with my handgun in it. “This won’t be a problem, right? I carry it for self-defense after my first case went bad.”
+
+Cristiano responded with a light sigh. “It is a small problem, but I look the other way. We can never have too many guns down there.”
+
+I laughed at his statement before Murilo grabbed my arm “We must get going!” He guided us through the busy streets to a large cathedral. Police surrounded the building outside preventing onlookers from entering the site.
+
+Cristiano took lead once we reached the barricade, allowing us to enter with little resistance.
+
+Murilo began to seem uneasy as we entered the cathedral. “I will only lead you to the tunnel entrance. I am afraid of what awaits down deeper in the cathedral.”  
+Cristiano seemed annoyed at his cowardice. “So, our guide will not even take us inside? What if something happens?”  
+Murilo reassured us “I will wait all day outside the entrance to the tunnel. If you do not return, I will send police in after you.” That was not as reassuring as he assumed it was.
+
+Once we reached the tunnel leading to the church Cristiano stopped me and handed me a pocketknife. “In case we end up in close quarters with something or someone. You will not have time to draw your gun.”  
+  
+I thanked him profusely as we checked to make sure our flashlights worked before continuing into the tunnel. As we left, we could hear Murilo wishing us luck on our adventures.
+
+The tunnels alone felt like a part of ancient history. They must have been dug at least three hundred years ago for the government to have no record of them. The tunnels were too tight for us to walk next to one another, so Cristiano took the lead, he was a police officer after all.
+
+After about two minutes of walking the tunnel opened up into what I could only describe as a cave. Within the cave was what looked like a small church. The outside walls were made with what I assume is white marble, and they had large oak doors. As I shined my light at the doors, I noticed that it glistened where the handles should be.
+
+Cristiano spoke up “How the hell is this possible? An entire cave right under our city? How did they get a church down here?”  
+  
+“Hey, calm down I do not know. We have a job to do here and I need you focused.” I took lead and began moving towards the doors. His questions had made me uneasy; he was right this should have been impossible to cover up.
+
+As I reached the door, I noticed the glinting metal appeared to be gold. “Wow golden door handles! How about we pry them off once we leave?” I joked trying to lighten the mood.
+
+Cristiano didn’t seem to appreciate my humor as he moved to open the door. He entered but quickly stopped dead in his tracks. When I went to see what caused him to pause, he tried to prevent me from entering.
+
+“You don’t want to see this; we need to leave now.” He began to push me.
+
+I raised my voice at him “Stop this is insanity! I came down here to solve a case and that is exactly what I am going to do! I have seen worse I think I can manage it.” I pushed past him.
+
+I was wrong.
+
+First let me outline the interior for you. The church was one fairly small room. What was important to note was that everything outside of the floor and walls was made out of solid gold.
+
+As I entered, I noticed that on the back of the pews were gold bound pamphlets. I do not want to admit my greed may have gotten the better of me and I tried to grab one. They wouldn’t budge though.
+
+In defeat I continued further into the room, hoping to see what had startled Cristiano.
+
+Sitting on the golden steps leading up to the golden altar were two bodies. They were positioned as if they were sitting.
+
+Now if you have read my last cases, you know that I have seen bodies before. I have never seen them brutalized to this level before.
+
+There was dried blood on the floor, one of the bodies had its jaw blown off, creating a gaping hole where the mouth would be. The other was missing both of his ears.
+
+I began investigating around the room for clues as to what may have happened. After a couple of minutes searching, I realized I wouldn’t find anything of use in determining what led to this.
+
+As I began to stand up, I felt a hand on my shoulder and heard a whisper. “There you’ve seen it. We need to leave and get help now.” It was Cristiano.
+
+I nodded at him and began to stand. As I stood up, I noticed a figure standing in the entryway. It was humanoid in shape, but I could not figure out who it could be. Until he spoke.
+
+“What a shame you all had to witness that. My master speaks to me, from beneath the floors.” Murilo was now in the room.
+
+At first, I had assumed that he had found his courage to venture down into the church with us. That was until I had time to understand his words.
+
+“And who is your master? As far as we know there is nothing below this church.” I questioned, reaching towards my firearm.
+
+Murilo’s eyes quickly darted towards my hands. “Oh no that will do you no good here, at least not with what he has planned for you.”  
+I did keep my hand on my hip glancing at Cristiano, he was mirroring my motions.
+
+He finally spoke, “Are you telling me you did all of this, to these people, how?”  
+  
+Murilo laughed before responding “My master demands offerings before he will walk amongst you. Are you familiar with the idea of the three wise monkeys?”  
+  
+My mind raced, trying to imagine what he was referring to. Then it hit me. For those who do not understand Murilo’s crazed ramblings he was referring to a famous Buddhist principle. One monkey covers its ears, another covers its mouth, and the final one covers its mouth. Some people may know it as the saying hear no evil, see no evil, speak no evil.
+
+Once I understood I responded, “That explains the ears and the mouth, but you’re missing the eyes.”
+
+Murilo’s head glanced between us. “Don’t you understand that is why we brought you down here. Obviously, I would not sacrifice my own eye for the ritual. One of you will have to I will let you decide which one does.”  
+  
+Both Cristiano and I pulled our firearms and trained them onto Murilo. Cristiano then spoke “What forces either of us to pick. Why not overpower you and leave?”  
+  
+I followed up his question with “What do you hope to gain from this?  
+  
+Murilo looked at me first. “Mammon needs some level of sacrifice to manifest upon this world. The three wise monkeys should be enough to bring his reign.”  
+  
+He then looked at Cristiano before turning towards the door and closing it. “You can try to open this door; it won’t budge until the final sacrifice is made. But worry not, there is a reward for whoever is left standing. They may take an item of gold and leave here unharmed.”
+
+I looked at Cristiano he clearly had been enticed by those words. “Only one of us can leave here alive. I can’t let myself die here today.”  
+  
+He turned his gun towards me. I tried to talk some sense into him. “Cristiano come on this is insanity. There is nothing supernatural at play here this is just a lunatic trying to play you.” I couldn’t let him know that there was a possibility that his words were true.
+
+That seemed to help him snap to his senses. He quickly turned his attention towards Murilo and charged him. The two of them were engaged in a wrestling match as Cristiano dragged the altercation away from the door.
+
+As I went to open the door it wouldn’t budge. Somehow, he had sealed us in here, even though I could not see any barricades. That’s when I realized we are in a lose-lose situation. Either we are stuck in here or we complete Murilo’s insane ritual.
+
+I couldn’t bring myself to hurt Cristiano, as far as I knew he could have a family to return home to, and he had tried to protect me. That’s when it clicked… I could attack Murilo while he was pinned.  
+I waited until the fight had come to a head and pulled out the pocketknife. This is the first time I have had to get my hands dirty to protect myself and I will avoid being overly graphic. This night will forever stay in my memories.
+
+I ran in and slashed Murilo’s eyes, taking them both out. He flailed on the floor bleeding and cursing. The eyes had ended up on the floor; they did not stay on the floor for long though as they had turned into golden tokens.
+
+Cristiano looked at me, frustrated, I had waited so long to step in.
+
+Before I could say anything, the ground began to shake, and a flash of green light illuminated the room. I grasped at the golden tokens and made my way towards the door.
+
+I prepared to bash the door and leave as quickly as possible, but as my shoulder hit the door it opened with no resistance. I had fallen to the ground outside and scraped up my arms.
+
+In the moment it didn’t hurt as adrenaline filled my body. The entire caves and tunnels were shaking. Before we could make our way out of the cave and into the tunnel, Murilo came rushing out, a hollowness where his eyes used to be.
+
+Both Cristiano and I froze knowing he could not see us. At least that’s what we thought. He rushed at me, like a heat sinking missile, he knew exactly where I was standing. He grabbed at me until he found his target, the tokens. Once he had them, he retreated back into the church. He was either oblivious about the possible cave-in, or he simply did not care.
+
+Cristiano and I made our way into the tunnel towards the surface. About halfway through we heard what could be described as a shrill shriek and the sound of stones crashing to the ground. The tunnel had caved in behind us.
+
+We hurried out, back into the São Paulo cathedral, as we did another crash occurred. The tunnel was fully caved in, burying Murilo and the golden church forever.
+
+Once we made it outside Cristiano shook my hand and told me he had reports to write about what had happened. The last words he said to me were, “I’ll leave out the part about possible supernatural forces.” A joke.
+
+I flew to the Vatican and gave my report. At the time we didn't know what to make of Murilo's involvement with Mammon, or the murders he had committed in that church.
+
+Postscript:  
+Murilo is presumed dead. An excavation to find the buried church had failed… they could not find it in the rubble its as if it disappeared. The Vatican has closed this case but has opened another into the possible appearance of Murilo’s master. He is believed to be the demon Mammon, the patron of greed.
+
+We are currently following another case that may be related to his summoning. As we know more, I will share the details with you. In the meantime,…
+
+If you are in São Paulo and are upset, you couldn’t access the cathedral for the day we are sorry. This was for your own safety, however. For those who think they could find the church do not try. It is better that some things stay buried.
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
