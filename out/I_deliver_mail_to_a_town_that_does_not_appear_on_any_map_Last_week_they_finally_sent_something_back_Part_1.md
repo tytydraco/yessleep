@@ -125,3 +125,5 @@ Patient.
 Waiting.
 
 Like it already knows my schedule.
+
+\[Part 2\] (https://www.reddit.com/r/nosleep/comments/1ue8rmm/i\_deliver\_mail\_to\_a\_town\_that\_does\_not\_appear\_on/)
