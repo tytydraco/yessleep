@@ -290,13 +290,17 @@ I dragged one of the boxes to the door, perching on the gardening books so I cou
 
 "Help me!" I howled, loud as I could manage. The effect was immediate; the steps rushed down, booking it toward the door. When I saw the shadow under the door, I pushed off the wall and slammed into it with all my might.
 
-The door flew out crooked, one hinge more caught than the other. A solid wooden impact crashed into the figure, and I couldn't see them as they let out a high-pitched scream. I could hear something banging, the door wobbling under my weight as the person struggled, and I scrambled off the door and flew to the stairs. Taking them on all fours, I fled toward the back of the house, crashing through the screen door and into the cool night. "Help! Help! They're after me!"
+The door flew out crooked, one hinge more caught than the other. A solid wooden impact crashed into the figure, and I couldn't see them as they let out a high-pitched scream. I could hear something banging, the door wobbling under my weight as the person struggled, and I scrambled off the door and flew to the stairs.
+
+A hot hand shot out and snatched at my arm, nails digging in and blood welling bright red. I panted and dragged myself free before they could take hold, finally reaching the bottom step.
+
+Taking them on all fours, I fled toward the back of the house, crashing through the screen door and into the cool night. "Help! Help! They're after me!"
 
 I had wondered before if adults would just ignore a child yelling, assuming they were playing. Not so at two in the morning. I kept screaming and lights came on in the neighborhood, my parents' first. Voices, doors slamming, and me screaming for help all the while. I ran toward my house, terrified that they were behind me, that they would grab me and silence me and everyone would fall back into bewildered sleep if I stopped calling for help.
 
 Then Mom and Dad were there, and I was never so glad to smell that detergent.
 
-Several adults went into the house, including my dad. The person hadn't followed me. Mom sat with me on our porch, wrapping me in a blanket as noise filled the night. Soon the flash of blue and red lights appeared, men and women in uniform, and the blocky white shape of an ambulance. I was muzzy suddenly, too tired to lift my head. The paramedic looked me over, said something about, "Adrenaline," and the blankets were kept wrapped warm and safe around me as I sat fully exhausted from my terror.
+Several adults went into the house, including my dad. The person hadn't followed me. Mom sat with me on our porch, wrapping me in a blanket as noise filled the night. Soon the flash of blue and red lights appeared, men and women in uniform, and the blocky white shape of an ambulance. I was muzzy suddenly, too tired to lift my head. The paramedic looked me over, cleaned and bandaged my arm, said something about, "Adrenaline," and the blankets were kept wrapped warm and safe around me as I sat fully exhausted from my terror.
 
 When they carried Jacobi out, I was awake again, crying my eyes out. He was alive, bruises around his neck where the attacker had pressed down on his trachea to keep him from breathing. His lips were a little blue and the paramedics put a mask on him. His breath was faint against the plastic, but he was aware when I approached, grabbing his arm. There was care in the paramedics' hands but no hurried urgency. He would be all right.
 
