@@ -24,7 +24,7 @@ He stood, staring at the picture.
 
 "In my room."
 
-Inside was a photograph of a beautiful woman with fair skin and flowers woven through her dark hair.
+Inside was a photograph of a beautiful woman with fair-skin and flowers woven through her dark hair.
 
 "This is Buddy's mom."
 
@@ -68,7 +68,7 @@ The woods weren’t honest. The leaves and branches were so thick, not even the 
 
 Buddy yelled for his dog, holding the lantern in front of him.
 
-He stumbled over roots, falling more than once and covering himself in dirt. There was no telling how long he’d been out there, but the oil in the lamp was depleting and the flame was growing smaller and smaller.
+He stumbled over roots, falling more than once, covering himself in dirt. There was no telling how long he’d been out there, but the oil in the lamp was depleting and the flame was growing smaller.
 
 “Buddy! Please come here, boy!”
 
@@ -82,7 +82,7 @@ He knelt down, sifting through them.
 
 “Are these your bones, boy?”
 
-A twig snapped behind him and Buddy came barreling through the darkness, toppling Buddy to the ground again.
+A twig snapped from behind and Buddy came barreling through the darkness, toppling him to the ground again.
 
 “There you are, boy!”
 
@@ -96,7 +96,7 @@ Dark hair had knotted around the chain, leaving only the shiny locket exposed.
 
 Buddy grabbed it and stuffed it in his pocket.
 
-They walked through the dark woods, Buddy guiding them both through the clearing, their cabin coming into view. Along with Pa’s old truck.
+They walked through the dark woods, his dog guiding them both through the clearing, their cabin coming into view. Along with Pa’s old truck.
 
 “Where you been, boy?”
 
@@ -106,7 +106,7 @@ Buddy trotted up to his Pa, reaching his hand in his pocket.
 
 A thick, callused hand struck across Buddy’s face.
 
-His dog lunged at Pa, its muzzle wrapping around his arm.
+His dog lunged at Pa, wrapping it's muzzle around his arm.
 
 “Buddy, no!”
 
@@ -134,13 +134,13 @@ For the next two nights, Buddy went into the woods while Pa slept, carrying as m
 
 “Here you go, boy.”
 
-On the third night, he went back without the oil lamp this time.
+On the third night, he went back without the oil lamp.
 
 Buddy had grabbed most of the bones by now so this was to be his last trip.
 
 He knelt down, picking up what was left.
 
-All the bones in Buddy’s hole were long and straight. They looked like bones he’d seen before, but these didn’t look like an animal.
+All the bones in Buddy’s hole were long and straight. They looked like the bones he’d seen before, but these didn’t look like an animal.
 
 He reached into the hole and pulled out a skull. Then hands. Then feet.
 
