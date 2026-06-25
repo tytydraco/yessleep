@@ -1,7 +1,5 @@
 I don't post on Reddit much, and I'm definitely not a writer (I ran it through Grammarly) so excuse any weird formatting. Everything in this story is completely true to the best of my knowledge. Nothing has been made up, and everything described is something either I or a friend personally experienced.
 
-It's a long one, so buckle up.
-
 I've been sitting on this story for a while and wanted to share it to see what other people think. Before I get into it, I should mention that I've had a couple of strange experiences before this.
 
 The first happened shortly after my mom died, when I was in second grade. I felt someone gently grab my shoulder. It didn't feel threatening at all—more like a comforting presence. The second happened years later while I was at work. I was standing on a ledge, leaning against a fence, when I suddenly felt a hard yank, almost like someone was trying to pull me down. In both cases, I immediately looked around, and nobody was there.
