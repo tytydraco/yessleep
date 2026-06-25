@@ -1,0 +1,83 @@
+I want to place the blame on those camping videos I kept seeing on YouTube. I never even had a desire to go camping, never found the idea of voluntary homelessness to be very appealing.
+
+Well, that all changed when I saw my favorite influencer put out a challenge to his viewers. He called it ”survivor of the sneakiest.” 
+
+*The challenge was fitting to the name.*
+
+RVs will be set outside for each person that signs up and gets chosen to participate.
+
+Prior to settling into the RVs, we will all be taken to Walmart. Each of us will be given $300 in cash to buy what we think we would need. The $300 in cash would be given to us after we turned in our wallet for them to verify that we would not have any additional funds.
+
+After that, they take our phones. They said it was to discourage us from cheating.
+
+At the time, it sounded reasonable. I mean, the dude had well over 5 million subscribers on YouTube alone.
+
+I honestly don’t know why I applied for the challenge. 
+
+When I filled out my application, I doubted I even had the faintest chance of getting  chosen. Based on his most recent video, over 10,000 people had already applied in hopes of winning the $50,000 prize.
+
+I still remember when I got the DM about my acceptance. 
+
+I had just gotten off work. I was walking towards my car when my phone chirped lightly. My emotions were all over the place once I verified the sender of the DM had millions of subscribers.
+
+I had exactly 2 days to take days off of work, and get everything in order before heading over to Cherokee, North Carolina.
+
+Let’s fast forward to the first day of the challenge.
+
+The first thing my sponsor did when I met up with him at the airport was take my phone and wallet.
+
+The Walmart was about 10 minutes away. I tried talking with my sponsor, but he just responded in head nods. I could’ve asked him if he were sexually attracted to his mother, and I swear he would’ve just nodded. 
+
+I just stuck with a bunch of non-perishable food, matches, blanket, and a pillow. I would’ve gotten more creative had it not been for the sponsor showing me his phone screen with a timer counting down 15 minutes.  
+
+Alright, now that you are all relatively caught up. I can tell you guys about what the fuck happened last night.
+
+The first two weeks flew by relatively easy. The only thing that was annoying was that the challenge allowed us to steal from each other.
+
+The set up for the challenge was very theft friendly. All 5 RVs were in a tight circle with around 6 feet of distance from each other. 
+
+A campfire was set-up in the middle of the circle. The fire was maintained by the staff.
+
+Up until yesterday we all kept to ourselves. I guess the first guy I should introduce you all to would be Zach. Now Zach is your average Caucasian male. I want to say he was in his mid 20s. No striking features about him. Hell, I almost forgot he was part of this challenge altogether.
+
+The first time I interacted with him was yesterday afternoon when I caught him snooping outside of my RV.
+
+I tried asking him what he was doing, and I was met with one of the most pathetic looks before he said, “ I bought too much useless shit, and I haven’t eaten in three days.” 
+
+Why I even helped the competition? I don’t know, but I gave him a couple of Ramen packets. He snatched them, didn’t even thank me, and scurried off.
+
+Genuinely thought that would be the last I saw of him, definitely didn’t think it would be two hours later.
+
+The sun had already gone down, the moon was starting to show when I heard screams erupt outside the RV. 
+
+I took another bite of my baked beans before I rushed outside.
+
+The first thing I noticed was how big the campfire was. The flames surpassed the height of our RVs. 
+
+At the bottom of the flame was Zack‘s right leg.
+
+I wish I could say the scene I walked in on was a freak accident, but that theory flew out the window when I noticed Zach was taking bites off of his already cooked left tricep.
+
+My attempt of stopping him was pointless. He had already taken chunks of flesh off of his midsection and neck. I knew it was only a matter of time before he bled out.
+
+Honestly, I don’t even know how he was able to stay alive after ingesting the better part of his legs.
+
+Why didn’t anyone try to stop him? You may ask. Well, we did. 
+
+I tried pulling him back from the fire. A couple of the other participants tried distracting him while I tried to grab him but I nearly lost my own life when he swung his machete towards my neck.
+
+There’s really not much you can do to stop a crazed person, when they still have a functioning arm and a machete.
+
+During his, um feast? 
+
+We used the radio to contact our sponsors. They arrived an hour after he died. 
+
+The remaining parts of him was evacuated by the paramedic. We were advised to go cool off in our RVs.
+
+The reason why I’m even been writing out all of this is because two things really bother me.
+
+The first thing is, how calm our sponsors were when they dealt with Zack’s corpse. They acted as if they were just doing another days work. Like how we would fill out pages of a document in the office. 
+
+The second thing is what I learned on the first day of the challenge about Zach.
+
+Zach didn’t even need the money, he already had it set up to where his potential prize money was going to a charity. 
