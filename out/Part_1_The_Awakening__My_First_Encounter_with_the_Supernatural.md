@@ -1,0 +1,95 @@
+&#x200B;
+
+I was born and raised in a neighborhood centered around a three-way intersection. It was a spacious place with plenty of kids my age, so we were always running around, causing mischief and coming up with new games.
+
+I still remember when I was in second grade. One afternoon during a school break, a group of us decided to play hide-and-seek under the blazing midday sun. While hiding, two friends and I ran into an abandoned house standing beside Road, not far from the intersection. The house was extremely old and had no doors. It was a narrow tube-style house divided into three sections. The front room served as the living room, with a large window facing the road and an old wooden bed inside. The middle section had a hallway leading to two bedrooms, while the back contained the kitchen and a small backyard.
+
+The three of us hid in the living room, peeking through the window to watch the kid who was searching for us.
+
+After a few minutes, I suddenly heard a faint creaking sound above us.
+
+Creak... creak...
+
+All three of us looked up and froze.
+
+The ceiling fan was spinning.
+
+We instinctively looked back at each other in confusion.
+
+How could the fan possibly be turning? The house had been abandoned for years, and there wasn't even electricity.
+
+Before we could process what we had just seen, a loud crashing noise echoed from the kitchen, as if stacks of bowls and plates had shattered onto the floor. Immediately afterward came the heavy sound of a walking stick striking the ground.
+
+Clack... clack... clack...
+
+The sound grew louder as it moved toward the living room.
+
+The moment we turned around, we saw an elderly woman dressed entirely in a black traditional bà ba outfit. She was gripping a wooden cane and charging straight at us.
+
+I only managed to scream,
+
+"RUN!"
+
+The three of us leaped through the window and sprinted as fast as we could, screaming in terror.
+
+The road leading back to the intersection ran alongside a sugarcane field. As I was running, I glanced back over my shoulder.
+
+She was still chasing us.
+
+Her cane was raised high above her head.
+
+But the most horrifying part was that...
+
+She wasn't moving her legs.
+
+She was gliding silently across the grass.
+
+After we had run some distance into the sugarcane field, all three of us stumbled and fell, shouting in panic. When we looked back again, the old woman had stopped at the edge of the field. She stood there silently, leaning on her cane and staring directly at us.
+
+Then, right before our eyes...
+
+She slowly faded away into thin air.
+
+We scrambled back to meet the other kids, but none of us dared tell anyone what had happened.
+
+Years later, when I was in fifth grade, I heard another story about that same abandoned house.
+
+A homeless man had recently arrived in our neighborhood. One night, he decided to sleep on the old bed inside the abandoned house.
+
+In the middle of the night, he was awakened by the bed shaking violently beneath him.
+
+Thinking he had only been dreaming, he lay back down.
+
+The instant he closed his eyes again, the bed suddenly launched upward with tremendous force, throwing him straight through the window and out of the house.
+
+As he looked back in horror, he saw the silhouette of an old woman standing at the window.
+
+She hissed angrily,
+
+"You! Get out! Now!"
+
+Her voice was so filled with rage that it terrified him.
+
+The very next morning, the homeless man left our neighborhood and was never seen there again.
+
+By the time I reached seventh grade, something else happened at that abandoned house. No one knew exactly what was going on, but the village head invited a spiritual master to perform a large-scale ritual there.
+
+The ceremony began early in the morning and lasted until around 3:00 p.m.
+
+At about 4:00 p.m., a sedan was driving normally along the road when it suddenly swerved on its own, smashed straight into the front of the abandoned house, and plunged into the adjacent sugarcane field.
+
+The driver later insisted that he hadn't turned the steering wheel himself. According to him, the car had suddenly veered toward the house by an invisible force. He slammed on the brakes repeatedly, but the vehicle refused to stop.
+
+Yet after the car was recovered from the field, mechanics thoroughly inspected the braking system.
+
+Nothing was wrong with it.
+
+That very night, the entire abandoned house suddenly collapsed.
+
+And with it, the strange house beside the intersection disappeared forever.
+
+Even today, the plot of land remains empty.
+
+Although there have been plans to build a road through it, the land has never been used again since the house collapsed.
+
+This is my first time writing down one of these experiences, so I apologize if the story feels a little rough. Everything I've shared here is something I genuinely experienced or witnessed firsthand. I still have many more stories to tell, and if people enjoy reading them, I'll continue writing them one by one.
