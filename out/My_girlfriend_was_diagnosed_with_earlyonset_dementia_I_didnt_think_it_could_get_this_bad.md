@@ -54,8 +54,7 @@ I told myself it didn’t matter, but it felt wrong. Steph *loved* the other sid
 
 “I like this side,” she responded. Her eyes followed me, but I could see that she was looking past me. 
 
-I didn’t protest.   
-
+I didn’t protest. 
 
 It wasn’t until a few weeks later when I was sitting on the porch, reading a book with Steph when it happened again. Once Dr. Yoshihara adjusted her medication, I figured things would be better. It was a beautiful, sunny day out and I’d poured us both glasses of lemonade to sip on while I read one of her favorite novels to her. 
 
@@ -113,7 +112,7 @@ It felt like I was betraying her when I finally decided to reach out to assisted
 
 It was a humid Summer day when Steph went missing. I had spent all day looking at different facilities, trying to find the perfect place for her. One place in particular piqued my interest. It was close to here, the building looked clean and well-maintained, and there were professionals on standby 24/7. I’d given them a call during the day but they hadn’t picked up. 
 
-That night, Steph and I ate dinner in silence. She would barely eat. I’d made chicken alfredo again, hoping it would spark her appetite. But I don’t think she knew that anymore. I watched as she took slow bites, a vacant expression on her face as she chewed. Steph used to devour this dish when we first started dating. She always said that it tasted better than any restaurant’s and I’d respond that it was because it was made with extra love. 
+That night, Steph and I ate dinner in silence. She would barely eat. I’d made chicken alfredo again, hoping it would spark her appetite. But I don’t think she liked it anymore. I watched as she took slow bites, a vacant expression on her face as she chewed. Steph used to devour this dish when we first started dating. She always said that it tasted better than any restaurant’s and I’d respond that it was because it was made with extra love. 
 
 I was just about to ask her how the food was when my phone rang. It was the facility I’d called earlier. I excused myself from the table and stepped out onto the patio, making sure that I could still see her through the windows as I picked up the call. 
 
