@@ -154,7 +154,7 @@ Pa knelt down next to Buddy.
 
 “There’s a locket somewhere over here. She gave it to me when we first married, but I know she wanted it to belong to my brother. You look like him, ya know.”
 
-Pa knelt in silence.
+Pa stared at the skull.
 
 “I found that little bone pyre behind the house. Thought maybe you were just collecting bones for Buddy, but now you know my little secret. You trying to lay your Ma to rest?”
 
