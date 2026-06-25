@@ -23,3 +23,5 @@ He whispered what she said. The woman's voice continued. She said I had left ear
 My supervisor looked more frightened than I had ever seen him. He asked what she said. I told him. He sat down heavily. For a time neither of us spoke. Finally he looked at the microwave. He quietly said she spoke. I nodded. He stared at me. He was not shocked or confused. He was terrified.
 
 Then he whispered something I wish I had not heard. He said that means they remember. Then something knocked against my front door. Three times. It was slow and patient.. This time it was not coming from outside. It was coming from the hallway closet. The one I had emptied hours ago.
+
+\[Part 3\](https://www.reddit.com/r/nosleep/comments/1uf7xzz/i\_deliver\_mail\_to\_a\_town\_that\_does\_not\_appear\_on/)

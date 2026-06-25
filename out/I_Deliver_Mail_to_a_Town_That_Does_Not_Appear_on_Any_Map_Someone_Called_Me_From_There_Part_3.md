@@ -1,0 +1,49 @@
+\[Part 1\]([https://www.reddit.com/r/nosleep/comments/1ud6tmr/i\_deliver\_mail\_to\_a\_town\_that\_does\_not\_appear\_on/](https://www.reddit.com/r/nosleep/comments/1ud6tmr/i_deliver_mail_to_a_town_that_does_not_appear_on/))
+
+\[Part 2\]([https://www.reddit.com/r/nosleep/comments/1ue8rmm/i\_deliver\_mail\_to\_a\_town\_that\_does\_not\_appear\_on/](https://www.reddit.com/r/nosleep/comments/1ue8rmm/i_deliver_mail_to_a_town_that_does_not_appear_on/))
+
+My supervisor and I sat in silence for a time after the phone call ended. The knocking had stopped,. Neither of us seemed relieved. The house felt different now. Smaller somehow. Every room felt occupied even though we were alone in the house.
+
+Eventually he stood up. Walked to the hallway closet. I followed him to the closet. The closet was empty. No box. No key. Nothing was there. We checked anyway. We moved coats searched shelves even pulled out the vacuum cleaner. There was nowhere for anything to hide in the closet.
+
+The box was gone. My supervisor stared into the closet for several seconds before quietly shutting the door. "I suppose you deserve some answers " he said. I almost laughed. " Now?" I asked him. He ignored the comment. Returned to the kitchen table. For the time since I had met him he looked genuinely exhausted. Not tired. Defeated.
+
+The microwave still sat beneath the towel. Neither of us wanted to look at the microwave. "You aren't the courier assigned to Valewick " he finally said. I had suspected much but hearing it out loud still made my stomach drop. "How many others were there?" I asked him. "I don't know " he said. "Before me? Before the people who trained me? Nobody keeps records of the couriers who delivered to Valewick."
+
+"You delivered to Valewick?" I asked him. He nodded. "Twenty-seven years ago " he said. I stared at him. Suddenly a lot of things made sense. The way he had never seemed surprised whenever I mentioned the town of Valewick. The way he had immediately known about 4:18. The way he always answered questions with truths instead of confusion.
+
+"You knew along about Valewick " I said. "I knew enough about Valewick " he said. That answer was beginning to annoy me. "You keep saying that " I said. "Because it's true " he said. I leaned forward. "Then tell me what you know about Valewick " I said.
+
+For a moment I thought he was going to refuse. Instead he rubbed his eyes. Let out a long breath. "The route chooses people for Valewick " he said. I frowned. "What does that mean?" I asked him. "You think your name appeared on those route sheets because somebody made a mistake?" he asked me. Until recently yes. Now I wasn't so sure about the route to Valewick.
+
+He reached into his wallet. Pulled out a folded photograph. The edges were worn from age. The picture showed a delivery van parked beside the Valewick sign. Standing next to it was a version of my supervisor. I immediately noticed something. He wasn't smiling. Every resident around him was. The woman beside the diner. The man reading the newspaper. The child with the bicycle. Exactly the same people I had seen in Valewick.
+
+The photograph had been taken twenty-seven years ago. I looked up. "That's impossible " I said. His expression told me he agreed. "The people don't change?" I asked him. His face darkened. "They do change " he said. He took the photograph back. Pointed toward the diner waitress. "When I first started delivering to Valewick, that wasn't her " he said.
+
+I felt a chill run through me. "What do you mean?" I asked him. "I mean there was someone standing there " he said. I remembered the photographs from the package. The future photographs. The ones showing something behind me. My supervisor seemed to read my thoughts. "The town of Valewick changes " he said quietly. "Not all at once. Slowly " he said about Valewick.
+
+Neither of us spoke for seconds. Finally I asked the question that had been bothering me since yesterday. "What did you mean when you said they remember?" I asked him. His eyes immediately shifted toward the window. I got the feeling he hated talking about this. "The people in Valewick forget who they are " he said.
+
+I stared at him. "What?" I asked. "They forget where they came from. They forget their families. They forget their lives " he said about the people of Valewick. The room suddenly felt colder. ". Eventually?" I asked him. He hesitated. "Eventually they only remember Valewick " he said.
+
+I thought back to the womans voice on the phone. For the time someone from the town of Valewick had sounded genuinely afraid. Not of me. Of something. "Then why did she call me?" I asked him. My supervisor looked down at the table. "Because she remembered something " he said.
+
+"What?" I asked him. He sounded frustrated. " Far as I know nobody is supposed to remember anything about their past " he said. The more answers he gave me the worse everything became. The townspeople of Valewick weren't acting strange because they wanted to. Something was happening to them. Something had been happening to them for a long time.
+
+Then I remembered another detail. The message. "He has been waiting " I repeated the words aloud. My supervisor immediately tensed. "You need to stop saying that " he said. "Why?" I asked him. He didn't answer. I asked again. This time he did. "Because I don't know who 'He' is " he said.
+
+For some reason that frightened me more than anything he had said. If even he didn't know then nobody did. My phone suddenly vibrated on the table. Both of us jumped. The screen displayed a number. Neither of us moved. Then a second notification appeared. A text message. No words. Just a photograph.
+
+My stomach sank. It was a picture of my house. Taken from outside. The image looked recent. Very recent. I zoomed in. Someone was standing across the street. The figure was too blurry to identify. I looked toward the window. Nothing was there. When I looked back at my phone another image had arrived. This one was closer.
+
+The figure now stood at the edge of my driveway. My supervisor swore under his breath. Another photograph appeared. Closer again. The person stood directly in front of my house. Neither of us had heard anyone approach. Neither of us had seen anyone through the window. I opened the curtains. The driveway was empty. Completely empty.
+
+Another image arrived. This one made my blood run cold. The photograph had been taken inside my house. From the hallway. Facing the kitchen. Facing us. My supervisor stood up quickly that his chair toppled backward. "Don't answer anything " he said. "I wasn't going to " I said.
+
+Another message appeared. This one finally contained text. One sentence. YOU WERE SUPPOSED TO COME. Neither of us spoke. I don't know how long we sat there staring at those words. A minute. Maybe two. Then a sound came from deeper inside the house. Not knocking. Footsteps. Slow footsteps.
+
+The kind somebody makes when they're trying not to be heard. My supervisors face turned pale. The footsteps stopped. We waited. Nothing happened. Then my microwave beeped. A single electronic chirp. The kind it makes when the timer finishes. Neither of us had touched it. Slowly I reached over. Pulled away the towel.
+
+The display no longer showed 4:18. For the time since yesterday the numbers had changed. 4:17. My supervisor looked at the clock. Then, at me.. For the first time since he arrived I saw genuine panic in his eyes. "Get your keys " he said. "What?" I asked him. "Now " he said. "Why?" I asked him.
+
+Because whatever answer he saw on my face seemed to terrify him. He pointed at the microwave. "Because we've got one minute " he said.
