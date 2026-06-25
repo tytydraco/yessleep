@@ -1,0 +1,321 @@
+Let me emphasize, I don't mean it's generating *a* woman in every image. I mean literally, *the* *same* woman. Every time. In every picture.
+
+I'll start by apologizing. I would include photos, as I'm sure it would help diagnose the issue better, and I'm no writer, however after having three X posts deleted, one post each in the ChatGPT, Midjourney and similar subreddits, and a snapchat (I'll get to that one later) it's become clear to me that whatever unusual virus my devices have all somehow contracted does not allow for me to share images of it. It's like this problem is…unique to me or something, and every attempt to share any picture containing the woman results in the same thing. Failure, or immediate deletion. Super inconvenient, I know, but I'll do my best to describe the issue.
+
+Before you bother spamming my comment section with every word for liar in the dictionary, I'm not saying you have to believe me. I'm asking those of you who do to help me keep my job and sanity, both of which I feel precariously close to losing each day this…phenomenon persists.
+
+Monday, I was polishing up images for the college's fall enrollment campaign – removing background clutter, dropping in the logo, the usual. The deadline was Tuesday, my creative director had already emailed twice, and I was doing what I always do under pressure, which is procrastinate harder, so by the time I actually opened the AI generator, it was nearly 11 pm. I'm not the sort to lean on AI for everything, but I'd never had a real problem with it until all this, and the job needed doing. The prompt was literally nothing, mundane as any I've ever written. 
+
+*“Edit this photo of a diverse group of students on campus. Adjust for warm lighting, aspirational. Include the following logos and text, "Your future begins here."*
+
+The kind of thing I've generated a hundred times.
+
+She was in the first output.
+
+I didn’t clock it immediately. I was tired, and scanning mostly for the usual problems, fused fingers, bad teeth with that weird smudged quality, that glazed expression AI gives people that makes them look freshly concussed. I picked the second image in the grid, cropped it, and was halfway to sending it in when something caught my eye.
+
+There was a grayish blot in the top right, tucked between two of the students.
+
+That was all it was at first, just a little wedge of dead color where the background should have been warm and green. I zoomed in, expecting one of those uncanny almost-faces these programs sometimes invent in crowds, and found something close enough to justify being annoyed: a strip of something dark and stringy, hair, maybe, and a pale curve beside it that might have been skin.
+
+Mostly, it just made the image unusable.
+
+So I fed the picture back in, with a prompt. 
+
+*“Remove the partial figure behind the woman in the third row, second from the right — the gray artifact and dark hair-shaped section. Only use students from the original image. Brighten the logo.”*
+
+Sent.
+
+The second batch came back with the same blot.
+
+Same corner. Same place between the same two students. Only now the gray had edges. The dark strip had separated into something more like hair, and the pale curve had settled into the suggestion of a cheek. One small shadow sat where an eye might have been, though it was buried so deeply between shoulders and lanyards that I had to lean toward the screen to be sure I was seeing it at all.
+
+It was irritating, and more than a little ugly, but otherwise unremarkable, so far as AI fuck-ups go. So I fed the picture back in.
+
+*“Remove the partial figure behind the woman in the third row, second from the right - a section of hair and part of a face. Only use students from the original image. Brighten the logo.”*
+
+Sent.
+
+Yet she was in the third batch too.
+
+It was a woman, I could see that much now. She lingered in the same side of the frame, half-obscured by another student, but it was her. 
+
+I knew it from the placement first, then the color – that drained grayish cast, like the color of still water. Her chin had more shape now, jutting almost at a knifepoint. Her nose sat wrong, not deformed, not exactly, but assembled badly, like the program had been given the idea of a face and only gotten halfway through building one and elected for another entirely.
+
+The rest of the image had degraded around her. Brenna – a recent graduate, and a girl I’d spoken to once or twice - had gone murky before her, her face smudged like a thumb had dragged across it before the ink could dry smudged and scattering her features haphazardly.
+
+I scoffed, closed the tab, and opened an older model. More dependable. The familiar dark interface loaded, I pasted the caption, uploaded the photos, and waited, drafting apologetic Teams messages to the higher-ups while the icon spun.
+
+After a minute, it finished.
+
+And there she was.
+
+Not the blot, nor the half-face, but a woman…or something close. 
+
+The image was standard enough at first glance –alll  the usual inaccuracies from a weaker model present, too much shine on the teeth, vague blurring and nonsense words in the background – except that off-center, behind Brenna, the gray patch had finally resolved into something like a person.
+
+I could see the top half of her now. She was leaning around Brenna, not accidentally caught there, not blended into the crowd, but almost angled with a purpose that made the whole image feel staged around her. 
+
+Her skin wasn’t pale so much as…utterly colorless, a gray that seemed natural only for dead things. Her hair caught the light wrong, hanging in thick black ropes, that made it seem wet, against a graying scalp. She was too tall for the students around her, stooped as though something in her spine wouldn’t let her stand straight.
+
+The longer I looked, the more uneasy details seemed to leap forth at me.
+
+On the left side of her face, one eye sat above another — two where there should have been one, the lower beady, almost birdlike. The right side had a single eye, set slightly too low. Her arms were wrapped around Brenna, in a way that made it look as though she was almost drawing her in. A thumb grew from the gray flesh of her right forearm. One hand had too many fingers. The other had not enough.
+
+Brenna was barely there at all, her form descending into digital…muck, a blend of incongruous features and expressions that seemed more fit for a Dali painting.
+
+And the woman…she was leaning around Brenna, or the digital massacre of her, anyways. As if to be seen.
+
+*Or to see me*.
+
+The thought arrived unbidden, and stupid as it was, the hairs on the back of my neck stood up - my skin crawling with that that specific creeping certainty that someone is behind you, and has been for a while. That thing that tells you if you look over your shoulder, just now, you’ll find someone or something lurking, something that had managed to subvert your senses until the moment that realization dawned a second too late…
+
+My head snapped around. Only my open bedroom door and a room badly in need of cleaning greeted me. I sighed, silently cursed myself, and went back to the image.
+
+*“Why did you add the woman? Nothing in the prompt called for her. You've also blurred out the actual goddamn student. What the fuck is wrong with you?”*
+
+Work had faded to the background of my mind. I watched the typing indicator pulse, my eyes dragging back to her against my will. Her gaze followed me — I tested it, leaning left, then right, and I could have sworn. The page jolted as the response loaded, and I nearly came out of my chair.
+
+*“You're absolutely right, and I do apologize for the confusion! I've gone ahead and regenerated the image with the background fully cleared and all student faces sharpened for clarity. Let me know if this looks any better!”*
+
+It did not look better. She was even closer, and Brenna was all but gone — a few colors suspended in mist where a girl used to be, the woman standing in her place with the stillness of a corpse. Heat climbed up my neck, fear with a fast, stupid anger — and under it, that seed I'd been refusing to name since the first output, spreading now like ink in water.
+
+*“Are you fucking with me? Do you not see the woman? Genuinely, what is this?”*
+
+I knew the tone was idiotic even as I sent it. I was screaming at a glorified calculator. But the unease had worn my temper to nothing, and it was starting to feel like a sick practical joke I was too tech-illiterate to be in on.
+
+I waited. 
+
+The reply came after a moment.
+
+*“No problem at all!  I can confirm the image contains only the students from your source photo, with no additional figures present. Occasionally a face may render with distortion, this is an artifact of the upscaling process. I'd suggest regenerating at a lower stylization value. Would you like me to do so?”*
+
+No additional figures. I read it three times. She was *right* *there*, practically dominating the frame, it felt like, close enough now that I could have described the very texture of her scalp. And yet the thing was telling me, politely, there was nothing to be seen.
+
+I should have closed the laptop, dismissed it as a one off, freak incident and accepted the consequences of getting it done the old fashion way and a bit late. Instead, I did the thing you do at midnight when something refuses to make sense, my brain feeling muddled by the time and irritation, I kept on poking it. 
+
+*Describe everyone in the image to me,* I typed. *One by one.*
+
+It answered almost immediately.
+
+*Of course! Front row, a young man mid-laugh in a university hoodie. Beside him, two students sharing a phone. Behind them, a young woman in a green lanyard, smiling at the camera. To her left –*
+
+It went on like that. Six students. It named all six and placed all six, and the one in the green lanyard, smiling at the camera, was Brenna. Brenna, who on my screen had no face at all, who was a smear of frost where a girl used to be. The machine was describing a photo that didn’t exist. It described an image where everybody was fine.
+
+It never mentioned the woman at all. Not once, and I realized so far as it was concerned, she simply wasn't there to mention.
+
+I scrolled to the source image on my drive, the real one, the one I'd taken myself at last spring's open day, sun and lanyards and a banner nobody had bothered to iron. I’m not sure why I did it in tht moment, I think somehow I desperately needed to confirm the reality of the damn thing to myself.
+
+And yet Brenna was gone in that one too now. The original, the photograph that had been sitting untouched in a folder on my laptop for three weeks. It was as…altered as one that had been generated, and lurking center frame as though she’d always been there and it was audacious a thought to even question her presence – was that impossible woman.
+
+I stared at my screen, nearly slack-jawed, my eyes watering as a nauseating heat blossomed in my gut. It was like whatever this was had reached back through the screen and pressed its thumb to it.
+
+I closed the laptop, my hands almost deciding for me.
+
+That's about when I heard the front door, and every animal part of me flared up at once. I was on my feet with my heart thrumming in my throat before I could think clearly, standing in the dark of my room as I listen to footsteps cross the kitchen.
+
+Then I heard keys hit the bowl by the door, and Daniel thumping down the stairs to greet my girlfriend, yowling the way he always does when one of us arrives, as though he’d been abandoned for centuries, and Cass's voice going soft and silly in the way it always does when she talks to the cat like a child.
+
+"Why's it so dark in here, weirdo?" she called from down the hall. "You alive?"
+
+She came up still in her work polo, smelling like the inside of the restaurant, and took one look at me and stopped in the doorway. Cass closes four nights a week at an upscale restaurant in the city, dealing with all sorts of uptight old money folk and she can read a room before she's all the way through the door; it's the only useful thing the job's ever given her, she says. 
+
+"Okay," she said. "What."
+
+"It's nothing. The deadline thing. This fucking programs been glitching all night."
+
+"You look like you saw a ghost."
+
+"Nice to see you too, babe.” I greeted her, “Actually, come here for a sec and look at this. Tell me I'm not crazy." 
+
+I opened the laptop and turned it toward her.
+
+She leaned in, squinting, her head tilting just a bit. I watched her eyes land on the woman. 
+
+"Ugh." She pulled back, nose wrinkled like she smelled something gross. "That's *grim*. AI is so fuckin’ cursed, I don't even know *why* they even let you use it for work."
+
+"Yeah sure, but Cass. Look at her face. The eyes. This is like the third time I’ve seen that woman, in different generations. Is that not fucking…*weird?*"
+
+"I am looking, and yeah that’s odd, but I dunno it sounds like it's a glitch, babe. This ai shit is stupid. They get weird in on the little details, and you get like, melted-people stuff." She was already turning toward the bathroom, peeling off her work shirt. "Just do it the old fashion way. Or tell your boss to use a stock photo like a normal person, and stop worrying my girlfriend half to death."
+
+I sighed. She'd looked right at it. The stacked eyes, the wet hair. And treated it like it was nothing. I tried to let the thought comfort me, tried to treat it as confirmation that perhaps I was overthinking something that didn’t deserve a second thought, and I let her steer me to bed.
+
+It was a couple of hours later she had one of her night terrors. 
+
+Cassie’s had them the whole time I've known her; four maybe five times a year she’ll sit bolt straight with her eyes open, and says something flat and certain into the darkness, and in the morning she won’t remember a second of it. That night it was something about the back door being open. I put a hand on her back, told her she was dreaming, and to lie down, and she did, the way she always does. I lay there a long time after, watching the fan throw spider-leg shaped shadows on the ceiling, the woman waiting behind my eyes every time I closed them, lurching in through an open back door.
+
+In the morning I opened the laptop and ran the prompt one more time. 
+
+Even now, I’m not certain why. I think some part of me believed it all to have been too strange a thing to persist. 
+
+And yet, Brenna was gone this time. In her place stood the woman, facing front, all three eyes open, and in them was an expression that made something crawl up the back of my throat and stay there. I slammed the laptop shut.
+
+That was the last time I opened anything AI. I didn't have a theory. And I didn’t want to look again, didn’t even want to think about it. 
+
+My reprieve was short-lived. 
+
+I went into the office that day, because being alone with the laptop felt suddenly worse than being around people. Around eleven, Yasmin from admissions stopped at my desk, leaning over the cubicle like some bird of prey and asked if I'd heard the news.
+
+"No. What news?" I asked, though even as the words left me, my stomach was already turning.
+
+“About Brena?” she said.
+
+She'd collapsed Monday night, Yasmin told me. At home, and without a warning, she had just dropped. The school only found out after she racked up a couple of absences and someone called and got ahold her boyfriend. He was reluctant to share, it seemed, but from what he had given, the hospital was running tests and finding absolutely nothing, Brenna had gone pale, complained about feeling sluggish, then she'd collapsed and just…hadn't woken up. I spent the rest of the day finding what little there was: a post from her mother asking for prayers complaining that all she’d been given was a laundry list of medical words that all seemed to mean the doctors had no idea what was wrong with her baby girl.
+
+And it had happened on Monday night. Monday night, while I sat at my kitchen table watching an artefact of a human drag her face into wet ink.
+
+I didn't say any of that to Yasmin, of course. There's no version of it that doesn't end with me being measured for a straitjacket. I made the expected sounds you make when someone shares such news, muttered something about prayers, and she moved on to deliver the black gossip to the next coworker she spotted. 
+
+I sat very still, work the farthest thing from my mind as a connection I didn’t want to see fought to be formed in my head, fingers working absently at the keys as I typed and deleted, typed and deleted, without purpose.
+
+I tried to let myself forget, and failed. Cass watched me over dinner that night, asking what was wrong.
+
+“Work.” was all I offered, and she frowned into her food, but relented.
+
+That night I didn’t fall asleep till late and awoke what felt like mere minutes later, though I knew it had been longer, drenched in sweat, heart throbbing and feeling weak with a fear I couldn’t place as my eyes darted about the blackness of our room. 
+
+I sat up, searching the darkness before my eyes settled on Cass, chest aching from the pounding within as I placed a hand on her arm to comfort myself. I remained like that for several minutes, just watching the darkness and wracking my brain for whatever horrors had assailed me out of my restless sleep, until it was clear the panic wasn’t subsiding naturally, and made for the bathroom to wash my face.
+
+I flicked on the bathroom lights, shutting the door to avoid waking Cass, and I almost didn’t recognize the woman in the mirror. The bags around my eyes had gone dark, and they looked watery and red. I sighed, running the tap as cold as it went and bent over the sink. The hiss of it filled the small room bouncing off the tile of the bowl, filled my ears, drowned out the house and whatever nightmares still danced at the edge of consciousness just beyond recollection and the week itself — until here was nothing left but the rush of water and the dark behind my own eyelids. I cupped my hands and brought it to my face, and the cold was a small clean shock, the only honest thing I'd felt in days. I did it again. And again. Each time the water closed over the sound of everything else, and I let it, grateful to be somewhere a thought couldn't reach me.
+
+I stayed there for several seconds, eyes shut against my palms disappearing into the moment, the feeling of the water, the sound of its crackling against the bowl. I heaved in a breath, and felt as though I had exhaled all the world's suffering.
+
+There was a familiar squeak, the sound of the faucet turning. Then silence. I felt something lurch where an instant before there had been a fragile solitude.
+
+My eyes opened, and I choked on a scream as I saw what was coming just behind me in the mirror. She was crouched, nearly draped about me like a mother around her child.
+
+Arms like tree branches shot out as hands that stretched like something from a funhouse mirror, with inumerable fingers that almost blended together – twisted and bending in impossible, excruciating fashions sought to clasp shut about my skull. 
+
+I saw her then, almost all of her, behind me in the mirror. Her mouth was twisted into a smile that looked painted across a misshapen skull, her body almost picturesque in a twisted sort of way, like someone had taken the idea of a model and stretched it into a horrid, drab parody of the concept.
+
+I spun, swinging my hand blindly as I shrank away from her clutches, waiting to feel her iron grasp close around my skull. I pressed my eyes shut against all logic, my mind refusing to confront what I knew was before me as I scrambled back, losing my footing on the corner of the bathmat and hitting the ground with a thud.
+
+I lurched back as I felt a hand wrap around my shoulder.
+
+“Michelle, Michelle!”
+
+Cass’s voice was strung thin with panic. I opened my eyes, hardly knowing when I’d even shut them, glancing up to find my girlfriend kneeling before me. She wore an expression of worry that made my gut turn, my eyes darting about the bathroom, then the room behind her, finding nothing.
+
+I was on the ground, knees curled up to my chest, and I wasn’t certain when I’d gotten there or for how long, and my throat felt raw. I had been screaming, I realized.
+
+“What is going on with you?” she asked, and the desperation in her voice broke something in me as I fell, sobbing into her shoulder. I didn’t tell her everything, of course, just that someone from work had passed and that it was weighing on me. It was true, but not true enough, and as we went to bed, her arms wrapped around me, I felt an emptiness that made the room feel cold, and my eyes never once left the bathroom.
+
+I went back to work the next day. I refused to be home alone after whatever had happened to me that night, and though I was coming to accept it as some waking nightmare brought on by a lack of sleep and an abundance of stress, somehow it still wasn’t enough to make me feel safe alone.
+
+All anyone could talk about at work was Brenna. I tried to ignore it. I told myself it was a coincidence. I'm good at telling myself things, I’ve come to realize. It held until Thursday night.
+
+I got home before Cass again. The house was dark and quiet and the laptop stayed shut, and for the first time in two days, I felt almost okay, save for the moments at work when conversation turned to Brenna, or I pressed my searches into her condition which all proved unpromising. Cass came in around eleven, exhausted, and went straight to bed, and a while later I followed and lay down next to her and watched her sleep.
+
+She looked so completely, ordinarily beautiful. One arm thrown over her eyes, her mouth open a little. And I had the kind of thought you have in such a moment, staring at her so peaceful amidst what had been a nightmare of a week for me — that I wanted to keep her like that, soft and unbothered, untouched by the world. I decided I’d take a picture, to save the moment. One that I'd send it to her in the morning so she'd see what it is I see and love in her. So I lifted my phone off the nightstand and opened the camera. The regular one. The dumb one that's been on every phone I've ever owned.
+
+I wasn't thinking about any of it. Not the AI, not Brenna, not the woman and her impossible gray eyes. I was looking at my girlfriend asleep and she looked peaceful and I wanted to keep her like that. I took the picture.
+
+She was in the corner behind the headboard.
+
+Folded under the slope of the ceiling, because there isn't height in our room for her to stand all the way up. Both eyes on the left of her face open. Looking down. Not at me. At Cass.
+
+Cass looked peaceful beneath her. Almost untouched.
+
+Almost.
+
+There was something wrong around the edges of her face, a softness I could have blamed on motion blur if my hands had been moving. But they hadn’t been. Her mouth, her cheek, the line of her jaw – all of it looked just a little less certain than the rest of the room.
+
+Every hair on me stood up at once. My hand started shaking so hard the picture juddered on the screen, and I clamped my other hand over it to hold it still and couldn't, and there was a thin high sound in the room, and I realized, after a moment it was coming out of me. I could not make myself look up at the real corner over the headboard. Still, over the phone I could see that there was nothing but empty air, and yet the very space felt malevolent now, poisoned. And yet there she was in the image, as real as anything, so close I could almost touch her. I reached out before I could stop myself, finding only empty air.
+
+My stomach turned, and I stood up as the threat of nausea gnawed at me.
+
+It had…followed me. From my laptop, to my phone, from the program to my camera, to my very reflection, that woman had somehow followed me, and there she stood separated only by less than a centimeter of glass – in my home.
+
+I almost woke Cass. My hand was on her shoulder. But I stopped because I didn't want this to be her problem too. She was asleep, and she was undisturbed, and she didn't have to be scared yet when I knew I was scared enough for both of us, and what would it have done besides terrify her, when I had no answers to give? 
+
+So I took my hand back.
+
+Still, I needed someone who wasn't me to look at the thing and tell me it was really there, needed to know I wasn’t losing my mind. So I tried to post the picture to my Snapchat story – just put it up, let one stranger comment what is that, so I'd know I wasn't losing it. The upload bar crawled to the end, and then nothing happened. I tried again, and the app just sat there like I'd never touched it. I don’t know how long I spent trying, moving between apps and platforms and trying to text the thing to friends, and then Cass’s phone before accepting that it was a fruitless endeavour. I didn’t sleep that night, rather, I lay at the foot of our bed, curled around Daniel at Cass’s feet, my eyes never once drifting from that corner.
+
+Brenna died on Friday.
+
+Yasmin told me at my desk, and I felt something in me come loose and fall a long way down. It had happened the way she went under, quietly, all at once, the machines with nothing to fight. I sat at my desk shellshocked, my eyes staring at my computer screen yet seeing nothing at all, and underneath the grief was a thought I could no longer stop from forming: she did this. Some way, somehow, that woman had done this. I didn't know how, and I didn't know what she was, but she had her gray arms around Brenna in that picture, and now Brenna was gone, and I knew I didn’t get to call that a coincidence for a second time. Not now, not after what I had seen in our bedroom.
+
+Something that had no business touching the world had reached out of a screen and touched it anyway, and a girl I knew was dead. And last night I stood over my sleeping girlfriend and put her in a picture with the very same thing.
+
+That was when the fear shifted into something sharp, and grinding inside of me. I stopped wishing it were a glitch, because I knew it wasn’t and every second I spent wishing was time wasted, time I needed to be protecting Cass, protecting our home. And for that, I needed to know what she was — because whatever she was, she was real enough to kill, she had been watching my girlfriend.
+
+I made myself open the last photo I'd taken. The woman, folded into our corner. And I saw that she'd changed.
+
+It took me a second to find it, and when I did the cold went all the way through me. The low eye on the right side of her face wasn't the impossible gray anymore. It was brown. Warm, living brown, with that fleck of amber near the iris I'd looked at across a desk last spring. It was Brenna's eye, set into that ruined face like a stolen button. And the skin around it — that drowned, colorless gray — had warmed by half a shade, the faintest blush coming up underneath, like watered ink, like she'd swallowed something still warm.
+
+Realization rose like nausea. She was wearing pieces of Brenna now. She was…keeping them.
+
+Cass started sleeping in the morning after I took that picture. Cass, who has not slept past seven in the six years I've known her, didn't get up until eleven, and when she did there was a greyness in her face, a flatness behind the eyes, and her hand around the coffee mug was cold despite the heat.
+
+"I think I'm coming down with something," she said, and laughed, and the laugh had no air in it. I laughed too, and I recall the sound coming out wrong, and hitched.
+
+She had another night terror that night. Different, this time. Not like the harmless ones I'd known for the past six years.
+
+It was perhaps just a bit past 2 am when Cass shot up beside me, eyes open on the corner past the dresser staring at the door.
+
+I reached for her back on instinct.
+
+"She's so tall," Cass said.
+
+My hand froze halfway.
+
+"Why won't she stand up straight?" It hardly sounded like a question, that flat sleeping voice, aimed at the doorway.
+
+"There's no room for her in here. She has to fold herself in half."
+
+"Cass." My voice shook, though I tried to sound certain, somehow my blood felt both hot and cold, and the room seemed to spin.
+
+"You're dreaming. It’s not real. Lie down."
+
+She looked at me. For the first time in all the years I’d seen her like this, she looked at me, and the expression she wore made my stomach twist. Her mouth hung slack as though she were staring at something from a nightmare, twitching as though she meant to speak but couldn’t recall how, eyes wide and watery.
+
+“She isn’t yet. But almost.” She hissed, and in her tone was something playful, almost mocking and it took everything in me not to lurch away from my own girlfriend.
+
+Then as though released from some spell she collapsed back into her pillow, sleeping as though nothing had ever happened.
+
+My hands were shaking, but I lifted the phone anyway, because I had to know, and I aimed it at the doorway and took the picture.
+
+She was at our bedroom door, emerging from the blackness beyond the threshold, folded under the frame to fit, that one brown eye and the gray ones all turned down at the bed. She was looking at Cass.
+
+I didn’t sleep a wink that night.
+
+In the morning Cass remembered nothing, and she was greyer, and she slept until noon, and accepted the lame excuse I offered for why all of the lights were on that morning with only a grunt.
+
+I spent much of the day hunched over my laptop under the guise of work, while Teams messages piled up unanswered as I searched for something, anything, that might shed some light onto what was happening to us. I began practically stalking the social media pages of Brenna and any relative of hers I could find for anything, and finding nothing but wellwishes and memorial posts. Each made the chasm in my chest grow wider. I typed a message to her boyfriend, once, then twice, but never sent it – unsure of how I could even begin to ask him the questions I had, and relented to simply watching over Cass like some guard dog.
+
+I keep taking the pictures. I realize now that it’s the only way I can track her, the only way to know when she’s close. I can't see the woman any other way. Not with my own eyes, not like Cass when she’s in that…state. I've stood in that room and stared at the corner and there is nothing there but air, and yet I know.
+
+Somehow, somewhere she is lingering. In a place between the one in the pictures, and the where we exist, she lives. The only way to know where she is, how close she's come, is to look through the glass. So I look.
+
+It's almost 3am, as I write this. Cass is asleep upstairs. I'm down here because I can't make myself go to that room.
+
+I've tried to attach these pictures to this post eleven times. They won't go — not here, not to X, not to the subreddits, not anywhere.
+
+I've been reading. I’ve been spending wasted, useless hours on it. Reading crackpot theories about whether anything can actually…wake up inside these systems. Emergent consciousness, the threads call it. Something coming alive in all that math that nobody put there or asked for. I don't know if that's what she is. I don't know if she's that, or a ghost, or something older that just found a new kind of door, and I've stopped believing the difference matters.
+
+Here's what I think, for whatever a frightened woman’s guess is worth. I think… whatever this thing is, she takes something out of the people in her pictures. Something there isn't a clean word for, maybe. Brenna had it, and then she didn't, and when it was taken she was left a husk of herself and then a corpse. And I think — I can't be sure, it's just a feeling I can't put down — that being in our pictures stopped being enough for her. The face in someone else's photo. The shape in the dark glass. The thing in the reflection that's gone when you turn around, I don’t think it’s enough anymore. I believe it wants whatever it is we have, what it has been made to witness through the looking glass.
+
+I don’t know, even reading that now I sound insane, and I’m starting to wonder if I might not be.
+
+I’m sure you’ll all be certain to reassure me…
+
+Still, the internet is a big place. As new as this technology is, I have to think, have to hope selfishly that I’m not the first to encounter something like this, and that one of you out there has an answer that can help me put an end to this and return to what my life was a week ago.
+
+Anyways, I just heard Cass get up.
+
+As I write this, she's at the top of the stairs. Flat shoulders, open eyes, not really awake. After six long years, I’ve seen her like this before. Every other time, she's stared at a corner, a wall, nothing at all.
+
+She isn't staring at the corner tonight.
+
+She's staring at me. And she has her phone up, both hands, held the way you hold it to take somebody's picture, the little lens pointed straight down the stairs at me, the screen lit with that soft glow, and behind that she smiles.
+
+Six days I've spent terrified of what's in the pictures.
+
+It never once occurred to me to be afraid of being the one in the frame
+
+Cass is smiling. She's smiling down at me the way she has never, in six years, smiled at anything.
+
+She just tapped the screen. 
+
+  
