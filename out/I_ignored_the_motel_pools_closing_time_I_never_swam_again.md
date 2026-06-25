@@ -4,7 +4,7 @@ I was on the way back from visiting my folks and they were all like “Oh Wow �
 
 I was getting all hot and bothered as I drove – a little over the speed limit I must admit. I put on some ambient music, but it just made that Utah landscape look more Martian and mysterious. The car I’d hired had shit A/C, and I’d avoided drinking water so I could get home sooner.
 
-But it was becoming clear I wouldn’t make it back to Las Vegas that night. So I played Roulette with the motels. There aren’t many in that part of Nevada. And there was no signal around there.
+But it was becoming clear I wouldn’t make it back to Las Vegas that night. So I played Roulette with the motels. There aren’t many in that part of Utah. And there was no signal around there.
 
 I drove past a couple of motels whose signs looked dirty or suspiciously low budget. I was overheating badly and my back hurt from the car seat. So when there was no motel for an hour I became extremely anxious. The sun was getting lower.
 
@@ -98,7 +98,7 @@ Nothing. But the currents pushed me up for 10 seconds or more. My fevered imagin
 
 I took a few deep breaths and ducked my head underwater, opened my eyes with their night vision. As I expected, just darkness. But as my breath ran out, and I looked directly down, my vision cleared a little – as if the water acted as a lens – and I saw the edge of a shadow far below me. The edge grew and grew, showing more and more, seemingly of never ending size. My breath ran out. And I felt my body being lifted out of the water again.
 
-Once when I was a child I’d taken an airbed down a river with my brother. We came to a section of the river where we couldn’t see the bottom. It was just short and I was scared but took my courage in both hands (I didn’t want to show my brother I was scared). I set out across it, and he followed. As we went forward I thought I saw something white in the depths. Was it weed? What was it!? I panicked and turned around. My brother picked up on my panic and we both rushed backward on our waterbeds.
+Once when I was a child I’d taken an airbed down a river with my brother. We came to a section of the river where we couldn’t see the bottom. It was just short and I was scared but took my courage in both hands (I didn’t want to show my brother I was scared). I set out across it, and he followed. As we went forward I thought I saw something white in the depths. Was it weed? What was it!? I panicked and turned around. My brother picked up on my panic and we both rushed backward on our airbeds.
 
 This gives you a sense of how I feel about dark water. So I hope you’ll understand the level of panic attack I now felt the currents of this huge moving thing lifted me. Higher this time. Like it was coming closer to the surface. In sheer desperation to see what was under me, I shoved my eyes back into the water.
 
@@ -173,3 +173,5 @@ I have never driven to and from my parents since then. I have only flown. I have
 And when I checked out much later that day, there was no one in reception.
 
 Thank God.
+
+\[Edited for minor word errors\]
