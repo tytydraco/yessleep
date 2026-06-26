@@ -1,0 +1,651 @@
+I had a headache again.
+
+Luckily, I was already on my way home. Finally, it was Friday, and I could relax. I had picked up some sweet and sour chicken from a Chinese takeout place, and I couldn't wait to get home. My headache would probably go away too. After all, I hadn't eaten anything all day. No wonder it hurt.
+
+By the time I got off the bus, I was only a few minutes' walk from my apartment. A rental, of course. It was a little farther from the office, but apartments were cheaper out here, and there was no way I could have afforded a two-bedroom place like this by myself downtown.
+
+By the time I got home, my head was throbbing.
+
+I knew where this was heading. Fucking migraine.
+
+Still, I was hopeful that some food and a good afternoon nap would fix things.
+
+Next weekend will make it two weeks since I moved in. As I looked at the mailboxes, I noticed the previous tenant's nameplate was still there.
+
+Dr. Rahman.
+
+It didn't sound American. He was probably from somewhere in the Middle East.
+
+The elevator chimed, and a moment later I was standing in front of my apartment.
+
+"Ah, shit..." I muttered irritably as I reached my door.
+
+Small bugs scattered in every direction in front of my neighbor's apartment.
+
+They were tiny, sure, but what the hell? I had barely moved in and gotten settled, and now my neighbor had a bug problem?
+
+The moment I stepped into my apartment, I collapsed onto the couch. I had been looking forward to finally sitting down all day. My head kept pounding, and I was starting to feel pretty miserable.
+
+The smell of the Chinese food drifting from the kitchen was tempting, and I only managed to hold out long enough to wash my hands. Sweet and sour chicken with fried noodles was my favorite.
+
+On a Friday afternoon, it felt like salvation.
+
+The peaceful Friday evening feast I had planned for myself was interrupted by the buzzing of my phone.
+
+It was Nora…
+
+"Hey, Dean!" Nora's cheerful voice rang through the phone.
+
+"Hey, Nora..." I replied through a mouthful of food. "Did you get there yet?"
+
+"What are you eating?" Nora asked playfully. "Please don't tell me it's sushi."
+
+"No. No, of course not." I quickly defended myself as if I were actually eating sushi.
+
+"How dare you eat sushi without me!" Nora scolded.
+
+I couldn't help but laugh.
+
+We had been dating for about a month and a half. The relationship was still pretty new, but I really enjoyed being with her, and from what I could tell, she felt the same way about me.
+
+Nora had joined the company about six months ago. She worked in accounting, and for nearly two months I had danced around asking her out. Luckily, she said yes, and things had only gotten better between us since then.
+
+This weekend, though, she was in Boston. Her parents lived there, and neither of us felt like it was time for me to meet them yet.
+
+Honestly, that was fine.
+
+I had planned on spending the weekend resting anyway.
+
+"No, I'm not eating sushi," I assured her.
+
+"Whew... lucky you," Nora teased. "I was about to turn around."
+
+"So you made it there?"
+
+"Yeah, my plane landed about twenty minutes ago," she said. "My dad's picking me up. He should be here any minute."
+
+"That's great..." I groaned and rubbed my throbbing temple.
+
+"What's wrong, Deanie?" Nora asked.
+
+"Ah, nothing." I tried to sound casual even over the phone. "My head's just acting up. It feels like it's about to explode."
+
+"Dean!" Nora snapped. "You didn't eat anything today, did you?"
+
+"I'm eating now..." I said defensively.
+
+"Ohhh, you..." Nora grumbled. "If I find out you've been doing that again, I'm pinching you. Oh, Dean, my dad just got here. I need to go. We'll talk later. Take care of yourself, okay?"
+
+"You too, Nora," I replied warmly. "Text me when you get there."
+
+Nora hung up.
+
+I turned my attention back to my Chinese food. At least, I would have if my head didn't hurt so damn much.
+
+With a full stomach, I let out a satisfied burp and stretched out on my couch.
+
+As crazy as I was about Nora, it felt good to be alone for a little while and just unwind. Some stupid game show was playing on the TV, but it was more background noise than something I was actually watching.
+
+I kept hoping the food would make my headache go away. Instead, it seemed to be getting worse.
+
+So I dragged myself into the kitchen to look for some painkillers. If I remembered correctly, I had tossed a few into one of the boxes for emergencies.
+
+Yeah...
+
+I still hadn't unpacked.
+
+Work and Nora had completely eaten up my time. There were still boxes piled up in the kitchen, the bedroom, and the living room. I kept telling myself I'd unpack eventually.
+
+Just not today.
+
+After digging around for a while, I finally found the medicine at the bottom of a cardboard box.
+
+I swallowed it like it was some kind of life-saving drug.
+
+And honestly, it felt like it was. My head was splitting apart, and the damn migraine just kept getting worse.
+
+After taking the pills, I collapsed back onto the couch, and since this usually helped, I decided to take a nap.
+
+It didn't take long before I drifted off. When I woke up, it was already dark.
+
+My head somehow hurt even more than before. The glow of the TV stabbed at my eyes, and the sound of car horns drifting in from outside was unbelievably irritating.
+
+"What the fuck..." I groaned as I sat up.
+
+My whole body felt stiff. Everything was numb.
+
+And my ankle itched. I pulled up the leg of my sweatpants and examined it in the light of the TV.
+
+Small red spots were scattered around my ankle.
+
+"Fucking mosquitoes," I muttered angrily and scratched at it hard.
+
+I stumbled through my dark kitchen, weaving between half-unpacked boxes. Even after waking up, I still felt completely disoriented. My head was pounding, my ankle itched, and I felt like a soaked sock.
+
+Like shit.
+
+Eventually, I made it to the sink. I poured myself a glass of water and splashed some on my face. Maybe it would help.
+
+It didn't.
+
+It felt like someone was smashing the inside of my skull with a hammer over and over again.
+
+Maybe some fresh air? I shuffled out of the kitchen, kicking a few loose spoons across the floor.
+
+Stupid boxes. I'm never going to finish unpacking.
+
+The kitchen window overlooked the street, but I was on the sixth floor. Maybe the cool evening air would sting my wet face a little and help clear my head.
+
+I practically fell into the window when I finally reached it.
+
+Weak and shaking, I grabbed the frame and tried to force it open. On the fourth hard pull, it finally slid upward.
+
+The city lights shimmered in front of me in a blurry haze, as if a film had formed over my eyes. Probably because of the headache.
+
+The city was quiet, yet every little sound irritated me. A sharp stab of pain shot through my skull.
+
+I grabbed the top of my head with both hands and staggered back toward the couch like a drunk. I searched for the remote in the darkness, but of course it was nowhere to be found. On my hands and knees, dramatically exaggerating my own suffering, I crawled to the wall and unplugged the TV instead. I wasn't about to go hunting for the remote, wherever the hell it had ended up.
+
+I crawled back onto the couch like a dying slug and buried my face deep between the cushions.
+
+This damn headache wouldn't go away. Curled up into a ball, I lay there trembling.
+
+One hand rubbed my temple while the other scratched at my itching ankle. What a fucking great weekend this was turning out to be.
+
+When I woke up, I found myself beside the couch.
+
+I was curled up on the floor with a pillow pulled over my head, hiding from the sunlight streaming through the windows.
+
+"What...?" I groaned to myself. "God damn it..."
+
+With trembling hands, I tried to push myself off the floor, but it felt like all the strength had drained from my body.
+
+Instead, I rolled over to the couch and, like some poor old man with a dislocated hip, used it to haul myself upright. My head, of course, felt numb, as if someone had cracked me across the skull.
+
+The numbness stretched from my temples all the way down my neck.
+
+I kept my eyes shut because even the light filtering through my eyelids sent sharp spikes of pain through my head.
+
+Fucking migraine...
+
+Somehow, I managed to pull myself together and shuffle into the kitchen.
+
+"Ugh... my head..." I groaned out loud. "For fuck's sake..."
+
+I angrily knocked over a few boxes, sending them crashing to the floor. Then I collapsed beside the kitchen counter, landing hard on my ass.
+
+I reached up onto the counter, feeling around for the painkillers I'd left there. After fumbling around for a moment, I finally found them.
+
+I picked up the bottle and… empty.
+
+I squinted at it.
+
+How was it empty?
+
+I remembered it being half full when I took some.
+
+Had I woken up at some point and taken more? Was that why I felt so numb? Shit... how many had I taken?
+
+"Ah, you fucking idiot," I muttered angrily and tossed the bottle across the room.
+
+My hand...
+
+I stared at it as it fell into my lap. Red bites covered my skin.
+
+It looked like I'd been eaten alive by mosquitoes.
+
+Were they even bites? Or… Was I allergic to something? Shit, the Chinese food?
+
+Maybe there had been something in it. Something new. Something that was messing me up like this.
+
+Only one thought crossed my mind. I had to get the food out of my system.
+
+I sat in the darkness of the bathroom, trying over and over to force myself to throw up.
+
+Nothing worked.
+
+The cool, damp darkness eased the pain a little, but it still felt like construction crews were working inside my skull.
+
+I gagged. I choked.
+
+But it felt like there was nothing left inside me.
+
+How was that possible?
+
+I'd eaten the Chinese food, and I sure as hell hadn't seen it come back up. For a while I kept trying.
+
+My fingers. My toothbrush. Nothing triggered the reflex.
+
+It was impossible to make myself vomit. Finally, I gave up.
+
+I shut the bathroom door and stretched out on the cold tile floor in the darkness. And for the first time in what felt like forever, I enjoyed the fact that my headache had eased, even if only a little.
+
+I woke to a horrible sound.
+
+It was so piercing, so painfully loud, I thought I was going to lose my mind. It felt like my skull was one hairline away from splitting open for real, my brains spilling out across the floor.
+
+As weak as I felt, I practically launched myself out of the bathroom. With my hands clamped over my ears and my eyes blinded by the setting sun's light, which still felt unbearably bright, I searched for the source of the deafening noise.
+
+I didn't have to look far. My phone was sitting on the edge of the couch.
+
+Ringing.
+
+Maybe at full volume. I didn't care. I just needed it to stop.
+
+I practically threw myself at it. Squinting through blurred colors and smeared letters, I could barely make out what was on the screen.
+
+One thing stood out.
+
+Nora. Nora was calling.
+
+Like a chimp trying to solve a puzzle, I jabbed at the nearly unreadable screen, trying to answer it.
+
+"Come on, you piece of shit!" I screamed.
+
+"Dean?" Nora's voice came through the phone. It sounded ridiculously loud, like I had her on speaker at maximum volume.
+
+"Nora..." I groaned. "Hey..."
+
+"Dean, are you okay?" Nora asked, panic creeping into her voice. "I haven't been able to reach you for almost two days. Dean, oh my God, what's going on with you?"
+
+"Two days...?" I muttered, confused. "How?"
+
+"Dean, what do you mean how?" Nora said. "What have you been doing? Where have you been?"
+
+"I... I, Nora..." I collapsed beside the phone. "Nora, I'm not doing so great... this migraine is killing me. I barely remember the weekend. I feel awful..."
+
+"Dean, do you want me to call someone?" Nora asked anxiously. "Dean, I'm calling an ambulance."
+
+"No!" I shouted into the phone. "I'll be fine. I just need to rest."
+
+"Are you sure, Dean?" Nora asked. "I'll come by tomorrow. I'll bring you something to eat."
+
+"Okay..." I groaned, pressing my face against the floor. "Come over. Just let me know before you do."
+
+"Okay, Dean..." Nora replied uncertainly. "You're sure you'll be okay?"
+
+"Yeah." My voice was already drifting toward sleep. "Where are you now?"
+
+"Still on the plane. I'm still in Boston."
+
+"I see..." Drool dripped onto the floor. "Nora, I'm gonna go... my head's starting to hurt again. Call me if anything happens."
+
+"Okay, Dean," Nora said softly. "I'll call you. Bye, Dean. I'll see you soon."
+
+"Bye, Nora..." I whispered miserably. "Call me..."
+
+And then I fell asleep again right there on the floor of my apartment.
+
+It was dark when I opened my eyes. My head still felt awful. I swear, this must be what it feels like when someone's skull is split open.
+
+Slowly, I pulled myself onto the couch.
+
+The darkness helped.
+
+The lights from outside still shimmered and warped in my vision, but they weren't quite as unbearable. I carefully shuffled over to the window and pulled the blinds shut.
+
+The darkness felt even better. My head still felt like it was about to fall off, but at least the light wasn't torturing me anymore.
+
+I stumbled through the apartment, darkening every room. With a heavy sigh, I collapsed back onto the couch. Then a sharp pain shot through my back along with the pain in my head.
+
+"What the hell?" I hissed.
+
+I reached under my shirt and touched something warm and wet.
+
+The second I pulled my hand away, the entire area started itching like crazy.
+
+Not just itching. An unbearable itch.
+
+I reached behind me with both hands and started scratching. My fingernails and fingers became even wetter, but the itching didn't stop.
+
+"Ahhh, fuck!" I shouted like a madman.
+
+I staggered toward the kitchen. I only made it as far as the doorway.
+
+Then, like a bear cub scratching itself against a tree, I started rubbing my back against the doorframe.
+
+Scratch. Scratch. Scratch.
+
+Then I realized I wasn't just scratching my back anymore.
+
+One hand was clawing at my leg. The other was digging into my neck. 
+
+I didn't know what had bitten me, but once this headache finally went away, I was definitely calling an exterminator. Like some lunatic, I scratched myself as hard as I could.
+
+I ripped my shirt off and continued scraping my body against the doorway.
+
+That's when I kicked into the boxes I'd knocked over earlier.
+
+Kitchen utensils were scattered all across the floor.
+
+"Ahhh, my head!" I groaned as another spike of pain tore through my skull.
+
+Then my hand brushed against a cheese grater. 
+
+I couldn't resist.
+
+I pressed it against my shoulder and started scratching. Hard. Something ran down across my bare chest. But I just kept scratching.
+
+I lay sprawled across the cold kitchen floor, clawing at my legs. I knew they were bleeding.
+
+I didn't care. I had to scratch.
+
+I could feel the red bumps all over my body growing larger. They had spread almost everywhere by now. At least in the darkness I couldn't see what I looked like.
+
+I felt like a cockroach lying on a kitchen floor.
+
+"Hey, honey, I'm home!" a familiar male voice called out.
+
+"Hi, sweetheart!" a woman answered immediately.
+
+"What...?" I sat upright instantly. "Who's there?!"
+
+But there was nobody in the darkness.
+
+"You were out a long time," the woman continued. "It's almost midnight."
+
+"Yeah, I know..." the man replied apologetically. "I had to stay late. You know how month-end closing is. It's always like this."
+
+"Yeah. Yeah..."
+
+"Shut up!" I shouted, clutching my head. "Shut the fuck up!"
+
+Why am I hearing these voices? Who's talking? Everybody just shut up!
+
+"I'm going to take a shower, then let's get some sleep," the man continued, as if he couldn't hear me screaming.
+
+The neighbors… The thought flashed through my mind.
+
+But nobody lived directly next to me. There was the stairwell on one side, and farther down the hall lived a middle-aged couple.
+
+I'd never heard them before.
+
+What were they doing? Why did it sound like they were practically yelling?
+
+I can't take this. I pushed myself to my feet.
+
+The world spun around me in the darkness. Inside my skull it felt like every vein was throbbing separately.
+
+"AAAAAH! SHUT UP!" I roared like an animal.
+
+I grabbed the overturned boxes and hurled them into the living room.
+
+Everything went flying. I heard glass shatter somewhere. Probably one of my drinking glasses.
+
+I didn't care. The voices were torturing me.
+
+"What time are you leaving tomorrow?" the woman asked suspiciously.
+
+"I don't know yet," the man replied. "I need to talk to them in the morning..."
+
+"SHUT THE FUCK UUUUP!" I screamed.
+
+I pressed my hands against my ears and staggered blindly through the apartment.
+
+Then something suddenly crunched beneath my foot. It wasn't the pain I noticed.
+
+The agony in my head and the voices probably drowned that out.
+
+It was the sound. The crunch. Glass shards.
+
+"Ah, fuck...!" I collapsed to my knees.
+
+I felt the broken glass bite deep into the flesh of my feet.
+
+Meanwhile, an industrial drill hammered away inside my skull, and somewhere far away a married couple sounded like they were about to start an argument. 
+
+I lay curled up in the middle of my living room, scratching at the top of my head like some lunatic locked away in a mental institution.
+
+The sounds were torturing me.
+
+The impact of water droplets hitting the bathroom floor sounded as loud as a bomb going off beside my head. The noises drifting in through the windows felt so close that it seemed like I was living in the middle of a highway.
+
+Then, for a second, everything went quiet. And I noticed something else entirely.
+
+The smell of shit.
+
+A foul odor drifted in from somewhere. I sat up in the darkness and sniffed the air.
+
+Sniff. Sniff.
+
+Animal feces. Far away.
+
+Sniff. Sniff.
+
+Dog. Small breed.
+
+No, wait… Cats. Two different ones.
+
+There weren't any cats on my floor. And I definitely didn't own any.
+
+Then it hit me.
+
+There was a middle-aged woman living on the ground floor. She had two cats. I'd met them a few days ago after moving in.
+
+But why could I smell their litter box all the way up here?
+
+Wait a second...
+
+Sniff. Sniff.
+
+Food. Someone was cooking.
+
+Dough. Pizza dough. Good quality pizza dough.
+
+The Italian restaurant two buildings down the street smelled exactly like that.
+
+Was the wind carrying it all the way here? From that far away? What the hell was happening to me?
+
+A sudden bolt of agony shot through my skull. This must be what the electric chair feels like.
+
+I collapsed. I writhed across the floor like a worm cut in half.
+
+I wanted to scream. I could feel the scream trapped inside me.
+
+But no sound came out. I just thrashed silently on the floor like a dying fish.
+
+I woke up on the kitchen floor.
+
+It was dark, warm, and humid. Comfortable, somehow.
+
+My face was smeared against the cold tile. I opened my eyes carefully, and the first thing I saw in the darkness was a few bugs scurrying beneath the kitchen counter.
+
+Disgusting, I thought, my temples throbbing.
+
+My head… I won't say it didn't hurt.
+
+But somehow, I felt a little clearer than before.
+
+The itching was gone. The sounds and smells, however, were still unbearably intense.
+
+I could hear something rattling somewhere inside the drainpipe. A pigeon flew past outside. The smell of mildew seemed to reach all the way into my brain.
+
+What day is it?
+
+The thought flashed through my mind.
+
+I blacked out again… A few more days must have passed.
+
+But… Where was Nora?
+
+She said she'd come check on me. We'd go to the hospital together. I should call her.
+
+Right. My phone.
+
+I grimaced and pushed myself up from the kitchen floor. My face had practically stuck to the tile. I could feel the cold stone pulling at my skin as I stood.
+
+Groaning, I leaned against the counter and tried to ignore the flood of sensations crashing into me all at once.
+
+A car horn blared. A trash can lid slammed shut. The stench of the sewer filled my nose.
+
+And suddenly my stomach began churning again. Literally.
+
+A single half-burp escaped me, and something came up with it. I vomited directly into my lap.
+
+"Ah, fuck..." I muttered through a mouthful of vomit.
+
+In the darkness I couldn't see what exactly had come out of me. I would have guessed it was the Chinese food. Or maybe something else.
+
+Something I didn't even remember eating during the days I'd been lying here. Smacking my lips, I pulled myself upright using the counter.
+
+With my vomit-covered hand, I rubbed my face, dizzy and disoriented.
+
+My entire world had turned upside down. Then I scratched the back of my neck.
+
+The itching… It was coming back.
+
+I staggered into the bathroom. A strangely pleasant scent hung in the air.
+
+Sweet. Far too sweet. Far too inviting.
+
+I splashed cold water on my face and rinsed out my mouth. Then I shuffled back into the living room.
+
+I dropped onto the couch, and my body felt as though it were slowly deflating.
+
+Breathing became difficult. Sweat ran down my skin.
+
+Then the itching started again. All at once. From my heels to the top of my head.
+
+And then my head.
+
+It felt like thousands of saws had suddenly started cutting through trees inside my skull. My vision narrowed. The darkness somehow became even darker.
+
+Then, with a heavy thud, I found myself on the floor. I was still conscious. Confused. Suffering. But aware of what was happening around me.
+
+That's when I noticed a cellphone lying beneath the couch. Slowly, hissing through clenched teeth, I reached for it.
+
+The screen lit up. The light blurred into a swirling mess of colors. But I recognized one thing.
+
+The emergency call icon.
+
+With a trembling finger, I pressed it.
+
+"Please..." I mumbled. "Someone... I'm not... well..."
+
+Then the darkness swallowed everything again.
+
+I heard footsteps.
+
+Heavy. Strong.
+
+Four people. Three men and a woman.
+
+They were approaching my door. 
+
+I could hear their breathing.
+
+All four of them were calm. Their hearts beat slowly and steadily. They'd done this many times before. Nothing about this was new to them.
+
+"This the place?" a gruff male voice asked.
+
+"Yeah... dispatch says the call came from here," a younger man replied.
+
+"We kicking it in?" a third voice asked.
+
+"That's why we're here," the gruff man muttered.
+
+"Dispatch, this is Unit Fourteen. We're making entry," the younger man said into a crackling radio.
+
+"Stand back," the gruff man growled.
+
+"Come on, Pete..." a woman's voice said. "Let's stay over here and keep out of the way."
+
+A split second later, the lock on my door exploded with a loud crack.
+
+Bright light poured in from the hallway.
+
+Painful light.
+
+The kind that made my head throb. I could feel the veins swelling in my forehead.
+
+It felt like I was about to explode.
+
+A mixture of rage and pain burned inside me.
+
+The light. The voices.
+
+The strong smell of sweat coming from the four strangers.
+
+Every bit of it hurt. Every bit of it made me angry.
+
+"Oh my God... what is that smell?" the woman said.
+
+"Back up!" the gruff man shouted. "Hands where I can see them! I said hands… dear God..."
+
+Gunshots erupted.
+
+One. Two. Three.
+
+As loud as thunder splitting a silent night sky.
+
+Someone cried out. Then screamed.
+
+And then… Everything went silent.
+
+Slowly, I blinked my eyes open.
+
+My hands were red. Wet.
+
+The apartment was silent except for a faint, stomach-turning stench hanging in the air. It was so dark I couldn't see anything. I reached toward the small lamp sitting on the nightstand beside my bed.
+
+The moment I switched it on, the bedroom flooded with harsh light.
+
+But it didn't hurt.
+
+It was bright, sure, and it took my eyes a few seconds to adjust, but for the first time in days, the light didn't feel like a knife being driven into my skull. The bedroom door stood wide open.
+
+Leaning back slightly on the bed, I glanced out into the apartment.
+
+Then immediately recoiled. I turned away before I could look any longer.
+
+Everything was covered in blood.
+
+Pieces of people. Hands. Legs. A torso split nearly in half. Some chunk of flesh hung from the lamp in the living room.
+
+I sat frozen on the edge of the bed, my blood-soaked hands trembling. Something felt wrong in my mouth.
+
+A metallic taste scraped against the back of my throat. I shoved my fingers between my teeth and pulled out a small strand of hair. Revulsion twisted my stomach.
+
+I spat repeatedly onto the floor.
+
+Then I heard a buzzing sound. 
+
+From beneath the bed.
+
+A phone? Again?
+
+It couldn't be mine. I remembered smashing mine. I knelt beside the bed and reached underneath without looking.
+
+Something wet and foul-smelling was slowly leaking out from under there.
+
+My hand found a phone. Still ringing.
+
+I pulled it out.
+
+The caller ID read: Dad.
+
+Whose phone was this? My father had been dead for years.
+
+It couldn't be him. How could it be?
+
+I didn't answer. I just stared at it while it rang.
+
+And rang. And rang.
+
+Finally, it stopped. The screen went dark. Then lit up again.
+
+A text message.
+
+Hey sweetheart, where are you? Why aren't you answering your phone? Love, Dad.
+
+What the fuck...?
+
+I stared at the screen in complete shock. Then I tapped it, leaving a bloody fingerprint across the glass.
+
+A familiar face smiled back at me from the lock screen.
+
+Nora. And me.
+
+The blood in my veins turned to ice.
+
+But my headache was finally gone.
