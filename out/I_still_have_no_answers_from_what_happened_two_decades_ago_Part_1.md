@@ -1,0 +1,335 @@
+# Chapter 1
+
+It's been twenty years, and this is the first time I'm putting any of this down for someone else to read.
+
+Back in '06, I was fourteen. I was a nobody- the kind of student teachers forget by the end of the semester. I grew up in the rural centre of Borneo, deep highland country, and I ended up in a public school where most of us were still figuring out what high school even meant. Form 2, second-year, still settling in.
+
+The internet was moving fast back then, even for kids like us out there. We weren't behind- we dove into it just like everyone else. Urban legends spread between kids my age the way they always have, except now they traveled faster. Every kid had a story. Something their cousin saw, something that happened near their kampung, something they read online at the cyber cafe. Nobody really cared about studying. We were young, we wanted company, and keeping that company was everything.
+
+That's the year my close friend passed away and a classmate disappeared.
+
+Brad was my classmate. I don't know how else to describe him except to say he kept entirely to himself. He came to school, he sat down, he did whatever he did, and that was it. No friends, no small talk, nothing. The heat that year was brutal even by our standards- Malaysia in monsoon season and it still felt like standing inside a tin roof at noon. Every one of us was in short sleeves uniform. Brad wore a dark hoodie over it every single day. When teachers told him to take it off, he would. The moment they looked away, it went back up.
+
+He sat two rows behind me. Our classroom was set up with two desks per row across three columns. I sat at the window-side table with my mate Wan, third storey, looking straight out over the track field.
+
+Me and Wan were close. Inseparable, really. It started back in Form 1 over drawings- we'd pass each other sketches during class. By Form 2 it was the usual things, football, girls, the internet. Wan was good company. He was also, if I'm being straight about it, a bully.
+
+His older brother was Form 5, one of the seniors who ran things. That gave Wan a kind of coverage and he knew it. He used it. His target in our class was Brad.
+
+Brad sat alone because nobody wanted the seat next to him, or maybe because Wan had made sure of that. Wan would walk over whenever he felt like it. He'd throw a punch into Brad's stomach under the desk- quiet, fast, just enough to wind him. He'd take his lunch money. Two ringgit, which doesn't sound like much now, but for us at that age it was a full meal. Sometimes he'd take a pencil and stab the back of Brad's hand with it. Not deep. Just enough.
+
+I watched all of it.
+
+I laughed when Wan laughed, because that's what you do when the alternative is becoming the next one in that chair. I told myself it wasn't my business. I told myself Brad never reacted, never reported it, so maybe it wasn't as bad as it looked. I was fourteen and I was a coward and I knew it even then. You just don't say that out loud at that age. You follow the current and you make sure it doesn't pull you under.
+
+The Friday before the weekend, Wan came up to me before the last period ended. He looked irritated, distracted, like something was sitting wrong with him.
+
+"I'm going to see someone after school," he said.
+
+"See who?"
+
+"Just come to the back after the bell. Fuck your bus. My brother will send you home."
+
+"Who are you fighting, bro?" I asked.
+
+He didn't answer that directly. He just looked at me and said, "Just come."
+
+I'd heard that tone before. Whoever was waiting at the back of the school that afternoon was not going to have a good time.
+
+\---
+
+# Chapter 2
+
+The back of the school was what everyone called it- the area behind the assembly hall. There were two badminton courts back there, and past that, a dirt trail that cut through to a nearby kampung. Most kids who lived close used it as a shortcut home. The delinquents used the courts. Teachers never came around that side, which made it the default spot for cigarettes, extortion, and anything else that couldn't happen in plain sight.
+
+I got there at 12:30, right after the last period bell. A crowd had already formed.
+
+Wan was easy to spot. He was jumping on his feet, uniform untucked, top two buttons open, working himself up in front of a group of seniors. He had taken his school necktie off and wrapped it around his right fist. Across the circle, alone, was Brad. Still in his hoodie.
+
+I didn't push into the crowd. I kept my distance and watched from the edge. If a teacher showed up, I needed to be far enough away that nothing could stick to me.
+
+It was unusually packed that day. The first fight of the year always drew a crowd- last year they happened almost every week, so everyone was hungry for it. The energy was loud and restless.
+
+Then Wan's voice cut through everything.
+
+"So what did you say to me, pukima?" He was circling, still bouncing on his feet. "You said 'don't sleep tonight'? You are one brave motherfucker!"
+
+I stood there and processed that. In all the time Brad had sat behind me in that classroom, I had never once heard him speak. Not to teachers, not to anyone. The idea of him walking up to Wan and saying something like that- I couldn't picture it. But something had set Wan off this bad, and whatever Brad said, there was no walking it back now. He had nowhere to go either. The trail home was right behind him.
+
+Brad didn't respond. He just stood there and said nothing.
+
+That stillness made it worse somehow. Wan kept moving, kept talking, kept performing for the seniors behind him. Brad just watched him. I remember thinking the word at the time- menacing. Brad was bigger than Wan, which was exactly why Wan had picked him in the first place. By the time I was older I understood that logic. You go after someone bigger because winning means more, and losing doesn't really matter when your brother and five of his friends are standing two steps behind you. That was how things worked in that school.
+
+Wan threw first. A right jab straight to Brad's face. Brad went down.
+
+Wan pranced around the circle, arms out. "Now who's on the ground, pukima?"
+
+Brad got back up.
+
+That was the wrong thing to do. I could see it shift something in Wan's face. He rushed in and tackled Brad with everything he had. Brad didn't go down. He absorbed it, grabbed Wan, and threw him to the ground instead.
+
+The crowd went quiet for half a second.
+
+Wan looked up from the dirt, eyes wide. "How dare you--"
+
+The seniors moved in from behind. Five of them. Brad went down under the weight of it, curling into himself on the ground, arms over his head. They were kicking and punching and not stopping. Then Wan, back on his feet, picked up a plank from somewhere and brought it down on Brad's head.
+
+After that Brad stopped moving.
+
+The seniors drifted off first, casual, like nothing had happened. Wan dropped the plank. The crowd dissolved. By the time I registered what I had just watched, the back of the school was nearly empty.
+
+Wan grabbed his backpack, spotted me, and ran over. "Let's go!" He grabbed my arm and pulled.
+
+I ran with him without thinking.
+
+We went down the trail to where his brother had parked. Seven of us packed into the car and his brother pulled out fast. I sat there trying to breathe. I couldn't stop seeing the plank coming down. That was the line nobody crossed- everyone knew it. Fights at that school were fists and numbers, that was already bad enough. A weapon was something else. Wan knew that. Everyone there knew that.
+
+Wan didn't look like someone who knew anything was wrong. He was loud the whole ride, still running on whatever had carried him through the last ten minutes.
+
+"Serve that fucker right!" he said to nobody in particular.
+
+He looked over at me. "You saw that, right?"
+
+I nodded, as I was trying to breathe properly.
+
+"Now let's go back to my place and drink my father's stash!"
+
+"I want to go home, bro," I said. "I don't feel well."
+
+He pulled a face. "Fucking killjoy. Whatever, bro."
+
+A few minutes later we reached my driveway. I got out and just stood there for a second, letting the air hit me. My legs felt wrong.
+
+Wan leaned out the window.
+
+"You're my bro, right?" Wan called out. "If anything happens, you'll cover me, right?"
+
+I was staring at the ground. Mind blank.
+
+"Right?!"
+
+I looked up. I nodded.
+
+They drove off. I stood in the driveway for a while after that, alone.
+
+\---
+
+# Chapter 3
+
+The town was fifteen minutes from my house on foot. On weekends I usually made that walk to the cyber cafe. I was curious about technology from a young age, always had been, but my family wasn't well off enough to have a computer at home. Two ringgit an hour at the cafe was how I fed that hunger.
+
+Wan had no interest in any of that. Tech, internet, none of it. So weekends were the one time we went our separate ways without it being a thing.
+
+That Saturday I was one of the first customers in. I logged into MySpace- my guilty pleasure at the time. That was where I found new people to talk to, and more importantly, where I kept contact with my crush, Eve. She was a year older than me and I would never have had the nerve to speak to her face to face. Social media was a blessing for someone like me. I pulled up her profile and saw she was already online.
+
+She messaged me first. That never happened. I was always the one to start.
+
+Just a ping, then: *"Were you at the back of the school yesterday?"*
+
+My stomach dropped. She knew.
+
+*"Yeah, what about it?"* I typed back.
+
+I watched the indicator. She was typing for a few seconds.
+
+*"My senior sister was there yesterday. Did Wan really smash that kid's head??"*
+
+I froze. My crush was asking me about my mate cracking someone's skull with a plank. There was no version of this that looked good on me.
+
+*"Yeah. Do you know what happened to Brad?"* I asked.
+
+Her reply came fast. *"Do you know his family practices black magic? You need to distance yourself from that brat you call a friend."*
+
+I stared at the screen for a moment. Then I typed, *"Don't worry about it. I gtg. Bye."* and closed the inbox.
+
+Black magic.
+
+That was one of those things that never really left, no matter how old you got or how much of the world you saw. Where I'm from, among my people- Dusun; esoterism is not a ghost story. It's just something that exists, the way weather exists. White magic, black magic, the people who practice it and the families that carry it down. You grew up knowing it was real the same way you knew the forest was real.
+
+And Brad came from one of those families.
+
+Suddenly a lot of things made more sense. The hoodie. The silence. The way he stood there and said nothing while Wan circled him. And whatever he had said to Wan the day before- *don't sleep tonight,* coming from that kind of family, that wasn't just a threat. That was something else entirely.
+
+My palms were sweating. I had time left on my session, probably a full hour, but I had no interest in being there anymore. I logged out and went home.
+
+\---
+
+Sunday was church. My family went every week- local protestant, nothing big. I sat in the pew that morning and prayed harder than I usually did. I prayed I wasn't going to get pulled into whatever had happened on Friday. I prayed nobody had seen me close enough to place me there. I prayed for Brad too, though I didn't know what I was praying for exactly. That he was okay, maybe. That he wasn't.
+
+I kept to myself the whole weekend. Didn't go out. My mind wouldn't settle. It kept cycling through the same things- the plank coming down, Wan leaning out the window asking me to cover for him, Eve's message sitting in my inbox.
+
+Monday was coming and there was nothing I could do to stop it. The thought of walking back into that school was eating me from the inside out, piece by piece, the whole weekend through.
+
+\---
+
+# Chapter 4
+
+I woke up that Monday and almost faked sick right then. My breathing wouldn't settle. The moment my eyes opened it was like my chest was too small for whatever was sitting in it. I got ready for school anyway. My head was running with a hundred different scenarios- bad ones mostly, about what the day would bring.
+
+Getting off the bus at the school entrance, I felt eyes on me immediately. Too many of them. It made me want to turn around and walk straight back home. My stomach turned with every look that passed over me.
+
+I could hear the murmurs as I walked through the corridors toward my class.
+
+"That's the bully's friend."
+
+"That's one of them."
+
+I kept my head down, gripped both my backpack straps tight, and just walked. The moment I opened the back door to the classroom, every head in the room turned toward me at once. I had no idea what to do so I went to my desk and sat down.
+
+Wan wasn't there yet. He usually came early- straight to the back of the school to smoke before first period. But he wasn't there that morning.
+
+The bell rang. Homeroom teacher came in. Not the one scheduled for that time- someone else. Ms. Lucy, my batch advisor. She told everyone to settle down, put on her glasses, and called my name.
+
+My heart dropped.
+
+"Come with me," she said.
+
+Every eye tracked me as I walked out of that classroom. I could feel them doing it without looking. We walked to her office in the administrative block. Most of the teachers were already out on their schedules. Ms. Lucy sat down and gestured for me to sit across from her. She took off her glasses and set them on the desk in front of her. Then she crossed her arms and looked at me.
+
+"Tell me what happened last Friday after school," she said.
+
+I froze. My heart started beating fast, irregular. My breathing went wrong.
+
+"I... I don't know," I said.
+
+"Give me the truth," she said, "or your parents will be contacted and you will have to answer to the police."
+
+My world shattered right there and then. That threat- actual cops, actual consequences, broke something in me that had been holding on.
+
+"Let's make this easy," she said. "I don't want to ruin your future."
+
+I opened my mouth. What came out was, "Is Brad okay?"
+
+She relaxed a little. Something shifted in her face.
+
+"Is Wan in trouble?" I asked.
+
+She let out a long sigh and rubbed the bridge of her nose.
+
+"Wan..." She paused. Her expression changed- something in it went quiet and heavy. "Wan passed away yesterday. Him and his brother Zais. They were in a car accident on the Liwagu Bridge. Their bodies were recovered last night."
+
+I didn't hear anything after that. The words landed but they didn't make sense. They were just sounds. Wan had driven off from my driveway on Friday afternoon. He was alive. He was shouting about serving Brad right. He was asking me to cover for him.
+
+Now he was dead.
+
+My mind went blank.
+
+\---
+
+# Chapter 5
+
+The only thing playing in my head was the last thing Wan said to me.
+
+*You're my bro, right?*
+
+Over and over. The energy he had in that car ride Friday. The way he was shouting, celebrating, asking me if I saw it. Alive and loud and completely certain about everything.
+
+Then someone was snapping their fingers in front of my face.
+
+I was in a police station. I was sitting between my father and my mother, across a table from two male officers in uniform. I had no memory of how I got there. I didn't remember leaving Ms. Lucy's office, didn't remember the car ride, didn't remember walking through any door. I just surfaced there, in that chair, under those fluorescent lights.
+
+My mother was sobbing beside me. My father sat with his left hand on his thigh, his right palm pressed against his temple, massaging it slowly.
+
+"Hey, young man," one of the officers said. "Are you listening?"
+
+I clocked how serious the room was. I nodded.
+
+"Let me ask you again." He kept his voice calm. "How well do you know Wan and his brother Zais?"
+
+I froze. My father put his hand on my left arm and shook it once. When I looked at him his eyes were glassy.
+
+"He was my best friend in class," I said. The words felt forced coming out. "I don't really know that much about his brother."
+
+The second officer leaned in. "How about Brad? How well do you know him?"
+
+I hesitated. I could feel my father's eyes on me from the side.
+
+"He was our classmate. That's all I know about him."
+
+The first officer turned a page in the binder on the table. "Were you there for the fight after school last Friday? Wan and a senior group with his brother were beating Brad, correct?"
+
+I nodded. Then immediately said, "I was just watching. I swear."
+
+It came out fast. I didn't want to be attached to any of it. The officers exchanged a look. One of them closed the binder.
+
+"Brad and his family are nowhere to be found," the officer said.
+
+My mouth fell open. I felt it start to shake.
+
+"We believe they may have a connection to yesterday's accident." He paused. "We found markings- slash marks, on one of the front tires of the vehicle involved."
+
+The room went quiet.
+
+My father spoke up. My mother beside me had gone wide-eyed. "Do you think Brad's family caused the accident?" my father asked.
+
+"We have no evidence yet," the officer said. "But Brad's household was already empty this morning when we went there for questioning." Another pause. "What's strange is there was no furniture either. The place looked abandoned. Run-down. As if nobody had been living there at all."
+
+Eve's message came back to me right then, sitting in that room.
+
+*His family practices black magic.*
+
+After what felt like hours they let us out. We walked to my father's wagon in the car park and got in. The ride home was silent. My father drove fast. I could see his knuckles going white on the steering wheel.
+
+My mother sat in the passenger seat still pressing a tissue to her eyes.
+
+Halfway home my father opened his mouth.
+
+"Are you one of the bullies?"
+
+He asked it the way he asked most things- direct, no softening. I was staring at my palms on my lap. I could feel him watching me in the rearview mirror.
+
+"Answer me."
+
+"No, sir," I said.
+
+I rarely spoke with my father. When I did, I answered him properly. That was how it worked between us.
+
+The rest of the ride home was tight. No other word for it.
+
+When we pulled into our driveway the sky had turned dark. The air had that particular weight to it- it was thick. The rain coming was going to be heavy.
+
+\---
+
+# Chapter 6
+
+Before I go further, you need to know something about the Liwagu Bridge.
+
+The original crossing over the Liwagu River was an old suspension bridge, put up sometime in the 1960s. It was the only way across for people going to the Tamu- the open field market that sat between the riverbanks. By the 70s they started construction on a proper concrete bridge to replace it. It launched officially around 1973, if I remember right.
+
+The local story about that bridge was this: when the beams went up, skulls were used to support them. Human heads, buried into the structure. And with that came the Pengait- a headhunter figure said to roam the area, taking anyone unlucky enough to be there at the wrong time. They told us that story as kids to keep us from swimming in the river. Drownings among youngsters were common enough there that the adults needed something to scare us with.
+
+But vehicular accidents on that bridge were also common. Had been since the concrete went up.
+
+That's where Wan and Zais went down.
+
+The authorities excused me from school for the entire week. They wanted me available for questioning whenever they needed. I spent most of those days in a kind of fog, my mind not fully landing on anything. The events of that Friday felt both very recent and very far away at the same time.
+
+The atmosphere at home that week was difficult to describe except to say that it was eerie. Nobody was talking to each other. I have three older siblings- two brothers and a sister but the age gaps in my family are wide. Between me and my third brother there's a ten year difference. Most of them were already out of town by then, pursuing higher education. What was left in the house was mostly me and my mother. My father spent the majority of his time at the Mamut Copper Mine where he worked, and that week his drinking got worse.
+
+I spent most of my time in my room drawing and sketching. It was the only thing I had when there was no technology around. Just pencil and paper and whatever was in my head.
+
+Thursday night, something happened that I still have no explanation for.
+
+I went to sleep early. I woke up just past midnight, sweating, which made no sense because it was a cold night. The thing that woke me was a sound.
+
+A chicken cooing.
+
+It was loud. It felt close- just outside, maybe just under the window. I lay there and listened to it. Then, slowly, it started getting further away. The sound moved, pulling back like something walking away into the dark.
+
+My grandfather had told me something once, a long time ago. If you hear something in the night, don't respond to it. Don't call back, don't get up, just go back to sleep. And this was the part that stuck with me lying there in the dark: if the sound is loud and close, the thing making it is actually far from you. But when the sound starts fading- when it sounds like it's moving away, that means it's getting near. I had goosebumps the entire time lying there.
+
+I pulled my pillow over my head and didn't move until I fell back asleep.
+
+It wasn't a good sleep.
+
+The dream I had that night was strange in a way I still can't fully account for.
+
+I was in the woods behind the school. I knew the area- we used to explore those woods all the time, me and the other students. But in the dream it didn't look right. The trees were wrong, the light was wrong, the whole place felt like a version of somewhere I knew that had been rebuilt slightly off.
+
+In those woods stood a figure. White robe. It was facing me, and it raised one hand and gestured for me to come toward it.
+
+I couldn't make out its face. I still can't, thinking back on it now.
+
+Then I woke up to my mother's voice calling from outside the door.
+
+"Wake up. Your cousin and your friend are here."
