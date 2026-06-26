@@ -1,0 +1,133 @@
+If you ever find a house nestled deep in the mist-shrouded forests of the Pacific Northwest, listed for a price that seems entirely too good to be true, do yourself a favor. Close your laptop, turn around, and walk away. Don't sign the papers. Don't pack your bags. Because there is always a reason a house is practically given away, and that reason is never something you want to discover at two in the morning.
+
+My name is Arthur. I’m thirty-four, and until about six months ago, I was a senior financial analyst living right in the concrete heart of downtown Seattle. I was recently divorced, severely burned out, and entirely sick of the city. My life had become a suffocating loop of blaring sirens, crowded subways, and the lingering memories of a failed marriage. I needed an escape. I just wanted absolute silence.  
+When I found the listing for a century-old, two-story cabin deep in the woods of Washington State, I thought the universe was finally cutting me a break. The price was staggeringly low—barely the cost of a down payment on a studio apartment in the city. The photos showed a sturdy timber house surrounded by towering, ancient Douglas firs. The listing mentioned it was highly secluded, situated on a dead-end dirt road with only three other houses for miles.  
+I bought it completely sight unseen. I just wanted out.  
+The day I moved in, the isolation felt like a heavy, comforting blanket. The air smelled of wet pine and damp earth, and the only sound was the wind rushing through the canopy above. As I was carrying my final box of books up to the porch, I heard footsteps on the gravel.
+
+My new neighbors had come to introduce themselves.  
+There were three of them. An older, sweet-looking couple named Thomas and Martha, who lived in the house to my left, and a quiet, unassuming guy in his late forties named David, who lived in the cabin at the very end of the road. They were incredibly welcoming. Martha had even baked a blackberry pie. We stood on my porch for a good twenty minutes making small talk. They asked about my job, where I was from, and how I was settling in. They seemed completely normal, just salt-of-the-earth people living off the grid.
+
+But as the sun began to dip below the tree line and long shadows stretched across the yard, the atmosphere abruptly changed.  
+David checked his watch, and his warm smile vanished. Thomas and Martha went entirely rigid. The friendly neighborly warmth evaporated, replaced by a cold, nervous tension.  
+Thomas stepped closer to me. He looked over his shoulder toward the dark woods, then looked me dead in the eyes.  
+"Arthur," he said, his voice dropping to a gravelly whisper. "We're glad you're here. We really are. But there is a rule you need to know about living on this road."  
+I chuckled, thinking it was some joke about sorting the recycling or keeping bears away from the trash. "Alright. Shoot."  
+Nobody laughed. Martha’s hands were trembling slightly as she gripped her husband’s arm.  
+"Never look out the window at 2:13 AM," Thomas said. He didn't blink. "It doesn't matter what you hear. It doesn't matter what happens outside. When the clock hits 2:13, you stay in your bed, you keep the blinds drawn, and you do not look outside. Do you understand me?"  
+I stared at them, the smile slowly dying on my face. "Is this a joke?"  
+"Do you understand?" David repeated, his tone sharp and urgent.  
+"Yeah," I muttered, thoroughly creeped out. "Sure. 2:13 AM. No looking out the window."  
+Without another word, they turned and walked briskly back to their respective homes. I stood on the porch holding my pie, watching them lock their heavy deadbolts as soon as they were inside.  
+For the first week, absolutely nothing happened.  
+I settled into my new routine. I worked remotely during the day, chopped firewood in the afternoon, and drank tea on my porch in the evening. I slept better than I had in years. The crisp forest air and the absolute tranquility were healing me. I would usually go to bed around eleven and wake up to the morning sunlight streaming through the trees.  
+I chalked up the neighbors' warning to local superstition or maybe a weird initiation prank for newcomers. I forgot all about it.  
+Until my eighth night in the house.  
+I woke up suddenly with a parched throat. I sat up in the dark, rubbing my eyes, and grabbed my phone from the nightstand to check the time.  
+It was 2:10 AM.
+
+I threw off the covers and headed downstairs to the kitchen for a glass of water. As I filled my glass from the tap, I realized something was wrong. It wasn't something I saw; it was something I felt.  
+The ambient noise of the forest was gone.  
+If you've never lived in the deep woods, you might think it's quiet at night. It isn't. It's an orchestra of sound—crickets chirping, frogs croaking, the rustle of leaves, the distant hoot of an owl. Even Thomas’s two hound dogs usually barked periodically at passing raccoons.  
+But at this moment, the world was entirely, suffocatingly silent. It was a vacuum. A heavy, pressurized dead space that made my ears ring. The crickets had stopped. The dogs were quiet. Not even the wind was blowing.  
+I glanced at the digital clock on the oven. 2:11 AM.  
+My phone vibrated on the counter. I looked at the screen to see a "No Service" warning. Frowning, I looked over at the living room. The steady green lights of my Wi-Fi router had turned a flat, unblinking red.  
+Then, I heard them.  
+Heavy, deliberate footsteps pacing over the gravel driveway.
+
+My blood ran cold. The nearest town was twenty miles away. There was no reason for anyone to be walking around my property in the middle of the night. The footsteps moved slowly, methodically, transitioning from the driveway onto the wooden planks of my front porch.  
+Whoever—or whatever—was out there was now standing right outside my front door.  
+I held my breath, pressing my back against the kitchen cabinets. I didn't dare move. I remembered Thomas’s warning. It doesn't matter what you hear. Do not look outside.  
+Then, something started lightly striking the glass of the living room window.  
+It was a gentle, rhythmic sound. It sounded exactly like a single fingernail testing the glass.  
+My heart hammered against my ribs. The urge to look, to just peek through the edge of the curtains and see who was trespassing on my property, was overwhelming. But the sheer terror paralyzing my limbs kept me glued to the floor.  
+The sound continued for exactly two minutes. Then, the heavy footsteps retreated off the porch, stepping back onto the gravel, and slowly fading into the silent woods.  
+Suddenly, the refrigerator hummed back to life. My phone chimed with a backlog of emails. Outside, the crickets resumed their chorus, and a dog barked in the distance.
+
+I looked at the oven clock. 2:14 AM.  
+I didn't sleep for the rest of the night.  
+The next morning, I marched right over to David’s house. I was angry, terrified, and desperate for answers. I pounded on his door until he finally opened it, looking pale and exhausted.  
+"What the hell is going on around here?" I demanded. "There was someone on my porch last night. The power cut out, the phones died, and someone was at my window. What is out there?"  
+David wouldn't look me in the eye. He stared firmly at his boots, his jaw clenched tight.  
+"Did you look out the window, Arthur?" he asked quietly.  
+"No! I remembered what you guys said. But you need to tell me what—"  
+"If you didn't look, then you are safe," David interrupted, his voice trembling but remarkably stern. "That is all you need to know. Do not ask questions. Do not investigate. Just keep your blinds closed and stay in your bed. We have an arrangement, and as long as you follow the rule, you will be fine."  
+Before I could say another word, he shut the door in my face. I heard the deadbolt slide into place.  
+For the next week, the torment became a nightly ritual.
+
+I couldn't sleep. I would sit on the floor of my bedroom, my back pressed against the wall, watching the clock. Every night, exactly at 2:10 AM, the suffocating silence would descend. The internet would die. And then, the footsteps would begin.  
+Sometimes they walked around the perimeter of the house. Other times, they stood right outside my ground-floor bedroom window. The rhythmic striking against the glass was always there. Sometimes it sounded like one finger. Other times, it sounded like a dozen long nails scraping gently against the pane, searching for a weakness.  
+It was driving me crazy. The isolation that had once felt like a sanctuary now felt like a prison. The not-knowing was carving a hollow pit in my chest. What was I hiding from? A local cult? A serial killer? Something worse?  
+It was the fourteenth night.  
+I was sitting in the dark of my living room, wrapped in a blanket, gripping a heavy metal flashlight. The clock on the wall ticked loudly.  
+2:11 AM.  
+The ticking stopped. The ambient noise of the woods vanished like a plug had been pulled. The oppressive, heavy silence rushed into the room, making my ears pop.
+
+2:12 AM.  
+The footsteps were on the porch. They stopped right outside the large bay window of the living room, mere inches from where I sat hidden behind the heavy fabric curtains.  
+The rhythmic sound against the glass began again.  
+I couldn't take it anymore. The fear was still there, a cold knot in my stomach, but the anger and the desperate need to know had finally boiled over. I was tired of cowering in the dark.  
+Slowly, carefully, I rose to my feet. I held my breath, stepping silently across the wooden floorboards in my socks. I reached the edge of the window.  
+The noise against the glass stopped immediately.  
+It was as if whatever was out there knew I was standing on the other side.  
+My hand trembled as I reached for the edge of the heavy curtain. I just needed one glimpse. I pulled the fabric back exactly half an inch and pressed my eye against the cold glass.  
+I don't know what I expected to see. A monster out of a nightmare. A man in a mask. A wild animal.  
+But what I saw shattered me far more than any monster ever could.  
+The front yard was bathed in the pale, eerie light of a full moon. There was no one on my porch. There was nothing standing directly outside my window.  
+Instead, my gaze was drawn out past my driveway, toward the neighboring properties.  
+There, standing in the cold, misty night, were Thomas, Martha, and David.  
+They weren't wearing pajamas. They were fully dressed in their day clothes. They were standing at the exact edge of their respective lawns, where the grass met the rough dirt road.  
+They were standing perfectly, unnaturally still. Their arms hung limply at their sides. Their heads were tilted slightly upward.  
+And they were all staring dead into the pitch-black abyss of the forest.  
+They weren't moving. They weren't breathing—I couldn't see a single plume of white breath in the freezing air. They looked like discarded mannequins, paralyzed by some unseen force, offering themselves up to the dark tree line.
+
+A wave of pure, absolute dread washed over me. The house wasn't cheap because it was a fixer-upper. It was cheap because they needed a fourth. They needed another body on this road.  
+I realized with a sickening drop in my stomach that the sound at my window wasn't meant to break in. It was a summons. It was an invitation to come outside and join them. Whatever they were looking at in those woods... whatever they were waiting for to emerge from the darkness... it was coming. And by looking out the window, I had acknowledged it.  
+I dropped the curtain and stumbled backward, falling hard onto the living room floor. I scrambled away from the window, pressing my hands over my ears, squeezing my eyes shut until the clock finally rolled over to 2:14 AM and the distant sound of a dog barking broke the terrible silence.  
+As soon as the sun came up, I made my decision. I had to leave. Immediately. The price of this cheap house was my sanity, and maybe my life.  
+I threw my most essential things into a duffel bag. Every minute felt like an hour. My heart was pounding out of my chest. I finally grabbed my bag, slipped out the back door, and crept through the shadows of the trees toward my car.  
+I let out a breath of relief once I was in the driver's seat. I put the key in the ignition and turned it.  
+The engine wouldn't turn over. Just a dead, hollow sputtering.
+
+Cold sweat broke out on my forehead. I took a deep breath, trying not to panic, and tried to turn the key a second time.  
+Suddenly, a sharp rap against my driver-side window made me jump out of my skin.  
+I whipped my head around to see David standing right next to my car. He had that terrifying, dead smile on his face, his eyes staring straight through me.  
+My hands were shaking as I rolled the window down just a fraction of an inch.  
+"Having some trouble, Arthur?" he asked in a perfectly calm, polite voice. "Need some help?"  
+I forced my muscles to relax, trying desperately to keep my voice steady. "No, no, everything's fine," I lied, managing a weak smile. "Looks like the battery just died. Don't worry about it."  
+David slowly nodded. The dead look in his eyes never wavered. "Shame. It's hard to find help out here," he said. Then he turned and walked heavily back toward his property.  
+I knew it then. He had sabotaged my car. They didn't want me to leave.  
+I ran back inside and locked every door. Panic was fully setting in. After hours of searching on my laptop via a spotty satellite connection, I finally found a mobile mechanic named Mike in the next town over. He quoted me a ridiculous price, but I agreed instantly.
+
+Mike arrived in the late afternoon in a quiet, beaten-up van. I rushed out to meet him.  
+"Keep it quiet," I whispered, scanning the neighboring yards. "I'm having a dispute with the neighbors, and I don't want them knowing my business. Just fix it as fast as you can."  
+Mike gave me a weird look but popped the hood. A few seconds later, he frowned.  
+"Your battery cables are cut," he said, looking totally confused. "Who does something like that?"  
+"Just do your job, man," I replied.  
+In the distance, I could see Thomas sitting on his porch with a newspaper, but I could feel his eyes burning into us. My heart was in my throat. Every passing minute was inching closer to the night.  
+Finally, Mike finished up. Hearing the engine roar to life was the best thing I had ever experienced. I tipped him heavily, and he drove off.  
+I didn't even go back inside the house. I sat in my car, doors locked, waiting for nightfall.  
+By 1:30 AM, the lights in the neighbors' houses were completely dark. I shifted into drive and let the car roll slowly down the gravel road without turning my headlights on, navigating purely by moonlight. The dark woods seemed to close in around me. I held my breath as I passed David's cabin, but there was no movement.
+
+Once I hit the main highway, I flipped my headlights on and slammed the gas pedal. I watched the speedometer climb. The faster I drove, the more the suffocating terror in my chest dissolved into pure, euphoric relief. I had escaped. That cursed house, those insane neighbors, the dark woods—it was all behind me. I even started laughing hysterically.  
+I drove for hours without stopping, refusing to look in the rearview mirror. By early morning, I reached Seattle. I wanted to be as far away from that woodland silence as possible. The noise of the city, the concrete buildings, the streetlights—it all made me feel incredibly safe.  
+I immediately rented a bright, new apartment on the 15th floor right downtown. Looking down at the busy, noisy streets, I took a deep breath. I was untouchable up here. Whatever rules applied to that remote patch of forest had no power in the city.  
+That night, I took a long, hot shower and collapsed into bed with the television playing softly in the background. The distant sounds of traffic and city life were a lullaby. For the first time in days, I felt myself drifting off into a peaceful sleep. My eyelids grew heavy.
+
+And then... the sound cut out.  
+The television screen went entirely black. The noise of the cars on the street below, the wind against the building, the faint sounds of my neighbors through the walls—it all vanished in a fraction of a second. The room was instantly swallowed by that same heavy, ear-ringing, pressurized vacuum of dead silence.  
+Ice water ran through my veins. With shaking hands, I grabbed my phone from the nightstand.  
+2:11 AM.  
+I shot up in bed. This wasn't possible. I was miles away. I was in a concrete tower on the fifteenth floor!  
+Then, the noise started.  
+A soft, rhythmic scratching against my bedroom window.  
+My breath caught in my throat. My lungs felt like they had turned to stone. Who—or what—could possibly be at a window fifteen stories up in the air? I wanted to scream, but my vocal cords were completely paralyzed.  
+Gasping for air, my eyes snapped open. I threw myself out of bed, drenched in a cold sweat.  
+My chest was heaving. I blinked rapidly, taking in my surroundings. The room was bright. Warm morning sunlight was pouring through the window. The local news was playing on the TV, and I could clearly hear the honking of cars and the bustle of the city streets below.  
+I looked at the clock: 8:30 AM.  
+I covered my face with my hands and let out a massive, shaky breath that drained the remaining tension from my body. I started laughing. Tears of sheer relief pricked my eyes. It had just been a nightmare. A lingering trauma response from the sheer terror I had lived through over the last few weeks.
+
+It was over. I was actually safe. The forest, the cursed house, my dead-eyed neighbors—they were all gone from my life. I could finally move on.  
+But if there is one piece of advice I can give to anyone listening to this, it's this.  
+If you ever see a real estate listing—online, in a paper, or on a sign off some remote country road—for a house that is insanely cheap, almost suspiciously affordable... stop. Do not buy it immediately. Do not let a bargain blind you to reality. Go look at the property. Check the surrounding area. Meet the neighbors. Dig into the history.  
+Because sometimes, a house isn't cheap just because it needs a new roof or some fresh paint. Sometimes it's cheap because the house doesn't actually need a buyer. It just needs fresh bait for whatever is waiting in the dark.

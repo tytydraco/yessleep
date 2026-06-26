@@ -154,7 +154,7 @@ Elena packed one bag. I carried Ofelia to the truck while she sobbed into my nec
 
 We drove across the island and stayed with Elena’s sister.
 
-Don Pedro called to tell us more goats were dead. Then dogs. Then a man nearby swore he heard a baby crying near the trees.
+Don Pedro called to tell us more goats were dead. Then a man two houses from us swore he heard a baby crying near the trees.
 
 That night, Elena found something outside the apartment door.
 
