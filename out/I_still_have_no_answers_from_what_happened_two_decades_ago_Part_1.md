@@ -104,7 +104,7 @@ Wan leaned out the window.
 
 "You're my bro, right?" Wan called out. "If anything happens, you'll cover me, right?"
 
-I was staring at the ground. Mind blank.
+I was staring at the ground. My head was empty.
 
 "Right?!"
 

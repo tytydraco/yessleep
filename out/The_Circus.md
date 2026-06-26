@@ -1,56 +1,241 @@
-
-I vividly remember that day as if it was yesterday and not three years ago. I was walking down the streets when a brightly colored poster caught my eye. It was uncommon for this stretch of sidewalk and cracked pavement to have multiple posters of job applications, makeshift wanted posters, and “help wanted” signs, but this one looked different. Its bright and vibrant color displayed what looked to be the poster of a movie. Upon closer examination, I could see it was for a circus. 
-
-“The Barratos Circus,” it read. “An experience you won’t forget!” Underneath the fairly low ticket prices, there were two words: “HELP WANTED” in gold leaf print. 
-
-Before that day I was always a sucker for the circus. The beautiful gymnasts, the hilarious clowns, and the varieties of animals that they never failed to entertain the crowd… I loved them and suddenly my job at the corner store seemed like a past life. I called the number on the poster and I was given a location to meet at. 
-
-The location was on the outskirts of the town, where it looked like the circus was setting up shop. They already had the tents pitched and roustabouts were putting up colored flags outside what looked to be the big top. 
-
-A tall man dressed in a suit, flanked by two roustabouts, came walking over to me as I got out of my car. “You must be Jimmy,” he said, holding out a slender hand. “I’m Edward Barratos. It’s a pleasure to meet you. It’s not often that people often volunteer to help-we’ve been self-sustained for quite some time but recently we’ve been suffering… shortages.”
-
-I smiled. “Well I’m willing to help if you guys are willing to let me. I loved circuses when I was younger-it would be my dream to work at one.”
-
-I expected Barratos to smile at my mentioning of working at a circus. Instead, he simply raised his eyebrow. “Jimmy, I hope you read our motto. When we mean ‘An unforgettable experience,’ we mean it. That is why we will give you a tour of our grounds and give you an option on whether you want to really join our organization.”
-
-“Sounds good,” I said. “When do we start?”
-
-“Follow me.” I walked with Barratos behind the big top, where a smaller collection of tents were set up, presumably for the many different acts and workers. The first tent we walked into was most likely the gymnasts’ tents. Inside, a troupe of young girls were stretching and by stretching, I mean there were girls who looked no older than ten using two or three of those split blocks. Our back, there was a miniature trapeze set, where even more gymnasts were practicing their routines and flips and such. 
-
-As I watched, one of the girls tried flying from one trapeze to another, only to miss the bar and fall. At the bottom was a series of mats for the gymnasts to land on, but the girl evidently landed wrong. I heard a loud and ugly snap, and she stumbled and fell off of the mat. 
-
-I rushed over with Barratos and a few other gymnasts. The girl was lying on the ground, clutching her leg. A bloodied white splinter protruded from her calf and she was tearing up, obviously in excruciating pain. 
-
-“Oh, dear, Ms. Spycer,” Barratos said. “Missed the landing, did we?” 
-
-One of the other gymnasts grimaced. “Sir, it’s bad. With something like this, she’ll be able to walk again, but not perform.”
   
-Barratos shook his head. “A shame.” He reached into his pants pocket and, to my shock, drew a small revolver. The girl raised her hand and screamed, but it barely lasted long as Barratos pulled the trigger, silencing the horrible noise.  
 
-“You…” I muttered numbly. My ears were still ringing from the gunshot. 
 
-“Yes, yes… sorry about that, Jimmy.” Barratos put the revolver away and shook his head. “We have a zero tolerance policy for failure. Nothing will slow our potential down. Now come. There is much more to see.” 
+“This is the circus, sir.” 
 
-I found myself following the man. Every bone in my body wanted to leave right now, but this man had just executed another human being right in front of my eyes. I would most likely suffer the same fate. 
 
-We walked into the next tent, which housed The Bearded Lady, according to the sign outside. I could smell food from inside, and my stomach gurgled even though a meal was hardly on my shocked mind. 
 
- The most enormous woman I had ever seen was sitting at a table, and she was absolutely shoving her face full of food. Entire plates were gone in seconds, bowls emptied in the blink of an eye. 
+Julie told the man, who was standing and mumbling, and unable to make sense of what she meant.
 
-“Hello, Amara,” Barratos called. At the sound of his voice the woman jumped… or at least she tried. Then, she began heaving and vomiting all over the plates in front of her. Then, to my horror and disgust, she began shoveling the regurgitated food back into her mouth. It was as if she was in a trance… like she was frightened, almost. 
 
-We continued on the tour, and each sight I saw was sadder than the last. The worst was arguably the clowns’ tent. Underneath the layers of makeup they wore, they were bruised and beaten. In a corner of their tent was the “time-out corner” which consisted of little more than a bed with shackles and a wall full of sordid devices: ball gags, whips, handcuffs… 
 
-Finally, the tour ended, and Barratos led me into a trailer near the big top. We sat down at a mahogany desk, and he laced his fingers together. “So, Jimmy,” he said. “Any thoughts you’d like to share before you make your decision?”
+”There ain’t no other circus in this town. This here’s the only one,” Julie said grinning.
 
-“You can’t…” My lips wouldn’t work. “This isn’t… normal. It’s not… it’s not-“
 
-“Right?” Barratos smiled thinly. “Jimmy, our organization has a standard. We demand the highest of work for those whom we have… gainfully employed. And it has paid off. It has lined out pockets, made us more successful than the most raunchy adult film industry.  All of our performers are handpicked at a young age… it’s amazing to see what people will do for money. It might seem sordid to you, my fellow, but to us… it’s just good business.” He snapped his fingers, and one of his roustabouts reached under the desk, pulled out a duffel bag and placed it in front of me. Then, he unzipped it. Inside were rolls upon rolls of cash. 
 
-“Here is where you decide whether to join us or not,” Barratos said. I couldn’t take my eyes off the money as I mumbled “And if I don’t?”
+“The circus! There’s something there,” whispered the stranger. 
 
-Barratos gave me another thin smile. “Then this should be compensation enough for the sights you have witnessed.” Should you attempt to tell anyone… things would get… messy.” I could see one of his hands moving towards his pocket where he had placed his revolver. This was bribe money and I knew it. But I couldn’t stay and witness these horrors every day. I also couldn’t bear the people here being treated the way they were, but this… monster… he was going to gun me down if I talked. 
 
-Three years later, I had moved away from that accursed state and I had a job at a well-paying institution. I was walking to my favorite coffee shop when I noticed a familiar poster on the wall of a nearby recreation center. “The Barratos Circus,” it read. And underneath, in that very familiar print, I saw the words: “An experience you won’t forget!”
 
-I never did. Now who could that be, knocking on my door?
+“I have to get there!” He scratched his eyebrow, staring at Julie.
+
+
+
+”Will you take us there?” He asked with a cold stare in his eyes. It was blank. It had the look of a missing soul.
+
+
+
+“To where?” Julie spat out stepping back.
+
+
+
+She said with her lip curled, “The circus?” 
+
+
+
+She squinted at the man and told him, “You’re at the circus, sir. Look!”
+
+
+
+“We have to get there, please lead us there. The orange-faced Newekwe wants to see us,” The man said in a voice that echoed underneath his words.
+
+
+
+“*Julie*!” Screamed out a boys voice.
+
+
+
+Julie turned and saw Billy rushing towards her. Billy is her brother. Billy asked her, “What are you doing here?”
+
+
+
+“Uhm,” she said. “That strange man there.” 
+
+
+
+She pointed behind her, “I was talking to him, he seemed lost and kept saying we had to get to the circus.”
+
+
+
+“The circus? We’re at the circus. What man?” Billy asked.
+
+
+
+“That man right there.” She made a fist and pointed with her thumb over her shoulder at an empty space. 
+
+
+
+“Am I losing my mind?” She looked around. 
+
+
+
+“He was right there, didn’t you see him?” Her chest tightened as a gust of wind blew her hair in her face.
+
+
+
+“I only seen you, but I wasn’t looking anywhere else,” Billy told her.
+
+
+
+“What..? Wait..? What? That was weird,” she said, staring over her shoulder as they walked away.
+
+
+
+“Mom. Dad. I found Julie,” Billy said, holding a soda and a piece of Julie’s sleeve in his hand.
+
+
+
+“Where did you go?”  Her mom asked.
+
+
+
+“I was over there,” she said, pointing to a red tent without looking. 
+
+
+
+“What were you doing at that tent” her mom questioned her.
+
+
+
+“What tent?” She turned and saw a massive red tent.
+
+
+
+“Wait… that wasn’t there before,” she mentioned, shivering at a chill creeping down her spine.
+
+
+
+
+
+“Ok dear,” Her mom said.
+
+
+
+Then, she shot a comment to her father who was watching a guy at a high striker challenge attempt to smash a giant mallet down on a lever and ring a bell with a puck at the base of the frame.
+
+
+
+“Bill, I think we’re ready to go home now, I still have stuff to do around the house and it’s a quarter past ten,” said Julie’s mom.
+
+
+
+“Yeah, just be a few more minutes,” her dad told her mom with his eyes on the mallet striking down on a lever.
+
+
+
+The wind blew a heavy, choking gust that felt like she had her head out of a window in a moving car speeding down the highway. She gasped as the wind pushed the air back into her lungs and blinked. She opened her eyes to an icy chill biting into her bones. The circus had vanished, and transformed into dimly lit room with dancing, black candle flamed shadows on the walls of a red tent. 
+
+
+
+Circling her surroundings with her head, she twisted herself into a three-sixty.
+
+
+
+*“Hello!”* she cried out. “Billy? Mom? Dad?” She shouted. 
+
+
+
+Behind her, a clinking sound rattled like vibrating metal. She spun around.
+
+
+
+“Welcome to the red tent hyper-bowl circus.” A robotic voice sounded out of a human shaped figure with an orange, boney  face. He looked like a Pez dispenser.
+
+
+
+“The what?” said Julie. 
+
+
+
+“How did I get here? How do I get out of here? I gotta get back,” she told him.
+
+
+
+“Follow the red light,” said the robotic man.
+
+
+
+Through the peripheral of her eye she caught a red laser like pointer light, it flared up above a small crawl space shaped in a square.
+
+
+
+“I’m not going through there,” she said, turning to face the man, who just disappeared.
+
+
+
+“Where’d he go?” she asked herself.
+
+
+
+———-
+
+
+
+“*Billy*!” *Jesus*! Where the hell’s your sister?”
+
+
+
+“I dunno ma, she was here a minute ago,” he said shrugging his shoulders.
+
+ 
+
+“I told you to keep an eye on her,” Billy’s mom sniped at him.
+
+
+
+Billy stared back at her with a blank expression and stood there for a second after his mom yelled, “*Go find her now!”* 
+
+
+
+She turned to her husband, “Bill. Bill. *Bill!”* she shouted, backhand slapping his chest.
+
+
+
+“Jesus, what is it, Hel?” He asked.
+
+
+
+“*What is it?* Seriously? Your daughter ran off somewhere, is what it is. Why don’t you try paying more attention to your goddamn family,” she stated with her face glowing a tomato red.
+
+
+
+Billy darted off.
+
+
+
+*———*
+
+
+
+Inside the tent, Julie attempted to claw her way out and escape without having to crawl through that crawlspace. But, the material was too think.
+
+
+
+*“Billy!”* She cried out.
+
+
+
+In the corner of the room, tucked in a dark shadow, hidden from sight. A giggling sound rumbled. It had the tone of a kid, about a couple years younger than her, she thought. Julie is in 9th grade. 
+
+
+
+“Hello?” She hesitantly called out.
+
+
+
+The giggling ended mid-laugh. 
+
+
+
+“Hi,” bounced out of a dark corner, hopping out of the shadows, was a chest-high mechanical clown child. The small bot watched as Julie reached around and into her pants she dug and turned around and with her daddy’s .357 blew a hole right through that mechanical boy-clowns skull and it bled a hot oil that sprayed Julie in the face, but to her, it felt like a hot relaxing shower, and reminded her of the mist from beach-water on a hot summer day tanning on top of a towel laying on a bed of sand. 
+
+
+
+Billy heard the shot and turned and saw a tent open up, he charged inside and behind him it closed. He looked ahead, “Julie? What the hell are you doing?” 
+
+
+
+Her face was deep in the stomach of the mechanical boy clown bot. She looked up at her brother, “look Billy, cotton candy.”
+
+
+

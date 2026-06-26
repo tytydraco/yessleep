@@ -64,7 +64,7 @@ Dean slapped me on the back and we walked outside to the backyard and I looked i
 
 “Rob, you and Lucas will seek and me and Matt will hide”.
 
-“Why are we the seekers?” I said. 
+“Why are we the seekers?” I said.
 
 “Because I said so, I’m the group leader right?”
 
@@ -116,11 +116,11 @@ He had a point so I agreed to split up. If they did end up going past the shed i
 
 I felt the absence of my friend instantly. It was very quiet in there and I felt as if I was being swallowed by the darkness, even with the flashlight. I searched different corners, behind trees and bushes but I still couldn’t find anyone. I pulled out my phone and texted Dean.
 
-*‘Did you dumb fucks go past the shed?’*
+‘Did you dumb fucks go past the shed?’
 
 He replied only a couple seconds later.
 
-‘*Don’t know. Come find us’*
+‘Don’t know. Come find us’
 
 I was pissed. I had a feeling they would break the rules and now the game was going to take a lot longer than I anticipated, all because they couldn’t handle one simple demand.
 

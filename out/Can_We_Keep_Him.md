@@ -8,7 +8,9 @@ At the time, that sounded sweet.
 
 By the time Ofelia was six, it scared us.
 
-Ofelia befriended everyone. The mailman. Stray dogs. Tourists who turned around in our driveway. She had a round face, a wide smile, and a voice that made strangers stop to listen. She struggled with numbers but knew the lyrics to every Bad Bunny song.
+Ofelia had a round face, a wide smile, and a voice that made strangers stop to listen. She struggled with numbers but knew the lyrics to every Bad Bunny song. She also had no grasp of stranger danger. 
+
+She befriended everybody. The mailman. Stray dogs. Tourists who turned around in our driveway. 
 
 My wife, Elena, worried constantly.
 
