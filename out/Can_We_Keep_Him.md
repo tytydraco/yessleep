@@ -6,17 +6,17 @@ He explained she would have developmental delays. She might have heart problems.
 
 At the time, that sounded sweet.
 
-By the time Ofelia was six, it scared us.
+By the time Ofelia was six, it terrified us.
 
-Ofelia had a round face, a wide smile, and a voice that made strangers stop to listen. She struggled with numbers but knew the lyrics to every Bad Bunny song. She also had no grasp of stranger danger. 
+Ofelia had a round face, a wide smile, and a voice that made strangers stop to listen. She struggled with numbers but knew the lyrics to every Bad Bunny song. She also had no grasp of stranger danger.
 
-She befriended everybody. The mailman. Stray dogs. Tourists who turned around in our driveway. 
+She befriended everybody. The mailman. Stray dogs. Tourists who turned around in our driveway.
 
 My wife, Elena, worried constantly.
 
 “You can’t hug every person you meet,” Elena would say.
 
-“But they look sad,” Ofelia would answer.
+“But, Mami, they look sad,” Ofelia would answer.
 
 We lived in the mountains of Puerto Rico, where the roads twisted and the nights were loud with coquí frogs. Our house sat near my father’s old chicken coop and a small patch of plantains.
 
@@ -40,7 +40,7 @@ I grabbed Ofelia.
 
 “Inside,” I said.
 
-“But Papi, he’s nice!”
+“Papi, he’s nice!”
 
 The thing hissed.
 
@@ -84,7 +84,7 @@ Her face crumpled. That was the hard part with Ofelia. She felt everything all a
 
 Elena dropped the plate she was washing.
 
-“What do you mean he said?”
+“What do you mean ‘he said’?”
 
 Ofelia looked confused, like we were the ones not making sense.
 
