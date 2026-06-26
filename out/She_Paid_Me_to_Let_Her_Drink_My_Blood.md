@@ -1,0 +1,305 @@
+I’ve never known what it’s like to have a lot of money. My life has always been spent living paycheck to paycheck, and any time I’ve ever found myself with any surplus of funds, it’s always wound up having to go to some unexpected bill that decided to pop up out of the blue, seemingly with the express purpose of robbing me of my safety net. Usually I spend a few months stressing over my drained bank account, dreading that I’ll wind up taking another hit, until my balance is able to recover slightly, and I can allow myself to relax. But the threat of another financial blow is always looming overhead, just out of reach, waiting to strike when I least expect it. I tow an incredibly thin line along the edge of poverty at all times, but somehow I’ve managed to get by.
+
+Until recently. Recently I experienced the dreaded double whammy of two major expenses that happened to hit me back-to-back, and the account balance that had always been hovering dangerously close to zero finally crossed over that threshold for the first time. I was completely broke. In fact, I was *worse* than broke. I didn’t even have the privilege of having an empty bank account. My balance was in the negatives, and I had no idea how I was going to correct it.
+
+So when I finally saw my opportunity to get out of the red, I took it without hesitation.
+
+I had been donating plasma at the local blood bank for a few months on top of working my full-time job just to try (and fail) to make ends meet. The extra money was nice, but it wasn’t nearly enough to get me out of the hole that I was in. Still, anything at all helped, and if I got to make some extra cash while spending an hour or so talking to Star, the cute technician who usually drew my plasma, then I guess I couldn’t complain.
+
+Star and I had gotten to know each other fairly well over the last handful of months. I eventually started to develop the sneaking suspicion that she had a thing for me, but I did my best not to confuse her professionalism with flirtatiousness. I worked so hard to convince myself that she didn’t have a crush on me, that I wound up being overly surprised when she suddenly noticed my change in demeanor when I came in for my first appointment since entering my financial crisis.
+
+“Are you feeling okay?” she asked after an uncharacteristically long period of silence.
+
+I was sitting in the patient room with a needle stuck in my arm, and had been zoned out and thinking about how much trouble I was in when she spoke. Her words snapped me back into my body, and I looked at her through my departing daze. “What was that?”
+
+“I asked if you’re feeling okay,” she said. “You’re usually more talkative than this. You don’t feel faint, do you?”
+
+I was slightly taken aback by her concern. The fact that she had noticed my change in demeanor made me wonder if I had been right about her having feelings for me after all. Looking back, I’m sure this small display of intimacy is what caused me to open up to her so quickly, despite not knowing her at all outside of our interactions at the clinic.
+
+“Sorry,” I said with a weak smile. “I guess my mind is somewhere else today.”
+
+“Do you want to talk about it?” she asked.
+
+Normally I would have hesitated, but her display of concern only further loosened my tongue. “I guess I’m just a little worried about my finances right now,” I said bluntly. “My bank account took a pretty big hit the other day, and well… I’m trying to figure out how I’m going to come back from it.” I sighed. “I wish I could give plasma more than a couple of times per week. That could really make a difference.”
+
+Star allowed a brief pause. When she next spoke, her words were tinged with a coyness that I would not have expected from her. “Well, maybe there’s a way that you can.”
+
+I frowned at this. “I don’t see how that’s possible. Unless I’m somehow missing something, I’m pretty sure I’m already donating the maximum amount each week.”
+
+“Well yeah, you are, but…” Again she paused. “Well, what if I told you there was somewhere else you could make a donation? Somewhere whose records would never intersect with those of another blood bank?”
+
+“I’d say you were pulling my leg,” I said with a half chuckle. “That sounds too good to be true.”
+
+“Maybe not,” Star said. She then took a moment to gather her thoughts before continuing. “So listen, I kind of have this side job at another place—you can call it a private business. They take full blood donations—not just plasma—and they pay a whole lot more than this place does. If you want, you can come by and we can see if you’re eligible to start making donations.”
+
+“That sounds illegal,” I said without thinking.
+
+“I wouldn’t exactly call it above board,” she said with a playful smirk, “but it’s pretty lucrative. The first donation gets you 500 bucks.” She took a moment to linger on this revelation. “Are you interested?”
+
+I was floored. 500 dollars for a single donation could just about get me out of the red. And yet still it seemed far too good to be true. Was I desperate enough to go to some shady, under the table donation center and risk my wellbeing just to earn some half-decent money for a change?
+
+Yes, I very much was.
+
+“I’m interested,” I told her.
+
+We exchanged cell phone numbers, and after finishing with my donation, I left. Later that night she called me and gave me an address that we agreed to meet at in three days, on one of her days off from her job at the blood bank. Three days later I found myself pulling into the faded, empty parking lot of an old, rectangular brick building that, if I had passed it on any other day, I would have assumed it to be abandoned. The sun was setting as I stepped out of my car, the sky above me already in the midst of dying itself a deep violet. Long shadows buried the building beneath their weight, giving it an even more forsaken look than it already would have during the day. A single door adorned one corner of the structure; the remainder of the front wall held a long, dirty window that looked to have not been cleaned in a very long time. Even if I could have seen past the grime on the glass, the window was also obscured by a thick off-white curtain that eliminated any sort of preview into the building. I wouldn’t know what was inside it until I stepped beyond the threshold.
+
+I stood outside of my car and stared at the building for a good minute while the sun continued its descent over my head. Part of me felt incredibly hesitant to enter that near-derelict structure, but a much larger part of me—the part that was spurred on by the thought of earning a quick 500 bucks—convinced me to take my first steps toward the waiting entrance. I only lingered at the door for a brief moment before I opened it and stepped inside.
+
+The building’s interior, while definitely looking to be at least a few decades out of date, was far different from what I expected. No long, forgotten cobwebs lingered in the corners of the room collecting the dust that drifted through the air, and no splashes of crude or obscene graffiti painted the dirty, crumbling walls. I found myself standing in an antiquated but clean, tidy, and well-lit waiting room. It was complete with several empty chairs along the walls in front of which was an aging coffee table that was covered in neatly stacked magazines. An old tube TV was suspended in one corner of the room. It was turned on and was displaying a program in an aspect ratio that modern television has long since left behind, creating an awkward crop that cut off either side of the show currently airing on mute.
+
+Standing behind the nearby reception desk was Star. She had her face buried in her cellphone, but when she noticed me she placed it onto the table and offered me a smile.
+
+“Hey,” she said. “I’m glad you made it.”
+
+“I’m glad to be here,” I said awkwardly. The aesthetics of the antiquated waiting room did nothing to subtract from her beauty, and in fact I was only further reminded of how attractive I found her. Being there alone with her in that strange, empty place felt oddly intimate in a way that I wasn’t expecting.
+
+Star stepped out from behind the desk. “If you’re ready, you can come right this way.”
+
+She began walking down a hallway on the far side of the waiting room. I squared up next to her and looked at her as I spoke. “Don’t I have to fill out some paperwork or anything?”
+
+Star half-suppressed a chuckle. “No, we don’t worry about stuff like that here,” she said.
+
+Looking back, these words likely should have served as my first and only warning to get out of there, but if her beauty hadn’t been enough to settle my mind, then the ease of this whole process did the trick. No paperwork was a good thing, I told myself. It meant I could get in, get my 500 bucks, and get out that much faster.
+
+And in the end, the process really was incredibly fast. Star led me into a patient room, which looked far more modern than the waiting room had, and she quickly set me up in my chair and got a needle into my skin just as she had so many times at the blood bank. We proceeded with our usual banter while the tube connected to my arm drew a small amount of crimson essence from my body. The process of drawing whole blood was much quicker than drawing plasma (we also didn’t even fill a quarter of the blood bag), and within ten minutes I was back on my feet in the waiting room with a small stack of twenties in my hand. I didn’t count the money right then and there (I didn’t want to be rude), but when I got to my car later I confirmed that Star had in fact given me the full 500 dollars.
+
+“That was it?” I said when we were standing in the waiting room.
+
+“That was it,” she said. “Pretty easy, huh?”
+
+“*Extremely* easy,” I said. “When uh, when can we—when can *I* do this again?”
+
+“I have to meet with my boss,” she said. “I’ll call you and tell you what he says. If things wind up going well, then you can expect to start making weekly donations here very soon—and start earning a lot more money while doing it, too.”
+
+Something about the way she said this unsettled me slightly, but the dollar signs in my eyes—as well as the slight glint in *hers*—helped me to quickly banish this unpleasant sensation.
+
+Star wound up calling me again exactly a week later. I was excited to hear from her, both because I missed interacting with her and because I was feeling especially strapped for cash. That 500 dollars plus the money I earned from donating plasma in the week since hearing from her had helped me to crawl out of the hole I was in, but I was still living on the edge of falling right back into it. Star hadn’t been the tech at the blood bank on either day that I went in that week, so I figured she must have taken some time off.
+
+She asked me if I could come in and donate blood again that very evening. I had plans that night, but I figured I could push them back by an hour or so if it meant earning some more cash, so I told her that I could. I arrived at that old clinic and we went about the same routine as we had the previous week, but this time I was pleasantly surprised when Star told me that this time I would be earning 1000 dollars instead of 500.
+
+“I told you you could start making a lot more money doing this,” Star said playfully when she saw the confusion on my face.
+
+“I didn’t think it would be *that* much more,” I said.
+
+“I figured it would be a nice surprise,” she said. “Same time next week?”
+
+I nodded eagerly, accepted my money, and went on my way. The next week she called me again to confirm my appointment, and I went in just as I had the previous two times. I was slightly disappointed to learn that this week’s payment remained the same as the previous week’s, even though I really shouldn’t have been. 1000 dollars per week to give a small portion of my blood was an incredible opportunity for me. I was suddenly making more money than I ever had before in my life, and for absolutely no effort. I didn’t know how long this arrangement would last, and I knew I needed to be grateful for every moment I was involved with it.
+
+But then the next week arrived, and everything in my life suddenly changed.
+
+Star had called me to confirm that I would be coming in later  that day, and I arrived at my usual time. I found her behind the reception desk like usual, and she led me back to the patient room as she had multiple times before. I expected the rest of our interaction to proceed as normal, but once we stepped into that usual room, things began to change.
+
+Because  sitting in my familiar chair was a very unfamiliar face.
+
+The woman looked at me and smiled as I entered the room. She appeared to be anywhere from five to fifteen years my senior—her exact age was difficult to pin down. What *was* apparently obvious was her beauty, as was the warmth and kindness that seemed to radiate from her lovely smile.
+
+“This is Dr. Bell,” Star said as she closed the door behind us.
+
+The doctor rose to her feet. “And you must be the young man Star has told me about,” she said. Her voice sounded like a silk thread kissing a harp string. “The one who has been so generous with his blood donations recently.”
+
+“I’m glad to help,” I said awkwardly. I decided not to mention what my two main incentives for all of those donations had been. At the sight of Dr. Bell, I was immediately beginning to forget about one of them.
+
+“You’re probably wondering why I’m here,” she said.
+
+“I admit that I’m curious,” I said.
+
+“Well then I suppose I’ll just come out and say it,” Dr. Bell offered. “The blood you have been donating for the last handful of weeks… well, it’s all gone directly to me.”
+
+This news surprised me, but I felt I needed to resist the oncoming confused frown—to have allowed it to form upon my face would not have befitted present company. “Directly to you?” I repeated. “Why have you needed my blood?”
+
+“To live, of course,” she said, the smile never leaving her face. “After Star brought me that first sample, I knew that your blood was a perfect fit for me, and so I simply had to have more of it.”
+
+I was even more taken aback by this strange admission, but the discomfort it made me feel seemed to exist at arm’s length, as if it were on the other side of a mosaic shower door. It was for this reason that I was able to continue the conversation without immediately diving into any questions. It felt risky to do so, as if to challenge our arrangement in any way would mean to immediately bring it to an end.
+
+“Well I’m glad you think so highly of me,” I said.
+
+“Of your blood, specifically,” she said with an almost musical playfulness to her words, “but now that I’ve met the donor, I believe my opinion of him is destined to match that of what he has given me.”
+
+I stood smiling dumbly for a few awkward moments before speaking again. “So, did you come to assist with the blood drawing today?”
+
+“Oh, no,” Dr. Bell said with a chuckle, “that’s what I have Star for. No, I’m here to make a bit of a strange request. I was actually hoping you would be alright with giving me your blood directly today.”
+
+This time I finally did frown, but the expression didn’t last for long. “Directly?”
+
+“Yes,” she said. “Directly—as in, through a direct transfusion from you to me.”
+
+“Oh,” I said. “I uh… I didn’t realize people still did that.”
+
+“You don’t see it much in modern medicine,” the doctor said. “Almost all transfusions into a patient are done through pre-collected blood bags. That said, I tend to be a bit of… well, of an experimenter. I get the sense that I’ll enjoy more benefits from your blood if you’ll allow me to receive it directly, while it’s at its most fresh. What do you think? Feel free to say no—although I’ll tell you now that I’m willing to pay 3000 dollars for this particular donation.
+
+The number had shocked me at the time, but looking back on it now, something tells me that she probably could have asked *me* to pay *her* to give her my blood, and I likely would have accepted it. A few minutes later we were each sitting on either side of a single blood bag (me in my usual spot, Dr. Bell in a chair that Star had brought in from the waiting room). Dr. Bell remained silent as the transfusion went on, leaving Star and me to proceed with our usual banter while the procedure was underway. When the donation was complete, Star disconnected us from our needles, and the two of us stood from our spots.
+
+“Thank you again,” Dr. Bell said to me as she personally handed me a thick brown envelope filled with what I knew had to be my three grand. “And thank you for indulging my strange request.”
+
+“Not a problem,” I said. “Hopefully I’ll see you again soon.”
+
+“Oh I’m sure you will,” she said. “I’m sure you will.”
+
+Dr. Bell stayed in the patient room while Star led me out into the lobby. We came to a stop as we neared the exit and my companion turned to look at me. “Same time next week?”
+
+“Yeah,” I said eagerly. “See you then.”
+
+I stepped through the waiting threshold and left the clinic behind for another week.
+
+The more days that passed, the more unsettled I felt by the incident with Dr. Bell. Both she and Star had been more than accommodating, but something about the entire ordeal began feeling wrong to me. I got to the point that, by day six, I had convinced myself that I was going to break off my arrangement with the two women. I would miss the loss of my newfound income, but a voice in the back of my mind told me that it was the right thing to do.
+
+That same voice, which had once been so loud and insistent for the last few days, remained completely quiet when Star called me to confirm my appointment. By the time I was walking into the clinic, it was as if the voice had never been there at all.
+
+But it reared its ugly head again just as soon as I heard Dr. Bell’s next request.
+
+“You want to suck the blood straight from the bag?” I said. The words actually made me feel dizzy, and I feared that I would pass out right there on the clinic floor. I thought that surely I had misheard or misunderstood Dr. Bell’s request, and she would immediately set me straight. But evidently I had heard her just fine.
+
+“Yes,” she said. Her kind eyes did wonders to settle my spinning mind. “You can consider it a sort of experiment that I wish to conduct. I know it sounds especially strange, and you can absolutely feel free to tell me no, but I think that 10,000 dollars may just convince you to see things my way.”
+
+My head continued to spin, but for an entirely different reason now. Ten grand was an unfathomable amount of money to me. To turn such an offer down would surely have been the biggest mistake of my life. More than that, I couldn’t stand the thought of disappointing the lovely woman standing before me.
+
+And so I immediately acquiesced.
+
+Dr. Bell stood by while Star hooked me up to the blood bag. Things seemed fairly normal at first; Star and I began our usual conversation while the doctor stood by quietly. It almost seemed like any other appointment, and I even began to relax a little as my nerves over the strange situation began to ease. 
+
+But then Dr. Bell stepped forward and brought her mouth to the bag.
+
+She had waited until my red liquid had started to pool in the bottom of the container before making her approach. I expected her to open the bag’s second port and begin her meal from there, or at the very least to create a small incision in the bag with a scalpel or something, but she did neither of these things. Instead she leaned forward, bit directly into the bag, and began to suck. 
+
+Her behavior caused me to pause my conversation with Star mid-sentence. At first I was surprised by her teeth’s ability to so effortlessly puncture the bag, but this feeling quickly faded as I was forced to listen to the sound of her putrid, wet, messy slurping. I’m sure that Star could see the disgust that was scrawled over my face, but she didn’t acknowledge it. Instead she picked up our conversation where I had left it, and I felt obligated to do the same. I managed to pay enough attention to her to keep the words flowing, but I never once managed to get Dr. Bell’s wretched act out of my mind.
+
+When the older woman was finished, she pulled her mouth away from the blood bag and offered me a crimson-stained smile. Her lips and surrounding face were all caked in the red water. She licked her lips once with a quick, slender tongue before speaking.
+
+“Thank you,” she said. “I think that will do for now.”
+
+I smiled back at her and made light small talk before quickly leaving the room. I didn’t say much to Star as we made our way back up the hallway toward the waiting room; she likely could tell that the incident had freaked me out, but she pretended not to notice. Once she had handed me the envelope which I hoped contained ten grand in it, I offered her a curt goodbye and made my way outside.
+
+I immediately got into my car, placed the envelope on my passenger seat, and drove all the way home. The envelope taunted me the entire way there; every time I looked at it I was reminded of the sounds Dr. Bell made while she sucked my blood from the bag. I spent my drive home repeatedly telling myself that I was never going to step foot in that clinic again, and with each repeat of that internal mantra I became more and more convinced that it was true.
+
+But then I got home, and I took a look inside of that envelope.
+
+I went to bed that night feeling conflicted on what I was going to do next. I couldn’t continue to ignore how bizarre and disturbing this arrangement of mine was, but I also couldn’t deny how lucrative it had already been for me. Lucrative—that had been the word Star had used, hadn’t it?
+
+I fell asleep with that brutal tug-of-war going back and forth in my brain, and I immediately fell into a terrible, vivid nightmare. In my dream I was sitting back in that same chair, my arm hooked up to a blood bag by a tube that was already scarlet with my essence. Hovering on the other side of the bag was Dr. Bell. She smiled at me with that usual, pleasant smile, which eased the dread that had been growing in me since the moment I found myself in the room. But then she suddenly shoved her face into that rapidly filling bag, and she immediately began to drink. She violently sucked and slurped on the bag, sounding as if she was working on a persistent jawbreaker, until it finally ran completely dry, and once there was no more blood left for her to enjoy, she began sucking the empty bag into her mouth. Once the container was fully swallowed, she began to move along the length of the tube that was connected to my arm. I stood up and tried to pull the tube out of my flesh, but it remained in place. It wasn’t long before she reached the end of the tube, and soon she was sucking my arm into her mouth. After my arm went my shoulder, and then my head, and my torso, and then my legs, until she had consumed my entire body. Once I had been properly eaten, I was left to float around in an endless vermillion ocean for what felt like several millennia before it too finally swallowed me up.
+
+I awoke in the middle of the night drenched in a cold blanket of sweat. I sat there in my bed  for several minutes trying desperately to catch my panicking breath. Soon enough I managed to calm myself down, which is when I was hit by an intense lethargy that immediately sent me back into a deep sleep. The last thing I remember thinking before being overtaken by slumber was that I was now confident that I would never return to that clinic again.
+
+I spent the next week fully entrenched in the belief that I was not ever going to go back to that place, nor the blood bank for that matter. I was confident that I would never see Star, and more importantly, Dr. Bell ever again.
+
+But then that call came in.
+
+I thought about ignoring it, but I figured I should at the very least tell Star that I wasn’t interested in continuing our arrangement, so I reluctantly answered after the third ring.
+
+We commenced our usual pleasantries for about half a minute, and though I did my best to sound like my usual self, I’m sure she could detect the discomfort in my voice. I was preparing to steer the conversation toward the uncomfortable subject of ending our arrangement when she decided to take the reins.
+
+“Hey,” she said, “I just wanted to apologize for last week. Dr. Bell is really embarrassed about what happened.”
+
+I hesitated before responding. “Yeah, it was kind of weird, huh.”
+
+“I think it’s important that you understand why she wanted to try something like that,” Star said. “Dr. Bell might not look it, but  she’s sick. *Very* sick. She needs regular blood transfusions just to keep herself alive. Unfortunately things have been getting worse for her lately, and her usual treatments haven’t been working.”
+
+I frowned, even though I knew Star couldn’t see it. “That’s… that’s horrible.”
+
+ “When it comes to medicine, Dr. Bell has always been the kind of person to try less-than-conventional methods when backed into a corner,” Star said. “Well her life has kind of seemed like one big corner recently, and well… she’s been thinking rather unconventionally. She somehow got it in her head that consuming blood orally would be more beneficial than accepting it intravenously. After you left last week, she realized how foolish that sounds.”
+
+“I don’t know if ‘foolish’ is the word I would use.”
+
+“Either way,” Star said, “she wanted me to ask if you’d be willing to come back one last time tonight. For one more… *experiment*.”
+
+I had to resist the urge to groan at the thought of going back to that horrible clinic. “Aw, Star, I don’t know—”
+
+“She’s willing to pay you 50,000 dollars.”
+
+Her words stunned me; they shook me to my very core. The line between us remained silent for several bulky seconds before I remembered that I was the one who was supposed to speak next. “W-what?”
+
+“50,000 dollars for one last donation tonight,” Star said. “Are you in?”
+
+The words came before I even had a chance to register them. “I’m in.”
+
+“Great!” she said. “See you tonight, then.”
+
+She hung up before I could change my mind.
+
+That evening arrived surprisingly quickly considering how long the rest of the day seemed to drag on. I drove to the clinic in silence; the only thing I listened to was the eager hum rising up from the back of my neck and into my ears. I was equal parts excited and anxious for what was to come next. The thought of whatever Dr. Bell had in store for me next frightened me, but the thought of walking away from it fifty grand richer thrilled me beyond words. I knew that what happened in there was going to change my life. One way or another, I was going to be a different man when I walked out of that door.
+
+I arrived at the clinic at my regular time, just as the sun was beginning its descent from the sky. Upon entering, I found Star sitting behind the front desk like usual, her familiar smile already on her face as I stepped through the door. After a quick greeting, the two of us made our way back to that same patient room for one last time. 
+
+“Thanks for being here,” she said as we walked. “Dr. Bell is really appreciative of you coming back.”
+
+“She drives a hard bargain,” I joked, doing my best to disguise the nervousness in my voice. I’m certain that I failed. 
+
+“She wants to drink from the blood bag one last time,” Star said. “Same exact thing as last week. After that, you’ll get your money and you can be on your way.”
+
+I didn’t respond. Star and I made our way into the patient room, where we found Dr. Bell sitting in my usual chair, a lovely smile on her face. She stood when she saw me enter. 
+
+“I was sure I scared you off last week,” she said. 
+
+“Not quite yet,” I said, again using a joking tone in another failed attempt to hide my nerves.
+
+“I’m sure Star told you that I would like to try the same thing as last week one more time, as long as that’s alright with you.”
+
+I nodded. “Yeah. That’s perfectly fine.”
+
+“Excellent!” the doctor said. “Then I suppose we should get started. I’m sure you want to get this over with.”
+
+With the preamble finished, I approached the chair and took a seat. The blood bag was already on its stand next to me, and Star stepped forward in order to begin the process of attaching me to the tube. Dr. Bell’s sudden words stopped the young woman in her tracks. “Actually, hold on just a moment.”
+
+Star and I looked at the doctor. A quick glance in the younger woman’s direction told me that she was just as surprised as I was. 
+
+When she saw that she had our attention, Dr. Bell went on. “Hooking him up to all of that equipment won’t be necessary,” she said. “I’ve decided that I want to do this the… *natural* way.”
+
+Star’s face immediately went pale. She gasped before she spoke. “But Dr. Bell, you c—”
+
+“I wasn’t asking for your opinion,” the older woman interrupted. Star immediately went silent; she stepped back from the empty blood bag with her gaze anchored to the ground.
+
+I looked at Dr. Bell and frowned. “What do you mean?” I asked. “What’s the ‘natural way’?”
+
+“What I mean,” Dr. Bell said, “is that I want to drink directly from your body.” She paused. “More specifically, I want to drink directly from your neck.”
+
+Her words stunned me into silence for a few lengthy seconds. When I finally spoke, my voice sounded shaky and nervous. “My neck?” I said. “Why would you want to do that?”
+
+“Because I need to enjoy your blood from as close to the source as possible if I want to most effectively reap its benefits,” she said. “There is no better spot to do that than from the bottom of your neck.”
+
+“I don’t know,” I stammered quickly. “Can’t we just do it from the blood bag like last time? This sounds very—”
+
+“100,000 dollars,” she said. The number lingered in the air between us for several moments, and was so powerful that it was able to silence me in an instant.
+
+The only thing I managed to muster was a stunned “What?”
+
+“You heard me,” the doctor said. “100 grand to let me fee— to let me *drink* directly from your neck right now. I won’t need more than two minutes, and once I’m done the money is all yours.”
+
+I couldn’t bring myself to speak. When she saw that I was at a loss for words, Dr. Bell went on. “Or, you can leave right now, and we’ll never see each other again. The choice is yours.”
+
+I remained glued to my chair as I wrestled with the weight of the doctor’s offer. Looking for some sort of lifeline, I glanced at Star, but her eyes remained firmly planted on the floor. I spent the next several seconds considering what Dr. Bell had just said before coming to the conclusion that I really only had one choice but to accept her offer. If I didn’t, I would certainly live with that regret for the rest of my life.
+
+“Alright,” I said. “Let’s do it.”
+
+Dr. Bell grinned. Though her face still possessed within it an entire pantheon of beauty, there was a tinge of wickedness there now that I had never seen before. “Excellent,” she said. “Then let us do this right now, and we’ll get you on your way. Your new life eagerly awaits you, after all.”
+
+The doctor approached my chair. There was an iciness to her movement that suddenly made me inexplicably terrified. I immediately wanted to call off the deal and stand up, but I couldn’t bring myself to move. As she leaned over me, her lush, gorgeous hair following into my face, the only words I could muster came in the form of a single question. “Aren’t you going to make an incision or something?”
+
+Dr. Bell’s face came to a stop in front of my neck and hovered just above my collarbone. She chuckled; the sound seemed to vibrate the entire room. “No need.”
+
+Dr. Bell opened her mouth wide and closed the gap between her face and my neck. Her sharp, slender teeth effortlessly sank into my waiting flesh.
+
+And then my entire world erupted with hellfire.
+
+Cold, crimson heat flashed through me as it entered my body through my penetrated vein. I began to writhe and twist on my chair with sudden, overwhelming pain. I tried to pull myself away from Dr. Bell, but her clamp on my neck was too great. She noticed me trying to stand up, and she used her hand to gently press against my chest. Despite her fingertips just barely kissing my torso like the legs of a pond skater gliding along water, I felt powerless against them; they held me against the chair with an impossible force as their master continued to drain the essence from my body. I craned my neck in order to glance at Star, once again trying to beg her with my eyes, but she could only stand in the doorway with her gaze locked on her own two feet.
+
+Dense, wild shadows danced and spun all over the surrounding walls. My chair began to shake either with my own convulsions, or with the power of Dr. Bell’s vile, unnatural act. My vision began to go dark, but even so I still managed to see spiraling scenes of torture and evil rush before my eyes, each one blinding me anew like the the explosive flash of an antique camera. 
+
+And then, just as suddenly as the turmoil had come, it all went completely still.
+
+I awoke the next morning in my apartment, lying in my bed. Both my body and my brain ached terribly, and a dull, pulsating pain shook the base of my neck with each beat of my frantic heart. I couldn’t bring myself to crawl out of bed for close to half an hour, and when I finally did, struggling to my feet immediately caused my entire world to spin. 
+
+There was a brief moment when I considered that everything I had experienced the previous night had all been a dream, but this thought perished quickly. Everything I had gone through had been far too real for me to ever consider otherwise. I vividly remembered the terror I felt as Dr. Bell sank her nightmarish fangs into my neck, and I easily recalled the agony that racked my body as she drained the life from my veins. The small metal case I found sitting on my desk in my bedroom only further confirmed the reality of what I had endured. I didn’t need to open it to know what awaited inside of it, but I did so anyway and was immediately greeted by those heavy stacks of green.
+
+I’ve tried to call Star several times since first waking up, but her line seems to have been disconnected. If I could ever muster the courage to visit that clinic again, I’m sure I would find it just as empty and abandoned as she and Dr. Bell had before they had made themselves at home. The only trace the two of them left behind is the 100-thousand-dollar case that I found on my desk. It’s as if they never existed. I still find it hard to believe that they actually ever did.
+
+So Dr. Bell had made good on her promise after all. She had given me the 100 grand that she had offered me, and had subsequently disappeared from my life. I didn’t know how to explain what she had done to me, but I ultimately didn’t need to. Our agreement was settled, and I would never have to think of her again. I figured it was all over and I could finally move on with my life. 
+
+But I was wrong. 
+
+My new sensitivity to sunlight struck me the moment I drew the blinds in my bedroom, and it has only grown worse in the days since then. I’m at the point now where I can’t even step outside during the day without immediately growing nauseous and feeling like I’m moments away from passing out. I have to wait until after dark before I can go anywhere, and even then, the nighttime world is far more bright and vivid than I ever remember it being before. 
+
+My stomach constantly growls with an intense hunger, and yet I haven’t had an appetite for food since waking up. I can’t seem to stomach the stuff anymore. What I truly crave is something far more sinister—something that I try so hard to push from my mind, but which only becomes more prominent the longer I go on without it.
+
+Which brings me to the reason why I’ve told you this story in the first place. My hunger only grows more intense by the moment; each letter I type feels like another day gone by without satisfying that dark, unspeakable desire. I sit here in my bedroom, with the blinds pulled as tightly against the windows as they can go, looking at the small fortune sitting untouched on my desk, and even though there were so many things in my old life that I wanted to and needed to spend that money on, there is now only one thing that I require above all else. 
+
+And so I ask you, my readers, this one simple question: what price would I have to pay for you to spare a few drops of your blood?
