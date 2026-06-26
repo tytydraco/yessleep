@@ -1,4 +1,8 @@
-Part two
+(Part two)  
+
+
+
+
 
 I'm still trapped in the facility, but I'm a lot better off than I was. I managed to adjust the temperature from inside the storage room. A safety precaution in case of accidental lock ins. But escaping with those things still out there just wasn't an option. To be honest, I'm alive only because the security guard that was missing from the front gate came to check on the situation.
 

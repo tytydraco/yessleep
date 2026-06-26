@@ -1,4 +1,8 @@
-Part one
+(Part one)
+
+
+
+
 
 I'm sitting in a cold storage unit slowly freezing to death as I type this. I've had to lock myself in here. It was that or be shredded to pieces by the lunatics pounding on the freezer door. I don't expect anyone to read this but maybe it will reach someone that can help. I'll start from the beginning I guess. For context's sake.
 
