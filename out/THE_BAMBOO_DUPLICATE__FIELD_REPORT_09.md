@@ -1,0 +1,43 @@
+Short Synopsis  
+When I was nine, my dad and I took a forbidden bamboo trail that broke reality entirely. I met a bloated, water-rotted duplicate of him on the empty path, and spotted a drowned forest worker standing in the river—only I could see the figure. This grove doesn’t create ghosts; it copies broken, incomplete versions of the dead, and its quiet haunting still follows me on every empty road I travel.  
+  
+Full Story  
+I should not still remember this. But I do. And I know now that memory is part of the problem.  
+  
+I was nine years old when my father took me to the county town. We rode bicycles from our mountain village. It was supposed to be a normal trip.  
+  
+Halfway there, the main road was blocked. Construction barriers closed everything. We turned back. Then my father chose a shortcut: a bamboo forest path. No one in the village ever explained why that path was avoided. They only said one thing: “Never ride through it twice.”  
+  
+We entered the bamboo forest. At first, nothing seemed wrong. Then sound disappeared. Not slowly. Instantly. No wind. No birds. No tire noise. Even my breathing felt muted.  
+  
+The path narrowed. Bamboo grew too dense to see beyond a few meters. My father rode ahead of me. Then he turned into a side path and disappeared. I followed. But when I reached the turn—there was no fork. Only straight bamboo. That was the first inconsistency.  
+  
+I called for him. No response. Then I saw him again ahead of me. Same jacket. Same bicycle. Same posture. But I noticed something else. The distance between us never changed. No matter how fast I pedaled. It stayed fixed. That was the second inconsistency.  
+  
+I tried to stop. But the path did not allow separation. Every time I slowed down, he slowed down. Every time I sped up, he sped up. Eventually, I reached him, side by side.  
+  
+I turned my head to speak but stopped. His body matched my father perfectly. But his face was wrong. Swollen, water-logged, out of shape. It looked like it had been reconstructed incorrectly. As if memory had tried to rebuild a drowned man. And failed.  
+  
+It did not react to me. It continued forward. Then it disappeared into the bamboo. Without turning. Without sound.  
+  
+Then my father was behind me. He said he had been calling me. He said I never responded. He said I had been missing for twenty minutes.  
+  
+I told him what I saw. He did not answer for a long time. Then he said: “There is no second rider.”  
+  
+We left the bamboo forest. A river was ahead, the crossing point to the county town. That was when I saw the third inconsistency. A man stood in the river. Motionless. Half submerged. Gray uniform. No movement. No reaction to wind or water.  
+  
+I pointed. My father looked. And said nothing was there. That was the first time I understood something important: The forest does not create illusions. It filters witnesses.  
+  
+We crossed the river silently. That night, I became ill. High fever. Delirium. But I overheard something. My parents were arguing. My mother said a forest worker had drowned in that river months earlier. His body was recovered later. But not all of him. The official report was incomplete.  
+  
+Now I understand why. Because the forest does not preserve bodies. It preserves versions.  
+  
+Years later, I returned to the village. A photograph of the drowned worker was displayed in the office. I looked at it. And for less than a second—the image did not match itself. The face in the photograph was not stable. It shifted. Like it was trying to become someone else. That was when I realized: I was never just observing the system. I was already recorded inside it.  
+  
+I asked an old Taoist about the bamboo forest. He did not speak about curses. He spoke only one sentence: “The path does not repeat people. People repeat the path.”  
+  
+I do not enter bamboo forests anymore. Not because I fear them. But because I know what happens when I am noticed twice. And I have seen it. Even far away from home, on empty roads. A cyclist ahead of me. Same speed. Same distance. Never turning back.  
+  
+I no longer try to catch up. Because I am no longer sure which side of the distance I am on.  
+  
+\---  
