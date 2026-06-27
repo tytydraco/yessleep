@@ -1,0 +1,296 @@
+I knew something was wrong the moment the pipes burst. I didn’t even hear the explosion—just a wall of heat slamming into me so hard it knocked the world out from under my feet. When I woke up two days later in the ICU, I could barely breathe. Everything hurt. I could smell my own skin. I didn’t need a mirror to know I wasn’t the same man anymore.
+
+My wife wouldn’t look at me. I didn’t blame her. I looked like something that shouldn’t be alive.
+
+Three people died in that fire. I should’ve been the fourth. I was the safety inspector. I was the one who signed off on the gauge that failed. People called me a miracle at first, until the truth came out. Then I became the villain. The careless one. The reason families were grieving.
+
+Two years and eight surgeries later, I finally came home. I could walk, barely. I could function, barely. But I couldn’t give my wife the one thing she wanted more than anything—a child. The fire had taken that from me too.
+
+We tried anyway. Out of hope. Out of denial. Out of desperation. But the doctor’s words were final.
+
+“There’s no possibility we’ll be able to inseminate. The damage is irreversible.”
+
+I saw something break inside Jessica that day. Something I caused. Something I couldn’t fix.
+
+That night, I sat alone in my study with a bottle of vodka and a gun. I wasn’t thinking clearly. I wasn’t thinking at all. I just wanted the weight to stop crushing me. I put the barrel in my mouth and pulled the trigger.
+
+Nothing happened.
+
+I tried again. Another empty click.
+
+Then the room changed. The air went from freezing to boiling in seconds. The lamp beside me glowed red. I couldn’t move. Something stood behind me—close enough that I felt its breath on my neck.
+
+A voice whispered, deep and calm.
+
+“Fear is not needed.”
+
+I couldn’t turn around. “Am I dead? Are you an angel or a demon?”
+
+“I am the filler of the void within you. I am what interrupts the death you seek. I am the gift.”
+
+I didn’t understand. I barely understood anything anymore.
+
+“The woman yearns for a child of your blood,” it said. “This can be done, if you choose. Know this: your happiness will last five and five years. Before the last day ends, you must finish your fate.”
+
+I asked what would happen if I refused.
+
+Silence. Then:
+
+“The death you seek will come, only when my hand is lifted. Is this your desire?”
+
+I don’t remember answering. I don’t remember anything after that. Everything went black.
+
+When I woke up the next morning, I was in bed beside Jessica. I hadn’t slept next to her since the accident. I didn’t know how I got there. But for the first time in years, she looked at me with something other than pity.
+
+Later that morning, the phone rang. It was the doctor. He wanted us to come back in. “There’s a chance,” he said.
+
+A chance.
+
+I didn’t question it. I didn’t dare.
+
+The procedure they offered wasn’t common in the States. It had an eighty‑five percent success rate overseas. A team from China was flying in to assist. Jessica cried when she heard. I thanked God. Or fate. Or whatever had stepped into my study that night.
+
+The procedure worked.
+
+Months passed. Jessica’s belly grew. I took care of her the way she had taken care of me. I read every book. I cooked every meal. I stayed awake at night with my hand on her stomach, feeling the tiny movements inside.
+
+But as the due date approached, Jessica changed. She grew quiet. Restless. One night, I found her crying in the bathtub.
+
+“I don’t know why,” she whispered. “I just feel like something bad is coming.”
+
+I held her until she fell asleep. But I didn’t sleep at all. I kept thinking about the voice. The promise. The warning.
+
+Five and five years.
+
+I didn’t tell her. I couldn’t.
+
+The next morning, I went to see Reverend Milton. I needed guidance. I needed someone who understood things beyond the physical world. I didn’t tell him everything—just enough to feel out whether I was losing my mind.
+
+“Dreams can be warnings,” he said. “Or they can be invitations. The question is: who’s doing the inviting?”
+
+Before I could answer, my phone rang.
+
+It was Jessica.
+
+Her voice was shaking.
+
+“Sean…my water just broke.”
+
+The drive to the hospital felt unreal. Jessica was gripping my hand so tightly I couldn’t feel my fingers, but I didn’t dare pull away. Every few minutes she’d gasp through another contraction, and I’d tell her to breathe even though I could barely breathe myself.
+
+By the time we reached the maternity ward, nurses were already rushing her into a room. Someone told me to wait outside while they prepped her. I hated it. I hated being separated from her when she needed me most.
+
+The waiting area was almost empty. Just a few scattered chairs, a humming vending machine, and a stack of old magazines. I sat down, trying to steady my hands. My heart was pounding so hard I could feel it in my burned skin.
+
+I was staring at the floor when a voice spoke beside me.
+
+“You look like you’ve been through hell, son.”
+
+I hadn’t even noticed the man sit down. He was older, broad‑shouldered, with a thick gray beard and the kind of posture that said he’d spent a lifetime carrying things heavier than himself. He smelled faintly of cigars.
+
+I forced a polite smile. “My wife’s in labor.”
+
+“First one?”
+
+“Yeah.”
+
+He nodded slowly, like he understood more than he let on. “It changes you. Whether you’re ready or not.”
+
+I didn’t respond. I didn’t want to talk. But he kept studying me, his eyes lingering on the scars that crawled up the side of my face.
+
+“Afghanistan?” he asked.
+
+“No,” I said. “Chemical fire.”
+
+He let out a low whistle. “Damn. You’re lucky to be alive.”
+
+I didn’t feel lucky. Not with the voice from that night still echoing in the back of my mind.
+
+The man leaned back in his chair. “Name’s John.”
+
+“Sean.”
+
+He nodded again, thoughtful. “You look nervous, Sean.”
+
+“My wife’s been in there a while,” I said. “Longer than they said.”
+
+“That’s how it goes sometimes. My wife was in labor for twenty‑six hours with our boy. Thought I was gonna lose my mind.”
+
+“You have kids?” I asked.
+
+“Had,” he said quietly. “My son passed a few years back.”
+
+“I’m sorry.”
+
+He shrugged, but his eyes softened. “He was a miracle baby. Doctors said he wouldn’t make it through the night. But he did. Lived twenty‑four years. Best years of my life.”
+
+Something about the way he said it made my stomach twist.  
+Twenty‑four years.  
+Five and five years.  
+The voice’s warning pulsed in my skull.
+
+John looked at me again, more closely this time. “You alright, son? You look pale.”
+
+“I’m fine,” I lied.
+
+He didn’t believe me. “You ever feel like life gives you something… but asks for something back?”
+
+My breath caught.
+
+Before I could answer, a nurse appeared in the doorway.
+
+“Sean Banks?”
+
+I shot to my feet.
+
+“Your wife is asking for you. It’s time.”
+
+I turned back to John, but he was already standing, adjusting his coat.
+
+“Go on,” he said. “Your life’s about to change.”
+
+I nodded and hurried toward the delivery room.
+
+But as I reached the doorway, something made me glance back.
+
+John was watching me.
+
+And for the briefest moment — just a flicker —  
+I could’ve sworn his eyes weren’t brown anymore.
+
+They were red.
+
+The delivery room was chaos — nurses moving in every direction, machines beeping, Jessica gripping the rails of the bed like she was holding the world together with her bare hands. When she saw me, she reached out, and I took her hand even though mine was shaking.
+
+Hours passed in a blur of shouting, breathing, and whispered prayers. And then, suddenly, a cry filled the room. A sound so sharp and pure it cut straight through every scar on my body.
+
+Our daughter.
+
+They placed her in Jessica’s arms, and for a moment, everything — the fire, the guilt, the voice, the deal — all of it disappeared. I felt whole in a way I didn’t think was possible anymore.
+
+I remember thinking:  
+Maybe the thing in my study wasn’t a curse. Maybe it was mercy.
+
+For a while, it felt that way.
+
+\---
+
+ Ten Years Later—
+
+Those ten years were the best of my life.
+
+Our daughter, Lily, grew into a bright, fearless child with Jessica’s smile and my stubbornness. She loved climbing trees, drawing pictures of animals, and asking questions I never had good answers for.
+
+But as her tenth birthday approached, something inside me began to unravel.
+
+It started with small things — waking up at night drenched in sweat, hearing faint whispers when the house was quiet, feeling watched even when I was alone. I tried to ignore it, but the closer we got to the date, the heavier the air felt.
+
+Five and five years.
+
+I couldn’t forget it.
+
+I went back to Reverend Milton first. He listened patiently as I told him everything — the voice, the promise, the warning.
+
+He didn’t laugh. He didn’t dismiss me.
+
+He just said, “Some debts are spiritual, Sean. And spiritual debts don’t disappear. They wait.”
+
+That didn’t help.
+
+I visited a spiritual advisor in town. Then another. They all said the same thing in different words:
+
+“You were given something. Something will be taken.”
+
+I tried to hide my fear from Jessica, but she saw it. She always did.
+
+“Sean,” she said one night, “you’re scaring me. Nothing is going to happen. Lily is fine.”
+
+But I couldn’t shake the feeling that something was coming. Something inevitable.
+
+\---
+
+It happened on a Saturday. Lily was upstairs getting ready for her birthday dinner. Jessica was in the kitchen icing a cake. I was sitting in the living room, staring at the calendar.
+
+June 14th.
+
+Exactly ten years since the night I put the gun in my mouth.
+
+My heart dropped into my stomach.
+
+That’s when the knock came.
+
+Three slow, heavy knocks.
+
+I opened the door and felt the world tilt.
+
+It was John.
+
+Older. Thinner. Eyes sunken. But unmistakably him — the man from the hospital waiting room the night Lily was born.
+
+He didn’t smile. He didn’t blink.
+
+“You remember me,” he said.
+
+My throat tightened. “What are you doing here?”
+
+He stepped inside without waiting for an invitation.
+
+“You took something from me,” he said. “My son. Twenty‑four years old. A good man. And you walked away from that fire alive.”
+
+“It was an accident,” I whispered.
+
+“No,” he said. “It was negligence. And you got a second chance. A gift. A child.”
+
+He looked toward the stairs.
+
+“And I came to collect what’s owed.”
+
+I moved to block him. “You’re not touching her.”
+
+He lifted his coat — and I saw the gun.
+
+Jessica screamed from the kitchen. Lily froze halfway down the stairs, eyes wide.
+
+“Daddy?” she whispered.
+
+John raised the gun.
+
+I swung my cane as hard as I could. It cracked against his temple. He stumbled backward, lost his footing, and tumbled down the stairs.
+
+The sound of his neck snapping echoed through the house.
+
+But the gun went off.
+
+A single shot.
+
+Lily collapsed.
+
+Jessica’s scream tore through me. I dropped to my knees beside our daughter, my hands shaking so violently I couldn’t even touch her. Her eyes were open, but she wasn’t there anymore.
+
+I felt the world slipping away. The air thickened. The room dimmed.
+
+And then — that feeling.
+
+The same suffocating presence from ten years ago. The same cold breath on my neck. The same whisper curling through the air like smoke.
+
+“Five and five years.”
+
+The room dissolved. The walls melted. Time folded in on itself.
+
+Suddenly I was back in my study.  
+Back in that chair.  
+Back with the gun in my mouth.  
+Back on the night I tried to end everything.
+
+But this time, when I pulled the trigger…
+
+…it didn’t jam.
+
+There was no intervention.  
+No voice.  
+No gift.  
+No second chance.
+
+Just darkness.
+
+And that’s where my story ends.
