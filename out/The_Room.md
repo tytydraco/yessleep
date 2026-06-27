@@ -1,108 +1,109 @@
-I came here to end it. Remote cabin. No signal. One key. One bottle. 
+November 6th, 2008
 
+Mom,
 
-I didn’t leave a note. Didn’t want anyone to try and understand.
+I made it to Grandpa Dave’s place! You weren’t kidding about the signal out here, I figured that out fast, hence the letter.
 
+What do they even do at the observatory that’s so important? I guess my laptop’s basically a paperweight now.
 
-I took the pills on the bed. The world closed in like a tide that finally got high enough to cover me. I remember the quiet. The stillness. The certainty.
+I found the keys under the mat, but I haven’t seen Grandpa yet. It looks like he’s been doing some remodeling. 
 
+Did his letter say anything besides needing an extra hand? Anyway, I’ll keep an eye out for him. He’s probably just out and about.
 
-Then I woke up.
+Feed Tippy for me. Love you.
 
+November 8th 2008
 
-Same room. Same body. Same clothes.
-But the bottle was gone. 
+Hi Mom,
 
+I’m getting a little worried. I still haven’t seen Grandpa at all. I know he’s always marched to his own drum, but it’s been two days.
 
-At first, I thought maybe I hadn’t taken them. That I passed out too early. That I hallucinated it. 
+I was poking around and found a few things left out, a half‑drunk coffee mug, some chicken thawing. I cleaned it up and turned off the lights in his room. They’d been on for a while. Please don’t tell him I snooped.
 
+Oh! I think I found the room he was working on. There’s this weird little hallway halfway down the stairs to the cellar. I’ve never seen anything like it. He strung up lights and if you follow them long enough, they lead to a room bigger than I expected, like two of my beds side‑to‑side and four deep.
 
-But the bottle was gone, the room was spotless, the sheets were made, the lights were on. 
+There’s a sledgehammer and some tools, but the coolest thing is this big door he uncovered. None of the keys work, and there are these red roots covering it. I had no idea this place was so big. I don’t even know where that room would be in relation to the house.
 
+I think Grandpa probably drove to town to get a key made. I found some molds in the room, so that’s my best guess.
 
-And the door had no handle.
+I’ll keep poking around. 
 
+Hope you and Tippy are doing well. Miss you both. Love you!
 
-There’s food. Not good food: neutral food. No smell. No seasoning. Just enough. It appears silently on a tray at the base of the wall twice a day. I tried to skip it. Passed out. Woke up clean and full.
+November 9th 2008
 
+Mom,
 
-The lights don’t have switches. The room brightens and dims on its own. Sometimes it mimics sunlight through drawn curtains. Sometimes it’s cloudy. But there are no windows.
+I’m getting kinda freaked out here.I don’t know how many pairs of shoes Grandpa owns, but there’s only one pair in his closet. I found his wallet in the bedside table too, which is weird if he really went into town.
 
+I walked down the road to his neighbors and asked if they’d seen him. They said the last time they saw him, he was driving home with a bunch of tools in his truck, about three weeks ago.
 
-Everything resets. I tear the sheets, they’re whole again. I scratch the walls, then they’re smooth. I screamed for hours once. My voice didn’t echo,I just felt small.
+I guess with them being so far away, I shouldn’t take everything at face value. It’s not like they’d always see him come and go.
 
+I checked the detached garage and tried a few of the keys I found. One worked and Grandpa’s truck is still in there, but it doesn’t look like it’s been used in a while. The battery wouldn’t even start. 
 
-The silence here isn’t emptiness. It’s pressure.
-There’s a screen on one wall. It was blank for a long time. Then one day, I asked aloud, “What is this place?”
+Where is Grandpa?
 
+I love you. Give Tippy my best.
 
-It lit up. White text, centered:
-“You chose this.”
+November 10th 2008
 
+Mom,
 
-It never answered follow-ups. I tried. I begged. Sometimes I cursed it. The screen stayed dark.
-After a while, I stopped asking.
+Still no sign of Grandpa.
 
+I went back into that strange room to see if I could find any clue about where he might’ve gone. Mixed in with the pile of tools, I found a receipt for a key. I’m thinking it was for the door with the red roots.
 
-I began watching patterns. The way the lights shifted. The intervals between meals. The texture of the water. I thought maybe I could break it by seeing through it.
+I don’t see the key anywhere, and even if I did, I don’t understand how anyone, even Grandpa, could get behind that door with all the overgrowth covering it.
 
+Maybe I should walk to the sheriff’s tomorrow. I really wish I could call you. I don’t like being here alone.
 
-But nothing changes. Or maybe everything does, just so slowly that I can’t tell. My fingernails grow. I think. My hair feels longer. Or maybe I just forgot how short it used to be.
+I miss you. I miss Tippy. I love you both
 
+November 11th 2008
 
-Once, I bit my tongue hard enough to taste blood. It felt real. Sharp. But when I checked the mirror, there was nothing.
+Mom,
 
+I need to come home.
 
-Eventually, the room stopped feeling like a room. It started feeling like a pause. Like everything else had continued without me, and this space was where my life had been put on hold.
+I went back to the red door again, and right at the base of it was this red metal key. It looks like it matches the molds Grandpa made.
 
+The weirdest part is that the roots are gone. And the door looks… paler? I don’t know how to describe it, but it’s definitely different.
 
-Sometimes I think I hear things. Far off. A chime. A low tone. Once, something that might have been a voice.
-It never lasts.
+The whole house feels strange all of a sudden. I was already a little off being here alone, but now it feels like someone else is here. Like someone always just out of view or maybe always in view? I don’t know. I’m starting to feel crazy, and the house keeps creaking.
 
+Freaked out but still loving you. I just want to cuddle with Tippy and get out of here.
 
-Today, the screen came back.
-Not in response to anything. Not because I spoke.
-Just lit up on its own.
+P.S. Any chance you can book me a trip back home? I think someone more qualified needs to look for Grandpa.
 
+November 12th, 2008
 
-“Do you want to live now?”
-Two boxes:
-YES
-NO
+Mom,
 
+I’m leaving tonight. Hopefully you’ll see me soon. I’m just going to go and keep walking, I don’t feel safe. Something weird is going on.
 
-I laughed. The kind of laugh that empties itself before it gets out. Then I tapped NO. Nothing happened.
+I went to the door again, and now it’s almost white. I couldn’t resist. I used the key.
 
+It opened into another room, a small red room with roots everywhere. In the center was a table, and hanging above it, held up by those roots, was a hand clutching a pen.
 
-I tapped YES.
-More of the same.
+The hand was moving. Writing on the paper. It said: 
 
+“Send help. I need a hand.”
 
-The screen blinked off. The tray appeared with a meal I didn’t ask for. The light shifted into a warm amber. The sheets on the bed were crisp again. The toothbrush was replaced. Identical.
+I didn’t stick around. The hand looked old… could it be Grandpa’s??? I’m not staying here anymore. There’s this pit in my gut that won’t go away.
 
+This is my last letter. I’m only writing to tell you I’m trying to get home, so you don’t freak out if you don’t hear from me for a couple days.
 
-I sat in the corner. Counted my breaths until I lost track. Counted again. Considered every anxiety I've ever had. Counted my breaths again. 
+Love you. I’ll see you and Tippy soon.
 
+November 13th, 2008
 
-At some point, I heard it. Soft. Distant. A sound I hadn’t heard before.
+Mom,
 
+Everything is fine. Come help me.
 
-A beeping tone. Steady. Flat. Like something clinical.
-Then silence.
-Then another tone. Fainter. A pause. Then nothing.
+I need some eyes. 
 
+Come soon.
 
-It felt like someone was trying to measure me. Trying to find me.
-From just outside the room, like I was hearing someone speak from underwater:
-
-*I love you, baby. Forever.*
-Then, nothing. 
-
-
-This isn’t peace.
-This is a moment stretched thin. A single choice sealing life like amber.
-I didn’t survive.
-Not really.
-
-
-And now I live in the shape of the thing I can’t unchoose, alive enough to regret it.
+Come.
