@@ -1,0 +1,243 @@
+I don’t remember much from my childhood home, maybe the occasional vague memory that you have to go searching for, but so called “happy memories” are hard to come by. Now this isn’t because I had a bad childhood, far from it, I think it was mostly just boring. We didn’t go on any vacations, no cruises, no real trips outside the state, we just stayed home. I was named after my grandfather, Aidan, though I never met him. My dad had  immigrated from Ireland when he was in his mid 20s, he didn’t talk much about my grandfather, though based on what he did talk about, it wasn’t hard for me to put 2 and 2 together that he wasn’t pleasant. My dad worked a 7 to 5 job in a factory making copper components for an electronics company, and my mother worked as a waitress at a local chain restaurant. We had money, it was never something that was in danger of running out, so we had nice Christmases and I got to go to a nice restaurant for my birthday. I’m prefacing this so you guys understand where I came from, I didn’t have much experience outside our rural town is what i’m getting at. 
+
+
+
+When I turned 18 I left for college, I went to another state for what I’m pretty sure is the first time, hell it was my first time in a city, and I mean a real city with buildings higher than 3 stories. I’m studying communications as I’ve always had a dream of becoming a radio DJ, but in hindsight I would have chosen something else, something more financially secure but I was 18 when I chose my major plus now I’m going to be a senior so it’s too late to back out. I’ve made plenty of friends in my years but above all is Lena. Well technically it’s Elena but her friends, me included, all call her Lena, it was an in-joke when we met her and everytime after we would call out “Heylena” when we saw her, sounds dumb but it killed when we thought of it. The two of us are super close, we enjoy the same music, movies, have similar hobbies, we just grew close. It’s not a romantic friendship, at least I don’t think. 
+
+
+
+When I left for college my parents sold the house and moved into a smaller one story building since they were having more trouble climbing the stairs, my mom was pushing 40 and my dad was 52 when I was born, they say it was great but I’m pretty confident it was an unplanned pregnancy. They left the house to rot, a land developer bought the property but nothing has been done with it. I explained all this to Lena as we sat in my car at the entrance to the driveway.
+
+
+
+Her parents had disowned her, she’s what’s known as an “apostate”, she had been raised as a Jehovah’s Witness and when she left at 16 to move in with her grandmother, her parents disowned her and now deny they ever had a child. I never got far with her when asking about it, but because of it she always bunked with friends during the summer or other holidays, and this year for the summer she asked to come home and stay at my house. Luckily the new place my parents bought has a spare bedroom so it was no big deal. As we were driving to my parents new house she had asked me all about our old place and insisted on seeing it since we would have to drive past it to get into town, so I agreed, after all my parents weren’t expecting me to get home for a couple hours so I didn’t see any harm in showing her my old room.
+
+
+
+It was about 5pm when I pulled up to the driveway, I could see the old house a quarter of a mile away, the grass was knee height and foliage obscured much of the ground level. I didn’t see anything in the way of graffiti or vandalism, which didn’t surprise me since we lived just outside town, the house seemed to be in pretty good condition for having been abandoned for 3 years. As I drove up the gravel driveway I realized the small pond in the middle of the front yard was dry, that was where I had dumped giant goldfish when I was 8, one of the few memories I had that was clear.   
+  
+  
+“You had a way nicer house than I did.” Lena chided as we walked up the porch steps. 
+
+She had shown me pictures of her old home before she left, her house looked more like a trailer home, but in all the pictures she showed me she looked happy. I had never asked why she left. The front door was unlocked for some reason, and immediately a musty odor surrounded me. The front door opened into the living room, which was mostly empty except for our old ripped up couch and a few empty bookcases and shelves lining the walls. The staircase to the 2nd floor was opposite the couch, behind where the TV would have been. 
+
+“Be careful of the cobwebs.” I said as Lena walked to the center of the room, she looked around the ceiling with a wary expression.
+
+“The hallway’s over to the left,” I walked to the open doorway in the far left corner of the room, “There’s not much down here, just the living room, kitchen, bathroom and family room.”
+
+I walked down the hallway with Lena behind me, our kitchen was massive, with a large island and several feet of countertops that opened into the larger family room. My mom had converted the family room into a library of sorts, she had inherited her mother’s book collection and put them in family room, though the books were now long gone, the empty bookcases covered the windows and made the room dark and eerie. Upstairs held all the bedrooms, Lena had a great time in particular pointing out how small my room was, but the sheer size of the master bedroom took up half the upstairs by itself. 
+
+“I’m about ready to go eat, you ready?” I asked as she was going through the boxes of junk we left behind.
+
+“Yeah, why’s all this stuff here?” She asked, holding up a plastic bag of Legos. 
+
+“Just old stuff, I didn’t want to bring it to college and my parents didn’t want to pack it up.” I replied.
+
+“You should have donated this stuff or something, it’s just a bunch of toys. They’re all grimy now though,” she dropped the bag and got to her feet, “Let’s go.”
+
+I got to the bottom of the stairs first and had reached the front door when I realized Lena wasn’t following. She was standing halfway up the stairs staring at the couch on the other side of the living room.
+
+“What’s up?” I asked. She took another couple steps down the stairs.
+
+“Aidan, what’s that room behind the bookcase?” Her voice was quiet.
+
+I looked at the bookcase behind the couch, I had no clue what she was talking about.
+
+“Uhh, sorry what are you on about?” I said, completely puzzled.
+
+Lena hopped to the bottom of the stairs and walked up to the bookcase.
+
+“There’s an outline of a door behind this, I saw it from the stairs.” She said as she started to try and move the bookcase.
+
+I walked over to her and looked up and down at the bookcase.
+
+“There isn’t any room here-“ I started as she grabbed my arm.
+
+“Here help me slide it.”
+
+Reluctantly I pushed on it’s side and it began to move, revealing to my utter confusion, a door. It was a plain brown wooden door, but the doorknob was missing, I realized so that the bookcase would sit flush against it. 
+
+“I have no clue what this is, I helped put this thing up, there wasn’t a door here.” I said. And it was true, this bookcase was put up when I was 12 or 13, it held overflow from the family room, it was a plain empty wall, it’s why we chose to put it there. Lena grabbed the empty doorknob hole and opened the door, revealing again to my confusion, stairs leading down. 
+
+“What the fuck.” I said, it was more of a general statement than a question. Our house couldn’t have a basement, the land was sitting too close to a deposit of bedrock, excavating one would have been obscenely expensive. The light from the doorway shone to the bottom, a concrete floor was all we could see, the rest of the room was shrouded in darkness.
+
+“You have any flashlights?” Lena asked. 
+
+“So you want to go down there?” I replied, my voice cracking.
+
+“Your parents built a secret basement and you don’t want to check it out?” She sounded excited.
+
+I got to say that was a good point, if they had this built, why didn’t they tell me? I walked outside and opened the trunk of my car, inside was my emergency flashlight, I grabbed it and Lena and I descended the stairs. 
+
+
+
+The basement was small, a square room covered in more empty shelves and spiderwebs. My flashlight scanned each wall, revealing rusty tools, some empty chemical bottles, just normal basement stuff I guess. Nothing really interesting was down there, I was about to suggest we leave when Lena gave a small gasp. My light had fallen on the wall behind the stairs, there was a door there. 
+
+“They built a closet down here too?” I said as I walked up to the door.
+
+Opening it my jaw dropped. It was a large room. 
+
+“I don’t like this Aidan, this is bizarre.” Lena said.
+
+I agreed, this new room was massive, and empty. My flashlight cut through the darkness as I walked into the space, Lena by my side. The moment I stepped through the doorway something bizarre happened, I felt my ears pop, it was subtle, similar to when you drive down a steep hill, but I noticed it. I assumed that Lena felt it too as I turned and saw her massaging her ears. The air also seemed heavier, or thicker maybe? Little specks of dust hung in the beam of my flashlight, I had just realized that breathing this in probably wasn’t good for me. I walked to the center of the room, the floor here was carpeted, though it still reeked with a musty odor. I shined my light around and realized with amazement that the room itself was longer and wider than the house. At least by several feet. I was trying to come up with a rationale for this when my light passed another door to our left. 
+
+“What in the hell is this?” I said, Lena held on to my arm as I walked towards it.
+
+The next room looked like a dining room, a large oval table was in the center with multiple old chairs surrounding it. There was a sliding pantry door opposite of where we entered, and yet another door to our right. As I walked in I noticed a light switch on the wall, I knew the power to the house was disconnected but for the hell of it I walked over and flipped it. To both my surprise and again confusion the dining room shone to life, a large ceiling fan over the table carried several lightbulbs that omitted a putrid yellow light. 
+
+“Aidan what the hell is going on?” Lena asked, I turned to her and saw that she was looking incredibly nervous. I have to say I was as well but maybe to my better judgement, curiosity had overtaken me. 
+
+“I don’t know, this place is weird as hell though, it’s bigger than the house.” I replied as I walked up to the pantry. I slid the door open to reveal a small walk in pantry, inside were various cans of food, Lena looked over my shoulder and grabbed one off the shelf.
+
+“Look how old the label is, it doesn’t even have an expiration date.” She said, turning the can over in her hands. 
+
+I walked over to the door on the right side of the room, pulling it open I found yet another room, this one was circular, light bulbs lined the walls revealing a stone floor. There was another door adjacent to me, except this one wasn’t a normal wooden door, it looked like it was made of steel or iron. Dragging Lena alongside me, I approached the door to examine it, it seemed more to me like a bank vault or something.
+
+“We should probably leave, come back later.” Lena said, her voice was a bit shaky now. 
+
+I didn’t respond, I was busy looking for a way to open the door, it didn’t have any handles or a doorknob, instead it had a series of what seemed to be sliding door locks. I began grabbing each one and sliding it until it was off of the door, finally the last one was moved and I put my shoulder into the door. I was surprised by how light the door was now that the latches holding it were removed, I pushed it open with ease and looked at the new room ahead of us. It was massive, and I’m talking big, like it was a hanger the size of a football field. The roof was still just a couple feet taller than I was but I could see for dozens and dozens of yards ahead of me, lightbulbs were strung along the ceiling, though they were also pretty dim. There was clutter everywhere, cardboard boxes and shelves lined the floor, while tables and benches zigzagged to create walkways through the mess. 
+
+“Oh wow.” Lena said, the fear in her voice seemed to diminish as she saw the scope of the room.
+
+The two of us began walking through the room, the pathways made by the tables took us in all different directions. 
+
+“There’s no way my parents built this, ain’t no goddamn way.” I said. Lena stopped and picked up a dusty picture frame that was lying on a table next to her. She looked at the picture for a few seconds and handed it to me.
+
+“Who’s this?” She asked.
+
+I looked over the picture, though I had no answer to her question. It was a grainy picture of a small child with messy blond hair, nobody that I knew. But strangest of all, he was standing in the dining room we had just been in.
+
+“I don’t know anyone with blond hair, you?” I replied, she shook her head and suddenly stopped.
+
+“Look.” She pointed to my left. 
+
+Picture frames were piled up to the ceiling, it was a place I had mistaken for a wall at first glance. We walked over and each picked up a frame. There were different children in each frame standing in the dining room, neither of us knew them. I looked up, this pile of picture frames reached at least 8 feet high to the ceiling, there had to be hundreds of them.
+
+“Aidan,” Lena said, the shaking in her voice was back, “We should go, now.”
+
+I wasn’t fully processing what I was looking at. I kept picking up frames and saw new pictures in each, it was never the same child. 
+
+“I don’t get this.” I mumbled.
+
+Lena grabbed my arms and pulled me back to the pathway.
+
+“Come on, we should let someone know about this.” She said.
+
+We walked back the way we came, or did we? I quickly realized that I didn’t recognize the way we came. I stopped Lena and looked around. We had only walked maybe a hundred feet into the room? The door was nowhere in sight, I even climbed up onto a nearby table to see if I could zero in on it but no luck. 
+
+“Aidan, where the fuck is the door?” Lena said.
+
+I didn’t answer, I began walking in a different direction, climbing over tables and stepping over boxes. Lena followed, occasionally stumbling as I helped her over tables, I didn’t know what was going on but I was going to find a door. After a few minutes, we approached a stone wall, this gave me a good bit of hope since all we would need to do is follow it. I chose a direction and we began walking.
+
+“We have to find the door, we just used it.” Lena said.
+
+The wall eventually tapered inwards, and we found ourselves in a small nook within the room. Countertops were lined in a u-shape in front of us, I started walking into it when Lena grabbed my waist.
+
+“Stop!” She said, a small shriek in her voice.
+
+I saw why immediately. On the floor in the center of the U was…nothing. Well, it was something but it was also nothing. It looked like there was a circular pit in the floor, but it was pure black. Not just nighttime black, it was the purest black I had ever seen, not a single imperfection in the color, it almost didn’t look real. I walked up to the edge of the pit and knelt down, I shined my flashlight at the hole but my light just seemed to be swallowed by the pure black.
+
+“What is it?” Lena said as she knelt down beside me.
+
+“I have no clue,” I said, “it’s like there’s nothing there but it’s something right?”
+
+I don’t know what compelled me to do it, but I reached my hand out and touched the surface of the black hole, to my surprise my hand passed right through it.
+
+“I think it is a pit or a hole or something.” I said, waving my hand back and forth in the blackness.
+
+“It doesn’t look like it right?” Lena said, she rubbed her hand around the rim of the floor, trying to feel for where it went down. I reached my hand further down, trying to feel for something, or anything really.
+
+“Get your hand out of there!” Lena raised her voice.
+
+“I’m just trying-“ I started before suddenly stopping. I felt air, or something. Something breathing on my arm. A split second later pain flared up my arm, it was more pain than I had ever felt before. I screamed and yanked my arm up, Lena seemed to know what I was doing and grabbed my elbow to help. My hand came out of the hole and blood spurted in every direction, my arm felt like it was on fire, I rolled onto my back clutching my hand. I realized I couldn’t feel my fingers and looked down, half of my hand was missing, including every finger but my thumb, ragged chunks of flesh hung from the spots where they once were. I couldn’t talk, the pain was too much, I was starting to breath heavily and quickly, Lena was wrapping her arms around my body trying to force me to stand.
+
+“Let me see!” She was yelling, and I realized she was trying to help. I held up my hand and she pulled off her t-shirt leaving only a tank top on, she wrapped it around my hand tightly, pain continuing to sear all the way up my arm. Lying on the ground I looked up at her, spots in my vision, her face was covered with blood. She turned away from me and quickly spat onto the floor, blood, my blood I realized, was spattered across her teeth and lips. 
+
+
+
+I closed my eyes and tried to focus on something besides the pain, when Lena then yelled out. I opened my eyes and saw her being dragged away towards the pit, something had grabbed her leg, though I couldn’t see what. I rolled over and grabbed her arm with my good hand, whatever had her wasn’t that strong as I easily pulled her towards me. Somehow I got to my feet and started dragging her away, after several feet she got up as well.
+
+“Let’s go let’s go!” I yelled. 
+
+I don’t know how long we ran, we didn’t go in any particular direction, just through the winding pathways of the room. The pain in my hand started lowering, Lena had wrapped her shirt tightly around it, eventually it was low enough for me to start thinking again. 
+
+“Stop, stop, stop.” I held out my good arm in front of her and we slowed from running to a stop.
+
+“Let me see your hand again.” Lena said, breathing heavily.
+
+“What the fuck was that?” I asked, though I knew she didn’t have an answer. Lena checked the knot she mad with her shirt.
+
+“We’re leaving and calling the fucking cops.” She said.
+
+I started looking around for the doorway, I still couldn’t see it, 
+
+“We have to find the door, that was a lot of blood back there,” Lena had apparently already picked a direction and was walking. 
+
+I had no reply to her, I knew she was right, I didn’t want to look at my hand, all the blood I lost wasn’t good. We kept walking, and walking. Several minutes had passed, still no door. I bumped into Lena as she stopped walking, she bent over and let out a small sigh, I never had checked her to see if she was okay. 
+
+“You-you want me to-to check you out?” I stammered, the pain in my hand was starting up again.
+
+Lena shook her head and continued walking. My hand now felt once more like it was on fire, I was trying not to make any noise, I just clutched it as hard as I could and continued walking. We turned a corner, and I had never felt more relief in my life than I had when we finally saw the door in the distance. We changed from a brisk walk to a jog as we climbed over tables and chairs towards the door. When we got to it, the door was still open from when we entered, the circular room just beyond the doorway. 
+
+
+
+A sharp sting of pain ran up my arm, bad enough for me to yelp. Lena turned to me and grabbed my arm, looking into her face I could see she was also in pain, though she was hiding it much better than I was. I was looking away, not wanting to see my mangled hand as she undid the knot and unwrapped her shirt. 
+
+“Oh god.” Lena said.
+
+I turned to look at my hand, I had no idea what I was looking at. Something was…growing where it had been torn apart. Very slowly, but also quickly, I could see a bulge with 4 small fingers growing out of the mangled shreds. Neither of us said anything as it got bigger and bigger, I was trying not to scream again, the pain from this growth was just as intense as when it was torn apart. It was then I realized I could actually wiggle the tiny fingers. 
+
+Lena bent over again, this time she couldn’t hold in her own groans.
+
+“A-are you f-fine?” I tried to ask through the pain. 
+
+That was when I saw she was different, she was clutching her abdomen, a bulge was growing in her stomach. 
+
+“C-come o-on!” I yelled and grabbed her shoulder, dragging her out of the room.
+
+
+
+Lena was now leaning against me as I dragged her out of the room. I let go of her and pulled the metal door closed, re-inserting all of the slide locks. Lena groaned even louder behind me, I turned and saw her sitting on the floor against the wall. The growth in her stomach was getting bigger, she… she looked like she was 9 months pregnant. I was trying to process what I was looking at when she screamed.
+
+“Aidan!” Her voice was full of panic.
+
+I ran to her and helped pull her back to her feet. The lightbulbs in the room seemed to be flickering every few seconds. I pushed open the door to the dining room and hauled her inside, I saw that Lena was leaving behind a trail of what looked like water. She collapsed against the dining room table, grabbing her abdomen in pain,
+
+“I d-don’t know what’s happening!” Her cries echoed through the room, her eyes were wide and full of tears.
+
+“I don’t know what to do!” She cried. 
+
+I was frozen, I had no ideas, no thoughts, I couldn’t help her.
+
+Lena let out another scream as blood began running down her legs, the lights around us flickering even more.
+
+“I don’t know what to do!” She continued crying, an unending wail of pain.
+
+She turned and started to climb onto the dining room table, I rushed forward to help her and stepped back. She removed her shorts and underwear as I stood there paralyzed, unsure of even what my own name was. 
+
+Lena continued screaming and hyperventilating. 
+
+“Help!” Lena screamed, her voice seemed to bring me back, I ran around to her and grabbed her hand.
+
+“I don’t know how to help!” I yelled, her face contorted and she let out another scream. I realized what she was doing and moved around the table to her legs. The sight was bloody, it was horrifying, I had no ability to help whatsoever. Finally after another round of screaming I saw what I thought was something crowning. 
+
+“Help me please!” Lena shouted, her voice cracking and full of tears. 
+
+I wasn’t sure what to do when I saw whatever it was, it wasn’t a head. Suddenly an arm pushed its way out and grabbed the end of the table, I fell backwards and collapsed against the wall, Lena’s screams seemed to get louder. I crawled away towards the pantry, ignoring Lena’s pleading. Crawling inside I slid the door shut and laid with my back against the wall, my entire body shaking. I closed my eyes and  clasped my hands to my ears, her cries of pain and suffering pierced every pour of my body. Tears rolled down my cheeks, I just wanted it to end. 
+
+The screams stopped suddenly. I heard a loud thud as something large fell to the floor. I opened my eyes, all I heard now was what sounded like labored breathing emanating from the room. Then scraping. No, it was dragging. Something large was dragging across the floor, giving off shallow breathing. It was getting closer to the pantry door, and I stopped breathing. My entire body was shaking.
+
+The pantry door slowly started opening, light from the dining room shone through. A large shape blocked the doorway, it’s arm outstretched as it slid the door open. That’s when I realized, it was me. It had my face, it’s bloody matted hair was mine, it’s eyes were wide but also mine. It was completely naked, and it started dragging itself towards me as if it’s legs didn’t work. I couldn’t scream, I couldn’t do anything, I was completely paralyzed. It grabbed my legs and pulled itself on top of me, its breathing was ragged. It grabbed my shirt and pulled it’s face right up to mine, I was looking at myself but it wasn’t me. It’s mouth twitched and it almost looked like it was…smiling. 
+
+A quiet groan came from the dining room and the thing snapped its head back towards the doorway. At that moment I seemed to regain all my senses. I yelled and got my feet up under its stomach and pushed it off me. It let out an inhuman screech as it writhed in the ground. I stood up and jumped over it towards the doorway, turning around I saw it arched over, I swear I heard bones cracking in its back. Its screeching was deep and breathy, I sprinted as fast as I could towards the door I knew led to the exit. I flung the door open and looked back, the thing was rising to its feet. 
+
+I ran through the doorway into the large room attached to the basement, I closed the door behind me as I heard what sounded like footsteps. I ran across the room to the next door and pulled it open and stepped into the small square basement. I heard the door in the other room break as I climbed the stairs, almost tripping myself as I went. I slammed the basement door shut and pulled the bookcase back in front of it, then using all my strength I pushed the living room couch into the bookcase. Combined they were probably a couple hundred pounds. Only then did I realize, I had left Lena down there. I had fled. That groaning I heard, was she alive? I went outside of the house, it was still light outside, and I ran towards my car. Climbing inside I started it up and reversed at full speed down the driveway. 
+
+After a few minutes of driving down the road at 80 miles an hour, a wave of emotion came over me, I nearly jerked the wheel and crashed. I pulled over to the side of the road and got out of the car, falling onto the ground I felt like I couldn’t breathe. I was clutching my chest, looking down I saw my hand was fully formed as if nothing had ever happened to it. I had no idea what to do next, so I drove to the police station.
+
+
+
+The next several hours were hell. I tried explaining to the officer I met what had happened, and he recommended me to a local hospital, thinking all the blood covering my clothes was from an accident. I was not satisfied with his suggestion and ended up handcuffed and taken to the drunk tank. After retelling this story to multiple officers, it was obvious none of them was taking me very seriously, and I was put in a cruiser and taken to my parents home. I tried explaining it to them, they were more confused by my assertions there was a basement there more than anything else. Finally an officer agreed to go search the old house, I sat in my room staring at the wall for what seemed like hours until my parents got a call. The officer had searched the house, and found no basement, in fact when he walked into the house he said he found the bookcase and couch flung against the adjacent stairs, with no basement door in sight. Instead I was again taken into custody for trying to file a false report.
+
+My parents knew I was bringing a friend to stay with us this summer, and despite my pleading that she might still be down there, nobody will listen. The cops have just brushed this off as me being “rejected” by a lady friend, an explanation my parents also believe, and since they can’t get a hold of Lena’s parents seeing as how they deny she ever existed, I have no way of proving she was ever with me, as if anyone would believe me if I had some proof. It’s been 2 days now, one spent in jail, another spent gathering supplies and writing this so there's some kind of written record. I was a coward, I saved myself and left her to die. I’m not proud, but if she’s still down there, even if it’s just her body, I’m going to get her. This time I’ve got more than a flashlight to help me. I’ll try and update this when I get back, with or without her, wish me luck.
+
