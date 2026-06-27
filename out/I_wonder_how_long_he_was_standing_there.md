@@ -1,0 +1,30 @@
+When I was 4 years old, something happened that I’ve never been able to fully explain. I’m 30 now, and I still can’t say with 100% certainty whether this was real or just an incredibly vivid nightmare. I know memories from that age aren’t reliable, but this one has never faded in the way everything else from my childhood has. I barely remember most of my early life, but I remember this in disturbing detail.  
+This happened in early October of 1999 in Richfield, a suburb of Minneapolis, Minnesota. My parents’ house was directly across the street from an elementary school. I remember it being late afternoon, that very specific Minnesota fall feeling where the air is crisp but not cold, and the smell of leaves feels heavy in the air. The sun was starting to go down, and the room had that dim orange light coming through the window.  
+I had been napping alone in my mom’s bedroom. The bed was against the wall, and there was a window directly to the left of it. The window was open for air, but the screen was still in place. From there, you could see into the neighbor’s backyard.  
+I remember waking up slowly and rolling over toward the window.  
+There was someone standing right up against the screen.  
+They were wearing what looked exactly like the Ghostface mask.  
+They weren’t moving. They weren’t looking around. They were just standing there completely still, staring directly at me.  
+Even now, I remember how wrong it felt. Like they had been there longer than I had been awake. Like I had interrupted something I wasn’t supposed to see.  
+For a few seconds I couldn’t move. I just stared back, my heart pounding so hard I can still remember the feeling of it.  
+Then, when they realized I was awake, they slowly raised what looked like a large hunting knife.  
+Not fast. Not chaotic. Just slow… deliberate… and never breaking eye contact.  
+That’s when I screamed for my mom.  
+As soon as I did, they stood there for another second, then turned and ran toward the street, disappearing around the side of the house as the daylight was fading.  
+My mom came running in right after, but by the time she got there, there was nothing there anymore. I tried to explain what I saw, but to her it sounded like a nightmare. And maybe it was.  
+But the part that has always stuck with me is what happened the next day.  
+My dad and I were walking along the side of the house. I remember him stopping near the window and looking at one of the exterior panels beside it. He pointed out a mark in it — a gash or scratch that I had never noticed before — and said something like, “I don’t remember that being there.”  
+I remember my stomach dropping when he said it. I never told him why.  
+Maybe it had always been there. Maybe it was something that happened that day. Or maybe my memory connected things that weren’t connected at all.  
+What’s strange is not just the memory itself, but how few things I remember from that age compared to how clearly I remember this one. Most of my early childhood is gone. I don’t remember preschool, I don’t remember most faces, I don’t remember normal everyday things from back then.  
+But I remember that window.  
+I remember that figure.  
+And I remember the way the knife moved, slow and controlled, like it wasn’t rushed or panicked at all.  
+And that’s what still bothers me when I think about it.  
+Because if I try to look at it logically, I keep coming back to the same question: what was that person doing?  
+Why stand completely still outside a child’s window, just watching? Why wait for me to wake up? And if the intention was to scare me—or something worse—why raise the knife so slowly, almost deliberately, without any sign of urgency?  
+It doesn’t feel like a random moment. It feels intentional in a way I still don’t understand.  
+Sometimes I try to think about it from the other side of that window. What would someone’s thought process be in that moment? Were they watching for a reaction? Deciding what to do next? Or had they already been watching long before I ever woke up?  
+I don’t know.  
+If anyone reading this has ever experienced something similar, even remotely close, I’d be interested to hear it. I don’t know if this was a real event, a nightmare, or something my child mind reconstructed over time. I just know it’s one of the only things from that age I can still clearly see.  
+And I still don’t know what to make of it.
