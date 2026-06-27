@@ -83,7 +83,7 @@ He finally spoke, “Are you telling me you did all of this, to these people, ho
   
 Murilo laughed before responding “My master demands offerings before he will walk amongst you. Are you familiar with the idea of the three wise monkeys?”  
   
-My mind raced, trying to imagine what he was referring to. Then it hit me. For those who do not understand Murilo’s crazed ramblings he was referring to a famous Buddhist principle. One monkey covers its ears, another covers its mouth, and the final one covers its mouth. Some people may know it as the saying hear no evil, see no evil, speak no evil.
+My mind raced, trying to imagine what he was referring to. Then it hit me. For those who do not understand Murilo’s crazed ramblings he was referring to a famous Buddhist principle. One monkey covers its ears, another covers its mouth, and the final one covers its eyes. Some people may know it as the saying hear no evil, see no evil, speak no evil.
 
 Once I understood I responded, “That explains the ears and the mouth, but you’re missing the eyes.”
 

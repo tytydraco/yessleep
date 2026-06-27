@@ -1,0 +1,429 @@
+I've never told this to anyone because it sounds exactly like the kind of story people make up for internet points.
+
+But my friend Maya and I have agreed on one thing: if either of us ever suggests another Himalayan road trip, the other has permission to slap us.
+
+This happened in October 2023.
+
+We rented a self-drive car and spent four days wandering through the  Himalayan villages on the Indian border with absolutely no itinerary. We drove wherever the roads looked prettier. We explored the cuisine, drank endless cups of tea, and pulled over every fifteen minutes because Maya insisted every mountain looked "stunning enough" for another photo.
+
+On our last evening, we'd driven to a viewpoint to watch the sunset. By the time we started back, it had begun pouring heavily. Rain hammered the windshield so hard the wipers could barely keep up.
+
+There was no chance we'd make it back to our hotel before midnight.
+
+I searched for the nearest place to stay.
+
+Google Maps showed a homestay just a few kilometres away. We were skeptical, but the reviews were stellar and the pictures looked cozy enough.
+
+The road began with apple orchards, tiny temples painted bright orange, and scattered houses with sheep grazing outside.
+
+Then the houses became fewer.
+
+The road narrowed.
+
+The guardrails disappeared.
+
+Eventually, the blue navigation line froze.
+
+Google maps stopped loading by now and Maya's phone was already at 20 percent.
+
+It was barely seven, but the mountains had already swallowed the daylight. If you've never driven through the Himalayas after sunset, it's hard to explain how quickly the world disappears. One minute you're surrounded by valleys and pine forests. The next, your headlights are the only proof that anything exists beyond the edge of the road.
+
+We hadn't seen another vehicle in nearly thirty minutes.
+
+Then the fog rolled in.
+
+Not patches of mist.
+
+A wall.
+
+I slowed to barely twenty kilometres an hour.
+
+That's when we saw the light.
+
+Just a single warm yellow glow tucked into the mountainside.
+
+As we got closer, a beautiful old wooden house emerged through the fog.
+
+Three stories.
+
+Stone foundation.
+
+A weathered tin roof.
+
+Warm lights glowing through every window.
+
+A faded wooden board swung gently above the gate.
+
+Only one word remained visible.
+
+**Homestay**.
+
+An elderly man opened the door before we even knocked.
+
+He looked... relieved.
+
+"You girls took the lower road," he said.
+
+It wasn't a question.
+
+"Yeah," I replied. "Google Maps."
+
+He sighed.
+
+"It still sends people that way."
+
+Something about the way he said still made me pause.
+
+He stepped aside.
+
+"Come in. Don't drive these roads after dark."
+
+The heavy wooden door shut behind us.
+
+Immediately, something felt... off.
+
+The house smelled faintly of cedar wood and freshly brewed cardamom tea. The old woman insisted we eat before discussing payment.
+
+They were surprisingly ordinary.
+
+They joked about tourists who underestimated mountain weather, asked where we were from, and complained about people leaving plastic bottles on trekking trails. For a while, I convinced myself I was simply being paranoid.
+
+If anything, they reminded me of my grandparents.
+
+The rain had slowed to a drizzle.
+
+While we were drying ourselves by the fire, someone hurried downstairs.
+
+A backpacker.
+
+Late twenties, maybe early thirties.
+
+He looked exhausted.
+
+Not physically.
+
+Mentally.
+
+He kept glancing toward the front windows every few seconds, as if he expected someone to appear outside.
+
+He barely acknowledged us.
+
+The old woman handed him some packed sandwiches.
+
+"Leaving already?"
+
+"I should've left before sunset," he replied.
+
+His voice shook.
+
+"You could stay another night," the old man offered.
+
+The backpacker immediately shook his head.
+
+"No."
+
+It wasn't loud.
+
+It was... desperate.
+
+"I have to keep driving."
+
+He grabbed his helmet, thanked them quickly, and hurried outside.
+
+We listened as the motorcycle disappeared into the fog.
+
+The engine echoed through the valley.
+
+It grew quieter.
+
+Quieter.
+
+Then...
+
+Nothing.
+
+No engine.
+
+No crash.
+
+Just silence.
+
+A few moments later, the old woman noticed a flannel shirt hanging over a chair.
+
+"He forgot this."
+
+The old man didn't even turn around.
+
+He stared into the darkness beyond the window for a long moment before quietly saying,
+
+"It's too late."
+
+I assumed he meant the backpacker was already too far away to catch.
+
+Around two in the morning, I woke because I smelled smoke.
+
+At first, I thought something inside the house had caught fire.
+
+I walked to the window and carefully pulled the curtain aside.
+
+The old couple stood on the front lawn.
+
+Between them burned a tiny fire.
+
+Not a bonfire.
+
+Just enough flames to burn one thing.
+
+The backpacker's shirt.
+
+The old man held it over the fire with long iron tongs while the old woman stood silently beside him.
+
+Neither of them spoke.
+
+Neither looked frightened.
+
+They looked...
+
+Practiced.
+
+As though this wasn't the first time.
+
+When the shirt had burned completely, they buried the ashes beneath a cedar tree.
+
+I stepped away from the window before they noticed me. My first instinct was to check whether our door was locked.
+
+I checked it three times.
+
+There was a small writing desk nearby. I dragged it in front of the door, hoping it would slow anyone trying to get inside.
+
+I barely slept after that.
+
+Every creak of the old wooden house sounded like footsteps.
+
+Every gust of wind made me think someone was standing outside our room.
+
+Around 3 a.m., I looked out the window again.
+
+The little fire beneath the cedar tree was still burning.
+
+The old couple were gone.
+
+Only the flames remained, flickering without making a sound.
+
+I closed the curtains and checked the door again.
+
+At exactly 4:30 a.m., frantic knocking shattered the silence.
+
+Not polite knocking.
+
+Desperate knocking.
+
+The bedroom door shook with every blow.
+
+Then I heard the old woman's voice through the wood.
+
+"Don't worry."
+
+A pause.
+
+"It's not your turn yet."
+
+Maya and I didn't answer.
+
+We slipped into the tiny dressing room, locked the door behind us, and sat on the floor, watching the time crawl by.
+
+4:45
+
+4:56.
+
+5:29
+
+5:47
+
+When the clock finally read 5:47 a.m., the knocking stopped.
+
+Not gradually.
+
+Instantly.
+
+The first rays of sunlight spilled through the window.
+
+We forced ourselves to act as though nothing had happened.
+
+All we wanted was to leave.
+
+The next morning, everything felt eerily normal again.
+
+The old woman packed us sandwiches for the drive.
+
+Neither of us had the courage to refuse.
+
+The old man refused to accept any payment.
+
+As we were leaving, he smiled and said,
+
+"The next time you visit us... try to arrive before sunset."
+
+I forced a smile.
+
+There wasn't going to be a next time.
+
+We got into the car, and I drove as fast as I safely could.
+
+About forty minutes later, we stopped at a roadside tea stall.
+
+The owner asked where we'd spent the night.
+
+"Mountainview Homestay," I said.
+
+He frowned.
+
+"There isn't one around here."
+
+"There is. Wooden house. Elderly couple."
+
+He stared at us for several seconds.
+
+"You took the lower road?"
+
+I nodded.
+
+He pointed back toward the road we'd come from.
+
+"That house burned down twenty-five years ago."
+
+My stomach dropped.
+
+"Then... where did we stay?"
+
+Right there, I opened Google Maps and searched my timeline.
+
+Nothing.
+
+No destination.
+
+No route.
+
+No record that we'd ever stopped there.
+
+We drove back.
+
+We found the bend in the road.
+
+The cedar tree.
+
+The rusted gateposts.
+
+Everything.
+
+Except the house.
+
+There was no foundation.
+
+No rubble.
+
+No sign that a building had ever stood there.
+
+Just forest.
+
+Maya and I swore to never talk about this.
+
+Eventually...
+
+I did.
+
+Exactly two weeks later.
+
+I was putting together an Instagram photo dump from the trip when Google Photos finished syncing.
+
+A notification appeared.
+
+Rediscover this memory.
+
+I frowned.
+
+I didn't remember this one.
+
+I opened it.
+
+It was Maya and me.
+
+Standing in front of the homestay.
+
+Smiling.
+
+The old couple stood in the doorway behind us.
+
+For a moment, I wondered if I'd somehow forgotten taking it.
+
+Then I checked the details.
+
+The timestamp made my stomach drop.
+
+October 28.
+
+Exactly two weeks after we'd returned home.
+
+I checked the metadata four times.
+
+It wasn't edited.
+
+It wasn't a screenshot.
+
+According to my phone...
+
+it hadn't been taken yet.
+
+Then I noticed something worse.
+
+Maya and I weren't wearing the clothes we'd had on that night.
+
+We were wearing matching fleece jackets we'd bought three days later.
+
+Jackets we didn't even own when we supposedly stayed at the homestay.
+
+I called Maya immediately.
+
+She didn't even say hello.
+
+She just asked,
+
+"Did you zoom in?"
+
+I hadn't.
+
+I wish I never had.
+
+The old couple weren't looking at the camera.
+
+Neither were we.
+
+All four of us were staring toward the trees behind the house.
+
+I increased the brightness.
+
+There was someone standing between the trees.
+
+Too far away to make out clearly.
+
+They weren't facing us.
+
+They were facing the house.
+
+Waiting.
+
+I still have that photo.
+
+I don't open it anymore.
+
+Not because of the figure in the trees.
+
+Because every few weeks, Google Photos tells me it's recognized a new face.
+
+The number keeps increasing.
+
+I've never gone back to that place.
+
+But according to my phone...
+
+someone keeps taking pictures.

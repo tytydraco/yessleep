@@ -1,0 +1,78 @@
+I never wanted to be a spy. 
+
+  
+Most people assume you’re only offered such a role once you’ve learned nine languages and graduated from an Ivy League. Of course, this assumption is mostly true if you’re imagining a publicly known government spy. Throughout my life, neighbors always assumed I worked for the CIA, doing work where I charm my way through international secrets.
+
+  
+But I never had the traditional spy job. Real special, aren’t I? No, I’m the unlucky bastard who got suckered into this demented job from a children’s game. A goddamn children’s game.  
+
+  
+*I Spy.*   
+
+  
+If I had known what I know now, I wouldn’t have ever uttered those words. Hell, I probably would have blinded myself with a vat of oil before playing this fucking game; at least then I would be unable to see them. Being blind and scarred beyond recognition would certainly be better than what I do now. A lot more people would be alive. 
+
+  
+You probably think I’m being dramatic, and that’s fine. I used to think the same thing. Afterall, when I was a kid, red was just *red*. Red was the color of brake lights and candy wrappers, and those stupid little plastic hearts people stick in flower arrangements. Now I know better, and I’m writing tonight for a reason. 
+
+  
+I see a therapist for all this bullshit (funded by your tax dollars, thanks) who is documenting my memories during our sessions. I speak aloud, she encourages me, you know, the whole therapy mumbo jumbo. She’s writing down what I saw and heard over the years; memory’s a bit fuzzy, so hypnosis is helping me remember. I really want to forget, but I know if I do, then all the shit I went through was for nothing. I journal all my thoughts, hoping that maybe I can help someone. I don’t know. All I know is that shit is getting worse for everyone, and we need all the help we can; government secrets be damned. 
+
+  
+Dr. Warrell is good at her job, I’ll give her that. Whoever trained her taught her one hell of a poker face. She doesn’t interrupt when I describe the sound a red bastard makes before it starts hunting you down. And she does this thing where she writes slowly, as if she moves too fast it might spook me. Dr. Vance is really thoughtful like that.
+
+  
+That said, there’s one thing she does that makes me want to flip the stupid round table that sits between us. Because, see, the worst thing about her is she keeps this glass of water on the table. She says it’s in case I need it and that it’s a grounding object for me or some bullshit. I’ve told her so many times that I hate that damn glass. 
+
+  
+Last week, she asked me what I thought would happen if I looked into it. I refused to look at it when I told her the truth: “It wouldn’t be empty anymore.” With a tut, she asked me if that had happened before. I laughed so hard I almost threw up; that was when she suggested the journals. It’s been a few years since then, but I guess they’ve helped if I wrote in them for this long.
+
+  
+Over the years, I collected all my journals, and tonight I’m going to begin writing them. I never expected anyone to read them. I knew I'd be murdered at best if someone read them. So, if you’re reading this, then I’m still alive, which is a hell of an inconvenience for everyone involved because it means those little red fuckers are keeping me alive for a reason. 
+
+  
+Up until recently, the red objects behaved like vultures; they circled around humanity and waited for someone stupid or curious enough to notice them. We only saw them if we knew how to look for them. Unfortunately for us, they’re getting bolder. 
+
+  
+For the past six months, I’ve been rigorously documenting every experience, travelling from across the world, barely getting any sleep as these bastards keep multiplying. The worst thing is people are noticing. These things are starting to end up on the news and social media. Back in the 70s, we could just sweep everything under the rug and lie and say it was a conspiracy. Now everyone’s got a phone attached to their hand that’s practically a gateway to Hell. For convincing you of what’s going on, I’ve written down the stories almost everyone knows thanks to chronic oversharing. 
+
+  
+Three months ago, one of those things appeared in a daycare mural. Reflected in the glossy sealant over a cartoon apple tree, it stayed there for nine minutes while twenty-six children sang about the days of the week. Every single child was gone by morning. I’m not going to remind you what their parents found.
+
+  
+Two months ago, a woman in Des Moines found every tomato in her kitchen stacked in a perfect tower in the sink. Her husband took a picture because he thought it was funny, something cute. While the husband is alive today (barely, I wouldn’t call the state he’s in living), the wife is not.  
+Then six weeks ago, a priest in New Mexico called my burner phone and asked me, very politely, if angels could be red. FYI, they can not. I asked him what he saw. 
+
+  
+Fuck, I still remember the shake in his voice. I could imagine him holding his crucifixion as he rasped, “Not angels,” before he screamed. The wetness of voice turned into a screaming cacophony of agony, voices upon voices, thousands of people, men, women, children, all thrown together in horrors as if the microphone was being dragged through a slaughterhouse drain. I should have known better than to continue that call.
+
+  
+I think that priest cursed me. Tonight, I found one of those things in my bathroom. They usually don’t seek people out like this, but I guess I was always different.
+
+  
+The one that hunted me tonight was the red cap from a bottle of aspirin. The only issue is that I don’t own aspirin. I stood in the doorway for almost five minutes, staring just past it, letting my eyes unfocus until the little red circle became part of the tile and part of the dirty grout that I hadn’t scrubbed in months. I very pointedly did not look in the mirror as I shut the door and stuffed my towel along its bottom crack until light no longer threatened to peek out. 
+
+  
+I stood shakily on the floor before I glanced out the window and saw the second one outside, then a third. Running to my study, I barricaded myself inside, and that’s where I am now. I’ve got two of those red fuckers outside right now as I’m writing. One is across the street. It looks like a child’s mitten, tucked into the curve of the bench under the flickering bus stop light. The thumb is folded inward like a hooked finger, beckoning me to come over.
+
+  
+The other *thing* is on the hood of my neighbor’s car, pretending to be a plastic heart. I've got no idea where it came from since Valentine’s Day was four months ago. The heart’s point is facing my window, ticking back and forth a few degrees as if it were a faulty compass needle trying to find me.  
+Despite the taunting, the two outside haven’t approached yet, and a tight knot twists my stomach.   
+See, when these *things* want to kill you, they don’t usually wait in pairs, let alone trios. When they wait in groups, they want you to do something. Tonight, I think they want me to tell you how this started. I think every story needs a witness, and God help me, I think they picked me.    
+So, here’s my warning before we go any further. 	
+
+  
+Do not play I Spy with anything red. Honest to God, if you value your life, don’t play I Spy at all. Once you know what to look for, well, you start to see it everywhere.
+
+  
+I don’t care if you’re bored. I don’t care if you’re trying to entertain a kid in the backseat. I don’t care if some charming little freak at a dinner party asks you to play like it’s nostalgic and harmless. Do not say those damning words unless you want to die. Do not laugh and say, “What, I Spy, like the children’s game?”
+
+  
+And if you’ve already said it, then I need you to listen carefully. 
+
+  
+You need to pretend like they aren’t there. No matter how grotesque or demonic or otherworldly they appear, you do not look at them. You ignore them, and you move on. That’s the best you can do unless you want to copy the dumb shit I do that only serves to get other people killed. 
+
+  
+If you choose to read from here, I can’t help you. It’s on you with whatever you decide to do with all of this information. Maybe I’ll get lucky, and this reaches someone who knows what the hell I’m talking about. Back when I still had hope, I thought the worst part was that I thought it was a job. Worse than that, I thought it might make me useful. But now I know it’s a game, and the worst part is, I think we’re the ones who taught them how to play. 
+
