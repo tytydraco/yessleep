@@ -12,9 +12,9 @@ It was after midnight. We were doing our rounds, strolling through the dimly lit
 
 I turned around. 
 
-He was wobbling in place, clawing at his neck and chest, skin paler than the moon, lips tinted this nightmarish blue-gray. The half-eaten sandwich lay scattered at his feet. He was choking. I *knew* he was choking, and I’d been taught what to do: get behind him, wrap my arms around his belly, and thrust. Just as I was about to help, a wave of familiar dread crawled across my skin, and my brain erupted with fitful static. 
+He was wobbling in place, clawing at his neck and chest, skin paler than the moon, lips tinted this nightmarish blue-gray. The half-eaten sandwich lay scattered at his feet. He was choking. I *knew* he was choking, and I’d been taught what to do: get behind him, wrap my arms around his belly, and thrust. Just as I was about to help, a familiar dread began crawling across my skin, and my brain erupted with fitful static. 
 
-The specter of doubt was creeping into my skull.
+The specter of doubt was creeping in.
 
 Was I *sure* I knew what to do? What if I made a mistake? Should I thrust in *and* up or just in? Did I remember all the steps? Was I supposed to reach into his mouth and try to remove the blockage first? And while those asinine questions left me paralyzed, I just stared at the dying man. Fear was making a mess of his face. Bulging eyes. Sharp creases. Quiet, contorted terror. 
 
@@ -56,7 +56,7 @@ It belonged at the bottom of the reservoir my Grandpa had built behind his mansi
 
 Years had passed since I’d last set foot on the property. I parked along a ditch. A single paved footpath connected the dirt road to the boarded-up estate. Painful energy seemed to radiate from the dilapidated structure; felt like I had a migraine coming on as I walked along the edge of the property, navigating the cluttered mass of pines and white oaks, until I reached a clearing and the musty stench of decaying algae confirmed I’d arrived. I lit a cigarette and sucked in some thick gulps of smoke, trying to repress the old fear bubbling beneath my skin. 
 
-In my family, I’ve always been the *odd-one-out*. The sole dud. My older brother is a Nobel laureate. My twin sister is an Olympian. Both my parents were successful lawyers and my Grandpa earned a Purple Heart in Vietnam. And I'm just...me. Not dumb, but chronically scatterbrained. Not weak, but incredibly clumsy. And anxious. God, I was anxious about everything as a kid. Put it all together, and the diagnosis became clear: I was defective. My parents figured if anyone could fix me, it’d be Grandpa, the familial patriarch, the so-called perfect man, the one who'd made our fortune from nothing. I spent most summers at Grandpa’s estate. They were nothing short of hell, but you want to know the real fucked up part? 
+In my family, I’ve always been the *odd-one-out*. The runt of the litter. My older brother is a Nobel laureate. My twin sister is an Olympian. Both my parents were successful lawyers and my Grandpa earned a Purple Heart in Vietnam. And I'm just...me. Not dumb, but chronically scatterbrained. Not weak, but incredibly clumsy. And anxious. God, I was anxious about everything as a kid. Put it all together, and the diagnosis became clear: I was defective. My parents figured if anyone could fix me, it’d be Grandpa, the familial patriarch, the so-called perfect man, the one who'd made our fortune from nothing. I spent most summers at Grandpa’s estate. They were nothing short of hell, but you want to know the real fucked up part? 
 
 I can *feel* the toll those summers took on me, but I don’t remember most of them.
 
