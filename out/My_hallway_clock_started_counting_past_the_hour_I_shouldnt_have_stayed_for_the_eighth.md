@@ -1,0 +1,364 @@
+I don’t usually write things down.
+
+Not like this. Not in a way that matters.
+
+I don’t keep journals. I don’t track my days. I don’t make records of what happens in my own house.
+
+I always assumed that meant nothing important was being missed.
+
+Now I think that’s exactly what it was counting on.
+
+Because whatever this is—it doesn’t stop when you forget it.
+
+It just waits for you to.
+
+So I’m starting now.
+
+Before I lose the order of it.
+
+Before something else decides how it’s remembered.
+
+This is me, recording it properly.
+
+  
+
+
+There’s a clock in my hallway.
+
+It was here when I moved in. The landlord said I could get rid of it if I wanted, but I didn’t see a reason to. It works. It keeps time. That should be enough.
+
+That was my first mistake.
+
+Assuming that if something keeps time, it keeps it correctly.
+
+It chimes every hour.
+
+Not softly. Not something you ignore. It lands and you feel it in the walls.
+
+You wait for it to finish.
+
+You always wait for it to finish.
+
+I didn’t question that at first.
+
+Now I think that might be the second mistake.
+
+
+
+Three nights ago, I woke up at 1:58 a.m.
+
+Not suddenly. Not from a dream.
+
+Like something had been waiting for me to wake up.
+
+The house wasn’t quiet.
+
+It was listening.
+
+I stayed still, trying not to move, trying not to let it know I was fully awake.
+
+At 2:00, the clock started.
+
+\*Dong.\*
+
+One.
+
+\*Dong.\*
+
+Two.
+
+That should have been the end of it.
+
+That’s where it always stops.
+
+That’s where it’s supposed to stop.
+
+\*Dong.\*
+
+Three.
+
+I didn’t move, but something in the hallway did.
+
+\*Dong.\*
+
+Four.
+
+The sound felt closer than the clock.
+
+\*Dong.\*
+
+Five.
+
+I was already sitting up without remembering deciding to.
+
+\*Dong.\*
+
+Six.
+
+The hallway was completely dark, but it didn’t feel empty.
+
+\*Dong.\*
+
+Seven.
+
+I was standing in the doorway, looking straight into it.
+
+And then—
+
+\*Dong.\*
+
+Eight.
+
+The eighth doesn’t behave like the others.
+
+If I’m going to record this properly, that matters.
+
+The first seven strike and fade.
+
+The eighth… holds.
+
+Like it’s not just a sound, but something being sustained.
+
+Or waited on.
+
+I told myself I’d miscounted.
+
+That’s the problem with not keeping a record—you start trusting the version of events that feels more comfortable.
+
+
+
+So the next night, I corrected that.
+
+I stayed awake.
+
+I stood under the clock before it happened.
+
+If something is wrong, you observe it directly.
+
+That was my third mistake.
+
+2:00.
+
+\*Dong.\*
+
+One.
+
+\*Dong.\*
+
+Two.
+
+For a second, I thought I’d proven myself wrong.
+
+I almost went back to bed.
+
+Then—
+
+\*Dong.\*
+
+Three.
+
+I won’t write all eight again. I don’t need to. I remember them exactly.
+
+What matters is this:
+
+By the time it reached seven, I was no longer standing where I started.
+
+The hallway felt longer.
+
+The sound felt closer.
+
+And when it reached eight—
+
+It didn’t just hold.
+
+Something answered it.
+
+Breathing.
+
+From the far end of the hallway.
+
+Slow.
+
+Measured.
+
+Not reacting to me.
+
+Not surprised.
+
+Just… there.
+
+Like it had been waiting for the count to finish.
+
+I didn’t turn around.
+
+It wasn’t hesitation. It was refusal.
+
+Looking would have finished something.
+
+And once it was finished, it wouldn’t need the distance anymore.
+
+So I kept my eyes forward.
+
+And I counted.
+
+Because it had started with a count.
+
+And I could feel it waiting for me to follow.
+
+One breath.
+
+In.
+
+Out.
+
+Two.
+
+In.
+
+Out.
+
+I kept them quiet. Smaller each time.
+
+Like I could make myself harder to find.
+
+I got to seven.
+
+I stopped there.
+
+Because something had already taken the eighth.
+
+And it wasn’t standing at the end of the hallway anymore.
+
+The breathing stopped.
+
+Not gradually.
+
+Not moving away.
+
+It was just… gone.
+
+Like something had stepped back out of the space it was using.
+
+
+
+This morning, I checked the clock in daylight.
+
+It works normally.
+
+At 2 p.m., it chimed twice.
+
+Clean. Finished. Correct.
+
+Daylight doesn’t seem to matter to it.
+
+Or maybe I don’t.
+
+I’m not sure which is worse.
+
+There’s something else I noticed.
+
+The numbers on the clock face are worn unevenly.
+
+Most of them look untouched.
+
+But the 8—
+
+The 8 looks handled.
+
+Not scratched.
+
+Not damaged.
+
+Just… used.
+
+Like it’s the only part that matters.
+
+
+
+It’s 1:52 a.m. right now.
+
+I’m writing this instead of standing in the hallway again.
+
+Because the last time I stood there, it felt like something learned me.
+
+That was the mistake.
+
+Watching it was a mistake.
+
+Letting it finish was a mistake.
+
+I thought it was a sequence. Something with an end.
+
+It isn’t.
+
+There’s a point where it stops being counting and starts being a signal.
+
+I stayed past that point.
+
+It’s already moving out there.
+
+Not footsteps.
+
+Something heavier.
+
+Careful.
+
+Measured.
+
+Like it doesn’t need to search.
+
+Like it already knows where everything is.
+
+Like it already knows where I am.
+
+I keep thinking about the breaths.
+
+Seven in.
+
+Seven out.
+
+No eighth.
+
+And the more I think about it, the more that feels deliberate.
+
+Like the count doesn’t complete out there.
+
+Like it completes somewhere else.
+
+If the clock reaches eight tonight, I’m not staying.
+
+I made that mistake once.
+
+I stood there and listened all the way through.
+
+That’s when it changed.
+
+You’re not supposed to stay for the eighth.
+
+You’re supposed to leave before something realizes you didn’t.
+
+
+
+It’s 1:59.
+
+I can hear the mechanism starting.
+
+A small internal movement.
+
+Like something winding up.
+
+Or lining up.
+
+If anyone else has one of these clocks—
+
+If yours ever goes past the hour—
+
+Don’t stand under it.
+
+Don’t count it out loud.
+
+And whatever you do, don’t stay long enough to hear what comes after.
+
+Because the eighth isn’t part of the clock.
+
+You’re supposed to be gone before it has something to answer.
