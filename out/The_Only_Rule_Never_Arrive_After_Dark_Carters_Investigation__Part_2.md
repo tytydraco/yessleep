@@ -1,5 +1,5 @@
-[Part 1](https://www.reddit.com/r/TheAftermireArchives/comments/1u81nn0/the_only_rule_never_arrive_after_dark_carters/)  
-[Part 3](https://www.reddit.com/r/TheAftermireArchives/comments/1udkf9o/the_only_rule_never_arrive_after_dark_carters/)  
+[All parts](https://www.reddit.com/user/Aftermire/comments/1uh1cu0/the_cabin_in_the_appalachian_woods_we_broke_the/)  
+  
 The air in the room instantly grew heavy.  
 Years of experience helped me take control of the situation.
 

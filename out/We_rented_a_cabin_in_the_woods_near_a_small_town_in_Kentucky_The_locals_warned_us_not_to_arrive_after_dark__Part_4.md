@@ -1,7 +1,5 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1suctls/we_rented_a_cabin_in_the_woods_near_a_small_town/)  
-[Part 2](https://www.reddit.com/r/nosleep/comments/1sx2zcr/we_rented_a_cabin_in_the_woods_near_a_small_town/)  
-[Part 3](https://www.reddit.com/r/nosleep/comments/1t6x462/we_rented_a_cabin_in_the_woods_near_a_small_town/)  
-  
+[All Parts](https://www.reddit.com/user/Aftermire/comments/1uh1cu0/the_cabin_in_the_appalachian_woods_we_broke_the/)
+
 I felt a dull pain in the back of my head, and my temples were throbbing with a splitting ache.  
 I slowly peeled my face off the hard, cold floor panels of our bedroom.  
 A warm red stream ran down my cheek and chin.
@@ -63,8 +61,8 @@ The nurse stepped closer, her face suddenly serious, and said, “You need to li
 
 The machine let out one long, continuous tone.
 
-The nurse grabbed my wrists and shouted, “What are you doing? Calm down and get back in bed!”  
-  
+The nurse grabbed my wrists and shouted, “What are you doing? Calm down and get back in bed!”
+
 I tried to pull away. I couldn’t be here.  
 I had to find Olivia.
 
@@ -79,8 +77,8 @@ The nurse stormed out of the room, clearly pissed.
 I looked up at him.  
 He looked about forty-five, with a scruffy beard and tired, irritated eyes.
 
-He took a few steps toward the bed, and I caught the smell of cigarette smoke.  
-  
+He took a few steps toward the bed, and I caught the smell of cigarette smoke.
+
 “My name is Detective Carter,” he said, pulling out a small notebook.
 
 Snapped out of my daze, I shouted, “You found my wife?! What happened to Olivia?!”
@@ -438,4 +436,3 @@ I felt myself piss down my pants, the warmth running all the way to my ankles.
 Behind me, I heard it.
 
 A long... slow... metallic scraping sound... against wood. 
-

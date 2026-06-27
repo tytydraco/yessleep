@@ -1,8 +1,5 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1suctls/we_rented_a_cabin_in_the_woods_near_a_small_town/)  
-[Part 2](https://www.reddit.com/r/nosleep/comments/1sx2zcr/we_rented_a_cabin_in_the_woods_near_a_small_town/)  
-[Part 3](https://www.reddit.com/r/nosleep/comments/1t6x462/we_rented_a_cabin_in_the_woods_near_a_small_town/)  
-[Part 4](https://www.reddit.com/r/nosleep/comments/1t917sq/we_rented_a_cabin_in_the_woods_near_a_small_town/)  
-  
+[All Parts](https://www.reddit.com/user/Aftermire/comments/1uh1cu0/the_cabin_in_the_appalachian_woods_we_broke_the/)
+
 “Damn it, Olivia… it’s 4 p.m., we were supposed to leave 3 hours ago,” I said angrily, holding the phone to my ear and packing the last suitcase into the car.
 
 “I know, there’s nothing I can do about it. I was supposed to stop by the office for two hours to help the girls with a few things because there are a lot of clients, and my boss kept piling more work on me. I can’t say no, you know we need the money,” she said in a raised voice, then added after a moment.
