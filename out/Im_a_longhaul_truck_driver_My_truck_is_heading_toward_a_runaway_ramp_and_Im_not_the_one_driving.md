@@ -88,9 +88,9 @@ I also knew what came after that.
 
 There's a runaway truck ramp. It's a long bed of gravel and sand cut into the shoulder of a steep decline, built for trucks whose brakes have failed, so the incline and the loose surface can do the stopping that a guardrail can't. They’re meant to save lives.
 
-RUNAWAY TRUCK RAMP 2 MILES.
+**RUNAWAY TRUCK RAMP 2 MILES.**
 
-RUNAWAY VEHICLES ONLY.
+**RUNAWAY VEHICLES ONLY.**
 
 My truck isn't speeding. It isn't shaking or swerving. It's not doing anything remotely close to being out of control by any measure. The engine brake is working the way it should. The road is dry and clear. There's no reason for my truck to need that ramp.
 
@@ -112,7 +112,7 @@ I'm typing this with the brightness down all the way, under the blanket, and I'm
 
 We passed the next sign a few minutes ago. I saw the yellow of it through the gap in the curtain.
 
-RUNAWAY TRUCK RAMP 1 MILE.
+**RUNAWAY TRUCK RAMP 1 MILE.**
 
 Again, I know this road. There's another sign at the half-mile mark, and then the ramp itself, coming up fast on the right, a hard climb through deep gravel at a bad angle.
 
@@ -122,6 +122,8 @@ I looked again just now.
 
 Phone, still on the dash. Her, still driving. Him, still beside her.
 
-RUNAWAY TRUCK RAMP 1/2 MILE.
+**RUNAWAY TRUCK RAMP 1/2 MILE.**
 
 I'm going to try for my phone.
+
+**Update:** We reached the ramp. My truck has come to a stop. They're just sitting still. 
