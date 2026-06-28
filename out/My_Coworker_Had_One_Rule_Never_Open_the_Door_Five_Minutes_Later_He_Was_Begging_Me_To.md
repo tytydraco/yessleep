@@ -1,0 +1,549 @@
+I never should have taken the job.
+
+That's probably how every horror story starts, but I genuinely mean it.
+
+Three weeks ago I was working nights stocking shelves at a grocery store. Rent had gone up again, my truck had broken down, and I was two months behind on everything.
+
+Then I found the listing.
+
+Facility Watch Officer.
+
+No experience required.
+
+Housing provided.
+
+Excellent pay.
+
+Remote location.
+
+The interview lasted six minutes over a video call. They asked if I could stay calm under pressure, work long shifts, and follow instructions exactly.
+
+I answered yes to all three.
+
+The man smiled.
+
+"Good," he said. "There is only one rule that matters."
+
+He didn't explain.
+
+I found out after I arrived.
+
+The facility sat alone in the middle of hundreds of square miles of old forest.
+
+Not a national park. Not military. At least, not officially.
+
+The road ended at a chain-link gate topped with razor wire. Beyond it stood a squat concrete building surrounded by floodlights and backed by endless black trees.
+
+No town. No power lines. No cell service. Just forest.
+
+The man waiting for me introduced himself as Ethan.
+
+He looked like someone who hadn't slept in years—gray stubble, sunken eyes, and a coffee mug permanently in one hand. He barely shook mine.
+
+"You'll learn the routine today," he said.
+
+The routine was painfully ordinary. Generator checks. Security cameras. Water filtration. Fence inspections. Log every movement. Sign every report. Repeat.
+
+Nothing exciting ever happened.
+
+At dinner that night he finally became serious. He locked the steel entrance door before sitting across from me.
+
+"There is one rule."
+
+I laughed.
+
+"I figured."
+
+His expression never changed.
+
+"If anyone knocks after sunset..."
+
+He paused.
+
+"...you do not open this door."
+
+I frowned.
+
+"What if it's you?"
+
+"It won't be."
+
+"What if you're hurt?"
+
+"It doesn't matter."
+
+"What if you're dying?"
+
+His eyes locked onto mine.
+
+"Especially then."
+
+Silence filled the room.
+
+He leaned closer.
+
+"I don't care if you hear me crying. I don't care if I sound terrified. I don't care if I know things only I could know."
+
+"You leave the door shut."
+
+Something about the way he said it made the room feel colder.
+
+"What happens if I open it?"
+
+He looked toward the steel door.
+
+"They come inside."
+
+The next two weeks were almost boring enough to make me forget the conversation.
+
+Ethan was quiet.
+
+The facility stayed quiet.
+
+Every evening we locked the entrance before sunset. Every morning we unlocked it again.
+
+Nothing ever happened.
+
+Eventually I decided isolation had broken him. Some people couldn't handle living this far away from civilization. He'd convinced himself something was outside.
+
+I almost felt sorry for him.
+
+Then came the false alarm.
+
+Around nine that night someone knocked.
+
+Three slow knocks.
+
+Metal against metal.
+
+Ethan froze.
+
+He silently chambered a shotgun round.
+
+We waited.
+
+The knocking stopped.
+
+Ten minutes later he slowly unlocked the door.
+
+Nothing.
+
+No footprints.
+
+No animals.
+
+Nothing.
+
+He relaxed.
+
+"Probably a branch."
+
+I almost laughed.
+
+The wind wasn't even blowing.
+
+Five nights later everything changed.
+
+Rain hammered the roof hard enough to shake dust from the ceiling. The cameras had gone completely white with static. Power flickered twice.
+
+Ethan checked the monitors.
+
+"I'll reset the exterior relay."
+
+He grabbed a flashlight.
+
+Before opening the door he looked directly at me.
+
+"If I'm not back in five minutes..."
+
+He swallowed.
+
+"...remember the rule."
+
+Then he disappeared into the rain.
+
+The steel door slammed shut behind him.
+
+I watched him on Camera Four.
+
+He crossed the yard.
+
+Reached the relay cabinet.
+
+Then—
+
+Every camera died.
+
+The monitors became gray static.
+
+Exactly five minutes later, someone pounded on the door.
+
+Not knocked.
+
+Pounded.
+
+"Ethan?"
+
+No answer.
+
+Another slam.
+
+Then his voice.
+
+"Open up!"
+
+He sounded panicked.
+
+"I slipped!"
+
+"I think my leg's broken!"
+
+I rushed toward the lock.
+
+Then I remembered.
+
+Especially then.
+
+My hand froze on the deadbolt.
+
+"Ethan?"
+
+"It's me!"
+
+"I can't stand!"
+
+Another desperate bang.
+
+"Hurry!"
+
+Every instinct screamed to help him.
+
+Then I remembered something strange.
+
+The cameras had died.
+
+How had he reached the door so fast?
+
+The relay cabinet sat almost two hundred yards away.
+
+He couldn't have crawled back that quickly.
+
+I stepped backward.
+
+Outside...
+
+Silence.
+
+Then...
+
+"Evan."
+
+Only Ethan knew my first name.
+
+"I know what you're thinking."
+
+"I made it back."
+
+"I'll bleed out if you don't help me."
+
+I closed my eyes.
+
+"Tell me something only you know."
+
+Without hesitation he answered.
+
+"You keep twenty-seven dollars taped under the driver's seat of your truck because you don't trust banks."
+
+My blood turned to ice.
+
+I'd never told anyone that.
+
+Not once.
+
+He laughed nervously.
+
+"See?"
+
+"It's me."
+
+"Please."
+
+The lock suddenly felt impossibly heavy.
+
+Maybe Ethan had been right.
+
+Maybe something really was wrong out here.
+
+Then...
+
+I heard another voice.
+
+Very faint.
+
+From somewhere much farther away.
+
+"Evan!"
+
+It echoed through the trees.
+
+"Don't open it!"
+
+I stared at the door.
+
+The voice outside whispered,
+
+"Don't listen."
+
+Then, far away again...
+
+"Evan!"
+
+"RUN!"
+
+Two Ethans.
+
+One at the door.
+
+One somewhere deep in the forest.
+
+The one outside suddenly became angry.
+
+"He's lying!"
+
+"I'm right here!"
+
+Something slammed into the steel hard enough to rattle the hinges.
+
+Then...
+
+Another impact.
+
+Harder.
+
+Then silence.
+
+Complete silence.
+
+For almost a minute.
+
+I thought it was over.
+
+Then I heard breathing.
+
+Not normal breathing.
+
+Slow.
+
+Wet.
+
+Like someone learning how lungs worked.
+
+"Evan..."
+
+The voice sounded almost perfect now.
+
+Almost.
+
+Every word carried tiny mistakes.
+
+Breaths where none belonged.
+
+Smiles inside sentences.
+
+The rhythm wasn't human anymore.
+
+"You don't... have... to... be... afraid..."
+
+A fingernail scraped slowly down the steel door.
+
+Not scratching.
+
+Feeling.
+
+Searching.
+
+Then came dozens more.
+
+Metal screamed.
+
+Whatever stood outside wasn't alone.
+
+I backed away until I hit the opposite wall.
+
+The emergency radio crackled to life by itself.
+
+A voice spoke calmly.
+
+"Facility Twelve."
+
+"If the entities have reached the entrance, maintain lockdown."
+
+"Recovery personnel arrive at sunrise."
+
+Entities?
+
+Recovery?
+
+The radio clicked off.
+
+Outside...
+
+Every scraping sound stopped at once.
+
+Then I heard Ethan's voice again.
+
+Softly.
+
+Defeated.
+
+"I'm sorry."
+
+"I couldn't keep them away forever."
+
+No screaming.
+
+No panic.
+
+Just sadness.
+
+"I should've told you what this place really was."
+
+Then—
+
+A terrible sound.
+
+Not a scream.
+
+A voice being torn apart.
+
+Like someone ripping a cassette tape in half.
+
+It lasted only three seconds.
+
+After that...
+
+The thing outside spoke again.
+
+Perfectly.
+
+"I'm okay now."
+
+It wasn't Ethan anymore.
+
+It was a flawless recording.
+
+Empty.
+
+Emotionless.
+
+Repeated exactly.
+
+Over.
+
+And over.
+
+And over.
+
+"I'm okay now."
+
+"I'm okay now."
+
+"I'm okay now."
+
+It kept saying it until dawn.
+
+When sunlight finally reached the windows, every sound outside stopped instantly.
+
+An hour later black SUVs rolled through the gate.
+
+Men in dark uniforms entered without saying a word.
+
+They never asked if I was hurt.
+
+They never asked what happened.
+
+One of them looked at the untouched deadbolts.
+
+"You kept the rule."
+
+I nodded.
+
+"Where's Ethan?"
+
+No one answered.
+
+Instead, one man handed me a keycard with my name already printed on it.
+
+"Congratulations," he said.
+
+"Your probationary period is complete."
+
+I stared at him.
+
+"My coworker is dead."
+
+He didn't react.
+
+"He has been reassigned."
+
+Another man opened a thick metal cabinet I'd never noticed before.
+
+Inside were dozens of employee badges.
+
+Some looked decades old.
+
+Hundreds of names.
+
+Hundreds.
+
+Each badge had a date.
+
+No end dates.
+
+Just start dates.
+
+The oldest one was over sixty years old.
+
+I finally understood.
+
+Nobody retired.
+
+Nobody quit.
+
+Nobody left.
+
+Every watch officer eventually became the coworker who gave the rule to the next desperate person willing to take the job.
+
+As the convoy prepared to leave, the team leader stopped beside me.
+
+"The door kept them out."
+
+He looked toward the forest.
+
+"They only learn new voices when someone opens it."
+
+He climbed into the SUV.
+
+Before the vehicles disappeared down the road, he rolled down the window one last time.
+
+"Oh..."
+
+"They know yours now."
+
+That was six hours ago.
+
+The sun is setting again.
+
+I'm sitting alone inside the facility.
+
+The deadbolts are locked.
+
+About ten minutes ago...
+
+I heard my own voice outside.
+
+It whispered through the steel.
+
+"Don't worry."
+
+"I know how to get you to open the door next time."

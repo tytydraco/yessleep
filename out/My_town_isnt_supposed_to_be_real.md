@@ -1,0 +1,20 @@
+As a result of both my upbringing and the attitude of the people in my town, I was raised as a devout believer. In my village, we lived by dedicating ourselves to Iøbā. When we were born, we were blessed with the blood of a deer, a cow, and our father (you can think of this like baptism in Christianity). And of course, we did this in his presence—in his mighty place within our church. Before I tell you what I went through, I would like to give you some information about life in our town:
+
+1. **We are bound to our traditions.** If anyone in our village fails to show the necessary respect or care toward them, the Father warns them. If it happens again, our Father does what he deems appropriate  
+.  
+2. **Strangers are not welcome in our town.** Sometimes people lose their way—usually those who are lost—and end up in our town. In such cases, a bell tolls throughout the entire town, and people go into their homes, completely isolating themselves from the outside. Once the Father handles the situation, people can go on with their lives.
+
+3. **Iøbā is our only truth.** To exalt him, we gather in front of his monument every Wednesday. In return for doing this, he shows us his mercy and grants us abundance. If we fail to do enough, he gets angry, and the consequences do not end well for us.
+
+4. **The Father is never questioned.** As the holy representative of Iøbā, the Father is the one who passes all knowledge down to us. The most important responsibilities in our village rest on his shoulders, and he never complains. When I was a child, I used to wish I could be just like him.
+
+5. **No one leaves the town.** The Father told us about the dangers of the outside world. He says that the moment we step out of the town, we will leave the protection of the almighty Iøbā, and our survival will be impossible. The punishment for leaving the town is execution. The Father mentioned that this is a more merciful path than wandering away from Iøbā's way.
+
+6. **From sunset until dawn, Iøbā's name is never spoken.** He does not like to be mentioned during these hours of the day.
+
+7. **The deceased are never spoken of.** When someone dies, our Father throws the body into a bottomless well behind our church. While the Father carries the body, we kneel around him in the middle of the path, and when he finishes his task, we offer him a cup of animal blood. The Father drinks it while uttering the name of the deceased, and from that moment until eternity, that person is never spoken of again. If they return, well, that is another matter entirely.
+
+8. **No one has a clear profession or property.** We do the work our Father deems worthy of us and live in the manner he sees fit. For us, this is the only way to avoid committing sins.
+
+Our Father had assigned me the task of checking the traps in the forest. I started my rounds, walking through the usual spots. I had checked a few of them when I heard a sound from up ahead. At first, I thought it was an animal and didn't care much, but when I heard it a few more times, I realized it sounded more like a human. I was supposed to be the only one in the forest; I thought someone had disobeyed the Father's word, and I wondered what kind of punishment they would face. That was until I saw him—a man caught in one of our traps. AND HE WAS FROM THE OUTSIDE.  
+I had to report this to the Father; I was terrified. I wasn't supposed to see this. That man was strange, the kind we couldn't comprehend. Our Father would know how to deal with this. Just as I was about to leave, he saw me and begged for help. Leaving him there felt sickening, but I couldn't anger Iøbā. I ran toward the town and started looking for the Father. When I told him what happened, he delivered the hardest slap of my life across my face for my mistake. He told me that the bell would toll, and that my punishment would be given after everything was over. I went to my house and began to wait in my windowless room. I have never been more afraid in my life...
