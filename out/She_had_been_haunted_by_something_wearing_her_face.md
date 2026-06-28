@@ -1,0 +1,365 @@
+Or at least that’s what the coursemate that asked for our help after school told us. Didn't know her much- worked together on a project, a nice person, reliable enough that we more or less coasted on her skills, was ill-at-eased on that.  
+“Why *us*, of all people?” I remember asking. “What *have* we done to deserve your trust, anyway?”  
+“There are *two* supernatural clubs in this school-” noted Allie, “-you could always ask *them*.”
+
+She looked confused, like the thought never came to her before. Clutched the golden amulet worn around her neck.  
+“I don’t know… my heart told me to, really.”  
+…okay. 
+
+—
+
+Two days later we hailed a car.
+
+She lived in an ordinary apartment- outer walls tainted with moss and mildew and crackling paint. The security guard was distracted by a soccer game he was watching, and I had to call out to him before the gates could be opened.  
+(At least it looked *human*.)
+
+“Akemi isn’t coming with us after all…”   
+“She’s busy with clubwork, being their treasurer,” I replied. “At least she gave us tools.”  
+“Shame. I would have appreciated the help.”
+
+Our coursemate was already waiting in the lobby. 
+
+Allie pinched me when she saw her. “I’ll tell you later.” Her eyes were shining- actually flashing light.  
+“What is it that you can’t say now?”  
+Before she could respond, the car stopped. The driver bid us a “good day!” and we had to get off.
+
+“Em, Al, so glad you’re here. It’s gotten worse since last time.” She looked visibly horrified, but interestingly her eyes…  
+…one would expect her eyes to be bloodshot, or greyed over, or for there to be circles around it. But the rest of her looked sincere, and all the amulets I carried were signalling for *something*.  
+We walked into an old elevator, listened to it start up.
+
+*Well. Starting from about four years ago, whenever she sat alone some* being *emerged. At first it was the briefest flicker of a face, just enough to question herself.*  
+*There was a familiar aching in her heart, however, that felt more complete when it was there.*
+
+“Please do not start conversations like that,” declared Allie, “I just sat down.” I stared at her.  
+“I’m serious!” she cried, almost raising her voice.
+
+*She didn’t tell anyone, just went to temples and bought amulets. Didn’t want to frighten her parents, thought it was just her being tired. Or perhaps it was the car crash that happened a couple of weeks before that.*  
+*How she could say that without betraying a hint of emotion was beyond me.*
+
+“Well, certainly we needed the humor, considering where we are going.”  
+“Allie,” I sighed, “if you want to say anything this dark, please don’t use other people as your punchline.”
+
+*It never faded. Slowly it became clearer, which was when she realized what it looked like.* Her.  
+Her *face, covered in blood and grime, radiating sorrow.*  
+*At this point she couldn’t continue, and took out a written description of her ailment.*
+
+“Two truths and one lie,” Allie decided. “My room wallpaper is pink, I was shot in the face before, and my favourite book is ‘The Martian’.”  
+“...hang on, certainly it can’t be the obvious one? What do you mean-”  
+“Answer the question, will you not.”
+
+*Then one day, about two years ago, it spoke. Faintly at first, but slowly it became clear.*  
+*You stole my life, it said.*
+
+“...your wallpaper?”  
+“Tell me how you figured *that* out-”  
+The elevator door opened.
+
+*None of the many temples she visited could exorcise it.*
+
+—
+
+The apartment block was reasonably-sized. One living room, a couple of bedrooms, in lieu of a bed there was some kind of cryo-pod in hers, stamped with the symbol of a globe. There was a well-loved teddy bear in it.  
+(Apparently her body was still too broken to function without constant surveilance…)  
+Entering the room, my amulets went off again. Allie was too busy looking around to notice.
+
+She technically lived with her parents, but they’re usually out there somewhere working- should be back by tomorrow, for the weekends. Good, she said, no need to make them worry.  
+…what are you implying? “Have you… never told them?”  
+“No! Again, I don’t want my parents to *worry*. It’s not something that they can deal with, anyway…”
+
+We’re two random students that you barely know. We’re supposed to help *how*?  
+“...look, I just know you two can do it. Please?”  
+“Please tell me you’re paying us.”  
+She bowed her head. “Mom and Dad don’t really check my finances… pick a number, I suppose.”
+
+(No, I’m not writing down how much. It’s already mad enough that I’m posting any of this to the world.)
+
+The ceiling was stained, the table was cracked.
+
+Allie then excused herself and dragged me into another room, shutting the door behind her.  
+“She’s not human. An android, I presume.”
+
+—
+
+It’s a testament to my life that I simply agreed with her. “Should we be discussing this here? She could be listening, you know.”  
+“Perception filters,” she replied, rummaging through storage cabinets. “I have always disliked them- uses valuable processing power and keeps causing breakdowns.”  
+It’s another testament to my life that I *don’t* know what she’s talking about.  
+“...it should be obvious. The pod is used for charging, her face is overly unblemished, the electricity usage is quite high for one person, and her writing. It is overly consistent for even the most talented of humans.”
+
+How did- when did you even-  
+Allie just looked at me and sighed. “I should cut your arm, see if there is *blood* in your veins.”  
+“No need for that!” Please don’t say such things this easily!  
+But it does explain quite a lot.
+
+But it doesn’t make sense, does it? 
+
+“Who do you think is the ‘real’ her, then?” I asked. “Why couldn’t they reconcile, or something like that?”
+
+“Perhaps our haunt came back down to Earth, wishing to see her parents one last time… only for them to have, well, bought a replacement. As for why they are separate beings… usually this should not happen…”  
+Allie stood up and walked towards the door, holding up a piece of paper.  
+“...let us not tell her. I do *not* wish to explain things.”
+
+Before we left, I noticed a fridge magnet. Shaped like a mangosteen, badly glued together, fragments still missing. While it could have simply smashed on the floor one day, something told me to pick it up.  
+*My home, she said, floating her facsimile towards the ceiling- you will* not *take them from me.*  
+*Confusedly looking around, fear in her eyes, as she was torn in half, wires sparking, coolant spilling-*  
+I slipped it in my pocket.
+
+In the name of whatever’s above, how do we deal with this? I pulled Allie aside and told her.  
+“...oh,” she said, clutching her head. What do you mean ‘oh’? “Still…it would not do well for her to…”
+
+Our coursemate was sitting at the dining table, reading a brick of a novel, she waved at us wearily. “So… how do you plan to take care of that *thing*? It tried to throw me off my chair.”  
+“...you did not cry out as that was happening,” Allie noted. Incredulously.   
+“It hasn’t really done anything bad thus far… tried to scare me a couple of times, at worst.”
+
+…is this a self-esteem issue, or a self-preservation one? Neither seems right for one to bear.
+
+I pointed out that my amulets only reacted when we were in *her* room; perhaps that’s where the spirit dwelled. *Of course our haunt would lurk there, it’s* her *room as well.*  
+My hand reached for a paper talisman-
+
+*You knew! the spirit cried. Burnmarks of the talisman were left on the walls beside her. She was angered. You knew and you still… why? Why do you want me gone? Because I affected* her *normalness? She’s not* normal*, is she?! Why does she get to act like me, live out my life-*
+
+There has to be a conclusion, there has to be, there has to!  
+She doesn’t even *know* why the spirit wants her gone. Do we have the right to tell her?  
+Do I have the courage to?
+
+—
+
+Once again we were in her- their?- room.   
+Was it a good idea to let *her* in? The spirit knows that she’s an android- something that she might not be aware of herself.   
+It’s her own room, still. She’d be suspicious if we forced her out of it. The *spirit* would be suspicious, likely.
+
+“I will be leaving you alone here,” said Allie. “You will need to focus after all; come on.” She led our coursemate away- at least *that’s* solved for now.  
+The door clicked shut.
+
+One step at a time. I took out a talisman, and slowly, with all the grace musterable within me, waved it around my head. ”Swiftly, to my command!”  
+*I’m not going to harm you! Take off the amulets, they burn! she said.*  
+A flickering image, like of a dying television, stood in front of me.
+
+I didn’t really want to do this, but I wanted to hurt her less. There wasn’t a reason to attack me, was there?   
+(There was also the fear that she’d attack us anyway if I insisted.)  
+I thought while taking off my amulet, removing my talismans, placing them on a nearby chair; her visage immediately stabilized. She looked around 15 or so, but of course she did.
+
+*Why are you here? she asked, calmly. You barely know her.*  
+“Someone needed help,” I replied, “so who else could have come?”  
+*…you could have still hired an exorcist, perhaps. It wasn’t like you’d care what I had to say, was it? They’d get rid of the ghost, and all will be well.*
+
+“Why would you think that I *wouldn’t* care? Perhaps I’m just naive, but just last month I tried to talk down someone that tried to *kill* me.” Things were… not devolving into chaos.   
+“So please… tell me why you’re here.”
+
+*I’ve just met you, and you’d like my backstory already? It’s not like you can’t figure it out yourself.*  
+Most of me said “you can, in fact, figure it out; don’t push it”. But a significant minority still wished to confirm our suspicions; I shouldn’t do anything based on false assumptions after all.
+
+“Please correct me if I’m wrong-”  
+*I heard you and your friend communicate in the storage room! she said speedily.* Inhuman*, she was.*
+
+Inhuman, almost as if… not the point. She sighed, a sound that caused goosebumps.  
+*Perhaps you want to know why I haven’t reincarnated yet.*
+
+*I simply hadn’t finished my favourite novel when I died, she said,*   
+*her face conveying a sense of absolute seriousness.*
+
+—
+
+… I was silent. Anyone would have been silent, though reasons may differ. “The underworld just… let you? They let you stay up here? For four years?”  
+*In my defense the characters are near alive, how well they’re written. I kept rooting for this one pair to succeed- it was the last two chapters, and there was still no conclusion to their arc! I couldn’t wait, could I?*  
+Hang on, just a clarification: “Was it, by any chance-”  
+*She kept flipping through it even after falling off her chair.* My *replacement, after all.*
+
+… but the book was right there. Certainly four years would have been enough to finish two measly chapters, however thick the rest of it was.  
+*They managed to tie the knot, if you were asking. First thing she asked for after ‘waking up’ was the novel.*  
+So there was her original reason, completed. 
+
+So there was no doubt on what- *who*\- kept her here.
+
+She presumably noticed my face darkening. *My parents were grieving. I wanted to hug them, I wanted to cry. Did tell them I loved them before going out, but that wasn’t enough, was it?*  
+*A nurse walked towards them. At least, he seemed to be a nurse- white clothes, professional look.*
+
+*What he* said*, however…  I didn’t know what a ‘transferrence case’ was, nor did I know why he noted that my cooling remains had a ‘nearly intact cerebrum’.*
+
+“‘Transferrence case’,” I heard myself muttering. Allie talked about this once, when she was bored during recess. “A term used for androids whose personalities and memories are patterned off real people’s brain waves- usually dead ones…”  
+Organ donations need the consent of the donor, don’t they? “…so how was this legal? Do you know where the white-coat came from?”
+
+*He said something about ‘restoring your family and benefitting our research’ before handing them a business card. It had the symbol of a globe printed on it.*  
+Ah. Of course *they* wouldn’t ask for consent. I went to the door.   
+“Allison? I have an idea why she asked for you.”
+
+The door opened- “please stay back, it might be dangerous”- and Allie walked in, taking deep breaths.  
+“Let me guess, Global Mechanics…it is a small world after all.”  
+*Could you please explain? As you may see, I don’t have hands to flip the papers with.*
+
+“In short: GLM was founded by a vile damned soul that his *own* daughter had to run away from. Said vile damned soul decided to mail her a prototype android for… reasons I still cannot comprehend.”   
+(The long story involves events that leapt out of the pages of a paperback thriller.)
+
+“You are looking at her right now.”
+
+—
+
+*…do you think-*  
+“He was probably a functionary; you were, for lack of a better word, just a test subject.” Calmly; not unkindly, but not particularly nicely either.  
+*…still… I know that I shouldn’t hate my parents for this. They were desperate, they just wanted their daughter back. But still… I’m here. The girl reading in the living room isn’t…me. They can’t just pretend that nothing ever happened…*
+
+How was I supposed to answer this? There was an elephant in the room, but I couldn’t bear to ask about it. Opened my mouth a few times, how could I put this delicately, I said delicately-  
+“Please tell me more about throwing people off chairs.” Delicately!
+
+*I was jealous. When I was alive, my parents were barely there. They both had jobs, and took their duties seriously. Spent half my birthdays without them. Now they’re always there during the weekends for* her*.*  
+“It was not her fault for existing.”  
+*I know… but when I threw a cup at her, around yesterday, it felt… brilliant. Like I had something built up that could finally be released.*   
+*But when it was over I felt… wrong, somehow.*
+
+“This…” Allie looked like she wanted to criticize her, rant about her madness. She took a deep breath once more, and began instead:  
+“I *can* see where you are coming from. Sometimes I meet people, and immediately want to strangle them. Perhaps they were too ‘weird’, or they were smug, or maybe I simply wanted to.”  
+*… did you ever do it?* She sounded ever-so-slightly horrified.
+
+“Just tell me if you would, if you were me.”
+
+*…but I felt that I had no other options. She’d just hired someone to deal with me; from what I’ve seen of exorcists in the movies they’d immediately go for the kill, and I could barely keep myself together. There was no contest…*   
+“You were *merely* haunting her before. Actually doing it… perhaps you wanted to scare her into calling off the arrangement. Go into her dreams and tell her. In fact, tell her everything, I doubt that she would mind.”  
+*She’s not human. Does she even dream…?*  
+“Well,” Allie remarked, “*I* do.”
+
+—
+
+*Too late to say anything, she declared, after a beat. What am I doing now?*   
+“It never *is* too late to mend, as I have often heard. Pray tell your reason for doing all this, then.”
+
+*I want to make her know what she is.*  
+*I wanted to make it clear that she is not, never will be,* me*. Only I could be…*
+
+“You were doomed to fail; she literally *cannot* understand any of it.” Allie made a show of taking out what seemed to be a manual, flipping through the pages.   
+“I read out select parts of this, what do I hear in response? ‘Is that not the doctor’s instructions? Why do you have that?’” She shook her head. “‘Of course I could not have put it in the storage room, what are you saying?’ What *should* we do now, I have to ask.”
+
+All of us remained silent.
+
+*Still… I can’t just… go. This is still my house, and all my memories are still here.* 
+
+So what do we do now? Certainly I’m not opening fire just to get it over with, certainly I can’t risk breaking someone’s mind just to get it over with. No one’s backing down, no one’s giving in. She can’t leave, we can’t leave either.
+
+All of us remained silent.
+
+“Maybe we could…” I heard Allie mutter softly. “...no, there is *no way* the spirit would agree.”
+
+If the problem was whatever ‘perception filters’ were… how do we fix that? Should we fix it? It’s not my call to make, is it? I don’t *want* to have to make such a call! But *someone* would have to!  
+Maybe we could… call her parents? They should be responsible for their own daughter, right?  
+She never told them. What do I even tell them? “Your child’s being haunted by her own ghost that wants her to know that she’s a robot”?
+
+“She will be driven mad,” Allie noted, sighing.  
+*…so you just want me out, then?*  
+“Something in her *will* change, perhaps she will never be happy again… I trust that you do not want this, still being a good person at heart.”  
+*…no. No, I can’t. But I want justice- no. This would just be vengeance. But my work here is not done, I cannot pass on just yet…*  
+*What do I want…?*
+
+I don’t want to think anymore. I wanted to leave and forget about all of this. But some part of me knows that it’s cowardice to do so.  
+Do we have other options? Chant sutras and *force* her to pass on? Lie and say that the spirit was just some git, it won’t come back?   
+Will it be bad karma for us, for me? Should I care, at this stage-
+
+—
+
+Perhaps some key part of her programming slipped. I’m no expert in sapient AI, but allegedly this sort of thing has happened before. Especially since Allie just read out snippets of her own manual.  
+I don’t know what exactly happened. For all I know, the heavens forced our hand.
+
+But there was a wild rapping on the door. “help…”  
+As I ran towards it, stared at by someone that opened the manual and took out a screwdriver with haste… “I am not a coder. Whatever beings are above, help me.”  
+I stared back, my gaze met with a look of ‘not me this time!’
+
+She stood there, tears in her eyes that flashed an all-too-familiar red. “E…explain. Someone please-”  
+“What happened-”  
+“Tell me how you realized,” Allison questioned her.
+
+”I- I don’t know either!” she cried. “Tripped and fell and my head hurt and something just went *zap* and- and- what are these signs?! I can’t see clearly!”  
+“That is your HUD. Think to yourself ‘*assign HUD as\_off*’, it worked for me.”  
+“What are you talking about- \[WARNING: RECOGNITION OF UNIT AS ANDROID- ACTION TAKEN-\] why is my vision like this-”
+
+I did the only thing I could think of and hugged her. “It’s going to be all right! I swear to the heavens that…”  
+In my arms she was spasming, trapped in some kind of loop of realizing what she was, then getting her memories deleted, then noticing again, then… what do I do?!
+
+The rustling of paper behind me. “There *is* an override. Show yourself already…”
+
+*why is she like this? why is this happening?*  
+“... I have *always* hated perception filters…”
+
+Her temperature was rising. “It’ll be alright… please hang on…” I took out my phone- who should I call?! I don’t know anyone who could-
+
+“-empty… feel so… empty…”
+
+I aimed her face at mine. Heavens above, was that *smoke*? “Clarify! Stay with me!”  
+“always felt… something missing… four years ago…” She struggled to get the words out, biting each syllable out slowly, gaze both laser-focused and glassing over. “never… did tell… perhaps *it* was-”
+
+“*Override code O-1-4-2-M-A-I-I-9-7-0.*” Her body slackened. “I will have *words* with whoever made HUDs active by *default*\- too many stories of powered armor probably.”
+
+Should I lay her down? No, I probably shouldn’t. “What just happened?” I asked.  
+“Safe mode- her personality systems are deactivated, and she will not respond to anything unless prefaced by either code or full name.” Allie sighed after clarifying. “She sees herself as *incomplete*. Interesting.”
+
+*…do you think she’s waiting for* me*? The spirit asked.*
+
+If that’s the case… should I take off her amulet? Would it be seen as a betrayal?  
+Allie took out her phone. “I will have to call the authorities, ask them for further instructions.”  
+Why *doesn’t* she have a soul? What would happen if she *did*?
+
+*Miss… Allison, is it? Do you feel… complete, yourself?*  
+Allie turned to look at the spirit. “It does not matter- I stand, my actions have consequences, that is all.”
+
+*Nothing, just curious… but why* don’t *you call my parents? Do they not deserve to know?*  
+“I do not want to explain four years of this.”  
+*Who does? But they are still my parents.*  
+“I am not responsible. I did not know until *today*; tell me if you would trust a stranger.”  
+*Are you sure you’re not just uncomfortable about-*
+
+I’m tempted to just take off the amulet *now* and force an end to this conversation.  
+Instead I asked for their phone number.
+
+“*Thank* you,” Allie said, as her phone rang.
+
+—
+
+Why did I agree? I asked myself, as I stared at my phone calling people I don’t know.
+
+Someone had to do it, I told myself, which just-so-slightly made me feel better.
+
+I didn’t want them to pick up. I didn’t want to do it.
+
+I wanted them to pick up. I wanted to get it over with.
+
+My finger hovered above the cancel button. 
+
+
+
+They picked up. “Hello?” Her father, probably.  
+Calm down! Calm down! “It’s about your daughter. I was invited to her place and…”  
+“What happened? Did she trip on something? Did she-” The voice was significantly more worried.  
+“Yes, and-”  
+“*Override code O-1-4-2-M-A-I-I-9-7-0.* I’ll be there in a moment.” He hung up.
+
+*Am I allowed to explain? The spirit asked, looking around.*  
+*Wait, consent! You forgot to ask for his consent to…*
+
+“It can be reversed if they dislike it,” Allie noted, opening the pod. “But first, if she is awake, that will help us explain whatever has happened.”
+
+—
+
+In conclusion, there once was a little girl that died in a car crash. Her parents, grieving, agreed to have her brain scanned by a shady robotics company, so that they could have a copy of their daughter back.  
+Her soul, because of reasons, didn’t reincarnate back into the android- and she was angered by her being replaced, terrorizing the android in response.
+
+And oh, because of poor design, the second she receives evidence of not being human, the unfortunate android immediately goes into a cascade loop.   
+Would we have tried to explain anything had *that* not happened?
+
+Our coursemate woke up with a face dark as the night. She looked at her hands, then looked at us.  
+I did not get to hug her that time- her parents did it first.
+
+Then her expression turned into realization. “...so I’m not-”  
+“Of course you *are*,” interrupted Allie. “Unless you are not here, with us, right now.”  
+“I’m a mere *golem*, am I not? She’s *there*, I’m *here*, and we’re not the same being.”  
+*That can be changed, if you want.*  
+“Wouldn’t that be… murder, in a sense?”  
+*I can’t exactly pass on, anyway, the spirit shrugged. Maybe this will grant me- us- peace at last.*  
+“Or perhaps you would receive all of her memories and a new outlook on life,” Allie noted. “Now, about those godforsaken perception filters-”
+
+The doorbell rang. “Emily! Do you need help with the spirit?”  
+*wait, you hired exorcists anyway?*
+
+“I apologize!” I shouted, running for the door, “In my defense, what if you fought us?”
+
+At the door was, of course, Akemi, holding a peachwood sword on one hand and a silver dagger in the other.   
+She had a companion.
+
+  
+[“Kane-san?”](https://www.reddit.com/user/ReceptionFlaky1952/comments/1ui0uk9/and_this_keeps_happening/)
+

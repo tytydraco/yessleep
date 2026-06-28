@@ -367,5 +367,4 @@ I swung out a hand to cover Kane-san’s, turning my head around, as the being w
 We waited outside for the cops to arrive. Tried to strike up a conversation with Kane-san, but there wasn’t much that we could really… say.  
 So I went for the latest anime adaptation on television. She’s never actually seen much of it though, so I more or less spoiled the plot in my excitement.
 
-So much for tonight being normal.
-
+[So much for tonight being normal.](https://www.reddit.com/user/ReceptionFlaky1952/comments/1ui0uk9/and_this_keeps_happening/)
