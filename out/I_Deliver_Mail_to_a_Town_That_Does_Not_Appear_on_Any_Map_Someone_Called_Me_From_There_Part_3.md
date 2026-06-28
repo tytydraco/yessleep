@@ -47,3 +47,5 @@ The kind somebody makes when they're trying not to be heard. My supervisors face
 The display no longer showed 4:18. For the time since yesterday the numbers had changed. 4:17. My supervisor looked at the clock. Then, at me.. For the first time since he arrived I saw genuine panic in his eyes. "Get your keys " he said. "What?" I asked him. "Now " he said. "Why?" I asked him.
 
 Because whatever answer he saw on my face seemed to terrify him. He pointed at the microwave. "Because we've got one minute " he said.
+
+\[Part 4\](https://www.reddit.com/r/nosleep/comments/1uhsrye/i\_deliver\_mail\_to\_a\_town\_that\_does\_not\_appear\_on/)
