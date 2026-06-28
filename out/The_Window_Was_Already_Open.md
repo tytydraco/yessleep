@@ -1,0 +1,81 @@
+I live in an apartment building on the edge of town. It's old. The walls are thin. I know my neighbors by sound. The couple above me arguing. The old man next door watching TV at all hours. The woman below me playing piano badly.
+
+I've been here three years now. It's not a great place, but it's cheap and the landlord doesn't bother me. I work nights, so I'm usually asleep during the day and awake when everyone else is quiet. It works out.
+
+Last week, I found a note under my door. A small piece of paper, folded once. I picked it up and opened it.
+
+"You need to stop leaving the window open at night."
+
+I read it twice. The handwriting was neat. Cursive. Like someone had taken their time with it.
+
+I don't leave my window open at night. I'm particular about that. My apartment is on the ground floor. The window faces an alley. I always lock it before I go to bed. I checked it that morning. Locked. I checked it again before I left for work. Still locked. Then I checked it one more time because I couldn't remember if I'd actually checked it or just thought about checking it.
+
+I figured it was a mistake. Somebody meant to slip it under another door. I threw it away.
+
+The next morning, another note was there. Same paper. Same handwriting. Same words.
+
+"You need to stop leaving the window open at night."
+
+I checked my window. Locked. Checked the front door. Locked. Nobody had been in my apartment. I asked my neighbor next door if he'd seen anyone. He answered wearing the same green bathrobe he always wears. I've lived here three years and I've never seen him in anything else. He said no. Said he hadn't written any note.
+
+I asked the couple above me. They were arguing about something, as usual. I knocked and they both looked annoyed. They said they hadn't written any note. They barely seemed to notice I was there. I don't think they even know my name.
+
+The woman below me said she hadn't written anything either. She said she doesn't go out much. I believed her. She's always playing that piano. Same song. Over and over. She never gets it right.
+
+The notes kept coming. Every morning. Same message. Same handwriting. I started locking my window twice. Put a chair in front of it. Checked the latch. Checked the frame. I even checked the alley outside to make sure nobody was climbing in. I stood out there for twenty minutes once, just staring at the window from the outside. Nothing.
+
+The notes kept coming.
+
+I started to get paranoid. Stopped sleeping. I'd lie in bed and stare at the window. It was always locked. The chair was always in place. But every morning, there was another note.
+
+I started writing down the dates. Day one. Day two. Day three. By day four I'd filled an entire page because I kept writing the wrong date and starting over. I don't know why I did that. I just kept messing it up.
+
+I took photos of the notes. Showed them to my landlord. He said it was probably kids messing around. He said not to worry about it. He said it with that tone people use when they don't want to think about something.
+
+I worried about it anyway.
+
+Last night, I decided to stay up. Sat in my living room with the lights off and watched the front door. Nobody came. Nobody slipped anything under. I fell asleep around 4 AM.
+
+When I woke up, there was a note on the floor.
+
+I picked it up. Same paper. Same handwriting. Same message.
+
+"You need to stop leaving the window open at night."
+
+I walked over to my window. It was locked. The chair was still in front of it. But the window was open. Just a crack. Just enough.
+
+I didn't open it. I just stood there for a long time, staring at the crack. I checked the lock again. It was turned. But the window was open.
+
+I looked at the note again. Then I looked at the handwriting. I'd been staring at it for days. Neat. Cursive. Looping letters. I'd been so focused on who was writing it that I hadn't really looked at it.
+
+I looked closer.
+
+The handwriting was mine. Every letter. Every curve. I recognized it from the notes I left myself at work. The shopping lists. The reminders. That was my handwriting.
+
+I sat there for maybe twenty minutes trying to remember writing them. Maybe longer. I don't know. I kept looking at the note and then at my hand and then back at the note. I don't remember writing them. I don't remember opening the window. I don't remember any of it.
+
+But I must have.
+
+I've been sitting here all morning. The window is closed now. Locked. The chair is back in front of it. I've checked it three times. Maybe four. I lost count.
+
+I just found another note. It's on my nightstand. I don't remember putting it there. I checked the bedroom door. Then I went back to the note because I was suddenly convinced I'd read it wrong.
+
+It says: "Stop fighting it. Just open the window."
+
+I don't think I'm going to sleep tonight.
+
+I don't think I'm going to sleep ever again.
+
+The piano below me had been quiet all morning. I didn't notice it until just now.
+
+I looked at my reflection in the window.
+
+It was smiling.
+
+I wasn't.
+
+Then it lifted its hand.
+
+And started writing something on the glass.
+
+I already knew what it was going to say.
