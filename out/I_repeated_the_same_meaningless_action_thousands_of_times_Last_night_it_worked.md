@@ -1,0 +1,83 @@
+I'm sure you've had moments like this yourself.
+
+Something so common, an act done simply by muscle memory, with no thought. It may be taking off your shirt, it may be a quick glance in a mirror, turning off the lights once you leave the basement, or suddenly being alone in an aisle at the supermarket. A filler moment you forget ten seconds later.
+
+What if I told you that moment could have been crucial? That you could have, for lack of a better word, traveled somewhere? Met somebody... or something?
+
+Recently, I've been reading a lot. Knowledge became the most important thing to me, and I did not have enough time to inform myself. Therefore, I quit my damn job and have been living in a hotel room for two weeks now. I eat ramen noodles and drink water, no alcohol, to keep my mind clear. Judge me all you want. All I care about is information.
+
+What I study is probability. Of what, you may ask? To be honest, I'm not quite sure. What I know is that there is something very hostile with a minimal, almost nonexistent chance of appearing, of being sensed by our eyes. And I need to know how to get to it.
+
+You may ask: how did I get interested in such a niche subject? Well, my path to understanding was quite long and mostly dictated by boredom and frustration. I've been frustrated with my life. I've always been a well-behaved individual. I finished school with decent grades, as I had been told to. I searched for jobs and licked my bosses' asses, as I had been told to. I married, divorced, became bankrupt, and got my car tires stolen like any other boring fella. I remarried, this time to a woman ten years younger, and made myself two beautiful kids, one of whom became a ballet dancer, while the other loved drifting too much and broke his spine, which paved his way into a wheelchair. I've loved, hated, felt immersed, and felt let down. And guess what? All that fucking time, I've been frustrated. And fucking unhappy.
+
+Then, one day, I went to a lecture. It was exactly the fourth time I had attended one of those college lectures open to the public since I got my diplomas. I did not care about gaining additional knowledge; I just enjoyed spending time with somebody intelligent. It made me stop thinking about how miserable I was. The professor was thin, short, and looked as if he would melt from the summer heat. He did not look like the man who would change my life.
+
+The theme was The Theory of Common Entries. If you've never heard about it, don't worry; neither had I. The basic claim of the theory was that the afterlife was 100% real. At least something resembling existence beyond the usual functions of the body. While death was the most definite entry into this state, society could not analyze death thoroughly. We lacked the technology that could reach the astral part of our dimension. Yet there was another way to reach a portion of that world.
+
+The theory suggested that seemingly insignificant acts could lead you into an element of the "afterlife." There were some conditions, though. Firstly, the act had to be small, like if it didn't matter. Something you'd forget about in a moment. Secondly, somewhat contrary to the first condition, the act needed to induce slight anxiety. A mystique, a suspense that makes you think. Not outright fear, like a horror movie jump scare. Just enough creepiness to make your skin crawl a little.
+
+What does it mean, then? Countless different examples. Turning off your Bluetooth earphones and thinking that some other sound may play. Taking off your shirt and, while the fabric is all over your face, being afraid that the world might have changed while your eyes were hidden. Seeing a window leading to a dark room while you quickly dart your eyes across the street. Have you seen that figure standing there?
+
+There is a catch, however. Several catches, even. First of all, you've most likely done these little acts thousands of times and experienced nothing paranormal. That's where probability comes in. It is not clear exactly how uncommon "the Entry" is, but I can definitely say the chance is lower than one in a trillion. Maybe much lower. Also, even when you transport yourself to the other world, you may not see it whole. There are documented cases, which I'm confident are connected to the Theory, where individuals describe experiencing something... minimal. A figure, a face, a sound. However, the experience can also be the other side of the coin. And I don't even want to think about what one's eyes may see then.
+
+You may also think: if these events are so horrible, then why does this man want to reach them? Truth be told, I don't have a rational answer. I've been deeply troubled by the lack of logic in my actions for months now. Yet I somehow trained myself not to care. All I can mutter is that I want a break from this endless cycle of blandness and longing for a solution. I needed a how-to for all of my grayish existence, and this is the most correct how-to I've stumbled upon. If I can grasp something feared by billions and document it as realistically as possible, maybe I'll finally get to feel something.
+
+I've gone through several cases of anomalies closely related to the Theory. One of them concerned a woman in Germany. A relatively unknown missing-person case turned not-so-happy when she landed in a mental health facility shortly after being found. From a bunch of recorded interviews, the listener can determine that her incoherent rambling actually suggests an Entry happening. She had supposedly been washing the window of her house in a way that caused the rag to obstruct her view through the glass with every sweep. For most of the sweeps, she could only see the dark bedroom she shared with her husband. But suddenly, as she claims between screaming and sobbing, her hand felt a soft sensation, as if the glass had turned into a skin-like texture. Before she throws a tantrum, a few words are heard, such as "eye," "tooth," and "blood." The woman has been in the facility for years, and the psychologists suggested that childhood trauma, opened up by years of alcoholism, led her there. This is their explanation. But I have mine.
+
+Another case took place in Australia. This case had a fair share of witnesses, and it's been documented quite well. So well, in fact, that fake information has been attached to the story for dramatic effect. What we know for sure is that a group of teens had a campfire party in a secluded area. In an alcoholic haze, one of the boys suggested wrestling with their shirts off. A dumb stunt to impress the girls. The idea was quickly approved by the group, and a few of the guys began taking their shirts off amidst laughter and playful insults. Then the screaming began. One of the witnesses claimed it sounded animalistic, like a rabbit being torn apart by foxes. A boy, just fourteen at the time, began pointing at the nearby trees, dimly lit by the campfire. What pushes that incident into Entry territory is that nobody observed anything in the direction the boy was pointing, as the testimonies suggest. Nevertheless, panic spread through the group. Some tried to calm the screaming boy down; some left the area. Here, the facts collide with bullshit information, but the conclusion remains the same. The boy began violently hitting his head against the stones lying on the dirt. While the other party members tried to stop him, the harm to his body was too severe. He died in the hospital. Treat it as an urban legend, but it is claimed that the nurses heard him whisper "leave" and "begging" before he became a shell of his former self.
+
+These are definite examples of the Entry. Nobody has claimed it yet except for me, and it was slightly hinted at by my previously mentioned professor. Yet there are a few cases that could qualify as an Entry. A Japanese man seeing his dead grandmother in the cellar window. A girl from California hearing what she claimed to be "her mother burning in hell" as she unplugged her headphones from her laptop. Even an explorer from the seventeenth century writing about an incident where he observed an infant with an umbilical cord swimming through the Pacific Ocean.
+
+Now I need to inform you that there is a way to increase the probability of the Entry happening. It may sound idiotic at first, but bear with me. Repeat a certain action a huge number of times. Look at the basement corridor, turn your head to the right to stare at the wall, then look at the corridor again. Repeat hundreds of times. This is a madman's talk, isn't it? Well, I've been taking off my T-shirt and putting it back on thousands of times already. I've been glancing at windows thousands of times. I've even trained myself to keep my eyes closed for longer periods of time while blinking. And finally, I might have had a glimpse.
+
+The time it happened, I was staring at the bathroom mirror in my hotel room. I had locked the door and pulled down the curtains. It was semi-dark in the room, and I could not hear my neighbors. I felt deeply alone. Not lonely, just alone, forgotten, lost. A singular piece. Damn, I had even watched a bunch of creepy YouTube videos to increase my anxiety a bit.
+
+Stare at the mirror, observe any changes appearing. Look down at the sink. Pull my head up. Repeat. I had already lost count. Definitely more than three hundred and less than five hundred. My neck began to hurt.
+
+With each look at the mirror, I imagined a figure appearing behind me. It could be a demon that would immediately attack me and cut my flesh with burning claws. I also imagined my face contorting into a psychotic grin against my will, and my fingers ripping apart my flesh, spilling guts on the floor in a raw, primal fashion. But nothing happened, again and again.
+
+Suddenly, I observed a slight change. Or did I? It was like a shadow quickly ran away from my vision as my face searched for the mirror. A dark, thin line escaped the bathroom floor and reached for the space the glass did not reflect. I froze, and a wave of disgusting excitement swept through me. It couldn't be an illusion; I had gone through them already. My brain had already determined what was a placebo effect for my gray matter. What I experienced was either a very competent illusion or a hint of something sinister.
+
+Suddenly, a wave of fear struck me. I did not hear a sound, yet something could have been standing in the corner with the most terrifying expression one could see. I did not even fear what the entity could do to me physically. The pain became something out of the world I had stumbled into, something so abstract in the face of experiencing the most gut-wrenching depravity. I imagined it flowing through me and feeding on every thought I had until I blew my brains out. I was afraid of the unimaginable suffering the entity could lay upon me.
+
+But I could not give up now. Everything I had gone through had led me to this moment. I had been running away from my mediocre existence, and this was the sight that could change it all. I had to turn my head now. Do it, coward. Find your fucking meaning.
+
+Head right.
+
+No odd sights.
+
+A wave of shame went through me. I felt disgusted with myself. No odd sights. I had been so close to the Entry, and I somehow lost it all. In fact, I was close to believing there was no Entry at all. Fuck that crazy professor. Fuck those internet stories. All of this made me so angry at myself. I might have worsened my pathetic life even more than necessary with this stupid room and this stupid theory. In fact, I became so angry that I wanted to punch the mirror. Break the glass, destroy the room. Kill yourself after.
+
+Preparing a punch, I turned my face to the mirror.
+
+I saw...
+
+Doorbell.
+
+I froze. Nobody had bothered me all this time. I had been alone for the whole two weeks. The hotel staff hadn't bothered me at all. Yet somebody was trying to get in. The doorbell rang a second time. I realized I was standing around doing nothing while somebody waited. I ran out of the bathroom. The living room was the same as before. I realized I was shirtless, so I took the T-shirt from the chair and began putting it on. Halfway through putting the shirt on, I had a thought. What if whatever was ringing the doorbell was the anomaly? What if I was experiencing the Entry? The thing might harm me, and I didn't know how to defend myself. If I even could defend myself.
+
+Thank God I froze there, because as a wave of panic hit me, I suddenly realized what I was doing.
+
+I was putting a shirt on during the Entry.
+
+I immediately squeezed my eyes shut and held my breath for good measure. My heart was beating so fast I thought I'd get a damn heart attack. The shirt flung from my arms and landed somewhere on the floor. I didn't know where, but at least it wasn't on me. I did not finish the process. While on the verge of panic, not knowing what to do now that I had reached this point, my natural instinct was to freeze. And wait. So I waited.
+
+The door handle moved, and the footsteps began.
+
+First they were loud, then very loud. I turned into an immobile statue that did not breathe and did not see. I only heard the footsteps as they moved closer to my ears. Suddenly, it felt like they were inches away from my face. I was about to open my eyes when they stopped.
+
+A moment of silence turned into infinity.
+
+As I'm writing this, I still feel the tension in my muscles that began right then. Nothing could have prepared me for the physical pain that primal fear delivered to me. I even felt sick to the deepest corners of my stomach, as if I had murdered a helpless child. As if that was my fault. I still feel a hint of presence begging me to sense it mere atoms away from my face.
+
+Yet the footsteps began again. Extremely loud, very loud, loud. Then bearable, happening somewhere near the doorframe. Then echoing in the corridor. And slowly but surely, the most excruciating sensation I had ever had the displeasure to semi-witness faded into oblivion as the silence began again. The safe silence.
+
+Moments of hesitation and a very stupid decision. Opening my eyes. My heart tore at my muscles and almost punctured a hole through my body with how fast it was beating. But the room was just as I remembered it, except for one major difference.
+
+The door, previously locked by me, was now wide open.
+
+. . .
+
+While extremely terrifying, I want to repeat my session. It gave me a taste of a rush I've never felt in my boring life. Call me a fool or a madman, I don't care. This time, I want to bring in some recording equipment to check whether I can connect technology with proving the Theory. I know it's 100% real now, but the world needs to know. It will be my duty, and I will be remembered for it.
+
+Wish me luck.
