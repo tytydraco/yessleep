@@ -1,0 +1,253 @@
+I realize how much of a shot in the dark this is, especially with how my own research into the property has turned up little, but I have to try.
+
+The McKriss Abattoir is one of the few properties around my area that no one seems to know about. Every old ruin could be tracked to some family line dying out or a redneck burning their house down by accident, but the abattoir is one of the few properties that seems to be older than the information about it.
+
+Everyone always remembered it being abandoned. A few of the older folks claim that it was operating when they were children, in the dreary days of the late 40s or early 50s, as the varying tales go. Operated by an eccentric immigrant Polish family, or an extremely religious Catholic family, or just a single old man, cutting away at meat like a lighthouse tender of flesh. No one could ever tell me for sure.
+
+These rumors spread to any bad events that occurred in any proximity. The abattoir enveloped all manner of disastrous rumors; every child or dog that disappeared was drawn into the bloodstained steel walls of McKriss, everyone claimed to hear the old meat saws still running in the dead of night, but very little evidence ever came up.
+
+The only credible case I could find, before my own, was a 7-year-old named Kennedy who was apparently found on the property after being missing for two days. He claimed he was asleep in his room when he woke up and a 'big pink monster' devoured him in one gulp, carrying him around for several days before vomiting him up in the old abattoir.
+
+Local police said that he had likely been kidnapped and stuffed inside the pig carcass that was found in one of the old stunning rooms, one that had its mouth stretched open and mangled, but never nailed down any suspects.
+
+Recently, it has become a dare to try and venture out into the woods where the old ruins lie, disturb the peaceful rest of the old butchery, and take a meat hook as a souvenir.
+
+Of course, I refused to back down from a dare when I was challenged by someone dangling a rusty meat hook in front of my face, and before I knew it, I was sneaking out into the woods, wrapped in several layers to keep the winter air out of my bones.
+
+The ruins were around a half-hour walk from my house, a slow descent into a deep gulley, making me feel like I was descending deep into an earthen throat. My flashlight bobbed like a ball bouncing downhill, barely illuminating the brambles and bushes that I had to shove aside.
+
+The woods were abnormally quiet as my feet crunched through bramble and twigs. It felt like the ocean where there are no fish, only an impression of something lurking beyond where you can see.
+
+As I was about fifteen minutes into my walk, I heard, off in the distance, a strange, high-pitched noise. It reminded me of something sharp being dragged against hard metal back and forth, an undulating, ear-ringing sound that made you wince. Like something being shredded and dying.
+
+I froze.
+
+The sound stopped. It only lasted for a few seconds, maybe.
+
+I considered turning back then, and god, I wish I did. At the moment, I rationalized it as some weird animal noise, as was common in the middle of the woods, and continued on my trek. By the time I got to the abattoir, it was a misty memory in my mind.
+
+The building itself was much bigger than I thought. It looked more like a giant abandoned warehouse, rust and vines creeping up and down, making it look like the building was a massive scab jutting out of one of Earth's wounds. On the side of the building, the words 'McKriss Abattoir' were still legible in a plain industrial font, alongside a cartoon pig holding up a cleaver. A plate was stuck in the middle of the pig's neck, making it look like he was serving his head on a platter.
+
+All while the teeth of the pig, cartoonishly human, shone a brilliant white even after all of this time.
+
+I shivered before looping around the front of the building. As I went around, I noted how few doors there were in the building itself. One in the back, and one in the front, with no sliding garage doors or side doors to bring product or livestock in. As I reached the front, this thought combined with my realization that I could see no road leading to the building itself.
+
+Then, I heard it again, off in the woods where I came from. That screeching seemed quieter, but not farther away. This time it lasted for a few seconds, being followed up by the crunching of leaves and sticks underneath the tread. Very far off in the distance, but still too close to be comfortable. My rationalization now felt a little less secure.
+
+Spurred on by fear, I went inside.
+
+The first thing I noticed was the smell: sickly sweet like fruit had been left out for the flies and maggots to help putrefy, along with the mold and decay. It smelled like every roadkill I had ever seen had been thrown into a pile and then covered in out-of-date honey. I gagged, the aroma overpowering my senses and temporarily blinding me as I covered my mouth with my jacket sleeve.
+
+The first room was some sort of lobby, with chairs strewn about the room and piled up against a window that led to some sort of office. Next to the window was a door, metal and rusted, with a sign reading "Processing Floor" above it.
+
+Next to the door, the happy platter pig was painted onto the wall, holding a plate of himself cartoonishly. His eyes were graffitied into pentagrams, a big swirly mustache was put above his lips, and the words "We Are Legion" were put into a quote bubble that looked like it used to say, "The Best Meat In Town."
+
+By this point, I was thoroughly creeped out and grossed out, and wanted this dare to be done as quickly as possible, so I opened the door leading to the processing plant.
+
+To my surprise, it was a simple hallway, sheet metal lining the walls and ceiling, leaving the floor bare concrete. It looked like a chute to push animals through deeper into the facility. Dried old blood stained the stone in a gory pattern, streaking down the center of the hallway.
+
+Flies buzzed on the rocks, rubbing their tiny little grabby hands and leaving white specs of eggs in the imperfections.
+
+I squatted down to one as I made my way into the building, watching it as it stuck its mouth to the concrete and tried to suck the memory of blood out of the stone. I heard the building shift from a gust of wind, like it was ever so subtly breathing in anticipation.
+
+The door at the end of the hallway opened up into the plant itself. A walkway led up above partitioned walls, meant so that you could look down into the rooms and watch the process as an animal was butchered. I walked down the walkway, my feet making the metal ring dully and cringe under my weight, like it hadn't been stood on in decades.
+
+I looked down into the first room, the cleaning room, where a large table lay in the center. Behind, an old poster looks like it used to describe cuts of meat off a cow, pig, and lamb, but now the forms of the animals look distorted as the paper had peeled away, leaving only funhouse mirror farm creatures.
+
+As I continued down the walkway, my foot must've landed on a section far more damaged than I realized, as I heard the metal scream and bend under me, before collapsing in an awful shriek. For a terrifying moment, my hands landed on the railing, but the rust and age had made it from a safeguard to barbed wire as it sliced deep gashes in my hands, my skin peeling like crimson oranges, my skin flaps dangling uselessly off my palm.
+
+I let out a pained cry as my hands struggled to hold the rusty metal, digging into my palms. A shard rubbed against one of the bones of my palm, tearing through my skin like coral teeth, as I kicked hopelessly, trying to pull myself back onto the walkway.
+
+As I hung, my head spinning, looking for anything to hold onto, I became so dizzy it looked like the entire plant was bending inwards, like a Venus flytrap closing in on prey. Reality bent inwards centered on me, as I felt my grip loosen while my feet fell further into the hungry darkness below, the strange parallax making me nauseous.
+
+I couldn't tell whether this inversion was my panicked mind or the building shifting like a circus mirror.
+
+Then, eventually, I slipped, the meat of my hand coming away like strips of bacon as I fell.
+
+I don't know how far I fell, or for how long I was unconscious, but all I remember was waking up with a dull ache in my head and a pounding, searing pain in my ankle. I scrambled around for my flashlight; I couldn't see a thing in the pitch black.
+
+My hand ran over something soft and clammy. Like that slight condensation you get when you leave meat out for too long. Whatever surface I touched gave slightly, softly emitting a squelch, and I cringed as whatever it was coated with soaked into my open wound.
+
+I recoiled and felt around with even more panic until my hand finally gripped the plastic of the flashlight, and much to my relief, it clicked on. My hand screamed in agony as I forced it to grip around the handle and point it upwards. The first thing it illuminated was the ceiling: a metal, rusted shut hatch surrounded by metal sheets.
+
+I turned the flashlight to where my hand had first landed and then used my good foot to kick myself backwards and away from the sight. Three pig corpses lay stacked in a disorganized pile, flies dancing on their skin like figure skaters. The smell returned to my consciousness as it recovered from my fall, now pushing through my weak defense of a jacket sleeve.
+
+Pushing myself up against the wall on my one good leg, I tried to put some weight on the bad one, learning to regret that decision moments after, when I winced in pain. Trying to get more of my bearings, I looked around, finding that I was in a hallway similar to the first one I went through.
+
+'Kill chute,' something in the back of my mind muttered, 'It's the chute where they lead you to your death. Bent ever so slightly downwards so your head will be bowed when the hammer-'
+
+I pushed away the thought, trying to regain control over my growing panic. I tried reaching for the hatch I had apparently fallen through, but found no way to pry or slide the door open, and it was way too heavy to push up with my bad ankle.
+
+Finding no easy way out, I looked down the hallway where it seemed to stretch as far as the light went, with several bends leading out of my sight down different paths. Turning around, I found the same thing behind me. I felt like a rat in a maze, with the only reward being a nail gun at the end.
+
+Left with no choice, I started walking.
+
+I reached a point in the tunnels where a left and right path opened up, both stretching onwards like every other tunnel and also splitting off at seemingly random points. Blood and gore were splattered on the clean metal sheets, some old, grey, and black and dry with decay, and some new, red and glistening, steaming with the aftershocks of life.
+
+Parts of the wall dripped with a still-life moistness, like behind all of the sheets, there were muscle and sinew, pumping with unholy life.
+
+The air was humid, thick, and rank, like a sauna for tuna. It felt like I was moving through an invisible fog of decay that threatened to climb down my throat at any moment.
+
+Pig carcasses were everywhere, some heaped in piles, some splayed and ripped open, one hanging from the ceiling by a meat hook. I stopped counting after 100; I found there was no point or sense in trying. But I was just giving up on counting, as I made another turn, I found an absolutely massive pile of pig carcasses.
+
+It choked the hallway like a blood clot; the mass was packed so tight I could barely tell where one pig ended and the other began. That was until I found a shoe.
+
+Sticking just out of the pile, the upper part of their ankle and the lower part of their calf are sticking out of the pile. It was a Nike, soaked through with humidity and rot.
+
+With a dumb curiosity, I pulled it off. Much to my surprise, a hoof was at the end of this very human leg, larger than any other I had seen, and also deformed. It looked less like a hoof and more like a gangle of small bones welded together to resemble a hoof, now charred black to merely resemble a hoof.
+
+I dropped the shoe on the ground and continued through the maze, a dull sense of shock overriding any real plans I could make. What could I do? From the moment I fell into that chute, I felt like my death was inevitable. It's hard to properly describe, but I felt like meat.
+
+Like each roll of muscle and fat and nerves in my body was something that could be removed with surprising ease. And if that's all I was, then I was just a Jenga tower of consciousness, ready to fall apart when someone took enough away.
+
+Despair overtaking me, I rounded another corner. A pig lay in the middle of the floor, unlike the others, which seemed to have been discarded or put on hooks; this one had been ripped open from its stomach, its ribs protruding outwards like a massive false crown.
+
+On the wall next to it, written in old, dry blood, were the words, "I AM NOT A PIG."
+
+'There were other people down here,' my mind murmured. Then, off in the distance, a clang of metal on metal. 'Or are.'
+
+As I moved closer to the sound, lights flicked on in the maze, row by row, with an electronic swoosh as the lights passed by me. Finally, with my vision fully restored, I took a good look at myself. My hands were ripped up badly, deep, claw-like gashes in each of them, one of the tears ripping up my hand up to the tip of my left index.
+
+My ankle was swollen pretty badly, and even standing still, my foot bent at an odd angle.
+
+I did my best to rip up my jacket sleeves to make bandages, enough to stop my hands from bleeding and getting any of the disgusting shit down there from getting in. There was little I could do for my ankle, though.
+
+Bloody, but still standing, I wandered. Felt like hours, felt like days. Hands began to shake and my foot began to throb so badly my vision rippled with each wave of agony.
+
+As exhaustion finally began to push me to sleep, I grabbed a small pile of discarded clothes, some flannel and jeans, and curled into a ball like an abandoned dog.
+
+The tears came easily, that feeling of inevitability and powerlessness, of being worth nothing more than the pre-cuts of meat on my bones, of feeling like I'll never see anyone I love ever again.
+
+'I'll never see the sun again,' despair wretched in a pathetic tone. It was one of the last thoughts I had before I fell asleep.
+
+The sleep was nothing, a time skip of blackness and tingling unconscious pain, before I woke to something tugging my pants. My eyelids opened like garage doors, the humidity searing my throat and crusting the mucus from my eyes and nose.
+
+Two green eyes stared up at me, as a swine chewed mindlessly on my pants, tearing the seams apart. I kicked at it, my surge of adrenaline making me forget about my injuries, and my injured foot collided with its face.
+
+The absolute shock of pain that radiated up my body made me let out a squeal to match the swine's, as it shook its jaws, tearing a strip up my jeans as its grubby teeth latched onto my leg. It felt like baby teeth, but with the force of a hyena, tiny little LEGO nubs grinding and tearing into my calf.
+
+In one swift motion, I picked up my flashlight and slammed it against the creature's skull, again and again. The beast refused to let go, even as one of its eyes busted from my concussive force, even as the lens of my flashlight began to crack and break against the density of its skull, sending shards into its soft, pink flesh.
+
+It had chewed a solid, golf-ball-sized chunk of my leg before I finally managed to make it release its grip.
+
+The thing squealed, shaking its head back and forth to dislodge the glass as I forced myself to stand on my mauled leg. Its squeals sounded like childish screams, "MRREAT! MRREEAT! MEAAAT!"
+
+I swung the remnants of the flashlight into its skull again, finally making the beast turn and run, leaving me gasping for shallow, pained breaths. My stomach rumbled with a hunger I hadn't experienced since I was a child. That raw, empty feeling that commands you to fill with whatever you have available.
+
+I ripped off a chunk of my sleeve to make a makeshift bandage for my leg. My body had taken so much damage that it felt like it was falling apart at the seams, cold sweat marking my body's deterioration. My hands refused to stop shaking.
+
+I felt like a rabid, abandoned dog as my feet took me further into the labyrinth. Now, without a light, I had to stay in the areas where the fluorescent bulbs ahead were still lit and not out or flickering.
+
+And when they would go out in sequence in an awful, artificial night, I would crawl against a wall, or into a pile of pig corpses, and nestle myself in until they flicked back on again. Sometimes, they wouldn't for a long time, and I was left in that putrescent darkness for what felt like days until the lights mercifully sprang to life or I had to get up and maneuver blind until I found more working bulbs.
+
+The pigs were a constant concern. I would run into at least one a day, usually devouring whatever pile of meat was nearby. As long as I didn't get close to their meals, I wouldn't have to deal with them.
+
+But I would always have to worry about one taking another hunk of me in my sleep, or a group of them cornering me. The groups were always terrifying to see moving down a distant hallway, or hearing them stampeding down chasing, *something*.
+
+I wandered, hungry, pained, and hopeless. No ceiling hatch was ever open or reachable, no escape to be found. I tried to keep track of everything out of the ordinary, in a useless hope to find something useful.
+
+On one wall, I found the words "They are unclean" scraped into the wall by someone's fingernails. Another, "They all taste the same," "Don't go into the dark," "Manpigmanpigman." I figured out the implement by the still pink and bloody nails embedded into the steel.
+
+Piles of clothes were a common sight, as I assumed people tried to undress to stave off the unending and unbearable heat. Some were wrapped in makeshift tourniquets and bandages, stained through with blood. Some were marked like prison days.
+
+I found an old trench coat that went down to my ankles, and the inside was marked from collar to the bottom edge with days, little tally marks that counted 517.
+
+'You could be down here for years. You'd never run out of meat.' That thought reminded me of my empty stomach, the rumble inside that told me that I should've eaten before doing this stupid dare. This stupid dare was going to cost me my life.
+
+Just when my hunger was beginning to reach its peak, what I assumed was three days after being in here, I turned right down a hallway and found another message written in pig's blood on the wall, still red and fresh.
+
+"THREE LEFT TURNS, THERE I AM!"
+
+My mind struggled to interpret this through the fog of my starvation, as I heard the slight shifting of nail against metal. Chitin against steel.
+
+I turned around, back down the hallway I had just entered, and, deep in the darkness beyond where the overhead bulbs had shot out, just at the very edge, there were two hands gripping a metal sheet, dirty, bloody, the nails as long as a switchblade. It looked like someone, just at the edge of the dark, was in a runner's start.
+
+For a moment, I thought I saw the edge of a face peek just out of the edge of the darkness. Their snout was wrinkled and elongated, with two large holes bleeding mucus. Empty eye sockets hide the form beneath in shadow.
+
+I ran, and ran, and kept running until the sheets became rusted and the fluorescent lights gave way to a pale halogen glow. The hallways became thick with corpses, clogging the hallways and making me crawl on my stomach on piles that nearly reached the ceiling.
+
+I heard more footsteps down there, some human padding, some the clinking of hoof on steel. Sometimes, I heard the wet, sticky shearing of flesh from the bone, followed by hungry, gluttonous chewing.
+
+My hunger was beginning to make me delirious, my steps weak shuffles with no direction in mind. Then, my energy finally fully spent, I collapsed next to a pile of corpses. Flies buzzed, and the heat here was even more intense, now like an oven, heat lines dancing in the air as they came off the metal sheets.
+
+I was so, so hungry. You wouldn't understand that need. That absolute want to be filled, to be *full*. To eat and never stop eating. That inside of you is a black hole that would never be sated.
+
+I found a fresh one. It was still warm, atop a pile of others. But it was the freshest.
+
+My teeth gripped around the pink flesh and tore, and it came off steaming and tender. Rich with sweetness and savor and rot, so perfectly moist it slid down my throat like a snake into its burrow. Then another strip, then the muscle and sinew beneath, then the hot veins as I sucked blood down like a straw from a drinking hat.
+
+I tore guts and liver and lung until I finally, covered in blood and viscera and my throat clogged with meat, I pulled out its heart.
+
+I could not tell you how I knew, but I could tell it was not a pig's heart. It was too bulbous, too covered in pipes. The only thing that was not different was the taste.
+
+Only because that taste was sickeningly entrancing. It was the sweetest, savory, slimy, delicious glory that has ever touched my taste buds. I never want to see a slice of it again, but I know, deep in my bones, that if it were put in front of me, I would devour it without a second heartbeat.
+
+I ate my fill, then more, then vomited, then even more. The taste was phenomenal, otherworldly steaming richness bled into my soul every time I took another bite. And yet my body shuddered, and I gagged as pieces of bone and fat and sinew caught in my throat.
+
+The pig's eyes burst like laundry pods as my teeth crunched down on them, the thing's teeth crunched like nuts and were salty like them too.
+
+When I had finally finished the meat, I stood, drunk with euphoria and satisfaction. The hallway was still hot, I was still trapped, but I was full.
+
+In that euphoria, I wandered like an alcoholic nomad, hardly noticing when the metal sheets gave way to wooden planks that bowed under my weight like a waterbed, the pressure squeezing the blood and bile that had soaked into the wood. It felt like I was walking through a sopping, hungry throat.
+
+Additionally, the continuously downward angle had become extremely uncomfortable, at around 45-60 degrees in parts. There would be times when I would hear scuffling and squealing, only to see a hog slide down beside me into the endless darkness.
+
+I felt like a bug navigating a spider's web, but from the inside of each strand. The corners and turns made less and less sense, looping around in concentric circles, walls jutting out at odd angles, pig carcasses filling tunnels so thick that they squelched blood when stepping on them.
+
+There were new noises too, something between the skittering of spiders' legs and the gallop of a herd of horses. Fast. Faster than anything I heard moving in that place. The pigs would get caught by whatever was making that sound, and only moments after squealing in pain, I would hear them being shredded, bones crunching, and every morsel of flesh rend clean from the body.
+
+Every time that skuttling would come close, I would crawl under any nearby corpse and be as still as possible, hoping that it would not find me as my heart rattled in my chest.
+
+Sometimes, when that Thing came close, I could hear it whispering to itself. Like, several voices, all mumbling nonsense phrases like 'Morning comes, morning comes,' 'Oh Son of Nazareth, cast me flesh, flesh, flesh,' 'Tastes just the same, all the same,' 'Empty pit, never full, too many vices.'
+
+Sometimes, I could hear it whispering my name, off in the distance, with the voice of a mewling piglet.
+
+When it would come close, I would crawl under any nearby corpses and wait. If I hid under only one or two, I could sometimes catch glimpses of the Thing, the shadow of a large, tumorous mass with many long, sectioned legs. I could hear many mouths breathing, snorting, squealing, whispering. I saw the long, sopping drips of slobber that fell from the shadow and glinted in the bare-bones light.
+
+Despite it's abberant appearance, it moved with an unholy grace and speed, like the mechanical precision of a spider. There were times when, if I attempted to leave my hiding spot early, I could hear it stop, and then rush back to where I was hiding with flight-like speed.
+
+But even down there, I ate. I continued to eat. When I had long enough time to enjoy an entire pile of meat, I would often overgorge, empty myself, and then continue to devour that fibrous ambrosia.  I even began lathering myself in the scavenged skins, simply trying to drink in even more of the grease from the creature.
+
+I barely even noticed my scabs turning to rough, pink skin covered in tiny, thick hairs, or that slight bit of height I gained from my leg with the broken ankle, like my heel was taller.
+
+One night,' when I was freshly sober from being unable to find another corpse, I had been sniffing up and down midnight hallways when I picked up the scent of rot a few turns down. Crawling on my hands and knees so I could collapse and play dead at a moment's notice, I giggled in excitement, letting out little snorts as I finally reached-
+
+A light. Sunlight. Beaming down from an open hatchway, with a pile of pig corpses sat underneath it, creating a convenient staircase. But as I looked at the pile, hungrily glad I could take some on my way at, I noticed patterns across the flesh.
+
+Dents, like hoofmarks, up and down the pile. Some fresh and still oozing wet blood.
+
+A quiet, absolutely panicked voice in my mind shrieked, 'Get out! Get out! Now! Now!'
+
+But I steeled myself.
+
+And I crawled inside the pile.
+
+And I waited.
+
+And just as I finished, I heard that same spider-hoof crawl thundering down the hallway from where I came, an ambush with precision.
+
+It paused above me, beyond my vision of pale meat and the other corpses I was under. I could feel its weight, near bone-shattering as it pressed me and the other bodies beneath it like we were in a grinder. I could distinctly feel my shoulder blade pop wetly, in slow motion.
+
+I held back a scream. And waited.
+
+Then, it scurried back, hopefully finding some other prey.
+
+With what little strength I had left, I crawled out from beneath the corpses and, weeping tears of joy, I pulled myself out through the hatch.
+
+The same hatch I fell in, with the wrecked walkway sitting like dead tree branches above me. I laughed, and laughed, and laughed until I made my way out of that decrepit abbatoir, laughed through my shoulder screaming in agony, laughed until I collapsed in bed and started writing this.
+
+Does anyone know anything about the McKriss Abbatoir? The McKriss's? Anything? I'm desperate.
+
+I'm really desperate.
+
+I've started to hear things, voices calling out to me from the empty house. Some are closer, like whispers in my ears to go back, to get just a little more food. The voice of my mother keeps calling me to dinner from deep within the gulley.
+
+Not even my thoughts are free from this. I've been having phantom thoughts. Doing things I wouldn't do. Crawling on the ground. Screaming. I can't even remember some of it, just finding the aftermath of me eating strips of bacon raw, their bits scattered across the ground, and my hands sticky and greasy.
+
+Sometimes, when I look in the mirror, I don't see a human staring back at me.
+
+I'm so hungry.
+
+I know what the meat really is.
+
+But it tastes just the same.
