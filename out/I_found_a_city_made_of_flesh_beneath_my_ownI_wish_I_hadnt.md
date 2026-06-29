@@ -1,0 +1,143 @@
+I fucked up. God, I screwed up so fuckin’ bad. I don't know why I need to say any of this, probably because I'm terrified. I know they saw me, I know what they'll try to do to me.
+
+I’ve spent the last month looking over my shoulder, waiting. Waiting for their next move, for the next shoe to drop. I’m just a passenger on a doomed voyage now, staring at dark water and pretending I won’t see the iceberg coming. When it hits, though? At least my story will be around to be told, no matter how far-fetched it seems.
+
+Before all this happened, I was really into the whole "urban exploration" thing. Finding places in the city with history, or just a good tale to tell. Sometimes we'd record our outings and post them on the internet. Most of the time, though, we just enjoyed the strangeness of the world so close to us.
+
+Our last outing brought us to an older part of the city on the outskirts. A neighborhood long since abandoned due to "eminent domain" and political bullshit. It was never used, but also never given back. The government just claimed the area and moved on, leaving the people to find some other home. It wasn't the history that made us want to check this place out, though. It was the fact that many of these homes were built with basements. I come from a place in the Southwest where building underground is not only expensive, but difficult. So, the idea of an entire neighborhood with its own basements was fascinating to me.
+
+It was just me and my buddy, Dan that day. We drove about an hour to the edge of town, where this place had been left and forgotten. When we arrived, it was like walking into a ghost town. Rows upon rows of houses, left empty by a government that abandoned whatever project it had in mind for the area. It was like walking through the living embodiment of one of this city's many failures to its people. Most of the homes were coated in graffiti at this point. Caricatures and writing that weren't easy to decipher, but we were sure some marked this place as belonging to one gang or another. There just wasn't anyone there to enforce a territory claim.
+
+We wandered the streets for an hour, just taking in the surreal feeling of walking through an otherwise modern neighborhood, save for its lack of occupants. After that time, we decided to check out the interiors of some of the houses. Most of the doors (if there even still were a door on the hinges) were unlocked or broken. We found old campsites, likely from the local homeless population, used needles, all sorts of trash and rubble from the damage many of the homes sustained at the hands of their temporary residents, and broken glass. Even the basements were pretty mundane empty ruins, but it was still interesting to find stairs in these places that traveled downward, into the ground. I know that for some it's par for the course, but I wasn't one of them. 
+
+Four hours into our exploration we found it.
+
+From the outside it just seemed like another graffiti-coatedd,abandonedd home. Then we got closer, and the grafiti on this place was different. It wasn't a bunch of symbols and gang claims,, it was a slew of warnings. "Stay out!" and "The Devil Lives Here" were a few that stood out to me. There was also pentagrams and other religious iconography drawn all over the walls. It gave me pause, like something about this particular place was wrong. When I voiced my concerns to Dan he just shook it off.
+
+"Probably where the leaders of the gang would meet or some shit, maybe they killed some people in here?" There was a morbid fascination in Dan's voice as he mentioned that last part, almost like he was eager to find a dead body. "Only way to know is to check it out, though." Therehere
+
+I knew I wasn't going to be able to stop him from going inside. The best I could do was follow behind and make sure nothing bad happened to him while we were in there. 
+
+God, I wish I hadn't.
+
+The door to this house was locked, and the windows were all boarded up. We had to force our way in past the front door, and when we did the odor hit us first. The putrid scent of overripe fruit mixed with the unmistakable stench of decay. We couldn't smell it all outside, like the door locked it away in this place. I staggered back, covering my mouth as I nearly voided my stomach right there. Dan wasn't nearly as bad off. He coughed and waved his hand in front of his face as he turned to look at me. "Something definitely died in here..." he murmured, pulling out his flashlight and shining it through the room.
+
+There was furniture in here, rotting and musty. The kitchen still had a table set out, with rotting food on plates, as though the occupants of this home didn't leave so much as they had disappeared. Everything smelled old, or like death. It was hard to navigate through the place, the scent was making my eyes water and my head was starting to throb. Dan wanted to keep going, though. He said the smell meant something died recently. It wasn't old rot, it was new. How he knew so much about differentiating the smells of death I still don't know, but I followed dutifully. I wasn't about to leave him alone in a place like this, and if something had died in here? It made all the more sense to continue our exploration together. 
+
+We checked out each of the rooms, the stale scent of rot clung to the air, but the source was nowhere in sight. There was furniture in every room, as if the house had been well lived in before it was just abandoned and forgotten. I didn't find any places where it was obvious that homeless people might've been. In fact, aside from all of the rotting food in the kitchen and dining room, this was probably the cleanest house we had checked out. No holes, no glass, no used needles or trash. It was like this place was intentionally avoided. 
+
+When the time finally came to check out the basement, I was nauseous. My head was splitting, and the odor was growing stronger. Whatever the source of the rot smell was, it was coming from down there. Bracing ourselves, we opened the door. At least, we were going to, but the door was boarded up and chained. Whatever was down there, someone didn't want people to see it. 
+
+We had brought a pry bar and bolt cutters in case we needed to pull any boards or break locks. So, we went back to the car and gathered up our tools, breaking the chains and pulling the wood off of the door to get down into the basement waiting below.
+
+We were right in our assumptions about the scent. It was nearly overpowering as we descended the stairs into the unfinished room below. At this point we had made masks out of some old shirts in my trunk that I had planned on donating. Even with the covering over our noses and mouths, the scent was a punch in the face. When we finally reached the bottom of the stairwell what we found felt like something out of a horror film.
+
+The walls were coated in a sheen of something thick and slimy, almost like tar and the floor was covered in these strange blackish green masses that looked and smelled like piles of decaying flesh. They seemed to pulse and quiver as Dan pressed his foot against one, leaking this sickly yellow-green pus from where he had pressed. The vile scent wafted up from these cankers as we plodded through the basement. Something in the pit of my gut filled me with unease as I looked at these things and as I looked over the walls. 
+
+The entire room was filled with this rancid humidity; it clung to our clothes and pressed a sticky sheen against our skin, but still we persisted in our investigation. At this point, Dan had his phone out and was filming the disgusting things in the room, documenting the aberrations on the ground with rapt interest. 
+
+That was when we found the hole. It was about ten feet wide and seemed to go down further into the ground at an eased slope, almost as if it were designed to be traveled through.
+
+"I think we've got enough, man..." I murmured to Dan. "Those warnings might be true, you know? What if something lives down there? I mean, look at this place, these things aren't natural." I pointed to one of the Myriad mounds, oozing their stink into the air.
+
+Dan gave me a dismissive wave. "If you're done, bro, I get it. I'm gonna keep going, though. Now I've got to know what's down here."
+
+I sighed and shook my head. "I'm not going to let you go through that thing alone. This place is fucked, and the last thing I want on my conscience is the thought that you died in some fucking hole."
+
+Dan just shrugged, "Then stop trying to convince me to go and let's get in that hole," he said with a laugh and wiggle of his eyebrows, like he was suggesting something far more lewd than exploring a hole we found in the ground.
+
+As we began our descent into the earth, the scent of rot only seemed to grow stronger, as if we were walking into the depths of a long-abandoned abattoir. There was no more weird mounds or tarry substances, though. The humidity also seemed to grow thicker the further in we went. The walls of this little cavern weren't paved or coated; it was loose earth with roots and crumbling clods of dirt, but as our journey took us further and further down, the path began to smooth, eventually turning to what felt like solid concrete once again. 
+
+That same creeping dread began to claw its way into my psyche, something telling me I needed to turn back before that wasn't an option anymore, but the other side of my mind was filled with a morbid curiosity. Curiosity won out in the end, and I think about that moment. The "Point of No Return" when the dirt turned to stone and we stepped into their domain.
+
+When we made the biggest mistake of our lives.
+
+As the ground began to smooth, the walls began to develop the same sheen they'd had in the basement above. The humidity only grew more sweltering, like we were baking in a sauna at this point. Our clothes clung to our skin, our breathing became more laboured, and we pressed forward. The stink of decay was strong down here. An omnipresent stench of rot and death that seemed to be threatening us. Telling us we needed to go back, but Dan persisted, and I was too much of a coward to put my foot down. Maybe I'm just blaming him because it feels easier, maybe I wanted to keep pressing deeper in, too. I just know now that it was a terrible idea.
+
+Hindsight's 20/20, after all.
+
+We kept moving through this corridor, eventually it began to branch off, multiple hallways leading to multiple dark paths, but we maintained our course. There would always be time to check these other places once we had reached our first destination. I don't know how long we walked through those dark corridors far beneath the earth, but eventually things started to change.
+
+It was subtle at first, small red veins snaking out of cracks in the concrete, but then it began to grow more and more noticeable. Those small veins turned to patches on the ground, looking almost like muscle tissue. Dan noticed them, too, pausing only to film the strange growths spreading from out of the ground and along the walls. As we continued our exploration of this place, the strange sinewy muscle tissue coating the walls and floors seemed to become more continuous. Longs paths of the stuff begain to show, and eventually they started to have something akin to skin. By the time we had gotten far enough that tunnel itself seemed to be coated in this flesh, Dan had finally paused, murmuring to himself about how fucked this whole situation was. 
+
+The skin on the walls was coated in what looked like old scars. Points of smoothed or shinier flesh showed itself amongst the rest, like it had been cut or stabbed. I looked to Dan, whose determination had finally seemed to waver. "We've got way more than enough. This is inhuman, dude. We can expose this!"
+
+Dan looked at me, almost mournfully. "We don't even know what this is yet," he said as he shook his head. "We have to go further in. We have to learn everything we can about this place."
+
+I'd had enough. The humidity, the stink, and now skin growing out of the walls. We had to get out of this place. "No. We've got to go, man. We've got to get out of here, before someone finds us down here. What if it's a government experiment? They took all these homes, after all, what if their reasoning for such a thing was so they could make whatever the hell this iis?" I motioned to the pulsing wall of skin and muscle next to me. 
+
+"I'm not leaving." was Dan's flat reply.
+
+"Why? We've found something here, we have evidence of it. Let's get the fuck out before someone shows up, decides we aren't supposed to be here, and sews us into the wall or something!"
+
+"Because I want to find out more. Now, you can come with, or you can go. I don't care. I'm going to keep moving."
+
+I pinched the bridge of my nose in frustration, I shook my head and took a step back before sighing and resigning myself to continue in whatever this quest was becoming. It didn't matter how firm I was, how much I wanted to get out of this, because I wasn't going to leave my best friend alone in this place. So, I followed.
+
+The ground beneath us grew soft as we continued forward, the strange flesh now covering the halls as well as the floor. That humidity came with a heat now, like we were pressing ourselves against the sweaty body of another person. It was dank, uncomfortable, and the rot smell only continued to permeate throughout the area. 
+
+We walked for another hour through this hall of flesh before it opened up. Stairs still coated in this pulsing, trembling skin led down into what looked like a whole world made from living flesh. Spires and chasms littered the strange hellscape before us, structures made of bone and sinew and skin rose up from the flesh roads and clawed toward an unseen sky. It was alien, it was aberrant, it was horrifying.
+
+I saw a creature, at first I thought it was some form of gian mosquito, but as I got a better look in the now dimly lit space I realized it was something far, far worse. Its bublous head appeared to be fashioned from a pair of human skulls designed to serve as a mockery for eyes while the mouth appread to be crafted from severed rib bones and lost fingers. It flew on a pair of wings made from thin, stretched skin and its abdomen hung sickeningly below it, filled with bright red blood. 
+
+I fell backward upon witnessing the abominable creature, staggered up the stairs, but Dan kept going, as if he were entranced by this place. The skin here wasn't just scarred. It was pockmarked and infected. Parts of the flesh bore festering blisters fulls of green-yellow fluid, while others bore open and weeping sores. The scent of the rot was apparent, now. This part of the flesh was dying, even necrotized in some places, black hardened patches of dead flesh marring the strange spires above.
+
+I think Dan heard the sound before I did, moving as fast he was through the strange city of flesh. It was low and constant, a pulsing beat that resonated throughout the space. As we moved I noted more creatures, more amalgamations of flesh and blood. Horrifying mockeries of real things. None of them seemed to pay me any mind, though. They just continued about whatever business it was they were so committed to.
+
+Pressing through the sweltering city, we reached the source of the aberration. In what looked almost like the city square, veins connected to the towering spirelike buildings, a great beating heart pumped life into the living city. It was atteneded by a group of what looked like humans, their arms raised high into the air as if in reverant worship. I gasped as I looked at the scene before me, these people worshipping the heart of a city made from flesh and bone, the infected skin, the stink of death and rot. All of it made my head spin, and I began to feel the world around me slipping away.
+
+Dan caught me before I passed out, phone still focused on the people standing before this monstrous entity. They were chanting something, something in language neither of us recognized. One of them pulled their hood from their face, revealing a pale bald man with strange symbols carved into his skin.
+
+That was when he looked directly at us, and he smiled. He held out his hand in offering, in welcome.
+
+I pushed myself off the ground and backed away, but Dan seemed to take the welcome for what it was. He pressed toward the man as I moved away. 
+
+I saw the knife before Dan did.
+
+One of the other robed figures produced it, stabbing my best friend in the back, between the shoulderblades. They pulled the knife and plunged it in again, and again. Then, they turned their attention to me. 
+
+I ran.
+
+I ran as fast as my legs could carry me through the soft, pliant flesh of the city, even as strange ropelike veins burst from sores and attempted to seize me. They tore my clothes, battered my body, and cut me more times than I care to count.
+
+Still I ran.
+
+We were in the heart of this thing, literally, and I knew I wouldn't be safe until I reached the basement of that house, maybe not even then. My lungs burned, legs screamed and ached, but I ran. Fueled by adrenaline and terror I kept moving. I spared a glance over my shoulder only once to see that I wasn't being followed, but for some reason that didn't remove my fear. Didn't settle my stomach. So, I ran.
+
+I don't know how I willed my body to run as long as it did, but as the flesh turned to stone and the stone to earth I felt relief begin to wash over me. I knew I wasn't in the clear yet, knew I had to keep moving, and so I did. I burst from that tunnel into the fetid stench of the abandoned home. Into the tar-slick walls and the cancerous masses on the ground, remnants of the city below? A failed and rotting attempt to spread its influence? I didn't know, I didn't care, all I knew was that safety wouldn't be found within. 
+
+I kept running until I hit my car. Kept running until my lungs felt like they would claw their way out of my chest, until my legs gave out from underneath me.
+
+I collapsed in my car, breath ragged, body ravaged. I stared at that accursed house, taking big gulps of air as I tried to settle my system. I puked. Right onto the waiting asphalt below. My body shaking, sweat pouring from every part of me. 
+
+I think I passed out at some point, because it was suddenly the middle of the night and I had no recollection of the time when I had locked myself in my car. My breathing was a bit better, but I was still exhausted and battered. I started my car and drove to the nearest ER where I was treated for mostly minor wounds, a few needed stitches but all in all I was in ok shape. 
+
+I was asked about what happened, of course, and I stunk of that rotten place. When I spoke of it, though, all I got was a stern warning from the cops not to go back there. They told me that was private government property and that I was lucky they didn't just arrest me then and there. There was a look in their eyes, though. It wasn't one of anger, but concern. I couldn't help but feel like they knew what I was talking about, not only that, but like I wasn't the first person to escape it.
+
+I was discharged the following morning and shortly after was back in my own place. When I got in, I staggered toward my room and collapsed on my bed. I slept for well over nine hours and was awakened by my phone ringing.
+
+It was Dan.
+
+My hands shook as I answered the phone. "H-hello?"
+
+"Hey man, you took off like a bat outta hell last night, you good?" Dan's voice inquired on the other line.
+
+"Am I good?" I asked, baffled. "I saw you. I saw them stab you! Not once, either! Over and over!"
+
+Dan laughed on the other end of the line. "Good prank, right? You know, you kinda stranded me over here, dude. Kinda need you to come back."
+
+"No. No fucking way. I'm not doing any of that shit." I stated flatly, shaking my head and looking at my phone.
+
+"But dude. They know." was Dan's reply.
+
+"The fuck are you talking about?"
+
+"They know where you live. Where you are right now. They're watching you. When you least expect it, they're going to take you. They're going to bring you back to us..." as Dan spoke those final words, his voice distorted, going from one to many. I hung up my phone and threw it toward my wall, watching as it fell behind my nightstand.
+
+The next day, as I woke and made my way to work, I noted a pair of black SUVs that seemed to be following me. Not right behind, keeping a few paces back so that it wasn't extremely obvious. When I stopped for coffee there was another parked across the street. Every time I stopped somewhere, every time I looked over my shoulder there was an SUV. 
+
+Yesterday, I got a text from Dan's phone. It was the video he had taken, but it was distorted and garbled. Near the end I could hear him screaming, and then the phone was picked up, that bald man looked into it. "You'll be joining us soon."
+
+They're everywhere. Closing in around me. I can feel the jaws of the trap slowly beginning to tighten. They're going to take me back to that place. To that world underground with the city made of skin and the aberrant caricatures of creatures drifting through its so-called streets. I know it's only a matter of time, I know that there's nowhere I can run. I've already tried reporting them to the police, even watched as a pair of cops approached one of the SUVs and spoke to the people inside. 
+
+I was told there's nothing they could do. The cops looked rattled, though, like whoever had told them to tell me that held some kind of major authority. I think it's all some sort of government thing, like a conspiracy. I can't prove that, of course, but I know they're coming
