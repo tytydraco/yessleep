@@ -1,0 +1,159 @@
+Now I’m gonna start this saying I’m not the smartest man in the world. I never did well in school, always getting in trouble of one sort or another. I barely graduated and that was only because there was a teacher who saw some glimmer of hope within me and pushed me harder than my own parents. Thanks Mr.Waller. But just because I'm not the brightest bulb in the drawer doesn’t mean I'm crazy as some people have decided I am. They look at me and whisper in each other's ears as I walk by. Kids laugh and point as I walk past calling me Cal the Crawler or just the Crawler. I don’t care what they call me, I know what I saw, it will never ever leave my memory for as long as I live. As I lay on my deathbed, which I think is closer than I would like it to be, I will remember the scraping of the walls, the heat emanating from them and burrowing its way into my skin, and the scene before me when I reached the end of that godforsaken chamber. That will be the last thing I see before Death wraps his gnarled fingers around my neck and chokes out my last breath. As so let me start from the beginning and recant my tale before the cloaked bastard is at the foot of my bed. 
+
+Like I said I was never booksmart but I had a knack for things with my hands. I gravitated towards construction once I had left the hallowed halls of Shaleville Regional High. I had a bigger build, burly but fat. I could have played for the football team as a pretty damn good linebacker if I had listened to Coach Hensen back then. Maybe it would have changed my trajectory in life, got me scouted by one of those college coaches with a full scholarship and got me out of this dead end town. I can’t change what I didn’t do back then but the possibilities still haunt me. If I hadn’t joined Grady’s construction team I wouldn’t have been there when we found the opening, I wouldn’t have followed James inside looking for god knows what back then. But I did, and I can’t take that fact back now, no matter how much I want to. 
+
+I applied right out of school to learn to be a carpenter, so I could get out of the house, be busy and earn some money to live on my own. Hell knows that my old man wanted me out of the house as soon as possible. I reminded him too much of my mother, her soft blue eyes reflected in my face, the pain unearthed every time he looked at me. That should have never been a burden I had to deal with but life is cruel and sometimes people are crueler. The scars on my back and years of bruises can attest to that but that is besides the point. 
+
+It was Mr. Waller who actually helped me get the job. The old man was neighbors with Grady and had a pretty good relationship with him, they played cards every Sunday after church while their wives gossiped. I think Waller buttered him up about me, telling him about how I had it rough and I was a sweet kid that needed a break. It didn’t take much for me to get hired with Grady, a preliminary interview and I was in. He practically took me under his wing, teaching me everything I needed to know himself, signing me up and footing the bill for classes while making me his apprentice. 
+
+I was soaring, for the first time in my life I felt like I finally belonged somewhere. I did really well in my carpentry classes, something about building stuff really clicked in my brain. Soon I was right alongside Grady out on the job. I loved it. I finally found my thing, I wasn’t the dumbass kid sitting in remedial algebra for the second time, I was head of the class. It was great and life was good for a few years. I managed to scrape up enough money to get a shitty one bedroom apartment on the outskirts of town but it was mine and I felt safe, away from my father. I quickly climbed the ranks with Grady and in two years I had a whole team below me. Things were looking up. It wasn’t until the park job I realized that I had had it easy before. Things were about to get a lot worse and change me forever. 
+
+It was winter, December. I can remember the Christmas lights decorating the Main Street of town while we drove through towards the new job. Grady had called the night before, told me that me and my team would be starting on this project starting today. He explained that we would be in charge of renovations of some of the cabins within the Greyveil park. I guess the park was trying to distance itself from some of the more unsavory things that had happened within its woods over the past 30 years by redoing some of the cabins in preparation for spring and summer. Everyone knew that the forest had a bad reputation, ask any local. They would fill your head with the tales of the serial killer who kidnapped and killed women in a secluded grove or the several couples that had gone hiking and disappeared. They managed to find one of the victims in a terrible state a few years back but the others were still gone without a trace. Either way a job is a job and I was not worried about any ghosts or ghouls lurking around while we were there. It wasn’t the ghosts I should have been looking for. It was the place itself that was cursed, the forest, the soil, something had long rotted under that place and polluted everything else.
+
+We arrived early in the morning to the park and the rangers directed us towards the old and rotting cabins that had been waiting in disrepair for the last two decades. It was a secluded part of the woods, off the beaten path a bit but I guess that’s why we were there. Part of the job was to make new paths from the well marked trails to the cabins. The job should have taken a few months, weather permitting, we were in the dead of winter and snow was a constant. An hour or so of setups from the trucks and we were ready to inspect what lay before us. When I say these cabins were in rough shape it’s not an exaggeration. Most of the foundation and wooden exterior had rotted away, leaving large holes in the roof or the walls of the structure. We would have been better to have just started from scratch and built a whole new cabin but the park wanted to "preserve the authentic look” by using whatever crap we could salvage from the old place. It was easier to just nod my head and try and do whatever the client wanted than arguing because they were always going to find something that they didn’t like and make you redo it. 
+
+There were five small cabins arranged in a semi circle around a large central fire pit. A good amount of work to be done before came and only a few months to do it. After the first sweep through of the cabins we started doing what we could with what we had that day. Pulling down the rotted boards, salvaging the good wood and taking note of what needed to be bought and taken to the site the next day. The work kept us going like this for a few weeks, slowly but surely we had gotten all of the bad wood out of the cabins and started fixing the foundations of the cabins. Then snow. It was the freak snowstorm that came out of nowhere and dropped like 18 inches on us within two days. We were out of commission for days. The roads alone were terrible to drive on and the city wasn’t prepared for anything of this scale so it took days for the streets to be plowed and for anything to start moving again. I knew it was going to be a shitshow when we got back to the site. We had been using tarps and coverings to keep the new wood out of the elements but there was nothing that was going to save it from this. The cabins were going to be buried in layers of snow and it would take forever before we could get back to them. Sure enough, the sheer amount of snow had done some damage, and that’s what led to the eventual downfall of the team and myself. 
+
+We returned a few days after snowmaggedon and assessed the situation at the site. There was pounds of snow packed into cabins through the open roofs. The tarps didn’t do a thing to hold the amount of snow pushed down on them and they eventually were buried inside. Luckily most of the new wood we had acquired was safe, minimal water damage to it but those tarps held strong. I started to look in each cabin to see what needed to be done. Of course all the snow would need to be removed so I started there. Eyeballing each building looking at the volume and that’s when I spotted something weird. It was in the furthest cabin over on the end of the semicircle. The inside of this cabin had the least amount in it, but it was soaked inside. Like something had melted the snow from the inside and let the water run free. 
+
+I stepped inside to get a closer look. There was still a bit left inside but it almost looked like a bowl had been carved out of the inside of the powder down to the wooden floor. I pushed my way through and down to inspect the floor at the center of the anomaly. A wave of heat smacked me as I closed in. It was a dry heat like one you would find in the Sahara desert, a suffocating, sweat inducing heat. I bent down and inspected the ground. The floor was bone dry, like no water had ever hit the spot and the closer I brought myself to the ground the greater the heat became. I was covered in sweat now, removing my jacket to make it easier to maneuver. 
+
+“Hey! Clea,” I called out. “Bring me the crowbar from the truck.” 
+
+A minute later Clea came tramping through the snow with the crowbar with a puzzled look on her face. 
+
+Clea had always been a hard worker, she wanted my job more than anything and was jealous that someone 15 years younger had surpassed her that quickly. I couldn’t blame her. She had been working for Grady for the last five years, doing what I was doing, soaking up all the knowledge and hoping to take the next step up. Not to mention she was a single mom with three kids at home who needed to be fed. I guess her husband had died in a car accident a few years before and she was struggling to make ends meet. I fucked her plan up and she hated me for it. 
+
+“What the fuck are you doing,” she responded. “Where’s your jacket? It’s like four degrees out.” 
+
+I beckoned to her as I bent down to press my ear to the ground. The heat was blistering now, sweat dripped off my face and onto the wood below. There was a sound coming from under the boards. A low hum was emanating from beneath the floor. I grabbed the crowbar from Clea and plunged the pointed side between the boards. With a quick push downward the board cracked up. A blast of heat poured from under the board and hit my face. A drip drip drip could be heard from down below, the sound of the melted snow hitting stone. 
+
+“Hand me your light.” I said, reaching towards Clea. 
+
+She unhooked the flashlight from her side and tossed it to me. From behind her I heard the crunching feet as Dale and James joined the audience. 
+
+Dale was someone you needed on a site like this. He was easy going, been through the works before and this is where he landed. Someone who had a billion stories to tell about his life. Apparently he had left home when he was young, joined the army and did a few tours before bouncing around the world looking for the next big thing. That’s when he met his wife here. They fell madly in love and he settled down. Said he’d been in this town for the better part of the last 25 years and regrets nothing. 
+
+James on the other hand was the issue. The “loose cannon” on site. He always needed to be monitored because he got easily distracted. He had that kind of energy a golden retriever has when they haven’t been outside in a few hours, bouncy and prone to knock things over. Bad enough that he loved to pull these stupid little pranks that he thought were hilarious. At the end of the day though he did his job and we needed the hands and couldn’t afford to let him go. It was better than nothing. 
+
+“What’s happenin’ boss,” he said through a half closed mouth, a cigarette hanging out of the other side. “Something wrong?” 
+
+“I don’t know,” I replied. “Something's down here, come take a look.” 
+
+They gathered around the hole in the floor, staring puzzled at what I unearthed. I looked up at them with the same look. I shined the beam down into the hole. It wasn’t a hole in the ground, it was more like a cave. The slick stone walls looked to be coated in a layer of water, likely from the snow above. The passage was big enough for someone small to fit into but it curved a few feet down and out of site. I pushed myself up from kneeling, careful not to put any pressure on the broken boards. 
+
+“All of you stay right here,” I said as I got up from the ground. “I’m gonna call Grady.” 
+
+I crunched over the failed snow back to the truck, the bitter cold nipping at my face again. There was a clear difference from standing over the hole in the cabin from outside. It felt like a hot summer day inside, blistering heat pouring from the ground while a few feet away it was freezing again. Something wasn’t right. What could even cause something like that. I’ve heard of underground lava tubes on the discovery channel before but never anywhere around here. That could be the only thing that could be making that much heat.
+
+I opened the truck door and rummaged around in my bag, looking for my phone. With a quick glance back, I could see James pressing his head down close to the opening, imitating sunbathing. I shook my head. James’ antics were not what I needed today, especially if whatever this thing was could be dangerous. My crew always comes first. 
+
+“Hey Grady,” I said, putting him on speaker phone as I continued to watch James closely. “We found something really odd in one of the cabins.” 
+
+“Damage?” He asked. “We knew there was going to be some dam-“
+
+“No,” I cut him off. “Well, yes but it’s something else. “An opening or something under the furthest cabin, like a cave. 
+
+“What?” He replied. “There shouldn’t be anything like that anywhere near there. Those cabins have been there for years with no issues, I have no documentation of a cave or hole under any of the cabins.” 
+
+“I know. What if it’s a sink hole?” 
+
+All of a sudden a scream cut through the silence of the forest. 
+
+I turned around at such speed it should have sent my head spinning. Fuck. I always do this. I pace when I talk on the phone and I stopped watching James. Now looking back at where my crew was I only spotted Clea and Dale staring downward into the hole.
+
+“What was that!” Grady yelled into the phone. 
+
+“James,” I gasped. “He fell into it. Send someone out now, I’m gonna try and see if I can get him out.” 
+
+I hung up the phone and ran over, my feet getting stuck as I tried to trample over the mounds of snow in my way. 
+
+“What happened?” I called out to Dale and Clea. 
+
+They turned to me with frightened looks. 
+
+“No clue boss,” Dale responded. “I went for another smoke an’ left the two of them here.” He pointed at Clea. 
+
+“I went to check my phone,” Clea said. “My kid is sick and home today and I needed to check on her.” 
+
+ “Fuck!”
+
+I looked down into the hole below. Somehow it looked like it had gotten bigger, which was impossible, there was no way for it to get any bigger without blowing it up. Maybe my mind was playing tricks on me, or the mix of hot and cold was playing with my vision. It didn’t matter. I needed to get James out of there before something worse happened. 
+
+I flicked on the light Clea gave me earlier and flashed it into the cave again. It definitely looked bigger, I think I could fit into it now and I was a bigger guy than James was. Weird but James needed to get out of there. I couldn’t see him at the bottom, he must have slipped past the curve. 
+
+“James!” I yelled, my voice echoing back to me. “Are you hurt?” 
+
+A weak voice replied. “Yeah. My leg. I slipped on the broken boards and fell feet first down the hole. The water on the sides made me slip further in and I smashed my leg.” 
+
+I turned around and looked at Clea and Dale. 
+
+“I’m gonna go in and get him.” I said, sighing. “Wait up here and pull us out when I grab him.” 
+
+I turned back to the cave and called down. “James, I’m coming down to get you!” 
+
+I sat down on the wooden floor, scooting towards the edge of the hole like I was getting in a pool. With one swift motion I flipped myself around and swung my feet down so they touched the slick sides of the cave wall. Hanging with only my hands, I slowly lowered myself down into the opening until I couldn’t go any further and let myself drop. Luckily the damp sides of the cave and the way it curved softened my fall of only a few feet and slid me down into the deeper part of the cave where James’ voice was coming from. 
+
+“James! Where are you buddy?” 
+
+The light illuminated more and more of the cavern as I continued forward. A sloping path that led deeper and deeper downwards into an unknowable place. That’s when I spotted him, laying on the ground, staring up at me with a pained look. 
+
+“There you are,” I said with a sigh of relief. He wasn’t too far down into the cave so it shouldn’t be that hard to get him out. “Give me your arms.” 
+
+I reached down to grab him. The ceiling of the cavern was tall enough where we could both stand so if I could get James on his good foot we could hobble out of here slowly. 
+
+“Thank god,” James said. “I thought I was gonna be stuck down here.” 
+
+“As much as I would have loved that,” I replied, chuckling. “Lemme take a look at your leg.” 
+
+The cave was hot. I could feel the heat emanating from the stone around us, almost like we were in an oven. There was something else too. The deeper I went the more the walls around us changed in texture. It went from a sleek damp covered rock to almost a moss feeling underneath my feet. The water from the snow above mixed with something on the walls creating a kind of mucus mixture that was dripping from the ceiling and onto my back. It was sticky and didn’t come off easily. 
+
+“Yeah about the whole leg thing,” James said with a sly look on his face. “I kinda faked it.” 
+
+As soon as the words came out of his mouth I was on top of James, pinning him to the floor. A hot rage boiled inside of my chest, ready to explode at any minute. I grabbed James by the collar of his shirt and thrust him down hard into the stone beneath us. 
+
+“WHY THE FUCK WOULD YOU DO THIS,” I roared, the anger rising with each passing second. “WHY THE FUCK WOULD YOU COME DOWN HERE.” 
+
+James' face changed, the light from the flashlight illuminating a thin streak across it. The joy and mischievous energy that was there a moment before fled and what returned was a look of pure terror. 
+
+“I wanted to see what was down here man,” he squeaked out. “You would have never let me come down here so I had to think of something.” 
+
+I picked him up by the collar again and slammed him back down into the rocks, the breath leaving him as he hit. The rage flooded every part of my body. I wanted to scream, I wanted to pummel James so hard I would have to carry him out of here in pieces. 
+
+“I knew you were a fucking moron but I didn’t think you were this idiotic,” I spat at him. “You know what James, you’re done. When we get out of here you are packing your shit up and going home. You're fired.” 
+
+“I….I..I really need this job man,” James choked out. “I’m sorry. I’m really sorry man.” 
+
+“Fuck you. I thought you were hurt or worse. You put you and me in danger and now we have to get out of this fucking pit!” 
+
+I slammed my hand into the floor next to James face. Blood trickled from my knuckles and mixed with the mucusy mixture. James' eyes welled with tears and his face reflected pure terror. A pang went off within my heart. A memory flashed through my head. It was of my father, doing the same shit, slamming me down and beating me for the smallest thing. James was just trying to bring some levity to the work site, although the way he did it was moronic. My face softened. I can’t be like him, I have to be different, control the rage. 
+
+I pulled myself off of James and pulled him up. “I’m sorry, I went too far. Let’s just get out of here, we will talk about your job once we are out.” 
+
+James sniffled and wiped his face, trying to hide the tears in his eyes. I bent down and grabbed the flashlight from the floor. My hand throbbed from punching the stone. That was stupid. A bit of my dad passed down through me, I just couldn’t contain it. I used the light to examine my hand quickly. There were a few small scrapes from where my knuckles hit the ground, the wounds leaking blood, but they were superficial. They would heal quickly if left alone. 
+
+There was a moment of silence between me and James. An unspoken tension that filled the cavern we were in. It wasn’t completely silent though, the cavern was alive with sounds from all over. Our breathing reverberated off the walls and back to our ears. The dripping of the melting snow from above gave the illusion of a metronome keeping pace with some hidden rhythm, but there was something else. It was that low guttural hum coming from deeper in the cavern. A buzzing in my brain that made my thoughts fuzzy in a way I had never felt before. I almost wanted to go deeper, to climb as far as I could until I could find the source of this incessant noise and put an end to it. 
+
+I turned the light back down the cavern, seeing what I could make out from further in but it continued to slope down and the ceiling obscured the descent. 
+
+“Let’s go.”  I waved to James as we began the trek back to the entrance. 
+
+We could hear Dale and Clea yelling something from outside the hole but it was muffled, like there was a dampener on their voices. We continued to trek through the muck stuck to the walls. It coated my feet, making it hard to not slip. I had to use my hands to grip onto the walls, digging through a layer of the slime to reach the warm stone underneath to steady myself. The stone itself was warm but there was something else to it too. A kind of beating or thrumming that seemed to coincide with the buzzing noise from before. It came and went in intervals, almost like the cave had its own heartbeat. 
+
+That idea freaked me out so I pushed the thought out of my head and trekked on and soon I could see light outlining the slope upwards and out into the winter air again. I could see Dale leaning down and looking for any sign of life. 
+
+“We are here,” I called out. “And we are both fine. James thought it would be funny to pull a prank and dive into the cave.” 
+
+I looked back with a stern face and James looked away, like a puppy that had gotten into the garbage. 
+
+“Help me up would you,” I called up to the two of them as I reached my hands up. “I need a shower after all this shit.” 
+
+Dale reached his hand down and grasped mine. It wasn’t long before our grip began to slip, the slime making it much harder to grab onto anything. I dug my foot hard into the stone of the wall and pushed up, trying to get better leverage on Dale. 
+
+“Clea,” Dale said. “Come grab Cal's other hand. He’s covered in cave gunk and it’s hard to grab him.” 
+
+In a moment Clea was now above us with Dale. Her outstretched hand joined Dale’s and I grabbed them both. They pulled and I started to make some progress when I heard it. A deep moan from below me. It sounded like when someone had gotten kicked in the junk when I was younger. A deep and guttural, painful moan that rattled my bones and sent a shiver down my spine. Dale and Clea exchanged a look of terror and then began to pull me up faster. Then I felt pressure around my leg. I was being pulled down. I looked down and saw James grabbing at my legs, holding on for dear life. 
+
+“Faster,” he yelled up to me. “I think there is something down here!” 
+
+Then the floor dropped out from beneath him. I don’t know how it happened. One moment he was standing on stone, the next it moved and straightened out, the sound of rock cracking came from below and then there was no more floor. The slope I was leaning on vanished and the foothold I had disappeared. I scrambled with my one free leg to gain purchase on something but the gunk on the walls was too slick. I couldn’t get a hold of anything and now James was screaming from below me, dangling over a darkened pit. His weight was too much. With one final glance up I saw as Dale and Clea lost their footing and tumbled downward towards me. In an instant my stomach flipped and we were falling. 

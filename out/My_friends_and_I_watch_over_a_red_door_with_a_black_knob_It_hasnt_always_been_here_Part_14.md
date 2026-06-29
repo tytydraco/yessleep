@@ -361,3 +361,5 @@ It didn’t exactly solve the mystery. Hell, it wasn’t even unique to me. I im
 We were all just a bunch of scared children at the end of the day, abandoned and betrayed by those who should have kept us safe, and in search of a better family.
 
 How wicked it was for the door to take advantage of such an innocent thing…
+
+[{Next Part}](https://www.reddit.com/r/nosleep/s/LdBn66Ed4q)

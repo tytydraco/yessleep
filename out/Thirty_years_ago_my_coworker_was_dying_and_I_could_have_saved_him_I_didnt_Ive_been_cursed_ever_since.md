@@ -176,7 +176,7 @@ I knew I could step outside and face it. I came close. 
 
 But, ultimately, I didn’t. 
 
-The following morning, I stumbled out of my car and started down the road. I was in tatters by the time I reached Portland: body aching, mind frayed, desperate for somewhere to rest. I settled on the first place I saw, a kitschy little hole-in-the-wall bread and breakfast named: 
+The following morning, I stumbled out of my car and started down the road. I was in tatters by the time I reached Portland: body aching, mind frayed, desperate for somewhere to rest. I settled on the first place I saw, a kitschy little hole-in-the-wall bed and breakfast named: 
 
 *“Honey’s Hoodoo and Hostel”*
 
