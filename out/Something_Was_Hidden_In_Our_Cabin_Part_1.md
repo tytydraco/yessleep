@@ -1,0 +1,37 @@
+I moved to a good-looking mansion with my family last month. I wish we were still in our tiny cabin around our small village. How does a regular mid-class family end up in a huge mansion after living in that tiny wooden cabin? Well, it is for sure a natural question to consider.
+
+It all started last month in our village around Oregon. Our village is not so far from Portland and the place which our village is in can be considered as a high-elevation region. It was moderately populated in the time we lived there but I don't know the current situation back there. Although it didn't take much space in the region, it was a pretty wooded area.
+
+During our last days there, my father was completely ready to start a small local business in our village. He was working in a huge lumber mill factory in Portland but wasn't satisfied with his tough job. He was working long hours and had to look over my mother.
+
+She was not physically ill but was having a difficult time back then because of her sister's sudden death. It wasn't going to pass if we waited weeks anyway, so my father decided to find another job in other factories in our region and even in Portland. But the working hours they offered were not suitable for him.
+
+Because of that, he decided to create his own scrap business. It was not hard for him to start because he was discussing this idea with his friends for a long time. They were saying that he should have been managing his own business already because his organization skills were awesome. So his friends were already ready to contribute by working or financially supporting.
+
+When my father was just planning to start his business the next day, something happened. My mother was cleaning the cabin for visitors and came across a hole in the wall of my room. First she thought it was just an ordinary hole because of some random plastering mistake.
+
+But by the time she was leaving my room she noticed something weird: The hole was so deep and wide that it seemed designed for hiding something. She approached it slowly and noticed sets of bent bills which were rolled with rubber bands.
+
+She took them from the bulkhead and started to count: One hundred, a thousand, a ten thousand... She couldn't notice the large number of those banknotes a moment ago. She was tossing these bills on my desk with huge excitement. Her hands were shaking continuously. She wished to tell the family but no one was in the cabin that afternoon.
+
+When she was just approaching thirty thousand she noticed something weird: There were complex symbols on the banknotes she was holding. She didn't care at first. But when she kept counting she saw more of those symbols. Her curiosity got the upper hand.
+
+She stopped counting and began to investigate: They were definitely drawn by an ordinary ballpoint pen. Formless ink spots could be seen very close to those drawings on some bills.
+
+There were strange entities on those banknotes. They had detailed human-like bodies with many minor and major wounds. Each wound had a different shape and coverage. Their head shapes were nearly the same as those of humans. There were smiles on their faded faces but something was deeply disturbing about those expressions.
+
+Their left eyes were a bit squint and their right pupils were barely white. So much so that my mother couldn't even notice those whitenesses at that moment. And their legs... They were the creepiest part. Their left legs were clearly overturned and their right toes couldn't be seen because of that.
+
+I know those drawings very well because I saw them too. But I shouldn't have seen them. Because everything began with those creature drawings.
+
+My mother felt uncomfortable about these drawings and couldn't understand how the same image kept appearing on bill after bill. All marks were entirely identical. No one could draw such complicated entities the same way twice. Even if someone duplicated them, there should have been at least small mistakes. And there were not just a couple of bills like that on my desk.
+
+She counted the marked banknotes: Ten, twenty, fifty... Although there were far more, she stopped there. She probably didn't want to scare herself any longer.
+
+She decided to wait for my father to tell him about the banknotes. My mother doesn't scare easily but even her fear was rising considerably. You could hear it in her frightened voice when she told me this story later.
+
+I am way more sensitive than my mother. So this event laid the foundation of my terrible period of nightmares.
+
+
+
+
