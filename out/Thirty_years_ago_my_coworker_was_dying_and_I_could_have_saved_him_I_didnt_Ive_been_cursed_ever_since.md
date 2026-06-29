@@ -106,7 +106,7 @@ and I brought it down. 
 
 Vanishing was a simpler process back in the 90s. 
 
-Wasn’t much to it, really. I drove until the scenery looked different. Stayed low and kept my eyes on the news, anxiously awaiting the nationwide manhunt. No such manhunt ever came to be. Far as I could tell, at least - it wasn’t the easiest thing to keep track of. I didn’t know who I killed; I just knew where’d they’d report find his body. The more I thought about it, though, the more I realized they may *never* discover that poor man: Grandpa’s estate wasn’t exactly prone to foot traffic. 
+Wasn’t much to it, really. I drove until the scenery looked different. Stayed low and kept my eyes on the news, anxiously awaiting the nationwide manhunt. No such manhunt ever came to be. Far as I could tell, at least - it wasn’t the easiest thing to keep track of. I didn’t know who I killed; I just knew where’d they’d report finding his body. The more I thought about it, though, the more I realized they may *never* discover that poor man: Grandpa’s estate wasn’t exactly prone to foot traffic. 
 
 The night after Mickey’s death, I was on my way to Omaha. I planned on driving into the morning, but heavy snowfall forced me to stop. The five-room, single-story motel I stayed at was memorably heinous. 
 
@@ -324,4 +324,4 @@ Or, more likely, everything will just get much, much worse, and that’s OK. 
 
 All things considered, I deserve that, 
 
-[don’t I? ](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
+[don’t I?](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/) 
