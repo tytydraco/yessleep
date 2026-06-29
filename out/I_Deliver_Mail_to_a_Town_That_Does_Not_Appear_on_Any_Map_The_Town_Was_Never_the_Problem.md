@@ -119,3 +119,5 @@ My phone vibrated one time a new photograph appeared, unlike the others this one
 Written across the back of the photograph in handwriting were seven words "DO NOT LET HIM LEAVE WITH THEM."
 
 Then the microwave, inside my house beeped again the display changed to 4:13. For the first time the front door slowly began to open by itself.
+
+\[Part 5\](https://www.reddit.com/r/nosleep/comments/1uin7zn/i\_deliver\_mail\_to\_a\_town\_that\_does\_not\_appear\_on/)

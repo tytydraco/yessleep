@@ -1,0 +1,209 @@
+Back in the '90s, I was just a normal, boring teenager. My last year of middle school had finally ended, and summer break had begun. Unfortunately, my "friends" abandoned me for reasons I still don't understand to this day.
+
+It was the last day of school, and I was walking home with my Walkman, listening to Sailing the Seas of Cheese. My only remaining friend, Mark (not his real name), caught up to me holding a VHS tape.
+
+"We've got to watch this tonight," he said with a grin. "I swear, this is the one."
+
+"What is it?" I asked.
+
+"No clue," he admitted. "I found it at a yard sale. No label, no case... just the tape. It looked creepy enough that I bought it."
+
+We both loved horror movies and anything creepy, so that was all the convincing I needed. Since Mark didn't own a VCR, we agreed he'd come over that night and we'd watch it in my room.
+
+That evening, I heard a knock on my basement window.
+
+My bedroom was in the basement, while my parents slept on the second floor. Since my room had its own window facing the backyard, Mark always came in that way whenever he stayed over.
+
+I got up from my beanbag chair and unlocked the window.
+
+Mark climbed inside, still carrying the mysterious VHS tape.
+
+"I haven't watched it yet," he said as he slid it into the VCR. "Figured we'd experience it together."
+
+We got comfortable, expecting the scariest movie we'd ever seen.
+
+The tape began with the words:
+
+"Knock... Knock... KNOCK."
+
+My first thought was that Mark had tricked me into watching another terrible movie.
+
+The film was black and white and looked like it had been made in the 1960s. It followed a man named Joseph and his wife, Josephine, who were staying in a cabin deep in the woods. Things went horribly wrong after they opened an old, dusty book. It was full of clichés, cheap jump scares, and bad acting. Overall, it wasn't very good.
+
+By the time it ended, it was around 8:30 p.m. Since school had just ended for the summer, we asked our parents if Mark could stay the night. They were pretty relaxed, so they agreed.
+
+Before long, my dad handed me fifty bucks and told us to walk to the grocery store across town to buy snacks.
+
+At sixteen years old, we weren't about to turn down free money.
+
+Before leaving, we locked every door and made sure every window was shut.
+
+The walk to the store was uneventful, except for running into one of my former friends, who had started bullying us near the end of the school year. We ignored him. His mother had died in a car accident not long before, and despite everything, we felt sorry for him.
+
+Inside the store, we grabbed frozen pizzas, chips, candy, and drinks.
+
+When we got to the register, we noticed something strange.
+
+The cashier wasn't the man who usually worked there.
+
+We lived in a small town, and there had only ever been one employee at that store.
+
+Seeing the confused looks on our faces, the cashier smiled and said,
+
+"I'm just the new employee."
+
+We laughed it off. We were so obsessed with horror movies that, if anything, we secretly wished we were living in one.
+
+On our way home, we passed a missing-person flyer taped to a telephone pole.
+
+JOSEPH SMITH
+
+MISSING
+
+If found, call ████████████.
+
+I stopped for a second.
+
+Something about the man's face bothered me.
+
+It wasn't that I recognized him exactly—it was more like the uncomfortable feeling that I'd seen him somewhere before. I stared at the photo for a few seconds, trying to remember where, but nothing came to me.
+
+"You coming?" Mark called.
+
+"Yeah..."
+
+I shrugged it off and followed him, telling myself it was probably someone from another town.
+
+Still... that strange feeling stayed with me the entire walk home.
+
+By then it was around 9:00 p.m., and the streets were almost completely dark.
+
+Normally, it took about fifteen minutes to get back to my house.
+
+But halfway there, we noticed an old van parked in the middle of the road.
+
+We had watched enough horror movies to know that looked suspicious.
+
+Instead of walking past it, we cut through the forest.
+
+For a while, everything was quiet.
+
+Then, just as we could see my house through the trees...
+
+We heard footsteps.
+
+Someone was running toward us.
+
+We didn't even look back.
+
+We sprinted out of the woods, onto my porch, and I fumbled with my keys until I finally unlocked the front door.
+
+The second we got inside, I slammed it shut.
+
+A loud BANG!
+
+Something had slammed into the other side of the door.
+
+We didn't wait to find out what it was.
+
+We ran downstairs to my room.
+
+The lights were still on.
+
+My room had been completely trashed.
+
+Drawers had been emptied.
+
+Furniture had been knocked over.
+
+One of the windows was wide open.
+
+"Great... now this?" I muttered.
+
+As we looked around, we noticed a piece of paper lying on the floor.
+
+It was the same missing-person poster we'd seen outside the store.
+
+Someone had written on it in thick black marker.
+
+"Oh, we swear this is the one!"
+
+—J & J
+
+My blood ran cold.
+
+Terrified, we ran upstairs to tell my parents.
+
+Instead of believing us, they only saw the mess in my room.
+
+My parents yelled at me for destroying it, sent Mark home, and grounded me.
+
+No matter how much we tried to explain what had happened, they refused to believe us.
+
+But I know what we saw that night.
+
+Neither of us ever forgot it.
+
+Eventually, sometime in the late 2000s, Mark and I lost touch.
+
+Then, last week, I got a phone call from his wife.
+
+Mark had died.
+
+I was devastated.
+
+Today was his funeral.
+
+After paying my respects, I watched as his coffin was lowered into the ground.
+
+That's when I noticed another gravestone nearby.
+
+The name on it seemed strangely familiar.
+
+I turned to Mark's wife.
+
+"Sorry... who were they?"
+
+I pointed toward the grave.
+
+She looked over and said,
+
+"Oh, those were Mark's cousins. That's Joseph and his wife, Josephine."
+
+My heart stopped.
+
+I slowly read the names carved into the stone.
+
+Joseph Smith
+
+Josephine Smith
+
+Seeing the look on my face, she asked if I was okay.
+
+Then she added,
+
+"They were murdered in a cabin in the woods back in the '80s."
+
+I couldn't breathe.
+
+My stomach dropped.
+
+It felt like a rock had lodged itself in my throat.
+
+I don't remember much after that.
+
+Someone drove me home.
+
+Now I'm sitting here alone in this cold house, trying to understand what happened all those years ago.
+
+I know how insane this sounds.
+
+Nobody in my life would ever believe me.
+
+So I figured Reddit was the only place left where someone might.
+
+I don't think there will be an update.
+
+If there is...
+
+I hope I'm still around to write it.
