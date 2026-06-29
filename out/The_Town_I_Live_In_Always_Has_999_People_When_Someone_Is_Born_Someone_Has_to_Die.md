@@ -1,0 +1,173 @@
+Hey Chris here. Thought the almighty internet might have some solution to my bizarre problem. Well, it’s more of a situation than a problem… But I… I’m running out of time and I’m running out of options.
+
+I think my grandmother is about to get killed.
+
+I mean fuck… Should I say get killed? Or die? I don’t know anymore. I should explain, it’s a… weird predicament I’m in. But I love my grandma and I want to save her, help her somehow. The problem is that where I live, this town. Whenever someone is born, someone has to die.
+
+And it’s not just being born. If you ever, EVER come inside the perimeters of my town. You will inevitably kill someone in here.
+
+I know it’s crazy, but I swear it’s how it works. Trust me I have enough evidence of that (it’s called my life). And trust me, there’s a reason our town is in the middle of nowhere. There’s a reason we have the insane number of rules we have and well… there’s a reason I’m explaining all of this to the internet, even though it’s strictly forbidden by law here.
+
+You might be wondering why I’d be worried about my grandma specifically. Well, the thing is…
+
+I’m going to have a baby sister.
+
+And if you’re following so far, I think you know what that means.
+
+Or maybe you don’t… I should probably explain myself, because it sounds simple but it’s not. So let me explain how things work in this hellhole I call home.
+
+So, like I said before, outsiders are forbidden to come in. We have no tourists. So don’t even think of trying to find me please. We don’t want outsiders, I don’t want to be responsible for… I don’t want to cause more trouble.
+
+We don’t even let the people who carry our food and supplies to come in. It’s all done with some weird long mechanical tunnels.
+
+So there’s some basic rules around here. Having animals is not forbidden but it's highly discouraged. And every animal has to be neutered. Anything from a parakeet to something bigger. Humans excluded of course.
+
+I live with my mom, my dad and then there’s me and my grandma. We used to have a bird (relevant part: used to) but he… Well, it was my fucking fault. I’m such an idiot. Let me illustrate how fucked up this situation is.
+
+When I was young, I found a dog, a stray, outside the town’s border. I was… I was just a kid. I didn’t consider it. I didn’t consider the rules. I had some cheese on me and threw it at him. He of course started following me around. And I went home, all happy and glad I had a new friend.
+
+When I got home, my bird was on the ground.
+
+I don’t think I need to explain what happened, besides how dumb and naïve I was as a kid. My parents though, oh boy, I was never grounded so hard in my life, they were absolutely fuming.
+
+You know the rules here are more like guidelines. And each family has to fend for themselves. I didn’t just kill my bird that day…. I…I
+
+I almost killed someone from my family.
+
+Like, each family is on their own. When someone is born usually the person who dies, belongs to the family. When I was born, my other grandma from my dad’s side died. When someone new comes to town (as rare as that is), it’s more... random.
+
+When I brought the dog, he kinda became of part of the family. Animals are different. Sometimes they take another animal's place. Sometimes... someone else's. That’s why they’re highly discouraged.
+
+(Don’t ask me how it works with bugs or worms or something I have no idea).
+
+We still have that dog. I guess we have to.
+
+So yeah, this isn’t just some quirky little fun scenario for me. It’s quite literally life and death. That’s why I’m scared, I know what’s going to happen.
+
+Oh, and by the way, I’m not scared for myself. I know my grandma is next. The older you are in the family the more likely you are to be “picked.”
+
+It’s almost guaranteed. Otherwise, it would be total chaos.
+
+So yeah, that’s why I can’t even leave town. That’s basically saying goodbye to my parents forever. Everyone in town has to stay, or we essentially get replaced.
+
+Which also means I can’t really leave to take my grandma’s place. Then… then I’d be gone. Forever. And maybe my grandma still dies, my sister is born and then some stranger takes my place.
+
+I love my family; I don’t want to go. And I don’t want to deprive them of their son. I don’t want my sister to just replace me…
+
+But I want to save my grandma somehow, or at least find some… loophole or something. That’s why I’m asking for help. Maybe you don’t believe me, let me give you more proof.
+
+I told you already when I was born my other grandma died. Everyone got upset in my family, but it’s what’s expected, I guess… Not my grandpa though. He fucking hated my guts after that.
+
+He was really rough with me. I remember him taunting and teasing me. Saying one day he would have another kid and then I’d die. Or one time he took me to the border of town and kept pushing me near the line so that I was almost out. He kept yelling at me.
+
+“What are you scared of, huh!? You pansy! Scared you’re gonna fall?”
+
+God, I hated that man. The day he died was a joyous one for me.
+
+I know what you might be wondering, how did he die?
+
+He died of old age.
+
+We’re not immortal here. That would be silly. The man was 95 years old and a chain smoker. That’s not the bizarre part however.
+
+There was a gruesome death in our town some years ago, a man had a girder hit him in the head and killed him straight off. I… I was one of the people who witnessed it. It was fucking… it fucked me up… a lot.
+
+I remember being a kid and falling after seeing that. And I remember there was a little girl next to me. She couldn’t have been more than five years old; she just came strolling by on a bicycle. Not giving a shit that a man had just died. She just passed everyone and passed near me…. I’ll never forget what she said to me.
+
+“What are you scared of, you pansy? Scared another one is going to fall on you?”
+
+I’ll never forget her squeaky voice as she rode off in her stupid red bike. I hated that kid.
+
+Oh, the man hit by the girder, that’s a whole other story. Apparently, everyone in town knew. The man who died… Well, he cheated on his wife. And I’m pretty sure the day the kid was born, well that’s the day, the day I saw the girder hit his head and take his lower jaw clean off.
+
+He died on the spot. But everyone around... everyone near him… They didn’t care. No one cared. It was like…
+
+Karma.
+
+Like everyone was saying “You deserve it”. Fucking hell. People in this town are brutal.
+
+You obviously can’t just have kids. Not out of wedlock and not out of city planning. Our version of “planned parenthood” is quite literally planned. You can’t just have kids willy-nilly, there’s rules.
+
+There’s another story I recall. Of a man who did some, well… things I can’t describe on the internet if I don’t want to get banned. To his... daughter.
+
+As soon as the town found out, they hanged him.
+
+Yes, we hanged him. Well not me, I was just a kid. But this place, there’s something different about it. It’s old, it’s sacred. Harming someone else like that, it’s like doing that crime times a hundred.
+
+That’s what my mom used to say when I was a kid.
+
+If you harm someone in town, you’re harming everyone.
+
+I’m not sure what that means, but at this point I don’t want to think about it too much. I want to retain some of my sanity. And, that’s not what’s weird about that story.
+
+When I was older some of the even older kids told me what else the adults did.
+
+Like when the man who was hanged died. They say a stray dog walked into town. Fairly standard stuff, I guess. Thing is, the townspeople took that dog and killed it too.
+
+I hate violence towards animals but they said… they said they had this rage about them. Like they knew something. Maybe there was something wrong about that dog.
+
+But it didn’t end there.
+
+Once the dog died, a cat came to town. They killed it too. Then a possum, then a rat, a smaller mouse, a bird and…. Well, that’s it, that’s as much as the older kids told me.
+
+They said one other thing that disturbed me a bit. They said afterwards they gathered together and ate every single animal they killed.
+
+Cooked of course.
+
+Not that I’d have much interest in eating a cooked rat, I guess.
+
+I’m not really sure what happened after that day… Some people tell me the town used to have a thousand people before that, I heard other rumors that there’s someone locked up... in the basement of the mayor’s office, serving some punishment.
+
+I’m not sure… Even after I became an adult, they wouldn’t say. It’s a sort of town secret.
+
+It doesn’t really matter; you get my drift. Now you understand what’s the deal with this place.
+
+I’ll leave you with one more story if you don’t believe me.
+
+There was a car crash some years ago. Pretty nasty stuff. Ten people died. Big tragedy for us.
+
+I’m not sure I believe what they say. But I was told that day. A woman who was going to have a kid, actually had quintuplets. The insane part is that SHE died. Right afterward, four people wandered into town, said they’d been lost in the woods, for weeks.
+
+We took them in and they became residents. One of them is a nice lady who makes the best pecan pies.
+
+You might be thinking,
+
+“Ah AH, it’s not 999 people anymore”.
+
+Well, the thing is. I sort of … lied. The initial report said ten people died, but that’s not true… two of them survived.
+
+If you can call it surviving.
+
+Those people…. those two. What happened to them… Their faces… Their bodies… It’s no way to live. They just… It’s like they’re being forced to stay alive.
+
+I don’t want to talk about them to be honest.
+
+**So now you understand what’s at stake… If someone dies, someone has to take their place. And when someone is born, well, someone is going to die, someone in the family.**
+
+Wait… hold up, my mom is yelling for me.
+
+Update: I have to go to this hospital; I’ll talk to you later.
+
+Edit:
+
+Hey guys, I guess... I was too late. My mom’s water broke and the doctor said the baby is coming sooner than we expected. I seriously fucked up; I thought I had another month.
+
+It’s been a few days, and... I’ve talked to my grandma a lot in the meantime….
+
+I’m at the hospital writing this, waiting for my baby sister. At least my mom thinks it’s a girl. I didn’t mention this but my mom is more… traditional, she didn’t get a lot of ultrasounds. She just let the baby develop naturally.
+
+I guess she’s confident the baby is fine… Makes sense in this town.
+
+I exhausted all other options; I’m scared about what’s going to happen. My grandmother is at peace with what’s to come, but it’s just… so fucking unfair. I really wish I could help her.
+
+Thanks for trying guys, even though there was no time for suggestions.
+
+Wait, here comes the doctor now, he looks somewhat shocked. Why was he looking at me like that?
+
+I went to talk to the doctor… I… I can’t believe this… I don’t understand what’s going on…
+
+
+
+My mom just had triplets.
+
+ 
