@@ -1,0 +1,24 @@
+Last year, when it happened, it was summer in suburbia. I had just finished my junior year of high school and my hobby that summer was stargazing. 
+
+I’d wait in the peaceful evenings as the sky shifted through various shades of orange and the cicadas hummed warmly for the last time before nightfall. In that time I’d read and lose the hours until I realized it was night. Departing with a pair of folding binoculars and my phone, I’d venture out into those balmy summer nights and walk past the yellow porchlights of my neighbor’s houses on my way to the park.
+
+ By the time I reached the park, the sprinkler cycle would have finished, and so the fresh wet scent of the grass mixed with the fragrance of a local pond to create an alluring perfume so fresh and calming. 
+
+On a bench by a canopy, but not too close, I’d stand and find the summer time constellations like Ursa Minor and Major first, then Draco right next to them, then I’d find Cassiopia, Syngus, Bootes, and Hercules, feeling satisfied I had remembered all their names. After that preliminary evaluation of the night sky, I’d use my binoculars to see all the little stars that were invisible to my naked eye. 
+
+That’s how those summer nights played out last year, outside and watching the sky, and it was because I was watching that I saw it. Against the pitch blackness of the sky dazzled with stars, something luridly blue moved, stygian blue. Like some strange bug it fluttered hither and thither in the sky before it began to slowly grow. 
+
+It grew enormously as I watched in awe. Like a parachutter, it glided until it landed on a two story house’s roof. I was surprised that the roof hadn’t collapsed when it landed, as the thing was nearly the size of an elephant. 
+
+Using my binoculars, I focused in on the giant stygian blue mass, and found a hunched figure like a gorilla. It hadn’t been facing me when I first started spying it with my binoculars, but it eventually turned around, and I saw its face.
+
+Horns like a garna twisted into the sky over a face disturbingly human. Fangs protruded over the lower lip and a goatee flowed down the chin of a long haggard face, but the creature's most disturbing feature were its perfectly round circle eyes that were like two large pits in its face, staring at me. Those eyes were darker than perfect black. It was as if darkness itself had become manifest in them. 
+
+My legs wobbled, my heart beat furiously, I became incontinent, and fell down without the strength to hold onto those binoculars anymore. It flitted away across the rooftops with a nimbleness that belied its size. That’s what I saw last year. I've dropped stargazing since. 
+
+Last night, after waking mysteriously in the night, I turned in my bed to face my window, and saw that face. Those eyes—no, pits—were the size of soccerballs and its face was bigger than my window. My window is not small. 
+
+My parents are admitting me to a psychiatric hospital soon. I’ll leave to go in the next hour. Apparently I screamed for hours last night, repeatedly pleading, “those eyes, don’t let those eyes see me.” I don’t remember that, and I’m feeling unnaturally calm at the moment, but I know the fear will return. 
+
+I guess I wrote all this as a warning to say, maybe don’t pay so close attention to the sky at night. Becausebecausebecaseucbdaeuacbueab EYES
+
