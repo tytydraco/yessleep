@@ -1,0 +1,134 @@
+I was already sick of the terminal fans screaming because of the ambient
+temperature of the room my boss forced me into. For context, I was in my
+mid-20s when this happened, back in early spring 2024. I was completely
+broke and couldn’t afford basic necessities, so I finally swallowed my
+pride and got a job at this crumbling old retail store. The place had
+four separate security offices because there had been a massive wave of
+break-ins the year before. The monitors in my station were barely
+functional and had minor fracture damage across the screens, but I was
+desperate, so I learned to work around them. Still, working the security
+office was my absolute least favorite part of the night shifts. The
+ancient AC units were clinging to life by a tiny thread; if they paused
+for even a single second, the room instantly turned into a microwave.
+
+I was stationed in Server Room 4 when the air suddenly turned into a
+furnace. The room’s temperature spiked ten degrees in three seconds. On
+monitor three, the database migration progress bar froze at 99.4%,
+glitched into a jagged line of digital static, and completely vanished
+behind a blinking crimson dialogue box:
+
+FATAL ERROR: THREAD 404 UNREADABLE.
+
+I slammed my sweaty palms onto the desk, my knuckles turning stark white
+under the sudden, strobing emergency lights. Terrified of getting blamed
+for a system crash, I franticly typed a forced override command, but the
+keys just dead-clicked uselessly under my fingers. The mainframe wasn’t
+frozen—it was locked from the outside.
+
+Then, the command-line interface wiped itself completely clean. A
+single, pixelated text window stretched across the center screen.
+
+User_7712 is typing…
+
+A chill broke across my neck, sharper and colder than the server room’s
+fading AC. 7712 wasn’t a random username. It was my own employee ID
+number.
+
+User_7712: She is wearing a blue, employee uniform with two buttons
+broken off. She is looking at monitor three. She hasn’t looked behind
+her yet.
+
+My breath hitched. My fingers instinctively flew to the torn fabric of
+my collar, touching the frayed, empty threads where those two plastic
+buttons used to be. The heat in Server Room 4 suddenly felt more
+suffocating than it already was, but my skin felt like ice. I didn’t
+turn around. If someone was in here with me, hiding in the narrow,
+shadowed aisles between the towering server racks, they had to be
+watching me through a hidden lens or a gap in the steel mesh.
+
+Panicking, I lunged for the heavy, magnetic exit door. I threw my entire
+body weight against the handle, but the electronic lock engaged with a
+cruel, metallic clank. The security pad beside the frame was totally
+dead, pulsing the exact same angry crimson as the monitors. I was
+trapped.
+
+I backpedaled away from the door, my heart hammering against my ribs
+like a caged bird. I kept my eyes glued to the center screen, waiting
+for the shadow in the room to jump out at me. But the text box suddenly
+dissolved. In its place, a low-resolution video feed flared to life.
+
+The camera angle was warped, pointing upward from a cramped,
+trash-littered basement somewhere far away from the store. Sitting in
+the glow of three massive, high-end monitors was a man. He looked
+completely ordinary—mid-thirties, wearing a faded band t-shirt, casually
+sipping from a plastic bottle. He wasn’t a ghost, and he wasn’t a demon.
+He was just a guy. And somehow, that made it a hundred times worse.
+
+He looked directly into his webcam, grinned, and leaned toward a desktop
+microphone. A second later, his voice tore through the server room’s
+overhead intercom speakers, overriding the deafening hum of the dying
+equipment.
+
+“You really shouldn’t have tried to run, Elli,” his voice echoed,
+smooth, calm, and utterly devoid of empathy. “I spent six months writing
+the exploit to breach this store’s ancient network. I own the servers. I
+own the lights. I own the locks. Right now, I own you.”
+
+On the desk, my cheap smartphone suddenly buzzed. The screen lit up on
+its own, completely bypassing my passcode. The front-facing camera
+active-light turned green, and a text message from an unknown number
+popped up across the screen: Smile for the camera.
+
+He wasn’t hiding in the dark aisles. He was miles away, watching me
+through the store’s own compromised security feeds, playing with me like
+a rat in a maze.
+
+“What do you want?” I screamed at the monitor, my voice cracking in the
+suffocating heat.
+
+The man on the screen chuckled, a wet, grating sound. “I want the
+archive file your system is protecting. And since the physical safety
+override switch is right next to your desk, you’re going to flip it for
+me. If you don’t, I’ll just leave the AC off and seal the vents. Let’s
+see how long you last in a concrete box that’s hitting 120 degrees.”
+
+The room was already dripping with my sweat, the air thinning out. But
+as I looked down at the physical terminal controller near my hand, I
+noticed something he couldn’t see through the blurry, damaged monitors.
+The central power breaker for Server Room 4 wasn’t digital. It was an
+old-school, heavy-duty plastic toggle switch sticking out of the wall.
+
+He claimed he owned the database, the lights, and the locks. But all of
+it ran on the very electricity flowing through this room. Magnetic locks
+are fail-safe—if they lose total power, the electromagnets die, and the
+door drops open.
+
+“Okay,” I lied, wiping the sweat from my eyes and letting my voice shake
+so he thought I was totally defeated. “I’ll do it. Just please don’t
+hurt me.”
+
+“Good,” he sneered, leaning back in his chair to watch his victory play
+out on his screens.
+
+I stepped toward the terminal, pretending to reach for the file
+override. Instead, I gripped the heavy, analog plastic breaker switch. I
+looked directly into my phone’s hijacked camera, gave him a cold smile,
+and threw my weight downward into the lever.
+
+SNAP.
+
+The server room went pitch black. The screaming terminal fans instantly
+died into dead silence. The crimson emergency lights vanished.
+
+And from the exit door, a heavy, beautiful CLICK echoed through the dark
+as the magnetic lock lost its power supply and released the frame.
+
+I didn’t wait a single second. I threw the heavy metal door open,
+bursting out into the cool, dark hallway of the main store. I ran
+straight for the emergency exit, leaving my phone, the job, and Thread
+404 behind me forever in the dark. AFTERMATH, after the event i reported
+everything to my manager and the cops, they later found the man and
+arrested him for Computer Fraud and abuse, Kidnapping/Unlawful
+Imprisonment, Cyberstalking and Harassment, and Extortion. I still
+remember that night, and sometimes i wake up from a sweat thinking im
+still trapped in that hot room.
