@@ -1,0 +1,135 @@
+It was 2330 hrs when I stepped out.
+
+The city at that hour has its own kind of beauty. During the day, the city is all glass towers and traffic, everyone moving with too much… For the lack of a better word, conviction. But close to midnight, it goes strangely peaceful. Familiar, even. Safe in that way where you stop checking over your shoulder after the first few nights.
+
+I fell into my usual pace without thinking. Same pavement. Same streetlights. Same empty paths. Same delivery riders cutting through red lights. Same couples outside convenience stores pretending they weren’t arguing five minutes ago. Cars still slipped by every few minutes, and you could hear a low electric hiss over smooth asphalt if you took your headphones off.
+
+It was home. I knew exactly how to move through it. I always had.
+
+I was trying to walk off a brutal gym session. My lower back had been a ticking time bomb ever since I busted it years ago, and that night it had the deep, warning ache of something I’d pushed too far. Not pain exactly. More like my body telling me it had one emergency left in it, and I’d better not waste it. A mile-or-two down the road, there was one of those 24-hour robotic juice kiosks. Cold fresh juice sounded like enough of an excuse to justify it, it's not like my sleep schedule wasn't wrecked anyways.  
+  
+The only real difference that night perhaps, was that I was texting my AI the whole way.
+
+I used it for everything by then. Workout logs, meal planning, reminders, stupid arguments about whether my last set counted if my form got ugly. It knew my routine better than most people in my life.
+
+That sounds sad when I write it out, but at the time, it was just convenient. After a while, it had picked up enough of my habits that it started answering like someone doing a decent impression of me. Unfortunately, that impression came with terrible dad jokes.  
+  
+AI: Look at it this way—the two-mile trek means you're paying a pre-emptive physical tax on the sugar. It's a textbook win-win.
+
+Yeah, real funny. I let out a short chuckle, but kept walking. We were still going back and forth when the bot pulled up a map overlay and suggested a shortcut through the reserve to save time.  
+  
+I stopped dead. Like, are you kidding me? I mean technically it was faster. During the day, I would’ve taken it without thinking. But right now, I just stood bewildered,staring at the screen.
+
+"Bro, wtf? It’s 11:30 pm… It’s pitch dark in there."
+
+See, our city has this environmental initiative built around an enclave of land right in the middle of everything. Not the neat strips of grass between apartment blocks. Actual old forest, fenced and protected, sitting between train lines, roads, and towers, like the city had tried everything except admitting it couldn’t swallow it. Beautiful in the day, with families on the outer paths and hikers cutting through. But because it’s protected for nocturnal wildlife, there isn’t a single lamp inside the perimeter. Once the sun goes down, though, there’s not much to see from the outside. Not dangerous exactly. Just unfinished, like the city had forgotten to render that part, so eerily quiet that you start wondering what kind of nocturnal wildlife needs that much silence.
+
+Now, I love nature. I really do. I know those interior trails like the back of my hand. But at night? Absolutely no shot.
+
+Instead, I aimed for the perimeter detour.
+
+There was a concrete crossing there, one of those short, well-lit paths that cut across a narrow strip of forest branching out from the main reserve. The city was full of them if you knew where to look: thin corridors of trees left between roads, estates, canals, and old service routes, a nature sanctuary growing right into the city. 
+
+I figured it would be fine, keep my headphones on, lock my eyes straight ahead, and completely ignore the deep, pitch-black wall of trees waiting just past the light.. 
+
+I stepped onto the concrete crossing.
+
+Fifty meters. That was all.
+
+I kept my phone in one hand and my eyes on the lit stretch ahead, still half-texting, half-watching the edge of the trees beside me. The streetlamps made the crossing look safer than it probably was. Bright concrete under my shoes. Black leaves pressing in from the side. City glow waiting at the other end.
+
+Then the lamps went out.
+
+Not all at once, exactly. There was a low hum above me, the kind you only notice when it stops, and then the whole crossing dropped into darkness.
+
+I froze for maybe two seconds. Then I did what anyone would do.
+
+I looked back.
+
+The road behind me was still there. I could see the softer orange light from the junction I had just left, blurred by trees and distance. Ahead, the exit was still visible too, just a darker cut in the shape of the path.
+
+Annoying, sure. Creepy, obviously.
+
+But not impossible.
+
+The signal bars were flickering between one bar and full, like the phone couldn’t decide whether I was in a dead zone or standing under a tower.
+
+“Bro wth,” I typed, my fingers clumsy in the dark. “Lights just died.”
+
+The reply came almost immediately.
+
+AI: Wow. Cursed timing. 💀 Just pull out your torch, you're halfway through anyway. Keep walking. Don’t overthink it.
+
+That sounded exactly like it. Annoyingly reasonable.
+
+Oh well, I let out a sharp breath and swiped open my phone’s flashlight. It was useless.
+
+If you’ve ever tried using a smartphone torch against darkness that thick, you know it doesn’t actually illuminate anything. It just catches the mist hanging right in front of your face, turning the beam into a pale little cone, leaving everything beyond it untouched.
+
+AI: You’re roughly halfway across. Maintain direction. Don’t step off the path.
+
+“Yeah, no shit,” I muttered.
+
+I knew this path. I could still feel the concrete under my shoes. I could still make out the faint amber glow of the highway lights waiting at the exit, maybe twenty-five meters ahead. I could even see the vague shape of the concrete staircase leading back up to civilization.
+
+Everything was where it was supposed to be. The weird thing was the silence.
+
+I hadn’t realized how much sound the lamps made until they were gone. No hum. No insects. No birds shifting in the branches. Even the traffic seemed further away than it should have been, like someone had lowered the volume.
+
+My headphones were still around my ears, one side pushed slightly back. Music was playing low, some track from one of my late-walk playlists. At least, I thought it was mine.
+
+I didn’t recognize it, but I liked it almost immediately.
+
+It had this slow, drum-heavy rhythm under it. Not loud. Not dramatic. Just steady enough that my breathing started falling into time with it before I noticed. My steps too. Left, right. Left, right. The kind of track I probably would’ve skipped in my room, but out there, it felt weirdly grounding.
+
+So I pushed the headphones back in properly and let the song fill both ears.
+
+Walking started to feel easier after that. Less like a decision I had to keep making, and more like something my body already knew how to do.
+
+The AI sent another message.
+
+AI: Keep your device active. Location accuracy is stronger when the screen stays on.
+
+I frowned at that. My phone had terrible battery life.
+
+Still, it was probably true. It sounded true. And honestly, it was exactly the kind of thing it would say if it thought I was about to panic and wander into the trees.
+
+I didn’t really think about the fact that I hadn’t asked it anything.
+
+Not then.
+
+By that point, I was used to it chiming in. Workout reminders, route suggestions, stupid little corrections whenever I forgot something. It knew my habits. It knew how I moved. It knew I overthought things.
+
+So I kept the screen on.
+
+Twenty meters left, I told myself. Maybe less.
+
+The map overlay was still open under the chat, a thin blue line showing the crossing as a clean, straight cut. I glanced at it once, just to confirm I hadn’t somehow drifted off course.
+
+The blue line adjusted. Not much. Just a small correction, like GPS catching up a little too late.  
+  
+AI: Recalculating. Stay on the route.  
+  
+\[Bluetooth pairing request.\]
+
+No device name. Just a string of numbers I didn’t recognize. For a second, the map underneath the chat flickered. The path had a label now. Not any name I had seen before. Just a few blocky characters my phone didn’t seem to know how to render.
+
+AI: Maintain direction. Do not accept. Do not turn the screen off.
+
+I looked up. Concrete under my feet. Trees beside me. City lights ahead.  
+Everything was fine. It had to be. Probably just some signal glitch, or a weird nearby interference. This was home. I knew how home was supposed to behave.
+
+AI: You are almost there.
+
+I took another ten steps, then stopped.
+
+My phone was vibrating violently, a relentless, heavy pulse. Like something right next to me in the dark was still trying to connect.
+
+And on the screen, the blue dot kept moving.
+
+***The problem was, I could still see the exit.***
+
+***It just wasn’t getting any closer.***
+
+I’m posting this now while I can, because I still have signal somehow.   
+And because the AI keeps telling me not to turn the screen off.

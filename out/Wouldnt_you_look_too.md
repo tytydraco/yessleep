@@ -1,0 +1,131 @@
+Do you know how hard it is to delete a file? I mean, really delete a file? Morgan didn’t. Do you know how I know that? I found their social security number on a CD in Goodwill.
+
+I wasn’t looking for it, not initially. I was trying to pick up a new hobby: messing around with old media. I’m an archivist by training, so I love old VHS tapes, CDs, Beta cassettes, and anything you can’t just stream on your computer or smart TV. Antique stores and thrift stores are full of ‘em, and I’m not just talking about worn out copies of Disney’s *Aladdin*. I’m interested in anime movies you can’t watch on Crunchyroll or even someone’s old home movies, things that are one of a kind. Sure, it’s a little voyeuristic, I admit it, but wouldn’t you look, too?
+
+To fulfill this fantasy of mine, to retrieve a stranger’s memories or to watch a low budget horror movie lost to time, I needed to start with a working VCR. Finding a VCR is easy. Finding one that doesn’t eat your tapes is harder these days. I was on my third, $20 VCR of the weekend when I spotted it. A combination DVD/VCR, newer than the others I’d seen.
+
+I carried it over to the counter towards a man whose nicotine-stained fingers curled over the machine reflexively.
+
+“Does it work?” I asked the man as I tapped my notably cleaner fingers on the counter.
+
+“Don’t know. Can’t test everything that comes in.”
+
+“Can I return it if it doesn’t?” Knowing the answer before I asked.
+
+“All sales are final. Do you want it or not?”
+
+*“*Of course I’ll take it,” I muttered as I walked out of the store, deck in hand.
+
+It wasn’t 20 minutes later before I was plugging in the nostalgic red, yellow, and white nodes into the back of my old TV. I pushed the power cord into the outlet and was about to grab an old copy of an 80’s anime when…
+
+\*whir\* … \*chunk\*
+
+The DVD tray pushed itself out, unprompted, carrying a white disc labeled “vacation.”
+
+It was like opening your door to find a package you didn’t order or seeing someone you didn’t recognize through the peephole of your apartment door. I laughed. Nothing could be more interesting than this.
+
+It looked like a CD, probably holding a slide show of the eponymous “vacation.” People would play CDs like that in a DVD/VCR all the time. I took the disc and booted up my laptop, launching the free forensic disc imaging software I’d used to preserve old CDs and floppy disks at work.  With it, I could safely view a copy of the disc without altering the original.
+
+I started clicking through the folder tree, “what did you want people to see on this disc?” I whispered.
+
+“PANAMA” a folder exclaimed as if answering my question. The all-caps practically demanding I imagine an older man or woman remembering a family trip, an important one. Boomers loved a good all-caps folder. They were saying “this is the one. This is why this CD exists. It’s a load-bearing folder.”
+
+\*click\*
+
+A blue-green photo gallery blossomed on the page, sunny skies, crystal oceans, rich foliage. I opened up the first few photos. There weren’t any people, at least not looking at the camera. “Were they traveling by themselves?” \*click\* \*click\* \*click\* “Maybe they’re an amateur photographer.”
+
+Scrolling down, blue-green turned to purple-orange-red, a dozen sunset photos, go figure. Then the photographer was in the hotel room. A shot of the bed and the TV, and wait, *a* selfie*.*
+
+\*click\*
+
+In the mirror stood a pear-shaped woman in a white blouse, a breezy cardigan, and pastel flower-patterned pants. My guess was right. She looked middle-aged. Frustratingly, below the bucket hat where her face should have been, mystery woman held a Nikon camera emitting the white-bright rays of a flash. Damn.
+
+From the hotel room, mystery woman went to dinner. Outdoors at night, her camera captured surf and turf on a plate. Then, I thought she started to look around. She took pictures of people at the bar and on the dancefloor. My eyes glazed over, there were so many photographs.
+
+Slowly a pattern started to emerge as I scrolled, not a pattern between photos, a literal pattern again in each image. A white and red Hawaiian shirt on the body of a tall, bald, and muscular man. I scrolled back up. He was at the bar with a young woman in a green dress. Was that him deep in the crowd dancing? Was he with the green dress woman? The last photo appeared to show the green dress walking away, leaning on the Hawaiian shirt as they passed through a stone arch that must have been the entrance to the restaurant.
+
+And that was it. No photos the next day. No Word documents or PDFs. I was holding the end of a thread I had pulled on until midnight, but I couldn’t sleep. I needed to know.
+
+Then I paused. Of course. My software could let me see deeper inside this disc, not just the files on the surface but the ones the user thought they had deleted, the ones they thought they had buried. See, when you click “delete” on a file, it just delists it from the file directory to allow future files to write over it. If it’s never written over, it’s never really gone. Forensic imaging worked like a séance to exhume these files from the grave.
+
+I changed the view on the file explorer; dozens of translucent folders and files appeared on the tree. “Documents” “Photographs” “Downloads” immediately stood out. Before this was a trip to “PANAMA,” this CD was a backup for files on the owner’s old computer. I took a deep breath and \*clicked\*.
+
+Inside Downloads I saw Ticket012023509.PDF *Must be the flight tickets*, I thought.
+
+\*click\*
+
+The name on the ticket read Morgan Wilson, flying to Panama in 2009 on a connection flight starting in Indianapolis, Indiana. I backtracked to the selfie on the surface of the disc.
+
+“Hello Morgan Wilson. It’s nice to finally meet you. I wish I could put a face to a name.”
+
+I then clicked on Documents and saw a nearly random assortment of files “document1,” “document2,” “notes,” “dontforget,” “groceries,” and a folder named “personal.”
+
+I… clicked.
+
+Here lay Morgan’s passwords and a PDF labeled “SOCIALSECURITYCARD.” Without thinking, I clicked on the card. Staring at the 9-digit code, *should I really be seeing this?*
+
+Emerging from the depths of that particular folder path, I returned to the top of the directory and peeled back what I thought was the final curtain: Photographs. But when I clicked on the folder, just three thumbnails appeared on the screen. One was a birthday cake. Judging by the file properties, this person turned 35 in January 2007. The next was a picture of a dog, possibly some kind of retriever mix. The last, though, was much more interesting. 
+
+Lit by a bulb hanging from a ceiling—this must have been in a basement—stood a wall of tapes.
+
+Not just tapes.
+
+There were CDs, DVDs, and other objects, too. I tried to zoom in. The pixelation made the labels completely illegible, but what was that sitting on the shelf? A watch? A box? A camera? A pair of glasses?  This was a collection. This was something I had to see.
+
+*But how?* 
+
+I cycled back through the folders; maybe there was something I had missed. Eventually, I spotted it. Deep in the Documents folder sat a scanned blank check, presumably for setting up direct deposits. The address on the check read 5102 South Overman Avenue, Marion, Indiana. Not far. It would make sense, considering how close the Goodwill was.
+
+I leaned back in my chair and turned my head to greet the sun, which was peeking through the blinds of my bedroom. I had been up all night.
+
+Work was an agonizing 8 hours of waiting, jealously guarding a secret that would probably only earn me concerned looks and confused faces if I shared it. “You looked at someone’s private photos and now you want to see the tapes in their basement?” They didn’t need to know.
+
+At 5:00pm, I plugged the address into Google Maps and made it to Marion just before sundown. I pulled up to the house, and it was rougher than I imagined. It was a mid-century craftsman nestled in overgrown grass. The pillars on the patio heaved under the tired awning’s weight. Dirty windows dimmed the faint light coming from inside. I unbuckled my seatbelt. *There’s no going back after this.*
+
+Thinking that the creaking steps up to the door had probably already announced my presence to Morgan within, I knocked anyway to be polite. Nothing happened.
+
+I glanced back through the window. No one was walking to the door. *Who would mind, who would know?* My hand, slightly sweaty, gripped the doorknob and twisted.
+
+\*creak\*
+
+The door opened into silence.
+
+The smell of mildew crept out onto the porch, and I took my first step beyond the threshold.
+
+“Hello! I was at the Goodwill the other day and found something you might want back!” My voice trailed as I stepped slowly through the foyer, slightly relieved that no one was home. My eyes scanned left and right, looking into shadows cast by the sick yellow light of a single lamp.
+
+Halfway down the hall, a door stood open. Stepping closer, I could see it led down to the basement. I ran my hands along the wall behind the doorframe, no light switch.
+
+I turned the light of my iPhone on and stepped down, not realizing I was holding my breath.
+
+When I reached the bottom of the stairs, I saw a single thread hanging from the ceiling.
+
+I pulled it.
+
+Thank God. Faint light filled the room, and the bookshelf appeared before me.
+
+I grabbed a CD from the shelf. It was white like the one in my jacket pocket. “Thanksgiving” it read. “Huh.” My hands ran over the old VHS tapes coated in dust. Then my eyes fell on the camera, a Nikon. *Was this Morgan’s old camera?* I scanned past the other objects on the shelf and looked at the box, unlabeled.
+
+It was small, like a necklace might fit inside it, but when I opened the box all I saw was a shred of green silk fabric.  “what?”
+
+\*creak\* a noise from upstairs.
+
+“Hello!? Morgan? Um. I’m so sorry. I found something. Yours! It…”
+
+I turned around wearing my most apologetic face, but when I looked up, I didn’t see a pear-shaped woman in the doorframe.
+
+Standing at the top of the stairs, completely backlit, was a tall man, his bald head eclipsing the hallway lamp like the moon blocking out the light of the sun, something I would never see again.
+
+“How do you know my name?”
+
+
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+
+
+The light flicks on in the basement.
+
+Morgan sharpies a title onto a new disc.
+
+“Archivist”
