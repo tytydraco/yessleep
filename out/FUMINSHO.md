@@ -1,0 +1,129 @@
+My name is Shinobu. I was 17 years old when this all occurred. My family had moved to the U.S from Osaka Japan just two years prior and I had been a student of Grayburn Highschool for a year and a half. 
+
+The move felt abrupt and I did not fully understand why my parents chose to come here. All I could focus on at the time was how I would be losing all of my close friends and how difficult making new ones would be. I heard people in the U.S. did not have the same morals or values that my family and I had in Japan. Rumors of blatant rudeness and unhygienic behavior filled my head. I had it made up in my mind that I would not fit in. 
+
+My parents insisted on me taking English lessons so I could better communicate with others given the circumstances. My father was persistent in encouraging me to complete my daily lessons as he insisted it would help me make friends. In spite of his efforts, I often neglected the chore that was learning a new language. I whined and I pleaded and did everything in my power to convince my parents not to go but the decision was made and there was nothing I could do. 
+
+Time passed, I adjusted the best I could, and to my surprise, I was able to find a group of girls I could fit in with, even if it was small. Although I was initially worried my broken English would impact my ability to socialize, as fate would have it, I found my clique. 
+
+I connected well with one girl in particular. Her name was Rose. She had short red hair, dark purple glasses, freckles sprinkled across her nose and cheeks, and she typically wore vibrant outfits with large decals. 
+
+Rose knew just about everybody and went out of her way to introduce me to anybody she could. She made making new friends more exciting rather than daunting. 
+
+I was halfway through my second school year when my father passed away. The mangled and burned state his body was in after the accident made deciding what to do with his corpse or even how it ought to be moved difficult. Details of the crash probably should have been kept from my ears but my mother did not seem to see the issue with telling me in explicit detail everything the authorities had described. 
+
+His limbs were snapped and contorted into awkward positions. His eyes were dislodged from their sockets. Several tendons were either severed or holding on by thin threads. His spine was broken and pierced his skin in a few places. The vehicle caught fire effectively cooking him alive while he remained constrained in the most uncomfortable position possible. 
+
+Since the accident, “a good night’s rest” felt impossible. Insomnia is not something I had struggled with before. I used to sleep very well although I couldn’t remember exactly what that felt like anymore. The lack of sleep was weighing on me mentally and physically. The hallucinations began just a few days after my first troubled night which was only a couple days after my father’s passing. I was afraid of everything. You could say I was afraid of my own shadow. Nighttime felt daunting and overshadowed my days as no matter how good things might have been going, lingering in the back of my head, I knew I would be forced to confront my biggest fear every night, my mind. 
+
+Maintaining friendships had become particularly difficult as finding the energy to socialize felt like a chore. My thoughts felt as though they didn’t fit in my brain. Attempting to explain my condition to anyone infuriated me more than anything else. People did not understand, they couldn’t. Maybe it wasn’t their fault. They would suggest thoughtless solutions as if I had not thought of them already which only agitated me more. (Yes, I’ve tried sleeping pills, no, they do not work. Yes, I’ve tried adjusting my sleep schedule, no, nothing changes.) 
+
+In school, my vision was blurry.  People's words blended together into slurries of unidentifiable verbal vomit. Sometimes my eyes would water uncontrollably. Not necessarily because I was sad, but because I was afraid. I had been afraid before, but this sense of dread and helplessness scared me to tears. 
+
+The sloppy vertical gashes down my forearms condemned me to dawn long sleeve sweaters every day regardless of the temperature outside. It seemed my condition went unnoticed by my mother which could be infuriating at times, but I'm sure her grief clouded her vision too much for her to notice. Or perhaps she just didn’t want to. 
+
+I came home from school an hour or so late one day after a few friends and I stopped at the mall to pick up some things for the party that weekend. As emotionally demanding as a party sounded at that moment,  my best friend Rose suggested it would help take my mind off of everything. In spite of my efforts to decline her invitation, her constant nagging led to my reluctant acceptance.
+
+I entered my home with two bags containing snacks, board games, an ouija board, and an autumn scarf Rose insisted “brought out my eyes.” Although I had no say in what we purchased, I was chosen to keep the supplies at my house for the time being. 
+
+My mother sat at our kitchen table which was in line with the front door. Her head was down but she lifted it upon hearing my arrival. The dim light hanging above the table illuminated her face just enough so I could tell she had been crying. All of the lights in my home desperately needed changed but as you can imagine my mom had not been keen on upkeeping our home. I have been responsible for the dishes, cleaning, the bills, etc. 
+
+“Where were you?” My mother’s voice was deep, her tone insisted that she had been missing me quite a bit. “Just out with some friends getting stuff for the party on Saturday. You remember.” My mother had no response. I’m not sure that she cared where I had been or where I was going, she was just relieved she wasn’t alone in the house anymore. 
+
+I moved closer to the table, the closer I got, the more I could see my mother’s face and the less I could recognize her. “Did you end up going to that support group thing your friend suggested?” I asked her. It took her a moment to respond but a subtle “no” inevitably left her mouth. 
+
+Internally I felt frustrated. It felt like I was the only one of us making an effort to make things better. My blood boiled but before I walked out of the kitchen I stopped, turned around, and faced my mother. “You know…I do a lot around here. More than I should have to. I don’t mind helping out, if anything I enjoy helping you. But I…I feel like I’m alone, like, if I wasn’t here you would just fall apart.  I miss him too, you know. I mean, have you given any thought to how this might be affecting me? Like I-“ my mother interrupted my lecture abruptly. “I knew him much longer than you did. I knew him better than you ever did. I knew him in ways you never could. He was everything to me and I’d do anything to bring him back.” My mother did not look at me while she said this. She remained staring down at the table in front of her. Her voice felt unforgiving and honest. Each word that left her mouth carried an indescribable wave of grief. It was as though I could physically feel her soul screaming in agony with every breath. My mother’s next words cut into my heart. 
+
+“I’m not sure I want to be here anymore.” 
+
+My head felt heavy and my stomach empty. I was convinced I was either going to throw up or pass out. Her statement proved what I had already known to be true, my mother had given up. It was like without my father she had no reason to keep going, even with me here. At that moment I wanted to scream “what about me mom? I’m still here! Don’t you want to be here for me? See me graduate, see me achieve great things, see me make you proud?” However, all I could do was leave the bags on the table and walk away. As I walked away, I could hear my mother mumble under her breath
+
+ “I don’t want to be here” 
+
+“I’d do anything to bring him back.” 
+
+When I made it up to my room, I locked my door and crashed down on my bed. Tears engulfed my face although my expression remained unaltered. Nothing surprised me anymore. This pain was constant and unrelenting. I felt out of place in my own bedroom. I looked around and noticed old hobbies and interests that no longer belonged to my character. My Koto remains untouched in the corner of my room, an empty chair at my desk where I used to draw, posters of my favorite music groups whereas now music would only bring me irritation. I could not indulge in hobbies because when I began to enjoy something, I felt that there was something more productive I could be doing. I hadn’t  eaten in two days. My stomach had stopped growling, perhaps it knew food was not coming. The emptiness was abundantly apparent regardless. The physical pain gave me something else to focus on. In a strange way, it was comforting. It’s one of those things you could not possibly fathom unless you were in my position. Some of the things I had done may seem illogical to the average person, but to me, it was an outlet to feel again. 
+
+I had developed the habit of leaving my bedroom lights on while I slept. Although not much, it gave me a sliver of comfort. My mind would wonder too much in the dark. That night I made an effort to pick up a book. My mind felt so agitated i struggled to concentrate. I had to keep rereading the same page over and over again because I could not for the life of me pay attention or retain any information from the novel. Reading, what used to be one of my favorite pastimes, felt tedious and pointless. Casting my book to the side I opted for opening my phone instead. Eventually I passed out after who knows how long of scrolling through instagram. 
+
+Sometime in the middle of the night I had been woken up to the creaking of my bedroom door. I am a very light sleeper so that was enough to startle me awake. Naturally I felt uneasy but more annoyed than anything as I had been woken up. I turned to my door, it had been opened but only by a thin margin. The hallway light was on which allowed me to notice shadows of something or someone moving underneath the door. I assumed it was my mother, maybe she was just checking on me, I thought at the time. I closed my eyes and tried to fall back asleep. 
+
+My eyes widened as I heard a click. My room was now pitch black. I clamped my eyes shut so hard that if I had opened them I would’ve seen spots. I clenched my blanket and remained frozen, supine in my bed. I felt a sickness creep from my knees into my stomach. My head and limbs felt so heavy, like my body was sinking into my bed. I heard another click but I could tell, even without opening my eyes, that my bedroom lights were still off. It must have been the hallway’s. It sounded like my door had opened again followed by heavy thuds and creaking floorboards seemingly moving from my bedroom door to my closet. With each noise I heard, I prayed that it would be the last. I hoped that the noises would stop and I could just fall back asleep. 
+
+Sounds of rummaging in my closet is what followed. Somehow, I managed to work up the courage to open my eyes. Perhaps I figured whatever was actually happening would be better than what I was imagining in my head. I rotated my head to the left so I was facing my closet. My closet doors had slats from top to bottom which allowed me to notice two eyes looking back at me from inside. They were wide and although the darkness made it impossible to make out any facial expression, whatever it might have been, it caused her eyes to widen to an absurd extent. I remained staring for a moment before closing my eyes tightly, once again facing the ceiling, trying my absolute hardest to fall asleep. I kept my eyes shut as I heard the closet door open slowly. I couldn’t help but flinch as she sprinted out of the closet to the other side of my room. Her footsteps were more like stomps and the outdated floorboards let out deafening screeches as she lunged across my room. My eyes remained closed. I just tried to pretend I was asleep the best I could. 
+
+“I know you’re awake.” She called out to me from the corner of my room. Her voice was soft and expressionless. She spoke fast and almost in a whisper . I sat with her words for a moment, confused, but scared more than anything. Several minutes passed before I heard her call out to me again. “I know you’re awake .” Only this time she was much closer. Her face must have been right up against the foot of my bed as I could feel her breath on my feet as she spoke. Her voice was deeper, almost masculine and much more demanding this time. She wanted to make her presence apparent, it was as if she wanted me to be afraid. Chills crept from my ankles to my shins, then to my thighs, then to my chest and finally to my face. My mouth felt numb, my eyes watered, making it more uncomfortable to keep them closed, and goosebumps engulfed my body creating a heavy blanket of constant restraint and discomfort. The air around me felt like a holding cell. There was a part of me that wanted to jump out of bed and run out of the room but the thoughts of what might happen if I tried were too haunting for me to budge. My bed shook as if something had climbed on top of it. I felt pressure on the bed just to the right of my hip followed by pressure to my left. Though not audible, I could feel a faint breath reaching my face. It was morbidly warm with surprisingly no scent, although my stuffy nose was preventing me from smelling much of anything. Naturally my face twitched as I felt something wet drip onto my chin and roll off my face. 
+
+That’s the last thing I could remember from that night. The next day I woke up in my bed with my bedroom lights on. I had convinced myself it must have just been another nightmare which didn’t seem too far fetched as my nightmares were often lucid and painfully realistic. 
+
+My eyes felt heavy as if I had barely slept the night prior. I rolled out of bed and examined my room thoroughly. I made my way over to my closet, peaked in for a moment without opening the doors and closed the slats on each one. I considered opening my closet but the irrational thought of  my mother lunging out at me after opening it was enough to prevent me from doing so.
+
+ Nothing seemed to be out of place so I got ready for school and headed downstairs. I called out to my mother to let her know I was headed to the bus stop but I received no response, in fact, I had not seen her at all that morning. 
+
+I usually woke up late for school with little time to pick out a proper outfit which would often leave me feeling self conscious about what I wore in comparison to the other girls. That day I had worn a plain gray shirt with three buttons at the top, a dark blue sweater with two red stripes at the top of each sleeve and cargo pants that had been shrunken in the wash. I remember that detail as I had been constantly pushing my pants down to cover my ankles. 
+
+When I was nervous, I would sweat which would only make me feel more insecure.I was never that shy before. I wasn’t exactly one of the popular girls, but I could hold my own and I was confident enough in myself. I was never an outcast, not like Milo. 
+
+Milo was frequently bullied and when he wasn’t, people would make jokes about him behind his back. He was a short, scrawny boy. Riddled with acne, dawning cartoonishly large glasses and outfits I can only assume his mother picked out for him, he was the perfect target. I am not proud to admit that I too indulged in laughing at him at times. 
+
+After everything with my dad, I felt myself relating more to Milo. Although I wasn’t bullied the same way he was, I related to his loneliness. Although I still had my friends, it didn’t feel like they were really mine. I felt invisible, like they could hardly see me at all. 
+
+At lunch, most of the girls in my grade sat at one table. It was long and with the addition of a few extra chairs most of us could fit. That day during lunch, two girls, Jenny and Kaleigh walked over to Milo’s table where he sat with the other ‘outcasts’ and invited him over to ours. Milo smiled and looked happy he was being included. “How can he not see that they’re teasing him?” I remember thinking to myself. 
+
+Milo sat at our table. He sat in between Kaleigh and I.  The remarks started out innocent enough. 
+
+ “So what do you have for lunch today Milo?”
+
+“What class are you coming from Milo?”
+
+It didn’t take long before that was no longer amusing to them. The teasing began. 
+
+“Did your mommy dress you this morning Milo?”
+
+“So which boy are you planning on taking to prom Milo?” 
+
+Some girls started snickering and some started whispering to one another.  Milo realized they only invited him over for their amusement at his expense so he started to get up. Before he could, Kaleigh grabbed his arm and began insulting him. Although I can’t remember exactly what she had said, it was something along the lines of: “You really are a fucking loser aren’t you? Have you ever seen yourself?” 
+
+Milo’s eyes began to fill with tears. Although he very well could’ve pulled away, he didn’t. It was as if he was frozen in embarrassment. Her words turned into noise, my vision began to go blurry. I felt so angry. I clenched my fists and gritted my teeth. My hands were shaking with rage. I was mad at the girls, I was mad at myself for never sticking up for him before, I was mad at my mother, I was mad at the world for taking away my dad, and eventually I released it all. 
+
+I stood up, grabbed my metal lunch box which I had decorated with butterfly and flower magnets, and stepped to Kaleigh. She was smiling so hard, still recovering from laughing at Milo as he finally retreated back to his table. Her smile dissipated when she saw my expression. I swung my lunch box as hard as I could at her face and I didn’t stop swinging. Her nose was effectively broken by the second swing and it must have been by the sixth or seventh when she lost consciousness. 
+
+I stopped swinging when she stopped moving. Everyone at the table sat in shock, staring at me petrified. It didn’t take long for a bystanding teacher to run over and grab me. I remember standing there shocked myself. Splatters of blood across my arms and face. Some even got stuck in my hair. The metallic taste was overwhelming. Through my blurry vision I could just make out the shape of Kaleigh lying there motionless on the ground along with the colors of her once vibrant attire now stained in dark red. 
+
+I was, of course, suspended indefinitely until the principal could speak with my mother as well as Kaleigh’s parents and the authorities to discuss further action. I sat patiently outside the principal's office after the school nurse cleaned me up, assuming my mother would arrive any moment to pick me up. The principal informed me that after several attempts, he was not able to get a hold of my mother. He told me that the authorities may have to “look after me” if my mother continued to be unresponsive. 
+
+After he went back inside, I decided to get up and leave. I remember just wanting to be home in my bed at that moment. This whole ordeal was the last thing my mother needed and I felt like I failed her. I let my emotions get the best of me. In trying so hard to do the right thing, I just messed things up even more. 
+
+After what felt like the longest walk of my life, I reached my house. Using the spare key kept under the doormat, I entered my dimly lit home. I marched upstairs to my bedroom and sat down on my bed facing my closet. 
+
+I must have passed out not long after because the next thing I knew, I woke up to my phone reading 11:30pm.
+
+ I sat up, rubbing my face in the process trying to collect my thoughts. I sat for a moment looking off into space. My closet door opened slowly, barely making a sound. I watched in awe as my mother stretched her pale, lanky leg out of my closet. She stepped out just enough so she could read the light switch. She was wearing a tank top and shorts which both appeared to be wet, presumably drenched in sweat. Her skin appeared leathery, as if she had aged thirty years over night. She stared right at me as she moved. Her expression was blank but her eyes were wide. There appeared to be some kind of markings on her face although I didn’t have long to make out every detail before she put me back in the dark. With a click everything was pitch black. I remained frozen, sitting up on my bed. I remember shaking uncontrollably. 
+
+Slowly, my vision began adjusting to the darkness. I could make out more and more of my surroundings. I looked towards the closet. My mother must have crawled back inside as the door was now shut with a few slats seemingly open. 
+
+My bedroom door was wide open and everything in my body was telling me to run out but I felt like my bed was holding onto me. I tried my best to work up the courage in my mind but I just couldn’t. Every second that passed felt like eternity. I kept imagining her lunging out at me as soon as I began to move. 
+
+I stared at that closet for several minutes rationing my blinks. My legs had fallen asleep as they were dangling off of my bed. My hands at my sides felt like they were sinking into my mattress. I moved my tongue around in my mouth reigniting that now faint, metallic taste. 
+
+My whole body jumped as I felt a wetness hit the top of my head, then another drop, followed by another. I snapped my head up so I could see my ceiling. My mother was above me. Her limbs were contorted and spread wide as she held on. She looked like a spider stalking its prey. She made no sound. Her face still expressionless with drool slipping out of her mouth, now onto my face. The areas around her mouth and eyes were black. Her eyes were so wide and at this distance, it looked like she was straining her eyes to a painful extent. 
+
+I jumped off of my bed and ran for the door. My legs felt like jelly. I gritted my teeth, did my best to see through my teary eyes, and sprinted with everything I had to reach that door. 
+
+I made it into the hallway, swung myself around the banister and ran down the stairs, skipping several steps in the process. I could’ve swore I felt another set of footsteps just behind mine but I sure as hell wasn’t going to turn around to check. 
+
+I slammed into my front door. I desperately scrambled to unlock and open it. I swung the door open and ran out onto my front yard.
+
+It wasn’t until I made it across the street to my neighbor’s mailbox that I looked back at my house. The door was wide open and I waited eagerly in anticipation for my mother to run out after me…but she never did. 
+
+I left my phone in my room so I knocked on the door of every house in my neighborhood until someone finally answered and agreed to call the authorities. 
+
+The police arrived and naturally, they never found my mom. Even after an extensive search, nothing turned up except for some dead animals in the basement. 
+
+I was later sent to live with my grandmother on my dad’s side. Kaleigh’s family never pressed charges, although I did have to finish my junior and senior year at a different school. 
+
+It has been years since then and I never received any form of closure for what happened to my mother. It was as if she had disappeared into thin air. I am happy to say I no longer struggle with insomnia. Although, I will have the occasional nightmare of my mom watching me from my closet, crawling on all fours around my room, or spying on me from the corners of my ceiling like a spider. 
+
+They’re only dreams though. 
+
+Just dreams.
