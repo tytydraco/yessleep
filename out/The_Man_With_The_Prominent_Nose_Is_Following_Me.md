@@ -26,7 +26,7 @@ But why his expression changed all of a sudden? Was it because of our encounter 
 
 It wasn’t the last time I saw him for sure. I came across him a day after on my campus. The calculus lesson was just finished. I went out with my girlfriend. When we were walking on the campus road I saw him: He was sitting on an old bench of our faculty’s garden with a straight posture. He was staring at me again with that goddamn smile!
 
-I understood something was going wrong about this man at that moment. He couldn’t be studying on campus because he was like his 40s. I told my girlfriend to stay there and approached that psychopath. When I was getting closer to him, his pupils were drifting upwards. It was like he was programmed to look directly to my eyes.
+I understood something was going wrong about this man at that moment. He couldn’t be studying on campus because he was like his 40s. I told my girlfriend to stay there and approached that psychopath. When I was getting closer to him, his pupils were drifting upwards. It was like he was programmed to look directly into my eyes.
 
 I asked his identity with an annoyed voice. There was a pure silence for a moment. He was still staring at me in the same position. I became even angrier and shouted to him: Is this a goddamn prank from Kevin? He moved his mouth to speak but his expression didn’t change a bit: You know me.
 
