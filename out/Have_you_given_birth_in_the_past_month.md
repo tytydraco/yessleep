@@ -1,0 +1,344 @@
+My life amounts to either hunting the anti-christ then dying, not in a metaphorical “determined” figure of speech ‌, that is what would happen. My brothers and I had known this very well since birth. 
+
+
+
+They burned the selected brother alive, and on this day, the talismans surrounding him also ignited. Identifying that somewhere in this now God-ridden world, the anti-christ has come. Meaning that, since I’m still alive, my remaining brothers will all do nothing but hunt it down and rid it from the earth, as God intended. 
+
+
+
+“Arm yourselves and set forthright. Now is the time of reckoning, so we must make haste before the beast strikes the church.” The fathers shouted to all of us as we armed ourselves and made our leave. 
+
+
+
+“Where do you reckon the beast spawned?” Anthony, my thirty-second oldest brother, nudged me as we climbed the stairs from the crypt.
+
+
+
+“America.” I jested with mocking confidence. 
+
+
+
+“Well, looks like we have something to look forward to.” He laughed, both of us knowing that ‌it was a complete shot in the dark.
+
+
+
+Statistically, it would be India which would birth the anti-christ, but not definite, and we didn’t have the time to gamble on the devil’s plots. Meaning the church used all of my brothers and I too would spread out throughout the globe to follow up on every birth today. I, along with Anthony, would hunt throughout the Southern United-States, ironically the ones with the moniker “Bible Belt.”
+
+
+
+The church could discern the day, yet not the hour nor year, hence the sacrifice of my eldest (living) brother today. Every second, 4 humans leave the womb, so even after narrowing the day of the month of the year, there’s still a ridiculous amount of babies to interview.
+
+
+
+Starting in Texas the process was to go to a hospital as an ordained minister, speak with the new mothers about the church’s works to bless the child with a good future while the true intention is to communicate with the mother figuring out the birth circumstances. 
+
+
+
+Believers assert that the anti-christ will mock Christ, thus he too will be born to a virgin mother. This would not only already cause a global uproar in the media age but at the very least would be easy information to pry out of an emotional postpartum woman.
+
+
+
+Unfortunately for me, fathers seemed to be present and protective of my religious sales pitch. I don’t like to pester people; I love the joys of childbirth and what comes with it. Being a stain by intruding for my cause is nothing less than being a nosy fly on a beautiful picnic.
+
+
+
+“She’s unconscious right now, so we really can’t let you near her at the moment.” The orderly stood in my way.
+
+
+
+“I understand. Would there be a father I could speak to by chance?”
+
+
+
+She looked hesitantly around, sharing the shame the mother must have.
+
+
+
+“No, there isn’t a father you can speak to, now if you would please leave the mother alone.” She gestured to the door to leave.
+
+
+
+“I completely understand, no worries, I’ll go out for a bit and come back.”
+
+
+
+The orderly did an awkward grin showing her disapproval in my ministry as she nodded her head and walked off.
+
+
+
+Plenty of mothers were there without fathers to pair and I had spoken to all of them with nothing distinctive or interesting about their child though this one was the first that matched two of the boxes. A mystery father and a much more prevalent toll on the body after birth. 
+
+
+
+Supposedly she had been unresponsive since the moment the child exited. After a couple of hours all I’d do is prompt the damning question of immaculate conception simply to gauge her reaction, risks like that are plausible with this much of a match. My image of looking crazy won’t interfere with my job of killing the anti-christ and that’s all that matters. 
+
+
+
+“What exactly do you mean?” I asked with the most sincerity I could offer this ridiculously incompetent task rabbit.
+
+
+
+“I’m sorry sir, but she’s no longer here with us.” The orderly solemnly said.
+
+
+
+I threw my hands behind my head as I walked in a short circle letting out a heavy breath.
+
+
+
+“Ok, ok, just let me know where she lives so I can swing by.” I prompted.
+
+
+
+“Sir I don’t think you understand, she-” she tried.
+
+
+
+“I don’t understand? No, no, hun you don’t understand, this is a serious matter of importance and you keep idling!” I shouted mockingly, holding myself back.
+
+
+
+“I’m going to ask you to please leave sir.” She returned, not too startled with my outburst.
+
+
+
+Passing the miles of waste and untouched desert, the next town was nothing to remember. Someone driving by would look out the window, see the town as nothing more than buildings and streets, then without a second missing, their eyes back on the road.
+
+
+
+What that driver doesn’t know is that this town could hold the Armageddon and it is my responsibility, my job, to save that driver.
+
+
+
+As soon as I got out of the taxi I ripped off my coat, the heat weighed me down sapping motivation. After paying my dues, a corner store caught my eye.
+
+
+
+“Just these please” I said while pushing a cola and chips to the clerk who was in her teens.
+
+
+
+“Alright, give me one second,” she said while finishing something she had been meddling with beneath the counter.
+
+
+
+“What’s good to eat around here?” I asked with a big greeting smile on.
+
+
+
+“Honestly not much, you’d have more headed towards Dallas.” She trailed on as the wail of a baby erupted from the employees room.
+
+
+
+“Is this baby alright?” I asked, subtly setting my sights. 
+
+
+
+“Oh, no yea she’s just woken up from her nap, sorry about that.”
+
+
+
+“Ah no need to apologize, I love children. How old is she?”
+
+
+
+“She’s actually only a week old, and the total is five even. Cash only, sorry.”
+
+
+
+“Oh wow, congratulations, I’m actually a priest from abroad and I’d love to give a blessing to your baby.”
+
+
+
+“Sorry no, I’m- I’m not the mother, she’s my moms kid and she’s actually at church right now so I’m sure she’d love to talk to you. And then here’s your change. Thank you, I have to go check on little Catherine, have a great day!”
+
+
+
+I smiled, waving her off while she rushed into the employee room. The fact that this store alone caught my eye, that I happened to stop in this pitstop of a town, and that it just so happens a child was born here on that day. I have been sent here by divine intervention and I will be his hand.
+
+
+
+The knob to the employee room was locked, no window or anything. Wailing from the beast inside somehow got muffled with panicked breath accompanying it while I waited. Breaking in would risk her getting away and saving the beast. I stood by the door to the employee room caressing my pistol, internally debating. I made the decisive move to leave and get close to the mother instead.
+
+
+
+Inside the modest church the heat which groped every inch of me left with a cooling presence in its place. A subtle hum of a silent church with the insignificant shuffling and murmuring of old ladies in the back. Intentionally I had my coat back on displaying my obvious priest garb before approaching them.
+
+
+
+Subtly I walked near them, nodded with a cheery smile, while they shot up a hand and left, however not before shooting looks towards another lady. In the first row of the church was a humble believer on their knees with their hands praised above their head.
+
+
+
+“May I pray with you ma’am?” I whispered, putting my hand on her shoulder. 
+
+
+
+She raised her head showing tears streaming down her face while shakingly nodded and gesturing for me to sit beside her.
+
+
+
+Of course, I had no clue how to pray or worship since that was irrelevant to my life’s task so I figured I’d get by from mocking her movements.
+
+
+
+I was far past the point of exhaustingly bored when she finally got up and sat down. Finally I followed her, preparing to speak. 
+
+
+
+“Father, may I ask you to pray for my daughter.” She whispered in a shaky voice. 
+
+
+
+Internally I was giddy that she brought it up without any effort, “Of course, may I know her name?”
+
+“Yes, my daughter Claire, she needs so much right now.”
+
+
+
+Instantly I lost all interest in anything this hag had to say, her cries clearly had been falling on deaf ears for a reason. 
+
+
+
+“Tell me about it, I’ll do everything I can.” I forced myself to comfort her, now headlocked in this ordeal.
+
+
+
+She pulled her purse and grabbed tissues to pat her eyes while gathering herself. All I could think about is how I should’ve spoken to the group of ladies instead of this outcast. 
+
+
+
+“Her father passed when she was only a sophomore, and ever since then she became so responsible it scared me. I kind of wanted to see her break down so we could be on the same page, but it was only ever me who did so.” 
+
+
+
+Her words were sincere as they left her mouth and flew from one of my ears straight out to the other. 
+
+
+
+“That’s when she started working at the shop during nights so I could get some rest, but I should’ve just closed it down or toughed it out, I shouldn’t have put her there so late. She was far too young for any of that to happen to her, too young to be a mother…”  Her words, barely comprehensible in between her tears, “I’m a horrible mother, It’s my fault this happened.”
+
+
+
+She finished now, now completely crying, unable to speak between gasped breaths. In response I started forcing my arm up almost mechanically to go around her shoulder and pat her back, blankly staring right at the eyes of Jesus on the cross.
+
+
+
+“The store you’re mentioning, is it the one down the street here?” I gestured towards the left.
+
+
+
+“Y- yes that’s our family mart, did you see Claire? Was she alright? She hasn’t really talked to me since it all happened.” She perked up, wiping her face.
+
+
+
+“Claire was doing well, you’re a great mother, you shouldn’t fret so much. I’m sure she’s proud of you and just needs to cope in her own way, I’ll keep you all in my prayers.” I said with my genuine grin returning to my face.
+
+
+
+She couldn’t even muster any words, those words must’ve hit something in this skinbag as her hands clasped her weeping face.
+
+
+
+“Fa- father, we had told everyone that it was my child, please don’t let anyone know what I’ve said. She has it hard enough and it was the least I could do to help her forget that bad man.”
+
+
+
+“I’m a priest, not a gossiper, I only wish to aid you. In fact, if you’d like I can go speak to Claire again to pray with her?” 
+
+
+
+“Oh well the shop will start closing soon so she’ll be at the house, would you still be able to go see her? If it’s too much-”
+
+
+
+“Of course it’s not a problem at all, in fact I can head over there right now!”
+
+
+
+“Thank you so much father, thank you, I- I’m- please, be there for her.” She tugged at my arm with a horrible, whimpering face. 
+
+
+
+Unbelievable. I can’t believe how amazing I am at my job, the first state I cover and I’ve already found the beast. Why else would that heathen hide her pregnancy or the truth of the father? She must have her own conniving plot in order for hiding the truth of her womb desecrated by Lucifer.
+
+
+
+Déjà vu for the once again calm grasp of the door handle towards an unsatisfying stop to enter, now this time to enter a broken down home. 
+
+
+
+“Hey Claire, can you open this door?” I demanded with frustration behind my teeth.
+
+
+
+“Why- why are you back?” She answered meekly.
+
+
+
+“Claire, open the door.”
+
+
+
+“Now I- I-”
+
+
+
+“OPEN THE DOOR CLAIRE!” I shouted now banging onto the doorframe making the house rattle.
+
+
+
+The beast began to cry in response.
+
+
+
+“I HEAR IT CLAIRE, LET ME IN!” I continued now fully punching the door. 
+
+
+
+“Claire, are you going to open this door for me?” I asked with a calm soothing tone to aid her now weeping state.
+
+
+
+“Please- please just leave me alone.” She whimpered.
+
+
+
+“NOT WITH THAT BEAST YOU FUCKING WENCH, LET ME IN!” I screamed at her, baffled at the depths of hell she allowed herself to fall into. 
+
+
+
+I lifted my foot, thrusting it into the locked door over and over while demanding Claire to surrender the beast. She and the door both refused to let up and my leg began to give out.
+
+
+
+“Fuck this.” I mumbled as I pulled out my pistol and aimed it at the door.
+
+
+
+I aimed at the deadbolt but my eyes and hands were shaky, I lined it up as best I could and let out a shot. Trying the door again it still wouldn’t budge and the beast’s cries grew louder in response.
+
+
+
+The window on the side of the house was the next best option as I used the heel of the pistol to break it open. 
+
+
+
+Upon entry I heard no movement or crying aside from the beast’s. Gun raised, I cleared through the kitchen, entering the living room on the other side of the front door. 
+
+
+
+In front of the dinner table sat the infant in her car seat. Screaming as much as her tiny lungs could offer. To the right, beside the front door lies a lifeless Claire whose head had a bleeding hole from a ricocheted gunshot wound. Ideally she would have lived, but that all the more steels my resolve for the next target to make sure her life went to use. 
+
+
+
+I took my time to get in front of the screaming beast. My footsteps are hardly audible behind the unrelenting screams. Every doubt and consideration of the beast’s humanity the devil tempted me with I fought back with the affirmation of this beast’s coming destruction, nay its current destruction for its existence was the cause of an innocent life already. 
+
+
+
+Forcing myself to watch, forcing myself to acknowledge the reality and never forget what it means to put faith behind words, I raised my gun and finished the job. 
+
+
+
+I couldn’t get rid of that feeling, the unsatisfying sight of that baby girl. Focusing only on the small fragments of determination I felt to get it right next time I left the bloodsoaked home with Claire’s car keys headed for Louisiana. I’ll make sure to get it right next time, or else the two innocent lives lost will also go to waste. For their sake, if you had given birth recently. Let me know, please.
+
