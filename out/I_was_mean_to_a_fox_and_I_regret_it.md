@@ -1,0 +1,31 @@
+I was fifteen when this happened to me, and ten years later I still think about it every day.
+
+I live in a medium-sized town in the UK. We don't have anything like wild raccoons or opossums here, but we do have foxes. You don't see them much, just now and then if you're out late in the evening, and they slip past silently. I like animals but I never thought too much about them, being your average male teenager.
+
+One night, I think it a Friday and around autumn, I'd had a big row with my mum, probably over something stupid (I was 15), and I stormed out the house. I grabbed a Coke from the newsagents at the end of the road, and sat on a bench drinking it and cursing my parents in my head. Eventually it was gettiing late and I figured I should head home, even though I was still wound up about the argument and expecting it to continue as soon as I got in. 
+
+The road towards my house went past a small woods, and I knew there was a bin not far inside, so ducked in to chuck the Coke can away. It was pretty dark in there but I could just make out the shape of a fox, sniffing around the ground not far from the bin.
+
+I'm not sure what came over me in that moment, because I like animals, but I think the rage at my mum and teenage angst overflowed, and instead of dropping the can in the bin, I threw it at the fox. It was dark so I couldn't quite see if it hit the fox or just landed nearby, but the thud sounded like it hit.
+
+Now foxes are usually very flighty and run at the slightest disturbance, which is what I expected in this moment. I guess I just wanted to scare it, feel a little bit of power. But the fox shape did not move. I stood staring, trying to adjust my eyes to the dark, and saw the fox's head slowly turn towards me, and the light caught its eyes, reflecting glowing white disks in my direction. It stared at me, unmoving, and I felt frozen to the spot, terror creeping up my spine.
+
+I don't know how long this lasted, that our eyes were locked together, but it felt like at least 30 seconds, a minute, longer? Neither of us moving, me barely breathing. Then the fox just turned and was gone, returned to the blackness. I kept staring even after that, afraid to move, until I slowly came back to my senses and took myself home, deeply shaken, the argument with my mum seeing inconsequential now.
+
+I shook off any weirdness once I was home, made up with my mum, and probably played a video game or something. That night in bed though, as I was trying to sleep, the image of that dark fox face with glowing white eyes kept floating into my mind —I felt like those eyes were penetrating any normal thoughts I tried to have. I eventually fell asleep propped up watching whatever was on TV, trying to distract myself.
+
+The next day was fairly normal, I got up late and did whatever fifteen year olds do on a random Saturday, lounged around or hung out with my mates, I don't remember. By the evening I'd forgotten all about the fox incident, and headed to bed late, around 1am. I didn't think much of it when I was awoken by some little sounds outside — neighbours often came home late at the weekend — and turned over to go back to sleep. The sounds kept going though, little creaks and clicks, noises I couldn't place. Eventually I gave up trying to ignore them, and got up to look out the window.
+
+My room was on the first floor, overlooking our small front garden. It was dark but I couldn't see anything amiss, just our hedge, grass, and a dim streetlight across the road. I went back to bed and dozed off quickly.
+
+I don't know how long passed, but I was awoken again. One of those times where you jolt wide awake, unsure if you heard a loud noise or if it just came from your brain. I got up to look out the window once more, and sure enough, there was just our garden in darkness, the streetlight now out. But then, as I moved to draw the curtain, I caught sight of movement at the bottom of the windowframe. Something dark was moving slowly upwards, floating into my line of sight, right in front of the glass. Triangles— attached to something — my mind couldn't make sense of what I was seeing, what on earth could be there, at a first floor window. And then the eyes came into view — those glowing white discs — just inches from my face, staring straight into my soul, threatening my safety and my very sanity. The last thing I saw was an open mouth, with sharp white teeth, and I fell back from the window, thudding onto the floor, letting out an involuntary yelp of terror and pain.
+
+As I landed, I looked down for a second, and when I looked back, all was blackness. I scrambled up and stood on tiptoes to took down —where had it gone? And how on earth had it got there, one floor up? Just grass, hedge, silence. I closed my curtains quickly, shaking and rushing to put on the light.
+
+I didn't sleep much of the rest of that night (even with the light on) but I thought a lot, with that face burned into my mental TV screen. I questioned if I'd dreamt it. I asked myself why I'd been cruel to an innocent creature. And mostly I thought about the future — was I going to be haunted now? Was I going to see that face every night? Would it always be outside, or would I wake up and see it in my room?
+
+Around 5am, sleep deprived but never feeling saner, I made a decision, and the next day I set to work. My family were confused, but teenagers do weird things, right?
+
+Breakfast, lunch, dinner... every uneaten scrap was saved from everybody's plate, and I put them all in a bowl, and set it out in the garden before bed. An offering. A peace offering. And it worked.
+
+There are many more noises at night now, horrible screams and screeches as the foxes talk to each other and squabble over the food I've left them. They would sound terrifying if you didn't know what they were. I've moved house twice since, but every night I still feed the neighbourhood foxes. I watch them out my window, moving around in the dark, acting like normal animals, and feel calm. I think I was forgiven — whether by the creature I tried to harm, or my own mind, I'm not sure, but nothing weird ever happened since, and thank god I never saw that face again.
