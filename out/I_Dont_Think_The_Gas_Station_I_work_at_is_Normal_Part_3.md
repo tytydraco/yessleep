@@ -1,0 +1,119 @@
+You never realize how fickle time is until you lose control of it, in all honesty it doesn’t feel like it’s been all that long since I last uploaded, however….. Let me explain a little; last week I woke up in a hospital room, they said I was in a coma since August of last year. So if any of you thought I was dead, I guess you were half right. They told me that someone had come by almost every day to check on me, but they refused to tell me who, that can’t be legal right? 
+
+My brain’s felt fuzzy since waking up, I assume that’s caused by the coma, but I can’t guarantee that. Tonight’s the first night I’ll be going back to work since waking, but I thought I’d use the last hour or so before I leave to transcribe my notes to you all. People are seeing these right? Sometimes I doubt anyone sees these posts and I just end up talking to the void…the…void. 
+
+Anyways, at the edge of a bustling city where dreams die and people follow suit, a small gas station sits between bustling forests and dilapidated buildings. If you happen to find yourself making your way inside during the late hours of the night, you’ll likely find the sleep deprived cashier leaning back in his chair up at the front reading one of a number books. Although, I’d recommend you conduct your business swiftly and make your way out the door and if you think you hear something behind you, you didn’t. Just leave and be on your way. I can’t downplay how much everything has changed from my first day to now. Hell, if everything had been truly stated ahead of time I definitely wouldn’t have taken this job, but I guess that’s my fault for not asking right? I’m going to transcribe my notes with minimal commentary for now, but I’ll jump in when needed too. 
+
+
+
+May 23rd, 2025
+
+Tonight went better than last night, I guess that’s not hard when you were being beaten half to death by a shapeshifting monster right?  Ugh, that’s not funny. The new girl showed up, she’s really nice which is a major waste here. Her name’s Sarah, I’d say she’s about 5’10” kinda small in size but with gorgeous long golden blonde hair, extra emphasis on golden it’s stunning. Either way she seems competent and has done a fine job so far, I have her stocking the shelves as I write this. As of now everything’s been fine, nothing of note has happe- hold on, she’s calling for me. I’ll continue this later.
+
+—————————————————————-
+
+I guess I shouldn’t expect a regular night anymore, huh? So, when I ended my last entry Sarah was calling me from the back room, saying how I “needed to see this”. When I made it back there she was inspecting the door, rubbing her finger on her chin like she was deep in thought.
+
+“What’s up?” I called out in what could only be described as a grumble.
+
+“Take a look at this!” She responded sweetly, at this point I could tell what she was talking about. The door was heavily dented from when I was thrown through it, the pain from which was still lingering. However, that wasn’t all; A thick black liquid filled the tiny cracks but it looked like it was almost pulsating? Like a beating heart.
+
+“What do you think this is, I’ve never seen anything like this?” 
+
+“I-I don’t know? I’ve never paid much attention to the security of our doors, heh. Why’d you think I knew?” 
+
+“Well you…..you work here, so I thought you would?” Giving me a slight pout as she made her way back to the isles. Shutting the door behind me I couldn’t help but wonder what made such a girl take a job here? 
+
+The rest of the shift went somewhat smooth, customers here and there but that was all. However, when it was time to leave Sarah came up to me to wish me a goodbye, although she threw in one more thing as we were walking out the door.
+
+“Hey Landon, are you religious at all” looking up at me questioningly.
+
+“Not particularly honestly, why do you ask?”
+
+“Sorry, let me be more specific. Do you believe in Angels and Demons? Forces that would be considered abnormal?”
+
+That question struck with the lunch I had failed to eat as my stomach turned over. Not wanting to leave without giving her an answer I spoke up.
+
+“Well, I do think there’s beings out there that are not normal like us, but…. Nevermind, probably ya. See you next time.” With a wave of my hand I made my way to my car, yet I could faintly make out behind me. “That’s an understatement though, right?”
+
+I don’t know, maybe I’m looking into things too much.
+
+  
+
+
+May 29th, 2025
+
+Dad called today, apparently him and Mom are gonna be gone for a couple months, so I’ll have the place to myself, this blows.
+
+I was set to work a double tonight, more money’s good right? Anyways, apparently Sarah will be coming in later tonight, but that’s not what’s concerning right now. 
+
+I was off last night, so one of the guys from the day shift, someone named Gary, was set to take over for me. Well, I checked over our time sheet when I came in and he never clocked out. Now, I could just be over reacting about this, maybe he just forgot? But with what’s been going on lately…I don’t feel good about this. 
+
+
+
+Sarah came in, she seems to only work when I’m scheduled, maybe the owners don’t wanna leave her on her own just yet? They never gave me that courtesy, but whatever. It was probably around two thirty when someone came into the store, I’d place him around my age, maybe a tad younger but was dressed in a full charcoal suit. Wouldn’t be my personal choice of attire for this area but that’s not my say. Anyways, instead of walking around the store he looked up to me reading at the counter and sauntered over to me. Reflexively I marked my page and went to greet the customer before Sarah who stood at my side spoke for me. I could have sworn she was stocking the last time I checked.
+
+“Hello SIR” she spoke curtly “How can we help you” it felt like she was on edge.
+
+The man grinned and spoke in a slight undertone. “Oh no sweaty, I have no business with you. However you sir, could I have a quick word with you?” Moving his attention fully towards me, or was it always that way? Either way, I wasn’t in the mood for this tonight, so in my signature greeting tone. 
+
+“Sir, if you’re not gonna buy something I suggest you get the hell out instead of trying to start something. I’m not in the mood for useless interactions with…you.”
+
+
+
+I could see his lip tense slightly, it seemed like I was getting to him. Something I would soon learn to regret.
+
+“Mr. Landon, allow me to introduce myself. My name is Joseph Collins, I represent a very select group of people. A group of people that I believe you might be familiar with.”
+
+This time I could see his grin grow wider, the air grew thin as the conversation continued, it felt as though a spider was gingerly making its way up my spine getting ready to pounce. Turning my gaze over towards Sarah, she was raising her eyebrow while glancing in my direction, guess she’ll be no help here.  
+  
+“I’m not doing this right now, just leave before I call the cops.” Rising from my chair I turned to walk towards the phone before his voice stopped me in my tracks.
+
+“She must have done a real number on ya, huh?” 
+
+“Excuse me?” 
+
+“I don’t blame you for being on edge of course, Scarlet is one nasty little vixen. But you would be wise to pick your fights more carefully against those who hunger.” 
+
+At that point I lost it, my wrist burned like the flames of hell and I started to sweat profusely. My mind screamed at me “Danger, Danger, RUN” I couldn't take it anymore and turned back towards the man, but his face, oh God his face. It looked as though his face had twisted into a spiral and continued spinning. I screamed out of fear.
+
+“GET THE FUCK OUT OF HERE AND NEVER COME BACK YOU FREAK!”
+
+With a small chuckle he bowed and left with one last parting.
+
+“I look forward to our next meeting “heir the the seventh chair””
+
+A few moments of still silence followed his departure, I couldn’t help but breathe heavily as I tried to catch my breath, before Sarah decided to speak up.
+
+“What, did he mean “heir to the seventh chair "?"
+
+Without even looking at her I walked passed her towards the backroom and said 
+
+“I’m going to break Sarah, just watch the front till I get back.” I sounded utterly defeated and I didn't care, I just wanted this day to be over with.
+
+
+
+June 9th, 2025
+
+
+
+I found Gary, or whatever’s left of him. The police are saying he was attacked by some wild animal, but I know better. I’m getting ahead of myself, let me rewind back to last night. It was around four thirty in the morning when it all happened, I was alone tonight (a rarity nowadays) busying myself by checking the expiration dates of the canned food, half being expired for some reason. Don't blame me. When I felt the lingering feeling of eyes staring bullets through me, so as I felt a slight chill caress my spine I turned around to face whoever decided I was a pretty painting. However, what met me wasn’t something unknown, instead being someone who I was at least somewhat familiar with.
+
+That same hooded “thing” from the night that started all of this nonsense was standing motionless across the street from the Gas station. It’s horrible, whenever I look at this thing I feel this sense of utter impending doom, like it’s the living incarnate of the grim reaper. I couldn’t look away, but not out of fear. It wasn’t what I was feeling, it was from what I was hearing. I swear it was like this thing was talking to me in some unspoken language, the best way I could describe it would be a deep dark mumble mixed with static, it was completely incomprehensible. Yet, I understood every word it spoke and as I took a moment to blink I found myself removed from the safety of the gas station and stood in front of one of the many derelict buildings surrounding it. In all honesty, I don’t know what I was expecting to find, I don’t know why I didn’t just turn my ass around and walk back to the gas station and yet …. I opened that door. 
+
+The place was half destroyed, loose bricks and concrete littered the floor, the only things I was met with were broken furniture and a set of stairs leading down to what I could only presume was the basement of the premises, it felt as though the darkness leaked out of their like smoke and yet, I made my way deeper. With my phone flashlight guiding my way, I descended down into the abyss. Each step made a deafening creak on the wooden steps but I couldn’t pay attention to that, my mind was conquered by the overwhelming smell of rot and it only grew stronger as I made my way deeper. 
+
+Finishing my descent I waved my light into the room, it was a standard basement seemingly mostly intact, however instead of the hollow grey of concrete the walls were instead coated in a deep thick crimson. I was stopped dead in my tracks at the bottom of those stairs, my flashlight was stuck on the body laying in the middle of that god forsaken hell hole. I don’t know how much I can describe, how much I WANT to describe him, but. It was a massacre or more like a feast, it looked as though someone or something had been using him as their personal picnic basket. Chunks taken out of his body, he was missing an arm and I think half his leg, his intestines had been rolled out like a line of sausages, I was barely holding back my lunch before I heard the distinct sound of crunching coming from back up the stairs! My hands moved like lightning flipping the light back up the stairs where I was met with the interrupting guest or was I interrupting it? 
+
+This thing was completely devoid of color, just a deep dark outline, it was unnaturally tall and lanky, its arms hung down nearly touching the ground and its neck looked to be snapped permanently hanging to the right. I froze, I didn’t know what to do. My throat locked up and a bead of sweat rolled down my cheek. At that moment I couldn’t run, I couldn’t hide, there was only one thing I could do.
+
+“SOMEONE HELP ME!!!! PLEASE SOMEONE!” My throat fought for power, I knew it was hopeless but all I could do was try. Nothing followed, for a moment that was. Until I saw the monster violently twitch and produce… my voice.
+
+“SoMEonE hELP ME!!! PlEaSE!” It was mocking me, playing with me and it was working. Yet when I had finally lost all hope and truly thought I had met my end, a light began to shine. From behind the thing a blinding golden light produced and blocked out my vision. It felt as though my mom had come up to me and given me a loving hug assuring me everything will be alright. By the time I regained my vision the thing was gone and I took that as my ticket and cashed it. I stormed up those steps and ran as fast I could back to the gas station, never looking back. No matter how my growls and extra sets of steps I heard, I didn’t dare turn back. I only looked back the way I came when I shut those glass doors behind me and yet, the only thing that met me was the rising sun of daybreak. 
+
+Following me calming myself, I called the cops and told them what I found, I didn’t dare tell them what actually happened, they probably would have assumed I had done it at that point. 
+
+
+
+I’m sorry to do this, but this is where I’m going to have to stop for now. I’m going to be late for work if I wait any longer, so I’ll try to be back soon and finish up with my previous notes and anything else if God forbid more fun happens here. Of course, if this is the last you hear from me, expect the worst. 
+
