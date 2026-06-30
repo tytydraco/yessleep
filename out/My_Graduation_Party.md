@@ -1,0 +1,61 @@
+My friend Josh invited me to his friend's graduation party this year. He did so with the sole intention of getting me shitfaced drunk as my, "passage into manhood". It took a great deal of convincing on his part, but I did end up caving to his peer pressure. I didn't know his friends all that well, but he assured me a bunch of people from our school would be there. 
+
+So, on the night of graduation, we went to his friend's cabin; hidden deep in Pennsylvanian wilderness. There was about six people there, far from the hundreds that Josh described. Three girls, three boys, all who I didn't recognize. 
+
+By the time we arrived, most everyone else was already drunk save for one girl who I assumed was the other girl's designated driver. Josh wasted no time joining them. I did my best to keep up, but the host's warm Coors Banquet tasted like unfiltered piss. I managed to force down five of them before they ran out and I unsurprisingly, ended up sober.
+
+As the night dragged on, the girls eventually headed home, leaving just the four of us. Before long, the alcohol started catching up to the others. One after another they slumped onto the porch, throwing up over the railing and clutching their stomachs. I did the best I could to comfort them and eventually helped each of them back inside the cabin. As I tucked Josh into bed he wrapped me in a sloppy drunken hug, telling me he loved me like a brother and lamenting of my soberness.
+
+I assured him to the best of my abilities and stepped outside, sitting alone on the porch. A small lantern cast just enough light to illuminate the surrounding forest. Even though the woods made me uneasy, I found it to be peaceful. The only sounds were the soft chirping of grasshoppers and the wind gently passing through the trees. I had been scrolling through my phone when I heard the back door creak open, followed by the crunch of footsteps in the grass. Assuming one of the drunkards had fled the nest, I got up to make sure whoever it was, didn't hurt themselves.
+
+Using my phone's flashlight, I rounded the corner of the cabin.
+
+Through the trees, I could just barely make out a figure.
+
+It was Josh.
+
+I walked toward him slowly, trying not to startle him. When I finally reached him, I gently placed a hand on his shoulder.
+
+He spun around.
+
+His arms hung limply at his sides, swaying slightly. His eyes were wide, unblinking. He stared through me with such intensity that I took a step back. Trying to break the silence, I forced an awkward smile.
+
+"We should probably head back," I said. "I don't want you getting lost out here." He barely seemed to hear me. He turned back around.
+
+"He doesn't want us here."
+
+"What?"
+
+Without taking his eyes off the darkness beyond the trees, he slowly raised his arm and pointed. 
+
+"Him."
+
+I followed his finger into the darkness. Slowly, I lifted my phone's flashlight. The beam barely reached the tree line before it caught something. A pair of legs. Just for a split second. Before I could raise the light any higher, a deafening ringing exploded in my ears. My vision blurred, and my head pounded as though someone had struck me. Instinct took over. I grabbed Josh by the arm and dragged him back toward the cabin as fast as I could. Behind us came the unmistakable sound of heavy footsteps crushing twigs and dead leaves.
+
+I threw Josh through the back door before slamming it shut behind us.
+
+I locked it.
+
+Then I waited.
+
+I sat there for the rest of the night, listening to every creak of the cabin and every gust of wind outside, too afraid to even look through the windows.
+
+I barely breathed all night until sunrise where I finally nodded off.
+
+As everyone slowly woke up, nursing their hangovers, I looked around. Josh wasn't there. In my short search I had found him where he'd been originally, tucked into bed.
+
+Once Josh was coherent enough to leave, we said our goodbyes and headed home.
+
+On the drive back, I finally asked him.
+
+"You remember what happened last night?"
+
+He looked at me with a confused expression.
+
+"What are you talking about?"
+
+"You walked into the woods..."
+
+He furrowed his brows as he shook his head.
+
+"I never left the bedroom."

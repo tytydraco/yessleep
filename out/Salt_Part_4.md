@@ -1,0 +1,127 @@
+[One](https://www.reddit.com/r/nosleep/comments/1txanx9/salt_part_1/), [Two](https://www.reddit.com/r/TalesFromTheCreeps/comments/1ty7a6y/salt_part_2/), [Three](https://www.reddit.com/r/nosleep/comments/1u73055/salt_part_3/)
+
+
+
+Sorry for the long wait.
+
+A lot has happened to me.
+
+Everyone else seems to be carrying on just fine. I need you to believe me. The man standing on my porch knew my name, like we’d known each other for years. But I am absolutely certain I had never seen him before in my life.
+
+I asked him how he knew my name, I asked him how he knew where I lived.
+
+He raised an index finger to his pursed lips.
+
+“Ah-tah-tah-tah,” he said softly. “Shhh. You don’t want to wake the neighbors.”
+
+Then he reached into his coat and pulled out an envelope.
+
+It was cream colored. The kind you’d get for a wedding invitation.
+
+“What the hell is this?” I asked.
+
+“Best not swear right now, miss,” he stared at me for at least thirty seconds without speaking, before getting right back into it as if nothing happened, “The Outreach is hosting our annual Harvest Drive this Saturday.” His smile never wavered, even through the staring. “Pumpkin patch, hayrides, the whole shabang. Charity event for the children’s hospital. We’d love for you to come see how everyone works. Where the donations go, and how the community takes care of itself.”
+
+I didn’t take it. He set it down on the porch railing instead, gently.
+
+“No pressure at all, miss,” he said. “But it’s a swell way to meet your neighbors, Amelia. You’ve been here, what, three weeks now? It’s time you got a feel for things around here.” He turned and walked down my steps, then at the bottom he paused and looked back.
+
+“Bring an open mind,” he said. “That’s all we ask.”
+
+I almost didn’t go.
+
+I sat on this decision for two full days, told myself I was done, told myself I should pack what little I owned and drive to a town that didn't have any fucking yellow brick roads.
+
+What changed my mind was the window.
+
+Thursday night, I was at my kitchen table when I noticed someone standing across the street. Just standing and not really doing anything,  facing my house.
+
+I turned off my lamp and watched from the dark. They didn't move, or check a phone, didn't glance away, didn't do any of the small things, nothing to make me go “could be someone waiting.”
+
+Friday night, there were two of them.
+
+Saturday morning, I went to the Harvest Drive.
+
+It was, on the surface, completely and utterly mundane.
+
+A field outside town, converted for a season that wasn’t even here yet. Hay bales arranged for photos, a pumpkin patch with kids running between rows in flannel and rubber boots, a face-painting table, a cider stand, music playing from speakers mounted on pickup trucks.
+
+I walked through it for almost twenty minutes, telling myself I'd overreacted to everything. That towns have charity drives, and that I was a journalist who'd had a very bad week and had started seeing holes in film where there weren't any.
+
+Then I started noticing the pins.
+
+Small and easy to miss if you weren't looking. The yellow brick road, rendered in gold thread or enamel or printed on fabric, on nearly every lapel, every collar, and every goddamn ball cap brim.
+
+Then I noticed it wasn't just the organizers.
+
+The woman selling cider had it stitched onto her apron.
+
+The teenager painting faces had it on a bandana tied around her wrist.
+
+A man walking his dog down the street, not even at the event, had it on the dog's collar.
+
+A group of kids racing between pumpkin rows all wore matching green t-shirts with the same logo across the chest.
+
+Every single person at that event, in one form or another, was wearing it, that fucking yellow brick road.
+
+Every single person except me.
+
+A woman approached carrying a wicker basket lined with pins and a stack of folded shirts in different sizes.
+
+"Would you like one?" she asked, holding the basket out. Her smile was innocent, disarming if anything. "It's required, actually. For the event, we like everyone to feel included."
+
+"I'm fine," I said. "Thank you."
+
+"Are you sure? It's no trouble at all."
+
+"I'm sure."
+
+I left.
+
+I got in and drove home with both hands on the wheel and my stomach somewhere in my ass.
+
+My phone rang before I'd even pulled into the driveway.
+
+It was a number I didn't recognize—I answered.
+
+"Hello?"
+
+"Why did you leave, Amelia?"
+
+The voice was familiar. It took me a second, and then it landed. My stomach dropped clean out of my ass through the floor of the car.
+
+The reference desk woman, from the library.
+
+"H-how do you have this number?"
+
+"You left so quickly," she said, not answering my question. "We were hoping you'd stay a little longer. There was going to be a pie contest. Ms. Reynolds always judged the pies."
+
+I gripped the wheel harder.
+
+"Reynolds is dead."
+
+A pause.
+
+"Ms. Reynolds is part of something much, much larger now," she said. "We all are, in the end. That's the whole point of the Outreach, sweetheart."
+
+I hung up.
+
+That night, I laid everything out on my kitchen table again. The photographs. The names and the dates going back to 1984.
+
+I noticed something I hadn't before.
+
+The faces in the older photos. The Mayor in 1988. The Police Chief in 1995. Men who should have aged between thirty and forty years between photographs and somehow looked five years older at most.
+
+Before I could question it, the knocking started again.
+
+But it wasn’t the floorboards this time.
+
+It was my front door. Three knocks, a pause, and then three more.
+
+I didn't answer it.
+
+I sat with the lights off and listened to it continue for almost three hours before it finally stopped.
+
+I think I finally understand what Harkness meant about “the kids.”
+
+And fuck me, I wish I didn't.

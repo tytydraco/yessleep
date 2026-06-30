@@ -224,7 +224,7 @@ I ignored him. The flight passed quickly, mostly because I slept through most of
 
 I sighed.
 
-Somehow, I had gotten used to his staring problem. 
+Somehow, I had gotten used to his staring problem.
 
 We finally arrived at the location.
 
@@ -952,5 +952,7 @@ Angelo was exactly where I'd left him the night before.
 
 Curled up on the couch with a book in one hand, a mug of coffee in the other, and an open pack of sour gummies balanced on his knee.
 
-As though, he hadn't just become one of the most powerful people in the CSP. 
+As though, he hadn't just become one of the most powerful people in the CSP.
 
+  
+Part 6: [The Most Powerful Being in the CSP Is Studying Humans. Unfortunately, I'm His Favorite Lab Rat.](https://www.reddit.com/r/nosleep/comments/1ujfm8m/the_most_powerful_being_in_the_csp_is_studying/)

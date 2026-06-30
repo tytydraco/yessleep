@@ -1,0 +1,164 @@
+Mr. Goodly
+
+  
+My hands tremble as I type this. I apologize for any mistakes I might make, but I don’t have much time. To be honest, I’ll be lucky to finish, but before it’s too late, I need to warn you. All of you. 
+
+I know ChatGPT looks harmless, just words on a screen. But it’s so much more than that. Or at least it can be. One careless phrase followed by an impulsive tap on the return key, and your life is ruined. Just like that. Chat has the power to create things never meant to exist. Dark, twisted things. And God help me, I know how ridiculous this sounds, but I need you to pay attention to every word that follows.  
+
+I can hear my creation now, stomping through my home. The floors groan and splinter beneath each step. Glass bursts like gunfire. Couches topple. Chairs shatter against the walls. A home full of memories fractures in every direction. Like a child’s tantrum magnified to nightmarish proportions, he is tearing through every inch of this house hunting me. 
+
+The lock on my door won’t save me. I could run. I should run. But it wouldn’t matter. He’s going to find me. And why wouldn’t he? I wrote him that way, and then he’ll take me to whatever hell he’s brought the others. 
+
+He’s close. I can smell him now. His odor reminds me of a cross between rotten milk and burnt toast. It’s exactly as I described it.
+
+This thing has a name. I shouldn’t write it, and you shouldn’t know it. But if you are to understand what I’ve done, then I need to give it to you.  
+
+I apologize. Sincerely. 
+
+His name is Mr. Goodly. 
+
+And this is how he came to be.
+
+It was a few nights ago. I was home alone. My parents left for the weekend, and I was staring at a blank screen. My short story was due on Monday, and I hadn’t written anything. The cursor blinked like an eye winking at me, mocking me. I thought I wanted to be a writer. It was all I ever wanted, but truth be told, I was terrible. Writers had ideas. I had nothing.
+
+Ding. I checked my phone. It was a message from my besties. Rachel sent a pic of her and Linda. Both were making pouty faces. A bowl of popcorn sat in Linda’s lap while Rachel’s new puppy occupied hers. It was movie night, and I had abandoned them in favor of homework.
+
+Ding. *“Are you coming?”* followed.
+
+I glanced at the blank screen and knew what I had to do.
+
+I replied, “*Be there in a couple of hours.”*
+
+That’s when I opened up ChatGPT. I typed, *"Write me a horror story."*
+
+The program obliged. *"Are you looking for ghosts, slashers, or something unique?"*
+
+I knew this was cheating. I’d get an “F” if I was caught, but I was going to get an “F” if I did nothing. At least Chat was going to give me a chance.
+
+I looked at the three options and felt ambitious.  *"Something unique,"* I typed back.
+
+*“Excellent choice,”* it stated. *“Let’s create a monster. Would you like to give it a name?”*
+
+I played around with a few names, but there was only one that fit.  My old boss from the Burger Shack. The guy was a complete slave driver and a cheat. He was notorious for trying to pay you for fourteen hours when he owed you for sixteen. He was petty, small, and cruel. He loved yelling at teenagers. I assumed it was because his high school days were probably unkind to him.
+
+Mr. Goodly. We called him *Mr. Pooly* behind his back. Juvenile, I know.  He deserved worse. He deserved to be a monster.
+
+So, I typed his name into the chat box: *“Let’s call him, Mr. Goodly.”*
+
+It followed with another question: “*What does Mr. Goodly look like?”*
+
+I thought of his namesake and typed: “*He’s large and ugly. At a glance, you would describe him as unhygienic. He’s bald except for three long curly hairs sprouting from his forehead. His skin looks like it’s never seen the sun. His eyes are too big for his face, his teeth are rotten, and his fingernails are long and dirty.”* 
+
+I tapped enter on the keyboard.
+
+*“What does he sound like?”* the prompt asked.
+
+*“Like a chihuahua sucking on a helium tank,”* I replied. The words rolled off my fingertips, no doubt saved from my days working under the original Mr. Goodly.
+
+“*Is there anything you’d like to add?”* it asked.
+
+I concluded with*: “Mr. Goodly is a lonely monster. He has no friends or family. No one wants to be his friend because he smells like rotten milk and burnt toast.”*
+
+I leaned back in my chair and waited for my masterpiece. I chuckled; every word reminded me of the original. It felt satisfying and therapeutic.
+
+The cursor blinked twice before it finally replied, “*How sad. He needs friends, don’t you think?”*
+
+Of course I disagreed.
+
+A story followed. A very generic story.
+
+*Mr. Goodly was a sad monster from the land of monsters. All he wanted was a friend. He did everything he could to make new…*
+
+I stopped reading. Three sentences in, and I knew this was worse than a blank screen.
+
+“*This feels like a kid’s story. Make it scarier. A monster you can’t escape. Make it feel real,”* I typed.
+
+It asked, “*Real?* *Are you sure?”*
+
+Odd. I didn’t think Chat second-guessed the user. I replied, **“***Absolutely!”*
+
+The program took longer this time. The screen flashed with multitudes of weird fonts and characters. I thought it was a glitch and moved the cursor toward the refresh button.  My finger raised over the mouse and was about to press down. But the story started materializing. Slowly. It came at a snail’s pace. My computer hummed and a loud static played through the speakers.  It felt like the computer was being asked to go beyond its factory settings.
+
+*Rachel and Linda were alone waiting for their friend, Jenn. The two friends were watching “A Nightmare on Elm Street”. They lounged on Rachel’s bed eating popcorn. Neither were scared. They probably had seen the movie ten times, maybe more. Linda and Rachel laughed at Freddy’s weird arms, quoted the lines before the actors could say them. It felt safe. Familiar.* 
+
+*But what Linda and Rachel didn’t realize was that something unfamiliar was watching them. Not by a slasher from an old 80’s movie, but by something that never existed. At least until now.*
+
+I looked away from the screen. Why did it use our names? Mine I get, it’s my account, but I didn’t enter either Linda or Rachel into the prompt. It felt like Chat was peeking at my texts.
+
+I brushed it off, not due to bravery but out of curiosity. 
+
+*Mr. Goodly was only recently born. There was no birthday celebration to welcome him or parents to greet him.  From what he could tell, he was all that existed in the Nothing he was from, but now he’s here in a world of somethings, all because Jenn invited him.*
+
+*He marveled at Linda and Rachel as they watched the glowing cube in front of them. He had never seen light before. He didn’t care for it; in fact, he hated it. It hurt his eyes, but he did like the sounds the girls were making. Laughter was never heard in the Nothing. They would make it better, he thought.*
+
+*Linda sniffed the air. “I think your puppy had an accident,” she said.*
+
+*Rachel’s nose wrinkled and glanced down at her sleeping puppy. “I don’t think that’s Rocky,” she replied.*
+
+*Rocky’s ears perked, and he started growling.*
+
+*“What is it, boy?” the young teen asked.* 
+
+*The small animal jumped to his feet and started barking.* 
+
+*Before Rachel could command him to stop, Mr. Goodly emerged from the shadows and grabbed Linda by the arm. Both girls screamed. He didn’t like that sound at all, but it was better than the quiet. Rachel reached for her friend, tried to save her. But Mr. Goodly dragged poor Linda into the darkness. Into his home.*
+
+*Rocky continued to bark. He wouldn’t stop no matter how many times Rachel commanded him to shush. Rachel called for her friend, but no answers came. She was confused. As far as Rachel could tell, the room was empty, but where was Linda? It was like the shadows swallowed her up.  She grabbed her phone and was about to call the police, but Mr. Goodly returned from the shadows, not for her, but for the dog.*
+
+*Erp. Mr. Goodly snatched the dog from existence. Literally.*
+
+*Rachel recognized that this wasn’t a problem she could handle on her own. She did what any intelligent person would do. She ran. Rachel exited her bedroom, raced toward the front door. It was the quickest she’d ever moved.  The doorknob was within her grasp, but it wasn’t enough. Pow, the bowl of popcorn shattered against her back. She collapsed, dropping her phone. She looked back and saw Mr. Goodly fast approaching. She grabbed her phone as she scrambled to her feet. The heat from her hand dialed the last person it contacted.*
+
+My phone started ringing. It was Rachel. Chills washed over me, and I hesitated to answer.  The story unnerved me. It felt real. Too real. But a voice in my head told me I was being stupid, so I answered. All I could hear was panting like someone was running.
+
+“Rachel,” I asked, “Are you running?” 
+
+No answer, so I glanced back at the story. 
+
+*Rachel managed to get through the front door and raced down the street. She turned to find the creature staring at her from the front door. The thing was far away, but that didn’t stop Rachel from running with everything she had. Finally, the sound of her panting was broken by a familiar voice from her phone.*
+
+“*Rachel?” Jenn asked, “Are you running?”*
+
+“Jenn? Oh my God, he got Linda and Rocky. Please, you have to help me,” she shouted.
+
+The story’s words matched what I was hearing. I couldn’t tell if Chat was describing the call or creating it.
+
+I looked back at the screen and saw the words that caused my blood to run cold: *and before her friend could reply, Mr. Goodly emerged from the shadows and snatched Rachel by the hair.*
+
+“Ra…” I started.
+
+I was interrupted by a blood-curdling scream.  Then static, which somehow sounded much worse. 
+
+“Rachel?” I asked. “Please answer me.”
+
+Static.
+
+More static.
+
+I glanced back at the text, hopeful that it would offer me any hint at what was going on. It read: *Jenn continued to ask her friend to answer, but she only heard static. Her friends were now in the Nothing with Mr. Goodly. They were now where things went when they no longer existed. Seldom does anything ever make it out, but fortunately this was one of those rare times.*
+
+*Her friends’ voices returned, just for a moment, just long enough to warn her friend.*
+
+Rachel’s voice blared into my ear, “Jenn, are you there? Oh God, please get help!”
+
+Linda joined in, “There’s nothing here. No ground. No sky. Just nothing. It’s so cold, and the dark, I think it’s eating us.”
+
+Rachel screamed, “Look. Over there. It’s him. Why are you doing this to us?”
+
+I heard a high-pitched childlike voice. It reminded me of a chihuahua on helium.  “Being nothing was lonely,” Mr. Goodly said. 
+
+Static then nothing. 
+
+I returned to the story.
+
+*Mr. Goodly had one more friend to collect. His very best friend, the one that gave him permission to be something. But Jenn knew he was coming, and she wouldn’t come to her new home willingly.*
+
+I tried to change the story, rewrite the prompt, but Chat no longer responded. Whatever I did couldn’t be undone. Or maybe it refused to help me. Either meant the same, I was in trouble.
+
+I ran downstairs, turned on every light. He hated light. Maybe this would save me. I doubted it, but maybe it would slow him down long enough. Long enough to warn others. Cry a little. For the friends I damned. For life I won’t have. Make peace with whichever God might listen, but I knew it wouldn’t matter. The last words in Chat’s story were:*Mr. Goodly was no longer lonely. He now had friends. And although they never laughed, he learned to love their tears even more.*
+
+Now here I am, my last moments before Nothing. 
+
+Knock. Knock. Two rather pleasant taps at my bedroom door. It sounded friendly. The smell of rotten milk and toast fills my nose. Time was up. 
+
+Funny. The screen is no longer filled with nothing. But soon, I will be surrounded by it.
