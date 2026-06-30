@@ -22,7 +22,7 @@ Some of the members of the group looked as well and gasped in horror. I soon fol
 
 I threw up at the sight while some women cried. My mom looked at Greg in horror as she clung to his embrace.
 
-"Damn it..." Captain Dave said as he lowered his hat. "Jonesy, can you see how badly the propeller was damaged before the sharks came? I'm going to send an sos to the coast guard."
+"Damn it..." Captain Dave said as he lowered his hat. "Jonesy, can you see how badly the propeller was damaged before the sharks come? I'm going to send an sos to the coast guard."
 
 "Aye, captain," Jonesy nodded. He went below deck and came back a few minutes later in a diving suit. 
 
@@ -78,9 +78,9 @@ By now I think the captain realized something was off. The tapping sound grew lo
 
 We all rushed to the other end of the boat in a panic. The slamming continued for another minute before stopping. Greg was the first to walk towards the stern of the boat, but as he cautiously made his approach I felt a splash of water coming from behind and was hit by a large object before falling into the ocean along with two of the whale watchers. 
 
-Before I knew it I was looking up at the sky as I sank beneath the waves. The clouds rippled and shrank as my mind began to race. I held my breath from fear rather than from holding it under water. Everywhere I turned I just saw blue, then the creature's figure suddenly appeared from within the veil of blue, like it just materialized from nothing. At first it just looked like a blurry speck in the distance, but soon it swam towards me like a torpedo. Jonesy's upper half was still attached to its head, but with the force the creature was swimming at the corpse worked against its jet flow and came off. 
+Before I knew it I was looking up at the sky as I sank beneath the waves. The clouds rippled and shrank as my mind began to race. I held my breath from fear rather than from holding it under water. Everywhere I turned I just saw blue, then the creature's figure suddenly appeared from within the veil of blue, like it just materialized from nothing. At first it just looked like a blurry speck in the distance, but soon it swam towards me like a torpedo. The man's upper half was still attached to its head, but with the force the creature was swimming at the corpse worked against its jet flow and came off. 
 
-As Jonesy's corpse began to float down to the abyss I could see that he was hollow on the inside.
+As the man's corpse began to float down to the abyss I could see that he was hollow on the inside.
 
  The creature propelled its flippers with great speed, its jaws opening as it got closer to me. I thought I was done for. It passed by me and instead snatched one of the whale watchers that had been flung overboard along with me and missed the other. Have you ever heard someone scream bloody murder underwater? It's like someone's voice is being held back by an unknown presence. No sound could be made that wasn't muffled and bubbly. 
 
@@ -112,7 +112,7 @@ The creature poked its head from the water. Its mouth hung open like a moray eel
 
 I woke up in a hospital room two days later. My leg had to be amputated due to massive tissue damage. I looked over to see my father sitting next to me. His eyes opened so wide that I thought they were gonna pop out of his socket. He hugged me as he became a crying mess.
 
-He had told me that he had gotten a call about what happened, except a few details were left out, namely the sea monster. He was told that we had hit a coral reef and after I fell overboard was attacked by a shark along with some of the group. My dad knows my fear of the ocean and I later found out when he learned that my mother forced me to go. He had raised his hand against for the first time in all his years of knowing her.
+He had told me that he had gotten a call about what happened, except a few details were left out, namely the sea monster. He was told that we had hit a coral reef and after I fell overboard was attacked by a shark along with some of the group. My dad knows my fear of the ocean and I later found out when he learned that my mother forced me to go he had raised his hand against her for the first time in all his years of knowing her.
 
 I cut ties with my mother after I was discharged from the hospital. Actually I didn't even let her see me why I was recovering. I live with my dad now, he actually cares enough about me. The last thing I heard about my mother is that she was emotionally distant, that could happen if you lost your love to some sea creature and your son never wanted to see you again all within a few days of each other.
 
