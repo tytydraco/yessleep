@@ -405,6 +405,6 @@ Updated notes:
 10. The cameras within the loop only show the loop's reality. Not the outside world.
 11. Stick to a routine. Acting unpredictably makes the loop chaotic.
 
-PART 2: [https://www.reddit.com/r/TalesFromTheCreeps/comments/1u4dgal/i\_work\_overnight\_security\_at\_a\_mall\_the/](https://www.reddit.com/r/TalesFromTheCreeps/comments/1u4dgal/i_work_overnight_security_at_a_mall_the/)
+[Part 2](https://www.reddit.com/r/TalesFromTheCreeps/comments/1u4dgal/i_work_overnight_security_at_a_mall_the/)
 
-PART 3: [I work overnight security at a mall. The escalators keep remembering me wrong - Part 3 : r/TalesFromTheCreeps](https://www.reddit.com/r/TalesFromTheCreeps/comments/1u57efg/i_work_overnight_security_at_a_mall_the/)
+[Part 3](https://www.reddit.com/r/TalesFromTheCreeps/comments/1u57efg/i_work_overnight_security_at_a_mall_the/)
