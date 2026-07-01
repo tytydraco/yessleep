@@ -1,385 +1,61 @@
-My mother was a lonely woman.
+It has been precisely 42 days since I have seen another human being. I just woke up one day, and since I live alone, I didn’t notice immediately. It’s funny that scientists say that people need other people to stay alive and sane, but I have never felt that way. I’ve never felt lonely, in fact, when I was with people, I felt I was forcing myself to conform to what they like. Their preferred version of me. I used to have a wife, we divorced 3 years ago. She said that I wasn’t the same guy she married. But I’m going a little off track. I’ve decided to start this journal in the event this journal gets into the hands of literally anyone else. Right, I should probably explain more about what's going on.
 
-She wasn’t perpetually sad. She didn’t drag around the house in the same pajamas for days on end, I didn’t see any tears day-to-day.
+42 days ago, I woke up like any other day, got ready and set out to go to my job as a lawyer. As I left my house, the streets were quiet. I didn’t figure anything was wrong, there weren’t any other signs to point to it. And I don’t really live in that big of a city, so again, I brushed it off. As I arrived at work though, that’s when I sensed something was off. The building was locked and all of the lights were off. I called my boss to see if I had missed something, I checked the day to make sure it wasn’t a holiday and we were closed. But I came up empty handed on everything. I had just then realized that the staff parking lot was also empty, and no one else was next to me asking what the hell was going on. I started to get a little uneasy, but maybe it was- well honestly I don't remember what I was thinking, but I was trying to rationalize it. I checked my watch and it read 10:30am. 10:30 in the morning and it was dead silent, everywhere.
 
-But sometimes at night I could hear her crying in her room.
+A high school was just a couple blocks away so I had jogged over, my heart shuddered as I noticed that the school was completely inert. No kids smoking outside instead of learning, and no teachers telling them to get back in or they’re expelled. *Clap*. I had heard a clap that echoed through the empty streets, and I swung behind me to where the sound had originated. *Clap*. Standing down the block was what looked to be a human, wearing a suit. I was relieved and called out: “Hey! Do you know where everyone is?”. *Clap.* “Is that a no?” *Clap.* I noticed that it was starting to walk towards me, and as it did, my stomach knotted into a pretzel. The “human” was at least 8 feet tall, and the hands were MASSIVE, and it looked as if the nails were neglected and grew into claws. The head was more oblong than normal. As it finally hit me what I was looking at wasn’t a human, or at least not anymore, I ran. I ran so far so fast I felt like a track star, I felt like the wind, as if my atoms had bonded to it and it carried me away effortlessly. And then I was right back where I was.
 
-I could hear her whispering pleas to God, asking for a man.
+Because I hadn’t gone anywhere. My feet were glued to the cement sidewalk in complete terror. *Clap*. I tried to scream for help but nothing but a wimpy gust of air came out. *Clap.* I kept trying to desperately move, but the stupid fucking thing kept clapping. *Clap.* As my fear began to subside and my adrenaline kicked in, I realized I could move again and I immediately ran for my life. This time I got farther. By 3 steps. As I ran those 3 steps, I looked back to see my assailant closer, only about 10 feet now. I have tried and failed to describe what it looks like multiple times because it was so hideous and ungodly that it was near impossible to put it into words. While I was trying to stare at the creature in hopes I would suddenly get laser eyes and kill it, I failed to notice the curb that dipped onto the street. I looked back to get a face full of concrete. My nose had started to weep uncontrollably, it had leaked down into my mouth and the harsh taste of metallic blood assaulted my tounge.. The pain was more than I thought it was going to be. I had never been in a fight or really ever been hurt like that before, but thanks to my primal burst of energy, I was ready to get out of here. *Clap*. I look back in the direction of the noise helplessly on the ground like a turtle on its back, all I see are pants and fine dress shoes.
 
-When she was sad, she worked in our garden a lot. We had fresh flowers, vegetables, even pumpkins sometimes.
+*Clap.* I craned my neck all the way up to look at its face. The best way I could describe it was that it looked like the head of a fly with teeth instead of eyes, rows upon rows of jagged and yellowed teeth that looked like they could slice boulders effortlessly. *Clap*. It clapped above me, and took a step closer. I scrambled to my feet and managed to barely avoid a swipe that luckily only tore my suit. As I ran, I noticed I was crying. But I had no time to focus on my feelings because they were interrupted by a sound that haunts me. *Clap.* I looked behind me as I was sprinting, only taking glances to avoid my previous blunder. As I glanced back, it was sprinting. I turned on the afterburners and started to take various turns and alleys to try and lose it. It seemed that I was faster than it while it was sprinting even without giving it my all. But the fact that it was sprinting now and not earlier means it was toying with me. That's all for today, I’m tired and I hear one outside.
 
-I would help her too, and I had asked her why she liked to garden. She said it was therapeutic, like she could get in the dirt and bury all her problems and bad feelings away. Then they become something beautiful.
+***Day 43.***    
+Back to how all of this started. After I managed to lose the creature, which I’m still struggling to find a proper name for, I made my way to multiple houses and tried banging on the doors and ringing doorbells, eager for human contact. The first time that I’ve felt that way for years. When nobody answered, I decided to walk to the police station. I took caution with every step, constantly checking behind myself and around corners. One time when I peeked down an alley, I thought I felt something peeking back, but from behind me. I don’t ignore gut feelings, so I decided to pick up my pace. As I made it to the station, I was in an all too familiar situation. Trying to open a locked door to a building with all of the lights off. Was I really alone? I began to tear up again, but then I realized. I don’t have anyone that I cared for. And nobody cared for me. To my boss, I was just another cog to keep things going. To my clients, I was a slimy lawyer that could get anyone out of anything, no matter how heinous. Nobody looked up to me, and I looked up to nobody. My wife left me, my parents died years ago, and I never had any kids. I had nothing and now there is nothing. So had anything really changed for me? 
 
-“It’s good for the soul.”, she would say with a sad smile.
+The ultimate conclusion that I’ve come to later was no, but in that moment my thoughts were scattered by a clap. I didn’t see the creature but I decided not to stick around. I had made my way back to my house, but as I reached into my pockets for the keys, I grasped at nothing. I punched my door in anger, ran my fingers through my hair and slid down against my door, starting to get overwhelmed with anger and hopelessness. I figure they must’ve fallen out when I fell. I didn’t want to break in because I wanted an entire house that was lockable and fortifiable. So, I found a house that had a ‘for-sale’ sign, and the house looked brand new. I assumed it was vacant and it looked like a good place to settle for a bit. The door was unlocked so I let myself in.
 
-My dad wasn’t in the picture from even before I was born, and I think Mom was worried about me not having a strong male figure in my life. That it would stunt my emotional growth, or cause me to have issues later on in relationships.
+ I was so relieved to be off the streets that I momentarily started to go back into my thoughts. But I snapped out of it, and checked the entire house for a presence of any kind. Animal, human, creature, anything. I found nothing and decided to lock all of the doors and windows. All of the furniture was still here and the electricity worked. I made sure to close all of the curtains and hang blankets with nails wherever you could possibly see inside or out. I planned on camping out here until… rescue? I don’t really know what I was waiting for, but I waited. Days passed, I learned to scavenge, go to the store and take what I need. I learned- or at least think I learned how the creatures work. Yes, there are multiple. They don’t seem to travel in packs, but they live together and make ‘hubs’ for themselves in some houses to either trade food or multiply. I haven’t been brave enough to wander into one. I never noticed if they have eyes or not, so I don’t know how they see. I thought that it was echolocation and they clapped to make noise similar to how bats squeak, but this theory isn't proven to be true or false. Some of them don’t clap and still seem to know what they’re doing. Maybe it’s them talking to other ones? They don’t like loud noises.
 
-My mom was pretty too, especially when I was younger. I would see the other moms give her a narrow stare when she came to get me from school, and how the dads would offer to come over to “fix” anything at the house we needed.
+I had gotten cornered in a grocery store once and one of my alarms on my phone went off. It’s on max volume, I’m a heavy sleeper so I need it to wake up. The noise didn’t seem to hurt the creature, but scared it away. I still have yet to try and physically harm one. I live in Saskatchewan, Canada, so guns aren’t readily available in every home. There are a couple gun shops, but they’re at least a 2 hour walk across town and I’m too scared to be out that long. The house has knives and bats, but I never want to be close enough to one so that I can use them. Sometimes they seem to notice me but move on, other times they seem to want to utterly decimate me. I’m not entirely sure what causes these strange behaviors. They get close to the house, and they’ll knock on the door and windows. They never break them or even attempt to. I don’t know if they know I’m in here and they’re trying to scare me or what, but I get scared shitless all of the time. I typically just wait and they’ll go away on their own. You’re pretty much caught up to where I am currently, so on that note I’m going to eat canned tomato soup and go to bed.
 
-My mom would always smile politely and say no thank you, but that didn’t stop the moms from their jealousy.
+3:46 am - One of them is watching me.
 
-I knew she would go on dates. She would tell me when she would. She was always happy for a while after the date, and then one day she would be sad again. When I would ask about it, she would just say the same thing.
+***Day 44.***  
+ *7:24 am* \- I scribbled that quickly after I made the mistake of looking out the window after I went to the washroom. As I peeked out, I could make out one of them under the streetlight. I don’t know if they have eyes but I knew it was staring at me. I did not go back to bed after that. I was watching the front door like a hawk. So if they didn’t know I was here, they do now. I’ve decided I need to find another house to stay in, this one isn’t safe anymore. I found some bags under the sink, I’ll shove my rations in there and then get the hell out of this house.
 
-“Sometimes things don’t work out, but we all deserve love. I promise I won’t ever give up on love.”
+***Day 44.***  
+*11:20 am* \- They knew. They knew all along that I was in there. As I left, 3 of them decided to try and ambush me. I had my weapon ready. I had my phone in hand, with a speaker strapped to my hip, and blasted music. The loud noise seemed to scare them again, well, except one. One of them got angry instead of scared, and swiped at me. He got the speaker and it snapped off my body. I ran as fast as I could, I glanced back again and the creature was thrashing the speaker to bits as it let out one last sad, muted note. I made it about 3 kilometers, turning unpredictably throughout the city layout. I found a house to settle on, the door was locked but after doing some exceptional sleuth work, which involved looking under the welcome mat, I found a spare key. I ran in, slammed the door behind me and breathed a sigh of relief. I quickly blocked out all of the windows again and checked for electricity, to my utter dismay, it seemed that the power was out. Which meant no water from the tap either, and if by some miracle there was, the treatment plants probably went to shit already. I have bigger problems. As I’m writing this, I’m hearing noises.
 
-I would wish that she could meet a nice guy who maybe worked at a toy store, or an ice cream shop. Then they could get married and I would make out like a bandit. But as the years went on, no new guy seemed to stick around.
+I forgot to check the basement. 
 
-When I was about 8, the crying at night stopped again.
+***Day 45.***  
+*12:02 pm -* I didn’t even bother checking what it was, I just scrambled to board it up, and I swear that something was pushing back against me when I pushed the couch in front of the door. I quickly swept the rest of the house. I can’t believe I made such a huge mistake. Never again will I mess up, it may cost me my life next time. It’s later in the day now, and I think the thing in the basement may not be a creature. I think I heard a whimper of sorts, but I can’t be sure. Because if I’m wrong, I’m really wrong.
 
-She had been on a date the night before, and I had a sitter from the neighborhood watching me. When I woke up the next morning, mom was smiling and humming in the kitchen.
+*10:28 pm* \- Whatever is in the basement sounds like a dog. I’m going to bed, it doesn’t seem to stop whimpering or scratching, it must really want out.
 
-“Are you making pancakes?”, I asked excitedly. 
+***Day 46.***  
+ *10:42 am -* I was thinking while I slept, and I kind’ve relate to whatever is in my basement right now. Wanting out, that is. My wife always criticized me for “not being the man she married”. We were married for 4 years, and I was the happiest I’ve ever been. She liked to live fast, never really stopping or taking days off. I would always tell her that I needed a day to relax, and she would ask me why. Why? Why do I have to give you an answer? Is saying “I need to relax” not enough? I found myself making excuses just so I could be myself for a little while. Our relationship ended when she decided to sleep with another man. She said he reminded her of how I used to be. I divorced her right there and then. That’s what I kind’ve enjoy about all of this, being alone. It bothered me at first, but now I can just be myself and not have to give excuses about why I need to relax. I really needed to expel this somewhere, and I don’t have anyone to tell. Anyways, I need to eat lunch.
 
-When she turned to me, she looked like she was glowing from the inside out.
+*2:30 pm -* It’s not a dog. 
 
-“Yes I am, do you want chocolate chips?”, she asked me, pouring a spoonful of batter onto the hot skillet.
+I was rambling to myself, pretty much yelling about the stuff from the previous entry. I heard my echo. The house isn’t empty enough to have an echo. I had walked past the basement door, searching for myself. I kept saying “Hello?” to find the source, and sure enough, walking past the basement door, I greeted myself right back. It was trying to get me to open the door. I know I just got here, but after reading what I’m writing, I’m out of here.
 
-“Yes!”, I cheered, pulling out my chair at our kitchen table.
+***Day 47.***  
+ I found a new place for now, I found some newly built homes and one of the windows wasn’t locked. as I was running away, again, still cautious around corners, I heard a wail in the distance. Before all of this, this part of the city had been known for violence and other crime activity. This made my senses dial up to 120%, as I walked past all of the houses with smashed windows and graffiti all over them. With how long I have been alone, it feels like I’m looking at ancient scripture. Then, I heard a clap. I realized I was running in the direction of the noises. As I walked by a house, *Clap.*  A woman would cry out, “Leave my child alone!” *Clap.* The child would beg for help. *Clap.* Instinctively, I ran to the door and put my hand on the handle, and just as I had started to turn the handle to open the door, I stopped dead in my tracks. I thought about the “dog”, and “myself”. And then I also remembered how I said I wouldn’t make another mistake again. So I didn’t. I slowly took my hand off the door handle, and started to walk away. *Clap.* Crying. *Clap.* Silence. *Clap.* Silence. I couldn’t risk the fact that there was a chance it wasn’t human.
 
-When we were eating, I asked her if her date was fun.
+***Day 48.***  
+I haven’t been able to stop thinking about the child and the woman, but I think I made the right decision by walking away. This place is fine, I made sure to check it this time and everything is as best as it can be. With no power, life is a little harder, but manageable. I got a portable stove and a pot. I can heat my soups or boil unsafe water to drink. The supermarket near me is no longer safe, I think they’re turning it into a massive hub. On one of my runs, I nearly got caught when I walked in. There were at least 5 of them dragging in what I can only imagine to be food? Cow corpses, stray dogs, racoons, foxes, in the giant mess I thought I saw a human arm but I’m not sure. If they aren’t eating it, I don’t know what else they could be using it for. The entire place reeked of rotting flesh and mold. I have a couple other stores that I can go to for now, and should last me a couple weeks. I found a radio downstairs. I'm unsure if any tunes would be playing anymore, but it's entertainment. I think I’m starting to get lonely, I find myself thinking about my wife more often now. I wonder what happened to her, or on a more broad scale, what happened to everyone? I hadn’t really stopped to think about it until now, because I was living in my own little paradise where I could be unbothered. I’m starting to think maybe those scientists that I made fun of were right all along.
 
-She took a small sip of her coffee, and smiled into the mug.
+***Day 49.***  
+There may be other people out there. I got someone through the radio, multiple people. They sounded clear as day. I’m not sure whether or not whatever that's on the other end is human, but I don’t think the creatures would know how to use a radio and I’m starting to get desperate. I’m hearing and seeing things and since I live in this fucked up nightmare, I don’t know if they’re real or not. I need other people. They are hiding out in the Moose Jaw tunnels, about a 2 day walk or a 12 hour bike ride from Saskatoon. I’m thinking about the child and the woman again, I was so quick to give up on them but now I’m about to go see “people” in Moose Jaw? Desperation is a bitch I guess. All I know is that if I go, I might die, if I stay, I’ll go insane and then probably die. I’m still thinking about my wife, is she still alive? Did she get ‘taken’ by a creature? It drives me slightly mad to think about it, so I’m not going too. I need to focus on making it to Moose Jaw in one piece.
 
-“It was so fun, we talked all about you. He was also a gentleman and made sure I made it home safe. That’s very important.”, she responded, stars dancing in her eyes.
+***4:57pm -***  About an hour ago, I was out on the highway to Moose Jaw, just peddling away. And I glanced behind me to see a creature was following me. He didn’t seem aggressive at first so I shrugged it off, but peddled just a little faster. After about 10 minutes, I looked behind me again only to see that the distance between me and the creature hadn’t changed, if anything, it got closer. Again, I started to peddle a little harder. And just as I thought I was going fast enough to evade the creature entirely, I heard what could have been my incoming demise. It sounded like an angry bull, both in its strides and the noises it made. I didn’t even have to turn my head around fully to see that the creature was now on all fours and giving everything it had to try and get me. At this point my legs were exhausted, and I couldn’t afford to peddle any faster, or any longer. I was going through a lightly forested area, and this is where I put my plan into action. I slammed on the brakes, being careful not to go flying over the handlebars. As the creature whooshed past me like the flash himself, I quickly got off the bike and ran to the woods for cover. Right as I got around a tree, I heard it. *Clap.* Against every wish that my body had, my mind made me peek around the tree.
 
-“Is he nice? Can I meet him? Does he own a toy store? Does he have a dog? I want a dog! Does he-“
+The creature had its back to me, and was staring at the lone bike in the middle of the road. Now typically in scenarios like this, the person hiding makes a noise and alerts the creature. Except, I didn’t. I didn’t make a noise, I didn’t blink, and I don’t think I was even breathing. Even then, even though the world was silent, the creature seemed to hear me. Its head shot to me, the neck movement so disgusting I could have puked. I could see the bones in its neck break just for it to look at me. It seemed unfazed at its broken neck, and was now set on me. Time seemed to slow as both me and the creature took off at the same time. It was a track race that I did not want to lose. I took random turns and I even tried to fake out the creature a couple times. And just as my legs were about to give out, I had found a hollow log to dive into and pray the creature wouldn’t find me. Again, the world fell silent, all of the birds stopped chirping, the wind stopped blowing, and I wouldn’t doubt it if the world stopped turning. As I am completely petrified with fear, I heard it about me. *Clap*. I closed my eyes and held my breath. *Clap.* I heard steps starting to circle the log. *Clap.* And right as my lungs couldn’t take the searing itch to inhale any longer, I heard footsteps rapidly dart away. I opened my mouth and took a sweet, rich, inhale of oxygen. I slowly peaked my head out, the creature had vanished, leaving massive footprints in the mud.
 
-“Woah, woah!”, my mom interrupted me laughing, “Maybe all that sugar was a bad idea! He is very nice, and I’m sure you can meet him soon.”
+***Day 50-51.***  
+I’m writing this as I’m laying in a wheat field. I’m roughly about 10km out of Moose Jaw. The bike ride here, I saw more of the creatures. They were more interested in eating the horses and cows that now roamed freely throughout the prairie. But I noticed something. The teeth that I described that covers their face? That’s not just covering their face, it’s their mouth. I saw one a little closer than I’d like, happily enjoying a cow. It was hideous, the head split into two, like a venus flytrap. A long, winding tongue came out and wrapped itself around the cow’s head. It then proceeded to eat almost the entirety of the cow's head in one bite. I shuddered when I realized that could’ve been me when I was laying on the street defenseless. But I carried on and peddled just a little faster.  For once in this entire endeavor, I’m hopeful. I’m hopeful that those people on the radio are real people, and I will finally be with something other than my thoughts and those things. I wish my wife was here. I wish I never left her, I wish she could write in this journal with me. This was one of the last things she gave me, a leather journal with our initials scribed into the front. She told me that maybe if I wrote down everything that I wouldn’t bottle it up anymore. I told her it was stupid and that I’m just fine how I am. Oh how wrong I was. I’m sorry, I’m so sorry.
 
-“How soon?”, I asked, eyes wide.
+***Day 52.***  
+They weren’t people. Or, they WERE people. What's left of them is strewn around town, they looked like they were turned into chew toys and thrown around for sport. None of them are recognizable as people, except one whose upper half was stuck in a tree, face solidified in terror. All of the blood is old, and the flesh is rotting. It was the creatures all along. I feel like all of my screws have been knocked loose and that every chance I had at survival just got flushed away by god. Maybe it was my calling to go to them, and I was fighting my fate. Maybe they’re keeping my wife for me, so I can see her again. I’m unsure if anyone will read this, but if you do, my only word of advice; Give yourself to them, it’s a better fate than being alone. I’ve decided I’m going to walk into a hub, and let myself relax, finally.
 
-She seemed to choose her words carefully.
-
-“I suppose whenever the time is right.”, she answered, passing the maple syrup to me.
-
-I was ecstatic. My mom looked so happy, and I thought that maybe if I met him, he would want to marry my mom and live with us!
-
-The crying at night stopped immediately, but was replaced with low voices talking. A man and a woman.
-
-I couldn’t hear what they were saying, but it sounded like the woman was upset.
-
-The next morning, I asked her who she was talking to the night before in her room.
-
-“Hmm?”, she asked, pouring her coffee from the pot.
-
-“I heard a man in your room, it sounded like you were mad.”, I clarified.
-
-She snorted and shook her head.
-
-“No honey, that’s my audiobook. My doctor said listening to them before going to sleep would help me relax. I even listen to them when I take baths sometimes, they’re very soothing. Remember when we went to check them out at the library together?”, she asked me.
-
-I did remember, she got a few different sets and they were in hard cases. 
-
-“Oh, okay. Did they help?”, I asked her.
-
-She nodded.
-
-“I think so, I’ve never slept better.”, she said with a smile.
-
-The next few nights, the voices in her room continued, but they seemed quieter. Like she turned the volume lower so she wouldn’t disturb me again.
-
-Several weeks went by, and every morning she would glow. She would make the best breakfasts, every night was movie night, and I knew it was because of her new boyfriend.
-
-As far as I knew though, she hadn’t seen him again in person besides their first date.
-
-“Do you talk on the phone with him?”, I asked her.
-
-She laughed softly.
-
-“Yes, we talk frequently, why do you ask?”, she responded, turning towards me.
-
-“You haven’t gone out at night again, the babysitter hasn’t come back.”, I explained.
-
-“Ahhhh, I see. I do see him when you’re at school. We like to eat lunch together, which is easy for me since I work from home.”, she explained, smiling warmly at me.
-
-“When can I meet him?”, I asked her.
-
-“Soon, baby. Hopefully soon. I know he will just love you.”, she told me, pulling me into a hug.
-
-“Can I know his name?”, I said into her shirt.
-
-“Tim, his name is Tim.”, she responded.
-
-I couldn’t believe it. I was getting everything I never thought I would have. I began to dream of family road trips, matching Halloween costumes, Christmas morning. Even though I didn’t have a clear vision of his face yet, I knew he would be handsome and kind. Exactly what my mom needed.
-
-I just had to be patient.
-
-A few weeks later, mom let me pick a scary movie to watch for our movie night. She warned me that it would keep me up all night, but I assured her I wasn’t scared. She reluctantly sighed and put it on, settling into the couch with a glass of red wine.
-
-In the opening scene, there was a scary man in the house, and the teenage girl screamed and just backed up into a corner.
-
-“Why doesn’t she call the police?”, I asked my mom.
-
-My mom snorted.
-
-“In real life she would, but this is a movie so it’s all pretend.”, she explained.
-
-30 minutes later, I was holding a pillow in front of my face, shaking at the terrifying man that filled our screen.
-
-“Okay, Mom you were right. I’m scared..”, I whimpered. When I turned towards her, I saw she was fast asleep on the couch beside me, snoring softly. Her now empty wine glass still in her hand.
-
-I flicked the tv off, cloaking the room in darkness, before covering her with a blanket and moving the glass to the coffee table.
-
-“Goodnight, I love you.”, I whispered, kissing her cheek.
-
-I went to my room and tucked myself into my bed, nightlight on its brightest setting, but I was restless.
-
-I tossed and turned, imagining my jacket hanging over my chair as a monster crouched low.
-
-The curtains became a billowing ghost.
-
-The hum from the heater sounded like a growl.
-
-I sat up, sweating.
-
-I put my hands over my eyes, and sighed deeply.
-
-Then I remembered my mother’s audiobooks, and how the dull conversations did sound soothing.
-
-I was sure she wouldn’t mind if I borrowed some for the night, since she was sleeping so soundly in the living room.
-
-I leapt from my bed, and walked carefully down the hall to her room, quietly clicking the door open so I wouldn’t wake her up.
-
-Her room had a soft glow, as she left her lamp on next to the bed.
-
-I reached her nightstand, looking for the small tape player she thrifted a few years ago, but it was nowhere to be seen.
-
-“Where is it..”, I whispered, gently moving books and jewelry boxes around her room looking for the black box.
-
-“Maybe she left it in the bathroom..?”, I pondered out loud, opening the door to the wide space and flicking on the light.
-
-And I wasn’t prepared for what I saw.
-
-Some nights, it’s all I can see.
-
-A grown man stood in the shower wearing a pair of what seemed to be basketball shorts, with chains around his ankles and wrists. Bruises crowded his face and visible body, and deep cuts ranging from fresh to mostly healed.
-
-When I flicked the light on, he jolted, and his gaze snapped up to me. His eyes were filled with hate, venom. To this day, no one has ever looked at me with such disdain.
-
-I was waiting for him to scream, or yell curse words at me, but I only heard muffled sounds.
-
-I realized his mouth was duct taped.
-
-I gasped, stumbling backwards into the towel rack.
-
-“What are you doing in my mom’s bathroom? Who are you?”, I shrieked.
-
-His eyes filled with panic, and he seemed like he was trying to speak to me but I couldn’t make out any words.
-
-I could feel my heart racing like I was in my own scary movie, and then I remembered what my mom said.
-
-“I’m calling the police!”, I yelled, running to my mom’s phone plugged in on her nightstand.
-
-I picked up the phone and quickly dialed 9-1-1.
-
-“911, what is your emergency?”
-
-“There’s a man in my house… He looks scary, and I don’t know him.”
-
-“Okay sweetie, are you home alone?”, the voice asked, and I heard typing in the background.
-
-“No, my mom is on the couch sleeping. We were watching a scary movie but she had wine and she said that makes her sleep more.”, I responded.
-
-“Okay, police are on the way to you, how old are you?”, the lady asked me.
-
-“I’m 8..”, I cried softly, I could hear the chains rattling against the glass shower door in the bathroom.
-
-“Sweetie don’t cry, I’m going to stay with you, can you find somewhere to hide? Stay on the phone with m-“
-
-The cell phone was snatched out of my hands, and in a blur I saw it smash into the wall.
-
-I covered my face with my hands, waiting for the scary man from the shower to grab me and do the same.
-
-“What are you doing, my love?”, a familiar voice asked me.
-
-I slowly moved my hands, and my mother stood before me, her head tilted slightly waiting for my answer.
-
-“Mommy.. There’s a man in your bathroom, he looks scary like the guy in the movie. I didn’t want him to hurt you!”, I began to openly cry, big sobs that shook my small shoulders.
-
-“Oh, my baby..”, my mom cooed, wrapping both arms around me.
-
-“Is the man gone? I called the police.. Like you said..”, I started to explain, and through our embrace I felt her stiffen.
-
-“Did you tell them where we lived?”, she asked calmly.
-
-I shook my head into her pajamas, I sensed her relax.
-
-“What did you tell them?”, she asked.
-
-“I told them there was a scary man in our house, and you fell asleep when we were watching our scary movie..”, I told her.
-
-She laughed softly, kissing my head.
-
-“That’s perfect, they will just think it’s a prank or a sugar-high kid. Good job, my baby.”, she said into my hair.
-
-“What do you mean, Mom? There is a man in your shower, and he’s scary!”, I cried.
-
-“Oh he isn’t scary.. You just weren’t properly introduced…”, she said, softly leading me to back to the bathroom. The sounds of rattling chains growing louder as we moved closer.
-
-When we got back to the bathroom, my mom left me by the door and stepped towards the shower. When her gaze fell on the man, her eyes lit up in a dreamlike way.
-
-“Honey… Meet Tim, he’s going to be your new Daddy.”, she said with a joyful expression.
-
-“T-Tim? Your boyfriend?”, I asked.
-
-The man’s face contorted in pain as my mom took a closer step to him, she reached up her hand and softly stroked his face.
-
-“Of course, we’ve been seeing each other for months now. We eat lunch together every day, and we have amazing conversations, he’s a great listener. I wasn’t expecting you to meet like this, but he’s lasted so much longer than the others. I knew he was a keeper.”, she smiles fondly at him, and looks at me.
-
-Others? Were there other men in my house?
-
-“Come say hello..”, she said sweetly.
-
-I shook my head, and took a step back.
-
-“N-No. Mom, I’m scared.”, I whimpered.
-
-“Oh, don’t be. We are going to be a family now. The three of us, just like you always wanted, my baby.”, she told me, reaching out her hand.
-
-I still didn’t move.
-
-The man’s eyes were locked on me, a pleading expression filled his face.
-
-Her face grew a puzzled expression as she crossed the room to me, and knelt down to look me in the eye.
-
-“I don’t understand, this is what you wanted. You should be happy.”, she said flatly, grabbing my arm and holding it a little too tight.
-
-“Mom, stop. That hurts.”, I whimpered.
-
-Her grip didn’t stop as she looked at me expectantly.
-
-“Mom…”, I whimpered.
-
-Just then, a loud banging sounded across the house, and the doorbell started to ring.
-
-All three of our heads snapped toward the sound.
-
-“I thought you didn’t tell them where we lived…”, my mother said coldly, turning back to look at me.
-
-Her grip grew tighter and tighter, I saw my arm turn white under her grasp.
-
-“Mommy! Stop! I didn’t tell them!!”, I cried out.
-
-“POLICE, OPEN UP!”, a booming voice sounded through the walls.
-
-The loud voice distracted my mother long enough for me to bite down on her hand, which finally released me as I ran to the front door.
-
-My mom screamed in pain and began to chase me.
-
-“DO NOT OPEN THAT DOOR!”, she shrieked.
-
-Just as we reached the foyer, the door bursted open. Two police officers stormed in but stopped when they saw me and my mom.
-
-“We got a call about an intruder, and a child potentially in danger.”, the male cop stated.
-
-“Oh..”, my mom laughed weakly, “Just an overactive imagination, I’m sorry for the trouble. It’s my fault for agreeing to a scary movie!”.
-
-She tried to laugh loudly, but it sounded flat.
-
-The male cop’s expression didn’t change.
-
-“Why did we get a report about a man in your house then?”, he asked my mom.
-
-“Well.. My boyfriend is over, and I think that’s what it is.. They hadn’t met yet, so, a little embarrassing for me.. But not a stranger!”, she clarified, wrapping her arms around herself tightly.
-
-“Uh-huh.. Well let me clear this up and speak to your boyfriend, and we will be on our way.”, he told her.
-
-“No! I mean, no, he’s in the shower. Probably won’t be out for a while, but you have my word.”, she stammered, wiping her hands on her pants.
-
-“We can wait, it’s no trouble.”, the cop challenged.
-
-The other cop was a female, and she knelt down to me with a nice smile.
-
-“Hey kiddo, you said the man was scary, did you see the scary man on tv? Or was he in your house?”, she asked me.
-
-“He’s in our house..”, I whispered.
-
-“Mhm, and what about him is scary?”, she asked gently.
-
-“He had bruises and scrapes all over him, and his mouth has tape over it.. Mom is right though, she said he’s her boyfriend..”, I answered, looking at my feet.
-
-The room was silent for a moment.
-
-The first one to talk was my mom, who laughed.
-
-“Oh honey! Oh, this is a misunderstanding. The man has a bruise and it’s now a huge deal. I promise he’s fine!”, she said quickly, her voice growing in volume.
-
-“Be that as it may, we are still going to talk to him.. This way?”, the female officer asked, gesturing towards the hallway.
-
-It was silent again for a beat, before my mom exploded.
-
-She began to shriek, and lunged at the female officer. She reached her hands up, trying to scratch her face.
-
-She knocked the female officer over and climbed on top of her screaming.
-
-“You can’t have him! You can’t take him from me!”, she shrieked, trying to put her hands around the officer’s neck while the male officer was trying to pull her off by her shoulders.
-
-As I watched my mom get slammed to the ground and handcuffed, I felt my heart break. This wasn’t my mom, she was doing so good lately, we were going to be a happy family! She promised!
-
-More police officers showed up, and another female cop sat next to me while they went through our house.
-
-A few minutes after they arrived, the man from the shower was wheeled out on a gurney.
-
-We locked eyes for a second, and a single tear just ran down his face.
-
-“We called your aunt, she’s coming to get you..”, the officer told me softly.
-
-I nodded, but then remembered.
-
-“What about the others?”, I asked.
-
-The officer looked at me with confusion.
-
-“What do you mean, sweetheart?”, she asked me.
-
-“Mom said he did better than the others, does that mean there are other men in my house?”, I asked.
-
-Her face turned white, and she glanced up to a passing officer.
-
-“Give me one second, I’ll be right back.”, she said gently, rushing to say something quietly to the first officer who came into the house.
-
-He listened to her before his eyes widened and he looked my way, walking over quickly.
-
-“Hey kiddo, how are you doing?”, he asked.
-
-I shrugged.
-
-“Yeah, I bet. So what did your mom mean by others? Did you ever see any other men in your house?”, I he asked.
-
-I shook my head.
-
-“No. But she said Tim was here for months, and she’s been happy for months. So maybe the others were her other boyfriends.”, I said softly.
-
-The officer nodded.
-
-“Was your mom happy a lot?”, he asked me.
-
-“Um.. Sometimes. Sometimes she would be happy for a while, and then sad again. And then happy for a while, then sad again.”, I explained,
-
-“And what did she do when she was sad?”, he asked me.
-
-“Oh! She said gardening helped soothe her soul because it felt like she could bury her problems.”, I responded, smiling sadly.
-
-The female officer from before quickly walked away, I heard her asking for people to search the backyard.
-
-The male officer just stared at me, his eyes glassy.
-
-The expression made my stomach hurt.
-
-“Is my mom a bad person?”, I asked him.
-
-He didn’t answer for a moment, and then he finally responded.
-
-“I don’t know, but I know she loves you a lot. Before she left in the car she made me promise I would look after you.”, he explained.
-
-The tears came again, and the officer wrapped me in a tight hug.
-
-And later, when the bodies were dug up from the yard, and the trials began and went for a long time.. I was starting to realize I would never see my mother again.
-
-But I heard my aunt whispering into the phone about the last day of my mom’s trial.
-
-As she was found guilty of 6 murders, they asked her why she did it, they asked her to give a reason to the family’s affected for closure.
-
-Apparently she nodded, turned towards the courtroom, and said in a clear voice.
-
-“Because we all deserve love, and I promised to never give up.”
+\-Kurt.
