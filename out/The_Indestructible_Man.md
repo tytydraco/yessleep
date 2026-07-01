@@ -1,0 +1,30 @@
+  
+
+
+You all probably know what a superhero is. The person who saves the day or the vigilante that stops crime in the street. Those are the tales you hear in comics and movies. However within reality that's not how it goes.
+
+I am a superhuman. The Indestructible man!. That was my roadshow name. I don’t know when I was born or where I was born. I don’t even know my own personal name. But I will share my story. 
+
+I arrived on earth in 1889. I landed on a chunk of farmland in Idaho or at the time Idaho Territory. I was raised by these two older folks. Their names were Joann Brosne and Marshall Brosne, and they owned the nation famous Brosne Family Circus. It was a traveling circus that hit every major city in the country. This went all the way up until 1949 when their great grandson died of a heroin overdose. 
+
+People all over loved the circus. They had trapeze artists, Dwarf wrestling, sword jugglers, and even a full grown live tiger. However none of these acts came close to everyone's favorite. Me, The indestructible man. I got this name because I cannot be killed. Under any circumstance I cannot be killed. But I can feel the pain. Oh boy can I feel every bit of the pain. 
+
+Marshall found out that I couldn't be killed one hot July day. We were out working the farm. I was around ten years old and already developed my superhuman strength. Marshall was cleaning his shotgun and had the gun aimed at me. He was never safe with firearms. He hit the trigger on accident which flung a shotgun round straight into my chest. “OH MY GOD, NO!” Marshall yelled as I fell onto the ground. He rushed over to me to see what was wrong and found out that nothing was. I was completely fine. No blood, no wound, not even a singular bruise. 
+
+This was followed by Marshall trying to kill me in various ways being astonished at how I survived everything he threw at me. I still felt all the pain he inflicted. He once boiled water on a fire and flung it at me. I screamed and cried however no injury or death. He stabbed me with a sword he had procured at some point in time and it went straight through me and I did the same routine of screaming in agony. But once again no blood, injury, and no casket.
+
+I always thought I would join their circus at some point. Due to my strength ability but now Marshall just found the greatest thing since gold. So there I was ten years old being lugged around in a wagon with a tiger. They kept me in the same wagon as stripes. Stripes was the name I gave him. He only lasted a couple months after I joined. He took a swipe at Marshall once that he wasn't supposed to and in marshalls mind this told him that stripes was losing his ability to perform. So he shot him and me and my strength were the ones to carry him and dump him into a river. I cried in my room that night and not once ever resting my head on the pillow. 
+
+People loved us. The audiences were bigger and bigger each time just to see me. I was stabbed, shot, and burned. Hundreds of times. And I never died. The big grand finale at every show was one where they would hoist a thousand pound piano above me and drop it on me, like a cartoon character. People erupted in laughter as I stood there internalizing every second of the pain of having one ton dropped upon me. Marshall and Joann made a lot of money off of me and the other acts. We left the farm some time in the early 1890’s. Moved to a big house in upstate New York. They changed their Idaho civility quickly. They became snobby and rude to people who were not of any status. This made me mad, however I could never display it. Because Marshall found my weakness.
+
+Every superhero has a weakness because if they didn’t then there would be no fun in the stories. My weakness was heroin. Marshall kept some in a stash for when I would get physical or say the wrong thing to him. I was locked in a cellar for most of my life after we moved to the big fancy house. His great-grandson had gotten into the stash of heroin which was the only other time somebody died under my doing.
+
+Joanne hired a girl that could swallow swords to the circus. Her name was Katherine. She was beautiful. Slender frame, long, dark black hair and the rosiest most red lips you had ever seen. Her eyes were a piercing blue. We grew fond of each other. We began talking when I turned 18. She was slightly older than me when she got hired. Our talking turned into more than just two coworkers talking about work. We began to learn about each other. She said that she would open up a veterinarian clinic after she made money here. 
+
+One night after a long show in Pittsburgh we all settled in for the night. Marshall and Joanne rented a room from an inn while we slept in the wagon. Katherine and I had begun to get intimate that night. I don’t want to go into gruesome or far too sexual detail, however we got into a position in which Katherine wanted me to pull her hair back during the sex. She explained how she liked more rougher intimacy which i didn’t understand however i gave as she wanted. I wrapped her hair around my fist and yanked back. My strength was too much. I took her head clean off. Her body dropped onto the wooden floor as her head hung in my hand. Blood pooled at my knees and out of her neck. I cried, I cried in the same way I did for stripes. I buried her in a beautiful field that night. And I cleaned the wagon using water from a trough nearby. 
+
+Joanne and Marshall believed she ran away. I never told them what happened that night. I thought about Katherine a lot. I still do to this day think about that vet clinic she wanted to start. She loved horses and really all animals. The opportunity she never got because of me. I hate myself for it. I tried to kill myself once because of it. I did enough heroin to kill a village of people. But I just sat there. Cold, weak, nearly lifeless. 
+
+Because, I cannot die, However I can feel every single second of the pain.    
+
+  
