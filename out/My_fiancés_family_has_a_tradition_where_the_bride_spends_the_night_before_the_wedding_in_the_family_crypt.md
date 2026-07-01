@@ -1,0 +1,139 @@
+I thought it was cute at first. Like a hazing thing. Like when sororities make you sleep in the chapter house basement or whatever. I told my friends and they were like "that's so gothic" and "omg you're marrying into a Tim Burton movie" and I laughed because I was in love and love makes you stupid about red flags.
+
+His name is William. Not Bill. Not Will. William. That should have been the first sign. His family has money that doesn't make sense. Not new money with Teslas and Instagram. Old money. The kind that sits in stone and dirt and doesn't need to prove anything. They've lived on the same land since before the Revolutionary War. The house has a name. "Greyhaven." I thought that was romantic. I thought a lot of things were romantic that were actually warnings.
+
+His mother told me about the tradition at dinner three weeks before the wedding. She said it the way you'd say "we're having salmon." No weight. No drama. "The bride spends the night before the wedding in the family crypt. It's how the women are accepted into the bloodline."
+
+I laughed. I actually laughed. I thought she was joking. William put his hand on my thigh under the table and squeezed. Not hard. Just enough to let me know I shouldn't have laughed.
+
+"My mother did it," he said. "My grandmother. My great-grandmother. Every bride since 1823."
+
+"What happens in there?" I asked.
+
+His mother smiled. It was the first time I noticed her teeth were too small for her mouth. "You wait. And if the family accepts you, you walk out in the morning."
+
+"And if they don't?"
+
+Nobody answered.
+
+I should have left that night. I should have grabbed my keys and driven back to my apartment and blocked his number and told everyone I dodged a cult. But William looked at me with those eyes. Those soft brown eyes that made me feel like the only woman in the world. And I told myself it was just a weird rich people thing. Every family has traditions. Some families make you eat lutefisk. Some families make you sleep in a crypt.
+
+I was so fucking stupid.
+
+The week before the wedding I found the family Bible. It was in the library. The library that was bigger than my entire apartment. The door was supposed to be locked. William told me the library was off limits, family records, private, and I said okay and I meant it, but that night the door was open. Just a crack. Like someone had left it that way on purpose. I should have walked past it. I didn't.
+
+The Bible was open on a wooden stand. The pages were yellow and the ink was brown and the names were all women.
+
+Page after page of women's names. Two kinds of entries.
+
+The first kind: a name, a wedding date, and a single line through it. No second date. No child's name. Just crossed out. Dead in the crypt. Unworthy.
+
+The second kind: a name, a wedding date, a second date exactly nine months later, and below that a smaller name. A son's name. These women survived the crypt. They carried sons. And then they died. Every single one of them. The second date was always a death date. Childbirth. Complications. "Tragic accidents." The family had a lot of tragic accidents.
+
+I counted seventeen names before I stopped. Twelve crossed out. Five who carried sons. All dead within a year.
+
+At the bottom of the last page, in fresh ink, was my name. No line through it. No second date. No son's name. Just my name. Waiting.
+
+I asked William about it that night. He was brushing his teeth. He looked at me in the mirror and his mouth was full of foam and he said "that's just the family record. Everyone's in there."
+
+"Everyone who died a year after their wedding?"
+
+He spit. He rinsed. He turned around and put his hands on my shoulders and looked at me with those eyes. "Nobody dies, babe. They just become part of the family."
+
+I didn't sleep that night. I lay in bed next to him and listened to his breathing and tried to figure out if I was being paranoid or if I was being hunted. I still don't know which one it was. Maybe both.
+
+The rehearsal dinner was worse. His grandmother. This tiny woman in black lace who never spoke above a whisper and never looked at me directly. She touched my face at the end of the night. Her fingers were cold. Not old-person cold. Cold like she'd been holding ice. Cold like she'd been dead for an hour and just got up.
+
+"You have good bones," she said. "They'll keep."
+
+"What will keep?"
+
+She smiled. Her teeth were the same as his mother's. Too small. Like baby teeth in an adult mouth. "Everything, dear. Everything keeps."
+
+The crypt key was on my nightstand when I woke up the next morning. I had never seen it before. It was iron. Old iron. Black and heavy. And it was warm. Not room temperature. Warm. Like it had been sitting in someone's hand. Like it had a pulse.
+
+I picked it up and my whole arm went hot. Not burning. Just hot. Like the key was recognizing me. Like it had been waiting.
+
+William was already dressed. Suit. Tie. Hair perfect. "It's time," he said.
+
+"The wedding is tomorrow."
+
+"The crypt is tonight."
+
+They walked me down at sunset. The whole family. His mother. His grandmother. His father, who had never said more than ten words to me. His three brothers, who all had the same too-small teeth. They walked me through the garden and past the old oak tree and down a path I had never seen before, even though I had lived at Greyhaven for six months.
+
+The path was stone. Old stone. The stones had names carved into them. Women's names. The same names from the Bible. The crossed-out ones and the ones with sons. All of them. Every bride since 1823. I was walking on dead women and nobody had told me.
+
+The crypt was built into the side of a hill. Iron door. No handle on the inside. Above the door, carved into the stone: "SHE GIVES. SHE KEEPS. SHE BECOMES."
+
+William kissed my forehead. His lips were cold. "I'll see you at the altar."
+
+"William. What happens in there?"
+
+"The family decides."
+
+"What family?"
+
+He didn't answer. He just stepped back. His mother put the key in the lock. The door swung open. Darkness inside. Not regular darkness. Thick darkness. Darkness that moved.
+
+"One night," his mother said. "If you're worthy, you'll walk out."
+
+"And if I'm not?"
+
+She pushed me. Not hard. Just enough. I stumbled through the door and it closed behind me and the lock turned and I was alone.
+
+The candles lit themselves.
+
+I know how that sounds. I know you think I'm making this up. But they lit themselves. One by one. In a circle around the room. Twelve candles. And in the center of the circle was a stone slab. A table. An altar. And on the altar was a dress.
+
+Not my wedding dress. A different dress. White. Old. The fabric was yellowed and the lace was torn and there were stains on the bodice that looked like rust but I knew weren't rust.
+
+The walls were covered in names. Carved into the stone. The same names from the Bible. The same two kinds. Crossed out. Or with a son's name below. The ones who died in here. The ones who died later. All of them dead. Every single one.
+
+I understood then. The ritual had two outcomes. You were either unworthy and the crypt killed you, or you were worthy and you carried a son and died after. Either way, you ended up on this wall. The only question was how long you got.
+
+The candles flickered. Not wind. There was no wind. They flickered because something was moving through them. Something that had been waiting in the dark since 1823. Something that knew my name.
+
+It touched me.
+
+Not hands. Not fingers. Something that felt like smoke but had weight. It pressed against my chest. It slid up my throat. It was inside my mouth before I could scream. Inside my lungs. Inside my blood. I could feel it reading me. Tasting me. Deciding.
+
+And then it stopped.
+
+The candles went out. All of them. At once. The darkness was absolute. I couldn't see my own hands. I couldn't hear my own heartbeat. There was nothing but the dark and the thing in the dark and me.
+
+A voice. Not out loud. Inside my skull. Behind my eyes. A voice that sounded like William's grandmother and William's mother and William and something older than all of them. Something that had been waiting a very long time.
+
+"The others broke."
+
+I couldn't breathe.
+
+"You will not break. You will watch everything I do with your hands."
+
+I didn't understand at first. I thought it meant the ritual. I thought it meant I was strong enough to survive. I thought a lot of things before I felt it push deeper.
+
+I was wrong.
+
+The thing inside my blood didn't leave. It didn't pull back. It pushed deeper. It filled the spaces between my bones. It wrapped itself around my spine. It settled into my stomach like something making a nest.
+
+The candles came back. I was on the floor. I don't remember falling. My dress was torn at the shoulder. There were bruises on my arms. Fingerprints. But not human fingerprints. The fingers were too long. The grip was too wide.
+
+The dress on the altar was gone. In its place was a ring. Not my engagement ring. A different ring. Black iron. Like the key. Warm. Pulsing.
+
+I didn't touch it. I backed against the wall and I stayed there until the door opened.
+
+They came at dawn. William. His mother. The grandmother. The brothers. The father. They opened the door and they saw me alive.
+
+The grandmother smiled. It was the first real smile I had ever seen on her face. "She's worthy."
+
+William rushed to me. He pulled me to my feet. He wrapped his arms around me and I could feel his heart pounding through his chest. "You did it, babe. I knew you would."
+
+His mother nodded. Approving. Like I had passed a test. "Welcome to the family."
+
+Nobody looked at my eyes. Nobody asked what happened. Nobody noticed that the dress on the altar was gone and a black iron ring was sitting in its place. They were too busy being relieved. The ritual had worked. The bride had survived. The family would continue.
+
+I opened my mouth to tell them. To tell them about the voice. About the thing inside me. About the words it had said. But my mouth didn't move. My throat didn't open. The thing inside me was holding my voice like a hand over a mouth.
+
+So I smiled. I let William kiss me. I let his mother take my arm and walk me back to the house. I let them dress me in white and stand me at the altar and marry me to a man whose family had been killing women for two hundred years.
+
+And the whole time, the thing inside me was quiet. Waiting. Learning how to wear my skin.
