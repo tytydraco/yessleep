@@ -1,0 +1,480 @@
+„Daniel“, flüsterte meine Mutter aus dem Kleiderschrank. „Ich bitte dich nicht mehr, die Tür zu öffnen.“
+
+Die Klinke klickte erneut.
+
+„Ich bitte dich, mich rauszulassen.“
+
+Ich stand wie erstarrt mitten in meinem alten Zimmer, die Fotobox zu meinen Füßen, den Messingschlüssel so fest in der Faust, dass sich seine Zähne in meine Handfläche schnitten. Etwas bewegte sich unter dem Bett. Das Kind darunter hatte aufgehört zu weinen.
+
+Jetzt atmete es.
+
+Langsam. Schwach.
+
+Als wollte es meinen Atem nachahmen.
+
+Die Schranktür öffnete sich einen Spaltbreit.
+
+Warmes, gelbes Licht drang durch den Spalt, und irgendwie war das schlimmer als Dunkelheit.
+
+Hinter der Tür war nicht mein Kleiderschrank. Ich sah den Rand eines Krankenhausbetts, einen hellen Vorhang, ein Metalltablett mit einem Plastikbecher darauf. Ich roch Desinfektionsmittel, Lavendelseife und etwas darunter, das ich jahrelang versucht hatte zu vergessen.
+
+Krankheit.
+
+Die Hand meiner Mutter tauchte am Türrahmen auf. Dünne Finger. Haut wie Papier. Die kleine Narbe über ihrem Knöchel, die sie sich zugezogen hatte, als sie mit neun Jahren meinen Geburtstagskuchen backte.
+
+„Bitte“, flüsterte sie. „Ich bin müde.“ Ich machte einen Schritt auf sie zu. Etwas bewegte sich wieder unter dem Bett. Eine Hand glitt unter dem Bettrahmen hervor und berührte meinen Knöchel. Klein. Kalt. Eine Kinderhand. Ich blickte hinunter, bevor ich mich beherrschen konnte. Da war ein Gesicht unter dem Bett. Kein Monstergesicht. Das eines Jungen. Vielleicht sechs oder sieben Jahre alt. Seine Haut war grau, seine Lippen blau, und sein Haar klebte ihm mit schwarzem Wasser an der Stirn. Er sah mich mit so ängstlichen und menschlichen Augen an, dass ich für einen kurzen Moment vergaß, was er war.
+
+„Lass sie mich nicht sehen“, flüsterte er. Die Schranktür öffnete sich weiter. Meine Mutter stand jetzt da. Nicht die junge Version aus dem Diner. Nicht die fast perfekte Version hinter dem Glas. Das war sie aus dem Krankenhaus. Klein. Zerbrechlich. In ein dünnes blaues Kleid gehüllt. Ihr Haar begann in weichen, grauen Strähnen nachzuwachsen. Ihre Wangen waren eingefallen, aber ihre Augen waren gütig. Zu gütig. „Daniel“, sagte sie und lächelte, als täte es ihr weh. „Du bist zurück.“ Hinter mir bebte die Schlafzimmertür. Mr. Keller knallte vom Flur dagegen. „Daniel!“, rief er. „Antworte ihr nicht!“ Das Lächeln meiner Mutter verschwand. „Martin macht immer alles kaputt.“ Ich wich vom Schrank zurück. Ihr Blick folgte dem Schlüssel in meiner Hand. „Du hast ihn behalten“, sagte sie. Ich blickte hinunter. Der Messingschlüssel war nicht mehr trocken. Schwarzes Wasser hatte sich zwischen meinen Fingern gesammelt und tropfte auf die Dielen. „Was ist das?“, fragte ich. Meine Mutter legte den Kopf schief. „Du weißt, was es ist.“ „Nein.“ „Du hast ihn drei Tage lang um den Hals getragen, nachdem ich gestorben war.“ Mir schnürte es die Kehle zu. Ich hatte das noch nie jemandem erzählt. Nicht meinem Vater. Nicht meinen Freunden. Nicht Mr. Keller. Nach der Beerdigung hatte ich den Schlüssel aus dem Schmuckkästchen meiner Mutter genommen und ihn an einen Schnürsenkel gebunden. Ich trug ihn unter meinem Hemd, bis meine Haut vom Messing grün wurde. Ich redete mir ein, es sei dumm. Dann verstaute ich ihn. Niemand wusste davon. Außer mir. Und ihr. Die Schlafzimmertür wackelte erneut.
+
+„Daniel!“, rief Mr. Keller. „Der Schlüssel erinnert sich nicht an sie. Er erinnert sich an deine Trauer!“ Das Gesicht meiner Mutter zuckte. Nur einmal. Wie ein schlechtes Omen. Der Junge unter dem Bett umklammerte meinen Knöchel fester.
+
+„Bitte“, flüsterte er. „Lass mich nicht mit ihr allein.“ Ich sah von ihm zu meiner Mutter. Irgendetwas stimmte nicht. Nicht mit ihrem Gesicht. Mit dem Zimmer hinter ihr.
+
+Das Krankenhausbett war zu sauber. Der Vorhang hing still. Das Metalltablett spiegelte nichts. Keine Wände. Keine Decke. Nur ein perfekter Ausschnitt der Erinnerung, herausgeschnitten und wie ein Köder hinter der Schranktür versteckt.
+
+Meine Mutter streckte mir die Hand entgegen.
+
+„Komm her, mein Schatz.“
+
+Ich wollte.
+
+Gott steh mir bei, ich wollte wirklich.
+
+Stattdessen fragte ich: „Wie hast du mich genannt, als ich klein war?“
+
+Sie lächelte.
+
+„Danny.“
+
+Ich schüttelte den Kopf.
+
+Alle nannten mich Danny.
+
+Mein Vater. Lehrer. Freunde.
+
+„Wie hast du mich genannt, wenn ich Angst hatte?“
+
+Das Lächeln blieb auf ihrem Gesicht, aber ihr Blick veränderte sich.
+
+Nur ein wenig.
+
+„Liebling“, sagte sie.
+
+Ich wich zurück.
+
+Falsch.
+
+Meine richtige Mutter hat mich nie Liebling genannt. Wenn ich Angst hatte, kauerte sie sich immer vor mich, hielt meine Hände und sagte: „Du musst nicht tapfer sein.“
+
+Jedes Mal.
+
+Sogar im Krankenhaus, als ich versuchte, nicht zu weinen.
+
+Du musst nicht tapfer sein.
+
+Das Wesen mit ihrem Gesicht starrte mich an.
+
+Dann wurde sein Lächeln langsam breiter.
+
+„Fast“, sagte es.
+
+Das Kind unter dem Bett schrie auf.
+
+Der Kleiderschrank flog auf.
+
+Das Krankenzimmer verschwand, und hinter der Tür erstreckte sich ein Flur, der sich unendlich weit in die Dunkelheit zog. Weiße Türen säumten beide Seiten, Hunderte, vielleicht Tausende. Hinter jeder klopfte jemand.
+
+Dreimal.
+
+Immer wieder.
+
+Ich rannte zur Schlafzimmertür.
+
+Die Hand des Kindes packte meinen Knöchel und zog. Ich schlug hart auf den Boden, mein Kinn knallte gegen das Holz. Der Schlüssel glitt mir aus der Hand und huschte zum Kleiderschrank.
+
+Meine Mutter bückte sich, um ihn aufzuheben. „Nein“, keuchte ich. Mr. Keller schlug von der anderen Seite gegen die Schlafzimmertür. Einmal. Zweimal. Beim dritten Schlag flog die Tür auf. Er stolperte herein und hielt die abgebrochene Hälfte des Küchenmessers wie einen Pfahl in der Hand. Sein Blick fiel direkt auf den Schrank, dann auf den Schlüssel, der über den Boden glitt. „Lass es das nicht sein.“ Ich trat zurück und spürte, wie meine Ferse etwas unter dem Bett traf. Das Kind schrie auf, und der Laut wurde älter, tiefer, wütender. Mr. Keller stürzte sich auf den Schlüssel. Meine Mutter tat es ihm gleich. Einen Augenblick lang berührten sich ihre Hände. Mr. Keller schrie auf. Nicht vor Schmerz. Sondern vor Erkenntnis. Das Wesen im Türrahmen lächelte ihn mit dem Gesicht meiner Mutter an. „Martin“, flüsterte es. „Du hast mir beigebracht, wie man bettelt.“ Er griff trotzdem nach dem Schlüssel. In dem Moment, als seine Finger sich um sie schlossen, flogen alle Türen im Flur hinter meiner Mutter auf. Stimmen strömten heraus. Keine Schreie. Namen. Hunderte von Namen, geflüstert, schluchzend und lachend, drangen in den Raum. Anna. Martin. Daniel. Evelyn. Der Name meiner Mutter. Ich hatte ihn in Wohnung 6B nie laut ausgesprochen. Mr. Keller schon. Ich sah es in seinem Gesicht, bevor er es verbergen konnte.
+
+„Sie kannten ihren Namen“, sagte ich. Er sah mich nur eine Sekunde lang an. Das genügte. Das Wesen, das meine Mutter trug, lächelte.
+
+„Da ist es ja.“ Mr. Keller packte meinen Arm und zerrte mich in Richtung Flur.
+
+„Gehen Sie weg.“ Ich riss mich los.
+
+„Sie kannten den Namen meiner Mutter?“
+
+„Jetzt nicht.“
+
+„Sie sagten, es benutzt nur Namen, die es bekommt.“ Die Schlafzimmerwand hinter uns riss vom Boden bis zur Decke.
+
+„Daniel, beweg dich!“
+
+Das Kind unter dem Bett kroch hervor.
+
+Nur war es kein Kind mehr.
+
+Es entfaltete sich.
+
+Zu lange Arme. Der Rücken in die falsche Richtung gebogen. Das kleine Gesicht weinte noch immer, während der Körper dahinter immer größer wurde und an der Decke entlangschrammte.
+
+Mr. Keller schob mich in den Flur.
+
+Die Wohnung hatte sich verändert.
+
+Die Haustür war verschwunden. Auch das Wohnzimmer.
+
+Der Flur vor meinem Schlafzimmer erstreckte sich nun viel weiter, als er hätte sein sollen, mit denselben hellgrauen Wänden, denselben alten Dielen und derselben zerbrochenen Kaffeetasse auf dem Boden.
+
+Aber es gab zu viele Türen.
+
+Meine Badezimmertür. Meine Schlafzimmertür. Meine alte Schranktür. Die weiße Tür aus der ersten Nacht.
+
+Noch eine weiße Tür.
+
+Noch eine.
+
+Noch eine.
+
+Alle waren einen Spalt breit geöffnet.
+
+Aus allen drang kalte Luft.
+
+Mr. Keller zog mich an ihnen vorbei. „Schau nicht hinein.“ Natürlich schaute ich. Im ersten Türrahmen sah ich die Kellnerin des Diners allein in einer Nische sitzen und Kaffee in eine Tasse einschenken, die mit schwarzem Wasser überlief. Im zweiten sah ich den Schlüsseldienst ohne Augen in meiner Küche stehen, wie er immer wieder einen Schlüssel in einem nicht existierenden Schloss drehte. Im dritten sah ich mein altes Wohnzimmer. Meine Mutter saß mit dem Rücken zu mir auf dem Sofa. Neben ihr saß ich. Sechzehn Jahre alt. Immer noch in meinem Traueranzug. Mein jüngeres Ich drehte den Kopf und flüsterte: „Du hast sie verlassen.“ Mr. Keller drückte mein Gesicht gegen die Wand.
+
+„Ich sagte, schau nicht hin.“
+
+„Dann sag mir, was los ist.“ Er antwortete nicht. Wir erreichten das Ende des Flurs, wo meine Haustür hätte sein sollen. Stattdessen war da eine schmale Holzluke in der Wand. Klein. Quadratisch. Zu hoch angebracht. Das Fenster. Nur jetzt hatte es auf unserer Seite einen Riegel.
+
+Mr. Keller drückte mir den Schlüssel meiner Mutter in die Hand.
+
+„Mach auf.“
+
+Ich starrte ihn an.
+
+„Wenn ich dich bitte, irgendetwas zu öffnen“, sagte ich, „bin ich es nicht. Erinnerst du dich?“
+
+Sein Gesicht verzog sich.
+
+„Daniel, das ist anders.“
+
+Hinter uns öffneten sich alle Türen im Flur einen Spaltbreit.
+
+Die Luft war erfüllt von Geflüster.
+
+Manche gehörten meiner Mutter.
+
+Manche Anna.
+
+Manche Mr. Keller.
+
+Eines war meins.
+
+Mach auf.
+
+Mach auf.
+
+Ich wich zurück.
+
+„Woher soll ich wissen, dass du es bist?“
+
+Mr. Keller blickte an mir vorbei zu den Türen.
+
+Dann sagte er ganz leise: „Weil ich nicht durchgehen will.“
+
+Das klang wahr. Zu wahr.
+
+Er griff in seinen Mantel und zog den verbrannten Schlüssel heraus. „Dein Schlüssel öffnet einen Weg zurück zu dem, was es kennt. Meiner öffnet einen Weg zurück zu seinem Ursprung.“
+
+„Und wo ist das?“ Er blickte zu dem kleinen quadratischen Fenster.
+
+„Das tote Zimmer.“ Die Worte ließen den Flur kälter werden. Eine der weißen Türen hinter uns flog auf. Eine Frau schrie von drinnen. Anna. Mr. Keller zuckte zusammen. Das Ding wusste genau, wie es ihm wehtun konnte. Er nahm mir den Messingschlüssel ab und steckte ihn in den Fensterriegel. Er passte. Natürlich passte er. Er drehte ihn einmal. Der Riegel klickte. Das Fenster schwang nach innen. Dahinter war nicht mein Schlafzimmer. Nicht die Gasse. Nicht Wohnung 6B. Es war ein schmaler Spalt zwischen Wänden. Blanke Balken. Verbrannter Putz. Alte Dämmung, die in Streifen herunterhing. Die Luft roch nach Asche, Verwesung und Staub, der jahrelang eingeschlossen gewesen war. Mr. Keller kletterte als Erster hindurch. Ich zögerte. Aus dem Flur hinter mir sagte meine Mutter: „Daniel, du musst nicht tapfer sein.“ Ich blieb stehen. Mr. Keller verharrte regungslos auf der anderen Seite des Fensters. Die Stimme war perfekt. Nicht nur annähernd. Perfekt. Ich drehte mich langsam um. Sie stand am anderen Ende des Flurs, zwischen zwei weißen Türen. Nicht krank. Nicht jung. Einfach meine Mutter. Genau wie an jenem gewöhnlichen Nachmittag vor Jahren, vor Krankenhäusern, vor Spritzen, vor geflüsterten Gesprächen in Küchen. Sie sah müde aus. Traurig. Echt.
+
+„Du hast mich gefragt, was ich früher gesagt habe“, sagte sie. Meine Augen brannten. Mr. Keller flüsterte: „Daniel.“ Meine Mutter schüttelte den Kopf.
+
+„Er kennt mich nicht.“
+
+Ich wollte ihr glauben.
+
+Das war das Schlimmste.
+
+Das Monster musste nicht ständig überzeugend sein. Nur einmal. Nur mit der richtigen Stimme, mit den richtigen Worten.
+
+Sie machte einen Schritt auf mich zu.
+
+Die Türen zu beiden Seiten öffneten sich, als sie vorbeiging. Dahinter beobachteten mich Gesichter. Mein jüngeres Ich. Der Junge unter dem Bett. Der Schlosser. Der alte Mann aus Zimmer 6A. Anna. Menschen, die ich nicht kannte.
+
+Alle warteten.
+
+Alle hungrig.
+
+Meine Mutter streckte die Hand aus.
+
+„Komm nach Hause.“
+
+Ich kletterte durchs Fenster.
+
+Mr. Keller schlug es hinter mir zu.
+
+Draußen schrie meine Mutter.
+
+Nicht vor Trauer.
+
+Vor Wut.
+
+Der Schrei ließ Staub von den Balken wirbeln.
+
+Wir waren im Totenzimmer.
+
+Es war kaum breit genug, dass wir Schulter an Schulter stehen konnten. Die Decke neigte sich über uns. Verkohlte Holzstützen durchzogen den Raum wie Rippen. Die Wände waren mit alten Brandspuren bedeckt, und in der hintersten Ecke hatte etwas Namen in den Putz geritzt.
+
+Tausende von Namen.
+
+Manche alt und verblasst. Manche frisch. Manche noch feucht.
+
+Ich fand meinen fast sofort.
+
+DANIEL.
+
+Darunter war der meiner Mutter.
+
+EVELYN.
+
+Ich berührte die Buchstaben, bevor ich mich beherrschen konnte.
+
+Der Gips war warm.
+
+„Warum steht ihr Name hier?“, fragte ich.
+
+Mr. Keller wandte den Blick ab.
+
+„Weil es sie jetzt kennt.“
+
+„Wie?“ Er sagte nichts.
+
+Ich packte seinen Mantel und drückte ihn gegen die Balken.
+
+„Wie?“ Einen Moment lang dachte ich, er könnte lügen.
+
+Dann schien er in sich zusammenzubrechen.
+
+„Als ich am ersten Morgen in Ihre Wohnung kam“, sagte er, „sagten Sie, es spräche mit der Stimme Ihrer Mutter.“
+
+„Na und?“
+
+„Ich habe Sie nach ihrem Namen gefragt.“
+
+„Nein, haben Sie nicht.“
+
+„Nicht direkt.“
+
+Ich erinnerte mich.
+
+Mr. Keller im Flur. Blass. Zitternd. Fragend wie wild.
+
+War sie schon lange tot?
+
+Woran ist sie gestorben? War es deine Mutter oder jemand anderes? Hat sie deinen Namen gesagt? Und dann: Wie hieß sie, Daniel? Ich hatte geantwortet. Ich hatte Angst gehabt. Verwirrt. Geweint. Ich hatte ihm ihren Namen genannt. Und er hatte ihn der Tür gegeben. Ich ließ seinen Mantel los. „Du hast es mit meiner Mutter gefüttert.“ „Nein“, sagte er. „Ich wollte nur bestätigen, was es wusste.“ „Du hast ihm ihren Namen gegeben.“ „Ich wusste nicht, dass der Schlüssel dir gehörte.“ „Du wusstest genug.“ Darauf hatte er keine Antwort. Etwas klopfte von innen an der Wand neben uns. Drei leise Klopfgeräusche. Staub rieselte von der Decke. Mr. Keller wischte sich mit dem Handrücken über den Mund. „Wir müssen den dritten Schlüssel finden.“ „Den was?“ Er ging tiefer in den leeren Raum hinein. „Nach dem Brand gab es drei Schlüssel. Meinen. Annas. Und einen, der nie herauskam.“ Ich folgte ihm, weil es keinen anderen Ausweg gab. Der tote Raum erstreckte sich weiter, als er hätte sein sollen. Er hätte ein schmaler, abgedichteter Raum zwischen zwei Wohnungen sein sollen, vielleicht drei Meter lang. Doch er dehnte sich in die Dunkelheit aus und bog links ab, wo das Gebäude nichts mehr zu bieten hatte. Überall lagen alte Dinge herum. Ein geschmolzenes Telefon. Ein Kinderschuh. Ein zerbrochener Spiegel. Ein Rosenkranz ohne Kreuz. Ein Feuerwehrhelm, auf einer Seite geschwärzt. Und Türen. Kleine Türen. Hohe Türen. Schranktüren. Aufzugtüren. Türen ohne Wände. Türen, die flach auf dem Boden lagen wie Falltüren. Alle geschlossen. Alle wartend. Am anderen Ende fanden wir die Männer aus dem Lieferwagen. Oder das, was von ihnen übrig war. Einer lehnte in einem grauen Anzug an der Wand, sein Gesicht unter einer Staubschicht verborgen. Der andere saß aufrecht neben ihm und drückte ein Notizbuch an seine Brust. Seine Haut war prall und steif über den Knochen. Sein Mund stand offen, als wäre er mitten im Satz gestorben.
+
+Mr. Keller erstarrte.
+
+„Das ist Carter“, flüsterte er.
+
+„Der, der nicht zurückkam?“
+
+Er nickte.
+
+Ich nahm dem Toten das Notizbuch aus den Händen.
+
+Der Einband riss, als ich es öffnete.
+
+Die meisten Seiten waren durch Wasser beschädigt, aber einige waren noch lesbar.
+
+EINTRAG 14
+
+DAS DING ERSCHAFFT KEINE STIMMEN.
+
+ES LEIHT SIE SICH.
+
+EIN NAME IST EIN GRIFF.
+
+EINE ERINNERUNG IST EIN SCHARNIER.
+
+TRAURIGKEIT IST DIE EINLADUNG.
+
+Ich blätterte um.
+
+DREI SCHLÜSSEL SIND IN JEDEM BEKANNTEN VORFALL AUFGETAUCHT.
+
+EIN SCHLÜSSEL ÖFFNET.
+
+EIN SCHLÜSSEL SCHLIESST.
+
+EIN SCHLÜSSEL BLEIBT DRIN.
+
+ERLAUB DEM UNTERSUCHTEN NICHT, DEN DRITTEN SCHLÜSSEL ZU WÄHLEN.
+
+Meine Hände wurden eiskalt.
+
+„Was bedeutet das?“
+
+Mr. Keller antwortete nicht.
+
+Ich las weiter.
+
+DER DRITTE SCHLÜSSEL IST NICHT IMMER AUS METALL.
+
+Die Wände um uns herum knarrten.
+
+In der Ferne öffnete sich eine Tür.
+
+Dann noch eine.
+
+Dann noch eine.
+
+Mr. Keller riss mir das Notizbuch aus den Händen.
+
+„Wir haben keine Zeit.“
+
+Ich nahm es zurück.
+
+„Was bedeutet es, dass der dritte Schlüssel nicht immer aus Metall ist?“
+
+Er schloss die Augen.
+
+„Daniel.“
+
+„Was bedeutet das?“
+
+Die Dunkelheit hinter uns veränderte sich.
+
+Die Stimme meiner Mutter drang durch den stillen Raum.
+
+„Martin hat dich hierher gebracht, weil er es nicht schließen kann.“
+
+Mr. Kellers Gesicht verhärtete sich.
+
+„Hör nicht hin.“
+
+„Er hat es schon einmal versucht“, sagte sie. „Er hat es mit Priestern versucht. Mit Schlössern. Mit Feuer. Mit Männern, die die alten Regeln kannten.“
+
+Ein leises Lachen drang durch die Wände.
+
+„Aber der dritte Schlüssel muss drinnen bleiben.“
+
+Ich sah ihn an.
+
+Mr. Keller vermied meinen Blick.
+
+Der Raum schien unter meinen Füßen zu kippen.
+
+„Du hast mich hierhergebracht, um mich zurückzulassen.“
+
+„Nein.“
+
+„Doch.“
+
+„Ich habe dich hierhergebracht, weil es dir gefolgt ist.“
+
+„Weil du ihm den Namen meiner Mutter gegeben hast.“
+
+„Weil du den Schlüssel genommen hast.“
+
+„Du hast mir gesagt, ich solle ihn abholen.“
+
+„Ich habe dir die Wahrheit gesagt. Teilweise.“
+
+Teilweise.
+
+Das war alles, was er mir je gegeben hatte.
+
+Den sicheren Teil.
+
+Den nützlichen Teil.
+
+Gerade genug Wahrheit, um mich genau dorthin zu bringen, wo er mich brauchte.
+
+Hinter Carters Leiche öffnete sich eine Tür.
+
+Keiner von uns hatte sie je zuvor gesehen.
+
+Sie war weiß.
+
+Schlicht. Alt. Ganz gewöhnlich.
+
+Der Messingknauf drehte sich langsam. Mr. Keller trat vor mich. Einen Moment lang dachte ich, er wolle mich beschützen. Dann sah ich den verbrannten Schlüssel in seiner Hand. Er hielt ihn mir drohend entgegen.
+
+„Es tut mir leid“, sagte er. Ich wich zurück.
+
+„Nein.“
+
+„Es will dich jetzt. Wenn du drinnen bleibst, kann ich es schließen.“
+
+„Du meinst, Anna kann herauskommen?“ Tränen traten ihm in die Augen.
+
+„Ich habe sie achtundzwanzig Jahre lang gehört.“
+
+„Dieses Ding ist nicht Anna.“
+
+„Das weißt du nicht.“
+
+„Doch, das weiß ich.“ Die weiße Tür öffnete sich einen Spalt. Warmes Licht strömte heraus. Anna stand dahinter. Nicht verbrannt. Nicht nass. Nicht falsch. Wunderschön. Lebendig. Sie sah Mr. Keller an und lächelte.
+
+„Martin.“ Er brach zusammen. Ich sah es. Die ganze Angst wich aus seinem Gesicht, und etwas Schlimmeres trat an ihre Stelle. Hoffnung. Er drehte den verbrannten Schlüssel in der Luft. Ein Schlüsselloch erschien in der Wand neben mir. Ich stürzte mich auf ihn.
+
+Zu spät.
+
+Er schob den Schlüssel ins Schlüsselloch und drehte ihn.
+
+Der tote Raum schrie auf.
+
+Alle Türen um uns herum flogen auf. ... Nicht durch die weiße Tür. Aus dem Messingschlüssel in meiner Hand.
+
+„Daniel.“ Ich erstarrte. Es war nicht das Ding. Ich wusste es, bevor sie ein weiteres Wort sagte. Ihre Stimme war nicht sanft. Kein Flehen. Keine perfekte Erinnerung, wie ein Köder arrangiert. Nur meine Mutter. Müde. Ängstlich. Real.
+
+„Du musst nicht tapfer für mich sein“, flüsterte sie. Die Hände zogen fester. Ich sah auf den Schlüssel hinunter. Er leuchtete schwach, warm zwischen meinen Fingern. Meine Mutter sagte: „Aber du musst rennen.“ Ich rammte den Messingschlüssel in den Boden. Ich weiß nicht warum. Ich wusste nur, dass er passte. Ein Schlüsselloch öffnete sich darunter. Ich drehte. Der Raum faltete sich zusammen. Die Hände verschwanden. Die weiße Tür schlug Annas Gesicht vor der Nase zu. Mr. Keller schrie ihren Namen. Der Raum, in dem sich der Leerraum befand, stürzte in sich zusammen wie eine Lunge, die ausatmet. Die verbrannten Balken dehnten sich, bogen sich und schnappten zurück in ihre ursprüngliche Position. Carters Leiche verschwand. Das Notizbuch zerfiel zu schwarzer Asche.
+
+Für einen Augenblick stürzte ich durch alle Räume, vor denen ich mich je gefürchtet hatte.
+
+Mein Kinderzimmer.
+
+Das Krankenhaus.
+
+Wohnung 6B.
+
+Das Diner.
+
+Der Flur mit den weißen Türen.
+
+Dann landete ich hart auf nassen Dielen.
+
+Stille.
+
+Ich öffnete die Augen.
+
+Ich war zurück in Wohnung 6B.
+
+Allein.
+
+Kein Mr. Keller.
+
+Kein Raum, in dem sich der Leerraum befand.
+
+Keine weiße Tür.
+
+Nur der Flur, die zerbrochene Kaffeetasse und das kleine quadratische Fenster, das zu hoch in der Wand saß.
+
+Der Messingschlüssel war noch in meiner Hand.
+
+Aber er hatte sich verändert.
+
+Er war nicht mehr aus Messing.
+
+Er war vom Feuer geschwärzt.
+
+Wie Mr. Kellers.
+
+Ich stand langsam auf. Mein Handy vibrierte in meiner Tasche. Es funktionierte irgendwie noch. Eine neue Nachricht. Von meiner eigenen Nummer. Du hast den falschen Schlüssel gewählt. Die Schlafzimmertür hinter mir knarrte auf. Ich drehte mich um. Mr. Keller stand in meinem alten Schlafzimmer. Zumindest dachte ich, es sei Mr. Keller. Er war von Kopf bis Fuß durchnässt. Schwarzes Wasser tropfte von seinem Mantel auf den Boden. Seine Augen waren leer, und hinter ihm, in der Dunkelheit unter dem Bett, hörte ich etwas in Annas Stimme lachen. Er hob eine Hand. In seiner Handfläche lag ein Schlüssel, den ich noch nie zuvor gesehen hatte. Klein. Weiß. Aus Knochen.
+
+„Der dritte Schlüssel“, sagte er. Dann entriegelten sich alle Türen in Wohnung 6B von innen.
+
+Part 1: https://www.reddit.com/r/nosleep/s/DxtEvUJ4s3  
+Part 2: [https://www.reddit.com/r/nosleep/s/zeQQ1eeyoq](https://www.reddit.com/r/nosleep/s/zeQQ1eeyoq)
