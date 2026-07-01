@@ -1,4 +1,4 @@
-I work on the sixth floor of a building with mirrored windows that make the sky look dirtier than it is. I am a junior analyst, and I consider myself an ambitious individual. More like ‘quietly ambitious’, in the embarrassing way people are when they still believe good work gets noticed. I stay late. I reply quickly. I volunteer for things nobody wanted.
+I work on the sixth floor of a building with mirrored windows that make the sky look dirtier than it is. My workplace is called Aldermore and Associates. I'm a junior analyst here, and I consider myself an ambitious individual. More like ‘quietly ambitious’, in the embarrassing way people are when they still believe good work gets noticed. I stay late. I reply quickly. I volunteer for things nobody wanted.
 
 What gets noticed in this place, I learned, is usefulness. People can smell that from three cubicles away. I mean, everyone likes a useful guy in the workplace. Maybe that’s the reason everyone likes Rafiq.
 

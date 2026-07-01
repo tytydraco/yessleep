@@ -1,0 +1,55 @@
+Hello… I don’t really know why I’m writing this now, maybe because nobody really listened to me and my friend when we tried to explain it, or maybe because I still keep thinking about that house and I feel like if I don’t write everything down somewhere, I’m going to convince myself it wasn’t that bad, even though I know it was.
+
+This year, my class went on a school trip to Germany, and for once almost everyone came, which made me really happy because our class gets along pretty well and I honestly thought it was going to be one of those nice school trips where you laugh in the bus, sleep badly because you talk too much with your friends, and come back with stupid memories, not the kind of trip where you spend the night staring at a basement door because you’re too scared to even blink.
+
+We were supposed to be placed in host families, usually in groups of four, but my friend and I, who I’ll call Ketty, didn’t fit into any of the groups, so we ended up being only the two of us in one house, and at first I told myself it wasn’t a big deal, maybe it would even be calmer, but now I keep thinking that I would have preferred being with literally anyone else too, even someone I barely knew, just so we wouldn’t have been only two.
+
+The house was big, isolated, and surrounded by a small forest, not a huge forest or anything, but enough to make the place feel cut off from everyone else, and we were clearly farther away than the other host houses. A woman, probably around forty, opened the door, and the first thing I noticed was that she looked exhausted, not just tired in a normal way, but cold and drained, like she wasn’t happy to see us at all and maybe didn’t even want us there. She barely introduced herself, barely spoke, and almost immediately took us downstairs.To the basement.Yes, our room was in the basement.
+
+There were two small beds under the stairs, and right away I felt uncomfortable because the room was large but arranged in such a strange way, with all the furniture pushed against the walls, the wardrobe, the chairs, the dressers, everything pressed to the sides as if the middle of the room had to stay empty for some reason, and I know that sounds like a small detail, but when you’re standing there with your suitcase in a basement of a stranger’s house, it really doesn’t feel small. And then there were the windows, these tiny basement windows near the ceiling, except they were covered with pieces of cardboard, not curtains, not shutters, cardboard, taped or wedged in place, blocking almost all the daylight, and I remember trying to convince myself that maybe it was for insulation or privacy or something normal, but honestly, nothing about it felt normal.
+
+Dinner was almost silent. It was only the woman, Ketty and me at this large table, and she barely asked us anything, not about the trip, not about school, not about where we were from, nothing that a normal host family would ask, and I stayed close to Ketty the whole time because I already had this stupid but very real fear that if we got separated in that house, even for a minute, something would happen. After dinner, we went back down to the basement, and I remember thinking that I just had to get through the night.
+
+But during the night, I woke up because I heard voices above us, and I don’t mean house noises or wind or pipes or the kind of sounds you can explain away when you’re scared, I mean actual voices, an actual conversation somewhere upstairs. I don’t even know why I went to check, because that was probably the dumbest thing I could have done, but I think I was still trying to prove to myself that it was nothing, that maybe the woman was on the phone or the TV was on or something. So I went up quietly, opened the door just a little, and I saw two blurry silhouettes in the kitchen.They were not the woman.I’m sure of that.
+
+They looked younger, smaller maybe, or just different, I don’t know exactly because I didn’t stay long enough to understand what I was seeing, I just panicked, went back downstairs as fast as I could, got under the blanket, and stayed there without sleeping for the rest of the night.
+
+The next morning, Ketty saw immediately that something was wrong with me, and I told her what I had seen, probably too fast and not very clearly, but she understood enough. At first she tried to reassure me and said maybe I had dreamed it, but when I asked her if she had heard voices too, she froze, and that scared me almost as much as seeing the silhouettes, because she had heard something too. Not clearly enough to understand, but enough to know there had been voices in the house, and not only the woman’s voice.
+
+At breakfast, the atmosphere was even worse. The woman had only put two bowls on the table for us, and she barely spoke. She looked even more tired than the day before, with red eyes, like she hadn’t slept either. Ketty tried to make normal conversation and asked if she lived alone, and the woman answered yes, but it sounded wrong. False. I don’t know how to explain it, but it didn’t sound like a real answer. And when we left, we saw several pairs of shoes near the entrance, including two pairs that clearly looked like they belonged to young people, clean and neatly placed, like they were still being used.
+
+The day with our class should have made us feel better, and in a way it did for a few hours, because we were finally with other people again, but it also made the whole thing more frustrating because when we tried to explain it, nobody really took us seriously. People said host families could be weird, that maybe the basement was just the guest room, that the cardboard was probably for privacy, that everything had been checked anyway, and even when we tried to talk to a teacher, she was busy and basically told us that the families had been approved and that we were leaving soon. I remember feeling so alone in that moment, because we were surrounded by our class, but it felt like nobody was actually hearing what we were saying.
+
+That evening, the woman picked us up, and nobody spoke in the car. No radio, no questions, nothing. I kept looking out the window because I didn’t want to meet her eyes in the mirror, but I still felt like she was watching us. When we got back to the house, she gave us two plates on a tray and made us eat in the basement, saying it was better that way, without explaining anything, and that was when I really started to feel like we weren’t being welcomed into the house, we were being hidden inside it.
+
+While we were eating, we heard footsteps above us, then two young voices. This time Ketty heard them clearly too. They were speaking German, so we didn’t understand everything, but one word kept coming back: “Mädchen.” Girls. Us. Then someone came closer to the basement door, and there were three small knocks, not loud, not violent, just calm little knocks, which somehow made it worse. A voice spoke from behind the door, and I only understood one word: “Fenster.” Window.
+
+I turned toward the small windows covered with cardboard, and the cardboard on the left moved slightly.Not a lot.Just enough for us to see it.
+
+I didn’t know if it had moved from outside or from inside, and I still don’t know which option scares me more.
+
+We didn’t sleep that night either. We pushed a dresser in front of the door even though it was heavy and we were probably making noise, and then we just stayed awake, staring at the door and the windows, stopping completely every time we heard a creak above us. I had my phone in my hand, but I didn’t even know who to message or what to say, because how do you explain that you think there are children hidden in your host family’s house and that something touched the cardboard covering your basement window without sounding insane?
+
+The next morning, the woman saw that we had moved the furniture. Her eyes were red, and she looked at us like we had done something wrong, like we had broken a rule we were supposed to know, and she told us she had put us downstairs for a reason, but when Ketty tried to ask what reason, she didn’t answer. She just looked at us, and I swear that silence was worse than any explanation.
+
+On the last night, we only wanted to leave. We kept our suitcases open so we could close them quickly in the morning. Ketty wanted to remove the cardboard from the windows, and I really didn’t want her to because after hearing that voice say “window,” it felt like the worst possible thing to touch, but she did it anyway. When she pulled the cardboard away, a little light came into the room, and we saw fingerprints on the glass.Small fingerprints.And on the edge of the window, carved into the wood, there were two German names.
+
+Ketty tried to take a picture, but the woman came down almost immediately. She didn’t yell. She didn’t even look surprised. She just had this empty face, like she knew exactly what we had found and had been waiting for it to happen. When Ketty asked who the names belonged to, the woman went pale, really pale, and then she told us that we weren’t supposed to see them.
+
+Not that it was nothing.
+
+Not an explanation.
+
+Just that we weren’t supposed to see them.
+
+The next morning, she drove us to the meeting point without saying a word. Before I got out of the car, she grabbed my wrist, not hard enough to hurt me but enough to freeze me completely, and made it very clear that we shouldn’t say anything, that we hadn’t seen anything in that house. I didn’t answer. I just took my suitcase and got out with Ketty.
+
+When the bus started leaving, I looked through the back window. The woman was standing still near her car, and behind her, near the trees, there were two silhouettes. Two children, or maybe two teenagers, I don’t know. They were just standing there, watching us leave. I tapped Ketty so she could look, but by the time she turned around, the bus had already turned.
+
+A few days after we got back, Ketty searched the woman’s name online and found a local article in German. The translation was terrible, but we understood enough. The woman did have two children, a boy and a girl.They weren’t dead.They weren’t officially missing either.
+
+But apparently, nobody ever saw them anymore. Not at school, not in town, not in recent family photos. Nothing. It was like they only existed inside that house.
+
+I still don’t know why she put us in that basement, why the windows were covered with cardboard, why the furniture was pushed against the walls, why she lied about living alone, why the voices were talking about us, why one of them said “window,” or why she looked so terrified when we saw the names.
+
+But I know the two silhouettes I saw in the kitchen that first night weren’t strangers.They were her children.And for a reason I still don’t understand, she was doing everything she could to make sure nobody knew they existed.

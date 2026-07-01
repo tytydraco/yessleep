@@ -1,6 +1,6 @@
 I am not someone who gets lucky. I want to be clear about that before anything else. Because everything that follows will sound like luck, and I need you to understand that it wasn't.
 
-I had been applying for analyst roles for eleven weeks when I found the listing. It was a mid-level firm in the kind of district that has a sense of its own importance. It was the position of Junior Analyst. The listing was unremarkable, except for one thing I couldn't name at the time- the language felt familiar in the way your own handwriting looks familiar.
+I had been applying for analyst roles for eleven weeks when I found the listing. It was some mid-level firm called Aldermore and Associates. It was the position of Junior Analyst. The listing was unremarkable, except for one thing I couldn't name at the time- the language felt familiar in the way your own handwriting looks familiar.
 
 I told myself I was projecting. I wrote my cover letter, attached my CV, and submitted it at 11:47 on a Tuesday night.
 
