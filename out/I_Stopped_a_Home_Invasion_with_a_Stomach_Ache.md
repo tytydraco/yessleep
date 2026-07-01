@@ -20,9 +20,9 @@ I told Chase to sit and looked through the peephole one last time before opening
 
 To my surprise, there was no one there.
 
-You might think that would have been a relief, but to me it was like that joke about the spider in your house not really being scary until you no longer know where the spider went.
+You might think that would have been a relief, but to me it was like that joke about the spider in your house not really being scary until you no longer know where the it went.
 
-I made my way around the house, sneaking looks through the blinds to see if the person was around the side or back of the house, but there was no one.
+I made my way around the house, sneaking looks through the blinds to see if the person was around the side or back but there was no one there.
 
 After a few minutes, I finally convinced myself that whoever had been out there was gone and called Chase upstairs. I shut him in my office while I went to the bathroom.
 
@@ -34,7 +34,7 @@ I sat there, hoping Chase was just worked up from earlier, when I heard a shoe s
 
 I desperately wanted to believe my girlfriend was home early from book club, but deep down I knew that wasn't true.
 
-I heard whoever it was stumble as they made their way to the top of the stairs.
+I heard whoever it was stumble as they made their way on to the landing.
 
 I fumbled for my phone as they stopped in front of the bathroom door.
 
