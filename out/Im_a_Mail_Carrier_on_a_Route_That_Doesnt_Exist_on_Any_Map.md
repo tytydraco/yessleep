@@ -341,3 +341,6 @@ I stood there rubbing my wrist and trying to slow my breathing. A bruise was alr
 Instead, I did what every Carrier eventually learns to do.
 
 I got back in the Jeep and kept driving.
+
+  
+[Entry 2: The Produce Stand](https://www.reddit.com/r/nosleep/comments/1uliiet/im_a_mail_carrier_on_a_route_that_doesnt_exist_on/)

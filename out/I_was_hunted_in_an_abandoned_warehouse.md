@@ -1,0 +1,29 @@
+Okay, so I'm a teenager in the Helsinki area, and this happened to me 2 days ago. I was bored 'cause my girlfriend was in Japan, and I didn't have friends to hang out with, so I knew an abandoned factory or some warehouses in Espoo, and I thought it was the best place to go alone and in 28-degree heat (78.8 Fahrenheit). So I packed my stuff, charged my phone, and went to see what the hype was all about.
+
+
+
+When I got on the bus to take the 45-minute drive, I noticed that there wasn't any AC on the bus, so it was hot and crowded. But I pushed on and listened to Primus (they suck) and waited to get there. But again, something went wrong, and the area surrounding it was under construction, and it was hard to walk there from the bus station. And when I got there, I noticed that they had fenced it up, but the front entrance was wide open, but not like it was broken, but intentionally opened. "Huh, weird," I thought to myself.
+
+
+
+When I walked through the doors, I saw the most beautiful abandoned place ever, so I decided to go inside the first building I saw. Inside, it was destroyed and covered with graffiti all over the walls. I took photos, and I took videos, but because I made too much noise, I thought the security was coming. But after waiting inside a closet that reeked of death and skunk (za-za) for about ten minutes, I didn't hear anything. So I breathed a big sigh of relief and hyped myself to open the door, 'cause frankly I'm a giant pussy. And when I swung it open to see what there was, of course, I saw nothing.
+
+
+
+There wasn't anything interesting in the building, so I just left and went inside another building. When I got to the door of the second building, I noticed all of the doors were open, but usually they are locked and boarded up. I thought, "Easy for me!"... I wish I had just left at that point. Inside, it looked like a poorly made theater; the stage was too small, and where the audience would've most likely sat was behind bars and fences. It looked more like a jail than a theater, thinking about it now.
+
+
+
+But to my horror, I started to hear pops, like super loud pops. I was so confused, I couldn't pinpoint the source or the area of the sound. But then I started to hear trucks move into the yard, and I saw a window and went to take a look. As I walked to the window, the pops became louder, like there were more of them now. When I reached the window and peeked, I saw a bunch of dark green trucks but no one outside... Then BANG, I heard the back door slam open with voices entering the building. I jumped up and started to run out.
+
+
+
+When I ran, I heard them come closer, and now there were dogs with them. But I got away from there, and I didn't have the balls to look back, so I just ran until I got inside a shop that was near the area. There I found a way to get back home, but it was a Kilometer away, so about 0,6 Miles. And it was still close to 30 degrees Celsius, but I had no other choice but to walk the way there. When I got home, I again sighed a sigh of relief and went to see what the area was actually like, and what I found made my heart sink.
+
+
+
+The area was still abandoned when I came, but it was used by the military for drills and as a shooting range. I looked at the words on the screen that read "A teen had been shot before in 2019"...
+
+
+
+I thank god that I came back in one piece and not in a coffin. But bad news, I decided to go back when my friends are free again. So wish me good luck!

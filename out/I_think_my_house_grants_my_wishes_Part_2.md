@@ -1,0 +1,131 @@
+[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/1u86k49/i_think_my_house_grants_my_wishes/)
+
+Before I begin, thanks to u/Fund_Me_PLEASE. I actually tried your suggestion after my last post. Nothing happened. The wish wasn't granted, and my Zoro figurine is still gone.
+
+The last few weeks have been a rollercoaster!
+
+Things at work had gone bad. Like truly bad. Layoff bad. 
+
+I spent most of my time thinking about what I would do if I were laid off. I was still on probation so I thought I was going to be the first one to be booted in my team.
+
+I stopped buying merch for a while trying to save up money in case I was booted and had to survive on my savings for a few months.
+
+No houseparties either. That shit’s expensive.
+
+My therapist was very kind with her words of affirmation but she was also very grounded about the fact that this is a possibility I should be ready for.
+
+I told her I wished it didn’t come to that. Not only was I good at what I did, I showed results from the first day in the office. Surely they didn’t think I was someone they’d want to let go.
+
+That was last Friday. This Monday, my skip-level manager called me into his office. 
+
+Whatever confidence I had about my skills and talent when I was talking to my therapist packed its bags and left for an impromptu vacation.
+
+So there I was, sitting in his office like a lamb waiting to be devoured by a lion.
+
+“You've probably heard about the downsizing.”
+
+I nodded.
+
+“It's been hard on everyone.”
+
+“Yeah.”
+
+He folded his hands on the desk.
+
+“We've had to make some difficult decisions.”
+
+There it was.
+
+The execution speech.
+
+I suddenly became very interested in a framed certificate hanging on the wall behind him.
+
+“We're letting your manager go.”
+
+My stomach dropped.
+
+“She's going to spend the next few weeks transitioning her responsibilities to you.”
+
+I blinked.
+
+“Sorry, what?”
+
+“To you.”
+
+I stared at him for a second.
+
+“I'm still on probation.”
+
+“I know.”
+
+“And you want me to take over her role?”
+
+“If you're willing.”
+
+I sat there trying to process what had just happened.
+
+Five minutes ago, I was mentally calculating how many months of rent I could survive on.
+
+Now I was being offered a promotion.
+
+“Will the team even accept that?”
+
+“That'll be your problem,” he said with a smile.
+
+I laughed.
+
+“Fair enough.”
+
+“So that's a yes?”
+
+“Yes.”
+
+“Good. HR already has the paperwork ready. Congratulations.”
+
+The rest of the day was a blur. It was only once I was back home that I took it all in. My manager didn’t deserve to get laid off, and I certainly didn’t deserve to take her place. 
+
+It was all so unexpected.
+
+For some reason, I found myself thinking about the pizza and the missing figurine again.
+
+I tried not to dwell on it.
+
+Good thing I had an appointment with my therapist tonight. I would love to unload all of this on her.
+
+So I pulled up the calendar app and there was no calendar entry.
+
+All the office events were marked as they should but there was no entry for my 8 PM appointment.
+
+Maybe I forgot to add it from the email.
+
+So I checked the email and it turns out there wasn’t any from the therapist’s office.
+
+Maybe I should give them a call and let them know this is unacceptable.
+
+But nope, I somehow don’t have their number anymore.
+
+Heck I even called my sister to ask about the therapist and the fact (I still maintain it’s a fact) that I’ve been seeing a therapist for the good part of a decade is news to her. Shit I forgot to tell her about the promotion.
+
+I know she exists. I remember getting her up to date on my life with PPTs. I couldn’t find said PPTs even though I know exactly where I stored them on the cloud.
+
+As a last resort, I tried searching for her office on Google and nope, nothing.
+
+There’s a grocery store where her office used to be and it looks like it’s been there for at least 5 years judging by the 1-star “their apples are rotten, don’t recommend” review by some Karen.
+
+This feels way too much like the collectible.
+
+It’s like the universe is playing a sick joke on me. This is the opposite of dementia. Instead of my memories about things and people being erased, said things and people are being erased.
+
+I’ve never faced something like this before. It’s only after I moved into this house that weird things started happening in my life and I don’t know what to do.
+
+My brain kept circling back to the house. Ridiculous, I know.
+
+Houses don't erase people.
+
+I should probably check for a carbon monoxide leak. That should probably explain things.
+
+So I ordered one and went to sleep.
+
+Two days later I had the detector and I did a full sweep of every nook and cranny in the house.
+
+No carbon monoxide poisoning.

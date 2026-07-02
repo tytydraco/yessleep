@@ -1,4 +1,4 @@
-Getting your dream job is everything you could ask for. That’s until you start house hunting in the capital of the country. 
+Getting your dream job is everything you could ask for. That’s until you start house hunting in the capital of the country.
 
 Sure the job pays well but landlords are asking me for more than half of my salary for a 2 bedroom apartment that’s a 15 minute walk from my office.
 
@@ -111,3 +111,5 @@ The pizza. The figurine. The photos. The auction history.
 None of it made any sense.
 
 For the first time since moving in, I felt genuinely unsettled.
+
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1ulktf2/i_think_my_house_grants_my_wishes_part_2/)
