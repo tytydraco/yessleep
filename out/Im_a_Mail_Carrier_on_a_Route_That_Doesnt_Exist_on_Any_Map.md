@@ -1,6 +1,4 @@
-This isn’t a cry for help.
-
-It’s a way for me to document my experiences.
+This is a way for me to document my experiences.
 
 Every Carrier seems to have had their own method. Some wrote directly in the Policy Manual. Others scribbled notes on spare mail, receipts, napkins, or whatever happened to be within reach. Even Rusty kept records of his adventures.
 
@@ -341,6 +339,3 @@ I stood there rubbing my wrist and trying to slow my breathing. A bruise was alr
 Instead, I did what every Carrier eventually learns to do.
 
 I got back in the Jeep and kept driving.
-
-  
-[Entry 2: The Produce Stand](https://www.reddit.com/r/nosleep/comments/1uliiet/im_a_mail_carrier_on_a_route_that_doesnt_exist_on/)

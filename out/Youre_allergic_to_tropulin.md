@@ -2,7 +2,7 @@ That’s one of the things I have always been asked at the doctor’s office, ev
 
 It wasn’t really an allergy, not like you typically think of one; hives across the skin, throat slowly closing until you can barely breathe. It was a mental thing. I had just had surgery, tonsils taken out, and I was prescribed tropbulin to reduce the swelling.  
 
-I was only ten when all of this happened, an only child, doted on by my single mother. About a year before the surgery, my mom and dad got a divorce. Mom never told me directly, but from muffled arguments and neighborhood gossip I was able to put together that Mom had seen Dad out with another woman, several times. I was shocked to hear this, as any child would be, but it was really, *truly,* shocking. It still surprised now as an adult. 
+I was only ten when all of this happened, an only child, doted on by my single mother. About a year before the surgery, my mom and dad got a divorce. Mom never told me directly, but from muffled arguments and neighborhood gossip I was able to put together that Mom had seen Dad out with another woman, several times. I was shocked to hear this, as any child would be, but it was really, *truly,* shocking. It still surprised now as an adult.
 
 My father loved my mom, told her it all the time and showed her in every way that he could; buying her flowers nearly every week “just because”, slow dancing with her in the living room during rainy evenings, and even buying her a kitten despite him being allergic, promising that he would “just take a few Benadryls every day” and everything would be fine.  
 
@@ -22,13 +22,13 @@ The divorce was finalized soon after that. Mom got full custody of me and they s
 
 It seemed like when Mom and I were just getting settled into the new house, my throat started to hurt. Typical luck.
 
-I took the first dose of tropbulin the day after my surgery, when I was still bedridden at home. My mother did everything she could to entertain me, bringing me ice cream and video games and puzzles. In the evening, she went on a short trip to the store to get groceries and some “get well soon” balloons she insisted I needed.  When she got back it was nearly nightfall. 
+I took the first dose of tropbulin the day after my surgery, when I was still bedridden at home. My mother did everything she could to entertain me, bringing me ice cream and video games and puzzles. In the evening, she went on a short trip to the store to get groceries and some “get well soon” balloons she insisted I needed.  When she got back it was nearly nightfall.
 
 She gave me my pill and wished me goodnight as she left for her room. I swallowed it reluctantly, its bitter taste coating my tongue. The pain in my throat was present but dull and the low hum of the medicine filling my head soon lulled me to sleep.
 
-I woke up suddenly. My heart was beating fast, but I wasn’t sure why. I turned to look at my alarm clock. 3:17. My mouth felt dry. I was about to get a drink of water, but before I could move, I saw something. A figure, standing flush with the wall opposite the bed. I froze. 
+I woke up suddenly. My heart was beating fast, but I wasn’t sure why. I turned to look at my alarm clock. 3:17. My mouth felt dry. I was about to get a drink of water, but before I could move, I saw something. A figure, standing flush with the wall opposite the bed. I froze.
 
-It was a man, tall and muscular, stood straight up, his face obscured by darkness. I examined the silhouette as much as I could, making sure I was seeing what I thought. It wasn’t my coatrack, and it wasn’t a jacket, it was most certainly a man. I couldn’t bring myself to move, though not that I really wanted to. I squeezed my eyes closed like a baby playing hide and seek, praying I could somehow disappear from his sight. With my eyes shut I reasoned that it had to be an intruder, and this scared me even more. I finally got up the nerve to open my eyes, half expecting the man to be right next to me. 
+It was a man, tall and muscular, stood straight up, his face obscured by darkness. I examined the silhouette as much as I could, making sure I was seeing what I thought. It wasn’t my coatrack, and it wasn’t a jacket, it was most certainly a man. I couldn’t bring myself to move, though not that I really wanted to. I squeezed my eyes closed like a baby playing hide and seek, praying I could somehow disappear from his sight. With my eyes shut I reasoned that it had to be an intruder, and this scared me even more. I finally got up the nerve to open my eyes, half expecting the man to be right next to me.
 
 But he was gone. I must have imagined it, I thought, though it was hard to believe. I still couldn’t bring myself to move, so I closed my eyes and slumber soon took me again. 
 
@@ -64,7 +64,7 @@ I blinked and he was gone. No noise, no trace of him. I was relieved, slightly, 
 
 She held me for a while, eventually walking me to her room. I slept with her for the rest of the night.
 
-The next day went by in much the same way as the last. I played some games with friends and watched television with Mom as a cool rain washed the neighborhood. 
+The next day went by in much the same way as the last. I played some games with friends and watched television with Mom as a cool rain washed the neighborhood.
 
 Dad came by for a little while, brought me some more ice cream and a new board game. My parents tried to be cordial with one another around me, but I could see the resentment in my mother’s eyes when she answered the door and the awkwardness in my father’s as he gave her a soft hello. It was a little scary to be met with his face again after my nightmare, but I reminded myself that it wasn’t real. He stayed for a little bit and left just before dark, walking back out into downpour without so much as a jacket.  
 
@@ -84,7 +84,7 @@ He began to move his knife-wielding hand towards me, and somehow, I found my voi
 
 The vision’s face changed into slight shock, and I watched as instead of disappearing, he ran, out of my room and down the stairs. His footsteps rang loudly from the hall. As the noise faded, my mother darted into the room, glancing slightly behind her before coming to my aid.
 
- I was able to move again, and I reached out to her, sobbing. I muttered spastically about how he had a knife and was about to kill me. She assured me again that it wasn’t real. There was a nervous air about her as she held me. I imagine she was shaken from hearing her son cry bloody murder in the middle of the night. 
+I was able to move again, and I reached out to her, sobbing. I muttered spastically about how he had a knife and was about to kill me. She assured me again that it wasn’t real. There was a nervous air about her as she held me. I imagine she was shaken from hearing her son cry bloody murder in the middle of the night.
 
 Neither of us went back to sleep. She eventually brought me to her bed and we laid there until the sun finally peered above the horizon.
 
@@ -96,7 +96,7 @@ The dreams stopped after that. No man in the corner, no father trying to murder 
 
 When I told her no, she would reply confidently, “It had to have been the tropbulin.”
 
- A couple weeks after the dreams stopped, my mother got a call while we were eating breakfast. I didn’t know until later, but it was the police. Dad hadn’t shown up to work in two days, so his coworker called for a welfare check. He had been found dead in his home. 
+ A couple weeks after the dreams stopped, my mother got a call while we were eating breakfast. I didn’t know until later, but it was the police. Dad hadn’t shown up to work in two days, so his coworker called for a welfare check. He had been found dead in his home.
 
 The coroner said it was a heart attack. A tragic but natural death with no foul play. Our whole family was shocked. He was in his 40’s and he had never had any heart issues. 
 
@@ -122,4 +122,4 @@ I thought back to the figure, my dad’s affair and his everlasting denial of it
 
 Her muddied words from all those years ago echoed in my mind. 
 
-“So, who was it, David, your long-lost twin?”
+“Who was it, David, your long lost twin?"
