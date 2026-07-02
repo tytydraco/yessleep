@@ -75,9 +75,9 @@ The sound of church hymns rang out in the distance.
 
 “Is she in a choir? Why would she lie about this?”
 
-I quietly slipped out of the office and walked up the steps to the second floor. It gave me a perfect view of the main hall. 100 people were signing below. The song was one I had never heard before. Gregorian-style chanting hung in the air. Dancing across the walls of a church. Chills went down my spine. I had never seen anyone sign like this before.  
+I quietly slipped out of the office and walked up the steps to the second floor. It gave me a perfect view of the main hall. 100 people were singing below. The song was one I had never heard before. Gregorian-style chanting hung in the air. Dancing across the walls of a church. Chills went down my spine. I had never seen anyone sing like this before.  
 
-When the signing stopped. I took a good look at everyone below. Everyone was wearing long black robes.
+When the singing stopped. I took a good look at everyone below. Everyone was wearing long black robes.
 
 My eyes almost burst out of my head when I saw a Giant pentagram in the center of the hall.
 
@@ -107,7 +107,7 @@ The signing started again, only this time louder.  
 
 The dog's body started glowing red.
 
-As the song reached its chorus. The dog's body started thrashing. Mutating in a creature more fowl than I had ever seen.
+As the song reached its chorus. The dog's body started thrashing. Mutating in a creature more foul than I had ever seen.
 
 When the creature shrieked, the crowd cheered.
 

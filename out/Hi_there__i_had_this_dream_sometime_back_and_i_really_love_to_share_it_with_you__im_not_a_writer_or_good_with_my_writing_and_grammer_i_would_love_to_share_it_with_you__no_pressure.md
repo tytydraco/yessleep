@@ -1,0 +1,25 @@
+The clock on the microwave said 9:00 PM. I stood in the shadow near the kitchen, and the house felt incredibly quiet. Looking up toward the second-floor landing, I could barely see into the upstairs room where Niamh was. I could hear her voice, and she was talking back to me as I spoke, but I couldn't seem to reach her.
+
+I kept walking around the ground floor trying to find a way up to her room, but I couldn’t find an entryway anywhere. She was right there. I could even see her shadow dripping into the wall of the ground floor.
+
+Frustrated and confused, I went out the kitchen door to try and figure out how to get to her from the outside. Leaving the kitchen meant I was completely out of the house. I came out onto the connecting circular road in front of our place, and there it was. Our house. I didn't know why I had stepped outside to look for her when I knew she was inside. It made no sense, so I decided to just go back in.
+
+But after a few steps, everything changed. I kept walking around and around that circular housing scheme. I did the loop four or five times, looking right at my house, but I couldn't find the entrance. It was too familiar to not be there, yet I was entirely locked out.
+
+I gave up on the loop and walked toward another connected road. That is where I found our black cat wandering on the asphalt. She has been with us for all nine years Niamh and I have been together, through all the years of dating and our one year of marriage. I picked her up, and the exact moment I lifted her, I was instantly transported quite a distance away.
+
+I was in a place I didn’t recognize at all. I had never been there in my life. With no other choice, I kept walking down this endless road, holding her, until finally the pavement looped back to the circular road where my house was.
+
+The cat brought me home. This time, I managed to get inside through a non-existent garage that just appeared. I walked into the bedroom and got into bed. Niamh was fast asleep. The main light was still on, so I turned the night light off and went to sleep.
+
+The next morning, Niamh was just hanging around the house, scrolling on her phone. Everything felt completely normal. I decided to go to the grocery shop to get us something to cook for the day.
+
+I walked down the circular road to the small corner store. The bell above the door chimed as I walked in. The owner, who had run the shop for years, smiled from behind the counter as he bagged my groceries.
+
+"Heavy night?" he asked.
+
+I blinked, caught off guard. "Not really. Just didn't sleep well."
+
+The owner nodded, pushing the bag toward me. "Yeah, I figured. I saw you walking past the shop around midnight. You were carrying your black cat back home in the dark. Looked like you'd gone quite a distance."
+
+The air in the store suddenly went cold. I looked out the window at the circular road, my throat completely dry, realizing I had never actually woken up.
