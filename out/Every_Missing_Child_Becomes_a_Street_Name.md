@@ -1,0 +1,1145 @@
+I review digital maps for a living, so I know roads don't appear by accident.
+
+Especially not roads named after my dead brother.
+
+The ticket came in at 8:42 on a Tuesday, while I was eating cold toast over my keyboard and pretending I hadn't slept badly again. The subject line was boring enough that I almost skipped it.
+
+FIELD VERIFICATION REQUIRED: ELI V STREET
+
+Spam, I thought. Then a cruel joke. Then one of those small disagreements that happen when county parcel data and a private mapping company stop trusting each other.
+
+Except the road was in Mercy P.
+
+My hometown.
+
+And Eli V was my brother.
+
+He disappeared in 2003. Six years old, blue popsicle in his right hand, standing outside B's Market while I went around the side of the building to talk to some kids I wanted to impress. I was twelve. He was supposed to wait five minutes.
+
+That was the number I gave the police.
+
+Five minutes.
+
+It became the number everyone handed back to me. You were only gone five minutes. A lot can happen in five minutes. You were a child too. People say things like that because they need tragedy to have edges. A beginning, a middle, an end. Five minutes is small enough to hold in your mouth. It sounds like an accident.
+
+I opened the ticket.
+
+Eli V Street appeared on three independent sources: county GIS, USPS address verification, and one commercial satellite layer. According to the metadata, it was a residential access road running north off Junie B Road, just past the old subdivision line.
+
+The satellite image showed trees.
+
+ 
+
+The county layer showed twelve lots.
+
+USPS listed four active addresses.
+
+A note from another contractor read:
+
+Local government confirms road exists. Requires field validation.
+
+I was still staring when the navigation preview loaded, and a woman's pleasant artificial voice came through my laptop.
+
+"In two hundred feet, turn left onto Eli V."
+
+I hit mute hard enough to make my coffee jump.
+
+I hadn't been back to Mercy P in fourteen years. Not for my mother's surgery. Not for the reunion. Not when they found a child's jacket near the old quarry and asked the families to submit fresh DNA. I mailed mine from three states away and threw up in the post office bathroom afterward.
+
+I told my manager I would verify the road in person. She said fine, if I wrapped it up by Friday.
+
+"Everything okay?" she asked.
+
+"Just a weird data thing," I said.
+
+That was always how Mercy P started.
+
+As a weird thing.
+
+A small wrongness you could explain, as long as you didn't look at it straight on.
+
+The drive was four hours. Interstate, then county highway, then the two-lane road that used to make me carsick because Eli would lean across my lap to count cows out my window.
+
+He always cheated.
+
+Brown one. White one. That one's two, it has spots.
+
+That's not how counting works.
+
+It's how mine works.
+
+At the town line, my rental's GPS chimed and recalculated, though I hadn't missed a turn. The screen flashed WELCOME TO MERCY P, and beneath it, for half a second, something else appeared.
+
+ 
+
+I only caught the first word.
+
+REMEMBER—
+
+Then it was gone.
+
+I pulled into the gas station by the old grain elevator. They'd painted the elevator white since I left, and the paint was already peeling, gray showing through like bone. A new coffee kiosk advertised oat milk, which felt obscene somehow, like a vape shop in a cemetery.
+
+The cashier had silver hair and a Mercy P Cardinals sweatshirt. She looked at me, then looked again.
+
+People there recognized me by subtraction. Not my face, not at first. The missing boy around it.
+
+"You're Helen V's girl," she said.
+
+I hadn't heard anyone use my mother's name in years.
+
+"Mara," I said.
+
+Recognition crossed her face, then pity, then caution, in that order.
+
+"Back for the house?"
+
+"Work."
+
+I bought a bottle of water I didn't want. When the receipt printed, she folded it before handing it to me, like it carried something indecent.
+
+I looked anyway.
+
+2 JUNIE B ROAD — CORNER OF JUNIE B & ELI V
+
+"This isn't right," I said.
+
+The cashier glanced toward the window.
+
+"Receipts get funny sometimes."
+
+"Eli V Street doesn't exist."
+
+She smiled, not unkindly. Not cruelly either. Like a woman who had already survived this conversation with other people.
+
+"Roads don't need you to believe in them."
+
+I left the water on the counter.
+
+ 
+
+The afternoon had gone dim in that Midwestern way that feels more like a mood than weather. Clouds sat low over the soybean fields. I drove toward the north edge of town.
+
+Mercy P was smaller than I remembered, but grief does that. As a child, your town is the world. As an adult, you come back and find three stoplights, a church sign, a Dairy Q, and a field where somebody's dog died.
+
+The old streets were still there.
+
+Mercer A.
+
+Pine S Road.
+
+Quarry C.
+
+Then I saw the first child's name.
+
+HANNAH G LANE.
+
+White letters. Green sign.
+
+Hannah G disappeared when I was eight. Everyone knew the story because her mother had been baking a birthday cake and sent her outside for being underfoot.
+
+Ten minutes.
+
+My mother used to drive past their house with both hands locked on the wheel.
+
+Don't stare, she told me once.
+
+But Eli stared. Eli always stared.
+
+Where'd she go? he asked.
+
+My mother said, Somewhere we can't help her.
+
+I didn't understand how strange that answer was until much later.
+
+Then came CALEB S. Caleb N, gone from a bus stop in '96.
+
+LILY-M C. Five years old. Last seen in her grandmother's yard.
+
+THOMAS O WAY. Missing from the fall festival.
+
+I pulled over before Junie B Road and searched each name on the county map.
+
+ 
+
+All active.
+
+Residential. Rural access. Publicly maintained.
+
+The records claimed Hannah G Lane had been established in 1987.
+
+Hannah disappeared in 1995.
+
+I went to the sheriff's office, because some childish part of me still believed buildings with flags in front had to tell you the truth.
+
+The sheriff wasn't the one from my childhood. That man had died of pancreatic cancer. This one was younger than I expected, broad-shouldered, tired-eyed, with a wedding ring he kept turning with his thumb.
+
+His nameplate read D. M.
+
+"You're Mara V," he said before I could introduce myself.
+
+"Everyone keeps doing that."
+
+"You look like your mother."
+
+"I'm sorry to hear it."
+
+Something almost like a smile crossed his face, then vanished.
+
+I showed him my badge, the ticket, the data.
+
+"I need to verify whether Eli V Street physically exists," I said. "And why it's named that."
+
+He leaned back. On the wall behind him hung a framed civic map of Mercy P, laminated and sun-faded. The kind in every municipal building.
+
+I scanned it before I could stop myself.
+
+There it was.
+
+A thin gray line branching north off Junie B Road.
+
+ELI V ST.
+
+"I want that map," I said.
+
+"No."
+
+ 
+
+"You don't even know what I'd do with it."
+
+"I know what people do with maps."
+
+The sentence sat between us.
+
+"My brother disappeared twenty-three years ago," I said.
+
+"I know."
+
+"Then why is there a road named after him?"
+
+He looked down at his desk. Under the glass blotter was a child's drawing: yellow sun, stick figures, a dog too big for the house beside it. In the corner, in careful letters, someone had written BEN.
+
+"Don't go there after dark," he said.
+
+"Official recommendation?"
+
+"No."
+
+"Then what?"
+
+He looked at me.
+
+"A lesson this town learned badly."
+
+I almost laughed. "You people rehearse this?"
+
+"If you see something you remember, don't stop for it."
+
+"That's your advice?"
+
+"No," he said. "That's what I failed to do."
+
+He slid a business card across the desk. His number was handwritten on the back.
+
+"If the road starts using your voice," he said, "call me."
+
+I left without the card.
+
+Then I came back for it thirty seconds later.
+
+The planning office shared a brick building with the library and smelled like toner and old carpet. I told the clerk I was there about Eli V Street.
+
+ 
+
+From the back room, someone dropped a mug.
+
+A minute later, June T came out.
+
+I hadn't seen June since we were seventeen, when she told me at a graduation party that leaving Mercy P wouldn't fix what was wrong with me. She'd aged the way some people do: the same face kept under time, like a room that never changes its wallpaper.
+
+Sharp cheekbones. Thin mouth. Eyes that made you feel she'd already corrected your version of events in her head.
+
+"Mara."
+
+"June."
+
+"Heard you were in town."
+
+"I got here two hours ago."
+
+"Small town."
+
+"Apparently getting bigger."
+
+Her eyes flicked to the clerk.
+
+"Come back."
+
+Her office had no photographs. Just binders, file cabinets, zoning maps, and a dead plant on the windowsill. I shut the door.
+
+"You know why I'm here," I said.
+
+"Eli's road."
+
+My stomach turned at how easily she said it.
+
+"You say that like it's normal."
+
+"Nobody said normal."
+
+"I need the development records."
+
+"You won't find any."
+
+"I have county authorization."
+
+"Mara."
+
+ 
+
+The way she said my name made me hate her again. Not because it was cruel. Because it was tired.
+
+She took a key ring from her drawer.
+
+"You remember the maps we used to draw on?" she asked.
+
+"No."
+
+"At B's. Behind the soda machines. Tommy B stole county maps from his dad's office. We drew fake roads on them."
+
+The room seemed to tilt.
+
+I remembered the soda machines. The alley behind B's where the pavement was always sticky. June at twelve, chewing grape gum, bored by everything.
+
+I did not remember maps.
+
+She watched me not remember.
+
+"Convenient," she said.
+
+"Don't."
+
+"You came here wanting someone else to be guilty."
+
+"My brother disappeared."
+
+"I know."
+
+"You think I forgot that?"
+
+"No," June said. "I think you remembered it the way you could live with."
+
+I almost left then.
+
+I wish I had.
+
+Instead, I followed her through a locked archive to a cabinet labeled HISTORIC PLATS / DECOMMISSIONED ROUTES. She set a flat cardboard box on the table.
+
+Inside were folded maps.
+
+Some official.
+
+Some photocopied.
+
+ 
+
+Some drawn by children.
+
+The one she handed me had been creased soft as cloth, its edges furred from handling. Across the top, in blue marker, was a title in handwriting I knew before I understood why.
+
+GO SOMEWHERE ELSE GAME
+
+It was Mercy P, 2003.
+
+But in the blank spaces around the town, children had drawn roads in crayon and pen and pencil. Loops. Dead ends. Lines cutting straight through fields and houses. Every road had a name.
+
+Not street names.
+
+People.
+
+Mrs. H.
+
+Coach R.
+
+Caleb's dog.
+
+Stupid T.
+
+Mom when she yells.
+
+And there, north of Junie B Road, in my twelve-year-old block letters:
+
+ELI V
+
+I touched the paper.
+
+Something rose from it.
+
+Blue raspberry. Dust. Hot pavement.
+
+My mouth flooded like I was going to be sick.
+
+June looked away first.
+
+"We all played," she said.
+
+I shook my head.
+
+"You wrote people down when you wanted them somewhere else," she said. "Not dead. Not hurt. Just away."
+
+ 
+
+I wanted to ask who she had written.
+
+I didn't need to.
+
+Behind her desk, through the window, Junie B Road turned sharply where, according to every old map I had ever trusted, it should have kept going straight.
+
+I folded the map with shaking hands.
+
+"You knew," I said.
+
+"I suspected."
+
+"You all did."
+
+"Mara, every town has missing children."
+
+"Not every town names streets after them."
+
+She flinched.
+
+Good.
+
+Then she said, very softly, "Eli's road doesn't end where he disappeared."
+
+I stopped.
+
+"It ends where he was trying to go."
+
+B's Market was still there, though it hadn't been B's in years. Mercy F & F now. Lottery sign in the window. Firewood by the door.
+
+The soda machines were gone.
+
+The alley wasn't.
+
+I parked badly and stood on the cracked sidewalk where I'd left him. The world hadn't marked the place. Some part of me had always expected it to.
+
+I closed my eyes, and his voice came back so clearly I turned around.
+
+If I wait, can I pick the cereal?
+
+He'd been wearing the green dinosaur shirt with the hole near the collar from where he chewed it when he was nervous. Blue mouth from the popsicle. One front tooth missing, tongue working the gap.
+
+ 
+
+I was embarrassed by him.
+
+That's the ugliest true thing about my life, and for years I dressed it in softer words.
+
+I was distracted.
+
+I was young.
+
+I wanted five minutes.
+
+No.
+
+I was embarrassed by how openly he loved me. The way he followed me. The way he thought I was the safest person in the world, when I was a mean, frightened girl desperate to be chosen by anyone else.
+
+The older kids had been by the alley. June among them. A silver CD player playing something tinny. Someone laughed when they saw Eli holding the hem of my shirt.
+
+You brought your shadow again? June said.
+
+I heard the rest of it now.
+
+Not like memory usually comes, blurred and merciful.
+
+Sharp.
+
+I told Eli to wait.
+
+He asked about the cereal.
+
+I said yes.
+
+He smiled.
+
+Then June held out the map.
+
+Write him down. Give him his own road.
+
+I remembered laughing.
+
+I remembered taking the marker.
+
+I remembered Eli trying to see.
+
+Is that my road?
+
+Yeah.
+
+ 
+
+Can it go to our house?
+
+Sure. Whatever.
+
+Then I wrote his name.
+
+Not because I believed in anything.
+
+Because for one clean, poisonous second, I wanted to know what it felt like to walk somewhere he couldn't follow.
+
+My phone buzzed.
+
+Unknown number.
+
+I answered without thinking.
+
+"Where are you?" Mercer asked.
+
+"B's."
+
+"Leave."
+
+"I remembered."
+
+"Then leave faster."
+
+"What is Eli V Street?"
+
+Static crackled between us.
+
+"A child's road," he said.
+
+"What does that mean?"
+
+"It means he's still trying to get somewhere."
+
+The sky had gone dark without my noticing.
+
+In the dark glass of the storefront, behind my own reflection, a small boy stood by the ice freezer. Blue mouth. Dinosaur shirt. Looking at the alley.
+
+Not at me.
+
+I turned.
+
+No one.
+
+ 
+
+"Mara," Mercer said.
+
+His voice was lower now.
+
+"If you go there, the road will give you what you deserve. That's not the same as the truth."
+
+The line dropped.
+
+My GPS chimed.
+
+ELI V STREET — 12 MIN
+
+I don't remember deciding to go.
+
+That sounds like an excuse, and maybe it is.
+
+But there are moments when guilt becomes a steering wheel. You can take your hands off it. It turns anyway.
+
+Junie B Road ran north past the last of the new houses with their identical porches, then narrowed between fields, then trees.
+
+No streetlights.
+
+No mailboxes.
+
+Just weed-choked ditches and the gray suggestion of forest beyond.
+
+At 6:03, the GPS said, "In four hundred feet, turn left onto Eli V."
+
+"Don't say his name," I whispered.
+
+"In two hundred feet, turn left onto Eli V."
+
+There was no road.
+
+Then there was.
+
+Not appearing. Not materializing through fog. Just suddenly undeniable, as if my eyes had been refusing it and finally gave up.
+
+A narrow paved lane opened between two walls of trees.
+
+The sign at the corner looked new. Rainwater clung to it, though it hadn't rained.
+
+ELI V ST.
+
+ 
+
+Below it hung a smaller yellow sign I've never seen on any road anywhere.
+
+NO OUTLET UNLESS REMEMBERED
+
+I turned in.
+
+The blacktop was smooth and new. My headlights washed over ditch grass. The GPS went silent. My phone lost service.
+
+Then the smell came through the vents.
+
+Blue raspberry.
+
+The road curved, and the trees fell away.
+
+B's Market stood ahead of me, lit by a late-afternoon sun that didn't reach my car. The old red sign was back, one fluorescent tube flickering. The soda machines leaned against the wall.
+
+A small boy sat on the curb, kicking his heels.
+
+He didn't look up.
+
+His popsicle dripped blue onto the concrete, drop after drop, but instead of running to the gutter, the stain stretched out along the road ahead of me. A thin blue line leading on.
+
+I almost opened the door.
+
+The boy lifted his head.
+
+It wasn't Eli.
+
+Not exactly.
+
+It was my memory of him, which was worse. Too bright. Too clear. Six years old forever, made of the pieces my guilt had polished until they shone.
+
+His mouth moved, and through the closed window I heard him.
+
+If I wait, can I pick the cereal?
+
+I drove.
+
+The market vanished behind me, and the road became a school hallway.
+
+My tires rolled soundlessly over beige tile. Lockers ran down both sides. My headlights made no sense there, but they still cut forward, trembling over classroom doors and bulletin boards.
+
+ 
+
+Every drawing on the walls was a road.
+
+Some went into houses. Some into lakes. Some into open mouths.
+
+None reached anything.
+
+They were the careful, patient work of children who kept getting the way home wrong and kept trying anyway.
+
+At the far end, Eli stood with his backpack on. Too big for him. Red straps. A dinosaur clipped to the zipper.
+
+He was checking the classroom doors.
+
+One.
+
+Then the next.
+
+Then the next.
+
+The way you search a building for someone who was supposed to be there.
+
+He had walked those doors before. I understood that the way you understand things in dreams, completely and all at once. He had searched for me in places I had never been, because those were the only places he knew how to imagine.
+
+"Eli," I said.
+
+He turned.
+
+His face opened with relief.
+
+Not fear.
+
+Relief.
+
+He started toward the car, not running, just walking, sure of me now.
+
+I put my foot down.
+
+Because if he reached the door, I would open it.
+
+And if I opened it, I would never leave.
+
+For a few seconds, the distance between us refused to close, no matter how fast I went.
+
+That was the most frightening thing yet.
+
+ 
+
+Not that he was chasing me.
+
+That he couldn't catch up.
+
+Then the hallway snapped back into road.
+
+I was crying too hard to see.
+
+The next stretch was my mother's car.
+
+Not visually, not entirely. The road stayed under my tires. But the air thickened into the inside of her old blue Ford.
+
+Stale coffee.
+
+Wintergreen gum.
+
+The radio giving the forecast from the day he went.
+
+She sat ahead of me and to the left, hands at ten and two. The ring already gone from her finger because she'd pawned it that year.
+
+His booster seat was behind her.
+
+Empty.
+
+Beside it sat me.
+
+Twelve years old. Looking out the window with a face like a drawn blind.
+
+"You were gone five minutes," my mother said.
+
+"Stop," I whispered.
+
+"You were gone five minutes."
+
+The twelve-year-old turned her head and looked back at me with dry eyes.
+
+She wasn't haunted yet.
+
+She wasn't sorry yet.
+
+She was just a girl who had gotten what she asked for and hadn't understood the price.
+
+"He was always there," she said. Reasonable. Almost bored. "I just wanted one place he wasn't."
+
+ 
+
+I put the car halfway into the trees rather than hear another word.
+
+Branches screamed down both sides. When the road straightened again, I was shaking so hard I could barely hold the wheel.
+
+And I understood then that the cruelest thing on this road wasn't going to be my mother, or the dark, or whatever waited at the end.
+
+It was going to be myself, telling the truth, at twelve.
+
+Then came my bedroom.
+
+The road did not become a house.
+
+It went into one.
+
+My headlights crossed pink carpet I hadn't thought about in twenty years. Posters. A white dresser. A bead curtain in the doorway. My unmade bed.
+
+The car idled in the middle of the room.
+
+When I cut the engine, the silence was enormous.
+
+On the floor sat Eli, my old road map spread in front of him, the blue marker in his hand.
+
+He was trying to draw, tongue poking through the gap in his teeth.
+
+"Eli," I said.
+
+He looked up.
+
+This time he wasn't polished by memory.
+
+His hair was messy the way it really had been. His nose was running. There was dirt on one knee and dried popsicle sticky on his hand.
+
+He looked tired.
+
+Not dead. Not monstrous.
+
+Just tired the way a child looks when he has been waiting too long and still believes the grown-up is coming.
+
+"Mara," he said.
+
+I opened the door.
+
+ 
+
+The air smelled like my childhood. Dust, strawberry shampoo, crayons, sun-warmed plastic.
+
+He smiled.
+
+I had forgotten the exact shape of his smile.
+
+That was one more thing I had done to him without noticing.
+
+"You found my road," he said.
+
+I got out. My legs almost didn't hold.
+
+"I'm sorry."
+
+His smile faded, not from anger. Children don't know what to do with an apology that big.
+
+"You said it could go home," he said.
+
+"I know."
+
+"I made it go to B's first." The room flickered. For a second, the carpet was pavement, the dresser a soda machine. "Because that's where you left me."
+
+"Then to school." Another flicker. Lockers. Fluorescent hum. "I thought maybe you went there."
+
+He smoothed the map with his small hand.
+
+"But it kept getting lost."
+
+I went down on my knees in front of him.
+
+"I tried to remember the way," he said. "I did. The store and the cereal and your room. How you smelled like that orange gum you weren't allowed to chew. Your shoes."
+
+A broken sound came out of me.
+
+He smiled a little.
+
+"They had silver stars."
+
+"They were stupid shoes."
+
+"I liked them."
+
+Then he looked back at the map.
+
+"I waited."
+
+ 
+
+"I know."
+
+"No," he said gently. "I waited all of them."
+
+I won't try to describe what happened in me then.
+
+It wasn't crying. Crying is something the body can do and survive.
+
+This was older.
+
+Something that had been frozen since I was twelve cracked all the way through, and through the crack I saw him.
+
+Waiting outside B's as the sun moved.
+
+Waiting through the police lights.
+
+Waiting while our mother screamed his name hoarse.
+
+Waiting while rain washed the blue from the curb.
+
+Waiting while flyers faded.
+
+Waiting while I grew taller, learned to drive, kissed boys who didn't know his name, told people I was an only child because it was easier than watching their faces change.
+
+He had waited with the kind of patience only a child has, when someone they love has promised to come back.
+
+"You look old," he said.
+
+I laughed and sobbed at once.
+
+"I know."
+
+"Are you still mad?"
+
+"No. I was stupid then."
+
+"You wrote me on the map."
+
+I couldn't answer.
+
+He looked at the paper, then at me.
+
+"I thought it was a present."
+
+That was the one that did it.
+
+ 
+
+Not an accusation.
+
+Not anger.
+
+A little boy who thought his sister had given him a road.
+
+His cold fingers found my wrist.
+
+"Don't cry," he said.
+
+"Why?"
+
+His eyes moved to the doorway.
+
+The bead curtain was gone.
+
+Beyond it wasn't the hallway of our old house.
+
+It was a road.
+
+New. Unpaved. Pale dirt under a sky with no color in it.
+
+At the end of it stood my mother.
+
+She looked younger than when she died and older than when I left, both at once. Her arms hung at her sides. In one hand she held a folded map.
+
+Behind her, street signs leaned at crooked angles.
+
+Hannah G.
+
+Caleb.
+
+Lily-Mae.
+
+Thomas.
+
+Ben M.
+
+Names I knew.
+
+Names I didn't.
+
+My mother did not move.
+
+She only unfolded the map.
+
+Even from across the room, I knew her handwriting.
+
+ 
+
+MARA V
+
+Not in crayon.
+
+In pen.
+
+Dark. Deliberate. An adult hand.
+
+"When?" I asked.
+
+Eli's fingers tightened around my wrist.
+
+"The night after I went."
+
+The room went cold.
+
+"She said she only meant five minutes too."
+
+For the first time since she died, I understood the way my mother had watched me grow up.
+
+Not without love.
+
+Not with love, either.
+
+With fear.
+
+She had wanted me gone for one second. Long enough not to look at what I had done. Long enough to imagine a house where she had lost only one child, and not the wrong one.
+
+The town had listened to her too.
+
+But Eli's road came first.
+
+Drawn earlier by a girl who didn't believe in it.
+
+My brother, who thought it was a gift, had walked out onto the road that might have taken me.
+
+And he had been trying to find his way back to me ever since.
+
+"You have to go," he said.
+
+"I'm not leaving you again."
+
+He frowned, like I was being difficult about bedtime.
+
+"You didn't leave me all the way."
+
+"Yes, I did."
+
+ 
+
+"No," he said. "You remembered me."
+
+"I stopped saying your name."
+
+"But you didn't forget it."
+
+Some mercies hurt worse than punishment.
+
+He pushed the folded map into my hands.
+
+"Take it."
+
+"What is it?"
+
+"My road."
+
+In the doorway, my mother took one step forward.
+
+The house shuddered.
+
+Eli leaned close and whispered, "Keep it folded, and it can't find the end."
+
+"Eli—"
+
+"Don't let it make a street out of you."
+
+Then he ran past me.
+
+Not to me.
+
+Past me.
+
+Toward our mother.
+
+For one insane second I thought he meant to hug her.
+
+Then he threw both arms around her waist and held on the way he used to hold on to me when he was tired. Stubborn. Sticky-handed. Impossible.
+
+"Go!" he shouted.
+
+My mother made a sound.
+
+It wasn't a monster's sound.
+
+That would have been easier.
+
+It was grief turned inside out.
+
+ 
+
+The walls cracked. The bead curtain flashed in and out of being. Every poster in the room became a map.
+
+I ran for the car.
+
+When I started it, I looked back.
+
+Eli was still holding her.
+
+He looked at me over his shoulder, and now he was crying. Really crying. Scared and brave and far too small.
+
+I had never let myself imagine him crying.
+
+In my memory, he had always been frozen before the fear.
+
+"Mara!" he called.
+
+I rolled the window down.
+
+"What?"
+
+He smiled through it.
+
+"I picked the cereal."
+
+Then the room collapsed into road.
+
+I drove.
+
+I don't know for how long.
+
+The road unspooled under me in pieces of other people's children.
+
+A kitchen floor.
+
+A bus seat.
+
+A backyard going dark.
+
+A small hand letting go.
+
+At one point, I passed Mercer standing beside a sign that read BEN M WAY. He didn't wave. He took off his hat and held it to his chest as I went by.
+
+Then the trees came back.
+
+ 
+
+Then Junie B Road.
+
+Then my phone found service, and there was a normal night sky over me, indifferent and full of stars.
+
+I pulled over and was sick into the ditch.
+
+The folded map was on the passenger seat.
+
+It was warm.
+
+I didn't stop at a motel. I drove out of Mercy P and kept going until the sun came up.
+
+At a rest stop two counties over, I opened the map.
+
+Most of the roads had faded.
+
+Not gone.
+
+Faded.
+
+Like pencil under an eraser.
+
+Eli V Street was still there, thinner now. At its end, in a shaky child's hand, someone had drawn a small square house.
+
+Inside it were two stick figures side by side.
+
+One tall.
+
+One small.
+
+The small one had blue around the mouth.
+
+The tall one wore shoes with silver stars.
+
+I laughed until people stared.
+
+Then I cried until they stopped.
+
+When I got home, I filed Eli V Street as invalid.
+
+The system rejected the edit.
+
+ROAD VERIFIED BY LOCAL AUTHORITY.
+
+ 
+
+I tried to delete the ticket.
+
+The screen went white.
+
+When it came back, a new field had appeared.
+
+FUTURE EXTENSION: MARA V ROAD
+
+Status: Pending.
+
+I called Mercer.
+
+Disconnected.
+
+I called June.
+
+No answer.
+
+I check the county map sometimes.
+
+Eli V Street is gone now. Not unlisted. Gone. The parcel lines have closed over it like water. Satellite shows only trees.
+
+But there is a new road on the north side of Mercy P.
+
+I found the photo in the database one night. The green paint on the sign still looked wet, though the records say it has been there since the year I was born.
+
+MARA V ROAD.
+
+I have never driven it.
+
+I don't need to.
+
+Some mornings, my navigation app suggests it before I type anything in.
+
+Some nights, when I unfold the map just enough to check that Eli's road is still closed, I see the pencil line of mine stretching a little farther.
+
+It does not lead to Mercy P.
+
+Not anymore.
+
+Last week, it turned toward my apartment.
+
+I keep the map folded.
+
+I keep saying his name.
+
+ 
+
+No outlet unless remembered.

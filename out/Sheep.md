@@ -1,0 +1,21 @@
+"Alright, I'll fill the car with fuel—we have to go."
+
+That was what Gabriel said to his son, Moses. Gabriel was nothing more than a sheep trader, while his son was an ambitious young man. In his room, Moses had packed his bag full of books. As he stepped out, his father saw him with that bulging bag. He was deeply displeased and told him to take it back to his room and forget such trivial nonsense. Moses had no choice but to comply and carry out his father's request.
+
+Meanwhile, Gabriel had finished fueling his car. He started the engine, the vehicle loaded with seven sheep he had taken to a private breeder he knew well. On the road, Moses chattered endlessly about the names he would choose for the new sheep—how exciting it was, how unique the names would be. But his father cared about nothing except arriving before sunset; otherwise, they would be forced to spend the night, which was the exact opposite of what Gabriel wanted. Lost in thought, he did not notice that he had pressed the gas pedal as far as it would go.
+
+He arrived scarcely an hour late. By six in the evening, he had already begun unloading the sheep. He had two hours to return home. He unloaded his sheep quickly, impatience written all over his face, but this time he decided to choose his sheep carefully. He walked calmly among them, placing his hand on a sheep with a white face. "This one," he said, then a reddish one, and so on, until he had loaded nine sheep into his car. But Moses insisted on bringing a ram, which was of no use. Gabriel told him the ram was pointless since they were selling the sheep, but Moses was adamant. Hurried and exasperated, Gabriel decided to swap it for one of the ewes.
+
+On the way back, Gabriel drove fast, but he still arrived past his scheduled time—only at half past eight. He unloaded the sheep into the stable and went upstairs with his son for dinner. As Gabriel was drinking his tea, he heard a loud noise from the stable. He ignored it at first, but after the second and third sounds, he sent Moses to check. Moses went down, but all he could see were the glowing eyes of the sheep. He decided to count the pairs of eyes to know how many sheep there were. He began counting: one, two, three, four... until he reached eight. He noticed one was missing. He looked around until his eyes adjusted to the darkness and he began to see. He raised his head toward the ceiling—and there, the last pair of eyes was clinging to the ceiling.
+
+Moses did not grasp it immediately. He looked again until he realized he was staring at the missing ram. It was standing on its hind legs, bending its head, looking down at him with its eyes. Then Moses fell to the ground amidst the sheep dung and feed, dragging himself backward in terror, while the cold air surrounded him—unlike the usual foul stench of the stable. Yet the ram kept approaching him calmly. Each step was clearly audible, as was the sound of his own heartbeat. With every step the ram drew nearer, Moses felt his hope of survival slipping away—until the ram's hooves reached his feet.
+
+But it stopped. It looked at him calmly and began to arch its back. It was growing larger and taller. The sound of its vertebrae elongating was distinctly audible. The ram's head came level with Moses's face. Then it blew a powerful breath at him. Moses saw nothing but bright lights shining on him in the hospital, his terrified family hovering above him. He looked at his frightened mother and his father, who was trying to act strong, saying, "It's good you're awake, Moses. Tell me, how did you fall?"
+
+Moses, in a trembling voice, said, "Fall? What are you talking about?"
+
+Gabriel said, "We heard you fall against the stable wall last night. I ran to find you lying among the sheep."
+
+Moses: "What? How did that happen?"
+
+Gabriel: "Yes, it was strange finding you there among the sheep. Maybe we left the stable door open."

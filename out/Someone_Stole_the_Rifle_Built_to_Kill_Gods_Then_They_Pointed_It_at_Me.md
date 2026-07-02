@@ -1,0 +1,1086 @@
+Part 1: [I Work for an Organization That Contains Gods. We Had to Make a Sacrifice This Time.](https://www.reddit.com/r/nosleep/comments/1u6uzz2/i_work_for_an_organization_that_contains_gods_we/)
+
+Part 2: [I Went to Antarctica Looking for 10,000 Missing People. I Came Back With a New Boss.](https://www.reddit.com/r/nosleep/comments/1u9om8s/i_went_to_antarctica_looking_for_10000_missing/)
+
+Part 3: [Apparently Using Assistants as Sacrifices Violates Company Policy](https://www.reddit.com/r/nosleep/comments/1uc8w6u/apparently_using_assistants_as_sacrifices/)
+
+Part 4:[ I Work for an Organization That Hunts Gods. One of Them Warned Me About the Angel Following Me.](https://www.reddit.com/r/nosleep/comments/1ud5jzx/i_work_for_an_organization_that_hunts_gods_one_of/)
+
+Part 5: [My Boss Asked Me If I Thought He Was a Monster. Now I Know Why.](https://www.reddit.com/r/nosleep/comments/1ugsw9b/my_boss_asked_me_if_i_thought_he_was_a_monster/)
+
+Part 6: [The Most Powerful Being in the CSP Is Studying Humans. Unfortunately, I'm His Favorite Lab Rat.](https://www.reddit.com/r/nosleep/comments/1ujfm8m/the_most_powerful_being_in_the_csp_is_studying/)
+
+I woke to the quiet vibration of my phone against the nightstand. Not ringing. Vibrating. Whoever was calling knew better than to wake an entire apartment building before dawn. My hand fumbled across the table until I found it. The screen showed a single name.
+
+Jacob.
+
+I answered immediately.
+
+"...What's wrong?"
+
+There was no greeting.
+
+"Nayeri."
+
+His voice was calm.
+
+Too calm.
+
+"Sean is gone."
+
+Sleep vanished instantly. I sat upright.
+
+"What do you mean, gone?"
+
+"His absence was discovered during this morning's scheduled worship session with the Egyptian god."
+
+For a moment, I simply stared into the darkness.
+
+"...How?"
+
+"We do not know."
+
+That answer didn't make sense.
+
+Sean wasn't a god.
+
+He wasn't an angel.
+
+He was just...
+
+A human. Even under the Egyptian god's control, he was still just a human. Someone like him escaping CSP Headquarters should have been impossible.
+
+"...Has someone helped him?"
+
+"We are investigating."
+
+"A portal?"
+
+"No evidence."
+
+"A breach?"
+
+"No."
+
+Each answer only made Sean's disappearance stranger. Jacob let out an almost imperceptible sigh before saying, "I will call you with further updates."
+
+The line went dead.
+
+I stared at my phone for another few seconds before climbing out of bed. When I stepped into the living room, Angelo was already awake. He sat quietly on the couch with his hands folded in his lap, watching the sunrise spill through the apartment window.
+
+Without looking away from the glass, he asked, *"...You could not sleep?"*
+
+"Jacob called."
+
+That got his attention.
+
+He turned toward me.
+
+*"I see."*
+
+"Sean's gone."
+
+For the first time since I'd met him, Angelo didn't answer immediately. He tilted his head slightly, as though trying to fit those words into a version of reality where they made sense.
+
+*"...Gone?"*
+
+"They didn't find him at the Egyptian god's worship session this morning."
+
+He was silent for several long seconds, his expression unchanged. If anything, that worried me more.
+
+Finally, he spoke.
+
+*"That should be physically impossible for a human."*
+
+Neither of us said anything after that.
+
+A minute later, we left the apartment. I'd just locked the door when a bright flash lit up the hallway.
+
+**Click.**
+
+A camera shutter.
+
+I looked at Angelo, then at the woman already bolting down the stairs. The phone in her hand told me everything I needed to know.
+
+I pinched the bridge of my nose.
+
+"One of your stalkers."
+
+Angelo tilted his head.
+
+*"...I have stalkers?"*
+
+"Your fan club."
+
+He blinked once.
+
+I took off after her. It didn't take long to catch up. She was sprinting down the stairs, taking three or four steps at a time like an overcaffeinated monkey.
+
+Unfortunately for her, so was I.
+
+I caught the back of her jacket before she'd even reached the next landing.
+
+She yelped.
+
+"Wait! I can explain!"
+
+Before she could react, I took the phone from her hand. I looked down the center of the stairwell, then let go.
+
+The phone bounced off one landing. Then another, before disappearing into the shaft.
+
+A second later, a satisfying CRACK echoed up from fifteen floors below.
+
+I looked back at her.
+
+She stared at me in horror.
+
+"Now," I said, brushing off my hands, "you don't need to explain."
+
+Her expression cycled through horror, surprise, and anger in the span of about ten seconds.
+
+"How long has he been living with you?"
+
+I raised an eyebrow.
+
+"How long have you been camping outside my apartment?"
+
+Her mouth opened, then quietly closed again.
+
+I took a step closer.
+
+"You're aware you can be disciplined for stalking a senior officer, right?"
+
+The color drained from her face.
+
+"R-Right..."
+
+"Good."
+
+That was enough to kill the rest of her questions. Which was for the best.
+
+Because who Angelo lived with was none of her business.
+
+As if on cue, Angelo materialized beside me without so much as a sound and continued toward the next flight of stairs. He didn't even spare the woman a glance, looking at me instead, he said in the same calm voice as always,
+
+*"We are going to be late."*
+
+I guess his priorities were straight.
+
+Even after watching me interrogate one of his stalkers, Angelo seemed far more concerned about arriving on time than anything else.
+
+By the time we reached Jacob's office, only a handful of people were inside. Madame Leni stood beside the conference table, along with several division chiefs and the heads of Security and Intelligence. Every person in the room held the highest level of clearance. The doors sealed behind us with a heavy metallic click.
+
+A holographic recording hovered above the table.
+
+Jacob didn't waste time.
+
+"The Egyptian god remains in custody."
+
+A small relief.
+
+"But we've recovered security footage."
+
+The recording began.
+
+Sean walked calmly through Wing Six.
+
+No guards chasing him.
+
+No signs of panic.
+
+He simply rounded a corner...
+
+...and disappeared.
+
+The recording froze.
+
+"That's it?" I asked.
+
+Jacob nodded.
+
+"Every camera beyond that point was erased. This is the final ten seconds we possess."
+
+I frowned.
+
+Wing Six.
+
+Why Wing Six?
+
+That section only housed archives, administrative offices, and enough paperwork to make demons confess out of boredom. Sean had no reason to be there. Then my mind connected two corridors. Wing Six bordered Wing Seven.
+
+My stomach dropped.
+
+Wing Seven housed the Angelic Armory. Only a handful of people in the entire CSP even knew it existed.
+
+Sean shouldn't have known.
+
+Jacob must have reached the same conclusion because he slowly turned toward the Security Chief.
+
+"The armory."
+
+The room fell deathly silent.
+
+The Security Chief's face drained of color before he rushed for the exit without another word.
+
+Jacob didn't wait.
+
+"I'm going myself."
+
+He turned toward me.
+
+"Nayeri. Interrogate the Egyptian god."
+
+I nodded.
+
+Neither of us said what everyone in that room was thinking.
+
+If Sean had reached the Angelic Armory...
+
+...then the only thing more dangerous than a god on the loose was a man carrying a weapon built to kill one.
+
+We reached the forty-fifth floor only minutes later.
+
+The Egyptian god hadn't changed much since our last visit. It was still in the form of the massive stone statue, still surrounded by thousands of silent worshippers shuffling in endless circles as they whispered prayers beneath their breath.
+
+Although...
+
+It looked smaller.
+
+Not by much.
+
+Just enough to make me wonder if I was imagining it.
+
+The statue smiled the moment I stepped inside.
+
+"We meet again, agent."
+
+"I was hoping we wouldn't."
+
+"I, however, wished to thank you."
+
+I frowned.
+
+"For what?"
+
+"Your gift."
+
+"What gift?"
+
+Its stone lips curled into something almost resembling amusement.
+
+"Your assistant. He is a remarkably devoted worshipper. My favorite among the thousands who now serve me."
+
+The chanting around us faltered for a single heartbeat before settling back into its endless rhythm.
+
+"Do you know where your favorite worshiper is?" I asked.
+
+"No."
+
+"Don't lie."
+
+The statue laughed, the sound rolling through the chamber like distant thunder.
+
+"Agent... how does it feel to command an angel?"
+
+"We don't command him."
+
+"Humans were never meant to possess such power."
+
+I said nothing.
+
+It continued anyway.
+
+"Did Heaven never teach you what angelic blood can do?"
+
+A knot formed in my stomach.
+
+"A single drop," it whispered, "is enough to let a god become more than it was ever meant to be."
+
+Before I could ask another question, the elevator doors slid open behind me.
+
+Jacob stormed inside with half the Security Division at his back, and one look at his face told me everything. "The armory's been breached."
+
+My stomach dropped as he continued.
+
+"The angelic rifle is missing."
+
+The room fell silent.
+
+Then everything clicked into place. Sean had gone to Wing Seven. He'd stolen the angelic rifle, and all of it had been for a single purpose.
+
+Angelo's blood.
+
+The Egyptian god had never been trying to escape.
+
+It was trying to obtain the blood.
+
+The statue laughed.
+
+"This rifle?"
+
+A figure stepped out from behind the massive stone statue.
+
+Sean.   
+His eyes were vacant, stripped of anything human, and the angelic rifle rested comfortably in his hands as though he'd carried it his entire life. Without a word, he slowly raised the barrel.
+
+For one impossible moment, I thought he was aiming at Angelo.
+
+He wasn't.
+
+He was aiming at me, and all I felt was an unexpected sense of calm. Funny enough, I'd made peace with dying a long time ago. If someone had to be standing in front of that rifle, I'd rather it be me than him.
+
+Sean pulled the trigger.
+
+**BANG.**
+
+A violent rush of air swept across my face. I blinked, expecting pain, but instead all I could see was the back of a black suit.
+
+I slowly looked up.
+
+Angelo.
+
+He was standing between me and the rifle. At my height, his body completely obscured everything in front of me. I hadn't even seen him move. One moment he had been on the opposite side of the room, and the next he was shielding me from a rifle he had forged with his own power, a weapon created for one purpose.
+
+To kill gods.
+
+Then Jacob screamed.
+
+"ANGELO!"
+
+A crimson droplet floated past my field of vision.
+
+Drip.
+
+The Egyptian god moved.
+
+No.
+
+It lunged.
+
+Angelo grabbed me and pulled me sideways just as the massive stone statue crossed the chamber with impossible speed, its enormous hand crashing into the floor as it reached for the crimson droplet. Its finger brushed the angelic blood midair, and for one long heartbeat, the entire room fell silent.
+
+Then the statue began to laugh.
+
+"At last..."
+
+The laughter died almost as quickly as it had begun.
+
+A sharp crack echoed through the chamber.
+
+The god looked down at its hand as thin black fractures spread across the stone where Angelo's blood had touched it. The cracks multiplied with terrifying speed. First the fingers crumbled into dust, then the hand, then the wrist. The Egyptian god let out a scream unlike anything I'd ever heard. It wasn't the scream of something in pain.
+
+It was the scream of pure panic.
+
+The corruption raced up its arm, reducing ancient stone to ash that scattered across the floor. Around us, the endless chanting dissolved into screams as thousands of worshippers staggered backward or collapsed to their knees while identical cracks spread across their bodies.
+
+"You don't understand!" the god shrieked. "I have worshippers! I have power! I have—"
+
+The sentence ended in a cough of gray dust.
+
+A jagged fracture split across its chest, followed by another, and then another, until the entire statue stood perfectly still as everything held its breath for one endless second before it collapsed. Not into rubble, but into ash, a mountain of gray dust crashing onto the floor where an ancient god had stood only moments before, leaving silence to settle over the chamber. 
+
+The chanting had already stopped, and the worshippers were gone as well, reduced to ash alongside their god, while Sean lay motionless on the floor, his body cracked like weathered stone as gray dust drifted from the fractures.
+
+I looked at Jacob.
+
+His eyes widened.
+
+"No!"
+
+He sprinted past me and dropped to Sean's side, his hands shaking as he searched desperately for any sign of life. I ran to Angelo instead, my eyes immediately finding the neat, circular hole burned straight through the front of his black shirt where the round had struck.
+
+My stomach dropped.
+
+Slowly, I reached forward and pulled the torn fabric aside.
+
+Pale skin.
+
+Unbroken.
+
+Not even a mark.
+
+“We are going to the nurse now,” I demanded.
+
+*“I am fine,”* Angelo replied, already turning away as though an angelic rifle hadn't just been fired at him.
+
+“No, you’re not.”
+
+He paused.
+
+That, more than anything, told me I was right.
+
+Around us, ash drifted through the chamber like snow where a god had ceased to exist, while somewhere behind me Jacob shouted orders over what remained of Sean.
+
+Angelo finally looked back at me.
+
+*“I sustained no injury.”*
+
+“There’s a hole in your shirt.”
+
+He glanced down at the neat circular burn and said, *“It did not penetrate,”* 
+
+“That’s not the point,” 
+
+*“It is the only relevant point.”*
+
+I grabbed his wrist before he could walk off again, and for once he didn’t resist, which somehow made my stomach tighten more than if he had.
+
+“We are going to medical. Now.” 
+
+I watched his gaze flick to my hand before he answered, *“…Very well,*” while ash continued to fall behind us.
+
+The nurse looked at me the moment we walked in like she’d already decided this was above her pay grade, her eyes flicking from Angelo to me and back again as if trying to determine whether this counted as a medical emergency or a diplomatic incident.
+
+“…Right,” she said slowly, sinking back into her chair. “Okay.”
+
+She leaned forward, squinting at the hole in his shirt and then at the skin beneath it, before exhaling through her nose and asking, “…It didn’t go through?”
+
+*“No.”*
+
+She paused again, then looked between us and said carefully, “Just get some rest.”
+
+I blinked. “…What?”
+
+“For both of you,” she added quickly. “Preferably for a long time. At least eight hours. Minimum.”
+
+Angelo tilted his head slightly. *“I am not fatigued.”* 
+
+“That’s not my concern,” she said immediately. 
+
+She stood up, already moving toward the door, clearly done with this conversation. “I don’t know what I’m looking at,” she admitted, grabbing a form and half-filling it out without looking. “And I don’t want to know what I’m looking at.” She slid the paper onto the desk.
+
+“Now please leave my office.” 
+
+Madame Leni called an emergency board meeting within the hour, and no one spoke as the holographic table flickered to life, projecting every senior staff member into a cold blue circle around us.
+
+“The Angelic Weapons are no longer secure,” she said flatly. “We are dealing with an active breach involving the most dangerous assets in CSP custody.”
+
+A murmur rippled through the room the moment Madame Leni finished speaking.
+
+"Those weapons were designed to kill gods," one of the directors said. "If even one of them leaves our custody—"
+
+"We need to notify every regional branch."
+
+"No," another interrupted. "We lock headquarters down first."
+
+Voices began overlapping until the room dissolved into controlled chaos.
+
+"We should move the remaining artifacts."
+
+"Where?"
+
+"They're safer here than in transit."
+
+"They clearly aren't."
+
+Someone slammed a hand onto the table.
+
+"We're arguing about logistics while whoever did this still remains unknown."
+
+Angelo interrupted.
+
+*"This is not a weapons issue."*
+
+The room fell silent.
+
+He looked around the table with the same unreadable expression he'd worn since entering.
+
+*"This is a security issue. We have a mole."*
+
+Nobody argued.
+
+Nobody could.
+
+Only a handful of people even knew Wing Seven existed. Fewer still knew how to access it, and the security footage hadn't simply been disabled—it had been erased with surgical precision.
+
+One of the division chiefs finally spoke.
+
+"You're suggesting someone on this board—"
+
+*"I am stating a fact,"* Angelo replied. *"Someone with sufficient clearance disclosed the location of the Angelic Armory."*
+
+Another director leaned forward.
+
+"Then everyone in this room becomes a suspect."
+
+*"So be it."*
+
+The simplicity of his answer somehow made it worse.
+
+Madame Leni folded her hands.
+
+"If we have a mole, our first priority is securing the remaining Angelic Weapons."
+
+Angelo shook his head.
+
+*"Until the source of the breach is identified, they cannot be secured."*
+
+The Security Chief frowned.
+
+"We've already doubled the guard."
+
+*"The previous guards were bypassed."*
+
+"We'll triple them."
+
+*"They will fail."*
+
+The room fell silent again.
+
+Angelo wasn't arguing.
+
+He was stating an inevitability.
+
+After a long pause, he spoke once more.
+
+*"I will retrieve them myself."*
+
+No one objected.
+
+Not because they agreed.
+
+Because they realized it wasn't a request.
+
+Angelo slowly raised one hand toward the holographic map. Without alarms, without warnings, Wing Seven simply disappeared from the display, its corridors, elevators, and security routes erased as though they had never existed.
+
+Several board members instinctively stood.
+
+"...What did you just do?" someone whispered.
+
+*"I removed access."*
+
+The map stabilized.
+
+Wing Seven was gone.
+
+No one spoke after that.
+
+We made it back to my apartment just before night fully settled, the silence from the boardroom following us in like something physical. 
+
+Angelo stood in the middle of the living room like he wasn’t entirely sure what the space was for.
+
+“You need rest,” I said.
+
+*“I do not require—”*
+
+“You’ve been shot at, helped erase a wing of a secured facility, destabilized a god, and terrified an entire boardroom. You’re sleeping.”
+
+He didn’t respond immediately. Just blinked once, as if running the statement through something internal and discarding it as irrelevant.
+
+A long silence followed.
+
+Eventually, he walked to the couch and sat down. He didn’t lie back right away, just stayed there, upright, still, like resting was something he had to remember how to do.
+
+Ten minutes passed like that.
+
+I finally broke the quiet. “Angelo.”
+
+*“…Yes.”*
+
+“Sleep.”
+
+Another pause.
+
+Then, as if conceding purely because further resistance served no purpose, he reclined. His eyes closed almost immediately, like a switch being turned off rather than a person falling asleep.
+
+*“Five hours,”* he said.
+
+“Eight.”
+
+*“Unnecessary.”*
+
+“Eight.”
+
+*“…Very well.”*
+
+I watched him for a while longer until his breathing settled into something steady, and only then did I move to the kitchen, start the coffee machine, and lean against the counter as everything began to catch up with me. Sean, Wing Six, Wing Seven vanishing from every system, the god dissolving into ash, and Angelo’s blood doing what no weapon in CSP history was ever meant to be capable of.
+
+The coffee had gone cold beside me. The apartment was quiet in that unnatural way it only got after a day like this, like the world itself was waiting to see what would break next. I nodded off at the kitchen table without realizing it.
+
+
+
+Three knocks at the door snapped me awake, and for a moment I just sat there, listening, before I got up and opened it to find Jacob standing outside.
+
+His suit was immaculate as always.
+
+His eyes weren’t.
+
+The skin around them was red, like he’d spent hours trying not to cry.
+
+“…How did Sean’s funeral go?” I asked quietly, but he didn’t answer. Instead, he stepped forward and pulled me into a hug.
+
+My brain stalled.
+
+“…Jacob?”
+
+His arms tightened like he was making sure I was real, and for several long seconds he didn’t say anything at all before I felt his shoulders shake.
+
+“…I thought…” His voice broke halfway through. “…I thought I was going to lose you too.”
+
+I froze.
+
+Jacob… crying.
+
+Of everyone I knew, he was the last person I ever expected to break like this.
+
+I awkwardly stood there for a second before patting his back.
+
+It felt... strange.
+
+We argued more than we agreed. Half the time we couldn't stand being in the same room without competing over something.
+
+But before any of that...
+
+Before we became rivals.
+
+Before headquarters turned everything into a competition.
+
+Jacob had been the first real friend I'd ever made in this hell hole.
+
+"...I'm okay," I said softly.
+
+His grip tightened for just another second.
+
+“I know,” he whispered immediately. “But when Sean pulled that trigger…” He swallowed hard. “I couldn’t do anything.”
+
+A few seconds later he finally let go and stepped back, wiping his eyes with a short, embarrassed laugh.
+
+“…Sorry.”
+
+“You don’t have to apologize.”
+
+I hesitated.
+
+“…I’m sorry about Sean.”
+
+He shook his head.
+
+“I don’t think either of us is to blame.”
+
+Then, like he was forcing himself back into work mode, he reached into his pocket and pulled out his phone.
+
+“I did come here for another reason.”
+
+He turned the screen toward me.
+
+It was a photo of Angelo and me leaving my apartment that morning.
+
+My stomach dropped.
+
+“…How do you have that?”
+
+“My fan club president… and stalker.”
+
+“Your stalker stalks Angelo too…?”
+
+Jacob sighed. “Yeah she's a mess….I put her on mandatory probation and community service… front-line duty.”
+
+At least she wouldn’t be bothering me now.
+
+Before I could respond, he deleted the photo in front of me.
+
+“There. Problem solved.”
+
+“Thanks.”
+
+He nodded, but the seriousness didn’t leave his face.
+
+“…Nayeri. I know Angelo is living here.”
+
+“I figured.”
+
+He looked at me for a long moment.
+
+“You can’t be with an angel.”
+
+“…Jacob.”
+
+“I’m serious,” he said, quieter now.
+
+“I know…” I said, not meeting his hazel eyes.
+
+Another silence settled between us.
+
+He turned to leave, then stopped at the stairwell door.
+
+Without looking back, he asked,
+
+“…Are you sure…”
+
+“…he doesn’t like you?”
+
+Before I could answer, he walked out.
+
+I closed the door and turned around only to find Angelo standing in the hallway, completely motionless.
+
+“AHHHHHHH!”
+
+I clutched my chest.
+
+“Can you please stop materializing out of nowhere?”
+
+*“I did not materialize.”*
+
+“Then explain how someone your size is quieter than a ghost”
+
+His dark eyes lingered on the closed door for a moment before shifting back to me.
+
+*“…I have a question.”*
+
+“Go ahead.”
+
+*“Earlier, Jacob expressed opposition to our cohabitation.”*
+
+“Yeah…”
+
+He frowned ever so slightly.
+
+*“Yesterday, I watched a human documentary.”*
+
+“…That never ends well.”
+
+He ignored the comment.
+
+*“It stated that humans attempt to drive away competing males.”*
+
+I blinked.
+
+“…What?”
+
+*“The narrator referred to the behavior as ‘mate guarding.’”*
+
+He looked at the closed front door again.
+
+*"Was Jacob exhibiting comparable behavior?"*
+
+For a second...
+
+My brain simply stopped.
+
+Then I laughed.
+
+Not a polite laugh.
+
+Not an amused laugh.
+
+The kind of laugh that escaped before I could stop it.
+
+I doubled over, clutching my stomach as another fit of laughter hit me.
+
+"Jacob?" I wheezed. "Mate guarding?"
+
+I laughed even harder.
+
+Tears stung the corners of my eyes.
+
+"Oh... oh my God..."
+
+I had to lean against the wall just to stay upright.
+
+"That's..." I gasped between breaths. "That's the funniest thing I've ever heard."
+
+Angelo watched me in silence.
+
+*"...I appear to have reached an incorrect conclusion."*
+
+I wiped a tear from the corner of my eye.
+
+"No."
+
+I shook my head.
+
+"Not even close."
+
+His head tilted.
+
+*"Then why did he object to our cohabitation?"*
+
+I opened my mouth.
+
+Then remembered exactly how Jacob had reacted five minutes earlier.
+
+"...Because he's worried."
+
+*"About?"*
+
+"Me."
+
+I smiled to myself.
+
+"Jacob's... kind of like my older brother."
+
+I shrugged.
+
+"I still have a family. I just left them because they're assholes, so Jacob sort of adopted the job."
+
+I laughed softly.
+
+"He nags me, tells me I'm an idiot, sticks his nose in my business...and somehow always shows up when I need him."
+
+"That's not mate guarding. That's just Jacob being an overprotective big brother." 
+
+Angelo considered that for a moment.
+
+*"...I see."*
+
+Silence settled between us.
+
+Then he looked at me.
+
+*"...Then what are we?"*
+
+My brain stopped.
+
+"...What?"
+
+*"If Jacob is your older brother."*
+
+He spoke with the same calm tone he used to discuss mission reports.
+
+*"What is our relationship?"*
+
+I felt my face grow warm.
+
+"I..."
+
+*"We currently reside together."*
+
+*"We consume meals together."*
+
+*"You have repeatedly expressed concern for my wellbeing."*
+
+*"You also instructed me to sleep despite my lack of physiological need."*
+
+He paused, clearly organizing the data.
+
+*"...Humans generally assign names to interpersonal relationships."*
+
+*"Which designation applies to us?"*
+
+I opened my mouth.
+
+Closed it.
+
+Opened it again.
+
+"...That's..."
+
+"...A complicated question."
+
+*"I see."*
+
+Without another word, Angelo took the TV remote.
+
+"What are you doing?"
+
+*"Research."*
+
+Before I could stop him, a documentary began playing.
+
+***"Human social bonds can generally be categorized into familial, platonic, professional, and romantic relationships..."***
+
+"...Angelo."
+
+He raised a finger without looking away from the screen.
+
+*"Please wait."*
+
+***"Romantic attraction is often accompanied by increased concern for another individual's safety, prolonged eye contact, voluntary physical proximity..."***
+
+"Angelo."
+
+***"Many couples begin their relationships as close friends before eventually cohabiting..."***
+
+Angelo nodded thoughtfully.
+
+*"We satisfy that criterion."*
+
+"Angelo!"
+
+He finally paused the TV and looked at me.
+
+*"...Yes?"*
+
+My entire face felt like it was on fire.
+
+"...Turn it off."
+
+*"...Have you reached a conclusion?"*
+
+"No!"
+
+*"...Then the documentary should continue."*
+
+Before I could grab the TV remote, he pressed play.
+
+***"Partners often begin sharing meals as a method of strengthening emotional bonds."***
+
+*"We also satisfy that criterion."*
+
+I buried my face in my hands.
+
+"Can we not do this?"
+
+***"Humans experiencing romantic attachment frequently display elevated concern for the other's safety and well-being."***
+
+Angelo looked away from the screen.
+
+*"You demonstrated this behavior after I was struck by the bullet."*
+
+"Because you got shot by a weapon that can kill gods!"
+
+He ignored me and continued looking back at the documentary.
+
+***"Humans in romantic relationships often struggle to define the relationship in its early stages."***
+
+I slowly lowered my head until it rested completely against my hands.
+
+"...You've got to be kidding me."
+
+Angelo glanced at me.
+
+*"...This appears relevant."*
+
+"It really doesn't."
+
+***"When asked directly, individuals may avoid answering due to embarrassment or uncertainty."***
+
+Angelo paused the TV again.
+
+He looked at me.
+
+Then at the screen.
+
+Then back at me.
+
+*"...You avoided answering."*
+
+"...Coincidence."
+
+*"...You also appear embarrassed."*
+
+"It's hot in here."
+
+He looked toward the thermostat.
+
+*"...The apartment is twenty-one degrees Celsius."*
+
+"...Shut up."
+
+He resumed the documentary.
+
+***"A common misconception is that romantic attraction is always obvious. In reality, friends and family often recognize it before the individuals themselves."***
+
+My eye twitched.
+
+"...Friends and family..."
+
+Jacob.
+
+The documentary had to be wrong.
+
+Right?
+
+Angelo paused the video again.
+
+*"The documentary stated that family members frequently identify romantic relationships before the individuals involved."*
+
+He frowned in concentration.
+
+*"Since Jacob is your older brother, he may possess information that we do not."*
+
+I stared at him.
+
+"...Please don't tell me you're going to ask him."
+
+*"...That would be the most efficient method of verification."*
+
+"Absolutely not!"
+
+*"...Why?"*
+
+"Because..."
+
+I pointed at him.
+
+"Because you're not allowed to ask Jacob if we're dating!"
+
+*“What's dating?”*
+
+I immediately looked anywhere but at him.
+
+I had never been this embarrassed in my life.
+
+"...Romantic courtship."
+
+The words left my mouth before I could stop them.
+
+Yep.
+
+The cat was officially out of the bag.
+
+Angelo now knew what dating was.
+
+*“So why am I not allowed to ask Jacob?”* 
+
+"Because we're *not* dating!" 
+
+I lunged for the television and ripped the power cord from the wall. 
+
+That was enough documentaries and definitely enough questions.
+
+Angelo watched me expectantly, clearly prepared to ask another question.
+
+“I. AM. GOING. TO. SLEEP.”
+
+I yelled as I made a tactical retreat to my bedroom.
+
+*"...Nayeri."*
+
+I paused, my hand resting on the doorknob.
+
+"...What?"
+
+Silence lingered for a moment.
+
+*"...If the documentary's conclusion is accurate..."*
+
+Angelo met my eyes with the same calm, unreadable expression he always wore.
+
+*"...I would like to participate in this... dating."*
+
+*"...With you."*
+
+...
+
+...
+
+My brain crashed.
+
+"Good night."
+
+I turned on my heel, walked into my room, and shut the door.
+
+**Click.**
+
+Silence.
+
+I leaned against the door, staring at the ceiling.
+
+Then slowly slid down until I was sitting on the floor.
+
+"...Well..."
+
+I covered my face with both hands.
+
+"...To everyone at headquarters who's been shipping us..."
+
+I let out a long, defeated sigh.
+
+"...Congratulations."
+
+"...Your manifestations came true."
+
+Another pause.
+
+"...I hope every single one of you stubs your toe every morning for the rest of your lives."
