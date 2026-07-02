@@ -1,0 +1,123 @@
+“Was it the British again?”
+
+“Were you hurt Mr. Vice President?”
+
+I recall it started with a flurry of flashes and frantic mics clamouring for the wiry-haired man restrained in a hospital bed screeching on the Nine O’Clock News.
+
+“These people are turning my men, my family! *I* decide who I choose to side with, this isn’t some banana state! When the evidence is clear, I’m telling you, I’ll have a nice story for you. My old friends out there, you’ll read about yourselves in all–”
+
+I watched as the Director slammed down the remote and slowly turned to sternly face the room, addressing us around the table like kids in detention.
+
+“That's Mr. Petrović the day before yesterday. Some of you on the Serbian desks have watched him closely over the decades. An irritation before taking power, a problem while in power, and a disaster for us when he never left power. He's writing a book about our agency's history in Yugoslavia – he's gonna name names…”
+
+I shifted uncomfortably, gazing over to my right in time to see my assistant’s knees trembling unapologetically under the table.
+
+“… this interview - I'll make the tape available for anyone who wants it - goes on to claim he’s been approached to turn. He says it's us. He says he's got proof. Our Prime Minister wants to know if there’s any shred of truth in this accusation. I’ve already assured him there’s nobody so reckless on my senior staff, not with another war on the horizon…”
+
+Soon as the emergency all-hands were over, I found myself lunging straight into the men’s room. Turning the knob to warm and steamy water, I started dousing my face just as Nicholas limped in with crutches.
+
+*Phew… Deep breaths…*
+
+It had been too long since I’d last checked my reflection in the mirror, and I wasn’t about to betray my distress in front of my new assistant and, bitterly, now brother-in-law.
+
+“Someone tried the turn… tried. And failed. Was this *Crossgate*?” I enquired.
+
+The ‘turn’ was the agency’s age-old practice of enticing, eliciting and/or extorting second-rate presidential candidates to become our eyes and ears in exchange for covert campaigns to place them on the throne. *Crossgate* had been shortlisted as its post-Cold War successor as a strictly tabletop exercise of my wargaming assignment.
+
+“You’re asking me a direct question… sir? Thought you were never going to do that,” Nicholas whispered.
+
+The biggest regret of my rollercoaster career wasn’t failing to turn Petrović while he was still a mere Minister of Foreign Affairs, no, it was bringing along my foolish sister Claire last Christmas to the after-work party. 
+
+Despite my protestation, there was no stopping her from swooning after the man now trembling besides the washbasin, who so closely resembled our absent father. Elektra complex. Daddy issues.
+
+As my eyes furrowed shrewdly, Nicholas relented. “Rumour is the Russians got to him first.”
+
+“And you didn’t tell me this before?”
+
+“You never wanted to before-”
+
+“You never made a mistake before!”
+
+Nicholas had always been a slimy bat. Rocketing through the ranks of our agency in record time (allegedly, blackmailing each of his superiors) it was only a matter of time before he went after my job. It didn’t help that the Director showed an unnatural affinity for him.
+
+*As if Petrović would acquiesce his reign and ideology for this weasel.*
+
+“Lemme get this straight Nicky boy, I granted you autonomy of *Crossgate’s* biosecurity programme to bypass parliament, not bypass my say-so,” I snapped as my blood started to boil. “Pull the interview tape, I want all technicians working on this rumour of yours.”
+
+*Perhaps one-upping my career-stalling move by targeting the ageing communist was his idea of relinquishing me of Section Chief title in Southeast Europe.*
+
+“Already have, sir. Look, just below the chin.”
+
+As Nicholas pulled out his phone and enhanced the screenshot of Petrović’s wrinkled face, I stared at a pair of elongated red dots that were oddly familiar. Abruptly, an ancient trauma churned my stomach.
+
+“Lead analyst thinks it’s a new strain of liquid hallucinogen. Kind that alters and commandeers the subject by whoever delivered what looks to be syringe shots.”
+
+The dots stared back mockingly as I felt time itself dilate to eternity. It was only when the phone rang that I heard the bristling of my assistant taking leave.
+
+“Ta. Time for Claire’s medication,” Nicholas remarked, dismissing the alarm. “Will keep you posted, soon as the techs let me know. And you might want to turn the tap off. Sir.”
+
+I had forgotten about the steamy water now overflowing the basin. I had to squint my eyes to catch Nicholas leaving the bathroom. Well, at least I saw the door shutting in the reflection, for the mirrors had fogged up but for a patchy spot in the corner.
+
+The echoing emptiness combined with the elevated humidity gave rise to a sudden sense of hyper-focus which had oft been my saving grace in urgent matters.
+
+*Where had I seen those dots before… Oh.*
+
+Claire had been sick, ever since our father disappeared that fateful summer. Mother and I were off to tour yet another boarding school against my protests, leaving my sister behind to care for our ailing father whose face and legs had turned pale, rendered useless by multiple sclerosis. 
+
+By the time we drove back home, Claire was bawling her eyes out, uncontrollably screaming about a big black bird, blood running down freely from two puncture marks on her calf.
+
+Police suspected a burglary gone wrong – though nothing was amiss barring my father. Dear mother, in her delirious frenzy, theorised he had been faking his illness, concocting an elaborate crime scene to jet off with our neighbour, a much younger woman who had disappeared that very same day. Whatever had taken place, no amount of forced therapy could treat Claire’s trauma, and she habitually forgot her anti-psychotics.
+
+“Quite the sauna you’re running,” boomed the Director as he strolled into the bathroom.
+
+“Sorry, I’ll clear it up,” I murmured, frantically wiping at the mirror with my handkerchief.
+
+“Petrović has just passed away. Bacterial infection.”
+
+I froze. I saw. Or rather, it’s what I didn’t see: the now crystal glass surface reflected my look of shock and confusion, markedly at the absence of the Director’s reflection.
+
+“Sir… I… You don’t think…”
+
+“Good riddance I say this marks a new beginning in British-Serbian relations, don’t you think?”
+
+I never ran so fast out of the bathroom before. In fact, I never ran so fast down the corridor, not knowing where I was heading, until I knocked down a mountain of floating papers that protested in anger.
+
+“Are you blind as a bat? What’s going on?”
+
+Stooping down to help the harried woman sprawled against the office printer, I vaguely registered this was Nicholas’ previous task manager.
+
+“Apologies! Margaret, from counterintelligence, isn’t it? Terribly good explanation for this, I’m going to sound batshit crazy-“
+
+Just under her left eye, the same two-dot pattern was faintly visible under the fluorescent lighting. Scrambling to push myself off the floor, I jolted backwards upon seeing the reflection, or partial lack thereof, against the printer’s acrylic surface.
+
+*Just me? Where’s Margaret!?*
+
+Only when I sprinted out of the security turnstiles did I allow myself to catch my breath. My mind was racing at 10,000 miles per hour, trying in vain to process what was going on.
+
+*Must be Nicholas’ doing! Some kind of psychedelic aerosols released during our encounter, surely? Is he going to drive me out mad now that little mutiny of his has backfired splendidly?*
+
+I managed to hail a black cab straight for Claire and Nicholas’ residence, fumbling around my trench pocket to locate the concealed folding knife, tipped with African blackwood designed to avoid alerting metal detectors.
+
+*Straight into that weasel’s heart.*
+
+Sneaking in through the backdoor, I crept silently into the living room. I spotted Claire sleeping on a… makeshift operating table? Catheters and IV bags decorating her calves haphazardly notwithstanding, she seemed unnaturally serene under sedation. Medications, my arse!
+
+As I rushed forward, I felt a prick on the backside of my neck. I couldn’t help but cry out as something sharp and sinister dug itself deeper into my scruff.
+
+“The thing about ageing,” whispered Nicholas. “I could taste the cholesterol in Petrović, really ruined the entire experience. Old man just wouldn’t turn. No, I needed something pure. And what can be purer than the flesh and blood of your own brood?”
+
+It was only then I noticed how healthy Nicholas suddenly seemed. Certainly, he was no longer trembling his legs, no crutches in sight, and most strikingly, his pale complexion exuded a gleaming shine like that of a sunscreen model.
+
+“I always knew you were special,” he continued. “Blood bonds, as Serbian folklore goes, are thicker than water - it's what keeps our kind young. Only the young shall go to great lengths to please their regnant in war and love.”
+
+“But… no… disappear,” I mumbled, reaching instinctively into my trench pocket.
+
+“Our clan’s global influence shall soon surpass those wretched reptilians – all thanks to your *Crossgate*, my dear boy.”
+
+I don’t quite remember the sequence of events that blurred past in staccato succession. There was the thrust of the blackwood blade. A piercing screech. Bursts of light. A flurry of wings. By the time Claire drove me to A&E, I was bawling my eyes out, uncontrollably screaming about a big black bird, blood running down freely from two puncture marks on my neck.
+
+The Director visited later that evening, as I sat restrained on the hospital bed. I made doubly sure to check my bedside mirror and let out a deep sigh of relief when his unmistakably stern but soft features stared back at me.
+
+Claire looks healthier than ever but tells me she’s worried sick about Nicholas’ absence – cameras never captured his departure from work. Yet neither she nor the Director seemed to believe my version of what happened, their eyes betraying pity and confusion as I recounted my accusations.
+
+*But I’m telling you, when the evidence is clear, I’ll have a nice story for you both.*

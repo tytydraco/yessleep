@@ -1,0 +1,125 @@
+I'd been assigned to some isolated locations before, but never one this remote. Usually when I'm briefed it includes my assignment and the duties included. This time I was handed a map and directions. I knew these three letter types were cagey, but this thin-lipped pencil pusher may as well have had a vice grip over his mouth.
+
+I was to hike out into the mountains that neighbored Death Valley and follow a slot canyon to an old abandoned gold mine that had been sealed back in 1908. 
+
+In spite of the pale blue October sky, the heat persisted. I scrambled over loose rock and through scrub brush to higher and higher elevations, searching for some cool reprieve in the form of shade or the cool thin air that accompanies altitude. I found neither.
+
+Letting my feet dangle over a rocky ledge, I sat and reviewed the old mining claim documents that were given to me. The paper was over a century old, faded and yellow. The rudimentary topography laid out in the land claim was clear; I had 8 more miles of scrambling and bushwhacking ahead of me.
+
+I looked out over the expansive bowl that lay before me. Low dunes blanketed the feet of the hills I was traversing. Beyond them, the wastes of Death Valley, its floor lined with cracks that sucked desperately for moisture. I took a pull from my water pack and moved on.
+
+I was looking for a depression near the top of this unnamed peak. In it would be a spring-fed stream that carved a thin trough through the limestone mountain-side. 
+
+When I found it, the small green oasis that once existed there had long since dried up. Huge bushes, brambles, and small trees, now brown and desiccated. But the slot canyon that I needed was there, and it was narrower than I had anticipated. 
+
+I took off my pack, turned sideways, and inched my way forward.
+
+It was agonizing and slow. At times it became so narrow that my breaths came in shallow bursts. My stomach and back were touching the walls. I had to fight the panic that was rising up within me. My pack, down at my side, was growing heavier with every step. I closed my eyes, gritted my teeth, and shimmied as quickly as I could.
+
+The walls opened up. I could breathe. As I opened my eyes, my foot caught a stone and the world rose up to meet me. I landed hard on my back at the bottom of a short cliff. I could see my pack about 10 feet above my head. Nursing the spot on my posterior, I stood up carefully. I made my way to the drop-off, and jumped hesitantly, yanking one of the straps that had fallen over the edge.
+
+With my pack on, and my ego thoroughly bruised, I turned to continue down the slope. I was met by a weathered chain link fence sticking out of the rock. Behind it, a darkness interrupted only by a blinking red dot.
+
+Moving closer to the fence, I eyed the camera. It sat about 15 feet from the entrance. 
+
+Unsure of who was watching, I smiled and waved. I could feel the sweat trickling down my back as I stood with my hand in the air. After a moment long enough to make me feel awkward, the fence shook and swung open with an audible buzz. I took a deep breath and accepted the invitation. I walked through the gate, closing it behind me. I heard the lock clamp shut, and an electric hum I had only noticed after its short absence, returned. 
+
+Walking into the mine was a breath of fresh, albeit stale, air. 
+
+I crept into the pitch black mine and unholstered my service pistol, activating its flashlight. Old crates of what looked like candle sticks or dynamite littered the floor. Levis as old as the brand itself lay crumpled in a corner. I followed the mine cart tracks, sweeping my light into each corner. I turned around a bend in the shaft, and was met with distant light. I holstered my weapon and continued a little less cautiously. The rough-hewn stone that made up the walls evened out into a cinder block tunnel, with sickly fluorescent bulbs lighting the way.
+
+The ceilings were high and the hanging lights cast long shadows. My boots echoed as they slapped the poured concrete floor. Someone was waiting for me.
+
+At the end of the tunnel was a huge blast door. I had only ever seen one like this inside Cheyenne Mountain. Standing in front of it was the handler who sent me here.
+
+As I approached, he smiled without moving his eyes. 
+
+“Beautiful, isn’t she?” He said in the practiced tone of a used car salesman. “Built in 1954 at Eisenhower’s request. This bunker was the first of many.”
+
+“So what am I doing here?”
+
+“Let’s discuss that inside, shall we?” He pounded a fist on the blast door and a moment later, it ground to life, lifting itself into a pocket in the ceiling with a labored whirring sound. Inside was an airlock; a small sealed room that led into the facility proper.
+
+“Listen, the pageantry, while appreciated, seems a little unnecessary.”
+
+My handler just scoffed and entered, motioning for me to follow.
+
+The facility that lay beyond was spartan, to put it lightly. Corrugated metal walls, dimly lit barracks, a commissary no bigger than a concession stand. All wrapped in a confusing maze of halls that seemingly led to either everywhere, or nowhere. 
+
+We entered an office, where I learned that my handler was, in fact, the station chief of this particular hidey-hole.
+
+The sterile lights buzzed overhead and feebly coated the room in a yellow cast. 
+
+“You’ll be on guard duty,” he said. “A position, I’ve learned, that you excel in.”
+
+“Is this a prison, sir?”
+
+“Containment unit.”
+
+“Pathogens?”
+
+“Intelligence asset.”
+
+“Asset? A person?”
+
+“More or less.”
+
+I filed this information away before continuing.
+
+“What should I expect?”
+
+“Expect him to bleed,” he said. “But don't expect him to die.”
+
+“Tough son-of-a-bitch, sir?”
+
+“Yeah . . . Something like that. The bullets you'll be supplied with will slow him down, but in the event of an escape, the entire facility will be flooded with halothane.”
+
+“Seems a bit extreme for one prisoner,” I said.
+
+The chief looked at me warily and said nothing.
+
+These sorts of jobs, guard duty, were usually the easiest. I'd get rotated in for a few weeks, have a place to lay my head at night, 3 square meals a day, and then I'd get paid after my rotation ended. 
+
+“Is there a high likelihood of an escape attempt?”
+
+“He's tried. Nearly made it to the entrance once. That was before we installed biometric countermeasures.”
+
+“How long has he been here, sir?”
+
+“Longer than you've been alive, son.”
+
+“Anyone I've heard of?”
+
+“Not a chance.”
+
+My head was brimming with questions, but I suppressed them. 
+
+He led me to the armory, where I was provided a high-powered automatic rifle and several magazines. Taking a peek into the magazine revealed blue-tipped bullets.
+
+“Shouldn't these be less-lethals,” I asked.
+
+“They are,” said the chief, his voice steely and cold.
+
+He gave me a look that I understood to mean, ‘no more questions.’
+
+He took me to a small cubicle, where monitors provided views of the labyrinthine halls, the entrance, commissary, and of course, the prisoner. Next to them, a laminated sheet of paper with a map of the facility hung thumb-tacked to a cork board.
+
+“Monitor his movements. If he says anything, ignore him.”
+
+I nodded and he continued. “If anything seems off, put in a call to medical. They'll flood the room with gas and secure him.”
+
+“Where is medical, exactly? It wasn’t on the tour.”
+
+“Further up the mountain. Along with the rest of the facilities and staff. The other guards you’ll be switching off with every 12 hours will be the only people inside the containment unit besides yourself. If you need to reach us, call ahead and we’ll send someone down.” I turned my attention to the monitors.
+
+The prisoner was completely nude. His pale skin was stretched tight over sinewy muscle and ropey tendons. His flesh hadn't seen the sun in so long, the only color I could make out were the blues and greens of the blood vessels that snaked over his body. All his sensory organs were grotesquely oversized. Ears like parabolic microphones, eyes the size of billiard balls, a nose that resembled a plague doctor’s beak, and that mouth. I could see the muscles in his hairless head working as he clenched his jaw, mindlessly grinding his teeth. The old yellowed fangs jutted from a mouth that yawned like the abyss.
+
+“The fuck is that,” I said, breathless. My eyes were locked on the image.
+
+“That is our asset,” the chief replied flatly. “All other information is need-to-know.”
+
+“Understood,” I said, not looking away from the monitor.
+
+I heard the chief leave the room as I sank into the swivel chair.
+
+“This is why you don’t accept invitations to the desert with strange men.”
