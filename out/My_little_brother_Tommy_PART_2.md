@@ -1,0 +1,69 @@
+&#x200B;
+
+I wasn't going to post again. Some of you told me to call the police, tell my parents, burn Tommy's shoes, a hundred different things. I want to say thank you for caring. I really do. But I need to finish telling this, because something happened last night and I don't think I have much time left to write it down calm.
+
+After my last post, I stopped sleeping in my room. I moved a blanket to the living room couch and told my mom I liked sleeping near the TV now. She didn't ask questions. She's been tired a lot lately, tired in a way that isn't just about sleep. I think somewhere in her, she knows something is wrong with Tommy too, but some part of a mother's brain refuses to look straight at that kind of thing.
+
+Three nights ago, I woke up on the couch at 3:14 AM. I know the exact time because I looked right at the microwave clock. The house was too quiet, the kind of quiet that feels like it's pressing on your ears.
+
+Tommy was standing at the end of the couch. Just standing there. Watching me sleep.
+
+I asked him what he was doing. He didn't answer right away. Then he said, in a voice that was almost his but not quite, like someone doing an impression of him from another room, "You left the door open again."
+
+I told him there was no door. He smiled at that. It was the same wrong smile from before.
+
+He said, "Not upstairs. Downstairs. You should close it before he gets out."
+
+Then he just walked back to his room like nothing happened.
+
+I didn't sleep after that.
+
+The next morning I did something maybe I shouldn't have. I went back to school early, before anyone else got there, and I went to the old gym again. I told myself I was checking if the door was really gone, that I needed to see it with daylight around me instead of after-school shadows.
+
+The door was there again.
+
+Same grey paint. Same missing knob. Like it had never left.
+
+I should have walked away. I know that now. But there was a part of me, a stupid, angry part, that wanted answers more than I wanted safety. I wanted to know what that thing downstairs actually was, and why it wore my brother's face like a mask it was still getting used to.
+
+So I opened it. And I went down alone this time.
+
+The stairs felt shorter than before, which scared me more than if they'd been longer. Like the place was used to me now. Like it didn't need to show off anymore.
+
+The classroom was the same, dust and all, except this time there were two desks with dust disturbed on them, like two kids had been sitting there recently, swinging their legs, waiting.
+
+The boy who looked like Tommy wasn't there.
+
+But there was a girl sitting in the other desk.
+
+She looked like me.
+
+Not similar. Exact. Same haircut I got two months ago that I never told anyone I was getting until after it was done. Same small burn scar on my wrist from the stove when I was nine.
+
+She looked up, and she smiled at me with my own smile, and she said, "You're finally on time."
+
+I don't remember running this time. I just remember being outside the gym, on the ground, my hands scraped from falling, and the door already gone from the wall like it had never been there.
+
+Here's the part that's been eating me alive since last night.
+
+I went to check on Tommy before I started writing this. He was asleep. Fine. Normal. I almost let myself believe it was over.
+
+Then I saw his hand hanging off the side of the bed, and there was writing on his palm. Not marker. Not pen. It looked almost burned into the skin, small and neat, like it was written with something hot and careful.
+
+It said:one of you already stayed. did you notice which one came back up?
+
+I have been sitting here for two hours since I read that.
+
+I keep looking at my own hands. My own face in the mirror. I keep trying to remember small details, the color of my school bag, the way my mom said good morning to me today, whether it felt right or if there was something a half second off about it, something only a person who actually knew me would notice missing.
+
+I can't tell anymore.
+
+I don't know if I'm the one who ran up those stairs.
+
+I think I need to go check that classroom one more time. Not because I want to. Because I need to know if there's a desk still sitting empty down there with dust undisturbed on it.
+
+Or if both desks are already full.
+
+Part 1 
+
+https://www.reddit.com/r/nosleep/s/9mCO8SAfTF

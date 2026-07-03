@@ -67,3 +67,7 @@ I finally worked up the courage to sneak into Tommy's room an hour ago to check 
 It's my name. Written maybe two hundred times.
 
 And under my name, in smaller writing, it just says: soon.
+
+Part 2
+
+https://www.reddit.com/r/nosleep/s/NgFiJjUJRJ

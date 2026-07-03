@@ -1,6 +1,6 @@
 That’s one of the things I have always been asked at the doctor’s office, ever since I was a little.  I answer a simple “yes” every time, thinking back to a vague yet dreaded memory from childhood, stuffed in between the more common anxieties that plagued my adolescence. The nurse moves on through her routine questions and I forget about it. I never had a reason to dwell on those bad memories. Not until this morning. 
 
-It wasn’t really an allergy, not like you typically think of one; hives across the skin, throat slowly closing until you can barely breathe. It was a mental thing. I had just had surgery, tonsils taken out, and I was prescribed tropbulin to reduce the swelling.  
+It wasn’t really an allergy, not like you typically think of one; hives across the skin, throat slowly closing until you can barely breathe. It was a mental thing. I had just had surgery, tonsils taken out, and I was prescribed tropulin to reduce the swelling. 
 
 I was only ten when all of this happened, an only child, doted on by my single mother. About a year before the surgery, my mom and dad got a divorce. Mom never told me directly, but from muffled arguments and neighborhood gossip I was able to put together that Mom had seen Dad out with another woman, several times. I was shocked to hear this, as any child would be, but it was really, *truly,* shocking. It still surprised now as an adult.
 
@@ -22,7 +22,7 @@ The divorce was finalized soon after that. Mom got full custody of me and they s
 
 It seemed like when Mom and I were just getting settled into the new house, my throat started to hurt. Typical luck.
 
-I took the first dose of tropbulin the day after my surgery, when I was still bedridden at home. My mother did everything she could to entertain me, bringing me ice cream and video games and puzzles. In the evening, she went on a short trip to the store to get groceries and some “get well soon” balloons she insisted I needed.  When she got back it was nearly nightfall.
+I took the first dose of tropulin the day after my surgery, when I was still bedridden at home. My mother did everything she could to entertain me, bringing me ice cream and video games and puzzles. In the evening, she went on a short trip to the store to get groceries and some “get well soon” balloons she insisted I needed.  When she got back it was nearly nightfall.
 
 She gave me my pill and wished me goodnight as she left for her room. I swallowed it reluctantly, its bitter taste coating my tongue. The pain in my throat was present but dull and the low hum of the medicine filling my head soon lulled me to sleep.
 
@@ -88,13 +88,13 @@ I was able to move again, and I reached out to her, sobbing. I muttered spastica
 
 Neither of us went back to sleep. She eventually brought me to her bed and we laid there until the sun finally peered above the horizon.
 
-That morning, after scrolling on her computer for a while, Mom told me that she believed the tropbulin was what was causing the night terrors. She called the doctors and she told me that I wasn’t going to take it anymore. I went to sleep the next night in her bed.
+That morning, after scrolling on her computer for a while, Mom told me that she believed the tropulin was what was causing the night terrors. She called the doctors and she told me that I wasn’t going to take it anymore. I went to sleep the next night in her bed.
 
 The dreams stopped after that. No man in the corner, no father trying to murder me. I slept with Mom for about a week before returning to my own room. Every morning she would ask me: 
 
 “Any nightmares?”
 
-When I told her no, she would reply confidently, “It had to have been the tropbulin.”
+When I told her no, she would reply confidently, “It had to have been the tropulin.”
 
  A couple weeks after the dreams stopped, my mother got a call while we were eating breakfast. I didn’t know until later, but it was the police. Dad hadn’t shown up to work in two days, so his coworker called for a welfare check. He had been found dead in his home.
 
@@ -123,3 +123,5 @@ I thought back to the figure, my dad’s affair and his everlasting denial of it
 Her muddied words from all those years ago echoed in my mind. 
 
 “Who was it, David, your long lost twin?"
+
+Edit: I remembered something else. The night before Dad was found I woke up suddenly, but there was no figure. I heard footsteps coming up hallway stairs, the third from the top step creaking as always. It was my mother, pale and breathing heavy, her keys jingling in her hand. Her face was calm. She walked back into her room and quietly closed the door. I just assumed she had gone to grab something from her car. I fell back asleep quickly. I don't know what to make of it all now.
