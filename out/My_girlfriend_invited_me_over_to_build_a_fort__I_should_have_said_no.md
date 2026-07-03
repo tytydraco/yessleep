@@ -1,0 +1,65 @@
+We had only been dating for a few months, but when you are twenty-two and putting yourself out there for the first time, every moment together feels special.  Haley had this glow about her.  A radiance that drew me to her like jelly on peanut butter.  I’ve always been a softie by nature, so it wasn’t difficult for Haley to get her way with me.  She had a habit of always winning me over on whatever we were going to do together.
+
+“Wyatt, I want you to come over tonight and build a fort with me,” she said one evening as I sat on my back porch and watched the sunset.
+
+An odd, childlike request.  I hadn’t built forts since I was ten.  But the charm in her voice reeled me in.
+
+“You have to come over babe.  It will be so much fun.  You know you want to snuggle with me under a sheet roof.  Things could get hot and steamy.”
+
+I looked into the distance and smirked; this woman and her power over me, unbelievable. 
+
+“I’ll be over in a bit.  Do you need me to bring anything?”
+
+“No, I’ve got everything we need.  You know I’m a hoarder.  Never let go of anything.”
+
+She was right.  If there was one thing that frustrated the hell out of me, it was Haley’s inability to get rid of stuff.  I’d been to her apartment several times, and with each visit, the piles of junk sucked up more and more of her space.  Vintage lamps, chairs, ottomans, storage containers.  A little bit of everything occupied her one-bedroom apartment.
+
+My jaw dropped when Haley opened her door.  Her long blonde hair cascaded down a red silk dress.
+
+“You look truly stunning.  I mean, I’m at a loss for words.  Just beautiful babe.”
+
+“Oh Wyatt, you silly goose.  Always putting on the charm.  Let’s build, let’s build.”
+
+Haley yanked me into the living and gently sat me down on the carpet.
+
+“Stay right here.  I’m going to grab everything we need to start.”
+
+Haley rushed off to grab some dining room chairs, sheets, and pillows.
+
+“Okay, let’s do this.  Can you help me put this sheet on top of the chairs?”
+
+Together, we placed a giant white sheet over four chairs and secured it down with pillows.”
+
+“Get inside, get inside,” she said, jumping with joy.
+
+We sat across from each other cross-legged for a minute or two without speaking a word to each other.  It was magical, but also weird and unsettling.  Like, why was she so excited to build a fort with me.  It didn’t make sense.
+
+She slid the shoulder laces of her dress down, revealing her breasts.
+
+“Wow, you weren’t kidding when you said things could get hot and steamy,” I said, as my lower region started to throb.
+
+“I want you inside of me babe.  Take it off, all of it!” she roared, which threw me off a bit in a creepy way with the tone of her voice. 
+
+But being twenty-two and horny and a softie, my clothes were off fast before my brain could process the craziness I was going along with.  As we both nakedly embraced each other, the temperature beneath the sheets skyrocketed.  It felt like a sauna.  Sweat poured off my face and onto hers, making her face look like a pool of rippling water.
+
+“Can I take this sheet off?  It’s boiling in here,” I said, while she moaned.
+
+I looked up and reached for the sheet, but it had hardened.
+
+“I need you Wyatt!” she screamed.
+
+“What is going on in here?” I said.  “Is this even a sheet?”
+
+I lifted myself off of her and focused on the sheet.
+
+“No, I need you inside of me now,” she yelled.
+
+Haley lifted her head and smiled, as giant wings emerged from the skin of her arms, flesh shedding to the carpet with a wet plop.
+
+My eyes bulged in fear, as I jumped back, bumping my head into the sheet which had completely solidified.  I turned around and started crawling as fast as I could, but the tiny fort we had built, had become a maze of tunnels.
+
+“I can’t let you leave babe,” I heard in the distance, as I frantically looked for an exit.
+
+I eventually miraculously found a screen door that I assumed led to her backyard.  I tore through it and made my way outside, my heart pounding against my chest.  I hopped over the wooden fence and ran, never looking back.
+
+I ran for a mile while naked back to my house, grabbed the spare key under the mat and rushed inside, slamming the door shut.  I never saw Haley again.  A few days after the incident, authorities stopped by her place, but she was gone.  Only the junk remained.
