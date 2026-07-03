@@ -312,7 +312,7 @@ I went through yesterday's notes before touching the seventh log, debating wheth
 
 “I hardly dried my hair from the shower, didn’t want to make you wait. Sorry.” She chuckled lightly. 
 
-“No worries, here, use this.” I gave her my tower which was a little wet and let her use it, she didn’t seem bothered by it. As she dried her hair I inserted the log and waited before she sat down alongside me and did the same. 
+“No worries, here, use this.” I gave her my towel, which was a little wet and let her use it, she didn’t seem bothered by it. As she dried her hair I inserted the log and waited before she sat down alongside me and did the same. 
 
 *Dr.Shaw: “Your name is Glen? Right. So, tell me Glen, why do you think you’re here?”* 
 

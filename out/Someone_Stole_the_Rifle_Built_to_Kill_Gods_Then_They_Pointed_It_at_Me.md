@@ -4,7 +4,7 @@ Part 2: [I Went to Antarctica Looking for 10,000 Missing People. I Came Back Wi
 
 Part 3: [Apparently Using Assistants as Sacrifices Violates Company Policy](https://www.reddit.com/r/nosleep/comments/1uc8w6u/apparently_using_assistants_as_sacrifices/)
 
-Part 4:[ I Work for an Organization That Hunts Gods. One of Them Warned Me About the Angel Following Me.](https://www.reddit.com/r/nosleep/comments/1ud5jzx/i_work_for_an_organization_that_hunts_gods_one_of/)
+Part 4: [I Work for an Organization That Hunts Gods. One of Them Warned Me About the Angel Following Me.](https://www.reddit.com/r/nosleep/comments/1ud5jzx/i_work_for_an_organization_that_hunts_gods_one_of/)
 
 Part 5: [My Boss Asked Me If I Thought He Was a Monster. Now I Know Why.](https://www.reddit.com/r/nosleep/comments/1ugsw9b/my_boss_asked_me_if_i_thought_he_was_a_monster/)
 
@@ -206,7 +206,7 @@ Wing Six.
 
 Why Wing Six?
 
-That section only housed archives, administrative offices, and enough paperwork to make demons confess out of boredom. Sean had no reason to be there. Then my mind connected two corridors. Wing Six bordered Wing Seven.
+That section only housed archives, administrative offices, and enough paperwork to make gods confess out of boredom. Sean had no reason to be there. Then my mind connected two corridors. Wing Six bordered Wing Seven.
 
 My stomach dropped.
 
@@ -333,7 +333,7 @@ Sean pulled the trigger.
 
 **BANG.**
 
-A violent rush of air swept across my face. I blinked, expecting pain, but instead all I could see was the back of a black suit.
+A violent rush of air swept across my face. I blinked, expecting pain, but instead all I could see was the back of a black shirt.
 
 I slowly looked up.
 
@@ -377,7 +377,7 @@ The corruption raced up its arm, reducing ancient stone to ash that scattered ac
 
 The sentence ended in a cough of gray dust.
 
-A jagged fracture split across its chest, followed by another, and then another, until the entire statue stood perfectly still as everything held its breath for one endless second before it collapsed. Not into rubble, but into ash, a mountain of gray dust crashing onto the floor where an ancient god had stood only moments before, leaving silence to settle over the chamber. 
+A jagged fracture split across its chest, followed by another, and then another, until the entire statue collapsed. Not into rubble, but into ash, a mountain of gray dust crashing onto the floor where an ancient god had stood only moments before, leaving silence to settle over the chamber. 
 
 The chanting had already stopped, and the worshippers were gone as well, reduced to ash alongside their god, while Sean lay motionless on the floor, his body cracked like weathered stone as gray dust drifted from the fractures.
 
@@ -437,7 +437,7 @@ She leaned forward, squinting at the hole in his shirt and then at the skin bene
 
 *“No.”*
 
-She paused again, then looked between us and said carefully, “Just get some rest.”
+She paused again, then looked between us and said carefully, “Then just get some rest.”
 
 I blinked. “…What?”
 
@@ -447,7 +447,7 @@ Angelo tilted his head slightly. *“I am not fatigued.”* 
 
 “That’s not my concern,” she said immediately. 
 
-She stood up, already moving toward the door, clearly done with this conversation. “I don’t know what I’m looking at,” she admitted, grabbing a form and half-filling it out without looking. “And I don’t want to know what I’m looking at.” She slid the paper onto the desk.
+She stood up, already moving toward the door, clearly done with this conversation.
 
 “Now please leave my office.” 
 
@@ -491,7 +491,7 @@ Nobody argued.
 
 Nobody could.
 
-Only a handful of people even knew Wing Seven existed. Fewer still knew how to access it, and the security footage hadn't simply been disabled—it had been erased with surgical precision.
+Only a handful of people even knew Wing Seven existed. Fewer still knew how to access it, and the security footage hadn't simply been disabled….it had been erased with surgical precision.
 
 One of the division chiefs finally spoke.
 
@@ -595,9 +595,7 @@ Then, as if conceding purely because further resistance served no purpose, he re
 
 I watched him for a while longer until his breathing settled into something steady, and only then did I move to the kitchen, start the coffee machine, and lean against the counter as everything began to catch up with me. Sean, Wing Six, Wing Seven vanishing from every system, the god dissolving into ash, and Angelo’s blood doing what no weapon in CSP history was ever meant to be capable of.
 
-The coffee had gone cold beside me. The apartment was quiet in that unnatural way it only got after a day like this, like the world itself was waiting to see what would break next. I nodded off at the kitchen table without realizing it.
-
-
+The coffee had gone cold beside me as I nodded off at the kitchen table without realizing it.
 
 Three knocks at the door snapped me awake, and for a moment I just sat there, listening, before I got up and opened it to find Jacob standing outside.
 
@@ -667,7 +665,7 @@ It was a photo of Angelo and me leaving my apartment that morning.
 
 My stomach dropped.
 
-“…How do you have that?”
+“…How do you have this?”
 
 “My fan club president… and stalker.”
 
@@ -1027,7 +1025,7 @@ Angelo now knew what dating was.
 
 I lunged for the television and ripped the power cord from the wall. 
 
-That was enough documentaries and definitely enough questions.
+That was enough documentaries and definitely enough questions for now.
 
 Angelo watched me expectantly, clearly prepared to ask another question.
 
@@ -1079,8 +1077,6 @@ I let out a long, defeated sigh.
 
 "...Congratulations."
 
-"...Your manifestations came true."
+"...Your manifestations have came true."
 
-Another pause.
-
-"...I hope every single one of you stubs your toe every morning for the rest of your lives."
+I sincerely hope every single one of you stubs your toe every morning for the rest of your lives.

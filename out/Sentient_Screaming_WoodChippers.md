@@ -1,0 +1,55 @@
+There is a no reasonable explanation for what I saw tonight..
+
+My mind can hardly even recall enough of it to appease my sanity, but I'm going to try and write down as much as I can remember.
+
+Forgive me for the messy writing. I just fell out of a second story window and I'm not sure if I'm safe or not right now, but I'm going to just hold my breath and write..
+
+Maybe someone will at least find this so they have some sort of warning of what's coming.
+
+I feel like I'm stuck in the horror version of Alice in Wonderland or something, except I don’t remember the main character witnessing a massacre in that story. I seriously don't believe that I just saw the things that I saw, but the blood that is literally everywhere I look is telling a different story.
+
+Fuck me, I wish it was a story.. I would give anything for this to be some dumb novel that I'm reading, or a crappy Netflix show, but it's not.. this shit is really happening. I have to get that into my head, or else I don't have a chance in hell.
+
+Assuming nothing is broken. I did just take a pretty nasty fall.
+
+It would help if I could find any other survivors.
+
+I even broke into the security building at the gatehouse earlier tonight, to try and watch the recordings from the ridiculous number of cameras they have spread all around here so I could get a sense of what is going on.
+
+For some reason, even the cutting edge surveillance equipment with all it's fancy "fail-safes" that dad always liked to talk about, failed to capture even a single frame of what happened.. as far as I know, I'm the only one left.
+
+Considering I haven't heard one of those inhuman shrieks in a few hours, I'm hoping against
+
+hope that the things that did this have gone away too.
+
+My dad always used to go on about how much money the security for this community cost, but tonight I watched him get ripped apart like paper, by a monstrous thing that God should never have allowed to exist.. all the security in the world couldn't help these people.
+
+I'm sorry if I seem slightly numb, but I'm seriously still just trying to process everything.. I just
+
+watched almost everybody I've ever known get torn to shreds by creatures that I can only describe
+
+as sentient screaming wood chippers. They chased everyone down one by one and mutilated them with horrific precision.
+
+All of them except me.
+
+.. the only reason I am still alive is because of a stupid accident.. otherwise, I'd be so much blood splattered across my bedroom wall.
+
+I'm still amazed that they haven't found me yet.
+
+I keep thinking that any second now I'm going to hear that telltale shriek, seconds before I’m torn to shreds just like everyone else in this town.. When that thing came at me in my bedroom, I tried to jump away but I ended up falling back and straight out of my window, into the yard behind my house.
+
+At first I didn’t notice anything unusual, but I’m starting to think I might have broken something important.. I managed to roll into the basement window though so now I'm hiding under the house, underneath some of the old tarps from when dad painted our family room last year. I think it's the paint thinner keeping them away.
+
+I haven't heard one of them shriek in what seems like about an hour now.. but that said, it's hard to judge time..
+
+For all I know, it may have only been 10 minutes.
+
+But forget about that, it's nothing compared to what I discovered behind the gatehouse after I gave up on the security building. That's when it finally dawned on me, how fucked things were... At first I thought it was just a small ditch, only it wasn't dug by anything that lived on the surface.. this hole was dug from the bottom up by something ancient, from deep inside the Earth. Something which had been sleeping, but now it was awake...
+
+The weird part is that despite looking like it was only a few feet deep, when I threw a rock into the hole, it didn't react anything like a normal hole would. The rock only just hardly landed before the earth surrounding it collapsed like something almost alive.. sucking the rock down with it like quick sand.
+
+After it settled, it went back to looking like a normal ditch, but for just a moment, I swore it had no true bottom.. just inky blackness, until the dirt essentially crawled across it like a body healing a nasty contusion.
+
+Speaking of contusions, I'm suddenly not feeling so great.. I think my fall might have been worse than I thought. I also think I just heard something move outside the cellar door upstairs. I haven't heard any of those shrieks that they were making earlier, but that's ok..
+
+I feel like it's probably going to be me doing the screaming soon..
