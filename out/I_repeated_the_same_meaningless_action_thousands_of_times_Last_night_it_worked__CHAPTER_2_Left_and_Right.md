@@ -1,0 +1,183 @@
+[https://www.reddit.com/r/nosleep/comments/1uib09u/i\_repeated\_the\_same\_meaningless\_action\_thousands/](https://www.reddit.com/r/nosleep/comments/1uib09u/i_repeated_the_same_meaningless_action_thousands/)
+
+I would like to thank everyone who replied under my last post. All of your replies brought some courage back into my heart, and I am grateful for that. I am still a bit troubled by the general situation, though. I would like to quickly explain why.
+
+I promised to record my situation with technology, yet certain events have happened, and I can no longer believe I will be able to do this.
+
+I have stopped trying to perform an Entry. Why, you may ask? Well, I believe I have been, for lack of a better word, branded. The last experience I had in the hotel room changed something in my perception of the astral world. It became terribly easy to access the world I feared, and that troubles me deeply. In my last post, I claimed the probability of an Entry might have been less than one in a trillion. Now, it might be more than one percent. To be clear, I might be able to have an Entry every day.
+
+One situation frightened me terribly, to the point where I considered seeking mental health treatment. I was still in my hotel room, drinking a vodka cocktail. Yes, I began drinking again. I have been feeling incredibly anxious since my last post, and it became terribly difficult for me to fall asleep sober. Don’t judge me.
+
+I was mindlessly scrolling through the available channels. I did not care what I was watching. All I cared about was stopping this overwhelming feeling of solitude, even if it meant observing a couple of strangers on an old TV.
+
+I stumbled upon a random game show. It was based on Wheel of Fortune and included random contestants, with the host throwing out dumb dad jokes between rounds. The perfect Sunday treat for a lazy mind. I had been watching the show for about ten minutes when something disturbing happened.
+
+It lasted maybe five seconds at most. One of the contestants won a prize for the right answer, and the host exclaimed, “Let’s move on to the next question!” The crowd cheered and clapped in excitement—until suddenly, it stopped.
+
+I mean complete silence.
+
+Everyone in the audience stopped clapping. No one coughed or sneezed. No one breathed. The camera zoomed in on the host and one of the contestants. They looked at each other and shared an odd, cruel smile. It was as if they were in on a joke I could not understand.
+
+Suddenly, their eyes moved.
+
+They looked right at me.
+
+I know there is a camera they are instructed to look at. But I swear, I cannot explain it logically, yet I deeply felt it. They stared at me in that very moment. They both shared the same smile of cruelty, the same knowledge of something sinister. No one in their right mind would believe it, but in that moment of blankness, as if the world had stopped turning, they seemed about to laugh at me. It was clear as day in that drunken haze on a hotel sofa.
+
+Then they looked at each other again and resumed the game as if nothing had happened.
+
+I swear, I might be overreacting, but there were surely a few seconds of pure, utter disgust between us. It could even have been funny, an awkward moment in the studio—if they had not been looking straight at me.
+
+I moved out of the hotel. After that last situation, I could not stay there any longer. I had no other place to stay but my home. My family had not seen me in weeks, so I hoped they would at least greet me. I believed I mattered.
+
+What I stumbled into was quite distressing, to say the least. As I moved toward the entrance, I noticed the front door was open. That left quite a bit of tension inside me. I should have turned back, yet I was curious about what was going on inside with my loved ones.
+
+The kids were not there. Their rooms were messy, as if somebody had crawled through their shelves, searching for something hidden deep beneath them. I screamed their names, but nobody answered. Only dead silence hung in the air, the last brave soldier making its stand. I hoped for a hint: a shed of blood in the corner, a hole in the wall, anything suggesting what might have happened to them, however depraved it may have been. But there was nothing except for the overwhelming sense of nothingness.
+
+Yet the worst was still to come.
+
+My wife had locked herself in our bedroom. The door has a glass panel through which you can see into the room. I could see her sitting on the edge of our bed. Her head had fallen between her shoulders, and I could not see her face. She did not respond to my questions. She just sat there, still as a brick.
+
+The door would not move. I believe she might have barricaded herself in. I tried to break the windows, walking around the outer walls, but I could not find the strength. I felt incredibly weak. Whenever I walked to any of the windows, she hid her face between her shoulders, between her hair. I could not see her eyes or mouth. It was as if she was afraid of me.
+
+I do not know what happened to my family while I was away. I only hope it was not connected to the Entry.
+
+Here, the story becomes quite shocking. I acknowledge that my decision was abnormal and did not reflect the seriousness of the situation. But trust me: at that point, I felt such immense shock, such glorious pain, that I could not react accordingly.
+
+I was afraid of my wife.
+
+I was afraid of my home.
+
+I walked up to my son’s bedroom. His wheelchair stood in the corner. His science diplomas were on the walls, and his favourite teddy bear was still sitting on the upper shelf, looking for the big boy who had left him alone. I touched his bed, cold as if no soul had rested inside it for ages. I lay down in his bed, arms and legs stretching as far as they could, eyes contorting, seeing little shapes in the corners of my vision as I drowned into oblivion.
+
+Now I need to dump some information.
+
+Have you ever heard of astral projection? It was one of the things I learned while trying to find my way into the Entry. I am still an amateur, but I will try my best to explain. Astral projection means your body sleeps while your mind stays awake. You practise deep rest, and when you achieve a perfect sense of experiencing while dreaming, you reach worlds you have not even thought of. Something more than you have ever been. A prospect somewhat terrifying, yet beautiful at the same time.
+
+How is it connected to the Entry? Well, while you are beginning to sleep, you enter a state known as REM, which stands for Rapid Eye Movement. Translating that into English: you blink really fucking fast. Do you get it now? You repeat a certain action for quite a long time. I tried achieving this state many times during my training sessions in the hotel room. I never got it quite right. Yet I somehow felt that each time, I was closer to the experience I had dreamed of: seeing something between one blink and another, a figure standing above me, a face—or the lack of one—showing me sights unimaginable before.
+
+I did it that day, in my son’s bedroom, trying to calm myself. You may be laughing right now at how absurd the situation was, but I needed it. At the moment of returning home, I was high as a kite and panicking over what the world around me had turned into. The absence of my loved ones disturbed me to my core, and I actually felt like I was dying. Any form of rest was something I immediately had to take, or I would have slit my own throat.
+
+While resting, several thoughts appeared inside my head. Your brain wanders while you are trying to reach astral projection, and some sights seem quite random. Yet some of them contributed to what I felt then.
+
+I remembered an incident that had happened in the last few weeks. I need to remind you of it now, as it might be another example of an Entry I recently stumbled upon. The event has been discussed on a few news sites, including some paranormal ones, so take it with a grain of salt.
+
+It happened just thirty miles from my hometown, in a house by the meadows. A family saw a moose walking through the trees. It was quite an unusual sight, as they had mostly observed deer and boars. A wild moose was a wonderful sight of nature, one they could not believe was right in front of their eyes.
+
+There was quite a distance between the house where the family was staying and the meadow where the moose stood. So they used binoculars to look at the animal in detail. Awe and excitement swept through them until the moment the youngest daughter gazed through the binoculars.
+
+The mother was later interviewed about the event. She said that when her daughter looked through the binoculars, her face showed a look of disgust. It seemed as if she was about to cry, but all she did was put down the equipment and slowly walk away from the room the family was in. The mother claimed the situation was quite unusual and followed her child to determine what had disturbed her. What is distressing about this case is that the outspoken, confident child turned silent and frustrated, lying on top of her bed and looking at the wall while her mother tried to get an answer out of her.
+
+It was only after the mother had given up and the night had invited itself in that something else happened. The mother was woken by footsteps. Right after she woke up, as she claimed in the interview, she saw the shadow of her daughter standing in the doorway of her bedroom. Her face was completely covered by darkness, and she could not glimpse even a trace of emotion. All she heard was:
+
+“Mom, I’ve got a drawing for you…”
+
+Then her daughter ran away. The mother used the word “sprinted.”
+
+Right after she stood up, she felt a soft sensation under her feet. There was a single piece of paper left by the parents’ bed. The woman picked it up and stared at it. It was terribly dark, so she turned on the lamp, quite shocked to see such an event happening so late at night.
+
+After getting a look at the picture, the woman claimed she felt shock to her deepest core. Yes, children possess quite an imagination. They might watch cartoons and movies, play video games while their guardians are not watching, and savour disgusting sights inside them. Their friends may corrupt them and talk of vile things, show them videos, disturb them. Kids may see a lot these days. Regardless, there was no way that drawing had been done by a child.
+
+The last portion of the interview discusses the final meeting between the mother and her daughter before the girl went missing. One day, her bed was simply empty, and no sign of her has ever been recorded.
+
+The mother tried to force her daughter to explain what the picture was meant to be. In the interview, the woman claims that at that point, she was filled with adrenaline, as if something primal had awakened inside her. Nevertheless, nothing prepared her for the answer her daughter gave her.
+
+“I’ve just seen them through the binoculars. Didn’t you, Mom?”
+
+The little girl, aged nine, is still being looked for by the local police. No trace of her has been found, so the situation went viral.
+
+As I was dozing off, I was reminded of the pictures she had drawn. They were available on one of those cheesy paranormal sites. I realized why they disturbed me so much. First of all, everything was chaotic. It looked as if the lines had been drawn at random. But once you searched for the details, you began observing things: hands in places they should not be, shapes that looked like bodies yet were deeply contorted, teeth and eyes, sometimes so surreal that they looked as if another world had birthed them. And an overwhelming sense of suffering, as if the pencil had spat pure cruelty straight onto the piece of paper.
+
+To me, her drawing looked like Hell.
+
+Back to my experience. Once again, I felt like something was happening. I began drifting, and surreal thoughts appeared in my mind: somebody screaming to me, somebody whose voice I recognized; the hotel room I had stayed in; the TV host’s face. It all appeared quickly and viciously, as if I had been devoured by psychedelics.
+
+And then again, just like last time.
+
+I heard knocking at the door.
+
+But this time, it was my son’s bedroom, where I lay as stiff as a corpse.
+
+I tried to move and open the door, yet I could not. I was lost inside my thoughts, and no energy flowed through my muscles. All I could do was quickly repeat in my mind that everything was okay, that they were just hallucinations, that they could not hurt me.
+
+But the knocking began again. Now viciously. Pounding at the door, as the whole room trembled.
+
+Suddenly, I felt myself rising. It was at this moment that I astral-projected. But right then, it felt like standing up. It was so natural that I forgot I was dreaming. Yet with all those “natural” sensations, I floated to the ceiling. I plastered myself against the top of the room and observed my body trembling, as if death were touching me with its little finger.
+
+Then the door opened. It was my wife.
+
+Her face was pale as ghost skin. Her eyes were hidden behind a tornado of hair, and her arms hung by her torso smoothly, as if they were unnecessary utensils stitched together at random. She breathed heavily, growling as she exhaled.
+
+I observed her walking toward my body. I began hyperventilating. Something deep inside me informed me that I was about to die. That her shape, consumed by something more sinister than I could ever imagine, was about to consume me whole. That she would bite into my chest and neck, and my ethereal body would tear itself apart rather than be left alone.
+
+But then she stared at me. Deep into my eyes, deep into myself.
+
+And so did I.
+
+My body opened its eyes and began staring.
+
+And they both said quietly, though the words rang inside my brain:
+
+“Walk down. Quickly!”
+
+Then I woke up.
+
+I was back inside the body that had spoken to me while I was lost on the ceiling.
+
+Panic was still deep inside my heart, searching throughout the room for another version of me, one far more depraved than I could imagine. I knew that an existence had floated inside my room. I knew it had been staring at me. The moment I found its eyes, I would lose all my senses and go insane, as the utter pit of evil would consume every single one of my cells.
+
+But I needed to walk down, quickly.
+
+I ignored the repetition of myself staring with murderous intent right between my sockets. I walked down the stairs to our bedroom.
+
+The sight that greeted me seemed comedic at first. But the next moment, I somehow believed an unimaginable evil had taken place.
+
+Through the glass panel of the door, I saw my wife’s figure. She was standing right behind the door, face-first, glaring at me. Once again, at me. With her eyes and mouth obscured by the glass, she was staring at me.
+
+Something deeper than panic struck me. An illogical fear, searching for darkness in the corners of my eyes. I imagined a predator looking for prey, and that prey was me, easy to hunt. I felt myself in the eyes of the creature in the corner of the room, preparing its fangs to bite into the side of my neck.
+
+Then I walked toward our bedroom.
+
+“Honey, please answer me. You have been in there for hours now. What is going on? Where are the kids?”
+
+With each step, I imagined my wife breaking through the glass door and gouging out my eyes. But I walked, and I blinked, and I breathed, and I was still alive. Nothing happened except me moving. It was terrifying, as if I were the master of this cruel, petrified world that I did not understand.
+
+I touched the door and slowly pushed it.
+
+“Honey, I’m coming inside. Don’t try anything odd. I want to help you. I need to know where the kids are. Did you do anything to them? Honey, what is happe—”
+
+When you pray, you search for salvation. You believe in a creature that may invite you into its world and greet you with the greatest wonders of existence. Yet sometimes, just sometimes, you do not get salvation. Sometimes it laughs in your grieving face while you pick up the pieces of what you once knew and try to reassemble them, while everything burns and crumbles around you.
+
+Now I know why my wife had seemed slightly taller as she stood face-first against the door.
+
+I had never seen her purple before. She was red when I invited her on our first date. She was white when we hugged each other in a freezing cabin in the Alps. She was brown after we returned from our honeymoon, a beautiful body carved by angels.
+
+Now her purple face and vomit-stained shirt moved left to right, left to right, as she swung from the noose. Left and right, left and right.
+
+My beautiful wife, the light of my life, had become pesticide for dreams.
+
+A certain action, repeated a number of times, may induce an Entry. You need to constantly repeat that action and stare at it, so that one time, another sight may steal your attention. The basis of the Theory.
+
+It was when my wife swung to the left that I saw my bloodstained son right behind her. His head had a huge hole through which I could see the beige wall behind him. His eye had been plucked out, and there were bite marks near his neck. He was sitting in his wheelchair, which was rusty and crimson all over.
+
+Tough guy. He never wanted anybody’s help. Even when his darkest days struck him, he moved on as somebody practical, somebody brave. His accident did not stop him from being successful, competing in sports, or being popular with girls. So fucking beautiful. I was always proud of him. He never disappointed me.
+
+Then, with his urine-stained pants and a fear only pigs in slaughterhouses have, he whispered:
+
+“Save me, Daddy!”
+
+My wife swung to the right. My son disappeared. Something else appeared.
+
+It seemed like a cruel joke, one I did not yet understand. But right as something struck my mind and invited the thoughts in, I let out a good, loud laugh. I do not know what was hunting me, but it did a damn good job. And it was surely breaking me.
+
+On the wall, in crimson, right as my wife resembled a pendulum, there was a message:
+
+1/4
+
+\---
+
+I need to recollect my thoughts. This experience has stopped being fun, and I cannot trust my senses anymore. Something bad is happening. I do not know if it is even real, but I surely hope not. Yet somehow, I know that the sights in my home were not fake. And the worst part is that I do not know how to move on.
+
+Anybody, please help.
+
+What should I do?
