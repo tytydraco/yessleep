@@ -1,0 +1,121 @@
+The community here at Cedar Ridge wanted to celebrate the 4th of July. It seemed like a good idea. The weather was hot, the pools were clear and cool, and the refreshments were flowing. The neighborhood kids were playing around the pools with sparklers and water guns. Scaring each other with those little Snap Its. 
+
+As the celebration carried on. The Jack was flowing and I got so very high that I decided it was the perfect time to get on my soap-box. 
+
+Well, yeah. Think about it. What if they manufacture the illness, then create the test for said illness to require a nasal or oral swab? All in the name of public safety and concern. See, they care about you. They love you.
+
+There’s not an easier way to collect, catalog, and store the DNA of an entire school, or hospital. Then it spreads to acquiring the DNA of a whole city, or state. So now, they've built the illness, aka ‘the scare.’ Then they roll out a test for the illness, aka ‘the solution.’ 
+
+The test gives you a heads up if you’re infected, seeking help while it’s still early gives you the best survival rate. Get it? But, you see, in exchange for that early warning, you gave up your DNA, and WILLINGLY, at that.
+
+\*I packed another bowl and held a large hit. Letting out a long exhale followed by a coughing fit that would put a tuberculosis patient having a flare up, to shame.\* 
+
+Now…now, you’ve got your scare, and you’ve got your little safety net. Ya know, your early warning test. 
+
+You’ve traded your genetic code and your identity away, and for what? Now they come out with this… this vaccine where it doesn’t even prevent you from getting it, or make you completely immune from it. It only lessens your chances of getting it and in countless cases, has killed the recipients from one complication or another. 
+
+They swear it’s safe, and they promise those cases are rare. Here’s the kicker, you have different pharmaceutical companies arguing over which stab is safer and more effective. After that, they push boosters out every few months, like they were new fucking Pokémon or something people were trying to collect them all. I dunno. 
+
+I gestured my hand vaguely but aggressively at the guy that I thought was standing behind Stoney.  
+
+“Hey, right here big guy.” – Stoney waved at me, “Ya fuckin’ pothead.” 
+
+“I see you, ya fuckin’ dickhead. I just swore I saw someone behind you.” I looked over at Cal. “You saw it?”
+
+“Saw what, psycho? I didn’t see shit.” – She playfully poked me in the side. 
+
+Continuing my rant, just then the music shut off, the party lights lost power and the solar night lights kicked on. I guess our 4th of July party was cut short, happy birthday America, sorry your party fuckin’ sucked. 
+
+It’s all the same, It’s not like we deserved to celebrate anything, but that’s been true for the last, oh I dunno, several decades. Curfew wasn’t even extended on a patriotic holiday like today. 
+
+Cal and I started walking back to our place, but not before I grabbed a plate full of grilled hotdogs and another with other cookout paraphernalia. Cal didn’t leave empty handed, she grabbed a bottle of Jack. Some old habits die hard, I suppose. 
+
+We weren’t even halfway down the row when somebody screamed.
+
+Not the fun kind. Not the firework kind, the kind I’d half expected all night despite the world being what it is now. This was the kind of fuckin’ scream that goes straight through you, the kind your body reacts to before your brain even finishes processing what it heard. We both stopped and turned towards the commotion. 
+
+Then the alarm kicked on. That high, looping siren we only ever heard during drills, the one that meant something had gotten through the fence, or worse:
+
+Something had already gone wrong inside.
+
+“That’s containment.” – Cal dropped the bottle of Jack on the ground and was already moving. The sidearm handgun she definitely shouldn’t have brought to a cookout suddenly became very much not optional. “Move, Dres. We gotta go.”
+
+We took off. Running back towards the noise in what used to be a celebration. What I saw when we got there is the kind of thing I wish my brain would let me forget, but apparently that’s not how this works.
+
+Ruiz was on the ground. Stoney was on his knees next to her, hands hovering like he didn’t know where it was safe to touch, because not even twenty years of combat experience could have prepared him even a little bit for this. 
+
+He kept saying her name, soft at first, then louder. Like volume alone could drag her back from wherever she’d gone. Not a soldier shouting orders. Something closer to a father. It was absolutely heartbreaking. 
+
+“Lizzy. Hey Private. Come back. This is your Captain speaking.” – He whispered a begging command. “Lizzy.. please.” 
+
+A crowd had already started forming around them, the way crowds do, drawn by the scream and the siren and that particular human compulsion to look even when every instinct says don’t. I recognized about half of them. 
+
+Mrs. Alameda was there, hand pressed flat against her own chest like she could hold her heart in place through sheer will. Theo had a hand clamped over his baby sister’s eyes, a little too late, both of them already crying. That hopeless, gut-wrenching cry. Let’s hope you never hafta hear a cry like that.
+
+Ruiz’s eyes were the first thing wrong. Not glassy, not bloodshot the way you’d expect from somebody sick. Full. Sclera completely flooded red-black, like the white had just given up entirely. Like the blood had nowhere left to go but to pool under the surface, right there.
+
+Then she started seizing. It was just the beginning.
+
+It started slow. With the corners of her mouth, where it ran down her chin in thick dark ropes, almost black under the camp’s emergency lighting. Nothing like the bright red you’d expect. 
+
+A trickle from her ear, a dribble from her nose, and finally a torrent from her eyes. All the streams reconvened on her chin, as the thick warm fluid flowed down her face like a leaky fuckin' faucet. 
+
+Her back arched off the ground at a wrong angle that made my own spine hurt. The sound was bone-cracking, like the sound of a thousand knuckles popping in unison. 
+
+If that horrendous noise wasn’t enough, something in her throat made a sound I can only explain as a wet and tearing sound, like her body was trying to scream and didn’t have a working throat left to do it with.
+
+Someone in the crowd was praying. I don’t know who. Just a voice. Quiet, fast. The kind of praying you do when you’ve run out of anything else to offer. “Mother Mary, I beg of you. God the father, I pray to you.” It was the sort of prayer that makes even the atheist in me hope for a miracle.
+
+“Get the fuck back.” Cal’s arm shot out across my chest, shoving me a full step back before I’d even registered I was moving toward them. “Dres. Wake up! Get back. Now.”
+
+I didn’t listen. Not all the way. I got far enough back to not be standing in it, but I couldn’t make myself turn around, couldn’t make myself stop watching, the way you can’t look away from a car wreck even when every part of you is screaming to.
+
+Ruiz’s hand shot out and grabbed Stoney’s wrist. Her grip impossibly tight, knuckles white, and for one second, one terrible second, her eyes found his and there was something still in there, something still her, drowning underneath all that red.
+
+“Mikey… p-p-please.” Just those two words. Barely a whisper, wet and ruined, blood bubbling at the edge of them. That gurgle at the end, I'll never get it out of my head. That despair.
+
+Then whatever had been holding on let go. For a moment things were soft and quiet. 
+
+Then she sat straight up and went right at Stoney’s throat. Her hands spread and her teeth clenched, mouth snarling. Black blood now pumping throughout her veins, popping all across her withered body. 
+
+Stoney was rapidly losing the struggle with what used to be his patrol partner. The remnants of Ruiz yanked Stoney’s arm with an inhuman strength. He resisted, digging his feet in the ground. Any effort he could take to avoid her viscous teeth.
+
+Cal jumped to action and instinctively reached for her patrol gun. Stoney caught a glimpse of what was about to unfold, but he just closed his eyes and kept pulling against the creature’s vice grip on his arm. I could see his lips moving, but I couldn’t make out the words. 
+
+Cal raised the gun steady and sent one dead shot through Ruiz's left temple, mercifully putting her down for good. That ear-shattering crack echoed out for far longer than gunshots usually do. It was truly a surreal moment. 
+
+She fell limp, crashing onto the patio. Her whole body convulsed violently once, hard enough that Stoney lost his balance and fell backward onto the pavement. And then she went still, really still, the kind of still that you don’t come back from. The blood kept coming anyway, like her body hadn’t gotten the message yet that it was supposed to stop.
+
+Cal turned into me and I hugged her hard. Her wet tears began soaking my t-shirt
+
+“She didn’t feel it babe, she was already long gone, my love.” – I whispered against her ear. 
+
+I gently caressed her cheeks, wiping away the cascading tears that steadily rolled from her eyes. I was strong for her right then. But, I broke down in the middle of the night. So I could be all alone and vulnerable. In that moment, I had to focus on Cal, Stoney, and everyone else that witnessed the horror. 
+
+Nobody moved. Not for the long few seconds that felt a hell of a lot longer than they actually were.
+
+Mrs. Alameda was the one who broke first, making this awful, keening sound, both hands over her mouth like she could push it back in. Then a few of the others followed. 
+
+Not screaming, no, not anymore. Just this low, ragged wave of grief moving through everyone standing close enough to have seen it happen. 
+
+Theo’s sister was sobbing into her brother’s shirt. Someone I never saw kept saying, “She was just a kid,” over and over, quiet, like a prayer all of its own.
+
+She never got a chance to live, to have a family of her own. I never realized how much she looked after the neighborhood kids until a nine-year-old I'd never seen before was sobbing over her body, until she was pulled away.
+
+Beside me, Cal made a sound I’d never heard her make before. Small. Sharp. Just once, like something had cracked loose in her chest before she could stop it. I looked over and her jaw was tight, eyes still wet, glassy in the emergency lighting. 
+
+For half a second the Captain wasn’t there at all, just Caleigh, a regular person watching another person die in the street. She caught herself, blinked hard and set her jaw back into place like she was physically forcing herself back into the shape she needed to be right now. I’d never seen her do that before. I hope I don’t see it again.
+
+Then the response team was there - full hazmat with faces I couldn’t see behind visors, pulling Stoney away from Ruiz's body, while he screamed her name like that would change anything. Two more of them crouched over what used to be Ruiz with the kind of clinical, practiced motion that told me, more than anything else that night, that this wasn’t the first time they’d done this. Apparently, it wouldn't be the last either.
+
+Cal pulled me back another step, then another, her hand fisted tight in the back of my shirt.
+
+“Dres. Dres, look at me.” Her voice cut through whatever static had taken over my brain, steady again, or steady enough. “We need to fucking go. Now.” 
+
+I looked at her instead of Ruiz, because I think some part of me knew if I kept looking at Ruiz, I wasn’t coming back from it either, not all the way.
+
+“Yeah.” My voice didn’t sound like mine. “Yeah, okay.”
+
+We walked silently, the alarm still screaming behind us. Red emergency lights washing the whole camp in a color I was going to be seeing behind my eyelids for a long, long time.
+
+I didn’t sleep that night. I don’t think anybody in Cedar Ridge did.
