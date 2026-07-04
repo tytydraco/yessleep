@@ -1,0 +1,139 @@
+To anybody not paying attention, the older man stretched out on the sun lounger opposite me looked innocent enough. He appeared to be reading a newspaper, oblivious to the youthful commotion mere yards away in the hotel pool.
+
+I was paying attention, though. I saw that whilst his head and his sunglasses were lowered, his eyes were not. They peeped over the tops of the cheap plastic frames, darting here and there as he watched the children playing, sleek heads bobbing and diving like seals as they shrieked and splashed.
+
+He was watching the children, and I was watching him watch the children.
+
+A small girl ran past him at one point, nearly brushing his bare toes. She was as plump and shapeless as a sausage in her bright pink bathing suit, and as sexless as one too, but he watched her with the avid concentration of a man at a strip club. Moments after she had plunged back into the pool, a voluptuous young woman of legal age walked past him, all but spilling out of her bikini, but he spared her not one glance.
+
+He did not have a child in the pool to excuse his interest. Both he and I had been there a long time, and I had seen many children come and go. They frolicked in the water, returning every now and then to their base camp where their parents plied them with drinks and snacks, and reapplied sunscreen to wriggling limbs and screwed up faces. Eventually, the children would be coaxed from the pool, bundled into towels, and herded away, protesting and tired.
+
+No children reported back to him during the course of the long afternoon, and he progressed from pretending to read the newspaper to pretending to do the crossword. He held a pencil in his damp, pudgy hand, and, when he remembered, made some no doubt nonsensical mark upon the page spread on his lap. His flabby jowls rested against his breast like a collapsed jellyfish, quivering when he could no longer contain his emotions.
+
+All of the children left eventually, sleepy but reluctant, going to dinner, a bath, and bedtime, leaving the pool mostly empty. A lone man took advantage of the newly freed space, swimming vigorous laps of the pool with grunts of effort, and a couple of older women lurked in the water at the edge, talking with hushed intensity, a couple of cocktails perched on the tiles just within reach.
+
+I relaxed a little then. I had originally intended to sleep in the drowsy heat of the afternoon, swim a little, then retire with my own cocktails, but the man on the lounger opposite with his prop newspaper had ruined it for me.
+
+Now that the pool was devoid of children, I was once again considering retiring to the bar for pre dinner drinks when the girl entered from the narrow path beside the hotel, towel clutched in her fist. She scanned the pool area, and apparently satisfied with the setup she tossed her towel onto a nearby sun lounger.
+
+She was tall, but wore the height with the awkwardness of a child undergoing a sudden growth spurt. Her legs and arms were long and bony and clumsy, poking out of the modest two-piece swimsuit she wore. She had a rash of florid sunburn on the points of her bony shoulders, and a matching flush spread like wings under her eyes and across her cheeks. The tip of her nose was just as rosy, and already peeling.
+
+Despite her height, nobody could mistake her for an adult. She was caught on the clumsy cusp of puberty, self conscious as she slipped out of her flip flops and approached the pool.
+
+She hesitated for a moment on the edge, long toes curled over the tiles, then launched herself forward into a clean dive that barely made a splash.
+
+The two older woman still deep in gossip made a light-hearted fuss of the small splash she did make, laughing as they brushed the few drops of water from their hair, and returned to their chatter and their drinks as if the girl had never interrupted.
+
+The girl swam with long, easy sweeps, covering yards with one span of her arms. She dipped her head like a mermaid, the illusion only shattered by the splutter of snot she expelled on resurfacing.
+
+I did admire her form. She was evidently an accomplished swimmer, completing a lap with an ease that suggested she could swim forever. 
+
+The man on the lounger opposite seemed to admire her for a different reason. 
+
+His pencil hovered over the page of his newspaper, the pretense of being absorbed in the crossword long forgotten. His sunglasses had slipped down his nose, and his piggy eyes were unmistakably fixed on the child in the pool, glued to the stretch and spread of her legs.
+
+At some point, she switched from a breaststroke to a crawl, pointed elbows spiking through the surface of the water, gulping air with each turn of her head. The man had his newspaper tented over his lap, a gesture that made me want to stuff the coarse paper and newsprint down his throat until he choked on it.
+
+Finally, after many skilful laps, the girl slowed to a stop beside the steps at the shallow end of the pool. She climbed out, apparently self conscious again now out of the water, and scurried over to her abandoned towel and flip flops.
+
+She wrapped the towel around her under her arms, tucking a corner in, and made her way quickly towards the path alongside the hotel from which she had first come.
+
+My obscene companion folded his newspaper and stood up. After an eternity of watching mere babies and prepubescent children patronise the pool that day, it appeared he had either grown weary, or had decided to take action.
+
+I saw him in his full glory for the first time as he pushed his sunglasses back up his nose, and pushed his bucket hat back from a gleaming bald pate to wipe the sweat from it with the back of his hand.
+
+The shirt he wore was bursting at the seams, chest hair sprouting between the straining buttons, and his cargo shorts nipped a false waist beneath the rounded bulge of his belly.
+
+He shoved knuckly feet into a pair of Adidas slides. His toenails were long and jagged and yellow.
+
+It may seem strange, but the sight of his feet above all else made me more disgusted than anything else about him at that moment.
+
+People are entitled to be imperfect. No cellulite or fat rolls or stretch marks or varicose veins had ever repulsed me about a person. They were scars from a battle won against age and a lifetime of experiences.
+
+But seeing this man with his long, sloping gut  peeking from beneath his loud, stained shirt, and seeing the gnarled toes with their fungal nails poking from his slides, made me hate him all the more.
+
+I followed him. I didn't take any special precautions. I didn't care if he saw me.
+
+I was slightly surprised that he hadn't noticed me all afternoon, but then he had been preoccupied. 
+
+I didn't know what I would do to him once I caught him. It didn't matter. All I was concerned with was getting to him before he got to the girl that had been swimming laps.
+
+The path by the hotel was narrow, with the building to one side and a high hedge to the other. It was straight for the most part, but with a sharp bend that obscured the man from my sight once he had gone around it.
+
+I'd been listening to the slushy, shuffle-slap of his rubber slides as I tracked him, but once he rounded that blind corner the sound of his shoes changed.
+
+The sound stuttered a little. Then stopped. Then one of his slides shot out from around that corner and embedded itself into the neatly groomed hedge to my right.
+
+Fearing the worst, I ran. I rounded the corner with one fist raised ready. But there was no need for either of my fists, apparently.
+
+The girl from the pool had the clumsy predator in a headlock. His legs were spread out behind him in a crooked V, one foot bare.
+
+I had noted how long the girls arms and legs were when she'd been swimming, but now they were even longer. Her left arm was around his throat, strangling his neck in the fold of her elbow, but the hand of that same arm hovered somewhere beneath his right ear, brushing the lobe.
+
+Her legs were around him too, impossibly bent in a way that no normal leg should bend.
+
+She looked up as I stumbled onto the scene.  His hat lay on the floor, shoved to the side beside the base of the hedge, and her right hand was caressing the shiny crown of his head with impossibly long fingers.
+
+I stayed very still. Whatever this girl was doing, I did not want to interfere with.
+
+The girl pondered me, drumming those long, long fingers against the shiny pate like an influencer doing an ASMR video. The force behind the tapping seemed slight, but her fingertips left visible marks on the skin.
+
+I found my voice.
+
+“If you need help, I can help,” I said. “Or would you prefer I left?”
+
+She regarded me with suspicion, eyes narrowing.
+
+She relaxed the looping arm from around her would-be attacker's throat, and I watched his mouth open and close, like a fish, frantically gulping in air.
+
+Then I saw her tighten her muscles again, a casual flex, and the gulping stopped.
+
+It was a show for me. A demonstration. It took no effort at all for her to stifle his breathing. He was helpless.
+
+The message was clear: She did not need my help.
+
+“I'll leave,” I said. “Sorry to interrupt.”
+
+I took one step backwards, but was stopped when she shot one leg out and hooked a foot behind my ankle. The action would have been unimpressive if it weren't for the fact that I was standing a couple of yards away from her.
+
+She took the hand that had been stroking the bald head and curled one finger in a beckoning gesture. The finger she displayed seemed to have more than the usual amount of knuckles.
+
+I stepped towards her. I could not ignore the command behind the summons. Her outstretched foot herded me in, an obedient little sheep.
+
+Somewhere in another universe I was aware that my heart was pounding and my legs shaking. When her hand slipped around the back of my neck I felt as if my soul had left my body and was floating away to safety, leaving the meat suit I inhabited to its fate.
+
+She elongated her neck as I shuffled forwards. The sunburn on her face and shoulders had spread, covering her face and neck and blooming downwards onto her chest. It pulsed, shivering in spasms over her skin in a way that put me in mind of an octopus changing colours.
+
+Once in her vicinity I remained absolutely still, allowing her to examine me in the hope she would realise I posed no threat to her. The man she held in her sinuous embrace was not forgotten: She allowed him a few sips of air, cut off before he could gain any strength from them.
+
+She sniffed me. Her nose was damp and hot, and traced a gradual path from my jaw to my temple.
+
+She huffed out something that might have been breath, but smelled like saltwater and sulphur. She released me, gently pushing me away, and I staggered back. She smiled.
+
+“I'll go,” I said, this time not a statement but a plea. 
+
+She nodded, and her smile widened. Her teeth weren't any sharper or bigger than any other girls of her apparent age, but were somehow more threatening. Something about the spacing.
+
+She turned her attention back to her victim. The hand she had used to restrain me retreated to scuttle over the bald head she held close to her chin.
+
+Her pointed fingers tapped and tapped and tapped at the crown of his head. In a child, the skull would be soft at the top. There would be a gap where her fingers pitter-pattered: The fontanelle. A grown man's skull was solid, but I didn't think that barrier would be any problem for her.
+
+She put her first two fingers together, stabbing them straight down in a sudden motion that made me turn away.
+
+I had managed to avoid seeing what she did, but I couldn't avoid hearing it. It was a sound I could never forget. Solid and soft at the same time.
+
+I started to walk away. I wanted to run but my feet wouldn't obey.
+
+Before I reached the end of the path I chanced a glance over my shoulder, just in time to see her slither backwards into the hedge, dragging her prey behind her with an awful elegance. The last I saw of him was the purple sole of one fleshy foot and the scuffed rubber sole of his remaining slide. His toenails made a scraping sound on the concrete.
+
+The pool had refilled again, this time with adults clutching drinks and flirting and chatting. I felt like a weight had lifted from me. There was music, strident beats making people dance on the tiles beside the pool.
+
+At some point, the sun had started to set, and cast a rosy glow over the pool.
+
+I ordered a drink and retired to the lounger I had inhabited all afternoon.
+
+As I sipped, I noticed a young man swim towards a tanned young woman in a string bikini. She had a mane of thick, blonde hair that drifted like seaweed in the water.
+
+The young man pressed himself against her, leaning forward to say something into the reluctant shell of her ear. She pushed him away, and he kicked his way back to her again, curling one arm around her possessively. He had her blocked against the side of the pool, and for one moment I worried for her safety, but then her eyes met mine and she smiled. Her teeth were white and neat but somehow too far apart, and when she curled one lazy arm around his neck she seemed to have too many elbows.
+
+I smiled back and raised my drink to her.

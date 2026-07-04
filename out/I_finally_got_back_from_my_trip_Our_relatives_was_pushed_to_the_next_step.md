@@ -1,0 +1,65 @@
+In 1974, Jane Goodall noticed two splintering groups of chimpanzees in Gombe National Park in Tanzania. Everything started when six adult males from the Kasakela community ambushed a single Kahama male feeding on a tree. The lone Kahama male attempted to flee, but he was caught. They threw him onto the ground and beat him to death. That was the first casualty in what would become a four-year war between two chimpanzee communities.
+
+
+
+Jane Goodall was shocked by this war. Through her research she always assumed chimpanzees were similar to humans, but nicer. She had to now deal with the war, the cannibalism, and even the infanticide she witnessed. The conflicts were brutal and even organized. The conclusion was even more brutal, though. It looks like our closest living relatives are far more similar to us than we would like to think.
+
+
+
+My name is James, and I am a photographer who’s been lucky enough to have had a couple of my photographs featured in some notable magazines. Of course, as you could have probably guessed by everything I’ve already said, my real love is to actually see these chimpanzees; unfortunately, my dream came true two months ago.
+
+
+
+A little over two months ago, I heard from a friend who stays near a large community of chimpanzees in Tanzania that it seems there is another splintering happening. I was so excited. I packed my bags and booked a flight, luckily lodging was not difficult, as I could stay with my friend. All I had to do was worry about bringing my cameras and documenting everything!
+
+
+
+When I finally arrived, I greeted my friend, Michael, and he showed me around the town before we finally made it to his home. After I got settled in, I asked the locals about anything they may have seen, and for the most part, nobody had anything to say. A few guys confirmed that they’ve heard more noise from the chimpanzees than usual, but one guy said something I dismissed at first. I found a man that lived alone outside of town who claimed that he was inspired by Jane Goodall, and ever since she documented that chimpanzee war, he chose to stay with them. He apparently stayed with them for over forty years before he finally settled back into a home. It was interesting, but I had all I needed.
+
+
+
+It was finally time for me to rest up because the next day is when it all begins. I made sure I grabbed everything that I needed: my cameras' batteries, a satellite phone, and a multi-tool knife. Michael offered me a handgun, just in case, but I didn’t feel comfortable, and I turned it down. I soon embarked on my journey to find these apes and capture photographs that would hopefully win awards. Luckily, through basic directions, I found them rather quickly and began taking photos. Many mothers with their children, many males walking about, and just chimps doing what chimps do.
+
+
+
+I was growing bored. Hours pass and they haven’t really done much outside the things I’ve already photographed. I thought a war was brewing; why were they just doing nothing?? It made no sense to me, but I continued. I would explore around just getting the same kind of shots I’ve been getting. But around the late afternoon, almost evening, I spotted something weird. A group of males were huddled around an obsidian deposit. I thought it seemed odd the way they were huddles. I figured this was my chance to capture something different! Maybe something groundbreaking! And unfortunately, I was right.
+
+
+
+I zoomed in on my camera and saw that they were messing with something, but between the plant life and the huddled mass of chimpanzees, I couldn’t see much else. But I kept focus. After some time I soon saw what it was that they were doing. They were rolling broken branches around the shattered pieces of obsidian, and that’s when I noticed something else. The branch was coated in what appeared to be some kind of sap or resin. The obsidian was sticking to the branches. I was right. I was right when I knew I would make the greatest discovery.
+
+
+
+To give an idea of how monumental this is, this isn’t normal behavior for any ape species alive, outside of humans. If I were to try to gauge the technological era they seem to be in, at least using human history as a measurement, it appears to be pre-stone age or proto-stone age. What I mean by that is that they seem to be mirroring aspects of stone tool usage that possibly were utilized by australopithecines before the arrival of Homo habilis.
+
+
+
+Some of you may be wondering, "Well, if they are using stone tools, isn’t that the Stone Age?" and the answer to that is, not really. Definitions can vary some, but the stone age is typically defined as shaping the tool for usage. This appears to be opportunistic. What really fascinated me, though, is that they used sap or resin as a way to keep the obsidian on the branch. It’s not like they were organizing the stones or even picking them out or even fastening them in any complex way, but this very process is not what we see in pre-stone age tool making. I can not even imagine where they got this idea. But I took many photographs.
+
+
+
+Dusk was approaching, so I decided to try and make my way back to Michael’s house. It was really no more than a thirty-minute walk. So I began to pack up until I heard some rustling. I spotted a chimpanzee watching these males. I pulled my camera back out; I watched and waited, and sure enough, the others noticed the lurker. What came next almost made my stomach come up and my heart drop down. I saw one of the males chase and grab the spying chimpanzee and slam him to the ground, and the others used their new clubs, with stones sharper than a scalpel, on that chimpanzee. It was something I could never have been prepared for, but I knew I had to capture it for documentation.
+
+
+
+The images may be lost now, but they are seared into my brain. The thudding sound that has a smaller sound of a wet snap. The closest comparison would be like beating a watermelon with a hammer, but even that doesn’t do it justice. Foley artists may attempt such things, and it may be a sound one would expect from a movie, but real life isn’t as pretty. The sound is something I can’t describe without you having heard the sounds yourself. The dim lighting thankfully obscured the gore to a degree, but the carnage is brutal. Blood, meat, and bone were being mashed together until it looked halfway like ground beef. I kept trying to take more pictures. Unfortunately I was so out of it that I accidentally set off the flash and was noticed.
+
+
+
+Before I knew it, I was running for my life. I don’t even know how many chimps were after me; all I knew was that I had multiple armed chimpanzees that honestly were stronger than me. If pound for pound, easily almost double my strength. These were monsters in my eyes at that moment, and the forest was getting darker. I could hear the hollering and twigs snapping and trees being struck. I knew I was going to die. I knew I was going to die as soon as I tripped and rolled over. I’m sure my ankle snapped and one of the chimpanzees stood over me. He looked like Goliath to me at that moment, a weapon-wielding giant ready to kill me.
+
+
+
+I closed my eyes and I felt the club smash through my leg. The pain was indescribable; the little shards of volcanic glass sliced through my leg, and blood was pouring. But I still kept moving instinctually. I couldn’t stand yet, but it gave me time to live a little longer as it kept getting closer, and soon the others joined up. If I can just get to the road, maybe I can be saved. But these apes did were not backing off, they weren’t going to stop soon enough. But I had one last plan, as much as I hate it. I quickly took my utility knife and a lighter and cut where the battery port was lighting up the other side of the camera. This already caught them off guard, but what came next was something they could have never expected. I tossed it towards them, and one of them tried hitting it, causing the lithium battery to burst and ignite, causing a boom.
+
+
+
+They ran off from the boom and the fire; this was my only chance to escape. I ditched everything I had and crawled to the road. I kept crawling, hoping for someone. And soon I could hear the hollering again. They were coming back, so I kept crawling until I saw a familiar truck driving slowly. I tossed a small rock to get his attention, and the truck came to a stop. The driver stepped out, and it was my friend Michael. When I didn’t show up after dark, he became worried, so he used the GPS data from my satellite phone to find me, and then he heard the explosion and followed the sound.
+
+
+
+I was taken to a hospital nearby and had to not only get surgery on my leg but was even told that it may not even heal right. That even after all the work they have done, I will still struggle with walking. But I guess I should count my blessings. I should be glad that despite the technological achievement, they still behaved like chimpanzees. Which leads me to wonder how they learned to make that weapon. The technique isn’t a natural progression for tool-making and seems off. Even worse, how many of them have learned this? What’s going to happen? Will they over hunt the monkeys that they love hunting already? Will they soon find conflict with more humans? There are too many questions, and I’m honestly too tired to even care anymore.
+
+
+
+I know most of you won’t care; it really wouldn’t apply to you, but be careful. Something is happening and I do not see the situation getting better. Keep your eyes on the news; if they even cover it, this is going to be the most brutal war in chimpanzee history, and the ecological impact will be on a scale not seen since our ancestors entered the Stone Age. Animals are going to die in large numbers, and even people may die. Please be careful.

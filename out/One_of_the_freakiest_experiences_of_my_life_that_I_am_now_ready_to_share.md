@@ -1,0 +1,17 @@
+Has anyone ever had an experience that they cannot explain and are afraid to share? Well, this is one, and I am sure there probably is a logical explanation, but I can't figure it out.
+
+When I was in sixth grade, my last class of the day was PE. Under state law, we had to run a mile in under 15 minutes, so our gym teacher had us practice by walking around our middle school. The school I went to had a roundabout road that circled the building because there was only one entrance and one exit.
+
+I was walking with my friend Brandon, who was very narcissistic and believed some weird crap. However, he was my only friend, so we walked together during gym. We started with everyone else, but because we walked slower than the others, they all pulled ahead. To reach a mile, it took essentially four laps around the school. After four laps, we were supposed to stay at the back entrance and just hang out. Brandon and I were on our last lap, and one person was not too far ahead of us.
+
+When we started cutting the corner toward the front of the school, the person ahead of us started running. He cut the corner, and we lost sight of him. When we finally made our way to the front, he wasn't there. It was weird because the road ran along both the front and the back of the school, so unless he absolutely booked it, we should have still seen him.
+
+We took our time and eventually made it to the back of the school—however, no one was there. Brandon and I were very confused by this, but we decided they must have forgotten about us, which wasn't that surprising. We tried getting back into the building through the back door, but it was locked, meaning we had to walk to the front of the building to get in.
+
+When we finally made it to the front door, we walked in and noticed that no one was in the front office. That was unusual, but it wasn't until we went into the gym that things became truly strange. No one was there. It was then that it hit me how quiet the school was. The middle school was not that big, so I thought I would at least hear a teacher talking in a nearby classroom, but I didn't hear a thing.
+
+Brandon and I walked through the entire school, and not a single person was there. Not a single person, which really had me freaked out. After about ten minutes, Brandon and I eventually walked back out the front of the school and headed around to the back. There, everyone was suddenly waiting, even though they hadn't been there previously.
+
+Once we got back inside, the normal noise that usually filled the school had returned. Brandon and I decided not to ask anyone about it, mostly because we didn't even know what to ask. We never brought it up to anyone until now.
+
+Does anyone have any ideas on what happened to Brandon and me? It's something that I have never fully understood.
