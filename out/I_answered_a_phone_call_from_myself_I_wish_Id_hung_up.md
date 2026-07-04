@@ -174,7 +174,7 @@ I frowned.
 
 One message a day. Fine. Honestly, that was probably enough to become rich.
 
-The following morning was my last day in Chicago.
+The following morning was my last full day in Chicago. I had to leave the evening after that.
 
 My phone rang before my alarm. Unknown number. I answered immediately. I expected another score. Maybe another winning bet.
 
