@@ -242,7 +242,7 @@ Wren was ecstatic when I told her I quit.
 
 The rest of the fall semester passed, and I had almost forgotten about the whole thing.
 
-I was cleaning out my purse when Howard's business card fell out. I went to throw it away until I realized I had never read the back. There was a password. My eyes widened. Quickly, I pulled out my phone and searched for True Niche; I entered the password for the exclusive tab.
+I was cleaning out my purse when Howard's business card fell out. I went to throw it away until I realized I had never read the back. There was a password. My eyes widened. Quickly, I pulled out my phone and searched for the company; I entered the password for the exclusive tab.
 
 Innocent thumbnails and gruesome titles greeted me.
 
@@ -332,7 +332,7 @@ Dave started the camera.
 
 I rubbed the front of my boot over the side of the man's face until I reached his temple. I lifted my right foot and, with no hesitation, dropped it down. The man grunted with each impact; blood spurted onto the asphalt and the top of my leg. I looked down to see shattered pieces of teeth that shot out of his mouth. His skull caved in with wet cracks that made my stomach turn. With each stomp, my foot got closer to the ground until I finally stepped into a pool of pure flesh and brain matter.
 
-Once the camera turned off, I collapsed, dry heaving as sweat dripped down the side of my face.
+Once the camera turned off, I collapsed, dry heaving as sweat dripped down the sides of my face.
 
 I felt Howard approaching me, and without even looking at him, I knew he was smiling. He dropped the cash in front of me. "Well done. I'm sure Wren will be thankful."
 
