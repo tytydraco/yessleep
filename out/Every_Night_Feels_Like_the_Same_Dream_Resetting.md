@@ -1,0 +1,50 @@
+I never reach the end of this  
+I can’t sleep.  
+And that’s not a literal sentence for me anymore.  
+It’s a state.  
+Every night is the same: I lie down, my body shuts off too fast, like it’s been tired for years… but my consciousness doesn’t follow. It stays there, trapped, watching the darkness “happen” around me.  
+The room changes after a while.  
+Not in any obvious way. Nothing you could point at and say “this is different.” It’s more like… an accumulation of errors. The shadows feel heavier on the left side of the bed. The ceiling seems lower. The air gets this strange texture, like I’m breathing something that isn’t fully air.  
+And then I wake up.  
+Or at least I think I do.  
+I get up, walk around the house, do normal things. Water, bathroom, dim lights. Everything works. Everything feels coherent enough that I don’t question it in the moment.  
+But there’s always something off.  
+Once, the kitchen clock was spinning backwards. Another time, every door in the house was open, even though I clearly remember locking them. My phone always has things I didn’t do—messages opened, calls with no history, tiny details that are too small to feel like a glitch, but too wrong to ignore.  
+And the worst part is: no one else seems to notice.  
+No one reacts.  
+My husband… he just looks at me like I’m late for something I don’t remember agreeing to.  
+Once I asked him if I had actually slept.  
+He said, without looking away from me:  
+“You never really wake up.”  
+I laughed at the time. That uncomfortable, automatic kind of laugh. But he didn’t laugh back.  
+He just kept staring.  
+After that, I started testing things.  
+Writing notes. Recording audio. Leaving messages for myself saying, “If you’re reading this, you’re asleep.”  
+I never find any of them afterward.  
+None.  
+But I remember writing them.  
+Today was when I couldn’t ignore it anymore.  
+I tried to leave the house.  
+The door wouldn’t open.  
+It wasn’t locked. It wasn’t broken. It just didn’t respond to me, like “leaving” wasn’t a function available in whatever state this is.  
+When I pressed my hand against it, I felt something on the other side.  
+Not wind. Not outside. Something closer. Like reality itself was pressed up against the house, breathing along with it.  
+That’s when I understood the worst part:  
+I’m not having bad nights.  
+I’m stuck in a continuity.  
+A dream that doesn’t reset.  
+It only deepens.  
+Now I’m in the bathroom. Door locked. Lights off. Phone shaking in my hand.  
+And there’s one thought I can’t shake:  
+I’ve written this before.  
+The same words. The same ending. The same plea.  
+Like I always get to this point… right before I forget again.  
+So if this is reaching anyone. If someone is reading this—  
+please.  
+don’t ignore it.  
+Because if I’m right, and this actually made it out…  
+it means I managed to push something through.  
+and that has never happened before.  
+I think.  
+I hope.  
+Oh God please help me.
