@@ -71,3 +71,7 @@ And under my name, in smaller writing, it just says: soon.
 Part 2
 
 https://www.reddit.com/r/nosleep/s/NgFiJjUJRJ
+
+Part 3
+
+https://www.reddit.com/r/nosleep/s/igJkzbtXVR

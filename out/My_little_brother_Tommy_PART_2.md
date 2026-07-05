@@ -64,6 +64,11 @@ I think I need to go check that classroom one more time. Not because I want to. 
 
 Or if both desks are already full.
 
+
+Part 3
+
+https://www.reddit.com/r/nosleep/s/6XVd33O1l7
+
 Part 1 
 
 https://www.reddit.com/r/nosleep/s/9mCO8SAfTF

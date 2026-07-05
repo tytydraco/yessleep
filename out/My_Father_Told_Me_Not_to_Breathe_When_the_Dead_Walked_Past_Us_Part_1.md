@@ -337,3 +337,5 @@ I thought that was enough.
 Then, years later, on another rainy day, something happened by the river.
 
 That was the incident that broke the quiet I had kept for so long.
+
+[Part 2]
