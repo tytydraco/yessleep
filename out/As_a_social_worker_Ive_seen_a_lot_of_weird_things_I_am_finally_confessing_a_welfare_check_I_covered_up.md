@@ -1,0 +1,271 @@
+I have been a social worker for nearly two decades, so I of all people, know that when most people think about my profession, they usually imagine mountains of administrative paperwork, organizing food assistance programs, or navigating the incredibly complex foster care system. While those duties certainly make up a large portion of my daily routine, there is another side to the job that rarely gets discussed outside of our office walls. We are often the last remaining line of defense for the forgotten members of society, so as you can see, are the individuals dispatched to knock on doors when someone stops opening their mail, stops answering their telephone, and simply fades away from the public eye.
+
+Over the years, I have seen things behind closed doors that entirely shattered my understanding of the world. I have kept quiet about these specific cases for a long time, primarily because I feared losing my professional license or being forced into a mandatory psychiatric evaluation by my supervisors. But I am getting older now, and the memories are starting to weigh significantly on my conscience, so I decided it is finally time to document and share the stories of the weird cases I dealt with during my career. And that what brings me here, as I want to start with an assignment from many years ago involving a routine welfare check on an elderly woman.
+
+The assignment originated on a Tuesday morning. My supervisor handed me a manila folder containing a very thin case file. The file belonged to an eighty-two-year-old woman who lived alone. On paper, everything about her situation appeared completely normal. Her utility bills were paid on time through an automated bank system, her pension was actively deposited, and her property taxes were entirely up to date. The only red flag, and the reason the file landed on my desk, was that no one had actually seen her in a very long time.
+
+ She had ignored the previous routine wellness checks from our department, she did not answer the door when the previous workers knocked, and her telephone simply rang endlessly when we tried to call, so as you can see, my job was simple in theory: drive to her property, make contact, assess her living conditions, and determine if she needed to be moved into a state-assisted living facility.
+
+Her property was located in the middle of a very affluent, highly manicured neighborhood on the edge of the city. The area was famous among city workers for one specific characteristic. It was a neighborhood where absolute apathy was the community standard. The residents there valued their privacy to a fault, cultivating a culture where nobody ever looked over their fences, and of course nobody cared what happened to the people living right next door. You could collapse on your front lawn in this neighborhood, and the passing cars would simply drive around you to avoid getting involved.
+
+I parked my car along the curb. It was a bright, cloudless afternoon. The street was lined with massive oak trees and perfectly trimmed hedges. I walked up the driveway toward the elderly woman's house. The property stood out immediately, because it felt entirely lifeless. The lawn had grown completely out of control, the bushes were overgrown and tangled, and a massive pile of circulars and junk mail covered the front porch.
+
+Before approaching the door, I noticed a man washing his expensive car in the driveway right next door. I walked over to the property line, holding my identification badge clearly in my hand.
+
+"Excuse me, sir," 
+
+I called out, keeping my tone polite and professional.
+
+ "I am a social worker with the county. I am trying to check on your neighbor. Have you seen the elderly woman who lives in this house recently?"
+
+The man did not bother to turn off his hose. He barely glanced in my direction, keeping his eyes focused on the soapy water running down his windshield.
+
+ "I mind my own business,"
+
+ he replied dismissively. 
+
+"I have not seen anyone come out of that house since last autumn. "
+
+"Has anyone come to visit her?" 
+
+I pressed, trying to gather any useful context. 
+
+"Family members, grocery deliveries, anything at all?"
+
+"I said I mind my own business," 
+
+the man repeated, turning his back to me entirely.
+
+ "If she is dead in there, call the police. Do not bother me with it."
+
+I thanked him for his time, realizing I would get no help from the surrounding community. I walked back over to the property and stepped onto the front porch.
+
+As I stood on the porch, I noticed something deeply unsettling about the house. The large picture window facing the street was completely opaque. I stepped closer to examine the glass. Every single pane of the window had been meticulously covered from the inside with thick layers of newspaper and dark construction paper. Someone had used thick strips of duct tape to seal the edges of the paper directly against the window frame, ensuring that not a single sliver of sunlight could penetrate the glass. I stepped off the porch and walked around the side of the house, checking the secondary windows. They were all identical. Every window on the ground floor was aggressively sealed against the outside world.
+
+I returned to the front door, feeling a distinct sense of unease settling into my stomach, then I noticed that the glass panels on the front door were also blacked out with taped paper. I raised my fist and knocked loudly on the solid wood frame.
+
+"County social services,"
+
+ I announced. 
+
+"I am here to conduct a mandatory wellness check. Please come to the door."
+
+I waited for a full minute, listening intently to the silence of the neighborhood. I knocked again, much harder this time.
+
+"If anyone is inside, you need to answer the door," 
+
+I stated firmly.
+
+ "If I cannot verify the safety of the resident, I am legally obligated to contact law enforcement to force entry into the premises."
+
+A few seconds later, I heard the faint sound of footsteps moving softly across the hardwood floor inside. The footsteps stopped right behind the front door, then I heard the metallic click of a deadbolt sliding back, followed by the rattle of a brass security chain engaging. The door opened just a few inches, stopped by the tension of the chain.
+
+The interior of the house was entirely pitch black. I could not see anything through the narrow gap, but a wave of stagnant, freezing air drifted out onto the porch. 
+
+"Who are you?"
+
+ a voice asked from the darkness.
+
+The voice did not belong to an eighty-two-year-old woman. It was the voice of a very young woman. The tone was smooth, and calm.
+
+"I am a county social worker," 
+
+I explained, holding my badge up to the narrow gap so she could see it. 
+
+"I have been assigned to check on the elderly resident of this address. The county has not been able to reach her for several months. Can you tell me who you are?"
+
+"I am her granddaughter," 
+
+the young woman replied smoothly from the shadows. "You do not need to worry about her. I moved in a few months ago to take care of her full-time. She is perfectly fine. You can close the case and go back to your office."
+
+"I appreciate that you are caring for her, but I cannot just leave,"
+
+ I said, maintaining a calm but authoritative stance. "Agency protocol dictates that I must make visual contact with the primary resident to confirm her living conditions and her cognitive state. I need you to unchain the door and allow me inside for five minutes."
+
+"I cannot do that," 
+
+the young woman answered immediately.
+
+ "My grandmother is resting right now. She had a difficult night, and she finally fell asleep. I am not going to wake her up for a government inspection."
+
+"I do not need to wake her up or interview her," 
+
+I countered, leaning slightly closer to the gap. 
+
+"I simply need to step inside, see her breathing in her bed, and verify that she has access to food, running water, and proper medication. If you refuse to let me verify her safety, I will have to sit on this porch and call the police. They will break the door off its hinges, and that will be incredibly distressing for your grandmother."
+
+There was a long, tense pause from the other side of the door. I could hear her breathing softly in the dark.
+
+"I cannot open the door entirely," 
+
+she finally said, her voice dropping to a lower, more cautious register. 
+
+"I suffer from a severe medical condition. It is an extreme allergy to ultraviolet light. If the sunlight hits my skin, I will experience severe blistering and respiratory distress. That is why the windows are covered. If you want to come inside, you must promise to slip through the gap quickly and close the door immediately behind you so the sun does not touch me."
+
+"I understand," 
+
+I assured her, despite finding the explanation highly unusual. 
+
+"I will be very quick. Just undo the chain."
+
+The door closed for a fraction of a second, the metal chain rattled as it was unhooked, and then the door swung open just enough for me to pass through. I stepped over the threshold into the freezing darkness of the house. True to my word, I reached back and pushed the front door shut until the deadbolt clicked into place.
+
+The moment the door closed, the darkness became absolute. My eyes struggled to adjust after being in the bright afternoon sun. The ambient temperature inside the house was easily twenty degrees colder than the weather outside.
+
+"Thank you for being careful," 
+
+the young woman said. She was standing a few feet away from me in the entryway. As my eyes slowly adapted to the gloom, I could make out her silhouette. She was wearing a long, dark dress that covered her entirely from her neck down to her ankles. Her face was obscured by the shadows, but I could tell she was standing perfectly still, her posture unnervingly rigid.
+
+"Thank you for cooperating,"
+
+ I replied, pulling a small flashlight from my jacket pocket. I clicked it on, aiming the beam at the floor to avoid blinding her, but allowing the ambient light to illuminate the space.
+
+The house was in a state of profound neglect. The walls were covered in faded, peeling wallpaper. The furniture in the living room was draped with old, dusty plastic sheets. Stacks of hoarded newspapers and cardboard boxes lined the hallways, creating narrow, claustrophobic pathways through the home.
+
+"Where is your grandmother resting?" 
+
+I asked, keeping my flashlight pointed downward as I navigated the clutter.
+
+"She is in the back bedroom,"
+
+ the young woman answered, her voice echoing slightly in the empty living room. She stepped into my path, attempting to block the hallway.
+
+ "But like I said, she is sleeping. Perhaps we could sit in the kitchen first? I can make you a cup of tea, and we can discuss her medical paperwork. I have all her prescriptions organized in a binder."
+
+"I am not here to review paperwork right now,"
+
+ I stated firmly, recognizing the classic stalling tactics people use when they are hiding something from social services. 
+
+"The visual confirmation is my only priority. Please step aside and lead me to the bedroom. This will only take a moment."
+
+She hesitated, her silhouette shifting uncomfortably in the dark hallway.
+
+ "She really does not like strangers in her personal space," 
+
+the young woman insisted.
+
+ "She gets very confused and agitated."
+
+"I deal with agitated clients every single day,"
+
+ I said, stepping around her and walking deliberately down the dark corridor.
+
+ "Which room is it?"
+
+"The last door on the left,"
+
+ she muttered, following closely behind me. I could hear her bare feet moving silently across the hardwood floor.
+
+I aimed my flashlight into the bedroom. The room was meticulously organized, but it was completely empty. The bed was unmade, the heavy quilts tangled and pushed to one side, but there was absolutely no sign of an eighty-two-year-old woman resting. I shined my beam across the nightstand. It was entirely bare—no pill bottles, no water glass, no reading glasses, none of the basic medical necessities you would expect for a senior citizen requiring full-time care. I stepped over to the mattress and placed my bare hand firmly against the exposed sheets. The fabric was freezing cold. It was immediately obvious that nobody had been sleeping in that bed recently.
+
+I turned around to face the young woman. She was standing in the doorway, her face still cloaked in the shadows of the hall.
+
+"Your grandmother is not in her bed,"
+
+ I said, dropping my professional courtesy and adopting a much more stern, demanding tone.
+
+ "Where is she? If you lie to me again, I am calling the authorities immediately."
+
+"She must have gotten up while I was talking to you at the front door,"
+
+ the young woman replied calmly, completely unfazed by my threat. 
+
+"She wanders around the house sometimes. Let us check the kitchen."
+
+I did not trust a single word she was saying. I gripped my flashlight tightly and pushed past her, walking toward the back of the house where the kitchen and utility rooms were located. 
+
+I entered the kitchen. The refrigerator was unplugged, its door hanging open, completely empty except for a thick layer of black mold. I walked past the kitchen island and noticed a partially open door leading into what looked like a laundry room. 
+
+I pushed the laundry room door open and stepped inside, sweeping my flashlight beam across the floor.
+
+My breath caught in my throat, and my stomach aggressively churned at the sight before me. Piled haphazardly in the corner of the room, between a rusted washing machine and a utility sink, were the bodies of dozens of animals. There were stray cats, several small dogs, and a few raccoons.
+
+The animals looked entirely desiccated. Their bodies were flattened, completely drained of all fluids, resembling dry, hollow husks covered in fur. I stepped closer, shining the intense beam of light directly onto the closest carcass. There were distinct, brutal puncture wounds on the animal's neck, but there was no blood pooled on the floor around the bodies. 
+
+I backed out of the laundry room quickly, my mind racing to process the horrific scene. I bumped into the wall of the hallway and turned instinctively into the adjacent room, which happened to be the primary bathroom. I tried to flick the light switch on the wall, but the power was dead. I raised my flashlight to illuminate the space, intending to check behind the shower curtain, but the beam caught the reflection of the large vanity mirror above the sink.
+
+I froze completely.
+
+Written across the dusty surface of the bathroom mirror, in thick, dark, dried blood, was a deeply disturbing message.
+
+“I am no longer sick. I am finally young again.”
+
+I stood in the dark bathroom, reading the bloody words over and over again. My brain frantically attempted to connect the pieces of the puzzle. The grandmother who had not been seen in months. The young woman claiming to be the granddaughter. The completely empty, dusty bed. The drained, bloodless animals piled in the utility room. The desperate message written on the glass.
+
+But the timeline did not make any sense. If the granddaughter had moved in months ago to care for the old woman, why was the house completely dead? Why was there no food, no electricity, and no sign of anyone other than the young woman herself?
+
+"I told you she was resting,"
+
+ a voice whispered from the doorway behind me.
+
+I spun around rapidly, aiming the beam of my flashlight directly at the bathroom door.
+
+The young woman was standing there, blocking the only exit. But her demeanor had entirely changed. The smooth, calm cadence of her voice was gone. When she spoke now, her voice carried the exhausted, raspy, resentful tone of someone who had suffered through decades of immense pain.
+
+"I was trapped in this house for years," 
+
+she said, taking a slow step into the bathroom. 
+
+"My joints were failing. My lungs were filling with fluid. Every single morning was an exercise in agony. I could not walk to the mailbox, or even cook for myself. I screamed for help, but nobody in this miserable neighborhood ever cared. The people next door ignored me. The state ignored me. You social workers never came when I actually needed you. You left me here to rot in the dark."
+
+"Where is the old woman?"
+
+ I demanded, my voice trembling despite my best efforts to remain steady. I kept the light pointed at her torso, slowly reaching into my pocket for my phone.
+
+"I just told you,"
+
+ she hissed, taking another step forward. She stepped fully into the ambient glow of the flashlight bouncing off the bathroom tiles.
+
+I finally saw her face clearly.
+
+She looked like a woman in her early twenties, but her skin was flawlessly pale, looking almost like polished marble. However, it was her eyes that made my blood run entirely cold. Her eyes were completely inhuman. The sclera was a sickly, vibrant yellow, reflecting the light exactly like a nocturnal predator.
+
+"Someone finally visited me,"
+
+ the woman continued, her yellow eyes locked onto my face. A deeply menacing, manic smile stretched across her pale cheeks. 
+
+"A shadow came through the basement window during the coldest night of the winter. He found me dying in my bed. He saw how abandoned I was, how pathetic my existence had become. And he offered me a trade. He gave me the ultimate grace."
+
+She raised her hands, displaying long, sharpened fingernails that looked more like dark, hardened claws.
+
+"He took away the sickness," 
+
+she whispered, her voice vibrating with an unnatural resonance. 
+
+"He took away the weakness. He made me finally young again. All I have to do to keep the pain away is drink. The stray animals were enough at first, to sustain the youth. But the thirst is getting worse. I am so terribly hungry today."
+
+She lunged at me with a speed that was impossible for a human to achieve.
+
+She crossed the distance of the bathroom in a fraction of a second. I barely had time to react. I swung flashlight in my hand as hard as I could, aiming directly for her face.
+
+The solid casing collided violently with her jaw. The impact produced a sickening crack that echoed in the small room. The force of the blow derailed her momentum, sending her crashing into the bathtub and tearing the shower curtain down with her.
+
+I bolted out of the bathroom, sprinting down the pitch-black hallway toward the front of the house. I could hear her scrambling out of the bathtub behind me, her claws tearing frantically against the floor. She was recovering far too quickly.
+
+I pushed through the hoarded stacks of cardboard boxes in the living room, my legs burning with adrenaline. I could hear her snarling, a guttural, animalistic sound that reverberated through the dark house. I reached the entryway and threw my hands against the front door, frantically grasping for the brass deadbolt in the darkness.
+
+Before I could turn the lock, I felt her fingers clamp onto the fabric of my jacket.
+
+Her grip possessed an overwhelming force. She yanked me backward violently, throwing me onto the floor under a window. I scrambled onto my back, kicking out wildly with my boots. She crawled over my legs, pinning me down, her yellow eyes glowing in the dark, her jaw hanging at a strange, broken angle from where I had struck her. She opened her mouth, revealing rows of elongated, razor-sharp teeth, and lunged toward my throat.
+
+In a moment of desperate clarity, I remembered the excuse she had given me at the door. 
+
+I stopped trying to push her away. Instead, I reached my arm entirely over my head, stretching my hand toward the window above us. My fingers found the edge of the thick duct tape holding the dark paper in place.
+
+I grabbed the paper and ripped it downward with every ounce of strength I had left.
+
+The layers tore away from the glass. The intense, brilliant light of the afternoon sun blasted through the window, flooding the dark entryway with direct sunlight.
+
+The beam of sunlight struck the woman directly across her back and the side of her face.
+
+The reaction was instantaneous and horrific. The moment the light touched her pale skin, she released a deafening, piercing shriek of pure agony. Her skin began to rapidly blister, turning a sickening shade of charred black while thick, foul-smelling smoke poured from her flesh. It sounded like raw meat being thrown onto a scorching iron grill.
+
+She released my jacket immediately, scrambling backward off my body and throwing her arms over her burning face. She threw herself into the shadows of the living room, retreating away from the lethal sunlight, screaming and thrashing against the hoarded boxes.
+
+I did not hesitate for a single second. I ran to the front door, twisted the deadbolt, pulled the front door open, and threw myself out onto the sunlit porch. I slammed the door shut behind me, ran down the driveway, and threw myself into my county vehicle. I locked the car doors, jammed the key into the ignition, and sped away from the affluent neighborhood as fast as the engine would allow.
+
+I drove for several miles before I pulled over into a shopping center parking lot to catch my breath and attempt to process what had just occurred.
+
+I did not call the police, or even report the attack to my agency. If I told my supervisors that an eighty-two-year-old woman had been transformed into a vampire creature, my career would have been terminated immediately, and I would have been institutionalized. Instead, I returned to the office, filed the paperwork, and officially reported the house as abandoned. I stated that the resident had likely moved out of state without notifying the county, and the case was quietly closed and filed away into the archives.
+
+I officially closed the case, but exactly one month later, I could not stop myself from driving back to that neighborhood. I parked across the street and looked at the property. The house was completely abandoned. The dark paper had been ripped away from the windows, the overgrown bushes were dying, and the driveway was entirely empty. I do not know where she went. I have no idea what new city or neighborhood she vanished into. But as I sat in my car staring at the vacant home, a deep, cold certainty settled into my stomach. I felt it in my bones. I know, without a shadow of a doubt, that I will meet her again someday.
