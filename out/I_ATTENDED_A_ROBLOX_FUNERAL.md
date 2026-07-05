@@ -1,0 +1,92 @@
+Around the mid 2010s, I remember I was about 12 years old when my parents left one evening to go to a gathering, leaving me and my older brother home alone. They said they’d be back before midnight, but said not to bother waiting for them, and to go to bed. I remember being ecstatic. It was the weekend—February 27th, if I remember correctly. That meant I could stay up and play on the family computer. My parents being gone was a bonus because that also meant I could play until I heard their car in the driveway, where I could rush back to bed pretending to sleep.
+
+With that in mind, and my parents out of the house, I casually got on the family computer with a snack, before opening YouTube to watch gaming YouTubers play horror games. I forgot the channel’s name, but the guy playing came across a funeral scene, he got jump scared, and although I got scared with him, I got a good laugh at his reaction.
+
+After the video, I switched to a more light-hearted one, I think it was PewDiePie playing Happy Wheels. I always ran to his Happy Wheel series, since it oddly gave me comfort watching him play that game. While passively watching, I would play games as well, while listening to the video in the background.
+
+I usually played Roblox, and it was pretty much far from the Roblox everyone knows now; it was more niche, and actually block-like, with simpler games. Although as I played random obbys, and playing with the rewards I collected at the end, my mind kept going back to the scene from earlier, the funeral game. I didn’t really know what the game was called, but the display really stuck with me: the decrepit chapel, abandoned with no one around, except a coffin in the middle.
+
+It kept lingering in my head until it began to feel like an itch I needed to scratch, so I exited the game and typed in the search bar… "Funeral." Nothing really piqued my interest at first, just a bunch of empty baseplates, or games like Funeral Tycoon. But then I saw a game with five players at the time, and that wasn’t really what caught my attention at first—it was the title.
+
+**"Mellissa's Funeral Memorial."**
+
+The thumbnail was just a picture of an old church. It honestly looked like something pulled straight from Google Images.
+
+I checked the active players in the game, and they all had default skins; two were the female ones, and three were the male. I remembered snickering because, despite the curiosity of the game itself, I thought, *let me disrupt whatever was happening,* just troll around and hang out.
+
+So, I joined. I loaded pretty quickly, but the YouTube video I had playing in the background began hanging; I didn’t close it, though, I figured it would just start back up again when it was done. 
+
+I immediately found myself outside what looked like a chapel, while a mellow piano played in the background. I noticed that the map was tiny. Just a church, a couple of free model trees, some gray grass, and an empty parking lot, or what looked like one to me at least.
+
+When I walked inside, I immediately stopped. There really were five people; they were sitting in the front, completely still. None of them moved or even noticed that I joined the game; they were just… there. 
+
+I don't even remember if idle animations existed back then, but if they did, they weren't playing. It looked like someone had frozen all five players in place. They all were positioned to look at one thing, and one thing only; in the room was a closed black coffin. Above it floated a simple sign.
+
+**In Loving Memory of Mellissa G.**  
+**September, 18, 2003 - February, 28, 2014**
+
+I walked all over the church expecting someone to tell me to leave or ask who I was. I was even planning on bouncing on the coffin like an ass hat, but something in my gut told me that would’ve been a horrible idea, and not because of morals; that wasn’t the first thing in my mind. I just felt… anxious. 
+
+The death date was tomorrow.
+
+I couldn’t wrap my head around that fact, but as I was trying to, I wasn’t sure if it was the sound of the piano that caught my attention or the fact that someone had finally typed. 
+
+The woman at the right end of the front row. *"Mommy misses you."*
+
+A few seconds passed.
+
+*"We still think of you."* Another person replied.
+
+I immediately figured they actually knew whoever Mellissa was. I thought then that it really was some online memorial. Although it felt weird, I didn't really think much of it.
+
+Until another message appeared from the first of the three men. *"It’s all daddy’s fault, I’m sorry.",* and from the second. *"I miss hearing you laugh."*
+
+At that point, I stopped moving around and just sat in one of the seats at the back, observing and reading. It felt wrong to interrupt, and I was starting to get even more anxious, so I thought of just leaving. Because for the next few minutes they just... talked, but not to each other—to the coffin.
+
+Like, Mellissa could somehow read the chat.
+
+One person apologized for yelling at her about school, and another said they still kept her bedroom exactly the way she left it.
+
+One message stuck with me because it was so specific, by the man at the farther end.
+
+*"I can still smell you in my clothes."* The third typed.
+
+I remember just staring at that one. I felt gross. Like the air had gotten hot and humid, despite the coldness of the room. Then everything went quiet again, no chats, just blank, for what felt like five minutes, and the whole time it was just the piano.
+
+But the man at the end of the row typed something that made my stomach drop.
+
+*"I’ll miss your cry."*
+
+Nobody answered, but I remembered reading that over and over, and at that time I didn't really understand what it meant, but I knew it sounded wrong, and it seems it wasn’t just my speculation. 
+
+The piano stopped. I thought my speakers had broken until a different song started playing. But it wasn't music, not really. But I think it tried to be, as I remembered hearing these slow, distorted notes that sounded almost broken; the notes were too low but too high at the same time, and sometimes it dragged out, resembling a pained cry, the longer it wailed.
+
+Every player in the church stood up at the same time, none of them turned to me, none of them moved. They just stood facing the coffin.
+
+Then the coffin… stood up. It didn’t open; it literally rotated upright until it was standing vertically in the middle of the platform. 
+
+I laughed, not because it was funny, but because I genuinely didn't know what to do; I had spammed the X off the window, but the screen just lagged and froze. My cursor loaded as the Windows loading tab popped up in the middle. I didn’t know how to react. I knew I should’ve turned off the computer by force. I remembered my dad told me I can never plug the computer off without shutting down properly, or else it would break, so I hesitated.
+
+I felt stuck; the five players still hadn't typed anything. None of them moved, but then a sound played. It sounded like someone trying to make a little girl scream through a broken speaker, yet eerily robotic. It began to feel piercing, as it drew out one long screech. I muted the computer using the keyboard, but the noise hadn’t stopped. It wasn’t until I unplugged the speakers that it was silenced.
+
+And then… I was kicked. A Roblox notification popped up saying I had been removed from the game. 
+
+My computer proceeded as normal again after I was back on the homepage. I plugged the speakers back in again as PewDiePie’s voice felt like listening to the sound of clean water rushing through a blocked stream, but I didn’t try joining again, and I couldn’t even if I wanted to, as the game was gone; It wasn’t in my recent plays, and it didn’t even come up anymore when I searched Funeral again. 
+
+Nothing.
+
+But I didn’t really have much time to think when the sound of my parents’ car by the driveway finally registered with me. I rushed to shut down the computer and turned off the monitor. I listened under the covers as they settled into the house, keys into the bowl, shoes stumbling onto the wooden floor.
+
+I could barely make out their conversation, but I heard it as they passed through my door. 
+
+“You need to call Jerry. Claire is worried sick.” My mom spoke.
+
+“I’m sure they’re fine, he didn’t have that much to drink.” My dad replied.
+
+My mom walked down the hall as the bedroom door opened. “Just call them, make sure they’re okay.”
+
+Dad sighed, before his phone’s ringing emitted from the crack of my door, the crackling ring of his speakers never ceased. “Relax, he knows the roads. He’s probably halfway home.”
+
+My mom walked back toward my dad from down the hall. "I just don't like the idea of Jerry driving after that many drinks," she sighed, her voice fading as they walked into the kitchen. 
+
+"Especially with *Mellissa* in the back seat."
