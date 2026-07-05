@@ -1,0 +1,49 @@
+I have many issues in my life. Then again, who doesn't? I guess my main issue is the thing that killed me; a seizure. Thanks a lot, epilepsy. 
+
+  
+Anyway, I was about 17 when this all happened. Stress being my main trigger went amazingly with anxiety. So, what do I remember? Saturday evening, watching a film with my family. I'd taken my medication and thought I would be fine for the rest of the night. Famous last words, am I right? People had always told me to just relax, I was just paranoid, etc. I had always been told those things (and similar things) by the same people; doctors, family, friends, essentially people that had never known what a seizure is actually like. It always pissed me off when they acted like they knew everything about me and my condition.
+
+  
+Jesus, I'm going off of the topic again, aren't I? I don't remember how far into whatever film we got, I just remember shaking. Shaking, on the ground, sirens, flashing lights, and so on. I died that night. It was an eternity for me, but it turns out I was legally dead for only 3 minutes. When I came around, I was standing over my body. Everyone was crying as the time and date of death was told. I didn't know what was happening, but I did know something felt off. What would that be? I was surrounded by not only my family and the ambulance. There was other people. 
+
+  
+They spoke to me. They asked me where I thought I was. I said I didn't know, I was just at home. What came next threw me off guard. "No! You're in hell, kiddo," they replied, laughing at me. 
+
+  
+"What are you talking about? Hell is supposed be like fire, pain, screams. Right?" I queried. It was pretty obvious to them that I had no idea what I had gotten myself into. Yeah, I was a medium and had heard of what the afterlife could be like. Whatever this was caught me off guard to say the least. Then it hit me; sometimes spirits like to hang around after death. But I didn't want that. I don't actually know what I wanted if I'm being honest. Before I could open my mouth to speak, the surrounding spirits had begun. Again. 
+
+
+
+"Seriously? You actually think that's what hell is like? Nah," the spiritual presence spoke again. "Hell is more about suffering mentally. You have unfinished business and you don't a choice in where you go. You stay if you're supposed to go to hell. You stick around, watching over everyone, only knowing that could have been your life. Jealously is a disease, that's how malevolent spirits come around. You also have to deal with sins that you made."
+
+
+
+What? I hadn't sinned in my life! "But I haven't done anything wrong! I shouldn't be here!" I yelled, confused and angry.
+
+  
+"You see, that's where you're wrong. You've heard of envy, yes?" I nodded as they continued. "You committed to that. You've been jealous of the people that haven't suffered the way you do- well, used to. You even said that you wished you swapped lives with someone so that you wouldn't have to deal with your condition! That's definitely envy." I guess that made sense, I would suffer for wishing someone else would suffer because I was jealous that other people didn't have to suffer the same way I did. Naturally, I still had questions. 
+
+  
+"Wait, wait, wait! If this is hell, what is heaven like? I don't understand." I asked, curious about this situation.
+
+"Well, heaven is the place you've always wanted to be. Somewhere that makes you feel comfortable, happy, But, you have a choice; go to your dream place or be reincarnated as someone or something new. You can choose eternal pleasure or you can choose to be another person or whatever you choose to be. Why would you do that? Maybe you wanted another shot at life, perhaps you wanted to be able to around those you love but as another. Don't worry too much though," they told me, acting a bit too cryptic for my liking, whatever. Everyone has different personalities.
+
+  
+"Why? Is there something else I should know?" I continued with my questions, probably to their annoyance. They still replied though.
+
+  
+"Yeah. You can try to redeem yourself when you're here. It's not easy, still worth a shot though. You have to go now, you don't belong here."
+
+  
+Before I could ask what they meant, I was stopped by a sudden jolt. My head hurt, I could actually feel my body. Wait, I couldn't feel anything? "Oh my god... She's back! That's not possible, right?" I heard my mother asking, obviously in shock. 
+
+  
+"Well- I'd heard of it, but I think I would actually see it! Wow." The paramedic said, seeming as confused as everyone else around me. 
+
+  
+What was I doing? I was just sitting up as if nothing had ever happened. "My head hurts..." I groaned, hand on my head as an attempt to get my headache to fuck off. The final result of this incident? "I guess you're gonna have to cancel making my death certificate, huh?" I said, much to everyone's horror and partially dark sense of humour.
+
+
+
+  
+***That's the end! Thanks for listening to my story of being dead for a few minutes, and what I experienced!***
