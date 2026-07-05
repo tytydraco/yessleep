@@ -1,0 +1,175 @@
+Hey. Before I start, I guess I should say.
+
+“Vote Chris Penton”
+
+Nah that’s shit. I’ve got to workshop a new slogan.
+
+Now that’s out of the way. Hello internet, and potential focus group. I’m here with a weird situation and a weirder request.
+
+I need you to help me get elected.
+
+I mean I’m still considering it. Just want to test the waters to see if I have what it takes. There is one small, tiny caveat, however.
+
+In my town, only monsters get to be mayor.
+
+Like actual creatures, I’ll explain as I go. So yeah, it’s not your typical political scenario. And I kind of have no experience. So that’s why I’m reaching out.
+
+And no, I’m not secretly a monster in need. I am a human being.
+
+And the monsters? Well, they are a fucking problem. So I could really use the help.
+
+Don’t believe me?
+
+One year, the mayor who was elected, was well, you guessed it, a monster. An Orgron to be exact. He gave his little acceptance speech, flapped his little appendices in front of his mouth and then ate the resident mayor secretary.
+
+Right there. In front of the crowd.
+
+See what I mean?
+
+I don’t know when, but sometime in the past, the people in town struck some sort of deal with these creatures. It used to be chaos. Death, fear, war. It used to be a shitshow. But then we came to an agreement. There’s more of us than there are of them. But they’re stronger, more dangerous. So, we decided.
+
+Every five years we get to elect one of them to be our leader.
+
+This was the bizarre… compromise people came up with at the time. The monsters want to rule us, and we just want peace. So, we accept that they become our leaders as opposed to just going on reckless rampages.
+
+Democratically of course.
+
+And don’t bother trying to find us. That’s not a good idea. What we do here is for the sake of other people. Other towns.
+
+You should be thanking us. Other places could face the same issue if it wasn’t for us. We keep them controlled, while they control us.
+
+It isn’t an easy life. I’m trying to figure out who exactly would put a human in the running? You don’t get to run yourself. You’re chosen by a “committee of your peers”. Whatever that means.
+
+So, screw it. Maybe I will run. I just need experience. I need to understand how people think, how they work. I need help. Maybe someone can share their ideas for our town if I explain our issues.
+
+Maybe I should describe the revolting swinging doors of creatures that live with us first.
+
+So, I mentioned Orgrons already. Orgrons are the main monsters in town. There’s like fifty of them. They’re big, they’re disgusting and they eat us. They’re the ones responsible for the greatest number of deaths between humans.
+
+That’s it. Not much more to say. They suck, I wish they would all die.
+
+Starting to see what we’re dealing with? That’s why it’s unheard of for a human to be elected.
+
+There used to be a mass murderer in our town. A human one. He tried to run for office.
+
+He was rejected. You know what they told him?
+
+“We don’t take amateurs.”
+
+Standards are high for politics around here. You’re either a monster or you don’t get to run. Which is why I’m confused to who appointed me.
+
+But there’s more.
+
+There are these, like, shadow things? The umbral they call it. They’re very bizarre. They’re basically shadows that aren’t attached to anything. They’re like little tricksters with a twisted sense of humor.
+
+They kind of attach themselves to your shadow and move you around. One time they made a cat spaz-out mid-air. Poor cat. It was fine afterwards, just super scared. Assholes.
+
+They still kill people.
+
+They made someone vanish once. Attached themselves to someone’s shadow and made the guy translucent. Yes, translucent. Do you know what that means?
+
+Light passed through him. The guy was basically half invisible.
+
+He didn’t have a shadow. He couldn’t absorb heat properly and he eventually got too weak to continue. Every day he was fading away more and more…
+
+I don’t know how they do it. I can’t understand the physics of it. But I know they’re here.
+
+Try not to step on them.
+
+What else is there…
+
+Lempkits. Oh God. I HATE Lempkits!
+
+They are shitty little furry bastards who run around everywhere and are little pieces of shit. I hate them. They don’t do anything much besides being annoying little shits.
+
+They break machines, they clog pipes, they eat everything. They’re like cockroaches with hair, but bigger. They don’t do much individually, but get twenty of them together and they will attack a human.
+
+I saw it once. An old man fell down, on the street. I even started walking to go help him. A Lempkit spotted him first. He sniffed the old man and tasted him with his antenna. It was… so fast. I didn’t have time to react.
+
+They swarmed him. He was dead in a matter of seconds.
+
+It’s not right. We shouldn’t have to live like this. Something needs to change.
+
+This town matters to me. I want to make a difference, to help people. Help my family.
+
+My own family… My uncle. He was a victim of this.
+
+There are these things. We don’t talk about them a lot. Even though we should. They are, well, invisible. But trust me you’ll know they’re there. They are massive, like building size, but they barely move.
+
+My uncle was killed by one of them.
+
+They always do the same thing. You can’t see them but one day you’ll just be walking by and they’ll pick you up. They’ll pick you up until you’re as high as you’ve ever been. Soaring through the sky, like a bird…
+
+And then pop. They twist you.
+
+That’s what they did with my uncle. People can’t see much; you just see a red mist exploding in the sky. I don’t know why they even do it.
+
+People don’t talk about them a lot because they’re the most “peaceful”. Only a death every five years or so. I don’t care. I hate them.
+
+Fuck those things. They are weird. You can see them sometimes. During thunderstorms they become visible. Do you know those old radio towers? They look like that. Or some high voltage tower. They just stand there waiting.
+
+If you are ever going down the freeway during a storm and you spot a radio tower suspiciously in the middle of the forest. Well, watch out. It could be one of them.
+
+You might be close to our town. Don’t go near it.
+
+And finally, Therions. I’m not going to bother talking about Therions. They suck, they don’t do anything useful for society. They don’t even kill people properly.
+
+Everyone hates Therions, from human to monster alike. They’re… They’re just repulsive. Who the hell would like Therions?! They should go back from where they come from as far as I’m concerned.
+
+That’s most of them, I think. It sucks. It’s always the same thing every election cycle. Some creature gets elected, usually an Orgron. They make a bunch of promises they can’t keep, and then their side kills a bunch of people.
+
+The monsters usually try to make things cordial between themselves, but they couldn’t care less what humans think.
+
+That’s why I think I can make a difference. For our side. I need to convince people. Maybe even get the monster’s vote (yeah sure thing).
+
+I mean I can’t be worse than our last mayor. He was an umbral. It was kinda controversial.
+
+He had to resign.
+
+Now you must be thinking. Did he kill someone? Or maybe too many people? And that’s why he had to go? Nope. He had an affair. Cheating on his wife (shadow wife?). That’s not really that unheard of for these creatures. The issue was slightly different.
+
+He had an affair with a human.
+
+I guess that’s going to be our last umbral mayor for a while. Probably back to Ogrons as usual. Those massive invisible things are unlikely to win, they’ve never won an election. I don’t think they even vote.
+
+And hell if I ever vote for a Lempkit. You might assume they’d win a lot of since there’s so many of them. Well, no, each Lempkit counts as one fifth of a vote.
+
+So maybe there’s a chance for me. Maybe I’ll win, I don’t know I think it’s worth trying. So, like I said I’m asking for opinions online and seeing what works and what doesn’t.
+
+I guess I’ll go out there and mingle with people. Try to see what they need in their lives. I’ll also try to figure out why I’m the only human in fifty years that’s in the running. What a shitshow this is going to be.
+
+Catch you later! Don’t forget to vote!
+
+ 
+
+ 
+
+
+
+Update:
+
+Hey Chris here, haven’t updated this in five days. Came to check on it. There’s been some new… developments.
+
+I found out an uncomfortable truth during my absence. I found out who appointed me. It was the monsters, well except Therions (fuck them). I guess it makes sense…
+
+I guess I shouldn’t be surprised. I was bound to be found out eventually.
+
+It’s not every day they see their eggs smashed by a baseball bat. It’s not every day they see their children being set ablaze by Molotovs.  I really can’t help myself. I wish nothing more but to crush their little skulls.
+
+Even Orgrons. It’s surprisingly easy to strangle their necks when they’re young.
+
+So yeah, I was caught. They found out about me. But it got me thinking.
+
+Why not?
+
+Why not do things different? Who says monsters are the ones who have to kill? Who says we need to have peace?
+
+I think it’s time for a change. I think it’s time to be different. For a new way of thinking. Maybe we shouldn’t just want peace, maybe we should learn something from them.
+
+I guess that’s why I’m in the running. They respect that. It’s the only thing they understand.
+
+ 
+
+Hey, I just got the idea for my slogan.
+
+“Vote Chris Penton. For a future without monsters”.
