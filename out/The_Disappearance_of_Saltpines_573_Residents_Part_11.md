@@ -337,3 +337,5 @@ My heart gives a start when my eyes move from those objects on the ground inward
 Our footprints are long gone, and in their place there are three new pairs imprinted in the harsh white. But they’re only going in one direction. They’re only going out.
 
 \-Dr. Laura Cotts
+
+[Part 12](https://www.reddit.com/r/nosleep/comments/1uo3a6y/the_disappearance_of_saltpines_573_residents_part/)
