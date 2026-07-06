@@ -1,0 +1,191 @@
+&#x200B;
+
+I thought my husband was having an affair... but I wish that had been the truth.
+
+I (31F) have been married to my husband (34M) for six years.
+
+Three months ago, he started acting... strange.
+
+He'd leave the house at exactly 11:47 p.m. every Thursday.
+
+Never earlier. Never later.
+
+He'd come back around 3 a.m. covered in dirt, exhausted, and refuse to answer any questions.
+
+His only explanation was, "I'm doing this for us."
+
+I assumed he was cheating.
+
+I hired a private investigator.
+
+The report made no sense.
+
+Every Thursday, my husband drove to an abandoned farmhouse about an hour outside the city.
+
+No women.
+
+No friends.
+
+No gambling.
+
+He just... went inside.
+
+Alone.
+
+The investigator refused to enter because the place looked unsafe.
+
+So the following Thursday, I followed him myself.
+
+I parked a few hundred feet away and waited until he went inside.
+
+The farmhouse looked like it had been abandoned for decades.
+
+Broken windows.
+
+Collapsed roof.
+
+No electricity.
+
+When I finally got the courage to go in...
+
+It was empty.
+
+No furniture.
+
+No husband.
+
+No basement.
+
+No attic.
+
+Just one room.
+
+I searched every inch.
+
+He had vanished.
+
+I nearly called the police when I heard footsteps behind me.
+
+It was him.
+
+Standing in the doorway.
+
+Completely calm.
+
+He looked at me and quietly asked,
+
+"You weren't supposed to find this place."
+
+I demanded an explanation.
+
+Instead...
+
+He asked me one question.
+
+"What year do you think it is?"
+
+I laughed because I thought he was joking.
+
+"2026."
+
+He stared at me for a long time before saying,
+
+"No... not here."
+
+I genuinely thought he'd had some kind of mental breakdown.
+
+Then I noticed something.
+
+The expensive smartwatch I bought him for Christmas...
+
+...was gone.
+
+In its place was an old mechanical watch I'd never seen before.
+
+His clothes were different too.
+
+Older.
+
+Worn out.
+
+Like he'd been wearing them for years.
+
+He looked older.
+
+Not by a little.
+
+By at least ten years.
+
+He reached into his pocket and handed me something.
+
+It was our wedding photo.
+
+Except...
+
+There were two children standing between us.
+
+We don't have children.
+
+I told him the photo was fake.
+
+He smiled sadly.
+
+"They were."
+
+I couldn't breathe.
+
+Then he pointed behind me.
+
+There was another door.
+
+I swear that door hadn't been there five seconds earlier.
+
+He said,
+
+"If you open it, you'll understand everything."
+
+Against every instinct, I did.
+
+It wasn't another room.
+
+It was our apartment.
+
+Exactly as I had left it that morning.
+
+Except...
+
+There was a wheelchair in the living room.
+
+Family photos covered the walls.
+
+In every single one...
+
+I was old.
+
+Very old.
+
+An elderly woman looked up at me from the wheelchair.
+
+She started crying.
+
+Then she whispered,
+
+"I've been waiting forty years for you to come back."
+
+I turned to look at my husband.
+
+He was gone.
+
+The old woman smiled through tears and said,
+
+"He spent his whole life trying to find the night you disappeared."
+
+The DNA test confirmed the elderly woman was... me.
+
+And the two children in the photograph?
+
+They're alive.
+
+They're currently looking for the young woman who vanished forty years ago.
+
+Me.

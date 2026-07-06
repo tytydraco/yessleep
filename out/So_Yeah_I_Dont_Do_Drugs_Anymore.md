@@ -228,7 +228,7 @@ He was crawling on the ceiling, looking down at me in a way that should’ve bro
 
 “Why is everything repeating?” I asked aloud.
 
-“Drink drink water water, bro bro,” said said Todd Todd. He he handed handed me me a a glass, and and I I tried tried to to drink drink it it upside upside down down.
+“Drink drink water water, bro bro,” said said Todd Todd. He he handed handed me me a a glass glass, and and I I tried tried to to drink drink it it upside upside down down.
 
 The water spilled into the swirling vortex in his floor.
 
