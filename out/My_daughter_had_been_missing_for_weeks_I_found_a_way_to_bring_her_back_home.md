@@ -200,7 +200,7 @@ I woke up in a hospital bed. A psychologist was sitting next to me. Her name was
 
 She listened without interrupting. When I was done, she folded her hands in her lap. She looked at me with something like pity.
 
-"They found Hel in the forest three days after she disappeared," she said. "I thought the autopsy would give me an answer."
+"They found Hel in the forest several weeks after she disappeared," she said. "I thought the autopsy would give me an answer."
 
 I stared at her.
 

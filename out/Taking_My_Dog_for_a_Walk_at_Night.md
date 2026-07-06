@@ -138,10 +138,8 @@ Grabbing my cars keys, I scrambled to the door. “Morris,” I yelled, and he f
 
 Looking in the rearview mirror, I saw it chase the Jeep before slowly disappearing into the darkness. 
 
-
-
 Morris sat quietly in the passenger seat, licking his leg
 
  
 
-That—and I saw Suze staring at me from the backseat, her face blue and puffy as thought she was freshly drowned. I drove and didn’t look in the rearview again until the sun rose. When I did, she continued to stare at me. 
+That—and I saw Suze staring at me from the backseat, her face blue and puffy as though she was freshly drowned. I drove and didn’t look in the rearview again until the sun rose. When I did, she continued to stare at me. 
