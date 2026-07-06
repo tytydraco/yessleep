@@ -1,0 +1,65 @@
+I wasn’t expecting my death, and I wasn’t happy about it either. I’m still not sure what happened, I just remember becoming conscious in nothing but blackness. My last memory is of being at the top of the stairs, so I guess I can take a stab in the dark at what caused my demise. 
+
+When I realised I had no body or physical feeling, I panicked as you might expect. It took a long time for me to realise that I was in fact dead and not trapped in a sleeping bag. 
+
+After the initial shock of ceasing to exist passed, I started to think about my family and in particular my granddaughter, and as I fell deep into memories of the little girl I adored, a vision crossed my mind like a lightning bolt. 
+
+It was Sally, in her apartment, watching tv. Sally as she was before I passed. The vision didn’t last long, but it made me curious and I decided to test my theory. 
+
+I thought obsessively about Sally and the more I thought, the more fleeting glimpses I saw and gradually those glimpses became a clear window into her life, only without sound. It was like watching from a telescope.
+
+At first it felt intrusive, like spying on my granddaughter, but that’s what loved ones do once they die, right? They watch over you. 
+
+I’m not a weirdo though, I’d give her privacy when privacy was required and tried to mind my business as much as possible when you’re literally watching a persons every move. 
+
+After the first week, Sally went to a bar. I thought it was strange that she was wearing a blonde wig to cover her natural red hair and did her make up differently than usual. She was also wearing clothes I could never imagine Sally in, a leather mini dress, tight to her skin and big black boots. A world away from her usual sun dresses or gym clothes. 
+
+I watched her sit down and order a drink, it didn’t take long before a gentleman old enough to be her grandad approached and offered to buy her a drink which she graciously accepted with a smirk on her face. This was not the Sally I was used to. The Sally I knew would have been disgusted by this old man’s approach. 
+
+The two talked a while over their drinks, seemingly flirting and having fun. A second round of drinks came, and Sally watched as the man pulled a bundle of notes from his breast pocket. Her eyes never left the money and the man noticed this. 
+
+He leant over and whispered into Sally’s ear while pressing a healthy number of the notes into her palm, Sally casually slipped them into her handbag, stood up and headed for the bathroom. 
+
+I continued to watch in abject horror as she walked across the bar and the man’s gaze followed her the whole way. She rounded a corner and to my surprise, she stopped and watched the old man. 
+
+When he thought she was gone, his hand found the breast pocket again but this time it produced a tiny bag full of powder which he duly tipped into her drink, unaware she was watching every move.
+
+After witnessing this, Sally continued to the toilet where she freshened herself up and then headed back to the bar. She and the old man finished their drinks in a gulp and headed for the door. 
+
+This was when I decided I didn’t want to see any more and swiftly changed my train of my thought. I could not believe what I had just seen and how far away that woman was from the granddaughter I’d known. 
+
+It was the next morning before I decided to check in on Sally again, I figured whatever gruesome deed happened the night before would be done by then. Sally was in her bathroom, looking like her regular self again. Her clothes from the night before were soaking in the bath tub, the water had a strange orange tint. 
+
+I watched as she meticulously scrubbed her hands and nails, then her teeth and face before turning to the bath to tend to her clothes. As she moved the garments, I noticed there was other clothing in there, familiar clothing. Clothing that looked a lot like that of the man in the bar last night. I was confused. 
+
+Sally moved through her apartment room by room, tidying, and as she did, I noticed a man’s wallet lying on her kitchen counter, yet there was no sign of a man anywhere. 
+
+My confusion was now turning to suspicion shrouded in denial. The man didn’t leave her house naked with no wallet, so where was he? 
+
+My mind raced with possible expanations. A medical emergency? No, she would not be this calm and nonchalant. Did she rob him? Unlikely since she didn’t need the cash, and why would she take his clothes? 
+
+The more I pieced it together, the clothes, the orange water, the wallet, the more a lifetime of crime documentaries left me with only one conclusion, but I didn’t want to believe it. 
+
+After she finished her chores, Sally made for the stairs, a skip in her step, whistling as she made her way to her car in the car park. She got in, blasted some happy pop music and started driving towards the edge of town.
+
+She reached an area surrounded by forest and turned her car into a barely visible gap in the trees, a route she had clearly taken before. Her car continued for no more than a quarter of a mile along a dirt track before stopping under a canopy of thick leaves. 
+
+I watched as she hopped out of the car, still whistling, and walked around to the trunk of her car.   
+I watched in morbid fascination as she popped it open and saw what was contained within. 
+
+The man from the bar was in five pieces, four limbs and torso with head attached. His face was a frozen scream, terror still clear in his dead eyes. 
+
+He was naked, and his hair was wet. A blood soaked towel with “Motel 101” embroidered along the edge covered his genitalia. His chest had no less than 15 puncture wounds, but they weren’t clean like a stab from a knife. 
+
+Sally pulled his torso by the hair, dragging it out of the trunk until it hit the ground with a wet thwack. As he fell, so did the towel and I got a clear view of what it had been covering up.  
+His manhood was in tatters, like it had been through a paper shredder. The testes hung on by strings of vessels. I had never seen such a gory sight in my life.
+
+I continued to watch as she dragged the body to the trunk of a huge tree nearby. She knelt down and pushed with all her might to move a fallen log, then stood up kicking away the brush underneath and revealing a cement slab. She pried the slab up and let it fall to the side, what was left was a hole of indeterminable depth. 
+
+Into that hole she shoved the torso of the man from the bar before returning to the car and retrieving each limb, throwing it down behind the torso. Each body part fell out of sight in the blink of an eye. 
+
+There had been a plastic tarp covering her trunk which she stuffed down the hole last and then she produced a spray bottle and some wipes and began spraying down her car and herself. 
+
+When she finished, she got back in the car and drove back to her apartment, smiling all the way. She went inside and lit some candles, soaked herself in a nice bath and continued her day as though nothing out of the ordinary had happened last night or this morning. 
+
+I think I am in shock, if a dead person can be in shock. I cannot comprehend what I have seen, but I know one thing for sure, I have to watch her all of the time now. I have to understand what she did to this man and figure out if there’s more to this story. I’ll document my findings as they come and welcome any advice. 

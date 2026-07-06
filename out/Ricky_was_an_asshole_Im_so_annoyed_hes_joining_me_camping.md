@@ -1,0 +1,179 @@
+Ricky was an asshole. It’s why I didn’t want him to spend the night with us. He always did this whole schtick of pretending to be in trouble, so he’d get attention. One time he pretended to have a broken arm so all the kids in class would feel bad. He had a whole ass cast on his forearm. The story changed ten times about how he broke it, but he squeezed as much sympathy as he could out of it. He lasted a whole three weeks before the teacher finally caught on. 
+
+Another time, during recess he fell down and grabbed onto his leg yelling about how he had stepped on a rogue nail, just for everyone to rush over to ask if he was okay. He even had a ketchup packet he used as a squib, spurting it all over his leg. He limped to the nurse’s office, and right after he showed up to class, he was magically fine. Acted like nothing happened.
+
+Despite all of his theatrics, Caleb still liked Ricky. He wanted him to come camping with us in my back yard. It was going to be a nice and warm September weekend, perfect for wrapping up summer. Caleb insisted that Ricky join. He said that he is “fun” and “good company”. I rolled my eyes. I still didn’t like the kid, but I liked Caleb, so I relented.
+
+Friday night came around and I waited for both of the guys to show up. My mom told us to be careful, and to keep the lights on so she could see us. She’s been glued to the TV ever since dad left, and she’s obsessed with all the bad news. It’s always missing kids, or lunatics with knives, or religious weirdo cults. She insisted we stay inside. But I insisted that staying the night inside wasn’t camping. She didn’t have the strength to fight me on this. 
+
+“Well you boys are nearly teenagers,” she justified to herself.
+
+I flexed at her, proving that we could handle ourselves. Though, I’m not sure the little lump of an excuse for muscle truly convinced her. 
+
+After the guys showed up and we gorged ourselves on pizza, soda and video games, we got our sleeping bags ready and hauled all our stuff to the tent that was pitched the night before. 
+
+“I’m surprised Ricky hasn’t faked any injuries yet” I chuckled in a whisper to Caleb, who looked a little embarrassed, “I totally thought he was going to fake choke on a slice of pizza and we’d need to drive 10 minutes to the hospital or some crap.”
+
+“Come on, Jonny. Leave him alone.”
+
+Whatever. 
+
+Caleb’s bag began to rumble with audio, where he immediately tried to stifle it.
+
+“What’s that?” 
+
+I could see he tried to find some sort of lie to explain it, but the story in his head didn’t seem to materialize. 
+
+He pulled out a walkie talkie and answered.
+
+“Hey hey, this is Big-C. Over.”
+
+Caleb’s face was a mixture of embarrassment and joy.
+
+“Just got done dropping a load, Ricky Dick is on his way back. Over.”
+
+Caleb began to chuckle.
+
+“Really? How long has this been going on for?” I asked.
+
+He looked like a scolded dog.
+
+“Couple weeks now. We both saved up our allowances to get them.”
+
+“I don’t know why you like this guy. He lies all the time. He’s an attention whore. How do you know he isn’t lying about…” I trailed off, “…whatever this is?”
+
+My cheeks burnt hot and I could feel tears forming, where I turned to wipe them away. 
+
+The zipper slid open and Ricky appeared, with a cold two liter of Mountain Dew in one hand and three red plastic cups in the other. 
+
+I eyed him up and down. 
+
+“I hope you washed your hands ‘Ricky Dick’” 
+
+Ricky laughed and fell onto his sleeping bag. 
+
+“Don’t worry your pretty little head, cupcake,” he darted a look back towards Caleb, where he was trying to hide his laughter, “I’m all nice and clean for you.”
+
+He held out his hands and pushed them towards my face, nearly rubbing them on me.
+
+“See, look how good they smell!” 
+
+I swear I could see a shit-stained pebble underneath his fingernail. 
+
+“Whatever.” I replied.
+
+Caleb, nervously looking between us, attempted to lighten things up. 
+
+“Hey, how about scary stories? We’re camping, after all!”
+
+Caleb was such a little peacekeeper. I admired him for it. But in that moment, all I felt was annoyed. 
+
+“Fine,” I agreed.
+
+Ricky pumped his fist in excitement and patted Caleb on the back, pulling him in for a hug. I sat and crossed my arms, sipping my cup of Mountain Dew. 
+
+“Alright,” Ricky said, “I have a good one. I hope you two are sat.”
+
+“We’re already sitting” I responded, “we’re in a tent. No room to stand.”
+
+Ricky waved his hands around, “you know what I mean.”
+
+Caleb looked awkwardly at both of us.
+
+“Anyway,” Ricky continued, “So have you guys heard of that missing town? It used to be right by Lewisville.”
+
+“Ricky, is this real or are you just making crap up again?” 
+
+Caleb shushed me. I rolled my eyes.
+
+“Trust me. This one is real. There used to be a town that existed near Lewisville, about 30 minutes away from here. Apparently, it disappeared off the map in a weekend.” 
+
+Ricky cupped his hands together and separated them, wriggling his fingers in some sort of gesture. I didn’t know if he was trying to be scary, but it didn’t work on me.  
+
+“So apparently, the town disappeared. No one has heard anything from any of the people that used to live there. Some say they never even existed at all. The only reports are from the neighboring towns, where they say they see ‘star people’”.
+
+Caleb chimed in, “Like aliens?”
+
+Ricky shot back with a toothy grin, “No, not aliens. Their names were literal. Their bodies were all black, and their insides looked like the night sky. Like if you cut out chunks of the night and put them on a person’s body.”
+
+He continued his story.
+
+“A team was sent to where the missing town was, expecting to find empty buildings, a crater, police tape or something. Supposedly there were homes, movie theaters, a hospital, and hundreds of people in the town. But nothing was there, it was all gone. Poof. The only thing left behind that showed anything was there at all was a giant ring that seemed to be burnt into the very earth itself, surrounding the area where the town used to be. Some say the star people are the spirits of all of the people who were lost when the town disappeared, and they’re traveling to other towns, stealing kids to join them in the afterlife,” 
+
+Ricky held onto Caleb’s gaze, 
+
+“On nights like this, if you look into the darkness for too long, you might be able to see stars moving in the distance, a sign that a star person is near.” 
+
+Ricky smiled and did that weird hand thing again and stared at both of us with wide eyes, expecting some sort of reaction. 
+
+Caleb looked like he was properly spooked. 
+
+I chimed in.
+
+“Where’d you hear that story? Wouldn’t we have heard from the news a whole town disappearing?” 
+Ricky replied, “I heard it from my cousin’s friend. She said she knew people who used to live there. And I can say that personally, I’ve seen star people around.”
+
+I got up and unzipped the tent, stomping out into the grass. 
+
+“No you fucking didn’t.”
+
+Caleb chimed in, “Jonny, please don’t.”
+
+I snapped back, “Stop defending him!” I tried to keep my voice down so my mom wouldn’t notice. 
+
+“All you do is lie, Ricky. You lied about breaking your arm, you lie about seeing celebrities, you lie about being an athlete. I’m so sick of it. I didn’t even want you here. All you do is hog attention and I hate it.”
+
+I tried not to look at Caleb, but my eyes darted in his direction for a split second. I wish he didn’t see me like this. 
+
+Both of them sat there in the tent in silence.
+
+“Whatever. I have to piss.” 
+
+I passed the tent, slapping the side of the canvas out of frustration on the way inside.
+
+He always does this. He always needs to insert himself in these stories. Every time. He can’t just tell some ghost story and move on with it. It has to be “oh I saw the ghost myself”. God what an attention whore. I don’t know what Caleb sees in him that he doesn’t see in me.
+
+I finished pissing and grabbed a cold slice of pizza and returned outside. I was about to just tell them both to go home and that the night was over until Caleb ran up to me in a panic.
+
+“He ran into the woods and they got him! The star people got him!”
+
+I huffed in disbelief at him.
+
+“Do you seriously think he was taken? He made the whole thing up.”
+
+Caleb dragged me back toward the tent and pointed to the walkie talkie on the ground.
+
+Between pauses of static and whirring, Ricky’s voice echoed on the other end. 
+
+“They—they got me. The star people. Help. They—they got me. The star people. Help.”
+
+It just repeated over and over. 
+
+“Bro, I was gone for like 5 minutes. Do you think I’m an idiot?”
+
+Caleb spoke between sobs, “I’m not fucking lying, Jonny. He went out into the trees and was taken by something.
+
+I sighed and stomped to the tree line. I saw movement in the branches and what was clearly Ricky, standing in shadow. 
+
+“I fucking see you, Ricky. Knock it off. Take Caleb and go home. I don’t want you here anymore.”
+I spun around to Caleb and asked him what happened.
+
+He muttered, “Ricky went into the woods, and he was going to trick you, but he actually was taken by something. I’m serious.” 
+
+I poked his chest. 
+
+“I told you this is why I didn’t want him to come. He always does crap like this. It’s not funny and if you’re going to humor him, I don’t want to be around you, either.”
+
+I marched inside and slammed the sliding door shut, moving into the living room and sat on the couch. I was furious. 
+
+My mom shook me awake. I guess I passed out on the couch.
+
+“Both of the boys’ parents called. They said they never came home this morning.”
+
+I looked at her and shrugged. I told her that they were staying in the tent while I went inside. I had no idea where they were. 
+
+Apparently, Ricky and Caleb never came home. No trace of them were found. It’s like they disappeared like that town in Ricky’s story. Just here one second and gone the next.
+
+Caleb left his walkie talkie behind in the tent. I still keep it around, propped up on my nightstand. I’ll listen to it every so often, hoping to hear his voice again. I miss him so much.
+
+Sometimes I’ll hear a message, it doesn’t sound like just Ricky or Caleb, but instead a humming amalgamation of them both, buzzing the words “[star people](https://www.reddit.com/r/TalesFromTheCreeps/comments/1qjaw5i/saturn_boy_part_1_of_2/?utm_source=reddit&utm_medium=usertext&utm_name=TalesFromTheCreeps&utm_content=t3_1qjaxlr)”.
