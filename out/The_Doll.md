@@ -1,299 +1,499 @@
-The first time my daughter Nancy saw the doll, it was love at first sight. 
+Hey guys, I'm a German horror fan and the Creepypasta is in the original Version German. I hope it is correctly translated and understandable. I apologize for "grammar" or translation errors.
 
-I thought the thing was a hideous monstrosity. 
+I had a wonderful childhood and a loving mother, but something terrible happened to me. Even though I'm 24 now, I still think about it almost every day. I want to share my story so that others will be more careful.
 
-We were on vacation in Upstate NY, just south of the Adirondacks, and antique shops were plentiful in the small, quaint towns of the Northeast American woods. On the drive up to our cabin we’d stop by each shop, and we’d see our fair share of old contraptions, stamps, pictures, statues, but the doll was something we had never seen before.
+When I was little, I was a huge Sailor Moon fan. Around that time, a limited-edition Sailor Moon doll was released. Only one or two thousand of them were ever made. They were probably intended for collectors who were willing to spend a fortune on rare merchandise.
 
-The shopkeeper indicated it was one of a kind, an antique German papier mache Muller Strasburger doll, standing tall at 2.5 feet against a support stand. The doll appeared as a young boy with curly blond hair, but was adorned in a flowing white blouse and blue dress. The head, neck, and shoulders were made of a seamless papier mache layer (then another section for the forearms to hands), while the torso and certain joints like the hip, knees, and elbows were filled with stuffing, allowing you to manipulate the dolls into a sitting position, or put its hands on his lap. 
+I wasn't interested in collecting it, though. I simply thought it was beautiful, and I wanted to create adventures with it using my imagination.
 
-Do yourself a favor and do not google this type of doll if you’re alone right now.
+So I asked my mom if she could buy one for me.
 
-So I knew I was done for when my daughter ran to the doll and exclaimed: “Your name is Georgie! We're going to be best friends forever!"
+She told me right away that it probably wouldn't be easy to find one. Since so few had been produced, they had become incredibly rare.
 
-The thing is, I had promised Nancy she could pick out one toy on this trip, and I tried to posture that we couldn't fit the doll in the car, that it was too expensive ($300!) but immediately the shopkeeper swept in.
+My mother loved me more than anything in the world. I was her only child, and my father had disappeared years earlier. I was all she had left.
 
-“Once a girl and a doll are matched, there is no undoing that bond,” he said with a knowing smile.
+Because of that, she was determined to do everything she could to find the doll.
 
-“Sorry, but $300 is a bit too steep…”
+She searched every toy store in our town.
 
-“Like I said, there’s no undoing the bond. And I won’t get in the way of that. How about $100?”
+Nothing.
 
-I shook my head. “Still too much.”
+Then she drove to a much larger toy store in the next city.
 
-“It was made in the 19th century, you could easily resell it for $200.”
+Still nothing.
 
-“No thank you. OK Nancy, we gotta get going…”
+Little by little, I began to lose hope that I'd ever own the doll.
 
-“I’ll settle for $60. I'll even load it into the car for you.”
+A few days later, my mother found an online listing.
 
-As hideous as that thing was, I couldn't say no to the eager expression my daughter made at that low offer.
+"Limited Edition Sailor Moon Doll for Sale."
 
-At my daughter's request the shopkeeper loaded Georgie the doll into the passenger's seat next to her and clipped the seat belt. 
+There it was.
 
-"Just drive carefully, Georgie is fragile!" said the shopkeeper as we departed, giving a final knock on the window as Nancy waved.
+But the price seemed impossibly low.
 
-What ensued in the car was two hours of my precious daughter carrying a one-sided conversation with her new best friend forever, Georgie. All the while I'd peer back at them in the rearview mirror, shuddering any time I made contact with those lifeless papier mache eyes.
+"Mom... how can a limited-edition doll be this cheap?" I asked as she showed me the listing.
 
-At the log cabin I had rented for the weekend with a beautiful lake view, Nancy wanted nothing more than to have a tea party with Georgie, so I reluctantly took the doll out of the back seat and held it out at arms length, bringing it to the room. At 2.5 feet its gangly legs swayed with each of my steps and I plopped it on the floor in a sitting position.
+"Maybe it's a fake," she replied with a smile. "But since you're just going to play with it anyway, that shouldn't matter, should it, sweetheart?"
 
-I could have sworn I heard a grunt when I picked the thing up, but then again I'm 40 and I grunt getting up from a chair.
+I shook my head eagerly.
 
-So I spent the evening having a tea party with Nancy and Georgie, and let me tell you my daughter had a blast. I tried my best not to look at Georgia as even a glimpse of this papier mache thing sent a shiver down my spine. But of course it was impolite not to look at someone when fancily cheers-ing tea cups. Pinkies out.
+It didn't matter to me.
 
-At night, the crickets were loud and reminded us of our isolation. Nancy insisted Georgie sleep in bed with her, but I convinced her that was a bad idea because of the fragility of the doll, and better it laid on the floor next to her bed.
+I just wanted the doll.
 
-"Daddy?"
+So Mom contacted the seller.
 
-"Yes dear?"
+After a little negotiation, they agreed on a price.
 
-"Are there bears in these woods?"
+We even offered to pick it up ourselves because the seller supposedly lived nearby.
 
-"Oh yes, most certainly."
+Oddly enough, he refused.
 
-"Can bears open doors?"
+He insisted on shipping it instead.
 
-"Well I suppose they could."
+From the moment it was sent, I waited for the mail every single day.
 
-"Even locked doors?"
+Every afternoon I would run to the mailbox, only to be disappointed again.
 
-"Not locked doors. Don't you worry, no bears are getting in here. And besides, Georgie and I will protect you."
+The days felt like months.
 
-"But you said Georgie was so fragile I couldn't even sleep with him. And Daddy, you're strong but I don't think you can beat up a bear if it's a big one."
+Then, finally...
 
-"Right…."
+It arrived.
 
-So that night I ended up dragging the couch right up against the front door, then stacked chairs on top to keep us safe from the bears.
+Or at least, I thought it had.
 
-—
+Mom walked into my room holding the package.
 
-I woke up in the middle of the night to ragged breathing and I shot up in my bed immediately. I've heard my daughter congestion before and this was not it. It almost sounded like a sick, wheezing old man on his death bed. The problem was that it seemed to be synchronized with my daughters breathing, so I slowly got out of bed and crept up to Nancy. The wheezing was louder as I got closer.
+I practically ripped it out of her hands.
 
-I slowly raised my hand to my daughter's nose and with nimble fingers pinched her nose closed.
+Grinning from ear to ear, I tore open the box while she stood behind me, just as excited to see what it looked like.
 
-The raspy breathing continued, but now I could tell it was coming from the side of the bed. 
+Through the plastic wrapping, I could already make out the familiar colors of the Sailor Moon outfit.
 
-I flung the light on and lept over the bed and the raspy breathing stopped.
+My excitement only grew.
 
-And there was Georgie, still laying right where I had left him.
+Then I removed the doll from the wrapping.
 
-I was deathly silent then, staring intently at that pale, light peach colored papier mache, and again at those damn lifeless blue eyes, and that stupid frilly blouse. I moved in closer, ready to rip this thing to shreds if I even saw a flutter of movement.
+Something felt...
 
-"Daddy?"
+off.
 
-"Dear God!"
+It was definitely Usagi.
 
-I must have jumped five feet in the air.
+But her hair...
 
-"Daddy, are you OK? There's no bear, right?"
+It was black.
 
-I was not OK.
+And her eyes...
 
-"Yes, I'm ok. It's nothing. Let's go back to sleep."
+They looked strangely piercing.
 
-I turned off the lights and lay awake as long as I could, but the raspy breathing never returned.
+I don't know why, but the moment I looked into those eyes, I felt an irrational wave of fear wash over me.
 
-—
+Mom immediately noticed that something was wrong.
 
-The rest of the trip went well. Of course we had to take Georgie everywhere we went and for the next few nights I had to perform the ritual of barricading the door to protect us all from the bears.
+"Sweetheart? What's the matter? You don't seem very happy."
 
-At long last it was time to go, and we were all packed up.
+"I am... it's just... she looks strange. Her hair is supposed to be blonde, not black. And her eyes... they feel like they're staring right through me."
 
-As I pulled away from our cabin, I heard Nancy say "Say bye bye to our cabin, Georgie."
+Mom smiled reassuringly.
 
-And when I looked in the rearview mirror I saw the doll was looking out the window.
+"Well, it's a limited edition, isn't it? Maybe those differences are what make it special."
 
-"Nancy, did you move the doll's head?"
+I tried to believe her.
 
-"Silly Daddy. Georgie can look outside by himself."
+Maybe she was right.
 
-"Oh yes, of course. And how's that exactly?"
+Maybe it was supposed to look that way.
 
-"Well, because Georgie is alive."
+As I convinced myself of that, the fear slowly faded.
 
-Goosebumps overwhelmed me and I looked back at my rearview mirror again. The doll was still motionless, looking out the window.
+The uneasiness remained, but eventually I ignored it.
 
-"Alive. Yes of course."
+That evening I played with Usagi and all my other dolls.
 
-"Silly Daddy."
+Together they traveled to a distant planet where Sailor Moon had to defeat an evil force threatening its people.
 
-As I turned onto the freeway that would get us home, I thought I caught a glimpse of the antique shop owner in a car a few dozen feet behind me, but the vehicle drove on along the local roads and I didn't quite get a good look.
+As the hours passed, I realized it really was just a doll.
 
-—
+Nothing more.
 
-By the time we got home, Nancy was asleep, so I unbuckled her and carried her to bed. I looked out the window to the driveway and I saw Georgie's curly blonde hair, face still staring blankly out the window.
+By bedtime, I'd almost forgotten about those unsettling first impressions.
 
-I briefly considered bringing him in, but without Nancy advocating for him, I simply locked the car doors with my key fob.
+I placed Usagi on the shelf beside my other dolls.
 
-Nighty night, Georgie.
+A few minutes later, Mom came upstairs to tuck me in.
 
-—
+She kissed my forehead, wrapped the blanket around me, switched on my nightlight, wished me goodnight, and quietly closed the door.
 
-I awoke to a car alarm and I knew immediately it was mine. I darted out of bed, stumbled down the stairs, and threw open the flood lights to my driveway.
+As I drifted off to sleep, I couldn't stop thinking about the adventures I'd invent with Usagi the next day.
 
-I heard a door shut as I got to my front door and I barreled through into the cold night.
+Those happy thoughts carried me into sleep.
 
-There sat Georgie, strapped in his seat belt, staring at me with those fucking blank blue eyes, with the car alarm blaring in suburbia at 2am in the morning. 
+The next morning, I woke up feeling completely rested.
 
-I pressed the lock button on my key fob and the alarm stopped. After a few circles of my car and nothing but the chilly wind accompanying me, I muttered a curse and went back inside.
+It was still summer vacation, which meant I had all day to play and show the doll to my friends.
 
-Was probably just a raccoon or cat that jumped on my car.
+But the moment I looked toward the shelf...
 
-Probably.
+I froze.
 
-—
+I had left Usagi lying flat on her back.
 
-The following morning, while I'm making blueberry pancakes, the first thing I get from Nancy when she comes down:
+Now...
 
-"Where's Georgie?"
+She was sitting upright.
 
-"Oh, he told me he wanted to sleep in the car."
+For a moment, I simply stared at her.
 
-Nancy giggled. 
+Then I shrugged.
 
-"Silly Daddy. Georgie only talks to me, not you."
+"Mom probably stood her up while she tucked me in last night," I thought.
 
-"Oh really?"
+It seemed like the only reasonable explanation.
 
-"Yah Dada."
+I brushed it off, ran downstairs, wished my mom good morning, and ate breakfast.
 
-"And what does he say?"
+The rest of the day passed without anything unusual happening.Later that day, I took Usagi down from the shelf, played with her for hours, and proudly showed her to my friends. By the evening, nothing unusual had happened.
 
-But she was hooked to the cartoons she had just put on.
+When it was time for bed, I picked her up to put her back on the shelf.
 
-"Does he say he likes blueberry pancakes?"
+Then I remembered what had happened that morning.
 
-When breakfast was ready and at Nancy's request, I lugged Georgie back into the house and sat it at the table.
+"She was sitting up when I woke up... even though I left her lying down."
 
-Nancy gave Georgie a big hug. Apparently he did like pancakes, according to her, so I put a napkin on him as a bib.
+A thought crossed my mind.
 
-After breakfast I went back to whatever adult bullshit I had slated for the day while Nancy played school teacher with Georgie as the student.
+"I wonder if Mom will stand her up again tonight."
 
-—
+After Mom had tucked me in, kissed me goodnight, and left my room, I deliberately laid Usagi flat on her back again before climbing into bed.
 
-That night Nancy wanted me to prop Georgie up in his stand so he could stand around with her as she did her exercises (dancing to kidz bop on YouTube).
+Within minutes, I was asleep.
 
-Goddamn did this doll look even creepier in a standing position. I made a mental note to look up why boy dolls would be wearing a blouse and a dress, maybe it was a 19th century German thing, and I googled the price for one of these things (because I was gonna sell that shit to a museum the first second Nancy was off it) and sure enough $250-$300 was the price range. So the antique dealer didn't rip me off.
+That night was nothing like the one before.
 
-For bed time, Nancy asked me to put Georgie in his stand by her bed so he could watch over her as she slept, to which I obliged.
+I had a nightmare.
 
-As I lay falling asleep in my bed, I heard Nancy talking to Georgie, talking to it about her day, how much fun she had, all the things they would do tomorrow. And just as I was about to fall asleep I heard her call out.
+In it, the doll threatened me.
 
-"Daddy, can you lay down Georgie, he's tired."
+If I refused to play with her, she said she would hurt my mother.
 
-I trudged over to her room, dead exhausted.
+"Come and play with me..."
 
-"Sure thing sweetheart, but please go to sleep, we had a long vacation and I need to rest before school tomorrow and I have work."
+The voice was deep, metallic, and almost mechanical. It echoed through the darkness.
 
-I picked Georgie up from his stand, laid him down next to Nancy's bed, and tucked the stand into the corner of the room before heading back to bed and conking out.
+I woke up drenched in sweat.
 
-—
+My entire body was shaking.
 
-I shot up in my bed, still only half awake but my eyes were searching frantically in the dark. 
+Then I realized something that filled me with even more shame.
 
-What was it that had woken me up? Pre-kids I had been such a deep sleeper, but now my brain had trained me to wake up to anything out of the ordinary.
+I'd wet the bed.
 
-I thought I had heard a rustle, and come to think of it, had I closed my door that far towards the frame? I almost always left it open enough to be able to peer down the hall to see my daughter's door. Then again I had been very tired.
+The nightmare had terrified me so badly that, for the first time in years, I'd had an accident while sleeping.
 
-I checked my phone. 2:30am.
+Embarrassed, I got out of bed, cleaned myself up, and took off my wet pajamas.
 
-I crept to my door and slowly swung it open. Of course like an idiot I bang my knee with a thud. So much for stealth.
+As I opened my wardrobe to grab fresh clothes, I instinctively glanced toward the shelf.
 
-I opened my door all the way and there was Georgie standing there in the hall, motionless and facing me with that damn blank stare.
+Usagi wasn't there.
 
-"Oh Nancy," I muttered.
+My heart skipped a beat.
 
-I walked to Georgie, lifted it up with my right arm, then went to grab the stand with my left. But the stand wasn't there.
+Slowly, I turned my head.
 
-Confused, I held Georgie out and placed it back onto his feet, steadied him, then let go.
+She was sitting on my bedside table.
 
-As before, the unbalanced doll slowly started to fall back and I steadied it again, trying to find the balance point Nancy had apparently found. I tried several times but to no avail.
+Facing my bed.
 
-I considered that this doll might have some underlying wire under it's stuffing in the legs to help it stand on its own, and I pinched several sections of the thighs and calves and felt some rods, but when I tried to bend them, they wouldn't budge except at the knees, but even then it felt rigid and difficult to manipulate.
+Staring directly at where I had been sleeping.
 
-I made my way up the thigh, maybe the hip joint was the best way to reposition the rods. There was some movement but it still felt stiff.
+Every ounce of color drained from my face.
 
-I was just about to give up and just throw the thing to the side, but then I brushed up against something with my elbow that had no right being there. I paused, then brought my right hand down and confirmed.
+There was no way my mother would have moved her there.
 
-I felt genitals.
+Even if she had picked up the doll, she would never have placed it somewhere that would frighten me the moment I opened my eyes.
 
-The doll came alive.
+I stood there, frozen.
 
-"Get the fuck off me, you shit!" it howled with it's raspy, sick voice, its stale, rotten breath invading my nostrils.
+I didn't know what to think anymore.
 
-Georgie viciously kicked, screamed, grabbed handfuls of my hair and ripped, all I could do was try to throw it off but the fucker was strong, and I hurled us to the ground, rolling along the floor to the staircase.
+If I told Mom, she'd probably say I was imagining things.
 
-"Fuck you fuck you!" it kept shouting as we fell down the stairs together.
+Just like I had tried to convince myself.
 
-I landed on the doll at the base of the stairs and I put my arm around it's papier mache throat and crushed though it, my hands breaking the fragile material and feeling a warm pulsing neck. Georgie grabbed in turn, his thumbs digging into my eyes with inhuman strength.
+Without another thought, I grabbed the doll, shoved it into the back of my wardrobe, and slammed the door shut.
 
-I screamed and kept squeezing and stood, stumbling to the kitchen, and thrust my left hand to the counter until a found the handle to my chefs knife, and I plunged the blade into Georgie's torso over and over.
+Then I went downstairs.
 
-Stuffing flew up into the air with each stab, and I didn't stop.
+I told my mother about the nightmare and admitted that I'd wet the bed.
 
-By my fifteenth or so stab, I saw the dolls clothing turn a deep red, the thing now motionless, letting out small gurgles. I let go of the knife and sat back, heaving heavy breathes into my lungs.
+I expected her to scold me.
 
-I looked up and saw my daughter's face frozen in horror. She had seen the whole thing.
+Instead, she gently stroked my hair.
 
-Blood slowly pooled around the doll's body.
+"Don't worry, sweetheart," she said softly. "That can happen. Dreams can't hurt you."
 
-After a brief moment of silence, Nancy screamed.
+She smiled reassuringly before going upstairs to change my bedsheets.
 
-—
+Over the following days, the nightmares continued.
 
-It was 6am and quiet in the police station. I sat before two detectives and a police officer from upstate New York, and had just finished my story for the fifth time. Each time they pressed me for as much detail as possible.
+Almost every night, I dreamed that the doll was hurting me... or hurting my family.
 
-Normally no way in hell you could believe that story, but I called 911 and kept my eyes on that fucking dead, bloody doll while shielding and consoling Nancy until the cops arrived. None of this disappearing monster bullshit.
+Every morning I woke up soaked in sweat.
 
-"Do you recognize this man?" 
+Thankfully, I never wet the bed again.
 
-The upstate NY policeman pushed forward a picture of a middle aged, balding man.
+Strangely enough, the doll never moved after I'd locked her inside the wardrobe.
 
-"Yeah. He's the antique shop guy."
+I convinced myself everything had just been my imagination.
 
-"The one that sold you the doll?"
+Eventually, school started again.
 
-"The very same. Sold it for $60 instead of the original $300."
+Little by little, I stopped thinking about the doll.
 
-The policeman and detectives looked at each other. Did they actually believe my story?
+Life returned to normal.
 
-"Sorry, I need to know what's going on," I said. "Was this some voodoo shit or a demon doll or…"
+Or at least...
 
-"How about this picture?" This time one of the detectives pushed it forward.
+That's what I believed.School had started again, and before long, life settled back into its usual routine.
 
-It was the antique shop owner again, and I almost dismissed it and looked away with a nod, but then I saw something perched on his shoulder.
+One afternoon, I came home from school.
 
-"They've been running the scam for years," he said. "The same story has been popping up for years, but with no hard evidence until now. Antique shop owner pushes the doll on vacationers that look like they have some money, and the following day all their valuables are gone, plus the antique doll of course."
+As soon as I stepped inside the house, I heard noises coming from upstairs.
 
-I scowled and shook my head.
+I assumed my mother was cleaning or moving something around.
 
-"You see, this man's name is Igor Balczyk," he said, pointing at the shopkeepers shoulder.
+"Mom?" I called.
 
-I looked closer. The small figure was emaciated, eyes sunken in, an odd smile on his narrow face, sitting comfortably on the antique shop owner's shoulder, his stick legs dangling over onto the shopkeeper's chest.
+No answer.
 
-"Igor is what is known as a primordial dwarf. Extremely rare. He was only about 25 inches tall."
+I called again, this time louder.
 
-I stared in disbelief.
+Still nothing.
 
-"Just enough to fit in the doll suit."
+The noises stopped.
 
-My hands covered my mouth.
+Silence.
 
-"And if you hadn't barricaded your cabin door to protect against bears, you would have been cleaned out overnight. And then on your first night back, you locked him in your car. So really this past night was his only opportunity to escape."
+I stood there for a few seconds, listening.
 
-The other detective spoke.
+Nothing.
 
-"And we confirmed, a phone call to the antique shop was registered coming out of your house around midnight. He was going to clean you out right there and then and get picked up."
+Slowly, I walked upstairs toward my bedroom.
 
-I turned and looked across the hall into the other office, the one where Nancy and the child psychologist were talking. She seemed fine, at least from the back of her head.
+The moment I opened the door, my stomach dropped.
 
-I just didn't know if I could ever get a wink of sleep again.
+My room had been completely torn apart.
 
-“Your daughter will be OK. It will take time for you both to recover. We're really sorry that this happened to you. Rest easy, we have a bad man behind bars, and another bad man that you rightfully killed in self defense."
+My toys were scattered across the floor.
 
-The officer and detectives stood up.
+The drawers of my nightstand had been pulled all the way out.
 
-"My suggestion, personally, how about you stay away from buying any new dolls for the next couple of years.”
+The wardrobe doors stood wide open.
 
-I stood up, never keeping my eyes off Nancy.
+Only one thought crossed my mind.
 
-“I’m never buying another fucking doll again.”
+The doll.
+
+My heart pounded as I slowly approached the wardrobe, hoping against hope that Usagi was still inside.
+
+She wasn't.
+
+She was sitting neatly on the shelf again.
+
+Just as she had been before.
+
+Then I heard it.
+
+A deep voice came from somewhere in the hallway.
+
+"Don't you like her? Please leave her there. Usagi gets lonely... and she likes watching you."
+
+Every muscle in my body tensed.
+
+Someone was inside the house.
+
+Without making a sound, I dropped to the floor and crawled underneath my bed, praying that whoever it was would simply leave.
+
+"Don't hide from me," the voice whispered.
+
+"I won't hurt you, little one."
+
+A moment later...
+
+Heavy footsteps.
+
+Slow.
+
+Deliberate.
+
+They passed my bedroom door.
+
+Then continued down the stairs.
+
+A door slammed somewhere downstairs.
+
+Silence.
+
+Complete silence.
+
+I was too terrified to move.
+
+Someone had been only a few steps away from me.
+
+I was just a child.
+
+If he had wanted to hurt me, nothing could have stopped him.
+
+But instead...
+
+He had simply left.
+
+I don't know how long I stayed hidden beneath my bed.
+
+It felt like hours.
+
+Eventually, I heard the front door open again.
+
+Then my mother's voice echoed through the house.
+
+She was calling my name.
+
+Only then did I finally dare to come out.
+
+Even then, I waited another minute or two, just to make absolutely sure whoever had been there was gone.
+
+When I crawled out from under the bed and stepped into the hallway, my mother was standing there.
+
+The moment I saw her, I broke down.
+
+I burst into tears, ran into her arms, and clung to her as tightly as I could.
+
+All the fear I'd been holding inside came flooding out at once.
+
+Between sobs, I tried to explain what had happened.
+
+I told her about the voice.
+
+About the man.
+
+About the nightmares.
+
+About how the doll kept changing places.
+
+It took me a long time to calm down enough for her to understand everything I was saying.
+
+When she saw my bedroom, she realized I wasn't making it up.
+
+The room really had been ransacked.
+
+She believed me.
+
+After a long silence, she looked at the doll.
+
+"May I see it?" she asked quietly.
+
+I nodded.
+
+I picked Usagi up from the shelf and handed her over.
+
+Unlike me, my mother had never examined the doll closely.
+
+At first, all I'd noticed were the black hair and those unsettling eyes.
+
+But as she turned it over in her hands, something caught her attention.
+
+One of the doll's eyes had a tiny hole in it.
+
+Barely noticeable.
+
+She frowned and inspected the head more carefully.
+
+Then she noticed something else.
+
+Running along the back of the doll's head was an almost invisible seam.
+
+The black paint covering the hair hid it perfectly.
+
+Without saying a word, my mother walked into the kitchen.
+
+She returned a moment later carrying a knife.
+
+Carefully...
+
+She cut along the seam.As the seam came apart, the top of the doll's head opened.
+
+Inside...
+
+...was a tiny camera.
+
+For a moment, neither of us said a word.
+
+My mother stared at it in disbelief.
+
+The man who had sold us the doll had hidden a camera inside her head.
+
+He had been watching me.
+
+Everything suddenly made sense.
+
+The strange black hair.
+
+The tiny hole in the doll's eye.
+
+The way she always seemed to be facing my bed.
+
+The reason someone had broken into our house.
+
+When I laid the doll on her back, the camera could no longer see me.
+
+So he had broken into our home to reposition her, making sure she was sitting upright and facing my bed again.
+
+He wanted to keep watching me while I slept.
+
+He probably never expected me to come home from school early that day.
+
+His plan had likely been to find the doll, place her back where he wanted her, tidy up the mess, and leave before anyone noticed.
+
+At least... that's what we believe happened.
+
+My mother took the doll and the camera straight to the police.
+
+Together, we told them everything.
+
+From the online advertisement...
+
+...to the strange behavior of the doll...
+
+...to the man whose voice I had heard just outside my bedroom.
+
+The investigation revealed that the sender's name and address were completely fake.
+
+They didn't exist.
+
+The black paint on the doll's hair had been used to hide the cut in the back of the head—the opening through which he had inserted the camera.
+
+Despite the investigation...
+
+They never found him.
+
+He simply disappeared.
+
+Even now, all these years later, he's still out there somewhere.
+
+Sometimes I wonder what else he has done since then...
+
+...or whether he ever found another victim.
+
+So please...
+
+Be careful when buying things online.
+
+And no matter how harmless something looks...
+
+Always inspect it carefully.
+
+You never know who might be watching.

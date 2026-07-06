@@ -1,0 +1,67 @@
+This happened on the Fourth of July when I was sixteen. I had to get up early to make the long drive to my aunt's house. She lived a few hours away and with how messed up my sleep schedule was from two weeks of summer, waking up at 8AM and leaving at 9 seemed daunting. When we finally got there, it was close to noon. Most everyone else had already arrived, except for a few friends of hers I didn't recognize. I have a pretty large family, not overly so but we’re all very close and having 20 or so people cramped onto the little back deck wasn't the most fun thing. I remember eventually finding an excuse to duck away from the incessant questioning from aunts and uncles and grandparents “why’s your hair blue” “you look like an emo” “sit up straight”.
+
+I found myself in the basement with all the little kids, sitting at a princess themed table wearing a tiara with all the 8 year old's telling me how a princess should act. Why couldn't I have been a prince huh? Later in the evening, though still before the sun had gone down, my uncle shoved a plastic bag and a lighter into my hands. “Here you're in charge” his voice slurred. Peering into the bag I was met with a bunch of shitty fireworks, sparklers, smoke bombs, pop-its, those little tank things, and a few fountains. The most interesting thing in there was something labeled "parachute man”. Everyone gathered in the front yard while the little kids crowded around the open tailgate of the pickup where I'd laid everything out. Once they were all watching, I got started. I started with the sparklers giving one to each of the kids, spending an embarrassing amount of time trying to light them with the crappy lighter I was given. all the adults drunkly telling me to hurry up didn't help.
+
+The kids ran around waving the sparklers around, me having to yell at them occasionally to stay away from the dry grass or not sword fight with them. The adults did little to help, even my older sister, usually the pinnacle of proper, was slumped in a lawn chair sipping her drink. I was sitting in the back of the pickup with my little cousin Elizabeth, she was always my favorite. She was probably 5 or 6 at the time, a bit younger than all the other kids. “Why’s that car running but not going anywhere?” she asked me. I looked up. It was an old white Buick Regal, parked across the cul-de-sac, the engine idling. I figured it belonged to one of the neighbors and thought nothing of it. I told her I didn't know, leaning in close and whispering “maybe it's someone jealous of all our fireworks” she giggled at that, though the single illuminated headlight gave me a weird feeling in my guy.
+
+I handed out the pop-its next. I was almost immediately yelling at them for throwing them at each other's feet. My gaze every now and again drifting back to the Buick. Its windows were too dark to see through. When I finally started with the fountains all the kids eagerly lined up on the sidewalk while I set them up in the middle of the cul-de-sac. After lighting them up, I took a few quick steps back towards the opposite sidewalk from the kids. I glanced behind me, noticing the front window on the Buick was cracked open just a bit. I turned back to the fireworks and watched little sparks shoot into the air with soft pops and cracks. The smell of sulfur filled my nose. Behind me, just quiet enough to disappear beneath the fireworks, the Buick's engine kept rumbling.
+
+A sickly-sweet smell drifted over the sulfur from the fireworks. At first I thought it was just the smoke, but this was different. It clung to the back of my throat, damp and sour, like something that had been left out in the summer heat for far too long. scrunched up my nose and glanced behind me. At first I couldn't tell what I was looking at. Something pale was pressed against the dark window. Then it shifted just enough for me to make out fingers... and a face pressed up against the almost impossible to see through glass of the Buick window. What caught my attention the most was the eyes. The kind of eyes that you would only see in the woods after dark, when you know what ever's looking can see you, and you cant see it.
+
+I stumbled back with a start, cupping my hand over my mouth to stifle a scream. My shoe crunched down hard on an empty fountain box and I fell hard onto my back, the sparks of the fireworks coming down onto my face and clothes. There was a loud screech and the smell of burning rubber. By the time I had sat up, the Buick was gone. Some of the less drunk adults quickly rushed over and helped me to my feet, dusting off the little bits of ash from my shirt. The other adults stood near the sidewalk, looking up and down the street as if expecting the car to come back.
+
+I told everybody around me what had happened, speaking mainly to my father in a hushed tone so the kids wouldn't hear, “there was some guy staring at us” I whisper yelled to him. He patted my back and told me it was going to be alright. All the kids were rushed inside, a few of the adults stayed out on the street. I was once again sitting back at that little princess table, the little kids asking me why they had to come inside and the one cousin my age just giving me a look. The two of us told the kids to stay down stairs and we went into the basement laundry / bathroom. The door shut behind us and the lock turned.
+
+I almost immediately started blabbering on to her, saying the same things I told the adults when they asked why I was so freaked out. I told her about the way the beady little eyes of whoever that was jumped around and across my face, across my body. The way it made me shiver  and recoil in disgust.
+
+She was usually so talkative, she didn't interrupt me once.
+
+When my cousin and I finally went upstairs the adults were just about to come and get all the kids. The party was over. The goodbyes were quick, all happening in the main hallway of the house, the one leading to the door. One after another family left, quickly making their way to the car. My dad, my sister, and I  were the last to leave, my aunt hugging me tightly saying she was glad nothing bad happened. I had never seen her like this, so scared for her kids. Elizabeth said that I should come back soon. She didn't even know anything had happened.
+
+I had to drive home, the others had drank too much. Soon the sun had set behind the mountains and both my dad and my sister were asleep, leaving just me and the half empty highway.
+
+When I was switching lanes about to go to my exit, I could have sworn I saw the Buick in my rear view mirror. That same dark hole where a headlight should be, like a single solitary eye staring into me. But as I pulled into the exit and the car passed it wasn't a Buick at all, just some boxy white car. I thought I saw it again later coming up the hill to my house, driving behind me before turning off a few streets away from mine. At the time I told myself I was crazy, that I was just afraid, that every old white car looks the same at night.
+
+I pulled into my driveway and shut off the engine, laughing with my dad and sister like everything was normal. They both seemed to have forgotten about what happened, or were just pretending to. We watched a movie together, my mind continually wandering back to that face. Every sound of a car starting outside made me jump.
+
+When everyone finally went to bed I couldn't sleep, I was left awake thinking. Those eyes filled my vision whenever I closed my eyes. Then I smelled something, a sickly sweet smell. I sat bolt upright, the smell filling my nose before dissipating as quickly as it came. I stumbled out of bed and put on my shoes, maybe a walk would help clear my head.
+
+I've always dealt with anxiety by taking walks, especially at night. They helped me clear my head and back then I didn't think anything bad would happen to me. And so I quietly slipped out the front door onto my street. Standing on the sidewalk I looked to my left, even this late a large block party was going, people filled the street.
+
+ I never liked crowds.
+
+ I turned right
+
+I took the same path I always did, past the little bus stop and down the path between two houses and into the back streets, the ones that were always empty. Soon I found myself walking in the middle of the road, not a car in sight, tall trees looming overhead and sparse houses with no lights dotting the landscape.
+
+That familiar smell found its way into my nose.
+
+I glanced around, looking for the source. Spotting it just down the street. I walked up to the old Buick, looking at my reflection in the blacked out windows. I had this urge, I can't describe it. Like an invisible force telling me to open the door, every sensible part of my body and mind told me not to, but it was like my hand was forced.
+
+The door opened with a soft click. The pungent smell of meat left out in the sun filling my nose along with a wave of heat. The overhead car light illuminated the cluttered space dimly, fast food bags and empty glass bottles everywhere. Peering deeper inside there seemed to be no one there. A horrible feeling filled my stomach, a deep pit and I slammed the door. I quickly ran behind the car and hurled, coughing and sputtering up dark colored bile.
+
+I felt faint, blood rushing to my head. A voice, barely louder than my labored breathing, filled the silence. I couldn't make out what it said, almost like a laugh or a giggle. I looked up and there in the bushes was that same face, its small beady eyes boring into me. Hands up by its face, its unnaturally round head making its slightly agape mouth look wrong. Its mouth moved and it laughed again, almost like the sound of a mocking bird. mimicking. One of its hands came up to its lips and with a soft “shhh…” and it disappeared into the dark of the bushes.
+
+I stumbled to my feet and ran, I didn't even know where I was running to. Pretty soon I found myself at the park, a few kids there shooting off fireworks.
+
+They all kind of stopped and looked at me weird, they asked if I was alright.
+
+“Yah I'm fine” I sputtered “I just- there was some - I - I don't even know” I took in a few gulps of air “some creepy dude in the bushes”
+
+They all gave me a skeptical look “uh… ok?” the seemingly oldest of them said
+
+There was a moment of awkward silence then I spoke again “no no. I mean like you should leave now” I shook my head “like go home”
+
+They all exchanged uneasy glances other than surged “sure dude” the tall one said as they all turned away to light off more fireworks.
+
+The walk home was slow, I had to make my way through the block party, I had taken a big loop around. Some of the people gave me weird looks, some asked if I was ok. I just kept walking. When I finally did get home it was much later, I didn't realize I'd been out so long. I fell asleep almost immediately, my dreams filled with that face… and those eyes.
+
+The next few days I went back to the usual mundanity of summer life. Hanging out with friends, going swimming, playing video games, stuff like that. One night I walked into the living room, it had been around a week since 4th of July. My dad was sitting on his recliner watching the news, some missing persons report.
+
+ 14 kids had gone missing on the night of the 4th.
+
+The news anchor droned on “if anyone was near (redacted location) on the night of the fourth come to the authority immediately”
+
+But I wasn't listening anymore. I went to my room and laid down for a while, then I started writing this. I'm about to go and tell my dad what I saw. I've searched online and apparently some kids near my aunt's place and a few other places have also gone missing. Hopefully I can help the police in their investigation. 
+
+If people are interested I'll post what happens next.

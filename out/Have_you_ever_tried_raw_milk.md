@@ -1,0 +1,185 @@
+What did you think of it? At first, it made me feel strange, but now I wish I had some more.
+
+I tried it this past 4^(th) of July weekend.
+
+My wife, Ann, and I road-tripped out of the city and rented a place four hours away. We picked a shed on a pretty little farm, full of chickens, ducks, a few spare cats, and cows, lots of cows.
+
+I know most people don’t like when the owners stay on the property, but we’re always down to chat, especially if the owner’s interesting. Most people who rent out a shed to strangers are at least a little interesting.
+
+We got in late Friday night, too late to catch our hosts.
+
+I remember looking out the window of our shed to see the lights of their house flick off one by one, first the kitchen, then the living room, then the light in the foyer and the stairwell. I wasn’t sure if I was imagining things, but I could swear I started hearing our host go up the stairs. It was a low, hollow sound, like something hard clapping against the floorboards, but how could that be? We were close to their farm house, but not that close.
+
+“Hey, do you hear that?” I whispered.
+
+“What?” My wife asked, drying her hair as she walked over to me, unaware that I was investigating something.
+
+“Shhh. Do you hear anything?”
+
+I watched Ann’s eyes narrow as she tilted her head trying to catch any stray sounds in the night.
+
+“Mooooooooo”
+
+Ann smiled. “That’s the cows. Did you even read the rental post I sent you? They’re dairy farmers. The herd sleeps over there.”
+
+“Where?” I stuck my head out the window, scanning behind the shed and the farmhouse to see the face of a full moon on a lake. Next to it was a shack and standing under a single tree was the silhouette of a large cow.
+
+“Cool,” I said.
+
+I loved cows. I used to joke that I liked any animal that had a job. As a boy who grew up in the suburbs, the concept of a farm was endlessly charming to me. Sure, I knew farms were hard work and most were run like factories now, but that didn’t stop me from daydreaming about what it would be like to run one of my own.
+
+My wife and I shared a quick smile. She knew she picked the right place, and she knew I knew.
+
+“But hey, wait a minute. That’s not what I heard,” snapping back to reality for a second. “Over there, do you hear anything in the house?” I said with a point of my finger.
+
+She listened again. “No, I -”
+
+A pair of blinds shuttered and the last light in the house on the second floor went dark.
+
+She looked at me, and I looked at her. “Maybe we should go to bed,” I said.
+
+The next morning, we woke up to the crow of a rooster. I laughed at how cliché it all was and doubled down. In a few minutes, I was putting on my overalls, a plain white t-shirt, boots, and a bucket hat. If we were going out into the country for a “classic farm experience” we might as well look the part.
+
+Stepping out into the dewy grass, hens watched us from a distance and preemptively cleared our path to the shack by the pond.
+
+A little calico cat splayed itself out in the sun near the entrance to the shack. I gestured “I think he wants you to pet her.” My wife just smiled, her stillness being an invitation for me to take her place and greet the cat instead. I didn’t mind, and I wasn’t surprised. We both knew the outdoors was my thing. She preferred the smell of books to the smell of barns.
+
+“I think she likes you,” a tall, thin man with salt-and-pepper stubble said, stepping out of the shack.
+
+“What’s her name?” I asked.
+
+“Chrissy.”
+
+“That’s kind of a human name for a cat,” I said.
+
+“I suppose it is, but that’s the name she had when I got her. Sometimes you don’t get to pick.”
+
+We all introduced ourselves, and he led us into the shack.
+
+“This is where we milk our cows,” he said, patting the rear of a cow who was already locked into place, head in the closed gate, stool by her hind legs, and milking machine attached to her udders. “Her name’s Josie. She’s a fine cow, very easy to milk. You could even do it with your hands.”
+
+“Really?” I asked.
+
+“Yup, do you want to try?” he replied.
+
+Of course I did. Our host removed the milking machine and gave me a quick tutorial. “Hold from the top with just your thumb and your index finger, then close your fingers one by one.”
+
+\*squirt\* that was easier than I thought it would be.
+
+After a few good turns, I passed the job off to my wife who surprised herself with how much she enjoyed it. We were making small talk when our host asked us. “Would you like to try some of it yourself?”
+
+We looked at each other. Raw milk was in the news. Drinking it wasn’t just bad for you. It said something about you. Only certain types of people drank raw milk. We weren’t those types of people, but we also weren’t the kind to be rude, not to a perfectly fine host who both of us were clearly starting to get comfortable with.
+
+“Sure!” I said, quickly, almost trying to retroactively cover up my hesitation with enthusiasm.
+
+He grinned. “Warm or cold?”
+
+“Cold,” I said.
+
+“In this heat, I’d do the same,” he said turning to a fridge in the back, while pouring a small glass full to the brim with thick, whole milk.
+
+We all said cheers and laughed at our milk mustaches. How cliché could we get?
+
+“Don’t you want to try some more?” Our host asked.
+
+We smiled and shook our heads, having fulfilled our obligation. To our relief, he didn’t press us.
+
+A little later, the two of us were driving down the winding road into the nearby town when I think things first started to change.
+
+Ann looked over at me. “Do you feel something? I think my stomach hurts. It couldn’t be the milk, could it?”
+
+“No, not a chance. We hardly drank a glass.” I was ready to chalk it up to the type of worries Ann got when one of her friends got sick. It’s so easy to fool yourself into the first symptoms of a cold or stomach bug.
+
+ I started to worry when Ann didn’t eat her burger.
+
+“Should have gotten the pasta like me. Want to split it?”
+
+“I don’t know if I’m hungry,” she said, looking queasy at the cheeseburger staring back at her. I have to admit, it didn’t look very appetizing to me, either.
+
+Ann didn’t finish a bite of food, but we stayed out late anyway. The cover band at the bar was playing all the songs she liked.
+
+It was 10:00pm when we got in the car and started heading back to the farm. We were lucky; the full moon made the turns easy to see.
+
+“Want some hot chocolate? Might help you fall asleep,” I offered.
+
+“So long as it doesn’t have that raw milk in it,” Ann said while returning a smile.
+
+A little while later, I was lying in bed, the moon shining in through the window on Ann’s full cup of hot chocolate.
+
+I couldn’t sleep, and my head was starting to hurt. I glanced up out the window onto the lake, and I was surprised to see a light on in the shack.
+
+“Huh, maybe he left his light on by mistake.”
+
+I got up out of bed, crept down the stairs so as not to wake Ann and closed the door gently behind me. As I got closer to the shack, I started to hear a hum. *Is that the sound of the milk machine? No.* Then I heard the glassy clank of jugs and jars, maybe a bubbling sound, too.
+
+I started to slow down.
+
+“Moooo!” A cow thundered over the fence, looking right at me.
+
+I stepped back, “meow!!” Chrissy jumped up and scratched my leg, protesting my foot on top of her tail.
+
+“Jesus.”
+
+The humming stopped.
+
+“Whoooo’s there?” A low voice that I had never heard before bellowed.
+
+“Uuhh, it’s just me! I saw the light on in the shack and thought I’d come down. I couldn’t sleep.”
+
+Crickets. The crickets on the farm were my only answer until –
+
+\*creak\*
+
+The door to the shack opened.
+
+“Come in.”
+
+I didn’t want to come in, in fact, I told my legs to take me in the opposite direction, but I was moving forward. My legs, which did not feel like my legs, were taking me one step at a time towards the door of the shack. I wobbled and put out my hands to brace myself against the wall of the shack when I heard a low, hollow clap. I looked to my hand but did not see a hand.
+
+I saw a hoof.
+
+“What?”
+
+This information was impossible for me to piece together. I screamed and then screamed again when my panicked voice sounded nothing like the voice I knew. It was too low.
+
+I collapsed to the ground.
+
+If it was up to me, I would have stayed there, but my legs kept crawling. All of my legs kept crawling. I was on all fours.
+
+When my head finally turned the corner, I saw it.
+
+A giant bull, twice my size, had its face buried in the fridge. It had a salt-and-pepper coat of fur. Milk was pouring down the shelves with broken glass all on the floor. I could hear it cracking under the bull’s hooves.
+
+“Don’t youuuu want to try some more?”
+
+I let out a guttural baying sound and everything went dark.
+
+I woke up in my own bed to the crow of a rooster, the sheets pushed to the very end of the bed, the bed itself soaked in sweat.
+
+“Hon, hon, are you okay?” Ann asked. “You were screaming.”
+
+I tried to explain what I had just experienced, and she said, “I had the strangest dream, too.”
+
+“A dream, yes. Yeah, you’re right. Wait, what happened in your dream?”
+
+“Well,” she started, “I woke up and you were gone. I tried to get up but my head was so heavy. I tried to massage my temples, and when I put my hands to my head I touched horns!”
+
+I was listening but my eyes started to drift, first to the bedsheets and then to her pillow.
+
+My heart sank.
+
+There were holes in her pillow and the stuffing was everywhere.
+
+I looked away and my eyes fell to the floor.
+
+*What was that?*
+
+Running from the side of my bed to the front door were the faint mud stains of hoofprints.
+
+“Ann, maybe you could finish your story in the car.”
+
+It wasn’t 5 minutes before we were looking back at the farm in our rearview mirror.
+
+I stared at it until it disappeared behind the hill.
+
+We’re home now. It’s only been a day, but I can’t stop thinking about it. A small part of me wants to go back.

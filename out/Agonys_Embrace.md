@@ -1,0 +1,111 @@
+My husband died believing I tortured him. The police eventually cleared me, but he never did.
+
+I was 8000 kilometers away for a 5 day business trip. When I got home, the front door was unlocked and as I stepped inside, I saw that the living room was a wreck. The furniture was overturned. The TV had been ripped from its stand. There was blood on the walls, on the carpet, even across the ceiling.
+
+Then I saw him, curled beneath our dining table in a fetal position, as if he'd been trying to hide. His skin was falling off his body, parts of his flesh were torn open, I could see bone. I ran outside before I even realized I was screaming. I couldn't take it.
+
+My husband was an ex-Marine. A sniper's bullet ended his career before he turned thirty. He survived, but he never regained sight in his left eye. He used to joke that it only made me twice as pretty from the right side. 
+
+We were married for just over two years. Every morning before I left for work, he'd kiss my forehead and remind me to eat something that wasn't airport food. Every evening he'd ask what I wanted for dinner, even though we both knew he'd already decided. 
+
+The last thing he ever did before I left for Sweden was pull me back through the front door because I'd forgotten my goodbye kiss. I remember rolling my eyes and laughing. I remember pretending to be annoyed. I don't remember however, telling him I loved him back. 
+
+After hours in surgery, the doctors somehow managed to stabilize him. He was moved to the ICU shortly after. For months he lay unconscious while detectives treated our home like a crime scene. They took my luggage, my phone, even the clothes I'd worn off the plane. I told them I had just returned from Sweden and found him like that. They didn't believe me. 
+
+The neighbors claimed they'd seen me at home during the four days I was supposedly overseas. Only after my passport records, flight manifests, hotel receipts, and my company's travel logs were verified did the police finally clear me. By then, my husband had already opened his eyes.
+
+As soon as his eyes met mine, he started flailing wildly. Sobbing as he screamed “NO” “NO’ over and over. His bandages and his gown were starting to tear. The machines around him beeping. IV lines tearing free. 
+
+Nurses rushed into the room and gathered to hold him down. I was walked outside by one of the nurses. I waited by the door, hearing him slowly quiet down. A nurse finally comes out "He's stable now.” “Can I try again?” I asked. “I'm sorry. He became extremely distressed when he saw you. For now, we've been instructed not to allow any more visits. ” As she walked off. I let out a deep sigh and went home.
+
+I scheduled a meeting with the doctor in charge a few days later. “How is my husband doing?” “Well…” “We are doing what we can to keep his conditions stable, but he still dips in and out of consciousness from time to time” he adds. 
+
+He later explained why I was forbidden (in the meantime) to meet him saying “Whenever you're present, his blood pressure spikes dangerously” “Does he think I did this?” I asked. The doctor looked down at the folder in his hands “Yes…” “He is convinced you were responsible.” My heart sank. “
+
+Why?” He shook his head, “Mrs. Carter... I'm a physician. I can tell you how badly he's injured. I can't tell you why he believes what he believes. If anyone has those answers, it's the people interviewing him.”
+
+As I stood up to leave, “Did he ask about me?” “No,” he said sternly. I waited a while for more. “He only asked whether we’d let you back in the room…” “And?” I immediately replied. “He begged us not to,” the doctor adds.
+
+Now that the house has been cleaned. The table I found him under was gone. It's a lot emptier now. I could barely get enough sleep, still thinking about what the doctor told me. I miss him so much. 
+
+The next four months became my life. I’ve been thoroughly digging into the details of what happened, scoured multiple contacts, even called investigators, and the police. Some calls were ignored, and some gave limited answers, telling me that they found “Nothing new”. 
+
+I spent every waking hour chasing dead ends. Police reports. Cold case databases. Anything that resembled what happened to my husband. I even gathered old newspapers, some from different countries, and had them scanned and translated. Nothing fit. Most attacks ended in robbery. Domestic violence. Drug disputes. There was always an explanation. Ours was the only one that wasn't.
+
+As I was reading through those reports, the hospital called. “Mrs. Carter…” I knew immediately what the call was. I broke down in tears before the informant began talking again. “The funeral parlor will come shortly to get his clothes”. I thought to myself, It's the first time in a while I’m going to see him in a suit.
+
+Looking through the wardrobe I fell to my knees sobbing. His white tuxedo he wore at our wedding was still in pristine condition. I remember him wearing it one night on our anniversary. Joking about how he couldn't close all the buttons anymore since his belly’s gotten bigger. 
+
+The funeral came and went. People hugged me, said things I couldn't remember. I thanked them anyway. His casket remained closed the moment it arrived in the chapel until it was lowered into the ground. The funeral director gently explained that an open casket wasn't possible. I told him I understood. I was lying. I wanted to see him just once. In the end, all I got to say goodbye to was a metal box.
+
+A few days went by after the funeral. The investigators finally came to visit. They handed me interview transcripts and photos of what they did. Then just as casually, “There’s one thing…” one of them said. “You’re not the first spouse to be accused,” he added. He then slides over a photocopy of an old case file. A case from 2013 in Bengal, India. 
+
+The headline read: “Business Tycoon Dies After Alleged Torture; Wife Sentenced to Life.” It detailed the death of “R. Patel”. A successful man and a loving father of four. 
+
+Beneath the article was a section labeled: “Released under Freedom of Information Request”“Official Cause of Death: Multiple traumatic injuries resulting in septic shock.”  “Official Finding: Homicide.” 
+
+“Victim was discovered alive inside his residence following a welfare check requested by family members.” “Victim sustained extensive soft tissue trauma, multiple amputations of distal fingers and toes, and severe blood loss.” “Victim remained hospitalized for twenty-one days before succumbing to complications arising from his injuries.”
+
+“Prior to death, victim repeatedly identified his wife as the sole perpetrator.” I paused for a while before continuing reading. “Investigation produced corroborating eyewitness testimony placing the wife at the residence during the period in question.” 
+
+I skipped the medical reports and went straight to “The suspect denied involvement.” I stopped reading. That final sentence stuck with me. Maybe she hadn’t done it either. The Patel case was shockingly similar to mine. Down to the last detail. 
+
+Even the witness reports are similar. “Neighbor reported hearing prolonged screaming over several nights. Observed Mrs. Patel entering and exiting the residence-” “How many witnesses?” I asked him. “Seven” he said. I continued reading “No other individuals were observed.” I looked up at them, “What are the odds?” They looked at each other then back at me. The room fell silent.
+
+I slid the file back over, “Why are you showing me this?”, breaking the silence. The older investigator folded his hands. “Because after comparing yours with this case…”, he took a deep breath, “...we stopped believing either one was ordinary.”
+
+Without a word, he hands me another binder that he slowly took out of his suitcase. It was my husband’s case file. I took a deep breath and asked “Why… only now?” “...See for yourself.” I opened the folder slowly, hands shaking. “Can you tell us what happened?” It read. “...she went home.” I looked up at them, “I wasn't home I.. I-” “-We know.” One of them cut me off.
+
+I continued. “How did it happen?” The investigator asked. “I watched her cook dinner, fold laundry, wash the dishes. I offered her help, but she refused, told me to sit down.” “What happened next?” “She woke me up one night, led me downstairs, told me to close my eyes…” (subject becomes visibly distressed) “Mr. Carter?” “...” “Mr. Carter!”
+
+“What happened?” I asked. “He started to thrash violently, we had to hold him down and sedate him.” "Did he ever mention anyone else?" I added. "No." "Never?" "Not once."
+
+“Would you like to know what he said about you?” He asked me. I nodded. He flipped to the final page. “Is there anything you’d like us to tell your wife?” the investigator asked. “I hope she’s happy with what she made.” I began to cry, “I didn't… I…” The investigator pointed at the end of the page and said “He only spoke one more time.” It read, “Why?” I closed the folder. I couldn't take it.
+
+“Do you believe him?” I asked. “Every word.” “So you believe I did it?” “No.” One exclaimed. “We believe he was telling the truth.” The other followed up, “We also know you couldn't have been there.” There was a long pause. “Why give me all this?” I added. “We can't take this case any further.” The older investigator explained as they were packing up. 
+
+They stood up to leave. Before they left I told them, “If I find something, I’lll let you know.”, “So do we.” he replied. I'm alone again. But this time, with valuable information, all the paperwork, reports, and indices that I need to figure this out are now in my possession. All thats left is to do my research. 
+
+The night that followed, I read all the binders line by line. Swiped off all the garbage on my desk, spreading out every case file. And with a fresh pack of sticky notes and a newly repainted wall, I begin taking notes.
+
+All of them are from different time periods, dating back to the 18th century. The oldest was a photocopy of the original news report from 1786. The latest being, the Carter case. 1786, 1801, 1816, so on until 2026. 16 different cases, each separated by a 15 year gap. 
+
+For the first few nights, this is what I've concluded: Every victim was male, all of them husbands who blamed their spouse for what happened. No suspect was observed leaving the scene. Some were marked as solved, especially the older ones, though the conclusions they came to were highly skeptical.
+
+Most of all, all their injuries were horrifyingly similar.
+
+This can't be a coincidence. My conclusion went to perhaps it could have been a serial killer behind this at first, but then the century spanning reports tell me otherwise.
+
+The next week I’ve started to put together more pieces to the puzzle. My desk that once looked like a pile of papers, sorted neatly by country and date. 
+
+Here were my findings: Every one of the victims died as a result of their injury, never from the attacker themselves. That's when it hit me. None of them had been killed outright. Every victim survived the attack, only to die days or weeks later. There was an obvious pattern to it. 
+
+My next conclusion was that that was the doings of a cult. The gore, the ritualistic clipping of the fingers and toes, and the span of time and gaps in between the deaths is very cannibal cult-like. But unless this cult had members to coordinate killings across different continents, it can't possibly be. Also why leave them alive?
+
+Different victims had different numbers of witnesses. Mine had three, the Patel case had seven, and some recent ones even had CCTV footage. Every witness agreed on one thing. They only ever claim to have seen one person with the victim… their spouse. How?
+
+A few nights after that, I started looking into the victims themselves. Every single one had just entered the happiest period of their lives. Promoted, first child, beat cancer, and in my case, married. I didn't understand where I was going with this at first, but what really solidified this for me was that all of these men were needless to say, content.
+
+I spent the following weeks reading folklore from every culture the case files touched. Most contradicted one another. One thing didn't. Across every account, regardless of culture or century, three ideas kept resurfacing. It imitates. It isolates. And once it has taken everything it wants… it leaves.
+
+After studying and refreshing my research one last time, I was left with this. Different cultures gave it different names. None agreed on what it was. Some called it a succubus. Others described something entirely different. But they all described the same behavior. All feed off of the victim’s pain and suffering. Mimicking their spouse to make them feel loved and content, then to take it all away in an instant. Physical, mental, emotional torment. 
+
+No victim was attacked twice. Not once, across every case. This thing isn't obsessive, it doesn't stalk forever. After it chooses someone, it ruins them completely. Then it moves on to find another life worth destroying. It wasn't interested in killing them. By the time it left, the part it wanted was already dead.
+
+I wept. Knowing what my husband must've gone through, and all of the other victims’ too. He really did see me. He really felt my touch. He died believing I was the one who broke his trust, the one who took away everything. 
+
+I reopened his manuscript after a while. “How do you feel about your wife?”, the investigator asked. “I love her.” I smiled through my tears. “I just couldn't understand why she did this.” he adds.I sent everything I'd found to the investigators. They never replied. Maybe they'd already reached the same conclusion. Maybe they thought grief had finally broken me. I don't know.
+
+I know how insane this sounds. Four months ago I would've laughed at anyone who told me this story. Today I'd trade everything I own to go back to believing they were crazy. If the person you love changes overnight… Don't dismiss it because they still look the same. Don't assume your memories together can protect you. Love wasn't enough to protect my husband.
+
+The investigators cleared my name. 
+
+History probably will too. 
+
+But the only person whose forgiveness ever mattered was buried in a closed casket before he could hear the truth.
+
+I hope someone will read this before it's too late.
+
+If my husband had found one story like this before it happened...
+
+Maybe he wouldn't have felt agony’s embrace.

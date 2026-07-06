@@ -1,0 +1,127 @@
+I wasn't planning on sharing this because, honestly, I know how unbelievable it sounds. This happened a few years ago when I was in college. A couple of friends and I were really into exploring abandoned places. We'd been to old factories, schools, and empty houses before, and nothing interesting had ever happened. This story is the only reason I stopped doing it.
+
+The place was an old prison about an hour outside my city. It had been closed for years, and everyone around the area seemed to have a story about it. Some people said they heard voices at night. Others said it was just teenagers making things up. We didn't really care either way. We just wanted to look around.
+
+There were three of us. We parked a little way down the road and walked the rest of the way because we didn't want anyone seeing the car. By the time we got inside, it was already dark.
+
+The building looked exactly how you'd imagine an abandoned prison would look. Rusted bars, broken windows, peeling paint, and a smell that reminded me of damp concrete. Every sound echoed. Even talking quietly felt loud.
+
+For the first hour, nothing happened.
+
+We walked through a few cell blocks, took some pictures, and joked around. One of my friends kept pretending someone was standing behind us whenever we stopped. Looking back, I wish we'd just left then.
+
+Around midnight, we decided to sit down in one of the old guard rooms to eat the snacks we'd brought with us. We were talking when we heard a metal door slam somewhere in the building.
+
+It wasn't close, but it was loud enough that all three of us heard it.
+
+We stopped talking immediately.
+
+Nobody said anything for a few seconds.
+
+One of my friends finally stood up and said he'd go check, thinking maybe another group had come into the prison.
+
+The three of us walked toward the sound together.
+
+We checked the hallway.
+
+Nothing.
+
+Every cell we looked into was empty.
+
+There wasn't another flashlight anywhere in the building except ours.
+
+We came back to the guard room, and that's when I noticed something that still bothers me.
+
+One of the plastic water bottles we'd left on the floor had rolled several feet away.
+
+I know people are going to say the floor wasn't level.
+
+Maybe it wasn't.
+
+But none of us saw it move.
+
+It was just... somewhere else.
+
+At that point nobody was joking anymore.
+
+Around 2 a.m., we were getting ready to leave. One of my friends realized he'd left his backpack in another room, so the three of us walked back to get it.
+
+As we reached the hallway, we heard footsteps.
+
+Slow footsteps.
+
+Not running.
+
+Just someone walking.
+
+We all looked at each other because nobody in our group was moving.
+
+The footsteps continued for maybe five or six seconds before stopping.
+
+We called out, thinking security or maybe another explorer was inside.
+
+No answer.
+
+We searched the nearby rooms.
+
+Nothing.
+
+No people.
+
+No lights.
+
+No sound.
+
+We grabbed the backpack and headed toward the exit without saying much.
+
+When we got outside, we all felt relieved.
+
+Then my friend suddenly asked,
+
+"Where's the fourth flashlight?"
+
+The three of us just stared at him.
+
+We had only brought three.
+
+He insisted that while we were walking through the second cell block earlier that night, he'd seen another flashlight moving ahead of us.
+
+He said he assumed one of us had walked ahead.
+
+None of us had.
+
+We argued about it for a minute before finally getting in the car.
+
+Nobody mentioned it again during the drive home.
+
+The strange part happened the next morning.
+
+I was looking through the photos I'd taken that night.
+
+Most of them were just empty hallways and prison cells.
+
+But in one picture, taken completely by accident, there was a cell at the end of the corridor.
+
+Standing behind the bars was what looked like a person.
+
+It wasn't clear enough to make out a face.
+
+Just the shape of someone standing there.
+
+I showed the photo to the other two.
+
+Neither of them had noticed anyone while we were taking pictures.
+
+I still have that photo saved on an old hard drive somewhere.
+
+I've never gone back to look at it.
+
+Maybe it's just a trick of the light.
+
+Maybe it's my eyes seeing something that isn't there.
+
+I honestly don't know.
+
+But I do know one thing.
+
+Out of all the abandoned places we've explored, that old prison is the only one none of us ever wanted to visit again.
