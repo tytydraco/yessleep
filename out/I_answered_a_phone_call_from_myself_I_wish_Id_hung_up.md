@@ -200,4 +200,4 @@ There was a kitchen knife inside. Its blade was covered in drying blood. 
 
 I slammed the briefcase shut so hard the room echoed. Someone outside asked if everything was okay. I couldn't answer. Because for the first time I wasn't wondering whether the messages were real anymore.
 
-I was wondering whose blood was on the knife, and did I put it there.
+I was wondering whose blood was on the knife, and if I put it there.

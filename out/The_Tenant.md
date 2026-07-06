@@ -35,3 +35,52 @@ According to numerous urban explorers, he is no longer tied only to Blackridge S
 The stories are always the same. At first, he remains completely still, hidden in a dark corner or at the end of a corridor, making no sound at all. Many claim he never approaches as long as he is being watched. It is only when someone looks away that he begins to move.  
 And if one day you hear breathing behind you in an abandoned building… do not waste your time trying to find where it comes from. If you can already hear it, it is probably much closer than you think.  
 And it may have been following you for far longer than you realize.
+
+After that sentence, the official archives of the Blackridge case contain a final entry that was never meant to be made public.
+
+**Case status: CLOSED.**
+
+No further investigation authorized. Reason: **“Presumed contained subject / no threat outside the original site.”**
+
+However, internal communications between regional authorities and missing persons units contradict this conclusion. Between 2026 and 2029, several reports were filed describing identical phenomena in unrelated locations: abandoned hospitals, sealed residential buildings, underground technical tunnels, and even active construction sites.
+
+Always the same pattern. A presence in enclosed spaces. **A breath heard behind the walls. A silhouette seen only in peripheral vision. And always, when directly looked at: nothing. No physical evidence has ever been found. No footprints. No DNA. No confirmed video.** Only audio fragments: low breathing, and what analysts describe as **“wet movements inside hollow structures.”**
+
+On paper, the Elias Voss case remains officially unsolved. But a separate internal note, leaked from an archived police server, suggests a different conclusion.
+
+Excerpt from recovered document:  
+“The Voss subject is confirmed deceased. Cause: self-inflicted trauma. Body never officially recovered due to structural collapse in the underground access tunnels.”
+
+Below this line, a second handwritten annotation appears, not matching any recorded agent:  
+**“He had already left before that.”**  
+No signature.
+
+At this point, references to “The Tenant” begin to appear in unofficial forums, urban exploration communities, and encrypted messaging groups. At first, it is considered folklore. A nickname. A myth used by explorers to explain disappearances. But over time, a pattern emerges.
+
+Same description. Same behavior. Same rule: **Do not acknowledge it. Do not follow the sound. Do not turn around when you hear breathing.**
+
+In 2028, a final compiled intelligence report is generated but never made public.
+
+Classification: **BLACK LEVEL FILE.**  
+Subject designation: **UNKNOWN ENTITY** (formerly **“Elias Voss”**)
+
+Assessment:
+
+“The entity does not appear to be tied to a single location. It is instead associated with abandoned structural environments with low human activity.”
+
+“The subject shows no known biological constraints compatible with human anatomy.”
+
+“The movement pattern suggests structural adaptation over time rather than conventional locomotion.”
+
+“Containment is not possible using conventional methods.”
+
+Final hypothesis **(unconfirmed):**
+
+The entity does not leave places. It spreads through them.
+
+The report ends abruptly. The last page is missing from all archived copies.  
+Except for one line repeated across corrupted backups:
+
+**“If you hear it breathing… you are already within its area of influence.”**
+
+And somewhere, in a place that should be empty, a light flickers once. Then stops. Then starts again. No official record explains the anomaly, and the system logs remain permanently corrupted since that date.
