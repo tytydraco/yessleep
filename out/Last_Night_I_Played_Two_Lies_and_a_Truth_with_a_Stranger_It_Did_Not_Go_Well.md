@@ -1,0 +1,515 @@
+"Hi!"
+
+​I walked into the room and waved at the beautiful dark-haired woman sitting in front of me. Her pale features stood out starkly against her dark brown dress and the maroon wall behind her.
+
+​She looked up, and a smile instantly spread across her face, revealing dimples on both cheeks that accentuated her heart-shaped face. A faint waft of pine-scented air filled the room as I approached her.
+
+​I’d seen plenty of beautiful faces, but there was something different about her. The first time I noticed her, sitting alone by the window, strands of hair falling in delicate curls over her shoulders, I could already tell she was special. Not only because of her breathtaking beauty.
+
+​There was something else.
+
+​As I held my gaze, struck by the aura of mystery surrounding her, I found myself inventing reasons to walk over and say hello.
+
+​"Hi!" Her voice was deep for a woman her age. She was probably in her mid-twenties. Her hazel eyes sparkled with the reflection of the setting sun on the windowpane. She squinted at me and I found it hard to read her emotions.
+
+​"Nice to meet you," I said, reaching out to shake her hand.
+
+​"I'm sorry. I don’t usually shake hands with someone I’ve only just met. It’s this silly superstition, really. I know it sounds weird. I come from a small town, and we don’t shake hands with the opposite sex," she explained, her red lips curving into a mysterious smile as her eyes held mine.
+
+​"It's alright. My family... we had our own weird habits and traditions too," I replied, smiling back. "Everyone believed in dozens of myths and taboos."
+
+​"Really?" She flipped her hair behind her shoulders. "Tell me more. Have a seat."
+
+​"Well…" I mumbled, gazing out the window. Again, the same sweet pine scent drifted faintly through the air, making me feel a little lightheaded as I sat down. "My mother used to remind us to stamp our left foot three times before entering the house, so evil spirits wouldn’t follow us inside."
+
+​"My mother told me that too. But she also made us recite a prayer." She folded her arms across her chest and turned her gaze toward the window. Bathed in the reddish glow of the afternoon sky, her pale skin looked radiant.
+
+​"Old habits die hard. Sometimes I still stamp my foot when I come home from work. Not that I really believe evil spirits are following me. It’s just that lately, I’ve been feeling kind of unwell, and I miss my mother a lot. She passed away a few years ago." I sighed.
+
+​She turned her gaze toward me.
+
+​"I'm so sorry."
+
+​"It's okay."
+
+​Silence lingered between us as we held each other’s eyes.
+
+​"So, what brought you to this small town?"
+
+​"Oh, I’m here on business." I took a sip of wine and drew in a breath. "What about you?"
+
+​She shrugged.
+
+​"Been here a while. I’m from Winterburg. My parents are too. They met through a mutual friend, saw each other a few times, then fell in love and got married." She gave a small snort. "Where are you from?"
+
+​"Here and there. My father was a chef, so we never stayed more than a few years in one place. Nothing too exciting, really." I shrugged. "How about you?”
+
+​"What do you want to know?"
+
+​"Your hobbies?" I smirked.
+
+​She rolled her eyes and laughed.
+
+​"Ah, of course. Hobbies. The single most interesting thing about a person. Obviously."
+
+​"Well..." I gave a small shrug. "I like listening to people."
+
+​She tilted her head.
+
+​"That's not a hobby."
+
+​"You'd be surprised."
+
+​"No, seriously." She chuckled. "People collect stamps. They paint. They go hiking. You just... listen?"
+
+​"I have to."
+
+​"Have to?"
+
+​"Most of the time."
+
+​She laughed again and shook her head.
+
+​"You'd make a good therapist, then."
+
+​"I probably would." I looked out the window as though giving it some thought.
+
+​"So what stopped you?"
+
+​I smiled into my glass.
+
+​"Let's just say life had other plans.”
+
+​She studied me for a moment, her smile softening.
+
+​"You're an odd man,”
+
+​"I've been called worse."
+
+​"I'm sure you have."
+
+​For a brief moment, neither of us spoke. Outside, the last rays of sunlight painted the window in shades of amber and crimson. She absentmindedly traced the rim of her wine glass with a fingertip before looking back at me.
+
+​"So," she said, "do you always ask strangers about their lives?"
+
+​"Only the interesting ones."
+
+​A faint blush crept onto her cheeks.
+
+​"Now, why don’t you tell me more about you? You’re the one who came up to me while I was just minding my own business here." She wiped at her face slowly.
+
+​"Well…" I began. "I had a younger brother who always followed me everywhere. I remember being annoyed whenever my mom made me let him tag along. He would—"
+
+​"Had?" she cut in.
+
+​"Car accident. I was driving. He was only twelve." The words came out quickly.
+
+​Her face froze in shock.
+
+​I stared at my half-empty glass. I wanted to steer the conversation elsewhere, but it was too late. I was convinced I’d ruined everything, that she was about to get up and leave. Who drops a tragedy like that on a first date? Losers.
+
+​"You must have felt terribly responsible. But it wasn’t your fault and you know that." She leaned forward, reaching out as if to touch me, but stopped short. Instead, she clasped her hands together on the table.
+
+​I nodded weakly.
+
+​"Well… this is officially awkward," I blurted after a beat. "I didn’t come all the way down here just to kill the mood with my sad stories."
+
+​"Let's play a game. Shall we?" she heartily suggested.
+
+​"What game?"
+
+​"It's called Two Truths and A Lie."
+
+​"I don't think I'm familiar with that one."
+
+​She let out a chortle.
+
+​"Well… we tell each other three things about ourselves. One is false. And the other two are true."
+
+​I frowned.
+
+​"What a dangerous game. You might not like what you discover."
+
+​"Try me!" She rolled her eyes, still sniggering.
+
+​“Well, I have something a little more interesting in mind,” I said.
+
+​“Oh?” Her eyebrows rose. “Like what?”
+
+​“Let's make the game a bit more challenging.”
+
+​“How?”
+
+​I rubbed my jaw thoughtfully. “We reverse it.”
+
+​She tilted her head. “Reverse it? How?”
+
+​“Instead of two truths and a lie, it's two lies and a truth.”
+
+​For a moment, she just stared at me.
+
+​“Wait.” She narrowed her eyes. “Wouldn't that make it easier?”
+
+​“Would it?”
+
+​Her gaze drifted upward as she considered it. One finger tapped lightly against her chin.
+
+​“No, actually...” she murmured. “Maybe not.”
+
+​I remained silent, letting her work through it.
+
+​“With two truths and a lie, people naturally want to tell the truth most of the time. The lie is the odd one out.” She glanced back at me. “But with two lies and a truth, you'd have to hide the truth instead.”
+
+​“Exactly.”
+
+​She let out a small laugh and shook her head.
+
+​“That's devious.”
+
+​“I prefer ‘creative.’”
+
+​“Mm-hmm. That's not the word I'd use.”
+
+​She folded her arms and studied me for another second, as though trying to decide whether she was being lured into a trap.
+
+​“You know what?” A mischievous grin spread across her face. “Fine.”
+
+​“Confident?”
+
+​“Not at all,” she admitted cheerfully. “But if this blows up in my face, I'm blaming you.”
+
+​“That's fair.”
+
+​She pointed a finger at me. “And no changing the rules halfway through.”
+
+​“I wouldn't dream of it.”
+
+​“Good.” She settled back in her chair. “Then let's play this little creative game of yours.”
+
+​She dragged out the word ‘creative’ with theatrical suspicion. I laughed heartily.
+
+​"Okay I'll go first…" She closed her eyes and inhaled deeply. Her eyebrows met as she concentrated for a few seconds. "I am still a virgin… I have an inclination to fall for men who treat me horribly… and I am related to Katharine Hepburn… There. One truth and two lies," she said, very matter-of-factly.
+
+​I huffed.
+
+​"None of those sound that far-fetched. It’s easy to believe someone as gorgeous as you would claim to be related to Katharine Hepburn, though, honestly, it’s a little pretentious. You don’t strike me as the type to fall for jerks, you’re too smart for that. And being a virgin isn’t impossible these days, just rare."
+
+​She blushed as she watched me struggling with myself trying to figure her out.
+
+​“Well it’s your little game, mister.”
+
+​“Damn, this is tough.”
+
+​"Are you sure? Because I am about to break a rib here.”
+
+​"Okay, I think … no. You are not related to Katharine Hepburn and you definitely are not a virgin."
+
+​Her mouth fell open.
+
+​"Seriously? Am I that easy to read?"
+
+​"My God. You really like your bad boys, don't you?"
+
+​"Well. No pain, no gain. My last boyfriend was the most beautiful man I'd ever known. But he used to beat me up pretty bad," she said nonchalantly.
+
+​"What's his name?"
+
+​"Does it matter?"
+
+​"You need to give this loser a name so I can join you in wishing him all the bad luck in the world."
+
+​She laughed, looking amused.
+
+​"Well, he… I mean… oh God. It feels like I can't even… I guess I just don't enjoy dredging up bad memories."
+
+​I raised an eyebrow.
+
+​"Your turn," she said hastily.
+
+​"Okay…" I closed my eyes for a moment, trying to concentrate. "I’m one quarter Asian. I once made out with Madonna backstage when I was nineteen. And I’m an exorcist."
+
+​"Excuse me?”
+
+​"What?”
+
+​"You made out with who?"
+
+​“I know, right.” I grinned widely.
+
+​She shook her head, laughing. "Those are the most ridiculous things I’ve ever heard.”
+
+​"I am a ridiculous man with a ridiculous life. No surprise there."
+
+​She narrowed her eyes and bit her lip while I took another sip of wine and revelled in its tangy sweetness. For a moment, we just sat there, staring into each other's eyes.
+
+​"So?" I started.
+
+​"I don't know. You're different. I can't read you. And I am very good at reading people, I can tell you that."
+
+​"Well…" I clasped my hands together in front of me. “The only concert I ever went to was Metallica. And I didn’t make out with any of them backstage.”
+
+​She burst out laughing.
+
+​"And I took a DNA test a few years ago and found out I am ninety-seven percent Norwegian and three percent Irish or Scottish. I'm just as white as one can be."
+
+​"People actually do that?" She looked amazed.
+
+​"Oh yeah. Don't you have a little Irish in you too?"
+
+​The smile froze on her face. For a moment, she simply stared at me.
+
+​"How..." She let out a nervous laugh that dissolved into a couple of coughs. "You're not a stalker or something, are you?"
+
+​"Of course not," I said with a faint smile.
+
+​"I am a quarter Irish." Her voice had gone noticeably quieter. "I've never told anyone that."
+
+​"No, Angela. You haven't."
+
+​She swallowed hard.
+
+​"Who are you?" she asked.
+
+​I frowned.
+
+​"What do you mean?"
+
+​"I never told you my name."
+
+​"No.”
+
+​Her face looked even paler than before. I took another sip of wine and set the glass down carefully.
+
+​"What do you want from me?"
+
+​The playfulness that had colored her voice all evening was gone now.
+
+​"I just want to talk to you,” I replied. “Just you.”
+
+​The answer seemed to unsettle her more than I intended. She glanced toward the door. Then toward the windows. Then back at me.
+
+​"Look, I think I should go."
+
+​"No."
+
+​Her eyebrows rose. She pushed her chair back slightly. Every instinct in her seemed to be telling her to leave. Unfortunately, I couldn't let that happen. Not now. Not after coming this far.
+
+​"Please," I said. "Just hear me out."
+
+​Her gaze remained fixed on the door.
+
+​"Who are you?" she asked again. There was fear in her voice now.
+
+​"I've been watching you, Angela."
+
+​Her eyes widened. She retreated farther into her chair, trying to put as much distance between us as possible.
+
+​"What?"
+
+​“You don’t need to be afraid,” I said softly. “I won’t hurt you.”
+
+​“Please just let me go,” she pleaded.
+
+​"I've been trying to understand you."
+
+​"Why?"
+
+​"Because I think you're lost."
+
+​She stared at me as if I had just spoken a foreign language.
+
+​"What do you want from me?" she whispered again.
+
+​"Nothing."
+
+​"Then why are you doing this?"
+
+​“I just want to talk.”
+
+​"Please," she said at last, her voice barely audible. "Just let me go."
+
+​I looked into her frightened eyes and felt the familiar weight settling onto my shoulders. It always led to this point. The moment when they realized something was wrong. The moment before everything began to unravel.
+
+​"I'm sorry, Angela," I said quietly. "But I can't do that.”
+
+​“Why?”
+
+​"When was the last time you went home?"
+
+​She looked me dead in the eye for a while. Long tendrils of shadows were dancing on her face.
+
+​"Do you even know where you are?" I pressed on.
+
+​"I…" She looked around frantically and frowned as if trying to convince herself that she was in a familiar place.
+
+​"When was the last time you spoke with your sister?"
+
+​"My sister… she… wait a minute! How did you… Who are you?" She demanded, suddenly becoming angry and defensive at the mention of her sister.
+
+​“This isn’t your house.”
+
+​“Excuse me?”
+
+​"I'm not here to hurt you, Angela. I'm here to help. You have to trust me."
+
+​"Nonsense! What do you want from me?"
+
+​"Nothing. I just want to help," I replied solemnly.
+
+​"I… don't… need… your… help, you freak." she retorted.
+
+​"But you do." I sighed deeply.
+
+​This was it. The hardest part of my job…
+
+​"Does the name Jonathan Loudreinne ring any bells?" I continued.
+
+​She frowned and blinked rapidly, looking seemingly torn between hurling more insults at me or clawing my eyes out at the mention of that name.
+
+​"No," she answered fiercely.
+
+​"You knew him simply as Joe. That's what everybody used to call him. He had quite the reputation. Tall, devilishly handsome, dark, wealthy, Hispanic. The kind of charm that could convince the loneliest of us we have finally found the missing piece of ourselves. You get the gist."
+
+​"I don't…" she began hesitantly. But I pressed on.
+
+​"You met him when you had only started working as an apprentice for a local newspaper many years ago. Your ex, the guy whose name you can't remember, the one who used to beat you up… yeah. That's Joe."
+
+​"I don't understand."
+
+​"You thought he was a wonderful guy. They all did. But they were smart enough to get out of it before it's too late. But you Angela… you were something else. You were too infatuated with him.”
+
+​She opened her mouth as if to argue, but I gently held up a hand.
+
+​“In him, you found false reassurance that you had finally stumbled upon the life that was right for you. You and him against the world.”
+
+​“I don’t understand,” she repeated.
+
+​“You kept telling yourself that there was nothing wrong with what you both had. There was nothing wrong with him and what he was doing to you. That it's you who needed to be fixed. So you tried to be perfect for him.”
+
+​I took a deep breath and sighed weakly.
+
+​“But you never were. And deep down you knew you would never be. Still, you held on to this illusion that you could allow yourself the luxury of pretending everything was going to be alright in the end. That he would change. Sorry to rain on your parade. But he never did. If anything, he got worse."
+
+​I took another sip of wine with my eyes closed for a moment to let my words sink in. I wasn't finished. Not yet.
+
+​"One night you caught him with another woman in your bed. And the illusion started to fall apart. You had already dreaded having to confront it one day and it finally happened. He had pushed you over the edge many times before but that night something in you finally broke apart.”
+
+​“Regrets always come too late, they say. Your father had always wanted you to have a different life, which was why he sent you away to live with his sister in the city. But in elaborate and mysterious ways of how the universe works, you ran into this man, of all people. And you succumbed to his poisonous charm.”
+
+​“You moved away with him to his hometown, despite your father's reprehension. And your father disowned you. Something he would always regret. We all make terrible mistakes, Angela. They're our hell to pay."
+
+​"My father… my father…" she whispered weakly. Her voice was distant, as if coming through water.
+
+​"In retaliation, you cut off contact with your whole family. And they never heard from you again, until years later when your sister arrived in town looking for you.”
+
+​“My sister? She was here?”
+
+​I nodded softly.
+
+​“He told her you had left for New York many years before, just like he had told everyone else. She was a smart young girl, your sister. She knew something was off. She demanded he tell her the truth but he blew her off."
+
+​"Why are you telling me all this?" she said. There was something at once cold, reprehensive, and sorrowful in her voice. "Why did you come here?"
+
+​"I just wanted to help…"
+
+​"How?" Her voice broke. "Why?"
+
+​"Because that night after you caught him red-handed in the arms of another woman, you both had a huge fight. In a moment of blind rage, he pushed you down the stairs."
+
+​She cupped her ears with her hands, not wanting to hear any more of what I had to say.
+
+​"When you opened your eyes after what felt like an eternity, you found yourself back in your old bedroom that you had shared with him for countless nights of what you thought was true love. Yet he was nowhere to be seen. No matter how many times you screamed his name until the whole house began to shake.”
+
+​She began sobbing openly now. Her whole body shook with each ragged breath as years of grief and denial finally caught up with her. I had seen it happen countless times before, yet it never became any easier to witness. I waited until her sobs softened before speaking again.
+
+​“You spent hours wandering through its empty hallways, looking for answers. You thought it was him that was keeping you attuned to this house. But no. It was your own regret. A missed reconciliation between you and your family, especially your father."
+
+​"I met your sister some time ago before I came here. She's an old woman now. Rest assured she's had a wonderful and happy life surrounded by amazing people who love her dearly. She told me your father had made peace with your being gone before he passed away.”
+
+​“It didn't matter that you both had never had the chance to put things right with each other. He knew. He felt it. He had loved you so much that it pained him greatly to not be able to say goodbye when the time came.”
+
+​“In his last years, he had clung to the tiniest hope that at least you could somehow feel his undying love for you wherever you were. That maybe, no matter how impossible or hopeless, you knew he had never stopped looking for you until his time came. And you did. I know you did. That's why you're still here.”
+
+​“It's not the painful and horrible memories of that wicked man that have been keeping you a prisoner in this house. No. All these years, you've been waiting for your father to come and pick you up and take you home. But you have to make the journey home yourself. He's waiting for you on the other side."
+
+​I looked up and saw her staring back at me, tears welling up in her eyes. Her beautiful self was no more. Most of the skin on the lower side of her face was gone, revealing abraded bone and shredded muscle. Her long neck was bent to the side, the front of her dress dappled with dark stains.
+
+​She opened her mouth but no sound came out at first. It didn't matter. The look on her face told me so much about her pain and her longing.
+
+​"Go now, Angela," I said softly. "And rest."
+
+​She opened her mouth wider, and a piercing high-pitched wail came out of her throat, blowing all the candles out and shaking the whole room like an earthquake.
+
+​White-knuckling the edge of the table, I squinted my eyes as her shape began to merge with the darkness surrounding us. As the last light of day disappeared below the horizon, so did she. The candles flickered back to life as I stared off into the darkened empty space where she had just been only seconds ago.
+
+​A warm trickle suddenly ran beneath my nose. I sighed and wiped it away with the back of my hand.
+
+​Right on schedule.
+
+​I heard the door behind me creak open slowly.
+
+​"Mr. Holsen?" said a trembling voice behind me. "Is everything okay? I thought I heard something."
+
+​"Yes, everything's fine. She's gone now." A tinge of melancholy suddenly clutched at my chest as I said it, but I quickly heaved it off. Not even a modicum of guilt could have persuaded me to not take this trip.
+
+​I got up from my seat and turned around to face him.
+
+​"Are you… sure she's gone?" The old housekeeper had poked his head around the door cautiously, his eyes scanning the whole room, left to right, up and down, as if looking for something.
+
+​"No worries. She won't bother anyone ever again," I said, nodding at him as I stepped out of the dining room groggily.
+
+​“Mr. Holsen, sir…”
+
+​"I've been doing this for more than twenty years. I can tell if a house is haunted simply by looking at it. You don't think I won't be able to tell the difference once I'm in it, do you?" I continued because he looked like he was about to pester me with more skepticism.
+
+​"Good. Good." He beamed down at me as he sauntered into the room in his usual wobbly old man strides and flicked all the lights back on.
+
+​"Are you okay, sir? You seem a little unwell. Would you like a cup of tea?" he offered.
+
+​I paused for a moment, considering.
+
+​"No, thank you. I need some rest for now," I gave him a weak smile. "Don't forget to close the door after you're done and leave it undisturbed with all the lights on for the whole night.
+
+​He nodded quietly.
+
+​“And here…" I handed him a bundle of dried sage leaves. "Let it burn for a while. Waft it around the house three times for good measure. We don't want any residual hauntings to linger around. And then you're good to go.”
+
+​I discreetly wiped beneath my nose again as he escorted me to the front door in silence.
+
+​“Haven't you spoken with that gentleman from Oakmere? The one interested in buying the house? Your master mentioned him.”
+
+​“Ah, yes.” He nodded. “He’ll be coming this Friday.”
+
+​“I see.” I let out a weary sigh and extended my hand. “Well then. Good night.”
+
+​I stepped out into the spacious front yard, looked up at the starry night sky, and inhaled the sweet summer night air deeply. I rummaged through my pocket for a pack of cigarettes. It was a beautiful night
+
+​I began walking slowly down the tree-lined driveway towards the front gate where my car was parked, smoking my cigarette in quick inhalations. I felt the exhaustion settling in. I needed to get back to my motel as soon as possible and sleep it off.
+
+​I had learned long ago that the hardest part of the job wasn't facing the dead. It was getting to know them. Every case began the same way: a stranger sitting across from me, wary and uncertain. A careful exchange of stories. A few awkward questions. A little laughter if I was lucky.
+
+​Then came the slow work of peeling back the layers they had wrapped around themselves. The fears, the regrets, and the lies they told themselves over and over again. Sometimes they fought me every step of the way. Sometimes they seemed relieved that someone had finally shown up to listen.
+
+​Either way, by the time it was over, I always felt as though I had known them for years. Just enough time to understand them. Never enough time to keep them.
+
+​I stepped into the car and I felt my phone vibrating slightly in my pocket as I got behind the wheel. I took it out begrudgingly, feeling slightly annoyed at the possibility of another long and sleepless night.
+
+​"Hello…"
+
+​"Good Evening!" said a deep voice on the other end.
+
+​"Oh, I thought…"
+
+​"Henry just called. Thanks a lot. He said you did an amazing job tonight."
+
+​"I… I'm here to help." I said, my voice a pitch higher than usual.
+
+​"You have no idea. I wish somebody had told me about you much earlier. I'm forever grateful to you. I'll ask my assistant to transfer the rest of your payment tomorrow, the bonus we talked about included."
+
+​"You're giving me more than I asked for. That's a hell lot of money. But I can't complain."
+
+​"It's nothing. Again, thank you very much. Enjoy your time while you're still in town. Good Night, Mr. Holsen!"
+
+​"Good Night, Mr. Loudreinne!"
+
+​I pocketed my phone, flicked the still-lit cigarette out the window, and drove into the night, ignoring the screams drifting from some of the houses in the neighborhood. None of them were my problem for now.

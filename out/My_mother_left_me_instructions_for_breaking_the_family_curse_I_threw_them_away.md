@@ -70,15 +70,11 @@ Right as I was about to crumple the paper, I noticed there was more writing at t
 
 I squinted my eyes.
 
-
-
 *I know you hate me.*
 
 *I don’t blame you.*
 
 *Read it anyway. It’s important.*
-
-
 
 I was frozen for a moment as every emotion it was possible to feel tried to wrap its tentacles around my heart. 
 
@@ -327,3 +323,6 @@ What do I want? I don’t know that either. This has all become very complicated
 It just keeps getting worse. I don’t know what to do, and when I finally opened the journal it was an unhelpful mess. The only thing I know is that my family seemed to have been cursed with Death, and I think I may have thrown away the instructions on how to break it.
 
 She’ll be back any minute. I have to go.
+
+  
+\[ [next](https://www.reddit.com/r/nosleep/comments/1up96wu/i_learned_why_you_shouldnt_run_from_a_murder/) \]
