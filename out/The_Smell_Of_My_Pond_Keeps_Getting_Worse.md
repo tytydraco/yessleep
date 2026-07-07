@@ -1,0 +1,832 @@
+Growing up, the pond held as many memories as it did water. Catching frogs during the summer. Wiping the frost off the ice in winter to watch the fish suspended beneath it, waiting for spring. And, least fondly but most memorably, all the baptisms my dad and uncles performed in it. Back then, it still smelled like a pond.
+
+Most people expect me to be some hardcore Bible thumper. It's a fair assumption. My dad was a pastor. My uncles were pastors. My grandpa was a pastor. It goes back generations. At one point, I figured I'd be one too. But watching my dad and his brothers drift apart over what they believed, and what they were willing to do with those beliefs, left me bitter more than faithful.
+
+I remember getting exiled to the front porch so the "adults could talk." That's what they always called it. In reality, it usually meant my dad yelling at my uncles. I couldn't make out every word. Just fragments. Money. Expansion. Television. 
+
+After a while, I'd wander down to the pond. My mom was usually there. She never cared much for the arguments inside. While everyone else fought over sermons and money, she'd sit by the water waiting for whoever came. Some wanted to pray. Some wanted to collect a jar of water to take home. She never questioned why they came. She just wanted to help them. 
+
+The last time I heard, "The adults need to talk," was the last time the pond smelled like a pond.
+
+"Why don't you go ahead and dig Dad up while you're at it? He's probably tired from all the turning."
+
+That was the first sentence I heard clearly. It took me a second to register who said it, it has my dads voice but not his words. That's when I heard it followed up with “Get out of my house”.
+
+My uncles burst out of the screen door headed to their  trucks with big lettering on the side saying “St. Montanus Baptist” 
+
+I don't know what came over me that time. Maybe because I was seventeen and thought I deserved to know what was happening. Maybe I was arrogant enough to think I could fix it.
+
+Turns out I never got to make that choice.
+
+My dad walked out onto the porch. Calmly.. He tested the screen door once, making sure it opened and shut properly, then looked straight at me.
+
+I felt my mother's hand settle on my shoulder, gently guiding me toward him.
+
+My dad didn't look at me at first. He just kept his eyes locked on the dust clouds swirling in the driveway where my uncles’ trucks had just torn out.
+
+"You're seventeen, Elijah," he said, his voice dropping into that low, rhythmic cadence he used when he was trying to steady a room. "You're graduating in the spring. Your mother and we know you’ve been looking at colleges out of state. We know you've been pulling away."
+
+He finally turned to look at me. The anger from inside the house was gone, replaced by a hollow, exhausting desperation.
+
+"This family has a calling," he said, stepping closer and putting a heavy hand on my other shoulder, locking me between my parents. "Your grandfather built this church from the dirt. He built that pond so people could wash away their burdens. There is a right way to shepherd a flock, Elijah. A humble way. You don't exploit the desperate, and you don't turn the Gospel into a circus."
+
+I wanted to believe him. I wanted to look him in the eye and tell him I’d stay. But my gaze drifted past his shoulder, right through the mesh of the screen door he had just been testing.
+
+There, sitting on the kitchen island, was a stack of mail. Right on top was a notice from the county, stamped with aggressive, bold red ink: OVERDUE- DELINQUENT NOTICE.
+
+My dad was talking about keeping the legacy pure, but the physical house we were standing on was slipping through his fingers.
+
+"Your uncles... they want a corporation," he continued, completely unaware of where my eyes were glued. "They want to pave over everything we are for stadium seating and broadcast rights. But I need you to stay. I need you to take up this mantle when I'm gone. I need you in this business, son but you have to promise me you won't become what they are."
+
+I finally looked back at him, the red stamp on that letter burning into my retinas. "Dad..."
+
+Before I could ask about the bill, the breeze shifted.
+
+It wasn't a strong wind, just a lazy summer draft coming off the water, but it carried something heavy. It didn't smell like the usual musk of mud and summer algae. It smelled sharp. Sour. Like copper and stagnant, dead rain trapped under a tarp for too long.
+
+I choked back a cough, but neither of my parents seemed to notice. My dad was still waiting for my answer, completely blind to the fact that down at the bank, the first dark, oily line was already dry printing itself onto the grass.
+
+They let me do what my family had always done best: ignore the problem until it demanded attention.
+
+For the first week, everyone blamed the heat. Dad said the algae always got bad during dry summers. Mom lit citronella candles on the porch and kept helping the steady trickle of people who came to the pond, though I noticed more of them pinching their noses before stepping down to the bank.
+
+By the second week, the smell had settled over the property like a blanket. It wasn't just at the water anymore. It clung to the grass, drifted through the trees, and lingered in the humid air long after the sun went down. The bullfrogs had grown strangely aggressive too. Instead of croaking through the evenings, they hissed and lunged at anything that wandered too close. I'd watched two of them throw themselves at a blue heron until the bird finally gave up and flew away.
+
+The nights were the worst.
+
+My bedroom window faced the pond. Every summer before that, I'd slept with it open, listening to the frogs and cicadas until I drifted off. Now opening it meant inviting that smell inside. It crawled through the screen and settled into everything, my blankets, my clothes, even my pillow. Sharp. Sour. Metallic. Like something underneath the pond had been left to rot but refused to stay buried.
+
+I started sleeping with the window shut.
+
+Even then, I swear I could still smell it.
+
+I spent most nights staring at the ceiling instead of sleeping, wondering if I was imagining it or if everyone else had simply decided to pretend it wasn't there.
+
+I couldn't stop thinking about the choice my dad had laid in front of me. Stay and inherit a church that was drowning in debt, or leave for college and hope they could keep everything together until I came back. Every answer felt like abandoning someone.
+
+Once again, I didn't get to choose when the conversation happened.
+
+I was standing in the kitchen one afternoon, keeping an eye on my mom through the window. She was sitting by the pond with a handful of the regular visitors. They weren't acting strangely toward her, they barely seemed to notice the smell anymore, but they kept kneeling at the water's edge, staring into it for long stretches without saying much. The bullfrogs, meanwhile, were throwing themselves at anything that moved, picking fights with birds, squirrels, even each other.
+
+"Elijah, we need to talk."
+
+I turned to see my dad standing in the doorway.
+
+"I'm not-"
+
+He raised a hand, cutting me off.
+
+"What I said wasn't fair. God didn't put you here so I could decide your future."
+
+I blinked. "What changed your mind?"
+
+He smiled, though it looked tired.
+
+"Your mom, mostly. And a lot of prayer. Maybe a little humility." He leaned against the counter. "Whatever you choose... I want it to be because it's what you want."
+
+"I mean... if I go to college, eventually I can get a decent job. I could work while I'm there and send money back home."
+
+His brow furrowed.
+
+"Send money back? What are you talking about?"
+
+I hesitated.
+
+"Dad... I saw the county notice."
+
+For just a moment, something crossed his face.
+
+Not anger.
+
+Defeat.
+
+"That wasn't something you should've been worrying about," he said quietly. "And you don't have to anymore."
+
+The certainty in his voice should've been reassuring.
+
+Instead, it made the pit in my stomach sink even deeper.
+
+"What, did you find a pot of gold or something?" I asked.
+
+A tired smile tugged at the corner of his mouth.
+
+"Something better."
+
+He glanced out the kitchen window toward the pond.
+
+"John, David, and I are bringing the baptisms back. Like the old days."
+
+I stared at him.
+
+"The three of you? Together?"
+
+He nodded.
+
+"No cameras. No television crews. No miracle claims. Just people, the pond, and the Lord."
+
+I couldn't help but laugh.
+
+A short, bitter one.
+
+"You were just telling me not to become them. Not to turn faith into a circus. What changed?"
+
+His shoulders sagged.
+
+"Nothing changed."
+
+"It sounds like everything changed."
+
+He shook his head.
+
+"No. It's not my place to put the sins of my brothers on your shoulders. That's mine to answer for." He folded his arms, searching for the right words. "Maybe I was so busy fighting them that I forgot they were still my brothers."
+
+He looked back toward the pond.
+
+"If people start coming here again, really coming here, not for a spectacle, not for television... maybe they'll remember what this place was built for. Maybe they'll remember why your grandfather dug that pond in the first place."
+
+He smiled, but it looked more hopeful than convinced.
+
+"And maybe... it'll keep this family together."
+
+Dad clapped his hands together, the first genuine smile I'd seen on his face in weeks.
+
+"Think you could help me with something?"
+
+"What?"
+
+"Grab those folding chairs from the garage. We need to get them down by the pond."
+
+I looked out the window.
+
+"We're actually doing this?"
+
+He nodded.
+
+"We're actually doing this."
+
+We carried the chairs down the hill in silence. Dad whistled under his breath while he worked, stopping every few minutes to straighten a row or adjust the small wooden podium he'd borrowed from the church. He looked... lighter. Like someone had taken a hundred pounds off his shoulders.
+
+I wished I felt the same.
+
+By the time we finished, trucks and cars had started pulling into the driveway.
+
+More than I'd expected.
+
+Usually there'd be five or six regulars scattered around the pond on any given afternoon.
+
+This time there had to be twenty people, maybe more.
+
+Some carried Bibles.
+
+Others carried towels draped over their shoulders.
+
+They smiled at Dad as they walked past, thanking him for bringing the baptisms back.
+
+He thanked every single one of them for coming.
+
+An old sedan pulled in last.
+
+A little girl jumped out before her dad had even shut the driver's door.
+
+She couldn't have been older than seven.
+
+She ran a few steps toward the pond before stopping abruptly.
+
+"Daddy?"
+
+He looked up from unloading a cooler.
+
+"What is it?"
+
+She wrinkled her nose.
+
+"It smells weird."
+
+He laughed.
+
+"That's just pond water, sweetheart."
+
+"It didn't smell like that at Grandma's pond."
+
+"Every pond's different."
+
+She accepted the answer with a shrug and skipped toward the others.
+
+I looked at Dad.
+
+He hadn't reacted at all.
+
+Mom was already making her way through the crowd, handing out folded church pamphlets and greeting everyone by name.
+
+She smiled at every person she met.
+
+Asked about their families.
+
+Thanked them for coming.
+
+But every time someone drifted too close to the water's edge...
+
+Her smile faded.
+
+Just for a second.
+
+Her eyes followed them until they stepped back again.
+
+It wasn't the look of someone worried they'd fall in.
+
+It looked...
+
+Protective.
+
+Like she didn't trust the pond with them.
+
+Or maybe she didn't trust them with the pond.
+
+I couldn't tell which.
+
+The smell rolled across the bank again.
+
+Stronger than ever.
+
+Nobody flinched.
+
+Nobody pinched their nose.
+
+Nobody even mentioned it.
+
+I set the last chair in place.
+
+"I'll be inside," I muttered.
+
+Dad gave me a disappointed look, but he didn't stop me.
+
+"Suit yourself."
+
+I walked back up the hill and into the kitchen.
+
+The window over the sink looked straight down at the pond.
+
+I stood there with my arms folded, watching the crowd gather.
+
+Watching my father open his Bible.
+
+Watching my uncles take their places beside him.
+
+And wondering why I suddenly felt safer watching them through a pane of glass than standing beside them.
+
+The sermon must've been good.
+
+Even from the kitchen, I could hear the shouting. The crying. The kind of joyful noise I hadn't heard since I was a kid.
+
+That day set off a chain reaction.
+
+One baptism became three.
+
+Three became ten.
+
+Every weekend brought more cars into the driveway.
+
+More folding chairs.
+
+More towels.
+
+More people walking into that water.
+
+And every single day...
+
+The smell got worse.
+
+What had started as stagnant pond water turned into something I still don't have words for. Rot wasn't strong enough. Dead animals weren't close. It smelled ancient, like something had been buried beneath that pond long before my grandfather ever put a shovel in the ground.
+
+The water changed, too.
+
+The clear green I'd grown up with faded into a murky brown. Thick black streaks collected along the shoreline like oil refusing to mix.
+
+Dad didn't seem to notice.
+
+Or maybe he chose not to.
+
+Attendance was climbing.
+
+Donations were climbing.
+
+For the first time in months, the overdue notices stopped showing up in the mail.
+
+Dad smiled again.
+
+The house smiled with him.
+
+Mom hummed while she cooked.
+
+The phones rang.
+
+People stopped by just to thank him.
+
+For the first time in a long time...
+
+Everything looked like it was finally getting better.
+
+I didn't have the heart to ruin that.
+
+Not until the turtles started getting sick.
+
+The shells on the ones I'd grown up catching split open into raw, bleeding sores. Fish floated belly-up at the surface for hours before swimming away again. Even some of the regular visitors had started developing red, peeling patches around their ankles where the pond water had touched them.
+
+That's when I finally said something.
+
+"We need to do something about the pond."
+
+Dad looked up from his plate.
+
+"About what?"
+
+"The pond."
+
+I leaned forward.
+
+"It's starting to stink so bad I can smell it from my room at night. The turtles are covered in sores. The fish are dying. Even people are starting to get those spots on their legs."
+
+Dad chuckled.
+
+"That's just the sins being washed away."
+
+He smiled at his own joke.
+
+When I didn't smile back, the grin slowly disappeared.
+
+He sighed.
+
+"Alright."
+
+He pushed his plate away.
+
+"I guess I'll get somebody out here tomorrow to take a look."
+
+He stood and reached for his phone.
+
+"I'll call Devin. Maybe one of his boys can come out and test the water."
+
+"No."
+
+The word barely rose above a whisper.
+
+Dad stopped.
+
+It wasn't loud.
+
+It wasn't angry.
+
+It was the first time I'd ever heard my mother interrupt him.
+
+Slowly, he turned toward her.
+
+"Honey?"
+
+She hadn't touched her dinner.
+
+She was staring at her plate.
+
+"Don't."
+
+Dad frowned.
+
+"Why?"
+
+Silence.
+
+"It's just somebody checking the pond."
+
+Her fingers tightened around her fork.
+
+"I said don't."
+
+The room went still.
+
+Even Dad didn't seem to know what to say.
+
+My mother finally looked up.
+
+She wasn't looking at my dad.
+
+She was looking at me.
+
+Then, almost instinctively...
+
+...her eyes drifted toward the kitchen window.
+
+Toward the pond.
+
+The room stayed silent.
+
+Dad slowly set his phone back on the table.
+
+"Alright."
+
+He didn't sound convinced.
+
+"If it means that much to you."
+
+Mom didn't answer.
+
+She simply picked up her fork and started eating as though nothing had happened.
+
+Nobody ever came to test the pond.
+
+At first, I thought Dad had simply forgotten.
+
+Then one Sunday, a white cargo van rolled into the driveway.
+
+Not a truck from the county.
+
+Not an environmental company.
+
+A production crew.
+
+Three men climbed out carrying cameras while another unloaded lights and microphones from the back.
+
+My uncles stepped out behind them like they owned the place.
+
+John spotted me standing on the porch.
+
+"Elijah!"
+
+He spread his arms wide like we were old friends.
+
+"Come help us unload."
+
+"What is all this?"
+
+He grinned.
+
+"We're finally doing it right."
+
+By noon, extension cords snaked across the yard.
+
+Reflectors hung from trees.
+
+The folding chairs had been rearranged so every face pointed toward the pond.
+
+Dad stood beside the water, nervously adjusting his tie while one of the cameramen clipped a microphone to his collar.
+
+He caught me watching.
+
+"I know what you're thinking."
+
+"Do you?"
+
+His smile faltered.
+
+"This isn't television ministry."
+
+"It looks an awful lot like television."
+
+"It's outreach."
+
+I laughed.
+
+"That's a new word for it?"
+
+He looked away.
+
+"More people deserve to hear God's word than can fit around this pond."
+
+"And the cameras help with that?"
+
+"They're just tools."
+
+"So was the Tower of Babel."
+
+He rubbed the bridge of his nose.
+
+"You sound just like your grandfather."
+
+"I thought you'd take that as a compliment."
+
+For a second...
+
+I think he wanted to.
+
+Then John called his name.
+
+Dad walked toward the cameras.
+
+He never answered.
+
+The filming changed everything.
+
+Every week there were more people.
+
+More cars.
+
+More donations.
+
+Churches from neighboring counties wanted to affiliate with us.
+
+Then neighboring states.
+
+People started driving six... seven... eight hours just to step into that water.
+
+Nobody talked about the smell anymore.
+
+Not even the little girl.
+
+I wondered if they couldn't smell it...
+
+Or if they'd simply decided it was holy.
+
+The pond kept changing.
+
+The black stains spread farther along the shore.
+
+The fish stopped jumping.
+
+The frogs stopped croaking.
+
+At night, all you could hear was the water.
+
+Slow...
+
+Gentle...
+
+Like something breathing.
+
+No matter how many times I argued with Dad, nothing changed.
+
+Every conversation ended the same way.
+
+"It's outreach."
+
+"It's saving souls."
+
+"It's what your grandfather would've wanted."
+
+I stopped bringing it up.
+
+Not because I'd changed my mind.
+
+Because nobody else seemed to think there was anything left to argue about.
+
+The cameras became permanent.
+
+Then the lights.
+
+Then the sound equipment.
+
+The folding chairs disappeared altogether, replaced by rows of white benches overlooking the pond.
+
+The first time I saw a drone hovering over the baptisms, I almost laughed.
+
+Dad would've thrown those people off the property six months earlier.
+
+Now he smiled into the camera like he'd been doing it his whole life.
+
+My uncles called it growth.
+
+Dad called it reaching more people.
+
+I called it surrender.
+
+It still wasn't enough.
+
+One evening John and David asked me to stay after everyone else had left.
+
+John slid a plastic bottle across the table.
+
+No label.
+
+Just clear water.
+
+"We've got an idea."
+
+I never touched it.
+
+"What kind of idea?"
+
+David leaned forward.
+
+"There are people who'll never make it here."
+
+"So?"
+
+"So we bring Bethesda to them."
+
+I stared at the bottle.
+
+"You want to sell pond water?"
+
+"Healing water," John corrected.
+
+"People already fill jars and take it home."
+
+"We're just making it easier."
+
+"We want you to be the face of it," David added.
+
+"People trust you."
+
+"They see a pastor's son."
+
+"They'll listen."
+
+My stomach turned.
+
+All I could think about were the regulars.
+
+The raw red patches climbing their ankles.
+
+The scratch marks that never seemed to heal.
+
+The sores spreading across their faces that everyone blamed on the meth epidemic tearing through the county.
+
+Nobody blamed the pond.
+
+Nobody ever blamed the pond.
+
+I pushed the bottle back across the table.
+
+"No."
+
+John frowned.
+
+"You don't even want to pray about it?"
+
+"No."
+
+David sighed.
+
+"You're making a mistake."
+
+"No," I said.
+
+"I think all of you already did."
+
+I wish I could tell you I fought harder.
+
+I called the sheriff's office.
+
+I called the county health department.
+
+I called anyone who would listen.
+
+Nobody did.
+
+Or maybe they already had.
+
+Every conversation ended the same way.
+
+"Pastor Montgomery has done a lot of good for this county."
+
+"I'm sure there's a reasonable explanation."
+
+"We'll look into it."
+
+Nobody ever did.
+
+Within a month, churches I'd never heard of were advertising baptisms with water shipped directly from Bethesda Pond.
+
+People lined up for it.
+
+People swore by it.
+
+People said their arthritis disappeared.
+
+Their migraines vanished.
+
+Their tumors shrank.
+
+Maybe they were telling the truth.
+
+That was the worst part.
+
+Something in that water really did work.
+
+Every miracle brought more people.
+
+Every person brought more money.
+
+Every dollar made it harder for anyone to question it.
+
+Even when the smell reached town.
+
+Even when birds started dropping out of the trees.
+
+Even when dogs refused to drink from the creeks that fed our pond.
+
+Nobody wanted to hear me.
+
+Not over the people who stood up from wheelchairs.
+
+Not over the parents crying because their child finally opened their eyes.
+
+Hope is louder than reason.
+
+I learned that too late.
+
+The last time I saw my mother, she was sitting on the bank where she'd always sat.
+
+The water had reached her shoes.
+
+She didn't seem to notice.
+
+She just stared into the pond.
+
+Smiling.
+
+Like she was listening to someone I couldn't hear.
+
+Dad was in the middle of another baptism.
+
+Except he wasn't talking about God anymore.
+
+Not really.
+
+He never said it outright.
+
+He didn't have to.
+
+The words had changed.
+
+The Lord provides.
+
+The water provides.
+
+The Lord heals.
+
+The water heals.
+
+The Lord calls us home.
+
+Come to the water.
+
+Nobody else seemed to notice.
+
+Or maybe they did.
+
+Maybe they just didn't care.
+
+Yesterday my uncles announced the first nationwide shipment.
+
+Bethesda Healing Water.
+
+They said every bottle was drawn from the original pond.
+
+By the time you read this, there's a good chance one of those bottles is sitting on a store shelf somewhere.
+
+Or in your neighbor's refrigerator.
+
+Or in your own house.
+
+If someone offers you a drink...
+
+Don't.
+
+I don't know what lives in that pond.
+
+I don't know why it heals people.
+
+I don't know why everything around it rots while the people inside it swear they've never felt better.
+
+I only know it wants to spread.
+
+And I think it already has.
+
+There's only one thing left that I haven't tried.
+
+For weeks I've dreamed about drinking it.
+
+Not because I want to.
+
+Because every night I wake up with the same thought.
+
+It isn't my own.
+
+*You'll understand.*
+
+Maybe it's calling me.
+
+Maybe it's showing me how to stop this.
+
+Or maybe that's exactly what it wants me to believe.
+
+I don't know anymore.
+
+The bottle is sitting beside me.
+
+I filled it myself before anyone else woke up.
+
+If this is the last thing I ever write...
+
+Don't make the same mistake my family did.
+
+Don't mistake a miracle for something holy.
+
+I'm going to drink it now.
+
+If I learn how to stop this...
+
+I'll come back.
+
+If I don't...
+
+Pray you never smell a pond that reminds you of home.
+

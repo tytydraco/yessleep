@@ -1,0 +1,301 @@
+The last thing Mia said before leaving me alone in the old station was, “Keep your keys on you.”
+
+I laughed, because I thought she was joking.
+
+I’d only been working at the place for thirteen days. It was a horror-themed escape room built inside a disused underground station, the kind of job that sounded fake when you tried to explain it to people. My friends thought it was cool. I thought it was perfect. I loved horror, needed the money, and didn’t mind working somewhere that permanently smelt of dust, damp concrete and old metal.
+
+The company had done a decent job remodelling the place. The ticket hall was now the reception. The old staff rooms had been turned into offices and storage cupboards. The platforms and tunnels had been split into escape rooms with names like The Blackout, Last Train, and The Shelter. Still, no matter how many fake cobwebs they hung or plastic skulls they screwed into the walls, you could always tell what the building used to be.
+
+On my first shift, the manager asked how long I thought I’d last.
+
+“Until I get fired, probably?” I hesitated, not wanting to say the wrong thing.
+
+He smiled at that, but not like it was funny.
+
+“Most people say that.”
+
+Everyone who worked there was a little strange, but that was to be expected at a place like this. So when my coworkers said weird, creepy things, I assumed they were just trying to scare me in their own deadpan sort of way.
+
+On my third shift, Josh told me not to go into The Shelter after eleven.
+
+“Why?” I asked, glancing up from the stack of clue cards I’d been told to sort. 
+
+He shrugged, like I’d asked where we kept the spare pens. “It gets cold.”
+
+“It’s an underground station. Everything gets cold.”
+
+“No,” he said. “Not like that.”
+
+I waited for him to laugh. He didn’t.
+
+A few days later, Mia was showing me how to reset Last Train after a group had finished. She walked me through the padlocks, the hidden compartment beneath one of the seats, the fake blood capsule we had to replace if someone triggered the wrong clue. Then, just as we were leaving, one of the old ticket windows slammed shut behind us.
+
+I jumped.
+
+Mia didn’t even flinch.
+
+“If the windows close on their own, ignore it,” she said.
+
+I stared at her. “That happens often?”
+
+“Only when it’s busy.”
+
+I laughed, because again, I thought I was supposed to. Nobody else ever did.
+
+My first closing shift alone was on a Wednesday.
+
+Wednesdays were quiet. Usually, we’d get a couple of groups after work and maybe a birthday booking if we were unlucky. Nothing like the weekends, when the place was filled with drunk office workers and teenagers trying to prove they weren’t scared.
+
+That evening, there were only two groups booked in. One was already halfway through Last Train, and the other had just gone into The Blackout. The reception area was empty except for me and Mia, who was leaning against the front desk with her coat already on, running through the closing procedure for the third time.
+
+“Reset the rooms once the last group leaves,” she said, counting the steps off on her fingers. 
+
+“Check the toilets. Turn off all the lights. Lock the front door from the inside before you cash up, just in case anyone tries to wander in late.”
+
+I nodded, trying to look more confident than I felt.
+
+“And The Shelter?” she asked expectantly.
+
+“Locked before eleven,” I said.
+
+“Good.”
+
+She held my gaze a little too long.
+
+I smiled awkwardly. “Because it gets cold?”
+
+Mia didn’t smile back.
+
+“Because it gets cold,” she said firmly.
+
+Then she reached across the desk and tapped the keys clipped to my belt loop.
+
+“Ignore the strange noises. Don’t go looking for anything after close. And keep your keys on you.”
+
+I laughed under my breath. “You all really commit to the bit.”
+
+Mia picked up her bag from behind the desk.
+
+“Yeah,” she said, walking towards the door. “That’s what everyone says.”
+
+The bell above the front door chimed as she stepped out into the street. For a moment, I watched her through the glass as she pulled her hood up against the rain. Then she turned back and mouthed something. I couldn’t hear her, but I didn’t need to.
+
+Keep your keys on you.
+
+For the first hour, everything was normal.
+
+The last group of the night were making their way through The Blackout, which meant I had nothing to do except wait for them to finish. I sat behind reception, catching up on some university work on my laptop, occasionally glancing up at the CCTV monitors opposite me.
+
+Every room was exactly as it should be. The customers were arguing over clues, laughing whenever someone triggered a jump scare, and taking far longer than they should have to solve the puzzles.
+
+Then something moved on one of the screens.
+
+Not in The Blackout.
+
+The Shelter.
+
+I looked up properly, my fingers still resting on the keyboard.
+
+The camera feed was grainy and grey, the way it always was in that room. The Shelter had been designed to look like an old wartime bunker, with rows of wooden benches, cracked tiles, sandbags piled against the walls and a fake collapsed doorway at the far end. It was one of our best rooms, apparently. I hadn’t worked there long enough to be trusted with resetting it on my own yet.
+
+The room was supposed to be empty.
+
+I leaned closer to the monitor and for a second, I thought I saw someone move between the benches. Just a dark blur slipping from one side of the screen to the other.
+
+Then it was gone.
+
+I checked the booking system. No one was supposed to be in The Shelter. My eyes drifted to the old station clock mounted above reception.
+
+11:05.
+
+“Shit,” I muttered.
+
+Mia’s voice came back to me at once.
+
+The Shelter. Locked before eleven.
+
+I stood up quickly, trying to ignore the sudden tight feeling in my chest. It was fine. Five minutes wasn’t exactly a disaster. Maybe the cameras were glitching. Maybe Josh or Mia had left something in there to mess with me. That seemed like the kind of thing they’d do.
+
+Probably.
+
+The corridor to The Shelter seemed longer than it had earlier. With every step, the air grew colder. Not the ordinary underground chill I’d already got used to, but something sharper. Deeper. Like the cold had been waiting behind the walls and had only just made its way out.
+
+By the time I reached the door, goosebumps had risen along both my arms. I stopped with my hand hovering over the handle. There were voices inside. 
+
+Not one voice.
+
+Dozens.
+
+Low, overlapping whispers on the other side of the door, too quiet for me to make out individual words but too clear to be mistaken for pipes or old speakers. It sounded like a crowd trying very hard not to be heard.
+
+My fingers trembled as I reached for my keys. For one horrible second, I couldn’t find them. Then my hand closed around the cold metal clipped to my belt loop, and I let out a breath I hadn’t realised I was holding.
+
+“Just lock it,” I whispered to myself. “Lock it and go back.”
+
+The key slid into the lock easily. From inside the room, the whispers stopped. All at once. I turned the key. The lock clicked, and for a moment, nothing happened. I stepped back.
+
+“Okay,” I said under my breath, forcing out a strained laugh. “That’s fine. That’s probably fine.”
+
+It was only five minutes after eleven. Maybe my coworkers were messing with me. Maybe this was some stupid prank they pulled on the new starter.I kept telling myself that as I walked back to reception. I did not run.
+
+By the time I got back to reception, The Blackout had five minutes left on the clock.
+
+I sat down, opened my laptop, and tried to focus on the paragraph I’d been halfway through before the camera moved. I stared at the screen until the words stopped looking like words.
+
+Then the timer on The Blackout hit zero.
+
+A few seconds later, the door at the far end of the corridor opened and the last group stumbled out, laughing too loudly in the way people do when they’re trying to shake off fear.
+
+There were four of them, all in their early twenties, still buzzing from the room. One girl was clutching her friend’s sleeve, insisting she hadn’t screamed that loudly. Another was accusing the tallest guy of hiding behind her during the final blackout.
+
+“You absolutely shoved me forward,” she said, poking him in the arm.
+
+“I was protecting you.”
+
+“You were using me as a human shield.”
+
+I forced a smile as they came over to collect their phones and bags from the lockers.
+
+“Good room?” I asked.
+
+“Yeah, it was sick,” the tallest guy said, still grinning. “Proper scary.”
+
+“The crying woman was horrible,” one of the girls added, laughing as she pulled on her coat. “Like, genuinely horrible. Whose idea was that?”
+
+I froze for a moment before looking up from the locker keys.
+
+“What crying woman?”
+
+“The one in the corner,” she said. “Near the end, when all the lights went out.”
+
+Her friend nodded quickly. “She was just sitting there, sobbing. I thought she was a mannequin at first, then she moved.”
+
+An uneasy feeling settled low in my stomach. There was no crying woman in The Blackout. There were no actors assigned to that room at all. I glanced past them towards the corridor, where the open door to The Blackout waited in the dim light.
+
+“Right,” I said, forcing another smile. “Yeah. She’s… new.”
+
+The group laughed, impressed.
+
+“Tell her she was terrifying,” the girl said.
+
+“I will,” I said.
+
+They gathered their things and headed for the exit, still giggling, still accusing each other of screaming first. The bell above the front door chimed as they left and the station fell quiet again.
+
+After they left, I checked the monitor for The Blackout. The corner they had pointed out was empty. That somehow made it worse. I still had to reset the room.
+
+For a few seconds, I stood behind the desk, staring at the screen and trying to convince myself that they had imagined it. The lights in The Blackout were dim by design. Half the room was hidden in the shadows. It was probably just a coat, or a prop, or one of them winding me up because they knew I was new.
+
+Probably.
+
+I picked up the reset checklist from the desk and reached for my keys. They were still clipped to my belt loop. I checked twice before walking down the corridor.
+
+Resetting The Blackout went fine.
+
+Was I a little paranoid? Maybe. I checked behind the curtains more than I needed to. I turned around every time the old flooring creaked. Once, I caught my own reflection in the cracked mirror beside the fake fireplace and nearly dropped the prop lantern I was holding.
+
+But nothing happened.
+
+No crying woman. No strange figures in the corner. No whispers pressed against my ear.
+
+By the time I finished resetting the final lock and ticking everything off the checklist, I had almost managed to convince myself that the whole thing was just my imagination. The customers had probably mistaken a coat for a person. The movement on The Shelter camera was probably a glitch. The whispering had probably been old pipes, or speakers, or sound bleeding through from The Blackout.
+
+I was halfway back to reception, ready to start cashing up and get out of there, when the front door bell chimed.
+
+I stopped.
+
+A second later, I heard footsteps. Heavy boots on tile. My stomach dropped as I remembered Mia’s closing instructions. Lock the front door from the inside before you cash up. I’d forgotten.
+
+“Sorry,” I called, hurrying the rest of the way down the corridor. “We’re closed.”
+
+The words died in my throat. The reception was empty.
+
+The front door was shut. The street outside was dark and wet, rain shining beneath the orange glow of the streetlights. No one stood on the pavement. No one waited by the desk. No one had just walked in.
+
+I stared at the door for a few seconds, listening.
+
+Nothing.
+
+I forced out a shaky laugh and rubbed both hands over my face.
+
+“Brilliant,” I muttered. “I’m actually losing it.”
+
+I reached for the keys clipped to my belt loop.
+
+My fingers found nothing.
+
+For a moment, I just stood there, patting the same empty patch of fabric like they might appear if I checked enough times.
+
+Then the panic hit.
+
+I checked my pockets. My hoodie. My bag. The desk. Under the chair. Beside the lockers. I walked the corridor back towards The Blackout, scanning the floor, trying to remember the last time I’d felt them against my hip.
+
+They had been there. I knew they had been there. I had checked twice before resetting the room.
+
+“Come on,” I whispered. “Come on, come on, come on.”
+
+I was passing The Shelter when the temperature dropped. It wasn’t gradual this time. The cold rushed out from under the door, biting through my clothes and raising every hair on my arms. The lights above me flickered once, then steadied.
+
+And behind me, very softly, something jingled.
+
+My keys.
+
+I turned around.
+
+A little girl stood at the end of the corridor.
+
+She couldn’t have been more than seven or eight. Her dress looked old, the fabric grey and shapeless with dirt, and in one hand, she held a worn teddy bear by its leg. 
+
+In the other, she held my keys.
+
+She was pale in a way no living person could be pale. Not just white, but washed out, like someone had drained all the colour from her and left only the shape behind.
+
+She looked straight at me. Then she lifted the keys and jingled them once.
+
+“Mum said you can open the door,” she said.
+
+My mouth went dry. Behind her, something moved in the darkness. Not one thing.
+
+Many.
+
+Shapes gathered in the corridor behind the girl, pressed close together in the gloom. Men in long coats. Women with scarves tied around their heads. Children clutching sleeves. Faces grey with dust. Eyes wide and waiting.
+
+The whispering started again. Only this time, I could make out the words.
+
+“Open it.”
+
+“Please.”
+
+“Let us out.”
+
+“The air’s gone.”
+
+The little girl took one step towards me.
+
+“Mum said you have the keys.”
+
+Something inside me broke.
+
+I ran.
+
+I didn’t think about the cash. I didn’t think about the lights. I didn’t think about the front door, or the alarm, or the fact that I was probably getting fired. I grabbed my bag from behind the desk and shoved through the front door so hard the bell above it screamed.
+
+The last thing I heard before I reached the street was the sound of my keys jingling behind me.
+
+Not chasing.
+
+Sobbing.
+
+I never went back.
+
+I didn’t answer Mia’s calls. I didn’t reply to Josh’s texts. I blocked the work group chat before anyone could ask me to explain why I’d left the front door open and the alarm unset.
+
+But Mia sent one message before I blocked her.
+
+It was a photo of the rota.
+
+My name had been crossed out in red pen.
+
+Beside it, in Mia’s neat handwriting, she had written:
+
+**Thirteen days. Longer than most.**

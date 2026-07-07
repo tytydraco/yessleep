@@ -92,7 +92,7 @@ We would get out of the room through my window which led into the backyard. I sc
 
 Eventually Max pulled the window open, then whatever was hitting the door instantly stopped. I didn’t know what was going to happen next but I wasn’t going to stick around and see. Max was yelling at me to go and I ran towards the window at a great speed. Right as I stepped outside, the window slammed shut.
 
-Max was pulling onto the window on the other side, i could see the fear in his eyes. I wanted to help him but I couldn't, the window only opened on the inside. I was forced to do nothing watch and hope he would find a way out.
+Max was pulling onto the window on the other side, i could see the fear in his eyes. I wanted to help him but I couldn't, the window only opened on the inside. I was forced to do nothing but watch and hope he would find a way out.
 
 I jumped as i heard the door being knocked down from the other side. It was so loud I was sure it woke the whole street. I watched in complete despair as i saw Max for the last time. He was screaming and looking helplessly at me with a kind of desperation and sadness in his eyes i hope nobody has to see.
 
