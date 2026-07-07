@@ -1,0 +1,75 @@
+It all started when I was 5, and he finally spoke to me. For years, I knew someone was in the attic, like a child knows there's a monster under his bed—the ceiling creaking at night, the scratching sounds my parents chalked up to rodents when I inevitably yelled for them to comfort me. For a while, I believed them, until he spoke to me. It was a regular night. I was crying myself to sleep because I was having food issues once again, and my mother had gotten frustrated with me and sent me to bed an hour early without dinner. I was feeling sorry for myself, pulling my hair out from frustration, and throwing a massive tantrum because I felt the injustice of it all at the hands of a young mom who didn't know how to accommodate my needs.
+
+“Don't cry, Mary”
+
+I shot up in bed, and I remember I immediately stopped crying. I contemplated calling for my mom but didn't want to frustrate her further with childish nonsense, so I called out for him.
+
+“Hello?”
+
+He told me his name was Mark, he lived in the attic, he was 10 years old and had been watching over me since I was a baby. As a child, I believed him, and we would talk for hours.
+
+“Go to your window and describe what you see,” he said, his voice sweet and joyful for a kid confined to an attic.
+
+“I see a tree, and there are two cars in the driveway, one red and one blue, and I see grass with patches of dirt.” My descriptions left something to be desired at that age, I'm sure, but he never pried.
+
+He would ask me how my day was, and I would crouch down to where the wallpaper peeled and a crack in the wall ran all the way to the ceiling. I would knock on the wall to let him know I was there and listen for the creaks in the wood and the soft padding sounds of his footsteps. I would tell him all the things that were new to me and old memories to him. But sometimes at night, I heard him sob. When I called out for him in these moments, he never answered; he was content to be alone and comfort himself as he had long done before me. I had thought about going into the attic before, but it was in my mom's office, which I was explicitly banned from and remained locked 24/7.
+
+It wasn't till we had been talking for a couple of months or maybe a couple of weeks that I had seen him, well, part of him. I had gotten home from church on a Sunday evening, but when I entered my room, I immediately heard his sobs that were closer and heavier than ever before. My heart sank. I rushed to his side, knocking on the wall.
+
+“Mikey? What's wrong? I'm here” I sat down leaning against the wall and all he did was sob i couldn't help him if he wouldn't talk to me, I couldn't hug him if he was on the other side of the wall so I found a hammer and I began to chip away at the crack in the wall slowly but surely creating a hole big enough to slip my hand through and grab his. he begged me not to, he tensed and recoiled from my touch when my finger grazed him, I reached for him he needed me and he was always there when I needed him, I was scared don't get me wrong sticking your hand into a dark hole in the wall is frightening but he needed me and I needed him to know that I cared. When I felt his hand in mine, I was confused. He was cold, so cold. I squeezed his hand, and he squeezed mine.
+
+“I'm here for you, Mikey. You can talk to me if something's hurting you; I can kill it. I have a hammer,” but he just laughed.
+
+“That's my job, Mary”
+
+I was overcome with emotion at that moment. I remember crying. I felt safe in that moment. Every time from that point forward, we held hands. Every time we talked, it didn't matter if we were happy or sad; we held hands.
+
+​
+
+It wasn't until I was 10 that I began to think what we had was weird. When I tell the story of Mikey People often ask me why I never told my parents about Mikey but you have to understand I was young and more afraid of my mom's wrath than I was of anything else and so often confined in my room for some misdeed I had done I needed Mikey around and in my eyes if my parents found out Mikey was living in the walls he would be sent away and I would be left without a friend. I knew other kids didn't have friends in their walls, but I never thought to keep it a secret, either. I didn't have the forethought to think what I said at school could get back to my parents. I'm sure you know how brutal kids can be, and I was always new, but it never stopped me from saying what I wanted to say, no matter how many times I got excluded by the girls who I believed to be my friends. One day, I got called into the counselor's office, like I had been many times before, for my mental breakdowns at school. It started off typical with the formalities showing your homelife, how do you feel, are you okay, but took a turn when she mentioned Mikey.
+
+“So, some of your classmates have mentioned some troubling things to your teacher and me. I was hoping you could help me make sense of things,” she said in that condescending calm voice that all shrinks have.
+
+“Who's Mikey Mary?”
+
+“The boy in my wall,” I stated matter-of-factly, knowing well enough by now lots of questions would follow, and I would be brushed off as crazy or weird.
+
+“And this boy, what does he look like?” she asked, maintaining a calm judgment-free expression that made me boil with rage for some reason.
+
+“How should I know he's in the wall?” My patience was wearing thin, probably because I had skipped lunch that day.
+
+“Oh, I see how silly of me to ask that question, mm, does your mom know about the boy in the wall”
+
+And that's when it occurred to me that I had never thought to ask. I always assumed I would get in trouble or get Mikey in trouble, and I didn't want to do that, but now she was going to know because I didn't know how to keep my big mouth shut. I was probably going to be locked in my room all weekend, and this time there would be no Mikey.
+
+“Please don't tell her! Please,” I begged, feeling heat well up in my face, and my eyes began to water
+
+“Mary, if there is a boy on your wall, I'm going to need to call the cops to get him out of there or, at the very least, tell your mom.”
+
+“You can't! Please, you can't tell my mom we'll be in so much trouble, please don't tell her!”
+
+It was no use, no matter what I did, no matter how much I cried or slammed my head into things, it only made me look more insane. That day, my mom picked me up from school early with a warning to get me into some sort of therapy, or CPS would be contacted. She was pissed, I knew she would be. I had made her look like a bad mom, or at the very least, neglectful enough not to recognize that her daughter was hearing voices. When we got in the car, she went to start it and paused, turning to look at me, her lip quivering slightly.
+
+“Do you want to go to the hospital, Mary? Is that what you want? And you're hearing things. Why didn't you tell me, Mary? I'm your mother, you can tell me anything. You know this.” Tears fell from her face, and she clutched the steering wheel, trying to rein in her frustration
+
+“How long has this been going on? Tell me now,” she said, very angry but sad at the same time. She shot me the kind of look she gave me when I wouldn't eat that I now recognize as helplessness. But of course, I lied and said I only recently started hearing him never mention the hole in the wall.
+
+Later that day, she unlocked her office, took me up to the attic, and showed me around, showed me how it was impossible for someone to climb into the walls, and I was shattered. All that was there were boxes and mouse droppings, nothing else. She patched up the hole in my wall and got me into therapy. I started taking meds, and for a while, everything felt like a dream.
+
+I started taking meds, and for a while, everything felt like a dream. Hell, I even joked about my bout of schizophrenia with my friends. It was funny to me. I can't believe I ever laughed about it. I'm now 15. I don’t see a therapist anymore, but still routinely take my meds, though recently I've started hearing the knocking again, except this time it's more like pounding. Just the other day, we were eating dinner, and the pounding came again right above our heads.
+
+BANG! BANG! BANG!
+
+It was so strange that my mom heard it too. She jumped slightly, dropping her spoon in her soup, but didn't look up from her meal. It couldn't have been a coincidence, could it?
+
+“Mom, you alright?” I said, reaching my hand out across the table to comfort her, but it was slapped away.
+
+“I'm fine, Mary is just tired, please can we just eat in silence?”
+
+Should have expected that much from my mother she wasn't the compassionate type as much as she wanted to be or wanted to be seen as. It was only when the thudding upstairs started rattling the table and silverware that she looked at me.
+
+“Mom?” I looked at her for answers, but all I saw was a look of guilt on her face.
+
+“Mary, I'm sorry, but I can explain”
+
+  
