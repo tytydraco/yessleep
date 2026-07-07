@@ -1,0 +1,175 @@
+Do you want to know why people get into gardening? It’s control. 
+
+Sure, people will say it’s because they want to see something grow or they just like flowers, but control is the root cause (excuse the pun). 
+
+You could take a walk in any public park and see as many flowers as you want. You could go to the farmers’ market and buy the freshest zucchinis you’ve ever eaten, but you don’t. 
+
+You want those flowers in your pot and the zucchini growing in your backyard.
+
+Nature’s everywhere for you to enjoy it hands free, but you want to have a say. 
+
+How do I know? I picked up gardening a month after I lost my job. I wanted one thing, just one tiny thing that I could hold onto and say, “yep, I did that, and tomorrow I decide what to do next with it.” 
+
+It wasn’t hard. I went to the local nursery and bought some native flowers: yellow brown-eyed susans and purple coneflowers.  I thought it would be a pretty combination. 
+
+But here’s where I made the mistake.
+
+“Hi, how are you?” I waved at the clerk behind the counter.
+
+She gave me a nonchalant smile and pulled out her headphones.
+
+A deafening, monotone scream jumped from the earbuds to the phone in her pocket. 
+
+“Oh, I’m sorry!” she said, quickly tapping the volume down to zero.
+
+“Oh, no big deal!” I waved it away. Was that music? It didn’t sound like it.
+
+Regaining her composure “No fertilizer, huh?”  the lady behind the counter asked.
+
+“Do I need it?” 
+
+“If you want to be certain they’ll grow. This summer’s a scorcher; you don’t want to leave these plants up to chance, do you?” she was posing these questions like she already knew the answers to them.
+
+“I guess not, what do you have?”
+
+“It’s my own personal mix, trust me.” she placed a brown bag with the words “Mabel’s Magic” written in sharpie on the table.
+
+I picked up the bag and squeezed it. It seemed “soil-ey,” I guess, whatever fertilizer was supposed to feel like. I never actually held it before, but her words imbued the bag with a feeling of certainty, a promise everything would work out.
+
+“Sure, I’ll take it.”
+
+By the time the sun was setting, I was snapping the first photo of my perfect little garden. 12 native flowers in a neat row, and some of “Mabel’s Magic” mixed in. 
+
+Over the next several weeks I doted over those flowers. Through dry spells and thunderstorms, I checked on them every day and they rewarded me in inches. A month later and the brown-eyed susans were almost three feet tall, the coneflowers close behind. 
+
+It wasn’t until June, though, that I started to see trouble.
+
+Temperatures were rising, and some of my coneflowers were wilting. I looked it up online and the first instruction I got was to check the soil. Put a few fingers down to see if it’s still wet. Maybe my watering can wasn’t keeping up with the 100-degree heat.
+
+That seemed easy enough.
+
+I felt the base of my weariest plant, dry enough to justify my suspicions but I went deeper until I unexpectedly hit something hard, maybe rubbery, and then –
+
+“What the?” 
+
+I yanked my hand out. 
+
+“Did something touch me?”
+
+The soil was dry, but my hand was wet, slimy almost. I could have sworn something moist had ran across my fingers. “Maybe a worm? But why so hard and rubbery?”
+
+I looked around the ground. There were my sheers, a trough, and my garden gloves. “Why wasn’t I wearing these before?” I laughed to myself, one month in and still a total novice.
+
+I set my eyes back on the base of the coneflower, the stem rustled, almost like it was bracing itself for an inspection.
+
+I was inspecting it. I wanted to know what was in my garden bed.
+
+I pressed my whole hand down into the hole I had formed with my fingers and grabbed onto something oblong.   
+It started to move, like in a concentric circle, trying to free itself from grip.
+
+“This is *not* a worm.”
+
+I leaned deeper into the bed, trying to get myself some leverage when my hand slipped and I heard the sound of a carrot snapping in two.
+
+“aaaaahhhhhh!”
+
+I yanked my hand out as quickly as I could, but I only retrieved four fingers.
+
+I was still screaming when a second voice joined me in my panic.
+
+The only difference was that this one was angrier.
+
+“aaaaaaahhhhhh!” a thundering voice emanated from the base of the coneflower.
+
+All the flowers in the bed started to rumble.  
+
+I scrambled to my feet, still staring down at the coneflower (now completely uprooted), because I could not look away. 
+
+A bald, gray-green head was thrashing. It looked like it was crowning through the hole I had made. I could see its bare brow peaking through the soil, moving back and forth and briefly exposing two sunken eye sockets holding white bulging eyes of rage.
+
+I started to back up, still in disbelief even though my missing thumb was more evidence than I needed to prove a man was coming out of my garden.
+
+The noise was ceaseless. I covered my ears and started running up the stairs of my deck. 
+
+When I turned around at the top of my stairs, the man shot an arm through the hole, stretching it in a way I did not know soil could stretch. He began pulling himself up out of the widening orifice I had made in the ground, never looking away from me, never stopping to catch his breath. 
+
+I didn’t need to wait and see the rest. 
+
+I slammed my sliding glass door shut and pulled my phone out, dropping it to the floor thanks to the mess that was my clumsy four-fifths hand. 
+
+When I knelt down to pick it up, I was already dialing  9-1-1 when the room got dark, not because my lights had gone off, but because something was blocking the sun.   
+Before I could look up to confirm what I already knew I was going to see, my window started to shake and I could hear the screams. 
+
+The gray-green man was banging on my glass door, his face a blur of anger, with a mouth that looked like it had never once been closed.
+
+That didn’t stop me. I hit the green symbol on my phone and it started to ring. 
+
+All of a sudden, as if sensing the microscopic deescalation of dread that came with the sound of a dispatcher on the other line, the man stopped and just stared at me. 
+
+10 minutes of sheer terror transitioned into an indefinite sense of looming dread. My heart was racing, but I felt for the first time that I might be able to say a full sentence.
+
+“Hello, how can I assist you.”
+
+“There’s a man in my backyard. He came out of the ground and bit me. I’m bleeding. I need an ambulance.” I could have gone on.
+
+“Slow down. Are you safe?” she asked, keeping the situation under control with the tidy list of questions she asked everyone on calls like this.
+
+“He’s right outside my door, he’s just staring at me.”
+
+“Where are you?” she replied.
+
+I gave her my address. 
+
+“We’ll send someone right away.” 
+
+“And get an ambulance,” I reminded her, as if she had forgotten.
+
+“Can you apply first aid?” she started to walk me through the process. 
+
+As I was wrapping my hand, looking away from the door only briefly to check the freezer for an ice pack, I saw movement in the corner of my eye. 
+
+Without taking his eyes off me, the man started to move backwards down the stairs. His angry face now appearing stern, stern and unblinking.
+
+I positioned myself to see him walk all the way down the stairs. He turned slightly and put his left foot back in the hole. His whole body dropped down to the base of his hip. He lifted his second leg up and squeezed into the hole, too. 
+
+I stared and stared until all that remained was his head looking directly up at the sun and then even that was gone. 
+
+“Sir? Are you there?” 
+
+I had completely forgotten I was on the phone.
+
+Red and blue lights flashed against the back of my fence, and I wasn’t sure whether to be relieved or terrified at what the police’s reaction would be. I didn’t have long to worry, because all of a sudden, I started to feel very faint.
+
+I woke up in the hospital, two police officers standing over my bed next to a nurse. After some groggy introduction, the police got down to business.
+
+At first they just wanted the story. Then, they pressed.
+
+“So, you saw a man, and he bit your hand?” the cop asked, trying to hold back his incredulity.
+
+“No, he bit my hand, and then I saw him.”
+
+The cop looked at his partner. Then he thought back to the scene, a flower bed in total disarray, blood spatter along the deck, coating the tools, including my sheers.
+
+“Are you sure you didn’t just cut yourself? these tools can be sharp. Loss of blood, terrible heat. It’s over 100 degrees today. Maybe you just thought you saw something.”
+
+My eyes turned wide. I was losing control. “Are you kidding me? You think I just, just saw a guy in my head? If that’s true, then where’s my thumb?”
+
+“Where’s the man?” he shot back.
+
+I stopped and looked down. The only answer stupider than “I don’t know” was “in the hole, idiot.”
+
+I relented. 
+
+Taking pity on me, the cop said “look, if he comes back again call us. We’ll be there. Strange things happen. We get it.”
+
+The blood loss was bad enough that I needed to stay a couple days.
+
+I’m typing this back at my house to tell you my story. 
+
+It’s the only thing I have control over anymore. I’m looking back at the garden, a total mess, a waste. 
+
+I don’t think I can go down and fix it. 
+
+The leaves shudder even though there isn’t any wind.
+
+It belongs to him.
