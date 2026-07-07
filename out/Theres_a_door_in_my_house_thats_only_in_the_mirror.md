@@ -1,0 +1,94 @@
+I know how that sounds, but it's the truth, and it's exactly how it sounds. It started a few days ago, on an otherwise unremarkable Saturday morning, where I was attempting to nurse a headache caused by my fantastic decision making at a local dive bar. Being in a new city is nerve wracking enough for one as socially inept as me, so when some coworkers suggested drinks, I thought it was a perfect opportunity to make some new friends with the help of a little liquid courage. Turns out these new friends had a penchant for tequila shots, which leads to a little too much to drink, resulting in a pretty gnarly hangover. Needless to say, it took me more than a few minutes to finally peel myself out of bed. I dragged myself down the hallway to the bathroom, rubbing my temples and mentally cursing myself for not having the gall to muster a simple "no." The light seemed to assault my eyes, and the blur added a double vision effect to my surroundings, which made it almost reasonable to write off what I saw in the bathroom mirror behind me as my addled brain misinterpreting reality.
+
+Almost.
+
+Behind me in the bathroom mirror, was a door. I blinked, shook my head, and leaned over the sink, turning on the water before splashing my face to wake up a bit. I sighed, hoping the fatigue would alleviate a bit, and opened my eyes.
+
+The door was still there.
+
+I stared, completely puzzled. The door obviously was not there before, and did not at all fit the architectural flow of the rest of my house. It looked like an old basement door, chipped around the frame and worn down by age and a less than cleanliness conscious homeowner, only instead of being situated inside a creepy old farmhouse, it was in my second story apartment. I turned and looked over my shoulder, only to find no door, just the wall. Confused, the concern for my hangover taking a backseat to concern of possible hallucinations. I turned back to the mirror, to be greeted once again by the door. "What the hell?' I muttered, swinging my gaze back and forth from wall to mirror, trying to figure out how that could be at all possible. I looked closer at the image of the door in the mirror, before getting an idea. I took out my phone, and snapped a picture of the wall, before snapping a subsequent picture of the mirror. I maneuvered to my photo album, not sure if I wanted to see the door in the mirror or not. Sure enough, there it was in all its rustic glory, placed exactly where it shouldn't be.
+
+Without knowing what else to do, I simply went about my day. It sounds silly to ignore something like that I know, but you have to consider telling someone about the door without being able to show them would make me sounds insane, and I didn't exactly have anyone in the city I would consider myself close enough with to shoot a random morning invite to my place. Besides, what exactly is there to do about it? So I simply went on about my business, the door somehow slipping towards the back of my mind as I ran my errands and tried to erase the embarrassment I had about my antics from the night prior. It continued like that for a few days, with the door becoming part of the background scenery, just an oddity I couldn't explain.
+
+Until, on Thursday morning, the door was open.
+
+It wasn't noticeable, at least at first. It wasn't like someone had swung the thing open and rudely left it that way, just slightly ajar. I only noticed because I was fixating slightly longer than normal on my appearance due to a lack of cooperation from my hair. As I brushed, my eyes drifted to the door, and there it stood, cracked barely enough to notice, like a draft had caught it. I froze instantly, feeling my heart drop down to my stomach. For a long while, I just stood there, staring, halfway expecting it to shut suddenly. Nothing happened, and I wasn't sure whether to be more or less uneasy. At this point, I wasn't comfortable not telling anybody about it anymore. The door opening suddenly added a weight to the situation that took it from something that was admittedly extremely odd, to alarming. It was all I could think about on the way to work, and as I clocked in, I though about how I could bring it up without sounding like a lunatic. Finally, at my lunch break, I mustered up the courage to say something to Elise, a girl I worked with on Thursdays.
+
+"Have you ever had something happen that you don't know how to explain without sounding completely insane?" I asked bluntly, feeling my cheeks getting a little red as I realized how cliche sounding that came out.
+
+Elise tilted her head slightly, a puzzled but inquisitive look crossing her face before giving way to a grin. "What, like a ghost story? Or maybe a mystery, ooh I like that." She cooed, giggling a bit.
+
+"I'm serious though, Elise. I really don't wanna sound crazy, but there's something seriously weird happening at my apartment." I tried to convey seriousness through my eyes as well as I knew how.
+
+Elise sat forward a bit now, now seeming to be some combination of amused and bemused. "Alright, let's hear it. I'm not gonna have to report you or anything, am I?" she laughed, but I couldn't tell if she was completely joking.
+
+"No no, nothing like that. Just... well, there's not a real way to introduce the subject subtly, so I'll just  say it; there's a door in my bathroom that only shows up in the mirror."
+
+Elise just stared at me for a moment, seeming to ponder that. "Uh, what? What does that mean exactly?" Her slightly confused but also concerned expression made me less confident, but I doubled down.
+
+"There is a door in the bathroom mirror, in the sense I only see it in the mirror. When I turn and look, it isn't there. It only shows in the mirror."
+
+Elise squinted a bit, and tilted her head once again. "So like, the opposite of a vampire? You know, how they don't show up in the mirror?"
+
+I chuckled a bit at that, before I continued. "Yeah, I guess like a reverse vampire situation. Really though, I mean, what do I make of that? Am I just nuts?" I rubbed my hands a bit before making myself quit. Nervous tick.
+
+Elise again thought for a moment, pursing her lips and dramatically taking a deep breath, before she finally answered. "I don't know Darren, I don't think you're nuts, maybe you're just... stressed? I mean, you aren't on, well, drugs are you?" She looked nervous to ask that last bit, but held her gaze at me.
+
+"No no, I mean, Friday night with you guys was the first time I'd even drank in months. Maybe you're right, I mean there's not exactly a logical explanation other than hallucinations right? Sorry, I shouldn't have even brought it up." My nerves were getting the best of me. I took a deep breath and closed my eyes, exhaled, then continued. "I'm sorry, really, but I just had to tell somebody. Felt like a weight bearing one me. There's one more thing though." I watched for her reaction, and she just stared intently. She seemed to actually be listening to me, which made me feel a bit better. "The door had been closed, but this morning, it was open. Just like, slightly ajar, but still open."
+
+Elise stared for another minute, before blinking and raising her brows. "Wow, okay. That's... creepy." She looked at her phone, and I realized it was probably almost the end of our lunch. "We gotta go back, but if you're serious, just text me if you need anything, okay?" She gave me a small smile that didn't entirely hide her concern, but it made me feel good that she didn't think I was absolutely insane, or at least if she did, she hid it well enough.
+
+"Yeah, will do. Thanks Elise."
+
+\------------------------------------------------------------------
+
+I set my keys down on the counter and sighed, closing my eyes and rubbing my temples. The last shift of the week really took it out of me, and the stress of the day added on top of everything with the door situation had me ready to go straight to bed. I didn't care about anything besides sleep, and at this point I wanted to not worry about the door. I struggled to pick my feet up on the way to the bedroom, staggering into my room before collapsing on my bed and falling asleep right as my head hit the pillow.
+
+\--------------------------------------------------------------------
+
+I rubbed my eyes, suddenly aware of my bladder on the verge of bursting. I looked over at the alarm clock on my dresser. It read 1:34am.  I groaned, forcing myself out of bed before remembering the situation in the bathroom. "Just real quick, in and out." I muttered as I opened my bedroom door and stared down the hallway. The bathroom door on the left in the hallway felt much more ominous than it had previously, a looming presence that instilled a bit more dread than I care to admit. As I approached, I realized I was holding my breath. I exhaled standing before the bathroom door, mentally preparing for something from a horror movie. I braced, and swung the door open, flipping the light switch all in one fluid motion.
+
+The door was exactly the same as when I left that morning.
+
+I breathed a sigh of relief. While I still was obviously very concerned about the door being open, at least there wasn't a demon or some other ghastly apparition in the door waiting for me. I maneuvered to the toilet and relieved myself before heading to the sink. I kept flicking my gaze between my hands as I washed them, and the door. Shutting the water off, I sighed, the weight of worry from earlier in the night returning. I slouched over the sink. I hated how I felt alone in this city, and as if that wasn't enough, I couldn't even come home to peace. I felt fear in my own home.
+
+"There is just no point in stressing myself out anymore over this." I said out loud to myself. I stared at myself in the mirror, assessing my weary appearance. Sleep hadn't been my strong suit even before the stress of recent events, so my eye bags were a bit more prominent than I would like. I grunted. "Some rest for once would do me good." I muttered straightening my posture and trying to put my worries away. I took one last glance towards the doorway before leaving the bathroom.
+
+There was an eye in the crack of the door.
+
+For a moment, it felt like time froze completely. I couldn't feel the rapid beat of my heart, or my shallow and shaky breathing, or trembling of my hands. I could only feel the cold, inhuman gaze of *something* beyond comprehension from beyond the door. The eye was shaded, and it was difficult to make out the details, but the pupil seemed to be ovular in shape, with no iris. There was an unnerving intelligence behind its gaze that made me feel like I was looking at something that was thinking, something that was observing.
+
+Observing me.
+
+I finally managed to break out of my trance, spinning around and sprinting out of the bathroom at speeds I hadn't reached in years. I tore through my apartment in a panic, blowing out of my front door like a whirlwind. I didn't care that I was in my boxers and an old t-shirt, or that it was 40 degrees and almost two in the morning. I cared about putting distance between myself and that *thing* in the mirror. My mind was racing with possibilities. Could it leave wherever it was? Could it physically reach me at all? If it could, then...
+
+What did it want?
+
+\----------------------------------------------------
+
+I got to the police station quickly on foot, not all too surprising considering it was 5 blocks away. I almost got arrested myself, bursting through the front doors in a panic. The deputy manning the front desk jumped up, eyeing me up and down in a defensive stance, sporting an understandably bewildered expression. "Sir, are you okay? What's goin on here?" He had his hand hovering over his holster, which made me nervous and aware of my need to explain myself.
+
+"I think there's someone in my apartment. I saw an eye through a crack in the door. I live alone, and I ran straight out as soon as I saw it." I frantically explained the situation, leaving out the details that would likely grant me a one way ticket to a two week getaway in the psych ward.
+
+The deputy stared attentively, and nodded. "I understand, sir. We'll get some people there immediately." With that, he got on his radio, and we prepared to go back to my apartment. My nerves were overtaking me at this point, and I was relentlessly picking at my hands.
+
+I rode in the cruiser with the deputy, with another officer tailing. Besides a few more questions from him about the situation, it was a silent car ride, which added to the ominous aura of the situation. As we approached, I could see my apartment building, and the knot growing in my chest tightened. I couldn't decide if I was more afraid of them finding something, or nothing. Both prospects terrified me in their own unique way.
+
+As we pulled in the parking lot, the stillness of everything unnerved me. The peaceful night air betrayed the suspense of the situation in a way that made the tension palpable. The deputy turned to look back at his partner's squad car, before turning back, steeling himself, and facing me.
+
+"Stay here, sir. We'll go sweep your apartment, and check around the perimeter. Don't worry, you won't be alone." He gestured to the other officer that had just pulled in, totaling at 3 now. I just nodded, too preoccupied with my thoughts to offer much of a response. With that, he exited the vehicle, and he and the other officer going in stepped towards the building. Something about the ambiguity of the situation must've had him spooked, as I noticed his shoulders rise and fall in slow, deliberate motion as if he was forcing deep breaths. They walked to the stairs that led to the second story of the building, and began their ascent, careful to monitor their surroundings. I watched intently as they reached the door to my apartment, where I watched as they entered carefully, immediately sweeping through the doorway and being swallowed by the darkness.
+
+The minutes ticked by dreadfully, until finally, the officers emerged. Their body language was odd, and I could immediately tell something was wrong. As they descended the stairs and moved closer, I could see their wide eyes and paled faces. If they were trying to maintain normalcy, their expressions betrayed them brutally. They approached, and just stood for a moment, looking at each other before the deputy from earlier finally turned to me and found his voice.
+
+"Sir... are you aware of the, well, circumstances of the bathroom in your apartment building?"
+
+My heart dropped a bit. Some part of me still clung on to hope that this really was some sort of stress induced hallucination, but those hopes were swiftly crushed by his words. "Uh, if you mean the door, then uh, yeah..." I trailed off, not knowing what else to say.
+
+The third officer that had stayed outside with me finally spoke. "What the hell are you talking about? What do you mean 'circumstances of the bathroom'?" He looked between us, squinting and shaking his head as if to motion for an explanation. Nobody really had one.
+
+The deputy spoke again. "Just come take a look at this." He turned to me now, his face wearing a worry that almost seemed to match mine. "You too."
+
+I felt like I was in a dream as we stomped up the stairs to my apartment, the open door a looming invitation to some unknown nightmare that awaited us. My heart only seemed to beat harder as we navigated through the maw that was the entrance, and I could feel myself tremble and my teeth chatter a bit as we slowly marched towards the direction of the bathroom. They asked me questions, like how long this had been going on, if there had been any other anomalies, and if I had been making up the story to get them here, or if that was the door that I saw the eye. However, as they opened the bathroom door, I lost my ability to speak completely, and the rapid beating of my heart seemed to stop all at once. Their voices drowned out, as I could only focus on one thing.
+
+The door was wide open.
+

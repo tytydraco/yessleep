@@ -338,4 +338,4 @@ Then, years later, on another rainy day, something happened by the river.
 
 That was the incident that broke the quiet I had kept for so long.
 
-[Part 2]
+[Part 2 is now available here](https://www.reddit.com/r/nosleep/comments/1upi8b2/)

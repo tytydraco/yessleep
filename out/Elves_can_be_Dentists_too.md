@@ -32,8 +32,6 @@ My parents were middle class people before communism. Educated people, of old st
 
 As the old Romania was dying, they wanted to make sure I remembered it. So they made me experience as much from it as they could, not just telling me about it. They took me to meet people, to talk to them, to see what was still there. This is why they took me that evening to listen to Cecilia Rădulescu singing her tunes at that restaurant.
 
-
-
 She had her glory days in the 1930s, when people were fascinated by her. A tall, redheaded woman, stunningly beautiful singing romantze, tango, jazz and other fashionable genres, but also old folk music, especially the haunting longing of the doina. Nobody sang like her, it was like, if she would ever tried to sing ”drier”, in a normal way, she would not be able to.
 
 
@@ -46,7 +44,7 @@ I was ten years old already. I remember when I first saw her coming on stage. Sh
 
 
 
-But when she started singing those doinas, it was like a sweet cold shiver down my spine. I had goosebumps on my arms and back. I understood then why people said all those things about her, they were all true. Such a vast and deep longing started in me I never believed possible.
+But when she started singing those doinas, it was like a sweet cold shiver down my spine. I had goosebumps on my arms and back. I understood then why people said all those hings about her, they were all true. Such a vast and deep longing started in me I never believed possible.
 
 
 
@@ -180,7 +178,7 @@ I dared to close my eyes after I felt that the light and radiance faded, at leas
 
 I was a bit calmer now, as the room remained silent.. I turned my head to look at Cecilia Rădulescu on the other side of  the room and I started to shake again, as I met her gaze.
 
- 
+
 
 Cecilia's eyes made me turn my head down to the floor again. Andrada started to talk in a monotone, yet heavy voice with Cecilia in a melodic language, that would have been really delightful in itself even if it would have been spoken by the most un-magical Human, a language I could not identify, yet that my heart ached to know.
 
@@ -279,3 +277,7 @@ So, this is my story. This is it. 
 
 
 Ștefan Marinescu, out.
+
+
+
+Update: Sophie has managed to post her words I promised, [Part 2](https://www.reddit.com/r/Helena_The_Doll_Clown/comments/1upfakb/elves_can_be_dentists_too_part_2/)
