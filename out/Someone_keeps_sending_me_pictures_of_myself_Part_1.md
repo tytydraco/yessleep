@@ -1,0 +1,199 @@
+It was about two months ago that I received the first picture. 
+
+The weather was finally cool enough to stand being outside, so I had decided to visit the park. After walking around for a bit, I managed to find a clean bench to sit on.
+
+“How nice, it’s even got a nice view of the pond,” I thought to myself.
+
+I opened my copy of “In Cold Blood,” hoping I could get a decent amount of reading done before the park got busy. Thankfully, I got there relatively early, so other than the occasional jogger or biker, I had the tranquil scene all to myself.
+
+As the cold breeze danced across my face, fighting to take the pages from me, my eyes caught a flash of light.
+
+I looked up, confused. I hadn’t seen anyone else come by in quite some time. Nothing looked out of place. The birds were still chirping, the squirrels still playing their game of tag. Maybe it was just the sun bouncing off the water at a weird angle.
+
+Then came the message. 
+
+Ding!
+
+I pulled out my phone to see who had texted me.
+
+Unknown number: 1 new attachment. 
+
+“Ugh, not another spam message.” I sighed.
+
+I figured I was going to see some sort of promotion for this “once-in-a-lifetime” sale that seemed to happen every other month. 
+
+Instead it was a picture of me. 
+
+The picture itself looked pretty blurry, taken maybe 100 feet away? I could tell whoever took the photograph was hiding behind a tree. 
+
+It was definitely me though. There I was, absorbed in my book, completely unaware of my surroundings. 
+
+The hair stood up on the back of my neck. My eyes shot up from my phone, jumping from tree to tree, trying to determine where this was taken. 
+
+“Hello?” I said. 
+
+No response. 
+
+I started walking around to investigate behind the trees, looking back at the bench I  had claimed, and trying to match up the angle in the photo. 
+
+“Aha, here’s the one,”I said, triumphantly. 
+
+There was no one in sight, but I could clearly see the area had been disturbed. There were footprints in the dewy grass, so I followed them for a bit. The path disappeared as it met the paved walkway.
+
+Unsettled by this whole experience, I decided to head home.
+
+I was hoping that maybe it was just a one time thing, a random passerby who might have some screws loose. That had to be it.
+
+I felt a bit of relief, choosing to believe my rationalization of the events. I live in a big city after all, surely I wouldn’t bump into them again. 
+
+By the end of the month, I had received six additional pictures, each one from a different number. 
+
+They were snapshots of my life. In one, I was in the cereal aisle of my neighborhood market. Another, I had received as I stepped off the subway car. The culprit had been seated right behind me. By the time I looked up, I was met with a blast of warm air as the train pulled away from platform. 
+
+Earlier this week, when I received a picture of me entering my apartment building, I decided that I would finally make a police report.
+
+“Look, we’ll try to get around to it, but taking pictures of someone isn’t a crime. Creepy? Sure. There’s not much we can do though. Just leave your name and number and reach out if things escalate.” The officer said, dismissively.
+
+Feel hopeless, I left the station. 
+
+That’s when I got a call from my editor, Lucille. She can be a bit much sometimes.
+
+“What are you doing tonight?“
+
+I sighed and rubbed my forehead. 
+
+“Whatever happened to hello? How have you been?” 
+
+“Ughhhhh, hi Chase. How have you been.” She said in a monotone voice, very clearly uninterested in my answer. 
+
+“I’ve been okay, just some weird stuff going on. As for your question, my friend invited me to a party, so I was going to head over there soon.” 
+
+She made a loud buzzer sound, causing me to pull the phone away from my ear and wince. 
+
+“WRONG! You, my friend, are going to review the restaurant that opened up off 3rd Ave. Have my review ready before Friday. Love ya, byeeee.” 
+
+Ding!
+
+Another picture. I scanned the crowds without any success. No familiar faces, no people acting suspicious, nothing.
+
+“When will this end?” I muttered hopelessly. 
+
+I shot my friend Tim a text letting him know I’d need a raincheck, and went back home to get my stuff together before I headed to my assignment. 
+
+I headed into my apartment, nervously scanning the hallway looking for any signs of the stalker. 
+
+I grabbed my work bag off the table, patted my 3 legged cat, named Tripod, on the head, then did a quick walkthrough of the place. 
+
+Ever since the pictures started, I’ve become paranoid. I’ve been triple checking my locks and looking into getting security cameras. 
+
+It’s to the point where I hardly want to leave my apartment anymore. The mystery photographer hasn’t made it into my building yet. It’s my safe haven. In here, I’m safe from the heat of their unrelenting stare.
+
+After my search turned up nothing, I locked up and headed out as sun was beginning to set.   
+   
+After about 15 minutes of walking, I arrived at the restaurant. The neon sign jutted out from the dark green building, bathing the sidewalk in an ominous red shade. 
+
+“Not exactly the vibe I was hoping for,” I said snapping a picture of the storefront. 
+
+After I was seated, I took in the view. 
+
+It was a cozy little place. The lighting was much warmer than the harsh red I was greeted with outside. The interior was well decorated, with green and white checkered tables and a bar that looked like it was pulled out of a film noir. 
+
+I pulled my notebook out of my bag and started taking notes.
+
+The smell of onions and beef wafted in from the kitchen. The air didn’t reek of grease or garbage, unlike some of the places Lucille has sent me to visit.
+
+There were many aspects to this job. I not only needed to review the meals, but I needed to investigate the environment, the average customer, and the quality of service. 
+
+I started my watch, timing how long it would take for my order to be written down. In the meantime, I surveyed those in the restaurant, no one standing out in particular.
+
+“Could the stalker be in here right now?” I shuddered at the thought. 
+
+No, I couldn’t afford to think like that. I had to stay focus, I had a job to do. 
+
+A younger looking waitress came up to my table. 
+
+“7 minutes. Huh, not too bad.” I thought to myself. 
+
+“What can I get for you?”
+
+“I’ve actually never been here before, what would you recommend?”
+
+“We’re best known for our burgers, but personally?” 
+
+She leaned in and whispered, like she was letting me in on a secret.
+
+“Personally? I think we make the best chili in the city.”
+
+I scanned the menu once more. 
+
+“Can I get a cup of chili, the bacon burger and the warm sliced chicken salad?” 
+
+“Absolutely. And what to drink? We have a large variety of wines and draft beer.” She hid a smile, seemingly pleased that I took her advice. 
+
+“I’ll just take a water, thanks.”
+
+As much as I wanted to try their signature mimosa, I need to stay alert. 
+
+It took about 30 minutes for my food to come out and another 30 to try it all. The chili wasn’t bad, but definitely not the best in the city. 
+
+My waitress came over, handed me a folded napkin and began to leave. 
+
+“Ma’am, sorry to ask, but is this supposed to be the bill?”
+
+She gave me a puzzled look.
+
+“The bill? Um, your friend went ahead and paid that. They asked me to give you this.” 
+
+A sense of dread washed over me, making my stomach turn. Color drained from my face. 
+
+The chili was trying to make its way back up. I knew I had to get a grip, because as much as I disliked it going down, I knew it would be even worse coming back up. 
+
+Hands trembling, I opened the napkin. 
+
+Inside was scrawled “See you soon.” 
+
+I shot up at frightening speed, almost knocking my chair over. 
+
+“They were here! They were right here!” I shouted, not caring about the attention I drew. 
+
+Ding! 
+
+Instead of being a picture of me, this one was a picture of my order, awaiting pick up on counter. 
+
+They saw me. They saw what I ordered. They even got to what I ordered before the waitress. Who knows what they could’ve done to my food.
+
+The though made me sick and I ran out of the restaurant. Finding the nearest trash can, I emptied the contents of my stomach. 
+
+I was right about the chili. 
+
+After regaining my composure, I hailed a cab. Once inside, I called my friend, Tim.
+
+“Hey man, I don’t have time to explain right now but I need to come stay with you. I promise I’ll tell you everything once I’m there.” I could hear how desperate I sounded, and I’m sure Tim could tell too. 
+
+“Yeah, yeah, absolutely. I’ll have Vanessa prep the guest room.” 
+
+I sank into my seat, finally feeling my heart rate return to normal.
+
+Tim lives just outside the city with his wife Vanessa. They live in a pretty nice neighborhood, and last time we met up, he was bragging about his new “Hi-tech security system,” so I figured this would be the safest place to stay. 
+
+They sat in shock as they scrolled through the pictures while I narrated the events from the last two months.
+
+“Have you gone to the police?” Vanessa asked. 
+
+“Yes, but they haven’t done anything yet.” I responded. 
+
+We all sat in silence, trying to come up with what my next move should be. 
+
+Ding!
+
+Vanessa gasped, clasping her hand over her mouth. 
+
+“Chase, they sent a message.” She handed me the phone as though it were hot to the touch.
+
+The text read: “Come home soon, Tripod misses you.”
+
+Ding!
+
+A picture was attached. It was of tripod, sound asleep in my bed.
+
+My apartment was no longer the safe haven I had once considered it to be.
