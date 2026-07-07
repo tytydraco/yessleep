@@ -32,7 +32,9 @@ But the guilt hits me again, I rather at least attempt to help.
 
 I start doing my best to paddle out to the other shipwreck. It’s not far, but the water isn’t steady. As soon as I’m close to the shipwreck, I look up. A coldness runs through me.
 
-The person is dressed head to toe. Black leather gloves, black hoodie, black bottoms, black shoes, a black hat and a black ski mask and glasses. I start to really regret my decision, but I still want to make sure they are okay. I shout up “are you okay? Do you need help? Are you hurt?” but no answer. The person, I’m assuming male by the height and build.
+The person is dressed head to toe. Black leather gloves, black hoodie, black bottoms, black shoes, a black hat and a black ski mask and glasses. 
+
+I start to really regret my decision, but I still want to make sure they are okay. I shout up “are you okay? Do you need help? Are you hurt?” but no answer. The person, I’m assuming male by the height and build.
 
 I got a bad gut feeling, So I started backing away. I kept checking over my shoulder, but he was still standing there, not moving one inch just facing my direction. When I was halfway back to land, I looked back again.
 
