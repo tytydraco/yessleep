@@ -1,0 +1,83 @@
+[PART ONE](https://www.reddit.com/r/nosleep/s/YXPJFauICg)
+
+[PART TWO](https://www.reddit.com/r/nosleep/s/4ZguwRm0Y7)
+
+[PART THREE](https://www.reddit.com/r/nosleep/s/5OPUo9AvA4)
+
+CW: Endangerment of a child and Gore.
+
+
+
+I didn’t know the baby’s name. I barely knew his mother, yet he acted as companion as I steadied the walk up the hill. I walked alongside the crowd, stepping over the less fortunate who had tripped, their legs crushed by the stampede, thinning out towards the legs and fuller towards the body like a used tube of toothpaste. Their heads rested on the concrete, eyes looking to the sky. Death didn’t return their eyes to normalcy only changed it now without gloss I saw each with irises that filled the entire eye and deep wide pupils.  They didn’t get where they needed to go. 
+
+One of them was my manager. He was still wearing his work uniform. He hated his job.
+
+My legs were growing weak, the hill was so steep and I could feel my calf muscles strain. My ears were becoming numb to the baby's repeated cries, it occasionally wrestled around in the Bjorn. I didn’t care. At first it was a nuisance but then it just became a part of this. *I* became a part of this, they didn’t walk in sync just the same speed. I walked that same speed for the same reason. To go wherever we were going. I wouldn’t have to wait long to find out where. 
+
+We arrived at the crossroad. I prayed we’d go right. But I knew that wasn’t the case. They kept going, towards the dam. I snapped out of it, the dam would be the end, for better or worse. Holding the baby tighter I ran as fast as I could. Past the blockade that had been broken down by the crowd. Past the lamppost which once held my bike.
+
+They had filled into the seating area, pouring down a pathway towards the dam’s viewing platform. I couldn’t go further. I didn’t want to. It looked strange at first, like nothing was actually happening each time it did happen It was so similar to the last, but as I looked closer I saw the furthest row of the crowd fall over the viewing platform’s bar pushed by the previous.
+
+Then the next row.
+
+And the next.
+
+And the next.
+
+It was like a convey belt, even if I could push past them I didn’t want to look at their bodies.  Tears welled in my eyes, not just from the sight but the smell. The summer air often made the concrete hot, the early morning was no different. I slowly lowered to a nearby bench not in their path, the baby writhed and wriggled attempting to break free. I tightened the Bjorn. I was so tired. I shut my eyes. 
+
+The footsteps acted as white noise, at a point it comforted me. It was ceaseless, always there. 
+
+I don't know when but at some point it thinned out. Whether that was from the hill spacing them out or just some of them having further starting positions, I slowly and reluctantly rose from unconsciousness.  The viewing platform was empty, I finally saw the floor of the pathway that was lined with two concrete half walls leading to it, it was covered in a thick layer of viscera. The small space meant there was no room for error. 
+
+Then a final pair of footsteps. I looked to the entrance.
+
+It was my grandparents, walking the same distance apart from when they first left. 
+
+I began bawling, calling for them. 
+
+“PLEASE! PLEASE! Nonononononononono.” I cried, pulling both there arms with every ounce of strength I had left. Down the pathway I pushed against them, I fought their attempts to push me aside but they relented. 
+
+“Please. Damon, Denise.” Their real names, I was trying anything as we made our way up the steps of the viewing platform.
+
+I pushed and pushed, I punched and kicked. There was something holding them there. Like how a chicken’s head stays still as it’s moved. I blocked the edge where the crowd fell before. They slinked under my arms. I grabbed their collars.
+
+They threw themselves over. 
+
+Like everything in their lives lead to this moment, like this was some kind of divine purpose. 
+
+My grip wasn’t enough, they fell. Down onto the concrete base, now covered in a pancake that was once my town.  The two people who cared most about me in this world were gone, these people who lived such complex and beautiful lives that they gave up to take care of me, were dead. I found solace in hoping any part of them that was still them would be gone. Replaced by what made them walk. Their last memory was going to bed next to the person they loved most in this world. 
+
+I cried and cried. The babe thrashed still screaming, I hugged him, I needed comfort.
+
+Then a noise, not footsteps. Not human.
+
+Revving.
+
+Swat cars. Ambulances. Fire trucks.
+
+A group of officers leapt out of the swat car. One screamed:  
+“SIR! PUT YOUR HANDS IN THE AIR! GET ON THE GROUND!”  
+  
+I followed their orders.
+
+Paramedics, firefighters and swat all raced out of their respective vehicles towards me.
+
+I don’t remember much. 
+
+Most of it was a blur.
+
+They took the baby, attempting to shush it. 
+
+As they searched me, cuffed me, they asked me questions. 
+
+I couldn’t tell you what they were. 
+
+They walked me down the pathway. I looked to the other side of the dam. Before the river met it’s blockade it curved alongside the path. 
+
+On the river’s bank were salmon, dead salmon. Some made it further east than others, leaking slime and residue water onto the dirt. 
+
+All of their eyes are different colours. Rounder, vibrant, full of life. 
+
+I don’t think they got to where they were needed to go. 
+
