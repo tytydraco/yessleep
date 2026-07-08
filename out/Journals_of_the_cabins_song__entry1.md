@@ -1,0 +1,65 @@
+I'm so happy that the stupid landline finally worked. It’s been a couple of months without internet connection, and I was starting to miss all my friends.
+
+I sent my brother a text as soon as I got a connection, but I won't reply to him immediately if he shoots a text back. He's at work now and I don't want him to slice his finger off on a saw or slack at work because of me.
+
+Lord knows he would, since he'd be the type to worry about me like a mother, even though we're both grown-ass men. I already miss his cooking though.
+
+Zack told me to write down my thoughts and feelings somewhere so I won’t feel so disoriented about everything I've been experiencing lately.
+
+I'm currently in a cabin with my friends Zack and Vincent. We bought it a while ago. It was dirt cheap and didn't look too bad from the pictures.
+
+When we went to check the property for the first time, the front door was yanked off the hinges. The windows and some floorboards were broken. It looked like it was used to store furniture from how they were stacked on top of each other. It was so dusty, I'm pretty sure the owner lied about ever living there. As I was checking the rooms, I would see a few claw marks here and there, which was unfortunate, since it ruined the wall in my opinion. Damn small animals.
+
+But we all chipped in to fix it and I did most of the elbow grease. Cleared the furniture, screwed back the hinges for the doors that weren't a lost cause. Vincent couldn't lift anything heavy due to his bad leg, so I would fight him over who’d push the furniture. I told him to just mop and sweep the floors instead. Zack on the other hand is blind, but he was a great help in moving stuff around, as long as I don't mix my right and left and accidentally make him run into a wall.
+
+There was no electricity in the bedroom and guest room, so we had to bring in an electrician and someone to replace the broken glass. But thankfully around summer, the cabin was ready for us to get in the car and head to our new "seasonal getaway".
+
+Though when we got here, the phoneline was cut. We assumed some animals chewed it up or something. I had to do two separate three hour car rides back and forth to get someone to fix it.
+
+The couple of months with no connection to anything outside these woods were kind of nice though.
+
+Zack would cook our meals. And by cooking our meals I mean he’d give me instructions and I would execute it like a chef under practice haha. He told me how to (properly) roast vegetables, cook meat on a hot stone, make wild mushroom soup (he had way too much faith in me picking the correct mushrooms), setting a camp fire and lots of neat little survival tips.
+
+Apparently, he did lots of camping as a kid before he went blind, which explains why he was so excited when I told him about wanting to get a cabin away from the whole world.
+
+Vincent on the other hand, would not keep his skinny legs inside the cabin for the first month. Whenever we went out for a walk, he would take every chance to document and write everything he saw. He wanted to birdwatch, fish and bring a notebook with a coal pencil. (why coal??)
+
+It's fascinating for me to see the proper, nerdy and reserved Vinny, with the glint of excitement in his eyes and a big smile on his face accompanied by a "Hey, look at that!" rushing to whatever bug or plant that interests him. His cane hits every rock and twig as he goes. I found it silly and endearing, like watching a waddling penguin.
+
+The same smile is on Zack's face when he plays his acoustic guitar. He would make us sit around a camp fire two feet away from the front porch and start telling stories. Either it's from his own imagination or local urban legends. I know some of them but he tries to keep it interesting with his instrument. I feel like a kid being told a bedtime story about people being murdered and dragged into the woods. Vincent insists on bringing a bag of snacks for both of us every time. I didn't think he'd be the type to enjoy these types of stories, but I was pleasantly surprised. I did hold his hand a couple of times whenever the topic of skinning came up, haha.
+
+Personally I don't do much, I left my own hobbies at home, as I thought they'd distract me rather than help me.
+
+I don't do much besides my daily routine.
+
+Wake up, wash my face, brush my hair and teeth, make some breakfast (if Vincent didn't beat me to it), some light dusting here and there, have my music lessons with Zack, then go on long strolls in the woods.
+
+It is especially beautiful in the early morning. The birds chirping, the leaves crunching under my steps, prickling my feet. But I don't mind.
+
+One day, I found a stream of water not too far from the cabin. I knelt down, and saw the fish swimming along the stream. Then I got a very stupid idea.
+
+I was just fucking around really, but I tied the ends of some yarn I forgot in my backpack. Made a hook from a safety pin and got some bread from a sandwich Vincent made this morning. (I stole an extra one haha) It took a very long time, I almost fell asleep waiting for something to take the bait. In the end, I caught one fish! It wasn't a big one, it can be eaten as a snack, but I brought it back home anyway. I cleaned and gutted it with the smallest knife I got, and Zack cooked it for me. It was two bites and a half, but I was happy to eat it.
+
+A couple of days later Zack decided to make a tall tale about the fisherman who caught a huge monster-sized fish with nothing but a fishline made from his -and I wish I was joking- strands of hair he braided from his wife's head, and a hook that belonged to his great grandfather.
+
+Is that really how he spins his tails? Was the story of monsters skinning people just him seeing his mother cutting up a chicken? I do find it quite funny though.
+
+We brought some board games with us too, and had to get new ones that Zack can use, but I didn't know he would kick our asses in poker. And every other game too. Why is he so lucky? Is he cheating? Haha.
+
+I tried to ditch his music lessons a couple of weeks ago, but of course he wouldn't let me sneak out without coming up to me and throwing his entire weight on trying to anchor me to the cabin floor. The bastard probably can hear a pin hit the ground or something. I guess he thinks I will forget about it if I don't keep practicing.
+
+I prefer singing along when he does. He says I have the most angelic voice he ever heard. I have no idea what he is talking about. My voice is a higher pitch than the average man, it has been a point of ridicule for me growing up. I think he is saying this to help with my confidence, but I wish he wouldn't try so hard.
+
+Vincent tried to convince me to let him lift a few heavy boxes, the argument got really loud. So I picked him up and dropped him on the couch, maybe I was too rough? I know I can be a little too concerned about him straining himself, since he does so a lot.
+
+He refused to talk to me for a couple of days. I felt terrible.
+
+When Zack spoke to him, he let it go. I tried to apologize again, he said it was fine, but I can see he was still upset. I suppose he doesn't enjoy being lifted off the ground. I carry Zack around sometimes. I asked for his permission of course, but I didn't do that with Vinny. Seems like that's not a normal thing to do. Zack told me I should warn people before I do it to them, especially with Vincent's condition. I never really asked Vinny about what happened to his leg. Maybe I will ask him when I have a chance.
+
+But for now, I'm going to maybe find a deer and catch it? He likes steak, so maybe it will make him feel a little happy if I make him some steak? I heard deer meat is good, and I always wanted to try it.
+
+I can sharpen a spear, maybe. Go full-on cave man haha. Or just bring my gun with me. Although I'm worried about Zack. He hates sudden loud noises. It will definitely scare him if I shoot my gun near him.
+
+We’re going on a walk tomorrow. I hope it's not going to be as awkward as I imagine it to be.
+
+But so far, the first couple of months weren't so bad.
