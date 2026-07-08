@@ -1,0 +1,411 @@
+Hey guys, strange things have been happening to me lately, I’ve had some very weird nightmares about owls and bats and strange creatures in the night, I even found a couple of them INSIDE my home. I haven’t slept in God knows how long. 
+
+I couldn’t tell what was happening to me until I read the last part of this diary, do any of you know if this is real?? Please let me know if you have any information about it, my life is a mess ever since I started reading this shit and I think I’m in danger.
+
+A couple of weeks ago I went to a flea market upstate and picked up this cool looking diary, the vendor said it’s of a PI from the 30s and after reading a bit of it I was really bought in, but when I got to the end…I’ll leave it here.  
+
+
+"November 15, New York.
+
+I can’t deal with this rotten rain anymore, it gets everywhere: your coat, your hat, your shirt…your fuckin’ underwear. It has rained non-stop for a week now, I forgot what the sun looks like and I can’t wait to see it again.
+
+However, I got an interesting new client today, the glamorous…
+
+“Miss Petra, how do you do?”
+
+“Pleased to meet you Miss Petra…how can I help?”
+
+“I heard you’re the best at what you do…is that true?”
+
+Miss Petra was quite the broad, she had a piercing blue set of eyes, if you looked at them too long your hairs would stand on guard, as if someone had dropped a bucket of ice on ya.
+
+“Well, I’m not sure about that…”
+
+Her plump red lips were hypnotizing, you just couldn’t help yourself but listen.
+
+“…But I assure you, Miss…”
+
+“Petra.”
+
+“Right, Miss Petra, I assure you that I can get the job done fair and square.”
+
+Her short hair with a fringe was as black as the cloud covered skies, the cigarette smoke around her painted her in some kind of glowing aura.
+
+“Yes, I heard that too. You’re not a disgraced or corrupt police officer turned PI as all the others, correct?”
+
+“That’s right ma’am. I served my country proudly, did some years in the force and ended up here.”
+
+She was a walking hourglass wearing a tight dress that cost more than my rent. Her general appearance was a punch to the face compared to my rundown, dusty and neglected office she was sitting in.
+
+“Well then, just what I’m looking for.”
+
+She put a cigarette in her mouth, making me wish I was the butt of it.
+
+I kindly leaned over my desk and offered a light.
+
+Drag. Puff. Eye contact.
+
+“My husband is missing.”
+
+The entire world just about crumbled over me in that moment.
+
+“He’s a particular guy, he doesn’t really talk or go out much. I do that for the both of us.”
+
+“So it’s unusual for him to disappear.”
+
+“That’s right.”
+
+ “Well, Miss Petra, I don’t think it’ll be too difficult to find your husband. A guy that doesn’t talk or go out much gets noticed, even in a big town like New York.”
+
+“So you’ll take my case?”
+
+She could have asked me anything and I would have said yes without even thinking.
+
+“Sure, why not?”
+
+“Oh that’s just swell Mr. Marlowe! I’ll be sure to pay double your rates, I need my husband back as soon as possible.”
+
+“Oh ma’am that’s not necessary, really, I do this to hel-“
+
+“Nonsense.” She shut me up.
+
+“I insist, you must take this money, it’s part of our deal.”
+
+Who was I kiddin’. A smoking hot broad making eyes at me AND a hefty bag of change? Who knew heaven would show up on a rainy November day.
+
+I accepted the case and after getting some more information from Petra, along with a healthy first check, I immediately set to work.
+
+First stop, the station. Nobody in New York comes or goes without passing through there.
+
+The rain was still pounding, obviously, but I must admit, it didn’t bother me that much. Every time I blinked I saw those beautiful blue eyes staring at me. Made me feel funny and made the rain feel less like a burden.
+
+I made my way over to Giorgio’s, if this guy came through here, he’d know.
+
+“Hello Giorgio, how’s it going?” I could barely hear myself through the rush-hour.
+
+“Mr. Marlowe how do you do?” He greeted me with a big smile on his face.
+
+“Say, pal. Did you by any chance see a tall pale guy move through? Quiet, jumpy, shy?”
+
+“Wow Mr. Marlowe, getting straight down to business eh? New case?”
+
+“I find it hard to believe it myself pal, this gorgeous blue eyed, black hair, hourglass bird lost her hubby.”
+
+“Really?...wow…what was her name again Mr. Marlowe?”
+
+“Uh…Miss Petra, that’s right.”
+
+A surprise look took over Giorgio’s face. His mouth dropping open and his eyes as wide as the Grand Canyon.
+
+“*Oh maronn,* Mr. Marlowe.” His hand reaching his forehead.
+
+“What’s wrong?”
+
+“You don’t know Miss Petra? The Black Widow? The famous singer?”
+
+“No, jeez, you know I don’t drink Giorgio, what’s the matter with you?”
+
+Apparently I wasn’t the only one that was captured by her beauty, I never thought I was, but hearing from Giorgio that every city club would go sold out when she sang was like a knife to the heart.
+
+“That’s okay Giorgio…thanks for telling me pal.”
+
+“Hey Mr. Marlowe don’t beat yourself up, she’s paying good money! In this economy?”
+
+I sighed.
+
+I realized in that moment that I didn’t really care about the money, not as much as seeing her again.
+
+“But Mr. Marlowe, I did see the guy you were talking about, maybe a week ago he stopped here. He looked like a walking corpse, sat down and ordered a Bloody Mary, it was only 5 and something in the morning, really stuck with me, who drinks at that time?”
+
+“I hear ya, seen a few walking corpses myself – only they were wearing a uniform.” I said as I took out my notepad and started taking notes.
+
+“I make him the drink and tried to say something, you know? Where you going? Where you from?...nothing, guy doesn’t say a word or even look at me.”
+
+“What else? Where did he go?”
+
+“I don’t know Mr. Marlowe, as soon as the sun came up, he was gone, didn’t even see him leave. Even left half his drink.”
+
+“Alright Giorgio, thank you pal, this is very helpful.”
+
+“No problem Mr. Marlowe but I must tell you…this Miss Petra…she is not good news, you must be careful around her.”
+
+Giorgio’s tone took a more serious pitch.
+
+“How do you mean?” I asked, confused.
+
+“There are rumors about her Mr. Marlowe, she is a maneater and a manipulator, you must not fall for her tricks!”
+
+“Giorgio, the gal has a husband, what are you talking about?”
+
+“Yes Mr. Marlowe, she does. But there must also be a reason why he left.”
+
+I left the station with a heavy heart, Giorgio’s words really did a number on me. He’s a good friend, always tells me straight up, no dancing around but I didn’t believe him this time. I didn’t want to believe him.
+
+I went home, the rain not letting up for even a second, felt like being back in France, couldn’t even light a cigarette in the open that in a matter of seconds it would get soggy.
+
+I need some sleep.
+
+
+
+November 16, New York.
+
+I had some weird dreams last night, the wind was howling and the rain kept on tapping on the windows, I couldn’t get much sleep.
+
+I had nightmares about a dark forest on a full moon, weird looking owls were all around me, their eyes as blue as ice. I was walking through it when all of a sudden I fell into a deep pit in the ground.
+
+I kept on falling and falling and falling. Then I heard a voice
+
+“Come for me.”
+
+I recognized the voice.
+
+It was Petra.
+
+I woke up in a cold sweat and couldn’t get back to bed. It was 5 AM but it didn’t matter, the rain was still there and the sun was nowhere to be seen.
+
+I got to work, not like I had much else to do.
+
+After Giorgio, if you wanted to find someone the church is where you’d go. People who vanish are usually desperate and if there’s one thing I learned in my life is that there ain’t no atheists in the trenches.
+
+The Catholics is where I went to, asking for clues.
+
+“I’m sorry son, I haven’t seen this poor soul.” Replied Father Andrews quickly moving away from me and looking busy, too quickly.
+
+“Hey wait up Father, I didn’t even tell you everything about him.”
+
+“I’m afraid I can’t help you detective, right now I have more urgent things to do.”
+
+“What’s more urgent than helping a fellow man in need?”
+
+“Just because someone’s missing, it doesn’t mean they want to be found, son.”
+
+“…what’s that supposed to mean?”
+
+The Father was on the other side of the church by now.
+
+“The good Lord will look after him, I’ll be praying very hard.” Shouted from afar, quickly disappearing behind the scenes.  
+Weird.  
+It wasn’t the first time I had enlisted God’s people, they always were very caring and altruistic as their teachings say, this was different.
+
+Sometimes I believe that everything happens for a reason, that taking the wrong turn by accident will eventually lead you to where you belong…or where you deserve to be.
+
+Tonight, destiny took me somewhere in between.
+
+The Maltese.
+
+I know right? Who am I anymore? Old man Marlowe at a bar? I know about a dozen people who would burst out laughing if they heard such a thing. The reality was different however, I wasn’t there for the booze, I was there for something far worse.  
+Petra.
+
+She was the main attraction of the night, singing some sweet tune with her golden voice and icy eyes. Everyone looked as stupid as I did once she got up on the stage. But the one thing that was different from the others was that we instantly locked eyes. I didn’t have the courage to blink.
+
+She came over after the gig, sat next to me and my tonic water. She had to fight a human wave of excitement, it felt like Greta Garbo had just walked in.
+
+“Detective, didn’t take you for a nighthawk.”
+
+“You learn something new every day.”
+
+“Do you have any news on my husband?”
+
+“I have some leads but…work in progress.”
+
+“I believe in you Marlowe, you can do this.” No word in my life was more angelic than those she had just spoken.
+
+“Waiter! I’ll take a Bloody Mary and for the Detective…”
+
+“Oh I’m good Miss Pet—“
+
+“Just Petra.”
+
+“…Petra, I’m good with wat—“
+
+“Come on, Dete—“
+
+“Marlowe.”
+
+“…he’ll have the same as me.”
+
+I had about 4 Bloody Marys that night. One after the other. I didn’t know who I was anymore. All I knew is that I went back home with Petra and we made love all night.
+
+
+
+November 17.
+
+I can’t stop thinking about last night.  
+I can’t stop thinking about her lips on mine, our bodies entwined, her fingers in my hair and my eyes on hers.
+
+We fell asleep together, cuddled by each other’s warmth and by the sweet sound of rain on the roof and thunder in the night.
+
+I had another weird dream. I was back at the church, Father Andrews was nowhere to be seen but I moved like a weasel through tall grass.
+
+My .45 was in my hand and I was going down some steps, it was dark but I could smell blood in the air and its metal taste in my mouth.
+
+Eventually I get to a large cave, barely lit by a bunch of candles on the wall. My body tensed up as I put one in the chamber.
+
+“SHOW YOURSELF.” I shouted.
+
+That’s when what I could only describe as a rotten corpse came rushing out of the shadows, mouth wide open.
+
+I woke up in a cold sweat, again. This time however, Petra’s perfect lips were next to me, ready to make it all go away.
+
+After breakfast we quietly went our separate ways, I was back in the unrelenting rain, she stayed in her room.
+
+I had sex with a married woman and my job was to find her missing husband. What the fuck happened to me?
+
+“Keep looking for my husband sweetie, I still need to find him.” She told me before leaving.
+
+I had a feeling this wasn’t her first rodeo. I didn’t care. I wanted her and she wanted me.
+
+I decided I would head back to Father Andrews, something felt off about him. The dream certainly didn’t help.
+
+It was already dark when I got there, the rain kept on pounding. Darkness came early in the day.
+
+“Father Andrews? I have some questions for you, Father.” My voice echoing in the big space of the strangely empty church.
+
+“Hello? Is anyone there?” No answer.
+
+I made my way over to the altar, it was very quiet.
+
+As I went to the other side I almost tripped. A small set of dark stairs leading down in the ground were hiding just behind the altar.
+
+“What the fuck…”
+
+I felt a Déjà vu creeping up on me in that moment.
+
+Before I even realized it, my .45 was in my hand, my cigarette was lit and the safety was off.
+
+I went down those stairs, exactly like the dream, a long dark corridor with some small torches lit up.
+
+“Father Andrews? Halloween is long gone Father.” I shouted in the dark.
+
+After that, it somehow got even quieter.
+
+I kept going, hoping for an opening sooner or later.
+
+“Marlowe.” I heard in front of me.
+
+“Who’s there?” I warned, scared.
+
+“You shouldn’t be down here, Detective.”
+
+“Is that you Andrews?” Silence.
+
+My foolish question was answered with a big bang that took off my hat.
+
+Whoever was in front of me had just shot at me and nearly turned off the lights.
+
+Training and experience kicked in and I hit the dirt immediately, without hesitation I fired four or five shots into the dark ahead of me.
+
+Silence once more.
+
+I got out my zippo and tried to make as much light as possible while moving forward.
+
+I almost fell on him.
+
+Some feet away from where I fired rested Father Andrews, eyes wide open, lead in his chest. In his hand a small .38.
+
+I couldn’t even begin to process what had just happened that a faint sobbing broke the eerie silence.
+
+It was coming from further down the tunnel.
+
+I stepped away from the body and into the unknown, eager to see what more it had to offer.
+
+After 30 seconds or so the tunnel opened up into a big wine cellar, I suppose that’s where Christ’s blood was kept.
+
+Sitting on the ground, back to the wall, was a tall figure in a trench coat. His head was on his knees and his arms around them.
+
+He was crying.
+
+“Hey, pal…are you okay?” I sort of asked, stumbling on my words.
+
+“Please…don’t hurt me.” He replied with an accent.
+
+“I won’t…what’s your name buddy?” I said getting closer to him.
+
+No answer.
+
+“Are you hurt?”
+
+Nothing.
+
+“Pal?...you there?”
+
+That’s when he finally got his face away from his arms and looked at me.
+
+I’ll never forget that face. White as a ghost, no facial hair and eyes as gray as the cloud covered sky in the morning.
+
+I took  a step back.
+
+“I can smell her on you.”
+
+I raised my .45 and emptied the mag on him.
+
+Case closed.
+
+I need some sleep.
+
+
+
+November.
+
+Today is the day, I need to tell Petra and skip town, I hope she’ll come with me. The police found everything and is quietly looking into it, it won’t be long before they come asking for questions.
+
+The sun is still nowhere to be seen, the rain feels so heavy that I might drown in it. I can’t stand it anymore.
+
+“Marlowe, my love, you have good news don’t you?”
+
+My knees were shaky and my heart was just about to explode but, as soon as she invited me in, a strange sort of calm washed over me.
+
+“Petra, I found him, your husb—“
+
+“Shh, don’t speak.”
+
+She got close and started kissing me, I melted like a popsicle in the sun.
+
+“Petra, seriously, I’m in trouble.” I said pushing her away.
+
+She didn’t lose the way she was looking at me, it was as if she didn’t care in the slightest about what I had to say.
+
+“You’re right where you’re supposed to be.” She moved in closer again.
+
+“I killed your husband Petra.”
+
+She finally stopped. There was a long moment of silence, my mind went blank.
+
+“I know you did.”
+
+ “What?” I asked confused.
+
+“You did well Marlowe, my instincts were right about you...”
+
+ I didn’t know what to think anymore.
+
+“…I knew he was there, in the Church…I just couldn’t get to him…”
+
+My eyes were watering, the cigarette in my hand burning my fingers, my brain going haywire.
+
+“…but you could, and you did…you were such a good boy for me.”
+
+I killed for her and I was ready to do it all over again if she asked me.
+
+“My husband…after 200 years he just wasn’t the same anymore…he started having hope, a very dangerous thing.”
+
+“200 years?”
+
+“Yes darling, but don’t worry…I’m very happy to spend the next 200 with you.”
+
+Two long and dark wings sprouted from her perfect back, spanning several feet.
+
+She got closer, her pristine red lips open.
+
+Her white long teeth revealing.
+
+She kissed me on the lips.
+
+Then on the cheek.
+
+Then on my neck.
+
+I hope it never stops raining."
+
+  
+P.S: It hasn’t stopped raining for a week.

@@ -1,0 +1,159 @@
+I moved into Alder House with my daughter after the divorce. It was the only place I could afford that was still close to her school. The building is old and the rent is cheap. I didn't expect much.
+
+The hallways smell like someone's cooking. The radiator in the living room clanks all winter. The elevator works most of the time. It's not a place anyone dreams of living in. But it's a place. And after everything that happened, that was enough.
+
+My daughter is seven. Her name is Lily. She's quiet. Quieter than most kids her age. She's always been that way, but it got worse after her mother left. I thought moving would help. New place. New routine. New start.
+
+I was wrong.
+
+The first few weeks were fine. She went to school. She did her homework. She ate dinner. She slept. Normal. The kind of normal I'd been desperate for.
+
+Then she started drawing the old woman.
+
+It wasn't obvious at first. Just a figure in the corner of her pictures. A woman in a blue coat. Standing by a window. I assumed it was someone from school. A teacher. A neighbor. I didn't ask.
+
+But the drawings kept coming. Same woman. Same coat. Same window. Lily would sit at the kitchen table and draw her over and over.
+
+"Who is that?" I asked one evening.
+
+"The lady downstairs," she said.
+
+"What lady?"
+
+"She's always there."
+
+I didn't think much of it. Kids have imaginary friends. Lily was adjusting to a new place. A new school. A new life. I let it go.
+
+Weeks passed. The drawings continued. I started to notice details. The blue coat had a pattern. The window had a crack in the corner. The woman's hands were always folded.
+
+I asked Lily about her again.
+
+"Have you talked to her?" I asked.
+
+"She doesn't talk," Lily said. "She just stands there."
+
+"By the window?"
+
+"Yes."
+
+"Every day?"
+
+"Yes."
+
+I started to wonder if she was real. I asked the landlord about her. He shrugged.
+
+"Old woman? Blue coat?"
+
+"Yeah."
+
+"Oh."
+
+"Does she live here?"
+
+Long pause. "Not anymore."
+
+I asked my neighbor in 2B about her. He said he'd seen her around. He didn't know her name. He didn't think much of it.
+
+"Doesn't it seem strange?" I asked.
+
+"No."
+
+"Why not?"
+
+"She's just waiting."
+
+"For what?"
+
+"...I don't know."
+
+He shrugged and walked away.
+
+I started looking for her myself. I'd pass through the lobby in the morning. Nothing. In the evening. Nothing. I thought maybe Lily had imagined her. Maybe she'd seen a reflection. Maybe she'd made it up.
+
+Then I saw her.
+
+I was coming home from work. It was a Tuesday evening. I walked into the lobby and there she was. Standing by the window. Blue coat. Folded hands. Exactly as Lily had drawn her.
+
+She didn't look at me. She just stood there. Still. Like she was waiting for something.
+
+I walked past her. I didn't say anything. I didn't know what to say.
+
+I got to my apartment. Lily was at the table. She was drawing again.
+
+"I saw her," I said.
+
+"I know," Lily said. "She saw you too."
+
+"What does she want?"
+
+Lily shrugged. "She doesn't want anything. She's just there."
+
+The next evening, I saw her again. Same spot. Same coat. Same stillness. I walked up to her.
+
+"Excuse me," I said.
+
+She didn't respond.
+
+"My daughter draws you," I said.
+
+She turned slowly. Her face was pale. Her eyes were tired.
+
+"Thank her," she said.
+
+Then she turned back to the window.
+
+I stood there for a long moment. I waited for more. She didn't say anything else.
+
+I walked back to my apartment. Lily was still drawing.
+
+"Does she talk to you?" I asked.
+
+"Sometimes."
+
+"What does she say?"
+
+Lily looked up. Her expression was calm.
+
+"She says thank you."
+
+"For what?"
+
+"For remembering her."
+
+I kept seeing her in the lobby. Lily kept drawing her. Same woman. Same window. Same crack in the corner.
+
+Weeks passed. Lily stopped drawing. I asked her why.
+
+"She's gone," Lily said.
+
+"Gone where?"
+
+"She left."
+
+I checked the lobby that evening. The old woman was gone. I asked the landlord about her. He said she'd stopped coming. He didn't know where she went.
+
+"She does that sometimes," he said. "She always comes back."
+
+I waited. Weeks turned into months. She didn't come back.
+
+Lily started drawing again. Same woman. Same coat. Same window. But now the woman was facing away.
+
+"Where did she go?" I asked.
+
+"I don't know," Lily said.
+
+"Does she still talk to you?"
+
+Lily shook her head. "She doesn't talk anymore."
+
+"Why not?"
+
+Lily looked up at me. Her expression was calm. Too calm.
+
+"Because she's not waiting anymore," she said.
+
+"Then what is she doing?"
+
+Lily looked back at her drawing.
+
+"Someone always waits at the window," she said.
