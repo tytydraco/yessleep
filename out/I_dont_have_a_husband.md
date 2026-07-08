@@ -6,7 +6,7 @@ I don’t have a husband, and I don’t *want* to have one.
 
 I think it’d be helpful to note that I‘m not a fan of romance. I mean, I can see why people like it. I’m not exempt from the majority that swoons at rom-coms, and I‘ve had my fair share of ‘aww, he’s cute!’ moments. But when it comes to actually thinking about sharing my life with someone else… Ugh.
 
-It‘s like thinking about a parasite. Who has the time to be sending good morning texts *everyday*? And don’t get me started on my ever-growing list of pet peeves and icks. 
+It‘s like thinking about a parasite. Who has the time to be sending good morning texts *everyday*? And don’t get me started on my ever-growing list of pet peeves and icks.
 
 Maybe I’m just picky, or maybe I’ve just never been in love, but I’m fine with growing up and only ever having friends, maybe a few exotic pets. Romance, as I see it, is boring and inconvenient.
 
@@ -40,19 +40,19 @@ I frowned, first at the implication that those boots couldn't have been mine, th
 
 There were odd little things like that all throughout my house. Like, for example, when I had finally gotten around to putting away my clothes, I noticed old shirts a few sizes too big, company logos that I've never bought from wide across the front.
 
-Across the span of a few weeks, I received voicemails from people I've never heard of, all seeming to congratulate someone for something. 
+Across the span of a few weeks, I received voicemails from people I've never heard of, all seeming to congratulate someone for something.
 
-There's this cafe I frequent, one just around the corner from where I work. 
+There's this cafe I frequent, one just around the corner from where I work.
 
 On occasion, on slower days, I'd find myself smiling about how cute the barista is. Not exactly a crush, far from it actually, but there are days where you need to seriously romanticize life or you'll die from how boring things are. That's all my coffee shop visits had really been, just grabbing an americano and sighing about the dreamy dude at the counter I knew nothing about.
 
-He was gone. 
+He was gone.
 
 I guess it could've just been a sudden quitting. There one day and gone the next sort of a thing. But it was weird how his coworkers acted like he hadn't been there in the first place. When I had gathered the courage to ask, at the risk of looking like a total creep, the girl behind the counter gave me a confused smile.
 
 "A guy?" She tilts her head, black hair slipping from where it had been tucked behind her ear.
 
-I nod. "He- uh... He's usually here around this time. You know, brown hair? Glasses?" 
+I nod. "He- uh... He's usually here around this time. You know, brown hair? Glasses?"
 
 She still looks confused, and I continue, getting desperate.
 
@@ -62,7 +62,7 @@ So much for not sounding like a creep. Fortunately, the girl gives a small laugh
 
 "Pfft, I *wish* we had someone like that working here." Another one of the baristas, walking past, gives a small 'heyo!' when she says that, and the girl smiles again. "Sorry. Maybe you've got the wrong place?"
 
-"Yeah, probably. Sorry." I mumble, taking the drink I had ordered from the end of the counter and pushing open the door. 
+"Yeah, probably. Sorry." I mumble, taking the drink I had ordered from the end of the counter and pushing open the door.
 
 Home had begun to smell different. I imagine it's like when a baby deer come back to its mom smelling human. I couldn't recognize my place as my own anymore.
 
@@ -72,7 +72,7 @@ Within the hour, I had left the house, opting to instead go to the library and t
 
 So long as I was away from home, I could lie to myself. I could tell myself that I've just been stressed lately, I could tell myself that what I was experiencing was simply the result of burn out. Just as long as I wasn't home.
 
-I wound up walking mindlessly about the grocery store, picking at produce and convincing myself that I wasn't scared to go home. Why would I be? 
+I wound up walking mindlessly about the grocery store, picking at produce and convincing myself that I wasn't scared to go home. Why would I be?
 
 There shouldn't be anything I wasn't expecting. I knew there wasn't.
 
@@ -82,34 +82,34 @@ I didn't look to see what it was. I'm beginning to get the impression that it's 
 
 "Imogen! Yoo hoo!"
 
-The shrill voice of my neighbor, Mrs. Caritar, rang from across the produce section, and she waved me over. 
+The shrill voice of my neighbor, Mrs. Caritar, rang from across the produce section, and she waved me over.
 
-Mrs. Caritar had a passion for community like no other. Remarkable, really. If you pointed to any one person in the grocery store and asked her about them, 9 out of 10 times she'd be able to give you their name, and at least one fun fact. 
+Mrs. Caritar had a passion for community like no other. Remarkable, really. If you pointed to any one person in the grocery store and asked her about them, 9 out of 10 times she'd be able to give you their name, and at least one fun fact.
 
-Right now, we were exchanging pleasantries. She was raving about the antics the kids in the apartment building were getting up to. 
+Right now, we were exchanging pleasantries. She was ranting about the antics the kids in the apartment building were getting up to.
 
 "You know," She begins, fully turning away from her grocery cart. "If I weren't just visiting my daughter, I'd have half a mind to complain to the landlord about the noise! It's outrageous!"
 
-I just smile and nod, not really paying the conversation any mind until she leaned in close, eyes brimming with mischief. 
+I just smile and nod, not really paying the conversation any mind until she leaned in close, eyes brimming with mischief.
 
 "Although, I wouldn't mind seeing any new babes from you two!" She leans back, tittering to herself. "Really, you'd ought to see my *real* grandson. A real life cherub, I tell you! Oh, I've got a picture to..."
 
 Her voice fades into the rest of the grocery store ambiance, and I take account of what's in my cart in an attempt to calm myself. There's trail mix. I hate trail mix. Why would I buy trail mix?
 
-On my drive home, the whole way through, I hardly feel anything outside of a growing dread. 
+On my drive home, the whole way through, I hardly feel anything outside of a growing dread.
 
-When I get into the apartment building, I can hear kids running around in the halls from all the way down here. I take the elevator. 
+When I get into the apartment building, I can hear kids running around in the halls from all the way down here. I take the elevator.
 
-When I fling my door open, I hang my keys next to another set. 
+When I fling my door open, I hang my keys next to another set.
 
-I set the groceries down on my counter. I place the trail mix somewhere I know he'd find it. I look towards my shut bedroom door, and I can hear breathing. 
+I set the groceries down on my counter. I place the trail mix somewhere I know he'd find it. I look towards my shut bedroom door, and I can hear breathing.
 
-I don't know what to do. I'm still in my kitchen. 
+I don't know what to do. I'm still in my kitchen.
 
 I don't know what the hell is in my bedroom.
 
-I don't have a husband. I don't *want* to have a husband. 
+I don't have a husband. I don't *want* to have a husband.
 
-So why do I have one? Have I always had one? 
+So why do I have one? Have I always had one?
 
 I don't want to go to sleep.

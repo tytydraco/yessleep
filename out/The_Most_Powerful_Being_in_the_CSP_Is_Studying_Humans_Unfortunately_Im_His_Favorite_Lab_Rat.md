@@ -374,7 +374,7 @@ Okay, maybe not two million.
 
 It just felt that way.
 
-Every department Angelo had reorganized apparently generated another stack of forms that somehow ended up on my desk. 
+Every department Angelo had reorganized apparently generated another stack of forms that somehow ended up on my desk.
 
 I shoved the door open with my shoulder, staggered inside, and let the entire stack collapse across my desk. The papers spread everywhere.
 
@@ -799,3 +799,5 @@ I glanced toward Angelo. He was still completely absorbed in the documentary, ta
 Ew. No.
 
 They definitely needed therapy.
+
+Part 7: [Someone Stole the Rifle Built to Kill Gods. Then They Pointed It at Me.](https://www.reddit.com/r/nosleep/comments/1ulxgk7/someone_stole_the_rifle_built_to_kill_gods_then/)

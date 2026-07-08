@@ -245,3 +245,6 @@ I stood dumbfounded and nervous. I shook the handle to open it, but nothing happ
 “Mommy? Did I do something wrong?” I called, but I got no response. I heard what sounded like crying on the other side of the door, mixed with someone gasping for air. I joined in on the choking sobs with my own small and pitiful cries.
 
 In the morning, light bounced off the walls, and picture frames in the hallway shone into my sore eyes. I must have fallen asleep at some point during our duet.
+
+  
+ [Part 2](https://www.reddit.com/r/nosleep/comments/1ur11xh/as_a_child_i_bought_glitter_glue_at_a_yard_sale_i/)  
