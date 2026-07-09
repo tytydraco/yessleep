@@ -1,0 +1,150 @@
+I've been a hospital sign language interpreter for fourteen years. Staff position, night rotation, a mid-sized hospital I won't name, in a city that will also go unnamed. I'm posting to ask the signers here, Deaf or hearing, for an identification. Before anyone asks: no, I won't teach you the sign this post is about. I'll describe exactly enough of it that someone who already knows it will recognize it, and not one parameter more. By the end, I think you'll agree that's the right call.
+
+Some background, because you should know whose hands you're trusting. I'm a CODA, a hearing child of Deaf adults. ASL is my first language. English came later, from television and a hearing aunt, and it has always felt a little like renting. My mother says my English has an accent. She's teasing. Mostly. My mother is also why I took the staff job at this particular hospital, because Deaf patients get a raw enough deal in medicine without drawing whoever's cheapest off an agency list.
+
+Interpreting has a code, and the core of it fits on a sticky note: interpret everything, add nothing. Fourteen years and I have added nothing through overdoses, psych holds, three deliveries, and one man who wanted his family told, in front of him, that he wasn't sorry. This post is me breaking the code. I'm going to add as little as I can get away with, and where I'm guessing, I'll tell you I'm guessing.
+
+If you grew up CODA you already know the rest of the resume. I was the family telephone by six and the family notary by nine, standing on a chair at the bank relaying mortgage terms I couldn't spell, because the branch wouldn't book an interpreter for a customer of twenty years. You grow up bilingual and load-bearing. It makes you precise, and it makes you protective, and both of those are about to matter. The precision is why I picked up a linguistics minor in college, to find out whether my first language had laws the way English does. It does. The professor who ran the sign phonology seminar liked telling people I was the only student who arrived already obeying rules he'd spent a career writing down.
+
+Unrelated grievance, but it's my post: hearing people who learned ASL from an app and lead with it at parties are more work than any patient I have ever had. You know who you are. I mention it so you understand I am not a mystic. I am the least romantic person in any room on the subject of my language. That's the person telling you this.
+
+Cast, first names only, because nobody else consented to being in this.
+
+Elena, my mother. Seventy, Deaf, widowed, vain about her signing the way other women her age are vain about their posture. Admitted in March for observation after a TIA, the small kind of stroke, the warning-shot kind. She was supposed to be in for two days. My mother's signing is the kind strangers stop to watch, big clean old-style delivery, and she knows it. She taught half our block's hearing parents enough sign to gossip with. Her hands are her looks. Remember that, because this story is rude to it.
+
+Ruth, eighty-four, fourth floor, renal. A Deaf school kid from the era when the schools were residential and teachers slapped signing hands with rulers. Plays cribbage like a loan shark. Tuesdays and Fridays I ate lunch in her room and lost small money to her, and I want that part on the record before the rest of it: Ruth mattered to me before she was ever useful to this story.
+
+Kevin, the day-shift interpreter. Video-relay work on the side, a spine of pure protocol, and one specific quiet he goes into when he knows a thing he isn't going to say. In fourteen years I'd seen that quiet maybe twice.
+
+And my hands. I know how that sounds, listing my own hands like a character. Stay with me. An interpreter's hands are her whole livelihood, so I care for mine like a pianist. Tendon glides at red lights. Ice after doubles. And one detail you should file away now: a native signer's hands never go fully slack at rest. They settle half in a word, the way a sleeping dog's legs keep running. My mother's hands do it. Mine do it. You'll want that later.
+
+Money, since somebody always asks why people in these stories don't just leave. The staff salary covers my life. The per-diem night shifts cover my mother's supplemental insurance, which is the difference between the rehab floor upstairs and a county facility two hours away. Interpreters who get flagged, written up, restricted, weird, lose per-diem work first. Keep that in mind when you judge what I chose not to report, and when.
+
+In March, a patient came out of anesthesia signing.
+
+That is not the strange part. People surface from anesthesia talking in every language they own, and Deaf patients sign through the fog, big loose dream-signing. Part of my job is voicing it, speaking it aloud in case any of it is clinical. The patient was a Deaf man in his fifties, gallbladder, and I was voicing the drift, cold, cold, where's my, cold, and then his hands did something I have no gloss for.
+
+One piece of linguistics, and then you'll have everything you need for the rest of this. Signs are built from parameters: handshape, location, movement, palm orientation. I describe signs by their parameters the way a coroner reads a body. Habit. It makes me good at my job. And the parameters have laws. The one that matters here: when a two-handed sign gives each hand a different shape, the hand you don't lead with, the base hand, is only allowed a handful of shapes. The boring ones. The shapes babies find first. Every documented signed language on earth obeys that law, the way every spoken language obeys the shape of the human mouth. Nobody passed it. It's just what hands are willing to do while a brain speaks through them.
+
+His base hand wasn't boring. It held a shape I could not have made on a dare, fingers crossed and hooked and torqued until the hand looked less like language and more like rigging, and his dominant hand moved over it, and the whole thing carried the unmistakable rhythm of a word. Not flailing, not spasm. Prosody. It landed the way MOTHER lands, or STOP. A shaped, finished thing. Then his hands wandered on. Cold, blanket, cold.
+
+In recovery I asked him about it, casual, my own hands light. He looked at me the way you look at a waiter who brings a dish you didn't order. "I didn't sign anything," he said. Not defensive. For him it was simply true.
+
+I keep a work notebook. Glossed, dated, dull, fourteen years of it. Glossing is naming, and that night I found I did not want to give the thing a name, so I drew a box with nothing in it. \[ \]. That's how it appears in my notes. Eleven entries between March and June.
+
+April. A Deaf girl, seventeen, on the epilepsy monitoring unit, coming out of a tonic-clonic seizure. Post-ictal patients are foggy and frightened and their signing smears, and hers did, and then it didn't. Her hands made the sign twice. Slowly. And slow is the detail that moved this from puzzle to problem, because it wasn't the slowness of confusion. It was the slowness of rehearsal, the deliberate stretch you use when you're teaching a word to a beginner. Her mother sat right there, hearing, no sign. Nobody saw it but me.
+
+Then May, and the case that wrecked the tidy version where this is some Deaf cultural artifact with a long tail. A hearing man, fortyish, motorcycle versus guardrail, external fixator on his left leg, no sign background whatsoever. I'd stake my certification on that. Under sedation, his hands worked through the sign the way a tourist works through a phrase. Wrong angles, mushy transitions, an accent thick enough to spread on toast. But recognizable. A word is still the word in a bad accent. That's the entire point of words.
+
+I saw the seizure girl once more, at a follow-up in late May. She remembered nothing and signed about her college list, normal as bread. At the elevator her mother pulled me aside, hearing to hearing, the way they do, and asked whether the new gesture was, her phrase, a seizure thing. She'd seen it at home. Twice. At the dinner table, both times, her daughter's eyes somewhere else entirely. I asked her to film it if it happened again. Nothing ever came, and their next appointment went to an agency sub, because by then my schedule was, quote, settling.
+
+I did the sane things, and I'm going to list them, because every thread ends in a wall and the walls deserve a record. I pulled what medication records my access allowed and asked a pharmacist friend to check the rest: different agents, different doses, no overlap worth the name. I asked the attending on the gallbladder case, who gave me ninety seconds and the phrase "emergence phenomena" and was needed elsewhere. Horoscope explanations, the kind that cover everything and predict nothing.
+
+I even asked security, carefully, whether the recovery bays have cameras, thinking I could get one instance on record that wasn't my word and my notebook. Hallways only, patient privacy, and the guard wanted to know why I was asking, and I watched myself decide, in real time, that the truth would sound worse than no reason at all. That's the shape of this whole thing: every path to proof runs through a conversation I can't afford to have.
+
+I also wrote to my old phonology professor and described the parameters in cold text. He replied within a day. Fascinating, matches no documented inventory, would I demonstrate on a video call.
+
+On the call, I raised my hands to approximate it, the way you'd sketch a word you'd seen once. My hands did not approximate it. They produced it. First try, both hands, at speed, with the prosody, the base hand locking into that rigged shape I told you I couldn't make. I have learned three languages and taught two, and I know what learning feels like from the inside. Nothing was learned in that moment. Something was retrieved.
+
+My professor was quiet for a while. Then he said, and I typed it into the notebook while he said it: "Please don't demonstrate that again. I'll keep looking." He hasn't emailed since. I've written twice.
+
+Kevin found the notebook in May. We share an office the size of a decent closet, and he flipped the book open looking for a schedule and it fell to a page with the box on it. \[ \]. He went into the specific quiet. Then he closed the notebook with one finger, the way you'd close it if it were warm, and said, "Stop writing it down." I asked what he knew. "Nothing you can use," he said, and took his lunch to the stairwell. That is everything I have ever gotten out of Kevin, and I'll be fair to him: I believe it's protection, not cowardice. I'm no longer sure there's a difference that matters.
+
+I did try my mother first, before Ruth. April, her kitchen, two weeks after the hospital sent her home with new blood thinners and a follow-up. I got one sentence into the gallbladder patient and she lifted her hands and changed the subject inside my pause, the way she has my whole life when a topic displeases her, and asked whether I thought the neighbor's new fence was spite or taste. You cannot out-wait a Deaf woman who has decided a conversation is over. I dropped it.
+
+So I took it to Ruth. Tuesday, cribbage, June. Ruth is the only person I know whose ASL is older than the textbooks, and I have a theory, which my mother hates, that Ruth's generation signed a purer language than mine. I once said that at her bedside and Ruth looked at me over her cards and signed, we signed what the school let us keep. I still think I'm right. Put that in the record too, that I'm the kind of person who hears that sentence and still thinks she's right.
+
+I never made the sign for her. I described it, hands neutral, parameters only, the way professionals talk about a sign without saying it.
+
+She slapped the notebook shut. Eighty-four years old, on dialysis, and it went off like a gunshot.
+
+What she signed next, I'll gloss the blunt old way she signed it. DON'T ANSWER, NOT TALKING TO YOU, DON'T SIGN BACK. And when my hands came up with the obvious question, who is it talking to, she took them, both of them, the way you take the hands of a child signing too loud in church, and pressed them flat to the blanket, and held them there, and I let her.
+
+She gave me one piece of it. At school, she said. Lights out. The dorm, the long row of beds, the house mother's window lit at the end of the hall. Hands passing something down the row, bed to bed, under the blankets where nobody could see. Everyone knew you didn't take a turn. Some girls took a turn.
+
+And instead of finishing, she signed, WE PUT IT DOWN, and then FINISH, the emphatic one, conversation over, and dealt the next hand with fingers that weren't entirely steady, and cheated, and I let her do that too.
+
+I should have pushed. You're reading this thinking it. She was eighty-four, and she was the last fluent hands of her whole dormitory, and I have spent my working life adding nothing. I didn't push.
+
+The wrist happened in June. The hearing man again, back for a hardware adjustment, sedated in the procedure suite. I was two bays down waiting out a Deaf patient's sedation when a nurse stuck her head around the curtain and asked me to help steady an arm, because staffing is staffing, and hands are hands.
+
+He took my wrist. Not grabbed. Took, the way an instrument takes a reading. His grip was wrong for a sedated man, wrong for any man, no tremble in it, and he folded my fingers into the starting shape and moved my hand through the sign joint by joint, adjusting at each knuckle, patient as a metronome, and I heard my own voice saying okay, okay, in English, in the tone I keep for frightened patients, while my arm stopped being mine, it was his the way a pen is yours, and he walked my hand through the whole word once slowly and once at speed, and the second time my tendons anticipated the transitions, they leaned into them, my hand helped, and that is the sentence I have typed and deleted the most in this whole post. My hand helped.
+
+The nurse pulled him off me in the sense that she lifted his arm away, and it came easily, no resistance, a sleeping man's arm. Two sprained fingers. Bruises that came up in four neat bands, which I photographed for the incident report. He woke an hour later with no memory, horrified in the genuine way, kept apologizing to the wrong side of the room.
+
+The incident report took forty minutes and cost exactly what I said it would. A review meeting. A note in my file with the word "pending" in it. Two per-diem shifts reassigned to an agency sub, "while things settle." Reporting was the right thing. The right thing has a copay.
+
+July. I caught my hands at a red light. Not tendon glides. The left was resting on the wheel in the base shape, and the right was walking through the movement at half speed, both of them casual as whistling. I hadn't asked for either. I pulled into a hardware store lot and sat on my hands for ten minutes, and that was my full clinical plan, sitting on them.
+
+At night I started buddy-splinting my fingers, taping each one to its neighbor. I told the mirror it was sprain care. On a morning at the end of July I woke with my left ring finger dislocated, torqued sideways against the tape. The splint had done its job. The splint was the only reason it was a dislocation and not a completed word. The urgent care doctor asked how, and I said, in my sleep, which had the advantage of being true.
+
+I booked the neurologist myself, out of pocket. Focal dystonia is a real occupational disease, interpreters get it, pianists get it, the hand's wiring wears grooves. I have never wanted a diagnosis so badly. Exam clean. Strength, reflexes, coordination, textbook. She said, whatever this is, it isn't coming from anything I can test, and gave me the name of a colleague who, from the shape of the referral, treats a different organ. I tracked my sleep for a week to rule myself out. Seven hours, respectable, every night. I know what stress does. Stress does not teach your hands a language overnight.
+
+I did the other math too, the quitting math, twice, on the backs of envelopes. It has one answer. The per-diem nights are the insurance, and an interpreter who quits mid-flag doesn't get rehired anywhere the hospital systems talk to each other, which is everywhere I could drive to. I stayed. Not bravery, arithmetic.
+
+The worst of July wasn't the finger. It was a routine Tuesday discharge, me voicing a hearing surgeon for a Deaf patient, hands on the autopilot fourteen years builds, and half a sentence in I felt the transitions leaning wrong, my base hand drifting toward the set-up like a car drifting when you look at your phone. I converted the drift into a real sign and sold it as emphasis. The patient noticed nothing, nodded, went home with his stitches and his paperwork. I finished that discharge with my elbows pinned to my ribs like a first-week student, and then sat in my car in the parking structure and understood, in the way you understand weather, that every sentence I interpreted from now on had a passenger in it.
+
+August was my mother.
+
+The real stroke, left hemisphere, at home, alone for forty minutes before a neighbor's kid came by with tomatoes. She lived. I want the verbs in the right order: she lived, and then everything else.
+
+Here's the thing most hearing people don't know, and it's the part of this I'd want taught in schools. Sign is language in the brain. Full stop. Not gesture, not pantomime. A Deaf signer with a left-hemisphere stroke loses signing the way a speaker loses speech, same architecture, same grief. My mother's aphasia took her handshapes and smeared them. Her MOTHER dissolves halfway into something with no name. Her sentences strand at two words and she knows it, that's the cruelty, the knowing is intact. Watching her rebuild three-word phrases with the therapist was the worst thing I'd ever sat through.
+
+It held that title for a week.
+
+Twice, that I saw, her hands lifted from the blanket, and her right hand, the plegic one, the hand that cannot hold a spoon, rose smooth as a stage prop and set itself into the base shape. And the sign happened, whole, fluent, at speed. In a hospital room with nobody in it but her daughter. The law says the base hand only takes the boring shapes because the brain won't drive anything harder through the passenger hand. Her passenger hand was not being driven by anything on her chart.
+
+And my hands came off my lap to answer it. They were up, open, halfway into a reply I did not compose, before I knew I'd moved. I sat on them. Forty years old, sitting on my hands in front of my mother like a first-year student, and her eyes tracked them down, and on her face, under the stroke, under the fog, I will swear to this, was relief.
+
+There's a smaller thing from those weeks, and it's the one that keeps me up. Her resting hands. A native signer's hands settle half into a word, I told you that at the start. My mother's don't anymore. Between sentences they lie on the blanket emptied out, still as gloves, and the therapist calls that fatigue, and I would like to be the kind of person who can leave it at that.
+
+Ruth died on a Friday night in September, with me on call. Renal failure at the end isn't dramatic. It's a tide. She was mostly under, and I stood at the rail where she'd see me if she surfaced, because you should be visible in someone's last language. Around one in the morning she surfaced. Her hands came up off the blanket.
+
+Both palms flat, pressing down. Big, emphatic, the way you sign to a child across a playground. PUT IT DOWN. Again, bigger, PUT IT DOWN. Not to the room. Her eyes were on me and they were not foggy, and her hands said it until they couldn't, and the last repetition barely cleared the blanket, palms settling like the end of a note.
+
+I signed OKAY. I signed PROMISE. She watched my hands say it, and either believed me or was finished waiting, and went back under, and didn't surface again. Her cribbage board is in my locker with the last game still pegged, 96 to 61, her lead. She was always winning. I keep meaning to move the pegs somewhere safe and I keep not touching them.
+
+Her service was Deaf-run, eulogies in ASL, three generations of hands going at once, and the funeral home staff stood at the back understanding nothing, which Ruth would have loved. Nobody at that service made the sign. I watched for it. I'm not proud of that, watching a funeral like a checkpoint, but you're getting the version of me that's true.
+
+Ten days ago, the curtain.
+
+My mother's room on the rehab floor has two beds. The second is empty, curtain half drawn around it, which is how housekeeping leaves it. I'd been sleeping in the recliner three nights a week, insurance math permitting, because the night rotation was mine for years and the floor is quiet and I sleep better near her, or I did.
+
+I don't know what woke me. That's not accurate. Nothing woke me. I surfaced the way you surface in a dentist's chair when the drill changes pitch, because the work being done on me changed.
+
+My hands were up. Signing. At my sleeping mother, at conversational speed, relaxed, fluent, mid-sentence, and the sentence was that sign, over and over with small variations, the way you say a name into a phone that isn't answering. Hello, hello, are you there.
+
+I tape my fingers at night. I had taped them in the recliner before I dozed, the whole buddy-splint ritual. My lap held the tape, four tidy strips, peeled off and laid parallel, and I don't remember that part happening at all.
+
+The curtain. The gap where the two panels didn't quite meet, in front of the empty bed. The gap sat at the height of a standing signer's signing space.
+
+Hands.
+
+Two hands in the gap, palm-on to me, corridor light catching the knuckles and nothing above or below them. I'm not going to describe their handshapes. What matters is the parameter you can't fake: they took a turn. My hands finished, and the hands in the gap answered, and mine came up again on the beat, and the rhythm of it was the rhythm two fluent signers fall into at a kitchen table, that easy dovetail, no gaps, no overlaps. Native turn-taking. With the thing in the gap in my mother's curtain.
+
+I was not afraid at the volume the situation deserved. I want that stated plainly, because it's the finding. Most of me was busy. Being used is absorbing. That's a clinical note, not a complaint.
+
+Then cold closed over my fingers. Both hands. My final hold was adjusted, two degrees at the wrist, thumb reseated, gently, precisely, the way I have corrected ten thousand student hands, the way the sedated man corrected mine in June. Teacher-patient. Then the gap was only a gap, the corridor light hummed like a corridor light, and my hands were mine again. Or were let go of. I sat in the recliner until morning rounds with my hands pinned under my thighs, watching a curtain not move. A resident stuck her head in at six and asked if I was okay, and I said yes, and my mouth meant it, and the meaning it frightened me more than the marks did.
+
+The second bed was made, empty, and cold. On the backs of my fingers, by morning, gray marks. Four on each hand, fingertip-sized, cold to the touch until almost noon. I photographed them next to a coffee cup for scale, dated the file, and put it in the folder with the bruise bands from June, a folder which is either evidence or the tidiest possible diary of a breakdown. I know which one a review board would call it. I filed nothing. I'm telling you people instead, which tells you where I've landed on institutions.
+
+Here's where everything stands, twenty days on. I've stopped interpreting. I gave up the staff position, which ends the per-diem eligibility, which means my mother's supplemental insurance lapses in January, and I have rebuilt her rehab plan around that fact with the help of a social worker who deserves a statue. I work the same floor as a unit clerk. It pays like an apology. But I am near her, and I am not putting my hands into the middle of anyone else's sentences until I know how much of them is mine. An interpreter who can't trust her hands isn't an interpreter. She's a transmitter with a license.
+
+My mother is recovering. Slow and furious, rebuilding her language like a woman relearning a city after an earthquake, block by block, and some blocks are just gone and she reroutes. She can sign my name again as of last Tuesday. But she doesn't watch my hands anymore. Fifty years of talking to her daughter and now she keeps her eyes on my face, only my face, the way you hold eye contact with a dog you're no longer sure of. We write on a whiteboard now, my first language reduced to marker fumes and block letters. She writes in full sentences, always did, even her grocery lists have grammar. Yesterday she wrote, YOUR HANDS ARE TIRED, TELL THEM I SAID SO, and underlined it twice, which is as close as my mother gets to saying the other thing. If you want to know what this actually costs, it isn't the finger.
+
+I still splint my fingers at night. Most mornings the tape is where I left it. At rest, my left hand holds the base shape now. I catch it on the steering wheel, on the armrest, settled, patient, half in the word. Like a phone left off the hook. I can make it stop. It doesn't stay stopped.
+
+So here is what I'm asking, and what I'm not.
+
+To the signers: the sign I've described has a base hand in a marked shape that breaks the dominance law, it lives in the space in front of the chest, and its palm orientation shifts mid-word. That's all I'm giving. I'm not giving the movement. Movement is the engine of a sign and I'm not handing anyone the engine. If you recognize it anyway, from a dorm story, a summer camp, a grandmother's warning, a sign that older people refuse to make, then you know something I need. Message me what it is. A name is enough.
+
+If a Deaf elder in your life ever told you to put something down, ask them how. Ask them what it cost. Write down what they say and send it to me word for word. I'll take it in any language.
+
+And whatever you do, don't practice what I've described. Don't reconstruct it. Don't finish it. I'm not asking for reactions. I'm asking for a translation.
+
+Kevin runs the floor alone now. He hasn't once asked why I quit, which is its own answer. Last week there was a sticky note on my locker in his blocky protocol handwriting, two words: Good. Stay.
+
+One last thing. My notebook's final entry isn't the empty box. I retired the box the morning after the curtain, because the box was a name for something with no answer, and that's no longer my situation. The last entry is one gloss, and I'm putting it here so that somebody who knows more than I do can tell me I've mistranslated it.
+
+\[ANSWERED.\]
+

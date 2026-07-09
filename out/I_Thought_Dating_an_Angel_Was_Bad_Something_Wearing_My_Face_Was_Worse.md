@@ -1346,3 +1346,4 @@ His voice was barely audible. 
 
 *"****That's... impossible.****"*
 
+Part 9: [I Work for an Organization That Contains Gods. The Feather Led Something to Us.](https://www.reddit.com/r/nosleep/comments/1urfia3/i_work_for_an_organization_that_contains_gods_the/)
