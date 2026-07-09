@@ -1,0 +1,55 @@
+Parte 2: https://www.reddit.com/r/nosleep/s/O5CKxcfLqa
+
+To the people who sent me frantic messages begging me to pack my bags and flee to another country: I really wish it were that easy. The truth is, I don't have much money. I’m just a student trying to get by, and this farm was my only housing option. If I walk out that door with nowhere to go, I’ll end up homeless. So, last night, I had to face the horror head-on.
+
+​The sound of the brass key turning by itself in the hatch lock was the most terrifying noise I have ever heard.
+
+​Clack. The latch gave way.
+
+​I was paralyzed in the kitchen, the palm of my left hand still bleeding from the tithe. The heavy wooden hatch door began to rise slowly, pushed from below. A gust of freezing air smelling of wet dirt and copper rushed up from the basement, killing the kitchen light in the blink of an eye. Only the dim moonlight streaming through the window remained.
+
+​A creature began to emerge from the darkness of the basement.
+
+​It didn't look like anything that belongs to this world. It had no definite shape; it looked like a slender mass of long, thin, bony limbs covered in dark, wet skin that 
+
+glistened in the dark. It had no eyes, only rows upon rows of sharp teeth clicking together in a frenzied rhythm. The 
+
+sound it emitted was a muffled crying, which horribly seemed to mimic my own grandfather’s voice calling out my name.
+
+​The thing extended an absurdly long arm in my direction. Its claws almost touched my chest. I closed my eyes, waiting for the worst.
+
+​That’s when the men in gray acted.
+
+​They didn't enter the house. They didn't break the rules. 
+
+Instead, the three robed men on the porch began to chant a whispered melody—a monotonous drone that seemed to make the very stone walls of the house vibrate.
+
+​The gray smoke forming the cult leader's head began to expand, seeping through the cracks of the door and windows as if it had a life of its own. The smoke engulfed the creature from the basement.
+
+ 
+
+The moment the gray gas touched the monster's damp skin, it let out an unbearable, high-pitched screech of pain.
+
+​The smoke wasn't just hurting the creature; it was forcing it back down into the hole. 
+
+Like invisible arms made of mist, the smoke drove the mass of bony limbs back inside the hatch. The monster fought back, scratching the kitchen floor and leaving deep grooves in the wood, but the strength of the men in gray was relentless.
+
+​With a violent slam, the hatch door was thrown down, closing shut. The gray smoke condensed around the lock, and the brass key turned by itself once more, 
+
+locking the creature back underground.
+
+​Silence returned. I looked out the kitchen window. The men in gray had finished their chant. 
+
+The leader picked up the dark wooden box containing my blood tithe, tucked it under his robe, and without looking back, the trio walked in a single file line until they completely vanished into the night mist.
+
+​The sun has finally come up. The garden is still dead and gray, and the noises in the basement have stopped for now.
+
+​I picked up my grandfather's journal and flipped through to the final pages, searching for answers. I found a last note, written just a few weeks before he died:
+
+​“The blood keeps the jailer fed and the prisoner weak. If the tithe fails, the lock weakens. They only protect the house as long as Order is maintained. If you fail them, the thing downstairs will harvest you, and they will clean up whatever is left.”
+
+​Now I understand my role here. I can't run. I don't have the resources to leave, and honestly, I think if I try to cross the boundaries of this property, either the cult or the monster will find a way to drag me back. I am the new warden of this prison.
+
+​My hand is bandaged, and the gray patches on my neck stopped spreading after the tithe was accepted. I survived this Tuesday night. But the blood I left in that box yesterday will only last until next month.
+
+​I have exactly thirty days before they come back to the garden. I am terrified. The latch on the floor is already creaking again, and I can hear the wood straining. Please, I need your help. If anyone has any idea how to destroy whatever is in the basement, or how to break a blood pact with a cult without dying, tell me. I don't know how much more of my own blood I can afford to give.

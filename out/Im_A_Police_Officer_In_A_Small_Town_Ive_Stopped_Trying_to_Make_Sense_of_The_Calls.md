@@ -1,4 +1,4 @@
-Yes, that does sound very cliche but I don’t care. It’s true. 
+Yes, that does sound very cliche but I don’t care. It’s true.
 
 I’ve been on the job for about 12 years. I’ve been patrolling this town for about 3 of those years. I’m not going to say where the town is because I do not want to face any backlash from the higher ups. The department has “opinions” on what gets talked about. Just know that this town is a place where everyone knows everyone. If anything interesting happens expect everyone to have heard about it in 20 or so minutes.
 
@@ -6,13 +6,13 @@ When I first started working in this town, I treated it like every other place I
 
 I guess I’ll start from when I first got transferred here. Oh yeah, coming here was not my decision. It was kind of a “voluntold” situation. It was strongly suggested that I come here because of how I handled chaotic situations in the past. I was under the impression this was a step in the right direction for my career. A way to get in the bosses good graces. That was my first of many wrong assumptions when it came to this town.
 
-Wanna hear about my first day? Of course you do, you wouldn’t have gotten this far otherwise. I was excited about the change in scenery. It was a fresh start for me, so when I strolled into the precinct that first night, I had my head high and a smile plastered across my face. The first thing I noticed was how oddly quiet it was. There was no desk officer sitting behind the desk and the Sergeant’s office door was closed. I awkwardly made my way to the locker room to put on my freshly pressed uniform. It was there that I had my first interaction with someone who works here. For story purposes we shall call him Officer  Brad. Actually no. Steve. We will call him Steve. 
+Wanna hear about my first day? Of course you do, you wouldn’t have gotten this far otherwise. I was excited about the change in scenery. It was a fresh start for me, so when I strolled into the precinct that first night, I had my head high and a smile plastered across my face. The first thing I noticed was how oddly quiet it was. There was no desk officer sitting behind the desk and the Sergeant’s office door was closed. I awkwardly made my way to the locker room to put on my freshly pressed uniform. It was there that I had my first interaction with someone who works here. For story purposes we shall call him Officer  Brad. Actually no. Steve. We will call him Steve.
 
 Steve was an older cop, he was what we like to call “A salty vet”. He would get bothered real easily over nonsense. He had just finished putting on his gun belt as I was walking in. Trying to make a good impression I went up to introduce myself.
 
 “Hey, how’s it going? I’m Chris just uh, just transferred in. It’s my first shift”
 
-Steve looked at me with zero expression on his face. I’m talking not even an eyebrow raise. After what felt like 30 seconds he finally responded. 
+Steve looked at me with zero expression on his face. I’m talking not even an eyebrow raise. After what felt like 30 seconds he finally responded.
 
 “I’m sorry to hear that.”
 
@@ -22,11 +22,11 @@ Well off to a great start, I thought.
 
 “Yes, lots of things you should familiarize yourself with.”
 
-I was waiting for the second half of that sentence. Hoping he would tell me what to get familiar with exactly. Instead he just kind of brushed past me and walked out. 
+I was waiting for the second half of that sentence. Hoping he would tell me what to get familiar with exactly. Instead he just kind of brushed past me and walked out.
 
 I figured he was just counting down the days to retirement and chalked up him being an asshole to that.
 
-After finding my locker and putting on my uniform I headed back toward the desk to try and locate my patrol car keys. To my surprise there was still no one seated behind the desk. Everyplace that I’ve worked at, it was mandatory to always have someone behind the desk. You needed someone to dispatch, receive calls, or handle walk-ins. But here I was standing alone at the desk. I figured I would try and find the Sergeant. As I approached the office I noticed something that wasn’t there before. There was a note taped to the door. 
+After finding my locker and putting on my uniform I headed back toward the desk to try and locate my patrol car keys. To my surprise there was still no one seated behind the desk. Everyplace that I’ve worked at, it was mandatory to always have someone behind the desk. You needed someone to dispatch, receive calls, or handle walk-ins. But here I was standing alone at the desk. I figured I would try and find the Sergeant. As I approached the office I noticed something that wasn’t there before. There was a note taped to the door.
 
 “Keys in visor, car parked out back.”
 
@@ -36,9 +36,9 @@ I headed toward the back door expecting to run into some more cops at the very l
 
 Before I continue with details from my first shift I want you to understand how strange this all was. Normally when you start your shift there is a roll call. Think of it as attendance in school. Basically a way to make sure you are there. There is also post assignments that are supposed to be given out. None of this happened. Not only did none of that happen but when I say no one else was in the building, I mean no one. Not just desk officers or supervisors. I’m talking no other cops besides Salty Steve, not even a cleaning crew. Once I had my keys I really just wanted to leave that building.
 
-Night one was pretty quiet for the first half. Not a single call. I actually thought my radio was off or broken with how quiet it was. I even tried keying up the radio just to make sure it worked and it gave an audible beep which let me know it was in fact working. 
+Night one was pretty quiet for the first half. Not a single call. I actually thought my radio was off or broken with how quiet it was. I even tried keying up the radio just to make sure it worked and it gave an audible beep which let me know it was in fact working.
 
-I was about 3 hours into my shift when I heard the radio go off. 
+I was about 3 hours into my shift when I heard the radio go off.
 
 “Unit 1 on the air?”
 
@@ -92,7 +92,7 @@ I took a cautious step inside and headed for the bedroom.  As I approached the d
 
 “Surely!”
 
-He stepped in front of me and reached for the door handle. 
+He stepped in front of me and reached for the door handle.
 
 “Fair warning, she’s a bit tired. She hasn’t been able to get much sleep with this damn cold.”
 
@@ -106,19 +106,19 @@ I jumped out of my skin not expecting a “sickly” woman to be on her feet hid
 
 “Jesus! What the hell are you doing?!”
 
-She frowned “I can’t sleep!” She responded in a child like voice. 
+She frowned “I can’t sleep!” She responded in a child like voice.
 
 “Okay ma’am, I’m going to need you to sit down on the bed. EMS is coming to evaluate you and help you out.”
 
 “Oh let’s play a game! Up for some hide and seek?!”
 
-What the hell was going on? This woman who was supposed to be sick was not only standing up but pacing around her room. All while her husband stood idly by just smiling. 
+What the hell was going on? This woman who was supposed to be sick was not only standing up but pacing around her room. All while her husband stood idly by just smiling.
 
 “I’ll hide first and you have to find me!” The woman said. Her eyes were open as wide as I have ever seen.
 
 “Oh, she’s really good at this game! She always picks the best spots, you guys could never find her!”
 
-What the fuck was happening. This had to be some sort of new guy hazing. It had to be. Either that or these people were out of their fucking minds. 
+What the fuck was happening. This had to be some sort of new guy hazing. It had to be. Either that or these people were out of their fucking minds.
 
 The woman sprinted out of her room giggling and screaming “You’ll never find me!!!”
 
@@ -128,7 +128,7 @@ Yup, nope, I got the fuck out of there. I 100% ran back to my car and radioed di
 
 “Do not go in there! This woman is batshit crazy!”
 
-EMS just stared at me. 
+EMS just stared at me.
 
 “You’re new here huh?”
 
@@ -144,4 +144,6 @@ And with that EMS entered the house and I sat there in shock. Sure enough a few 
 
 “See ya Chris.”
 
-That was the first night of my time here. As you could imagine I definitely have some more stories. If you’re interested I’d be happy to share some more. 
+That was the first night of my time here. As you could imagine I definitely have some more stories. If you’re interested I’d be happy to share some more.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/8J00aVO4E7)
