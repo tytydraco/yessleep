@@ -1,0 +1,201 @@
+The first time, it woke me up. I sat up. Listened. Nothing. Must have been a dream.
+
+I live in the East Village in what they call a backhouse. Not some fancy building, but an old tenement sandwiched between two others, with a courtyard in between that landlords use to jack up rent because, hey, you've got outdoor space. Who cares if you live in two hundred square feet. Your rent is still $3,500. Not mine, though. I scored a rent-stabilized unicorn, less than 2k. I’ll never leave.
+
+When I moved in, my apartment still had a wrought iron door jammer from the early 1900s that allowed about two inches of peeking room to see who might be on the other side. Living in this space for over two decades, I can count the number of people who have rapped on its hardwood: a South Asian tenant hoping to score sugar for his chai during a snowstorm, and two Ukrainian children enjoying their first Halloween in America. Hope they liked the date-flavored vegan protein bars I passed off as chocolate with a smile. 
+
+The second time it happened, I was up. Woke up to pee. Had to have been after two. If I wasn't standing, I would've shit myself.
+
+*Knock. Knock. Knock.*
+
+I cut the stream mid-way. Could they hear me pissing? Probably. No matter where I stood in the apartment, I was only about ten feet from the front door. I held my breath too. All I could hear was my heart, lodged somewhere in my throat, and the shuffling of feet behind the door. Feet in heavy boots. I don't know why I thought they were heavy. Just sounded that way. Sounded steel-toed, too. The kind that would break my jaw with one swift kick.
+
+No way was I flushing. Thankfully, my landlord had fixed my rotting, squeaking floor the year prior, because he'd screwed me out of a better apartment in the front building. For the first time in twelve months, I was grateful for his guilt fix, and I tip-toed to the door. All my coats were draped over the peephole, and moving them would've been noisy, since I have a thing for windbreakers made of crinkly crap. Plus, the damn thing was cracked, like everything else in my apartment. 
+
+I crouched down and looked under the door frame, because yes, they fixed the floor, but did a five-dollar job of it, which meant the door no longer sat flush against the floor, and I could kind of see out through a finger-thick gap. No details, really. Just obstructions. Whether someone was standing there, or walking past.
+
+The boots moved and went down the stairs. I raced to my bathroom door, which, when left open, let me watch the courtyard without being seen.
+
+I waited. And waited.
+
+Nobody.
+
+*Was he waiting at the bottom of the stairs? Lurking?*
+
+Adrenaline coursed through me. Its buzz fired up all my nerve endings. Sleep wasn't happening. So I sat and listened until dawn, when my nurse neighbor left for her hospital shift at 6 a.m.
+
+She didn't scream.
+
+Nobody was waiting at the bottom of the staircase. I opened my door to inspect the surroundings. Nothing. I'm on the second floor. Only one flight up, twelve steps to be exact. There's no way I could've missed someone walking into the courtyard, up the adjacent stairs, and into the front building to leave. Impossible.
+
+*Was I imagining it all?*
+
+I told everyone. Even the old lady down the street, who responded with a curt, "That's fucked up," then eyeballed me before adding, "You okay? You don't look okay."
+
+She was right. No sleep at night, caffeinated to keep me going in the day, sugar and salt as sustenance. My pupils were two sizes too big, and something about showering made me feel vulnerable, like if that steel-toed boot kicked through the door mid-shower, my only defense would be a bar of Irish Spring.
+
+My landlord rolled his eyes. Probably thinking I was still pissed about the broken apartment promise, which I was, but still. This was real, and it was freaky. And it wasn't safe for other tenants. I sat on the stoop and asked everyone as they came and went. Despite nobody else reporting the same disturbance, I told my landlord we needed surveillance, that everyone was scared. He didn't buy it. Threatened to rip out any cameras if I installed them. Turns out those two Ukrainian kids, and their parents, are, how do we say it… not here legally. So cameras were off limits, since nobody wanted to get anyone in trouble. Got it. I'd have to get crafty.
+
+Nighttime became a thing. As it approached, it was as if I were sitting in the dentist's chair, drill whirring, getting ready to dig into a rotted, aching tooth with no Novocain. The dread was real. I'd fall asleep in fits, wake up drenched. Sit there quietly and wait for a knock, footsteps outside my door, anything.
+
+Then it happened. I got up to pee, and on my way to the bathroom I glanced out the window that overlooked the courtyard. Left of the courtyard, about ten stairs led to the front building, the doorway lit by a faulty bulb, because that's just the kind of landlord I have. Underneath that cheap yellow glow stood a man.
+
+At first glance, it looked like he'd stumbled out of some period Broadway show, a cabbie from the early 1900s. Sturdy, straight-leg trousers held up by button suspenders over a collared shirt. His boots were worn down to nothing, held together by string. A tweed cap sat on his head, frayed and torn, like it capped the skull of a dead man. A gust swept through my open window, carrying his stench. It smelled like my childhood dog, Pepper, who got hit. I found her two days later, on the side of the road. I closed my eyes and could hear the flies circling her body. 
+
+*Was he dead?*
+
+No. He was looking straight at me. Impossible. I'm in the dark. How could he see me? But we made eye contact. And he didn’t blink. 
+
+That's when he clunked down those ten stairs, looking toward my window as he limped through the courtyard. I ran for my phone. No idea where I'd left the damn thing. Would I call 911? What would I say? It wasn't in my pants, it wasn't plugged in. Maybe my bag.
+
+Then it came. 
+
+*Knock. Knock. Knock.*
+
+Not the polite kind. He was banging at the door.
+
+*Bang. Bang. Bang.*
+
+Testing the doorknob.
+
+This is when I learned that terror is a physical thing, not just a feeling. My body wanted to empty itself right there on the floor.
+
+*Say something? Who's there? No way.*
+
+It got quiet. Too quiet.
+
+As I stared at the door, a finger slid out from beneath the frame, feeling along the floor like it could see me. The thing was scaly, covered in a rash, pin points of blood dotted the knuckles. 
+
+There was something else I learned that night. Past a certain point of fear, my body doesn't run. It shuts off.
+
+I woke up on the floor, somewhere between the kitchen, the dining area, and the living room, which in an apartment this size is really just one spot. My head ached. I must have hit it hard going down. Ice soothed the pain but did nothing for the growing anxiety. 
+
+*Who was that? Why were they sticking their finger under the door?*
+
+The old lady down the street offered a benzo if I picked up her laundry. I ran to the laundromat. I chewed it for faster absorption as she put away her carefully folded t-shirts and bloomers, as she called them. Having lived on the block since Nixon, she knew all the buildings intimately. Mine, she said, was called the Q House, short for quarantine. Since the 1920s, the building had caught whatever disease was floating around. Yellow fever, smallpox, you name it. By the time she moved to the block, it was the building kids stayed away from, too afraid that if they went in, they'd come out sick.
+
+"Maybe it's someone who died there," she said, snickering at the worry on my face.
+
+Thankfully, the pill had already started doing its trick. I told her I'd be more than happy to swap chores for whatever else she had left to calm the nerves, then I left.
+
+That night I slept hard and long. Waking up refreshed felt like a dream.
+
+But that didn't last.
+
+The next night I took a bunch of melatonin, magnesium glycinate, turned on some white noise, and hoped for the best.
+
+Sleep never came.
+
+But the knocking did.
+
+*Knock. Knock. Knock.*
+
+Prepared this time, I took out my phone and hit record. I inched over to the door, got on my knees, and approached in a way that reminded me of how a startled dog sniffs an intruder. I was trying to be super quiet, but I could hear my own panting. Part of me was annoyed at how scared I was. Then again, I had every right. I've watched enough horror movies to know that door knockers after midnight were bad news.
+
+I lowered my head and squinted through that stupid big crack.
+
+Someone was there. The twine that held together the boot looked more like a vine. Maybe it was. Couldn't tell. Whoever was there wasn't moving. No shuffling. Nothing.
+
+And then the shitty hallway bulb started to strobe. Light flickered with the darkness, bringing the boot into view between flashes.
+
+Then it moved. The toe of the boot bent at the heel, wrong.
+
+I leaned in closer, forgetting everything I'd learned from horror movies. But how could I not? What was he doing?
+
+Something hit the hallway floor but didn't land with a thud. Sounded more like a bone breaking. I winced. It was followed by a series of movements, each one with a pop. Just like knuckles cracking.
+
+The light finished its dance. I could see more. His knotted hands were flush against the floor. So were his knees.
+
+Just when I realized he was looking through the crack too, everything stopped. The toe. The knuckles. All of it. Then he breathed. 
+
+Nothing normal about it. It rattled in his lungs, bringing with it the sound of air sacs popping. It was wet too. Before I smelled it, I felt it, warm against my face and eyes. It stung. And then the stink arrived. Made gingivitis smell like perfume. God, that smell.
+
+It breathed again. Same wet drag, same rhythm, like it was in no hurry at all.
+
+Vomit greeted the back of my throat before disappearing back to my stomach, which was now churning. A witch came to mind, standing over a cauldron, cursing her brew as she rotated a gnarled stick in circles. That's what was happening in my guts.
+
+I gagged. Couldn't help it. The second I made a sound, whatever was on the other side of the door vanished.
+
+Courage came, from where I don't know, but I grabbed my phone, opened the door, looked over the railing, and saw zip. Nobody in the courtyard either.
+
+Back in my apartment, I fired up the computer.
+
+A failed filmmaking career led to an admin job at the buildings department. It's the kind of job you take for "benefits." You know, two weeks off a year, health insurance, a discounted gym membership, and a 401(k) that might help feed you in those golden years. But it also came with access to city documents, including building history. I should probably backtrack my "benefits" snark, because it was through this access that I was able to find my unicorn, which I don't need to remind you, but will anyway, a rent-stabilized apartment in NYC is gold.
+
+Property records were filled with all kinds of things, mainly permits, violations, gas issues, ownership and transfers, that kind of thing. Some had death certificates for those who kicked it in their apartment. No, most. 
+
+I typed in my address. It took way longer than I expected, swelling my anxiety, bringing on the urge to pee. I got up to relieve myself, still thinking about what I was trying to accomplish. Was I overreacting?
+
+*Hell no.*
+
+Over one hundred years of dirt on my building. Lead in the pipes. Of course. A fire in the front building killing an elderly lady and her cat in the '70s. Noise violations. Looked like the exterior hadn't been painted since the '40s. No surprise there. Then a list of all the tenants through the years.
+
+The style of the documents changed over the decades, the typeset shifting to cursive in the '30s. I continued to scroll down. Then something jumped out from the late 1800s. 
+
+A series of death certificates. The first being for Mary and Catherine Sullivan. Twins. Age six. Directly below their certificate I could make out a few words. Stairwell by courtyard. Deceased three days.
+
+I swallowed hard when I read that. Three days. How could anyone be dead that long in a public space? That's when I saw it.
+
+TYPHUS. TYPHUS. TYPHUS. Scribbled in dark black ink. Like whoever wrote it was scared and in a hurry. It was followed by: All dead.
+
+My brain fired sparks. Everyone in this building died. And it took at least three days to figure that out. My mind ran through every inch of the building, locating bodies in the boiler room, hallway, on the roof, all the apartments, mine included. Maybe because it was in ink, but the image of six-year-old twins, dead by the stairwell, was the most unsettling. They must have been afraid. Maybe everyone had already died, and they were trying to escape, but they couldn't make it up the stairs, so they leaned against that wall and died. Holding each other. Crying.
+
+I drink beer near that stairwell. Even lean up against the wall on hot summer nights. Seeing as the place hadn't been renovated in decades, those girls probably died against that same ugly, peeling yellow paint.
+
+I quickly flipped through the tenant log. I couldn't find anyone for the backhouse apartments, which are labeled B. I’m in 2B. But I did see a slew of A apartments, which are all for the front building. Strange thing though, there were way more than twelve, which is how many apartments are there now. Maybe they combined units? 
+
+One name was circled. Mr. A. Murphy. 36. Next to his name was the word hallway. He lived in 2A. 
+
+The whole thing made my brain hurt.
+
+I closed my computer. The moment the lid clicked into place, air whooshed out of the room, as if the apartment was sighing.
+
+I put on headphones and hit the light. It was dark until it wasn't. What little sun rose across the East River came through my window and hit my face. Made me itch. Going to work after a night of no sleep made my stomach turn. The damn thing actually hurt.
+
+I peeled the covers off, got up, and nearly fell. Dizzy and hot. Last thing I needed was to get sick. Thankfully the bathroom was steps away, and I was able to make it there without falling. Bumps on my face stared back at me. Acne?
+
+*That's it. I'm calling out.*
+
+After a few hours tossing and turning in agony, I decided to go to the emergency room at NYU. ‘Cause why take a mundane job for “benefits” and not use them? 
+
+Nothing to worry about, they said. Just a fever. No COVID. No flu. Maybe the red spots were an acne flare-up from being sick. They did say the white blood count was a little off but gave no explanation. “Fine,” I said. They told me to drink fluids and relax, that it would pass. Thankfully, I scored a little something for sleep and went home.
+
+I slept.
+
+Until.
+
+*Knock. Knock. Knock.*
+
+I bolted up. Drenched. Sick as shit.
+
+Then I heard the doorknob turn. Did I forget to lock it when I came home? It rattled. Nope.
+
+*Phew.*
+
+Then something slipped under my door.
+
+An eviction notice. The typeset looked ancient, the paper yellowed and brittle. Bits came apart at first touch. The note claimed the leaseholder, some guy named Alfred Murphy, was back. His stint in the hospital was over. He was ready to reclaim his home.
+
+I inched over to the window. There, standing on the stairs in the courtyard, was that man from the night before, this time holding a tattered canvas suitcase. He was staring directly at me. I would have screamed, but my reflection caught me off guard.
+
+*What the…*
+
+Red bumps covered my body from head to toe. Within their centers were pinpoint spots of blood. That’s when the unmistakable smell of a dead thing hit me. It was seeping from my rash. I felt dizzy. Sick.
+
+And then I fell into the bathroom, smashing my head against the old porcelain tub.
+
+As my vision swam, an etching under the old tub came into focus. 
+
+Apt. 2A. 
+
+Then I felt nothing at all. 
+
+Doctors couldn’t figure it out. The fever and rash disappeared. Lingering issues from a concussion scored me sleep meds, which I double dose. 
+
+But it’s not over. 
+
+At night, after all the drunk kids in the courtyard stumble home, I can hear faint knocking echo through the dead quiet of the building. 
+
+I think it's happening upstairs, on my neighbor Larry’s door, but I haven't seen him in days to ask.
+
+And to be honest, I'm afraid to.
