@@ -1,0 +1,19 @@
+It started a few weeks back. A weird smell was coming from my fridge. I searched through it, looking for the cause of the stench. After a few minutes of looking, i found a box of tomatoes, covered in mold. I found it strange, since i only had gotten the tomatoes a few days back, but i didn’t think much of it. Maybe they were a bad box. I threw them away, shrugged at it, and forgot about it.
+
+Until, the next week. I had bought fresh fruit and vegetables just the night before, but when I woke up and stepped out of my bedroom, the same smell from the previous week filled my kitchen. I opened the fridge, and was shocked by the sight. Almost all of the fruit and veggies I had bought, not even 12 hours ago, was molding, or in some other state of rot.
+
+I took all of it out, tipped it into the trash, and took the trash out to throw out in the yard. When I got back, I deep cleaned the entire fridge, making sure nothing that could cause the food to rot was left.
+
+At first, I was kind of shocked, but also concerned. After cleaning out the fridge, I decided to head to the store again, but to complain about the food. Of course, they were selling food that was already rotting, that was the only logical explanation.
+
+When I arrived at the store, I told the cashier about my situation. She looked at me with a tired expression, and sent me to the manager. Strangely enough, I was told that no other customer had had complains on the matter. I got my money back from the purchase, plus a 50$ gift card for the inconvenience. Pleased enough, I went home, and decided to try and shop at a different store.
+
+I took the car, and drove to a large supermarket in the next town over. I did my usual shopping, paid, and drove back home.
+
+When I got back, I immediately checked for any rot or mold on the food before making some of it into a sallad. A few hours later, I passed out from exhaustion and slept until morning.
+
+When I woke up, a strange smell was coming from my mouth. I could vaguely recognise it, but wasn’t able to put my finger on from where. I excused it for morning breath, and walked over to the bathroom to brush my teeth and hopefully the horrid smell away. The face I saw in the mirror made me scream in horror, it looked as if black and whited greenish mold was growing on my face. I hurried to try to wash it off but got even more horrified as I saw my skin falling off in pieces.
+
+My first thought was to run into the kitchen. I had to check the food. When I entered the kitchen a smell hit me like a train, and I realised where I recognised the smell of my breath from. It was the rot. I opened the fridge, and all of my freshly bought food fell out, in different stages of rot. I screamed again.
+
+As I am writing this, I’m not sure if I have much left, the mold is spreading.

@@ -1,0 +1,119 @@
+The day that derailed my life and perception of reality started off the same as any other day. Me, awaking in my moth-eaten bed staring up at a water-stained ceiling, still just as financially destitute as ever. A few months back, the construction company I worked for had laid me off, as the company could no longer afford to pay many of its workers. I was able to draw out my savings for a while while I searched for a new job, but as my search turned up dry time after time and my savings drained away, a feeling of hopelessness overtook me.
+
+Sometime later in the day, I went through my mail, and discovered what many would consider the holy grail of offers. An offer to participate in a "scientific materials recovery project", with a possible reward up to thirty thousand dollars, depending on results. The sheet of paper gave no further information other than being an offer, and giving a time and location to "meet our team". Naturally, this felt too good to be true, but with rent around the corner and no way to pay it, I knew this was my only chance to stave off homelessness.
+
+So, against better judgement, I went to the location given, which happened to be an unmarked warehouse deep in the industrial area of the city. The building was old, but maintained, and evidently still in use. I parked my car into the adjacent lot alongside numerous other cars, and went to the front of the warehouse. 
+
+I was not alone, though. There were at least fifty other people with me, all seeming to have come for the same reason I did. Financial desperation. 
+
+I had no time to get acquainted with the crowd, however, as the old wood beam and steel sheetmetal doors of the warehouse slid open, and we were led in by a series of unarmed personnel adorned in light grey uniforms and each bearing the stylized figure of a buzzard in place of any political or corporate insignia. hesitation began to grip me, but the thought of being free of my financial crisis was still too great of a chance to let slide.
+
+We were brought to rows of nice seats in front of a podium and a large, featureless cardboard box. Before we were seated, we were made to sign a rudimentary non-disclosure agreement, as well as signing an unreadable wall of text masquerading as a liability waiver. Money is one hell of a motivator.  
+  
+Out of the fifty or so of us who entered the warehouse, only nine refused to sign the waiver. 
+
+Once seated, a scrawny, yet scruffy man in his late fifties or early sixties and dressed in a white labcoat bearing the symbol of the buzzard on the shoulder came up to the podium, introducing himself as Dr Fitzgerald and beginning to speak to us.
+
+"Welcome to Project Carrion. As I'm sure you all know, you have been selected to participate in a recovery mission. We have identified a region in which objects of scientific interest may be found. However, we lack the manpower for recovering these objects en-masse, so we have turned to crowdsourcing our effort."
+
+None of this particularly interested me nor did it interest any of the other volunteers. I was just ready to go and collect rocks or whatever we could possibly be doing and earn money for it. I still was skeptical of whether or not I would be actually receiving the money in the end, but had no reason yet to believe that I was in serious danger.
+
+"The objects we seek are in a...different place than here, and of an...unearthly nature. We want you to gather anything that appears anomalous, whether it be technological in origin or not. Use your wits, as the more valuable something looks, the more valuable it will likely be. In the end, we hope to use the knowledge from these objects in order to better humanity as a whole."
+
+At the mention of an "unearthly nature", I completely lost all semblance of belief in the legitimacy of this so called Project Carrion. I felt that I had been duped, and would either end up on some scummy internet prank channel after they drop us all off in the middle of nowhere.
+
+"Thank you for participating." Dr Fitzgerald said, leaving the podium and exiting the vicinity as the grey uniformed guards stepped back, one throwing what appeared at first glance to be a smoke grenade into our seating.
+
+I barely had enough time to panic before I slumped over, completely knocked out cold by whatever gas that device was putting out. 
+
+I awoke in a white circular room with two other "volunteers". Each of us had been put in blank white clothing with the symbol of the buzzard on our shoulders, and given a plain white backpack that seemed to be stuffed full.
+
+"Do you- do you have any idea what they just did to us-?" I asked, after wiping the haze from my eyes.
+
+"I think we got drugged and taken somewhere..." The older of the two said. He was around thirty, standing at almost six feet tall and with blonde hair.
+
+"No- no shit, sherlock." The younger of the two said sarcastically. He was around my age, and standing at a similar height to me. He had short chestnut hair and a small, but noticeable scar on his cheek.
+
+Before we could introduce ourselves, the entire room shook and we were plunged into darkness. Then, as the lights flickered, we heard a familiar voice through the intercom.
+
+"Hello, volunteers. This is a prerecorded message, as you have now arrived at your destination. We have not pinpointed down the exact time and location the gate leads to, but just know you are several thousand years into the future. Please gather any materials of interest you may find in your surroundings and deposit them in the Temporal Yacht for retrieval. The Yacht will return to its origin point in three days even. It is preferable if you survive until then. The Yacht will leave with or without you."
+
+What the hell had I gotten myself into. The walls of the Yacht folded outwards like a rose's petals, exposing a churning yellow-tinged sky of ash and haze. Around us lied a field of dust and barren cracked earth, with a dusting of white ash giving the landscape the impression of a sickly winter field. In the distance, shapes loomed. Ruins, as tall as the sulfurous clouds. Their exact form was obscured, but they felt distinctly...wrong...in their design.
+
+"I...I guess we just... I guess we just try to last these three days? Shit..." The shorter of my two fellow prisoners said, receiving nods from me and the other.
+
+We seemed to have been used as expendable fodder, but at least we were given something. We opened our backpacks to find an assortment of items. We each were given a rudimentary sleeping bag, a flashlight, a bottle of water, a metal baton for defense, a lighter and firestarters, and a popup basket. They didn't give us food.
+
+"No food. Three days without food." I said, putting my stuff back in my bag.
+
+"We can try to find some. Maybe something grows here that we can eat? Maybe there are animals? I just want to get out of this mess." The older of the two said.
+
+For a while, we just sat there, contemplating what to do. We exchanged names, and eventually settled on the idea that our best bet would be to head towards the ruins out on the horizon. Surely we could find *something* there.
+
+We walked in a line, passing over charred stone and parched earth as we made our way towards the ruins. Darren, the older one, walked in front, and Alexander, the younger one, walked behind. The walk to the ruins was long and grueling, but at the least we were travelling over mostly flat terrain.
+
+Now, as the ruins drew closer, we could see far more detail. The general layout was similar to that of any major urban city. However, the few intact buildings that remained reached far higher than any buildings I've ever seen. The most unusual thing about them, though, was their composition. They seemed to be partially organic, looking like their frames were grown like wood and bone, instead of built. In several areas, the pattern of the structures appeared to have been lost, and they looked as if they had begun growing in haphazard, chaotic patterns. It reminded me of cancerous tumors.
+
+We decided to settle in a mostly intact tower who's silhouette gave off the impression of a colossal obelisk which almost resembled the Washington Monument. Hence, we dubbed this ruined city "Wasteland DC".
+
+We set up camp in the lower levels of the tower, and gathered a few samples of the structure's material to bring back to the Yacht, in hopes that we would get some sort of reward. As night came, we set up our sleeping bags and closed our eyes. Sleep was hard in such an unnatural place, but we made do. For a while, at least. 
+
+We were woken up in the middle of the ashy night by gunfire and explosions, both near and far. It was dark, and all we could see from our vantage point were just flashes of light. Amidst the gunfire, we heard inhuman, animalistic sounds, and the scraping of metal. As anyone would, we all immediately ditched our camp, and sprinted up the malformed spiral staircase of the tower until we felt we were not in danger of being spotted by the participants of whatever was going on.
+
+Here, we could look out through the gaps in the structure and down at the dune-buried streets below. We saw humans, monstrous eldritch beasts, and a myriad of armored machines clashing against one another in a maelstrom of gunfire, claws, and smoke. This was not merely a fight between man and beast, nor a fight between man and machine. On both sides, humans fought along side clawed abominations and machines of war, raining fire upon each other in the streets below us. 
+
+Something that looked like it might have once been human started crawling up the structure towards us on far too many arms, before getting blown to a red mist mid-roar by the cannon of a massive tank suspended on half-mechanical half-organic spiderlike legs crawling over rubble. The force of the blast gouged a massive chunk out of the bottom of the tower, and it began to lean at an uneasy degree.
+
+Something massive began to crawl its way over through the ruins, weaving between the structures that stood like a flowing tide. I can't put what this...thing...was into words well, but I'll try.
+
+It was huge, easily the size of a large hill or small mountain in volume. The creature (if it even qualified as one) resembled an amorphous mass of flesh, something like a gigantic, sickly amoeba. As it crawled by, it skewered man, beast, and machine alike with impossibly thin, bladelike protrusions, drawing its prizes into its depth, never to be seen again.
+
+By some miracle, this abomination was too focused on the targets below to notice us. However, our relief as short lived as a blinding light filled the horizon, and a wall of dust propagated in our direction at a horrific speed. We had no time to react before we were blown into the wall behind us, and the tower began to fall back.
+
+As the tower fell, everything went dark.
+
+I remember waking up in the rubble, staring at the yellow daytime sky of this wretched place. The structures around me were in fresh ruin, nothing left intact. Something was scuttling over the debris, looking like a massive crab machine made from bone and flesh knitted together. It looked like one of those deep sea spider crabs, but with legs that branched like fractals. It was not alone. There were several of them, crawling over the ruins and gathering up the leftover bodies with long, serrated tendrils.
+
+I tried to get up, but was pinned beneath a slab of something between concrete and bone. I was helpless as the serrated tendrils bit into my flesh and dragged me into the sky. I could feel my leg disconnecting from my body as I was yanked from the rubble.
+
+I remember even less of what came after. For a while, I was in some sort of life support pod filled with a vile ooze, and then I was being dragged through a concrete tunnel. Then, I remember being held up on a surgical bed in some vast, gore spattered room. I saw people, and cried out for help, but they only watched with cold indifference as the mechanical drills and saws started to disassemble what remained of my body. 
+
+Then, I remember marching. I was in armor that was not my own. I was holding a strange weapon that was not my own. My actions were not my own. My body was not my own.
+
+I remember battle. Fires as wide as the horizon. Armies so vast they move like a sea. I saw vast ships in the sky exchanging fire so bright it lit the night like day. I saw an entire mountain get melted into slag by a beam of light that came from the sky. I saw inhuman monsters committing unspeakable atrocities upon their enemies. I saw humans committing those same atrocities along side them.
+
+Then, somewhere along the line, I was hit. By what, I do not know. All I know is that the back of my neck was slashed my shrapnel, and whatever happened had destroyed whatever they had put in me to destroy my free will. I was free again.
+
+I ran, running on all fours away from the scene of battle as fast as I could, taking refuge in the vacant overturned hull of some vast ruined landship. It was in that landship that the gravity of the situation struck me.
+
+As I looked down at my claws, each serrated and as long as a man's fingers, and just stared. Only now could I actually understand what had happened. My crippled body was taken, and due to the fact that I was still fresh, they used parts of my nervous system as the nervous system as one of their monsters of war, and my consciousness had been transferred over, albeit it was suppressed until now. 
+
+I looked down at myself. Judging by the size of the doors in the landship, I was eight or nine feet tall. My face was long and birdlike, with exposed bone resembling a fanged, beaked skull. I had barbed talons, and looked like I hadn't been fed in weeks. I was dressed in battered utilitarian steel armor, and had a long slender tail with a rust-spotted steel blade grafted to the tip, metal blending to flesh and bone in a mess of scar tissue. I leaned back in shock, and felt the exposed vertebrae of my back hit the metal wall. 
+
+It was horrifying and I felt completely and utterly defeated. I felt I had no chance of returning home now, and even if somehow I did find another Temporal Yacht, what awaits me back home? Getting dissected for science? 
+
+I sat there, thinking about how I'd never see the green forests and blue skies again, and how I've been broken by this world. I began to cry, and reached up to wipe the tears from my eyes, only to clumsily bump my hand into my beak, causing me to break down completely, dragging my claws across the metal wall in rage and frustration before sobbing myself to sleep.
+
+In the morning, I was dismayed to find our that the events of last night did in fact happen, but I decided that at this point I should just play the hand that I was dealt. I left the landship ruins in search of anything that could help me survive out here. 
+
+It was only half way into that day that I found a miracle. Another Yacht. However, this one appeared to be embedded in the side of a hill, the material around it displaced like liquid before seeming to have solidified back into its previous form. The Yacht's walls were closed, looking almost as if they were fused shut.
+
+As I got closer, I could see that the Yacht was, in fact, partially melted and fused to it's surroundings. At that point I was delusional enough from hunger and thirst that I decided it would be a good idea to try my hand at returning. The thin ash layer on the Yacht told me that I would not have to wait long, if it did return.
+
+I pried open one of the unfolding walls, my claws digging into the steel as I bent it with surprising strength. Inside was not the most pleasant sight. The "volunteers" inside appeared to have been partially melted as well. None survived, but that's probably for the better considering their condition.
+
+I crawled in through the gap and sat down inside the white, circular room, and waited.
+
+Nothing in the bags these people had was salvageable. My only hope of not dying of thirst was returning home and praying I don't have whatever happened to this thing and its crew happen to me.
+
+In time, the Yacht did make it's return trip. Only half of the Yacht successfully returned, falling onto the floor of the warehouse, with the other half nowhere to be seen. By some miracle, I was completely on the side that survived.
+
+The warehouse is abandoned. I don't know how long I've been gone for, but I see no signs of Project Carrion anywhere. There are burn marks on some of the walls, but I do not know what caused them. 
+
+I went outside in the dead of night and drank straight from the first puddle I saw, closing my eyes to avoid seeing my reflection while quenching my thirst. Now, I have returned back inside. The electricity still works, and the corner room still has computers. Here I am, unsure of where to go from here.
+
+I worry about what happened to Darren and Alexander, though I knew them for less than a day. I fear they may have met the same fate as me, and might still be fighting and dying in a war they did not sign up for.
+
+I know not what my fate is now, all I know is that if there is one thing I could tell all of humanity, it would be as follows.
+
+War makes monsters of men, and hell of Earth. War is a tumor that corrupts all around it, writhing and infesting until the body withers and dies. War is the greatest sin of mankind, and if we follow its path, we will all be damned by our own hand.

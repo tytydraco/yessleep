@@ -4,7 +4,7 @@ I was sitting on my bed in the dark listening to every noise I could hear in com
 
 It was bad tonight.
 
-I went to collage and scored an amazing job that paid me wonderfully, but I was so stuck up on studying and doing my work I’ve never made any friends, or met any girls. It never bothered me, I liked being alone but sometimes I wish I had someone else around so I was less afraid. I live alone in a two story house and my room was on the second story so any sound would alert me and leave me unnerved.
+I went to college and scored an amazing job that paid me wonderfully, but I was so stuck up on studying and doing my work I’ve never made any friends, or met any girls. It never bothered me, I liked being alone but sometimes I wish I had someone else around so I was less afraid. I live alone in a two story house and my room was on the second story so any sound would alert me and leave me unnerved.
 
 Tonight I felt terrified and I had no idea why. It was fear of the unknown.
 
