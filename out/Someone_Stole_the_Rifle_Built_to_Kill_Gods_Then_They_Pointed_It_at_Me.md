@@ -1081,4 +1081,4 @@ I let out a long, defeated sigh.
 
 I sincerely hope every single one of you stubs your toe every morning for the rest of your lives.
 
-Part 8: [I Thought Dating an Angel Was Bad. Something Wearing My Face Was Worse.](https://www.reddit.com/r/nosleep/comments/1upjqva/i_thought_dating_an_angel_was_bad_something/)
+Part 8: [I Thought Dating an Angel Was Bad. Something Wearing My Face Was Worse.](https://www.reddit.com/r/Nonsleep/comments/1urpfnf/i_thought_dating_an_angel_was_bad_something/)

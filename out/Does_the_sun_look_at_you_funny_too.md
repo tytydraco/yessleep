@@ -1,0 +1,159 @@
+Yeah, I know what you’re about to say, “don’t look at the sun, idiot. You’ll go blind!”
+
+Do you know anybody who’s gone blind looking at the sun?
+
+I didn’t think so.
+
+Do you know anybody who looks at the sun a lot?
+
+Well now you do.
+
+And let me tell you. It doesn’t make you go blind. In fact, you’ll see something you’ve never seen before.
+
+I was sitting on my porch a few weeks ago, killing one of those hot, humid afternoons with a buddy of mine when he asked me a question.
+
+“You know those space documentaries, the ones where the sun’s got those flares flying off the surface? What do you think those are?”
+
+Matt always asked the dumbest questions.
+
+“I don’t know, can’t you ask ChatGPT?”
+
+“No, because I thought I’d ask you, my friend. You know, have some human connection instead of talking to a robot like you always do?”
+
+ I rolled my eyes and grinned. Matt loved to give me a hard time about that, but I cut him some slack. He was my only friend.
+
+“Okay, fine,” I said. “I don’t know. Maybe try looking and see for yourself.”
+
+Matt let out a laugh. “You know you’re not supposed to do that. I’ve got 20-20. I’m not risking that.”
+
+“Don’t be a baby, dude. One second’s not gonna hurt ya.” (I was gonna regret telling him this later).
+
+“Ugh, fine, dude. I’ll look but just for a second.”
+
+He peeled back his sunglasses and popped out his eyes, giving me his best cartoon character face as he stared up.
+
+“Woah, hey. What’s that?” he said, sounding kinda shocked.
+
+“What?”
+
+He turned to me. “You gotta look for yourself. I can’t describe it.”
+
+I paused. “Are you serious?”
+
+“Yeah, man. Check it out!” Matt insisted.
+
+I looked straight up, felt a sharp pain in the muscle of my eyes, squinted hard, and the pain was gone.
+
+Just a white little marble, that’s all it was. Matt was messing with me.
+
+I looked harder, longer.
+
+“Dude, I was just joking,” Matt said, his voice cracking a little with worry.
+
+I was about to look back at him and give him a quick jab in the arm when, “wait. Did it blink?”
+
+“What are you talking about, dude? Don’t mess with me. I messed with you.”
+
+“No, seriously, I saw something. Like a little black dot open and close, right in the corner.”
+
+“Dude, shut up,”  Matt said, getting a little exasperated.
+
+“I’m serious!” I said, getting up out of my chair. “That wasn’t normal!”
+
+“Man, I’m done playing around. You can’t just pull a reverse uno card on me.”
+
+“Look at it!”
+
+“No.”
+
+“Fine,” I said, falling into my chair.
+
+The rest of the evening was about as sour as the beer I was drinking.
+
+Matt went home, and I couldn’t stop thinking about that little black dot.
+
+I figured I could look at it in the morning. You know, when the sun’s rising. Isn’t it bigger then or easier to see? I set my alarm for 5:00am (unheard of in my house).
+
+After I got my coffee I went to the backyard, the front of my house faced west.
+
+There it was, peeking out over the horizon. The top half looked kind of pretty. Purple and super-sized.
+
+Then, as the warm sun continued to rise, I completely froze.
+
+I could *definitely* see it. The dot was coming up. It really did look like an eye. Maybe it was moving around, too? Kind of like it was scanning the horizon. Scanning for what? I wasn’t sure.
+
+Then, it stopped.
+
+It was looking right at me.
+
+All of a sudden, the worst thing happened in the world. Another big black dot, an eye, opened right next to the other one and started looking at me, too.
+
+I was spotted.
+
+I backed up slowly into the house.
+
+I was going to call out sick. Then I was going to call Matt.
+
+“Hey man, uh, you know that thing about the sun?”
+
+“Yeah, sorry, man. I didn’t mean to freak you out,” Matt said, gosh he was so much nicer than me.
+
+“No, don’t worry about it, Matt, (I said his name so he knew I was serious) but really something’s up.” The silence on the phone said a lot. “I’m really seeing something up there. Two eyes looking right back at me. It saw me.”
+
+I heard a loud exhale.
+
+“Call me when you wanna talk about something else.”
+
+He hung up on me. Jesus Christ. I don’t BS like that.
+
+I pulled down the blinds and turned on the TV.
+
+I’d be fine by myself.
+
+I started to look back out the window at 8:00pm – my eyes needed something besides Netflix.
+
+Then I had an idea. Maybe I’d see something different during the sunset.
+
+I peeked out the blinds.
+
+There it was. Its orange red hue somehow made it look angrier.
+
+No eyes.
+
+I started to think it might have just been in my head when two black lids began to appear and the eyes opened again, I thought it was over, but then a third black line showed up right under the eyes.
+
+Is that a mouth?
+
+It sure was.
+
+It warped downward into a grimace.
+
+You know when you hold a magnifying glass over an ant, and it starts to sizzle?
+
+I was the ant, except it was worse.
+
+A red-hot flush of shame hit me with the heat.
+
+I jammed the blinds shut and backed away.
+
+That was Monday.
+
+It’s Friday now.
+
+I’ve been ordering Uber Eats.
+
+In the morning, I let the delivery driver bring the food to the porch. In the evening, I tell them to leave it out back.
+
+I tried to talk to Matt, but he still thinks I’m joking or maybe he just doesn’t want to talk to a person who sees a face in the sun.
+
+I’ve peeked out the blinds a couple times, and it’s never not looking at me.
+
+Sometimes I go for walks at night.
+
+The moon doesn’t have a face. At least not one that I can see.
+
+I think I’m gonna need a new job.
+
+It’s pretty lonely here.
+
+Does the sun look at you funny, too?
