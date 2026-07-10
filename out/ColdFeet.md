@@ -1,0 +1,81 @@
+I live in the northern United States—or Canada—and the winter here tends to be harsh.
+
+In most cultures, winter is a symbol of death and isolation; a time of preparation for what is to come.
+
+Every season stirs feelings in people. Spring, for instance, evokes life and creation. Summer is warm, bringing to mind beaches and smiling faces.
+
+Within the cycle of the seasons, winter is the worst and most cruel. These are the months when plants die only to be reborn in the spring, and when humans—like animals—huddle together in search of warmth and shelter.
+
+For a long time, I didn't say a word about it. But today, I will tell my story...
+
+When I was a child—from a very young age—I loved making snowmen. My father worked at a lumberyard; he was a very kind man with large hands who was skilled at manual work and handling the snow. We would always gather in the woods behind our house, where he crafted beautifully made snowmen that brought me joy. He taught me that even during a bleak season like winter, people should have fun and find beauty in the land.
+
+Because of this, I learned to see the beauty in the snow, and from then on, every winter, I would build a snowman right next to my father’s. Of course, his always turned out much better. Everything was fine.
+
+Until "Ice-Hands" appeared.
+
+I... No one knew for sure... whether "Ice Hands" was actually a person—a killer. Some believed he was a creature, a snow spirit that came every winter to claim souls from our small town.
+
+At first, it seemed like an accident, a coincidence. But then it happened year after year. The murders. Every year, someone turned up dead in the same way. First they disappeared for a few days. Then they were found dead on the sofas in their homes—as if they had spent too long out in the freezing cold before being dragged inside, their eyes white and frozen. Dark, purplish marks in the shape of large hands would appear on their necks.
+
+The last year he appeared was the year my father vanished. It was a morning in November, when I was fifteen. I woke up to find my father wasn't home. Days went by, and my mother grew increasingly tense.
+
+The only memento he had left me was a snowman—the biggest one he had ever built. It appeared in front of our house the very day he disappeared.
+
+I believed it was a keepsake from him to me, left before he departed.
+
+And it was.
+
+That year, "Ice Hands" had already claimed a victim. It was a known fact that he killed only one person a year. That victim had been found dead on the same night my father failed to return home.
+
+It was only after several days had passed that I understood my mother's tension.
+
+I remember the neighbors pressuring her, asking where he had gone and what he was doing that night—the night "Ice Hands" struck.
+
+She wouldn't answer; she just wept uncontrollably. It must have been too much for her to bear. I think the worst moment was hearing one of our neighbors remark, "He was a man above suspicion—almost \*too\* much so... and he had really big hands, you know..."
+
+That really disturbed me... How could they think such things about my father, a man who had never hurt a soul?
+
+I felt terrible too, but I didn't cry. Whenever I was sad, I’d sit beside the snowman in our backyard—the memento my father had left me—and feel a sense of relief.
+
+I spent most of the winter like that. I played around the snowman; I ate my snacks beside it. My mother understood the situation and let me be. Sometimes I’d talk to the snowman; deep down, I believed my words would reach my father’s ears.
+
+I won't deny that, over time, I started to get paranoid too; I began to really think back on previous years. Memories that had seemed small and insignificant back then started coming back to me.
+
+A day when my father had come home late... A night when he’d disappear and only return the next day... It couldn't be—I refused to believe it. My father wasn't a killer; he was at the lumberyard on those days. He wouldn't do something like that.
+
+Or would he?
+
+And then, that day in late December, it happened again: one of our missing neighbors was found dead in the morning—eyes frozen, handprints all over his body.
+
+It’s hard to admit, but I remember feeling somewhat relieved by the news; now I knew it hadn't been my father.
+
+Still, it didn't seem possible—three victims in a single year? The townspeople were up in arms. Paranoia made them aggressive, and they began to turn on one another.
+
+In any case, I felt relieved, and I went on living my life as usual.
+
+March was approaching, and the ice began to melt. It was the start of spring.
+
+One morning, I was playing in the snow outside the house. I spotted an old newspaper lying on the ground near the back door. I brushed off the snow that had made it soggy and saw the headline: "The Third Victim of Ice-Hands."
+
+I remembered that a few months earlier, when the story was fresh, I hadn't dared to look at the photos splashed across the front page. But now, feeling more at ease, I began to study the images.
+
+But... something was wrong. At the time, I thought, "It must just be a coincidence—maybe a trick of the light..."
+
+The purple handprints on the third victim's neck... the hands were so small.
+
+As I said, the snow was melting then. I heard a clump of snow fall nearby and instinctively glanced to the side.
+
+And then I saw it.
+
+I couldn't tear my horrified gaze away.
+
+The snowman was falling apart. Inside the snowman was my father—dead. He was sitting on a chair, his eyes white and frozen, his mouth open as if locked in a scream.
+
+He had been there the whole time.
+
+I screamed in horror—I screamed like I had never screamed before.
+
+Small, purple handprints marked his neck. A frozen sign rested in his hands.
+
+"Goodbye old generation, happy new generation."

@@ -1,0 +1,142 @@
+If you pay attention, deep in the woods of the Adirondack Mountains, you may hear the Old Tree cry. It is a deep, creaking groan unlike any sob or whimper you will ever hear. Like a large, heavy door being pried open, scraping against the hardwood of the floor. Like the voices of a thousand people groaning all at once. It sounds wooden, yet if you listen closely, you can hear their sorrows. You can hear their pain. And, if you follow it, you can see them cry their sweet, sticky tears. The tears that ran like rivers in those woods last summer.  I still can't stop thinking about it. Maybe writing it down will help.
+
+It was just Hugo, Daphne, and me. Daphne and I have been friends since the first grade. She sat down at my table and offered me her snacks when she saw I only had a sandwich and we were inseparable ever since. Hugo joined our little group when his family immigrated from Mexico in the fifth grade. Daphne invited him to sit with us when we saw he was alone. We were all inseparable during middle school and high school, going on adventures in the woods nearly every day after school.   As we neared graduation, we knew we’d probably grow apart. Hugo and I were moving to different cities for college, while Daphne went to the same local college as her dad. Naturally, we knew we wouldn't see each other much. Because of this, we started meeting up for a hiking trip every year to relive our childhoods together.. It was a way for us to stay in touch.
+
+We usually went to places near our hometown,  finding some public land to take a two day hike. However, as it was our final time, we decided to do something different. We ended up finding a spot up north, closer to my Alma Mater, because we wanted to explore something new. We ended up picking a spot deep in the mountains as our destination. It was beautiful, relatively easy to find, and had some interesting folklore. We estimated it to be about a two day hike to and back from the spot. So it should have been a total of four or five. 
+
+Hugo picked me up first. Our cities were much closer to each other than we were to our hometown. It was only a 45 minute drive. Though it’d probably be easier for him to pick me up last because I’m the closest to the trail. He just wanted to have me for the ride I guess.  He drove to me often while we were in college, we had trouble being apart for too long. We greeted each other with a kiss and a long embrace. We went on about how much we missed each other, how we hoped we could have a future together.
+
+“God, I missed you so much, my love… You look so cute in your hiking clothes, just tight enough.” He said into my ear before kissing me. I smiled.
+
+“I missed you too, Hughie… We don’t have to miss each other soon because… We got approved for the apartment!” I said, smiling as wide as I could.  He smiled back. If we didn’t get approved, we’d have given up and found apartments in the cities we went to college in because it was easier to find work.  This was the only one we could find in the city that wasn’t way out of our budget, even if it was barely bigger than a cardboard box. We both got jobs lined up in NYC that we’d have to give up if it fell through.
+
+“No way… Are you serious…? Len, my love, you are a magician! I thought you said they didn’t like your credit?” He said. 
+
+“They were actually super understanding once I told them about… everything. Plus I got that lab job from my research advisor so they’re confident I can make payments! Once this trip is over we are finally able to be adults.” I said, with a mix of reverence for our future and apprehension towards the past. We hugged before our lips interlocked once again. After we pulled apart from each other, he got to driving. We didn’t talk much, we mostly sang to whatever song came on in our unholy conglomeration of a shared playlist. Before we knew it we were picking up Daphne. We exchanged pleasantries as she carefully moved the  mountain of equipment to the side and were on our way.
+
+Daphne talked a lot about her life. It was mostly her venting to us about how much she hated living in our home town. She couldn’t exactly leave, her dad was sick and no one else wanted that burden. So, she just complained. And we let her, of course. We were friends since first grade, we wanted to do whatever we could for her. At that moment, it was just getting through the hours of ranting and monologues without saying a single accusatory word. The topic seemed to change every time I faded back into existence from my own worried thoughts.
+
+“You know what I fucking hate? Having to carry a family that doesn’t give a shit on my back…”
+
+“I just wish they all listened to me even just the tiniest fucking bit.”
+
+“I… I just don’t want to lose him, you know… grandad’s the only one who cared…”
+
+“OMG, Len, James won’t stop blowing up my phone… He keeps trying to get back together…”
+
+Then I would come in with some vapid response while Hugo hypes her up. It was the formula we’ve perfected since we were kids. She eventually got everything off her chest and asked us how we were doing. We said we were great, and told her about the apartment and our plans. 
+
+“Oh my god! That’s fucking amazing! You guys finally get to bunk up with each other. You guys better invite me to the wedding next year.” She said, giggling. 
+
+“Bitch, of course, you’re going to be the maid of honor or bestwoman or whatever the fuck it’s called. But next year? Let’s not get too too hasty. How about… 2 years?” I said, looking at Hugo. He stared back.
+
+“I don’t know, depending on how cohabitation goes we might elope next month”. He said chuckling, “But seriously, my love, I think we should wait at least a couple years. We gotta get some money because my folks are broke and Len’s are… You know… Len’s parents…” He freezes. He didn’t want to reopen old wounds. Let’s just say they disowned me in high school when Hugo and I started dating. They weren't exactly happy with me being gay and I ended up living with Hugo’s folks for the rest of high school. They tried to reconnect last year, but ruined any chance of a relationship when they took out loans in my name and completely fucked over my credit score. I obviously didn't want to linger on this, so I interjected to spare him the awkward silence.
+
+“Let’s put off thinking about marriage for the rest of this trip… What are you guys most excited for about the trip?” I asked, trying to change the topic. We were still half an hour away from the site and I didn’t want a finger wiggling around into still gaping wounds.  We then began discussing the trip, our expectations. Nothing much of substance. It was a nice way to fill out time until we were there. 
+
+On our arrival, we carefully unpacked the car and divided up the equipment. Most of the heavy stuff went in Hugo’s backpack, the lighter stuff went to Daphne’s, and mine had everything in between. Hugo and I grabbed either end of the cooler we packed and we got moving. We really only had two hours of Sun left, so we hiked just to look for a good place to camp. Luckily, as we were still in the outskirts of the forest, there was a well groomed clearing not too far from us. We got there in only about 15 minutes . I set up the fire, Daphne took to getting our campstove working, and Hugo set up the tent.
+
+The rest of our night was simple. We had a few beers around the fire, talked about whatever bullshit came to mind, while Daph played her basic white girl music. Taylor Swift, Lana Del Ray, Ariana Grande. Not that I'm any less white in my music taste, I’m just more of a punk rock kinda guy. So like a different brand of white. We would usually tell ghost stories, but Daph was already nervous because of the history of this forest and we didn’t want her ditching us. So we drank, talked about bullshit, then talked about life until we were all a little buzzed. 
+
+“Honestly, the moon is beautiful tonight. Looks like it should be full tomorrow.” Daphne said, staring up at the sky. We all stared up and viewed it. 
+
+“Yeah, definitely. Not used to seeing her so full like this.” Hugo said, in awe. I giggled. 
+
+“Her? Why is the moon a girl?” I asked, looking into his eyes before teasing him. “I thought you weren’t attracted to girls, should I be worried?” He playfully pushed me.
+
+“Don’t worry, my love, I only switch sides for the moon, and last time I checked I can’t fuck the moon.” He replied before kissing me. He then said, “Also, don’t ask me, ask my abuelo. He always told me the moon was a goddess according to my ancestors, a great warrior. Though he said that it is not true as she was one of the pagan gods, and we believe in the ‘One True God’. Though we still refer to her as a woman because it feels right that way, I guess.”
+
+“Oh, I guess that makes sense. My parents never told me any fun stories like that. They barely told me stories from the bible, they just told me all the ways I can go to Hell.” I replied, moving closer to Hugo. “I know it shouldn’t bother me anymore, but it gets to me, you know? What if they’re right…”
+
+“They are wrong, my love. I am sure God will not care who we love. He will see our hearts in the end. “ Hugo said, letting me rest my head on his shoulders.
+
+  
+
+
+“God, Len, your parents suck ass. Mine don't really care about any of that. They just criticize me for the love of the game.” She said, humorously. “I love you Len. If you’re going to hell, I’m following, I would give me left tit for you bitch. And my life or whatever…” She finished before standing up and hugging me.
+
+“Anyway, what are some movies you guys have seen recently?” Hugo said, knowing it would cause me to talk on and on until I forgot about everything else.
+
+After only an hour Daph, being used to a 12 hour day shift,  got tired and retired early at around 10:00 PM.  
+Naturally, Hugo and I used this as an opportunity to ‘have some fun’ in the woods. We hadn't seen each other for a month at that point and wanted some privacy. We didn’t go too far, just far enough to where Daph couldn’t interrupt us. I’m obviously going to spare the details, but I was leaning face first into a tree when we heard the noise. That bone shaking, creaking sound that now haunts my dreams. We ignored it the first time, then the second, but something was different the third. It somehow sounded more… human? I don’t even know how to describe it. We couldn’t ignore it and Hugo withdrew away from me and I turned around.
+
+“Hughie, what the fuck is that?” I said, adjusting my pants so I didn’t feel a breeze anymore. Hugo seemed to have already adjusted by the time I turned around. 
+
+“I have no clue. Probably an animal running into a tree or something? I don’t know but… probably nothing but I don’t really think I can stay in the mood like this… Now I swear some of these trees are looking at me, I swear I'm going crazy” He said, visibly freaking out. I nodded and kissed him. 
+
+“Yeah I can’t either. I couldn’t focus… Want to go back to camp and play some music? I’m sure Daphne won’t wake up.” I said, smiling through my nervousness. 
+
+“Mmm, yeah let’s try it… you know I can’t resist that…” He said, amongst other things. With that we went back to the camp. Weirdly enough, it took us like ten minutes to actually find it.
+
+“Finally! God, I could’ve sworn we were only like a few steps outside of camp… I guess I must’ve been distracted.” Hugo said with a devilish smirk as he grabbed my hips. I giggled and said nothing as he kissed me. He led us to a spot behind the tent and we resumed activities. We didn’t hear the noise again, but at least for me, something in the air just felt strange. I just ignored the feeling  Hugo obviously did too if he even felt it. Either way, we finished our midnight endeavors and went into the tent. We wrapped ourselves up together and whispered about meaningless dreams as we drifted asleep.
+
+“We should get a pet, babe. You know, in the apartment.” Hugo said, grinning.
+
+“I don’t think they allow pets, Hughie.” I said, trying not to fall asleep.
+
+“Not like a cat or anything but like a cool pet. Like a turtle. Or a tarantula.” He said.
+
+“You’d have to lobotomize me if you get a tarantula.” I said, smiling.
+
+“Hmm… A tarantula and you talking less…  I don’t know…” He said, I began glaring at him with feigned annoyance. “I’m kidding! I’d only lobotomize you for a pet alligator.” 
+
+“You wouldn’t have to lobotomize me, that’s sick as hell.” I said, laughing softly as my eyes began closing. I tried to keep my eyes open, focusing on him, but he noticed. He pressed his finger against my lips and I let my eyes close. I felt him kiss me gently on the cheek as I drifted off to sleep. For the first time in years, I dreamt of nothing. No nightmares, no abstract replays of memories. It was nice at the moment, but it felt strange.  I got used to my nightmares. 
+
+When I woke up, Hugo and Daphne were already out of the tent. I stretched, hearing my joints crack like the limbs of trees. I rubbed my eyes and looked over. There was a portable coffee tumbler next to me. I smiled and took a sip. It was still hot. After a few sips I was able to urge myself to sit then to stand. I walked out of the tent and saw Hugo and Daphne talking where the ashes of yesterday's fire stood. Hugo turned to me, smiling and handed me a bowl of oatmeal. I smiled back quietly and began eating. We made some small talk but nothing of note.
+
+I ate quickly, finished my coffee, and helped Hugo and Daphne pack up camp. We did one last cursory glance to make sure we didn't leave anything and got on our way. We looked around for the entrance to one of the trails. According to the map, there was one with a head in this clearing. We found it pretty quickly, since Hugo and I went in the same way last night. What was weird is that the map had the trail marked incorrectly. It was marked on nearly the opposite end of the clearing. We checked where the map marked and it was overgrown with several trees where the trail should've been. We just shrugged and went in the way we entered last night. We felt better when we saw the flat, cleared path with a trail post through the trees. 
+
+ Thus began our journey into the woods, together. The trail was pretty easy to follow and seemed shockingly well maintained. Hugo said that this area was pretty old and wasn't currently managed by anyone so I found this weird. I just assumed one of the local colleges had a volunteer project to clean up the trails. They must've also replaced the trail markers because they looked completely clean. Not a bit of dirt on any of them. The journey went well, we were just rambling about whatever.
+
+“You know what band that doesn’t get enough love, Bikini Kill. I feel like no one talks about them in the same way they talk about Nirvana.” I said in response to Daphne talking about how much she loves. “They were fundamental in the feminist punk scene of the 90’s and Kathleen Hanna literally-" I was passionately exclaiming before we once again heard that low, dismal creek. It was louder than it was last night. Daphne jumped while Hugo and I flinched. 
+
+“What the fuck is that shit?” Daphne said, with a mix of humor and fear.
+
+“We don’t know, we heard it last night while we… Uh…” I said, awkwardly looking away from Daphne as I saw her eyes narrow and her mouth widen.
+
+ “You guys fucked in the woods? Y’all  can’t just hold hands and kiss a little?” She said before laughing. This was then interrupted by yet another creek. “God damn! What is making that noise?”
+
+“I have no clue, bitch. Also it is not my fault, Hugo is always so handsy and I can’t resist.” I replied.
+
+“Hey, you are the one wearing the cute hiking clothes with a nice ass. It is not my fault.” He retorted, smirking.  “Also, I am afraid we will find out, it sounds like it's coming from further along in the trail. It is probably just some deer ramming into a tree “ As he said that I realized something. We haven’t seen a single deer, let alone a squirrel… We saw a few birds near camp, but no sort of mammalian life. Definitely weird, but not unheard of. We were only out here for a few hours. Maybe we’ll see them up ahead and prove Hugo right, I thought. 
+
+“Yeah, you’re probably right, Hughie.” I said, taking a deep breath. Daphne nodded. We continued to walk without a word, listening to everything around us. It was silent. We heard no bird, we heard no rustle of leaves, we heard nothing moving except ourselves. I was about to break the silence. That was until, once again, we heard the deep, reverberating creek. 
+
+Yet it was different, it was no longer an indistinct creek to me, it was the creek of everything. The creek of steel scraping against asphalt. The creaking of a great, castle door being pried open. The creek of giant limbs stretching and popping from a long nap. We just kept moving forward. None of us suggested turning back, because none of us were thinking, let alone speaking. We were just moving via primal curiosity that drove us to want to know where the sound came from. This curiosity would soon be quenched as we came across it.
+
+As we approached the end of the trail, we saw the clearing with the off-white twigs laid all across its ground between large, sprawling, white roots that filled the clearing. Scattered among them were large, red and white mushrooms. As we got closer to the clearing, we saw the trunk the width of ten grown men laid in sequence, perfectly smooth and white like polished marble. It had uniform grooves running up the tree.  We looked up, seeing the branching,  unnaturally straight limbs all reaching towards the sky at the same angle. They were all placed perfectly between the grooves. Stretching our necks to their limits, we saw the canopy of scarlet leaves that towered far above our heads. Then we noticed the sap flowing down the trunk, between the gaps in the limbs, swelling in the groves. It was dark red and seemed to harden on certain parts of the tree. As we observed it, the sap was almost fully down the length of the tree, but it now remained stagnant. Tracing the lines of blood up the tree, I could make out large, identical elliptical knots between each limb. They looked like thin, piercing eyes that were all looking down towards the earth. 
+
+“What the…” Hugo said, looking in awe. “Am… Am I awake?” He said, in a spacey, uncomfortable voice.
+
+“I think so. What the fuck.  “ I said, not understanding what was in front of me. Daphne said nothing, she just looked in a mix of awe and horror. She started walking closer. We followed behind. We approached the tree, stepping off of the trail. Behind us, we heard the faint rustle of leaves. We ignored it and walked forward. As we did, the great, terrible creek sounded once again and, as it did, the Earth shook beneath our feet and we fell. Hugo fell backwards on his ass, Daphne fell hard onto her face, and I onto my hands and knees. Hugo and I saw the tree open up from the roots up as Daphne laid motionless at the ground.. It was as if something was prying it apart from the inside. When it opened, I saw only the faint glow of a pinpoint light.
+
+ I began crawling towards it, without thinking. The light was beautiful. It was a color I have never seen before, something I could never describe. As I stared, I could swear I heard it calling my name. Hugo grabbed my leg, but I fought it at first, trying to crawl forward, towards the light. I heard his voice, but it was just noise to me. I fought and I fought, getting closer to the light until I finally heard him.
+
+“LEN!! Stop! We don't know what the fuck is in there! Please, my love, please I don't want you to get hurt!” With those words I stopped. I looked back at him and began sobbing. I crawled towards him and wrapped around him, crying on his shoulder. He rested his head on mine. He played with my hair and kissed the top of my head. We sat there for a moment until we heard the noise of skin scraping on dirt. 
+
+We looked over and saw Daphne, unconscious, wiggling towards the light. Her eyes were wide open, but her expression was vacant. Her body contorted like an inch worm, her spine making a parabolic curve as her limbs remained limp. Her head was contorted towards the side, the side of her face was scraping against the mounds of dirt, rocks, and leaves, closer to the exit. Without thinking, Hugo and I stood up and grabbed her by the feet and began trying to drag her back. Daphne was 5’2 and 110 pounds yet it took all of our strength to pull her back. She was fighting with all of her might. 
+
+“Daphne, please! Wake up! Wake up!” Hugo screamed. 
+
+“Daphne! Wake the fuck up bitch! Please, just wake the fuck up!” I said, tears stained my eyes. I looked around and saw the trail behind us. If we could get her away, onto the trail, maybe we could save her.  We dragged her away, step by step, her face scraping against the ground, her spine fighting against us. I had the idea to try to grab her by the arms, but as I let go of her leg she lurched forward and Hugo nearly went down. I quickly readjusted and kept pulling. I had to look away. Not just to avoid looking at the light, but to keep myself from seeing the trail of blood and shaved skin that was made.  We were so close to the trail, only a few feet away. Then the ground began to shake as the noise began again. 
+
+We were able to keep a hold of her, but she began struggling more. Her legs started flailing and she eventually shook free from our grasp. Her legs contorted to the sides and she began scurrying like a salamander towards the light. We tried to chase her down, but she was too fast. I looked towards her, towards the light, as I saw her fade into the darkness within the tree. I could've sworn I heard her say my name as the Earth shivered once more and the tree closed in front of us. Hugo and I fell to the ground. My face was blank for a moment before my breathing began to speed up. Hugo hugged me and we began to cry. As did that great, horrible tree. 
+
+Through the auditory haze of our sobs, we began hearing the sound of dripping water. We looked over at the tree, and the stagnant streams of sap began flowing, slowly at first. It began at the eyes, new red sap flowing down each line in the hardened streams. Then it began to dissolve the old tears, revitalizing them.  After a while the streams began coming alive, slowly lurching down the tree, until it reached the ground. As the streams kissed the roots and fell into the dirt,  the earth shook once more. It began softly, but as more and more sap fed the Earth, the more excitedly she shook.  Hugo and I tried to stand up, but as it shook more and more, we could not stand. Especially not with the weight still on our backs. Instead, we both fell to our knees. 
+
+We began to crawl away, onto the trail. We made it a few yards, far enough where the top of the tree is obscured, when the Earth stopped shaking. We swiftly stood up and looked behind us. We saw a puddle of red inching towards us. We ran. As we raced away, the trail ahead of us was crumbling. The well maintained facade was replaced by rough, overgrown earth. Soon, the trail markers retreated into the ground and trees moved closer. Hugo kept looking at me, I kept looking at him. We were slowed as we maneuvered through the trees, through the brush. 
+
+As we trudged along, I began to feel my boots stick to the dirt. I looked down and the red had reached up. We began moving faster, but I felt my boots begin to stick more and more with every step.  Eventually I had to slip them off and run with only socks. Hugo soon had to do the same. The pain worsened with every step, but we only sped up. Even as we ran through cobwebs, even as I felt sliders crawling on my skin, I ran. I cried, I panted, I nearly fainted, but I fucking ran. Through the brush, we saw the clearing we used as a campsite. 
+
+We broke through into the clearing and froze. We saw Daphne, half of her face scraped to the bone, both of her eyes staring straight at us. She was just standing still with her arms raised over her head. She was crying tears of blood that stained her pale flesh while her mouth was stuck open in shock.  We approached her. We looked behind us and saw that there was no sap. We got closer, but she did not address us in any way. She just stood still, like a tree.  We called her name, but nothing. We saw the stream of sap behind us and we ran. 
+
+I turned around briefly, towards Daphne, and I saw her still in her pose. Next to her, was a humanoid figure about two feet taller than her with his hand on her shoulder. Its body was the shape of a tall, skinny man, but something was wrong. I couldn’t tell with my glance. I turned away and kept running. Behind us, we heard the sloshing of liquid and indistinct, wet footsteps. We didn’t look back as we ran. We couldn't, we were running for what felt like an hour through the brush. The trees seemed to be closing in on us. Their leaves began to turn yellow, then orange, then red. 
+
+. We eventually found the car and Hugo started driving. We looked behind us as the sap was approaching. Wading in the sap, I could see the silhouette of the thing that touched Daphne. It was taller than the last time I saw it. Its arms were outstretched and it looked as if more arms were slowly growing from his torso. From where his head was was a single bright, glowing light in the center. Around him were the silhouettes of what looked like people with arms wide open, all facing him.  Hugo sped off until we found the highway. We kept checking behind us, but we didn't see anything else. We were silent the entire drive. We couldn't stomach listening to music, so all we heard was the rumble of the car and, every once in a while, a distant rumbling of the earth. 
+
+It's been a year and we can't forget it. We filed Daphne as a missing person when we got back to his apartment. I couldn't stomach being alone. Her family has been so kind to us and we've been helping them out with money when we can. It hurts to lie, it hurts to know that I know exactly where their daughter is. A week after we escaped, there was news about a giant flood in the area and 50 related deaths. The government shut down the entire vicinity to the public for the past year. I can only imagine how bad it actually was. Part of me thinks that Daphne could be alive, or at least aware. I know it's wrong, but I just can't comprehend her being gone. I can’t comprehend what the fuck even happened to her. 
+
+In better news, Hugo and I are living together! We ended up getting a bearded dragon that we named after Daphne.  We are as happy as we could be under our circumstances. Neither of us talks about that trip or Daphne a lot. If we do, it's a couple of words followed by tears. We are making amazing progress with our lives, we both have good jobs, we have a nice apartment, and we love each other more than anything else. However, it just haunts us. Every time I see syrup pouring onto a plate of pancakes, I shutter. Every time I’m alone I swear I see that thing in the shadows. Every time I close my eyes, I see Daphne’s frozen body staring blankly at me.
+
+ We shouldn't have made it out. I should've been the one in the tree. I should have followed that hideous, beautiful light. They're reopening the area next week, and I have to see her. We need to see her. Or do we just need to see the tree, one more time? 
+
