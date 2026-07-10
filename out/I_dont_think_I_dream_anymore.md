@@ -1,0 +1,87 @@
+Now I just want to prefix this with the statement that I never meant to do it. Life is hard. Between the stress of work, stress of family, stress of debt, just the general stress of life, it’s easy to maybe accidentally mix too much alcohol with too many prescription pills. It was an accident.
+
+After a particularly bad day at work where we had a safety meeting that felt all too squarely pointed at me paired with it being a Friday and the type of weather that makes every joint I have throb and like my head was about to explode. It made swallowing a fist full of pills and downing it with my favorite beer or three… or five, and a couple gas station burritos so my stomach doesn’t get upset. Yes, gas station burritos was my entire safety blanket. I promptly dosed off on the couch.
+
+For the uninitiated amount you, heavy drinking has this tendency to rob you of dreams. Thus the term blackout drunk. A bottle of your favorite inebriant and you just wake up in a place different from where you started and you are left with a puzzle of how you started from point A, only to end up in point B. I, being the sophisticated drinker that I am, am not too afraid that while on vacation, tequila is my lady. And that I love to share a story about how I ruined a perfectly lovely family’s meal in Mexico because my drunk self counted four of them and that’s how many people I came with, so close enough, proceeding to sit down in silence and chow down on the entire buffet pan of Asian noodles with nothing but my bare hands and sheer determination. If nothing else, that family got a story out of it too.
+
+But we are off track. Usually when you drink that much, you don’t dream. What happened to me, changed my life. And it leaves me wondering if it was for the better… or less so. Leading me to ask strangers on the internet, what any of it means.
+
+After passing out on the couch I gasped awake, standing at the foot of a pristine wood dock that stretched deep into this picturesque lake. I’m not particularly skilled with words so I struggle with how to describe such a sight. My best comparisons would be it looked like an expensive postcard or one of those high quality screen savers. Trees wrapping around this beautiful lake that I could barely see either end of, snow capped mountains in the distance, behind me a simple trail that led to a cabin. And at the end of the dock sat a man with his back to me, casting a line into some of the clearest water imaginable. Next to him another empty chair, a cooler, and a small grill releasing the scent of charred meat to mingle with the humid forest breeze.
+
+I don’t know why it all struck me as so awe inspiring. I’m not usually one for seeing a scene like this and just drinking it in but the entire thing struck me as just so peaceful. I’m the type of guy who worries about everything but in that particular moment, it all just seemed to have fallen off my back and for the first time it felt like I could stand up straight. My body had none of its usual aches, I wasn’t worried about car payments or mortgages or how I was going to pay for my son’s braces. I think they call this serene.
+
+I strode down the dock and approached the stranger, sitting in the chair next to him. I haven’t looked directly at him yet, still captivated by the lake. Looking down into the water I could see large fish swirling about where his line bobbed but none seemed to be taking the bait. Finally I looked over to him and immediately I could feel hot tears run down my face.
+
+While I didn’t immediately recognize the man I was hit with this all encompassing feeling of recognition and before I could really stop myself a trembling, “Grandpa?” Slipped out as I stared dumbfounded. See, I never knew my father. He apparently liked to use my mom, brother, and two sisters as punching bags so by the time I came around I guess he wasn’t up for a fifth round so he took off. Leaving me to be raised by my grandfather on my mother’s side. He raised me. I know that it’s cliche to say that a parent or other figure made me who I was today, but I idolized my grandfather. He was everything I wanted to be when I grew up. Which is why it was so devastating to a pre teen me when he died of a heart attack.
+
+Now, this man next to me didn’t look like he was in his early seventies. Looked surprisingly close to how I looked in my prime. A mid twenties or maybe even early thirties, broad  heat and back, thick arms, full head of hair. When my grandfather died he had a potbelly and you could count the individual hairs that made a horseshoe around his scalp. But I instantly recognized him.
+
+“Heya champ.”
+
+It’s hard for me to write this part. I tear up so bad I can’t see my screen which is how I know I must have been balling my eyes out on that dock. But what I do remember is just throwing myself at him, getting my arms around him and just squeezing. Not wanting to let go and fearing he wouldn’t be there when I opened my eyes.
+
+“Oh ho, hey now. Careful. You’ll scare the fish.”
+
+It’s hard to describe the feeling that comes over you when you meet someone you love after they’ve been away for so long. Not like a, oh my wife went away for a week sorta thing. Like I said, he passed before I was a proper teen and I’m in my mid thirties now. I went my entire adult life without seeing him and I felt every second of that loss all in this single instant. It took me a long time to recover from that. Slumping back into my seat and furiously trying to wipe my eyes only for them to fill up with tears again whenever I looked back over to him.
+
+“Wanna beer?”
+
+He asked me causally. Popping open the cooler next to him that I could now see was full of ice and banquets. I’ve tasted beer before but that… that beer was the single most delicious thing I’ve ever tasted. Cool, crisp, instantly refreshing. I felt like one of those guys you see in a commercial where every little reaction is cranked up to exaggerate the taste but it was genuine to me. We just sat there in silence, drinking together. I was so overwhelmed with questions that I wanted to ask him, I wanted to tell him about my wife, my kids, his great grandkids, about life, about how much I missed him that all these competing things could never coordinate into words, so we just sat there.
+
+But then it dawned on me. If he’s here… and I’m here…
+
+“Is this… am I…”
+
+He just laughed and thrust the rod into my hands, turning his attention to the small grill next to him. Filling a small plate of wings. He’d suck the meat from a drummlet and flick the bone into the water where the fish would then frenzy and swarm, completely ignoring the bait on the hook.
+
+“No. No not yet.”
+
+That was a small relief to hear. Sinking into my chair on my to have the rod taken from. My hands and replaced by a plate of food. Pretty sure it was just plain salt and pepper wings but with how they tasted and made my head swim. Could have swore they were made of pure crack if not for a lingering almost metallic taste. He spoke while I chowed down, in bliss that I could have this moment with him.
+
+“Remember when I brought with me to buy that blue convertible. I pulled you out of school and took you to the dealership and when the sale was done they took all those pictures and made a calendar for us.”
+
+I laughed through a mouthful of food, “yeah. You got busted because when you showed mom the calendar she asked why I was in the pictures.”
+
+We both shared a little chuckle at that. He had always been so lonely after grandma passed that he would sneakily pull me out of school just to hang out, then drop me off back at school in time for the bus to take me home or just down the road from my sitter. 
+
+“You have a decision to make. It’s one I had to make. It’s one everyone has to make eventually.”
+
+I didn’t know how to respond, there was still so much I wanted to tell him. I had been so wrapped up in awe of just seeing him to realize I hadn’t even spoken a word to him.
+
+“Behind you, if you walk up the path and into the cabin. You return to your life. You go back to your loving family. Wife. Kids. Ahead of you…”
+
+He trailed off. The implication was enough that it did make my heart sink a little. But then he hit me with the few words that makes every man crumble.
+
+“I’m so proud of you.”
+
+That was it, I ugly cried at that. I sobbed, I cursed, I put my hands over my face and leaned back letting out a long mournful shout into my hands. It was this point, when all I had felt before was peace, I now felt anguish.
+
+I had put the weight of the world on my shoulders and in this moment I had shed that weight. Now faced with the option of picking up that burden again or… “what’s ahead of me?”
+
+He just sat there a long moment, slowly nursing a beer, staring out over the lake. “It’s different for everyone”.
+
+‘Vague’ I thought to myself. Finally having the courage to push myself out of my seat, him matching me, a giant smile on my face when I noticed I was taller. He simply hugged me and I hugged him back. But where he had felt so broad and firm before he now felt almost hollow. I felt in that moment more like I was wrapping my arms around a ballon with not enough air.
+
+“Join me for a swim, sport.”
+
+Before, I was all too ready to spend the rest of eternity on this dock with my grandfather but now. Now his face had more lines than before, like standing up aged him ten years. His eyes squinting heavily and where they were this warm brown I swear I could almost make out something like a spark of red. When I tried to break away from the embrace it felt like iron nails were sinking into my back. I didn’t want to hurt him but a jolt of pain became all too sobering. My hands shit to his chest and I shoved him down into his chair with enough force that the chair slid along the dock, colliding with and knocking the grill next to him into the water. But where there should have been a splash there was more of a splat and a wet gurgling. Not like how something hits water and you get the initial splash the lapping of water, this was more like it had hit mud and was now slowly sinking in.
+
+I looked down at my grandfather and where thick callused hands had once been were these elongated fingers that ended in needle like talons that dripped a thin crimson on the dock. I wanted to look away and examine where I could still feel the sharp sting but I feared taking my eyes off him. Like he would pounce if I gave him the opportunity.
+
+“I love you, grandpa…” was all I could think to say as I slowly back away from him and back down the dock towards the cabin. Even though I no longer felt like this… thing was him. It still felt good to say. I was halfway down the dock when I felt comfortable enough to turn my back to him, the scene of him staring at me from the seat, eyes growing larger, skin getting looser, limbs growing so that his elbows rested on the dock while he remained seated in the chair. It stills haunts me. But not as much as what I heard it call out.
+
+“I… shhooo… rooud… oh… yoooou…”
+
+It repeated over and over, each time sounding more wrong than the last. A wet slap hitting the dock with enough force that I could feel the impact through my boots along with the squelch and oozing rumble of what I could only assume was the thing trying to follow me. But I never looked back. Long strides, maybe I was even jogging down the dock then up the path to the cabin. I could feel the hair on my neck stand on end as if something was looming over me, poised to strike the moment I turned around. This panic fueling me to move forward faster, throwing myself at the cabin door when I swore I could feel something clutching for the back of my shirt. 
+
+I woke up to firemen and paramedics crowding me. Vomit down my shirt and the distant wail of my wife. Like I said in the beginning, I never meant to almost kill myself. I had unintentionally overdosed on back pain medication and anti migraine pills that I had washed down with one too many beers. I got the whole spiel of how dangerous it was to abuse medications, the dangers of mixing alcohol with narcotics, and an undeserved gut punch about being overweight. 
+
+That wasn’t the worst part. Neither was the fact that my wife took the kids to stay with her sister. I have eight long gouges across my back. Doctor says I must have scratched myself but I’m a big guy, I can’t physically reach the spots these scratches were, and two of them were so deep they required stitches. It has been three days since then and every night I find myself looking down that same dock. Every time I see a figure sitting in that chair facing away from me. And every time that once pristine lake view looks a little more off. Sometimes the water looks too dark, the air carries a more rotten scent, sometimes I swear I can even see something trying to peek out of the water. 
+
+The more I think about it, the more I don’t think that thing in my first dream was my grandfather. For starters, my grandpa never called me, “sport” or “champ” or even “bucko”… my grandpa always called me “little man”. He never… never, drank banquet or any coors. It was pilsner or whiskey. He despised wings, he only ever ate ribs. Our thing was never fishing, if we hung out it was either bowling or crib. After I started pulling some of those details together I went and dug up a photo of him, his eyes weren’t brown, they were this steely blue. He never owned a convertible, or even a blue car for that matter. He bought a green pickup truck, the same pickup truck I drive today. And one thing I can now vividly remember… he had a crippling fear of the water. 
+
+In the many times I’ve woken up standing at the mouth of that dock, I haven’t had the courage to go down it again. Every time I simply turn around and walk back to the cabin. But every time, it feels more and more difficult to walk away. The path gets steeper, it sits back further in the trees, it’s further and further away. Sometimes it’s a simple matter of just walking away but other times I am in a frantic dead sprint with a fear that there is something right behind me and I wake up exhausted and cover in sweat and scratches. 
+
+I can’t take it any more. Next time, I’m going to walk down that dock and sit next to the thing and ask what it wants. I’m posting this as… well I guess I don’t know why. As a record of what happened? Maybe I’m holding out that someone else knows what’s happening to me, that somebody else has gone through this and knows how to make it stop. I’m so tired. Every night I see this dock. Every night I find myself running further and further to escape it and I wake up more tired than when I went to bed. So please… if anyone can, I need help. I struggle to keep my eyes open during the day now and it’s just a matter of time before I’m not fast enough to get away from that thing at the end of the dock. 
+
+I really wish there might be a next time.

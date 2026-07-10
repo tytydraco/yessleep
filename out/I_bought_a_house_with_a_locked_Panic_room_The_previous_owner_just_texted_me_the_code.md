@@ -1,49 +1,47 @@
-I'm typing this from my laptop on my kitchen floor because I'm too terrified to stand up near the windows. My hands are shaking so badly I keep having to delete typos. If you're reading this, please don't tell me to call the police. I already did. They said they're twenty minutes out, but I know he's closer than that.
+Jag skriver det här från min bärbara dator på köksgolvet eftersom jag är för rädd för att ställa mig upp nära fönstren. Mina händer skakar så mycket att jag hela tiden måste radera stavfel. Om du läser det här, snälla, säg inte åt mig att ringa polisen. Jag har redan gjort det. De sa att de är tjugo minuter bort, men jag vet att han är närmare än så.
 
-I bought this place two weeks ago. It's an old beautiful mid-century home in a secluded area, sold well below market value by a guy named David. David seemed incredibly sweet during the walkthrough, maybe a little to eager to please, always nodding and smiling, sweating through his button-down shirt even thought the AC was blasting. The only catch to the house was a heavy, reinforced steel door at the end of the basement hallway. A digital keypad was glowing red next to it.
+Jag köpte det här stället för två veckor sedan. Det är ett gammalt, vackert hus från mitten av seklet i ett avskilt område, sålt långt under marknadspris av en kille som heter David. David verkade otroligt söt under visningen, kanske lite för angelägen att vara till lags, alltid nickande och leende, svettandes genom sin knappfasta skjorta trots att luftkonditioneringen var på fullt slit. Den enda fällan med huset var en tung, förstärkt ståldörr i slutet av källargången. Ett digitalt tangentbord lyste rött bredvid den.
 
-"A panic room," David had told me, laughing nervously. "The guy who lived here before me was paranoid.  I don't have the code and honestly, the locksmith said it would cost a fortune to drill out.  Just leave it locked. Pretend it's a wall." 
+"En panikrum," hade David sagt till mig, skrattandes nervöst. "Killen som bodde här före mig var paranoid. Jag har inte koden och ärligt talat sa nyckelmakaren att det skulle kosta en förmögenhet att borra ut. Låt den bara förbli låst. Låt som om det är en vägg."
 
-I didn't care. The rest of the house was perfect. I signed the papers. For the first twelve days, everything was fine. But three night's ago, I started noticing things. Little things. 
+Jag brydde mig inte. Resten av huset var perfekt. Jag undertecknade papperna. De första tolv dagarna var allt bra. Men för tre nätter sedan började jag märka saker. Små saker.
 
-My toothbrush was wet when I went to use it in the morning, even though I hadn't used it since the night before. The keys on the counter were shifted two inches to the left. A dining chair was pulled out exactly three inches from the table. It felt like someone was living in my house, but only when I turned my back. Then last night i found a strange notebook.
+Min tandborste var blöt när jag gick för att använda den på morgonen, trots att jag inte hade använt den sedan kvällen innan. Nycklarna på disken hade flyttats två tum till vänster. En matstol var utdragen exakt tre tum från bordet. Det kändes som om någon bodde i mitt hus, men bara när jag vände ryggen till. Sedan i går kväll hittade jag en konstig anteckningsbok.
 
-It was tucked behind the microwave. It was a cheap, yellow legal pad, filled entirely with David's handwriting. It wasn't a diary. It was a log.
+Den var gömd bakom mikrovågen. Det var ett billigt, gult anteckningsblock som var helt fyllt med Davids handstil. Det var ingen dagbok. Det var en logg.
 
-\- 6:15 AM - wakes up. Turns on left sink faucet.
+\- 6:15 AM - vaknar. Sätter på vänster vaskkran.
 
-\- 6:40 AM - drinks coffee. Prefers two sugars Note: buy more sugar 
+\- 6:40 AM - dricker kaffe. Föredrar två socker. Notera: köp mer socker.
 
-\- 11:30 AM - Is asleep. Entering bedroom now.
+\- 11:30 AM - Sover. Går in i sovrummet nu.
 
-The log went back for months. David didn't sell me his house. He had been living in my walls, watching me, studying my routine before he even "met" me at the walkthrough. The sweating, the nervous smiling. It wasn't sales anxiety. It was excitement. 
+Loggen gick tillbaka månader. David sålde inte mig sitt hus. Han hade bott i mina väggar, tittat på mig, studerat min rutin innan han ens "träffade" mig vid visningen. Det svettas, det nervösa leendet. Det var ingen säljsstress. Det var spänning.
 
-I panicked. I packed a bag, grabbed my keys and ran to the car.
+Jag fick panik. Jag packade en väska, tog mina nycklar och sprang till bilen.
 
-But when I hit the ignition, the dashboard screen didn't show my radio. It was a live video feed.
+Men när jag startade motorn visade instrumentbrädans skärm inte min radio. Det var en livevideofeed.
 
-A camera angle from high up in my living room ceiling, looking down at my couch and sitting on my couch, looking directly into the camera lens, was David.
+En kameravinkel från högst upp i mitt vardagsrums tak, som tittade ner på min soffa och sittandes på min soffa, tittade direkt in i kamerans linse, var David.
 
-He was wearing my clothes. He was holding my spare coffee mug. He didn't move. He just stared into the camera, smiling that desperate, sweaty smile. My phone buzzed in my lap. It was an unknown number.
+Han hade på sig mina kläder. Han höll min extra kaffemugg. Han rörde sig inte. Han stirrade bara in i kameran, leende det där desperata, svettiga leendet. Min telefon vibrerade i mitt knä. Det var ett okänt nummer.
 
-**Unknown:** "You aren't supposed to leave until 7:15 AM, Marcus. You're breaking the schedule." 
+**Okänd:** "Du får inte lämna före 7:15 AM, Elena. Du bryter schemat."
 
-I screamed, threw the car into reverse and slammed the gas. But as I backed down the driveway, my tires hit something sharp. Pop. Pop. He had laid spike strips in the gravel. I was trapped on the property. The woods surrounding the house are dense, dark and fenced in.
+Jag skrek, släppte bilen i backen och tryckte på gasen. Men när jag backade ner för uppfarten träffade mina däck något skarpt. Popp. Popp. Han hade lagt ut spikestrips i gruset. Jag var fast på egendomen. Skogen runt huset är tät, mörk och inhägnad.
 
-My only choice was to run back inside, lock the heavy oak front door and hide. That brings us to twenty minutes ag. I was hiding in the kitchen, crying, when I heard footsteps coming from inside the walls. A rhythmic, heavy thudding traveling down from the ceiling, down the drywall, straight toward the basement.
+Mitt enda val var att springa tillbaka in, låsa den tunga ekdörren och gömma mig. Det för oss till tjugo minuter sedan. Jag gömde mig i köket, gråtande, när jag hörde fotsteg som kom från innerväggarna. Ett rytmiskt, tungt dunsande som reste sig ner från taket, ner genom gipsväggen, rakt mot källaren.
 
-My phone buzzed again.
+Min telefon vibrerade igen.
 
-**Unknown:** "I'm disappointed that you tried to leave. But I do love a chase. Let's play a game. I am going to come upstairs now." 
+**Okänd:** "Jag är besviken över att du försökte lämna. Men jag älskar en jakt. Låt oss spela ett spel. Jag kommer nu uppför trappen."
 
-**Unknown:** "If you want to live, the code to the basement room is 8841. Go inside. Lock it."
+**Okänd:** "Om du vill leva, koden till källarrummet är 8841. Gå in. Lås det."
 
-I froze. I looked toward the basement stairs. The basement door isn't a panic room to keep things out. It's was a vault. If I go in there, I am walking into a steel cage with digital lock that he controls. He wants me in there. The notebook, the stalker log, the spike strips. It was all an obsession designed to drive me into that specific room.
+Jag frös. Jag tittade mot källartrappen. Källardörren är inte ett panikrum för att hålla saker ute. Det var ett valv. Om jag går in där, går jag in i en stålhäkte med digitalt lås som han kontrollerar. Han vill att jag ska vara där inne. Anteckningsboken, stalkerloggen, spikestripsen. Det var alla en besatthet som syftade till att driva mig in i just det rummet.
 
-But if I stay up here, I'm in the open. Right now, I can hear the basement door creaking open. I can hear his footsteps on the stairs, coming up to the kitchen. They are slow. Deliberate. 
+Men om jag stannar här uppe, är jag i det öppna. Just nu kan jag höra källardörren knaka upp. Jag kan höra hans fotsteg på trappen, som kommer upp till köket. De är långsamma. Avsiktliga.
 
-He just texted me one last time.
+Han sms:ade mig en sista gång.
 
-**Unknown:** "60 seconds, Elena. Choose your room". 
-
- 
+**Okänd:** "60 sekunder, Elena. Välj ditt rum."
