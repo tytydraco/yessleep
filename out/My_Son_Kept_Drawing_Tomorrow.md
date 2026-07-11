@@ -14,7 +14,7 @@ I apologized, and Eli’s parents forgave me, and Toby did too, eventually.
 
 Then Toby started drawing.
 
-He’d always doodled here and there, even before Renee died, but after everything with Eli, drawing became an obsession. Every afternoon after school, he’d disappear into his room with a box of crayons and emerge an hour later with another picture. 
+He’d always doodled here and there, even before Renee died, but after everything with Eli, drawing became an obsession. Every afternoon after school, he’d disappear into his room with a box of crayons and emerge an hour later with another picture.
 
 At first, I thought it was just another way he was grieving. But weeks passed, and he never stopped drawing.
 
@@ -77,7 +77,7 @@ Toby drew a sideways bus and a slate-colored sky with thick slanted lines for ra
 The next morning, the school bus hydroplaned on the bypass. No one was hurt, but the kids were stuck in the rain for over three hours while they waited for a tow.
 
 Drawing #34: The Sling.  
-It was a simple stick figure of his teacher, Mr. Sellers, with a white triangle over her arm. The next day, she tripped on a trapper-keeper in the hallway and broke her collarbone. She was doctor-ordered to wear a sling for six weeks.
+It was a simple stick figure of his teacher, Mrs. Sellers, with a white triangle over her arm. The next day, she tripped on a trapper-keeper in the hallway and broke her collarbone. She was doctor-ordered to wear a sling for six weeks.
 
 I’m a practical man. If a car is totaled, the passenger is usually hurt—cause and effect. But Toby was giving me the effect before the cause.
 
