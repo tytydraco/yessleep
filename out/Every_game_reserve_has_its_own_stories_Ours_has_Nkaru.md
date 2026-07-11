@@ -155,3 +155,25 @@ Because now I understand why guides don't tell guests about Nkaru.
 The story doesn't make you believe in it.
 
 It just makes you wonder whether you've already seen it without realizing.
+
+Edit:
+
+Hey guys. I've recieved some more information and done some further research on this. Here are some rules I've learnt:
+
+If you hear a laughing dassie, walk away. It plays auditory tricks on you.
+
+If you see it at all, do not sleep facing the window the same day you saw it. 
+
+If you've seen it during the day, have a buddy system. Stay with someone when moving in dark areas during the night. It hunts in the night.
+
+If you see it in your dreams, that means that you are it's primary target. It's able to track you throughout your life.
+
+It knows when you see it or try talking to it. NEVER try talk to it or say its name directed to the bush, it may grow an interest in you or your group.
+
+If it targets one member of a group, in the future it may target other members of that group.
+
+When animals start acting funny, take that as a warning.
+
+During the day it stalks. 
+
+I hope this new information I've found can keep people safe, I'm beginning to wonder more and more if this entity really exists.
