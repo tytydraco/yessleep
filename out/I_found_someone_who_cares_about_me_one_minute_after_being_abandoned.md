@@ -1,0 +1,643 @@
+“GET OUT YOU LITTLE PUSSY!!!, was the last thing my dad told me before speeding off.  
+	
+
+The trees were shivering in the chilling breeze as I was alone, fearing my hands would soon resemble the frostbitten wood around me. I zigzagged around various trees, hoping I would find some kind of shelter, regardless of how futile it was. Anything to keep me a degree warmer. I found an abandoned warehouse and quickly ran around the ivy suffocating the building and ran past an SUV through the building’s maw of an entrance. Before I even passed through, the scent of rusted metal was strong. A voice called out to me. 
+
+	  
+“Hey, who's back?” it said
+
+	  
+“W-who…. are y-you?”
+
+	  
+“You don't sound… How old are you?”
+
+	  
+“Thirteen.”
+
+	  
+“C-can you repeat that!?”
+
+	  
+“I said thirteen.”
+
+	  
+Metal began clicking in the labyrinth of steel crates, and a lantern was piercing through the gaps and lit up the crates on the other side. Then the beacon peeked around the corner. I saw what was holding it: A tall, masked man with blond, unkempt hair with an antenna and a lab coat. His hand was mechanical like his legs, which were digitigrade, and a mechanical tail that had some form of counterweight on its tip. His legs moved rather rhythmically, but his arms moved more organically. Unlike the metal around us, I smelled cologne on him.
+
+	  
+My heart beat faster, partially from excitement at seeing a cyborg, and from anxiety as he towered over me, but then he gently kneeled, reaching a slender arm toward my shoulder. I stepped back, still a little nervous and tensed up as his cold metallic hand landed on my shoulder.
+
+	  
+“Where are you parents, kiddo?”  
+	
+
+“T-they… dropped me off and left.”  
+	
+
+His fist nearly tore his knuckles. “If they come by, they WILL pay, also what's your name?” His emotions shuffled.  
+	
+
+“Markus, a-and you?”  
+	
+
+“The name’s Lemmy Paign Walton, and I want to help you, so you don't freeze,” Lemmy said as he opened a large trapdoor hidden within the rubble.  
+	
+
+“I'm… not sure if I should t-trust you.”  
+	
+
+“I understand, but you will die if you don't, so please, trust me.”  
+	
+
+Hesitation choked me, and let go once a thought breached my mind: If this man wanted to kill me, surely he would have by now. I carefully went down the stairs and removed my shoes.  
+	
+
+It was a shockingly cozy bunker. It felt more like a house. The living room's carpet massaged my feet as the smell of pancakes poured from the kitchen and strangely, a door with 3 padlocks was down the hall, definitely his room. He put a pillow on the couch, then laid a heated blanket down.  
+	
+
+“Here's the tv remote, don't have the volume high,” he said as he sat at my feet.	
+
+
+
+“Why is your house hidden underground?” I asked.
+
+
+
+“The warehouse is where things get done, and I don't want to be too far from it.”  
+	
+
+We watched cartoons and he drifted off. I let the air freshener and the warmth of the blanket engulf me as I shut my eyes.  
+	
+
+I woke up and he was gone, and the digital clock on the coffee table said it was 11:30PM. I hollered for him and the trapdoor sprang open.
+
+
+
+“What is it? Are you OK?” he said, worried.  
+	
+
+“Yeah I was just wondering where you were.”  
+	
+
+He sighed in relief. “Come up here, I got you something.”  
+	
+
+Before I even touched the stairs, a faint odor already made its way down. Did he mangle a deer? There was only one way to find out.  
+	
+
+A cart holding a tightly wrapped, red tarp was waiting for me.  
+	
+
+“Check this out,” Lemmy said as he quickly but carefully unwrapped the tarp.  
+ 	
+
+The stench reached out before he even tugged at the tarp. I raised my hoodie to my nose as it only got stronger. The smell of a dozen corpses overpowered my hoodie, and I braced for what could possibly cause such a smell. There it was, the worst air freshener. It was a pale, tightly folded corpse with a few long strands of hair scattered across its face and scalp. Its legs were longer than Lemmy’s, and its arms were just as long. A railroad nail was protruding from between its eyes. I jumped back and nearly fell back down the stairs, until Lemmy pushed the cart and grabbed my hand.  
+	
+
+“Should've told you what it was, huh?” Lemmy said with a smirk.  
+	
+
+“W-what is… that?”  
+	
+
+“a dead wendigo, its pale, decrepit form makes it tricky to see in snow, which makes these violent fiends even more dangerous.”  
+	
+
+My stomach dropped to my feet.  
+	
+
+“You will hear their screeches, so you'll have some time to prepare,” Lemmy added.  
+	
+
+He brought me further back in the warehouse and showed me his “office”. Calling it an office is generous. It was a desk with two chairs in the corner of the building, with multiple bookshelves lined up across the wall with mechanical parts, bones, eyes, and a few books.  
+	
+
+“Who’s the other chair for?” I asked.  
+	
+
+“Markus”  
+	
+
+“M-me?”  
+	
+
+“You're the only Markus I know, so have a seat.”  
+	
+
+I dropped myself on the chair and looked at all the machinery and bones in awe. He walked over to a shelf that had rabbit skulls with antlers and took one off the shelf and handed it to me. My eyes were locked on the skull as I felt the sharp points of the antlers. Lemmy sat down next to me, and placed his cold, robotic hand on my shoulder.  
+	
+
+“In a few years, you'll be able to start your own collection of anomaly skulls”, he said. “Right now, you're too young to go deep into forests and dilapidated buildings by yoursel-  
+	
+
+“AYYYYY”, a foreign voice echoed.  
+	
+
+Lemmy immediately jumped over the desk and sprinted toward the voice. I heard Lemmy thank the person for their work and he came back with a giant dead bird in a cart. It had grey feathers and large, green eyes, with a crunched head.  
+	
+
+“This is a terror bird. Its giant hooked beak and thick legs could easily kill a kid like you, so be careful if you ever do this”, he said.
+
+  
+That was three months ago, and Lemmy has been preparing for my 14th birthday, June 6th. I was heading for a morning stroll when I noticed a speck of color near the warehouse’s entrance.  
+	
+
+It was a pride sticker.
+
+	  
+“Lemmy did you put this here?” I asked.  
+	
+
+“If you're talking about that pride sticker, then yes, why would I judge someone over something so minor?”  
+	
+
+I immediately ran over to him and hugged him.
+
+	  
+“What? It's the bare minimum,” he said, hugging back.  
+	
+
+“I finally found someone who appreciates me,” I replied. “My family wouldn't even think of a sticker.”  
+	
+
+Lemmy's hug tightened. “mine wouldn't have either, so I had to do it myself,” he said.  
+	
+
+I didn't go on a walk that day. Instead I tidied up the bunker and even helped Lemmy with cleaning up messes left by the cryptid corpses.  
+	
+
+“When you're experienced enough, the messes are the scariest part of the job,” he said with a chuckle, as he tossed me a sponge.  
+	
+
+That day ended like the first, watching cartoons with him as we both drift off.  
+	
+
+Finally, Friday came. Just one day away from fourteen, and Lemmy was just as excited. We were preparing the kitchen all day for tomorrow. Nothing notable happened, we just cleaned the kitchen together.
+
+
+
+I woke up in the middle of the night and Lemmy was gone. I looked in the kitchen, nothing. I looked down the dark hall, and had to squint. He was at the padlock door locking it with different keys, then saw me.  
+	
+
+“What are you doing up so late?” he asked.  
+	
+
+“I woke up, and was wondering where you were.”  
+	
+
+“I was renewing a deal I made a while back, nothing really.”  
+	
+
+“What kind of deal?”  
+	
+
+“It's… complicated, I’ll explain it tomorrow,” he said as he placed the keys in his pocket.  
+	
+
+I rested my head back down as Lemmy returned to the couch.  
+	
+
+That morning, he was watching a sitcom with blueberry pancakes with strawberry slices. I yawned and caught his attention.  
+	
+
+“Finally. I've been waiting for you to wake up. Happy birthday!” he said. “Still want to know about that deal?”  
+	
+
+“Later, I just woke up,” I replied as I stood up and stretched. He went to the kitchen and microwaved some blueberry pancakes he made an hour ago. He quickly returned to the coffee table with the plate of pancakes (with strawberry slices), and a glass of milk.  
+	
+
+“Replenish, the explanation’s convoluted,” he said.  
+	
+
+After I finished eating and the glass was almost empty, I told him I was ready to hear it.  
+	
+
+He took a deep breath.  
+	
+
+“These monstrosities I, and many others hunt, are created. The work is never done, and I have been searching for footprints that could possibly lead to a gate or at least, a key. Easier said than done of course, so I made a deal. I had been given immortality. The giant pin in my is a branding from that deal. I've been 28 for decades, but once I achieve my goal of stopping the creation of these things, I’ll live for another 50 years before passing, but I still won't age, think of it as a timer.”  
+	
+
+“So what's with the locks?” I asked, adjusting my posture.  
+	
+
+“They are guarding my room, and also my lab. I've been dissecting some of these monstrosities, and I figured out a way to view their first sights.”  
+	
+
+He removed his mask.  
+	
+
+His right eye was gone and metal was surrounding his eye socket and extended to his ear, he also lacked facial hair.  
+	
+
+“I just have to place an eye in this socket to see what they first saw.” He said, circling his finger around the metal socket.  
+	
+
+I recoiled and my own eye socket felt tight.  
+	
+
+“What happened to your eye?” I asked.  
+	
+
+“Wendigo attack, it also destroyed a piece of my brain. I may not have an eye, but at least I can't feel pain.”  
+	
+
+“Also why do you wear a mask?” I asked.  
+	
+
+“To avoid having to explain that I stick corpse eyes in my face, as people tend to be disgusted, like you,” he chuckled. “Plus, it's a cool mask.”  
+	
+
+“What do they first see?” I asked.  
+	
+
+“It’s a fountain or waterfall, with some kind of disfigured, but clearly human face hovering over it, vomiting… I think blood on them. It's always something like that. I…. Believe that face belongs to the creator.”  
+	
+
+When I finished the milk, the taste of blood began fighting it. “Why do you still willingly see what they see?” I asked.  
+	
+
+“It's never the exact same picture, they have different angles of the face, and many have less blood covering it, making the features clearer. Come here,” he said. He reached into his pocket as he stood. I followed him to the door where he pulled out 3 keys.  
+	
+
+The door opened.  
+	
+
+The room itself had a bed, shocker, and a desk with various history books with multiple bookmarks in each one. Various paintings and portraits from different eras and regions suffocated a wall, with about every dozen faces circled in red marker. Every five to seven circles had been crossed out. Another door was in the room.  
+	
+
+“What's with the paintings?” I asked as I looked around. “And why are there so many circles?”  
+	
+
+He looked at them with me. “Those faces bear striking similarities to the one I've seen in those eyes. Those which are crossed out also had similarities, but there were more differences than I initially thought.”
+
+
+
+He then open the second door.  
+	  
+	  
+“Here's that lab I told you about,” he said as he opened it.  
+	
+
+It looked like a hospital room. A wall mounted desk stretched across it. The corner held some hospital beds. Two were empty, one had a duck-turtle looking thing and the other had a dissected wendigo with a large piece of metal lodged in its head. I noticed something.  
+	
+
+They were both missing an eye, and I knew exactly where they went.
+
+	  
+“That wendigo almost killed you,” Lemmy said with a smirk.
+
+	  
+The second he said that, it hit me.
+
+	  
+That was the same wendigo that nearly caused me to fall down the ladder, my first morning here.
+
+	  
+“Sorry for the convoluted gift,”  he said grinning.
+
+
+
+ The next day, I saw Lemmy sketching in his office as I was mopping.  
+	
+
+“Watcha’ drawing?” I asked.  
+	
+
+“That face,” he said as he lifted the paper.  
+	
+
+It looked like the head of a partially burned, mummified corpse with hair only on the right side of it. It had two eyes crammed into one eye socket, while the other was warped and empty, and its mouth was stretched. One of its ears looked mostly normal, while the other was stretched across the side of its head. They had chain-like piercings.  
+	
+
+I felt like I wasn't meant to see it.  
+	
+
+“After our conversation yesterday, I wanted you to see what it looked like in a safe way,” Lemmy said.  
+	
+
+The faint lines around the face proved this.  
+	
+
+We heard someone hollering behind the crates.  
+	
+
+“Wait here,” Lemmy said as he began sprinting towards them.
+
+	  
+“How did you take this thing down on your own?” Lemmy said, impressed.  
+	
+
+“I stomped on that jeep’s gas pedal and I CRIPPLED that fucker!” a female voice yelled. “And THEN I backed up and RAN OVER THAT BITCH AGAIN!!!”  
+	
+
+“Well vehicles make excellent weapons,” Lemmy said as I heard her skip off.  
+	
+
+He came back with a cart barely supporting what was on top of it: an abnormally huge alligator.   
+	
+
+It had more teeth than its mouth could contain, and its legs were just big enough to carry this juggernaut. Guess alligators really never heard of evolution.  
+	
+
+“I need to order bigger tarps, but home depot probably thinks I'm a serial killer,” Lemmy said as he plucked out one of its eyes. It tightly fit in Lemmy’s iron socket and he sighed. “It's covered in blood,” he shrugged as he removed the eye. I wish I didn't see him do that in person.  
+	
+
+“Oh I also got you a more traditional present,” he said as he passed me a metal bat. “One day, you can use this to shatter monster bones.”
+
+
+
+“You actually think I'm more than a janitor?” I asked.  
+	
+
+“You actually think cleaning is your only skill?” He replied.  
+	
+
+He actually has faith in me.  
+	
+
+He pulled out a controller.  
+	
+
+“Behind you,” he said.  
+	
+
+I burst out laughing.  
+	
+
+It was an RC truck with a wooden pole duct taped to the bed. A piece of paper was nailed to the tip, with an angry face scribbled on it.  
+	
+
+“Quick, it's approaching! Kill it!” Lemmy exclaimed.  
+	
+
+I swung my bat at the pole, and the whole thing came crashing down. It broke in half and the car tipped to its side. Lemmy stepped toward it and ripped off a corner of the paper.  
+	
+
+He stuck it in his socket.  
+	
+
+He yelled, “IT'S A PENCIL!!!”  
+	
+
+My mouth busted through the floor.  
+	
+
+“Good to know you can find weak points,” Lemmy said, placing a hand on my shoulder. “That is an important skill when it comes to real cryptids.”  
+	
+
+All I did was knock down a pole, why is he so proud?  
+	
+
+“I also have someone who wants to see you,” Lemmy said.  
+	
+
+He pulled out the pin in his head, which I thought was an antenna, and rubbed the tip. A figure walked around the crates.  
+	
+
+Its hair was thick, turquoise yarn tightly curled into a bob, and had a pincushion in place of a bun. Its eyes were mismatched buttons, and lacked a mouth. Its skin was pink cloth stitched together and it had an ankle length dress composed of pieces of purple, green, and orange cloth also stitched together, and It wore red shoes. It looked like a chubby doll.  
+	
+
+
+
+It smelled like an antique sofa, and the scent got stronger as it gently walked over to us.  
+	
+
+“Mark, this is the lady I made that deal with,” Lemmy said looking at me. “That's how I got this pin.”  
+	
+
+“What's her name?” I asked.  
+	
+
+“She… doesn't have one, I just call her Button.”  
+	
+
+Button reached a hand out to me, gesturing a handshake. I obliged, and shook her cloth hand. I was shaking, worried that I may have just lost my soul.  
+	
+
+“I refer to spirits like her as dolls. They aren't malicious and stitch their own vessels together to show they mean no harm,” Lemmy explained as he shook her hand after me.  
+	
+
+“How do they make vessels if they don't have one?” I asked.  
+	
+
+“They just temporarily possess mannequins so they can craft their doll bodies,” Lemmy said as he went down to the bunker.  
+	
+
+“So where did you come from?” I asked Button.  
+	
+
+She walked over to Lemmy’s desk and began writing on a notebook page. It read in beautiful cursive: ”I was just another person, down south working at a clothing store. I heard someone yelling in pain behind the store, and wanted to help them. It was wearing the mangled hide of a wolf on its back, and its eyes looked sunken in. I was being lured, and it was too late when I realized that fact. Mr Walton says I encountered a skinwalker.”  
+	
+
+“I… also lost my normal life, the day my mom looked into my diary, and discovered my preference for men. I've been living here for a few months now,” I shared. “Also, why did you want to see me?  
+	
+
+She continued writing.  
+	
+
+“Mr Walton told me that you had exceptional potential, and I wanted to see this soon-to-be warrior myself.”  
+	
+
+Lemmy returned, holding that duck thing from the lab.  
+	
+
+“Button, you can have this kappa now,” he said as he dropped the corpse.   
+	
+
+So that turtle duck is called a kappa.  
+	
+
+Thread came from Button’s wrist and poked through the thing’s neck, wrists, and ankles. It raised to its feet.  
+	
+
+“Are you ready for the final round of this gauntlet?” Lemmy said enthusiastically.  
+	
+
+The kappa's corpse began moving like a marionette toward me. I tried to kick it away, but it backed up just out of my foot’s reach. I looked at Button as she was wiggling her fingers and flicking her wrist.  
+	
+
+The kappa began scuttling on all fours until I swung my bat and f  
+Knocked it into a crate. I jumped toward it.  
+	
+
+I landed on the floor as it drifted away. The corpse began hovering. It moved like paper in the wind.  
+	
+
+It charged at me and I swung upward. I knew it would try to trick me.  
+	
+
+The kappa came crashing down, and it didn't get back up. It didn't even have strings anymore.  
+	
+
+I looked back at Button and a piece of paper stood in her place.  
+	
+
+“A+”
+
+	  
+Months passed. Every weekend I fought Button’s marionettes. My 15th birthday is coming and I want to make myself worth Lemmy's time.  
+	
+
+I flew off the couch and ran upstairs to talk to him.  
+	
+
+“Lemmy, how old do you have to be to hunt anomalies?” I asked.  
+	
+
+He spat his coffee back into his mug.  
+	
+
+“You need to be at least 15,” he answered. “Do you want to go hunting?” he began grinning.  
+	
+
+“Yup.”  
+	
+
+His smile nearly cut through his ears. He picked me up and began spinning me.  
+	
+
+“MARVELOUS! YOU ARE WILLING TO HELP. I cannot pay you enough,” He said, putting me down.  
+	
+
+“I wanted to just pay you back.” I said.  
+	
+
+“For merely doing my job as a father?”  
+	
+
+My heart stopped. I began squeezing him.  
+	
+
+I didn't leave his side for the rest of that month. I didn't even leave when he did the eye thing. At last, I was 15.  
+	
+
+Lemmy blew a party horn as I left the bunker.
+
+
+
+“HAPPY BIRTHDAY MARK!!” He yelled. “Your gift came right on time, I just received a call. Apparently a “rat demon” is in someone's house.”  
+	
+
+I ran to my bat and slapped on leather gloves, cargo pants, a thick jacket, and combat boots. I stuffed bandages, water, bobby pins, a lantern, and a steak knife in a backpack. I wrapped the knife’s blade in bandages before I put it in the backpack and sprinted past this year's sticker.  
+	
+
+Lemmy got into the driver's seat, criss crossed, his “toes” still reaching the pedals.  
+	
+
+“i believe someone's ready to go hunting,” he said.  
+	
+
+“Damn right I am,” I replied.  
+	
+
+We drove for about 30 minutes. Lemmy was playing jazz on the radio, while I was shaking with excitement. We pulled up to a small tan house. I saw an old lady on the porch.  
+	
+
+“Markus, are you sure you're ready?” Lemmy asked, concerned.  
+	
+
+“Yes,” I replied, getting my bat from the backseat.  
+	
+
+“I'll stay here, if you need me, use this” he handed me a walkie-talkie.  
+	
+
+When I got to the porch, she said, “I tried killing it, but it snapped my broomstick. I'm very sorry I had to waste your time.”  
+	
+
+“No, it's ok. I'm here to help,” I assured her. “Where is it?”  
+	
+
+“It ran down the hall, I don't know which room it's in.”  
+	
+
+I unwrapped the knife and stepped in.
+
+	  
+The only sounds were the creaks from the door, and from the hall. It was pitch black. It probably tripped over a cable. That lantern came in handy. I snuck into one of the open rooms.  
+	
+
+Nothing.  
+	
+
+I entered another.  
+	
+
+Nothing.  
+	
+
+I found a stairwell.  
+	
+
+Yup, something is down there.  
+	
+
+It definitely sounds like a demonic rat.
+
+
+
+I slowly went down, bat in one hand, and lantern in the other. The distorted squeaking was becoming louder. Then it stopped.  
+ 
+
+I heard crawling in the abyss and I reached out my lantern.
+
+
+
+I found it.
+
+
+
+“Rat demon” is a surprisingly accurate description for this thing. It was about 7 feet long, with its tail making up 2 of them. It had scrawny, human-like arms, with muscular legs. Its mouth was a horizontal slit in its head, and the top half was covered in eyes. Its smell was scarier than its appearance. I placed the lantern on a nearby table, and tightly gripped my bat. 
+
+
+
+It shrieked as it dashed toward me, and stopped as I slammed my bat onto its vile, lumpy head. It grabbed my leg and started death rolling me. I lost grip of the bat and had to roll with this fiend. I jammed my fingers into its many eyes, and still didn't get all of them.I ran to my bat as It ran back into the darkness. It stayed there just long enough for me to dig my knife out the bag.
+
+
+
+I took the knife's bandages and used them to wrap the knife around my wrist. The abomination emerged from the void, snarling.
+
+
+
+It started zigzagging, not knowing a doll helped me prepare for something like this. I followed its rhythm and managed to wrap my limbs around it and punch with my knife hand. It squealed and I grabbed my bat.
+
+
+
+I crammed the end into its mouth, and used that to maneuver its body upward, and put all my weight on the bat, and forced it down its throat. I proceeded to stab its neck again and again and again. It stopped thrashing
+
+
+
+I took the knife off my wrist and began stabbing its chest, making sure it didn't thrash again.
+
+
+
+I lifted the stuffed corpse and carried it outside.
+
+
+
+“Your rat problem has been fixed,” I told the old lady, wielding the fiend.
+
+
+
+“Why you sure did, bless you,” she replied. “Didn't you have a backpack and a lantern?”
+
+
+
+“I'll get them once I get this in the car”
+
+
+
+I retrieved my stuff and the old lady gave me 50$. Lemmy was praising me the entire ride home.
+
+
+
+“Congratulations on the first hunt,” Lemmy said as he started playing jazz. “And you didn't even need to call me for help, I knew it!”
+
+
+
+We pulled up to the warehouse and Lemmy immediately looked at the rat’s many eyes. “Well, I'm gonna be busy tonight.”
+
+
+
+A sticky note was lying with the pride sticker and written in cursive was, "Great job Markus."
