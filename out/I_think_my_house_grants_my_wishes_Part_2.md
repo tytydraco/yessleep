@@ -129,3 +129,5 @@ So I ordered one and went to sleep.
 Two days later I had the detector and I did a full sweep of every nook and cranny in the house.
 
 No carbon monoxide poisoning.
+
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1utieq3/i_think_my_house_grants_my_wishes_part_3/)
