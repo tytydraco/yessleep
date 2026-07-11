@@ -1,0 +1,122 @@
+I'm not even a nurse, right?  
+My original plan was to get out of school, train in some complex, medical-y major and graduate, flying colours and get that high-paying job, move out and get that life. 
+
+And then my parents died and I just couldn't- I felt like I was trapped under the same dirt they were, like some part of me, some organ, was being trapped and choked and being trampled on by everyone around me, everyone who couldn't see it. That veil lifted, I think, about a year and a half after they died, and that was just kind of like a sign to me that I needed to get into the medical realm as soon as possible and I thought of the apprenticeships I'd heard about, desperately peddled by careers interviewers and I just thought- yeah.
+
+The life of an apprentice nurse is worse pay than a nurse, obviously- and it is also more thankless, both from colleagues and from the patients. I am the person who has to go out and collect the bills, ask why someone has been taking five times their prescription- so on and so on. That and the coffee- like, god, how much coffee can a surgeon take without their neural pathways turning to mush and over-frothed meat? Make it yourself, at that point, surely. Bring it in a big flask and just-
+
+Sorry, sorry.  
+
+You guys are here for the bad part. Not blaming you- sorry, that sounded a bit rude. I'm here to get it off my chest and you're here to listen. Or read.
+
+Whatever.
+
+When the repetition got horrible, when the patient's scowls and endless questions and demands and the doctor's shouts and the endless stream of I.Vs just became lists of things to mention by name in my suicide note, I wanted out. I had seen by that time- or maybe someone had told me?- about an opening in the maternity ward. Same thing, basically, an apprenticeship for one more year before I like some medical Peter Pan became a real nurse. 
+
+Salary was still horrible. But, for the most part, it was better. You are- how to put it- less easily angered when the most of your worries are the indiscernible lumps of cherubic fat and gurgling messesthat are wearing matching clothes and their glowing, smiling parents. There were off days here as well but it seemed like a sort of utopia to me, where no one needed any coffee and I didn't really have to do much. There was nearly no work for me, though the meagre salary strips came in and went and my nursing life came closer and closer. 
+
+Really, there was no work- I remember even taking a little seven year old, there with his parents after an unexpected water break, all around the hospital, pointing out all the little machines and- 
+
+But there was also enough time to worry, just about things. Just to mull over the rest of my life and, later on, other people's. I was worried about some of the people who came. One such woman was, let's say, Sandra.   
+She was the child of two loving parents, she had said, who had loved her just until the fact that she had gotten pregnant before marriage. Made my blood boil, reminded me of my own parents- not cause I hated them or they me- because I just couldn't imagine what it was like for her, to feel that same loss and know they were so close.  
+
+Sandra was also a little, rough around the mental edges, I got to talking to her- no, that's wrong. Sandra was talking to me, half-asleep, just telling me stuff, telling me about her parents and her dog, about who I could only assume was her boyfriend. 
+
+"He's a dark man,' she had said, hair, beautiful blonde, matted with sweat, 'But I want the baby anyway. Even if it has him in it. Do you get it?"
+
+This sentence was relayed to me over the course of three minutes and at the end of it, I had smiled- though I didn't know if she could see me- and squeezed her hand.
+
+That was yesterday.
+
+Today started with some administrator yelling something fierce, stirring up the decibels, spittle flying- you get it. Someone had given someone else the wrong baby. 
+
+Sandra's baby, specifically. 
+
+I went over to talk to Sandra, though she didn't really seem to remember me- from her half-asleep, muttering night- I still hoped that she saw me as a friendly face. I told her that it would be fine and that we would get her child back. She had just nodded, a little faraway, and she had said, quite firmly, that her baby couldn't be left alone with other people, that wouldn't be right. 
+
+I agreed, I knew that this was a big hospital screw-up, the kind of sitcom level screw-uppery that was talked about for years and years, and Sandra was right to be angry or whatever she felt like. 
+
+And maybe this next bit was fate, or some kind of recommendation from Sandra or just my 'not technically a nurse' status at work here but I got handed the job, amid more disciplined yelling, to contact the other woman and talk her through the situation as gently as I could.
+
+As gently as I could- like there some kind of egg that would break.
+
+I dug out the numbers and dialled it up, taking my seat in the office.
+
+After a few minutes, someone picked up. 
+
+Said- hello?
+
+I talked them through what had happened; it was only at the middle of my explanation that I realised that the words were flowing hot and fast from my mouth into the phone, as if I was scared that talking any slower would point blame at me. I slowed down at the end, though I could not remember what I had said before it and asked if they were free to come down and just, you know, swap it back. 
+
+There was a long, loud silence;
+
+"I'm sorry, I can't hear you. I don't think the phone's working."
+
+Should've known then, goddamnit, that there was something wrong, the guy's voice was strolling over each word, like it was a foreign language, like- like he had practiced it and needed that exact intonation.
+
+I told the administrator and she told me, roughly, that I should probably 'get my ass over there' if I didn't want my two years of apprenticing to go to waste. 
+
+As you can figure out, I drove there, in the little hospital provided vehicle and the address provided and, in a half hour, I reached. 
+
+The house was generic, in a word. 
+
+Two storey, wooden and with an impersonal front lawn, windows that were perfectly aligned and also lopsided-
+
+I knocked on the door. 
+
+After a few minutes, a man came out, I could see him through the side windows beforehand, strolling forward, no shoes, only these long, black socks that came up to above his knees and a t-shirt and shorts, he opened the door and I found that it was never locked, and now that I think of it, I cannot even confirm that it was properly shut; he walked me in and, when I moved to take off my shoes, he watched me, I could feel it, stared at me, struggling to take off the knots under his gaze, and smiled a little. When I got up, I found that I could not even properly remember why I was here and it was a long time before I could ask where his wife- where the mother was; he smiled a little wider and he told me that he was sorry about the baby. 
+
+What the hell?
+
+He said he hadn't known it was swapped.   
+By this point, I was just kind of following him where he was moving. 
+
+Into the basement.
+
+He said he was sorry for the other lady, that she would not see her own flesh- that's what he said,   flesh- but that it had gone well- there was a fireplace on the upper floor and it was burning, I can remember that, even though it was summer, and, downstairs, there was some other heating turned on, making the heat palpable, rising up even through the closed basement door. I think I asked, then, again- where is your wife? 
+
+He didn't turn back then and he just continued to fiddle with the lock on the basement door, a deadbolt, and pushed the door forward. 
+
+He didn't turn on the light because it seemed to be bright like hell down there- not as in it was extremely bright but in that it was lit like what I imagine must populate the nightmares of many. There a faint, amorphous light shining down there but it was not one produced by a lightbulb. He moved down first- stopped on a step, halfway down, and turned his head a little bit- I saw, then, a tattoo on the side of his neck, a sort of Christian design maybe, or some religion, all stars and crosses- and told me, flat and bubbled through: please lock the door when you leave; I nodded and then I remembered, again, why I was here and I licked my lips and I repeated- where is your wife, sir, where is the baby?
+
+Where the fuck is the baby?
+
+The curse slipped through my mouth like a wet slime; there was no response to it, though. 
+
+Seemed like that at first and, after a few seconds- with my breath held and his frame unmoving- his hand pointed downward still, to the floor of the basement. 
+
+He squealed. 
+
+I think I noped out at that moment, rushed downwards and tackled the man off his feet, fell with him, making this strange, extended gurgle to the bottom step, and I got off, head ringing, like all the blood in my body was going there and staying, and my feet numb, as if they were faraway and not mine but implants to be controlled, and I walked forwards off the staircase and onto the ground- wishing I had my shoes, still, because the ground was so cold- and I saw her first. 
+
+I had not seen her in the hospital, because I would have remembered her- her red hair and that pale skin, thin and translucent, those green eyes.
+
+She was staring straight at me, seated on an antique, wooden chair, a long, white cloth held by her until her chin. She looked at me and through me and I felt sick but it did not last because when she saw me, or maybe something else entirely that existed near me, she lifted the cloth over her head until she was fully covered, a ghost in a blanket- I screamed, voice cracking, both to the man, lying behind me and the lady, wearing a cloth over her like she was in some vertical morgue, what have you done? 
+
+Where is she?
+
+There a creak beyond me- behind me.
+
+The man was up, I saw, and I backed up, stopped because I didn't want to touch the lady- I had the image that she was play-acting her stillness, waiting to leap up and out of the cloth at me, slit my throat and bury me there, eat me and sell my organs. He didn't even look at me, he didn't even bother about himself, his injury, his broken, weeping nose went untouched, uncomforted and he continued beyond me, forward and forward and I backed up against the wall, rough and bubbly. He was kind of limping and I could see that one of his legs was kind of bent out, dislocated, maybe? 
+
+There was another chair in the opposing end of the room, the basement, hidden away in the darkness, another cloth and I could see that this one had fallen to the floor and I could imagine, in my mind's eye, both of them sitting there, just silently, under the cloth, like old furniture, until I had knocked. He sat down and pulled the cloth over himself. 
+
+I could feel some kind of grain under my feet and I looked, only for a second because I still thought they were about to pounce on me like rabid dogs and tear my throat to pieces, and saw salt, encircling the room, smudged by our footsteps, mine and his and maybe her's and where the hell is the baby, I am thinking, what have they done?
+
+I ran, slipped on the stairs and ran faster. 
+
+Fell when I was out of the basement, slipped back on carpet and hit my teeth on the wood floor, tasted blood, and I left my shoes there and continued my dead sprint till the car. 
+
+I've called my administrator, told her what has just happened. 
+
+I did that at the parking lot of a supermarket nearby; I've seen police cars drive by a few minutes ago.   
+Maybe they let it out or maybe they kept it in the bathroom or maybe they kept it with their relatives or maybe they never collected it but it was someone else or maybe there never was a swap or any babies-
+
+But I pray that white lump, wrapped in cloth and lined in salt, is not what I think it is.
+
+
+
+
+
+
+

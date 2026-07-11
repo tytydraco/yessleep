@@ -20,11 +20,7 @@ He twirled his finger for her to face the lecture hall. “In my classroom, I ex
 
 “Oh yes we are.”
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 By the end of our first class, two more students, a boy and a girl, had left in tears. Our second class was significantly lighter than the first. By the third, numbers had finally stabilized. There were twenty-three of us still enrolled―two As in total.
 
@@ -55,8 +51,6 @@ He wouldn’t. I knew that, and so did she, but she went anyway the next day. I 
  
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 Students had dressed up for Doctor Wells lectures from his first class―business casual usually, sometimes even dresses and suits―but by the end of the first month, the clothing shifted.
 
@@ -166,8 +160,6 @@ The girl in the chair never showed for class again.
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-
-
 “I think something odd is going on with one of my professors,” I told the dean of Psychology.
 
 Her whole face narrowed. She leaned forward above her desk. “Who?”
@@ -226,6 +218,6 @@ When it was done, he shut off the projector, set his clipboard on his stand, and
 
 “It does. Of course, it does.”
 
-Then I pulled the white dress over my head, the soft cotton slick over my shoulders. He smiled down at me. [I smiled up. ](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)
+Then I pulled the white dress over my head, the soft cotton slick over my shoulders. He smiled down at me. I [smiled up. ](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)
 
  
