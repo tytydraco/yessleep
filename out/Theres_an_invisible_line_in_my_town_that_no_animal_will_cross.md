@@ -8,7 +8,7 @@ After walking for twenty minutes, the short grass beside us abruptly gave way to
 
 I paused, waiting for him to either do his business or investigate whatever had caught his eye, but Francis remained stock-still. He had his hackles raised and his tail held parallel to the ground. He wasn't growling nor whimpering, but there was a tension in his posture that made me nervous. I quickly reached down to attach his leash on the off chance that he was about to bolt, then tried to follow the line of his gaze into the field beside us. 
 
-The grass was tall enough to obscure most animals smaller than a bison. Francis could have smelled either a critter like a meerkat or a predator like a fox. Deciding not to take my chances with the latter, I bent down to scoop Francis into my arms. 
+The grass was tall enough to obscure most animals smaller than a bison. Francis could have smelled either a critter like a prairie dog or a predator like a fox. Deciding not to take my chances with the latter, I bent down to scoop Francis into my arms. 
 
 "Sorry, cap'n." I told him. I hate carrying him; it's an undignified experience for the both of us, but getting eaten is arguably much more embarrassing. He acquiesced at first, but the second I continued down the path, Francis started fighting me, thrashing around and gnashing his teeth. 
 
