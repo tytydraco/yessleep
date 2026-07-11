@@ -1,0 +1,83 @@
+Mark lived alone in a spacious apartment on the twelfth floor, where silence was usually his best friend. But everything changed a week ago when he dragged an antique vanity mirror home from a flea market. Its heavy oak frame and dark, age-worn glass now occupied the entire corner of his bedroom.
+
+On Saturday evening, Dan dropped by without warning. Stepping across the threshold, he froze in confusion—the apartment was pitched in absolute darkness.
+
+"Mark? Why are you sitting in the dark? Why are the lights off?" Dan took a step forward, fumbling along the wall for the switch. "And what is that... wait, is that an old vanity? Where did you dig that up?"
+
+From the deepest shadow of the corner, Mark’s strained, terrified voice cut through the quiet:
+
+"Dan, stay by the door. Don't take off your shoes. And for God's sake, don't touch the lights and don't look to the right. I asked you! Don't look at it!"
+
+"Come on, it's just a normal mirror, though the frame looks expensive..." Dan sniffed the air. "Smells weird, though. Damp. Like a crypt."
+
+Mark stepped out of the shadows. In the faint glow of the streetlights filtering through the window, Dan saw that his friend looked awful: deathly pale, with deep dark circles bruised under his eyes.
+
+"It’s not normal, Dan," Mark whispered, gripping the sleeve of his friend's jacket. "I haven't slept a single night. Three days ago, I was going to bed. I turned off the light and faced the wall. And out of the corner of my eye, I noticed... my reflection in that vanity turned a second later. Do you understand? It lagged behind."
+
+Dan gave a forced smile, trying to ease the tension:
+
+"Mark, you’re overworked. It’s just an optical illusion, the shadows playing tricks in the twilight. You just need some sleep."
+
+"I thought so too!" Mark broke into a whistling whisper. "But the night before last, I woke up at exactly 3:14 AM to a strange rustling sound. I opened my eyes and looked at the vanity... Dan, I was lying flat on my back, but my reflection in the mirror was sitting upright on the edge of the bed. And it was staring directly at me with wide, living eyes."
+
+Dan felt a cold shiver run down his spine, but his rational mind fought back:
+
+"Whoa... okay. That sounds like a textbook case of sleep paralysis. You need to see a doctor, man, seriously."
+
+"It’s not paralysis!" Mark began to shake, pointing a trembling finger at the oak frame. "During the day, it behaved. But as soon as the sun went down, the 'other' Mark inside the glass started living his own life. I sat paralyzed in my chair, unable to move from horror, while he walked around my room over there, behind the glass! And then the mirror started cracking. From the inside, Dan! Like someone was punching it with their fists from the other side. I tried to smash it with a hammer—the metal just bounced right off. It weighs a ton; I haven't been able to budge it an inch "
+
+Dan took a step back, the sheer panic radiating from his friend finally getting to him. The air in the room suddenly felt heavy and suffocating.
+
+"Look... you’re really creeping me out now. Let me turn on the light, we’ll make some tea, and—"
+
+"Don't touch the switch! It’s almost 3:14 AM. That’s when it wakes up!"
+
+Driven by stubborn disbelief, Dan took a step closer to the vanity. Peering into the dark depths of the glass, he muttered:
+
+"Mark, stop it. Look, I’m standing in front of the mirror. See? There’s me, there’s you standing behind me... Wait. What the hell?"
+
+Dan suddenly cut himself off. The room plummeted into a piercing, icy chill, and their breath turned to mist.
+
+"What? Dan, what do you see?!" Mark cried out.
+
+"Mark... why is your reflection behind my back... why is it smiling? You’re standing there looking dead-pale. But him... he has a grin from ear to ear. And his teeth... why are his teeth so sharp?!"
+
+Right then, a sickening, wet screech echoed through the room. The double in the mirror slowly raised its hand and pressed its fingers forward. The glass rippled like liquid mercury, and the creature's black fingernails broke through into the real world.
+
+"Run, Dan! Get out of the apartment!" Mark shrieked at the top of his lungs.
+
+"Oh my God, his fingers are coming through the glass!" Dan lunged backward, but the room around them seemed to tilt and spin on its axis. A pale hand shot out from the mirror, grabbed Mark by the collar with a death grip, and yanked him backward with unimaginable strength.
+
+"Dan, grab my hand, run for the do— A-a-a-ah!"
+
+"Mark! Hold on! Pull!!!"
+
+There was a deafening, thunderous pop, like a vacuum imploding. Space itself seemed to contract, and Mark was violently sucked inside the frame. An absolute, ringing silence followed.
+
+Dan lay on the floor, breathing heavily. He pushed himself up, staring around blindly in the pitch darkness.
+
+"Mark?.. Mark, where are you? Where'd you go? Why is it so dark? Dan? Are you there?"
+
+From the corner near the vanity, the sound of footsteps approached. Someone stepped closer.
+
+"Yeah... Dan, I'm here. Everything's fine. Sorry, I didn't mean to scare you. Just a stupid joke."
+
+Dan let out a massive sigh of relief, but then froze instantly.
+
+"A joke?! You vanished into thin air for a second! And... wait, why does your voice sound so strange and raspy? And why are you smiling like that in the dark?"
+
+"It’s just your imagination. The lighting is weird," the silhouette replied smoothly, then added softly: "Hey, Dan... do me a favor and pick up my book from the floor. I dropped it."
+
+Dan leaned down, picked up the book, and caught a glimpse of the cover in the pale moonlight. His heart skipped a beat. Every single letter on the cover was spelled completely backward, mirror-inverted. He snapped his eyes up to the wall: the hands of the clock were spinning frantically counterclockwise.
+
+"What bo— Wait. Why are the letters mirrored? And the clock... Mark, who are you?!"
+
+The silhouette took a step forward, and Dan saw a hollow, predatory void in its eyes.
+
+"I am him, just from this side. As for the real Mark..."
+
+From the inside of the vanity, a muffled, frantic slamming of palms struck the freezing glass. There, behind the impenetrable barrier, the real Mark was throwing himself against the surface in a completely silent scream.
+
+"Well, that's that," the double smiled, reaching his hand out toward the wall. "Goodnight, Dan. The clock says 3:14 AM. Time to go to sleep."
+
+Click. The room plunged into a pitch-black, dead darkness.
