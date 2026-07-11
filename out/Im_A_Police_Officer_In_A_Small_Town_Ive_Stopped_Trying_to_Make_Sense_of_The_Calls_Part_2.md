@@ -120,3 +120,5 @@ Too shocked to ask questions and too confused by what I had just witnessed from 
 You may be asking, “Chris this is dumb. Why wouldn’t you just call one of your higher ups, report what’s going on.”
 
 And my answer to you would be. I tried. That is something I don’t want to get into right now. Maybe eventually. For now, I gotta go. I was just dispatched to another job.
+
+[Part 3](https://www.reddit.com/r/nosleep/s/FQLHiCEhsU)

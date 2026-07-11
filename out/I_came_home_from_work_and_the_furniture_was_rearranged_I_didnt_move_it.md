@@ -1,0 +1,229 @@
+“Under maintenance, sorry for the inconvenience,” the sign on the elevator read. 
+
+Again? I only moved into this apartment building a couple of weeks ago and this was the second time that the elevator was out of order. Hopefully this is an isolated incident and not part of a mechanical trend around here, because the last thing I want to do after work is climb stairs. But on the bright side, this boost in activity more than makes up for my infrequent trips to the gym.
+
+I entered the stairwell, careful not to let the heavy door slam behind me. The stairs were cracked and worn, devoid of any renovation despite the building’s age. The climb up to my apartment was tiring no doubt, but not the end of the world. I can’t deny my relief when I reached the fourth floor, though. My apartment is right next to the stairwell exit, which is especially convenient in times like these. I rounded the corner and was already at my front door.
+
+“4B.”
+
+I entered my apartment, the novelty of which was starting to wear off. Not that it was particularly luxurious before, but I find myself less and less excited to see it with each passing day. I always notice the smell, though. Musty? Is that the word for it? 
+
+I dropped my work bag on the couch and noticed a bowl of pasta sitting on the kitchen counter. How disappointing, I must have left it out last night. Perfectly good food, wasted. The pasta left an oily residue in the bowl as I dragged it into the trash. I tossed the bowl into the sink, which already contained a few lingering dishes that I had neglected to wash. My laziness was on full display here but, in my defense, the dishwasher, much like the elevator and the coffee maker and the air conditioner, was out of order. Looks like I’ll be washing these the old-fashioned way. Fantastic!
+
+Being the responsible adult that I am, I decided to wash the dishes now to prevent any further buildup. 
+
+One pasta bowl. Clean.
+
+One pot. Clean.
+
+Seven forks… clean-ish.
+
+I reached for the last bowl in the sink, which was soaking in water. The bowl was spotless, and the water was clear. What was I soaking it for? I stopped to think for a moment, trying to remember. Honestly, I do not remember filling that bowl. A bit off-putting, sure, but what’s even more off-putting is how forgetful I am. Seriously, I forget my own name sometimes.
+
+Now it was time to hunt for some dinner. Such a hard life I live, scavenging my kitchen for food. I’m a true hunter-gatherer, no doubt. I opened the fridge and noticed that I forgot to put the lid back on the pickle jar. How could I forget to do that? And where is the lid anyway?
+
+A nervous warmth radiated from my stomach and I suddenly felt uneasy. Was that painting always that tilted? And I swear that my chair is normally closer to the window.
+
+OK, now I’m just being paranoid. I always do this. But, is it possible that maintenance was scheduled for today and they forgot to inform me about it? Maybe a handyman bumped into my painting when he was fixing a pipe. Maybe there was a leak somewhere and he filled my bowl in the sink to test it, then he helped himself to a pickle as a tip, I don’t know. 
+
+I called the front desk to ask to confirm my theory. The concierge told me that no maintenance was scheduled for today and that I would have been notified if anyone was going to enter my apartment. 
+
+I asked if they had seen anyone suspicious entering the building or hanging around the fourth floor.
+
+They said they hadn’t, but reminded me that I could file a report if anything was stolen.
+
+I could tell they were getting irritated so I said “thanks anyway” and hung up. 
+
+OK, so nothing is missing, except my pickle lid, and they didn’t see anything suspicious, so there’s nothing to worry about. Yet, when I look around my apartment, I get the sense that something is off about it. Maybe something *was* stolen and my subconscious noticed the discrepancy, but because I haven’t consciously identified it yet, I feel worried without knowing the reason why. Yeah, yeah. That could be it. 
+
+Am I hearing myself here? Nothing. Happened. What’s up with me today?
+
+But, to be absolutely sure, I decided to search my living room for items that were missing or out of place - just to be sure! OK. What am I looking for exactly? Something that was here before, but is now gone. I attempted to slide the closet doors open, but the floor rail was blockaded by my immense pile of junk. After kicking some things out of the way the doors slid right open. I eyed the closet interior up and down and up again, but it looked the same as any other day as far as I could tell. I rifled through the winter coats hanging on the rack. All three of them were there except, wait, no, I’m wearing that one. 
+
+I proceeded down the hallway and investigated the bathroom. I’m not sure what kind of thief would pass up the TV in the living room to steal some toiletries, but who knows? To each their own. A cursory glance through the cupboards and cabinets revealed nothing amiss. Everything’s good in here. But did I leave the toilet seat up? Probably.
+
+Finally, to complete my inspection, I checked the bedroom. I scanned the room for abnormalities. My bed was made haphazardly, which was the norm, honestly; my laptop was charging on my desk as I left it this morning; my collection of pens were scattered about. All of my stuff was accounted for. I even checked the closet because, well, you never know. There was nothing in there of course. I’m just freaking myself out over nothing. I’ll feel better once I get some food.
+
+Before that though, I took a long shower. After about forty-five minutes, my mind was clear and I felt rejuvenated. Hot water has a way of boiling the thoughts right out of your head. 
+
+I cooked up a new batch of spaghetti and my anxiety dissipated more and more as the night went on. With a heaping bowl of pasta in my lap and a boring movie on the TV, I plopped onto my dingy old couch and lounged the night away. I was asleep before the credits rolled. 
+
+
+
+The elevator was still down the following night, so I had to take the stairs again when I got home. The trek up the stairwell was indeed good exercise, but four floors is a bit much. I just want to sit down. 
+
+Out of breath, I emerged from the stairwell. The slam of the heavy door echoed behind me. I pulled out my key but hesitated before putting it in the lock. Did I lock the door when I left this morning? I tried to turn the handle but it wouldn’t budge. Good. 
+
+I unlocked the front door and the light from the hallway spread into the living room. Something about the room seemed different, but I didn’t know what. It took a moment to register, but then I saw it; my leather chair was on the other side of the room. 
+
+An alarm pealed in my chest. I dropped my work bag at my feet and stormed downstairs to confront the concierge. 
+
+“Someone rearranged the furniture in my apartment! You said you would tell me if anyone was going in!” 
+
+The concierge denied that anyone had been in my apartment, and that maintenance hadn’t been in my unit since the last tenants moved out a few weeks ago. 
+
+“So who moved my chair then?” 
+
+They said they didn't know, but that it definitely wasn’t any of their employees.
+
+I no longer felt safe in my apartment, so I called the cops. After way too much time, they showed up and searched my entire place with me. Nobody was there and no valuables were missing.
+
+They asked if anyone else had a key as if I was some sort of idiot who hadn't considered that already. 
+
+I’m the only one with a key. 
+
+They asked if I noticed anything missing. 
+
+I hadn’t. 
+
+They looked at me like I was crazy but I was just as incredulous as they were. 
+
+They said there was nothing they could do since nothing was stolen and there wasn’t any evidence of a break in. 
+
+So that’s it? There’s nothing you can do? Clearly something is wrong yet you don’t help me. All they did was suggest getting a security camera for my “peace of mind.” 
+
+That poor excuse for a solution really pissed me off, but it's better than nothing, I guess.
+
+I drove to the closest electronics store and bought a small camera with a motion detector. It also had an app so I could tune into its stream on my phone whenever I wanted.
+
+On my drive home, I contemplated what kind of person this furniture-moving maniac was. How could someone be so insane to the point of breaking into someone’s apartment just to toy with them? They didn’t steal anything, so why do it? Just to mess with me specifically? Why? 
+
+And how would they have gotten in? I always lock my door, and I live a few floors up so I can rule out a break in via the window. They could have used a ladder, I guess, but the window was locked and I don’t think I’ve opened it even once. Maybe the maintenance people really did go in and now they’re denying it to avoid a lawsuit. 
+
+None of this makes any sense.
+
+I decided to set up the camera on my table in the far corner of the room under the window. Its field of view was wide enough to see most of the living room and the edge of my kitchen. I pointed the camera towards the door, plugged it in, and pressed a button on the back to turn it on. A little white light lit up on the front of the camera to indicate that it was powered up. The last thing to do was connect the camera to my phone through its app, and, after some tweaking, I had “Camera 1” up and running. Now I could watch its feed anytime I wanted through the app.
+
+The rest of the night went about as well as it could. I made dinner - pasta again - and ate an entire bowlful as I watched TV in my living room. My head was killing me, probably from the stress and the wine. I drank two large glasses of water to counteract it.
+
+I tried to pay attention to the dialogue on the TV but I couldn’t keep my focus. I repeatedly rewound the show to catch what the characters said, but every time I did, all I could think about was my chair. If only it had a mouth so it could tell me what happened to it.
+
+On top of that, this day had really worn me out. I desperately needed to sleep, but how could I? If I had someone else to stay with I would. If I had the money, I'd stay in a motel. But I don't. This is all I have.
+
+I locked, unlocked, and locked my front door and left the kitchen light on in case I wanted to get water during the night. I rechecked every space in my apartment again in case I missed something but my search yielded no results.   
+My phone gallery was full of pictures of my current apartment layout, so if anything else moves even an inch, I’ll know. 
+
+My bedroom seemed like the safest room in the apartment so I spent the rest of the night in there. I shifted my bed to the opposite wall so that I was as far away from the door as possible. Better safe than sorry!
+
+I tried to distract myself with my phone, but it was difficult to do so. I only became more anxious as the night drew on. Even though the police and I did a thorough search, proving that nothing was stolen and that I am the only one here, I can’t shake the feeling that something in this apartment is wrong.
+
+The camera makes me feel a little bit better at least. The app sends me a notification if the motion detector is triggered, which will hopefully be loud enough to wake me up if it happens in the night. I doubt I’ll be able to sleep at all tonight but maybe if I lie here for long enough I’ll pass out eventually. 
+
+I lay awake for a while.
+
+
+
+You know when you try to let your mind wander on its own? You try to stop thinking consciously and let your brain flow between thoughts and images as it pleases? I can never maintain that disconnect for long. I always grab hold of the thoughts and try to control them again, whether I want to or not. Sometimes I don’t want to control them. Sometimes I want to leave my mind alone.
+
+
+
+I woke up an hour later to my heart beating weirdly. 
+
+Did I check the shower? 
+
+I snuck out of my bed and went to the bathroom. The door was left slightly open, leaving enough space for my arm to reach inside and switch on the dim light. The old light started buzzing as it flickered on. I swung the door open and stared at the closed shower curtain across from me. It shuffled as the air entered the room.
+
+I felt my heart beating in my neck. My breath was shallow and my hands were cold. I gripped the shower curtain and pulled it aside. I craned my neck around it, suspect of every new edge entering my view, until the entire shower was visible. There was nothing inside but my usual toiletries on the shower rack. I didn’t know bar soap stayed wet for that long.
+
+I turned the light off and left the bathroom. Before returning to my bedroom, I peered down the hallway into my dark living room. I felt uneasy looking at it. Something could be lurking right around the corner, waiting for me to turn around, and I’d never know. These are childish thoughts. Why do I worry about these things?
+
+I reentered my bedroom and shut the door behind me. It felt safer under my comforter. I rolled onto my back and stared into space. The lights from outside let a little bit of light into my room and cast shadows of the leafless tree branches onto the ceiling. I watched them as they swayed gently in the wind. My eyes grew heavy and began to droop.
+
+Did I check under the bed?
+
+I really didn't want to look under the bed, but my paranoia outweighed my common sense. I swung my head over the edge and scanned underneath, being careful to check everywhere. Of course, nothing was under the bed. I brought my head back up, ashamed of what I just did, and caught a glimpse of the closet door mirror on the other side of the room which reflected myself and the space beneath my bed. It took a moment to register the dark figure lying under my bed staring back at me. 
+
+An overwhelming heat flooded my body yet I felt deeply cold. My heart pounded in my temples and resonated throughout my head, but it was all for nothing, because it was simply a pile of clothes and some buttons. I almost laughed at how ridiculous I was. Obviously no one is under there. Idiot.
+
+Why is it so cold in here? I checked the window; it was cracked slightly open and was letting a stream of cold air in. I shut it and bundled myself in my comforter once more. Minutes passed but the cold persisted. Unable to warm up, I thought of the extra blanket I kept under the bed. I leaned over the bed and stretched my arm underneath, but the blanket wasn’t there. Whatever, I'm too tired to get up and look for it so I'll just deal with the cold. Good night.
+
+
+
+I checked the time; shit, I’m going to be late. What happened to my alarm? I looked around the room frantically. Oh, I remember. Last night I threw it in the closet so that I’d be forced to get out of bed to turn the alarm off. Never doing that again. After throwing on the first pieces of clothing I could find, I was out the door in record time. It’ll be a miracle if I make it to work on time.
+
+
+
+During my lunch break, I wanted to review the footage that my camera recorded last night. Nothing appeared out of the ordinary in my apartment this morning, but I was in a rush, so I could have missed something. I opened the app on my phone and navigated to my saved footage.
+
+The camera had a motion detector built in and the app kept track of every instance that it was triggered. According to the app, Camera 1’s motion detector was activated once at 1:29 a.m. A sharp jolt ran through my stomach. My hands started to sweat.
+
+I queued up the footage and waited an agonizing few seconds for it to load. Finally, a still image of my front door and dimly lit kitchen appeared on the screen. A person walked into frame, causing me to throw my phone at the wall. I started having a panic attack; an unrelenting deluge of fear overran my brain. I grabbed my phone off of the floor and looked at the footage again,  revealing that all of my panic was for nothing. It was *me* in the footage. Last night, evidently sleep-deprived, I walked into the kitchen, turned off the light, and went back to bed. I nearly gave myself a heart attack, but was wholly relieved at the end of it.
+
+What’s concerning is the fact that I don't remember turning the kitchen light off last night. Was I really so tired that I don't remember any of this now? Was I sleepwalking? I’ve never done that before but sleep-deprivation and stress can really mess with you so I guess it’s possible. That would explain all of this - the moving furniture, the lights turning on and off, the missing pickle lid. I must be doing these things in my sleep and forgetting all of it once I wake up. Ha! That’s it! I really am crazy.
+
+To put this whole thing to bed, I checked my camera's live feed to confirm once and for all that nothing weird was going on and that this whole situation was blown way out of proportion. The feed was, as expected, still and lifeless, simply an empty apartment. I breathed a deep sigh of relief. For the first time in a while, I felt at ease.
+
+
+
+Near the end of my shift, my phone chimed with a sound I’d never heard before. My camera app sent me a notification. 
+
+“Camera 1 has been disconnected.” 
+
+I tapped the pop-up and opened my camera’s live feed. I saw…nothing. Literally nothing - just a black screen with white text reading “Unable to connect to Camera 1.” A feeling of dread came over me. 
+
+The drive home was ominous. I was tempted to forget the apartment entirely and just sleep in my car, but that’s unrealistic, and that’s no way to live. I walked into the lobby of my building. They still haven't fixed the damn elevator so I had to take the stairs *again*. I raced up to my front door, but hesitated before I opened it. What will it be now? Is the couch going to be on its side in the kitchen? Will the fridge be in my bed? Will the concierge be hiding in the closet? I checked the camera app one more time and the feed was still down. I clutched the door handle and braced myself as I turned it.
+
+I scanned the room. The camera was on the same spot on the table and it was still plugged in. The furniture hadn’t moved; the artworks on the walls were in their regular spots and untilted; there were no new dishes in the sink nor was the fridge door open. Everything looked normal. Yet still, something about it seemed… unfamiliar. 
+
+I looked around the usual spots in the apartment to find the source of this discrepancy. My coats were still hanging in the closet; no food was sitting out; the TV was off. Did I leave the hall light on? I think so. 
+
+I scoured the bathroom. Everything was examined: the cupboards, the medicine cabinet, underneath the shower mat, inside the shampoo bottle. Everything was accounted for, but I still wasn’t convinced.
+
+My bedroom was similarly normal: nothing missing, nothing out of place.
+
+I went back out into the living room. Something was very wrong here and I was going to find out what it was. I did another scan of the room in case I missed something before. Maybe whatever’s wrong is so subtle that I skipped over it last time. What about under the couch cushions? Behind the paintings? I haven’t looked everywhere yet. How about the freezer? Or in the oven!
+
+The silence in the room felt sinister. For a moment, all of my thoughts went away and I was acutely aware of my own presence in the room. Everything appeared to be in its proper place yet this feeling of dread remained. It was as if the apartment itself was out of place. It was as if *I* was out of place.
+
+I thought about my camera again. The internet has been really spotty here, maybe that’s why it disconnected. I picked up the camera to examine it.
+
+Wait, the light isn’t on. Shit. It wasn’t getting any power! This outlet must be dead. I unplugged the camera and brought it into the kitchen to try it with a different outlet. I plugged it in and pressed the power button but it still wouldn’t turn on. Cheap piece of crap. I threw it in the trash.
+
+Well, it’s time to fetch some dinner. That steak I bought the other day sounds perfect right about now. I opened the fridge and was met with… nothing! I just went to the store, there's no way I ate all of that food already. I know I didn’t eat that steak yet, so where the hell is it? I guess I'm having pasta once again because it's the only thing I have left. I rummaged through the cabinets, sifting through hundreds of half-empty bags of clumpy flour and old sugar, grasping for anything resembling a pasta box. I wanted spaghetti, but all I could find was ditalini. It’s a terrible pasta shape, but it’s all I’ve got.
+
+I started boiling the water and paused for a moment to collect myself. My breathing was shallow and strained. My body was tense, and that feeling of dread returned.
+
+I looked out my window at the apartment building across from me. It looked different somehow. Were those windows always that low? I could feel the tension rising.
+
+I went into the hallway outside my apartment and looked at my front door: “4B.” I paused. 4B?
+
+This isn't my apartment.
+
+No, no, I definitely live on the third floor. Don’t I? I must have been walking up too many stories this week. I looked to my left and stared down the hallway. Have they always had that welcome mat? 
+
+I ran down the stairs to the third floor and tried to open 3B, but the key wouldn’t turn. None of my keys would.
+
+What am I thinking? Obviously I live in 4B. How could I make that mistake?
+
+I went back up to the fourth floor and stared down the long hallway. It seemed to extend out infinitely and writhe as it did. I began to feel dizzy and fell into my front door. I shut my eyes, trying to regain my senses. As I took deep breaths, my sense of control started to return, and when I returned to my apartment, I felt a bit better.  
+
+Let’s open the window; some fresh air would do me good. 
+
+I walked towards the window and bumped my leg on the table underneath it. I opened the window and smelled the–
+
+Wait! 
+
+My camera is gone! That’s what’s wrong here! I put it right there on that table. I bent all around the table and under the furniture but couldn’t find it anywhere. Where the hell is it? What is going on? 
+
+I paced back into the kitchen and found my pasta strewn around the floor. Whateve, I'm not hungry anymore anyway. How long has the fridge been open? Great. More wasted food. The milk is probably spoiled too, I’ll just throw it away. 
+
+I opened the trash can lid and saw something odd inside the bin. I looked closer.
+
+My camera!
+
+What? How is it in there? First they move my chair and now they throw my camera away? Why? None of this makes any sense. Someone must have been in here because I know I didn’t do those things. But how did they get in? I’m the only one with a key. What does it matter anyway? Nothing was stolen and nobody is hidden away in here somewhere so no one is going to help me. But clearly something weird is going on because I’m know that–
+
+I began to feel disoriented and a wave of nausea overcame me. My legs felt weak under my own weight and my vision blurred. I hobbled over to my couch and fell onto it. I rested there for a few minutes as the questions circulated in my head.
+
+
+
+I woke up a couple of hours later. My head was pounding and my face was sweaty. I sat up and checked the time on the oven clock:
+
+“10:04.”
+
+Was I really asleep for that long?
+
+I triple-checked that my front door was locked, turned off the lights in the kitchen, and sequestered myself in my bedroom. I tapped my phone screen but it wouldn’t turn on. Did it not charge last night? Probably another bad outlet. I threw it in the closet and got into bed.
+
+I rolled onto my back and stared into space. The lights from outside cast shadows of the leafless tree branches on the ceiling. I watched them as they swayed gently in the wind. I looked over at the mirror on my closet door and saw myself staring back at me. I can’t tell which one of us saw the other first. 
+

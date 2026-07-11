@@ -2,7 +2,8 @@
 
 [Part 2](https://www.reddit.com/r/nosleep/s/0UlabOxh49)
 
-So like I said, I did try to contact the higher ups. I wanted to let them know what was happening here. I reached out to Sergeants, Lieutenants, anyone who would listen. I wanted someone above me to tell me what this place was*.*   
+So like I said, I did try to contact the higher ups. I wanted to let them know what was happening here. I reached out to Sergeants, Lieutenants, anyone who would listen. I wanted someone above me to tell me what this place was.
+
 Every single time I was met with the same type of response. A refusal to elaborate on this place. A careful practiced unwillingness to talk about it.
 
 These are people I genuinely trusted so when I initially called, I thought I would get some answers. First person I called was my old Lieutenant. We had a great working relationship. He knew I was a hard worker and produced for the precinct so essentially I always made him look good.
@@ -31,7 +32,7 @@ He was quiet for longer than he should have been.
 
 And just like that, our conversation was over. I tried calling him back once but I was blocked.
 
-That is how pretty much every conversation about this town went. Nobody wanted to talk about it. Hell, they flat out refused to continue the conversation after a mere mention of this town. 
+That is how pretty much every conversation about this town went. Nobody wanted to talk about it. Hell, they flat out refused to continue the conversation after a mere mention of this town.
 
 With no other place to get answers I turned to the one person who I knew had gone through the wringer in this town.
 
@@ -85,7 +86,7 @@ I pulled up to the address and before I even had the door closed behind me, he w
 
 “Hello, Christopher. Thank you for accompanying me.”
 
-“You’re welcome? Accompanying you to what, exactly*?”*
+“You’re welcome? Accompanying you to what, exactly?”
 
 “To put it simply, we are here to keep something at bay.”
 
@@ -167,7 +168,7 @@ We walked out of that building at a pace just under a run. Outside, the night wa
 
 And he walked off into the dark.
 
-I’ve been back to that building five times since. It happens every six months, like clockwork. Same ceremony, same door. The voices are different every time. It’s tried the girl again. An old man. A cop yelling officer down. Once it was my mother. 
+I’ve been back to that building five times since. It happens every six months, like clockwork. Same ceremony, same door. The voices are different every time. It’s tried the girl again. An old man. A cop yelling officer down. Once it was my mother.
 
 Anyway. I’d tell you more but the note on the Sergeant’s door says my keys are in the freezer of the break room tonight, so I have to go dig them out.
 
