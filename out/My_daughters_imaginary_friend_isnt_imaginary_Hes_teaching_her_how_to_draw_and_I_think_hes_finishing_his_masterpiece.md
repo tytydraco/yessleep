@@ -1,0 +1,65 @@
+I am not holding a pen. I don’t even have fingers anymore—just smudges of charcoal where my hands used to be. I am writing this by becoming the ink. The sketchbook has pinned me to the desk, and it is pulling the remaining fragments of my consciousness out of my fading body. I am bleeding my final thoughts into the fibers of this paper, staining the page with my own terror. If you find this post, please, listen to me. Don’t look for this house. If you see the listing, keep scrolling. You don’t want to know what it feels like to be drawn.
+
+I’ve always believed that houses have memories. I thought it was just a poetic way to describe creaky floorboards and drafty hallways. I was wrong. Houses don’t just have memories; they have appetites. And the one we bought—this sprawling, Victorian skeleton of a fixer-upper—was absolutely starving.
+
+When we moved here, Lily was seven. She was everything to me. After the divorce, it was just us against the world. She was bright, loud, and full of that chaotic, unfiltered energy that made me feel like I was finally doing something right as a mother. She used to squeeze my hand so tight when she was scared of the dark, and her laugh—God, her laugh was like a light switch in a dim room.
+
+Within two weeks of moving in, that light began to flicker.
+
+She became quiet. Not just reserved, but hollowed out. She stopped playing with her dolls. She stopped asking for bedtime stories. She started spending hours in her room, hunched over her desk, working on a massive, leather-bound sketchbook she found in the attic.
+
+When I asked her what she was doing, she’d just point to the corner of the room. "Mr. Tall is helping me," she’d whisper, her voice devoid of any childhood lilt. "He says the house is unfinished. He’s teaching me how to draw the veins."
+
+I brushed it off. Every parent encounters an "imaginary friend" phase. But Mr. Tall wasn't like the harmless, invisible pals of her friends. He didn't encourage her to play tea party; he encouraged her to draft.
+
+For weeks, she’d wake up with dark circles under her eyes, her skin pale and waxy. I grew desperate to understand what was taking her focus. One afternoon, I saw her scribbling with frantic, jagged movements. I moved toward the desk, reaching for the sketchbook, hoping to see a picture of a flower or a house.
+
+Lily slammed the book shut with a strength that shouldn't have been possible for a seven-year-old. Her eyes weren't just wide; they were terrified, darting to the empty corner behind me.
+
+"No, Mom!" she snapped, pressing her thin body against the desk. "You can't see it yet. Mr. Tall said no. It’s a surprise."
+
+I froze. The room felt suddenly, impossibly cold. I stared at the empty space she was looking at. There was nothing there—just a patch of peeling wallpaper—yet, I felt an intense, suffocating pressure, as if someone were standing inches away, glaring at me with immense, silent disapproval. The air grew stagnant, tasting faintly of cedar dust and wet graphite. I didn't see him. I didn't hear a word. But the sheer weight of a presence made the hair on my arms stand up. I retreated, leaving her to her "surprise."
+
+That night, after I finally got Lily to bed—after she fell into that heavy, motionless sleep that looked more like a coma than rest—I crept into her room. The sketchbook was waiting, splayed open on her desk, the charcoal smudged from hours of fervent, obsessive work.
+
+I flipped it open. My stomach dropped through the floor. It wasn't a child's drawing. It was a technical schematic of our living room. It was drafted with the precision of a master architect—every light switch, every baseboard, every structural beam was plotted with chilling, mathematical accuracy.
+
+I turned the page. The kitchen. The plumbing, the wiring behind the drywall, the precise location of a rotting joist I hadn't yet discovered. It was as if the book were an X-ray of the house, showing what lay beneath the plaster.
+
+I flipped to the back. There, rendered in oppressive, dark ink, was the floor plan of the upstairs hallway. And in the center of the drawing, a large, jagged 'X' marked the spot.
+
+I looked down. I was standing in that exact spot, right outside her door.
+
+Then, the air in the room shattered.
+
+It wasn't a sound. It was the feeling of the temperature plunging into the negatives. I looked back at the paper. The ink didn't just bubble; it began to assemble. A figure began to sketch itself into existence on the page—tall, spindly, with limbs that defied human geometry.
+
+As the ink dried, the figure didn't just stay on the page. It bled upward, unfolding into the three-dimensional space of the hallway.
+
+I felt a cold, jagged shadow fall over me. I couldn't move. I turned my eyes, just my eyes, and saw him. He was standing directly behind me, towering toward the ceiling, his long, grey fingers twitching. He didn't speak. He didn't need to. He just stared at the doorway of Lily’s room with an intensity that felt like a physical blow.
+
+The door creaked open.
+
+Lily stood there. She wasn't tired. She was smiling. It was a wide, unnatural grin that looked painful on her small face. When she saw me, she didn't show concern. She laughed—a bright, tinkling sound that should have been sweet but felt like glass shattering in my ears.
+
+She walked past me, ignoring my silent, paralyzed plea. She went straight to the desk. Mr. Tall leaned down, his elongated, charcoal-smudged hand resting heavily on her shoulder. He didn't look at me. He stared at the blank page, his chest vibrating with a silent, jagged excitement. He pointed to the pencil.
+
+Lily picked it up. She looked at me, her eyes devoid of anything resembling the daughter I knew, and she started to draw.
+
+She was drawing me.
+
+Every stroke she made on the paper, I felt in my own body. She drew a line across the page where my waist was, and I felt my spine snap, my torso flattening against the wall. She laughed again, a breathless, excited giggle, and shaded the area where my eyes were. My vision went dark, narrowing down to two small, pigment-filled dots.
+
+She was so willing. She was so precise. Mr. Tall leaned over her, his face inches from hers, watching every movement of the pencil with a hunger that made the walls of the house groan in unison. He was finally getting what he wanted—a new masterpiece.
+
+I am not holding a pen. I don’t even have fingers anymore—just smudges of charcoal where my hands used to be. The sketchbook has pinned me to the desk, and it is pulling the remaining fragments of my consciousness out of my fading body. I am bleeding my final thoughts into the fibers of this paper, staining the page with my own terror. The book is forcing me to document my own erasure; it requires a witness to the transition.
+
+Lily is still drawing, her movements fast and joyous. She’s shading the parts of me that aren't finished yet. I can feel the lead tip pressing into my skin, carving the lines of my face into the white expanse. I’m almost entirely two-dimensional now. My arms are just lines on a page. My eyes are just dots of pigment.
+
+Mr. Tall is standing over us, his chest vibrating with that silent, jagged excitement. He isn't saying a word, but his presence is a scream in my mind. He’s watching Lily’s hand, and every time she lifts the pencil, I feel a piece of my reality tear away.
+
+He is reaching out to close the book. When he does, I won't be in the hallway anymore. I’ll be on the wall, trapped in the sketch, waiting for the next owner to peel back the paper and find me.
+
+Please. Don't look. If you see the marks, run. You don't want to know what it feels like to be drawn.
+
+The pencil is lifting. She’s shading my mouth. The darkness is spreading.
