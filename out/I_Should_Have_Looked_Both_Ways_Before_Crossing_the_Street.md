@@ -242,7 +242,7 @@ Another person comes out of the forest—a man with brown hair and brown eyes. I
 
  
 
-I lose time and when I come to, I’m on top of someone who doesn’t have a face, just bloody muscle, and brown eyes. In some world, they’re screaming, but I don’t hear them. There’s a bloody knife with an intricate golden hilt on the ground beside us. I’m outside of my body and watching this all. Still, I can feel the faceless man struggling, pinned between my legs, and there is something wet in my hands. I look down, and see my face staring up at me. The disembodied hands take the face and place in on mine. 
+I lose time and when I come to, I’m on top of someone who doesn’t have a face, just bloody muscle, and brown eyes. In some world, they’re screaming, but I don’t hear them. There’s a bloody knife with an intricate golden hilt on the ground beside us. I’m outside of my body and watching this all. Still, I can feel the faceless man struggling, pinned between my legs, and there is something wet in my hands. I look down, and see my face staring up at me. The disembodied hands take the face and place it on mine. 
 
  
 
