@@ -1,0 +1,383 @@
+I always thought since I was little that scary things only happen at night. There is nothing that makes you feel more vulnerable than being unable to see, and that something might be hiding in the darkness waiting for the chance to kill you.
+
+
+
+We heavily rely on what we can see with our eyes, as if seeing a car coming toward you would somehow make a difference. I think it comes down to certainty: knowing what's coming is far less terrifying than going in blind.
+
+
+
+And well, ironically, that applies to me too. I really never knew what to expect from life, much less in that situation where I was especially frightened. Even though it was 10 in the morning, I was shaking as if my life were on the line. I really needed to get this volunteer job and didn't know what the man's long silence meant.
+
+
+
+— Ok, so this is a bit — he said finally, waiting a few seconds before finishing — unexpected.
+
+
+
+The interviewer cleared his throat He sounded really amused.
+
+
+
+— Is there a problem? — I said a bit too quick.
+
+
+
+— Not at all.
+
+
+
+I fumbled in my seat.
+
+
+
+— So... do I get the job?
+
+
+
+— If you want it, yes, it's yours — He said, smacking his lips. — I usually don't do this, but I advise you to think about this carefully, a woman with-
+
+
+
+— It's okay — I stopped him. — It doesn't matter if it'll be harder.
+
+
+
+He laughed and closed the folder in his hands. Then he took my hand in his and shook it.
+
+
+
+— Then, welcome to the team! — He said cheerfully, then opened the door — I'm Dario, the one and only manager! And I'll be the one teaching you. Please follow me.
+
+
+
+He seemed pretty enthusiastic.
+
+
+
+I followed him without hesitation. He showed me where all the facilities were. We went through the reception where I met the receptionist who didn't even spare me a word, the big patio, the little clinic, the storage room, the main office and the crates where the dogs rested. The whole place smelled fairly clean for a shelter, the scent of dogs dominated the air, although it was the good kind, mixed with the scent of dog food and disinfectant.
+
+Finally we returned to the staff break room.
+
+
+
+— You remember your duties, right? 
+
+
+
+I was finishing the mental map of the place in my head so it took a few seconds to respond.
+
+
+
+— Yes — I nodded —. I'll be in charge of their dinner, administering their meds, afternoon playtime and some cleaning. Did I miss something?
+
+
+
+— You got it right. — He said and paused — Also, there are some tasks that are really important to handle, but I'll explain them to you before your shift starts. Can you start today?
+
+  
+I muttered a simple 'yes' and followed him to the main office. I was expecting someone else to be there for the contract signing, but it was just the two of us. Since I was doing this for my mental health rather than the pay, I pushed away my unease and signed it. My shift was scheduled to start at 5 pm and I was supposed to finish at 1 am, it was currently 10:42am so I headed home to have lunch with my sister and a nap so I'd be refreshed for work.
+
+  
+The moment I arrived, 5 pm sharp, the receptionist cleared her throat and tapped on the desk. I could feel her disgust with me, it was hard to believe that this woman worked at a shelter.
+
+
+
+— You are on time. — She said like it was a bad thing — Dario already left.
+
+  
+I pressed my lips together to stop myself from sighing and smiled apologetically. She grabbed my hand and placed something on my palm.
+
+  
+— Here. Dario left this for you. — I frowned and she sighed — It's a recorder, he said that everything is explained there. Your uniform is in the break room.
+
+  
+I went and found my uniform neatly folded on the table. I poured myself some black coffee to distract me from lashing out to the rude receptionist whose stupid name I'll never ever bother to learn, and changed my clothes in the bathroom. I started the recorder while grabbing another cup.
+
+  
+— Hi, Cassey, this is Dario! I'm sorry I'm not there for your first day, I had more important business to take care of. Normally I would give you a sheet of rules, but this would do.
+
+So I wasn't important? Asshole. 
+
+I continued.
+
+  
+**"Welcome to Cedar Pines Dog Shelter.**
+
+These are the employee Rules and Safety Procedures.
+
+These rules exist to protect both our staff and our residents. Don't try to change them or outsmart them, they're listed here for a reason.
+
+**1st**. Never EVER be late to your shift. Jessica, the receptionist, doesn't like it when people are late and you don't want to be on her bad side, she might help you when you need her. Also, don't talk to her after 6 pm, she's pretty busy."
+
+  
+I put a lot of sugar on my coffee for my nerves. I couldn't believe that was a rule. Fuck Jessica.
+
+  
+"**2nd**. Every dog has a file, a name and an assigned kennel. Learn all of them within your first week.
+
+**3rd**. Never leave the building before your shift ends, the dogs won't know that you left.
+
+**4th**. Don't scream, some of the residents were abused and will get really scared. You don't want them to be scared."
+
+Scream? Not yell? It was a weird way to word it, but I shrugged it off. I mean, I didn't know about abused dogs, so not leaving early or not yelling should've been about reassurance and confidence for them.
+
+"**5th**. If you hear whimpering, hide as fast as you can and remain silent until it stops. The dogs here are happy. They never whimper.
+
+**6th**. If you find a dog that is not in the files, don't acknowledge it.
+
+"**7th**. Daisy must be given her dose of morphine every two hours. You don't want her to be awake. She's in one of the kennels of the clinic. Never go to the clinic otherwise, the medicines are stored in a freezer in the storage room.
+
+**8th**. If someone knocks in the front door after 8 pm, don't answer them unless they have a dog with them. If they do, be polite. If Jessica is not there to register the dog, assure the person that you take care of it, take it to the back, kill it and put it in the freezer. It's not a dog"
+
+
+
+What the-? Did I hear it wrong? I went back and listened again. I froze, stopped the recording and stared into the distance. Suddenly I bolted out of the chair, almost spilling my coffee and basically ran to the reception.
+
+
+
+I've always been a skeptical person, but also a big fan of horror stories with rules and such. So when he started listing rules I was more confused than anything, I mean, it wasn't a high-paying job, it wasn't in a remote area and definitely not a night security guard or something. This was a normal low-paying volunteer position, I was supposed to play with some mistreated dogs, give them cuddles and pets, bring them their dinner and give them their meds since some of them had special needs. It seemed like a huge fucking prank which I was sure was absolutely funny to do to a disabled person.
+
+I then remembered the first rule and got really angry as I opened the door. It was Dario's voice, but he seemed more like the type to go along with it rather than a mastermind.
+
+
+
+— Hey, Jessica! What the hell are those fucking rules? — I yelled — Yes, playing pranks on a blind woman is SO fucking funny! Right? I get it, but cut the fucking crap. Life is hard just the way it is, I just wanted to do something with my life, something good and-
+
+— Stop. — She didn't raise her voice, she didn't have to — Why are you yelling? Didn't you hear the recorder?
+
+  
+I stared blankly at her and all of a sudden my rage disappeared. The dogs were barking more loudly than before and I just started to notice. They were so loud that my ears started ringing.
+
+  
+— Yes, that's why I'm asking-
+
+— Ok, then just follow the rules, it's not a joke. It's simple, but you almost broke one, dumb little girl. Since it's not 6 pm yet and I pity you, I'll help you this once.
+
+  
+She stood up and left.
+
+  
+Well, I might not be the most reliable OP, I acknowledge that. I avoided telling you about my disability, yes, but it's for a reason, you'll have to trust me. 
+
+I went back to the break room and stayed there in silence. I heard some metallic sounds, then silence for some minutes and later the occasional barking of a shelter resumed. I tapped my smart watch and it told me the time. It was 5:32 pm. It hit me that it was the dogs' playtime and despite the sour taste in my mouth, those babies weren't at fault for Jessica's prank, so I went and took them one by one to the patio to enjoy the last rays of sunlight for the day.
+
+They were really well behaved, it felt like handling plushies. They were really obedient and stayed still whenever I picked them up or led them outside.
+
+On the patio I played with some of them and really started to enjoy my job there. Being surrounded by fluffy balls that lick your face, slightly bite your hands and snuggle against you can cure everything, I swear. I took a careful approach to the dogs in wheelchairs, I knew there were some dogs with IVDD that were surrendered because of their disability. I pitied them just like others did with me and somewhat it made me feel a bit more normal. There were seven of them, although not all of them needed a wheelchair, they were all really quiet except for one little rascal called Bobby. He was constantly running and falling everywhere, and I only realized after a few minutes because of the metallic sounds of his wheelchair against the floor. Honestly, the little Dachshund became my favourite really quickly, he was hilarious.
+
+Even if I was having a good time, I couldn't refrain from wincing every time I pet a dog and touched a scar or something rough. It happened a lot more times than I want to admit. Sam, for example, a tiny rescue dog born on the street that has barely any hair and a lot of burned skin, laid silently by my side and scratched my thigh for pets, but I didn't have the heart to touch that rough skin without crying so I sometimes stroke his butt that was still weirdly full of hair. I could go on, but it breaks my heart, you just need to know that those dogs had it hard on life and most of them show that on their bodies.
+
+I'll tell you a bit about me, I'm blind, but I'm the kind that can perceive some light, so I noticed that the sun set when everything went almost completely dark. That was when the alarm on my watch started ringing and I took the dogs inside. It was 6:40 pm when I finished. I grabbed a hose and started to clean up the patio. I was told there were some drain grates at the far end of it so water alone was enough to clean it. Dario told me not to bother much since the day workers will double check anyway.
+
+When I finished, I went to make the dogs' food. Dario sent me the pdfs of the dogs files so I used an app to read it out loud for me. I prepared a bowl for each dog with their respective medicines. We currently had 18 dogs in the crate area, none of them were healthy. I almost teared up while listening to the files again. Some had terminal illnesses and were abandoned and neglected, but most of them were heavily abused. Also, there were four of them that were fighting dogs.
+
+Still, I recalled the playtime and my brief time there. I thought about all that suffering and how none of them whimpered once. Even Bobby who was falling all the time, he silently tried to get up by himself until I noticed and helped him. I knew some of them had painkillers prescribed and even if I touched one of their injuries by accident, they never cried. It was strange. I remembered that there was something like that on the rules I was given, but I shrugged it off. They were probably just really tough, animals are like that.
+
+A deep howling took me out of my thoughts, so I loaded the food bowls on the cart and headed through the corridor to the crate room. I could hear some scratching amid the barking and I realized I was 5 minutes late for their oddly specific mealtime at 7:36 pm.
+
+While serving the last plates, I heard some knocking coming from the front door. For a moment I thought I also heard something coming from the corridor, but I brushed it off and after finishing I went to the reception.
+
+— Jessica? — I called out.
+
+Silence.
+
+— Please, someone... — Someone cried out desperately. — You! Miss, come here. It's my dog, I can't take care of him anymore, I need help.
+
+I felt a chill down my spine and remembered the 8th rule. The one that freaked me out. That one was impossible to forget. I tapped my watch and checked the time, it should be fine.
+
+— Yes, ma'am, come in.
+
+I wondered why it was my duty to open the door to visitors when we had a receptionist. Probably it wasn't even part of my job and was something that Jessica made up as a rule because she was lazy. Anyway, by her voice she seemed like an old woman, and just because Jessica refused to do her job I wasn't going to let the poor woman wait outside. When I opened the door I could hear her dragging footsteps, and the sound of nails scraping against the floor that left a tingling feeling on my ears.
+
+
+
+— How can I assist you? — I asked.
+
+— Yes, you see. I'm very old and can't take care of myself anymore. — She cried and blew her nose—  My son just came and told me that he's going to put me in assisted living and that my Rocky can't come with me.
+
+
+
+I didn't know why it felt rehearsed, maybe because it was so late for that. It's not strange for old people to give up their pets after becoming unable to care for them anyway. She was probably having a mental crisis and would come back for her dog the next day.
+
+
+
+— The receptionist is not here, but I'll take him to the back with the rest. If you don't mind you can leave me your contact info so we can contact you later for-
+
+— What are you going to do with him? — she interrupted me.
+
+— Oh? Well, I'll put him on a crate back there like the others.
+
+— Are you going to kill him? 
+
+— Excuse me?
+
+— I know what they said.
+
+  
+I scoffed. What was wrong with people these days? Who would kill a poor dog? I refused, I couldn't kill a dog just because someone recorded a stupid prank.
+
+  
+— No, ma'am, we are a 'no-kill' shelter. Your Rocky is going to be fine, I swear.
+
+— Well, that's a relief. — I could hear her smile. She sounded really grateful, almost relieved — Thank you so much, my dear. I'll wait here for the receptionist, you can go and set him up.
+
+  
+She handed me the leash, Rocky refused to move, so I decided to pick him up by the woman's advice and took him to the crate area. Damn, he was very heavy despite being medium-sized, I could tell by how rounded he was that the old lady overfed him, sadly it wasn't uncommon. I knew that we had a couple of crates available, so I headed there with the fluffy ball on my arms. 
+
+While setting him up in the crate, the other dogs beside him started snarling at him and the rest grew weirdly quiet. I could feel what I thought was raw hunger on their voices and Rocky started whimpering. I tried shushing them to no avail, they were probably scared since they hadn't been any new dogs in a while according to the files, and I knew that abused dogs could behave like this with new things. Especially Jerry who was one of the fighting dogs and was two crates away and was upset the most, almost desperate to jump at him.
+
+A bell ringing caught me off guard. It was the main entrance. I returned and noticed that the old lady was gone and there was still no sign of Jessica. How would I explain that I had no information regarding the new dog?
+
+Fuck Jessica.
+
+I thought about Rocky. The poor baby was left behind and was now surrounded by dogs that seemed really hostile towards him. I realized that, besides the overfeeding issues, he was really loved and taken care of. His long coat felt soft beneath my fingers, his breathing and heartbeat felt normal, unlike the others, he smelled clean and when I searched for injuries I couldn't find anything. Honestly, between these abused dogs he was pretty out of place. I figured that it was best to change him to a crate farther away from the others so they might be able to calm down.
+
+  
+When I opened the door back to the dog's area everything was silent. Absolutely no sound at all while I stood still for around two minutes. Then it began. Crunching and wet sounds, slowly getting louder. Then bones breaking and the sound of skin tearing.
+
+— Rocky? — I muttered in fear.
+
+Whimper.
+
+I recognized it. It was Rocky and he was in pain.
+
+"The dogs here are happy. They never whimper."
+
+I don't know why I remember that. It was stupid.
+
+Well, maybe it wasn't stupid, I tried to approach the crying dog when I stepped on something. I was sure then, that the dogs were eating Rocky, because that was a freaking paw. 
+
+The metallic smell hit me hard. Blood.
+
+— Hey!
+
+I raised my voice, but I didn't yell. I remembered the rule and didn't want them to get aggressive. Despite it being a prank, it didn't mean that everything there was a lie. I was not a genius, but I knew that yelling was going to make it worse. 
+
+The wet, crunch and breaking sounds didn't stop. At this point, do I have to remind you that I was there fucking blind? 
+
+I had to stop a dog that escaped his kennel and was eating another one, without seeing anything and hearing weird sounds. I'd been blind for some years, but right there, the dread of the unknown filled me like it never did before. It was my first day and I forgot to close one of the crates and a dog ate another one. A poor baby was dead because of me and I migh the next.
+
+A foul smell snapped me back to reality and I ran away. Yes, I'm sorry, what was I supposed to do? Going literally blind to stop a cannibal dog that was capable of tearing off another dog's limb? HELL NO.
+
+A habit I picked up after becoming blind is building mental maps of places I frequent so I can move around without my cane. Even though I was a fast learner and was able to learn the layout the first hour I was there, I got lost. You've got to understand that I was pretty overdosed with adrenaline, I was still new and, deal with it, I was blind.
+
+So I ran, unfortunately couldn't find the entrance, but went for the second best at least. I went to the break room. I needed my phone so I could call Dario and tell him to come help me since fucking Jessica left me alone with a cannibal dog.
+
+I fumbled across the table, trying to find it, but it was empty until I touched something strange. Then it dawned on me that it was a computer. There wasn't one in the break room. Where the fuck did I ended up? It was probably the main office, well, it should've been a landline there, but I didn't know Dario's number by heart so I still needed my phone. I stumbled to the door, heart still pounding when I heard it.
+
+There was no barking, so it really stood out, a dragging wet sound and nails scraping against the floor. It was coming close. Probably Jerry carrying Rocky's corpse, as far as I knew, he was the only one capable of killing and was right next to him.
+
+— Jerry? — I asked.
+
+He stopped and I heard a whimper. He seemed sweet before. He was an American Pitbull and the strangest thing was that he didn't have any scars despite being a fighting dog for five years. I knew this because, well, I petted every single one of them during playtime, sue me. Anyway, the lack of them stood out to me. It meant that no dog could hurt him enough to leave a mark. In fact, he wasn't there because he got badly injured like the other three, he was there because he got abandoned after developing cancer.
+
+The whimper didn't feel like vulnerability. Some dogs whimper to ask for something, attention or because they're in pain. It sounded playful, how can a whimper be playful? As if he was calling me, without any urgency, patient, as if simply knowing where I was meant the game could continue. A game I wasn't aware I was playing.
+
+
+
+My hand froze on the doorknob and instead I went for the latch. The clicking sound eased me a little. The plan of calling Dario was out of the question, I was going to call 911.
+
+I threw myself to the table, desperately searching for the landline while those horrible sounds kept getting closer. That was when I gave up, tried searching somewhere else and found another table. A cold table. A metal table.
+
+I was at the clinic, not the office. I'm so stupid.
+
+A hard thump against the door made my heart drop and I started hearing claws against the door. The whimpering got so loud my head started spinning. Running out of ideas I did the only thing left to do, I hid under the table and started crying. 
+
+While hugging myself, I felt something in my pocket. It was the recorder. My eyes brightened for a moment while I hugged it against my left ear and started playing it. The voice of Dario felt like salvation. I hadn't finished it. There had to be something that could help me.
+
+I sped up the recorder past rule 8th.
+
+**" 9th**. Feel free to play with the dogs, but if you get injured, quickly bandage it and apply perfume on the wound. They might go crazy with the smell of blood.
+
+**10th**. If you hear someone asking you a question, but you can't find them, don't answer it. It's trying to learn your voice.
+
+**11th**. If you find your pet's collar anywhere in the facility. Don't look for it, they took it. Don't ask.
+
+**12th**. Don't forget to close all the crates and leave the meat outside. If it doesn't eat, it'll hunt.
+
+Any other inconvenience feel free to call management, we don't always answer, but if we do we'll do our best to help you stay alive!"
+
+Calling it an 'inconvenience' was downright blasphemous. 
+
+Another hard thump followed by a cracking sound.
+
+My heart dropped, that was it? Just things to avoid, nothing that would help? 
+
+Then I heard the recording again. Over and over while every cracking sound became louder one after the other. The closest thing to this was number 8, but the time was wrong, it wasn't past 8 pm, was it? I started to doubt myself. It didn't change anything though, what does it matter if the cannibal dog was Jerry or Rocky? Although Rocky seemed far less intimidating than Jerry.
+
+The scratching resumed, but it was different and this time it was hard to hear. It came from behind me instead of outside. I crawled to the origin of the sound and found a kennel.
+
+It was Daisy. The one I'd completely forgotten about, the one I was supposed to give her morphine.
+
+Poor Daisy must've been in pain all this time and now is trapped here with me, waiting to die by a feral dog. 
+
+Then, in a desperate attempt of seeking comfort, because I might die blind but not alone, I opened her crate and hugged her. I knew I wasn't supposed to do that, but we were going to die and I wasn't leaving her there. She felt weird, broken in some way. Her head hung loose, she didn't feel alive at all. She barely weighed anything and smelled like iodine and something bitter. Still, I knew she wasn't dead because she never stopped scratching and kept doing it weakly against my shirt. I could tell then that she was in so much pain, no wonder she needed a painkiller as strong as morphine.
+
+— I'm sorry — I cried — I'm really sorry, Daisy. 
+
+She stopped. Then I felt a lick on my cheek and then a sudden pain all over my face. She scratched me with so much force I felt the blood pouring down on thick drops. My eyes started burning so much that I pressed my palms as hard as I could against them and dug my nails into my forehead. My head started spinning and I curled up on the ground and started to squirm while I tried to stop the bleeding with my shirt.
+
+Then, the door finally broke.
+
+I wiped off the blood with my clothes and opened my eyes.
+
+I saw, yes, SAW something like a humanoid dog? It's hard to describe since my vision was kinda blurry and I felt overwhelmed, but I can assure you that thing was huge and looked like a blend of brown and red. The red thing seemed to be blood since there was more on the ground around it. It threw something at me and whimpered again. A cheerful whimper.
+
+
+
+I froze. I didn't need to look. I knew it was a leg.
+
+Short hair brushed against my palm. Dog hair.
+
+Pit bulls have short coats. But Rocky had a long one.
+
+That thing was "Rocky". I was holding Jerry's leg.
+
+I've been slandering poor Jerry.
+
+I vomited.
+
+It approached me slowly and I felt its sharp claw slicing my leg while more blood started pouring out. I passed out.
+
+  
+I woke up hours later in the hospital. The clean smell felt nauseating.
+
+— So... you passed out — It was Dario. He sounded amused. — And you left a big mess, Jessica had to clean up after you, she is really pissed.
+
+  
+Fuck Jessica.
+
+— You won't believe me, but I had a really weird dream.
+
+— No, you didn't — Dario laughed — Oh, and I'm sorry for your face. At least you didn't lose your eyes. You have the rest of the week free to recover, I'll take care of it, don't worry.
+
+I touched my face and immediately felt a sharp pain and soft fabric. My head was all bandaged. I remained silent and Dario left. Half an hour later a doctor came, he told me that I fainted when one of the dogs attacked me and that I might have a concussion from the fall, but I should be good to go if I didn't have any symptoms. 
+
+Walking hurt, so I took an Uber, went straight home and collapsed into bed. I woke up that afternoon with a call from my sister asking me how the job went. I was still sleepy, feeling like everything was a dream so I just told her it was fine and hung up. I smelled like vomit and that made me vomit again, so I took a shower before sleeping again. I regretted it, I had a nightmare with Jerry, looking at me with sad eyes, whimpering while the big dog ate his insides. Then, a little black dog tackled the beast and I woke up sweating.
+
+The nightmare came back every night after that. I didn't know how I was supposed to go back to work in two days when I kept barely getting any sleep. My sister was against it due to my injuries, but I insisted, who else would hire a blind 36-year-old woman? Besides I really loved the dogs and was not going to resign just because a dog got violent and I had a few nightmares. I knew that could happen, it was a shelter for severely abused dogs after all.
+
+While I was having coffee listening to stories on YouTube, I started feeling dizzy and when I got up to get ibuprofen the doorbell rang. I went to open the door and Dario greeted me.
+
+— So, I'd never normally do something like this, but it's really strange... — He said—  Daisy likes you. She is restless since you left.
+
+He pressed something fluffy against my chest.
+
+— Take care of her, just like she took care of you. See you on Monday! — He cheered.
+
+— Dario, what the hell? Take her back!
+
+Silence. Damn it. How do I explain this to my sister? Her lease doesn't allow dogs.
+
+I took her inside with me. When my sister comes back we'll talk about what to do. 
+
+Daisy barely moved in my arms and I sat on the sofa. I stroked her back while thinking what to do. At least she seemed healthier than before and Dario didn't say anything about the morphine, so I guessed that I shouldn't worry about that, but made a mental note to ask him later. I started feeling more and more dizzy, and Daisy started licking my face.
+
+— Are you comforting me? — I asked while scratching her head.
+
+She licked harder until I felt the bandages getting really wet. I put her down and cursed while going to the bathroom to change them.
+
+That's when I saw it.
+
+I saw my face in the mirror.
+
