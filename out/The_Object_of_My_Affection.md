@@ -1,0 +1,79 @@
+I see her across the room.  
+"Goddamn, she's ugly,” I think shallowly as I walk by her. I take a step back and look again. Not a monster, not distorted, nothing physical I can put a finger on. She is just a person. Someone I would never give a kind, adoring second glance to...only a disguised second glance of bitter, disdain and, hate.  
+I give a smile, fake as I can muster as we make eye contact. What I see in her eyes disturbs me. Was she soulless or just empty? I don't think that's it, definitely unrecognizable though. I look away quickly. I never have liked looking someone in the eyes. I feel my stomach turning into knots. Nauseated, burning, DARK feeling in the pit of my stomach. I am now anxious.  
+I look away and down.   
+No words have been spoken.  
+I raise my head, feeling I need to say something, at least "hi.” I don't want to speak to her, but if nothing else I am polite. Strange feelings right now. I don't know her, I DON'T want to know her.  
+I walk and as I do, she does the same.   
+Thinking how odd that encounter was, her mouthing "hi" back at the exact same time but with no real voice. Is she haunted or just haunting?  
+I considered that it was just me. I wasn't listening. I didn't want to hear her voice, for if it matched her exterior at all, my hands would be around her fucking neck. Not being able to control my rage, knowing once I started choking her I wouldn't stop until every bit of life had been drained from her lifeless, corrupt, distorted body.  
+ I shook off the feeling and took a step back to see if she was still lingering.  
+Something about her drew me in. I couldn't help but stare, something I tend to do with people. I have always tried to see the souls in people, if there is even such a thing as a "soul,” without looking into their eyes. More of an aura that I can tap into. To stare, feel, connect to find something I can correct within myself.  
+The longer I stared at her the more twisted her features became.  
+Was I making HER uncomfortable?!?!  Doubtful.  
+I despise her. I hate her. I don't even know her!  
+Why do I feel such rage, hate, and disgust for a woman I have never seen before?  
+I start noticing details of her face, her body, her energy, her fucking darkness.  
+Hideous, pasty and, gaunt are the adjectives that pop in my mind, but nothing about her really stands out but a negativity bias.  
+Only seconds have gone by since I spotted her walking against the wall, yet I hate her more than anyone I've ever come across.  
+The hatred grows with every glance. WAIT...”leper” pops into my head now.  
+Not being able to help how she looks or carries herself.  
+Sad, yet I feel absolutely no pity or empathy for her. Not like me to feel no sympathy for another living being.
+
+Probably 40ish, she seems much older. Spotted, splotchy skin, pale yet brown, leathering from sun exposure.  
+Her eyes are set too far back in her head, sunken in and bruising under each.  
+Bloodshot, old, yellowish eyes. Slumped shoulders. Spine protruding out of her shirt. Her bones notably sharp.  
+"Goddamn,” I think again. I feel sorry for the person who has to lay against that every night, must be painful in every way.  
+Not that anyone would ever hold this creature.  
+Nose slightly crooked, probably been broken. Wrinkles from laughing and crying at the same time, wearing a constant frown under a facade of smiles. Must be exhausting.  
+Any tears she has shed mean nothing to me.  
+Hair dry, split—thick yet balding—expanding from humidity.   
+She is insane. I can tell from this mere encounter.
+
+I am being hard on this person. This individual I don't know. I have never seen her before yet I feel judgmental, cold, numb, and harsh.  
+I HATE HER, so maybe not numb just yet.  
+I know I want to kill her, the one commandment I haven't broken...yet.  
+I would gladly break it for this wretched woman. Clothes layered, way too big for her body.  
+I laugh to myself. Must be to hide her frail, weak body.  
+Too bad you cannot layer clothes to hide your mental and emotional scars, bitch.  
+If only she could wear a scarf to cover her face. A hoodie, a hat, a mask...anything. Why doesn't she?  
+Her hair falls over one side of her face, but she won't stop pulling on it long enough to let it hide anything.  
+I scream to myself to STOP staring. Then I scream louder in my mind for her to stop. The way she is looking at me...STOP, NOW!  
+I am walking away...again.  
+Done with this.  
+I say as kindly as possible with the situation and how I'm feeling,  
+"Bye.”  
+Again her fucking bird lips mouth "Bye" as they did "Hi" back.  
+DEEP BREATH.
+
+I think to myself, “CONTROL." Do not ruin your life by stabbing this thing in the eyes with your fingers, plucking them out like grapes. Slicing her wrist with the razor blade hidden...  
+Watching her bleed out. 
+
+Yes, walking away now. She is walking away too.  
+GOOD, because I do not believe "snapping" is a criminal defense. If it was, our prison population would be cut in half. NO, snapping cannot get you off...at least not in the justice system.  
+I will not snap, even though this "woman" brings me closer than I thought possible.   
+I wish I were invisible to this person, most of the time I feel I am...why can't I be invisible to her?  
+Usually when I speak, people will just walk away or change the subject, never hearing me.  
+No one really listens though, too busy trying to say what they need to say.  
+I am not necessarily an intelligent person, so I understand the lack of interest people have in me.  
+I always understand.  
+Yet...this girl  seems interested, never interrupting or walking away, unless I move first, just listening intently even if it's to the "Hi.”  
+Or “Bye.”  
+It isn't nice though, not what I want nor what I thought I wanted. It is irritating and infuriating. I like the other way better.  
+I don't want to be seen or listened to. I wish I hadn't seen this one at all.  
+INTENSE anger now, sad too. For me, NOT her!!!  
+Oh fuck...is she crying now. Is that a tear forming?   
+I am disgusted. I loathe self-pity. I am really starting to feel sicker than ever before. If only I had the bravery and strength to slit her throat and watch her bleed out...again.
+
+WAIT...that's right.  
+That's why I needed to come into the bathroom in the first place, my razor.  
+Always snuggled under a bottle of hydrogen peroxide.  
+I was undecided when I first came in...pills to numb the pain and feel nothing, or razor to cut it out and feel it even deeper.  
+FUCK, why did she have to be in here?  
+Thank you for the reminder though.
+
+Tomorrow, the object only evil can create will hold a new face…the mask of a new demon. I never know what she will look like tomorrow, the object of my affection, only that it is worse than the day before.  
+I slide the blanket gently back over the mirror. Tucking the edges in on each corner.   
+"See you tomorrow, maybe later tonight."  
+Must be covered for now, but NEVER discarded.  
+To punish, to see, to talk to, to battle, to kill...to reflect.
