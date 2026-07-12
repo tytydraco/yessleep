@@ -1,0 +1,181 @@
+I know it seems unhinged, to make claims about my dreams telling me a boy needs help. But I genuinely believe that what I’m seeing is *real.*
+
+Let me start with some background: when I was six years old, I dreamed of a kitten shivering and wet in a box by the road. A week later, my father was driving us home from school and we saw that exact box, and we found the kitten. We rescued her and named her “Misty.”
+
+In high school I dreamed of my older sister standing at the altar beside a red-headed woman in a wedding dress. A few days later, my sister and I were at a café and spotted a pretty red-headed girl sitting with a young man. I urged my sister to say hello, but she told me my vision had to be wrong since the girl was obviously dating the young man.
+
+So I marched over and spoke to them. The young man, it turns out, was the girl’s brother. And I told the redhead, “My sister thinks you’re cute.” My mortified sister gave me *I will kill you* eyes, but the red-headed girl giggled and waved my sister over. And with cheeks flaming nearly as red as the girl’s hair, my sister joined her at the table. The rest is history.
+
+But the dream I’ve had this past week is not only more vivid than those others—but more persistent. I see it every night.
+
+A boy with a broken leg locked in a kennel.
+
+It’s *horrible*. I mean, yes, I know that there are people in the world who commit the most heinous abuses, I see stories on the news every day, see these real-world cases that defy even my worst expectations of humanity. But it’s one thing to read about a faceless victim, their life ended by human cruelty.
+
+It’s entirely something else to *smell* the stink of the boy, to hear his hitching sobs and whimpers of fear. The scuff of his bare feet on the plastic flooring. He’s all alone, the only sound his breathing and somewhere, distantly, the barking of a dog. The room is pitch dark, so I can’t see. It’s almost as if, in the dream, I’m feeling what the boy feels—
+
+*THUD—THUD—creak—THUD—THUD—*
+
+It begins with a heavy tread descending stairs, and then a door opens and a man stands silhouetted. The boy whimpers about his leg and begs the man to let him come upstairs. From the looming silhouette comes a sneering voice: “You’re never getting out.”
+
+The rage I felt the first time I heard that voice! Gruff, slurred with alcohol. Not a familiar voice, though clearly familiar to the boy, who always shrinks further into his kennel, sobbing. Then the sudden snap of a belt in the man’s hand. And the boy’s screaming as he huddles toward the back, the jangling of a lock on the kennel door, and the boy saying, “No, no, I’ll be good! I’llbegood—”
+
+That’s when I wake up.
+
+The first time it happened I burst into sobs. The boy’s terror lingered like secondhand smoke—I couldn’t stop shaking and crying. When I finally came back to myself, I flung the covers off and scribbled everything I could remember from the dream—which wasn’t much. WHERE?? I wrote in all caps on my notes.
+
+Where is this boy being held prisoner?
+
+I moved to this sleepy town to escape the near-daily carjackings and shootings and sirens in the busy metro where I spent the past two decades. But at least there, we had neighbors, resources, witnesses. Out here, I have neighbors near enough that I can hear when they’re watching a loud movie, but go a little further and the houses are spread so far apart, sometimes by miles… the sort of isolation that means this boy I’m dreaming of is unlikely to be discovered…
+
+… unless I can find him.
+
+But how? That first night all I saw is that he’s being held in a dog kennel, and it’s either night or he’s being kept in a windowless room. A basement? The man’s footsteps sounded like they were descending creaky stairs.
+
+So a basement.
+
+But where?
+
+My only other clue was the loud, consistent barking of a dog. I suppose I could have driven around the town searching for an isolated house with a barking dog, but it was just too little to go on. The town’s population is almost 5000 people—far too many houses to scout out hoping I can find this child.
+
+But then the next night, I dreamed of him again.
+
+This time, I strained for details.
+
+*THUD—THUD—creak—THUD—THUD—*
+
+—The man’s footsteps were my first clue. I didn’t hear the crush of carpet or the ring of metal. No, the stairs were wooden, and the third step *creaked*. After the door opened, the man’s shoes sounded like they were scuffing on concrete. In the wash of light around his silhouette, I couldn’t make out any useful details of the man, but the room appeared cramped. A closet or storeroom. I tried to get a view of the man’s face when he approached the kennel, but it was too dark to see clearly.
+
+The third night I had the dream, which was yesterday, I caught a few more crucial details.
+
+In addition to the barking dog, there was a rumble of thunder. And a distant hoot… a… train? There was a train horn!
+
+Then the sound of the train horn merged into the boy’s frantic wails as the man approached—
+
+I woke up with a gasp.
+
+After making notes, I opened Google maps and searched for train tracks. There are some nearby, running through town. I switched to the weather app.
+
+Sunny. And tomorrow, sunny. Mostly cloudy or sunny all week, until Saturday, when there will be thunderstorms.
+
+I have five days.
+
+Does anyone have any suggestions on how to find him??
+
+\*\*\*
+
+It’s been a week. I realized that I didn’t think strangers would be likely to believe me about the dream, so I wound up not sharing what I wrote above. Instead, I considered asking my neighbors their advice since I don’t know the town very well, and they’ve lived here for years. But the middle-aged couple next door mostly keep to themselves. So, in the end I called up my sister and asked if she could drive up to help me.
+
+My sister agreed we had to find the boy, and she took time off work to come and help me. But as we searched for houses near the railroad tracks, she said: “You always eventually *see,* with your own eyes, the same vision from your dream, right?”
+
+“Uh huh.”
+
+“So you’re gonna see the boy screaming. You’ll get there right as the man comes down the stairs.”
+
+I frowned.
+
+“You’re going to be in danger,” she pointed out.
+
+“The man never sees me in my dream,” I argued, though dread churned in my belly.
+
+“You wake up when he drags the boy out. What if it’s because that’s when he sees you?” she said. “I’m just saying, Celeste—this is really fucking dangerous. Do you have a gun? Pepper spray? Anything?”
+
+“I have you.”
+
+“Yeah, well I’m not in your vision, am I?”
+
+She made a good point. Which led me to wonder—should I even have her with me, knowing she *wouldn’t* be there when I finally found him? Every house we staked out together was a dead end. Either there were no dogs nearby, or no train tracks. And then my sister dug deeper into the train schedule and informed me the tracks near my home had stopped being used a couple years ago. The nearest trains still running were freight trains in another town twenty minutes northeast. So we drove out *there.* And we listened for dogs. But after several days, we didn’t find any houses that fit my dream.
+
+I knew the steps were creaky and made of wood and led into a basement. I knew the basement was unfinished and the floor was concrete. We only found three houses on the train tracks that also had dogs living nearby, and I asked the owners if I could see their basements.
+
+Two of the basements were finished, and the wooden stairs did not creak. One was unfinished but the steps going down were concrete, not wood. No creaky third step. And the basement was clean and empty.
+
+No stink. No filth. No dog kennel.
+
+By Sunday I was in despair. It was thundering, pouring, and there was nothing else we could do. Nowhere to search. I couldn’t sleep. What was going to happen to the boy? Once my vision came true—what next? I feared the worst. I was glued to the news, waiting for reports about a dead child. I kept searching the headlines.
+
+Nothing. At least not about a boy in my town.
+
+But when I ran a search about children locked in dog kennels… God, I’ve lost any faith I had left in humanity.
+
+Do you have any idea how many news stories there are? It hurts my soul. All that rain and thunder felt like God flooding the world—and with everything I’d learned it felt like we deserved it.
+
+By Monday, my sister couldn’t stay any longer. I promised her I’d call her if I did find the house, and I hugged her goodbye. She squeezed me tight and made me promise that I wouldn’t go down those stairs if I found the house alone. That I wouldn’t face the man with no one to help me. That I’d call her.
+
+I promised her, though since she left I’ve been thinking to myself how I would give anything—even my own life—to save this boy.
+
+I honestly don’t care if I die to do it.
+
+I just have to free him from that man.
+
+That monster.
+
+Tomorrow, I will begin again. I’ll keep driving around. My visions *always* come true eventually. Always. I *will* find the boy, and I will face the man keeping him captive.
+
+Maybe I should share this post first, in case something happens to me.
+
+\*\*\*
+
+It’s been a month.
+
+It’s taken me a long time to be able to sit down to finally type out the events of that fateful evening when I found the boy. Each time I tried to write this, my hands were frozen, my heart just empty. But… I think it is important that I finish. And that I share this story. So… here we go.
+
+After my sister returned home, I was determined to find the boy. I mapped out the train tracks and the weather, searching for any houses I may have missed. I hadn’t done laundry in about a week, so I washed all my clothes, and was mentally making a list of groceries to buy to keep me going through all the driving and scouting around.
+
+I was carrying the basket down to the basement laundry when the stairs creaked.
+
+Specifically, the third step on my way down creaked.
+
+And I froze.
+
+My staircase is carpeted. The house was flipped before I bought it, though the bones are very old. And somewhere beneath the carpeting is the original wooden staircase leading down… down to my finished basement, to the linoleum-covered laundry room and the cheaply-carpeted storage area. It usually doesn’t creak when I walk up and down, but with all the extra weight from the laundry basket, my tread was heavier. I put my weight on that third step again, felt that *creeeak.*
+
+Cold all over, I went downstairs.
+
+I looked around the brightly lit laundry room.
+
+There was nothing unusual, so I moved into the larger storage area. It struck me as I gazed around metal racks of shelving that… this basement was a lot smaller than the square footage of the rooms above.
+
+I closed my eyes, imagined being in the dark, listening for the creak of the stairs, the footsteps, and I slowly turned, orienting myself…
+
+… the footsteps would’ve gone through the wall behind one of the racks.
+
+Heart slamming my ribs, I grabbed the rack and moved it aside. Felt along the wall. It appeared seamless, but I snatched up a hammer from the toolkit on one of the racks and struck it into the sheetrock. Again. And again, until I made a hole, and then used the back end of the hammer to tear it away.
+
+Behind the hole in the sheetrock was solid blackness. An opening to a hidden—and very musty—room.
+
+Once I had torn a hole large enough, I turned on a flashlight and stepped through. The dank smell filled my nostrils, and my shoes scuffed on concrete. The cramped room was filthy, littered with trash and old clothes tossed haphazardly here and there. In one corner was a kennel, and inside it a bin taped closed with duct tape wound round and around it.
+
+\*\*\*
+
+I called my sister. Called her crying, and told her I was wrong. The dream hadn’t been a premonition.
+
+Several years ago, the man who used to own this house had a wife and three children, one of whom had been reported missing to the authorities. He lost the house to foreclosure after being unable to pay his mortgage. His wife divorced him and left him with the two children, and he remained on the property, squatting for months until he was removed. After that he and his children went missing. When a warrant went out for his arrest, he was finally found in Idaho, shacked up with a new girlfriend and the children, once again living in squalid conditions.
+
+The man is now under arrest for his suspected involvement in the death of his son Jay—the boy in the bin. I realized as soon as I cut through the duct tape and tore the lid off that bin: my dreams were not of the future. Instead, I was drawn into a ghost’s traumatic memories of the past.
+
+I’m heartbroken that I couldn’t save Jay… but at least his bones are no longer trapped in the kennel—he’s free.
+
+And his father will be locked up for a very, very long time.
+
+His mother—the man’s ex-wife—is still being sought. The two other children have been removed from the new girlfriend’s custody and placed into protective care.
+
+But perhaps the greatest horror of all this, for me… is a conversation I had shortly after my gruesome discovery.
+
+The morning after I’d turned over everything to police, I heard the neighbors’ lawnmower, and since they were outside doing yardwork I went over and asked them if they’d overheard anything when Jay and his family were here several years ago. Had they suspected abuse?
+
+They sometimes heard the boy crying and knew the family was rotten, they said.
+
+“Did you ever report them?” I asked.
+
+They shrugged and said that after Jay disappeared, his father told them he’d run away.
+
+“And you believed him?” I asked.
+
+My neighbors didn’t have an answer. These ordinary folks who lived within earshot never once called anyone. Never reported anything.
+
+Legally, of course, they had no obligation to do so, anymore than I have a legal obligation to throw a life preserver if I see someone drowning. There’s no charge for standing by and letting bad things happen.
+
+But I don’t think I will ever look at my neighbors without remembering those bones, curled up in that bin…
+
+… knowing that they heard his screams, and that with a phone call, they might have saved [him.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
