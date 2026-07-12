@@ -34,7 +34,7 @@ I fumbled in my seat.
 
 
 
-— If you want it, yes, it's yours — He said, smacking his lips. — I usually don't do this, but I advise you to think about this carefully, a woman with-
+— If you want it, yes, it's yours — He said, smacking his lips. — I usually don't do this, but I advise you to think about this carefully, a woman-
 
 
 
@@ -54,7 +54,7 @@ He seemed pretty enthusiastic.
 
 
 
-I followed him without hesitation. He showed me where all the facilities were. We went through the reception where I met the receptionist who didn't even spare me a word, the big patio, the little clinic, the storage room, the main office and the crates where the dogs rested. The whole place smelled fairly clean for a shelter, the scent of dogs dominated the air, although it was the good kind, mixed with the scent of dog food and disinfectant.
+I followed him without hesitation. He showed me where all the facilities were. We went through the front entrance where I met the receptionist who didn't even spare me a word, the big patio, the little clinic, the storage room, the main office and the crates where the dogs rested. The whole place smelled fairly clean for a shelter, the scent of dogs —the nice kind— dominated the air mixed with the aroma of dog food and disinfectant.
 
 Finally we returned to the staff break room.
 
@@ -72,13 +72,13 @@ I was finishing the mental map of the place in my head so it took a few seconds 
 
 
 
-— You got it right. — He said and paused — Also, there are some tasks that are really important to handle, but I'll explain them to you before your shift starts. Can you start today?
+— You got it right. — He said and paused — Also, there are minor tasks that are really important to handle, but I'll explain them to you before your shift starts. Can you start today?
 
   
-I muttered a simple 'yes' and followed him to the main office. I was expecting someone else to be there for the contract signing, but it was just the two of us. Since I was doing this for my mental health rather than the pay, I pushed away my unease and signed it. My shift was scheduled to start at 5 pm and I was supposed to finish at 1 am, it was currently 10:42am so I headed home to have lunch with my sister and a nap so I'd be refreshed for work.
+I muttered a simple 'yes' and followed him to the main office. I was expecting someone else to be there for the contract signing, but it was just the two of us. Since I was doing this for my mental health rather than the pay, I pushed away my unease and signed it. My shift was scheduled to start at 5 pm and I was supposed to finish at 1 am, it was currently 10:42 am so I headed home to have lunch with my sister and had a nap so I'd be refreshed for work.
 
   
-The moment I arrived, 5 pm sharp, the receptionist cleared her throat and tapped on the desk. I could feel her disgust with me, it was hard to believe that this woman worked at a shelter.
+The moment I arrived, 5 pm sharp, the receptionist cleared her throat and tapped twice on the desk. I could feel her disgust with me, it was hard to believe that this woman worked at a shelter.
 
 
 
@@ -91,7 +91,7 @@ I pressed my lips together to stop myself from sighing and smiled apologetically
 — Here. Dario left this for you. — I frowned and she sighed — It's a recorder, he said that everything is explained there. Your uniform is in the break room.
 
   
-I went and found my uniform neatly folded on the table. I poured myself some black coffee to distract me from lashing out to the rude receptionist whose stupid name I'll never ever bother to learn, and changed my clothes in the bathroom. I started the recorder while grabbing another cup.
+I did as instructed and found them neatly folded on the table. I poured myself some black coffee to distract me from lashing out to the rude receptionist whose stupid name I'll never ever bother to learn, and changed my clothes in the bathroom. I played the recorder while grabbing another cup.
 
   
 — Hi, Cassey, this is Dario! I'm sorry I'm not there for your first day, I had more important business to take care of. Normally I would give you a sheet of rules, but this would do.
@@ -135,7 +135,7 @@ What the-? Did I hear it wrong? I went back and listened again. I froze, stopped
 
 
 
-I've always been a skeptical person, but also a big fan of horror stories with rules and such. So when he started listing rules I was more confused than anything, I mean, it wasn't a high-paying job, it wasn't in a remote area and definitely not a night security guard or something. This was a normal low-paying volunteer position, I was supposed to play with some mistreated dogs, give them cuddles and pets, bring them their dinner and give them their meds since some of them had special needs. It seemed like a huge fucking prank which I was sure was absolutely funny to do to a disabled person.
+I've always been a skeptical person, but also a big fan of horror stories with rules and such. So when he began listing rules I was more confused and intriged than anything, I mean, it wasn't a high-paying job that was in a remote area and definitely not a night security guard. This was a normal low-paying volunteer position, I was supposed to play with some mistreated dogs, give them cuddles and pets, bring them their dinner and give them their meds since some of them had special needs. It seemed like a huge fucking prank which I was sure was absolutely funny for them to do to a disabled person.
 
 I then remembered the first rule and got really angry as I opened the door. It was Dario's voice, but he seemed more like the type to go along with it rather than a mastermind.
 
@@ -146,7 +146,7 @@ I then remembered the first rule and got really angry as I opened the door. It w
 — Stop. — She didn't raise her voice, she didn't have to — Why are you yelling? Didn't you hear the recorder?
 
   
-I stared blankly at her and all of a sudden my rage disappeared. The dogs were barking more loudly than before and I just started to notice. They were so loud that my ears started ringing.
+I stared blankly at her and all of a sudden my rage disappeared. The dogs were barking more loudly than before and I just noticed. They were so loud that I felt a bit dizzy.
 
   
 — Yes, that's why I'm asking-
@@ -154,16 +154,16 @@ I stared blankly at her and all of a sudden my rage disappeared. The dogs were b
 — Ok, then just follow the rules, it's not a joke. It's simple, but you almost broke one, dumb little girl. Since it's not 6 pm yet and I pity you, I'll help you this once.
 
   
-She stood up and left.
+She stood up and left without answering any of my questions.
 
   
 Well, I might not be the most reliable OP, I acknowledge that. I avoided telling you about my disability, yes, but it's for a reason, you'll have to trust me. 
 
-I went back to the break room and stayed there in silence. I heard some metallic sounds, then silence for some minutes and later the occasional barking of a shelter resumed. I tapped my smart watch and it told me the time. It was 5:32 pm. It hit me that it was the dogs' playtime and despite the sour taste in my mouth, those babies weren't at fault for Jessica's prank, so I went and took them one by one to the patio to enjoy the last rays of sunlight for the day.
+I went back to the break room and stayed there in silence. There were metallic sounds, silence for some minutes and later the occasional barking of a shelter resumed. It felt like the whole building was holding its breath. I tapped my smart watch and it told me the time. It was 5:32 pm. It hit me that it was the dogs' playtime and despite the sour taste in my mouth, those babies weren't at fault for Jessica's prank, so I went and took them one by one to the patio to enjoy the last rays of sunlight for the day.
 
 They were really well behaved, it felt like handling plushies. They were really obedient and stayed still whenever I picked them up or led them outside.
 
-On the patio I played with some of them and really started to enjoy my job there. Being surrounded by fluffy balls that lick your face, slightly bite your hands and snuggle against you can cure everything, I swear. I took a careful approach to the dogs in wheelchairs, I knew there were some dogs with IVDD that were surrendered because of their disability. I pitied them just like others did with me and somewhat it made me feel a bit more normal. There were seven of them, although not all of them needed a wheelchair, they were all really quiet except for one little rascal called Bobby. He was constantly running and falling everywhere, and I only realized after a few minutes because of the metallic sounds of his wheelchair against the floor. Honestly, the little Dachshund became my favourite really quickly, he was hilarious.
+On the patio I played with some of them and really started to enjoy my job. Being surrounded by fluff balls that lick your face, slightly bite your hands and snuggle against you can cure everything, I swear. I took a careful approach to the dogs in wheelchairs, I knew there were some dogs with IVDD that were surrendered because of their disability. I pitied them just like others did with me and somewhat it made me feel a bit more normal. They needed help to go anywhere. There were seven of them, although not all of them needed a wheelchair, they were all really quiet except for one little rascal called Bobby. He was constantly running and falling, and I only realized after a few minutes because of the metallic sounds of his wheelchair against the floor. Honestly, the little Dachshund became my favourite really quickly, he was hilarious.
 
 Even if I was having a good time, I couldn't refrain from wincing every time I pet a dog and touched a scar or something rough. It happened a lot more times than I want to admit. Sam, for example, a tiny rescue dog born on the street that has barely any hair and a lot of burned skin, laid silently by my side and scratched my thigh for pets, but I didn't have the heart to touch that rough skin without crying so I sometimes stroke his butt that was still weirdly full of hair. I could go on, but it breaks my heart, you just need to know that those dogs had it hard on life and most of them show that on their bodies.
 
@@ -171,17 +171,17 @@ I'll tell you a bit about me, I'm blind, but I'm the kind that can perceive some
 
 When I finished, I went to make the dogs' food. Dario sent me the pdfs of the dogs files so I used an app to read it out loud for me. I prepared a bowl for each dog with their respective medicines. We currently had 18 dogs in the crate area, none of them were healthy. I almost teared up while listening to the files again. Some had terminal illnesses and were abandoned and neglected, but most of them were heavily abused. Also, there were four of them that were fighting dogs.
 
-Still, I recalled the playtime and my brief time there. I thought about all that suffering and how none of them whimpered once. Even Bobby who was falling all the time, he silently tried to get up by himself until I noticed and helped him. I knew some of them had painkillers prescribed and even if I touched one of their injuries by accident, they never cried. It was strange. I remembered that there was something like that on the rules I was given, but I shrugged it off. They were probably just really tough, animals are like that.
+Still, I recalled the playtime and my brief time there. I thought about all that suffering and how none of them whimpered once. Even Bobby who was falling all the time, he silently tried to get up by himself until I noticed and helped him. I knew some of them had painkillers prescribed and even if I touched one of their injuries by accident, they never cried. It was strange. I remembered that there was something like that on the rules I was given, but didn't think too much of it. They were probably just really tough, animals are like that.
 
 A deep howling took me out of my thoughts, so I loaded the food bowls on the cart and headed through the corridor to the crate room. I could hear some scratching amid the barking and I realized I was 5 minutes late for their oddly specific mealtime at 7:36 pm.
 
-While serving the last plates, I heard some knocking coming from the front door. For a moment I thought I also heard something coming from the corridor, but I brushed it off and after finishing I went to the reception.
+While serving the last plates, I heard some knocking coming from the front door. For a moment I thought I also heard a sound coming from the corridor, but I brushed it off and after finishing I went to the reception.
 
 — Jessica? — I called out.
 
 Silence.
 
-— Please, someone... — Someone cried out desperately. — You! Miss, come here. It's my dog, I can't take care of him anymore, I need help.
+— Please, someone... — A voice cried out desperately. — You! Miss, come here. It's my dog, I can't take care of him anymore, I need help.
 
 I felt a chill down my spine and remembered the 8th rule. The one that freaked me out. That one was impossible to forget. I tapped my watch and checked the time, it should be fine.
 
@@ -205,7 +205,7 @@ I didn't know why it felt rehearsed, maybe because it was so late for that. It's
 
 — What are you going to do with him? — she interrupted me.
 
-— Oh? Well, I'll put him on a crate back there like the others.
+— Oh? Well, I'll put him on a crate back there with the others.
 
 — Are you going to kill him? 
 
@@ -214,7 +214,7 @@ I didn't know why it felt rehearsed, maybe because it was so late for that. It's
 — I know what they said.
 
   
-I scoffed. What was wrong with people these days? Who would kill a poor dog? I refused, I couldn't kill a dog just because someone recorded a stupid prank.
+I scoffed. What was wrong with people these days? Who would kill a poor dog? They were all going crazy. I refused, I couldn't kill a dog just because someone recorded a stupid prank.
 
   
 — No, ma'am, we are a 'no-kill' shelter. Your Rocky is going to be fine, I swear.
@@ -222,15 +222,15 @@ I scoffed. What was wrong with people these days? Who would kill a poor dog? I r
 — Well, that's a relief. — I could hear her smile. She sounded really grateful, almost relieved — Thank you so much, my dear. I'll wait here for the receptionist, you can go and set him up.
 
   
-She handed me the leash, Rocky refused to move, so I decided to pick him up by the woman's advice and took him to the crate area. Damn, he was very heavy despite being medium-sized, I could tell by how rounded he was that the old lady overfed him, sadly it wasn't uncommon. I knew that we had a couple of crates available, so I headed there with the fluffy ball on my arms. 
+She handed me the leash, but Rocky refused to move, so I decided to pick him up by the woman's advice and took him to the crate area. Damn, he was very heavy despite being medium-sized, I could tell by how rounded he was that the old lady overfed him, sadly it wasn't uncommon. I knew that we had a couple of crates available, so I headed there with the fluffy ball on my arms. 
 
-While setting him up in the crate, the other dogs beside him started snarling at him and the rest grew weirdly quiet. I could feel what I thought was raw hunger on their voices and Rocky started whimpering. I tried shushing them to no avail, they were probably scared since they hadn't been any new dogs in a while according to the files, and I knew that abused dogs could behave like this with new things. Especially Jerry who was one of the fighting dogs and was two crates away and was upset the most, almost desperate to jump at him.
+While setting him up in the crate, the other dogs beside him began snarling and the rest grew weirdly quiet. I could feel what I thought was raw hunger on their voices and Rocky started whimpering. I tried shushing them to no avail, they were probably scared since they hadn't been any new dogs in a while according to the files, and I knew that abused dogs could behave like this with new things. Especially Jerry who was one of the fighting dogs and was two crates away and was the most upset, almost desperate to jump at him.
 
 A bell ringing caught me off guard. It was the main entrance. I returned and noticed that the old lady was gone and there was still no sign of Jessica. How would I explain that I had no information regarding the new dog?
 
 Fuck Jessica.
 
-I thought about Rocky. The poor baby was left behind and was now surrounded by dogs that seemed really hostile towards him. I realized that, besides the overfeeding issues, he was really loved and taken care of. His long coat felt soft beneath my fingers, his breathing and heartbeat felt normal, unlike the others, he smelled clean and when I searched for injuries I couldn't find anything. Honestly, between these abused dogs he was pretty out of place. I figured that it was best to change him to a crate farther away from the others so they might be able to calm down.
+I thought about Rocky. The poor baby was left behind and was now surrounded by dogs that seemed really hostile towards him. I realized that, besides the overfeeding issues, he was really loved and taken care of. His long coat felt soft beneath my fingers, unlike the others his breathing and heartbeat felt normal, he smelled clean and when I searched for injuries I couldn't find anything. Honestly, between these abused dogs he was pretty out of place. I figured that it was best to move him to a crate farther away so they might be able to calm down.
 
   
 When I opened the door back to the dog's area everything was silent. Absolutely no sound at all while I stood still for around two minutes. Then it began. Crunching and wet sounds, slowly getting louder. Then bones breaking and the sound of skin tearing.
@@ -243,15 +243,15 @@ I recognized it. It was Rocky and he was in pain.
 
 "The dogs here are happy. They never whimper."
 
-I don't know why I remember that. It was stupid.
+I don't know why I remember that line. It was stupid.
 
-Well, maybe it wasn't stupid, I tried to approach the crying dog when I stepped on something. I was sure then, that the dogs were eating Rocky, because that was a freaking paw. 
+Well, maybe it wasn't stupid. I tried to approach the crying dog when I stepped on something. I was sure then, that the dogs were eating Rocky, because that was a freaking paw. 
 
 The metallic smell hit me hard. Blood.
 
 — Hey!
 
-I raised my voice, but I didn't yell. I remembered the rule and didn't want them to get aggressive. Despite it being a prank, it didn't mean that everything there was a lie. I was not a genius, but I knew that yelling was going to make it worse. 
+I raised my voice, but I didn't yell. I remembered the rule and didn't want them to get aggressive. Despite it being a prank, it didn't mean that everything there was a lie. I was not a genius, but I knew that yelling was only going to make it worse. 
 
 The wet, crunch and breaking sounds didn't stop. At this point, do I have to remind you that I was there fucking blind? 
 
@@ -263,7 +263,7 @@ A habit I picked up after becoming blind is building mental maps of places I fre
 
 So I ran, unfortunately couldn't find the entrance, but went for the second best at least. I went to the break room. I needed my phone so I could call Dario and tell him to come help me since fucking Jessica left me alone with a cannibal dog.
 
-I fumbled across the table, trying to find it, but it was empty until I touched something strange. Then it dawned on me that it was a computer. There wasn't one in the break room. Where the fuck did I ended up? It was probably the main office, well, it should've been a landline there, but I didn't know Dario's number by heart so I still needed my phone. I stumbled to the door, heart still pounding when I heard it.
+I fumbled across the table, trying to find it, but it was empty until I touched something strange. Then it dawned on me that it was a computer. There wasn't one in the break room. Where the fuck did I ended up? It was probably the main office, well, at least it should've been a landline there, but I didn't know Dario's number by heart so I still needed my phone. I stumbled to the door, heart still pounding when I heard it.
 
 There was no barking, so it really stood out, a dragging wet sound and nails scraping against the floor. It was coming close. Probably Jerry carrying Rocky's corpse, as far as I knew, he was the only one capable of killing and was right next to him.
 
@@ -281,9 +281,9 @@ I threw myself to the table, desperately searching for the landline while those 
 
 I was at the clinic, not the office. I'm so stupid.
 
-A hard thump against the door made my heart drop and I started hearing claws against the door. The whimpering got so loud my head started spinning. Running out of ideas I did the only thing left to do, I hid under the table and started crying. 
+A hard thump against the door made my heart drop and I started hearing claws against the door. The whimpering got so loud my head started spinning. Running out of ideas I did the only thing left to do, I hid under the table and cried.
 
-While hugging myself, I felt something in my pocket. It was the recorder. My eyes brightened for a moment while I hugged it against my left ear and started playing it. The voice of Dario felt like salvation. I hadn't finished it. There had to be something that could help me.
+While hugging myself, I felt something in my pocket. It was the recorder. My eyes brightened for a moment while I hugged it against my left ear and started playing it. The voice of Dario felt like salvation. I hadn't finished it before. There had to be something that could help me.
 
 I sped up the recorder past rule 8th.
 
@@ -299,7 +299,7 @@ Any other inconvenience feel free to call management, we don't always answer, bu
 
 Calling it an 'inconvenience' was downright blasphemous. 
 
-Another hard thump followed by a cracking sound.
+Another hard thump followed by a cracking sound jolted me from my hiding place.
 
 My heart dropped, that was it? Just things to avoid, nothing that would help? 
 
@@ -307,15 +307,15 @@ Then I heard the recording again. Over and over while every cracking sound becam
 
 The scratching resumed, but it was different and this time it was hard to hear. It came from behind me instead of outside. I crawled to the origin of the sound and found a kennel.
 
-It was Daisy. The one I'd completely forgotten about, the one I was supposed to give her morphine.
+It was Daisy. The one I'd completely forgotten about, the one I was supposed to give morphine an hour ago.
 
 Poor Daisy must've been in pain all this time and now is trapped here with me, waiting to die by a feral dog. 
 
-Then, in a desperate attempt of seeking comfort, because I might die blind but not alone, I opened her crate and hugged her. I knew I wasn't supposed to do that, but we were going to die and I wasn't leaving her there. She felt weird, broken in some way. Her head hung loose, she didn't feel alive at all. She barely weighed anything and smelled like iodine and something bitter. Still, I knew she wasn't dead because she never stopped scratching and kept doing it weakly against my shirt. I could tell then that she was in so much pain, no wonder she needed a painkiller as strong as morphine.
+Then, in a desperate attempt to seek comfort, because I might die blind but not alone, I opened her crate and hugged her. I knew I wasn't supposed to do that, but we were going to die anyway and I wasn't leaving her there. She felt weird, broken in some way. Her head hung loose, she didn't feel alive at all. She barely weighed anything and smelled like iodine and something bitter. Still, I knew she was alive, because she never stopped scratching and kept doing it weakly against my shirt. I could tell then that she was in so much pain, her body would flinch with the brush of my fingers. No wonder she needed a painkiller as strong as morphine.
 
 — I'm sorry — I cried — I'm really sorry, Daisy. 
 
-She stopped. Then I felt a lick on my cheek and then a sudden pain all over my face. She scratched me with so much force I felt the blood pouring down on thick drops. My eyes started burning so much that I pressed my palms as hard as I could against them and dug my nails into my forehead. My head started spinning and I curled up on the ground and started to squirm while I tried to stop the bleeding with my shirt.
+She stopped. Then I felt a lick on my cheek and then a sudden pain all over my face. She scratched me with so much force I felt the blood pouring down on thick drops. My eyes started burning so much that I pressed my palms as hard as I could against them and dug my nails into my forehead. My head started spinning and I curled up on the ground and began to squirm while I tried to stop the bleeding with my shirt.
 
 Then, the door finally broke.
 
@@ -342,6 +342,8 @@ It approached me slowly and I felt its sharp claw slicing my leg while more bloo
   
 I woke up hours later in the hospital. The clean smell felt nauseating.
 
+And, yes, I was still blind.
+
 — So... you passed out — It was Dario. He sounded amused. — And you left a big mess, Jessica had to clean up after you, she is really pissed.
 
   
@@ -349,13 +351,18 @@ Fuck Jessica.
 
 — You won't believe me, but I had a really weird dream.
 
-— No, you didn't — Dario laughed — Oh, and I'm sorry for your face. At least you didn't lose your eyes. You have the rest of the week free to recover, I'll take care of it, don't worry.
+— No, you didn't — Dario laughed — Oh, and I'm sorry about your face. At least you didn't lose your eyes, not that it really matters anyway.
 
-I touched my face and immediately felt a sharp pain and soft fabric. My head was all bandaged. I remained silent and Dario left. Half an hour later a doctor came, he told me that I fainted when one of the dogs attacked me and that I might have a concussion from the fall, but I should be good to go if I didn't have any symptoms. 
+ I touched my face and immediately felt a sharp pain and soft fabric. My head was all bandaged.
 
-Walking hurt, so I took an Uber, went straight home and collapsed into bed. I woke up that afternoon with a call from my sister asking me how the job went. I was still sleepy, feeling like everything was a dream so I just told her it was fine and hung up. I smelled like vomit and that made me vomit again, so I took a shower before sleeping again. I regretted it, I had a nightmare with Jerry, looking at me with sad eyes, whimpering while the big dog ate his insides. Then, a little black dog tackled the beast and I woke up sweating.
+— Well, you have the rest of the week off. I'll take care of it, don't worry, Cassey. We'll talk later.
 
-The nightmare came back every night after that. I didn't know how I was supposed to go back to work in two days when I kept barely getting any sleep. My sister was against it due to my injuries, but I insisted, who else would hire a blind 36-year-old woman? Besides I really loved the dogs and was not going to resign just because a dog got violent and I had a few nightmares. I knew that could happen, it was a shelter for severely abused dogs after all.
+ I remained silent and Dario left. Half an hour later a doctor came, he told me that I fainted when one of the dogs attacked me and that I might have a concussion from the fall, but I should be good to go if I didn't have any symptoms. 
+
+Walking hurt, so I took an Uber, went straight home and collapsed into bed. I woke up that afternoon with a call from my sister asking me how the job went. I was still sleepy, feeling like everything was a dream so I just told her it was fine and hung up. I smelled like vomit and that made me vomit again, so I took a shower before going back to sleep. I regretted it, I had a nightmare with Jerry, looking at me with sad eyes, whimpering while the big dog ate his insides. Then, a little black dot consumed the beast and I woke up sweating.
+
+The nightmare came back almost every night after that. My sister said it was a trauma response from the attack and I should quit. I've thought about, I didn't know how I was supposed to go back to work in two days when I kept barely getting any sleep, but it was better than rotting in bed again. 
+She was against it due to my injuries, but I insisted, who else would hire a blind 36-year-old woman? Besides I really loved the dogs and was not going to resign just because one of them got violent and I had a few nightmares. I knew that could happen, it was a shelter for severely abused dogs after all.
 
 While I was having coffee listening to stories on YouTube, I started feeling dizzy and when I got up to get ibuprofen the doorbell rang. I went to open the door and Dario greeted me.
 
@@ -367,7 +374,7 @@ He pressed something fluffy against my chest.
 
 — Dario, what the hell? Take her back!
 
-Silence. Damn it. How do I explain this to my sister? Her lease doesn't allow dogs.
+Silence. Damn it. How do I explain this to my sister? Her lease doesn't allow pets.
 
 I took her inside with me. When my sister comes back we'll talk about what to do. 
 
@@ -375,7 +382,7 @@ Daisy barely moved in my arms and I sat on the sofa. I stroked her back while th
 
 — Are you comforting me? — I asked while scratching her head.
 
-She licked harder until I felt the bandages getting really wet. I put her down and cursed while going to the bathroom to change them.
+She licked harder until I felt the bandages getting wet and loosening. I put her down and cursed while going to the bathroom to change them.
 
 That's when I saw it.
 
