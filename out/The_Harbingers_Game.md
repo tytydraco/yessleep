@@ -1,0 +1,207 @@
+My sister Lily was an *iPad kid*—the very definition of one. She stayed up late until my parents confiscated it, which led to a thirty-minute tantrum. Still, since I grew up chronically online myself, I knew not to pick on her too badly.
+
+Then it got strange: she started talking to herself in her room. One time, as I walked past her door, I heard her voice speaking. I checked on her and asked who she was talking to, and she said nobody while coyly hiding her glowing tablet beneath the covers.
+
+I brushed it off. At that time, I kind of already knew what she was up to; I already hopped on voice chats before I was even of age to use any platform, but I just wasn’t sure if my hunch was right. Looking back at it now, she was better off talking to herself than what she was actually doing the whole time.
+
+One Sunday afternoon, my mother’s booming voice from out of the hall got closer and closer as she talked the ear out of the family portraits off the wall. "Lily, I am not telling you again! Give me the tablet!"
+
+"No! I have to finish! He's waiting!" Lily shrieked
+
+“You don’t know this person; they could be a grown man for all you know!”
+
+“Mom, Caleb is just my friend, he goes to school at St. Katherine’s; he’s not a man!” I heard the two just right outside my door, “We have to finish the game or we’ll get cursed!”
+
+“Enough!” Mom said, followed by a struggle and a slamming of a door.
+
+After I cancelled out the noise from the hall with my headphones on, Mom marched into my room, her face red with anger. A loud thud hit my desk as I jolted back, seeing the pink-cased tablet.
+
+"Hide this.  If I catch her on this again, so help me, I will ground you right along with her."
+
+"Fine, just leave it there," I muttered, barely looking up from my laptop.
+
+Once Mom left, I tossed the tablet into my closet on top of the rest of my clothes before I left the house to hang out with a couple of friends. I completely forgot about it, even as I got back home, cleaned up, and went to bed.
+
+*Thud!*
+
+Waking up, I began to stir as my eyes peered awake.
+
+*Thud!*
+
+I sat up, glancing around my dark room.
+
+*Thud!*
+
+The noise was coming from my closet; I switched on my bedside lamp as the amber light illuminated the dark edges of the room to a gentle glow. Walking cautiously, each step felt heavier than the last, until my hands wrapped around the handle.
+
+I pulled the wooden door back as it creaked open.
+
+Lily was crouched on the floor beneath my hanging clothes. She lay against the closet wall, her back bent at an unnatural angle. In her hands was the tablet; with its familiar screen no longer casting its usual soft blue light, yet instead, it blared in blood crimson. The red glare reflected on her pale skin in bloody hues.
+
+“Lily! What are you doing?!”
+
+She didn't look at me. Her eyes were fixed on nothing, as I watched her face wear a hollow expression, until I grabbed the tablet to toss it aside on the floor.
+
+Lily unhinged her jaw and let out a sound that struck straight into my eardrums. It was a high-pitched, ear-splitting screech—a guttural, frantic wail that vibrated from the walls of the closet, and out into the rest of the house.
+
+Heavy footsteps thundered down the hall. My bedroom door flew open, and Mom and Dad burst in, faces pale with panic.
+
+"What is going on!? Lily!" Mom cried.
+
+"She was in my closet! She stole the tablet back!" I yelled over Lily’s relentless screaming.
+
+Dad didn't ask questions; he scooped my sister in his arms as she kicked and thrashed uncontrollably; her limbs rigid, with each flail, he genuinely struggled to restrain her, which was never the case before during her tantrums. Lily’s eyes were still completely wide and unblinking.
+
+“Henry, she’s hurt,” Mom said, her voice trembling as she helped pin her arms as they dragged her out of my room and down the hall; the shrieks slowly fading, until muffled behind her closed bedroom door.
+
+I stepped back into my room, unable to fully process what had just happened. I looked down at my hands to see the trembling in my fingers. My gaze trailed from my palms and towards the red, glaring tablet on the floor. Grabbing it from the carpet, I tapped on the screen, exiting out of the application to close it.
+
+Before the screen went black, I caught the name of the game that appeared with the recent games she had been playing—*The Harbinger’s Game.*
+
+My parents didn’t let me go into her room to see how she was doing, but they told me Lily was *stable*. Mom was distraught as Dad spoke on the phone to get immediate help; I comforted her, and the whole time she spoke, taking the blame for something she didn’t understand;
+
+“We shouldn’t have made her so dependent on that thing; this is my fault.” She weeped,
+
+When the paramedics had arrived, Dad had me stay outside with Mom as we watched Lily be dragged out of the house in a stretcher; the red and blue lights of the ambulance caused some neighbors to leave their houses and see what the commotion was about, followed by a shocked expression when seeing the state of my sister being wheeled down the pavement.
+
+I walked towards the paramedics, but Dad stopped me from getting into the ambulance; I peered over his shoulder to see that Lily was lying flat on her back. Her eyes were stretched wide, staring at the overhead lights. The corneas of her eyes were webbed with red veins, as if the vessels had burst simultaneously. But at the edge of her eyes, silent tears pooled, rolling down into her ears, but she didn't blink.
+
+She hadn’t moved a single muscle.
+
+I felt the bottom of my stomach sink deeper as Dad turned around, noticing my distress. He placed a hand on my shoulder and guided me away from the ambulance. "Randy, you stay with your Grandma for now, okay? Your uncle will pick you up; he’s on his way, just pack up a few clothes."
+
+I didn't argue. I rushed back to my room to grab my bag and stuffed my things inside. I avoided looking at Lily’s room; the open door revealed a dark void. I felt nauseated the longer I stayed in the hall.
+
+When the ambulance left with my Mom and Dad, I stayed at the front porch, waiting for Uncle Wesley’s car. He drove me to Grandma’s house, but not without questions; he kept asking about what had happened to Lily, but I told him I was just as lost as he was, probably even my parents, too.
+
+I stayed in Grandma’s house after Uncle Wesley dropped me off; luckily, she lived near the school, so I could just walk in less than ten minutes to get there and back for school the next day. She was comforting, but stressful to be around when worried. She kept praying in the living room for Lily’s safety.
+
+I stayed in Dad’s old room when I got a call on my phone;
+
+"Dad?"
+
+"Randy. Hey. Look, the doctors aren't sure what's wrong. We're admitting Lily to the hospital temporarily. Just for some neurological tests... at least until she responds or blinks. Mom is staying with her."
+
+"Can you handle being home alone for a couple of days?”
+
+"Yeah," I said softly, swallowing the lump in my throat. "I'll be fine, Dad."
+
+“I know, we’ll be home soon.”
+
+I felt a bit… empty not being home; it had been two days since the dreaded night. Dad still called to update on how Lily was; she was in a catatonic state, but slowly she was gaining more movement; she seemed to have control over her eyes, glancing at Dad then at Mom as they spoke to her, but all she could do was watch.
+
+That gave me a bit of relief; progress was still progress, even if it was just a step forward after all.
+
+I spent the evening at James's to help get my mind off things. Grandma was okay with it, and I found myself back in his house after school. We had a regular sleepover; played video games, and had junk food, but as I watched him on his computer play Roblox, I was perplexed to say the least.
+
+His screen flashed red through the monitor as he was immersed in playing a game, except I didn’t see a game at all, just that same blood-crimson glare, reflecting on James’ skin. “What the hell are you doing?” I asked,
+
+“Don’t distract me, I can’t lose.” He replied,
+
+“Lose what? You’re looking at a red screen.”
+
+He didn’t speak before his body jolted, pressing rapidly against the keys and mouse, before jumping off his seat and cheering.
+
+“Take that, Harbinger! Fuck off!” He laughed,
+
+When he finally averted his gaze from the screen, he turned to me. James, probably realizing how crazy he looked from my reaction, walked towards me after shutting off his computer.
+
+“It’s a game, everyone is talking about it online; didn’t you see?” He asked,
+
+I shook my head.
+
+“Well, they say it’s cursed, but I don’t really know. I never lost in the game.”
+
+“Cursed how?” I asked,
+
+James was propped up on the bed, supporting himself by the elbow as he looked at me in my sleeping bag. “I heard some evil demon snatches up your soul, or you just get badly haunted forever.” He paused,
+
+“Come to think of it, I haven’t heard of anyone’s experience in failing, or what happens after.”
+
+I furrowed my brows as James lay back on his bed. Long after he fell asleep, I just lay there in the dark, staring up.
+
+I could almost hear my sister’s cries as I looked closer at the blank white paint, closer and closer as if my nosetip could touch the cold ceiling, as I breathed against the solid drywall. I feel it, I feel her within my skin, in my ear as she yelled out a piercing cry. I felt her within the bones of my chest, squeezing against my lungs as I felt trapped, moving against nothing but the wood on my back and the ceiling on my face—*I couldn’t breathe.*
+
+In a jolt, I sat up heaving, my chest felt constricted as my sight blurred in brimming tears. Through the unshed tears, I got back onto my feet as I collected my things to shove into my backpack, until I found myself by James’ bedroom window; he already sat up as I was about to leave.
+
+“Where are you going?” He asked,
+
+“Home.”
+
+James’ house wasn’t too far from where I lived—twenty minutes of a walk, but it wasn’t too long, and even if it was, I still would’ve. Nothing was going to stop me from going back.
+
+Although the house was locked, I got in through my window. I never locked my window, even if Mom and Dad always warned about intruders.
+
+The house felt too big, too empty. Restless, I walked from my room and down the hall to Lily's room. The same crippling feeling crept back up again, yet it didn’t stop me anymore. The door was ajar, and inside, the room was a mess; the exact mess my parents had left it; sheets were tangled on the floor, stuffed animals were overturned, her table lamp was on the carpet, still plugged.
+
+I stepped inside to straighten up her bed, fixing it like I used to for her crib. Re-aligning her stuffed animals and her favorite plush doll, but upon reaching down to pick up her favorite pillow.
+
+My breath hitched.
+
+In the center of the white pillowcase was a dark, dried, rust-colored stain. It wasn't a random smudge. It was a halo of dried blood, from nowhere else but Lily’s head.
+
+I felt like I was about to puke. I dropped the pillow, stumbled backward out of the room, and slammed the door shut. I locked myself in my own bedroom, pressing my back against the door with a defeated sob; the suffocating quiet of the house pounded in my ears.
+
+After calming down, I walked up to my bed, still feeling the subtle hammering inside my ribs, and sat on the edge. There, resting on my nightstand, was Lily’s tablet. I reached out and pulled it into my lap. My fingers were grazing across the butterfly stickers on the cover, the pictures of cartoon kittens on clouds.
+
+All I could think about was how she was just a girl, a little girl. With a voice no one could hear anymore. Her thoughts and unspoken words were trapped inside the recesses of her mind—confused, scared, and alone.
+
+I opened the tablet to be met with the soft default hues of its’ blue light. My fingers hovered over the screen, tapping through, until I opened the app, where I could see, still within her recent games, *The Harbinger’s Obby.*
+
+I pressed play.
+
+The screen immediately went pitch black, before bleeding into a deep, violent crimson, familiar but no longer empty as I once had seen it to be.
+
+Heavy, black block letters materialized in the center of the screen:
+
+**DO YOU WANT TO PLAY?**
+
+**\[YES\]** / **\[NO\]**
+
+My finger hovered over the glass. And without a single doubt, I pressed;
+
+**\[YES\]**.
+
+The screen flashed, and Lily’s avatar appeared at the starting line of a massive obstacle course. The skybox was a void of endless red, and beneath the floating platforms was a sea of blood-red fog, where the bottom meets no end.
+
+I didn't waste time. My thumb dragged through the digital joystick and ran. I jumped over spinning neon hurdles. I timed my leaps perfectly across floating, shifting spheres, and I didn't look back.
+
+I didn't stop.
+
+Every time Lily’s avatar successfully cleared a gap, I felt a desperate surge of hope.
+
+*I can do this. I’m going to save her.*
+
+I reached the final stretch. It was a corridor of floating, spinning hoops. I just had to guide her avatar through the center without touching the spiked edges.
+
+Suddenly, the frame rate dropped. The tablet began to lag violently.
+
+"No, no, no," I muttered, my thumbs sweating against the glass.
+
+The air in my bedroom grew instantly thick, as my peripheral vision had gone pitch black. The temperature plummeted, as the walls felt like they were closing in, squeezing the oxygen out of the room. A terrible, familiar sound began to bleed from the tablet's speakers—it was Lily's high-pitched, agonizing scream from three nights, looping over and over again in a robotic cry.
+
+Lag—the avatar froze mid-air.
+
+"Move, damn it!" I yelled, tears stinging my eyes.
+
+The game jumped forward three frames as the avatar drifted through the first hoop, before gliding through the second. I adjusted the joystick, trying to time the final leap despite the stuttering screen.
+
+Finally, the avatar passed through the last hoop, its foot *almost* clipping the edge of the frame. The screen flashed a blinding deep blue, as a single text box popped up:
+
+**GAME OVER**.
+
+I let out a sigh of relief as I fell back onto the bed with a toothy grin. I watched Lily’s avatar stand at the finish line, face towards me, jumping on its own before waving goodbye.
+
+The game closed, and I was back on the homepage. The tablet fell to my side as I stared up at the ceiling once more, with the fading grin, I smiled. I felt the triumph pulse through my veins, taking me back to how James practically jumped off his seat in excitement.
+
+I woke up to my alarm, before checking the phone inside my pocket, I groaned, feeling my bones settle in as I sat up to stretch. I gave my phone a quick swipe, checking the notifications, only to see Dad had texted.
+
+“We’re coming home.” His message read as I played the video of Lily sitting up on the bed, having her breakfast on a tray. I laughed; hearing her complain about the bland hospital food, her voice felt comforting for once, but I swore then I’d never complain about her whining again.
+
+I closed my phone, seeing dawn peek through the window’s blinds. The light of the rising sun touched the tablet sitting on my bed, reflecting against the stickers.
+
+I thought from then on everything would be okay again, that it would all be back to normal, and it felt euphoric at that time, but the ringing in my ear was still there, and so was the *urge*. My hand held the tablet to feel its edges, as my fingers grazed across the screen—I had to do it again.
+
+I had to play;
+
+***The Harbinger’s Game***
