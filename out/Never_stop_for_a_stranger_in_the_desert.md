@@ -1,0 +1,66 @@
+I shouldn’t have been driving so late at night, but my usual three and half hour trip took almost six hours with the amount of traffic and the flat tire I had to change on the way. 
+
+When I saw the sign for Calexico, I gave a sigh of relief. My eyes begged for me to sleep, but we only had 30 more miles to go. So I turned towards the CA-98 and continued my mandatory karaoke session so I wouldn’t fall asleep.
+
+There wasn’t much to see around, just the never ending desert, dead plants, and the gas station that gave me the creeps. But that’s a story for another day.
+
+Just a few miles away from the gas station, there stood a boy whose eyes I could have sworn reflected with my beam lights. He didn’t wave or move, he just stood there, looking miserable.
+
+People of the Imperial Valley are always told never to pick up a stranger off the desert. Many coyotes, or smugglers, will use the people to lure you in and in the best case scenario, only your car gets stolen. Worst case scenario, you may never be found again.
+
+But I couldn’t leave a child out there in the middle of the desert. The thermostat read at 102 and the closest place was the creepy gas station, which was now at least five miles away. I had no phone signal, which was the norm in this area, so I couldn’t call the cops either.
+
+So against my better judgment, I stopped. I backed slowly, making sure to not hit the boy and that no other car was coming. I grabbed the pocket knife my husband always made me carry and a small pepper spray. I didn’t think they could do much against a gun, but better than nothing.
+
+I looked around, making sure no one would surprise attack me, but as I approached the boy, my focus went completely to him.
+
+He held on to his bleeding arm and very silently whimpered. He kept his eyes down as I approached.
+
+“Hey, are you ok?” I said as softly as possible.
+
+The boy finally looked up, his stare made me feel uncomfortable. I shuddered despite the heat. It probably was the lack of sleep, but it felt as if a predator was looking down to their prey. 
+
+He grabbed onto my hand, and started to drag me into the desert. His grip was surprisingly strong for what looked to be a malnourished and hurt boy.
+
+“Stop! Where are you taking me? Are your mom or dad nearby? Do they need help?” I was starting to panic, going into the desert could be dangerous.
+
+The boy stopped for a moment, as if thinking, turned to me and nodded.
+
+“Are they nearby? If not, we can first head to town and call the cops and an ambulance, they might be able to help more,” I suggested as the boy tried to drag me again.
+
+His grip became stronger, much too strong. But he nodded and pointed towards some bushes. His urgency made me think maybe his whole family was injured. But as his nails dug into my skin, I flinched.
+
+That’s when I noticed his abnormally long nails. And the deep scratch mark he left behind as I pulled my arm away. I grabbed my phone from my pocket to look at the damage that had been caused. 
+
+He flinched as I turned on the light and for a second, I saw little dots coming from the bushes the boy had pointed to. 
+
+I wasn’t sure if those were the eyes of coyotes, foxes, or even a bobcat, but I wasn’t about to stay and figure it out. All I knew was that his family was probably dead and we had to get the hell out of there.
+
+But as I tried to grab the boy once more, he bit me hard. I screamed as he dug his teeth deeper into my skin. I started to hit him hard but he wouldn’t let go. By the bushes, I could hear several growls, and was the boy growling too?
+
+I didn’t want to lose my arm, but I also didn't want to use a knife against a child. So I took out my pepper spray and aimed at his face. As soon as the spray hit, he whimpered and finally let go.
+
+As he rubbed his eyes, I made a run for it. My car was still at a visible distance. But the footsteps behind me threatened to get to me before I could reach the car.
+
+I have never been a runner, and now I cursed at myself for it. I could hear the breath of whatever was chasing behind me. I wasn’t going to make it to the car.
+
+I felt something bite on my right thigh. I yelped in pain but quickly grabbed my knife and swung it at the creature.
+
+It whimpered as the knife connected with skin. It momentarily let go, allowing me to finally get to my car. I made sure the doors before taking a glimpse of what had been following me.
+
+Outside the car, several coyotes stared back at me. The boy was nowhere to be seen.
+
+Without a second thought, I drove off.
+
+I drove myself to my parents house and they immediately took me to the hospital. I got several stitches on my arm and leg, and some rather painful rabies vaccines, but besides some scars, I made a full recovery.
+
+I told the nurses and the cops about the boy, even if I thought the coyotes might have already gotten to him. I was scolded by both for going into the desert and said I was lucky to tell my story.
+
+The cops went to look for the boy either way. They didn’t find him, instead they found the body of a young woman who was still being torn apart by hungry coyotes. When the pictures of the location showed up in the news, I immediately recognized that as the spot I had been attacked.
+
+I thought the story would be of a woman killed by coyotes. Instead, they said she was probably murdered by smugglers and her body was left there. Eventually, the coyotes got to it and made dinner of it. 
+
+I don’t believe that.
+
+But the report ended with the same warning we had all heard growing up, never stop in the desert for a stranger.
+

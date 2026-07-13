@@ -53,7 +53,7 @@ My hand stilled, that was one of the factors that I hadn’t completely mulled o
 
 They had been supportive and told me that they were proud of me, and I found that I was happy about it all. Packing and moving took a lot less time that I had expected. I managed to pack everything in a week, my whole life sealed up tidily in a week of packing.
 
-~~Saul, or should I say,~~ Mr.Neman had sent over a welcome package via email. That had detailed out a list of specifics that I was to follow. Along with rules, that was typical of any job, there were always going to be rules that they wanted you to follow.
+Mr.Neman had sent over a welcome package via email. That had detailed out a list of specifics that I was to follow. Along with rules, that was typical of any job, there were always going to be rules that they wanted you to follow.
 
 But these were on a different level of '*odd*.' These are the rules as listed to me:
 
@@ -62,8 +62,6 @@ But these were on a different level of '*odd*.' These are the rules as listed to
 3. Always keep the key ring on your person as you move about the motel. It’s best if they are kept on silver chain and either tucked into your pocket and fastened to a belt loop. If you’ve choose to wear a skirt or a dress for the day, they should be attached to a silver ring that can be worn as a bracelet.
 4. The Motel \*\*\*\* has a long history of a mascot. The current mascot for the hotel is Graham Cracker, a Great Dane. She has been trained to accompany you throughout the hotel. Please make sure that you have treats on your personage for her. (*These treats are provided by the Motel.*)
 5. Do not accept gifts from the guest. Under any circumstances!
-
-6. Remember to promptly shut the doors of reception at 9 pm. They are to be opened promptly at 8 am. (*Monday-Friday*) No guest should be allowed entrance after close or before opening to check into the Motel. 
 
 I had looked them over multiple times, both when I had first gotten the email and then throughout the flights. I tried to find some reason for them. I understood the specific check in times, and stay on schedule. Along with the other nuanced rule about keeping Graham Cracker happy and accompanying me. That was not a problem, I loved dogs and the fact that I was to be accompanied by one was a bonus.
 

@@ -112,7 +112,7 @@ I fell out of bed still screaming. There was an intense ringing in my ears that 
 
 I couldn’t get off the floor but I didn’t care. I just laid there for a few minutes but it felt like hours to me. I began crying thinking about what my life has become. I don’t know what I did to deserve everything being the way it was. I have been depressed my whole life and not even a couple weeks ago I thought I finally found purpose, a reason to live. But that got taken from me in the most brutal way i could ever imagine.
 
-I felt like a living black hole. I hurt everyone close to me. I would have to move back in with my parents soon, my friends didn’t want to see me and my girlfriend died right next to me.
+I felt like a living black hole. I hurt everyone close to me.
 
 But despite all of that I was afraid of going back to sleep now, I didn’t want to relive anymore of my nightmares but I knew I would have to sleep again eventually.
 
@@ -126,9 +126,9 @@ Around 11 pm my phone rang. I checked to see who it was. It was one of my old fr
 
 “That’s good to hear man, I heard about what happened with Linda and your condition. Do you want me to come over? I can keep you company for as long as you need”
 
-A smile formed on my face. I was about to say ‘yes that would be great’ but something in my gut stopped me. I couldn’t say it. I didn’t want to burden anyone else with my life and my problems. He went through enough with me and I didn’t want to stress him out anymore.
+A smile formed on my face. I was about to say ‘yes that would be great’ but something in my gut stopped me. I couldn’t say it. I didn’t want to stress anyone else with my life and my problems. He went through enough with me and I didn’t want to stress him out anymore.
 
-Looking back this was my biggest regret. He could have helped me but I refused it out of my pure self hatred. You’re mind works is weird ways when you are depressed beyond repair, so I said what I thought was best to say at the time.
+You’re mind works is weird ways when you are depressed, so I said what I thought was best to say at the time.
 
 “No. No im fine. Thank you though, I really appreciate the offer”
 
@@ -141,8 +141,6 @@ I spent the next 2 days laying in the same spot I woke up in without a minute of
 My recent dream made me think about Jackson again. He had been my best friend since we were 12 but eventually he stopped talking to me. A year after we graduated I became a shell of my former self and he slowly started to resent me for bringing him down with me. I don’t blame him for doing what he did. I missed him, and I wish he was around, but I understand why he wouldn’t want to see me anymore.
 
 I thought about the party we went to. The more I thought about it the more I forgot. I couldn’t remember what happened that night. The only memory I had of it was what I had just experienced in my lucid dream.
-
-I could have relived the entire day from beginning to end just a couple of days ago but after my dream, that was the only version I could remember. At first I tried to brush it off but I kept finding myself trying to think about it. The memory started to fade away the more I tried.
 
 I don’t know what I saw in the field but I couldn’t stop thinking about it. The way it stood completely still just looking at me. I was terrified of going to sleep again. But eventually I had to.
 
@@ -240,7 +238,7 @@ I was filled with so many different emotions at once that I didn’t know how to
 
 “Is it really you?” my voice sounding a little more coherent this time.
 
-She gave me a weak smile and wrapped her arms around me. With the way she was holding me it made it impossible to suppress my emotions and I bawled like a baby. I missed her so much, and I found myself not wanting to leave this place.
+She gave me a weak smile and wrapped her arms around me. With the way she was holding me it made it impossible to suppress my emotions and I bawled. I missed her, and I found myself not wanting to leave this place.
 
 “You’re going to be okay” she said to me in her familiar comforting tone.
 
