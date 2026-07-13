@@ -1,0 +1,219 @@
+"Come on, man!"
+
+I heard him. But the shovel hit caliche two feet down. The shock ran up through my wrists into my shoulders. Somewhere behind me, on the other side of the car, a semi blasted past on I-15 and its headlights swept the desert floor in a pale arc that made the desert bushes look like crouching, shadow men.
+
+"Deeper," he said. "You're not even close."
+
+His voice came from the passenger seat, where I'd left the window cracked. Even from forty feet away and muffled by the car door, the voice carried—high and reedy and precise, the way it always was when he was giving instructions. Always telling me what to do. I could picture him in there, slumped against the headrest at the angle I'd left him, his painted mouth frozen in that permanent grin, his glass eyes catching the dashboard glow. Just wood and fabric and a hinged jaw and two glass marbles for eyes.
+
+Just a thing I'd found in a bathroom ceiling in Prague, in a box that smelled like church basements and old paper. Just a puppet. Except he wasn't just anything. He hadn't been just anything since the moment I put my hand inside him. That's when it all changed.
+
+Maura was in the trunk. 
+
+A hundred and twelve pounds of bone and freckled skin wrapped in the shower curtain she'd picked out herself at Target three months ago. The one with the little blue moons. She loved astrology. Planets. Moons. As the dim moon shone down as I dug I thought about how she’d have hated the irony. She would have hated all of this. But she wasn't in a position to hate anything anymore. But what am I supposed to do?
+
+I drove the shovel into sandy dirt again. The desert doesn't want your dead. It resists. Every documentary and mob movie makes it look like you just pull off the highway and start digging, but Interstate 15 has been expanded into a four-lane superhighway now, a main artery of black asphalt connecting LA and Vegas, and millions of cars use it every day. You can't just ease off the shoulder and start turning soil. You need to drive, find a wash, get behind a ridge. Even then the ground is rock and calcium and the roots of things that have been surviving out here for a thousand years. As hard as the sandy dirt was, is how easy I had fell into the compulsion of him on my hand. 
+
+"I think she'd like this spot," he called from the car, and I could hear him smiling and chattering—not in the voice but in the implication of it, the way someone grins while delivering bad news.
+
+"I think further up, closer to that formation, would be better," I said.
+
+"People like to hike to formations. They start creeping around, then BAM—here's Maura sticking out of the ground. Think, man.”
+
+He made good logical sense. He usually did, which was the problem. And he was an asshole about it. If he were stupid, if he were just some dumb novelty prop, I could have thrown him in a dumpster a long time ago. But he thinks. He plans. He has preferences in food and women and burial sites. And the moment I try to leave him—the moment I even think about putting him in a closet and walking away—my hand starts shaking. Not a tremor. A need. A gravitational draw so deep it feels like it lives in my bones. And feeling that felling, of being sucked in, burrows so far in my brain that I give in. I bring him back in. I invite. And then I’m cooked. I’m caged. My hand now *His.* It was like disassociation, but with a warm bath sensation instead of dislocation.
+
+I swung the shovel until my back screamed and my hands bled through the gardening gloves I'd bought at the gas station in Primm. Somewhere in the black sky above me, a bat cut through the warm thermals. The moon was a sliver, which he'd planned for. He'd had me check the lunar calendar on my phone while I slept—I'd woken to find the app open, the screen still warm.
+
+It took over an hour, but I got her in the hole and smoothed over all the dirt and sand as best I could. My shirt was soaked through. My hands were shaking. Not from the cold—it was still ninety degrees at midnight—but from something else. Some last tremor of the man I used to be, the one who sat in a restaurant in Prague two years ago with dumpling broth on his chin, in love with a woman who chewed with her mouth open.
+
+"Let's go," he said from the car. "We'll miss the undercard.” Then…more chattering. Wood on wood. I hated that sound.
+
+We had a bet between us on the title bout. I win, he lets me get a girl for the night. He wins, we go to In-N-Out.
+
+I brushed the sand off my knees and walked back to the car. He was right where I'd left him—his painted smile catching the interior light. His neck rigid. His eyes glass and vacant. I buckled my seatbelt and put my right hand inside him the way you'd put on a glove, and I felt it immediately: like the hair being plucked out and the follicle scraped off the end. The task now complete. My whole body relaxed. The dig, I told myself, was now worth it.
+
+“That a boy.”
+
+I pulled onto I-15 heading north toward the lights and tried to remember the last time I made a decision that was entirely my own. But let's go back to when this started. In Prague.
+
+PART 1
+
+A year earlier --
+
+"Who knew?" she said, and a dumpling slipped from her chopsticks and splashed back into the broth. Charlotte had a habit of talking with her mouth full. I'd noticed it in New York when we first had dinner and thought it was cute. She had all different kinds of things I found attractive. Other things, less so. Her mole being the most obvious, although she hated it and always talked about getting it removed. It sat square in the middle of her thigh, black—sometimes hairy—and raised like a topographical map. It was quite scary in certain light, but her good looks more than made up for it. More uptight men she'd dated didn't like it, but she shrugged them off and felt like it was right that I didn't mind. That was the beginning of us.
+
+Now, years into our relationship, I'll be truthful: the chewing and talking had started to grate. But at that moment the soup dumplings were too good for me to care if she was gargling while she spoke. I didn't look up once as I devoured my meal.
+
+"I know. Mmm. And imagine if we'd gone to the place your brother suggested," I said.
+
+"Steve, you know he knows this city like the back of his hand."
+
+Charlotte's brother, Preston, knew nothing. And was a zero. The guy thinks he's the head honcho of the entire city because he backpacked here in college. Like, once.
+
+I wiped down the broth left in my bowl using a piece of table bread like a sponge. Around us the restaurant hummed—a cavernous cellar spot in Malá Strana, stone arches, candles in wine bottles, the kind of place tourists never find because the sign is in Czech and the door looks like a maintenance entrance.
+
+"This is the best moment of the trip. Right now. This instant," Charlotte proclaimed.
+
+She wanted to connect. I could feel her reaching across the table with something more than words. But I was so full and half-drunk on Moravian wine that all I could think about was making room. I shifted, trying to placate but also get comfortable—
+
+"I know. It's great. I have to use the bathroom."
+
+Moment ruined. But it wasn't my moment, and I couldn't wait to take a piss and give my large intestine some breathing room.
+
+I started sitting down to pee when I met Charlotte. She said bathrooms are gross and men are the reason. I really can't argue with that, but it was definitely a stalemate at first as to who would win. To sit or not to sit—a source of contention for a month or so until, like most men, I caved. Maybe it's that I just got used to it, but I actually like sitting to pee these days. I feel like I'm giving myself a moment to think. Even just for an instant.
+
+Goddamn Czech bathrooms. This one was down a flight of stone stairs, through a door that didn't quite close, into a room that smelled like centuries of beer and lime. Low ceiling. One flickering bulb. A toilet and a sink and a mirror so old the silver had gone black around the edges. I sat down, exhaled, still reeling from the divine bowl of dumplings that had somehow made their godly way into my mouth.
+
+Then I saw it.
+
+The ceiling panel above me was slightly ajar—one of those old cardboard-like rectangle tiles, warped with age, a wet spot on one corner, pushed up a few inches out of its grid. It caught my eye because of the angle: tilted just enough to create a gap of shadow, and in that shadow, something that wasn't shadow. A shape. A corner. Something boxed and deliberate in a space that should have held nothing but dust and dead spiders. It looked like an old, wood box.
+
+I'm not the kind of person who reaches into strange ceiling panels in foreign bathrooms. I want that on the record. I'm a systems guy. I was a project manager for a construction firm. I assess risk. I follow protocol. I do not, as a rule, stand on toilets in Prague and rummage up in crawl spaces.
+
+But I did.
+
+The box was in fact wooden—dark, almost black, about the size of a shoebox but deeper. No markings. No labels. Old. The wood was smooth in a way that suggested centuries of handling, like a church pew or a banister in a very old house. It smelled like a damp, foul basement rug. Rank, organic and sharp. It smelled like the past.
+
+I opened it.
+
+He was inside, folded neatly, his limbs arranged with care. Almost tender. He was a ventriloquist's dummy, maybe sixteen inches tall. Painted wooden head, glass eyes—brown, weirdly warm—a hinged jaw with tiny carved teeth, and a body made of dark fabric stretched over a wooden frame. He wore a miniature suit, brownish-gray, with a white shirt and a thin black tie. The tie had tiny apple pies on them. The stitching was immaculate. Intentional.
+
+His face was the thing though. It glared back at me. Dead eyes, but somehow not. I've seen ventriloquist dummies before—everyone has—and they're usually grotesque in that uncanny-valley way, all exaggerated features and dead eyes. This one was different. His face was almost handsome, in a sharp, angular way. High cheekbones carved into the wood. A thin nose. That permanent grin, but rendered with enough subtlety that in certain light it looked less like a smile and more like the expression of someone who knows something you don’t. And I liked him.
+
+I should have put him back. I should have closed the box, replaced the ceiling tile, washed my hands, and gone back to my wife and my dumplings and my life. That's what a rational person would have done.
+
+I put my hand inside him.
+
+The moment my fingers slid into the control mechanism—a wooden crossbar inside the body cavity, worn smooth, with finger grips for the jaw and the head—something happened. Not dramatic. Not a jolt of electricity or a flash of light. Just a feeling. A warmth.  It started in my fingertips and moved up through my wrist and forearm and settled somewhere in my chest. I felt held.
+
+Like my hand had found the place it was always supposed to be. That's why I took it. Not curiosity. Not theft. 
+
+The warmth of being held.
+
+I closed the box, tucked it under my arm, and walked back to the table. Charlotte had ordered dessert—a tart she was already halfway through, powdered sugar on her lip.
+
+"You were in there forever," she said. "You okay?"
+
+"Bad wine," I said. "Hit me all at once."
+
+"What's that?" She nodded at the box.
+
+"Found it in the bathroom. Some kind of antique, I think. Might be worth something.”
+
+“What if it’s the owner’s or— You can’t just take it.”
+
+“It’s mine, alright?”
+
+Charlotte wrinkled her nose but didn't push it. She was good at that—filing away the inconvenient things about me into a drawer she rarely opened. But even I noted my own tone. But looking back I realize now he had his hooks on me already. 
+
+That night, in the hotel room, after Charlotte fell asleep, I got up. I felt something.  I felt a weird desire to go into the bathroom. To be alone. I went and sat on the edge of the bathtub and opened the box again. I put my hand inside him and worked the jaw. It opened and closed with a soft wooden click. The glass eyes caught the bathroom light and for a moment—just a moment—I thought they moved. Tracked me. But maybe that was the wine?  But then it happened.
+
+Then he spoke.
+
+Not through me. Not in the way ventriloquism works, where the performer provides the voice. This was different. The jaw opened and a sound came out—from him, from the wood and the hinge and whatever was inside—a low, dry whisper, like someone speaking through a wall:
+
+"Hungry."
+
+I yanked my hand out so fast I knocked the box off the edge of the tub. It clattered on the tile. Charlotte stirred in the bedroom but didn't wake. I sat there, my hand tingling, my heart pounding through my chest, staring at the puppet lying face-up. Jaw still open, that grin pointed at the ceiling. What the fuck am I doing, I thought.
+
+I should have left him there. I should have dropped him in the river on the walk back from dinner the next night. I should have tossed him out of the room. I should of done a hundred things.
+
+But I put my hand back inside him. And the feeling came again. My eye lids clenched. I was whole once more. He closed his jaw and was quiet, and I sat there for a long time, feeling something I hadn't felt in years.
+
+I felt him. He felt me.
+
+The rest of Prague was a performance. I carried Him everywhere—in my backpack, tucked behind my laptop, always within arm's reach. Charlotte noticed but didn't say much. She thought it was a souvenir. A quirky find. "You and your projects," she said, the way she always did when I latched onto something new.
+
+He spoke twice more in Prague. Both times at night, both times with my hand inside him, both times the same word: "Hungry." But on the flight home, somewhere over the Atlantic, while Charlotte slept with her head on my shoulder, I felt a new sensation. Not the warmth this time—a tugging. A physical twitch in my right hand, like a cramp that radiated up into my elbow. I looked down at the backpack under the seat in front of me and understood, with a clarity that frightened me, that he wanted to be held.
+
+I unzipped the bag under the pretense of getting my headphones. My hand found the box, found the lid, found him inside. The moment my fingers slid in, the cramp vanished. Replaced by the  peace. By the feeling. By Him enveloping me. I could kill anyone or anything that’d take this feeling away. That I know.
+
+The woman across the aisle glanced over and saw me with my hand in a backpack, my eyes closed, a faint smile on my face. She looked away quickly. I didn't care.
+
+By the time we landed at McCarran, I had made two decisions. The first was to find out what He was. The second was to tell no one. Not Charlotte. Not anyone. Whatever this thing was, I would manage it. I was a rational man with a rational problem.
+
+I was wrong about all of it. Because He was hungry. And the first thing to go was sleep.
+
+He was loudest at night. His voice never rose above that dry whisper—but loud in persistence. Three a.m., four a.m., that dead hour when the house is at its most silent: "Hungry." Over and over. A metronome of need. I'd lie in bed next to Charlotte, my right hand twitching on the mattress, the tractor beam radiating from the closet where I kept the box, and I'd resist for as long as I could before getting up and going to him. Then he said something new. 
+
+“*Now.*”
+
+The feedings started small. I'd bring whatever was in the fridge—leftover Chinese, a slice of cold pizza, an apple. I'd put my hand inside him and hold the food near his mouth, and nothing would happen. The jaw wouldn't move. The glass eyes would stare. And the hunger—his hunger, which I could feel in my own gut when I was connected to him, a cavernous emptiness that had nothing to do with my own body—would intensify.
+
+Then one night I opened the container of duck confit Charlotte had brought home from the French place downtown—the restaurant where the chef had trained under someone who'd worked at Noma. The good stuff. And the moment I held it near his mouth, the jaw snapped open and shut so fast I barely registered it. The piece of duck was gone. Pulled inside. Those tiny carved teeth, into whatever darkness lived behind them. And there was deep, warm, animal satisfaction. I felt it too. But it got less and less with the food in my kitchen. Then He just flat our rejected the food. I asked why. Over and over. Pangs hit me like a log over the head. I begged to talk. then—
+
+“*Different*.”
+
+I didn’t know exactly what that meant. But I figured he might mean “better.” And I was right.  He wanted fine dining. Only fine dining.
+
+After a week I started sleeping in the guest room. Charlotte asked why, and I told her my back was bothering me. She bought it, or she didn't, but she let it go. After two weeks the need to connect with Him started during the day—in meetings, in the car, at the grocery store. My right hand would cramp and flex, and I'd have to grip something—a steering wheel, a pen, the edge of a desk—to keep from reaching for him. I started keeping him in my work bag instead of the closet. Closer. Always closer.
+
+I told Charlotte I'd started seeing a therapist. A puppet helped me process my emotions.
+
+This was the cover. It came to me fully formed, like something he'd planted: "My therapist says I should explore my subconscious. Something that lets me access feelings I've been repressing." Charlotte ate it up. She was a believer in therapy—had been in and out of it since college—and the idea that her emotionally guarded husband was finally doing the work was, to her, a breakthrough. She even bragged about it to her friends. "Steve's seeing someone. He's really opening up.” I wasn't opening up. I was locked in. 
+
+The puppet sat in the guest room now, on a shelf I'd cleared for him, and at night I'd sit in the armchair with my hand inside him and feed him whatever I could source from restaurants and specialty shops. He'd eat and I'd feel the satisfaction flood through me and we'd talk. Not in words at first—more in impressions, flashes of want and approval and displeasure that arrived in my mind like someone else's thoughts. But the words came soon enough.
+
+"Better," he said one night, after a piece of foie gras from a new bistro on Sahara. His voice had changed—less of a whisper now, more of a voice. Dry, precise, with a faint whistle. Like the voice had been in storage as long as the puppet. Or was wet with perspiration.
+
+“Better than last," he continued. “*Good boyo*.”
+
+And the terrifying part—the part I couldn't say out loud, even to myself—was that he was right. The sear had been uneven last time. I'd noticed it too but hadn't had the vocabulary to articulate it. He gave me that. He gave me a language for taste, for quality, for the precise gradations of excellence that separate good food from great food. Through him, I was becoming a connoisseur. Through him, I was becoming someone else. And then she noticed Him.
+
+Charlotte found me in the kitchen at 2 a.m. on a Tuesday.
+
+She'd come home early from her sister's and found me standing in the dark with a plate of paella from a dinner party we'd hosted the weekend before. He was on my right hand. His jaw was working a piece of shrimp. The only light was from the refrigerator, still open, painting everything in pale blue.
+
+She turned on the overhead and we looked at each other.
+
+"What are you doing?"
+
+"Feeding him."
+
+I said it without thinking—the truth, unfiltered. As of now the barrier between my thoughts and his directives had become nothing. Charlotte's face changed. The look of someone who has been suspecting something terrible and has just had it confirmed. I was alone, in the kitchen, no lights on, feeding a puppet. And I could hear his thoughts and him mine. And I was so fucking content.
+
+"Steve. What is this?”
+
+"Dr. Raines says it's part of the process." The lie came smooth and automatic. "It's an externalization technique. I’m aware it’s…alternative. But it’s working.”
+
+"You don't see a Dr. Raines. I called. He's never heard of you."
+
+Silence. The refrigerator hummed. On my hand, I felt him go still—not dormant, but watchful. Waiting.
+
+"You're feeding a puppet.”
+
+I hold her eyes, trying not to blink.
+
+“He’s really helping. I…want you to try him too.”
+
+I reach my hand out. She stares at it.
+
+“I’m gonna stay at my Mom’s," Charlotte said. “I think we need space."
+
+"I'm fine."
+
+"You're not fine, Steve. You haven't been fine since forever."
+
+She was right. But how do you tell the woman you love that a puppet you found in a bathroom ceiling has a voice and an appetite and a hold on you stronger than a pulsar wave? You don't. 
+
+The papers were filed three weeks later. 
+
+Charlotte was cold from there on out. She kept the apartment but gave me the car. She didn't ask for alimony. She just wanted out—away from whatever I'd become—and I couldn't blame her for that. He was upset though. He said things I didn’t want to hear. He said things I would never repeat.
+
+“*Eat her*.”
+
+I saw a real doctor. A psychiatrist this time, at the university hospital. Dr. Linden. She was sharp and patient and asked all the right questions. I told her most of the truth—the puppet, the way it felt, the voice—but framed it as a nervous tick. I used to my hair out as a kid when I watched cartoons after school. I’d finish He-Man and look down- my T-shirt covered in single strands of hair. Then I’d inspect the gooey follicle at the end of each, scraping them clean like it fixed something. It was a task complete. This mindless tugging until I had a bald spot. Same thing here, I told him. An attachment disorder, something with a clinical name and a treatment plan would be great. She nodded and took notes.  She then suggested I try putting the puppet in a locked closet for one week and see how I felt.
+
+I lasted eleven hours.
+
+By hour four, my right hand was cramping. By hour eight, I was sweating through my shirt, pacing the apartment, feeling nauseous. By hour eleven, I was on the floor of the closet with my hand inside him, sobbing with relief, his jaw clicking softly against my palm, his voice in the dark:
+
+"*Don't do that again, boyo.*”
+
+I didn't go back to Dr. Linden. Charlotte moved in with her mother. I sat in the apartment surrounded by the ghost-outlines of removed furniture, the puppet on my hand, and felt the satisfaction of his fullness and the emptiness of everything else. It was a kind of equilibrium. It was neutral bouyancy. Scuba divers strive for this on dives, constantly adjusting their air. But they all know the reality- it’s temporary. And eventurally you run out of air.
+
+He had wanted this. He had wanted her gone. I was sure of it. And now He had me all to himself.
+
+*“We make good now, boyo.”*
+
+END PART 1

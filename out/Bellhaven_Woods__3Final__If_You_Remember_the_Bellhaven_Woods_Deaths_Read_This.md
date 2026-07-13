@@ -484,7 +484,7 @@ I went back toward the gate and Summer caught my arm. She had come through while
 
 "She's–" I tried.
 
-"What I saw in the trees. What was there." Summer paused. "It was not something that was going to let you follow her. If you’d gone after her, you wouldn’t have come back out. Either because of whatever’s inside her, or because of it.” She held my arm. "I need you to listen to me."
+"The people I saw in the trees. What was there." Summer paused. "…If you’d gone after her, you wouldn’t have come back out. Either because of whatever’s inside her, or because of them.” She held my arm. "I need you to listen to me."
 
 I listened. I did not go back through the gate.
 
