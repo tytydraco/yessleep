@@ -399,3 +399,5 @@ Down here, nothing was simple. It was just one endlessly boiling pot of filth an
 It was all broken, and the only way to fix it was to leave it behind and start over somewhere new.
 
 It was just a shame that I realized all of that too late. Also a shame that by then, the bologna was warm.
+
+[{Next Part}](https://www.reddit.com/r/nosleep/s/f9qRZ5TYHK)
