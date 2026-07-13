@@ -1,0 +1,87 @@
+I wasn’t planning on posting any of this online.  
+But after reading what was inside that box, I don’t think I can keep it to myself anymore.  
+I am writing this from the basement of my parents’ house.  
+In front of me sits a heavy metal container my grandfather buried beneath the old garage in 1989.  
+When I was a child, he only ever said one thing about it.  
+“Don’t touch it. It’s not a toy.”  
+Today, I opened it.  
+Inside were several old *Amfibia* mechanical watches, a weathered notebook wrapped in oilcloth, and a handful of faded photographs.  
+One photo showed my grandfather as a young sailor—barely twenty years old—smiling with his naval cap in his hands.  
+I always believed he simply hated the sea.  
+I was wrong.  
+He wasn’t afraid of the ocean.  
+He was afraid of one specific shoreline.  
+In August 1985, my grandfather was serving with the Soviet Pacific Fleet in the closed military town of Shkotovo-22, beside Chazhma Bay.  
+He was a motorman assigned to a floating workshop.  
+That morning, he was on duty near Pier No. 2.  
+The nuclear submarine K-431 was moored there.  
+Its reactor was being refueled—a routine operation, but one that left no room for mistakes.  
+Around midday, something went terribly wrong.  
+According to the official investigation, the reactor lid was raised higher than it should have been.  
+A criticality accident followed.  
+My grandfather wrote only one sentence about that moment.  
+*“The worst part wasn’t the sound. The worst part was that no one understood what had just happened.”*  
+He barely remembered the explosion.  
+What stayed with him was the impact.  
+He described a force powerful enough to throw people to the ground.  
+For several seconds, nobody moved.  
+Nobody understood.  
+The reactor lid had been blown away.  
+Steam and radioactive material shot high into the air.  
+The men standing closest to the reactor compartment never had a chance.  
+There were no dramatic final words.  
+They were simply standing where survival had already become impossible.  
+Then came confusion.  
+Sirens.  
+Orders.  
+Soldiers running in every direction.  
+Only later did people begin to understand how serious the accident really was.  
+Soon another order arrived.  
+Clean up the site.  
+My grandfather wrote:  
+*“They told us there was almost no danger. None of the men saying that were the first to go in.”*  
+They were issued protective equipment.  
+Looking back, he believed it was nowhere near enough.  
+They cleared debris.  
+Collected contaminated metal.  
+Worked for hours inside an area they barely understood.  
+Many of them had no idea how much radiation they had already been exposed to.  
+They simply followed orders.  
+After the accident, my grandfather spent a long time in hospitals.  
+He almost never spoke about Chazhma.  
+But sometimes he would wake up in the middle of the night and whisper,  
+*“I’m back there again.”*  
+As a child, I thought he was having nightmares.  
+Now I think they were memories.  
+One of the watches inside the box had stopped forever on the day of the accident.  
+Not because of anything supernatural.  
+The movement had simply been destroyed by the blast.  
+He kept it for forty years.  
+As proof that the day had really happened.  
+I finished reading the notebook.  
+The final entry had been written a few months after the accident.  
+Only one sentence.  
+*“The hardest part is when they tell you to forget what you saw.”*  
+Suddenly, dozens of childhood memories made sense.  
+Why he never returned to the sea.  
+Why he woke before sunrise every morning.  
+Why, when I once suggested a family trip to the beach, he looked at me with genuine fear.  
+I carefully placed everything back into the container.  
+That’s when I noticed something hidden beneath the notebook.  
+An old envelope.  
+Yellow with age.  
+On the front…  
+My name.  
+My hands were shaking as I opened it.  
+Inside was only a single sentence.  
+*“If you have opened this, it means I am gone. Leave the sea alone. Some places should never be remembered.”*  
+I folded the letter and slipped it back into the envelope.  
+Then I noticed something I had somehow missed.  
+There was writing on the back.  
+Just one more sentence.  
+*“If anyone asks where you found this box… tell them you never did.”*  
+I haven’t told anyone about the box.  
+I buried it exactly where I found it.  
+But I can’t stop thinking about one thing.  
+When I put the watches back inside…  
+I could have sworn one of them was ticking again.
