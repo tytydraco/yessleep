@@ -570,9 +570,11 @@ The realization made my stomach turn. The god warned me that some things should 
 
 I think it was talking about me.
 
-The angel just asked why I was smiling at him.   
-I wasn’t aware I was. 
+The angel just asked why I was smiling at him.  
+I wasn’t aware I was.
 
 Considering I’ve spent the last ten minutes figuring out how to blackmail an entity older than civilization, that’s probably not a great sign.
 
 Anyway, if I don’t update this journal again, I’ve either completed my mandatory counseling—or I’m having another terrible day babysitting an entity older than time itself for an organization that shouldn’t exist.
+
+Part 5: [My Boss Asked Me If I Thought He Was a Monster. Now I Know Why.](https://www.reddit.com/r/nosleep/comments/1ugsw9b/my_boss_asked_me_if_i_thought_he_was_a_monster/)
