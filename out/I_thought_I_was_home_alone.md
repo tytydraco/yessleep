@@ -1,0 +1,167 @@
+I'm the kind of person who loves being alone. But because I come from a big family, finding a quiet place where I can read a book, take a nap, or even scroll through my phone without someone sitting next to me is almost impossible. Privacy is practically nonexistent in our house.
+
+So whenever my siblings leave for school, my dad goes to work, my mom goes out to run errands, and I'm left home alone with absolutely no plans for the day, it feels like a blessing.
+
+Well, after what felt like forever, that blessing finally came.
+
+I woke up, looked around, and realized I was alone. No siblings. No mom. No one.
+
+I got out of bed and called for the one person who's almost always home.
+
+"Mom?"
+
+Nothing.
+
+I called again, louder this time.
+
+"Mom?!"
+
+Silence.
+
+Once I was certain no one was there, I hurried into the living room and turned on the TV.
+
+For context, I've been a scaredy-cat ever since I was little. I blame my ridiculously vivid imagination, fueled by all the horror stories adults tell children to scare them into behaving. Instead of helping me sleep, those stories left me with constant anxiety and an overactive imagination.
+
+Sometimes I become convinced I saw something move beside me, only to realize there was nothing there. Even ordinary sounds make me question myself.
+
+That's why whenever I'm home alone, I turn the TV volume all the way up. I'd rather focus on the voices coming from the television than listen to my own thoughts.
+
+As I sat there, I heard someone moving somewhere inside the house.
+
+I ignored it.
+
+Then I heard another sound.
+
+I ignored that too.
+
+When it happened a third time, I lowered the TV volume, but everything was quiet.
+
+I turned the volume back up, relaxed a little, and convinced myself I'd imagined it.
+
+But a few minutes later...
+
+The sound came back.
+
+This time it was louder.
+
+Clearer.
+
+My heart immediately began pounding so hard I could hear it. I couldn't sit still anymore. I started reciting every prayer and verse I knew. Then I hurried to unlock the front door, just in case I suddenly needed to run. After that, I sat right beside it.
+
+At least, I thought, if something happens, I'll already be close to the exit.
+
+I tried focusing on the TV again, hoping to calm myself down.
+
+But you have no idea what my mind was doing to me.
+
+Every frightening possibility I had ever imagined came rushing back at once. My brain convinced itself that I was in danger.
+
+Then I heard it again.
+
+A clear, unmistakable movement from somewhere inside the house.
+
+I bolted outside.
+
+I quickly threw a cover over my head because there wasn't enough time to look for my hijab, and I had completely forgotten that I was wearing clothes I would never normally wear outside the house.
+
+I stood in front of the house, praying over and over that nobody would walk by and see me. I could barely breathe, and I had nowhere else to go.
+
+Eventually I calmed down and convinced myself it was just my imagination.
+
+So I went back inside.
+
+I sat down again, trying my best to ignore everything my mind kept inventing. Since I was already home alone, I took out my phone and called my mom.
+
+Her phone was off.
+
+Then I called my dad.
+
+He was already on another call.
+
+I kept the house key beside me, just in case I had to run outside again and the door accidentally locked behind me.
+
+Then came the moment that pushed me over the edge.
+
+Something fell.
+
+Or maybe several things crashed into each other.
+
+I screamed.
+
+And ran.
+
+This time I ran outside without the cover, without my hijab, still wearing the same clothes.
+
+Then I heard it.
+
+Footsteps.
+
+Someone was running toward me.
+
+I froze, gripping the curtain beside the front door, unable to decide what to do.
+
+Should I stay here because I can't leave like that?
+
+Or should I run because of whatever was inside the house?
+
+God only knew what it was.
+
+I couldn't think anymore.
+
+I just stood there, completely frozen.
+
+Sweat poured down my face.
+
+My heart was pounding so violently I thought it would burst out of my chest.
+
+I could barely breathe.
+
+My legs shook so badly I thought they would give out beneath me.
+
+Then I screamed again.
+
+Just as I was convinced my heart was about to stop from fear...
+
+The person running toward me finally appeared.
+
+It was my mom.
+
+She looked at me in complete shock.
+
+"Hey?"
+
+At that moment, I swear my heart dropped into my feet. My legs were trembling so hard they could barely hold me up.
+
+I was one second away from bursting into tears.
+
+She stared at me and asked,
+
+"What's wrong? What happened? What are you doing out here?"
+
+Still shaking, I blurted out,
+
+"What's wrong with YOU?! You scared me! Where did you come from?"
+
+She looked even more confused.
+
+"I've been home this whole time. When did you wake up?"
+
+I stared at her, still terrified.
+
+"I thought... I thought you were... something else."
+
+She laughed at the sight of me.
+
+"Seriously?"
+
+Then she walked back inside, leaving me standing there, clutching the curtain, trying to cover myself while I struggled to catch my breath.
+
+Honestly, I must have looked ridiculous.
+
+Before I followed her inside, I quietly recited my prayers one more time.
+
+Because...
+
+How was I supposed to know?
+
+Who said that really was my mom?

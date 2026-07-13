@@ -1,0 +1,149 @@
+[Part 1](https://www.reddit.com/r/nosleep/s/odIgUUXDUH)
+
+[Part 2](https://www.reddit.com/r/nosleep/s/FW0Filwj5X)
+
+[Part 3](https://www.reddit.com/r/nosleep/s/49PMJn1kkd)
+
+I’ve seen a few people asking if there are any other residents in this town. Unfortunately the answer to that is, yes. There were residents but I truly wish I had never crossed paths with any of them. 
+
+As wild as it sounds my work schedule became routine to me. One night I arrived at work ready to start my shift. I made my way to the Sergeant’s office to see where my keys would be hiding that day. I grabbed the note from the door and it read, “Go home, you are working the morning shift tomorrow, you need some rest.” 
+
+I didn’t bother questioning it. I didn’t bother looking for Steve. I just left and came back for the morning shift at 6am. I don’t know what I was expecting but in a weird way I hoped that the morning shift would be different. Maybe there would be somebody at the precinct, maybe I would see another car on the road. At first everything was the same. No one around. Just me and the stupid note.
+
+Surprisingly the patrol car keys were hanging on the Sergeant’s office door. The note underneath was something that I didn’t see coming. It was almost…encouraging? 
+
+“Cars parked out back, your rookie is waiting in the passenger seat. Go out there, show him the ropes, and make a good impression.”
+
+My rookie? No. No chance was somebody else going to be working here, let alone a rookie. And I had to train him? There’s just no way this was going to be a good experience.
+
+I reluctantly made my way to the car and wouldn’t you know it there he was. A bright shiny rookie for me to mold. Great.
+
+Before I even got to the driver’s side door the rookie was out of the car standing at attention. 
+
+“Uhh, goo good morning sir.”
+
+“Is it though?”
+
+He didn’t know what to say to that.
+
+“Dude, relax. I’m Chris, no need to be all formal.”
+
+“I’m Ian sir.”
+
+Alright, this was going to be annoying.
+
+“No sir, just Chris. Get in the car Ian. I have a lot to teach you about this place.”
+
+I began driving around the town slowly and pointing things out to Ian as best I could. I showed him where the closest gas station was, I showed him the abandoned building with the demonic entity inside, I showed him the fastest route out of the town, just in case of course.
+
+Ian was sitting there writing things down in his little note pad, trying to get a grasp of what this place was. 
+
+“Chris, can I ask you a question?”
+
+“Sure, go for it.”
+
+“Where is everybody? Like in the station, I didn’t see anyone else. Well I mean I heard a group of people laughing but I didn’t actually see them. In the academy they told us about roll call and making a good impression for our Sergeant but as soon as I got there, there was a note in my locker telling me to wait in the patrol car.”
+
+“There are some things about this place that aren’t going to make sense to you. So I’m going to tell you what I was told. Listen. Listen to whatever they say. The Sergeant, dispatch, Salty Steve, anyone. Keep your head down and listen. I’ll do my best to guide you along the way.”
+
+“Who’s Salty Steve?”
+
+“Oh, he’s a real peach.”
+
+A few hours went by and I basically showed him all I could. Could I have told him about the ghost coworkers or the insane couple that loves to play hide and seek? Yes. But he wasn’t ready to hear that yet. I could tell.
+
+The radio crackled and dispatch chimed in.
+
+“Unit 1 on the air?”
+
+I sighed.
+
+“Go for Unit 1.”
+
+“There’s a house 1 block away from you. We’ve gotten noise complaints from the neighbors. Claiming there is a constant sound of a bell and what is believed to be laughter. Please check and advise and keep your rookie in check.”
+
+“Copy, show us responding.”
+
+The house was one block away, just like dispatch said. It looked normal. That was my first problem with it. Nothing in this town looks normal, and the things that do are usually the worst.
+
+An old woman was standing in the doorway before we even parked. Like she was expecting us. She waved with her whole arm.
+
+“Officers! Oh thank goodness. Come in, come in.”
+
+I told Ian to stay behind me and let me do the talking. He nodded. He had his notepad out already.
+
+The inside of the house smelled like a church.  Candles everywhere, all of them lit at nine in the morning. She led us to the kitchen and kept talking the entire time, but the sentences didn’t connect to each other. She would start telling us about her garden and end on her late husband’s shoes. She asked if we wanted tea three separate times.
+
+“Ma’am, we got a complaint about noise coming from this address. A bell, possibly some laughter?”
+
+She smiled at me.
+
+“The bell rings when they’re happy,” she said. “You can’t police happiness, officer.”
+
+I asked who “they” were. She started talking about her garden again.
+
+I’ve learned to keep my eyes moving in this town, so while she talked I looked. There was salt along the base of the kitchen doorway. A line of it, corner to corner. There were markings on the ceiling that I decided not to look at for very long. And somewhere below us, I heard the bell. One single ring. Then what sounded like a bunch of people trying not to laugh.
+
+Ian heard it too. I watched him tilt his head toward the basement door.
+
+The old woman stopped mid sentence and looked at him.
+
+“You hear them,” she said. She sounded delighted. “Oh, sweetheart. They almost never pick someone this fast.”
+
+I stepped in front of Ian and told her we were done here, that she needed to keep the noise down, and that we were leaving. I used my cop voice. It’s worked on drunks, domestics, and one bar fight involving a machete. It didn’t work on her. She just kept looking past me, at Ian.
+
+Then she asked him, “Would you like to see them, dear? They’d love to meet you.”
+
+And here’s the thing about rookies. They’re trained to be helpful. They’re trained to investigate. Nobody at the academy trains you to say no to a little old lady. Before I could grab his arm, Ian said the worst word I’ve ever heard another human being say.
+
+“Sure.”
+
+The basement door opened on its own. Nobody touched it. It just swung open like it had been listening. The bell downstairs started ringing and didn’t stop, and Ian walked toward it like he was being carried.
+
+I yelled his name. I grabbed for his vest and caught air. I don’t know how I caught air. He was right there.
+
+The door shut behind him and the ringing stopped and then the screaming started.
+
+I’m not going to describe the screaming. I’ve heard people scream on this job. Car accidents, overdoses, a guy who got his hand caught in a wood chipper. This was different.
+
+I keyed my radio. “Dispatch, Unit 1, I need immediate backup at this address, officer in distress, I need everybody you’ve got.”
+
+Dispatch came back before I finished the sentence. Calm. 
+
+They’re always calm.
+
+“Unit 1, leave the residence.”
+
+“Dispatch, my rookie is in the basement, I can hear him. I need backup NOW.”
+
+“Unit 1. Leave the residence. Do not open that door.”
+
+The old woman had gone back to talking about her garden. To no one. The screaming was still going. My hand was on the basement door knob. And I stood in that kitchen and did the math I never wanted to do. Everything in this town that’s still alive is alive because it listened. Steve told me that in his own way. The notes tell me that. I’ve survived here by listening.
+
+I let go of the knob.
+
+“I’m sorry,” I said. Out loud. To the door.
+
+I walked out of that house and I didn’t look back and when I got to the front step the door closed behind me. Softly. Nobody closed it.
+
+The radio crackled.
+
+“Unit 1, drive away.”
+
+I drove away.
+
+I drove away and didn’t look back. I did what I was told to do. I did what dispatch wanted. And I was told dispatch is here to protect me. I didn’t feel protected. No. I felt horrible. I felt the lowest a human being could feel. I didn’t know Ian. I never really got the chance to. I let him go and as much as that wasn’t MY choice. It felt like it was. 
+
+I got back to the precinct and felt nothing. I was emotionally drained with no one to talk to. Before I could even process what had happened there was one more note on the door of the office.
+
+“Mention this to no one. Ian will not be forgotten and his family will be taken care of. Ease your mind, there is nothing you could have done. He was gone the moment you stepped foot inside.”
+
+Thinking about Ian is tough for me. I regret the decision dispatch made. 
+
+Oh fuck it.
+
+I regret the decision I made. I could’ve done something. I should’ve done something. 
+
+There’s more to tell. My stories aren’t done just yet. The more that happened in this town, the more questions I had. 
+
+I’ve stopped expecting answers. But that doesn’t mean I stopped asking.
