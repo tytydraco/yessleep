@@ -1,0 +1,51 @@
+**Content:** domestic violence, suicidal ideation  
+  
+I don't know how it's decided. I only know that when it's bad enough — when a woman has stopped trying to survive it and started wondering, tonight or some night, if she'd rather not wake up — that's when I come.
+
+The apartment was small, tidy. Someone was trying hard to keep it nice on too little money. The woman came in from outside and flipped the switch, but the light only reached the corridor: framed photos on the wall, a plastic houseplant gone dusty on the console. The living room and kitchen stayed dark behind her. That's where I was. You could make out my shape in it if you looked. What she saw were pieces first: pendulous breasts in the half-light, a low soft belly where a womb sits, long hair falling stringy and thin past my face, if you can call it that, down a back bent the wrong way. And past the edge of the light, four fingertips resting on the tile, the nails on them jagged, cracked, blood-logged, sharp. The fingertips tapped, once, and again.
+
+Then she traced them back: the hand, the wrist, the arm.
+
+And I helped her the rest of the way. I came forward, joint by snapping joint, just enough that more of me showed. A shoulder that shouldn't hinge that way and the elbow that hinged twice, the spine unfolding longer than a spine has any right to be, and my eyes throwing back what little light reached me, two pinpricks in the dark.
+
+She screamed. Of course she screamed. I have that effect.
+
+I picked her up. She fit in my hand like a bird gone still with fright, and she screamed and screamed, and I let her, because they usually need to scream before they calm down, or accept. She was warm. Softer than I expected, and more of her: fat and water and skin, the whole of her plump the way small things are plump, and trust they are the top of the food chain. I have watched a human lift a caterpillar and think the same thing without meaning to: how juicy, how soft. I could squeeze so little, she would pop, and dribble out in thin streams of fluid. It's only what she was, in a hand like mine.
+
+"I am not here for you," I said. "You may yet live. Where is your partner?"
+
+It took her a while to hear that and let it settle. Human brains get flooded with fear so easily; they do not taste very nice when that happens. She didn't stop being afraid — you don't, not really, not with a face and teeth like mine an inch from yours — but her shoulders came down half an inch, and she started to talk, breath catching in half-sobs.
+
+He'd been gone a lot lately. She didn't want the conversation that was coming when he got back. He'd been with someone else, had built a whole second life, a second family, somewhere she wasn't. But she couldn't leave. He held her passport and her money in a locked drawer. She worked two jobs to keep the two of them fed, and he held the only things that would let her walk out that door.
+
+And then he began hitting her. That's why the turtlenecks. That's why long sleeves in summer, a trench coat even when it wasn't cold, not just for him, but because she'd learned to expect it from any man now, everywhere, always.
+
+I listened. I didn't say anything for a while. My face doesn't get more comfortable to look at just because you get used to it.
+
+"Do you have somewhere to go?"
+
+A friend, she said. A few days, maybe, long enough to get her bearings, or some semblance of independence. She'd thought about it before. She'd need papers, time, a lot of safety. Just never let herself do it.
+
+"Is the apartment in your name?"
+
+No. He'd made sure of that too.
+
+"Any children?"
+
+None. Good.
+
+I set her down.
+
+"Fifteen minutes. Twenty. Take your clothes, passport, money. Leave the key. Go to your friend's, now. I can smell him already, from all this way off. He's in a car, and he smells like the other woman. You do not want to be near that. You do not want to be here for what comes next."
+
+She asked what would happen.
+
+I showed her three rows of teeth.
+
+"Me."
+
+—
+
+I don't know her name. I make it a point not to ask; their scent is enough for me to remember one from another. I know the fear that calls me, and I know it isn't always a fist. Sometimes it's quieter than that — a blade, an outlet by the bathtub, pills rattling in a bottle. Sometimes, a locked garage and staying inside an idling car. I come for that too.
+
+I have sisters, if you're wondering. We don't all look like me. But we all show up the same way, right at the end of what she can survive on her own.
