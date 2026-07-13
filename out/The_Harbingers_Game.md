@@ -82,7 +82,7 @@ I stayed in Dad’s old room when I got a call on my phone;
 
 "Randy. Hey. Look, the doctors aren't sure what's wrong. We're admitting Lily to the hospital temporarily. Just for some neurological tests... at least until she responds or blinks. Mom is staying with her."
 
-"Can you handle being home alone for a couple of days?”
+"Can you handle being there for a couple of days? How’s Grandma?”
 
 "Yeah," I said softly, swallowing the lump in my throat. "I'll be fine, Dad."
 
