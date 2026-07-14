@@ -1,0 +1,225 @@
+I stared at the house one last time, asking myself if I really wanted to do this. I stared at myself through the rear-view mirror and noticed that I forgot to do my hair before I left, and the dark bags under my eyes made me look like I hadn’t slept in weeks. Which isn’t so far from the truth at this point; I knew I needed to put an end to this tonight.   
+I got out of my beat pick up, not even bothering to lock the thing despite the neighborhood I was in, and I headed up the crude brick walkway to the front door.   
+The 1-story house was in bad shape; the 2 windows on the outside were dirty, some of the siding on the outside of the house was broken and anyone passing could see the insulation and wood underneath, and either side of the walkway had overgrown grass in the front. To put it bluntly, this house is in the perfect place- it fits in with every other house I passed to get here. 
+
+I kept looking around the outside of the house, trying to delay when I got to the door. *What was I going to say to make myself not sound crazy?*  I could feel my heart-beat in my throat and I was starting to become nauseous.    
+I got to the front door and froze, and I caught myself staring at the worn yellow paint exposing the weathered wood behind it.   
+*What the fuck am I doing?*  
+I went to take my hands out of my pocket, both covered in sweat. I swallowed my fear, wiped my hands, and knocked on the door.   
+It took a while, and a couple more knocks, but finally I heard the familiar voice from the other side.   
+“Who in the fuck is knocking on my door in the middle of the night??”  
+“Hey, Julia- It’s Ted. We went on a date a couple months ago.”  
+“Ted?”
+
+  
+She opened the door as much as the chain lock allowed her to and stared at me through the space. She was just as beautiful even with her annoyed look, with her sunken-in face and shoulder-length black hair. I forgot that she reminded me so much of that chick from Fight Club. 
+
+I shot her a smile, which she did not reciprocate.   
+“What do you want Ted? I’m not interested if you couldn’t tell.”  
+“Yeah I know, listen I’m not here for that.”  
+“When a girl says nothing to you, she’s saying a lot to you. Didn’t anyone ever tell you that?”  
+“They did, I got that message. Believe me. I know.”  
+“So why are you at my house in the middle of the night? My boyfriend is here. He’s 6’4 and jacked out of his mind. I had to plead with him just to let me open the door.” Julia blew her cigarette smoke right in my face. 
+
+Her face though, it looked like she was trying to scan mine for something. I remained stoic, but it did feel like she just lied to me about something.   
+“Invite him inside babe.” A masculine voice called from inside the home.   
+Julia stared at me, pouted, then shut the door, undid the chain, and opened the door.   
+“Come on in.” she said in a defeated way- I could feel her eyes roll as I walked past her to the inside of the living room. A middle-aged balding, heavy-set man stood on the other side of the room in a white t-shirt and stained jeans. The room itself was only slightly better taken care of than the outside and it reeked of cigarettes. 
+
+  
+Still- the man approached me with a warm smile and held out his hand.   
+I returned the smile and shook his hand.  
+“Thank you for inviting me in. I promise I won’t stay long, but I just needed to come here.”  
+Julia stood next to the man, who wasn’t quite as advertised.   
+He seemed genuinely nice and she seemed happy. It was honestly nice to see.   
+I sat in silence, observing the room lined with cheap yellow-wallpaper with purple flower patterns, a lazy boy recliner that I stood in front of, brown carpet that I imagined was white at one point, a large old leather brown sofa in front of the old box tv, and a coffee table that had empty beer cans and an ash tray filled with cigarette butts.   
+I stared around and as I started looking past the couple standing in front of me to look into their kitchen I didn’t notice they were both staring at me, waiting for me to start talking.   
+“Oh, I’m so sorry. Can I sit?”  
+“Fine. Tell us your story and then you can leave. Or you can leave before if you want. You can leave now.” Julia said to me  
+Her boyfriend just shot her a look which she responded to with a smile.   
+“I’m kidding. Take a seat pal. I’ll get you a beer.” She turned to the kitchen.   
+“Oh, sorry. I’m not great at introductions either, names Phil. Why don’t you take a seat.” He gestured towards the recliner. 
+
+  
+I followed his instructions and Phil sat on the sofa. I started rubbing my hands, realizing that the fear had started creeping in, and I started to sweat again.   
+Julia handed me a beer, and I took it through shaking hands and set it on the coffee table. She sat down next to Phil and again the pair sat in silence waiting for me to again explain why I was here at this hour. 
+
+  
+I didn’t know what to say, I kept going back in forth between their glares, picking up the beer, taking a sip, and then putting it back on the table, avoiding the subject until Phil snapped me out of it by going,  
+“Hey Ted, you don’t have like a gun on you or something do you?”  
+“What? Oh God, no. I’m sorry. This must look so crazy for you guys. Thank you for inviting me inside. I should go.”  
+This time Julia interrupted,  
+“Ted, why did you come here? It’s midnight, we were about to head to bed and then you knocked. You don’t seem heartbroken that I’m with someone else. Why are you here?”  
+“Phil, I’m sorry you have to hear this. I don’t mean to sound rude by bringing this up in front of you.”  
+“You and Julia went on a date. I got that. I’m guessing it went well and you ended up back here. It sounds like it didn’t work out between you guys for one reason or another. I don’t really want to hear any details about that if you don’t mind.”  
+“Of course I said.” and let out a long breath, when I was quiet I could feel the heartbeat in my throat , but it went away when I was talking. That was motivation enough to continue.   
+“I don’t know what made it start, but a couple weeks ago I started having nightmares about this place.”  
+Julia cut me off,  
+“Nightmares, about here? Was it that bad” she smirked to herself and lit another cigarette.  
+“Yeah- I don’t know why. I would wake up, sometimes in this room- and sometimes in the kitchen, sometimes in the bedroom,  but every-time I would open my eyes and I would be in this house, and I would be in a panic, but I can’t tell why. The house is hot, like really hot, and I can’t ever leave the room that I’m in.”  
+“Fuck” Phil put his arm around Julia.   
+“I’m not done- there’s this thing that follows too- I only see it as it passes, but it stares at me. And it makes me feel sick- it just stares for now, but I know it means malice. It’s huge and it stands on two goat legs-”  
+“This is a lot Ted.” Julia interrupted.   
+“I know, I know, it’s just dreams but it’s the feeling that follows. The feeling of panic and sickness that I can’t get away from. It’s been constant. When I wake up, when I go to sleep- It’s like I’m having a constant melt-down. I’m on edge all the time and I just feel like I can throw up at any time. I can’t keep living like this.”  
+“Fuck man, I’m sorry. Have you seen a doctor?” Phil said to me in comfort. It felt good saying this outloud to people who weren’t doctors.  
+“Yeah, I have. It isn’t helping. They keep telling me it’s anxiety, which it is, but it’s different. I know that coming here was what I was supposed to do, it’s like it was calling me to come find it- the doctors are telling me I’m in bad shape. I can barely sleep at night anymore- it’s just non-stop.”  
+Julia and Phil stared at each other, and then she shot me a suspicious look.   
+“Ted, have you been in my house since that night we spent together?”  
+“No.This past week I did drive past the house a couple times, but I never got out. I’ve been afraid of this place. Most of the days I meant to get out and knock like I did tonight, but I couldn’t. My heart would start beating so fast as I got closer and slowed down, so I just sped by. Even being here now I can’t stop shaking.”  
+I raised my shaking hand up for them to see.  
+“Why do you ask?”  
+“Things have been weird around here lately. I can’t explain it, the basement feels like it’s got something going on in it. I haven’t been able to go down there. Have any of your dreams took you down there? It’s the room at the end of the hall”  
+“Really? I haven’t noticed anything?” Phil looked genuinely surprised.   
+“Oh did I not tell you baby?” Julia kissed him on the cheek.   
+“No, I didn’t even know you had a basement. Is that where that door leads? Besides, last time I was here I wasn’t exactly given a house tour.”   
+Julia and I laughed until I met eyes with Phil.  
+He was staring daggers at me, but he rolled his eyes after I silently realized what I had just did and mouthed him a silent “I am so sorry.”  
+“You mentioned you wake up in the house. Is there anything else that happens, has Julia been in them?... have I?”  
+“No, I was alone each time. It was just the feeling. Lately though, it’s funny you mention it because I didn’t put two and two together until now- The closer I get to that door at the end of the hallway, the worse I feel.”  
+They looked uneasy, but I couldn’t stop now.   
+“That’s why I came here tonight, at this hour. I can’t take it anymore. I don’t want to go to sleep- I don’t want to wake up tomorrow feeling worse than I do now. I don’t want to get more blood taken and be told how many things are wrong with me, I don’t want to talk to more shrinks who give me pills that make me feel like a fucking zombie- I just want this to stop.”   
+I was getting queasy again. The feeling started to overwhelm me. I put my head back in my hands.   
+“Let's go get him something. Come on hun,”  
+I heard them both discussing something which I couldn’t make out, as they headed past the kitchen and disappeared down the hall.   
+I sat in the recliner feeling like I could throw up at any second.   
+*Water*  
+*I need water.*   
+I ran to the kitchen, found a glass, filled it with water, took one of the pills from my pocket and drank it down. I was out of breath and sweating out of my mind. I put both my hands on the sink and put my head down watching the water go down the drain. 
+
+“Hey, I’m sorry! I think I should go. This was a bad idea.” I screamed to the couple hoping that they would hear me, but I didn’t get a response.   
+Instead, the TV flashed on to pure static with a loud buzzing sound, as I got closer to the large screen I started to notice there was something behind the static. At first it appeared to be two black objects I couldn’t make out, but the closer I got I was able to see that it was a pair of large eyes, filled with anger tracing everywhere I went.
+
+The anger in the eyes grew and grew, and the static started to slowly fade until it was just dark angry eyes staring at me. I started to feel sick, the worse I had felt since this started. The pain was unbearable- I knelt down and held my stomach as if I got the wind knocked out of me. I was on the ground staring up as the angry eyes on the TV looked down on me, as if it was trying to kill me with it’s glare, when suddenly the TV turned off and the pain went away. I stood on my feet trying to process what happened and as I tried to calm my hands down to get another Pill I heard footsteps from down the hall running towards the living room. When I turned around I saw Phil.  
+“It’s Julia!” Phil was in a panic and there were dark red stains on his white undershirt.  
+“Something’s wrong- what are you doing?”  
+I looked back at the now blank TV.   
+“Did you?” I said back, glancing back at the TV and Phil.   
+Phil and I just stared at each other for a moment, before he broke the gaze and ran back into the bedroom. I followed not knowing what the fuck was going on.
+
+As we got to the bedroom door I saw Julia passed out on the queen mattress, both her arms at her sides with blood all over her arms and face.   
+“The blood is mine! He held up his hand to reveal a deep cut. Just fucking help man!” Phil grasped her and shook her, before breaking down in tears.   
+“Don’t fucking die baby please!”  
+I took a second to get my mind right and as I observed the scene, unsure of what to do. Then out of the corner of my eye I noticed on the bedside table there were a bunch of long old red and black candles lit with the wax dripping right onto the table.   
+The room itself was nothing like I remembered,when I was here last were pure white with the occasional stain. I remember thinking it felt like a cheap hotel room you would always pass by in bad parts of town and wonder *who the hell would ever pay money to stay here?*
+
+But now, the room had all types of upside down pentagrams and circles in red and black chalk on the white walls. There were phrases written in languages that I had never seen, but the most chilling thing was when I looked at the ground on the other side of the room.  
+I got closer and bent down to see that there were small figures made of wicker and hay bound crudely by straw, all standing on a wooden board with two big circles etched on it. I knelt down to observe closer, and I saw that on the inside that there were three of the figures, two of them connected at the hands with one side of a filled in red heart on each. The other was facing the two also with a heart drawn on it, but this time it was filled in gray.
+
+There was another wicker figure on the empty outer circle, except this time it wasn’t shaped like a person, just an elongated head and the only markings on it were two dark tense eyes painted on it.  
+My heart sunk to my chest and the sickness began to take over me again. I began to back away slowly, but before I averted my eyes I did notice that the inner circle wasn’t complete anymore. There was a small opening that connected the two. When I noticed that the sickness subsided and I felt the hair on my arm raise. I turned around to see Phil’s head on her chest.   
+“Anything?”  
+“She’s breathing, but she’s not reacting.”  
+“What’s in her hand?” I pointed after noticing that her hand was clenching something.   
+He lifted it up and clenched in her hand was a small lock of Phil’s hair.
+
+He slowly backed away from her while feeling around his head to see where she cut it. She remained motionless on the bed.   
+Both of us backed away and exchanged horrified looks from across the room.   
+“Did you do this shit with her?” I asked while signaling to the figures on the ground.   
+He glanced over and returned my look with a questionable stare.   
+“No. I know she was into witchcraft, but I’m not. I just thought she took this shit more seriously than every other wiccan that I knew.”  
+I stared at him in suspicion.   
+“What do you mean you aren’t into this? She turned her bedroom into the fucking blair witch project and you had nothing to do with it?”  
+“It was like that when I got here. It’s her fucking house. Besides, we were doing absolutely fucking fine before you showed up tonight.”  
+We exchanged glances again, this time tension growing between us.   
+“And another thing- why the fuck would you come here at midnight? Your fucking dreams made you come here? What kind of fucking shit is that?”  
+“Look, I get it. I had nothing to do with this either- come here. These circles over here, there’s something wrong. It looks like us. Do you know anything about this figure that’s staring at us? Did she ever mention this to you?”   
+He came over and knelt down at the circles like I did. I read his face the entire time and a look of confusion came over him.   
+“I never seen this before. That wasn’t here tonight unless she put this together while we were on the couch. She did say she had to do something while we were watching that movie.”  
+I nodded at him to continue and asked,  
+“Why are you me and Julia in the center and what is that thing staring at us from the outside?”   
+He looked at me in confusion  
+“I honestly don’t know, but I don’t see Julia here. One of these little wood people could be me, and I guess the other could be you, but I don’t see Julia with us. Just this big face.”
+
+I looked down. The smaller wicker doll was gone. It was just Phil’s doll and mine staring at each other with the doll on the outside right next to us.  
+“It was here a second ago!”  
+Phil reached to grab the head and I pulled his arm away.   
+“What gives?”   
+“Don’t touch that it could be cursed.” His eyes met mine and then I saw his eyes turn from me to the bed behind me.  
+“Julia?”  
+Phil ran over to the bed.  
+“Where’s Julia? Julia!” He shouted before leaving the empty bed and running out of the room running to the right down the hall.   
+“Phil!” I shouted hoping to stop him, but he was in hysterics bouncing from room to room.
+
+“Phil!” I screamed out, unsure of what to do, but he wasn’t listening to me. I looked around the hallway and I noticed the door to my right, the one at the end of the hall was open. The basement. 
+
+My stomach was in knots and I felt nauseous. I could keel over, but I stayed upright knowing I had to go in. I had to find Julia. Every part of me wanted to just turn around and go back to my car, but I knew that if I wanted this to stop I had to go to that basement. I looked behind me to see that Phil was still running from room to room screaming for Julia, but I said in a weakened tone  
+“I’m going to find her in the basement. Take care of yourself up here.” I turned the golden door handle, opened the door and stared down into the total darkness. There was no light switch, so the only thing I could see were the old stone open-riser steps that descended into the pitch black.   
+I slowly began my descent, relying on the hallway light to see anything  and after 5 of the slowest steps I had ever taken the light from the hallway started to dwindle. I looked behind me and the door slammed shut. I felt my heart drop and I couldn’t move.   
+“Phil! Julia!” I screamed out.   
+“That isn’t fucking funny. Open the god damn door!”   
+I walked back up and began to knock and kick the door, but there was no response. I even tried to break it down by barging at it with my shoulder, but it wouldn’t budge. Instead a quick pain in my chest started and I leaned against the door to prevent myself from falling down the stairs. I reached into my pockets, this time not looking for a pill, but the lighter I grabbed before coming here.  My old golden zippo, luckily I grabbed it from my house before I came here so that I could smoke to calm myself down in the car ride. I lit it up hoping for it to illuminate the area like I was in a video game, but it wasn’t even bright enough to let me see the steps. Still, it was better than nothing so I held it up as I continued my descent.   
+I continued to walk and the feeling that something could just reach out and grab me between the stone steps built and built, so I know I was stepping down slower than normal- I could almost cry I felt so hopeless, with each step the dread built and built. Until I noticed something that snapped me out of my fear- I had been walking down this staircase for a long time, even at the slower pace there was no way this house had a basement this far down. I couldn’t do anything about it, I must have walked down a hundred steps. I couldn’t do anything about it now but continue. I knew that whatever had trapped me in here wasn’t going to let me back up.
+
+Eventually, I reached the old stained concrete floor. I almost wanted to kneel down and kiss it. I felt so relieved, until an eerie feeling peaked its way into my head, almost as if I was being watched. I looked around the room with my lighter outreached hoping it would point me to some area to walk to, but it didn’t. I was in a room surrounded by darkness with no sense of where to go.   
+I started walking around, periodically reaching out to feel for a wall or even at times bracing myself to run into… something, but there was nothing. It didn’t make any sense, it felt like I was in an abandoned warehouse with how big it was but there was nothing here.  
+There was also something else that I knew was off, but stopped myself from thinking about until the thought grew louder and louder in my head and it made me confront it.   
+I knew my lighter didn’t have enough fluid to be lit as long as it had been. Even if it was full the flame should have gone out long ago with how long I had been walking in this room. I had no choice, but to wander around the cold dark room for a while. I found no walls, and there were no distinguishable markings on the concrete floor that looked alike to let me know if I was walking in circles. I was wandering alone in nothingness.  
+I didn’t know what to do anymore, so I started to think about what I could do to get a reaction from whatever it was that was doing this to me. I had walked for miles in what felt like hours in this pitch black basement just looking for a wall or a shelf, or fucking anything…  I screamed “help” at the top of my lungs one final time and after a moment of eerie silence I flipped my zippo off and sat down on the floor, giving myself to the darkness around me.   
+I put my head in my hands and rubbed my eyes hoping that whatever awaits me next happened soon.
+
+“He has given himself up.” a deep voice behind me whispered.   
+I didn’t bother to turn around.  
+Instead I kept my head down and sat cross legged, like when I was kid in PE class.  I heard footsteps and a sound of something dragging against the concrete floor next to me.  
+Whoever’s footsteps they were had left something beside me and whatever it was it was moving. I reached out to put my hand on it, still enshroud in the unnatural darkness, but I felt a heartbeat.  
+Then, I heard a click and suddenly a light-bulb right above me turned on. It was so bright I felt like I was about to be blinded.  I immediately looked at what my hand was on and my heart-dropped when I found it was Phil, unconscious, his hands and feet bound by rope, but he was alive.   
+I looked around me, expecting to see a giant empty room, but it was just a regular basement. Stone walls and completely empty, but it looked completely normal. There were some exposed pipes sure, and the only light source was the lightbulb above me, but other than that it was a normal sized empty basement.   
+*What the fuck? Did all that walking even happen? What the fuck is going on?*  
+I looked to my right as I got to my feet and there were the stairs, except there weren’t hundreds of them, just the normal appropriate amount.  I started to walk up, but as I looked up into the darkI could  make out two hooded figures sitting at the top of the stairs sitting still- just staring at Phil and I.  
+“They’re ready.” The larger figure said to the smaller one and the smaller one started her slow descent down to me.  
+I walked backwards, my eyes locked on the figure as they made their way down the stairs with each step bringing them closer into the light I was able to make out more and more details.   
+It was only when they reached the bottom and took off their hood that I was able to see that it was Julia standing in front of me. 
+
+“Julia? What the fuck is going on? What did you do to Phil? What the fuck did you do to me?”  
+She flashed me a wicked smile as her eyes widened then she reached onto the rope tied around her midsection and unsheathed a double edged ritual dagger.   
+She pointed the dagger at me and I just continued to back away feeling an equal part of fear and confusion.  
+“Why are you doing this to me?” We began to circle around Phil, both of us facing each other.   
+Julia laughed a little and said “It needs to feed. It needs to be fed so Daddy and I could continue living.” Her eyes led mine to Phil, and until now  I hadn’t noticed that he and I were laying in two big chalk circles on the concrete floor just like the one we found the figues standing on in Julia’s room. Except this time, it wasn’t just empty on the inner circle, there were white markings creating 5 small upside down pentagrams surrounding Phil etched in the floor.
+
+I felt a pain in my stomach like the sickness I had been experiencing, but worse. This time it felt like I had gotten shot by a cannon and it brought me to my knees. Julia walked behind me and kicked me to the center, back again next to Phil.   
+He began to finally move around.   
+“What? Huh? Julia?”   
+I looked up to see Julia standing right above Phil with the dagger pointed right at him, this time she wasn’t looking at him with hate. Even through my pain, I was able to see that Julia was tearing up and her hands began to shake.   
+“God damn it.” She said and began to sob.   
+“I’m sorry baby- I love you. This isn’t fair to you. Daddy! You told me he would stay asleep.”  
+Phil wasn’t moving and was talking weakly.    
+“What’s going on?” He repeated,  
+The larger person began to make their descent from the stairs and spoke with Julia in a deep righteous voice.   
+“It’s okay child. It’s okay.”  
+This man was huge. He took off his hood to reveal a large bald head but he was flashing a sinister smile. He took Julia in his arms and she cried into his heavy body. He put his large finger onto Julia’s chin and tilted her head so her eyes looked into his.   
+“We’ve done this so many times child- I told you not to make connections.” He laughed as he looked down to meet Julia’s and he began to laugh so hard his big belly began to shake.  
+“He doesn’t like it when we make him wait. Give me the knife dear- I’ll get us started.”   
+He took the knife from Julia and bent down. She held her hand down and he cut it without hesitating, and Julia barely reacted as she knelt down with him. He placed her bloody hand in one of the pentagrams next to our heads. When her hand went to the pentagram the white chalk turned red and began to emit a dim light.   
+ I could only continue to watch as he cut his own hand and placed it in one of the pentagrams at our feet, and it began to light up too, but the light was stronger.  Then he grabbed my hand and I tried to get away, but his immense strength made me open my palm. It felt like when I was a kid and my dad would grab me by the hands to drag me off somewhere to go yell at me or beat me in private. I was helpless. He cut my hand and I screamed at which he reveled in. He placed it at the pentagram at my shoulder, again making an even brighter light than the one before.  
+Then, he ripped the rope that was binding Phil's hands with one of his, grabbed Phil’s hand like he did mine and placed it in the pentagram, except this time when he did that the lightbulb above us cracked and the only light sources was the intense light radiating out of the 4 lit pentagrams.The only one not lit was the one at my feet.  
+I noticed that Phil began to move more,  
+“My fucking hand.”  
+“Shhh… It’s time.” The large man said as he handed the dagger back to Julia who slid it back into her rope against her robe. They both walked next to the unlit pentagram at our feet.   
+The white circle started to illuminate and I could do nothing as I was frozen in fear and pain as the concrete in the circle below cracked and from the ground a large black hand with long black fingernails emerged. The temperature in the room started to rapidly rise and steam from the fissure started to fill the room. I didn't have them energy to get to the stairs, so I watched on helplessly with fear and pain in my chest, keeping me pinned next to Phil.   
+I saw the fissure start to expand and through the steam and darkness I could see the large dark creature begin to emerge from the opening. Eventually, the room filled with too much steam and I couldn’t make out what was happening even though it was only at my feet. Everything became still and silent for a bit, before Phil reached over to me and said “What is happening?”  
+I locked eyes with him and before I could answer I felt a grip more powerful than I have ever experienced grab my lower leg and shatter my ankle, and started to slowly pull me towards it. I screamed out in pain, and the death grip around my leg started to burn. As I was pulled past them my eyes met Julia’s and her dads. They were smiling wicked evil grins.  
+The grip eventually started to pull me up slowly upside down so I could see all the features of this creature even through the immense pain that I was experiencing I could see that where the creature’s feet should have been were black hooves. Then, I saw the two long goat legs, and fear overtook me and I had to scream out “No! This can’t! No! Help!” This was the creature from my dreams, it’s what was calling me to come here and I was dumb enough to answer. As I got to its long human body through the immense steam I could barely make out the details of its face, but I could tell it had a horse-like face with two horns protruding out of its skull. The only thing I could say with all certainty was there were two all black eyes staring at me, full of hate and disgust. I heard the sound of intense sniffing and then it opened its mouth and through two rows of sharp pointed teeth a slithering long snake-like tongue shot out and licked the blood coming from my ankle.  
+At that moment, I knew death was about to come. I stopped fighting and closed my eyes.  
+He then let out a sound of disapproval and swung at me like I was weightless and knocked me into Julia  who let out a scream as she fell to the floor, knocking the dagger from her belt and sending it flying towards the center of the circle.   
+A loud “No” hissed from the creature and he grabbed her like he had just grabbed me. She tried to teach her dagger, but the creature was pulling her too fast and she couldn’t get it. I looked back and I could see Julia shouting and screaming at her dad for help being pulled further and further into the steam until I couldn’t make her or the demon out anymore. 
+
+Julia’s dad looked on in disappointment, I could tell he could see what was going on through the steam even though I couldn’t. In those moments I looked around the basement for the knife next to Phil who was on his hands and knees weakly moving around. I could barely move, when the demon whipped me into Julia it must have broken some of my ribs, along with my fractured ankle I knew I was going to die her sooner or later. Either by bleeding out, the demon, or Julia’s dad.
+
+“Julia- my child no.” The dad said for once and I looked over to see him not sporting a stupid shit eating grin on his face, instead a look of utter disappointment.   
+“You were told to get the right food- you knew this was coming. You fell in love with this fat boy over here didn’t you baby? He told you he don’t like that One who gives himself up and one who hasn’t that's the way it’s always been.”  
+Julia screamed for dear life in response begging me or him to help her.  
+Her dad put his hand over his mouth and looked on. I squinted and could make out the silhouette of the demon who had Julia upside down like he had me.   
+The demon grabbed Julia with both hands as she screamed and kicked wildly trying to get free.   
+“Daddy help me!”  
+“Don’t fight baby girl.” He said back, reverting to his deep preacher voice.  
+“I served you- I served you forever.” She pleaded with no response and began to scream again before it suddenly stopped.   
+In an instant I saw her silhouette get ripped in half separating her torso from the rest of her body, spraying her dad and I with her blood.
+
+Suddenly, I felt Phil shoot up next to me and he ran right at the large fat man blocking the stairs. While Julia’s dad was frozen as to what he just saw Phil stabbed the man right in the eye, the large man toppled over to his knee and screamed out in pain.  
+Phil suddenly ran back to me and said   
+“Let’s go.” I put an arm around him and we rushed out of the house. I didn’t bother to look behind me, but through the dad’s screams I could hear a loud cracking of bones. I knew it was the creature eating Julia’s corpse.
+
+We ascended the stairs and got out of the house, being greeted by the morning sun. Phil finally let go of me after we got some distance from the front door and he placed me on the ground, both of us just staring at the house silently observing as we noticed all the steam from the basement windows starting to escape.
+
+“Man, I fucking wish you didn’t come over.” We both laughed. Phil was a great dude, he and I stayed in contact and met up occasionally at bars talking about what life was like, how we were processing, and recovery from both. We were both surprised that the cops never came, so we never had to tell the cops the terrible story that we had come up with in case they ever asked about what happened to Julia. We both swore to never tell anyone what happened so that they don’t try to find what found us.
+
+Everything was going well and life was returning to normal until I got a call from Phil one day after not hearing from him for months. He asked me if I’ve been feeling sick again lately and I told him no, then he told me that he has been having the same dreams that I had. Except his were happening in the woods and they would always end when he got face to face to face with a large one eyed man in the same demonic circle that we were laying in. He told me he was starting to feel sick and he knew that he had to go and find this man. I told him that he wasn’t going alone. 
