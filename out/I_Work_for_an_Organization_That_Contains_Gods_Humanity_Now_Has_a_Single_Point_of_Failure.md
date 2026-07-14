@@ -1,0 +1,1155 @@
+Part 1: [I Work for an Organization That Contains Gods. We Had to Make a Sacrifice This Time.](https://www.reddit.com/r/nosleep/comments/1u6uzz2/i_work_for_an_organization_that_contains_gods_we/)
+
+Part 2: [I Went to Antarctica Looking for 10,000 Missing People. I Came Back With a New Boss.](https://www.reddit.com/r/nosleep/comments/1u9om8s/i_went_to_antarctica_looking_for_10000_missing/)
+
+Part 3: [Apparently Using Assistants as Sacrifices Violates Company Policy](https://www.reddit.com/r/nosleep/comments/1uc8w6u/apparently_using_assistants_as_sacrifices/)
+
+Part 4: [I Work for an Organization That Hunts Gods. One of Them Warned Me About the Angel Following Me.](https://www.reddit.com/r/nosleep/comments/1ud5jzx/i_work_for_an_organization_that_hunts_gods_one_of/)
+
+Part 5: [My Boss Asked Me If I Thought He Was a Monster. Now I Know Why.](https://www.reddit.com/r/nosleep/comments/1ugsw9b/my_boss_asked_me_if_i_thought_he_was_a_monster/)
+
+Part 6: [The Most Powerful Being in the CSP Is Studying Humans. Unfortunately, I'm His Favorite Lab Rat.](https://www.reddit.com/r/nosleep/comments/1ujfm8m/the_most_powerful_being_in_the_csp_is_studying/)
+
+Part 7: [Someone Stole the Rifle Built to Kill Gods. Then They Pointed It at Me.](https://www.reddit.com/r/nosleep/comments/1ulxgk7/someone_stole_the_rifle_built_to_kill_gods_then/)
+
+Part 8: [I Thought Dating an Angel Was Bad. Something Wearing My Face Was Worse.](https://www.reddit.com/r/Nonsleep/comments/1urpfnf/i_thought_dating_an_angel_was_bad_something/)
+
+Part 9:[ I Work for an Organization That Contains Gods. The Feather Led Something to Us.](https://www.reddit.com/r/Nonsleep/comments/1urpgng/i_work_for_an_organization_that_contains_gods_the/)
+
+  
+I woke up to five loud knocks on my apartment door. Not polite knocks, either. The kind that said, *We know you're awake, and if you aren't, that's about to become your problem.* I stared at the ceiling for a second before dragging myself out of bed and yanking the door open.
+
+Three maintenance workers stood outside with several carts full of moving supplies.
+
+"...Am I being evicted?"
+
+One of them checked his clipboard. "No, ma'am. We've been instructed to relocate you to the executive suite."
+
+That woke me up faster than coffee ever could.
+
+"...What?!!"
+
+To be fair, I was still trying to process yesterday. I'd accidentally started dating one of the oldest beings in existence, his nephew had descended from orbit, I'd learned angels could apparently have children, and then I'd gone home, eaten instant ramen with Angelo while he casually mentioned needing a bigger bed before I slept for almost twenty hours straight.
+
+I glanced at the clock.
+
+8:00 A.M.
+
+"Oh, good. I'm late for work."
+
+Then I realized something…
+
+Where was Angelo?
+
+I stepped aside to let the workers in, and as they began packing my apartment, I noticed a neatly folded note on the kitchen table. The handwriting was perfectly straight, every letter carefully measured. I already knew who had written it.
+
+**I required additional information regarding romantic courtship.**
+
+**Since you prohibited me from accessing the internet for this subject, I have sought another source.**
+
+**I have gone to the Library.**
+
+**I should return shortly.**
+
+**P.S. I relocated us to my executive suite. Your apartment is not large enough to accommodate a larger bed. Relocating was more practical than demolishing a wall.**
+
+**Love,**  
+**Angelo**
+
+I lowered the note very, very slowly.
+
+"I told him not to use the internet. I did not think I needed to specify that the oldest library in existence was also off-limits."
+
+This wasn't just a library. This was *the* Library. Somewhere inside were books older than galaxies, and my socially clueless angel boyfriend had gone there to learn how to date. Somehow, I already knew this was about to become my problem.
+
+I slipped the note into my pocket as I looked at one of the maintenance workers.
+
+"Just... don't lose anything."
+
+"Yes, Agent Nayeri."
+
+I grabbed my jacket, keys, and badge before heading for the door. As it closed behind me, one thought crossed my mind.
+
+By the time I got back...
+
+There probably wouldn't be an apartment to come back to.
+
+The elevator doors opened onto Floor Forty-Five.
+
+Calling **The Library** a library was like calling the Pacific Ocean a puddle. Shelves stretched farther than the eye could follow, disappearing into impossible distances that ignored every law of architecture humanity had ever discovered. Books drifted lazily through the air, ladders climbed empty shelves on their own, and entire aisles quietly rearranged themselves whenever the Library decided it preferred a different layout. None of that worried me. The Library had always done weird things.
+
+What worried me was the voice echoing across the floor.
+
+*"...Excuse me. Could you explain why this civilization believed consuming the heart of one's intended partner demonstrated affection?"*
+
+A long silence followed before the librarian sighed. It wasn't the sigh of someone mildly inconvenienced. It was the sigh of a man who had lived for thousands of years and had finally found something capable of exhausting him.
+
+I cleared my throat.
+
+"I'm... so sorry about this."
+
+Angelo turned.
+
+*"Oh. Good morning, Nayeri."*
+
+"When did you get here?"
+
+*"This morning."*
+
+"What time?"
+
+*"Five o'clock."*
+
+I stared at him.
+
+"...You've been here for three hours?"
+
+*"I have."*
+
+"And you've spent that entire time questioning the librarian?"
+
+*"I read the books first."*
+
+He gestured toward a stack behind him.
+
+*"They frequently contradicted one another, so I consulted the primary source."*
+
+I rubbed my forehead as my eyes drifted to the so-called "primary source" for the first time.
+
+I'd been coming to the Library for over a year, but I'd never spoken to its librarian.
+
+I had never needed to.
+
+Whenever I wanted a book, I found it myself using the digital kiosk.
+
+Now that I was really looking at him, I couldn't have guessed his age if my life depended on it. He looked old enough to remember the first story ever written, yet somehow young enough that he didn't look old at all. Before I could wonder how that was even possible...
+
+My phone vibrated.
+
+Jacob.
+
+I answered.
+
+"Nayeri."
+
+His voice already sounded exhausted.
+
+"You and Angelo have been summoned."
+
+"...Summoned?"
+
+"Please don't tell me you forgot."
+
+"Forgot what?"
+
+A long sigh came through the speaker.
+
+"The mandatory Wednesday Board meeting."
+
+I closed my eyes.
+
+"Oh."
+
+"I forgot."
+
+"I know. It started ten minutes ago, and they're waiting for both of you."
+
+The line went dead.
+
+I lowered my phone and looked at Angelo.
+
+"We're late."
+
+*"I am aware."*
+
+"...You knew?"
+
+*"Yes."*
+
+"You still came to the Library?"
+
+*"You instructed me not to use the internet to research courtship. I concluded this was the highest-priority task."*
+
+I stared at him for a few seconds before sighing.
+
+"...Let's go."
+
+The elevator carried us to the Executive Floor, where Jacob was already waiting outside. He glanced at his watch as we stepped out.
+
+"You two are late."
+
+"By only ten minutes!"
+
+He shook his head.
+
+"Come on, walk quickly."
+
+The walk to the Board Chamber was unusually quiet. Normally, the weekly Executive Board meeting was little more than a formality. Stonehill reviews containment operations, Research asks for another billion dollars, finance says no, then security asks for a million, and I spend the next hour wondering whether faking a medical emergency would get me out of it.
+
+Most Board members rarely attended in person. They were scattered across the globe running regional headquarters, joining through secure video when necessary or simply sending reports for Stonehill to summarize.
+
+Today, every chair was occupied.
+
+That was a problem.
+
+The last time every member of the Executive Board had gathered in the same room, three gods had declared war on humanity. That was two years ago, back when I was still the rookie everyone expected to die within six months.
+
+Somehow, here I was two years later, still alive and held together by caffeine, instant noodles, and what I could only assume was pure spite.
+
+The Board Chamber’s glass doors slid open.
+
+At the head of the table sat Chairman Stonehill.
+
+Of course, that wasn't his real name. None of ours were.
+
+Inside CSP, names were liabilities. Gods could read memories. Some could rewrite history. Others simply enjoyed hunting families. If any of us died, our real identities died with us. There could never be a trail connecting the Chain. Seal. Protect. Foundation to the families waiting in the outside world. Everyone received a designation, and after enough years it stopped feeling fake. Stonehill was Stonehill. Leni was Leni. Whatever names we'd been born with belonged to another life. Honestly, I wasn't sure some of them even remembered what those names had been. 
+
+Stonehill looked exactly the way I remembered. If you'd asked me to describe him to a police sketch artist, I'd have said, "Imagine a businessman in his sixties... then add just enough lizard to make you deeply uncomfortable."
+
+It still wouldn't have been entirely accurate.
+
+He possessed the unsettling ability to remain perfectly still for minutes at a time. Not calm. Still. Like a crocodile floating just beneath the surface of a river, waiting for something to wander too close.
+
+Beside him sat Madam Leni, Director of Archives. Despite looking no older than her early forties, she'd spent decades preserving humanity's history. Auburn hair framed kind features that somehow made even classified documents feel welcoming.
+
+General Hayes, Director of Security, looked like he'd been born angry. Broad-shouldered and well into his sixties, his gray military haircut was as disciplined as the man wearing it.
+
+Dr. Laurent, Director of Research, looked as though she'd stepped out of a Paris fashion magazine rather than a laboratory. Long black hair, emerald-green eyes, and effortless elegance made it easy to forget she spent her days studying things that wanted to erase humanity from existence.
+
+Director Rahman adjusted his thin-rimmed glasses as we entered. His salt-and-pepper hair and neatly trimmed beard made him look more like a distinguished university professor than the strategist responsible for coordinating global operations.
+
+Ambassador Lin watched the room in thoughtful silence. She appeared to be in her late thirties, impeccably dressed, with a calm confidence that commanded attention without ever needing to raise her voice.
+
+Admiral Volkov sat ramrod straight, looking ready to command a battlefield instead of a board meeting. Tall, athletic, and somewhere in her early forties, she wore her blonde hair in a regulation-perfect bun.
+
+Finally, there was Director Morozov.
+
+In his early thirties, he was the youngest and if you ignored the tailored suit and permanent expression of disappointment, he could have even passed for a graduate student. His steel-blue eyes missed nothing, and the faint smile that occasionally tugged at one corner of his mouth usually meant someone else was about to realize they'd overlooked something.
+
+We'd spent enough missions saving each other's lives that we'd stopped pretending either of us was going to say thank you.
+
+He caught me looking.
+
+One corner of his mouth twitched upward.
+
+I rolled my eyes.
+
+That was enough of a reunion.
+
+I looked around the table one last time.
+
+Every seat was filled. Every division was represented. There were no video calls, no deputies, and no excuses.
+
+Yeah.
+
+This wasn't a meeting.
+
+This was an intervention.
+
+Stonehill looked up from the report resting before him, his eyes settling first on me, then on Angelo.
+
+"Agent Nayeri. Director Angelo. Please."
+
+He gestured toward the only two empty chairs.
+
+"We've been waiting."
+
+Somehow, that worried me more than if he'd started yelling.
+
+Angelo walked past me without the slightest hint of concern. Of course he did. The man had stared down beings older than the universe. A board meeting probably ranked somewhere between *mild inconvenience* and a *paper cut.*
+
+I followed him to my seat. Every pair of eyes tracked us, and no one spoke as Stonehill waited until we were seated before folding his hands.
+
+"I believe everyone has reviewed the incident report."
+
+Around the table, heads nodded.
+
+Stonehill turned toward General Hayes.
+
+"General."
+
+Hayes didn't waste a second. He didn't even spare me a glance.
+
+"You encountered an entity stronger than every god humanity has ever documented."
+
+*"Correct."*
+
+"You had an opportunity to eliminate that entity."
+
+*"Correct."*
+
+"You chose not to."
+
+*"Correct."*
+
+Hayes leaned forward.
+
+"Why?"
+
+Angelo answered as though he'd been asked what time it was.
+
+*"Because it was unnecessary."*
+
+"It possessed enough power to destroy this facility."
+
+*"Yes."*
+
+"It possessed enough power to eradicate humanity."
+
+*"Yes."*
+
+"And yet you concluded it wasn't a threat."
+
+*"Correct."*
+
+Hayes slowly rose to his feet.
+
+"That is exactly my concern."
+
+"The Chain. Seal. Protect. Foundation exists because humanity survives by preparing for the worst. We negotiate whenever negotiation is possible. When it isn't, we act."
+
+He looked directly at Angelo.
+
+"You abandoned over two centuries of established doctrine because you believed you could change its mind."
+
+*"I did not believe. I observed."*
+
+*"It displayed confusion. It questioned its identity. It hesitated before initiating violence. I concluded communication possessed the highest probability of success."*
+
+"And if your conclusion had been wrong?"
+
+Angelo met his gaze without hesitation.
+
+*"It was not."*
+
+A muscle twitched in Hayes' jaw.
+
+"That isn't an answer."
+
+*"It is the only answer that matters."*
+
+The room fell silent before Dr. Evelyn Laurent finally broke it.
+
+"I disagree with General Hayes on one point."
+
+She looked toward Angelo.
+
+"I believe your decision was intellectually sound. You evaluated the evidence available to you, observed the entity, identified hesitation, confusion, and uncertainty, and reached what I believe was a reasonable conclusion."
+
+She folded her hands.
+
+"My concern is the conclusion itself. The creature possessed the ability to eradicate humanity. Reasonable or not... I would still have ordered its immediate termination."
+
+Several heads nodded in agreement.
+
+Director Rahman adjusted his glasses.
+
+"My concern extends beyond this single incident."
+
+He looked directly at Angelo.
+
+"Within weeks of joining this organization, you rewrote Retrieval Division doctrine, replaced a classification system that had existed for generations, and armed humanity with weapons capable of destroying gods. Every decision has produced favorable results."
+
+He paused.
+
+"But favorable outcomes do not eliminate unnecessary risks. My concern is not your intentions, I believe they are sincere. My concern is that humanity cannot entrust its future to the judgment of a single being….angel or not."
+
+He inclined his head.
+
+"And regarding the entity... I also believe it should have been eliminated."
+
+Ambassador Mei Lin spoke next.
+
+"I have spent my career negotiating peace, and I believe diplomacy saves lives. But diplomacy succeeds because both sides have something to lose. An entity capable of ending civilization is not a negotiation between equals."
+
+She held Angelo's gaze.
+
+"It is an act of faith, and I do not believe humanity can afford faith."
+
+Father Gabriel lowered his eyes.
+
+"I would have mourned the necessity, but compassion shown to one life cannot come at the cost of billions."
+
+Admiral Volkov spoke last.
+
+"My responsibility is preparing for the day everything goes wrong."
+
+She met Angelo's gaze.
+
+"Yesterday, everything went right. The next time, it may not."
+
+"I cannot build Security Division around hope."
+
+Silence settled over the chamber.
+
+Only one member of the Board had yet to speak.
+
+Director Aleksandr Morozov.
+
+His voice was so quiet that everyone instinctively leaned forward.
+
+"I disagree."
+
+Every head turned toward him.
+
+Hayes frowned.
+
+"You believe allowing it to live was safer?"
+
+Morozov shook his head.
+
+"I believe we lacked sufficient intelligence to know."
+
+He rested his hands on the table.
+
+"We possessed no understanding of its capabilities, psychology, or history. We had no meaningful intelligence."
+
+His steel-blue eyes shifted to Angelo.
+
+"Director Angelo possessed information unavailable to the rest of us. He understood what he was observing. He may even have known that attempting to fight the entity would have resulted in greater casualties than allowing it to leave."
+
+The room remained silent.
+
+"My concern is different. If only one individual possesses the knowledge necessary to make these decisions, then humanity possesses a single point of failure."
+
+No one argued, because no one could.
+
+"If Director Angelo disappears, is compromised, or is one day proven wrong..."
+
+His gaze swept across the table.
+
+"...who replaces him?"
+
+Silence answered him.
+
+"My recommendation is simple. We learn. As much as possible, as quickly as possible. We cannot build humanity's future upon knowledge possessed by an individual angel."
+
+The words lingered over the room. For the first time since the meeting had begun, no one had a response.
+
+Madam Leni finally leaned forward.
+
+"Director Angelo, according to the incident report, angels are cursed to write only the truth. Does that apply to everything you write?" 
+
+*"Yes."*
+
+His answer came without hesitation.
+
+*"I am incapable of knowingly recording falsehood."*
+
+Leni sat quietly for several moments before looking around the table.
+
+"Then... we may be sitting in front of the greatest historical source humanity has ever encountered."
+
+No one answered.
+
+Every civilization had left behind fragments. Legends. Myths. Religious texts. Secondhand accounts. Speculation.
+
+We were sitting across from someone who had actually been there.
+
+Someone who had witnessed the birth of gods, the rise and collapse of civilizations, and events humanity had spent thousands of years trying to reconstruct from broken pottery and faded inscriptions.
+
+Dr. Laurent finally broke the silence.
+
+"...Good Lord."
+
+Even Stonehill's expression shifted.
+
+Barely.
+
+But I'd worked with him long enough to notice.
+
+Angelo looked around the room.
+
+*"I believe Director Morozov's concern is valid. If humanity's future depends upon knowledge possessed by a single being, then humanity has already accepted an unnecessary vulnerability."*
+
+He folded his hands.
+
+*"As a member of this Executive Board, I wish to exercise my authority by requesting the establishment of a new division."*
+
+Stonehill regarded him for a moment.
+
+"What division?"
+
+*"The Angel Relations Division. Its purpose shall be to preserve angelic history, educate humanity, study angels, and establish peaceful communication with unknown entities whenever circumstances permit."*
+
+He paused.
+
+*"For centuries, you have prepared humanity to survive the unknown. I propose we also prepare humanity to understand it."*
+
+Stonehill remained silent for several seconds.
+
+"And who do you believe should lead this division under you?"
+
+Without hesitation, Angelo answered.
+
+*"Agent Nayeri."*
+
+Every head in the room turned toward me.
+
+Wonderful.
+
+Stonehill kept his attention on Angelo.
+
+"Why?"
+
+*"She questions every conclusion. She rejects assumptions unsupported by evidence. She challenges my reasoning and has repeatedly disagreed with me."*
+
+He paused again.
+
+*"When I am incorrect, she informs me. I consider those qualities essential. I require an individual who seeks understanding rather than confirmation. I believe Agent Nayeri fulfills that requirement."*
+
+Silence settled over the room.
+
+Not because they were considering me.
+
+But because they were considering Director Angelo's reasoning.
+
+There was a difference.
+
+To the Executive Board, employees were resources—valuable, expensive, and ultimately replaceable. The discussion wasn't whether I wanted the position. It was whether assigning me to it improved humanity's chances of surviving the next apocalypse.
+
+If they approved it, I'd be leading a new division before lunch.
+
+Stonehill finally nodded.
+
+"Noted."
+
+He wrote something in the report before him.
+
+That was all.
+
+No congratulations. No asking for my opinion. No dramatic promotion speech.
+
+Just one word.
+
+One note on a piece of paper.
+
+Angelo nodded.
+
+*"Thank you."*
+
+For a moment, I thought we were finished.
+
+A miracle.
+
+A meeting involving an angel, the entire Executive Board, and a debate over whether we should have destroyed an entity capable of ending humanity was actually coming to an end.
+
+Then Angelo spoke.
+
+*"I have one additional request."*
+
+Stonehill looked up.
+
+"Regarding?"
+
+*"Human relationships."*
+
+The room went quiet.
+
+Not confused. Not amused.
+
+Just quiet.
+
+Because when Angelo said something, everyone listened. 
+
+Unfortunately, that included when he decided to bring up my personal life in front of the people who controlled the entire Foundation.
+
+General Hayes narrowed his eyes.
+
+"Explain."
+
+*"I require additional information regarding human courtship."*
+
+Several people looked toward me.
+
+I immediately regretted every decision that had led me to this moment.
+
+Stonehill's expression remained unchanged.
+
+"And why is this information being requested from the Executive Board?"
+
+*"Because this room contains individuals with significant experience interacting with humans."*
+
+A brief pause.
+
+*"Additionally..."*
+
+Angelo looked at me.
+
+*"Agent Nayeri prohibited me from accessing the internet or the library for this subject."*
+
+I closed my eyes.
+
+Of course.
+
+Of course he mentioned that.
+
+*"I therefore sought an alternative source of information."*
+
+Madam Leni raised an eyebrow.
+
+"Which is us?"
+
+*"Yes."*
+
+She smiled faintly.
+
+"Very well."
+
+She folded her hands.
+
+"Then I'll offer the same advice I gave my son."
+
+The room grew quiet.
+
+"Listen more than you speak."
+
+"Pay attention to what the other person needs, not just what they say."
+
+"And remember..."
+
+"No grand romantic gesture will ever replace making someone feel safe."
+
+Angelo nodded thoughtfully.
+
+*"I understand."*
+
+"Good."
+
+She smiled.
+
+"You're already asking questions."
+
+"That's a better start than most people manage."
+
+Dr. Laurent looked between us.
+
+"Why are you researching human courtship, Director Angelo?"
+
+Angelo answered without hesitation.
+
+*"Because I am in a relationship."*
+
+The room fell completely silent.
+
+General Hayes finally broke it.
+
+"With whom?"
+
+Angelo turned toward me.
+
+*"Agent Nayeri."*
+
+Every head turned in my direction.
+
+For one brief moment, I considered pretending I had no idea who he was.
+
+Unfortunately, he was sitting directly beside me.
+
+Out of the corner of my eye, Jacob was already staring at me with the quiet disappointment only an overprotective older brother could weaponize.
+
+No one spoke.
+
+Then, for the first time since the meeting had begun, Aleksandr Morozov chuckled.
+
+It wasn't loud or mocking.
+
+Just a quiet laugh that escaped before he could stop it.
+
+"My apologies."
+
+He glanced toward Madam Leni.
+
+"I suppose... I owe you fifty dollars."
+
+Madam Leni smiled.
+
+"You do."
+
+Stonehill looked between them.
+
+"You were betting?"
+
+"It was a friendly disagreement."
+
+She smiled at me.
+
+"I had considerably more faith in Agent Nayeri than Director Morozov."
+
+I covered my face with one hand.
+
+"This is somehow worse than fighting gods."
+
+Stonehill cleared his throat.
+
+"If there are no further questions..."
+
+He closed the report before him.
+
+"This meeting is adjourned."
+
+Every member of the Executive Board stood.
+
+I grabbed Angelo by the sleeve.
+
+"We're leaving."
+
+He looked at me.
+
+"NOW"
+
+I didn't wait for an answer.
+
+I practically dragged one of the oldest beings in existence toward the elevator.
+
+Behind us, Jacob called my name.
+
+"Nayeri!!"
+
+Absolutely not.
+
+I yanked Angelo inside just as the doors began to close.
+
+Jacob reached the hallway a second too late. He didn't shout or move. He simply looked at me.
+
+It was the look of a man mentally scheduling my funeral.
+
+The doors slid shut.
+
+I leaned against the wall.
+
+"...Successful extraction."
+
+Angelo tilted his head.
+
+*"Are we hiding?"*
+
+"For approximately the next twelve hours."
+
+*"I understand."*
+
+I looked up at the ceiling.
+
+By tomorrow morning, the entire Foundation would know we were dating.
+
+Actually...
+
+Knowing Ambassador Lin, they'd know by dinner.
+
+She could spread information through Headquarters faster than the Security Division could spread a lockdown.
+
+I'd survived gods, eldritch horrors, and Executive Board meetings.
+
+But somehow, office gossip was still going to be the thing that killed me.
+
+By the time we reached the Executive Suites, I was out of breath, not because I'd been dragging Angelo, but because I'd been fleeing my own coworkers.
+
+The new suite was ridiculous. It was larger than my old apartment, and sitting in the middle of the master bedroom was a bed large enough to qualify as a small island.
+
+"...That's excessive."
+
+*"I was informed that humans appreciate additional sleeping space."*
+
+"I don't think they meant this much."
+
+*"I wished to eliminate the possibility of future complaints."*
+
+I decided not to ask how he'd reached that conclusion.
+
+Instead, I pointed at the television.
+
+"You're watching that."
+
+Angelo looked at it.
+
+*"...Television?"*
+
+"Yes."
+
+"No Library. No internet. No researching courtship."
+
+*"I understand."*
+
+Five minutes later, a nature documentary filled the room. A mother bird shoved one of her chicks out of the nest while the narrator calmly explained that it had to fall before it could fly. I watched the tiny bird plummet.
+
+"...That's one parenting strategy."
+
+Angelo didn't laugh.
+
+*"My mother did something similar."*
+
+I looked over.
+
+"...She pushed you out of a nest?"
+
+*"No. But she believed creation could not possess free will if she refused to let it leave."*
+
+The television continued talking. I muted it.
+
+"...Tell me about her."
+
+He was quiet for a long time before finally answering.
+
+*"She loved us. She loved everything: the stars, the smallest living organisms. She believed life possessed value simply because it existed."*
+
+He looked toward the dark television screen.
+
+*"She refused to own what she created."*
+
+I frowned.
+
+"...What do you mean?"
+
+Angelo watched the documentary in silence for a while before answering.
+
+*"When Mother left, she did not leave because she ceased loving us. She left because she believed we no longer required her guidance."*
+
+"...After that?"
+
+*"One of my siblings became bored and created the gods. Another chose violence. He eventually loved one of the gods, and together they caused immeasurable suffering."*
+
+He met my eyes.
+
+*"I killed them both."*
+
+He said it as plainly as someone commenting on the weather.
+
+"...Your mother never came back?"
+
+*"No. Not when my sister defied her final instruction. Not when my brother began the War in Heaven. Not when I killed them."*
+
+I stared at him.
+
+"...She just let it happen?"
+
+Angelo slowly shook his head.
+
+*"My decisions were never hers to make. She loved us, but she gave us free will."*
+
+He looked back toward the television.
+
+*"Had she intervened, it would no longer have been ours."*
+
+I swallowed.
+
+That wasn't how I'd expected that story to end. Not with grief or anger.
+
+With trust.
+
+The documentary continued playing in the background. A mother bird nudged her chicks from the edge of a cliff. For a split second, every instinct in me screamed that she'd made a mistake.
+
+Then the chicks spread their wings.
+
+I looked away.
+
+"My mother would've pushed me off the cliff... then blamed me for falling."
+
+A dry laugh escaped me.
+
+*"...What makes you believe that?"*
+
+There wasn't a trace of doubt in his voice. He wasn't challenging me. He was just trying to understand.
+
+I stared at the muted television.
+
+"My entire childhood, I don't think I made a single decision that was actually mine. What I wore. What I studied. Who I talked to. What I wanted."
+
+"She always knew better. Or at least she said she did."
+
+I shrugged.
+
+"If I disagreed, I was ungrateful. If I obeyed, it was because she was a good mother. If I succeeded, it reflected well on her. If I failed, it was my fault."
+
+The words came easier than I expected. Maybe because, for the first time, I was talking to someone who wasn't trying to explain my own life back to me.
+
+Angelo simply listened.
+
+"My mother held on so tightly... I don't think she ever realized I wasn't something she owned."
+
+Silence settled between us as the documentary continued. Some narrator was talking about how the hardest part of being a parent was accepting that your children eventually became strangers.
+
+I almost laughed.
+
+"My mother would've hated your mother."
+
+Angelo looked at me.
+
+"Because she would've called her irresponsible."
+
+I leaned my head back against the couch.
+
+"And your mother would've hated mine."
+
+He considered that.
+
+*"I do not believe so."*
+
+"No?"
+
+*"No. Mother rarely hated anyone. I believe she would've grieved for her."* 
+
+I smiled despite myself.
+
+"That somehow feels worse."
+
+*"It often is."*
+
+Another silence settled over the room before something occurred to me.
+
+"...Do you think she was right?"
+
+"Your mother."
+
+"To leave."
+
+Angelo didn't answer immediately. He thought for a long time before finally speaking.
+
+*"I do not know."*
+
+That surprised me.
+
+*"I believe she was right to give us freedom."*
+
+His eyes remained on the television.
+
+*"But I still miss her."*
+
+The words were almost quiet enough to miss.
+
+*"I would have welcomed one more conversation. I would have welcomed one more day."*
+
+A faint smile crossed his face.
+
+*"But wanting something does not make it right to take it."*
+
+I stared at him.
+
+There it was again, that same philosophy reaching into everything he did. Even after trillions of years, he never confused what he wanted with what someone else owed him.
+
+The documentary continued in the background, though neither of us was really watching it anymore. I kept thinking about what he'd said.
+
+*Wanting something does not make it right to take it.*
+
+"...Can I ask you something?"
+
+*"Always."*
+
+I kept my eyes on the television.
+
+"If one day I left... if I decided I didn't want this anymore... if I walked away..."
+
+"...Would you still love me?"
+
+*"Yes."*
+
+There was no hesitation.
+
+No uncertainty.
+
+Just...
+
+Yes.
+
+"You wouldn't try to stop me?"
+
+*"No."*
+
+"You wouldn't follow me?"
+
+*"Only if you requested that I do."*
+
+"And if I never did?"
+
+*"I would respect your decision."*
+
+I looked at him.
+
+"...You'd just let me go?"
+
+*"Yes."*
+
+*"I would grieve. I would miss you”* 
+
+He smiled faintly.
+
+*"And I would continue loving you...Until I ceased to exist."*
+
+I stared at him. Part of me wanted to call him an idiot.
+
+Another part knew he meant every word.
+
+I looked back at the television.
+
+"I couldn't."
+
+Angelo remained silent.
+
+"If you were the one leaving, I'd stop you. I'd argue. I'd probably yell."
+
+A humorless laugh escaped me.
+
+"I'd do everything I could to convince you to stay."
+
+"I don't think I'm capable of loving someone the way you do."
+
+Angelo was quiet for a moment.
+
+*"I do not believe that is true."*
+
+I looked at him.
+
+*"I described respecting someone's choice while you described fighting for someone."*
+
+He reached over and took my hand. Not tightly…just enough that I knew he was there.
+
+*"My mother taught me never to mistake love for possession."*
+
+He gave my hand a gentle squeeze.
+
+*"If I chose to leave, I believe you would fight for me because you fear losing me, not because you wish to own me."*
+
+He studied me for a moment.
+
+*"You were taught that if someone leaves, they have abandoned you. My mother taught me that if someone leaves, they have made a choice."*
+
+*"Those are not the same thing."*
+
+I didn't answer because I wasn't sure I'd ever considered there was a difference.
+
+Angelo smiled.
+
+*"I think we still have much to teach one another."*
+
+Another silence settled between us. Then something clicked, not all at once, but quietly, like a lock I'd never realized existed finally turning.
+
+His mother had loved so completely that she'd refused to hold on.
+
+Mine had held on so tightly that there'd never been room to love.
+
+I finally understood why Angelo always asked.
+
+*May I come in?*
+
+*Would you like a larger bed?*
+
+*Does this mean we are dating?*
+
+I'd spent months thinking it was because he didn't understand humans.
+
+It wasn't.
+
+It was because he did.
+
+He never confused wanting something with having the right to it.
+
+Maybe that was why I'd fallen in love with him before I'd even realized I had.
+
+I looked down at our joined hands.
+
+"I don't know if I'll ever get there."
+
+*"You may not."*
+
+He said it without judgment.
+
+*"Every day you choose differently, you become someone your mother never allowed you to be."*
+
+The room fell silent again as the documentary played on. Somewhere on the television, a mother bird watched her child disappear into the sky.
+
+Angelo didn't try to reassure me or tell me everything would be okay.
+
+He simply stayed beside me, waiting.
+
+Giving me the choice.
+
+Just like he always had.
+
+Before I could overthink it, I leaned forward and wrapped my arms around him.
+
+He froze for half a second, not out of surprise, but out of care, as though making absolutely certain it was what I wanted.
+
+*"...I have never done this before."*
+
+I looked up at him.
+
+"...A hug?"
+
+He nodded once.
+
+*"Not even my siblings embraced me."*
+
+The words were spoken as simply as if he were commenting on the weather. There was no bitterness or resentment.
+
+Just the truth.
+
+Something tightened painfully in my chest.
+
+Only then did he return the embrace, gently and carefully, like someone discovering a kindness he'd lived trillions of years without.
+
+I rested my head against his chest and closed my eyes.
+
+"...I'm going to keep trying to be different."
+
+I felt him nod.
+
+*"I know."*
+
+For a moment, nothing happened.
+
+No alarms. No gods. No emergencies.
+
+Just silence.
+
+And beside me, the impossible sound of Angelo's heartbeat. 
+
+I almost believed we had finally earned a normal night.
+
+Then my phone rang.
+
+Jacob.
+
+I answered.
+
+"Nayeri."
+
+His voice was serious.
+
+"You need to come back."
+
+"Why?"
+
+A pause.
+
+"Angelo needs to see this."
+
+My expression changed.
+
+"What happened?"
+
+"We found something during a retrieval."
+
+"What?"
+
+"A scroll."
+
+"Jacob, we've found thousands of artifacts. Why is this different?"
+
+His voice lowered.
+
+"Because of where it came from."
+
+A chill ran through me.
+
+"Where?"
+
+Silence.
+
+"The retrieval team sent one final transmission before they disappeared."
+
+My grip tightened around the phone.
+
+"What did they say?"
+
+A pause.
+
+**"They said they found Hell."**
