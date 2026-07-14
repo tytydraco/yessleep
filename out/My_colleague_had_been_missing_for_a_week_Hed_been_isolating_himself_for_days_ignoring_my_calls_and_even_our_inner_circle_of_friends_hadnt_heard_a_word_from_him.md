@@ -1,6 +1,6 @@
 # Journal Entry: The Beloved One: Smiling Corpse
 
-Brookings, Curry County, Oregon.   
+Brookings, Curry County, Oregon.  
 December 2019.
 
 My colleague had been missing for a week. He’d been isolating himself for days, ignoring my calls, and even our inner circle of friends hadn’t heard a word from him. I was the first to genuinely worry. While I didn't go to confront him directly, I called his sister, Tina, to come into town and see what was going on. One morning, I woke up earlier than usual. I didn't reach for my phone immediately; I got up to make breakfast and watched the news for a bit. It was the same old thing. Out of boredom, I decided to switch channels. Then, my phone started ringing from the other room. It was Tina, her voice sounding uncharacteristically serious:
@@ -11,7 +11,7 @@ I answered no and reminded her of how Trevor had been acting lately. Then, Tina 
 
 “Trevor isn’t… here.”
 
-What did she mean, he wasn't there? Had he vanished or something? It had to be some kind of sick joke. And then, I saw a message from him. I let out a sigh of relief—the son of a bitch had scared the hell out of me—but that relief vanished the moment I opened it. It was the photo you’re looking at now, accompanied by a single word:
+What did she mean, he wasn't there? Had he vanished or something? It had to be some kind of sick joke. And then, I saw a message from him. I let out a sigh of relief—the son of a bitch had scared the hell out of me—but that relief vanished the moment I opened it. It was the photo, it was what appeared to be someone wearing a mask with a sad expression, looking at the camera from the foot of a bed, accompanied by a single word:
 
    
 “*Help*”
@@ -35,9 +35,9 @@ Trevor started mocking me, even ripping the note off the tree. I didn't pay much
 
 I was the only one who had heard the footsteps. When I told him, he turned around. Whatever he saw, it made him let out a shriek of pure terror that forced me to pick up the pace. Somehow, we made it back to the car. Once inside, Trevor tried to break the tension:
 
-“Well, that was wild…” 
+“Well, that was wild…”
 
-I didn't laugh. I scolded him for not listening to me. 
+I didn't laugh. I scolded him for not listening to me.
 
 “You idiot, if I lose you, who the hell am I going to investigate this crap with?” I snapped, looking away.
 

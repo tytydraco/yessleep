@@ -1,0 +1,1036 @@
+I had been working as a service technician for automated manufacturing systems for six years. Most service calls were boring—replacing sensors, updating software, recalibrating conveyor belts. Nothing particularly exciting. Still, I liked my job. The pay was good for relatively simple work. A win-win.
+
+Three months ago, however, I received an assignment that I haven't told anyone about to this day. For the past few days, I've stopped feeling safe, and I need to tell my story to someone—even if it ends up helping just one person out there. The factory I was sent to officially didn't even exist in our customer database. Internally, it was referred to only as "Facility X," the name that appeared whenever a work order came in once a year. The only thing my coworker Jerry had ever told me was that Facility X was a dark factory.
+
+Have you ever heard of one?
+
+
+
+Dark factories are fully automated production facilities operated entirely by industrial robots, AI systems, sensors, and laser scanners. They get their name because robots don't need light to work. If there are no humans on the production floor, there's no need for lighting, heating, or air conditioning designed for human comfort. In theory, production can run around the clock in complete darkness.
+
+Creepy as hell, if you ask me.
+
+Don't get me wrong—I love technological progress. But this whole AI thing feels like diving headfirst into the Mariana Trench and hoping a group of friendly mermaids will welcome you eleven thousand meters below the surface.
+
+Anyway...
+
+
+
+That shitty Thursday afternoon, I drove about an hour to the address I'd been given. We could set our own work schedules as long as we didn't have appointments with customers, and I always preferred sleeping in and working later into the evening.
+
+The warehouse sat quietly behind a stretch of forest, accessible only by a rough gravel road.
+
+The nearest house was already several miles away.
+
+I was literally in the middle of nowhere.
+
+The building looked old and weathered; its walls wrapped in thick ivy that crawled across the concrete like dark veins. I checked the address one more time because I had a hard time believing a state-of-the-art production facility could actually be hidden in a place like this. The investment required for an AI-driven robotic factory would have been enormous, so maybe you'll understand why I found it suspicious that there weren't any security cameras, chain-link fences, or guards anywhere on the property.
+
+I stepped out of my van, grabbed my toolbox from the back, and walked toward the entrance on the side of the building.
+
+A sudden gust of wind swept across the clearing.
+
+Leaves rustled in the cool autumn dusk, while a faint metallic whistle echoed from somewhere inside the warehouse. Mounted beside the door was a small keypad requiring a five-digit code.
+
+I pulled out my phone, opened the work order, and entered the last five digits of the job number, which was the standard access code for maintenance calls like this.
+
+  
+
+A long electronic beep sounded, followed by a short mechanical whir as the lock disengaged.
+
+I wrapped my hand around the cold, round doorknob and pulled the heavy steel door open. The moment I stepped inside, it slammed shut behind me with a deafening bang that echoed through the building.
+
+A cool draft hit me immediately.
+
+The air smelled of metal, machine oil, and that sterile scent of freshly cleaned machinery.
+
+The lights in the entrance hall switched on section by section exactly as I approached, only to shut off silently behind me once I had passed.
+
+An impossibly long reception hall stretched out before me.
+
+Polished concrete floors.
+
+White walls.
+
+No plants.
+
+No paintings.
+
+No reception desk.
+
+Just the soft echo of my footsteps bouncing between the towering walls.
+
+But there were other sounds, too.
+
+Faint.
+
+Distant.
+
+
+
+The rhythmic clicking, fastening, and knocking of machines somewhere deeper inside the building.
+
+The atmosphere inside the old warehouse felt... strange.
+
+Not frightening—I knew what I had been sent here to work on—but more like the unsettling feeling that I wasn't completely alone.
+
+I called out into the darkness surrounding me.
+
+"Hello? Anybody here?"
+
+Nothing.
+
+So I followed the distant mechanical sounds.
+
+Beyond a heavy fire door, the actual production floor opened up before me.
+
+Without realizing it, I stopped in my tracks.
+
+The scale of the place was staggering.
+
+Massive steel beams disappeared into the darkness high above the ceiling.
+
+Unlike an ordinary factory, there were no bright overhead lights illuminating the hall.
+
+Almost the entire facility lay in shadow.
+
+Only the areas where robots were actively working or where inspection cameras examined components were lit by narrow cones of cold white light.
+
+Everything else was swallowed by darkness.
+
+ 
+
+It took a few moments for my eyes to adjust to the dim light. Slowly, shapes began to emerge.
+
+Endless conveyor belts glided silently through the factory, disappearing into the darkness before reappearing several yards later beneath another spotlight. Yellow robotic arms moved with flawless precision. Every so often, a welding robot showered the area in bright sparks, illuminating the room for a fraction of a second before everything fell back into darkness.
+
+Between the production cells, autonomous transport vehicles silently followed their programmed routes. Instead of headlights, they projected thin blue laser lines across the floor, constantly scanning the ground ahead. Whenever two vehicles met, both stopped simultaneously, recalculated their paths, and continued on without the slightest human intervention.
+
+Above the machinery, scattered green status LEDs blinked like stars in an artificial night.
+
+The soft hum of servo motors, the rhythmic hiss of pneumatic systems, and the occasional metallic click of robotic grippers filled the enormous hall with an almost hypnotic rhythm.
+
+
+
+I'd seen plenty of modern manufacturing plants before...
+
+But this place was on an entirely different level.
+
+Everything operated with incredible speed and absolute precision.
+
+Some of the technology I recognized looked so advanced that I could've sworn it hadn't even reached the commercial market yet.
+
+As impressed as I was, another feeling slowly crept in alongside my fascination.
+
+Unease.
+
+A facility like this had to cost hundreds of millions of dollars to build...
+
+And yet the security was practically nonexistent.
+
+I pushed the thought aside and reminded myself why I was here.
+
+Work.
+
+
+
+I pulled out my phone again and opened the service ticket.
+
+According to the work order, I was supposed to head to Production Cell E, where several assembly robots required repairs to their drive motors.
+
+I took a moment to get my bearings inside the massive building before spotting a glowing red warning light in the distance, illuminating a small sign marked with the letter E.
+
+As I walked toward my workstation for the day, I couldn't help watching the production line, trying to figure out what all these individual components were eventually supposed to become.
+
+I leaned against the railing of an elevated maintenance walkway and watched the assembly process below. Normally it never took me long to figure out what a factory produced.
+
+After a few minutes, the clues always came together.
+
+In an automobile plant, you'd see body panels, chassis components, or engine blocks.
+
+In an electronics factory, you'd find circuit boards and plastic housings moving along the conveyors.
+
+Even if you couldn't identify the finished product immediately, the overall picture usually became obvious eventually.
+
+Here...
+
+It was different.
+
+  
+
+The components moving past me looked expensive.
+
+Extremely expensive.
+
+One robotic arm lifted a gleaming carbon-fiber frame from a mold and gently placed it onto a conveyor belt. Its surface was flawless—not a single scratch, not the slightest imperfection.
+
+It vaguely resembled a structural support or load-bearing frame, but it was too small to belong to a vehicle and far too sophisticated to be part of any ordinary industrial machine.
+
+A few yards farther down the line, several machining centers were milling components from brushed titanium. Every piece was cut, measured, and inspected with microscopic precision before being passed on to the next station. The manufacturing tolerances had to be absurdly tight. Every single component was examined by multiple cameras from different angles.
+
+I tried piecing everything together in my head.
+
+No luck.
+
+Nothing fit.
+
+It looked as though the factory was simultaneously building aircraft parts, medical equipment, and spacecraft components.
+
+None of it made sense.
+
+The individual pieces were obviously meant to become part of something much larger—that much was immediately clear. But the longer I watched the production process, the less I could imagine what that "something" was supposed to be.
+
+
+
+I shook my head and continued toward Production Cell E.
+
+It looked much like every other workstation in the facility.
+
+Six massive assembly robots stood in a circle around a central work platform.
+
+Their long articulated arms hung motionless above the fixtures, as though patiently waiting for the next component to arrive. A handful of red status LEDs glowed on their bases, indicating operational faults, while a quiet electrical hum drifted from the nearby control cabinets.
+
+According to my work order, the drive motors in two of the robots had been causing unusually high current spikes over the past several days.
+
+Nothing serious. Probably worn bearings or a servo controller that needed recalibration.
+
+Routine maintenance.
+
+I placed my toolbox beside the first robot, pulled out my service tablet, and connected it to the diagnostic interface. The display immediately filled with operating data.
+
+Torque curves.
+
+Motor temperatures.
+
+Power consumption.
+
+Axis positioning accuracy.
+
+ 
+
+At first glance...
+
+Everything looked perfectly normal.
+
+These were exactly the kinds of service calls I liked.
+
+No pressure.
+
+No production supervisors breathing down my neck.
+
+No impatient employees constantly asking how much longer it would take.
+
+Just me, a few servo motors, and a diagnostic routine that usually wrapped up within an hour.
+
+Even so...
+
+That uneasy feeling I'd had ever since entering the factory refused to go away.
+
+Normally there was always someone around.
+
+A gate attendant.
+
+Cleaning staff.
+
+Security guards.
+
+Somebody.
+
+But knowing with absolute certainty that there wasn't another human being anywhere in this facility...
+
+It sent a chill down my spine.
+
+"Well... at least nobody with a heartbeat, right?"
+
+I chuckled to myself as I gave the yellow robotic arm a light pat.
+
+I opened the maintenance panel on the first drive unit and switched on my headlamp.
+
+"Let's see what's wrong with you," I muttered.
+
+
+
+I connected the diagnostic device and started the calibration sequence.
+
+Numbers streamed across the display.
+
+Current draw...
+
+Within spec.
+
+Temperature...
+
+Normal.
+
+No positioning errors.
+
+I frowned.
+
+Then why the hell was I here?
+
+According to the service report, this exact motor had triggered repeated fault messages over the past several days.
+
+Yet everything looked flawless.
+
+Maybe an intermittent sensor glitch.
+
+I grabbed my flashlight and shined it deeper into the housing.
+
+With my left hand, I carefully traced the wiring harness while checking the encoder connector with my right.
+
+
+
+Then—
+
+Click.
+
+A short, dry metallic click echoed somewhere behind me.
+
+I froze.
+
+That hadn't come from the motor.
+
+Slowly...
+
+I turned my head.
+
+The robot was still standing there.
+
+Motionless.
+
+I let out a slow breath.
+
+Probably just a relay switching somewhere inside the control cabinet.
+
+I shook off the thought and leaned back toward the motor.
+
+The instant I did—
+
+Something slammed hard into my forearm.
+
+ 
+
+Before I even realized what had happened...
+
+Cold steel fingers clamped around my wrist with terrifying force.
+
+Snap.
+
+Not violently.
+
+Not frantically.
+
+Precisely.
+
+Like it was performing nothing more than another routine assembly operation.
+
+A startled curse escaped my lips.
+
+Instinctively, I yanked my arm backward.
+
+Nothing.
+
+The gripper didn't budge.
+
+I threw my entire body into it, desperately trying to pull free.
+
+The robot never moved an inch.
+
+The servo motors emitted only the faintest hum as my wrist was pulled deeper between the hardened steel jaws.
+
+"What the—?!"
+
+My eyes shot toward the robot's status light.
+
+Just seconds ago...
+
+It had been glowing red.
+
+Now...
+
+The LED pulsed slowly in a deep amber.
+
+
+
+At that exact moment...
+
+The second robot came to life.
+
+Then the third.
+
+One after another, their joints began to move.
+
+Not erratically.
+
+Not malfunctioning.
+
+Perfectly synchronized.
+
+With the silent grace of flawlessly programmed machines...
+
+All six robotic arms turned toward me.
+
+For the first time since entering the factory...
+
+I realized just how unbelievably quiet the place really was.
+
+No alarms.
+
+No warning sirens.
+
+No automated announcements.
+
+Only the soft whir of servo motors.
+
+And six machines...
+
+Whose complete attention was suddenly focused on me.
+
+Panic exploded inside me.
+
+I desperately tried to wrench my arm free as another steel gripper reached for my other wrist.
+
+I twisted away, rolled to my right, and stretched my trapped arm so far I thought my shoulder was about to dislocate.
+
+With my free hand, I slammed the giant red EMERGENCY STOP button.
+
+Everything stopped.
+
+Instantly.
+
+The robots froze where they stood.
+
+I ripped my bruised wrist out of the first gripper's grasp and stumbled backward.
+
+Trying to get away, I lost my footing, crashed into the railing, and slammed the back of my head against solid steel.
+
+ 
+
+"Ah, damn it!" I yelled, clutching the back of my head.
+
+"What the hell was that?!"
+
+My heart refused to slow down.
+
+I stayed sprawled on the floor for nearly five minutes, staring at the robots while trying to come up with any logical explanation for what had just happened.
+
+One thing was certain.
+
+There was no way I was putting this production cell back online.
+
+My skull throbbed from the impact, and an ugly bruise was already forming around my wrist where the gripper had seized me.
+
+I decided to find a restroom and run some cold water over it.
+
+"There's got to be a bathroom somewhere around here," I muttered to myself.
+
+Slowly, I climbed to my feet.
+
+Keeping my eyes locked on the motionless robots, I backed carefully down the narrow maintenance stairs.
+
+As I followed the service corridor, the constant hum of the production floor gradually faded into the distance.
+
+Then...
+
+Something caught my attention.
+
+A bright strip of light spilled through the gap beneath a steel door.
+
+I stopped.
+
+The door was slightly open.
+
+Odd.
+
+In a facility like this, doors weren't supposed to be left open.
+
+Especially not inside a restricted area.
+
+Mounted above the handle was an electronic keypad.
+
+Its display was completely dark.
+
+The status LED flickered erratically, as though the electronics had shorted out.
+
+Maybe whatever had happened back at Production Cell E had caused more problems than I'd realized.
+
+I hesitated.
+
+  
+
+
+Curiosity had always been one of the most valuable traits in my profession. Slowly, I pushed the door open. The room beyond was flooded with bright white light. Spotless white walls. A smooth epoxy floor. Perfectly climate-controlled air. Everything looked immaculate. Almost like an operating room. Dozens of metal storage racks lined the walls. Resting on them were components unlike anything I'd ever seen before. At first, I assumed they belonged to industrial robots. Ultra-precise titanium joints. Black carbon-fiber sections with surfaces so dark they seemed to swallow the light around them.
+
+Compact servo drives...
+
+Far more powerful than anything I'd ever encountered in civilian automation. Next to them sat optical sensors, laser rangefinders, and spherical camera modules.
+
+I stepped closer.
+
+Only then did I realize how the individual parts fit together. They belonged together.
+
+On a large workbench stood an almost fully assembled upper torso.
+
+Humanoid.
+
+Nearly seven feet tall.
+
+Several sections of its carbon-fiber armor were still open, exposing a dense network of wiring, hydraulic lines, and synthetic muscle bundles beneath. Where hands should have been, modular mounting interfaces had been installed. Lined up neatly on a nearby table were several interchangeable end-effectors.
+
+A hydraulic gripping claw.
+
+A high-speed cutting unit.
+
+And...
+
+A long cylindrical module ending in a heat-resistant ceramic muzzle surrounded by massive cooling fins.
+
+A cold knot formed in my stomach.
+
+This wasn't an industrial robot.
+
+It was a weapon.
+
+
+
+Slowly, I scanned the rest of the room.
+
+The storage racks didn't contain one or two prototypes.
+
+There were dozens.
+
+Maybe...
+
+Hundreds.
+
+Each one carefully numbered.
+
+My stomach tightened.
+
+The factory wasn't building machines for industry.
+
+It was building an army.
+
+Suddenly—
+
+A heavy metallic slam echoed from somewhere near the entrance. It sounded exactly like the main steel door closing. A second later came the sound of hurried footsteps.
+
+Heavy footsteps.
+
+Several people.
+
+The irregular rhythm made that much obvious. To this day, I have no idea why...
+
+But every instinct inside me screamed one command.
+
+Hide. Now.
+
+I dropped behind a cluttered workbench and crouched as low as I could.
+
+The footsteps grew louder...
+
+Closer...
+
+Until they stopped just outside the door.
+
+"You said this room was protected by another keypad lock, didn't you?"
+
+The voice was raspy.
+
+Almost gravelly.
+
+ 
+
+"Uh... yeah, it was supposed to be," another voice replied.
+
+"But who gives a shit? Makes things easier for us. Let's grab the weapons and get the hell out of here."
+
+The second man had a deep, commanding voice.
+
+"Daaaamn..." the raspy one laughed.
+
+"Bet these babies are worth three or four million to the right buyer."
+
+I heard something metallic being lifted from one of the storage racks.
+
+"Put it back, you idiot!"
+
+The deeper voice sounded genuinely irritated.
+
+"These are highly advanced military weapons. I don't feel like getting us all blown to pieces because of your stupidity."
+
+"Relax, boss..." the other man chuckled.
+
+From my hiding place, I couldn't see their faces.
+
+But I didn't need to.
+
+It was painfully obvious these guys weren't here for anything good.
+
+Jesus... what kind of nightmare have I walked into?
+
+My bruised wrist throbbed harder with every passing second as I remained frozen in that awkward crouched position. I listened as the men carefully packed the components into duffel bags, laughing to themselves every now and then.
+
+Then another voice echoed through the room.
+
+A third man.
+
+
+
+"Hey, Boss! I found this out on the production floor!"
+
+My blood ran cold.
+
+My toolbox.
+
+"Shit..."
+
+Sweat dripped down my forehead.
+
+"Damn it," the man with the deep voice snapped.
+
+"There wasn't supposed to be anyone here today. Search the whole facility. Now!"
+
+Footsteps thundered out of the room.
+
+They were coming for me.
+
+What do I do?
+
+Stay here?
+
+No.
+
+Not a chance.
+
+I have to get out.
+
+The darkness on the production floor might actually work in my favor.
+
+Because if they find me...
+
+I'm not walking out of here alive.
+
+I waited.
+
+Five seconds.
+
+Ten.
+
+Fifteen.
+
+As their footsteps spread farther apart, I silently crawled out from behind the workbench.
+
+Now or never.
+
+Keeping low, I slipped into the next corridor.
+
+The polished concrete floor was so spotless that every tiny pebble beneath my boot sounded as loud as a gunshot.
+
+Ahead of me...
+
+A fire door led back toward the production floor.
+
+
+
+ 
+
+I carefully pressed the door handle down.
+
+A soft click.
+
+At that exact moment, a voice echoed behind me.
+
+"There!"
+
+I froze.
+
+Slowly, I turned my head.
+
+Less than thirty feet away, one of the men stood at the far end of the corridor.
+
+The beam of his flashlight swept across the spot where I'd been standing only a second earlier.
+
+Instinctively, I pressed myself flat against the doorframe.
+
+The light inched closer.
+
+A little farther...
+
+A little farther...
+
+Then it stopped.
+
+Right in front of my shoes.
+
+I didn't even dare breathe.
+
+After what felt like an eternity, the flashlight drifted away again.
+
+"Just a shadow," the man muttered.
+
+His footsteps faded into the distance.
+
+Only after I could no longer hear him did I slowly release the breath I'd been holding.
+
+I cracked the fire door open just wide enough to squeeze through.
+
+The production floor stretched out before me once again.
+
+Dark.
+
+Silent.
+
+Only scattered workstations were illuminated by the cold glow of machinery.
+
+The robots continued their tasks as if nothing had happened.
+
+I slipped between the production cells, carefully staying within the deep shadows cast by the massive machines.
+
+More than once, I heard voices alarmingly close.
+
+At one point, I rounded a corner and found myself staring directly into the beam of a flashlight.
+
+I threw myself behind the housing of an enormous CNC machine at the very last second.
+
+The beam swept only inches above my head.
+
+"Nobody up here!" one of the men shouted.
+
+"Keep looking! He can't have gone far!"
+
+Their footsteps drew closer.
+
+I ducked beneath an idle conveyor belt, crawled between its heavy steel supports, and lay perfectly still.
+
+Above me, heavy boots thundered past.
+
+One of the men actually stopped.
+
+I could hear him breathing through his balaclava.
+
+One more step...
+
+
+
+ 
+
+He only had to look down.
+
+Instead...
+
+He turned away.
+
+"Nothing."
+
+Only then did I realize I could already see the exit.
+
+Maybe another hundred yards.
+
+If I could make it that far...
+
+I'd be outside.
+
+Then...
+
+Something happened that I never could have anticipated.
+
+A deafening bang echoed through the factory.
+
+In the next instant...
+
+Something warm splattered across my face. The man standing above me collapsed without making another sound. I tasted the unmistakable metallic flavor of blood as it ran into the corners of my mouth.
+
+What the hell just happened?
+
+I wiped the blood from my face and crawled to the edge of the conveyor line to get a better look.
+
+"Fuck! Marcus, no!"
+
+It was the raspy voice.
+
+"Who the fuck are you, motherfucker?!"
+
+
+
+The man ripped a pistol from his jacket and emptied the entire magazine into a dark figure standing beside one of the yellow robotic arms.
+
+The bullets slammed into it.
+
+The figure didn't even flinch.
+
+Not a single step backward.
+
+Not even the slightest reaction.
+
+"Threat detected."
+
+The voice sent ice through my veins.
+
+It sounded like one of those AI-generated voices...
+
+Mixed with a deep mechanical resonance that was unmistakably robotic.
+
+Then it moved.
+
+Violently.
+
+Faster than anything that size had any right to move.
+
+Within a fraction of a second, it reached the gunman.
+
+With one hand, it lifted him completely off the ground and wrapped its fingers around his throat.
+
+Both figures stood bathed in the sickly green glow of the nearby status LEDs.
+
+Only now could I finally make out what I was looking at.
+
+No face.
+
+No eyes.
+
+Just two camera lenses embedded in a perfectly smooth titanium head.
+
+The robot held the man suspended in the air.
+
+Not tightly enough to kill him immediately.
+
+Just tightly enough...
+
+To make escape impossible.
+
+Almost...
+
+As though it wanted him to understand.
+
+To realize exactly how hopeless his situation had become.
+
+The man gagged violently.
+
+His bloodshot eyes bulged from their sockets as he kicked helplessly through the air.
+
+ 
+
+He pounded desperately against the humanoid creature's carbon-fiber armor.
+
+It didn't matter.
+
+The machine didn't move.
+
+A narrow strip of white light across its head pulsed once.
+
+It grabbed one of the man's arms.
+
+With a sharp crack...
+
+It snapped it apart like a rotten tree branch.
+
+A horrifying scream echoed across the production floor.
+
+The white light flashed a second time.
+
+The robot's metallic fingers shifted and reconfigured, unfolding into a wicked, barbed spike.
+
+Without the slightest hesitation...
+
+It drove the weapon straight into the intruder's abdomen with inhuman force.
+
+The man coughed up blood.
+
+His body went limp.
+
+After one final groan, his head slumped forward.
+
+The machine slowly withdrew the blood-covered spike from his body.
+
+Then it tossed the corpse aside as casually as if it were throwing away a sack of potatoes.
+
+"Target eliminated."
+
+The emotionless voice echoed through the darkness.
+
+What... the... fuck?
+
+My thoughts spiraled into pure panic.
+
+My knees were shaking so violently that I was convinced the robot could hear them.
+
+  
+
+
+Was...
+
+This...
+
+...the final product this factory had been building?
+
+Of course I knew that highly advanced combat robots had been under development for years.
+
+But this thing...
+
+This thing felt different.
+
+There was something deeply wrong about it.
+
+It gave me the unmistakable impression that it actually...
+
+Enjoyed what it was doing.
+
+It could have killed the man instantly.
+
+Instead...
+
+It took its time.
+
+It made him suffer.
+
+What kind of sick bastard had programmed something like this?
+
+I watched as the killing machine continued deeper into the factory.
+
+Slowly.
+
+Methodically.
+
+Completely under control.
+
+I stayed hidden for several more minutes before finally daring to crawl out.
+
+I had to get out.
+
+Now.
+
+My eyes darted constantly from side to side.
+
+Left.
+
+Right.
+
+Behind me.
+
+Moving as quickly as I could without making a sound, I headed for the exit.
+
+One question kept racing through my mind.
+
+Where was the man with the deep voice?
+
+Had the robot already found him...?
+
+
+
+ 
+
+As quietly as I could, I pressed the handle of the front entrance down and slipped out into the cold autumn night.
+
+The icy air hit my face like a punch.
+
+For the first time in hours...
+
+I could breathe again.
+
+My body reacted long before my mind did.
+
+Without looking back, I ran.
+
+Gravel crunched beneath my boots as I sprinted across the empty parking lot toward my service van. My hands shook so badly that I nearly dropped the keys while fumbling for the driver's door.
+
+I threw myself behind the wheel and twisted the ignition. The engine roared to life immediately. 
+
+I slammed the transmission into gear and buried the accelerator. The tires lost traction for a split second, spraying gravel in every direction before the van shot across the factory grounds toward the exit. Only after the front gate had begun shrinking in my rearview mirror did I dare glance behind me.
+
+My heart stopped.
+
+Someone was standing in the open doorway.
+
+Motionless.
+
+Tall.
+
+Unnaturally thin.
+
+It made no attempt to follow me.
+
+It simply...
+
+Stood there.
+
+As though it already knew it didn't have to.
+
+The only thing visible in the darkness was the thin white strip of light where a human forehead should have been.
+
+It blinked...
+
+Once.
+
+Then the factory disappeared behind the next bend in the road.
+
+
+
+\[...\]  
+
+
+A few days ago, I was riding the subway when I heard it again.
+
+That cold...
+
+Emotionless...
+
+Humanoid voice.
+
+Quiet.
+
+Almost whispering.
+
+"Target acquired."
+
+I spun around, scanning the entire train car.
+
+People stared at their phones.
+
+Talked to one another.
+
+Or gazed blankly out the windows.
+
+No one seemed to have noticed a thing.
+
+Maybe I'd imagined it.
+
+Maybe.
+
+Or maybe...
+
+There had simply been too many witnesses on that train.
+
+Ever since that night, I've wondered whether I saw something I was never supposed to see.
+
+ 
+
+One thing is certain.
+
+They found me. And that's exactly why I had to tell you all of this while I still could.
+
+I think something big is coming. And believe me when I tell you...
+
+It's going to end in blood. So let me leave you with one final thought.
+
+Technological progress is an incredible thing. But never forget the humanity that makes us who we are.
+
+Our empathy.
+
+Our compassion.
+
+Our emotions.
+
+Our intuition.
+
+Our ability to make mistakes...
+
+And to forgive them.
+
+We're human.
+
+Far from perfect.
+
+But if you ask me...
+
+That's exactly what makes us perfect.
