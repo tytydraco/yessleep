@@ -1,0 +1,92 @@
+A faint breeze carries a sweet aroma: the nearby lemon tree. Eyes closed, I can hear nature singing its calm symphony. Birds, a stream, rustling leaves. A plane passing overhead jostles me from my reverie.
+
+Dazed, I don't quite remember why I am here. My attention is held hostage by the pain in my head now. Throbbing, beating against the back of my eyes and forehead. I close my eyelids again in a feeble effort to assuage the pain. I wish I could lie here, lie still. Every slight shift causes the pain to come back full force.
+
+I raise a hand to rub my head, maybe I can keep the throbbing at bay for just a moment. Then, I notice a new smell. A sickening realization wrests my eyelids open again. My hand is painted dark red. Now, what was hiding in the cracks of the migraine comes bursting through, out into the open so that I am forced to face it. 
+
+A man is lying face-first in the grass three yards to my left. Right arm next to right ear, left stretched as far forward as it allowed. Maybe, just maybe he can reach the house he is facing and call for help. At this point he is a few hours too late.
+
+Despite the headache's best efforts of keeping me in place, I rise and head over to the body. I am a burly man, but lifting and dragging him 30-odd feet to my car is challenging. I drop him at the foot of my trunk. I berate myself for not opening the trunk beforehand, as if optimizing my order of operations is the greatest concern at the moment.
+
+Body not so gently placed atop the tools in my trunk, I shove the legs in, causing it to assume the fetal position. I reverse out of the driveway, gravel crunching and sent flying by the tires. A cloud of grey dust hangs over the driveway as I make my exit.
+
+Taking perhaps a bit too much Advil with one hand on the steering wheel, I make my way towards somewhere even more remote than Ray's house. Ray. My mind finally wanders past practicality to address what the hell happened the last few hours. I drove to his house. Told him to keep my family's name out of his mouth. He was drunk. It did not go over well.
+
+I didn't want this. I wanted him out of my life. Wanted him to leave us alone. I guess in a sick way I got want I wanted. Then again, now he never will truly leave me, will he? Because of what I did he will forever be an itch at the back of my mind—begging and pleading to be acknowledged. 
+
+About an hour after I left the house, I take an exit for a nearby "town"—quite a stretch of terminology for what is woods, farmland, and a population small enough to fit in a high school gym. A little ways down an access road, I hear movement. Shifting in the rear of my vehicle.
+
+An awful pit forms in my stomach. The pit goes from a sinkhole to an abyss as I hear scratching—nails clawing at the back seat. It grows in volume until it drowns out the car's engine and the wind beating against the vehicle. I want to vomit.
+
+I slam the breaks. The scratching stops. 
+
+I steel myself for what I am about to do. I open the driver-side door. The car engine is still running, yet I can barely hear it over my heartbeat and the ringing in my ears. Ever so slowly, I inch towards the trunk. Knife gripped white-knuckled, the same knife I used to...
+
+I try to push past the panic, to find some modicum of courage latent in me. Only a few steps left now. The hand holding the knife is far from stable. It's shaking nearly out of control. Both palms are drenched in sweat.
+
+I yank open the trunk with all my might, ready to drive my knife into… the man… as many times as needed, and then some more.
+
+But, the body is stationary. Exactly the way I left it. Its eyes vacant, expression listless. Completely still. I check for a pulse, nothing. No scratch marks anywhere in the trunk.
+
+I close the trunk and return to the driver's seat, mind still racing. The sky is now overcast and rain begins to lightly tap against the roof of my car. I catch a glimpse of myself in the rear-view mirror. I look horrid. Pale. Hollow. Eyes sickeningly reminiscent of the awful empty gaze of the dead man.
+
+I notice my hands are still stained red.
+
+The same fifteen second reel plays and replays in my head. Shouting, shoving, then stabbing. 
+
+Blood. 
+
+I wretch. The pit in my stomach returns. It gnaws and gnaws until my whole body feels like a shell. I start the car and put it into drive. I don’t have time for cowardice and regret.
+
+After a few more miles and a few turns, I find a place that looks fine enough. I pull over. I don't have much time before the sun sets. The rain, though light, begins to soak through my T-Shirt, adding to my discomfort. I remove the body from the trunk and begin to drag it away from the narrow dirt road.
+
+After dragging it far enough that my car is barely visible, now obscured behind trees and brush, I drop the body unceremoniously. I run back to my car, all the way thanking God I keep a shovel in my trunk. 
+
+The rain is a bit lighter near the three towering oaks where I begin to dig. Gnarled, tendril-like branches reach down towards me, like the trees want to pluck me right out of the ground. They know I don't belong here. The great roots crawling along the ground remind me of the dead veins running across the pale carcass.
+
+It takes me considerable effort to dig a hole large enough. The sun has nearly set, and a light fog rises to replace it, matching the monochrome sky. I feel that the whole world is engulfed in one large, grey miasma. 
+
+A large knotty root runs through the base of the hole. I lay the body on top of it.
+
+As I turn away from the dreadful thing in the hole, an abhorrent realization cuts through my mind. I noticed something in my periphery. The cadaver smiled at me.
+
+I crane my neck back towards it to confirm what the deep recesses of my mind registered.
+
+Nothing. It is as expressionless as when I drug it across the lawn hours before. A cheap trick played by my brain to mock me. Ridiculing me for my mistake.
+
+I use my shovel to throw a heap of soil over its face. I won't give it a second chance to laugh at me.
+
+As the sky darkens further, the fog gets denser. The arms and fingers of the trees around me seem closer, like the woods are trying to keep me here. It’s changed its mind, now that it realizes what I've done. The hair on the back of my neck stands straight, like I am about to be grabbed from behind. Repeated furtive glances behind me confirm I am alone. The confirmation is not any consolation.
+
+When about a third of the pile of dirt beside me has been placed on the body, a muffled noise grabs my attention. Stirring. Movement coming from the hole.
+
+I shudder, but I do not allow myself to blink. I stare, full focus on the shallow grave. I want to catch it in the act, to prove I am not insane.
+
+Again, nothing. I know the man is dead. I felt the lifeless body. I feel all thought and drive leave my mind. I am lightheaded and dizzy. I want to give in. To lay in the pit with the body and let the Earth take me with him. With Ray.
+
+Lethargy is replaced with panic and I hurriedly cover the hole. The moon provides just enough light to finish. I nearly forget my shovel as I begin to make my escape. Then I hear it.
+
+Laughter. Muffled.
+
+I am fully prepared to accept that my mind is shattered. I just need to make distance between me and the hole. Bury my sins in the bottle. As many bottles as it takes to scrub this from my mind forever.
+
+"Finn—" A muffled rasp comes from the ground. "Finnegan," slowly and carefully articulated. My name. I sprint back to my car. A straight shot.
+
+I throw the shovel in the passenger seat and fly down the dirt road.
+
+Despite barely seeing a few yards past the hood of my car due to the thick fog, I press on. The fog warps every formless shadow into a silhouette. The lifeless man waits for me, expectantly, resting against a street sign. As I pass by, the image becomes clearer: merely a felled tree. 
+
+I arrive home from the eternal drive through endless fog. I drink myself into a dreamless sleep.
+
+Yesterday's migraine returns as today's splitting headache. My alarm clock reads 5:24. Four hours of sleep. The fog that followed me on my drive home still blankets the area.
+
+As I prepare for the day, I am again confronted by my reflection. The thirty-three-year-old man staring back at me in the mirror has aged ten years in the span of a day. Harrowed, drained. My death-like complexion scares me. Even so, I can't help but smile.
+
+Ray is dead. He can mock me no longer. He is in a shallow grave eighty miles from me. He can laugh and call my name all he wants, but only the oaks will hear him; Their roots growing into his rotten smile.
+
+I begin to laugh. I hate the rasping cackle that comes from my throat, but that doesn't stop me. I've done it. Ray is no more. Self-important, arrogant, trailer-trash Ray. I’ve done this town a favor.
+
+About midday I walk to the woods behind my house. I dig a new hole, one much smaller than before. It is an abrupt end, an inelegant funeral, for the knife that so abruptly ended Ray. I admire the knife for a final time. Still coated red, it is simple and crude, purchased from a hardware store years ago. Nothing about its design or form suggests the power it wielded over Ray, and the power it will forever wield over me.
+
+I gently place it in the hole and cover it. I can't help but think that it won't stay buried for long. It will find its way back to me; It will reassert itself. Nothing stays buried and forgotten forever, right? I laugh aloud at the thought. The laugh sounds even more foreign than before. Something I can't quite place makes me think the laugh did not ring out in solitude—that it was accompanied by another.
+

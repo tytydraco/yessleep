@@ -1,0 +1,471 @@
+Rain crashed through the Black Pine Forest.
+
+Lightning illuminated a rusted wooden sign hanging crooked beside the road:
+
+CAMP BLOOD
+
+EST. 1952
+
+The word CAMP was scratched nearly beyond recognition.
+
+Beneath it, someone painted in dried blood-red letters:
+
+DON’T STOP.
+
+A battered pickup truck rolled slowly toward the camp entrance.
+
+Inside sat RIPPER.
+
+Former Marine infantryman.
+
+Thirty-five.
+
+Scarred.
+
+Cold-eyed.
+
+One hand gripped the steering wheel.
+
+The other rested on a combat knife.
+
+His jaw tightened as he stared at the trees.
+
+Because something in the darkness was staring back.
+
+The truck engine died near the abandoned mess hall.
+
+Ripper stepped out into the mud.
+
+The camp looked frozen in time.
+
+Broken swings moved in the wind.
+
+Cabins sagged inward.
+
+Rotting banners still hung between trees.
+
+WELCOME CAMPERS!
+
+Ripper lit a cigarette.
+
+A voice crackled from a nearby handheld radio.
+
+“Ripper… you there?”
+
+He answered calmly.
+
+“Yeah.”
+
+“You sure about this?”
+
+“No.”
+
+Static hissed.
+
+Then:
+
+“Bodies started showing up again this week.”
+
+Ripper looked toward the woods.
+
+“I know.”
+
+“You think it’s the same thing from ’87?”
+
+Long silence.
+
+Then Ripper muttered:
+
+“It never left.”
+
+Elsewhere on the highway…
+
+A dented white van sped toward Camp Blood.
+
+Inside were four online thrill-seekers filming a livestream.
+
+Trevor — loudmouth host.
+
+Melissa — skeptic.
+
+Kyle — prankster.
+
+Jenna — camera operator.
+
+Trevor grinned into the camera.
+
+“What’s up, NightCrawlers? Tonight we’re spending the night at the REAL Camp Blood!”
+
+Kyle laughed.
+
+“The murder camp!”
+
+Melissa rolled her eyes.
+
+“You guys know twenty-seven people died there, right?”
+
+Trevor smirked.
+
+“Exactly why we’ll hit a million views.”
+
+Jenna frowned while checking the map.
+
+“Why does GPS keep cutting out?”
+
+Then the van radio suddenly turned on by itself.
+
+Static.
+
+A little girl’s voice whispered:
+
+“Don’t come here…”
+
+The radio exploded with screaming.
+
+The van nearly swerved off the road.
+
+Kyle yanked the radio plug free.
+
+“What the hell was that?”
+
+Trevor forced a nervous laugh.
+
+“Okay… that was weird.”
+
+The trees thickened around them.
+
+Fog rolled over the road.
+
+Then headlights illuminated a man standing ahead.
+
+Ripper.
+
+Still.
+
+Silent.
+
+Covered in rain.
+
+Trevor slowed the van.
+
+Ripper walked to the window slowly.
+
+“You need to turn around.”
+
+Trevor smirked.
+
+“Let me guess — cursed woods?”
+
+Ripper didn’t blink.
+
+“You’re already too late.”
+
+Melissa noticed blood on his flannel shirt.
+
+“You hurt?”
+
+Ripper glanced toward the trees.
+
+“No.”
+
+Something growled deep in the forest.
+
+Close.
+
+Very close.
+
+Against Ripper’s warning, the group entered the camp.
+
+Trevor livestreamed every second.
+
+“Alright chat — abandoned Camp Blood!”
+
+Thousands of viewers flooded the comments.
+
+FAKE.
+
+THIS PLACE IS CREEPY.
+
+GO INSIDE THE CABINS.
+
+Kyle found an old counselor mask hanging from a tree.
+
+“Yo! Slasher cosplay!”
+
+Ripper ripped the mask from his hands instantly.
+
+“Don’t touch things here.”
+
+Kyle scoffed.
+
+“Why? Ghost germs?”
+
+Ripper stared hard at the mask.
+
+Fresh blood dripped from inside it.
+
+Kyle’s smile disappeared.
+
+Inside the main lodge…
+
+Dust floated through flashlight beams.
+
+Old camp photos covered the walls.
+
+Every face had been scratched out.
+
+Melissa studied one photograph.
+
+Children standing beside a lake.
+
+Behind them — a tall blurry figure in the trees.
+
+She pointed.
+
+“Who’s that?”
+
+Ripper answered immediately.
+
+“No one.”
+
+But his voice changed.
+
+Fear.
+
+Real fear.
+
+Jenna suddenly noticed deep claw marks gouged across the wooden floor.
+
+Huge marks.
+
+Not human.
+
+Trevor kept filming.
+
+“This is incredible.”
+
+Ripper grabbed the camera lens.
+
+“Turn it off.”
+
+Trevor pulled back.
+
+“Relax, Rambo.”
+
+Ripper listened carefully toward the ceiling.
+
+Then whispered:
+
+“Be quiet.”
+
+Everyone froze.
+
+Something was moving above them.
+
+Slow dragging footsteps.
+
+THUMP.
+
+Dust fell from the rafters.
+
+Kyle laughed nervously.
+
+“Probably raccoons.”
+
+THUMP.
+
+THUMP.
+
+The ceiling creaked.
+
+Then silence.
+
+Trevor raised the camera upward.
+
+A pale face suddenly appeared upside down from the darkness above.
+
+Black eyes.
+
+Rotting skin.
+
+Huge jagged smile.
+
+Jenna screamed.
+
+The creature dropped onto Trevor.
+
+CRASH.
+
+Its limbs bent backwards like a spider.
+
+Trevor kicked wildly while it sniffed his face.
+
+The thing spoke in a wet broken voice:
+
+“Fresh meat…”
+
+Ripper moved instantly.
+
+Military precision.
+
+He drove his knife into the creature’s neck.
+
+BLACK BLOOD exploded across the room.
+
+The creature shrieked and scrambled up the wall like an insect.
+
+Then vanished into darkness above.
+
+Everyone panicked.
+
+Melissa grabbed Ripper.
+
+“What WAS that?!”
+
+Ripper reloaded a sawed-off shotgun from his duffel bag.
+
+“Local wildlife.”
+
+Kyle stared at him.
+
+“You knew these things were here?!”
+
+Ripper ignored him.
+
+“Barricade the doors.”
+
+Outside…
+
+Something screamed in the woods.
+
+Then another answered.
+
+Then another.
+
+Jenna looked out the window.
+
+Shapes moved between the trees.
+
+Dozens.
+
+Tall.
+
+Thin.
+
+Wrong.
+
+The camp loudspeaker suddenly crackled alive overhead.
+
+Static filled the night.
+
+Then a child’s voice whispered:
+
+“The last camper is back…”
+
+Ripper’s face went pale.
+
+The creatures attacked all at once.
+
+Windows shattered inward.
+
+Long clawed arms reached through the darkness.
+
+Trevor fired the shotgun wildly.
+
+BOOM.
+
+One creature lost half its face — but kept crawling.
+
+Kyle screamed as another dragged him through a broken window.
+
+Ripper grabbed Kyle’s arm.
+
+For a second they locked eyes.
+
+Kyle sobbed:
+
+“Don’t let go!”
+
+Then something in the darkness pulled harder.
+
+Kyle vanished screaming into the woods.
+
+Bones cracked loudly.
+
+Then silence.
+
+Melissa cried.
+
+“Oh God…”
+
+Ripper slammed the window shut.
+
+His chest was bleeding badly.
+
+Deep claw wounds.
+
+Human beings should not survive wounds like that.
+
+But the flesh was already healing.
+
+Melissa stared in horror.
+
+Ripper noticed.
+
+He quietly buttoned his flannel shut.
+
+Only Ripper, Melissa, and Jenna remained alive.
+
+The lodge shook violently.
+
+The creatures circled outside.
+
+Jenna whispered:
+
+“We’re gonna die here…”
+
+Ripper checked his knife.
+
+“No.”
+
+“How do you know?”
+
+Ripper stared into the darkness beyond the windows.
+
+“Because they’re not hunting you.”
+
+The room went silent.
+
+Melissa slowly turned toward him.
+
+“What do you mean?”
+
+A deep howl echoed across Camp Blood.
+
+The creatures suddenly stopped attacking.
+
+Stopped moving.
+
+Stopped making noise.
+
+Like soldiers awaiting orders.
+
+Then every creature in the woods looked toward the lake.
+
+Ripper’s expression changed instantly.
+
+Fear.
+
+Real fear.
+
+“No…”
+
+The lake water began bubbling black.
+
+Something enormous moved beneath the surface.
+
+The loudspeaker crackled one final time.
+
+A distorted voice whispered:
+
+“Welcome home… Ripper.”
