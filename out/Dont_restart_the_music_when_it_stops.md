@@ -1,0 +1,47 @@
+Music is a form of escape for many people, including myself. As a kid I'd spend my day jamming away to whatever CD I wanted to replay for hours in my own bedroom.
+
+For my entire life, I've lived within the same suburb in my city, only moving houses three times, twice as a teenager and now currently living in my own house that I inherited from my late father when I was 21, all only several blocks from each other, and despite the many changes over the years, I still see many familiar faces that have aged and grown alongside me.
+
+About two decades ago, when I was 13, I decided to tag along with my dad to go shopping at the local supermarket. He told me that I could grab anything I wanted as a special occasion, and like the giddy young boy I was, I rushed over 4 aisles down while music jingled softly on the overhead speakers. I spent a good minute eyeing on several different kinds of snacks while humming to myself, while a lanky, pale young worker eyed on me as he walked past. 
+
+On the way back, I noticed that the speakers had suddenly stopped playing music. The only sound left was the faint intercom which crackled softly, just barely breaking the silence. I looked around curiously to see if anyone had even noticed, but the people that had been shuffling along previously had completely disappeared. 
+
+I walked more slowly than usual, and when I turned the corner to the aisle my dad was in, he wasn't there. Out of instinct, I started whistling to try to break the silence, which was then followed by the sound of footsteps, that seemed to have originated from the same aisle I was in previously.
+
+But these footsteps were unusual, it was almost as if it was carefully trying to move itself towards the source of the noise, as if it was trying to sneak its way towards me in between the notes of my whistles. I immediately stopped whistling, when the footsteps then came to a sudden halt. Then what had then felt like the longest 5 seconds of my life, it seemed to slowly backtrack to where it was initially.
+
+I remained dead silent for the next 15 seconds, when I then caught my dad turning around into my aisle at the other end. The radio then continued to play as if nothing happened, and I spoke nothing of it to him on the way home.
+
+This memory was shelved for a while, and I didn't think much more about it aside it being a pretty unusual experience. 
+
+A decade later, the same event occured. I was in my bedroom with my computer playing music in the background while trying to drown out the music of the neighbours partying next door. It seemed to go on forever, so I decided to head outside and ask them to keep it down a bit. 
+
+When I opened the sliding door, about a second later, the speakers had immediately stopped playing. The voices of parents and children inside had also completely stopped, the kind of silence you notice when someone in particular walks into a room and all conversations are immediately hushed.
+
+I decided to walk back to my room and resume the music on my computer. Several seconds later, I heard the footsteps again, and it seemed to softly press its away along the sidewalk outside my house. 
+
+My memory from a decade prior immediately clicked back, so I wanted to test the waters  and let the music play for a little longer while I turned the volume down slightly. The footsteps then appeared to change pattern, as if it was trying to focus and pinpoint where the music was coming from more carefully, taking irregular strides and moving from side to side at some points. 
+
+I turned my head around towards my window, and thats when I noticed the faint outline of a figure through the blinds of my window several metres from the entrance of my house. I kept my eyes on it and I rolled my chair back, hitting pause. The figure stopped dead in its tracks, then appeared to move backwards slowly in a slightly jerky manner, almost dancing in a certain way. 
+
+I spent about a whole minute staring at the window trying to recollect myself, when the speakers next door promptly resumed and the voices started talking again as if nothing had happened.
+
+  
+I never knew much of my nextdoor neighbours, occasionally we'd enter our own homes at the same time without saying a word to each other. The owner, who I presumed was the dad, had lived there his entire life. But I've recognised him my whole life, and from what I remember, he worked at the old local supermarket two decades ago when he was about 20 years old.
+
+He was a tall, frail man who would always spend a second longer that what would have been comfortable looking at me whenever I walked out of the house with my headphones on, or if I was whistling on the way to my car. On one occasion recently, he started to walk with an awkward gait when he noticed me carrying a new vinyl record on the way home. 
+
+  
+Last night, it happened again. The neighbours were partying again, for what I assumed was an anniversary of some sort. I decided to walk out in front of my door to have a smoke, and muttered something to myself a little too loud. The music had stopped again, and I walked back to my own room while forgetting to close the front door. I resumed my record player when suddenly the footsteps had come again. 
+
+What was a decade ago had now felt like yesterday, and I decided to hide in my closet with my lights turned off while the vinyl kept spinning on my desk. The footsteps made their way towards my house, when I then realised it was now in the entrance of my hallway.
+
+I didn't make a sound, and I breathed methodically while peering through the slits of the closet door. The footsteps were now much louder, and more slower, until it reached my room. I saw the outline of the familiar figure again, and it made its way to the record player until it stopped suddenly. 
+
+I couldn't discern much in the darkness of my room, but while I peered through the closet door, the figure then started to slowly dance, twirling around like a ballerina in an odd fashion, and jerked irregularly to the rhythm of the music. Its body was spindly and pale, looking a little too underdeveloped for the kind of moves it was performing.
+
+It kept doing this for the next several minutes, dancing with no clean pattern while I tensed every muscle possible as to not disturb "it". It started moving more erratically and violently as the album progressed, until the record player stopped.
+
+From there, it stopped dancing, and starting carefully shuffling its way out of my house until I couldn't hear it anymore. The party next door didn't continue.
+
+This morning I walked towards my car when I noticed my nextdoor neighbour watering his frontyard with a tired face. Inside the car, it automatically started playing the same album that the "thing" was dancing to last night. I immediately shut it off.
