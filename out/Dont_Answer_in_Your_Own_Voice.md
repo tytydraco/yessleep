@@ -30,7 +30,7 @@ For the first few seconds, there was only quiet breathing. Then I heard my own v
 
 
 
-“Ten seconds after you finish listening, someone will knock on your front door. Don’t open it.”
+"Ten seconds after you finish listening, someone will knock on your front door. Don't open it."
 
 
 
@@ -54,7 +54,7 @@ Three slow, deliberate knocks.
 
 
 
-I lived alone on the seventh floor. The building’s entrance locked automatically at midnight, and the elevator had been broken all week.
+I lived alone on the seventh floor. The building's entrance locked automatically at midnight, and the elevator had been broken all week.
 
 
 
@@ -78,7 +78,7 @@ This time, I answered.
 
 
 
-“Do not speak,” my voice said immediately. “It doesn’t know whether you’re home yet.”
+"Do not speak," my voice said immediately. "It doesn't know whether you're home yet."
 
 
 
@@ -86,7 +86,7 @@ I remained silent.
 
 
 
-“Turn off every light in the apartment.”
+"Turn off every light in the apartment."
 
 
 
@@ -102,19 +102,11 @@ The sound was slow and uneven, as though the finger had too many joints.
 
 
 
-“Good,” the voice whispered through the phone. “Now go to the bedroom. Don’t look into any mirrors.”
+"Good," the voice whispered through the phone. "Now go to the bedroom. Don't look into any mirrors."
 
 
 
-I crossed the hallway, keeping my eyes on the floor. My apartment contained three mirrors: one beside the front door, one in the bathroom, and a tall antique mirror in the bedroom.
-
-
-
-I had inherited that last one from my mother.
-
-
-
-As I passed the bathroom, I heard a soft tap against the glass inside.
+I crossed the hallway, keeping my eyes on the floor. As I passed the bathroom, I heard a soft tap against the glass inside.
 
 
 
@@ -130,7 +122,7 @@ I entered the bedroom and closed the door.
 
 
 
-“Get under the bed,” my voice instructed.
+"Get under the bed," my voice instructed.
 
 
 
@@ -138,11 +130,11 @@ I froze.
 
 
 
-“There isn’t enough room.”
+"There isn't enough room."
 
 
 
-“There will be.”
+"There will be."
 
 
 
@@ -162,11 +154,11 @@ The voice on the phone sighed.
 
 
 
-“That’s what I did too.”
+"That's what I did too."
 
 
 
-“What do you mean?” I whispered.
+"What do you mean?" I whispered.
 
 
 
@@ -178,7 +170,7 @@ Then my own voice screamed:
 
 
 
-“Why did you answer me?”
+"Why did you answer me?"
 
 
 
@@ -186,31 +178,11 @@ Every door in the apartment slammed at once.
 
 
 
-The bedroom mirror began to vibrate against the wall.
-
-
-
-A shape moved inside its reflection.
-
-
-
-It looked like me, standing in the hallway behind the reflected version of my bedroom. Its head was tilted sharply to one side. Its smile widened until the corners of its mouth split.
-
-
-
-But when I turned around, the real hallway was empty.
-
-
-
-My reflection raised one finger to its lips.
-
-
-
 My phone spoke again.
 
 
 
-“From now on, whatever you hear, do not answer in your own voice.”
+"From now on, whatever you hear, do not answer in your own voice."
 
 
 
@@ -218,11 +190,11 @@ A child began crying inside my wardrobe.
 
 
 
-“Dad,” she whispered. “Please let me out.”
+"Dad," she whispered. "Please let me out."
 
 
 
-I don’t have a daughter.
+I don't have a daughter.
 
 
 
@@ -230,7 +202,7 @@ The wardrobe doors shook.
 
 
 
-“Dad, there’s someone in here with me.”
+"Dad, there's someone in here with me."
 
 
 
@@ -246,7 +218,7 @@ Something inside the wardrobe sniffed the air.
 
 
 
-Then it spoke in my mother’s voice.
+Then it spoke in my mother's voice.
 
 
 
@@ -254,7 +226,7 @@ She had been dead for eleven years.
 
 
 
-“Daniel,” it said gently. “I’m frightened.”
+"Daniel," it said gently. "I'm frightened."
 
 
 
@@ -262,7 +234,7 @@ My hand tightened around the phone.
 
 
 
-“Don’t listen,” my voice warned. “It tries the dead first.”
+"Don't listen," my voice warned. "It tries the dead first."
 
 
 
@@ -286,15 +258,15 @@ I stepped backward.
 
 
 
-The thing hidden among my clothes whispered in my mother’s voice:
+The thing hidden among my clothes whispered in my mother's voice:
 
 
 
-“Tell me you remember what you did.”
+"Tell me you remember what you did."
 
 
 
-I couldn’t breathe.
+I couldn't breathe.
 
 
 
@@ -322,7 +294,7 @@ But I knew why she had stopped taking her medication.
 
 
 
-“Tell me,” the wardrobe demanded.
+"Tell me," the wardrobe demanded.
 
 
 
@@ -334,7 +306,7 @@ The voice on the phone shouted:
 
 
 
-“Don’t answer!”
+"Don't answer!"
 
 
 
@@ -342,7 +314,7 @@ The thing stepped out.
 
 
 
-It wore my mother’s nightgown, but its body was too tall and thin. Its face remained hidden behind long gray hair. With every step, its backward feet cracked against the floor and twisted around to follow it.
+It wore my mother's nightgown, but its body was too tall and thin. Its face remained hidden behind long gray hair. With every step, its backward feet cracked against the floor and twisted around to follow it.
 
 
 
@@ -350,7 +322,7 @@ I stumbled toward the bedroom door.
 
 
 
-“Where do I go?” I asked the phone.
+"Where do I go?" I asked the phone.
 
 
 
@@ -370,7 +342,7 @@ I had spoken in my own voice.
 
 
 
-My mother’s shape lifted its head.
+My mother's shape lifted its head.
 
 
 
@@ -386,131 +358,23 @@ From that phone came my voice:
 
 
 
-“Now it knows which one you are.”
+"Now it knows which one you are."
 
 
 
-The bedroom door opened behind me.
+I ran into the hallway.
 
 
 
-I ran into the hallway. Every mirror was filled with versions of me. Dozens of them stood shoulder to shoulder in rooms that did not exist.
+In the mirror beside the entrance, my reflection wasn't running. It stood still, shaking its head slowly, pointing at the ceiling behind me.
 
 
 
-Some were crying.
+The tall thing wearing my mother's nightgown was crawling toward me along the ceiling.
 
 
 
-Some were pounding soundlessly against the glass.
-
-
-
-One had no eyes.
-
-
-
-Another held a phone and mouthed three words:
-
-
-
-\*\*DON’T TRUST HIM.\*\*
-
-
-
-The voice in my hand spoke urgently.
-
-
-
-“Go to the front door. It’s safe outside now.”
-
-
-
-I stopped.
-
-
-
-In the mirror beside the entrance, my reflection shook its head.
-
-
-
-The phone continued:
-
-
-
-“Open the door, Daniel.”
-
-
-
-Three knocks came from the other side.
-
-
-
-Then a man in the corridor called my name.
-
-
-
-He sounded exactly like me.
-
-
-
-“Don’t listen to the phone,” he pleaded. “That isn’t me.”
-
-
-
-My reflection pointed at the bedroom.
-
-
-
-The tall thing wearing my mother’s nightgown was crawling toward me along the ceiling.
-
-
-
-“Open the door!” the phone shouted.
-
-
-
-“No!” cried the voice outside. “It wants you to let it out!”
-
-
-
-The ceiling creature turned its faceless head toward the door.
-
-
-
-For the first time, I understood.
-
-
-
-Whatever was outside wasn’t trying to enter.
-
-
-
-It was trying to keep this thing inside.
-
-
-
-I backed away from the entrance.
-
-
-
-The phone began to laugh.
-
-
-
-Not with my voice anymore.
-
-
-
-With hundreds of voices.
-
-
-
-Children. Old women. Men speaking languages I didn’t understand. People begging, praying, and screaming over one another.
-
-
-
-Then the screen lit up.
+Then my phone screen lit up.
 
 
 
@@ -518,35 +382,31 @@ A video call had started.
 
 
 
-I saw my apartment from above, as though the camera were mounted in the ceiling.
+I saw a road at night, filmed from inside a car. Rain on the windshield. Headlights swinging across wet asphalt.
 
 
 
-I saw myself standing by the front door.
+I knew that road.
 
 
 
-I saw the creature crawling toward me.
+I saw my own hands on the steering wheel—seventeen years old, knuckles white.
 
 
 
-And I saw someone beneath my bed, holding a phone.
+And in the passenger seat, my mother turned to the camera and said:
 
 
 
-It was me.
+"Tell me you remember what you did."
 
 
 
-Older, starved, and covered in dirt.
+The car swerved.
 
 
 
-He looked directly into the camera.
-
-
-
-“Please,” he whispered. “You have to come down here before it takes your place.”
+The screen went black.
 
 
 
@@ -554,7 +414,7 @@ The creature dropped from the ceiling.
 
 
 
-I threw the phone at it and opened the front door.
+I threw the phone at it and tore the front door open.
 
 
 
@@ -570,15 +430,23 @@ The elevator had been broken all week.
 
 
 
-Inside was a man facing the corner.
+Inside was a woman facing the corner.
 
 
 
-He wore my clothes.
+She wore a hospital gown.
 
 
 
-“Daniel,” he said without turning around, “you answered in your own voice.”
+A folded wheelchair leaned against the wall beside her, as though she no longer needed it.
+
+
+
+"Daniel," she said without turning around. "Get in. It won't follow you while I'm here."
+
+
+
+I knew that voice. I had heard it every day for seventeen years, and then never again.
 
 
 
@@ -586,23 +454,27 @@ Behind me, something walked out of my apartment.
 
 
 
-The hallway lights went dark one by one.
+I ran into the elevator.
 
 
 
-I ran into the elevator and pressed the ground-floor button.
+The doors closed just before the thing reached us.
 
 
 
-The doors closed just before the thing reached me.
+As we descended, my mother finally turned around.
 
 
 
-As the elevator descended, the man in the corner began quietly counting backward from ten.
+She had a face. Her real face. Tired, kind, exactly as I remembered it from the hospital.
 
 
 
-I watched the floor numbers change.
+"It came for you the night of the accident," she said quietly. "At 2:17. That's when the car hit the barrier. That's when it always comes."
+
+
+
+The floor numbers changed.
 
 
 
@@ -614,11 +486,43 @@ Six.
 
 
 
+"It only wants one thing. A confession, spoken aloud, in your own voice. That's how it takes you." She looked down at her hands. "So I answered it first. I told it I was driving. It believed me. They always believe a confession."
+
+
+
 Five.
 
 
 
-He reached zero.
+"It took my legs that night. Then, slowly, everything else. But it never touched you." She smiled the way she used to smile when she was lying to me about the pain. "That was the trade."
+
+
+
+Four.
+
+
+
+"But trades expire, Daniel. Eleven years. Then it comes back to check who was really behind the wheel."
+
+
+
+Three.
+
+
+
+"It will keep coming. Every night, at 2:17. And if it can't take you—"
+
+
+
+Two.
+
+
+
+"—it will wait for someone you love. The way I couldn't let it wait for you."
+
+
+
+One.
 
 
 
@@ -634,84 +538,104 @@ Someone was asleep in my bed.
 
 
 
-It was me.
+It wasn't me.
 
 
 
-My phone rested on the nightstand.
+It was a boy, maybe ten years old. I had never seen him before. But he had my mother's nose, and my hands, and when he stirred in his sleep he mumbled a word that sounded like "Dad."
 
 
 
-The screen lit up and began to ring.
+A son I don't have.
 
 
 
-The number calling was mine.
+A son I might, someday.
 
 
 
-The sleeping version of me reached for it.
+The phone on the nightstand lit up and began to ring.
 
 
 
-I tried to shout a warning, but the man in the elevator grabbed my throat.
+The number on the screen was his own.
 
 
 
-“Careful,” he whispered in my voice.
+The boy reached for it.
 
 
 
-“If he hears you, you’ll have to trade places.”
+"It tries the future too," my mother whispered behind me. "If there's no one left in the past."
 
 
 
-The man sleeping in my bed answered the phone.
+I stepped out of the elevator.
 
 
 
-“Hello?”
+I picked up the phone before the boy could touch it.
 
 
 
-And from the phone on his nightstand, I heard myself say:
+And for the first time in eleven years, I answered in my own voice.
 
 
 
-“Ten seconds after you finish listening, someone will knock on your front door.”
+"I was driving," I said. "It was me. It was always me."
 
 
 
-The elevator doors began to close.
+The line was silent for a long moment.
 
 
 
-Just before they met, I saw the sleeping man sit up.
+Then something on the other end exhaled, slow and satisfied, and my own voice—calm, almost gentle—replied:
 
 
 
-He looked directly at me.
+"Finally."
 
 
 
-Then he smiled.
+The bedroom dissolved. The boy, the bed, the elevator, my mother's face—everything folded into darkness, and the darkness smelled of wet soil and old breath.
 
 
 
-From somewhere inside the elevator, three slow knocks sounded.
+\---
 
 
 
-Not against the doors.
+I'm writing this from under the bed.
 
 
 
-From beneath the floor.
+I don't know whose bed. The space down here is bigger than it should be, and somewhere far above me, I can hear footsteps in an apartment that used to be mine.
 
 
 
-And my own voice whispered:
+My phone still works. It only makes one kind of call.
 
 
 
-“This time, don’t make me wait so long.”
+Tonight, at 2:17, it will dial a number. Someone will look at their screen and see their own number calling. And when they listen to the voicemail, they'll hear their own voice—because down here, that's the only voice the phone lets you use.
+
+
+
+If that someone is you, I need you to understand.
+
+
+
+The voice on the phone isn't the monster. It's someone like me, trying to keep you alive the way someone once kept me alive. Follow the instructions. Stay quiet. Stay hidden.
+
+
+
+And no matter what it shows you—no matter what it knows about you—remember the only rule that matters:
+
+
+
+Don't answer in your own voice.
+
+
+
+Unless you're ready to pay for what you did.

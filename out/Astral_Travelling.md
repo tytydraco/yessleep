@@ -1,0 +1,25 @@
+When I was young my mum, brother and I moved around a lot after my parents split up and sold the house. Around ten we moved into what my brother and I initially thought was the coolest house we could have hoped for. A short walk to the beach, a large park full of pine trees directly across the road from the front door. 
+
+The house itself was old, two story and very large for the south west coast of Australia. It had been painted white numerous times and had a plain brown tiled roof. Unusually, as it was so large it had been divided into four seperate units two on the ground floor and two on the upper story with the according stair case removed from what became our front room.
+
+The first few weeks in that house were a happy time, we had our second cousins come to visit from the city up north, I remember making quite the impressive box fort with the remaining moving boxes, we would race our bikes through the hills and pines of the park adjacent to the front door and walk over the grassy dune along a sand track to the beach. I also remember our cat going missing the day we moved in. Straight under our mothers bed and only to be seen whilst eating. 
+
+That didn’t seem unusual at the time as we had moved a few times and Bijou always took a little time to adjust as animals do. 
+
+I do remember being terrified of the hallway that led down to the toilet on the right and to my brothers bedroom on the left. Terrified from the day we first moved in, and at times I felt a strange discomfort creeping over me in the kitchen. I flat out refused to go down that hallway at night.
+
+ I didn’t have my own room it was more of a corner or alcove that led off to the door way of our mother’s bedroom from the lounge room. Just my small bed and a white chest of drawers. 
+
+Around three weeks in to living on the corner of Princep street I started to dream. The same dream every single night. Every night a woman came for me, she would lead me away. Back always turned and right arm trailing back to hold my hand. Guiding me along. Wearing what seemed to be a black dress that stretched all the way up over the back of her head. I never saw her face but always present was an icy fear that she would turn to look at me. Away she would take me and all I could see around us as we walked was grey, indistinct and forever. On and on she would lead always trailing back her arm for my small hand. And always i would wake with a jolt of fear and spend the remaining hours of the dawn frozen in my bed unable to move. 
+
+This went on for a month or so with me complaining to my poor mother who didn’t really know what to do about it. 
+
+Eventually she moved my bed into her room. My dream would not stop. After that, though I was ashamed to be ten years old and sleeping in my mothers bed I thought this woman would not be able to pluck me from right beside my own mum. Every night she came and took me away and I would wake staring at the large wooden support beam that ran the length of the bedroom with a new found terror that it would fall at any moment and crush us both.
+
+As weeks drew by I continued to tell our little family of my never ending dream and unease began to spread through the house. My brother complained of a night terror in which he came to the end of the hall and turned into the front room to see a staircase stretching from the left corner of the room to the floor with a man at the top descending toward him and with each step his jaw stretched down further and further toward his feet. 
+
+With both of her children terrified our dear mum not knowing where to turn called what I suppose you would call a psychic or a medium. I can’t remember if her number came from the local classifieds or a friend. I do remember this woman entering the house and straight away identifying a horrible presence of some sort. She then proceeded to move all of our belongings around and burn some sage throughout each room. At ten years old I felt she was a phoney as my dreams continued that same night. 
+
+After five or six months in that horrible old home we left. I can’t quite remember if it was just beforehand or just after that we found out that it was built on the remains of an aboriginal burial ground, within fifty metres of a very old catholic cemetery in which there is estimated to be five hundred and twenty graves laying under the very dune we would run across down the sandy track to the beach.
+
+I honestly get chills remembering this twenty years later, I have come to think that maybe the woman who would take me from my bed every night was trying to take me away from that horrible place. Maybe away from the man on the stairs. Maybe she was taking me astral travelling to a different plain, just long enough to keep me protected until I could wake again.
