@@ -250,7 +250,7 @@ As he paced away, David snickered and whispered something under his breath: a do
 
 *“A spoonful of sugar makes the medicine go down…”*
 
-*- - - - -* 
+*- - - - -*
 
 **2026:**
 
@@ -272,7 +272,7 @@ So, unlike before, I wouldn’t have the luxury of a countdown. 
 
 I sighed, swallowed some aspirin, and placed my shovel into the trunk.
 
-\- - - - - 
+\- - - - -
 
 **1999:**
 
@@ -380,7 +380,7 @@ I thought for a moment. 
 
 “Yeah. I understand.” 
 
-\- - - - - 
+\- - - - -
 
 **2026:**
 
@@ -398,7 +398,7 @@ Took me until dawn to find the right spot. My shoulders were aching, my palms we
 
 I prayed the tapes would still work. 
 
-\- - - - - 
+\- - - - -
 
 **1999:**
 
@@ -512,11 +512,11 @@ Both of my optic nerves looked incinerated - the type of injury they’d see in 
 
 Obviously, that wasn’t true, or the truth was more complicated. 
 
-My nerves may have been burned to a crisp, destroying them completely, 
+My nerves may have been burned to a crisp, destroying them completely,
 
 but my deep eye was wide open. 
 
-\- - - - - 
+\- - - - -
 
 **2026:**
 
@@ -567,5 +567,3 @@ I forced a grin. 
 I think it was convincing. 
 
 “I want to show you all some of my [favorite movies](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/). "
-
-  
