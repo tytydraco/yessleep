@@ -1,0 +1,341 @@
+I took a drag off my cigarette. I felt nervous. I was sitting in the rehearsal room, alone and waiting for my bandmates to arrive. Sometimes it doesn’t matter how big you get, stage fright can always be a threat. I was the lead guitarist in a metal band called Iridescent. We had a show in an hour, our first show after the release of our debut album. It was by far the biggest venue we would ever play at, containing nearly five thousand people. My heart was pounding.
+
+“Hey Danny you doing alright?” Mike said to me as he walked into the room. Mike was our lead singer, he was a great band mate and friend. He would always try to make me feel better, he knew as well as the rest of the band how nervous I can be before a show. I was infamous to them with that. Being the lead guitarist and Mike being the singer, a lot of eyes would be on us and so we shared the same amount of nerves most of the time.
+
+“Yeah. Yeah I’m fine. I just need to calm my nerves.” I said while putting out the cigarette.
+
+Mike laughed at me.
+
+“Hey man don’t even worry about it, we’ve done this exact show so many times. We’re finally gaining popularity! And you’re a beast dude, you can shred on that guitar.” He said.
+
+I don’t know how he did it, he always knew the right words to motivate me.
+
+“Just like rehearsals man. This could be our big moment. Just shred on that shit like you normally do.” he said.
+
+I nodded at him and laughed while he started mimicking a guitar solo with his fingers. “Thanks Mike.”
+
+He was just about to respond when a shit faced Alex barged through the rehearsal room door and violently slamming it behind him. This was typical of him. Alex was our drummer and he loved his alcohol, especially before a show. None of us minded though because he would still do his part in keeping the band in time, no matter how much he drank. I always found it pretty impressive, and I could see tonight was no exception for his average behavior.
+
+“Yo yo what’s up mister Mike and Dan.” He said tripping over his foot in the process and nearly falling.
+
+I laughed.
+
+“Hey Alex, I see you’re ready for the show.” I said.
+
+“Oh man. More than ready. I’m about to smack the shit out of these drums, all I gotta do is pretend it’s Mikes face.” Alex said while he sat behind his drum kit and began to furiously smack them with his sticks.
+
+“Yeah that’s why you’ll have the least amount of eyes on you out of all of us.” Mike said with his middle finger up.
+
+Alex flipped the finger back at him and finally, Dave walked in with his bass. Dave was normally a quiet guy, but we loved him anyway. He never drank, smoked or even partied with us. Dave’s priority was the music and success and we respected him to no end for it. He was the glue that kept the band together, the one who inspired us and kept us focused.
+
+“Hey hey now we finally got mister Dave! The whole family is here guys! Now let’s all do a shot to celebrate.” Alex said.
+
+“I really don’t think you need anymore. We’re on in an hour so let’s start rehearsing.” Dave said while plugging his bass into his amp.
+
+“He probably took that as an insult.” Mike said.
+
+As soon as Dave got himself setup, Alex counted us down and we played our last rehearsal before the show. We all played without problem, hardly missing notes and it seemed to me like we were gonna put on a great show.
+
+After we had recited the songs, we felt ready. It was before I even knew it that 45 minutes had passed. Just then our manager Nathan knocked on the door and walked in, coming to deliver our requests before we were on.
+
+“Just in time Nathan, thanks man.” Mike said while being handed his energy drink. He gave me and Dave our energy drinks and shot Alex a look.
+
+“What?” Alex said.
+
+“This is the last time I’m giving you alcohol before a show. You guys are starting to gain traction so I need you to start focusing on what matters more.” Nathan said sternly.
+
+“Just give me the vodka.” Alex said with his hand out.
+
+Nathan rolled his eyes and reluctantly tossed the bottle over. Alex took a long swig and swallowed it down like it was water, remaining stone faced as he did so. We were all staring at him with a hint of amazement.
+
+“Alright guys. This is your biggest show yet so just be you. Play just like how you would in small bars. You guys got this, I know you do.” Nathan said.
+
+His words were nice to hear, I had never been more nervous for anything in my life but hearing the support I had from my bandmates and manager, I was feeling better.
+
+Me, Mike and Dave slammed our energy drinks in less than a minute and crumpled the can in our hands.
+
+We were ready.
+
+I stood backstage, guitar strapped around me. Just behind the curtain standing in front of us were thousands of people. Here only to see us. We were on in 2 minutes. I could hear the crowd cheering and roaring in anticipation and my heart felt like it was going to jump out from my chest.
+
+“Remember Danny, just like rehearsal.” Mike said to me, likely noticing my body language.
+
+I could barely speak, so I just nodded.
+
+Nathan suddenly appeared behind us and huddled us into a small circle.
+
+“This will be a great night for all of us. Iridescent will be the next big thing after tonight. So just be you.” He said.
+
+We broke the circle as we saw the venue lights dimming behind the curtain. It was showtime.
+
+I walked onto the stage and for a brief moment, took in just how many people were there. It looked like a mini sea of heads all staring at us. The crowd erupted as Alex started his drum intro, spotlight on him. He would typically play a short drum solo before we got into our songs. Just as I heard the crash symbol, it was my queue. I strummed a chord and the lights were now focused on all four of us.
+
+We got into our first song and I felt the music flow through me, trying to look confident through my body language. We were all doing pretty well and I was starting to have fun. Just as I felt my fears were gone, I noticed something in the crowd. About halfway into our set right before a guitar solo, I saw something that caused me to play a few wrong notes.
+
+I saw what looked to be Mikes body in the crowd right at the front row. I blinked a couple times to make sure my mind wasn’t going crazy, but I kept seeing it no matter what I did. It looked as if his throat had been slashed, his eyes lifeless. His body was sitting in an empty chair. I felt the bodies eyes on me, though there was none to watch me with. I was quickly filled with confusion and a small feeling of fear, this was so sudden and I didn’t know how to react.
+
+As awful as this sight was to see, I was on stage in front of thousands of people so all I could do in this moment was try to ignore it. It was difficult. I somehow nailed the solo and when I looked back, saw two more bodies in the chairs next to him. I saw Dave and Alex sitting in the once empty chairs, both of them also looking long dead. It was extremely nerve racking seeing these sights during a show and it was so sudden and out of nowhere. I couldn’t do anything about it. This was our big moment and I didn’t want to ruin it for us by giving these hallucinations too much attention.
+
+I glanced a look around the stage to make sure my bandmates were all still there, and they were. Alex slamming the drums, Dave locked on his bass, and Mike walking around on stage singing. They were looking just as normal as before. I looked back at the bodies and they were gone.
+
+I should have been terrified, but i felt more confused. Ive never had any issues with hallucinating for my entire life, yet here i was being faced with it in the middle of the biggest moment of my life.
+
+If I was on some sort of drug, I could easily dismiss it but I was completely sober. What was going on with me?
+
+I thankfully didn’t see them for the rest of the show and the concert was a success, all four of us nailing each song. After I played the final chord for our last song, adrenaline took me over. I couldn’t believe what we had just done. However, the sights of my bandmates never left my mind.
+
+I knew it wasn’t real, but I had seen it. After a few short minutes of euphoria, it was taken over by a feeling of confusion and a strong sense of anxiety. What had I just seen? And why?
+
+As I walked backstage deep in my thoughts, Alex caught up to me from behind and jumped on my back.
+
+“MAANN! DANNY WE FUCKING KILLED IT!!” He yelled.
+
+I pushed him off me and laughed.
+
+“How drunk are you Alex.”
+
+“You don’t need to worry about that. All I know is WE BLEW THOSE PEOPLES HEADS OFF!” He said, jumping like a little kid.
+
+I tried to share in our victory, but that feeling was already gone. I was still stuck up on what I’ve seen. How and why did I see that? It felt realistic and less like a hallucination the more I thought about it. The sight was detailed and clear in my mind and it was freaking me out and stripped away any other emotion I should have been feeling.
+
+I had completely zoned out and unaware Alex was talking to me, eventually I snapped out of it when he yelled my name.
+
+“DANNY! Are you alright?”
+
+“What? Yeah. Yeah I’m ok, why?”
+
+Alex looked at me with a slight tinge of concern.
+
+“Are you sure?” He asked.
+
+“Yes I’m fine. Where’s Mike and Dave?” I asked.
+
+“Oh yeah, they went off to a party at Nathans. Man even Dave is going! Are you not going? Have they not told you about it?”
+
+“Uhh.. no they haven’t. Are you going to go?”
+
+Alex took a gulp straight from his bottle before answering.
+
+“Of course I’m going. The nights only just begun. IM BLACKING OUT TONIGHT!”
+
+He took another gulp and spoke again.
+
+“So are you coming too?”
+
+I didn’t want to. I was shook up by what I had seen, and I couldn’t tell him about it. Not only would he be he too drunk to process it correctly, but I didn’t want to ruin the feeling of excitement for him. Our dream came true that night, and he had a right to celebrate with no worry. So I kept my mouth shut about it.
+
+“Nah I’m not gonna go, I’m feeling pretty exhausted.” I said.
+
+Alex looked at me confused, but then shrugged his shoulders.
+
+“Alright suit yourself. You’re missing out.” He said.
+
+I nodded at him and with that, he was gone. I walked to my car and drove home in silence.
+
+I sat on my couch, feeling antsy. What I had just seen was completely ruining the moment for me, and I felt terrible about it. I was supposed to be with them right now, enjoying myself. Yet here I was alone at my apartment, feeling anxious. I had a bad feeling and I had no idea why. Why couldn't I just be there with them?
+
+After about an hour of debating, I came to a decision.
+
+"Ah fuck it." I said out loud to no one in particular.
+
+I should be with them right now, It isnt the time for my emotions to ruin this. I pulled out my phone and called Mike. The line rang for a couple seconds before he picked up.
+
+"DAN!! My man where are you? Dude this party is crazy! Dave is so drunk right now its hilarious where are yo-"
+
+"I'm coming." I interrupted.
+
+I heard him celebrate and after a few seconds he spoke again.
+
+"About time. We're at Nathans, man ive never been here before. His house is huge you gotta see this!"
+
+I could hear in his voice he was drunk.
+
+"Alright send me the address, ill head there." I said reluctantly.
+
+I hung up and before I could even get up, he sent it to me. I picked up my keys, got in my car and headed over.
+
+When I got there, I noticed i had to park a few blocks down because the house was so packed. I studied the house for a few minutes. Mike wasn't wrong, the place was massive. It looked to be a full on mansion.
+
+I quickly smoked a cigarette, and walked to the front door. Before I could even touch the knob, the door flung open and Mike greeted me with Alex.
+
+"Dan the man! Get your ass in here!" Alex said with a pipe in his hand.
+
+I walked inside and I heard Motley Crue playing loudly from a speaker I couldn't see.  I was surprised to find there weren't even that many people around, the house was so huge you could fit the entire street of people in there. This was weird to me, I never knew Nathan had so much money.
+
+I shut the door behind me and took in just how huge the house was, there had to be easily three stories here. He had spiraling stairs going up to the next story, a pool in his backyard patio along with a personal bar in the living room. Where had Nathan gotten all of this money? His only job was managing our band, and we weren't even all that well known.
+
+My thoughts were quickly interrupted when Dave put his arm on my shoulder, almost falling.
+
+"We are.. the greatest band. Ever.....man". He said, stuttering multiple times. I could tell even this one sentence took almost every part of his strength to get out.
+
+"Holy shit Dave! Dude are you alright?" I asked.
+
+Mike laughed and punched my other arm.
+
+"Oh he's alright. He's celebrating! Now its your turn Danny."
+
+Mike gestured to me to follow him and he walked over to the bar, poured a shot of whiskey and slammed the shot glass in front of me. I looked at it for a few seconds thinking about it before slamming it down, the buzz hitting me almost instantly.
+
+Alex and Dave celebrated and Nathan walked up from behind us.
+
+"Danny where were you?" Nathan asked.
+
+"Just wasn't sure if i wanted to come, but I changed my mind." I said.
+
+"Its good you came, you guys all killed it tonight, you deserve to celebrate." He said.
+
+"I never knew you lived in such a big house Nathan, this is insane." I said looking around.
+
+"Haha yeah I just never wanna say anything about it, not for any specific reason I just don't tell anyone." he responded.
+
+I shrugged and with that, he turned around and walked away. I thought I might have offended him or made him mad, but I found myself more suspicious than anything. It just doesn’t make sense, we were still a small band and our first album only sold 10 thousand copies first week. We thought it did pretty well but it doesn’t add up with how much money Nathan clearly had.
+
+Eventually I decided to stop thinking about it, who was I to be all up in his business anyway? The vision of what I saw at the show was still bothering me. No matter how much I thought about it or tried to think of a logical explanation, the less sense it made. I was trying so hard to stop letting it take over my mind, but it was only getting worse.
+
+I was in the middle of my thoughts, feeling overwhelmed when I felt a tap on my shoulder. It was Alex, sitting on the barstool on my right.
+
+“Dan are you sure you’re alright? You’ve been acting weird all night.”
+
+I wanted to tell him, but I didn’t think I could. Instead I decided to ask him a question that seemed important.
+
+“Yeah I’m fine. Hey Alex do you think Nathan managed a few other bands other than us?”
+
+Alex looked at me puzzled.
+
+“Well yeah obviously. Has he never told you? He managed another band before us, can’t remember the name of them though.”
+
+That made sense, maybe I really was just being too nosy. Nathan never really did tell us about his personal life anyway, so maybe I should just leave it alone.
+
+“Oh ok. I was just curious that’s all.” I said.
+
+Alex chuckled.
+
+“You wanna hit the pipe with me and Mike?” Alex asked.
+
+“Yeah sure but just give me a minute, leave me here for a bit I’ll come join you guys in a few.” I said.
+
+Alex poured a shot of whiskey for me and walked away. He was really trying to get me wasted. On any other night I would have, but I didn’t want to now. I regretted coming to this party but I was already here.
+
+I took the shot and felt the familiar burning sensation down my throat. I took a few seconds to get up and eventually I did. I decided I wanted to take a walk around the house, it really was something.
+
+I got up from the barstool and walked to the stairs. The second story luckily had nobody up there, so I was free to roam. I reached the top of the stairs and saw a loft with a pool table and actual arcade machines near the walls. I looked around to see two different hallways on my left and my right with at least 4 different doors on each side. This place was insane, I still couldn’t believe my eyes.
+
+I walked to the hallway on my right and opened the second door down, feeling like I was invading Nathan’s personal space. I was pretty tipsy by this point and wasn’t thinking twice about my actions. I walked in to see an empty room with a closet and a plain bed. I was just about to walk out when I heard something. It sounded like a light kick on the closet door. Confused, I walked over to the closet. Suddenly an unexpected wave of dread completely took me over and I wasn’t sure if I should open that door. I stared at it for a few seconds before grabbing the knob and with some effort, I opened the door.
+
+When I saw what was inside the closet, I found I was right to be afraid. I almost didn’t believe it, but there was no denying what I saw. I saw a man, looking frail and skinny. I could see his ribcage through his stomach. He was covered in sweat and was tied to the corner, his legs and one arm being the only free parts of his body. His pants were covered in what looked like dried blood and his mouth was duct taped shut. He was gesturing with his head to the bed.
+
+“What..?” I said.
+
+He desperately continued pointing his head to the direction of the bed. Reluctantly, I slowly walked over to it to find a sharp knife on a pillow. I picked it up with my shaking hands and before I cut the ropes tying him in place, I pulled the duct tape off his mouth. I needed to know what was going on. I let him speak before me, it was hard to get out any words.
+
+“Get me out.. of here. Please.” He said.
+
+“What happened? Did Nathan do this?” I asked, trying to keep my voice down.
+
+He nodded and desperately kept trying to free himself. I didn’t understand what was going on, everything was moving too fast for me to process anything correctly.
+
+Nathan tied this man up and tortured him?
+
+Nathan wouldn’t ever do that, he was one of the nicest people I’ve ever met. It was one of the reasons we decided on him being our manager. I didn’t know what to do, there was no way of getting him out of the house without anybody noticing.
+
+“What happened to you?” I asked.
+
+He looked at me with pleading eyes but didn’t respond.
+
+“Can you please talk to me?” It took everything in me to not yell at this person. My emotions were so out of control I almost did.
+
+“I can’t explain everything to you here, just please get me out of here.” He finally said.
+
+I knew I couldn’t do this alone, I would have to come up with some sort of plan to get this man out of the house. Who knows what would happen if Nathan saw me with this man.
+
+“Ok wait here.” I said
+
+“I’m going to get some people to help you out. Just please don’t move.”
+
+I was out of the room before he could respond, I needed to get at least one of my bandmates. I ran downstairs and began frantically searching for any one of them, thankfully I immediately spotted Alex and Mike sitting at the bar next to each other. I ran to them.
+
+“Alex! Mike! Please follow me.”
+
+They both paused, looked at each other and then started laughing. They were beyond wasted at this point.
+
+“What the hell is wrong with you mister Daniel?” Alex said.
+
+Mike laughed so hard he almost fell from the stool.
+
+“Please you guys have to help me. I found someone tied up upstairs.” I said desperately, trying to keep my voice down.
+
+Both of them could read the look on my face and then finally started to take me seriously.
+
+“Tied up? What do you mean tied up?” Mike said confused.
+
+“Just please follow me.” I said.
+
+They both finally stood up, almost falling on each other in the process. I speed walked upstairs and lead them to the room. When we got in, I couldn’t find him. There was not a single shred of evidence that anyone was ever even in the room. I looked around hopelessly, but it was clear I wasn’t going to find anyone.
+
+“I swear somebody was in here. I know someone was.” I said.
+
+“Man mister Daniel over here is on some killer acid. You mind passing me some of that, Dan the man?” Alex said.
+
+Mike was laughing so hard his face was turning a beet red, and I was getting frustrated. Had I imagined this too? There was no way, I had just talked to him.
+
+"Can you guys please be fucking serious for once." I said irritated.
+
+"Alright yeah." Mike said.
+
+"Where did you say he was?"
+
+I pointed to the open closet, he peered inside to find no one there. He was about to say something, but a noise interrupted him. We heard what sounded like shifting coming from under the bed. We all stared at each other for a few seconds before I cautiously looked at the source of the noise. It was the same man, he had somehow moved from his position. I saw he was holding the knife in his free hand. He looked at me nervously.
+
+"Hey its just me. You can come out." I said, trying to sound reassuring.
+
+He looked at me for a moment and started to move from under the bed, practically throwing himself out. I looked at Mike and Alex, they both looked dumbstruck.
+
+Alex quietly shut the door and walked up to the man.
+
+"Holy shit man. What happened?"
+
+The man just looked at him and it seemed like he was going to cry. He quickly studied us and finally spoke.
+
+"Who.. are you guys?" The man was struggling over his words.
+
+"We're a band that Nathan manages, now can you please tell us what happened?" Mike said, finally able to talk.
+
+The man looked down and hopelessly shook his head.
+
+"You all need to leave right now, before he sees you. I don't think you guys will be able to free me."
+
+He was talking to us as if we knew everything, but we didn't.
+
+I was starting to get slightly frustrated.
+
+"Can you please tell us what happened to you?" I said, trying to hold my tongue.
+
+The man kept his eyes down and spoke.
+
+"You are all in real danger. Nathan doesn't care about you. He manages young bands like you and when you don't deliver the money anymore, he throws you into his basement. I cant tell you why, he just does. I don't understand why he cant just leave us alone when he's done with us"
+
+I looked at him with confusion.
+
+"What?"
+
+The man looked up at me.
+
+"I know how it sounds, but you have to believe me. He gives you food or drinks before a show right? He puts something in there to force you into doing what he wants. I don’t know what it is, but I found out about it and that’s why I’m here.”
+
+I was speechless and surprised with how coherent he was now. I was overwhelmed with so many questions I wanted to ask him, but I let him talk. I'm sure he sounded insane but with the visions I saw earlier, I thought maybe this would serve as some kind of explanation.
+
+"Have you three ever even wanted to be in a band? Really think about it."
+
+Alex chuckled nervously. "Man what are you talking about?"
+
+Mike and Alex started talking to each other in hushed voices, but I drowned them out after I thought about what he had said. The more I concentrated, the more I was starting to realize. He was right. I hadn’t.
+
+I couldn't remember where I had even met my bandmates, it was as if they just appeared in my life overnight.
+
+I've always loved the kind of music we played, but I can't remember any part of my life where I even picked up a guitar before I had met them. Growing up, I had completely different dreams and ambitions. I can't really describe it, but it was like I was almost gaining memories back that I hadn't even forgotten.
+
+Suddenly, the door bursted open behind me and before I could react, I felt cold weapon bashing into my head, and I saw nothing but darkness.
+
+**END OF PART 1**
+
+**PART 2 COMING IN A FEW DAYS**.

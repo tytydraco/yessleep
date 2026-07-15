@@ -1,0 +1,135 @@
+It wasn’t until I got home and opened the game that I realized it didn’t have a disc at all. Instead, the box only had a flimsy paper with a 16-digit code. I felt like I’d been cheated.
+
+I called the store and asked them if they had any *actual* physical copies of the game. They said no, and even if there was a disc version, most discs apparently act as nothing more than licenses for a digital download. The woman on the phone seemed just as disappointed as I was, and it sounded like I wasn’t the first customer to call about this.
+
+It sucks, but I wasn’t about to return the game, so I booted up my console and typed in the code. It’s obviously used now (I tried if it works again, but it just gives an error), but here it is anyway:
+
+**IDNO-0033-R3D5-HIF7**
+
+On the screen, instead of the game’s logo popping up, there was an image that didn’t really make any sense. The entire background was black, but not pure black, but instead a little bit… grainy. And in the middle there was a fuzzy object, somewhat oval except that its edges were blurred so it was a bit hard to tell. The object was made up entirely of hues of orange and red.
+
+Against the black background, it almost looked like an eye. An angry, red eye, surrounded by dusty darkness.
+
+The download started off with thirty minutes to go, but quickly went down to three as my internet picked up. The console said the game was called **Redshift**. 
+
+Maybe something had gone wrong at the factory, or perhaps it was a software problem. Either way, it seemed like they’d put the wrong code in the box or the console’s software was somehow fucking up. An anger rose up in my chest, but I tried pushing it back down. I just wanted to play my dumb $60 game.
+
+… And if it had been the actual disc this would never have happened, and now I was gonna have to call the store and try to explain what happened. I wondered whether they even give refunds if the code was already used. Fuck’s sake. 
+
+As I dialed in the store number on my phone, psyching myself up for an anxious phone call (I despise phone calls), the game finished downloading and the console booted it up automatically.
+
+I put my phone down, intrigued by what this might be. Anyway, it might be that installing the game revoked my right for a refund, so I might as well check it out. 
+
+For a good ten, twenty seconds the screen was black. For a moment I thought the whole thing might just be a corrupted gamefile, but then the screen flickered white, a harsh buzz came from the speakers and quickly died down to silence. Then a stripped-down menu popped up. In white text against a black background, there were two buttons: **Information** and **Start**.
+
+If it was a game, judging by the startup and the menu, it was very poorly made. Something you’d find at the bottom of a Steam sale for five cents, down from two ninety-nine. 
+
+I pressed **Information**, and the screen flickered again. The console’s fans jumped into action with force and then smoothed out to a warm white noise. Then a wall of text popped up. 
+
+>Through spectroscopic observations it is possible to determine whether astronomical objects are moving towards an observer, or away from an observer. At high enough speeds, when an object is moving *towards* the observer, its color shifts towards **blue**. When an object is moving *away* from an observer, its color shifts towards **red**. The former phenomena is known as blueshift, and the latter as redshift.
+
+\[Continue\]
+
+ Alright, I thought–at least this explains the name of the game. I pressed continue.
+
+>Two years ago, a research station picked up radio frequencies from deep space whose origins were unable to be determined. Subjected to further analysis, the frequencies were deciphered to approximate an assortment of visual images. During communications, the station’s research team believed that the information might be of intelligent design in origin.
+
+The station went silent soon after their discovery. Emergency correspondents found each member of the team deceased. Their bodies had been subject to skinning and bloodletting.
+
+\[Continue\]
+
+What the fuck? Was this some weird text-based horror game? 
+
+>Through research we have been able to identify which images have led to what we now consider to be acute psychotic breaks with violent tendencies. Those images have been secured, and are not contained within this program. The rest of the images can be viewed after returning to the home screen and pressing Start.
+
+The images contained within have not been recorded to have adverse effects on viewers. Further research requires that they be viewed by a variety of subjects.
+
+\[Continue\]
+
+If this was a game, it was definitely a weird one. Skinning and bloodletting? What does that even mean, like actually?
+
+>To partake in the experiment, we ask that you install a camera, and point it so that your face is fully visible. When you press Start, the program will automatically start recording and relay the data to our researchers. 
+
+Each participant who completes the experiment will be compensated with $250 and a complete refund of the program (“Game”), sent to the buyer listed under their identifier number. To complete the experiment, you must look at each image for a minimum of twenty (20) seconds until all images have been viewed, and the screen displays “End”.
+
+\[Continue\]
+
+The next time I pressed continue, the main menu popped up again. I was back at the start.
+
+I searched my desk for an old webcam I had and plugged it into the console, balancing it on top of the monitor. A green camera icon popped up in the upper left of the screen, and I assumed as much that it was working.
+
+Now, you might call me stupid, but I did press **Start**. I didn’t even think about it, really–either this was some weird game that tried to creep you out by breaking the fourth wall, or it was the real thing, which meant that I would get some very easy money. 
+
+Obviously, I did not think that it would be the real thing.
+
+After pressing Start, the screen flashed bright white and an odd sound, like an electrical whine, came through the speakers, before returning to silence. Then came the images.
+
+The first image was the same one shown as the logo of the game, except zoomed in. On the bottom right corner there was the familiar \[Continue\] button, which was greyed out for the time being. I looked at the image, not really trying to make sense of it–it was probably just a depiction of the “redshift” phenomena–as much as what the role of the camera was for the game. Would it analyze my reactions for a jumpscare, or perhaps record the footage for a funny gag to share online? 
+
+Either way, I was very much prepared for something odd to happen. 
+
+The \[Continue\] button lit up. I assumed it meant that the mandatory twenty seconds had passed, so I clicked on it.
+
+The second picture was much more strange. In it, three children were playing outside at night, skipping rope. The one in the middle was the focal point, and although the movement of the children made the image slightly blurry, everything seemed more or less fine with the way he looked. There were also some odd digital artifacts in the image, which looked like basic editing filters.
+
+The two other kids, though… they looked *off*. Although the image was in full color, their skin was gray, like the color had been washed right off them. On their arms and fingers, it looked like things weren’t quite like they should be either. On the other kid, it was like the fingers were fused together in parts, as if melted together. On the other kid, the forearms were longer than normal, extending so far that if they were to put their arms down, it wouldn’t have been a long distance to the ground. 
+
+Their faces were off, too. And that’s what *really* gave me the creeps. Their eyes were flush with the skin, the noses higher than they should be, the mouths wide like knives and smiling like caverns. There was abnormal topography there, too. Where the cheekbones should be, the skin was rounded out. And up on the foreheads of these odd, creepy-looking children, were small bumps like bags of rocks.
+
+I looked at that picture for much longer than twenty seconds, and it felt like with each passing moment that I found something new that looked a little bit abnormal. My skin started itching, and in my mind I applauded whoever had edited these images to look so goddamn creepy. 
+
+The third and fourth images were of more redshift phenomena: more round objects that held a similar hue to the object in the first picture. They could’ve all been different images of the same object, but I couldn’t really tell.
+
+The fifth image made me almost turn the monitor off. 
+
+Three people were laying down individual tables that were made of some dark, yet marble-like rock. 
+
+Their skin was… gone, like it had never been there. Only flesh and tendon remained.
+
+Each one was bright red, the blood still fresh like water droplets on leaves after rain. They looked dead–or maybe I just assumed as much–but their eyes were wide open, staring up. Behind them were walls made of the dark rock, carved in odd triangles and spikes with smooth, concave sections scattered in an odd, geometrical pattern that didn’t make any sense. The image looked like the set of a 70s slasher, albeit it did not *feel* fake. 
+
+The way it did made me feel was not the way a movie or a TV show could ever do. It was real–it must have been–harkening back to a long-forgotten traumatic memory of accidentally seeing a cartel beheading on the internet, back when Liveleak and other such sites were a thing.
+
+The \[Continue\] button was no longer grayed out. There was no indication of how many more images were left, but I pressed the button anyway, hoping to force myself through the rest of them in quick succession. Maybe it was pride, or just fear that made me not want to quit. Pride is nothing more than a reaction to fear, anyway.
+
+At first, I thought the sixth image looked like an insect of some kind, made up of blueish hues. There were three long lines, thin and dark, and atop them laid a wide, curved surface, much brighter. From this surface and all around it there were shapes and lines stranding off like a web made with sharp turns. 
+
+Yet there was something familiar about it. The more I looked at it, the more it reminded me of those old TV satellites that would need to be installed on top of houses for cable TV, except much bigger and more complex.
+
+But I wanted to get this over with, so immediately when the button came back to life, I pressed \[Continue\]. Except that after that, there were no more images, just text.
+
+>Thank you for your participation. Once we have reviewed the data and confirmed its validity, you will receive $250 cash sent to the address linked to your account. If this address is not up-to-date, please make any necessary changes during the next fourteen (14) days. 
+
+Expect to receive your compensation in the next six to twelve months. 
+
+\[Exit\]
+
+I shut off the program and pondered, breathed out for what felt like the first time in a while, and wondered if I should delete the program. But then again would that make it so they couldn’t access my information for the money?
+
+Besides, I still couldn’t say whether it was real or not. Or if only parts of it were. Everything about it made me feel nauseous, and like I needed to go on a run to get rid of this terribly anxious energy.
+
+In the end, I decided to keep it installed for the time being, even if it did creep me the fuck out. 
+
+The next day, I called the place I bought the game from and explained that the code didn’t give me the game I’d bought. I sent them a photo of the code and they said it didn’t match the set of codes for the game, so it was most likely an error of some kind. They said they’d contact their supplier, but I did get a new copy and this one was for the actual game I wanted.
+
+Anyway, this all happened last week, and I’ve been happily ignorant of my shitty life for the time being. I go to work, come back and play the new game until I’m tired enough to watch TV until I fall asleep again. The whole redshift thing had tried bothering me, but I just pushed it aside, like I did with most everything that I found uncomfortable.
+
+But today when I booted up my console, there was a notification that made my hands sweat.
+
+>Installing update: **Redshift** 1.1
+
+It wasn’t a large update, and my internet’s been better recently so it was downloaded and installed before I could stop it. 
+
+I’m afraid of what’s waiting for me if I open it. 
+
+But being afraid… I’m sick of it. I’ve been making my mind a fuzzy concoction of escapism for years, and I don’t know if I’ve let myself feel a single thing for more than a minute before I just find a way to drown it out. 
+
+It’s probably just a game, some weird ARG or something. 
+
+But what if it’s not?
+
+Just thinking about opening it makes me so frightened and anxious that I can barely sit still. But there’s life in that feeling, and I don’t know if I’ve had much of life within me for years. I’d forgotten what it feels like.
+
+Then again, it might just be a regular patch to keep it usable. 
+
+But I think I have to find [out](https://wintersnoah.wordpress.com).
