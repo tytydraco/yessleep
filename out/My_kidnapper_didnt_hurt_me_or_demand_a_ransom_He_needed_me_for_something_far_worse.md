@@ -144,7 +144,7 @@ I took a deep breath. 
 
 Eighteen hours, five minutes, and twenty-one seconds left; then I get to go home. 
 
-The engine growled as we started up an incline, curling around a mountainside road with a concerning lack of guardrails. The estate stood at the small mountain’s apex, looming at the edge of a plateau that overlooked the interstate. The architecture was sleek and avant-garde, a conglomeration of chrome rectangles stuck together in the vague shape of a house. A large cylinder stood in front, angled towards the sky. The property was encircled by an imposing steel picket fence. Circular bulbs adorned the barrier, casting sickly light that struggled to beat back the darkness. 
+The sedan growled as we started up an incline, curling around a mountainside road with a concerning lack of guardrails. The estate stood at the small mountain’s apex, looming at the edge of a plateau that overlooked the interstate. The architecture was sleek and avant-garde, a conglomeration of chrome rectangles stuck together in the vague shape of a house. A large cylinder stood in front, angled towards the sky. The property was encircled by an imposing steel picket fence. Circular bulbs adorned the barrier, casting sickly light that struggled to beat back the darkness. 
 
 David pulled up to the gate, rolled down the window, and tapped his wallet against a sensor. The entrance slid apart. I surveyed the grounds. It looked like some bizarre mixture of modern art and a war zone. An assortment of standing mirrors lay strewn across the lawn. At least a hundred, maybe more. They were positioned equally apart from one another, and nearly all of them were shattered. Fine glass shards blanketed the grass like hail that refused to melt. 
 
@@ -190,7 +190,7 @@ He offered me his hand. 
 
 I clasped it, and he guided me into the estate. 
 
-Our footsteps echoed through the front narrow hallway, which opened into a cavernous vestibule illuminated by a gargantuan electric chandelier. A cathode ray television sat alone at the center of the massive room. The rest of the furniture was stacked carelessly against the walls. Half-filled book shelves, ornate armories, luxury sofas, red satin chairs, and fully stocked bar carts, all moved out of the way to create space for a single, bargain-bin TV. 
+Our footsteps echoed through the narrow front hallway, which opened into a cavernous vestibule illuminated by a gargantuan electric chandelier. A cathode ray television sat alone at the center of the massive room. The rest of the furniture was stacked carelessly against the walls. Half-filled book shelves, ornate armories, luxury sofas, red satin chairs, and fully stocked bar carts, all moved out of the way to create space for a single, bargain-bin TV. 
 
 David grabbed a comforter from a nearby closet and laid it in front of the TV. 
 
@@ -362,7 +362,7 @@ He grabbed the timer and slammed it into my face. 
 
 “Three hours, sixteen minutes, and thirty seconds away.” 
 
-David arched the device over his head and smashed it into the floor right above my head, grazing my scalp. 
+David arched the device over his shoulder and smashed it into the floor right above my head, grazing my scalp. 
 
 "Want to go home? Well, either we both make it out of here, or neither of us does, so pay attention.”
 
@@ -506,13 +506,13 @@ They did it a second time. 
 
 Then, they called in a handful of colleagues, who all took turns wordlessly examining my eyes, rendered speechless by what they’d discovered. 
 
-Both of my optic nerves looked incinerated - the type of injury they’d see in someone who’d sustained serious facial burns. Finally, the lead doctor just said it. I watched the words leave his lips with perfect acuity. 
+Both of my optic nerves looked incinerated - the type of injury they’d see in someone who’d sustained serious facial burns. Finally, the lead doctor just said it in plain English. I watched the words leave his lips with perfect acuity. 
 
 “You’re blind.” 
 
 Obviously, that wasn’t true, or the truth was more complicated. 
 
-My nerves may have been burned to a crisp, destroying them completely,
+My nerves may have been burned to a crisp, 
 
 but my deep eye was wide open. 
 
