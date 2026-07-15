@@ -4,7 +4,8 @@ This all started back in February. Maybe that’s why, because of how dreary and
 
 Honestly? Some of it made sense. That’s the part nobody warns you about. That it starts off less than harmless.
 
-The first simple healthy habit was showering in the dark. He read that artificial light at night wrecks your melatonin, and the bathroom was the worst offender. So we started showering with night lights for minimum light. I went along with it, I didn’t have to read shampoo bottles anyway. My sleep even improved.  
+The first simple healthy habit was showering in the dark. He read that artificial light at night wrecks your melatonin, and the bathroom was the worst offender. So we started showering with night lights for minimum light. I went along with it, I didn’t have to read shampoo bottles anyway. My sleep even improved.
+
 Then it was no screens after sunset, the emitted light causes dark circles. This was a huge issue. My mom and I felt we shouldn’t have to change our routines and give up creature comforts for his lifestyle choices. What sucked was he was understanding, and compromised to sequestering himself in rooms with no screens after sunset. It upset us, and eventually we cut back on our screen time just so he could spend more time with us. We ended up bonding more, who could have guessed phones and streaming services separated families?
 
 Even after he changed all the bulbs in the house to the lowest Kelvin, he still refused to turn on a light unless it was absolutely necessary. It deeply irritated me and my mom, because he’d still use his laptop (on the lowest brightness setting with blue light blockers, however) to spend his days on the wellness forums, researching.
@@ -38,7 +39,7 @@ I started crying. I asked him to come out. I begged him. I told him I’d take h
 “If you come in here,” he said, “everything will go back to how it was before it all began.”
 
 I asked him what he meant. I asked him how. I stood there in the dark asking the alcove how, and there was no answer. There was never an answer again.  
-I walked in. I did. I pointed the flashlight into every corner of that concrete room — and it was empty. No alcove deep as a well, just a shallow dent in the wall not even a foot deep. No father. No mother. Concrete and dust and the smell of cold concrete and my own breathing.
+I walked in. I did. I pointed the flashlight into every corner of that concrete room — and it was empty. No alcove deep as a well, just a shallow dent in the wall not even a foot deep. No father. No mother. Just dust and the sound of my own ragged breathing.
 
 I searched the whole house. Both floors. Closets, the attic crawlspace, under beds, the backyard. I checked the alcove again and stared at the wall. I screamed myself hoarse. I called the police.
 
@@ -48,8 +49,7 @@ The part I can’t explain, why it’s being posted here and not a news source, 
 
 I finished filing the report this evening. Two missing persons, house clear and safe to enter again, no sign of intruders.
 
-So that’s everything. That’s the whole thing, start to finish, in order, the way I needed it down before the doubt finishes setting in.  
-If you’re just finishing this, scroll up to where it all began, where my dad was still just a grieving family man getting too into a wellness trend, where the worst thing in the house was no Netflix after sunset — I want you to read it knowing how it ends.
+So that’s everything. That’s the whole thing, start to finish, in order, the way I needed it down before the doubt finishes setting in. If you’re just finishing this, scroll up to where it all began, where my dad was still just a grieving family man getting too into a wellness trend, where the worst thing in the house was no Netflix after sunset. I want you to read it knowing how it ends.
 
 I’ve started sleeping with the dome light of my car on, never any dark. I think about what he said the dark would help undo. How it would feel like a return to a womb, something where you would blur and meld with the universe in desensitized harmony, before even the big bang brought light. Going back to how it was before it all began.
 

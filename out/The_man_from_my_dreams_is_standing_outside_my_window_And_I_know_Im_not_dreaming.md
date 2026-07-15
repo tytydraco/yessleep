@@ -1,0 +1,155 @@
+The man from my dreams is standing outside my window, and I know I’m not dreaming.
+
+For the past month, I’ve been seeing a man in my dreams. He doesn’t speak. He just stares at me.
+
+Before tonight, I was dreaming of a wet grassy field. There was a thin fog resting over the grass. The sky was a dark grey and the horizon seemed to mix with the mist below me. A thick storm brewed overhead.
+
+Unlike most of my dreams, nothing was happening. I was just standing there, wind blowing past me, making the grass reflect like waves on an open ocean. I stood there for an unknown amount of time, taking in the landscape. A strong gust of wind grabbed my attention and I turned. 
+
+About 20 feet in front of me stood the man I had grown accustomed to seeing every night. I normally couldn’t place any specific features of him, like he was a blank template, a missing texture in my own mind. But this time, I saw every part of him. His smaller than normal face with short black hair and green eyes. His grey skin cracked around his eyes and mouth. His mouth was agape but no breath escaped his body. As if his face was the surface of a desert, split from a never-ending drought. He wore dark clothes and looked relatively normal, minus his skin.
+
+I stared at him for a long while until he began to approach me. He took five slow steps. Each step looked like it took immense effort. Like these 5 steps could be his last. His body shook as it lifted each leg and slammed down to regain his balance. Normally if he’d ever approached me, he’d come all the way up, but this time he stopped short. 
+
+And for the first time since I’d met the man, he began to make a noise.
+
+What came out wasn’t speech. It was a sound. It was rain. The sound of rain hitting a window. Hitting the roof of a small home. It was strong. The wind even seemed to be coming from within his throat. 
+
+A flash of white light came from his mouth and seconds later, the sound of thunder. I stared at him in contentment. My mind understood what it was seeing was wrong, and I even knew I should’ve been afraid. But I wasn’t. 
+
+As I listened to the rain, a thin liquid started to seep out of his mouth. It looked like water but thicker. As time passed, the liquid flowed stronger out of him, its brownish colour becoming more noticeable. The sound of rain continued, gurgling through the liquid it fought past. Another flash of white came from his mouth. It lit up the liquid, revealing its reddish brown colour and reflected on the inside of his mouth and over the wet dew surrounding us. After moments of anticipation, thunder. 
+
+I woke.
+
+After a moment of gathering my surroundings. I was in my room, in my home.  
+I realized the sound of rain hadn’t stopped. Through my open windows came the sound of a storm above me. I tried to gather my thoughts as best I could, trying to figure out what just happened. Sound from the real world had entered my dreams once before, but it still scared me nonetheless. Made the dream feel more real than usual.
+
+I decided to roll out of bed and watch the rain for the next little bit. It was soothing, despite what had woken me. 
+
+I’m not quite sure how long I watched the rain for until I noticed it, noticed him. A figure stumbling down the road. They were quite a few houses down, coming towards me or the direction of my house at least. By his stature it looked like a man, and he looked drunk or high on something. I wasn’t really sure. 
+
+He stopped in front of a house near mine and lifted his head, looking around for something. He looked all over the house before dropping back into a fold and stumbling away. He continued checking every house he passed, slowly making his way towards me.
+
+I was concerned considering the time and the current weather I almost called the police, but before I had the chance to, he stopped in front of my house. He stood folded over, staring at the ground. A flash of lightning lit the street around him, he flinched before straightening his body and standing up. As he straightened, I felt his bones cracking in my soul, like his body were never meant to move the way it had.
+
+His head clicked upwards and straightened out, staring into my home. Not at me, but at the front door. He seemed to be scanning, searching. He checked every window, his movement felt mechanical. They weren’t smooth like you’d expect. They literally clicked along as if his neck was controlled by a rusty gear with missing teeth. When he reached my window, his eyes burned into mine and he stopped.
+
+When I realized he was staring at me, I ducked down below the windowsill, my heart beating in my throat. I don’t know why I didn’t duck down earlier. Maybe morbid curiosity got the better of me. Even when I couldn’t see him, it felt like he was still watching me. I had to check.
+
+I stood and peaked out the window and found him unmoving. I should’ve got back down, or even called the police. I wish I’d done literally anything else except continuing to watch him.
+
+His face was shrouded in shadow but I knew he was looking at me. The wind blew hard, and his hood slid off his face.
+
+Time seemed to slow as my mind realized what it saw. The world went quiet while I stared at him. My body shook in pulses and my mouth was hanging open. I tried to breathe but nothing would come. I suddenly felt dry and was acutely aware of everything around me. The carpet on my feet, my nails digging into my hands as I held them in fists. I could feel the skin on my body, like it was no longer my own.
+
+Outside my window was the man for my dreams, the man I’ve been seeing for the past month, with nothing but a sheet of glass between us. I felt like I was dreaming, like everything I’d been watching was no longer real.
+
+I’ve conditioned myself to think I’m in a dream whenever I see him, but this wasn’t a dream.
+
+He began to shake, softly at first but it got worse quickly. He convulsed like a cat throwing up a hair ball. His body arching forwards then back. Over and over again. While he moved, he never once took his eyes off me. His head felt separate from his body, it sat perfectly still as his chest heaved inwards and out.
+
+All at once, his convulsions stopped. He stared at me as if I’d done something wrong, his expression was blank but it felt disappointed, almost personal. Like how an animal looks at you as you send it to the slaughter house. Liquid began flowing from his mouth. It was so thin for a moment I mistook it for rain.
+
+It began flowing stronger and pooling in front of him, flowing to the nearest sewer drain. Clumps of viscera crawled out of his throat and fell into the growing pool of gore. First the pieces were small, some didn’t have much weight to them, falling to the ground like a wet feather. But they grew larger as more liquid pushed out. It looked like they even lodged in his throat as liquid would stop until a large object would push out of his mouth. His throat bulged the larger the objects got, I questioned if his throat could take all of the pressure. But I wouldn’t have to wonder for long. 
+
+His skin began to pull apart, his face and throat growing in size as it allowed more blood to leave his body. His eyes shifted across his face until they were on either side. His pupils stayed locked on mine until all I could see were half circles bulging out of his head. His mouth stretched open wide, his jaw dripping off his face as if melting. He stumbled as he shifted his weight and where he had stood left a print of melted skin like meat stuck to the bottom of a pan.
+
+Blood seeped out of the cracks in his skin that remained as he melted. His body looked dry as ever despite the storm around him. The sensation of throwing up itched in my throat as things caught in his mouth. I swallowed trying to clear it but the feeling remains even now. He continued to paint the street with his insides and all I could do was watch.
+
+Eventually he ran out of blood and his body looked like a deflated balloon. His arms were thin and wrinkled but slightly longer than before. 
+
+Which brings me to now. We’re just staring at each other, in limbo. His mouth is hanging off of him and his eyes look like partially peeled scabs, barely clinging to his face.
+
+I can’t even write a sentence before having to shoot my gaze back at him, I can’t let him move. But while writing this, I wasn’t careful enough. When I looked back up at him, he raised his hand and pointed to the end of my road. His fingers were long and slender, they had a greyish blue tint. Where his skin was exposed, he looked translucent. I could see his bones and empty veins crawling across his hand, shifting as his skin sagged more and more.
+
+I hate that I feel this way, but I want to know where he’s pointing. I’ve always woken before I could know what he wanted from me, but this time that wasn’t happening. The idea itched and gnawed at the back of my head as it dug deeper into my brain.
+
+Part of me wants to leave my home and follow him wherever he may lead, but I’m also scared, scared of that feeling, that building urge. 
+
+It feels like something is in my brain pushing me forward. Pushing me outside and into those woods. 
+
+I couldn’t just let him leave, I wanted to follow him. I had to.
+
+In my haze he walked off into the woods and disappeared into the tree line, my need to follow building even more.
+
+In a sort of blur I walked outside and stopped at the bile left above the storm drain. Water rushed past leaves and bugs. Bugs coated in red arose out of the filth and flew towards the woods the man had told me to go. He had thrown up living insects. As they entered the forest border, they began to glow. They shone red and seemed to draw me in, like an angler fish in an empty void. I wanted nothing more than to follow them, like my life no longer mattered, and all I wanted was to know what was beyond those trees.
+
+I had a family. I had friends. I had a life. Why did I want to know where that man went?
+
+I didn’t want to know. I needed to know.
+
+My legs walked without thought. Like they weren’t part of my body. Once I reached the trees, I was in another world.  
+The forest was coated in rain and fireflies flew around me. The ground was uneven but I walked as if I’d done this in my sleep. My legs walked without my control, like I was a passenger in my own body.
+
+I walked for hours but the sun never rose. The fireflies followed me and led the way. I looked behind me and saw nothing but darkness. They were coming with me. They didn’t populate this forest, they came for the same reason I had. A deep seated need to know what's on the other side.
+
+Rain thundered around me and even flowed sideways as gusts of wind ripped through the forest. My skin hurt from the rain and felt drier than ever. It felt like my skin was being pulled taut from behind me.
+
+I reached a swamp at some point and the sound of frogs filled the air, I could barely hear myself think. I felt trapped even though I continued walking without anything stopping me. I could turn around, I could go home. If there even was a home for me anymore. With each step I sunk deeper into a muddy floor. It took minutes just to raise my foot out as I pressed on. Something swam between my legs, unseen underneath the muck. There were multiple of them and they continuously swam around me. Some even latched onto my legs and wrapped themselves around my skin, but I pressed on.
+
+A wall of mist snapped me out of my walking trance. My legs felt numb and I couldn’t even tell if I had feet anymore. Whatever was wrapped around me had cut any feeling I had below my knees. The wall stretched beyond my vision in all directions and was so thick I couldn’t see what was behind it. I slowly pressed my hand into the mist and it waved around me like water in a flowing stream. It was warm and seemed to pulse. Like a heart beat.
+
+I walked through the fog and found myself in a vast open field. The rain stopped once I stepped through. My legs suddenly felt like they were mine again. Nothing was wrapped around them but they had been ripped in circular motions and exposed dark bruised skin. Above me was a vista of galaxies that stretched on forever, but something was different. Each star was red. Not the typical white. The sky was red. The wind flowed in 2 directions. It came from both in front of me and behind me, one after another. Always switching. I noticed the air was hot, almost sweltering.
+
+I turned to face the swamp and found the field was all I could see. The swamp was gone but someone had taken its place.
+
+In front of me stood the man from my dreams. His skin was cracked even though the world around him was soaked, like my own skin. His mouth dripped off his face and his arms were too long.
+
+I tried to speak, to ask him why I was here. But before I could speak, he began to change.
+
+The cracks in his skin gave way and ripped apart as his body changed. His skin dripped off of him like melting wax. Roots began to grab at his legs and pull him into the ground. They burrowed into his body, it looked like worms moving through someone’s veins. But these worms were big.
+
+As the roots dug through his body, the only thing that didn’t grow was his head. It remained unchanged and stared into my eyes. One of his eyes was barely hanging on and the other was just out of view.
+
+The roots stretched through him and tore out of his skin before digging back into him. The roots were crimson and brighter red lines dotted each root, like they themselves had veins.
+
+The roots wrapped around his body and approached his head before stopping. For only a moment, everything stood still. I looked around me and noticed the ground had changed. It was a flesh floor with tendons and muscles poking out mimicking grass. They writhed like fish out of water and the ones around my feet clung to me. They were wet and hot, They burned through my shoes and attached to my skin. I could feel my own skin melting but I didn’t move.
+
+I looked back up at the man as a creaking sound came from his mouth. That same stare looked into my eyes. Blank disappointment.
+
+The roots moved once again and all at once dug into his head. His skin cracked at his neck and splintered up. His eyes bulged out of his head, the loose one popped out and hung by a thread of black flesh.
+
+The roots dug higher and higher until they punctured out of his head and split it open like a blooming flower. His insides weren’t red like flesh, they were black. Like every bit of blood had been drained from his body, his flesh had the texture of wet raisins. The roots rose into the sky until they reached what looked like the galaxies above me. They began to expand outwards using the newly formed roots above them as anchors to stretch past me. I finally stumbled back and fell into the flesh around me. The tendons and muscles clung to my skin and burned, but I never took my eyes off the roots. It was a nervous system. They weren’t roots. They were nerves.
+
+Hot wind roared past me. Forwards. Backwards. Forwards. Backwards. Nonstop.
+
+The nerves had stretched everywhere except around me and were only now pushing towards me. They vibrated and twisted violently and only then did my mind start working. I kicked and writhed but I was stuck to the floor. The ceiling rippled with each kick. A piece of root snapped off the ceiling and fell beside me. It turned black the moment it was separated from itself and the world shook around it. The ground began to make waves and it finally freed me from the grasp of the fleshy grass.  
+I ran. I ran in any direction I could. There was barely any light in front of me, but something glowed in the distance. A pulsing red mass. The wind picked up and I could only withstand it by lying down and swatting at the muscles until it switched directions.
+
+The waves hadn’t stopped and I found myself thrown around trying to make any type of progress. The nerves dug into the ground and the closer they were, the more the ground vibrated. I felt them gaining as the world around me lit up. The red mass was coming into view and I pushed with any remaining energy I had left. My body was spent but I finally felt like I wanted to live. The curiosity was gone and I felt like I was thinking straight.  
+The ground suddenly stopped vibrating and the waves calmed until the ground was flat. The ceiling was still and the stars had disappeared in the presence of the red light.
+
+I was wet and sticky, my body was coated in red and my clothes were burned from the muscles and tendons that had gripped me. My mind was finally as clear as it could be all things considered and I looked forward to what was producing the light.
+
+It was a heart. A giant beating heart pulsed in front of me. I realized with each pulse a gust of wind rushed past me, still changing directions each time. A low hum dug into my ears with each beat that I hadn’t noticed before.
+
+The sound punctured my brain and all I wanted was out, all I wanted was to go home. A cracked sob escaped my throat while I watched the heart beat in the same rhythm as my own.
+
+My head dropped and I stared at the flowing grass. It looked calm and didn’t reach for me. I looked at my legs and saw they were sinking into the flesh around me.
+
+It was eating me. Absorbing me. My breathing calmed and my mind went blank. I was content. I looked at the heart once more and its beating slowed. As the flesh filled me, my vision disappeared. I don’t mean went dark, I completely lost the sensation of vision, like my brain didn’t even know what it meant to have sight.
+
+Next was smell. Before it had smelled hot and disgusting, but now that was all gone. Flesh had filled my nose but my brain no longer knew what it was like to smell.
+
+Slowly all of my senses disappeared until I felt like nothing. A senseless being floating in an empty space. I couldn’t feel the flesh on my skin anymore, I had no way of knowing where I was.
+
+I don’t quite know how long I stayed like that for before all at once, my senses returned. My brain overloaded and still stings now. A flash of white filled my vision and everything returned. I was still hot but I was lying down on something, something soft. Before opening my eyes I ran my hand over the soft surface. It felt inviting and familiar. My eyes opened slowly and I was in my room.
+
+I looked at my ceiling. Ran my eyes over the popcorn like texture while I lied there in shock. I was trying hard to fully remember what had happened, I couldn’t forget this. It felt so real.
+
+I sat up and looked around, something felt off but I couldn’t place what. My body ached but I was home. I looked outside and saw the darkness of night. Everything had a slight tint but I couldn’t place what colour it was yet.
+
+My hands traced my face as I realized I was okay. I placed them on my chest.
+
+B-dm. B-dm-dm. B-dm. B-dm-dm-dm.
+
+My heart beat. It was slow and irregular, it didn’t feel like my heart.
+
+I moved my hand down my shirt and noticed it felt wet. I looked down to see all of my clothes were burnt and red. Beneath my clothes were black bruises with dry cracks littered all over my body, the texture was like wet raisins. I got up and struggled to stand. I couldn’t tell if I remembered how to walk. I slowly lifted each leg, it took huge amounts of force just to lift myself one step forward. I took another step and fell, barely catching myself on the window sill. I had too many thoughts in my mind. Like I suddenly felt the emotions and memories of so many people. 
+
+My vision felt hazy and I shivered hard. I lifted myself to look out the window, trying anything to calm my mind.
+
+Outside was my street, or was it? Everything felt familiar, the houses next to this one. The street, the numbers on each building. But it all felt partially unfamiliar. I can’t shake the feeling like I don’t live here anymore, that this isn’t my room, isn’t my home. I desperately want to walk outside and not stop. If this isn’t my home, I have to find it. It must be out there. The wind blew slowly side to side. It seemed to match my breath. If I breathe faster, it speeds up. That couldn’t be true. It can’t be.
+
+The tint on everything was more clear up close. It was red. Everything was glowing red. It was faint, but noticeable. I looked around to find the source but I couldn’t see anything. Until I looked up. Above me was the most beautiful night sky I’ve ever seen.
+
+An ocean of red stars.
