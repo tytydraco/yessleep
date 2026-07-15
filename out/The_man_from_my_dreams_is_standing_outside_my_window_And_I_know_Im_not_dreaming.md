@@ -41,7 +41,7 @@ His face was shrouded in shadow but I knew he was looking at me. The wind blew h
 
 Time seemed to slow as my mind realized what it saw. The world went quiet while I stared at him. My body shook in pulses and my mouth was hanging open. I tried to breathe but nothing would come. I suddenly felt dry and was acutely aware of everything around me. The carpet on my feet, my nails digging into my hands as I held them in fists. I could feel the skin on my body, like it was no longer my own.
 
-Outside my window was the man for my dreams, the man I’ve been seeing for the past month, with nothing but a sheet of glass between us. I felt like I was dreaming, like everything I’d been watching was no longer real.
+Outside my window was the man from my dreams, the man I’ve been seeing for the past month, with nothing but a sheet of glass between us. I felt like I was dreaming, like everything I’d been watching was no longer real.
 
 I’ve conditioned myself to think I’m in a dream whenever I see him, but this wasn’t a dream.
 
@@ -80,7 +80,7 @@ I didn’t want to know. I needed to know.
 My legs walked without thought. Like they weren’t part of my body. Once I reached the trees, I was in another world.  
 The forest was coated in rain and fireflies flew around me. The ground was uneven but I walked as if I’d done this in my sleep. My legs walked without my control, like I was a passenger in my own body.
 
-I walked for hours but the sun never rose. The fireflies followed me and led the way. I looked behind me and saw nothing but darkness. They were coming with me. They didn’t populate this forest, they came for the same reason I had. A deep seated need to know what's on the other side.
+I walked for hours but the sun never rose. The fireflies followed me and led the way. I looked behind me and saw nothing but darkness. They were coming with me. They didn’t populate this forest, they came for the same reason I had. A deep seeded need to know what's on the other side.
 
 Rain thundered around me and even flowed sideways as gusts of wind ripped through the forest. My skin hurt from the rain and felt drier than ever. It felt like my skin was being pulled taut from behind me.
 
