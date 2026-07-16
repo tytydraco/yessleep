@@ -1,0 +1,283 @@
+My eyes peeled open to darkness, with nothing but the feeling of something thin and sharp gliding against the front of my teeth, flicking against the crevices as it got caught between them. Against my inner lip, it felt like a fingernail. Then, I heard a phlegmy snicker.
+
+“Big, big, big…” A wispy, raspy voice spoke in spitting whispers.
+
+It removed its finger from my mouth before the bed squeaked with added weight. I felt the mattress sink between my legs and an icy hand wrap around my thigh.
+
+“Meat and hot organ*ssss*,” it hissed, spewing saliva onto my bare chest.
+
+Paralyzed, I clenched my eyes shut and prayed it would leave quickly. On my stomach, I felt a tongue slither up it. Then another. And another. Like a cornucopia of slugs trailing across my skin, sending goosebumps sprouting. I shivered as they curled off my body, the fairy emitting a low-pitched purr before hacking up money like a cat with a hairball and tucking it beneath my head. Once I was sure it had gone, I finally released the breath I’d been holding, my hands trembling at my side. It was getting harder and harder to excuse how terrifying the fairy was, but as long as the money flowed, I couldn’t bring myself to stop.
+
+The next morning, I discovered that it had left enough to cover rent for three months. But with so much money that was so easy to get, I was beginning to brew irresponsible ideas. Instead of saving it all for rent, I called Ricky, and we bought enough coke to fill our pockets before bar-hopping around the local pubs.
+
+“On me!” I offered for every beer and shot we shared until I eventually got so drunk that I covered every tab in the bar.
+
+My nose was powdered like a donut, and my stomach was more liquor than acid. The pain in my mouth and head numbed away; I felt like I could run through a brick wall. I stumbled into the apartment when the sun was rising, plopped on the couch, and knocked out. At the end of the month, I found myself wishing I had that money when I missed rent and received an eviction warning on my front door. But as if an angel heard my prayers, Daisy came home from school telling me that another tooth of hers was loose. Although I didn’t need it loose— I needed it out.
+
+“Is this safe?” She mumbled with an open mouth, one end of the string tied around her remaining incisor while the other wrapped around a doorknob.
+
+“Yeah! We all used to do it as kids when we wanted a tooth out. It’s like when you got your ears pierced— just a moment of pain and it’s over. Okay?”
+
+She looked at me queasily before nodding.
+
+“Alright, I’m gonna close it in three, two…”
+
+I slammed the door and tore the tooth out like butter, Daisy’s hands clasping over her mouth after it happened. I lifted it off the ground and untied the string, handling it delicately like valuable porcelain.
+
+“See, not so bad!”
+
+Once the pain subsided, she began giggling.
+
+“You’re a tough cookie; I knew it.” I hugged her and gave her a noogie.
+
+Later that night, when I went to put it under her pillow, she appeared uneasy.
+
+“Does it have to be *my* pillow?” She wondered.
+
+“Well, it’s your tooth, no?”
+
+She tucked herself under the covers. “I don’t like when she’s around. Do we really need more money?”
+
+My face stiffened. “Yes, honey. We need more money; we’ll always need more money. It’s something you’ll understand when you’re older.”
+
+“You always say that…”
+
+“Because it’s true, okay? C’mon, you’ve been up late enough.”
+
+When I went to kiss her head, she recoiled. I didn’t want to push, so I left with only “Goodnight, I love you” and no response. In the morning, Daisy didn’t wake up with excitement, and when she finally emerged from her room, knuckling crust from her sleepy eyes, it wasn’t with fistfuls of cash.
+
+“Hey, kiddo. How’d you sleep? Did you leave the money in your room?”
+
+“There was no money,” she said through a yawn.
+
+I could feel my face go pale. “What…? You left the tooth there, right? You didn’t move it?”
+
+“No, I didn’t move anything… It’s still there,” she grumbled.
+
+I balled my fists. “Are you lying to me? I know you were upset about her visiting last night.”
+
+“No! I didn’t touch the stupid tooth!”
+
+“Do not raise your voice at me!” I boomed. “Go right back to your room!”
+
+“I hate you!” She declared before storming off.
+
+It was the first time she’d said it; I expected the H word to be dropped in her teenage years, not so soon after diapers. But what concerned me more— why didn’t it take her tooth? I recalled last night, when it had its finger in my mouth, oscillating side to side in admiration. Did she have a taste of what I had to offer, and now she can’t turn back? I imagined the more mature the tooth, the more valuable it was, whether as nutrition, currency, or trophy.
+
+But how many times could my mouth endure excavation? And was it worth being toothless? If so, I considered using some of the money for a whole new set of pearly whites. When I thought of everything money could do, could change, it made the agony futile. Like last time, while Daisy was at school, pulled another tooth. This time, there was almost a sickeningly thrilling rush to it.
+
+I stretched a scarlet-smeared smile in the mirror and laughed. Then, I yanked another, filling the running sink with a vortex of water and blood. I was getting dizzier by the minute, but was dedicated to removing one more. But when the root snapped, everything went black.
+
+I awoke to bright, sterile lights and a barrage of noises. Once my vision cleared, I realized I was in the hospital, with Daisy sitting nervously by my side.
+
+“Daddy!” She cried and threw her arms around me once she noticed I had woken up.
+
+“Hey, sweet pea… I’m so sorry. What happened?”
+
+“You didn’t come to the bus again, but when I came home I found you asleep on the floor, and I couldn’t wake you up… You were bleeding…” She whimpered.
+
+“Where- Where are the teeth? Do you have them?” I asked desperately.
+
+“No, I gave them to the doctors… I thought maybe they could put them back in.”
+
+My blood began to boil. “Daisy… I don’t *want* them back in! I took them out!”
+
+She flinched at my screams, and passing nurses turned their heads once they heard.
+
+“I didn’t know. I’m sorry…”
+
+When another doctor walked by, I flicked and waved them over.
+
+“How can I help you?”
+
+“Yeah, hi— I lost a few teeth; my daughter says she gave them to you. Where are they?”
+
+He seemed perplexed at the request. “Where are the teeth?”
+
+“Yes. I would like them, please.”
+
+He couldn’t stop his brow from lifting. “Alright… I’ll see if we have those somewhere.”
+
+I gave him my information before he left to search. Daisy returned to her chair in silence, staring at her hands in her lap. Ten minutes later, I sighed with relief when a nurse walked through our curtain with my teeth in a sealed cup.
+
+“You asked for these? I’m assuming you’ve been informed that they can’t be replanted.”
+
+I nodded. “I know, thank you.”
+
+She smiled stiffly and handed them over. “Okie-dokie… Here ya go.”
+
+On the bus ride home, Daisy kept looking at my mouth.
+
+“Why did you do that to yourself…? Do we not have enough money?”
+
+I didn’t know how to answer that question; if we did, why would I be doing this?
+
+“We’re gonna be fine, Daisy. It’s not for you to worry about.”
+
+“But I do.”
+
+My heart sank; this was the last thing I ever wanted for our child.
+
+“I’m gonna figure it out, okay? You know I always do.”
+
+“Okay…” She leaned her head against me.
+
+When we got inside, I asked if she wanted to watch Monsters Inc. again, but she merely shook her head and sulked to her room. Alone on the couch, I sank into the cushion, blinking like a frog while I mindlessly watched TV.
+
+*It’s for her… It’s all for her… She’ll understand someday.*
+
+Before bed, I emptied the cup under my pillow and fell asleep. The next day, like a kid on Christmas morning, I excitedly flipped my pillow. But my smile fell at the sight of nothing— no teeth and no money.
+
+*What the fuck? Did it scam me?*
+
+When I entered the kitchen, I noticed rows of white powder that covered the counter. Initially, I thought I’d forgotten some leftover coke, until I began scooping it in my hands and realized it was a grainy, chunky powder in thick, deliberate lines. It was my teeth, ground up into pebbles. When I stepped back, I could read the word it spelled: MORE.
+
+*More…? I pulled out three teeth myself and nearly died! How much more could it…?*
+
+Then, I wondered why it would crush the teeth I offered just to ask for more?
+
+Unless it was asking for more than just teeth.
+
+So I cleaned up the residue, fetched a slip of loose leaf and wrote a response message and left the pen for it to respond: WHAT WOULD YOU LIKE?
+
+When I woke up the following morning, I found that she had answered. With the pen, she had shakily drawn what appeared to be two diamonds. My expression twisted with puzzlement.
+
+*Diamonds…? Where the fuck am I getting diamonds? What use do you have for that? Are you not a tooth fairy?*
+
+But resting nearby was the stark yellow eviction warning, so I pushed past questioning it. I began fishing through Amelia’s old jewelry box, filled mostly with gold and silver bracelets, necklaces and earrings; diamonds were a girl's best friend, but not hers. I pilfered through drawers, tossing clothes onto the floor in hopes of finding a stray piece, but it was to no avail. Surrounded by a mess, my lungs exasperated, I stared at the drawing again with a pulsing migraine.
+
+*This doesn’t make sense… If you can make money, I’m sure you can make diamonds. Why would you need this from me?*
+
+Then, I remembered its hand on my thigh and its tongue on my stomach. I could tell it wanted more from me, but I couldn’t tell what.
+
+*Two diamonds, two diamonds…*
+
+With a queasy shiver, the realization dawned on me.
+
+*Family jewels.*
+
+I gulped saliva down my knotted throat as I looked down at my crotch.
+
+*No way. No fucking way.*
+
+But then I pictured us living on the street, begging for change in a solo cup. In the grand scheme of things, it was such a small price to pay, but I couldn’t convince a surgeon to remove my testicles without a good reason, so it’d have to be improvised like last time. The thought dizzied and nauseated me, but what choice did I have? I couldn’t land a job, and I refused to risk illegally obtaining money; I couldn’t be jailed and lose Daisy; I’d failed her enough already.
+
+While she slept, I quietly entered the bathroom with a wooden spoon to bite on, scissors for the at-home operation, and saline to clean the aftermath. I procrastinated for what felt like lifetimes as I attempted to amp myself up.
+
+*Just do it. Think of the money. Think of her. This is what Amelia would want; this is the father you promised her you’d be.* 
+
+My stomach churned as I cinched my scrotum with looped fingers before pressing the open jaws of the scissors against it. I shuddered at the cold metal against my skin, my heart ramming against my ribcage.
+
+*For her.*
+
+I pinched the spoon between my teeth before snipping the skin and was immediately struck with blinding pain. Blood spilled onto the tile, and I could feel the separated flesh dangling but refused to look, or else I’d faint.
+
+*For her.*
+
+I kept repeating it 'til the words sounded foreign. I cut again, slicing through the muscle and severing the first spermatic cord. My knees buckled beneath me, and hallucinatory snow began fuzzing my vision. With reckless abandon, I sawed through the sack, the spoon capturing most of my guttural screams. Once the second cord detached, I finished removing the organ before collapsing backward against the wall.
+
+Like two melons in a shopping bag, my testicles sat in the cleaved scrotum amongst a pool of blood that trailed through the grout. At the sight, I leaned over and vomited in the garbage can, the pain so overwhelming I was beginning to go numb from head to toe, my skin buzzing with pins and needles. But the procedure wasn’t finished. First, I squirted the mangled aftermath with saline, my eyes rolling into the back of my skull in agony as it flushed out the fleshy, bloody cavern.
+
+With a towel crammed between my legs, I then waddled to the kitchen where I’d left an empty frying pan on the hot stove. The black metal was nearly orange on its bottom, so I grabbed it, dropped onto the nearby footstool, and spread my legs.
+
+*You’re in the homestretch…*
+
+I pressed the blazing pan to the wound and roared my throat to ribbons, practically biting the spoon until my jaw dislocated. The stench of sizzling flesh invaded my nostrils, stirring the nausea in my stomach further. I fought to stay conscious; I needed the wound cauterized; I couldn’t risk going back to the hospital. They’d probably institutionalize me with all these self-inflicted injuries. And explaining that it was all for money from the tooth fairy would only make it worse.
+
+Once the bleeding stopped, I bandaged it before passing out on the couch, leaving the mess for later. Thankfully, I didn’t die in my sleep, and it was a weekend, so Daisy was allowed to sleep in later than usual. I groaned with each limp around, struggling to bend down and clean all the blood I’d painted across the house. The jewels were still intact on the bathroom floor, the skin paler from lack of circulation.
+
+I stared at them in my cupped palms; it was bizarre to see any part of me separated from my body. But I knew it wasn’t for nothing, and it was an organ I could live without. When Daisy woke up and asked why I was walking funny, I lied that I had injured my back while lifting the couch. In front of her, I managed the pain to the best of my ability, and she was none the wiser.
+
+After tucking her into bed, I went to turn out the light when she asked me an unexpected question.
+
+“Does the fairy come from where Mommy is?”
+
+I knew parenthood would come with questions I couldn’t answer, but it was one that particularly stumped me. Where *is* its home?
+
+“I… I dunno, sweetie. Maybe. Mommy believed that God created everyone, so… Fairies would be included, yes.”
+
+“God makes scary things, too…?”
+
+I hesitantly nodded. “There has to be both good and evil… it’s a natural balance.”
+
+“Which is the fairy?”
+
+I hovered in silence before flicking off the light. “Enough questions, hun; it’s time for bed.”
+
+I gently placed the jewels under my pillow before lying down with a groan. My crotch hurt, my mouth hurt, my head hurt— I just felt like a ball of ache. But it was all worth it as long as it kept food in our bellies and a bed for her to sleep in. And the fairy rewarded me greatly for the sacrifice, as I woke up with my neck cranked at a 90-degree angle from the pile of cash beneath me.
+
+Not only was rent paid, but I took Daisy to the mall and let her run free in the Disney store with a high budget limit. She walked out with bagfuls of toys and dresses; it was the happiest I’d seen her since Amelia passed. When we got home, she tried each one on before running around the house with her Buzz Lightyear toy, making a swooshing noise with her mouth. The following day, I woke up to a mess in the kitchen, and Daisy didn’t cause it for once. The pen I’d left out to communicate with the fairy was now snapped in half, and inky handprints crossed the table, leading to the wall with a giant message smeared in black: MORE MORE MORE
+
+Fear rooted me where I stood, the kind that creeps up on you once you realize you’ve lost control, like a rabid dog's leash snapping. I’d given it an inch, and it was taking a mile.
+
+*What have I gotten us into?*
+
+The potent ink took hours to scrub off, starting with a soap and water mixture, then bleach. Then, I grabbed a fresh pen and left a response: WHAT DO YOU WANT?
+
+I spent the day with disorienting unease. While changing my bandages, I stared at the crusted wound and cried. It wasn’t supposed to be like this; my life was a far cry from how I imagined it’d turn out.
+
+“Dad! I spilled my juice!” Daisy called from another room.
+
+Sigh. The world keeps turning, so I popped a handful of Advil and finished the day. That night, I was awoken again, this time with my back and arms scraping against what felt like gravelly dirt. My legs were lifted off the ground, and I could feel tight fingers around my ankles. Once I opened my eyes, the first thing I saw was wings, jutting from her back muscles with inflamed exit points that oozed pus. It was as if they were abnormal growths and appeared similar to a bug's wings, the filmy structure tawny brown and torn in patches. They twitched like a dog's ear as the fairy dragged me through a dark tunnel, only faint illumination from a distant, orange glow.
+
+I tried to wriggle from its clutches, but that only prompted it to increase the pressure until my bones were on the verge of snapping, so I went limp with submission. I was dragged into some kind of cave; it seemed to be its home. There was a makeshift fireplace fueled with miscellaneous objects that became increasingly recognizable the longer I stared— it was all things we’d lost over the years. One of my razors, Amelia’s hair clip she got in Italy, Daisy’s favorite plushie. She couldn’t sleep for weeks without it, now stoking a seemingly infinite fire.
+
+“Wh-Where are we?” I asked. “I know you can talk!”
+
+It released my legs but ignored my question as it crossed the room, its pouch noticeably flaccid and empty. Then, it approached what appeared to be a bassinet. It was the one Daisy slept in as an infant; I’d tossed it once she outgrew it. Six years ago.
+
+“What do you want from me?!”
+
+It continued its silence, its fingernail tracing the rim of the wood.
+
+“Baby not done… Baby need more.” It gargled as it spoke.
+
+“Wha… What else do you need?”
+
+Quickly, I realized it wasn’t talking to me; it was talking to something in the bassinet. As I tried to stand, its wings perked up before fluttering across the room. Its hand fit around the entirety of my neck, and it lifted me off the ground with just one. It held me close, hot breaths from its snarling growls curdling my face. With the other hand, it began circling my ocular cavity before inching its fingernails underneath my eyelids. I screamed and kicked as it buried into my socket, closing its pinchers around my eyeball like a crab.
+
+In a desperate act of defense, I jabbed one of its many eyes. It squealed and unlatched my throat, but removed my eye on the way down, leaving it dangling from the optic nerve. My vision was disoriented, with one normal side and the other swaying in a blur. I scurried to my feet and began chucking blazing objects from the campfire at it. Its arms guarded itself from the barrage before it unleashed a deafening screech that had me covering my ears and my knees wobbling. Then, it went silent and knock-kneed, its arms dangling against the floor.
+
+My lungs sucked in desperate breaths: I didn’t know what it was doing or whether I should risk an escape attempt. I took a cautious step, which triggered it to twitch and choke. It acted similarly when it was creating money. Suddenly, from its amalgamation of mouths, gold started to pour. Like a waterfall, the shiny nuggets piled on the ground, some rolling to my feet. It wasn’t scared or angry; it was desperate. A desperation I recognized all too well. But that didn’t mean I could give it what it wanted, nor was it okay to just take it from me. I had my own kid to make sacrifices for.
+
+I seized the opportunity to dash for the exit, leaning against the cave's walls for guidance. Once it realized I was rejecting its offer, it screeched again before pursuing me. I could feel its rapid, thunderous steps vibrating through the wall and the ground, my eyeball smacking against my chest as I ran. I didn’t even have time to freak out over it; all I could think about was running. Then, I heard the pitter-patter of its wings before I was swiftly in its clutches once more.
+
+“LET ME GO! I’VE GIVEN YOU ENOUGH! FIND SOMEONE ELSE!” I shouted as it returned me to its nest.
+
+But there were probably few people who would’ve taken this as far as I did. After it released me, it raised its foot before dropping it on my shin with the weight of an anchor. I wailed as it shattered effortlessly.
+
+“Broken bird don’t fly…” It grumbled.
+
+Shards of bone poked through my flattened skin; I didn’t know how I was still conscious at that point; all I could think about was how Daisy would be orphaned if I didn’t get out of here, and that’s all that caused me pain worth acknowledging. As I lay against the wall, it pinned my head back while using the other hand to tug at my eyeball. I groaned through clenched teeth as it strained the nerve until it finally snapped, and my right vision flashed black. Suddenly, whatever was in the bassinet began to cry. It was a low-toned, clicking wail like a corrupted slow-mo video. The fairy’s attention broke from me as it rushed toward the cries.
+
+“Shhh, shhh, shhh…” It urged, raising a finger to its lips.
+
+I glanced at the sharp, gleaming bone sticking out of my leg. While it was distracted, I bit my tongue and pried a shank from the mushy flesh and hid it under my thigh. It extended the eyeball into the bassinet, followed by ferocious, sloshy chewing. Once it returned to me, it knelt, its wheezy breaths pushing the greasy strands that curtained its face. Next, its fingernails curled into a circle before pressing against my chest, over my heart, and digging. Its barbed nails pierced through my flesh and leaked blood down my stomach. Its tongues hung from its mouths, saliva dripping from the tips.
+
+As it thought it was on the verge of success, I grabbed the bone shank and swung it through the side of its neck. Upon the stabbing, it froze, its hand retracting from my chest and slinking to its side. Blood sprayed like a hole in a hose when I removed it, but I could still feel it breathing, so I plunged the blade into the center of its face, spewing more blood onto me that was freshly warm. I twisted it around, blending its cluster of eyes and teeth with gushy crackles. When I yanked it out, its body slumped to the ground.
+
+I grabbed the wall and stumbled to my feet, my broken ankle folding like wet toilet paper. Waddling around its corpse, I kicked it to make sure it was dead. I sighed with relief, as it was unresponsive. But just as I went to leave, cries echoed from the bassinet again. I stopped in my tracks, blood trickling from the edges of the shank. With it defeated, a part of me had to know what all of this was for. I approached the bassinet with a frog in my throat and a full-body tremble I couldn’t subdue. On a blanket that covered the splintery wood was a baby, or what almost looked like one. Its mouth was a curving strip of lips that began near its chin and slithered to its forehead, and when they parted, it was like a rippling cavern of flesh and teeth. Half-opened, sunken eyeballs dotted its face, some milky colored, seemingly blind. But I noticed that the eyes that worked were green, the same as mine. The random sprouts of hair from its lumpy head were dark brown, like mine. And its skin wasn’t grey and frail like the fairy’s, but normal and tan like mine.
+
+If its features were human, it could’ve been Daisy’s sibling. Then, the realization dawned on me through absolute horror. Biologically, it *was* her sibling. Aside from a sprout of toes like mushrooms at the bottom of its torso, it had only one limb: An arm that was large and developed enough to be from the body of a ten-year-old; it pawed at the air, searching for its Mama. I hunched over it with exhaustion and pity, my fist clenching the blade 'til my palm bled. Then, I raised it before silencing its cries permanently. Nothing down here was meant to exist.
+
+Fading in and out of consciousness, I navigated the pitch-black caverns, sticky with blood and fueled by adrenaline. Eventually, I found a ladder, presumably the one we came down. It was merely planks of wood nailed up into the rock wall; they appeared dozens of years old. With only one working leg, it was a slow journey up, and the blood loss mixed with vertigo nearly sent me tumbling. Finally, I knew I was reaching the top when I saw the glowing outline of an exit. I pushed away a panel of wood that was covering the makeshift hole and crawled out onto my back to catch my breath.
+
+I wondered if Amelia would believe what I just did. I wished she were here to have told her about it. But if she were here, it never would’ve happened in the first place. Once I gathered myself, I rose to my feet and surveyed the area— I was in the back of our apartment building's laundry room, the machines humming as they spun loads of clothes. I wondered how long it's been below us, how many families it's preyed on. Never again.
+
+When I opened the front door, Daisy immediately threw her arms around me.
+
+“Daddy!” She cried with relief.
+
+“Hey, baby… What are you doing up?”
+
+“I had a nightmare, and- and I couldn’t find you, so I waited and waited, but you weren’t coming back!” Her cheeks were raw with tears. “Where did you go?! You’re bleeding again!”
+
+Instead of explaining, I just hugged her tighter.
+
+“It’s ok, I’m ok… Everything’s gonna be alright, and I mean it this time.”
+
+I loved her more than life itself, but I needed that life to be there for her, so I did what was best. After I was released from the hospital, I called my parents for the first time in years, and I begged. I pleaded for them to be her temporary guardians while I entered rehab. I apologized and admitted that I’ve been a liar, a thief, and a failure. Daisy needed me, but not the me that I was; she needed my best, and I was at my worst. Mostly for her well-being, they agreed, and I entered a thirty-day rehabilitation program. 
+
+And when I dropped her off, I left them with the rest of the money I had after paying for treatment, and affirmed that it was only to be spent on her, even if for toys. The rehab routine became quickly mundane— wake up at 8 am between four grey walls, eat breakfast, morning group therapy, leisure time, dinner time, sleep between four grey walls. Rinse and repeat. But after all the chaos I’d endured, the monotony was refreshing.
+
+Although some nights, when they’d draw the curtains and turn out the lights, I’d awake in a scream from a fading nightmare, and swear that I could see her shadow standing like a bat in the corner.

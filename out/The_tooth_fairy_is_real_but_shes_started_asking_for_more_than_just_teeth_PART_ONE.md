@@ -339,3 +339,5 @@ With a snarling pout, she stomped to the kitchen table and unzipped her Toy Stor
 *Let’s hope it accepts this…Teeth are teeth, right?*
 
 Suddenly, I was awoken from my slumber by the sensation of something probing around my mouth.
+
+[Part Two](https://www.reddit.com/r/nosleep/s/a2GIKaIjhL)

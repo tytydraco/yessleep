@@ -1,0 +1,120 @@
+CW: Mentions of and LIGHT depictions of unsubscribing from existence, potential triggering topic for those with religious trauma and/or negative experience with weapons.  
+You have been warned, proceed at your own risk.
+
+This post is a deadman’s switch, meaning if you are seeing this…I am no longer here.  
+I won’t get into the specifics of the organization I’m associated with or the exact nature of my work since that won’t matter. They have and always will find a way to hide themselves, so there is no point in even trying to expose more than what is needed. What I will tell you is that I am not protecting them rather I want the focus to be on the information that I died for so that the public can know.  
+The religious organization turned deadly cult known as “Fruit of Love” lead by a woman now infamously known as “Mother Carmelita” has died by suicide via police (it was not exactly police but for the sake of simplicity we will just use police as a placeholder). Before being gunned down, she shot one responder square in the face with a sawed off shotgun and shouted in a shaky voice,  
+“Do everything in love!”  
+She was shot 27 times, which very much is overkill. However, given the nature of the report that brought us there. It was not surprising why police acted in excess.  
+In her church, we found the remaining congregation had also committed suicide by means of candy laced with various chemicals including drain cleaner, pesticides, and pure lye. There were 108 adults, 36 children, and multiple goat corpses that were cut up and mangled for presumably the last mass.  
+I’ll never forget the fact that all of their eyes were open. Eyes that should have been lively looked more like plastic eyes you would see in older dolls, think the dolls that would blink if you held them at specific angles.  
+Mother Carmelita, while deranged and wicked deep down, was able to trick many into thinking she was kinder than she actually was due to being one of few religious figures that was accepting of gay and lesbian individuals at that time.  
+At the peak of Fruit of Love, they had 50,000 members. Most of the people left as soon as they had joined due to it being a fad at the time to be a “Seedling of Carmelita”. Unfortunately, a notable amount of members had lost their battle against AIDS related illnesses, given the development of the cult during the AIDS epidemic. It is quite sad and I do pray for all those who have lost a person who they cared about during this time.  
+We would later learn that Carmelita herself, from her personal journals, was very much indifferent to gay and lesbian individuals. Her writings suggest she saw the AIDS epidemic as an opportunity to grow rather than as providing a genuine safe haven.   
+By the time we received the report of the mass suicide that was about to occur from someone we put undercover, her religious group was at its lowest point. Funds had nearly dried, most members had left, and they all lived in that church.  
+We had found the undercover operative deceased, though we found the candy that he was supposed to eat unopened. Making causes of death unknown still at the time of writing this.  
+I was apart of the “clean-up crew” as we had called it. I realize now how insensitive that sounds. Our task was simple each and every time during events like these; we document what we see, we get the bodies packed up, we bring them back to HQ, and then we assist researchers as well as morticians in the process of both collecting further data and laying the bodies to rest.  
+I carried Mother Carmelita to one of the cars, I have had lots of exposures to dead bodies. Each one I would say is different to some level. Some immediately go cold, some rot eerily fast, and some may have already had that post-death bowel movement.  
+Mother Carmelita was different from anything else though, I have encountered bodies that would still be warm during the process but she was as warm as you or I would be while walking around. The color never drained from her face.  
+The bleeding from her bullet wounds had stopped and there was still remnants of blood on her skin but it seemed as though the wounds themselves were scabbing up.  
+What I had documented was that she had fallen straight onto her back. The majority of the bullets had entered her head, neck, and chest. she did had one bullet lodged in her left arm but that one was the outlier.  
+My peers had carried most of the bodies out already. I’m a slow worker, I like to be thorough especially given the generous salary we were given.  
+I remember just getting an odd feeling as I rode in the passengers seat looking back at her. A face riddled with bullet holes appeared serene with a slight smile on her face.  
+“Hey Brody?” I asked.  
+“What’s up Connor?”  
+“Mother Carmelita…do you think it’s true she was engaging in Santeria?”  
+“Some crazed white bitch pretending to be apart of another culture for manipulative gain? Nope, never heard that before.”  
+“Like you are so PC and open-minded? You think the earth rests on the back of turtle you call Jerome the Dome.”  
+“Do not disrespect Jerome the Dome. You try swimming in the ultimate abyss.” He hissed at me.  
+“Whatever, I still don’t know how you got that idea.” I said as I turned my head to face forward again. “It is sad what happened to those people, they probably really did believe whatever she was telling them.”  
+“It is sad, but the American government and CIA are more occupied with doing damage control on their politicians not on their citizens,” He explained as we arrived at HQ. He parked the car in the designated spot for transportation.  
+“That’s where we come in”, he continued as he turned off the car and exited the drivers side.  
+I left the car as well heading toward the backseat to move Carmelita.  
+As we got her on the stretcher, I noticed a significant change.  
+“What the hell?” I thought.  
+Brody and I both looked to see that all bullet wounds, entrances and exits, had perfectly healed up. Giving the impression she was never shot.  
+“I mean I’ve seen weird, but nothing like this.” Brody claimed.  
+“What are we supposed to do?” I asked.  
+“Well most people would leave at this point because clearly this is the start of something bad…let’s bring her inside and let the geniuses deal with it.” He replied.  
+We wheeled her inside to the designated area. There stood Dr. Long and our mortician Brenda.  
+When we presented the body to them, they looked at the body then us then back at the body with a puzzled look.  
+“I was told over the radio that she had died from gunshot wounds. Where are the gunshot wounds?” Dr. Long inquired while touching the parts of the body that still had blood stains.  
+Brenda took the scene in longer, cocking her head to the side like a confused dog.  
+“Incorruptible.” Brenda commented.  
+Brody and I looked at each other with confusion. Out of the corner of my eye I could see Dr. Long roll her eyes and let out a slight huff.  
+“Brenda, we aren’t having this conversation again.” Dr. Long snapped.  
+“Zhao, I’ve been a mortician way longer than you have been a physician. I’ve seen more cadavers and dead bodies in a single year than you have seen in 12 years of medicine.” She barked back passive aggressively.  
+“Incorruptible?” I asked as I turned to look at Brenda.  
+“It’s not exactly an incorruptible I should say but it’s pretty close. In Catholicism, there are certain miracles that occur. Stigmata, visions, speaking in tongues, statute of Mary crying. One of these miracles is a person or more a saint being an incorruptible.”  
+“Maybe I’m slow but that means exactly..?” Brody chimed in.  
+“It means the body is too pure of soul to rot.” Dr. Long and Brenda said in unison, though Dr. Long had a mocking tone and Brenda had an excited one.  
+Brenda shot Dr. Long a dirty look. Dr. Long just stuck her tongue out at Brenda.  
+“Even then still these supposed incorruptible bodies can still sustain damage.” Dr. Long added.  
+“Ok first of all, putting melting candles next someone’s dead face is going to mess up the skin no matter what. Other than that, Saint Catherine hasn’t rotted, just has bad skin.” Brenda added snidely.  
+“That still does not explain the missing bullet holes?” I added.  
+“That is a mystery, she’s also still very warm? Are you two just pulling our legs?” Dr. Long asked.  
+“For the money we are getting, never.” Brody replied.  
+“Alright you two. Hand over your documentation and we will do further assessment from there. Ready Dr. Long?” Brenda explained.  
+Dr. Long nodded, we reached into our bags and gave our documentation along with cameras for them to assess the body more.  
+We left to help the others unload other bodies into the facility.  
+It was hard looking at collected evidence brought in along with the bodies.  
+Teddy Bears.  
+Dolls.  
+Cross necklaces.  
+Wedding bands.  
+Even the sawed off shotgun.  
+I know by now they should “just be bodies” but for me I find it harder to act as though they are just sacks of meat.  
+Two and a half hours had passed, all the evidence and bodies had been brought in. Brody and I were just sitting in the car listening to the radio, chatting about life and other things.  
+We were waiting to hear back from the gals, we usually stay out of their business until they radio us for help. It’s an atypical format I know but it what helps the process flow better for Dr. Long and Brenda.   
+“Come in now.” Dr. Long radioed.  
+We left the car and started heading inside.  
+When we got inside, we saw quite a sight.  
+Carmelita lay on the metal table naked but covered by a sheet with pristine skin and her eyes were wide open with a closed mouth smile. She was looking straight into the ceiling light.  
+We scanned further to see Dr. Long huddled in the corner and Brenda back to us facing a wall.  
+“What the he-“  
+“GET AWAY FROM THE TABLE!” Dr Long screamed. “WHY ARE YOU HERE?!”  
+We hurried over to where Dr. Long in the corner.  
+“What do you mean?! You told us to come in on the radio.” Brody asked.  
+“Our radio has been broken for the last hour. Brenda accidentally elbowed it off the table. There’s no way a message could have reached you guys!” Dr.Long said in a panicked voice.   
+I heard faint mumbling coming from Brenda as her face was practically pressed to the wall.  
+I got up from my crouching alongside Dr. Long and Brody, approaching Brenda.  
+As I got closer I could now make out what she was saying.  
+*Even as I walk through the valley of the shadow of death…Even as I walk through the valley of the shadow of death…even as I walk through…*  
+“Brenda? You ok?” I asked.  
+She turned to me and I knew something was wrong immediately.  
+“Even as I walk through the valley of the shadow of death…I have seen the light in her and through her…I…do everything in love!” She whispered maniacally.  
+I backed away slowly as I saw those plastic eyes again staring at me through the face of Brenda. My friend Brenda, my coworker of 7 years is gone.  
+What was Brenda turned back towards the table grabbed the body and booked it out the doors repeatedly screaming with a horrifying laugh,  
+“DO EVERYTHING IN LOVE!”   
+It happened so fast that it didn’t initially kick in for me to follow, the only thing I did was turn back towards Dr.Long slowly and ask,  
+“What happened in here?” I asked with a shaky voice.  
+Dr. Long swallowed her panicked breath before continuing to breath fast, she reached into her back lab coat pocket and pulled out a folded pocket knife. She unfolded the knife to reveal a blade stained in blood and caked in bits of tissue.  
+“The body is incorruptible.” She replied before bursting into a full wailing cry. Dr. Long is a veteran and a physician. One of the toughest people I know. When she started to cry, that’s when the proper instincts kicked in. I turned and immediately ran out after Brenda with the body. Brody followed suit based on the footsteps behind me.  
+I am not a particularly athletic person, especially when it comes to sports involving running but I can tell you that day I ran better than I had in my entire life.  
+I followed the sounds of crazed laughter echoing before the echo stopped and became more distant. That’s when I realized, she had gotten outside. I flung open the emergency exit to see Brenda running with freakishly long strides given her shorter stature.  
+She was now sprinting across the grass, still laughing and spitting out that phrase but it closer and faster repetitions.  
+“DO EVERYTHING IN LOVE! DO EVERYTHING IN LOVE! DO EVERYTHING IN LOVE!” She shrieked with a shrill voice.  
+As she got closer and closer to the gate, I knew what was to come.  
+The guards.  
+The guards came out with large automatic guns and gave Brenda only one warning.  
+“Stop” the guard said firmly, aiming the gun at her head.  
+Despite being decently far away I could only hear her laugh but she seemed to say something to the guard before lunging forward still carrying the body.  
+I have never heard so many gunshots in my life. I watched as I saw what I can only describe as Brenda being turned into pulled pork in real time.  
+My friend was being shot down but never stopped laughing for a moment.  
+When all had cleared and Brenda was now the equivalent of a flesh soup on the ground. Brody and I slowly made our way up to where the guards were at.  
+At first they proceeded with normal procedures for the organization, examine the scene, begin radioing higher ups. However, as we got closer, we saw one of the guards freeze as her stared down at one of the bodies before slowly backing up a few steps before turning away into a full sprint screaming.  
+When Brody and I arrived at the scene, we were stunned at what we saw.  
+Brenda’s flesh had begun moving like a seal pulling itself onto a beach onto Mother Carmelita’s body. A body that had once again been damaged by bullet holes. The flesh filled each and every wound as though it were a cup of soda. Every bullet hole became packed with Brenda’s flesh before the remaining flesh migrated to Mother Carmelita’s face.  
+Mother Carmelita’s skin began crawling over the wounds to cover them before fusing themselves back together as though there had never been a bullet.  
+The process was completed and all that remained on the pristine body was the flesh pile covering Carmelita’s face.  
+Hastily, I pushed the grounded meaty mound off the face.  
+Mother Carmelita’s face was now in the expression of a toothy smile with wide open eyes. Her eyes themselves were affixed to the entrance gate.  
+Higher ups were called and ranks above us removed Mother Carmelita’s body and placed it in a higher security facility.  
+Neither myself nor Brody has heard from or anything about Dr. Long in two weeks. We know what likely happened.  
+That is why we decided, together, that we are going to break in and burn the body. I realize that seems stupid but the body seems to be able to heal from forces such as stabbing or being shot but it isn’t unreasonable to think that it may not like fire.  
+It may be a stupid plan but how could anyone in their right mind not try something? I mean one of my friends is dead and one is likely dead.  
+I’m a bachelor with no immediate family, all I had was this company and these friends. My actions may be stupid but I do truly believe my intent is noble.  
+To anyone reading this, I want you to take this one thing away if not anything else. If a body does not decay, does not retain harm. Essentially, if you find an incorruptible…  
+Leave the body alone.  
+It wants you to interact with it.  
+Don’t.
