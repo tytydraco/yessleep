@@ -1,6 +1,6 @@
 Have you heard about the Stiltmother?
 
-She wonders the lonely forests at night, looking for her children, looking to avenge her wrongful death,
+She wanders the lonely forests at night, looking for her children, looking to avenge her wrongful death,
 
 When she came here from Japan a curse followed,
 
