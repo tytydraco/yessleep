@@ -1,0 +1,43 @@
+&#x200B;
+
+I have had two distinct... scary dreams, and i managed to write this down when i woke. enjoy and maybe discuss. 
+
+im on a road. its paved, and cracked.
+
+  
+
+it has been neglected, but im on this road and i care for it now  
+
+i have a garden hoe, im using it to scrap a path on the road.
+
+the sky is orange, the atmosphere heavy with smoke, i think its smoke  
+
+to my right, i dont know. i dont look...  
+
+to my left, a few buildings, houses, a chain link fence waste high seperating yards.  
+
+all the windows are black.
+
+i continue scraping the road.  
+
+what am i scraping? at first, a hard charcoal looking grime thats caked on, as i scrap i see the lines of the road beneath. im making a small path, no more then 6 inchs wide.  
+
+i make it to an intersection, and scrap accross, i notice a man in white robes and a white mask standing to my left. on the sidewalk, if you can call it that... i go back to my work.  
+
+the intersection does not have a 4 way, rather its a 3 way. the other road going from left to right. i scrap straight until i hit the ditch, water poors into the path. im happy.
+
+i hear wet thuds... smacks... i turn to the man, he is gone, in his place, a alligator with no scales, with sores covering its body, they open to reveal eyes and puss. it rests on red stained white robes.  
+
+i turn the way i came, and begin to scrap again, this time not charcoal grim... but flesh  
+
+flesh keeps falling from the sky and clogging my tiny river, turning the water crimson. frustrated i shovel the chunks of flesh out of my creation.
+
+this time, the houses are to my right. and the unknown to my left. minutes pass, as i toil.  
+
+i stop, as i notice a grand snail as large as a van. its black, its shell matching its flesh, its head, if i can call it that, was covered in scales and larger then its body, as if what ever made it, was mocking this creature. the head collapses forward, and the fleshy neck bursts open, seperating the head and the shell... a disgusting worm with teeth screeches and bursts from the wound, digging into the ground.  
+
+alas, the head in now in my way, i leverage it out of my creak.
+
+i continue scrapping. i pass the houses, and now to my right is massive fields covered in wheat.  
+
+in the distance are massive creatures of flesh, impossibly large and grow into the sky for maybe a mile. there length... there bodies bend with the earth. i cant see the end. there base is covered in millions of legs... they are moving. the sky remains orange, as i divert my gaze back into the road. i continue to scrap and tend to my river of blood.

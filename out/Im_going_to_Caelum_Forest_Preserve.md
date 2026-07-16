@@ -334,7 +334,7 @@ I very slowly entered the hollow of the leviathan tree, keeping my light trained
 
 The pit was about 20 feet across. As I crept closer and looked down, I saw something that nearly broke my mind completely. I vomited but couldn’t bring myself to look away even as I emptied my stomach.
 
-The pit was deep, so deep that I wouldn’t be able to even see the bottom. The sides were lined with sharp root tips, jutting out of the earth.
+It was deep, so deep that I wouldn’t even be able to see the bottom if it was empty. The sides were lined with sharp root tips, jutting out of the earth.
 
 Inside were hundreds, maybe even thousands, of animals. They were stuffed inside so tight that they had almost no room to move. I could see deer, bears, foxes, and mountain lions. They were all thrashing inside the pit, trying to right themselves and escape. I watched a deer, kicking and twisting, push a buck into one of the spikes lining the wall. The buck screamed out in pain, a large bloody wound now lining its side.
 
@@ -386,7 +386,7 @@ He turned his gaze back to me, and his demeanor suddenly shifted, taking on a se
 
 I turned to take one last look at the pit before bolting as fast as I could back in the direction of the clearing, which led to my car. It was still dark outside, but I used the roots as best I could to orient myself in a direction.
 
-Andrew did not make any attempt to stop me, his cheers of reverence still ringing out from behind me as I ran. I sprinted through the rows of trees, not daring to touch any of them. I ran for an eternity before finally seeing the clearing that marked the end of the trail. I didn’t turn back for my gear; this place can fucking keep it for all I care.
+Andrew did not make any attempt to stop me, his cheers of adoration still ringing out from behind me as I ran. I sprinted through the rows of trees, not daring to touch any of them. I ran for an eternity before finally seeing the clearing that marked the end of the trail. I didn’t turn back for my gear; this place can fucking keep it for all I care.
 
 It took me 10 minutes to get back to my car, far shorter than it should have been, but I was beyond the point of questioning. I sped away from that place as fast as I could, and when I looked back for just a moment, I caught a glimpse of Her in the distance.
 
