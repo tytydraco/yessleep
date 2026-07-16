@@ -1,0 +1,173 @@
+I don’t even know where to start, but I need advice right now because I feel like I am completely losing my mind.
+
+I’m watching Mark sleep on the baby monitor while I type this. For three long years, my life has been reduced to the four walls of this room. Mark used to be a six-foot-two construction foreman, but a drunk driver changed all of that in a fraction of a second. Now he’s just a silent, uncooperative weight.
+
+Paralyzed from the neck down. He can’t feed himself, he can’t hold my hand, he can’t even roll over to stop the bedsores unless I physically haul his heavy body onto his side. My wrists ache constantly. My back is completely ruined. Being a full-time caregiver is a special kind of hell, but I do it because I love him.
+
+Every single morning is identical. 6:00 AM. The sharp, metallic buzz of my phone alarm goes off, shocking the soles of my feet against the cold hardwood floor. I force down four cups of lukewarm, bitter black coffee just to function.
+
+When I walk into his bedroom, the air always hits me like a wall—heavy, humid, smelling of old sweat, sour skin, and wool blankets. The smell of bleach never truly leaves this house, but it can’t cover up the scent of sickness. I roll him over, listening to the sickening, wet slide of his skin against the plastic undersheets. His joints give a dull, hollow pop with every shift.
+
+Then comes the kitchen routine. The dry, grating screech of the mortar and pestle sets my teeth on edge as I grind his pills into a fine, chalky powder. Muscle relaxants. Nerve blockers. And a heavy liquid sedative to stop his involuntary spasms. I mix it into a thick, grayish-beige nutrient slurry that smells faintly of metallic vitamins, adding the clear, viscous drops of the sedative until it dissolves.
+
+I spoon-feed him slowly, the metal clicking sharply against his teeth, using a rough washcloth to wipe away the sticky string of drool on his stubble. Usually, his eyes are dead. He just stares blankly at the ceiling fan spinning overhead.
+
+But over the last two weeks, something shifted.  
+The moment the door hinges give a tiny, rusted squeak, Mark’s eyes instantly snap to mine. They aren't blank anymore. They are wide, bloodshot, and frantic. The pupils dilate so violently they swallow his irises. Yesterday, when I brought the spoon to his lips, a single, hot tear sliced through the grease on his cheek. His jaw locked tightly shut with a sickening click of bone. I had to pinch his nose and pry his mouth open, breathing in the sour tang of his breath, just to make sure he swallowed his medicine.
+
+I told his doctor, but she thinks it’s just late-onset depression and medical trauma. I don't think so. The house feels wrong. Yesterday, I found a damp patch on the hallway carpet that smelled like rain. Last night, I heard a floorboard groan in the living room while I was bathing him.
+
+But at 3:15 AM last night, things got so much worse. A sound woke me up that scraped right along my spine.
+
+It was a rhythmic, dull thudding coming from his room. Thump. Thump. Thump. Like a heavy sack of flour being dropped on the floorboards.
+
+I grabbed my heavy iron flashlight, the cold metal freezing my palms, and crept down the pitch-black hallway. I pushed his bedroom door open. The rusted hinges gave a high, piercing whine.
+
+The room was freezing. The window was shut, but the air felt dead and hollow. Mark was asleep, his chest rising and falling in the slow, mechanical rhythm of the sedative. But his phone—the old, deactivated smartphone I keep on his nightstand just to play ambient rain sounds to drown out the click-hiss of his oxygen machine—was lying on the floor. It was three feet away from the table, face down on the hardwood, its screen shattered into a spiderweb of glinting, sharp fractures.
+
+There is no draft in this house strong enough to blow a heavy phone off a nightstand. And Mark physically cannot move.
+
+I didn’t go back to sleep. I sat at the kitchen table, watching the gray dawn bleed into the room until the shadows on the linoleum dissolved. My mind kept looping back to that shattered glass. I tried to build a rational explanation, piece by piece, the way you try to balance an unstable house of cards. Maybe the vibration of the rain app had slowly drifted the phone to the edge? Maybe a stray mouse?
+
+But deep down, in that quiet, visceral place where your instincts live, I knew that was a lie. The phone had been placed in the exact center of the oak nightstand, nestled in a carved groove. It hadn't drifted. It had been pushed.
+
+At 7:00 AM, I walked back into Mark’s room, my slippers dragging heavily. He was still under the deep, suffocating fog of the emergency sedative. His breath came in thin, whistling gasps that rattled the back of his throat—a dry, papery sound that always reminded me of dead leaves scraping against asphalt. His skin looked translucent in the morning light, mapped with thin, branching rivers of blue and purple veins.
+
+I stood over him for a long time, the heavy iron flashlight still gripped tightly in my right hand. My knuckles were white.
+
+"Did you do it?" I whispered into the quiet room.  
+The only response was the mechanical, rhythmic click-hiss of the oxygen machine. I felt a sudden, sickening wave of shame wash over me. How could I even think that? The man hadn't felt his own toes in thirty-six months. His spine was a shattered mess of scar tissue and wire. I was letting the sleep deprivation eat holes in my sanity.
+
+I set the flashlight down with a heavy, metallic thunk and went to work. His right hand was still stained with the dried, dark brown crust of the blood from yesterday's frantic scraping. I fetched a plastic basin of warm water and a soft yellow sponge.  
+When I dipped his hand into the water, the liquid instantly swirled with a rusty, amber tint. I worked gently, dabbing at the raw, weeping skin over his knuckles. His fingers were stiff, curled inward like the claws of a dead bird. As I wiped away the last of the crust, my fingers brushed against the pad of his index finger.
+
+The skin there wasn't soft, like the rest of his unused, bedbound body. It was rough. There was a tiny, localized patch of hard, calloused skin right at the tip, the kind you get from repetitive, friction-heavy pressure. Like someone rubbing their finger against a coarse surface for hours at a time.
+
+My heart gave a hard, erratic thud against my ribs.  
+I dropped the sponge back into the basin. It hit the surface with a loud, wet splash, slopping soapy, pinkish water over the rim and onto the hardwood floor. I stared at his face. His eyelids gave a sudden, violent twitch, his chest heaving as the medication began to lose its grip on his nervous system.
+
+"Mark?" I breathed, leaning down until the sour heat of his breath fanned against my cheek.  
+His eyes snapped open.
+
+There was no gradual waking up, no soft blinking away of sleep. It was an instantaneous, electric jolt. The pupils were already fully dilated, pitch-black pools that seemed to swallow the gray morning light. He didn’t look at the ceiling fan. He didn’t look at the window.
+
+He looked directly into my eyes, and the sheer, unadulterated hatred burning in his gaze froze the blood in my veins.
+
+His jaw began to work, his lips stretching back over his dry, yellowing teeth with a faint, wet tearing sound. A thick line of white, foamy saliva bubbled at the corner of his mouth. He was trying to form a word. His throat clicked, a dry, raspy rattle vibrating deep in his neck.
+
+"W... W..." he wheezed, the sound MCF-quiet, barely louder than the rustle of paper.
+
+I leaned closer, my ear inches from his lips, entirely forgetting my fear in a sudden, desperate surge of hope. "What is it, sweetheart? Tell me. What do you need?"
+
+"W... h... y..."
+
+He stopped, a violent, full-body shudder ripping through his frame. His heels dug into the mattress under the heavy wool blankets, a sudden, frantic kicking motion that lasted for two terrible seconds before his legs went entirely limp again. His chest heaved as he fought for air, his teeth snapping shut with a sharp, sickening crack that echoed in the small room.
+
+He didn't finish the word. But he didn't need to.  
+I backed away from the bed, my hands pressed hard against my mouth to stifle a sob. The sheer, feral panic in his eyes wasn't the look of a man suffering from depression. It was the look of a prey animal staring at the thing that was going to eat it.
+
+I needed to leave. I needed to get out of the house, just for an hour, to clear the fog out of my brain and breathe air that didn't smell like sickness and bleach.
+
+"I'm going to the store, Mark," I said, my voice sounding hollow and fake, even to my own ears. "I'm going to get some more of your liquid formula. I'll be right back."
+
+He didn't blink. He just watched me move toward the door, his eyes tracking my every step with a cold, unblinking intensity that made the hairs on my arms stand up.
+
+I grabbed my car keys from the kitchen counter, the metal jingling loudly in the quiet house. I walked out the front door, slamming it shut behind me, and locked it with a heavy, definitive click. I walked down the porch steps, my boots crunching loudly on the gravel driveway, and got into my sedan. I started the engine, letting the loud, mechanical rumble fill the quiet suburban air.
+
+But I didn't put the car in drive.  
+Instead, I sat there, watching the exhaust smoke curl up into the cold morning air in my rearview mirror. A terrible, dark thought had taken root in my mind, a poisonous little seed that I couldn't tear out.
+
+He thinks I'm gone.
+
+I turned off the ignition. The sudden silence wrapped around the car like a heavy blanket. I got out quietly, closing the car door using only the tip of my finger until the latch clicked shut without a sound. I crept back up the wooden porch steps, avoiding the third step because I knew it gave a loud, structural groan when weight was applied.
+
+I unlocked the front door with agonizing slowness, turning the key millimeter by millimeter until the bolt slid back without a whisper.
+
+I stepped inside the hallway. The house felt entirely different now—heavy, expectant, and freezing cold. I took off my boots, standing in my wool socks, and began to creep down the dark hallway toward Mark's room, my heart hammering so violently against my ribs I was certain he would hear it.  
+I reached the edge of his doorframe. The door was cracked open just an inch, a sliver of gray light cutting across the dark hardwood of the hall.  
+I leaned forward, pressing my eye to the gap.
+
+Through that narrow, one-inch gap in the doorway, the world seemed to shrink down to the sharp, mechanical click-hiss of the oxygen concentrator. I held my breath, the back of my throat burning with the taste of copper and swallowed panic.
+
+At first, nothing happened. Mark lay perfectly still under the heavy, dark wool blanket. The room was a tableau of static, gray misery.
+
+Then, the blanket shifted.
+
+It wasn't a sudden jerk or a violent spasm. It was a slow, agonizingly deliberate swell, like something buried alive trying to reshape its shroud. From beneath the edge of the fabric, his right arm began to emerge.
+
+My breath caught in my teeth.
+
+The movement was horrific because of how much effort it took. The muscles in his forearm were completely wasted away, the skin hanging loose and gray against the bone, but it was lifting. It rose millimeter by millimeter, trembling so violently that I could hear the dry friction of his skin dragging against the plastic undersheet. It sounded like paper tearing in slow motion.
+
+His hand rose into the cold air of the bedroom. His fingers, those stiff, yellowed claws with the raw, calloused index pad, were flexing. They opened and closed, tasting the air, before reaching out toward the side of the mattress.
+
+He wasn't reaching for the shattered phone on the floor. He was reaching down, forcing his arm over the sharp edge of the wooden bedframe, his knuckles scraping against the grain until a fresh bead of dark blood welled up on his skin. He didn't even flinch. His face, visible in the sliver of gray light, was a mask of pure, agonizing concentration. His teeth were bared, stringy strings of saliva stretching between his lips as his fingers dug blindly into the narrow gap between the heavy box spring and the mattress.
+
+He was searching for something.
+
+I couldn't look anymore. The reality of what I was seeing smashed through my brain like a physical blow. He wasn't paralyzed. Not completely. He had been gaining movement back, practicing in the dark, dark hours while I slept, hiding it from the doctors, hiding it from me.
+
+I pushed the door open.
+
+The rusted hinges didn't just squeak; they let out a sharp, metallic scream that pierced the quiet of the house.
+
+Mark’s reaction was instantaneous. The sheer, electric terror that flooded his face matched my own. His arm dropped like a stone, slamming against the wooden frame before disappearing beneath the blanket. He closed his eyes tightly, forcing his breathing to go shallow and ragged, trying to mimic the heavy, dead weight of the sedative.
+
+But it was too late. The illusion was shattered.  
+I didn't say a word. I didn't cry. A strange, freezing calm washed over me, the kind of numbness that comes when you're in a car crash and everything slows down to a crawl. I walked into the room, my wool socks making no sound on the floorboards.  
+Mark lay there, his eyes closed, his chest rising and falling in a fake, rhythmic pattern. But he was trembling. The wool blanket was vibrating with the frantic beat of his heart.
+
+I stopped at the edge of the bed. I leaned down, my face inches from his, and whispered, "I saw you, Mark."
+
+His eyes snapped open. The pretense was gone. The raw, feral hatred was back, but beneath it was a desperate, whimpering panic.
+
+I reached down to the exact spot where his fingers had been clawing. I shoved my hand into the dark, tight space between the mattress and the box spring. My knuckles brushed against something cold and smooth. Plastic.
+
+I pulled it out.
+
+It was a cheap, black burner smartphone, the kind you buy at a gas station for twenty dollars. The screen was smudged with oily fingerprints and the faint, red smear of his own blood from his raw knuckles. My hands shook so violently I almost dropped it.
+
+I pressed the power button. The screen illuminated the dim room with a harsh, blue glare.
+
+There were no apps installed. No games. No social media. There was only the messaging interface. I opened the drafts folder, my thumb hovering over the glass.
+
+There were dozens of them. Dozens of messages, all addressed to emergency services, written over the span of months. They were typed in frantic, messy blocks of text, full of typos and missing spaces where his calloused, uncooperative finger had missed the keys.
+
+I started reading them, the words blurring before my eyes as the cold truth finally settled into my chest.
+
+I stared at the glowing blue screen, my thumb scrolling through the drafts. My mind couldn't make sense of the words at first. They looked like code. They looked like a language I didn’t speak.
+
+The oldest draft was from six months ago:
+
+“HELP ME. IM NOT SICK ANYMORE. MY LEGS WORK. SHE WONT LET ME OUT OF THE ROOM.”
+
+I blinked. The text blurred. I scrolled to the next one, dated three months later:
+
+“Tried to walk to the kitchen last night to get water. She woke up. She screamed at me like I was a ghost. She hit me with the flashlight and forced the syringe into my mouth. Please, someone check the house on Elm Street. I am a prisoner.”
+
+My breath hitched. The words felt heavy, like lead pressing down on my chest. Elm Street? We didn't live on Elm Street. We lived in our beautiful, quiet suburban home. I looked up at Mark.
+
+He was staring at me, his eyes wide and leaking silent tears into his stubble. His jaw wasn’t locked in a medical spasm. It was trembling with sheer, unadulterated terror.
+
+I looked back down at the phone. The most recent draft was from last night, typed right before he dropped the device onto the floorboards:
+
+“She thinks it’s three years ago. She thinks the accident just happened. The doctor told her last year that my spine healed, but her brain snapped from the stress. Every time I try to stand up, she thinks an intruder is breaking in. She drugs me back into the paralysis. If I don't get out today, the sedatives are going to stop my heart. Please.”
+
+The phone slipped from my hand. It hit the hardwood floor with a sharp, plastic clatter, the screen flickering once before going dark.
+
+The click-hiss of the oxygen concentrator suddenly sounded incredibly loud, echoing in the corners of the room. I looked around. The walls weren't white anymore. They were covered in layers of peeling, yellowed wallpaper. The medical equipment in the corner was dusty, unplugged, and rusted.
+
+I looked down at my hands. They were stained with the gray, chalky residue of the pills I ground up every single morning. The mortar and pestle sat on the nightstand, surrounded by dozens of empty prescription bottles with Mark's name on them, all prescribed over a year ago. All expired.
+
+“Mark,” I whispered, my voice sounding incredibly small, like a little girl lost in a dark forest. “Sweetheart, your breakfast is getting cold.”
+
+He didn't answer. He couldn't. His eyelids were already fluttering, drifting shut as the massive, emergency dose of the sedative I had forced down his throat minutes ago finally took hold of his central nervous system. His wasted arm, the one he had worked so hard for months to rehabilitate in the dark, slipped off the mattress and hung limply toward the floor, his calloused index finger brushing the wood.
+
+I stood there in the freezing room for a long time, watching his chest rise and fall.
+
+Rise. Fall. Rise. Fall.
+
+Slow. Rhythmic. Completely safe.  
+A wave of intense, beautiful relief washed over me, clearing away all the panic and the paranoia of the last two weeks. The house felt quiet again. The stalker was gone. The intruder hadn't broken in after all. Mark was right here, right where he belonged, entirely safe under the heavy wool blankets where nothing could ever hurt him again.  
+I walked out of the room, closing the door until the rusted hinges gave a soft, familiar squeak. I headed down the hall to the kitchen to start a fresh pot of coffee. It’s almost 6:00 AM, and I need to be ready.  
+Tomorrow is a big day. I have to wake up early to take care of my husband.

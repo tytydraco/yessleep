@@ -1,0 +1,305 @@
+The landlord had several rules about the building, but the one she repeated most often concerned the mail.
+
+“Do not open anything that isn’t addressed to you,” she would say whenever letters ended up in the wrong boxes. “Put it in the blue mailbox downstairs.”
+
+I had lived there for almost seven months and assumed she was unusually strict about privacy. The building had an old row of brass mail slots in the lobby, each marked with a black apartment number. The slots often jammed, especially when the weather was damp, so letters regularly ended up in the wrong boxes. Whenever that happened, I dropped them into the blue mailbox beside the front desk.
+
+The landlord emptied it every evening. At least, I thought she did. I never actually saw her open it.
+
+The envelope arrived on a Tuesday.
+
+I came home carrying groceries and grabbed the entire bundle of mail without checking it. I didn’t notice the unfamiliar envelope until I was upstairs at my kitchen table.
+
+It was plain white, slightly yellow around the edges, with no stamp, return address or postmark. The front had been typed in faded black ink.
+
+**CURRENT OCCUPANT**  
+**APARTMENT 0**
+
+The building did not have an Apartment 0. The ground floor apartments began at 1A and 1B. Beneath them were the lobby, boiler room and basement laundry area. I had passed every door often enough to know there was no zero anywhere.
+
+I should have taken the envelope downstairs. Instead, I held it up to the light. There appeared to be only one sheet of paper inside. I told myself it was probably an old management notice or a joke from another tenant.
+
+The landlord’s warning hadn’t crossed my mind.
+
+*Do not open anything that isn’t addressed to you.*
+
+I slid my finger under the flap. The glue stretched into thin black strands before snapping apart, leaving a sticky residue on my skin. Inside was a single sheet of paper with one sentence printed in the centre.
+
+**Your occupancy has been acknowledged.**
+
+I let out a quiet laugh, folded the paper and dropped it into the kitchen bin.
+
+That night, I saw Mr Vale in the hallway.
+
+He had lived in Apartment 5C when I first moved in. He was a quiet man in his forties who always wore dark suits and smelled strongly of aftershave. He had left suddenly at the beginning of winter. At least, that was what the landlord told us.
+
+He was standing outside my apartment at eleven thirty. His clothes were soaked, although it hadn’t rained. The skin around his eyes looked swollen and pale, and one side of his jaw hung lower than the other. His right hand was pressed against the wall. Two of his fingers had been flattened almost completely, the nails split and blackened.
+
+“Mr Vale?”
+
+He turned slowly and smiled.
+
+“You opened yours too,” he said, his voice wet and quiet.
+
+I stepped back. “What?”
+
+He lifted his damaged hand. A white envelope was stuck to his palm, stained with dark moisture.
+
+“They always send one first.”
+
+I reached for the keys in my pocket as he moved towards me. His knees barely bent, forcing his body to sway as he crossed the hallway.
+
+I ran to my apartment and threw myself inside. The lock turned just as something struck the other side. Mr Vale dragged his fingernails slowly down the door. Then he whispered through the gap beneath it.
+
+“Don’t let them take your number.”
+
+The next morning, the landlord denied knowing what I was talking about.
+
+“Mr Vale moved out months ago,” she said.
+
+“I know. That’s why I’m telling you I saw him.”
+
+She stood behind the front desk sorting letters. The blue mailbox sat closed beside her.
+
+“You were probably tired.”
+
+“He knew I opened the letter.”
+
+Her hands stopped moving.
+
+“What letter?”
+
+Something in her expression made me hesitate.
+
+“Nothing,” I said. “I must have been mistaken.”
+
+The landlord watched me for a moment before returning to the mail.
+
+“If anything arrives that isn’t yours,” she said, “you know where to put it.”
+
+I went upstairs and retrieved the envelope from the bin. It was damp now.
+
+I waited until later, when I thought the landlord had left her office, before taking it back downstairs. After the way she had reacted when I mentioned the letter, I didn’t want her to know I had opened it.
+
+The lobby was empty, and her office door was closed. I pushed the envelope through the slot in the blue mailbox, but it stopped halfway.
+
+Something inside seemed to press it back towards me. I pulled it out and tried again, pushing harder this time. The envelope bent between my fingers before sliding out on its own and dropping at my feet.
+
+The slot lifted slightly, even though nothing was touching it from the outside. For a moment, I thought I saw pale fingertips curled around the metal from within.
+
+Then I heard the landlord’s office door unlocking. I grabbed the envelope and hurried upstairs before she came out. I stuffed it into a kitchen drawer, planning to try again once I was certain she had gone. 
+
+I never got the chance.
+
+That night, someone began knocking from inside my bedroom wall. The sound continued until sunrise. Three slow knocks, followed by a pause, then three more. Whenever I moved closer, it stopped. Whenever I returned to bed, it began again. By morning, I had convinced myself it was a pipe.
+
+Then I saw Rachel in the laundry room. She had lived on the second floor with a small white dog and disappeared sometime before Christmas. She was sitting on top of a washing machine in a soaked nightgown, holding an opened envelope between both hands.
+
+“You still have your key,” she said.
+
+I looked down at the keys in my hand. “What happened to you?”
+
+“I had a key once.”
+
+Her eyes moved towards the concrete wall behind the dryers.
+
+“They don’t like us staying in the rooms too long.”
+
+I ran.
+
+After that, I began seeing them everywhere.
+
+An elderly man stood in the elevator with his forehead pressed against the back wall. When the doors opened on my floor, he turned enough for me to see a deep scar behind his ear.
+
+“Wrong floor,” he whispered as the doors closed.
+
+A young woman was crouched beside the rubbish bags in the alley, scratching at the bricks with a broken key.
+
+“Do you know which apartment is mine?” she asked with tears streaking her face.
+
+They all carried opened envelopes.
+
+I stopped using the elevator. I avoided the basement and took my rubbish out during daylight. At night, I heard soft tapping in the walls and at my window, but I kept the curtains drawn, not wanting to see what might be out there.
+
+Then one of them touched me. 
+
+Mr Vale was waiting at the end of the hallway when I returned from work. His swelling had worsened, and the damaged fingers on his right hand were bound together with strips of paper.
+
+I turned towards the stairs, trying to ignore him. He crossed the distance before I reached them and grabbed my wrist. His fingers felt soft and cold, but his grip was strong enough to grind the bones together.
+
+I struck his arm with my keys until the skin split. There was no blood inside him. Instead, thick black liquid seeped from the wound, carrying scraps of wet paper with it.
+
+“It’s changing your address,” he whispered.
+
+I tore myself free and ran.
+
+Five dark bruises had appeared around my wrist. Inside each one was the pale outline of my apartment number.
+
+**6C**
+
+Over the next two days, the six faded. Then the C curled closed. Two days later, each bruise contained the same number.
+
+**0**
+
+That was when the building began treating me like a visitor. My key started sticking in the lock. Some nights, it took ten attempts before the door opened. One morning, I found my name missing from the intercom panel beside Apartment 6C. The apartment number was still there, but the space beside it was blank.
+
+I checked it twice before going back upstairs and calling the landlord.
+
+“There’s something wrong with the intercom panel. My name isn’t on it anymore.”
+
+There was a pause.
+
+“Who is this?”
+
+I looked around my apartment. My coat was hanging beside the door, and the mug I had used that morning was still on the kitchen counter.
+
+“It’s me. I live in 6C.”
+
+She told me the apartment was vacant.
+
+When I insisted I was standing inside it, she sighed and said I must have the wrong building before ending the call.
+
+I stood in the kitchen with the phone still pressed against my ear. The landlord sounded like she thought I was making some strange prank call about living in 6C.
+
+The following afternoon, I returned from work and found my front door open. The landlord was standing outside with a woman holding a property brochure.
+
+“What are you doing?”
+
+The landlord turned. For a moment, she looked genuinely frightened.
+
+“You moved out.”
+
+I held up my keys. “I still have my keys.”
+
+Her eyes moved over me with confusion before drifting towards the framed photos inside, my coat beside the door and the shoes lined up on the rack.
+
+“These are my things.”
+
+She stepped into the apartment and picked up one of the photographs. I was standing in the centre of it, but she studied my face as though she had never seen me before.
+
+“You left them behind,” she said eventually.
+
+Then she noticed the bruises around my wrist, and the confusion disappeared. She dismissed the woman without explanation and followed me inside, closing the door behind her.
+
+“You opened the letter.”
+
+I asked her what Apartment 0 was, but she ignored me and demanded to know where I had put it.
+
+The envelope was still inside the kitchen drawer. When I unfolded the paper, I saw that it had turned almost completely black. The original sentence was gone. It was now replaced with:
+
+**OCCUPANCY PENDING**  
+**CURRENT RESIDENT: UNCONFIRMED**  
+**PREVIOUS ADDRESS: 6C**
+
+The landlord stared at it before telling me I should have come to her immediately.
+
+“I tried putting it in the blue mailbox. Something pushed it back out.”
+
+“You had already opened it by then.”
+
+“You never told me what would happen.”
+
+Her jaw tightened. She said the warning should have been enough, but even she didn't sound convinced.
+
+I asked about Mr Vale and Rachel.
+
+The landlord looked towards the walls before answering. They had both received letters. So had every person I had seen wandering through the building.
+
+The building had not erased them completely. It had replaced their absence with explanations people would accept. Mr Vale had moved out. Rachel had broken her lease. One former tenant had supposedly died in hospital, while another had gone to live with her daughter.
+
+None of it really had happened.
+
+The landlord only noticed because she managed the building and sometimes found evidence that contradicted what she remembered. Even then, the false memories felt real until something forced her to question them.
+
+A faint dragging sound moved through the wall behind us, travelling from the kitchen towards the bedroom.
+
+The former tenants’ apartments had never disappeared. The people had simply lost their right to occupy them. Once the building stopped recognising someone as a resident, Apartment 0 moved them into whatever spaces remained unclaimed.
+
+The walls. The service shafts. The gaps between floors. Anywhere that was not officially occupied.
+
+The dragging stopped behind my bedroom door. Heavy breathing came from the other side.
+
+“What do they want from me?” I whispered.
+
+The landlord looked at the door.
+
+“Your place.”
+
+The bedroom door opened by itself. Mr Vale was sitting on the edge of my bed. He wore one of my shirts. My work badge had been pinned to his chest, but my photograph and name had been scratched away.
+
+Behind him, the wardrobe door opened. Rachel stood inside, folded into the narrow space with her knees beside her shoulders. She began forcing her joints back into place without looking away from me.
+
+“You have a room,” she said.
+
+Mr Vale repeated it.
+
+“You have a room.”
+
+A third voice came from under the bed.
+
+“We need one.”
+
+The landlord pulled me behind her into the hallway, but before she could close the bedroom door, the wall behind Mr Vale split from floor to ceiling. The plaster stretched apart like wet paper.
+
+Inside was a narrow black space packed with bodies. Faces pressed between pipes and beams. Arms and legs had been bent into gaps no living person could have fit inside. Some wore clothes from decades ago. Others were so swollen that the fabric had sunk into their skin.
+
+Every one of them held an opened envelope. They began pulling themselves through, repeating the same words as they came.
+
+“You have a room.”
+
+“We need one.”
+
+The landlord shoved me towards the living room, but something caught my ankle. I struck the floor and felt hands close around my legs and shoulders. Mr Vale pinned me down while Rachel reached into my pockets.
+
+The landlord shouted that they were taking anything that proved I belonged there.
+
+Someone tore the keys from my hand. Another pulled an earring from my ear. The missing residents weren’t trying to kill me. They were collecting evidence that 6C was mine.
+
+The young woman from the alley crawled over my chest. The broken key had been driven through the centre of her palm.
+
+She opened her mouth.
+
+My scream came out of her.
+
+I tried to make a sound, but only air escaped.
+
+Before they could drag me towards the open wall, the landlord struck Mr Vale with her ring of keys. Brass sliced through his cheek, releasing black liquid and scraps of paper, and his grip loosened.
+
+She held up the letter and tore it in half.
+
+Every missing tenant screamed.
+
+The sound came from the walls as well as the room. Mr Vale clutched his chest. Rachel’s body folded inwards, and the zeros around my wrist burned as they stretched into thin lines and began to fade.
+
+The landlord tore the letter again.
+
+This time, the darkness inside the wall pulled the bodies backwards. Hands clawed at the floorboards and walls as the opening swallowed them. Mr Vale slid across the floor, leaving a trail of black liquid behind him. Rachel’s limbs bent around the edges of the gap before snapping free.
+
+The young woman held on longest, hooking the broken key between two floorboards. The landlord stamped on her wrist. The key tore loose, and she disappeared into the wall.
+
+The opening closed with a wet, sucking sound.
+
+The landlord found my keys underneath the table and tried them in the front door. It turned without resistance.
+
+She told me the transfer had been stopped. The building recognised me as the occupant of 6C again, but the others were still trapped inside Apartment 0. 
+
+By morning, my name had returned to the intercom beside Apartment 6C. The landlord’s records showed that I had lived there continuously for seven months. According to everyone else in the building, I had never moved out.
+
+I haven’t slept in the bedroom since. The landlord insists the wall is sealed, but I still hear movement behind it whenever the building becomes quiet. Sometimes Mr Vale drags his fingers across the plaster. Sometimes Rachel whispers that she used to have a kitchen just like mine.
+
+The young woman can still use my voice. She uses it to call my name from inside the wall, then answers herself when I refuse to respond.
+
+This morning, I went downstairs and found another name underneath mine on the intercom.
+
+**MR VALE**  
+**APARTMENT 6C**
+
+By the time I called the landlord, Rachel’s name had appeared beneath his.
+
+She told me not to remove them.
+
+Apartment 0 had failed to take me, but the people inside it had already been acknowledged as occupants of my apartment.
+
+According to the building, I still live in 6C.
+
+I just don’t live here alone anymore.
