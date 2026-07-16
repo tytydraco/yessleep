@@ -1,0 +1,115 @@
+It wasn't out of the ordinary. She drew pictures all the time, putting crayon to paper every waking moment. 
+
+Such a sweet kid. Tragic circumstances.
+
+Never said a word. Just smiled and handed you a drawing.
+
+Sometimes she would spend hours on one picture, trying her hardest to get it just right. Other times she'd scribble a line or two, and then it'd be onto the next. The staff collected each one and put them into a large binder, so she could revisit them later on. But she never did.
+
+The staff doted on her constantly, making sure she always had everything she needed, and then some. There were stacks of paper and boxes of materials for her to use, along with dolls and other toys.
+
+But she liked to draw.
+
+Most nights, she would fall asleep holding a crayon, then wake up in the morning and continue where she left off. 
+
+Sometimes we'd find her drawing in the middle of the night. No light at all, just scribbling away. The sound of wax dragging against paper cutting through the dead silence.
+
+It was her therapy, and we hoped it would help her remember something. 
+
+Remember anything.
+
+But despite her situation, she was always smiling. I wondered what she was thinking and how I could reach her. To help her get past that mental barrier. Then we could find out what really happened to her family.
+
+Strangest case I've ever heard.
+
+A family of 6 is found deceased except for the little girl. They are essentially crushed, or imploded, by an unknown force, with no exterior signs of trauma. That information wasn't on the official report.
+
+The child has not spoken since. No other family. Communication is minimal.
+
+Sometimes I felt she wanted to say something, but then would freeze abruptly and turn back to her pictures.
+
+She loved sitting at the large bay window that overlooked the forest and mountains. Day and night.
+
+Every morning she would look up from her drawing and greet me with a smile, and I would ask the routine questions, hoping her situation had somehow improved overnight.
+
+Things went on much the same for many months.
+
+But on one particular day, something changed. 
+
+For the first time, I saw sadness in her eyes. I approached her, but it felt like she was not happy to see me. Visibly upset.
+
+She finished hastily scribbling the last of her lines, turned the page over and pushed it towards me. Almost reluctantly. Truth be told, I don't even remember picking up the damn thing. 
+
+The image wasn't of the usual happy-go-lucky people, places and things. It took me a few seconds to realize that I was looking at a strange figure, hiding in darkness.
+
+Flooded with nausea, a suffocating dread consumed me. 
+
+It was hiding in shadow, almost imperceptible. But very much there. 
+
+Smiling. 
+
+My mind tried coming up with a reason as to how and why this child would create such horrifying imagery. A glimpse into a moment that should not be seen.
+
+It was all done in a muddy mix of colors. Limbs too long for its body, with the faintest red pin pricks floating above the smile. It was so frightening that it stole any good thoughts left inside my head.
+
+It felt like the embodiment of... Evil.
+
+There's no better way to describe it.
+
+The stare was horrifying. But I couldn't look away.
+
+Something was watching me. Latching onto me.
+
+All of this from a damn piece of paper. A stupid scribble. A kid's drawing.
+
+I tried shaking it off, but it felt like something was pulling me down. 
+
+The patient was back to drawing her regular artwork shortly after, and I sat cowering in my office, wondering about the picture that lay face down on my desk. 
+
+Obsessing over it. 
+
+Doubting what I saw. 
+
+I wanted to take another look to confirm my suspicions. Just a quick peek would do. But I was dying inside.
+
+So I burned it.
+
+I took it into the bathroom sink and set it on fire. Pile of ashes and soot flowing down the drain. Long gone. I can't take it back now, but I really wish I could.
+
+Because that's when I started seeing things.
+
+In the periphery of my vision when I'd wake up.
+
+Looking in the rear-view mirror when driving to work.
+
+Peeking out from the open doorway while I watch TV.
+
+Kneeling beside me as I'm falling asleep.
+
+It's always watching me. The figure.
+
+At this point, I don't think it will ever go away.
+
+It's been days since I've gone back to work. 'A family emergency,' I told them. 
+
+But little do they know. I can't face them. Not like this.
+
+I still have so many questions. Why did it have to be me? Has she drawn these pictures before? Will it happen to someone else?
+
+It's watching me type this out right now.
+
+The figure.
+
+I wonder if it can read this.
+
+It's filling up more of my vision each day.
+
+It was barely noticeable at first, but now it's trying to trick me into looking at it. Acknowledging it. 
+
+I don't even want to open my eyes anymore.
+
+I'm scared. 
+
+I still haven't looked directly at it.
+
+But I can tell it's smiling.
