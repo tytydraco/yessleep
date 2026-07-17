@@ -1,0 +1,567 @@
+My mom used to call me her little gremlin. For whatever reason, I was really bad with electronics. I couldn’t sit in the front seat of the car because the stereo would get this annoying interference. Back when we used an antenna to watch TV I had to sit further back, or we’d get these dots on the screen. Hell, the baby monitor would act up when I was still in the crib. It was harmless, but annoying.
+
+My parents weren’t very technical, to say the least. It was my uncle who decided to go against the grain and teach me a thing or two about home appliances and electronics. Just small stuff, like how to replace faulty diodes or test battery charge. That, and using a computer. That was a big one.
+
+I remember that summer when I was 11. Sweltering South Dakota heat and not a single cloud in the sky. We were sitting in his living room, where he’d put an old computer on a dresser. The screen was too high up and my knees would bump against the drawers. But I was seeing a new *world* on that dresser.
+
+We were signing up for my first e-mail. I’d just put in my name, and we were considering the password.
+
+“A good password is something only you know,” he said.
+
+“How do I know if it’s a good one?”
+
+“Well, if I can guess it, it’s not a very good one.”
+
+“What if I just tell you, can you tell me if it’s any good?”
+
+“You’d trust me with that? You don’t think I’d log in and read your e-mail?”
+
+“Nah,” I smiled. “You wouldn’t.”
+
+ 
+
+My uncle passed away the year I turned 26. He’d never really been a beacon of health, but he took a downturn in those last couple of years. I checked in on him about once a week to help out with cleaning and grocery shopping, but I had tons of my own problems piling up. After a while, I asked if someone else could help. He didn’t mind. He said it was fine and that he’d deal with it.
+
+One month later, he died of an embolism. Me telling him I wasn’t gonna help anymore was the last time we spoke.
+
+After his funeral, we all decided to get checked out. My uncle was the second in my family to die of an embolism, along with my grandfather. It’s one of those things that can be hereditary, and we wanted to get ahead of it. My dad and two brothers decided to get checked, just to make sure we’d minimize the chance of this happening again.
+
+It was a strange time in my life. I had a new job and was fresh out of a breakup. And for some reason, the thing that hit me hardest was my uncle. Having seen his health decline, I’d been preparing for his passing for years. But now that it actually happened, I was a mess.
+
+ 
+
+I went in for a couple of rounds of testing at the local university hospital. We know some people who worked there and were able to get in touch with a great doctor. I’d go there after work, they’d take some tests, and I’d have to sit in the waiting room for a couple of hours. I had to redo a couple of tests because the equipment kept messing up.
+
+The second time I went in for testing, there was a med student sitting in the waiting room with me. She had curly brown hair tussled into a bun and these thin eyes that looked a bit off through her big glasses. I’d seen her in that hallway before; often in the presence of other med students.
+
+“Excuse me,” she said as I sat down. “You’re here about the hereditary thrombophilia, yes?”
+
+“Isn’t that supposed to be private?”
+
+“Sorry!” she blurted out, holding up a hand as if to shield herself from the accusation. “Yes, of course, sorry! I just had a question, if you wouldn’t mind.”
+
+“Sure, shoot.”
+
+“They reported an equipment failure during your testing, but we couldn’t find a problem with the machine. Would you mind if I checked something?”
+
+“What do you mean check something?”
+
+“One moment.”
+
+ 
+
+She had a small device that fit in the palm of her hand. She showed it to me, pressed a button, and swayed it left to right as if scanning me. The device kept throwing out static noise whenever it passed me, getting stronger the closer she got.
+
+“This is gonna sound strange,” she said. “Do you have trouble with radios?”
+
+“Sometimes, yeah.”
+
+“You ever get noise on phone calls, even if you have five bars?”
+
+“Yeah? Why?”
+
+“It’s a long shot, but we’d love to do some further testing,” she continued, looking at her gadget again. “If you’d like, we could do a quick check once you’re done here. Free of charge, of course, it’s something we’re studying.”
+
+“What *exactly* are you studying?”
+
+“I think Doctor Barlin could give you a better explanation,” she smiled. “I’m Melody, by the way.”
+
+I shook her hand, introduced myself, and got a small slip of paper with directions to one of their testing labs on the other end of the building. I watched her run off with her phone glued to her ear. She kept looking over her shoulder, talking excitedly. Once my tests were done, I was ready to go home, but that little slip of paper bothered me. It was an answer to a question I’d stopped asking myself years ago. I had to know.
+
+ 
+
+I followed the directions, leading me out of the main building and to a secondary location. A small one-story addon once used for blood donations. It was a nice enough place with a little stream running nearby. You could hear ducks quacking from the entrance.
+
+Melody was talking to a receptionist when I walked in. She hurried over, shook my hand, and led me by the shoulder deeper into the building.
+
+“I’m sorry,” she said. “I’m just excited. If this is what I think it is… you don’t understand. It’s a *huge* deal.”
+
+We walked past a couple of offices and two testing rooms. They had equipment like the rest of the hospital, but a few machines stood out as a bit different. A lot of radio and recording equipment, along with a sound-proof recording room. They were working with acoustics.
+
+I walked into a small, shared office space with four med students sitting at their computers. Most of them were proof-reading a research paper, while one was off in the corner playing a card game. Melody waved over a middle-aged woman across the room. She had flat black hair, like she’d been licked by a cat. She had this very plain expression that never wavered. Melody introduced us.
+
+“This is Doctor Barlin,” she said. “She’ll take it from here.”
+
+We shook hands. Barlin was thin to the point of malnourishment, and I was scared to accidentally crush her hand.
+
+“I imagine you have questions,” said Doctor Barlin. “I’ll do my best to answer them.”
+
+ 
+
+I was asked to provide a blood, skin, and hair sample. They also checked me with a metal detector to make sure I wasn’t wearing anything that interfered with their equipment. As we waited for the test results, I got a chance to sit down with Doctor Barlin in her private office. She was having her fourth cup of black coffee.
+
+“So what exactly are you studying?” I asked.
+
+“It’s called ossophonia congenita,” she said, not taking her eyes off her computer. “Most of us call it singing bone disorder.”
+
+“Singing bone? Like a deficiency?”
+
+“It’s more of a peculiar cell construct, along with a particular combination of mineral subsets.”
+
+“I don’t like the sound of that.”
+
+“Neither do the radios.”
+
+She looked at me with that same neutral expression, then turned her attention back to the screen. Without cracking a smile, she finished her statement.
+
+“That was a joke.”
+
+ 
+
+I got a short explanation about singing bone disorder. It’d first been recorded during the Second World War, but there was no official diagnosis. It is apparently very rare, to the point where most conventional doctors doubt its existence. There had been attempts to study it in the 70’s, but most projects were either shut down or ran out of subjects to study. The disorder itself was harmless.
+
+“Your bones produce a sort of signal,” she explained. “A mild radio-like transmission. Hence the name of singing bone. Your bones make noise.”
+
+“How’s that possible?”
+
+“That’s one of the things we’d like to understand, and I hope you’ll help us. Up until now we’ve only had deceased subjects.”
+
+The computer beeped as a final report came in from the blood lab. Doctor Barlin nodded and leaned back in her chair. She raised her half-empty coffee cup in my direction, as if proposing a toast.
+
+“It’s confirmed,” she said. “You’re my first confirmed living subject with ossophonia congenita.”
+
+ 
+
+While Barlin didn’t crack as much as a smile, the whole building lit up almost immediately. Med students were poking their heads out to look at me, and I’m pretty sure I heard someone cheering from the break room. I was asked to sign in at the reception to get an ID card. I wasn’t even sure if I wanted to help them, but they were already treating me like I’d signed away my life.
+
+I gave them my number and e-mail, and I was asked to come in for further tests at a later date. They would have to check some things with the ethics committee, but it was an exciting time for Barlin and her team. I wasn’t sure though. Not sure at all.
+
+As I was about to leave, I ran into Melody again. She was clearly excited, but she could tell something was off. She tilted her head and gave me an inquisitive look.
+
+“You alright there?”
+
+“I dunno,” I admitted. “This whole thing is a bit much.”
+
+“I’m sorry, we’re all just a bit excited. We’ve been looking forward to studying someone like you.”
+
+“I can tell, yeah.”
+
+“Aren’t you excited?”
+
+“I’m not sure what there is to be excited about.”
+
+“She didn’t show you?”
+
+Melody’s jaw dropped as she took me by the arm. There was no discussion.
+
+ 
+
+She showed me to one of the workshops. It wasn’t much, just two tables full of electronics and tools next to a wide-open window. I could hear the stream outside. Having the window open almost made it warmer.
+
+On one of the tables, there were these white discs encased in hardened plastic. They were each carefully labeled and sorted in a particular order. There was a name on the back. A person’s name.
+
+“This is from one of the other subjects,” Melody explained. “It’s samples from the spinal column. That’s what causes the most interference.”
+
+She showed me the palm-sized gadget she’d used on me in the waiting room, pointing to the buttons.
+
+“It’s a small receiver and transmitter. We use it to test where the localized interference is strongest. That’s how we found it’s mostly centered around the spine. Here.”
+
+She ran the gadget over the samples while holding a button, making the speakers crackle. Then she ran it over me again. Every time it passed my spine, the crackle intensified.
+
+“Neat, huh?”
+
+“So what does it mean?” I asked. “Is it just noise?”
+
+“It’s interference, it doesn’t really say anything. Like TV static.”
+
+“Weird.”
+
+She raised an eyebrow at me. I tried to hold back a smile, but her narrow eyes made her look like a cartoon. I threw my hands up in surrender.
+
+“Sorry, I don’t know how else to say it.”
+
+“But you’ll help us, right?”
+
+I looked down at the bone discs. The yellow tape with an ink-written name, date, and serial number. The thought that this could have been me made my skin itch.
+
+“Sure. I’ll help.”
+
+ 
+
+It took Barlin weeks to get the first official confirmation tests off the ground with the ethics committee. I was called in two more times to provide more samples. At one point they illustrated the interference in front of an audience of med students. I wasn’t comfortable standing shirtless in front of a crowd, but it was a matter of medical science. These people were looking to understand.
+
+Most of the tests after that were audio based. They wanted to see if I reacted to certain hertz frequencies, and if it could be used to affect the transmission pattern. It was mostly just sitting in that sound-proof room with a big pair of headphones. I didn’t really have to do anything; it was all done through passive readings of something my body did by itself.
+
+I also got to hear my own transmission pattern a couple of times. Doctor Barlin seemed excited about it.
+
+“It’s different from the signals we get from deceased subjects,” she explained. “Their patterns are identical, but yours is different.”
+
+She tapped me on the shoulder with a bony finger, like a singer tapping her microphone before a performance. Then she stopped. I could see the wheels turning in her head.
+
+“Maybe if you can transmit, you can receive?”
+
+ 
+
+That sparked an idea, and about a week later, Barlin was excited to set up our first proper experiment. The ethics committee didn’t have a problem with it; it was just a matter of playing sounds to me and recording my readings. Nothing we hadn’t done before, but we had to change some of the equipment. Instead of putting me in a sound-proof recording room, they rearranged one of the offices. They needed plenty of table space. They brought in 50 of their samples, lined them up, and connected each one to a machine. There were hundreds of cables, making the floor look like someone had spilled a plate of black spaghetti.
+
+By the time I got there, the med students had been working around the clock to set it up. It was just after 6pm on a Friday, so most people had gone home for the weekend. I’d just got off work, but I’d been told it wouldn’t take more than an hour. There were only a handful of people left, two of which were Barlin and Melody. They had to stay in the other room and look at the whole thing through a camera so as to not accidentally tamper with anything.
+
+I sat down in a comfortable chair as they placed electrodes along my spine, neck, and head. More cables running across the floor. Melody was bouncing with glee, discussing the details of the experiment with Doctor Barlin as they left the room and closed the doors. Minutes later, I could hear the doctor’s voice through a speaker on the wall.
+
+“We’ll be tuning the frequencies and increasing the volume gradually. If at any point you feel discomfort, press the red button on the controller to your right. Nod if you understand.”
+
+I nodded.
+
+“Engaging phase one.”
+
+ 
+
+They started playing sounds through a sequence of speakers. It didn’t really sound like anything; just a series of beeps and boops, like someone playing Pong. I sat there for about half a minute, waiting for something to happen. Doctor Barlin’s voice came through again.
+
+“Phase two, tuning playback frequency zero point zero five negative.”
+
+The sounds intensified. One of the beeps turned into a low droning noise that kept running in the background while one of the beeps intensified into a rhythmic drum-like cadence. It felt strange to listen to, like it was matching the beat of my heart.
+
+“Phase three, tuning playback frequency zero point zero eight negative.”
+
+The sounds got louder, and the variety of noises changed. Instead of just two types of sounds I could hear five, maybe six. All different rhythms and sequences, intermingling into a cohesive pattern. But the more I listened, the more I felt something. I didn’t know if it was the heat coming off the electronics or if it was me, but I was sweating profusely. The sound resonated in me, making me feel like a cup being slowly filled.
+
+“Phase four, tuning playback frequency zero point one one negative.”
+
+My eyes immediately started vibrating. I lost my focus as my tongue glued itself to the roof of my mouth. My left hand dug into the armrest, breaking the leather. It wasn’t a voluntary action; it’s like the room turned into a blur. It looked like everything was covered in frosted glass.
+
+I wanted to say enough was enough, but I couldn’t get the word out. Instead my eyes rolled upward. I could barely make out the plain white tiles of the ceiling, as these black dots would cluster at the edge of my vision. They floated through my straining eyes, making it look like conscious movement. Something black pushing itself through ceiling, like raw oil through a pasta strainer.
+
+I managed to find the red button with my right hand, and I pressed it as hard as I could.
+
+ 
+
+The moment the sound cut out, I threw up. It was this immediate movement and I didn’t have the slightest time to react to it – it just happened. I fell out of the chair as Barlin and her students came rushing into the room.
+
+“Kill the power!” Melody yelled. “All of it!”
+
+Barlin held my head up and checked my eyes with a pen light.
+
+“Can you tell me what day it is?”
+
+I tried to say Friday, but some other words came out. I couldn’t hear myself say it. Barlin stepped back, and for the first time, her face changed. Her neutral expression shattered as her eyes went wide. She backed out of the room, covering her mouth with her hand. Melody ran over to me, helping me sit. Glancing up, the ceiling was clear.
+
+It took me a couple of minutes to regain my senses. I got to borrow a shirt from one of the med students, and as soon as I was cleared to go, I was out the door. I could hear Melody protesting in the background, but it might as well have been the ducks quacking down the stream. I wasn’t hearing any of it. I wanted to get away.
+
+ 
+
+I got countless texts from her over the next couple of days. She wanted to see if I was okay. She wanted to apologize. She offered to pay for the dry cleaning. I didn’t respond to any of it – I kept my head down and tried not to think about it. I’d never had a cramp like that before, and having my eyes move by their own volition was uncomfortable to say the least.
+
+Over the course of having my ossophonia studied, I’d grown more aware of the effect I had on my surroundings. It’s like when you get a wound that you can’t stop poking, it irritates you and you can’t stop yourself. That’s what it felt like. I’d put the car stereo on and listen to the crackling noise get louder the closer I leaned.
+
+A couple of days passed before I got back the test results from my embolism check-up. It was good news; they couldn’t find any signs of hereditary issues. I called my mom and told her all about it. She could use the good news.
+
+As I was about to hang up, she stopped me.
+
+“I heard you’re helping out at the hospital.”
+
+“Where’d you hear that?”
+
+“One of my friends works extra in the cafeteria. They told me you were there the other day.”
+
+“Yeah, it’s the… gremlin thing.”
+
+“Really?” she snorted. “That’s still a thing?”
+
+“Yeah, it’s a whole deal. They’re writing a paper about it.”
+
+“Oh, that’s wonderful. Your uncle would be proud.”
+
+“He would?”
+
+“He would,” she insisted. “He donated blood all these years and gave his body to science.”
+
+“Really?”
+
+“You didn’t know?”
+
+As we ended the call, I was left sitting there with my phone in my hand, scrolling through Melody’s apologetic texts. I couldn’t help but feel this emptiness in my chest, like I’d done something wrong. Finally, as I was about to put my phone down, I got one final text.
+
+“Would you mind if we talked for a bit?” it read. “Just you and me. Clear the air.”
+
+I sighed and thought about my uncle. He’d been uncomfortable most of his life, but he’d walked the walk. I rolled my eyes, bit my lip, and responded.
+
+ 
+
+I met Melody for a drink later that night. She’d initially recommended a student bar, but I suggested a place downtown. It was a workday, so there wouldn’t be too many people. I got there around 8pm, and Melody was already there. Her expression broke my heart; it looked like she was on the verge of crying.
+
+“I’m *so* sorry,” she said. “Please, have a seat.”
+
+We ordered a snack plate as she exploded into an explanation. She told me about the impromptu tuning tech, and the measuring equipment. Most of it went way over my head, but the main takeaway was that they’d been reckless in assuming there would be little to no reaction at all. They could never have expected me to be so violently affected.
+
+“Doctor Barlin was beside herself” she continued. “I’ve never seen her like that.”
+
+“I was out of it,” I admitted. “I have no idea what I said to her.”
+
+“It was weird. You kept saying ‘sister-sister’, like a song title or something.”
+
+“Then why’d she react like that?”
+
+“Like what?”
+
+“She looked scared, Melody.”
+
+She considered the question but shook her head. As we got our snack plate, she unashamedly dove into the cheese cubes.
+
+ 
+
+After having talked for about an hour, Melody leaned in and lowered her voice.
+
+“You know why I got into medicine?” she asked.
+
+I shook my head, sipping my drink.
+
+“I was a camp counselor,” she continued. “And we had this kid, Stephen. He had awful asthma, and we’d gotten a whole bunch of instructions on how to help him if things went bad. Pills, inhalers, all that stuff.”
+
+She took a sip of her drink, inhaled another cheese cube, and took a deep breath.
+
+“He had a bad attack one day. *Real* bad. So bad he couldn’t use his inhaler. He was lying on the ground clawing at his throat, and his little face was just…”
+
+Melody leaned back a little, wiping something from her eye as she crossed her arms.
+
+“I didn’t know what to do. He kept apologizing, like this was an inconvenience to me. And you know, I’d sat through a video on how to perform a tracheotomy, but I couldn’t bring myself to try. In the end, one of the other counselors did it. If it hadn’t been for them and some CPR, he would’ve died right there on the floor, his last words being an apology for dying.”
+
+She looked me in the eyes. I could see a quiver on her lip.
+
+“I live with that every day, and I’ve promised myself to do better. I don’t have a lot of regrets, but that one thing is gonna haunt me.”
+
+“But he made it,” I said. “He’s fine, right?”
+
+She nodded and finished her drink.
+
+“No thanks to me.”
+
+ 
+
+I guess that talk worked. Melody convinced me to give them another shot. They would rework the experiment and try again with new and improved equipment. That was all fine and dandy, but what I really wanted was a chance to speak to Doctor Barlin. Something about her expression stuck with me. She’d been *terrified*.
+
+I was scheduled for a second experiment later that month. I went to their office a couple of times ahead of that, using my guest pass to walk straight through, but Barlin wasn’t there. She was always off at a lecture, or talking to the ethics committee, or just out and about. Seeing her behind her desk was, apparently, rare.
+
+I managed to catch her one lazy afternoon after work. She’d been staying late reworking the parameters of the experiment. It was still a few days off, but the med students were already in the process of setting things up. I knocked on her door and leaned my head in.
+
+“Mind if I come in?” I asked.
+
+“Not at all.”
+
+I sat down across from her, catching a glimpse of her screen. Hundreds of columns full of measurements arranged and calculated.
+
+“I wanted to know about sister-sister,” I continued. “And why that bothered you.”
+
+For a split second, something crossed her face. She looked back at her screen.
+
+“I’d rather not.”
+
+“I think you owe me that much.”
+
+“One uncomfortable experience does not negate another.”
+
+“Why was it an uncomfortable experience for you?”
+
+“That doesn’t-“
+
+She stopped herself. She closed her eyes as her fingers curled around her keyboard like a bird of prey holding a struggling meal.
+
+“You said something I haven’t heard in a long time,” she continued. “It caught me by surprise.”
+
+“Sister-sister.”
+
+Her eyes narrowed.
+
+“Yes,” she acknowledged. “That.”
+
+I didn’t get much clarity about why that particular thing bothered her so much, but I didn’t feel like pushing the topic.
+
+ 
+
+Once the second experiment was set up and ready to go, I was asked to come back. I had to sign a release statement, but I could tell they were more careful this time. I had to switch to a hospital gown, and I was scrubbed down with disinfectants along my shoulders and spine. There were more people this time; all of them watching carefully and taking notes along the way.
+
+Melody was trying her best to be supportive. She was telling me about the updated equipment, the safety precautions, and the improved audio. They’d upgraded from 50 bone samples to about 200, and they were all hooked up and ready to transmit. The tuning machines had been improved to be more gradual, allowing them to increase in the ten thousandth of a percentile. It didn’t say much in and of itself, but it was clear they were taking this seriously. It didn’t exactly ease my nerves, but at least they wouldn’t let me convulse to death. Melody least of all.
+
+I had electrodes attached to me again. It was probably close to a hundred, most of which were positioned along my spine. They’d made a hole in the back of the chair to make sure the cables could run unimpeded. There were red buttons on both armrests now, and a sturdier headrest.
+
+As they all filtered out of the room one by one, Melody was the last to leave, giving me a thumbs up and a silently mouthed ‘good luck’.
+
+ 
+
+Once it was just me, I could feel my heartbeat. Whatever happened last time was fresh on my mind. I glanced at the white ceiling tiles, making sure they were as square and plain as ever. Nothing seeping through the cracks. A voice came through the speaker.
+
+“Once you’re ready, raise your left hand.”
+
+I took a deep breath and raised my left hand. There was a beep – some kind of acknowledgement sound.
+
+“Proceeding to initial playback, rolling on three.”
+
+There was a countdown as the machines powered up. I could feel the hair on my arm stand as static filled the air. Two beeps began at a steady pace, one low, one high. Different rhythms.
+
+“All signs green, aperture check clearing in five. Tuning frequency positive zero point zero zero two, rolling on three.”
+
+The beeping slowly changed as a third tune was introduced. The rhythm increased and steadied as one note turned into background noise. I closed my eyes, mumbling to myself for this to please be painless. As I did, something shifted. One of the notes changed.
+
+“Yellow aperture check, clearing within parameters. Tuning frequency positive zero point zero four and rising, rolling on three.”
+
+ 
+
+It was a much slower process this time, allowing me to adjust. Whenever the sound changed, I could feel something shift in me. I would get warmer, but the warmth would subside. We got to the point where I’d lost control of myself during the previous experiment, but this time I was barely feeling a tingle. I was asked to visually confirm that I was okay by raising my left hand. I did.
+
+The slow changes continued as more tunes joined in. Up from five, to eleven, to twenty. At some point I lost count. It was less like a rhythm and more like a system. It felt responsive, like it was listening to me. Whenever I got too excited, some notes would change. When I closed my eyes, they would slow down. We were having a conversation, increasing and decreasing without the input of Barlin and her crew. Something in those bones was singing *to me*, and mine were singing back.
+
+“Aperture check back in the green. Tuning frequency positive zero point one eight and rising, rolling on three.”
+
+My eyes twitched a little. I felt something humming in the back of my head, and as the notes rang the vibrations revealed something to me. If you just listened to the raw noise, it was all a soup of impressions. But if you relaxed and leaned back, there was something else. It’s like when you unfocus your eyes and let your vision turn to vague shapes and colors.
+
+I leaned into the headrest and let my mind travel where it may.
+
+ 
+
+My heart skipped a beat.
+
+I could feel a pounding in my chest, like I’d been hit with a hammer. I jerked forward, feeling an electrode popping loose.
+
+I couldn’t un-hear it. The noise behind the sounds. It was organic. Breathing. *Living*.
+
+The speaker was yelling something, but I couldn’t understand it. My ears were tuned to the noise coming from the singing bones positioned along the walls. They weren’t singing. They were *speaking*. Telling a story. *Showing* me something.
+
+As my eyes rolled up, I saw the space between the ceiling tiles filling with black, as liquid black hands dripped downward.
+
+ 
+
+I pulled my arms loose and covered my ears, but the sound was already inside of me. It was resonating within my bones, bouncing in the chambers of my heart like an echo.
+
+The room was changing color. The eggshell walls looked winter green, and the sunflower sticker on the speaker turned a sickly blue. I got out of the chair, vaguely aware of the noises coming from outside. I was looking at my hands like they were lagging behind my thoughts, trying to catch up with impulses I’d had seconds ago.
+
+By the time they slammed the doors open, I didn’t even see Melody and Barlin. I saw the hallway full of people standing behind them.
+
+People with empty eyes and toothless mouths. No nails, or hair, or noses. They rolled like bags of air wearing skins, lurching this way and that as if pushed by an invisible tide.
+
+The ceiling turned black. I was screaming at the top of my lungs, but I couldn’t hear it – I just felt it. The burn in my throat felt distant as a syringe pierced my neck, and my world collapsed on itself.
+
+ 
+
+When I opened my eyes, I was lying on a couch, looking up. Something black was dripping from the ceiling, gently poking me awake as little drops touched my forehead. My eyes ached as I looked around, realizing they’d dragged me into the control room. I was alone.
+
+A voice spoke from the dark corner of the room. It was speaking from that muddled soundscape that still echoed in my body. It wasn’t a real sound, but it was there. And it was unmistakable.
+
+The words were nonsensical. Collections of consonants arranged at random, some of which I’d never heard before. But as I listened, they began to shift. What sounded like ‘grk’ registered in my mind like ‘hello’.
+
+As I raised a hand towards the dark in response, it all clicked into place.
+
+ 
+
+It wasn’t a person. It was wearing the anonymous *remains* of a person like a kid wearing a ghost costume for Halloween; a loose sheet hiding a shape underneath. I could see the rolling mass behind its empty sockets as its pale face morphed and stretched.
+
+*“You sing better than last time.”*
+
+The voice was feminine and high-pitched, but with a sudden downward turn at the end.
+
+*“You closed your palace to spite our invitation.”*
+
+“I don’t… understand,” I murmured. “I don’t. Don’t understand.”
+
+*“You don’t know the words!”* it exclaimed. *“It bothers. It bothers so!”*
+
+An arm stretched out of the dark with impossibly long fingers. Its joints bent and broke as I pushed my head back. Then, its index finger touched my forehead. It burned like ice.
+
+*“Where are the words?”* it asked. *“What are your sanctions?”*
+
+“I don’t know what you want,” I gasp. “What you are.”
+
+*“Be home.”*
+
+Something cold forces itself through and under my eyes, linking up with the thoughts in the back of my head. Then it *pulls*.
+
+ 
+
+In the next breath, I’m 11 years old. The sweltering South Dakota heat burns through a cloudless sky. I’m sitting next to my uncle at his old computer, my knees bumping against the drawers. But I don’t look at him. I know not to look at him.
+
+“Do you understand me now?” he asks.
+
+I nod. It sounds like him, but his lips don’t move. My fingers tremble.
+
+My hands shake as they hover over the keyboard with my index fingers outstretched. We’re picking a password, but I know it’s not real. Instead I look straight ahead, catching a glimpse of him in the reflection of the screen. His face looks wrong; like someone wrapped a plastic bag over a pile of branches.
+
+“You’re dead,” I mumble. “You died.”
+
+“I did.”
+
+I lose my train of thought. We sit there for a couple of seconds. I swallow hard as I look down from the screen. I’d forgotten about those shoes I used to wear. He pats me on the shoulder.
+
+“It happens,” he says.
+
+ 
+
+“Death’s not that bad,” he continues. “It’s like logging out of your e-mail and forgetting the password. You can’t get back in, and you can only try so many times.”
+
+“That doesn’t make any sense.”
+
+“It’s the best way I can explain it.”
+
+I peek over at his feet. They look pallid, and he has no toenails. Something moves under the surface of his skin.
+
+“Some try to remember their password for a very long time,” he explains. “Some log back in. Most don’t.”
+
+“Did you?” I ask.
+
+“I don’t bother with passwords anymore,” he says. “I stepped away from the computer. There’s so much else to do.”
+
+ 
+
+He got up from his chair and walked around the room. I could hear his uneven steps echo against the hardwood floor of his old house.
+
+“Your password has gotten a lot better,” he said. “Some have very weak ones. They’re stuck trying to change something they can’t, and they forget to improve.”
+
+“Is that bad?”
+
+“It can be.”
+
+I stood up too, looking away from the computer screen. Keeping my eyes away from him, I ask:
+
+“Is there really something else to do? Can you just step away like that?”
+
+He stops and turns. I don’t turn to look, but I can feel him smiling.
+
+“It’s a beautiful day outside.”
+
+ 
+
+I wake up with a gasp. I’ve fallen face first off the couch and bruised my nose. There’s commotion as someone tries to wake me, rolling me onto my back. I look up at Melody. She looks different. The light is dim, but I can tell. The noise has stopped echoing in my head, leaving me with a violent headache.
+
+“We thought you’d be more vulnerable,” she whispers.
+
+“What?”
+
+“We were looking at *you*, and she was right there.”
+
+I squint at her. One of her eyes is looking off in the distance. The other is looking at me. Her fingers keep moving like kelp in an ocean current.
+
+It’s not Melody. Whatever I’m looking at, it’s *not* *Melody*.
+
+“She’s so *weak*,” she says. “We’ll save you for later.”
+
+She pokes my nose with a ‘boop’ and grins, but it’s not a smile I’ve seen before. As she gets up, I notice the bloody scissors in her hands.
+
+There are bleeding people in the corridor. Melody strides down the hall with an inhuman confidence, twirling the scissors round and round like a butterfly knife. As she disappears around the corner, I can hear police sirens.
+
+And then, things go dark.
+
+ 
+
+Most of what happened afterward is something I’ve heard from third parties.
+
+Melody was taken into custody and tried for attempted murder. Doctor Barlin escaped with a few cuts and bruises on her hand. One of the med students got the worst of it, getting his throat pierced. Witnesses would describe it as someone attempting an amateur tracheotomy. He survived, but some of the damage to his vocal cords was permanent.
+
+The study was shut down. The ethics committee couldn’t let Doctor Barlin use the results of the experiment. I’m not sure what came of the subsequent investigation, but the doctor and her students were pushed to a different project. They still use the same building though.
+
+I caught up with Barlin a couple of months later. It wasn’t planned; I just ran into her while I was out and about. We were in the same waiting room at the bank. I was a bit hesitant about talking to her, but I decided it was more awkward to pretend like we didn’t know each other. I sat down next to her, sparked up a conversation, and we ended up on a familiar topic.
+
+“Why was sister-sister such a big deal to you?” I asked.
+
+She rolled her eyes and sighed.
+
+“It was our secret password,” she said. “Something my sister and I said to mean we were serious about something. It’s like when you say… cross your heart and hope to die.”
+
+“It must mean a lot to you.”
+
+“Sort of,” she smiled. “I just haven’t thought of it in a while. She’s been gone for over a decade.”
+
+ 
+
+Years later, I still have singing bone disorder. I don’t think I’ll ever get rid of it, and I don’t think there’ll ever be a study like that again. I can’t imagine an ethics committee signing off on it. Looking back at it, I feel like I’ve gotten a better understanding of things. Not just about the disorder, but about myself.
+
+Sometimes after work, I turn the car stereo on. I tune the noise between stations, close my eyes, and listen. And in those moments between one obligation and another, I feel like I can almost remember that sound. That *voice*.
+
+And I feel like there’s so much left to see.
