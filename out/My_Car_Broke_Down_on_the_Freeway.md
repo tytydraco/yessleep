@@ -6,11 +6,7 @@ I’ve never been a car guy, and I barely even knew how cars worked so I was ner
 
 After studying the engine for likely longer than necessary I closed my hood and got back in my car, hoping it would turn on. When I turned my key into the ignition, I heard a loud pop and then nothing. I was so exhausted I couldn’t even let out my anger, so I just sat there staring out my windshield in silence feeling numb. I checked my phone to see if I could call someone for help, but as expected I had no bars.
 
-*Of course*
-
-I thought to myself.
-
-*Because that would be too convenient.*
+Of course.
 
 I decided my best course of action was to flag someone down and have them help me, but oddly enough nobody was on the road. Sure it was late but there were always people out driving at any time of the night. My job sometimes required me to be there past midnight and it was always a common sight to see at least a few cars on the road at all times. I was so tired I hadn’t even noticed it until now. I thought it was odd but it angered me more than confused me.
 
@@ -110,6 +106,6 @@ They tried to question me but I couldn't speak, my mouth wouldn't allow me to. I
 
 My actions and thoughts are hardly my own anymore. I sometimes find myself doing things I would never do and think things I would never think. I have done horrible things I wish not to speak about. My body and thoughts will just move by itself at times. But I know what it really is. I know what's really controlling me and invading my thoughts and actions.
 
-I've stopped trying to make sense of what happened to me that night. The more I try, the more I feel myself falling into madness. I have no idea who that man was, or how I saw so many clones of myself or why it felt like nobody else in the world existed that night. 
+I've stopped trying to make sense of what happened to me that night. The more I try, the more I feel myself falling into madness. I have no idea who that man was, or how I saw so many clones of myself or why it felt like nobody else in the world existed that night.
 
 All I can do now is live with it.

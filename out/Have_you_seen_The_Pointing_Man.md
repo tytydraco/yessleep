@@ -1,0 +1,69 @@
+I did my research on the abandoned home like I usually do. A young boy went missing four years ago and this cryptic poem was found by the cops inside the house. Pictures of the poem written in purple pencil on a crumpled up piece of orange colored paper are online — it’s the only evidence of the boy that they could find… Well, that and his pillowcase full of candy and a clown halloween mask. The poem reads:
+
+*Have you seen the pointing man? With his arm outstretched right where you stand.*
+
+*Deep in the shadows, his eyes you will see, he feels your pain, and shares your grief.*
+
+*His fingers are such a ghastly sight, sending shivers up and down your spine.*
+
+*He sees you’re sad, He’ll watch you cry, His finger points to those who’ll die.*
+
+*Seen only from a grieving eye. Pointed towards the dead… shall rise,*
+
+*Reflecting back what’s in your heart, You are here to walk through the dark.*
+
+*He’s made of night, he’s made of light, a guide, to and from the afterlife.*
+
+*Now you’ll see the pointing man, with his arm outstretched and pointed hand.*
+
+Anybody can read it in the comfort of their own home. But to read it at the actual house that the kid disappeared in? Seemed like a good idea a few hours ago. Something felt off though. She started acting weird. Something always kept me from reading it to the very end. I guess I was afraid we would actually see him. They said online that if you see him pointing at you, you’ll die.
+
+But I didn’t have to read it. My girlfriend Ally, recited it, never having seen the poem or heard the history behind the location and the disappearance of the boy.  She’s a clairvoyant medium, though, even with her ability she knew nothing about the poem of the pointing man when we arrived here this evening. I really wish we never came, she’s been through a lot, losing her job and most recently her father. My head hurts from banging my forehead into my palm, as I sit in the back of a cop car whizzing by streetlights in this ghost town. It’s all my fault she’s gone.
+
+Ally and I film a vlog style channel called The Traveling Spirits. I do the research and she picks up on the energy and spirits at the locations we investigate. I haven’t slept in two days. I’m trying to “focus on my breath” — Some kinda four, two, six breathing that’s supposed to help calm my nerves, according to Officer Butler, who swears by it, but I sure as hell don’t. He says your soul is in your breath and the only way to find your answer is to slow down and listen. He’s a little weird but then again who isn’t these days. The only thing that’s helping me calm down is typing all of this into my notes app while he drives me back to the motel where Ally and I are staying.
+
+I don’t fear much. There are only two things that keep me up at night. One, the screaming children running around above our bedroom apartment back home. Their little feet stomp, stomp, stomping across the thin floorboards above. Every step, a thunderous drum that nails it’s low frequency into my skull. Oh, I’ve tried knocking on their door too. Nobody anwsers. Pretty soon I’m going to write that mean note. I probably won’t. I’m too nice and non-confrontational to actually do it.
+
+The second is the thought of my apartment burning down because my neighbors still smoke cigarettes. How odd, they’re literally speeding up the time death knocks on their door while at the same time endangering everyone around them, only thinking about themselves and not the fact that one lit cigarette left unattended could kill us all in the apartment complex. If the pointing man is pointing at anybody it should be them! All I can control is me though, right? That’s what really scares me — Other people… and middle schoolers, you never know what they’re getting themselves into and out of. So three things. 
+
+Shadows, creaky floorboards, and the wind knocking tree branches outside my window don’t scare me because I never hear them over the sound of the fan and sound machine running at full blast in the bedroom. Tonight though, tonight’s different. Tonight feels like a weird dream. The last few hours don’t make sense, time isn’t what it once was. Life doesn’t feel real right now, but this is real. Ally is still missing, she’s not in the back of the cop car with me and our car is still out in front of that abandoned house, now turned crime scene.
+
+Butler says these first twenty four hours are crucial, but she disappeared inside the house! She didn’t run away. I didn’t kill her, they can clearly see I have no reason to. We were just filming together inside, until she started saying she saw her father and ran into the basement reciting the pointing man poem without any prior knowledge of it. She has to still be in the basement somewhere. Trust me I tried to find her. Seemed to be about ten rooms down there in the pitch black. All I had was a flashlight and the night-vision camera. But when she stopped responding, I had full goosebumps and a chill that shot up so fast from my ass to the hair on my head.
+
+We had a small argument in the car before we started filming. She sensed the little boy’s presence moving throughout the foyer and hallways of the home. Things got weird though when she received a text from an unknown number that read: YOU’RE LATE. I played it off that it was just some spam text and to not respond. But looking back now, it’s just plain weird!
+
+The most traumatic thing I’ve gone through was a swarm of bees filling my apartment, not once but twice in a week, losing my job and both my parents receiving cancer diagnosis at the same time all in the same month. That’s just life. People have gone through much worse. Everyone is suffering through something we know nothing about. No news is good news. But how did Ally know about the poem? And where did she go? It doesn’t make sense.
+
+When things don’t match up or make sense, my brain can’t stop thinking about it. Everything is not all right in my universe right now and Houston, we definitely have a problem!
+
+My nervous thumbs shake as I type this in my phone. Good thing for autocorrect or this would all be misspelled. Officer Butler is outside the car window. I guess we’re at the motel. I didn’t even notice. Butler opened my door with a crumpled up piece of orange colored paper in hand.
+
+“It was my son four years ago that we never found. It’s his handwriting.”
+
+My heart sank for him, as now I knew we both were feeling the same way. Wishing that the person we loved were dead instead of missing, because at least we would know where they were buried. My stomach aches, like being stood up by a giant monster bowel movement.
+
+What am I so scared of? The pointing man isn’t real. What’s real is Ally and Officer Butler’s son are gone and we don’t know where they went. At this realization all hope has left my body. If his son hasn’t been found in four years, what chance is there that Ally will be found.
+
+I can’t sleep now, there’s a couple fighting in the room next door, it sounds bad. Like real bad. Like drugs may be involved, bad. Their voices are muffled.
+
+Unbelievable! Now the power went out. The silence is deafening. The fighting stopped. Thank the dear lord. My fan and sound machine are not on, and this motel room is so dark I can’t even see my hands in front of me.
+
+Now, three consecutive tapping sounds come from the bathroom. I’m turning the brightness of my phone down because it’s blinding me, but leaving the flashlight on. Okay, I just heard it again. Slower though. It’s coming from the fighting couple’s room. My eyes are heavy but not enough to slow my heart. Just breathe, right? Lord I’m so tired I can’t take another sleepless night. In for four, hold for two, out for six. In for four, hold for two, out for six. I will keep doing this until I pass out.
+
+I called 9-1-1 and dragged myself back into my motel room. I propped myself up inside the door. I’m conscious but it burns. I probably got about three hours of sleep and was wide awake around five, so I went to the vending machine to get a drink. Upon walking back to my room, the door to the room next door is open.
+
+A frantic man, bursts from the bathroom door. Our eyes locked. His arm extended. Death’s hand pointed in my direction. A woman laid out on the bed, seemingly unconscious. I’ve never been shot before, but add it to the list of traumatic life experiences right up there with those hundreds of bees inside my apartment. Funny that it wasn’t a finger at all pointing at me… it was a gun. Now that’s scary! The man peeled away in his shitty truck with a yellowish “Don’t Tread On Me” license plate. Like I said, I don’t fear much at all, except other people and their complete lack of self awareness. Oh, everyone’s just doing their best? No, they are not.
+
+Well, I think I’ve finally found my breath, it’s all I can focus on right now. Funny how we take breathing for granted. Most days you don’t even think twice about breathing. Only when it’s taken from you, do you so desperately want it back. So must be time to slow down and listen.
+
+With Ally gone, I hope I just bleed to death and pass out nice and easy. Honestly, it doesn’t hurt that bad. Now that the silence amplifies my thoughts, the fear of dying alone is front and center. My thoughts are on the loose as the pool of blood widens underneath me. This was my life, wow, weird, crazy and wonderful I suppose. Even though it felt like one disappointment after another, while I kept forcing myself to keep smiling through rainy days.
+
+When everyday feels like it’s raining, you don’t remember the sun shines behind the clouds. Why is it so hard for people to be happy? Well, I’m feeling lightheaded but I think it comes down to desire and curiosity…  We can’t stop either of them and in the end they will kill us. If you can stop them, than your suffering ends… lucky you. But look at the world, full of these fallen angels relishing in their delightful desires. There will be no end to the suffering, that’s what we’re all here to experience. And when we finally die, there’s that nice soothing peace and quiet you could never find. We all get our own nice, little piece of quiet, called a plot, if you are lucky enough to afford one.
+
+I suppose that I’ve been waiting my entire life for this bullet to slice open the clouds and let the sunshine through to finally take me to the other side of this living hell. But I tell you what, I’m enjoying the fuck outta this silence right now as I watch the morning light and shadows pierce the window blinds dancing across the wall in front of me.
+
+If I go before medics get here I’m leaving my phone unlocked next to me with my notes app open. Medics when you read this, please post it to r/nosleep page. I always wanted to post a story on there. I just didn’t expect my first to also be my last. Or this to be the story. I had a much better one you all would have got a kick out of, but I couldn’t stop rewriting it.
+
+It’s hard to type or think now. I just glanced out the door and there is a medic pointing in my direction. Wait a minute. In the darkened corner of my motel room, on the other side behind the bed, what the fuck, someone’s there. A hand, pointing at me with its finger at least a foot long. Holy shit. I can’t see a face. But the eyes, oh my god, piercing and peering at me from the shadow across the room. I’m panicked yet still. I’m scared but calm. The constant chill now feels warm and comfortable. What an incredible feeling.
+
+I’m calling for the medic. The hand is still. The finger is long. It’s the pointing man.
