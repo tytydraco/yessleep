@@ -1,0 +1,283 @@
+I grew up in a small town in central Washington—one of those little farming towns you pass on your way to somewhere more interesting. I was born in December of 1970.
+
+Most of my childhood was spent working alongside my father on the farm or helping out with the family business. I was put to work the second I could stay on my feet. That said, those rare moments of freedom felt all the sweeter because of it.
+
+My family raised cattle and did construction work for generations. My father spent long hours breaking his back to provide for us, and for that, I’ll always be grateful.
+
+“Humble living—it’s the key to a fruitful life,” my grandpa always told my dad.
+
+My mother was a soft-spoken, almost mystical type. She came from Ireland when she was just 2. It's weird—I swear she had magic or witchcraft, but just for the most mundane things. Had zits? No problem. She'd prick your finger with a needle and circle where your zits were with your finger. Same thing with warts. There was one ritual where she'd use a nail and a string and be able to tell you how many kids you were going to have and their genders. This one I always thought was fake—there was no logical way to tell it accurately. Sure enough, everyone she tried it on either came to be correct or was correct—even with my 3 sons that I had 20 years later. I could write a whole story about my mother, but I'll leave that story to rest for now.
+
+As I said before, I lived in a smaller town, and anyone who has lived in a small town knows the pros and cons of small-town life.
+
+Pros: you're closer with everyone, and everyone knows who you are. Cons: you're closer with everyone, and everyone knows who you are.
+
+It truly was a double-edged sword. That being said, our community was very connected—just a few farmers and their families. We’d meet in the grange hall for something we called “family lunch” every Sunday after church. It was a good time to chat with those you didn't get to see or, for some, to have a meal with other people rather than an empty house. Families would cook food the night prior, and it would be a mini potluck every Sunday afternoon. It really bonded our small, quaint town.
+
+That said, if there was a problem—or if someone had a problem—we all knew it before sundown. No story could escape this town's grasp. Information would usually get passed around during the wives’ “book talk” meetings.
+
+Because of this, we could never get away from anything. Even back then, before a world of cell phones, it was almost as if we always had cameras on us. With everyone always seeing each other and talking, I remember distantly when the whispers around the town started.
+
+I was 15, and this mysterious man was the talk of the town. This man supposedly wore a white shirt, red hat, blue jeans, and dark brown work boots.
+
+Bruce Springsteen had released his \*Born in the U.S.A.\* album around this time as well; thus, everyone around here started to call him “Bruce.”
+
+At first, all of us neighborhood kids thought it was another boogeyman tale. Parents would tell us, “Keep your window closed or Bruce will get ya… or dont go alone in the woods, that man will come and getcha.”
+
+None of us really took the story seriously—you know, as kids do. During that time, the only thing we cared about was camping outside in the forest and pretending to be G.I. Joe members in the midst of a heated conflict.
+
+Some kids would say they saw Bruce in the tree line while we were out there, but no one would take them seriously, and they'd get called a bitch or something. Even with this, we'd still kinda get that chill down our spine at night—that same chill you'd get when someone was spying on you.
+
+In hindsight, even though we'd tease those kids for saying they saw Bruce, we all still had the fear of him spotting us. Bruce was also said to watch kids through their windows while they slept. I remember thinking I was invulnerable to being seen by Bruce because my window was on the second story of our house, though I still kept my blinds closed just in case.
+
+When summer ended and the dreaded school year came back around, the noise about Bruce around the town diminished. I even forgot about him for a time. It seemed as if the hype around the town's resident boogeyman had left as fast as he came. Though diminished, there were still the occasional whispers about him around family lunch.
+
+One Sunday afternoon in the middle of fall, I remember my father was speaking to one of our neighbors.
+
+“Davies' son says he saw that man looking through his window the other night.”
+
+“Ah, that's a load of horseshit and you know it. That whole Bruce thing was a boogeyman story to get the kids to behave,” my father said.
+
+“Maybe, but even Davie seemed shaken up from it,” my neighbor retorted.
+
+My neighbor was right, too. I was close with Johnny, and he and his entire family swore up and down about it. Johnny told me that he woke up early one morning with that same chill-down-your-spine feeling. He said:
+
+“Dude, it was freaky. He was just standing there, and his hat kinda covered his face, so it was hard to see what he looked like.”
+
+He said that later he screamed for his dad, and this dude still just stood there. No reaction or anything—just kept looking directly at Johnny. When his dad finally stumbled into the room and noticed Bruce, he bolted outside with his shotgun in hand. Johnny said that the man had no reaction to his father either—he just kept standing there, staring intently.
+
+By the time their front door opened and the first shot rang out, Bruce was gone—almost like a ghost disappearing into fog. Mr. Feltermen swore that one second the man was there, and then when he raised his shotgun and fired, the man disappeared.
+
+Johnny’s father called the sheriff’s office over, but there was no trace of Bruce. The deputy just said if he comes back, to call them out first.
+
+Johnny told this story probably 100 times that year, yet just like before, everyone would tease him and deny his story. My mother was pretty close to their family, so she tried to keep a short leash on all three of us boys. Funny enough, she'd always say before we'd go anywhere, “Be careful, and don't let that pedophile go and get ya.”
+
+My brothers would always mockingly say, “We’ll kill ’em before he could even touch us, Ma.”
+
+I don't know if the story of Bruce ever really bothered my brothers as much as it bothered me. Though, even after Johnny's story, I still had a slight bit of skepticism in me. I mean, I never got to see him until later.
+
+The first time I ever had a Bruce encounter was later that year during a pretty harsh winter. My father was remodeling our sunroom. Due to that, our “front door” was a plastic tarp stapled to the doorframe. And, might I add, it was the absolute worst time not to have a door. Snow would get into the front entrance from the storm the night prior, and the entire house would feel like it was negative 100 degrees.
+
+Anyway, I digress. I remember it was the weekend, and my birthday was that Friday before. My brothers scraped up some money to rent me the first \*Indiana Jones\* movie. Honestly, it was as much of a gift for me as it was for my brothers.
+
+My father was out getting supplies for the sunroom, and my mother was grocery shopping. My brothers and I were sitting on the couch watching the movie intently. Watching that movie, you could almost see it in my eyes—the dream to be a cool archaeologist just like Harrison Ford, whip and hat included.
+
+Now, I don't know if it was because we were watching so closely, but we never noticed when our father’s pickup pulled up. My father came up, flicked my oldest brother's ear, and shouted, “How many times do I have to tell you dipshits to leave your boots outside before coming onto the carpet?”
+
+We all stared at each other, confused. My father had his arm outstretched and was pointing at a pair of snow prints that had to have been no closer than seven feet from the back of our couch. The snow hadn't melted and still looked fresh.
+
+“Dad, we've been inside for the last—” My dad interrupted my brother.
+
+“Oh, don't give me that bullshit. Go clean that up and go help your mother with the groceries.”
+
+I still remember the look on my brothers’ faces as they stared at each other—maybe bewilderment or maybe fear. I remember lying in bed that night trying to make up a rational explanation for whose footprints those could be—anyone other than Bruce’s. Eventually, I was able to fall asleep with some made-up story that sounds only logical to someone up that late into the night.
+
+My brothers later both blamed me for the prints, and I became a chore boy for my father because of it. Yet, those prints still haunted me, mostly because of how close they were to me. If there even was someone behind us, surely we would've heard the rustling of the plastic tarp.
+
+Now, obviously, I never told this story to anyone due to the fear of social suicide. I couldn't take those kinds of skeletons following me into high school.
+
+Nothing special happened the rest of the winter for my family. My father finally got a door onto the porch just in time for it to finally warm up. In those warm, sweaty nights, I prayed for the house to return to its freezing temperatures again. For most kids my age at that time, that meant going swimming, partying, and late nights with girlfriends. For me and my brothers, that meant more time to help Dad—long, grueling hours directly in the sun while working on houses for people whose cars were worth more than my entire family's net worth.
+
+After long, drawn-out hours of orders being barked at by our father, our treat was to come home and either buck freshly harvested hay into our barn or tend to the animals. Yet after all of this, we always had a hearty meal cooked straight from my mother's hands, ready for us at the end of the day. We’d eat till we couldn't pick up a fork, just to head to bed and do it all over again.
+
+On the rare occasions we had our days of freedom, my brothers and I would scatter across the town to our respective friend groups, occasionally meeting up at house parties or a bonfire. One of those nights we had off from working with our father, my brothers and I all piled into our older brother's truck and drove off to one of these great bonfire nights.
+
+It seemed as if the entire town would show up to these events. Family and friends alike would all show up in droves. The adults with the young ones would come out and eat and enjoy the social aspect. Later in the day, when the sun would try to set, the only ones left would be the teens trying to sneak a beer—and the fun “uncles” supplying them.
+
+When we showed up, it was the typical crowd: the ones around my brothers’ age, with some parents still straggling around. When we stepped out of the truck, the remaining parents said what basically became our tagline anywhere we went: “Oh damn, here comes trouble.”
+
+The parents and kids our age would laugh as we'd go and sit on the assortment of furniture and bench seats that surrounded the fire. We would all sit and chat with those who we were familiar with, all while those with more boldness than brains would try to sneak a beer from the coolers—myself included.
+
+As the night rolled on and more showed up, the host’s parents would give the same speech every parent would give to all of us kids at these events:
+
+“Now I can't stop you from drinking, but don't be stupid and go off and drive as well. Either sleep it off or call your parents. The phone's inside next to the fridge, and don't you dare wake me up unless one of ya is dying.”
+
+They'd smile and wave goodnight as they'd head inside. We'd all say our thanks and commence to having the real party. The older ones would try to go and smoothly talk to one of the few women that showed up, only to get shut down, walk to the cooler, and plop down on one of the random “chairs.”
+
+I remember that night I was sitting down on some broken-down bench seat with one of the springs jabbing into my side. Nonetheless, I would hold my beer and try to be as cool as I possibly could.
+
+People were conversing when my eyes were drawn to something near the tree line at the back of the property—something artificially white. Through swaying eyes, I was able to focus on a figure standing there: blue jeans, white shirt, red hat. He had his hands to his side, and it was too far away to make out a face. It took a bit before the thought finally pushed through my drunken mind.
+
+“No way...” I remember mumbling to myself quietly.
+
+My friend who was sitting next to me—who, mind you, was deep into telling me how in love he was with this girl that was across the fire—said annoyingly, “Are you even listening to me right now?”
+
+I didn't answer him but just kept staring back at the man, trying to believe this had to be some trick from the lighting and the shadows. My friend finally turned his head to look at what I was gawking at.
+
+“Who's that?” he asked.
+
+“I... have no idea, but it kind of looks like that guy everyone was describing last summer though.”
+
+“Dude, that was just a dumb rumor Johnny’s parents came up with to—” he retorted.
+
+“No, I know, I know, but isn't it kinda weird some adult-looking dude is just standing far out there? Plus, isn't it just miles and miles of forestland back there? Where could he even come from?”
+
+I remember looking back at my friend, confused. He stared back at me, and you could almost see a glimmer of fear pass across his eyes. Our eyes narrowed, and instantly, we both darted our heads back to the tree line. Nothing. Just the outline of trees and darkness.
+
+Suddenly, that fire didn't feel so warm, and the cool summer air just felt plain cold. Our eyes searched across the trees, trying to get a glimpse of what we just saw, but there honestly wasn't anything but trees and trees.
+
+We turned back to each other, and that fear became something closer to confusion. We both knew it had only been a second or so that our eyes were off of him, yet there was no trace of him.
+
+We looked around the fire to see if anyone had seen what we just had, yet everyone seemed too deep into conversation to notice or care. Then, to almost cut the tension that lingered in the air, my oldest brother grasped both of my shoulders. Instantly, I leaped and stiffened all up. My brother mockingly said something along the lines of, “What? Still scared of the dark, pussy?”
+
+I laughed it off and said something vulgar back to him. He told me that our other brother was still trying to get “lucky,” so he'd be spending the night here.
+
+My oldest brother was going to go home, and he asked if I wanted to go home as well. He wasn't much of a drinker, so I knew at the very least this'd be a good chance to get home safe instead of sleeping in some field.
+
+He and I both got into his pickup and we waved goodbye to the remaining few. We drove off back down the road, all while music played from the late-night radio.
+
+By the time we had gotten home, that lingering eeriness I felt had all but left. I thanked my brother for the ride and went to lie down on the couch, not having the energy to crawl upstairs and into my bed.
+
+As the night's events faded into memories, the obvious remained painted on the inside of my eyelids—that man standing out in the tree line, watching us like he was one of the trees. That same chill I felt crawled its way up my spine as my mind slipped into unconsciousness.
+
+After that night, I remember a small burning feeling deep in my stomach anytime I would think about Bruce. The only way I can even think to describe it was the feeling of a cornered, frightened animal.
+
+That time in my life was pretty tumultuous. I wasn't always in constant fear, but it was as if saying his name would summon him. Then, slowly, the thought of him would creep into your mind, and that deep, burning feeling would follow.
+
+During that summer as well, I remember my mother being extra worried about my brothers and me. She had a knack for keeping us away from danger. It almost seemed as if she could read the future.
+
+Mom always kept tabs on us wherever we went, and if she didn't like what we were up to, she'd veto it. My brothers and I would complain and get upset, but she always held her ground. My father would soon follow suit, and we'd lose our nerve.
+
+Yet my mother was always right for not sending us off. There was one time my brother and I were going to go four-wheeling in the forest, but she said no. Now, we had been out on that trail with our four-wheelers for as long as we could drive them, so when she said no, we both were irritated.
+
+My mother kept her foot down, and we eventually lost interest in fighting with her and went on to do something else. Yet she was right—the rainfall that day became severe, and the river that ran along the trail became a flash flood. Even if we were able to escape the flood, I don't know if we would've been able to find our way home.
+
+While 90% of the time when my mother would say no there wouldn't be any danger—or something minor would happen—that said, I was always grateful for that 10% of the time.
+
+One of those times where my mother said no was toward the end of summer. Everyone that was anyone was going to be at this log cabin for a party. It was my buddy Kyle’s parents' place. They allowed him to throw a party up there once a summer.
+
+When I went to ask my dad and ma for permission, it seemed like the easiest yes I could get. I had been to that cabin before, I had no work to do with my father, and both my parents loved Kyle’s family.
+
+My father's face looked as if he was going to say, “Sure, I don't care—just be safe,” but my mother's face looked less promising. Her eyes narrowed, and she was chewing her cheek in thought.
+
+My mother always would make this face when she was thinking. It could be as simple as deciding what brand of soup to buy or as serious as telling someone a truth that might break their heart.
+
+My father turned his head to see my mother deep in thought. His facial expression changed from his neutral stoic tone to more of a stern, defensive look. He could tell what my mother was going to say even before she knew it—one of the perks of them being married for so long.
+
+When my mother finally decided to speak, I already knew the answer. Doesn't mean it didn't sting a little, nor that I wouldn't try to fight it. In the end, the ruling stood, and I was told decisively, “No, you cannot go.”
+
+Next thing I knew, I was lying in my room and looking at the evening sun heading west. As upset as I was, I knew I had no chance to convince either of my parents. Once my mother said those words, they might as well have become one of the commandments.
+
+Yet, being a teenage boy with less brains than a goldfish, I decided to do something even my rebellious brothers wouldn't dare to do. I went against my mother's “no.”
+
+These parties at Kyle's cabin were everything back then. The year prior, his older brother hosted and became something of a legend. Everyone from the valley who knew each other would meet up at the base of the lake, and we’d all drive up to the cabin in a convoy.
+
+Last year was my first time up at the cabin. It was three days of absolutely anything we wanted to do—fishing, swimming, partying, card games, cooking—we seriously did it all.
+
+And most importantly, if I wanted a chance to spend time with a lady, this was the last opportunity I'd have before school started again. In my prepubescent mind, drinking, fishing, and chicks sounded like a good reason to break any rule.
+
+So I called Kyle's house and told them to meet me down the road from my house in about two hours. He said OK and asked why I wouldn't meet him at my house. I just told him, “I'll tell ya later. Just meet me around two houses down.”
+
+We hung up the phone, and I knew I had no chance of turning back.
+
+Those two hours came and went while I behaved and did my chores. My parents were early sleepers, so when the clock struck 7 p.m., they both retired to their rooms.
+
+Sure enough, 7 p.m. rolled around, and I was getting hugs and kisses goodnight from my mother. She kissed my forehead and said, “I'm sorry you can't go over to your friend's house, honey. I just want you to be safe, and I have an icky feeling about you going.”
+
+“It's totally OK, Mom. I’ll just rewatch that movie Tim hasn't bothered to return yet.”
+
+Tim was my middle brother. When my mother finally left the room with my father, I started to play one of the stacks of movies Tim had piled against the TV.
+
+I told Kyle I'd meet him at 8 p.m., so I'd have some cushion time for my parents to fall asleep. When it was time for me to leave, I left the TV running as I crept out the front door. I snuck past my parents’ window and barreled down to Mrs. Jacobs’ mailbox.
+
+Soon enough, the familiar sound of Kyle’s clapped-out Chevy came rumbling. When he finally stopped, I basically hurled myself into his truck, and we sped off.
+
+Driving down the back roads, Kyle obviously asked me why we didn't just meet at my house, and I told him exactly why.
+
+“Dude, you're going against your mom right now? Are you serious?”
+
+Everyone in town knew that when my mother said no, none of us boys were getting out of it. My oldest brother, Auther, once had to sell his Iron Maiden tickets in ’83. He saved up for weeks when he first heard they'd be playing in Seattle.
+
+“Yeah, but I doubt they'll even notice me gone. Dad’s got work all day tomorrow, and Mom’s most likely going shopping, then off to book club. It’s a risk, but as long as I get home before my father, I'm doubtful they'll notice me gone.”
+
+It was a serious risk—but also a thought-out one. As long as I was home in time for dinner, my mother or father shouldn't have any questions.
+
+“So how are you going to get home? Because I'm staying the full three days,” Kyle asked.
+
+“Tim owes me big time. I'll just walk to the ranger station and call him and tell him to come get me tomorrow morning.”
+
+“What exactly does he owe you for?” Kyle said, puzzled.
+
+“He's been renting movies and hasn't returned any of them. I've been the one intercepting the late fees from the mail.”
+
+Kyle just smiled and nodded in approval. We spoke about just anything we could to pass the time as we made our way up the mountain. Everyone had already left the base of the lake, so we decided to just make a straight shot to the cabin.
+
+Pulling up to the log cabin, I could already tell what kind of night was in store for me. There was a certain unnatural blending of the scene before me. The forest was hushed, with a rhythmic breathing of cool air that swayed the trees. Then the cabin in front of me—manmade—was playing what sounded like muffled rock music and loud chatter. I remember this very distantly, just because of how surreal it was.
+
+Deep down an access road was a small log cabin that seemed more lively than the entire forest. As we walked inside, friends would turn their heads at us and smile. Some came over for hugs, while others came and chatted us up.
+
+After rounds and rounds of conversations, loud music for hours, and several rejections from multiple different chicks, the night felt like it was beginning to close. People were already getting tents ready to sleep outside and watch the stars, while others already lay on the ground of the cabin in a drunken stupor.
+
+As for me, I got special treatment due to being close with Kyle. I got to sleep on one of the three beds they had in the cabin. I remember lying there in bed with the sheets off to the side. The cool summer breeze from the open window was the perfect amount of air to cool myself off.
+
+As I dozed off, thinking about my plan of action for tomorrow in case anything went awry, I remember that chill feeling slither down my spine again. This time, I thought I was just getting cold, so I covered my top half with the blankets, leaving my feet exposed so I could still feel the cool air.
+
+In my defense, we were a couple hours away from our town, and the only peeping Toms at the cabin might be the wildlife. I was getting to the part of the night where your mind is in the middle of sleep and awake—like the powering down stage before fully sleeping.
+
+My mind was free from thought when I felt something light move along my leg. I've dealt with small bugs or flies making their way onto me, so I shook my leg and got it off without fully waking myself up. A couple of minutes go by, and another bug gets onto my leg.
+
+At this point, I was too tired to care, so I let it do its thing. I felt it move from the top of my foot to my ankle. Though this time, the bug seemed uncharacteristically heavy—like its weight would fluctuate as it dragged its body.
+
+I was puzzled at what kind of bug this could even be. My mind couldn't figure out what this could even remotely be, so—just as curiosity killed the cat—I opened my eyes.
+
+There was no bug. Just a slender man with half of his body looming out the opened window, his arm outstretched in front of him, with his index finger dragging across the top of my foot.
+
+The lighting in the woods obscured his face, yet I could tell by his red hat that he was looking directly at me. Before my brain finally made the connection, the man's arm slowly retracted back to his side, all while he slithered outside of the window in a swift, slow motion.
+
+He made no reaction or sound when he noticed me awake—just a methodical motion of retreat.
+
+Before I knew it, my heart was cranked to 11. My boots were on, and I was halfway out the door before my mind finally woke up.
+
+When I stepped outside, the only thing I spotted was that artificial white color, approx. 100 feet from the entrance of the cabin. I felt that burning feeling again, and my heart felt like it was going to tear open from stress.
+
+As the white figure slowly disappeared back into the treeline, the only thing I was left with was my breathing, and the cool air breezed past me.
+
+In all my years on this earth, that was the most alone I have ever felt. No horror movie, book, or any piece of media can even compare to that fear.
+
+The only sense of comfort—if you could call it comfort—was knowing that I'm not the only victim this man had.
+
+The next few events are somewhat hazy. I remember I grabbed the rest of my clothes and got dressed again. I started to head to the park ranger’s office that wasn't too far off from the main road.
+
+By the time I got off the access road and onto the main road, I was accompanied by the early morning sky. Even with the sun out, I still felt an unnatural sense of dread. I could almost feel it slosh in my stomach as I walked down the road.
+
+When I walked into the ranger's station, I asked the half-asleep man to borrow his phone.
+
+“Hey sir, I apologize for bothering you, but I got lost on a trail I was supposed to hike this morning. Can I just bother your phone to call my brother? I just wanna go home now.”
+
+The man looked at me over his coffee mug with his eyebrow raised. He moved the phone on his desk closer to me and stood up.
+
+“Go ahead... I have to go to the campsites near the water and make sure everything's square down there. Please, no long-distance calls. And if you need me, there's a radio behind you. I'll be back in an hour,” he said while making his way to the door.
+
+“Thank you, sir!”
+
+I was more shocked that the lie actually worked. I dialed the house phone, and thankfully, my oldest brother Auther answered. I told him to go and get Tim and put him on the phone.
+
+When Tim finally got up and answered, we went back and forth for a bit—mostly him saying there's no way in hell he'd come drive up there to get me, with me retorting that I would give Dad all the late notices for his rented movies.
+
+Eventually, he caved, and we ended up on an agreement. I'd give him the late notices, and he'd keep his mouth shut if I did his chores for the week. It sounded fair to me at the time—anything to get me out of the forest.
+
+Eventually, both of my brothers finally showed up. I grabbed my stuff, hopped into the middle of the seat, and we drove off from the ranger's station.
+
+“You're fucked, by the way,” Auther said.
+
+I turned to face him, confused.
+
+“Mom went to go and grab you this morning so she could get you new clothes for the school year,” he followed up.
+
+“And guess who was nowhere to be found,” Tim butted in.
+
+“Shit…” I said, defeated.
+
+That drive back into town was filled with emotion. On one side, I did not want to see the wrath of my father and mother after disobeying them. On the other hand, I was so thankful to just be far away from that cabin.
+
+I remember looking out the window into the rows and rows of trees, thinking about how large this forest was—yet his presence was felt throughout it. Almost as if he could just be behind any one of those trees.
+
+When we finally got home, I knew exactly how fucked I really was. I saw my dad’s truck parked in the driveway in the middle of the day.
+
+When I walked into the house, both of my brothers raced around me and my parents and went straight into their rooms, respectively—almost as if the next coming seconds were going to have a nuclear fallout.
+
+The next couple of hours of that day were my parents telling me how reckless and stupid my actions were, followed by ways to punish me.
+
+I don't remember exactly what the punishment was, mostly because it became a snowball of several smaller punishments that culminated over the next several months.
+
+Through everything that I went through that night, I eventually learned that I wasn't the only one who had an encounter with Bruce up in that cabin.
