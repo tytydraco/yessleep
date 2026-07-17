@@ -36,7 +36,6 @@ I even write and draw my own comic, *Silver Bullets,* a revisionist werewolf m
 
 I’m kind of a big fucking deal in indie horror. 
 
-  
 But nothing prepared me for this—finding a copy of Cane Holland’s *Nightmare* \#1. The cover was barely attached, but it didn’t matter. Cane’s *Nightmare* was a grail. Any comic by Cane Holland was. That’s how rare they were.
 
  
@@ -53,7 +52,7 @@ I have found three issues of *Death Craze* from the six-issue run. The final t
 
  
 
-The most popular comic Holland ever did is a fill-in that he did for a popular underground zombie comic (*Brainmeal)*that had a print run of five thousand copies. The whole comic is a single zombie attack where everyone is gets bitten, eviscerated, and destroyed. The plot doesn’t make sense, but it doesn’t matter because Holland made it look so fucking good. 
+The most popular comic Holland ever did is a fill-in that he did for a popular underground zombie comic (\*Brainmeal)\*that had a print run of five thousand copies. The whole comic is a single zombie attack where everyone is gets bitten, eviscerated, and destroyed. The plot doesn’t make sense, but it doesn’t matter because Holland made it look so fucking good. 
 
  
 
@@ -194,3 +193,6 @@ Moving onto the highway, I look down at the passenger’s seat. The copy of *Ni
  
 
 “Fuck yeah.” I tap the steering wheel in delight. That was fucking weird, but worth every fucking second of discomfort. The fucking comic almost makes the migraine worth it. 
+
+  
+[Part 2](https://www.reddit.com/r/nosleep/s/8aZ5D1KevN)
