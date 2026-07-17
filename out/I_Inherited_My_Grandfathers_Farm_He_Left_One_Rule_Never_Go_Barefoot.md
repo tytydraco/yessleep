@@ -1,0 +1,209 @@
+I was never much of a country guy. If I'd had the choice, I would've spent my whole life in a city somewhere, surrounded by people instead of empty fields. But we don’t always get to choose, and in my case, death chose for me.
+
+I never knew my parents; they died before I was old enough to recognize their faces. I remember looking at their pictures in my grandparents' home as a child and knowing I should feel some connection to them. But I never did; they were strangers to me. My grandparents on my mother's side raised me, and growing up, I occasionally heard rumors of my father’s dad, my other grandpa. I never met him, but he has changed my life, and not for the better.
+
+I’ll never forget that day, I was days away from graduating from university with a degree in social studies, when I received a package in the mail. It informed me that my grandfather, Arnold, who had lived in Oklahoma, had passed away. And to my shock, he left his entire estate to me. I reread the legal papers several times, and what it said never changed. My grandpa left me his farmhouse, two barns, and 85 acres of land. At the bottom of the statement was the number of my grandpa’s lawyer, whom I was supposed to call.
+
+I didn’t want to get my hopes up in case there was a catch, so I wasted no time and dialed the number.
+
+“Thank you for calling Hartman and Co. How may I help you?” a pleasant, yet professional female voice answered
+
+“Um, yes, hi. I received a packet regarding my grandfather's estate, and I’m supposed to talk to Mr. Hartman.” I’m not very good at talking on the phone.
+
+“One moment.” She replied before the line went on hold.
+
+It didn’t take long for the deep, smooth voice of an older man to fill my ear.
+
+“This is Hartman.”
+
+“Yes, Mr. Hartman, my name is Timothy, I believe my grandfather Arnold was a client of yours.”
+
+Even through the phone, I could tell that Hartman was smiling.
+
+“Oh yes, Timothy, you’re grandfather was more than a client, he was a good friend, and I’m so sorry for your loss.”
+
+I shrugged to myself
+
+“I didn’t know him.” I said
+
+“Even still, he was family. Anyways, how may I help you, son?”
+
+“Yeah, I got your packet and..”
+
+“Ah, say no more, you’re quite fortunate your grandfather left you his entire estate. I’ve handled most of the transfer process, but I’ll need you to sign the documents I’ve sent you and mail them back to me.”
+
+“Got it,” I replied. “Anything else?”
+
+“Well, yes, actually, it would be helpful if I knew what you intend on doing with the place? Do you want to sell it? Or are you planning on living there?”
+
+I thought for a moment, on one hand, moving to the middle of nowhere, Oklahoma, sounded like hell on earth, but then again, with the current state of the economy, I had practically given up on the dream of ever owning a house as large as my grandfather’s property, so being gifted such a thing was a dream come true.
+
+“I kinda want to keep it, but I don’t know anything about farming.”
+
+Hartman chuckled
+
+“Don’t worry about that, your grandfather himself hadn’t farmed the place in years, he rented the acres out to his nearest neighbor. Who I’m told wants to keep the same arrangement with the next owner. It would be a decent source of passive income for you.”
+
+At this, I got a little more excited.
+
+“Well, alright then, let’s do it.”
+
+“I think that’s a good choice, son. I’ll be in touch, but for now, you take care.”
+
+With that, he ended the call, and I could hardly believe my luck.
+
+My college buddies thought I was insane.
+
+“You’re seriously moving out there? Just sell the dump!” one said
+
+“I bet I have more brain cells than that entire state combined!” another laughed
+
+“You’ll probably get killed by rednecks,” scoffed another, but I didn’t care; most of them were going back to living in their parents' basements while I had my own house on my own land. Graduation passed, and with it, my college days. Shortly after, I had all the contents of my dorm loaded into my aging car, and I headed off to Oklahoma.
+
+The drive was long and boring; I couldn’t afford to stop for the night, so I continued after dark. It was well after midnight by the time I pulled off the highway onto a dirt road. I followed the road for nearly an hour, and only passed two or three other farms. With no streetlights, my headlights illuminated the road and nearby fields in a pale, washed-out glow that was consumed by darkness mere feet in front of the car. I was beginning to think this was a mistake when I reached the property at the end of the road, my grandfather’s farm. My farm.
+
+I don’t think I’ve ever been more nervous than I was in that moment. Before my stopped car was the hulking, completely lifeless shape of my new home. It’s the same boxy farmhouse style I had seen many times on my journey, only quite larger and better maintained than most. I remember trying to calm my nerves as I exited the car. As I walked to the front porch, the silence of the night was overcome by the noise of thousands of bugs. Clicking, chattering, and chirping. It was deafening, and up until that point, I had never experienced such a sound. I reminded myself this was going to take some getting used to.
+
+Reaching the porch and front door, I was greeted by a lone key and a little note that read:
+
+“I’ll be by in the morning, have a good night! Signed Hartman”
+
+Taking the key and note, I unlocked the door and entered. The place was old and rather traditional but well-maintained. And from what I could tell, the furniture and appliances were fairly new and updated. The ground floor of my home has a large entryway, a full bathroom, a spacious living room, a dining room, and a kitchen, as well as a smaller office and a home library, all of which I walked through, arriving at the kitchen in the back of the house last.
+
+As I entered the kitchen and turned on the lights, I was impressed by how large it was. But more than that, I was taken aback by what I found on one of the walls. Directly across from the fridge and cabinets, a message had been carefully carved into the wall. it read:
+
+“Keep your boots on. Even in the house. Never go barefoot.”
+
+At the time, I didn’t think much of it; in fact, I think I chuckled and said to myself
+
+“weird”
+
+I suppose I can blame my indifference on exhaustion. Because after that, I quickly found the stairs and entered the first bedroom I found. I didn’t bother changing my clothes or taking my shoes off; I simply collapsed on the bed and fell asleep.
+
+I wanted to sleep in, but the noise of the countryside was nearly as loud as the city sounds I was used to. It seemed to me that the chirping insects were right on the other side of the window or even in the walls. Despite my rude awakening, I chose to make the most of it by getting up and exploring the upstairs. The second floor held two more full bathrooms, one of which was attached to the master bedroom. In addition to the master, there were 3 other bedrooms and several storage closets.
+
+Checking my phone, I was rather surprised to notice that there was a wifi network to connect to. I hadn’t really expected that here in the middle of nowhere. And to my amazement, it was pretty fast, seemingly faster than the wifi back in my dorm.
+
+Going downstairs, I stood in the living room and took it all in. In that moment, I convinced myself that living in the sticks was a sacrifice worth the home I now had. I couldn’t believe it was really mine. Stepping out onto the porch, I marveled at the land that was hidden from view in the dark of the night. It was vast and empty. In every direction, it seemed like the land went on for as far as the eye could see with very little variation. In that moment, I felt completely and utterly alone, as if I were the only human left on earth, lost in an ocean of wheat. As I stood there in the distance, I noticed a line of dusk rising in the distance and making its way towards my location.
+
+“I hope that’s just a car,” I muttered to myself
+
+It was a Car, or rather a truck, a well-maintained silver pickup that parked near the porch, and an older man stepped out and headed my way. He wore a white button-down and gray slacks. On his feet were dirty work boots, and on his head was a weathered cowboy hat. He reached out his hand to me
+
+“Timothy, I presume? I’m Hartman, nice to finally meet you in person.”
+
+I met his handshake
+
+“Same.”
+
+“May I come in?”
+
+I ushered him he removed his hat once inside.
+
+“Just wanted to pass off the deed to the place and welcome you to the area.” He said as he passed a large envelope to me.
+
+“Everything to your liking?”
+
+I nodded and said
+
+“Yeah, actually better than I expected. I wasn’t expecting wifi here.”
+
+“Oh yeah, I forgot you probably didn’t know much about old Arnold. Nearly a decade ago, he was in a bad farming accident, and they had to amputate his right leg. But Arnold still found ways to be useful and started as an online professor for the local community college. That’s why he had the wifi installed.”
+
+“Really? I had no idea. What did he teach?”
+
+He thought for a moment
+
+“Best I can remember, he was a lecturer on Oklahoma’s unique bugs and parasites.”
+
+“Bugs?”
+
+“Mhmm, he was something of a local expert on that.”
+
+I nodded and remembered the words carved into the kitchen wall.
+
+“Hey, before you leave, maybe you could take a look at something for me?”
+
+I led him to the kitchen and pointed to the message
+
+“Any idea what that means?”
+
+He stared at it intently for a while, and for a moment, I thought I caught a glance of some dark understanding before he declared
+
+“Sorry, not sure, probably just the ramblings of a man near the end of his life. I wouldn’t worry too much about it. I bet the local hardware store could sell you something to cover that up.”
+
+Then he nodded and headed for the door.
+
+“I need to be getting back, but you take care.”
+
+With that, he was gone.  
+
+I needed supplies, the kitchen was empty, and I had brought very little with me, so I found myself back in the car. Heading to town. The nearest town, large enough for a shopping center, was about 45 minutes from my farm, a drive I still haven’t gotten used to. The town is home to a well-worn Walmart and a few other smaller stores, for my needs its enough. That day, I spent several hours exploring all it had to offer. It was mid-afternoon by the time I headed home.
+
+I unloaded the car and, upon entering my home with the final load, I shut the door and instinctively removed my shoes. I should have known something was wrong. The floor felt odd. It was warm, almost like stepping on some living creature. With the warmth came a strange sensation on my feet, almost like hundreds of microscopic feet crawling all over the arches of my feet. I looked down, expecting to see a fly or some other insect walking across my foot, but there was nothing.
+
+After a few moments, the crawling faded into the familiar pins-and-needles sensation of a foot falling asleep. A few seconds later, that disappeared too. My feet felt normal, though the floor remained warm. I shrugged, thinking I had nothing to worry about since the strange sensation had passed.
+
+I spent the rest of the day watching movies and eating ramen in the living room, before falling asleep on the couch. I don’t remember exactly when I woke up, but it was closer to dawn than midnight. I didn’t awake because I heard a sound or needed a drink; no, what woke me up was an unbearable itch on the bottom of both my feet.
+
+It was terrible, no matter how much I itched, it wouldn’t go away. It was as if the itch was deep beneath my skin, not just on the surface. I itched my feet with my hands, a towel, and even a brush, but nothing worked; if anything, the itch seemed to be getting worse. First, it was on the arches of my feet, then it moved to the pads and even the toes, and soon my entire foot was inflamed with a deep itch I couldn’t reach. I must have sat there scratching my feet for an hour or more; the skin of my feet was red and tender from all my efforts, but the itching continued.
+
+Not sure what to do, I hobbled my way up to the shower. Stepping in, I turned on the water, hoping for some relief. Instead, what I got was sudden pain, like thousands of tiny cuts had appeared all over my feet. I screamed and jumped out of the shower. The pain left, but the itching was worse.
+
+I continued itching until the sun rose, as daylight filled the room. The itch became dull and eventually disappeared altogether, leaving only a dull tingling in its place. Exhausted, I made my way to the bed I used the first night and fell into a deep sleep. When I woke, it was nearly 3:30, the afternoon shadows grew long, and my feet itched again, not as they did before. But a manageable albeit constant itch.
+
+I made my way to a chair and examined my feet, which were red and covered in tiny, raised mounds. It looked like I had a bad rash. I cautiously touched one of the larger bumps and recoiled my finger instantly. Touching it caused a sharp burst of pain to echo throughout my foot like a vibration in a spider's web. I winced in pain and realized something was seriously wrong.
+
+I needed help, but not knowing what to do, I did the only thing I could think of: I opened Chat GPT.
+
+“My feet are red and itchy, and there are tiny bumps all over that are painful to touch. What do I do?” is what I typed into the chatbot.
+
+I still have its response, it said:
+
+“Red, itchy, painful bumps on your feet could have several causes, including irritation, infection, or bites. Avoid scratching, keep the area clean and dry. If the pain worsens, spreads, or you develop swelling, fever, or trouble walking, seek medical care.”
+
+For a time, that response calmed my nerves; perhaps I was having a reaction to something in the air that I had never encountered in the city.
+
+“Maybe this isn’t really a big deal,” I thought as I slowly walked down the stairs to the kitchen. There, I lathered my feet in VapoRub before heading to the living room. The evening was fairly normal. For several hours, I had forgotten about the pain in my feet as I sat on the couch watching an old movie. But then I began to notice an alien tingling in my lower legs, right around my ankles. I tried hard to ignore it, but failed when the tingling turned to the deep itching I felt last night. I couldn’t bear it, and almost against my will, I found myself hunched over, wildly scratching the skin of my legs.
+
+Every few minutes, I'd promise myself I was done scratching. I'd sit on my hands, grit my teeth, and stare at the television until the itch became unbearable again. Before I realized what I was doing, my fingernails would already be digging into my ankles.
+
+I don’t know when I noticed, but as I was worried about my legs, out of the corner of my eye, I noticed that the bumps on my feet had grown. They were massive; some of them were 4 or 5 times the size I remembered. It looked like my feet had been attacked by a swarm of bees. The bumps were swollen and engorged; they stretched the skin like a ripe tomato.
+
+Cold sweat ran down my forehead, and I could feel adrenaline filling my veins. This was bad; something was seriously wrong with me. I shambled my way up the stairs to the master bathroom. In the bathroom, I found a pair of tweezers. I sat on the toilet seat, turned on my phone light, and slowly moved the tweezers toward the biggest bump on my right foot. The moment the steel tip of the small tool touched the top of the bump, it moved. I swear it moved.
+
+I blinked quickly, hoping it was just a trick of the light, then I moved the tweezers to touch it again, but this time it moved the opposite way. I clenched my jaw as I realized that there was something alive beneath my skin. I swallowed hard, mustered my courage, and pushed the tweezers down hard on the bump; at this, the bump quickly moved from the top of my foot up my leg past my ankle. The movement was shocking, and I was on the verge of hyperventilating. With a shaking hand, I reached to touch the bump again. The tweezers barely touched the bump when it bolted up my leg, past my knee, past my thigh, and I felt it collide with my hip joint.
+
+The suddenness and pain of a ping pong ball-sized mass moving up my leg was too much for me, and I passed out.  
+
+When I came to, I was still on the bathroom floor. I didn’t know how long I had been out, but my legs were unrecognizable. My left leg, below the knee, was swollen twice its size and covered with massive greenish-gray orbs. But it was nothing compared to my right leg, which looked more like an elephant's leg, though covered with tennis ball-sized mounds, with a blackish hue. As I moved from side to side, I could hear a squishy, liquid sound coming from the mounds.
+
+I panicked; I had to get out of here; I needed a doctor. It took a great bit of effort and pain, but I pulled myself to the staircase. I tried my best to guide myself down the stairs, but ended up losing control and tumbled to the bottom. At the bottom, I tried to make it to the door, but a sharp pain in my right leg stopped me. I screamed and looked at my leg, it was vibrating violently, and after a moment, a loud squelching pop and splatter of hot pus silenced the movement. I wiped the pus off my face and looked down at the leg. Wherever a bump had been was now a black, bloody hole. My leg looked like a log attacked by a dozen woodpeckers. Not one inch of my skin was without a hole.
+
+As I looked at the myriad of holes, I felt vomit rising in my throat as I noticed something thin pushed through one of the holes, slick with blood. It writhed blindly across my skin before another followed...and another...long, pitch-black worms poured from my leg. With fumbling hands, I pulled my phone from my pocket and dialed 911.
+
+“911, what’s your emergency?”
+
+“Help me! Please help me!” I screamed as a long, thin worm crawled on the back of my hand. It felt cold on my skin. Again, darkness closed in, and I lost consciousness.
+
+When I woke up, I was in the hospital, and I didn’t take it well. I screamed and thrashed around in the bed; it didn’t take long for doctors to rush in and restrain me. After I calmed down, a tall, well-kept doctor came in
+
+“Good afternoon, Timothy, how are you feeling now?”
+
+“Better,” I replied weakly
+
+“Good.” He nodded, “You’ve suffered a severe parasite infestation. Unfortunately, we haven’t yet identified the parasite. Nothing we removed matches any known parasite. But I’m quite certain that we have successfully removed all of them from your body.” He gently removed the blanket from my lower half.
+
+As he did, I looked down and gasped.
+
+“I’m sorry to say that we had to remove your right leg. it was the only way to ensure that the infestation did not spread.”
+
+He drew my attention over to my left leg
+
+“Thankfully, your left leg wasn’t nearly as serious, and we were able to stop the parasites by just removing certain sections of your leg.”
+
+I stared in shock at my new ‘leg’, which looked like they took a massive cheese grater to the flesh of my leg and shaved off the layers until they stopped just short of my leg bone.
+
+“Several of my colleagues are hopefully optimistic that you will regain movement in your leg,” he said with a half-smile
+
+I'm writing this from a hotel room three states away. I abandoned everything I owned on that farm. The sheriff can keep the property for all I care. I was released from the hospital almost a week ago after they held me for two, and there was no way I would even go back to my farm. I wanted to write this all down before things get worse. I first felt the tingle in my right hand two days ago. And yesterday the unstoppable itch began. As I type this, I have to stop every few sentences to scratch my hand. The bumps haven't appeared yet, but I know they will. I’m going to stop it before it grows. I hope my knife is sharp enough, and I hope this will stop the spread.
