@@ -182,3 +182,4 @@ Every light on the tower died at once. Someone on the other end had noticed me w
 
 Then the whole machine popped, sparked, and died for good.
 
+\[Click here to read part 02\]  [https://www.reddit.com/r/nosleep/s/2KEzlrVebm](https://www.reddit.com/r/nosleep/s/2KEzlrVebm)

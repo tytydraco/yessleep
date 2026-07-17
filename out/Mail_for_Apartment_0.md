@@ -31,9 +31,9 @@ I let out a quiet laugh, folded the paper and dropped it into the kitchen bin.
 
 That night, I saw Mr Vale in the hallway.
 
-He had lived in Apartment 5C when I first moved in. He was a quiet man in his forties who always wore dark suits and smelled strongly of aftershave. He had left suddenly at the beginning of winter. At least, that was what the landlord told us.
+He had lived in Apartment 5C when I first moved in. He was a quiet man in his forties who always wore dark suits and smelled strongly of aftershave. He had left suddenly at the beginning of winter.
 
-He was standing outside my apartment at eleven thirty. His clothes were soaked, although it hadn’t rained. The skin around his eyes looked swollen and pale, and one side of his jaw hung lower than the other. His right hand was pressed against the wall. Two of his fingers had been flattened almost completely, the nails split and blackened.
+He was standing outside my apartment at eleven thirty. His clothes were soaked, even though it wasn’t raining. The skin around his eyes looked swollen and pale, and one side of his jaw hung lower than the other. His right hand was pressed against the wall. Two of his fingers had been flattened almost completely, the nails split and blackened.
 
 “Mr Vale?”
 
@@ -109,7 +109,7 @@ I ran.
 
 After that, I began seeing them everywhere.
 
-An elderly man stood in the elevator with his forehead pressed against the back wall. When the doors opened on my floor, he turned enough for me to see a deep scar behind his ear.
+An elderly man stood in the elevator with his forehead against the back wall. When the doors opened on my floor, he turned enough for me to see a deep scar behind his ear.
 
 “Wrong floor,” he whispered as the doors closed.
 
@@ -175,7 +175,7 @@ Her eyes moved over me with confusion before drifting towards the framed photos 
 
 “These are my things.”
 
-She stepped into the apartment and picked up one of the photographs. I was standing in the centre of it, but she studied my face as though she had never seen me before.
+She stepped into the apartment and picked up one of the photographs. I was standing in the centre of it, but she studied my face like she had never seen me before.
 
 “You left them behind,” she said eventually.
 
@@ -225,7 +225,7 @@ The landlord looked at the door.
 
 “Your place.”
 
-The bedroom door opened by itself. Mr Vale was sitting on the edge of my bed. He wore one of my shirts. My work badge had been pinned to his chest, but my photograph and name had been scratched away.
+The bedroom door opened by itself. Mr Vale was sitting on the edge of my bed. He was wearing one of my shirts with my work badge pinned to his chest, but my photograph and name had been scratched away.
 
 Behind him, the wardrobe door opened. Rachel stood inside, folded into the narrow space with her knees beside her shoulders. She began forcing her joints back into place without looking away from me.
 
@@ -241,7 +241,7 @@ A third voice came from under the bed.
 
 The landlord pulled me behind her into the hallway, but before she could close the bedroom door, the wall behind Mr Vale split from floor to ceiling. The plaster stretched apart like wet paper.
 
-Inside was a narrow black space packed with bodies. Faces pressed between pipes and beams. Arms and legs had been bent into gaps no living person could have fit inside. Some wore clothes from decades ago. Others were so swollen that the fabric had sunk into their skin.
+Inside was a narrow black space packed with bodies. Faces were pressed between pipes and beams. Arms and legs had been bent into gaps no living person could have fit inside. Some wore clothes from decades ago, while others were so swollen that the fabric had sunk into their skin.
 
 Every one of them held an opened envelope. They began pulling themselves through, repeating the same words as they came.
 
@@ -249,19 +249,15 @@ Every one of them held an opened envelope. They began pulling themselves through
 
 “We need one.”
 
-The landlord shoved me towards the living room, but something caught my ankle. I struck the floor and felt hands close around my legs and shoulders. Mr Vale pinned me down while Rachel reached into my pockets.
+The landlord shoved me towards the living room, but something caught my ankle. I fell to the floor and felt hands close around my legs and shoulders. Mr Vale pinned me down while Rachel reached into my pockets.
 
 The landlord shouted that they were taking anything that proved I belonged there.
 
-Someone tore the keys from my hand. Another pulled an earring from my ear. The missing residents weren’t trying to kill me. They were collecting evidence that 6C was mine.
+Someone tore the keys from my hand, another pulled an earring from my ear. The missing residents weren’t trying to kill me. They were collecting evidence that 6C was mine.
 
 The young woman from the alley crawled over my chest. The broken key had been driven through the centre of her palm.
 
-She opened her mouth.
-
-My scream came out of her.
-
-I tried to make a sound, but only air escaped.
+She opened her mouth. My scream came out of her. I tried to make a sound, but only air escaped.
 
 Before they could drag me towards the open wall, the landlord struck Mr Vale with her ring of keys. Brass sliced through his cheek, releasing black liquid and scraps of paper, and his grip loosened.
 
@@ -269,7 +265,7 @@ She held up the letter and tore it in half.
 
 Every missing tenant screamed.
 
-The sound came from the walls as well as the room. Mr Vale clutched his chest. Rachel’s body folded inwards, and the zeros around my wrist burned as they stretched into thin lines and began to fade.
+The sound came from the walls as well as the room. Mr Vale clutched his chest, Rachel’s body folded inwards, and the zeros around my wrist burned as they stretched into thin lines and began to fade.
 
 The landlord tore the letter again.
 

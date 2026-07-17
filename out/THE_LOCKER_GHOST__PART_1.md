@@ -1,0 +1,417 @@
+I died in high school.
+
+Not in a cool way.
+
+Not in a dramatic way.
+
+Just... died.
+
+---
+
+It was 1987.
+
+I was a junior.
+
+I had a heart condition nobody knew about.
+
+One day I was walking to my locker and my chest just STOPPED.
+
+Boom.
+
+Dead at 17.
+
+And now im STILL here.
+
+---
+
+38 years later.
+
+Same hallways.
+
+Same lockers.
+
+Same stupid pep rallies.
+
+And im the only one who notices.
+
+---
+
+The thing about high school ghosts is that nobody SEES you.
+
+Even when youre alive.
+
+You walk through those halls and everyone looks RIGHT THROUGH you.
+
+Like youre invisible.
+
+Like you dont matter.
+
+---
+
+So being dead?
+
+LITERALLY no different.
+
+I just float around now.
+
+Watch the kids.
+
+Mess with the announcements.
+
+Flip the "GO TEAM" sign to say "GO HOME" during basketball games.
+
+Small stuff.
+
+---
+
+But then.
+
+THEN.
+
+A new kid showed up.
+
+His name is JAMAL.
+
+And he can SEE me.
+
+---
+
+I was floating by the water fountain.
+
+Doing my usual thing.
+
+And this kid just STARED at me.
+
+Like DIRECTLY at me.
+
+His eyes followed me as I drifted past.
+
+I stopped.
+
+Turned around.
+
+And he said.
+
+"Youre the ghost, right?"
+
+---
+
+I almost FELL THROUGH THE FLOOR.
+
+"WHAT," I said. "HOW."
+
+He shrugged. "I dunno. I just see things. Since I was a kid."
+
+And then he just WALKED AWAY.
+
+Like he didnt just change my entire afterlife.
+
+Like he didnt just make me feel ALIVE for the first time in 38 years.
+
+---
+
+I followed him to class.
+
+Through the hallways.
+
+Through the walls.
+
+He sat in the back row and pulled out his phone.
+
+I floated next to him.
+
+"Jamal," I said. "I need to talk to you."
+
+He glanced at me.
+
+Then he typed on his phone and showed me the screen.
+
+"Can you read this?"
+
+I nodded.
+
+He typed again.
+
+"Cool. Talk later. In private."
+
+---
+
+OK so now I have a friend.
+
+Jamal is COOL.
+
+Hes new. Hes weird. He talks to ghosts.
+
+And hes made ENEMIES already.
+
+---
+
+Theres this kid named BRAD.
+
+Quarterback. Popular. Total JERK.
+
+Brad has been making Jamals life MISERABLE.
+
+Tripping him in the hallway.
+
+Stealing his lunch.
+
+Spreading rumors.
+
+Standard high school bullshit.
+
+---
+
+But here's the thing.
+
+Im a GHOST.
+
+And I can do something about it.
+
+---
+
+So I started HAUNTING Brad.
+
+Small things at first.
+
+His locker wouldnt open.
+
+His car keys went MISSING.
+
+His girlfriend got a text from "him" saying "I love you" and he was IN CLASS.
+
+He looked CRAZY.
+
+Everyone thought he was losing it.
+
+And I was having the TIME OF MY LIFE.
+
+---
+
+But then Jamal told me to STOP.
+
+"Bro," he said. "Youre making it WORSE. Brad thinks IM doing all this. Now hes REALLY mad."
+
+Oh.
+
+Oops.
+
+---
+
+So I backed off.
+
+But then I started NOTICING things.
+
+Other ghosts.
+
+In the school.
+
+And they were WATCHING Jamal too.
+
+---
+
+Theres a girl in the auditorium.
+
+She died in the 1950s.
+
+She was a dancer.
+
+She fell off the stage during a play.
+
+Now she just... floats around the curtains.
+
+She never talks.
+
+But she follows Jamal sometimes.
+
+And she looks ANGRY.
+
+---
+
+Theres a janitor.
+
+Died in 1972.
+
+Heart attack in the boiler room.
+
+He WANDERS the halls at night.
+
+He seems nice.
+
+But he told me something SCARY.
+
+---
+
+I was doing my rounds one night.
+
+The janitor appeared out of nowhere.
+
+I almost screamed.
+
+"Relax kid," he said. "Im like you. Dead. But I got something to tell you."
+
+He leaned in close.
+
+"Theres a ghost in the principals office," he whispered.
+
+"Something DARK.
+
+Something that was already here when I died.
+
+And its been getting STRONGER."
+
+---
+
+I felt a chill.
+
+And I dont even HAVE a body anymore.
+
+"What do you mean?" I asked.
+
+"It WANTS the new kid," he said.
+
+"Jamal. Its been waiting for someone like him.
+
+Someone who can SEE."
+
+---
+
+I looked at the principals office.
+
+The door was closed.
+
+But I could FEEL it.
+
+Something behind that door.
+
+Something OLD.
+
+Something HUNGRY.
+
+---
+
+"And it wants to KEEP him here," the janitor said.
+
+"Forever."
+
+He disappeared into the wall.
+
+And left me ALONE.
+
+---
+
+I floated to Jamals house.
+
+Through his window.
+
+He was awake.
+
+Laying in bed.
+
+Staring at the ceiling.
+
+"Jamal," I said.
+
+He sat up. "Bro. Its 2am. What the HELL."
+
+"We need to talk," I said.
+
+"About the principals office."
+
+He went pale.
+
+"Actually yeah," he said.
+
+"Every time I walk past that door I get this... feeling.
+
+Like something is WATCHING me.
+
+Like it wants me to come inside."
+
+---
+
+I didnt tell him about the dark ghost.
+
+I didnt want to SCARE him.
+
+But I knew.
+
+I KNEW.
+
+That thing in the principals office was the reason Jamal can see ghosts.
+
+It CALLED him here.
+
+And now it wants him to STAY.
+
+---
+
+I looked at Jamal.
+
+Hes just a kid.
+
+Just like I was.
+
+And I couldnt let the same thing happen to him.
+
+---
+
+"Jamal," I said.
+
+"Im gonna protect you.
+
+No matter what.
+
+That thing in there?
+
+It has to go through ME first."
+
+---
+
+He smiled.
+
+"Thanks... ghost dude."
+
+And for the first time in 38 years.
+
+I felt like I had a PURPOSE.
+
+---
+
+But I knew.
+
+The dark ghost is coming.
+
+And its stronger than me.
+
+Way stronger.
+
+I need HELP.
+
+The dancer.
+
+The janitor.
+
+All the other ghosts in this school.
+
+We need to UNITE.
+
+---
+
+Because if we dont.
+
+Jamal is GONE.
+
+And I'll be ALONE again.
+
+For another 38 years.
+
+Or worse.
+
+Forever.
+
+---
+
+---
+
+## TO BE CONTINUED
