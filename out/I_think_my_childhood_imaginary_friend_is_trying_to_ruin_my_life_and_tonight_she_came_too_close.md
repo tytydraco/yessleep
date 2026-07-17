@@ -1,0 +1,27 @@
+I’m posting this here because I honestly don’t know where else to go, and I feel like I’m losing my mind. I need to know if anyone else has experienced something like this, or if I'm just broken.
+
+For the past few months, the line between being awake and dreaming has completely vanished for me. I’m exhausted. And it’s all because of whatever is hiding in my room. Every single night, right where the shadow of my wardrobe hits the wall, this *thing* materializes.
+
+If you just glanced at it, you’d think it’s just a jacket hanging there. But if you stare for more than three seconds, your eyes adjust, and you see it. It’s this impossibly tall, emaciated silhouette. It doesn’t move. It doesn’t crawl towards me. It just stands there, pitch-black, staring. And the worst part? Where its face should be, there are these bright, stark white teeth. It just stands in the dark and smiles at me.
+
+Whenever it shows up, the whole vibe of the room changes. The air gets so heavy it physically hurts to breathe, like my lungs are filling up with lead. I wake up the next day feeling like my bones are cracked from fatigue. And I already know, the moment I see those teeth at night, my next day is completely cursed.
+
+It’s always stupid, minor things that just break my spirit. I’ll smash a glass first thing in the morning. I’ll miss an important deadline at work. I’ll snap and get into a massive fight with people I actually care about. My chest tightens, my head feels like it’s going to explode from the stress, and through it all, I can literally *feel* this toxic energy vibrating through the house. It’s feeding on it. This thing causes my life to fall apart, and then it just sits there like a VIP spectator enjoying the show.
+
+I tried fighting back. At first, I panicked. I got on my knees and prayed until my throat was completely raw. I brought a priest over, I threw holy water in every single corner of my room, begging for any god to listen. Nothing. The sky is empty. Actually, it’s worse than empty—every time I muttered a prayer, the thing’s smile got wider. The corners of its mouth stretched almost to its ears, tearing its own skin, showing even more teeth. It wasn’t scared of the prayers. It was amused by them.
+
+Lately, it stopped staying in my bedroom. It follows me everywhere now. I see its reflection in the store windows downtown, standing right behind my shoulder. I go into the bathroom at work, and those white teeth are staring back at me in the mirror. It doesn't attack. It doesn't speak. It just... witnesses my life unraveling.
+
+Sometimes, it whispers. It sounds like dry leaves being stepped on. Just random, broken sentences about things ending.
+
+But tonight is different, and that's why I'm writing this. Usually, it stays in the corner. It laughs softly, or it hums this sickening, ancient melody that makes me want to throw up. I usually just bury my head under my pillow and pray for a minute of peace.
+
+But five minutes ago, the humming stopped.
+
+I pulled the pillow off my face, and the corner of the room was empty. She moved. She is standing right beside my bed now, inches from my face. She is totally rigid, heavy as concrete, and I can feel this freezing cold air radiating off her. The room is so cold I can see my breath on the phone screen.
+
+I can see the dull glow of her eyes looking down at me. I've known about these things since I was a kid—back then, the adults told me they were just 'imaginary friends.' I know the truth now. I was born with my eyes open to the wrong side of this world.
+
+My hands are shaking so badly I can barely type this. I used to think I was just used to the routine, that I had accepted the misery. But she has never come this close before. Her hand is hovering right over my face. She’s still smiling.
+
+Please, if anyone knows how to make it stop, tell me. I don't think I can close my eyes tonight.
