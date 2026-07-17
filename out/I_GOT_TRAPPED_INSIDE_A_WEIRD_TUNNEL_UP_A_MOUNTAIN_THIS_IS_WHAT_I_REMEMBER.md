@@ -1,0 +1,89 @@
+OK. I know how this sounds but it’s real. I’ve got the scars to prove it.
+
+I don’t know if anyone is going to read this, but it’s worth a try. Here’s the thing. I was hiking up this mountain, easy trail, right? Basically, a walk in the park. I mean, I’m an experienced hiker and very fit, so definitely easy for me. Anyway, everything was going fine until some weird shit started happening.
+
+First it was the shrubbery and the trees. Everything started looking just a little different from before. Not a huge change, but different. Didn’t really ring any alarms you know? But then, I looked down a ridge, right? I saw a lake. It was the most beautiful blue water you can imagine. There was a golden sandy beach too and lots and lots of green. It was just beautiful, man but…there was not supposed to be a lake on this mountain.
+
+It was beautiful and weird and felt exciting, like stepping into another planet, you know? I’m not going to lie. I went down this ridge. I know I shouldn’t have. I didn’t have any climbing equipment or anything more with me than a good pair of hiking boots, and it looked dangerous too. But I did it. Curiosity killed the cat and all that, you know?
+
+So down here, at the beach, I couldn’t see anything more than the lake and the mountains all around me. But I did some exploring. I walked around…I had to remove my boots because the water was cool and the sand beneath my feet felt great after all the walking. But I’m no amateur, I tied my boots at the back of backpack.
+
+So, I walked around and the first thing I noticed was the water depth. It kept changing, but not like the normal changes you’d expect, right? I walked along the beach, the water up to my ankles, but then literally one step forward and the water would be over my knee, then another step forward and the water back at ankle level. That’s weird, right? But again, no alarm bells ringing. Didn’t feel threatened one bit, you know?
+
+And all I kept seeing was the clear water and the sand and the mountains with all the trees and shrubbery and stuff. All normal. Until…I don’t know how this will sound but here it goes.
+
+So, I saw this tunnel. Not like those natural caves made of centuries-old rocks but like a tunnel you would see on a main road. At first it looked like it was made of concrete, but after a while I noticed differences. I mean, parts of it, yes. Absolutely concrete. But the rest of it? Maybe limestone. Best guess.
+
+So, I went in it, right? Who wouldn’t?
+
+It was weird from the start. The water that was knee-deep or ankle-deep based on which side of the entrance you stood, did not go inside the tunnel. There was no barrier. Like a big rock or a door or something, right?
+
+It was just this tunnel entrance like any road tunnel out there, you know? And it looked so weird to be here like in the middle of this huge lake, up on this mountain, and inside this man-made road tunnel. I didn’t feel like there was an incline of any kind, like the tunnel was straight up flat. So, I still don’t know why the water didn’t just flood the tunnel.
+
+Who made this tunnel? Clearly there’s concrete involved so it’s man-made, right? If the rest of the tunnel is limestone, I guess it could be natural, but then people reinforced it or something? I don’t know but…it wasn’t safe. I learned that the hard way.
+
+I never felt safe in there. Because there was lots of debris, like the walls were collapsing, you know? Crunched stone and rocks, big and small, all over the place. All I could think of was earthquakes, you know? So, yeah, that was what I kept thinking until the really weird stuff started happening.
+
+I searched every inch of this tunnel. Found some things. The important thing for you to know is that the other end of the tunnel? It was all blocked by this this huge pile of dirt. I tried to dig through it with a spoon I had with me.
+
+I was only planning to camp for one night. You’re probably thinking like tents and stuff, but I wanted to be truly one with nature. Done it many times before, always had a good time. And for one night it’s easy to do.
+
+So, OK, I didn’t dig all that much, right? But it was budging. I could easily dig through, it’s just…there was so much dirt.
+
+OK, yeah. Why didn’t I just leave the way I came in, right? Yeah, well, thing is…I could not find the entrance. I swear, I could see it when I was inside the tunnel. There was nothing weird about that. But after I walked farther inside, couldn’t see it. I mean after I walked the full length of the tunnel, which, by the way, it was long. I was walking for like half an hour, I think. I don’t know. Time felt kind of weird after a while in there.
+
+So, yeah, the last time I tried, I started from the pile of dirt, forward in the opposite direction. I walked a lot. It seemed like it was forever. And no entrance. Nothing. The tunnel simply never ended. I thought that maybe it was some kind of an illusion, you know? But I threw so many rocks at every possible angle and every single rock bounced back off the wall.
+
+Strangest thing. The only thing that gave me real hope. I had internet access. Sounds like a joke, right? But like everything else in this damn tunnel, it was not as good as it seemed.
+
+Here’s the thing. Not everything worked. I couldn’t just call my sister, I couldn’t just drop a pin with my location to the police or mountain rescue or whomever, you know? I couldn’t really access social media in a way that maybe could be useful. I don’t know, I could see some posts, reels, threads, shorts whatever, but not everything.
+
+Worse, once I was trapped inside the tunnel, it’s like I lost my memory. Only stuff relating to my location and how I got there though. My mind knew everything but when I tried to say it out loud, even now, just to myself, or when I try to write it down, it’s just not there, tip of your tongue thing, you know?
+
+I know, sounds like a lie. Can’t deny it, that’s what it sounds like. Can’t explain it, but it’s true.
+
+I was able to see some AI overviews when searching online, could even ask questions at times which could be helpful, you know? That’s how I think the biggest part of the tunnel was made of limestone.
+
+I never figured out how my phone kept working. I had a power bank and a solar panel, but solar can’t work in a tunnel, right? And the power bank was out of power after a while. I thought maybe the tunnel itself worked as a power source somehow, but wouldn’t the power bank charge too?
+
+I was doing OK, chipping away at the pile of dirt with my little spoon, feeling like I was making progress when the tunnel started turning into a sewer. The little drip of water I had found that was my only water source? It smelled so bad now that it was undrinkable. There was this foul smell inside the tunnel that wasn’t there before. Sometimes, I think I felt a breeze. I searched everywhere. I couldn’t find the source.
+
+Then that thing appeared out of nowhere.
+
+The overhead lights smashed without a warning. Complete darkness, right? From what I can remember, a few seconds in, I could sort of see.
+
+My whole body shakes just thinking about it. I can no longer live like this, I don’t think. This creature, it did something to me. The wounds have healed, but my mind? I don’t know...
+
+The nightmares, they aren’t just dreams. It’s as if he visits me, you know? I wake up screaming every single time. I’ve tried to fight him, in those dreams. He cannot be beaten. He says he’s a god. So ancient, so powerful. I believe him.
+
+I am of sound mind. Doctors did all sort of tests on me. Physical, mental, you name it. They don’t get it. Of course they have an answer. Post-traumatic stress. They gave me pills.
+
+How do you fight a powerful god? Not with pills.
+
+Here’s what I remember. I hope it helps if any of you are unlucky enough to fall into his trap.
+
+You never truly notice he isn’t human. But if you look closely…
+
+I remember I was on my hands and knees, searching through the debris for a sharp piece of rock, to use as a weapon, right? And I saw these…feet, I guess. They looked like feet but… they were covered in thorns. Spikes stuck out between the toes too.
+
+Maybe you’ve read about mythological creatures. Hybrids, like centaurs and dogs with three heads and snakes for hair and all that. Well, this was something like that. But I guess a plant-based hybrid?
+
+Anything that’s really sharp you can think of in plant, he had it. I’m talking thorny stems for hair, right? More like vines than stems, because they were kind of flowing as he moved, you know? The thorns hurt like hell. I grabbed it out of instinct during the fight, right? Each thorn and little spike pierced my hand like a razor. The longer thorns went deep into the flesh.
+
+His whole body was like that, made of spiked stems and thorny branches and, get this, all the vital points I could think of? Like the throat or like major organs, all these areas were made of hard wood. The area was protected by thorns of all shapes, two-branched thorns and small spikes that even if you could stab him with something sharp enough to go through, you’d have a hard time getting that blade in there, you know?
+
+My body is still full of scars. But I’m happy to be alive. I don’t know what that tunnel was or what that guy…thing was, all I know is I hope no one will have to go through what I did. The nightmares will never go away. Sometimes…sometimes I think I’m going to lose my mind.
+
+I don’t remember any details to get anyone to that location even after I tried to find out by looking at tickets and other transactions and stuff. It is as if someone is covering this up.
+
+I don’t believe in conspiracies so I won’t say anything else about this. There must be a logical explanation and that’s that. I’m writing this because I believe there should be a record. That’s all. Make what you want of it.
+
+I don’t have any useful suggestions if ever you’re unlucky enough to come face-to-face with him. Maybe gardening gloves and an axe? It would have helped more than a pocket knife, right?
+
+Can’t tell you how to escape the tunnel either. All I know, as I was fighting that thing in the dark, at some point the floor just like sucked me through. Not like a sinkhole but more like a really strong vacuum cleaner, you know?
+
+There was water, saltwater cause it hurt like hell. And I swam and fought my way into the surface, I guess. I must have blacked out. Woke up by the side of a busy road…back home.
+
+Sounds crazy, right? Unbelievable? I get it. But that’s all I have. As I said, make what you want of it. I said all I needed to.
+
+Be careful out there.
