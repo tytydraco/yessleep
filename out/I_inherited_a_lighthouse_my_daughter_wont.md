@@ -192,7 +192,7 @@ So I pushed the door open.
 
 The lantern room was completely ordinary, and the relief of it almost threw me to my knees. The great brass lamp stood in its housing, burning with a steady golden glow that filled the room with beautiful warmth. The Fresnel lens rotated in its precise arc. The windows were clean, looking out over the flat black sea and the thin grey line of the horizon. I found a chair, a small writing desk, and a shelf of logbooks identical to the ones downstairs. Dust on the floorboards, but no ash. No bones. No silhouette burned into the wood.
 
-I laughed. I stood in the center of the room and laughed until my stomach ached. For two nights—*two—*I had been dreaming about this place, fearing for my dead father and iron doors and things that hummed my daughter’s name, and it was just a room. Just a lamp that needed tending and a family duty that had grown monstrous in a grieving and sleep-deprived mind. Maybe Abdi truly did deserve this inheritance.
+I laughed. I stood in the center of the room and laughed until my stomach ached. For two nights—\*two—\*I had been dreaming about this place, fearing for my dead father and iron doors and things that hummed my daughter’s name, and it was just a room. Just a lamp that needed tending and a family duty that had grown monstrous in a grieving and sleep-deprived mind. Maybe Abdi truly did deserve this inheritance.
 
 I sat down at the writing desk and pulled one of the logbooks toward me. My father's handwriting filled the pages and tears began to well in my eyes. I found the same entries as the ones downstairs—*Day 127, Day 128, Day 129*—each ending the same:  
 *The light holds. I remain.*  
@@ -232,3 +232,5 @@ I don't know what my father meant when he wrote that it wept with him. I don't k
 I locked the door. I locked it from the outside. That should mean something. That should mean I'm still in control.
 
 *The light holds. I locked the door.*
+
+[*Update*](https://www.reddit.com/r/nosleep/s/BdqTIJhXWK)
