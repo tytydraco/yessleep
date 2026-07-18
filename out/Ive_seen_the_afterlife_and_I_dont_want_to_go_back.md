@@ -1,0 +1,144 @@
+I was eleven years old when I "died".
+
+Most people don't remember the exact day their lives changed forever. They remember birthdays, holidays, the first time they fell in love. Me? I remember the smell of damp bark beneath my hands, the laughter of my best friend somewhere below me, and the sound of an old oak tree groaning like it knew something I didn't.
+
+I still dream about that tree.
+
+It stood at the edge of Blackwood Forest behind my grandparents' farmhouse, older than anyone in the village could remember. Its branches stretched over the fields like twisted fingers clawing at the sky. Adults always warned us to stay away from it.
+
+"It's rotten," my granddad would say. "One day it'll come down." But every kid in the village climbed it anyway.
+
+That afternoon, the sky was bright blue, and summer had painted everything in warm shades of green. My friend Jamie dared me to climb higher than anyone ever had.
+
+"You won't."
+
+"I will."
+
+"You'll fall."
+
+"I won't."
+
+Famous last words.
+
+I climbed higher than I'd ever climbed before. The bark scraped my palms, and the branches became thinner beneath my weight. Looking down made my stomach twist. Jamie looked tiny, waving from the ground.
+
+"That's high enough!" he shouted. I grinned. Then I reached for one more branch. There was a loud crack. Not a snap. A crack. Like a gunshot.
+
+The branch folded beneath me. For one impossible second, I floated. I remember seeing birds explode from the top of the tree. I remember the sky spinning. I remember wondering if this was what flying felt like. Then the world rushed upward. Everything went black.
+
+The darkness didn't hurt. It wasn't even frightening at first. I thought I'd closed my eyes, but I tried opening them again. Nothing changed. The darkness wasn't around me; it was everything. There was no ground beneath my feet, no wind. No heartbeat. No sound. Just endless black.
+
+I called for my mum. No answer, I screamed until my throat burned.
+
+Still nothing.
+
+Then... Something answered. Not with words, with breathing. Slow, Heavy.
+
+Close enough that I felt warm air against the back of my neck.
+
+I spun around.
+
+Nothing. The breathing stopped, and I convinced myself I was imagining it.
+
+Then I realized... I wasn't standing anymore; I was sinking, slowly, like my feet were disappearing into wet earth. Except there wasn't any earth.
+
+Just darkness swallowing me inch by inch, I struggled. It didn't matter. Eventually, the darkness reached my knees, then my waist, then my chest, just before it reached my chin... The world changed.
+
+I stood beneath a sky that wasn't a sky. It looked like cracked stone stretching forever overhead, covered in thousands of hairline fractures glowing with dull red light. There was no sun. No moon. Yet somehow I could see. The forest surrounding me was silent. Every tree was dead. Not leafless. Dead.
+
+Their trunks were grey and smooth, as if the bark had been peeled away centuries ago. None of them moved. Not even slightly. There wasn't any wind. There wasn't any life. The silence pressed against my ears until they ached.
+
+I started walking because standing still somehow felt worse. I don't know how long I walked. Minutes. Days. Years. Time didn't seem to exist there.
+
+Eventually, I noticed someone standing between the trees. A woman. Her back faced me.
+
+"M-Miss?" She didn't answer. I stepped closer. Her dress looked ancient. Filthy. It dragged through ash that covered the ground like snow.
+
+"Are you okay?" Still nothing. When I was close enough to touch her shoulder... She turned. Her face had no eyes. No nose. No mouth. Just smooth pale skin stretched across where they should have been. Yet somehow... I knew she was looking directly at me. Every instinct screamed at me to run. So I did.
+
+I sprinted through the dead forest until my lungs felt ready to burst. Branches caught my clothes. The ash puffed beneath every footstep.
+
+Behind me... Nothing. No footsteps. No breathing. No chase. But somehow I knew... Something followed me. Not quickly. Patiently.  
+Like it already knew where I would end up.
+
+Eventually, the trees opened into a massive clearing. I wish they hadn't. Thousands of people stood there. Perfectly still. Men. Women. Children. All facing the same direction.
+
+None of them moved. None of them blinked. They looked frozen. Like statues carved from flesh.
+
+I stepped toward the nearest man. "Hello?" Nothing. I waved my hand in front of his face. No reaction. I reached out... His eyes rolled toward me. Only his eyes. The rest of him remained perfectly still. His lips never moved. Yet I heard him whisper.
+
+*"Don't let it know you're awake."* I stumbled backward. The whisper came again. This time... From every person. Thousands of voices. All speaking together. *"Don't let it know you're awake."*
+
+The ground trembled. Every head slowly tilted upward. Something enormous moved above the trees. I couldn't see it. Only the tops of the dead forest bend beneath impossible weight. Tree after tree leaned aside. Something was coming. Something huge. Every frozen person whispered louder. *Too late."*
+
+I ran again.
+
+The forest never ended. No matter how fast I sprinted, the trees remained the same. Grey trunks. Black branches. Ash. Silence. Eventually, I reached a river. Except... The water flowed upwards. It rose from the ground into the sky, disappearing into one of the glowing cracks overhead.
+
+Inside the water... Faces. Thousands of faces drifted silently past. Their mouths opened and closed. No sound emerged.
+
+A little girl floated by. She looked about six. She smiled at me. Then she mouthed three words.
+
+*It's... behind... you.*
+
+I refused to look. I couldn't. Because I already knew. The breathing had returned. Slow. Deep. Directly behind my left ear. Warm air brushed my neck.
+
+I closed my eyes.
+
+Please... Please don't let me see it.
+
+The breathing stopped. Something touched my shoulder. One finger. Cold. Impossible. I turned anyway.
+
+Nothing. Empty forest. Empty river. Empty ash.
+
+Relief flooded through me. Until I looked down. There were footprints surrounding mine.
+
+Not human footprints. Each one looked like an entire hand had been pressed into the ash. Long fingers. Far too many joints.
+
+They circled me. Whoever made them had walked around me dozens of times while I stood there. Watching. Waiting. I wasn't alone. I had never been.
+
+I don't remember falling asleep there. I don't think anyone could. Instead... I opened my eyes in a hospital bed. Bright white lights blinded me. Machines beeped beside me.
+
+Someone screamed. "Mum! He's awake!" The room exploded into movement. Doctors rushed inside. Nurses checked monitors. My mother collapsed beside the bed, crying so hard she couldn't speak.
+
+My dad hugged me so tightly I thought my ribs would break. "You've been asleep for four months," someone said.
+
+Four months? That couldn't be right. I'd only been gone...
+
+How long had I been gone? Hours? Days? Years?
+
+I couldn't remember anymore. They called it a miracle. Doctors asked questions. Did I know my name? Did I know where I was? Could I move my fingers? Did I remember the accident? I answered every question.
+
+Except one.
+
+"Did you dream?" I looked at the doctor. I almost told him everything. The forest. The river. The faceless woman. The whispers.
+
+Instead... I lied. "No." He smiled and wrote something on his clipboard.
+
+"That's perfectly normal." No. It wasn't. Nothing about it was normal. Because as everyone celebrated around my hospital bed... I noticed someone standing silently in the corner of the room.
+
+A little girl. About six years old.
+
+Her hospital gown looked soaked. Water dripped steadily onto the floor. Nobody reacted. Not the doctors. Not my parents. She stared directly at me. Then slowly... She raised one finger to her lips.
+
+*"Shhh."*
+
+The room suddenly felt cold. She smiled. Not kindly.
+
+Sadly.
+
+Then she whispered the another three words. "It's still here."
+
+The lights flickered. Every heart monitor in the room emitted one long, continuous tone. For just a fraction of a second... Everyone except me froze completely still.
+
+The doctors. My parents. The nurses. None of them moved.
+
+None of them blinked. Exactly like the people in the clearing. Then, just as suddenly, everything returned to normal. The heart monitors beeped again. People laughed. Someone adjusted my blanket. No one seemed to notice anything had happened.
+
+The little girl was gone. But on the polished hospital floor... Leading from the corner of the room to the side of my bed... Were damp footprints.
+
+Not feet. Hands.
+
+Long, wet handprints. As though something had crawled out of the darkness...
+
+And followed me home.
