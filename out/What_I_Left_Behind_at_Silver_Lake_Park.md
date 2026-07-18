@@ -88,7 +88,7 @@ A little while later, I was startled awake by a hand on my arm. I jumped and my 
 
 “I gotta go to the bathroom, can you come with me?” She whispered.
 
-I mumbled back, still half asleep, and realised I needed to go as well.
+I mumbled back, still half asleep, and realized I needed to go as well.
 
 We tiptoed out of the tent and made our way into the trees, grabbing our jackets and flashlights from our packs on the way.
 
