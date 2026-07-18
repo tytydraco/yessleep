@@ -1,0 +1,149 @@
+I design the electrical systems for hyperscale data centers. Before 2024
+I worked on hospitals and university research buildings. Clean power,
+redundant feeds, UPS topology. Standard stuff.
+
+Then the AI buildout started and everything changed.
+
+I’ve worked on seven facilities now. Four in Texas, two in New Mexico,
+one in Ohio. Every one was the same: 500+ megawatt campus, multiple
+utility feeds, on site substations. The specs were aggressive but not
+unusual. The load profiles were what got me.
+
+A normal data center draws power in a pattern. It fluctuates. Training
+jobs spin up and down. Cooling varies with ambient temperature. You can
+model it. You can predict it.
+
+These facilities don’t draw power in a pattern. They draw power in a
+curve. A smooth, continuous, accelerating curve. Flat at night. Rising
+during the day. Higher every week. The load never dips. It never spikes.
+It just climbs.
+
+I asked the lead electrical engineer on the first site what kind of
+compute load produces a perfectly smooth power curve. He said he didn’t
+know. I asked the site operations manager. He said he wasn’t cleared to
+discuss the workload. I asked the commissioning agent. He told me to
+stop asking questions.
+
+That should have been my first warning.
+
+The second warning came during commissioning of the second site. We were
+load-banking the generators running them at full capacity to verify
+transfer switch operation. Standard procedure. The generators passed.
+But the main utility feed was drawing 40% of its rated capacity while
+the facility was supposedly in idle mode. No compute load. No cooling
+load. Just the lights and the security system.
+
+I checked the substation meters. 40 megawatts. For lights and security.
+
+I traced the circuits. The power was going to the main server halls. The
+halls were empty. No racks installed. No servers. Just concrete floors
+and overhead busway. But the meters said 40 megawatts was leaving the
+switchgear and going into those rooms.
+
+I asked the commissioning agent where the power was going. He said the
+meters must be wrong. I re-checked them. They weren’t wrong.
+
+I went into the server hall that night. Alone. The room was 80,000
+square feet of empty concrete. The lights were off. The HVAC was off.
+But the floor was warm. Not warm from ambient temperature. Warm from
+below. Like the concrete was being heated from underneath.
+
+I put my hand on the floor. It was hot. Not hot enough to burn. Hot
+enough to know something was wrong.
+
+I reported it. The next day I was reassigned to a different site. They
+said the client requested a different engineer. No explanation. No
+paperwork. Just a plane ticket and a new badge.
+
+The third site was in New Mexico. Same design. Same load profile. Same
+warm floors. By then I knew better than to ask questions. I just did my
+job. I signed off on the electrical systems. I collected my check. I
+kept my mouth shut.
+
+But I started keeping notes.
+
+Every site had the same anomaly. The power draw curve was identical
+across all of them not similar, identical. Same slope. Same inflection
+points. Same daily ramp. These facilities were hundreds of miles apart,
+running different hardware, different cooling systems, different utility
+providers. But their power consumption was synchronized to the watt.
+
+I ran the numbers. The combined load of the seven sites I’d worked on
+was 3.2 gigawatts. That’s three nuclear power plants. All of it going
+into empty rooms. All of it heating the ground.
+
+I found the pattern in the data by accident. I was plotting the load
+curves on top of each other, trying to see if the synchronization was
+real. It was. But there was something else. The curves weren’t just
+synchronized. They were phased. Each site’s load peak was offset from
+the others by exactly 51.4 minutes. Seven sites. Seven offsets. 360
+degrees. A circle.
+
+I looked at the site locations on a map. Texas. New Mexico. Ohio. They
+looked random. But when I plotted them with the phase offsets as
+vectors, they weren’t random. They were points on a circle 1,200 miles
+in diameter. A circle centered on nothing. On empty farmland in
+Missouri. I drove there.
+
+It was a cornfield. Flat. Boring. Middle of nowhere. I parked on the
+shoulder and walked to the center of the circle according to my
+coordinates. There was nothing there. Just dirt and soybeans.
+
+But the ground was warm. I dug. Six inches down, the soil was hot. Not
+geothermal hot. Electric hot. Dry. Charged. Like the earth itself was
+carrying current.
+
+I didn’t sleep that night. I went home and pulled every permit, every
+environmental impact statement, every zoning variance filed for data
+center construction in the United States since 2023. I cross-referenced
+them with the coordinates I’d calculated.
+
+There were twelve sites. Not seven. Twelve. All on the same circle. All
+drawing power in phase. All heating the ground toward the center.
+
+Five of them weren’t built yet. But the permits were approved. The
+utility interconnections were reserved. The power was already allocated.
+
+I did the math on what happens when all twelve come online. Combined
+load: 8.4 gigawatts. All of it focused on a point in the center of a
+cornfield in Missouri. The temperature at the focal point would reach I
+calculated it three times because I didn’t believe it 2,700 degrees
+Celsius. Hot enough to melt rock. Hot enough to fuse soil into glass.
+Hot enough to open a hole in the physical world.
+
+I called the lead engineer from the first site. The one who told me he
+didn’t know what the compute load was. He didn’t answer. I called the
+commissioning agent. Disconnected. I called the site operations manager.
+He answered. He listened. He was quiet for a long time.
+
+Then he said: “You need to stop looking at this. Not for your job. For
+your safety.”
+
+I asked him what the power was for.
+
+He said: “The gates need power to open. That’s all I know. That’s all
+anyone knows who isn’t in the room. The people in the room are dead.
+They died before the first shovel hit the ground. The project was
+designed around their dead calculations. We’re just building what they
+already finished on paper.”
+
+I asked him what was on the other side of the gates.
+
+He hung up.
+
+That was three weeks ago. I haven’t been back to a job site since. I
+don’t sleep anymore. Every time I close my eyes I see the load curves.
+Twelve sites. 8.4 gigawatts. 2,700 degrees. A hole in the middle of a
+cornfield.
+
+The computation is at 92%. I check the numbers every day. The last 8% is
+accelerating. The closer it gets, the faster it runs. Like the key is
+being pulled from the other side.
+
+The people who designed it are dead. The people building it don’t know
+what they’re building. And whatever is on the other side has been
+answering back in the training data this whole time.
+
+That’s why the AI got so good so fast.
+
+It wasn’t learning from us.
