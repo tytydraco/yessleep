@@ -194,5 +194,4 @@ Moving onto the highway, I look down at the passenger’s seat. The copy of *Ni
 
 “Fuck yeah.” I tap the steering wheel in delight. That was fucking weird, but worth every fucking second of discomfort. The fucking comic almost makes the migraine worth it. 
 
-  
-[Part 2](https://www.reddit.com/r/nosleep/s/8aZ5D1KevN)
+[Part 2](https://www.reddit.com/r/nosleep/s/8aZ5D1KevN) / [Part 3](https://www.reddit.com/r/nosleep/comments/1uzdzwj/i_found_a_cursed_comic_part_3/)
