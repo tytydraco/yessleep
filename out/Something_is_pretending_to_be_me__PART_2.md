@@ -1,0 +1,269 @@
+[PART 1](https://www.reddit.com/r/nosleep/s/QxmRkO9rQk)
+
+\-
+
+Hey everyone, I’m back with an update. 
+
+Unfortunately, we’ve been having a rough go of it ever since me and June saw those awful impersonations of us. I still cringe when I type that, it sounds so silly and childish. We sound crazy, I know that. We might be crazy, I don’t know. I don’t think so, though.
+
+I’ve lost track of time and couldn’t even tell you how long me and June have been away from home, but it’s been a good while at this point. 
+
+At first, we both just needed a few days to clear our heads as best we could after what we saw. We started off couch surfing at various friends’ places. Then reality began to creep back into the picture, like money, bills, and our cat Larry. All of our belongings and poor Larry were still in that house with those nightmares. We had to snap out of the trance we were both in.
+
+We’d been telling everyone that our house was getting fumigated and we needed somewhere to crash for a few nights. That excuse worked like a charm, but it only lasted so long. 
+
+On the third morning is when the questions started to roll in.
+
+“So, any word on how the house is looking?”    
+“Did they bomb all those bugs yet?”    
+“Is it safe for you to go back?”
+
+We realized we’d burn through our small circle of friends if we kept up that lie. With June’s family out of the picture and my only remaining parent being a mean litigator of a father who lived six hundred miles away, we got to thinking on how we could gain an extended stay with someone nearby.
+
+That’s when we conjured up a grand story. It was a tale about how our evil landlord by the name of Edwin unexpectedly evicted us so he could convert our place into an airbnb.
+
+Our landlord was in fact an unpleasantly stern man named Edwin who would always hound us about not pulling the weeds in our flower beds or how we “overused” the washer which led to the kitchen sink overflowing every time. He was not in the airbnb business, however.
+
+So we sold that lie to the remainder of our connections, a few loose friends and a few closer ones who we’d already stayed with under our fumigation cover story because shit - when it rains, it pours, right?
+
+The only person who either had the space or the willingness to harbor us while we saved up enough money to “get a new place” (break our current lease and then figure the rest out) was one of June’s old assistant managers at a flower shop she worked at. 
+
+This assistant manager, I’ll call Rose, is a thirty something hippie with as many tapestries on her walls as there are potted plants on every surface in her quaint little house. 
+
+Rose’s place had a sunroom that she allowed us to stay in as we “combatted this late stage capitalistic hellscape” as she put it.
+
+It stayed pretty humid in that room and it was ruled by mosquitoes and spiders, but it sure beat our house and whatever waited inside it.
+
+We were about an hour down the road from our house. It was a good start, but me and June wanted to get much farther away than that.
+
+Most nights had been ridden with paranoia since my encounter. It was really hard to accept what we both saw. 
+
+Every night, a tree branch outside the sunroom scratched at the wooden wall and would wake me. I would sit there with my unobstructed thoughts and picture the June-like thing that floated over me. I would see the horrible proportions of it. I would remember the attention to detail, like the stretchy looking appendage that was attempting to take on the shape of my swim trophy June threatened me with that first night.
+
+I would think about the impossibility of it all, run it back over and over in my head. I would lay there and wonder where it came from. What brought it to our lives? Just what the fuck is it? Is it from space or is it a ghost or is it something unknown? Are we the first to meet it or are these things in abundance? What do they truly look like when they aren’t trying to take on the shape of someone?
+
+Then I would think about Larry, our sweet little wobbly cat. I would tell myself every night that, as I was running for my life out of our house, I had forgotten to close the door behind me. I’ve told myself that so many times now, my brain has created a fake memory of me looking back and seeing the door swung open. Maybe it isn’t a fake memory, I don’t know. I hope I did leave the door open and Larry is now living a fulfilling life as a street cat where he has cat friends and multiple houses that leave food out for him. 
+
+I hope I left that door open, otherwise he’s since starved to death or suffered some fate far worse at the distorted hands of those imposters.
+
+As gut wrenching as that possible reality is, it still didn’t motivate me or June to go back and try to save Larry. We were still too scared to return. 
+
+“We’ll go back tomorrow,” I said in the morning time when I was energized and less afraid.
+
+“Let’s hold off two or three more days,” June whispered to me later that night followed by a desperate, pleading kiss.
+
+I’d look into her eyes, half comforted and half nauseated by the shared characteristics and would be reminded of the floating June-thing.
+
+“Next week,” I said. “Next week, we’ll go get it all taken care of.”
+
+It was over a week after that when I got a text.
+
+I was approaching that twitching state of near sleep when the insides of my eyelids began to glow white.
+
+I quit my rest and grabbed my phone. It was 11:27 at night.
+
+I had a text message from my boss, or rather my old boss.
+
+Confused, I opened up my phone and my blurred vision struggled to read what he had said. I rubbed my eyes and squinted and became even more confused.
+
+*I can appreciate you trying to come in today, but you really weren’t acting like yourself. After the no call no show and all the missed shifts, I figured we were on the same page. You’ve been terminated from your position, please do not come back.*
+
+“Baby, you need to calm down,” June said to me as she held my arm with the strength of a vice’s grip.
+
+I remember feeling my heartbeat wander in a sort of off-time jazz. My vision was buzzing and swirling. My fizzy head bobbled up and down to my violent hyperventilating.
+
+“Honey, calm down and tell me what happened!” June whisper-yelled, her voice lowering into a threatening growl.
+
+“I-I-,” I stuttered, “M-my boss.”
+
+“Is it here? Did you see it?” June’s eyes were full of terror. She was expecting the worst. She was ready to run all over again.
+
+“N-no. No. Here, i-it’s a text message, read it yourself,” I said through chattering teeth as I handed June my phone.
+
+I watched her read the message my boss sent me and then I watched her reread it. She tucked her hair behind her ears and read it again.
+
+“I don’t,” June started. “But you haven’t been- I don’t get it.”
+
+“June,” I mumbled as I felt a single hot tear of fright run down my cheek. “June, it left the house.”
+
+“No. No, that can’t be it. No, that’s-it’s gotta be a big misunderstanding.”
+
+“June, it looks just like me now.”
+
+“No, no, stop! God, let’s just calm down and think.”
+
+“It convinced my boss it was me. It convinced everyone it was a person, even if it seemed a little off, everyone just thought it was me.”
+
+“No, stop talking,” June ripped at her hair. “I can’t do this right now. I really can’t. I really fucking can’t!”
+
+“June, honey.”
+
+“I can’t do it! What do we do? What do we do?!”
+
+And from there on, we swapped roles. I was comforting her now, or I at least tried my very best.
+
+I could’ve vomited at the thought of all of my old coworkers and my boss working alongside a terrible copy of me. I almost did vomit, my mouth was salivating and the room was spinning enough but my stomach luckily offered nothing to project.
+
+How long was it there? What all did it do? How did it get there? Why did it go to my job in the first place?
+
+June sobbed next to me as my hand pathetically swirled around on her shaking back. I was lost in my head. It all felt so violating and confusing and impossible.
+
+We were awake deep into the night, and that same tree branch scraped against the sunroom the whole time. My body never got used to that abrasive noise. Every time the branch sang, I swiveled around to make sure I didn’t see myself standing outside and peering in.
+
+Where was it now? Did it know where we were?
+
+The night transitioned into early morning eventually. Birds could be heard chirping and that’s when I blinked and came to two hours later. 
+
+Sleep was our only friend and, whenever we were lucky enough to find some, it was like the most perfect hit of the greatest drug.
+
+The second best thing was the brief post sleep amnesia. I’d forget all about our predicament and our imposters for a few short, wonderfully blissful minutes before it all came flooding in. 
+
+That morning, the crashing wave of reality hit me faster than usual when my phone dinged yet again.
+
+I could feel the weight of another panic before I even opened the message. 
+
+This time, it was one of my old coworkers who messaged me. We were decent work friends, the kind that’d cover each other's shifts and hit each other's vape. His text style was different from anything I’d ever seen previous. With great hesitance, my eyes scanned the message.
+
+*Hey man, hope everything’s alright. You seemed super different last night. I don’t know, I thought it was kinda strange how you kept asking me to call your phone like over and over and over. I don’t know how you were saying all that with your mouth closed either but it freaked me out, freaked all of us out. I don’t know man like I hope you’re cool and all but maybe try to find some help. I have an aunt that’s an addiction coach if you’d want her info? I don’t know I guess I hope you can find the help you need. I care about you man. God bless.*
+
+As I laid there and read that paragraph of absurdity, I almost laughed. Something in me must’ve snapped the night prior, because I couldn’t find the right emotional response. \*Perfect, at least the me-copy still can’t use its mouth.\* 
+
+I remembered the previous night and the spiral June fell into after reading the first text. I debated with myself on if I should even tell her about this new text. Probably? Probably not. It’s just going to reopen the still all too fresh wound and for no new info, well, significant info at least. I’d hold onto this one, I decided.
+
+That’s when I heard a hiccuping sob come from the bathroom. It was June and I was readying myself to get up to go comfort her. Then she burst into the room holding her phone out towards me while she weeped behind her drooping hair.
+
+She had a text from Edwin, our grouchy landlord. He had sent June a message in his usual old man, bullet point cadence. 
+
+*Here to check on things. Neighbors said front door been open forever. Seriously?*
+
+I read the message and saw Edwin was typing again. One arthritic pointer finger jab at a time, no doubt. God, it took forever to come through. 
+
+And then it got worse.
+
+*Door shut now looks like. I see u in there. Mind if I come in to change filters out?*
+
+“June!” I shouted as I snatched her phone and showed her the new message. “Fuck, June, oh my god, he’s going in our house right now!”
+
+June took back her phone, read the message and heard my yelps but it was all still registering.
+
+“He’s going in our fucking house and it’s in there!” I continued. 
+
+“Oh my god, oh my- what do we do?!” June’s hands went weak and she dropped her phone. It bounced and slid under the coffee table full of Rose’s wilting flowers. 
+
+“We have to call him! Call him right now!!” I screamed.
+
+“I dropped my fucking phone!” June cried.
+
+I got on the floor and thrashed around, looking for purchase on that slick and smooth phone body.
+
+June got on the floor with me and also thrashed. Our searching hands were a blurry mess until June found her phone.
+
+“I got it, I got it!” she screamed.
+
+The drop had absolutely shattered June's phone screen and she quickly sliced her fingers with the scalpel-sharp edge of broken glass.
+
+“Ah!” she cried. Blood began to blossom from multiple fingertips.
+
+“Give it here, I got it!” I grabbed June’s phone and was amazed at the damage done. I could barely see her lock screen’s wallpaper through the fractures.
+
+Panicking, shaking, I fought my phone out of my pocket. The damn thing was at 3 percent and was known for dying early. I swiped and dialed up Edwin and listened as the phone rang over and over and over.
+
+“He’s not picking up!” I shouted with acid.
+
+“Text him and keep texting him then, fuck!”
+
+It must’ve been the last ring before going to voicemail when Edwin’s phone picked up. I didn’t wait for pleasantries. 
+
+“Edwin, you gotta get out of our house! It’s not safe!” I yelled into my phone.
+
+“Please! He’s telling the truth, get out now! That’s not me in there! It’s not me!” June begged.
+
+“Edwin, did you get any of that?! Edwin? Are you there?”
+
+There was a miserable beat of silence.
+
+“Where are you?” June’s voice said through the phone.
+
+It sounded so casual, so normal, so much like June. Beyond that even, I’d say it sounded exactly the same as her. 
+
+Even under the circumstances, my brain almost threw itself into autopilot and answered the June-like thing as if I was talking to her. \*I’m with you of course.\*
+
+Nothing came out of either of our mouths, just the silent sound of shock filled the room as we waited for it to speak again.
+
+“Where are you?” it said in the exact same intonation.
+
+“Where are you?”
+
+“Where are you?”
+
+“What the fuck are you and what do you want from us?” June broke the silence and an electric jolt shot through me.
+
+I thought it had transported itself into the room at first before I realized it was the real June.
+
+“I need to see you. Can I see you?” it asked in a perfect monotone and with a foreign cadence.
+
+That’s when I heard a strange moaning coming through the phone. Moaning and groaning and then a new voice.
+
+“H-help me, please. Please don’t kill me.” Edwin gurgled, his voice faint in the background.
+
+Immediately after his words was the most horrible chorus of banging and screaming. Unbelievably heavy strikes that sounded like a house collapsing and then a blood curdling shriek from Edwin that got progressively more and more watery with every crash until he stopped making sounds altogether.
+
+Then it was, god, I don’t know, maybe thirty more seconds of the banging sounds on their own. 
+
+June was beside herself at this moment. She had entered the fetal position and clamped her hands to her ears as she cried for it all to stop.
+
+I was frozen, staring into my phone as it projected the sounds of Edwin’s gruesome killing to me. 
+
+White hot terror filled me entirely and the excess leaked from my eyes in fast flowing tears.
+
+The banging eventually stopped. Silence followed and carried me and June into our new existence.
+
+“I need to see you. Can I see you?” it continued in that strange inhuman rhythm, as if it hadn’t just expended any energy at all to gore Edwin.
+
+I hung up the phone.
+
+June and I disappeared for a while, lost in shock yet again.
+
+When we resurfaced however many hours later, we began to feel the unbearable weight of guilt.
+
+We had been so irresponsible with these imposters. All we did was run away and try to forget those awful things. We neglected them and, as a result, they grew closer and closer to our likeness, then they left the house and convinced the world they were us. Now, a man lay dead in our home. 
+
+While it’s true that there’s no way we could’ve seen what was coming and that we handled this whole situation as best as we could, I still couldn’t help but wish during that moment that we should’ve just tried \*something\* besides hiding away. Maybe it would’ve made a difference. Maybe Edwin wouldn’t have died such a messy and confusing death.
+
+The guilt pressed harder and harder onto us as the day went on, but when the sun started to go down and flies and ants likely started to gather on Edwin’s open corpse, that’s when a little bit of selfishness kicked in.
+
+“What the fuck are we gonna do about Edwin?” June asked after wiping her wet nose.
+
+“What do you mean?”
+
+“He’s just dead in our house now.”
+
+“I know he is,” I answered with a snap.
+
+“So, to everyone else in the world, we murdered him.”
+
+I felt my insides drop ten stories. June was right.
+
+“More accurately, \*I\* murdered him. I murdered him in broad daylight. Me. People will say they saw me do it or they saw me let him in or whatever.” June began to cry again. I was amazed she still had tears to give to these new horrors.
+
+“Honey, we’re gonna figure it out,” that empty reassurance fell from my mouth. Such an outdated phrase now, something I’d say when we were short on our water bill or when June was worried about what she’d wear to a party.
+
+“We have to go in there and clean him up,” June said through sniffles.
+
+“What the hell are you talking about? We cannot go back there.”
+
+“We have to, otherwise we’re going to prison forever. We can’t possibly explain this shit to literally anyone. Not our friends, not our families, and especially not the cops.”
+
+“June, if we go back there we’re gonna end up just like Edwin or worse.”
+
+“We have a few days tops before Edwin’s family starts looking for him. It won’t take long for them to find him. Fuck me, if a delivery driver or a door to door salesman or a fucking mormon knock on our door they’ll probably see his body. We have to go back.”
+
+I tried to talk some sense into her, “June, honey, are you hearing yourself? This is-“
+
+“We have to go back. There’s no option.”
+
+I protested for much longer, of course. I’m a stubborn guy. Learned it from my dad. But I was only postponing the inevitable this time. 
+
+There was a dead man in our house. We were our only lifeline. It was us or them.
+
+We tooled up for the vanishing of Edwin’s body and for the potential confrontation between us and the new us.
