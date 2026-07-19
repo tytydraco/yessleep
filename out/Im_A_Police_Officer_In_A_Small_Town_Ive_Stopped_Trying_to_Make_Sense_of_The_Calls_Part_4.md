@@ -4,13 +4,13 @@
 
 [Part 3](https://www.reddit.com/r/nosleep/s/49PMJn1kkd)
 
-I’ve seen a few people asking if there are any other residents in this town. Unfortunately the answer to that is, yes. There were residents but I truly wish I had never crossed paths with any of them. 
+I’ve seen a few people asking if there are any other residents in this town. Unfortunately the answer to that is, yes. There were residents but I truly wish I had never crossed paths with any of them.
 
-As wild as it sounds my work schedule became routine to me. One night I arrived at work ready to start my shift. I made my way to the Sergeant’s office to see where my keys would be hiding that day. I grabbed the note from the door and it read, “Go home, you are working the morning shift tomorrow, you need some rest.” 
+As wild as it sounds my work schedule became routine to me. One night I arrived at work ready to start my shift. I made my way to the Sergeant’s office to see where my keys would be hiding that day. I grabbed the note from the door and it read, “Go home, you are working the morning shift tomorrow, you need some rest.”
 
 I didn’t bother questioning it. I didn’t bother looking for Steve. I just left and came back for the morning shift at 6am. I don’t know what I was expecting but in a weird way I hoped that the morning shift would be different. Maybe there would be somebody at the precinct, maybe I would see another car on the road. At first everything was the same. No one around. Just me and the stupid note.
 
-Surprisingly the patrol car keys were hanging on the Sergeant’s office door. The note underneath was something that I didn’t see coming. It was almost…encouraging? 
+Surprisingly the patrol car keys were hanging on the Sergeant’s office door. The note underneath was something that I didn’t see coming. It was almost…encouraging?
 
 “Cars parked out back, your rookie is waiting in the passenger seat. Go out there, show him the ropes, and make a good impression.”
 
@@ -18,7 +18,7 @@ My rookie? No. No chance was somebody else going to be working here, let alone a
 
 I reluctantly made my way to the car and wouldn’t you know it there he was. A bright shiny rookie for me to mold. Great.
 
-Before I even got to the driver’s side door the rookie was out of the car standing at attention. 
+Before I even got to the driver’s side door the rookie was out of the car standing at attention.
 
 “Uhh, goo good morning sir.”
 
@@ -36,7 +36,7 @@ Alright, this was going to be annoying.
 
 I began driving around the town slowly and pointing things out to Ian as best I could. I showed him where the closest gas station was, I showed him the abandoned building with the demonic entity inside, I showed him the fastest route out of the town, just in case of course.
 
-Ian was sitting there writing things down in his little note pad, trying to get a grasp of what this place was. 
+Ian was sitting there writing things down in his little note pad, trying to get a grasp of what this place was.
 
 “Chris, can I ask you a question?”
 
@@ -108,7 +108,7 @@ I’m not going to describe the screaming. I’ve heard people scream on this jo
 
 I keyed my radio. “Dispatch, Unit 1, I need immediate backup at this address, officer in distress, I need everybody you’ve got.”
 
-Dispatch came back before I finished the sentence. Calm. 
+Dispatch came back before I finished the sentence. Calm.
 
 They’re always calm.
 
@@ -132,18 +132,20 @@ The radio crackled.
 
 I drove away.
 
-I drove away and didn’t look back. I did what I was told to do. I did what dispatch wanted. And I was told dispatch is here to protect me. I didn’t feel protected. No. I felt horrible. I felt the lowest a human being could feel. I didn’t know Ian. I never really got the chance to. I let him go and as much as that wasn’t MY choice. It felt like it was. 
+I drove away and didn’t look back. I did what I was told to do. I did what dispatch wanted. And I was told dispatch is here to protect me. I didn’t feel protected. No. I felt horrible. I felt the lowest a human being could feel. I didn’t know Ian. I never really got the chance to. I let him go and as much as that wasn’t MY choice. It felt like it was.
 
 I got back to the precinct and felt nothing. I was emotionally drained with no one to talk to. Before I could even process what had happened there was one more note on the door of the office.
 
 “Mention this to no one. Ian will not be forgotten and his family will be taken care of. Ease your mind, there is nothing you could have done. He was gone the moment you stepped foot inside.”
 
-Thinking about Ian is tough for me. I regret the decision dispatch made. 
+Thinking about Ian is tough for me. I regret the decision dispatch made.
 
 Oh fuck it.
 
-I regret the decision I made. I could’ve done something. I should’ve done something. 
+I regret the decision I made. I could’ve done something. I should’ve done something.
 
-There’s more to tell. My stories aren’t done just yet. The more that happened in this town, the more questions I had. 
+There’s more to tell. My stories aren’t done just yet. The more that happened in this town, the more questions I had.
 
 I’ve stopped expecting answers. But that doesn’t mean I stopped asking.
+
+[Part 5](https://www.reddit.com/r/nosleep/s/RIDnsVb7kU)
