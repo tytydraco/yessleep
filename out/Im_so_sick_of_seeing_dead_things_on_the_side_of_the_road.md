@@ -1,0 +1,23 @@
+Ever since getting out of high school, roughly ten years now, I've been doing driving jobs. Don't think long haul trucker, think courier. My most common jobs involve picking up medical related packages (vet samples, medications, prescriptions) and delivering them to vets, nursing homes, and hospices. The work is fairly consistent but taxing. Think of everything you hate about traffic and make it your nine to five. That's why I take night routes; less traffic and often better pay. 
+
+I wouldn't take these jobs if it weren't for the pay, which is good. The problem is that it's your car, you pay for gas, and you deal with any maintenance. I have to get oil changes every month on the dot and every car I've had wore the scars of the trade. The scars you tend not to hear about are the mental ones. Imagine driving for ten hours a day, every night for 5 days in a row. Every night you end up deep in the pitch black boonies, at the mercy of nature and crumbling rural infrastructure. The thing that truly gnaws at me is the nature side of it.
+
+If you've ever driven through rural Michigan, you've had encounters with wildlife. Skunks, racoons, possums, the occasional cat, and most importantly deer. Every michigander knows to look for eyes in the ditches when driving at night. A full grown deer may be made of meat, but it may as well be made of bricks when you hit one. There's more than one reason those roads are full of douchebags in big pickup trucks with enough aftermarket lights to blind God. 
+
+However, the more encounters you have with wildlife the more chances you have to hit something. I hate it  every time, but sometimes the critters move faster than you can react. I mourn every possum I've hit. The worst part of this reality is what gets left behind. I've seen corpses that resemble something out of a horror movie. Most critters get flattened and leave a corpse that resembles litter more than an ended life. Some though, they splatter. I don't think I've gone a day in the last year where I haven't seen a pile of torn up meat on the road. It looks almost like hamburger, a reminder that something died right there in a cruel terminal impact.
+
+The worst however are the deer.
+
+Deer have the widest variety I've seen in bodies left behind after an accident. They can often take a hit. The majority take the impact and get thrown to the side of the road, intact on the outside until the rot causes them to pop open. A twisted mass of limbs surrounding a blackened core. I once saw a dead deer on a sidewalk slowly decompose and flatten into dust over the corpse of a couple months. The second week was the worst.
+
+Some of them get hamburger'd, but the size of the creature results in a large pile of meat on the road with a limb sticking out. Sometimes though, the deer get dragged. You'll be driving down an empty highway at night and see a massive bloodstain running down the road. You see them often enough that you can try to ignore them, but some stick out. I once saw a massive bloodstain that trailed for forty feet before swerving hard to the right. I'm talking about a perfect 90 degree angle, heading right into the forest. No force on earth could convince me to follow that trail.
+
+There are a couple that I'll never forget.
+
+One time (a month ago) I saw a dead deer on the road, fresh. It was laying on its side, its back pointed in my direction. The head... Its neck had been snapped backwards so that its chin was resting on its back and its eyes were staring into mine. Scared the hell out of me. The worst one I ever saw was nearly ten years ago and it baffled me as much as it scared me. 
+
+I was out in the proper sticks; no street lights, just the highway. It was sometime around 2 in the morning, black as ink. What I saw next took place in a split second, but I remember it clearly. I saw something resembling a crumpled up brown tarp on the side of the road. What I saw next, I could only reason it out one way. What I believe happened was that a deer had been hit by a truck and instead of splattering, it rolled along the highway at high speed. That wasn't a tarp. Stretched across the road like a horrible slug was the skinless body of a deer. I'll never forget those empty sockets staring at me. 
+
+Thankfully, it's been long enough that the fine detail has blurred in my memories. Those eyes don't haunt me like they used to. I thank God that they gave me a poor memory, but I don't think I'll ever forgive them for giving me those memories in the first place.
+
+I'm so sick of seeing dead things on the side of the road.
