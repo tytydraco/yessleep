@@ -1,0 +1,439 @@
+She was my anchor, the one who kept me steady in the raging sea my life became once I arrived in Santa Lorena.
+
+But anchors, to hold you still, have to sink first.
+
+I was nine, in the middle of fourth grade, when my parents moved us to Santa Lorena.
+
+I'm thirty-five now. I've spent most of the twenty-six years since cradled by my own personal demon, and it ate my memory one bite at a time, night after night, until nothing was left of my freshman year of high school but half a dozen scattered scenes, unhooked from each other like photographs that fell out of a photo album someone forgot in my childhood home, back in the town where I grew up.
+
+What I remember most clearly from that time, the one thing alcohol never managed to touch, is a drape of black hair, and two eyes I judged, at nine, to be gems. Today I'd call them something closer to two stones worn smooth by pond water.
+
+She used to visit me in that narrow gap between my pupils going dim and my eyelids sealing shut with the glue of alcoholic sleep. A sleep that burns, sweat tasting like the same poison already filling my body.
+
+My brain doesn't resemble the pumice stone I used to imagine I had in my skull as a boy anymore, gray, porous, just worn down by time and drinking. It's turned into a sheet of water instead. Every so often I feel a distant vibration, the jolt of some memory trying to resurface, and the water ripples around it before it even reaches me, swallowing it the way a water strider snatches a fly off the surface. I used to watch them do it at the pond, when I was a kid.
+
+Until not long ago, I assumed alcohol was the predator living in that pond.
+
+That evening I was carrying my weekly ration of peace, a ritual grown, over the years, precise enough to feel liturgical. Beer, the kind that trades taste for five or six extra points of alcohol over the decent stuff. Whiskey, for the worst nights. Table wine, to force down whatever little food I could get past my throat without bringing it back up. Three different armies for three different battles. Always the same three.
+
+It was an inheritance.
+
+That's when I looked up and saw a woman watching me.
+
+I prayed the years and the alcohol had wiped my face from her memory. No such luck.
+
+She said my name.
+
+I hadn't heard it spoken in so long I had to fight to stay on my feet. The world folded like cheap origami, false perspective on white paper, and tears started working their way through a skull hot with shame.
+
+"Hey…" I managed, then stalled, digging through my mind for a name I couldn't find.
+
+"How's it going?" she said, saving me. "How long has it been?"
+
+"Twenty? Twenty-three years? Unbelievable you even recognized me."
+
+"You throwing a party?" she asked, laughing, eyeing the weight in my arms.
+
+"Guilty." I smiled. My mouth tasted bitter.
+
+We each paid for our own and walked out together, like it was the most natural thing in the world, like twenty-three years were nothing more than a particularly long red light.
+
+"Here. Want to walk with me?" I offered her a beer. On the first sip her eyebrows knit at the sourness.
+
+"Sorry , cheap stuff. Guess this party doesn't deserve anything that actually costs money," I said, fishing for credit on an excuse that didn't deserve any.
+
+Her eyes dropped to the rest of what was in the bag.
+
+We walked and talked for a long time. Santa Lorena, the town festivals, school.
+
+I felt like a ghost standing next to someone who remembered me, while all I had of her was a blurred face and an empty bubble where a name should've been.
+
+"I think I've heard your voice more tonight than in three years of school," she said at one point, with a curious smile.
+
+"Hey, Anna!" A man called out, passing by, nodding at me too.
+
+Anna. Now I had her name. I had to hold onto it.
+
+"Dolly definitely heard your voice a lot more than anyone else in class," Anna added, and that word, that name, went straight through me.
+
+Dolly.
+
+I turned to the man from before, desperate and awkward in equal measure. "How do you know him?"
+
+"He works with me. Office downtown."
+
+"You live here?" Maybe with a little too much enthusiasm.
+
+"Pretty close, actually. Not for long, though." She laughed.
+
+I lived nearby too. I wondered if I'd already crossed paths with her without knowing it, her face made anonymous by the same fog that had erased everything else.
+
+"Dolly…" I stared at the beer and swallowed it, wishing it were the whiskey in the bag. "I wish she'd finished school with us."
+
+"That she'd kept going to," I stopped.
+
+Why had my mind killed her name?
+
+"You know the reason she stopped coming wasn't what people said back then, right?" Anna said, pulling me back to the surface.
+
+"Reason?" I blinked, trying to stay lucid. "Sorry, Anna, I don't remember much from that time. It's been a long time."
+
+She sat down on a bench in a park we were crossing half-blind, and patted the space beside her, twice, gently.
+
+"Give me another one?" She nodded at the bag.
+
+We spent too long that night talking, and I tied everything I managed to recover to that one name, Dolly, half-hoping the alcohol would rip it away from me again before dawn.
+
+"It's the kids' fault," Anna said. "Or really, the parents'. You know they said her mom and dad were splitting up?"
+
+I remembered that now , it's why Dolly and I got even closer, the summer after fifth grade ended.
+
+"But they really did split," I said. "Her dad stopped picking her up. Wasn't seen around town anymore. Even closed his car wash."
+
+"But they hadn't split up." She cut in. "You remember the white robes?"
+
+"Those weirdos who did shows in the square? Sid was the son of one of them , couldn't even use the computer during lab period. Always wore that stupid bulky necklace." I smiled.
+
+"They were obsessed with the history of the place more than anything. You know , the natives. The Pierrè family, the principal's family, claimed they were direct descendants, but it was all mixed up with New Age nonsense. Crystals, astrology. They put on shows, weren't allowed to use technology on certain occasions. I looked into it once, a while back. Nostalgia, maybe."
+
+"One of the last times I went to Dolly's house," she went on, "her dad was in a hurry, and," She stopped.
+
+"Wait, what about your party?"
+
+"It can start without me." My hand drifted toward the whiskey on its own, then corrected course toward another beer. I'd need the whiskey at home, later.
+
+"That day I'm sure I saw one of their robes." Anna's voice had gone cold, distant. "Her father was pacing through the rooms. Had one hanging in the bedroom."
+
+"And when he was about to leave, suitcase and all , you could see the love between them. They weren't a couple that wanted to split up."
+
+"They did it for her," I said, bitterness climbing my throat. "So she wouldn't understand any of it."
+
+"So what's the robe got to do with anything? Was he leaving for some seminar, with those people?"
+
+"Exactly. Maybe for some process tied to the Entry…"
+
+I cut her off. "If Dolly had known he was coming back, she wouldn't have done , that thing."
+
+"I found her," I said. "You know that."
+
+I hadn't seen those images in so long. I wanted to disappear.
+
+"Her dad left at the start of summer, and at the pond she used to tell me he'd gone to find her a star," I said, nails digging into my palms. "I don't know if he told her that as an excuse, or if it was just one of Dolly's stories."
+
+"We talked a lot, but never in a way that touched reality. For her it was all one big fairy tale." My chest tightened at the memory of those stories , fairies in the reeds, centaurs in castles red as sunsets, a purple cyclops.
+
+"That fall she told me her father would come back to give her his star. That she'd become the princess of the pond." I was openly crying by then. "And then she disappeared."
+
+It was winter. The search parties didn't find much , one of the first places they checked was the pond itself. That's why, come summer, they moved out to the countryside.
+
+"And when I went back to the pond, at the start of summer, she was there."
+
+I picked up the whiskey and opened it, pouring as much as I could manage into my feverish, boiling mind. The image of Dolly's body, the police tape, the whole town gathered around the water , all of it dissolved, the way it always did.
+
+I realized I wasn't alone. Anna had a hand on my shoulder.
+
+"I'm , I'm sorry," she said.
+
+  
+
+
+I didn't hear from her again for three weeks. I had a number saved in my phone under "Anna Santa Lorena," as if the name by itself wasn't enough to fix her in my memory , like I needed a tag hung around the neck of a memory I was afraid of losing twice.
+
+She texted first.
+
+She didn't ask how I was doing.
+
+We met at a coffee shop in the city, over a coffee I stretched with a splash of vodka from my flask. She pretended not to notice, and set a yellowed plastic bag down on the table, between the cups. Inside: a necklace. Iron blackened by time, and three dull stones, gray as pumice , the same stone I'd learned to hate inside my own skull. My breath caught in my throat.
+
+"I kept it for twenty-three years," she said. "Found it near the pond that morning. Didn't tell you because I liked it, wanted to keep it for myself. You know how I was."
+
+"We were together that morning?" Of course we were together. I could see it now.
+
+How had I talked that way on the bench, that night, as if she hadn't seen the same things? It was Anna.
+
+"Relax. I don't remember some of the details clearly either. We were kids." She put her hand over mine, like she was trying to stop the shaking.
+
+I handled that myself, with a generous swallow of spiked coffee.
+
+I took the necklace between my fingers. It was cold in a strange way, like it refused the warmth of my hands on principle. Three stones.
+
+"You know what's always bugged me?" Anna looked out the window. "I've never stopped thinking about it, all these years. Couldn't figure out why. I read everything I could find on that town , articles, forgotten anthropology theses buried in university libraries, some blog by a guy who claimed he escaped the cult back in the eighties. I never did it for Dolly. Or at least, I didn't think I was."
+
+"Who, then?"
+
+She didn't answer right away. "I don't know. Like something kept tugging my sleeve every time I was about to quit looking."
+
+I didn't think much of that, at the time. I was too busy staring at the necklace, wondering why holding it made some specific weight shift behind my sternum, like a door easing open a crack , not enough to see what's behind it, just enough to feel the different air coming through.
+
+"There's more." Anna pulled a grainy photocopy from her bag , a local paper. MISSING GIRL'S BODY FOUND IN JANUARY. Below it, in lines time had nearly erased, a line the reporter had thrown in for the scoop, with no idea how much it would mean to me and Anna: authorities hadn't ruled out other causes; the medical examiner found no fluid in the lungs, a result considered incompatible with accidental drowning but consistent, per unnamed sources, with prolonged exposure to freezing water.
+
+"She didn't drown?" I said, quiet.
+
+I finished the coffee in one gulp, the bitter dregs scraping my throat.
+
+"We have to go back." I surprised myself with how fast I decided that, like some part of me had been waiting twenty-three years for that one sentence. "I need to say goodbye to her properly. You understand?"
+
+Anna nodded, and for the first time since I'd seen her again I noticed how tired she looked. Not one-evening tired. The kind that piles up in silence, drop by drop, over two decades.
+
+What I didn't tell her that night was that I'd already started to feel it: the distant vibration of a ripple in the murky water of my mind, spreading somewhere behind my temples, like something, for the first time in twenty-three years, had started searching instead of just eating.
+
+  
+
+
+We left the following Saturday. I drove, needing my hands occupied with something other than a glass, while she stayed quiet, watching the countryside through the window grow more familiar and more foreign with every mile.
+
+Santa Lorena isn't on the way to anywhere. You only get there if you go looking for it, tucked into a fold between hills. The sign at the entrance had lost half its letters to rain; it still read WELCOME TO SANTA LORENA, and underneath, almost gone, "Yochtou Archaeological Site." A memory of some history lesson surfaced. I smiled, thinking of the few friends I'd had.
+
+The houses were the same, just lower. Or maybe I'd just grown enough that I didn't have to look up anymore to see them whole. The main square, where I vaguely remembered stalls and lights and a band playing, sat empty except for three old men on a bench who watched us pass without turning their heads , just their eyes, like we were a weather event to be watched with caution.
+
+Dolly's father's car wash was still there, or what was left of it. A faded sign, ELIYAH'S CAR WASH, the name still legible, the rest eaten by rust. The garage doors were shut with a rusted chain, and through the dirty glass you could still make out buckets and brushes hanging on the wall like relics.
+
+I stopped and looked at it longer than I meant to.
+
+"Eliyah," I said quietly, tasting the name. Another piece coming back. Another memory the water strider hadn't gotten to, and with it a certainty, growing colder by the second, that Anna hadn't just handed me back memories that night in the park. She was handing me back myself, one fragment at a time, and I wasn't sure anymore I wanted all of it.
+
+Anna noticed the flyers first, stuck crooked on the closed storefronts. ORIGINS FESTIVAL , AUGUST 14. Underneath, a stylized drawing of three stones and a wavy line I should've recognized as pond water, if my head hadn't been somewhere else entirely. Twelve days left.
+
+"They still do the festival," Anna said, somewhere between disbelief and homesickness.
+
+"Course they do." I answered. "A town like this never stops celebrating the one thing that makes it even a little special." I felt some nostalgia myself, thinking of my own summer evenings.
+
+An old woman sat in the shade of the church porch, a basket of figs in her lap that she didn't seem interested in selling to anyone, and as our shadows crossed her she said, without looking up, "Waiting on the Return?"
+
+I turned, and something in that weathered face registered , not a name, names by then I had to rebuild stone by porous stone, but a feeling, a tone of voice my body still knew even after my mind had given up on it.
+
+"The Return?" Anna asked.
+
+The old woman finally looked up, and there was a story in that look.
+
+Another school memory surfaced. A story shaped by the town's legends.
+
+"Every twenty-three years the Star comes close enough to see. The church called it the Devil of Santa Lorena, three centuries back. The papers, in the seventies, called it the Santa Lorena Light. A weather phenomenon."
+
+"This year?" My voice betrayed how much I already dreaded the answer.
+
+"This year, whoever's left dances." Her eyes settled on me with an attention that made me feel naked.
+
+She stood, gathered her basket, and before walking off said one more thing, aimed not at me but at Anna, like she knew I was the one who wouldn't be able to take it. "Young lady , you remember the Palier boy? Sid, was it? Only one in that family who dropped out of school."
+
+She left us alone in the empty square, three old men still watching, and a gust of wind moved through that, I swear, ran the wrong way through the leaves.
+
+Anna looked at me.
+
+I just took her hand. First time I'd touched someone with the intention of staying anchored, not just to keep myself upright.
+
+  
+
+
+Sid lived at the edge of town, in a house that seemed to have pulled away from the rest of Santa Lorena about as far as he'd pulled away from his family. No curtains on the windows. No mirrors, I noticed later, in any room I saw.
+
+It took him a few minutes to decide to open the door, and when he finally did, his first glance wasn't at me or Anna , it went to the sky above our heads, like he was checking something before letting us in.
+
+"Didn't think any of you kids would come back," he said.
+
+I barely recognized, in him, the boy with the iron necklace who used to sit alone in the computer lab, off from everyone else.
+
+He sat us down, offered coffee neither of us touched, and when we showed him the necklace, what color he had left drained out of his face.
+
+"Where'd you get that?"
+
+"Near the pond. The day they found Dolly," Anna said.
+
+Sid closed his eyes. "So it's true. Someone got there before the search team. It was you two. I couldn't go out that day."
+
+He took his time starting, and when he did, his voice belonged to a man reciting a prayer he no longer believes, one he still remembers every word of anyway.
+
+"My grandfather used to say the Star always comes back. Every twenty-three," he glanced at the ceiling, ",twenty-three."
+
+"Since before the valley had a name. Before us, before the first settlers, there were already people waiting on that bank. They called it the Guest. In their language."
+
+"A guest , like someone who knocks at the wrong hour, and out of politeness, or fear, you can't leave outside."
+
+He got up and pulled three beers from the fridge. My throat went dry all at once. I hadn't thought about drinking since we left, my mind too occupied elsewhere. Now I felt the shakes again.
+
+"For us two, just water?" Anna said, the second she saw the beers.
+
+I turned toward her and realized I was gripping my own hand as hard as I could.
+
+Sid shrugged, put two of the beers back without asking why.
+
+"Whoever drinks never gets chosen," he said, sitting back down, and I saw Anna go rigid. "My grandfather was never surprised by the ones in town who drowned themselves in a glass. The Star reads people the way you'd read a page held up to light , sees what's written on the next one, straight through the paper. A drunk's a soaked page, though. Ink runs, words blur. Nothing to read on a wet page. Just a stain."
+
+"What's it even mean, that the star 'chooses'? You really believe getting saved from this world is as simple as jumping into a magic light?" I said, unsettled by my own cravings, the ones souring my whole mood.
+
+"My family's always handled the Entry," Sid went on, unbothered by my tone. "An honor, they told me as a kid. Privilege, passed down. Every cycle someone gets prepared, and when the Star's close enough, that person goes to the pond and crosses over."
+
+"Crosses into what?" Anna asked.
+
+"Don't know. No one who's come back talks much. Mostly because coming back means the star rejected you. I watched my uncle, one summer, standing on the bank for hours , one hand out toward the water, never touching it, frozen mid-step, a step that never landed. Year after, he was still there. Same exact spot. Died of exposure, but as far as the town knew he'd just gotten old and passed of natural causes."
+
+The air left my lungs. "Eliyah," I said.
+
+Sid nodded slowly. "Supposed to be the chosen one that cycle. But he wasn't a blood Pierrè , married in. The chosen one, that cycle, was me."
+
+The silence that followed sat heavy as marble.
+
+"I was thirteen," Sid said, eyes fixed on some empty point between us. "Preparation had already started. Then, three weeks before the Return, Eliyah asked to take my place."
+
+"Why?" Anna asked quietly.
+
+"Because his daughter wasn't blood Pierrè either. She'd never be chosen, never prepared, never safe, by their rules , and he couldn't stand the idea that one day, for some reason nobody ever fully explained to him, the Star might notice her anyway, with no one having prepared her to survive the reading. I think , never told anyone this , he wanted to bring her something from the other side. A piece, early, of what was waiting for her regardless, so she'd never have to face it alone, unprepared."
+
+The breath caught in my throat like a knot pulled tight in one motion. I knew what he was about to say.
+
+"There's a saying, among us. Carrying the star to someone. Means making the Entry on someone else's behalf, offering whatever's found on the other side as a gift to someone you love instead of keeping it. Nobody actually does it , it's a legend inside the legend, something you tell the family's kids to soften the sacrifice. But Eliyah believed it. Enough to try, anyway."
+
+"And if someone carries the star," Anna said, voice thinning, "what happens to whoever receives it?"
+
+Sid looked at her, and for the first time since we'd walked into that mirrorless house, he looked genuinely sorry.
+
+"A prepared adult can take a full reading. A kid , unprepared, unprotected , can't take even a splinter of one. Sooner or later the Star comes back to knock on the door of whoever's already gotten a piece of themselves secondhand. With Dolly it didn't even take twenty-three years. It knocked that same night, right after her father crossed for her."
+
+Dolly didn't drown out of despair, the way people always said around town. She went to the pond every night for a year, waiting for her father to come back and give her what he'd promised. And in the end something did come to give it to her , too much, all at once, into a ten-year-old body that had nothing in it to hold that much.
+
+Sid looked at me a long moment, and with empty eyes said, "Were you there? That night?"
+
+"Interrupted preparation leaves a mark," he said. "Not one you can see. A door left ajar. I still feel it, even now, twenty-three years on , that's the mirrors, that's why I check the sky before opening my own front door. Part of me's still assigned to that pond, no matter how long I've spent pretending otherwise. And if part of me still feels it, after all this time, and I was the chosen one , imagine what's left ajar in a kid who was just there by accident, who saw everything, who ran before anyone could shut the door behind him."
+
+We left Sid's place as the sun went down, the orange light over the fields around Santa Lorena the exact same color as the sunset-red castles Dolly used to describe to me as kids , a detail my memory had always filed under childish poetry, and that now struck me, with a chill, as a far too precise description of something she'd actually seen. Somewhere. Through someone.
+
+Could it really all be true? I felt like I'd just spent an afternoon indulging the ramblings of a man consumed by his own imagination, someone who, driven by the trauma of an abusive cult, had built himself a personal pond that had taken over his whole brain.
+
+We spent the night in a rented room above the old bakery we used to pass every morning on the way to school. Long abandoned now.
+
+My dreams were terrible.
+
+Was I there, that night?
+
+  
+
+
+It's cold. Snow at the edge of the pond, not on the water , the water never froze that winter, and nobody in town found that strange, like it was normal for a sheet of water to just refuse winter on principle.
+
+Dolly brought me there at night. Told me her father had promised her something for her birthday, that it would come "from far away, through the water," and I believed it was a game, one of her games, because for her everything was a game , fairies in the reeds, a purple cyclops collecting fallen stars like coins.
+
+There's a man in the water up to his hips. Something white on him that the dark makes almost luminous. Not Eliyah the way I remember him from the car wash , thinner, motionless, like something had drained the movement out of his body along with everything else.
+
+Dolly laughs. Says "Daddy!" and starts running for the water, and I , I remember this part with a clarity that hurts my teeth , grab her sleeve, not her hand, her sleeve, pull her back, tell her to wait, it's too cold, we have to wait for him to come out.
+
+He doesn't come out. He lifts an arm toward the sky, like he's catching something falling, and the sky over the pond stops being sky for the first time. A small tear. A comma of dark that isn't dark, sitting in the middle of the real stars.
+
+Dolly breaks free of my grip. I don't chase her right away. This is the piece the water strider ate first, twenty-three years ago, and only now, with nothing left in my blood to shield me from it, can I finally look at the whole thing: I stood still. I watched my friend run toward the water and a father suspended mid-gesture in some impossible act of love, and for a handful of seconds , an eternity , I did nothing. Some kind of terrible fascination, the same kind that keeps you standing at the edge of a cliff one second too long.
+
+Then the comma of dark widens by a breath, just enough for something inside it to turn , not toward Eliyah, not toward Dolly. Toward me. The kid frozen on the bank, watching without being invited to. I feel, physically, a page inside me turn on its own.
+
+So I run. Run like I've never run in my life, leaving Dolly alone on the bank with her suspended father and something that, for a second, leafed through me the way you'd flip through a book found by chance on a shelf , not enough to read all of me, just enough to mark the page.
+
+I don't go home. I go to a neighbor's , an old drunk the town was ashamed of, the one everybody avoided because he smelled like wine even at eight in the morning. I pound on his door crying, and he, without a single question, pours a finger of something into a glass too big for my hands and says: "Drink it. All of it. Don't ask me anything, kid, just drink it, and don't go outside till it's light."
+
+I don't know it yet, that night, that he's just taught me the one thing that'll keep me alive for the next twenty-three years.
+
+The search parties come winter. The shift out to the countryside. The summer Anna and I found what was left. This night of feverish sleep above a bakery oven shut down for decades.
+
+I'd been read too. Just one page. But that page got dog-eared at the corner, and that fold tells whoever's reading where to pick back up.
+
+  
+
+
+We spent the evening of August 13th in silence, Anna and I, in the room above the old bakery, window open on the empty square and the Origins Festival flyers.
+
+I still had one bottle left. Bought it before we left, didn't tell Anna, hid it in the case for a camera I hadn't even brought , no other reason for bringing the case at all.
+
+I picked it up twice that evening. Second time, Anna noticed.
+
+"You're not doing that." Not a question. Not entirely an order either , something in her voice closer to a plea wearing certainty like a costume.
+
+I didn't drink that night. First sober night of my adult life, and I spent all of it eyes open in the dark, feeling the water in my brain stop thrashing, for the first time in twenty-three years, and start, instead, to open.
+
+The pond, in the afternoon light of August 14th, looked like just a pond. Dark water, reeds, the smell of mud.
+
+We went before sunset, not after. Sid had warned us , "Go while the light's still on you, and leave before it goes too" , but we both already knew we wouldn't make it out in time.
+
+People were already there when we arrived. Not many. Seven, maybe eight, dressed not in the showy white robes I remembered from the festivals but in ordinary clothes, each with a single gray stone pinned to their chest on a bit of iron wire. Disguised as ordinary , that had become, over the years, their real robe. No more hiding behind white fabric. Just the mundane now. Faces that could belong to anyone.
+
+I recognized Principal Pierrè among them. Older, more stooped, but the same calm, terrible look I'd feared as a kid without knowing why.
+
+He didn't stop us. Nobody stopped us. They let us walk right up to the bank, like anyone had the right to watch, consequences be damned, and I understood, with a cold that had nothing to do with the evening air, that as far as they were concerned I'd had that right for twenty-three years , ever since something had flipped through me for three seconds on the edge of that water.
+
+Anna saw him first.
+
+A figure on the far bank, one foot already in the shallows, one arm out, hand open, offering something to someone who hadn't been there to take it in twenty-three years. He wasn't moving. Or he was, but in a way the eye couldn't quite track , like a film repeating one frame instead of running forward, a man caught forever in the last instant before an arrival.
+
+"Eliyah," Anna whispered, and her voice cracked on that one word in a way I'd never heard from her.
+
+I couldn't answer. The second my eyes landed on him, the sky over the pond simply stopped being sky.
+
+I don't think I have the words to hold onto it without betraying what I saw, and some part of me, the part made of pumice and murky water, has already started, even as I write this, eating away at the edges , the way it always does. It wasn't light, though the eye kept insisting on reading it as one, out of laziness, self-defense. It was an absence of dark instead, at one exact point in space, a hole in the night still forming, and through it something was looking , not with eyes, not with anything I can put a human name to , looking into all of us, with the same patient, malice-free attention a kid gives an anthill right before deciding whether to step on it.
+
+I understood, right then, why the farmers had called it a demon, and why the Pierrè family just called it the Guest. Neither name was wrong. Two faces on the same terror, seen from two angles of one truth nobody could stand to hold whole: something older than our words showed up here on a schedule, and it didn't care one bit what language we used to pray to it, curse it, or soften it into bedtime stories about fairies and centaurs.
+
+Scarlet and violet flesh stacked into columns, palaces, indescribable things circling like they were praising the terrible vortex at the center , and every time my eyes landed on some detail long enough to focus, I felt a page inside me turn, physically, then turn again, faster each time, like something had finally found the bookmark it left twenty-three years ago and had run out of patience for waiting.
+
+I saw, in a flash shorter than a breath, the whole night from twenty-three years back. Not the version my feverish brain had stitched together the evening before , the real one, whole, no seams, no gaps. Me and Dolly on this same bank. My hand around her sleeve, not her hand. The seconds I stood frozen instead of pulling her back. The run to a drunk's house I didn't know yet, the glass too big for my hands.
+
+And I finally understood, for the first time in twenty-three years: the alcohol hadn't taken her from me. Something had read me that night, just enough to know exactly which page to tear out.
+
+"It wasn't your fault." Anna said it, and only then did I realize I'd been speaking out loud.
+
+I didn't believe her. But I squeezed her hand , the same hand that, twenty-three years earlier, should've dragged a friend away from the water and instead hung frozen at my side, paralyzed , and in that grip I found the one thing the pond hadn't managed to take from me that night. Or I thought I had.
+
+That's when her hand went rigid in mine. Not fear. Decision.
+
+I turned in time to catch her looking, not at the absence of dark, but at one exact spot on the far bank where the grass never grew, a circle of bare earth the size of a man laid flat, and I understood, too late to matter for the rest of my life, that the eye at the center of the sky wasn't looking at the eight adults in street clothes with their gray stones. Wasn't looking at me either, not anymore, not fully. My page had already been reread, the bookmark found and closed.
+
+It was looking at her. The only one of us left perfectly, terribly legible.
+
+"Anna,"
+
+"I'm here." She wasn't looking at me, eyes locked on the absence of dark the way you eye waves before wading into water you already know is too cold. "It called me by name."
+
+The stones , those men had them pinned to their chests. Were they wearing them to point the star's attention at whoever wasn't?
+
+I dug through my pockets, frantic.
+
+The necklace. Still in my pocket. Three stones we'd carried all this way.
+
+That's why the eye had been ignoring me too.
+
+"Put it on , wear it," I told her, or tried to.
+
+She turned and smiled at me the way you smile at a kid who can't understand yet.
+
+I didn't get to her in time. She took three steps toward the water with the same calm you'd walk toward someone you know for a fact is waiting for you, and set one foot down in that circle of bare earth.
+
+The sky over the pond drew in around her, and the stars, the real ones, curved toward the edges of the dark.
+
+I screamed her name. Tried to reach her.
+
+Didn't see what happened next. Not all of it. I ran, got dragged away, and the world behind me filled with a sound that wasn't quite a sound , a pressure in the air and in my bones more than any real noise , and when I finally stopped, gasping, near the car, the pond behind me had gone back to being just a pond. Quiet. Ordinary. Like it had never been anything else.
+
+Anna didn't come back with me.
+
+  
+
+
+I drove an hour before I stopped, in an empty lot off some highway, and cried , not the loose drunk crying I'd gotten used to, something closer to an organ relearning, after too long, how to work.
+
+I keep trying to rebuild her face, and every time I manage it for a second, the next second it's already gone soft again, like something inside me picked back up the job it started these last few days , the water strider, the pond , working faster now, with nothing left in my blood to slow it down.
+
+There's a bottle in the camera case. Haven't touched it.
+
+Don't know if that's courage or just the last thing I can still do for her , stay legible, stay exposed, in case staying exposed is the only way left to keep feeling her, for however long my body lets me.
+
+Writing this because in a few days, maybe a few hours, I won't be sure anymore I actually lived it, and I want a trace of her to exist somewhere outside my own head. Something more solid than an empty bubble.
+
+Her name was Anna. I still know that, right now, writing this. I say it out loud sometimes, in the empty kitchen, just to hear if my voice shakes.
+
+But there's another question I keep circling back to, one I've maybe always been asking, since that January night on the bank of a pond that wouldn't freeze, a question that now, with no alcohol left to blur it, I can't tell anymore if it's about the girl I left alone on that bank twenty-three years ago, or the woman who stepped into that same circle of bare earth in my place.
+
+Because Dolly its just a place holder name. I forgot her name as soon as i left the pond without Anna.
+
+If any of you, whoever you are, has ever been through these parts. Or heard of Santa Lorena.
+
+And maybe remembers a girl found in a pond, one summer, twenty-three years back.
+
+Please. Tell me.
+
+What was her name?
+
+  

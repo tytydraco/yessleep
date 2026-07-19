@@ -157,6 +157,8 @@ Its hunger, the hunger. 
 
 And all he wanted to do was share its gift. 
 
+I tried asking him how he knew all of this, if something had spoken to him. And in a shaky voice he replied “all you have to do is look, and you understand.” 
+
 Every night since then Allistor’s came back, and tried to force his way inside my trailer with the help of the other afflicted. And each night they get closer to succeeding, and I get more tired. 
 
 I’ve barricaded myself best I can, but it’s only a matter of time before they hack their way through, I knew that. I was just hoping I could hold out long enough for the supplies to get here. For help to arrive. 

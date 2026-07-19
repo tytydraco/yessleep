@@ -54,7 +54,7 @@ Mum was seated beside Dad, while Claire was seated beside me, and Troye was seat
 
 “Well, this table was probably made for five.”
 
-Dad shrugged, letting Mum’s words brush off his thoughts as we all waited patiently for the waitress to come back. She did not long after with a cart full of drinks and menus. She asked Claire and me if we wanted sodas or juice. I had a Coke while she had sparkling apple juice; she gave Troye his own small cup of orange juice.
+Dad shrugged, letting Mum’s words brush off his thoughts as we all waited patiently for the waitress to come back. She did, not long after, with a cart full of drinks and menus. She asked Claire and me if we wanted sodas or juice. I had a Coke while she had sparkling apple juice; she gave Troye his own small cup of orange juice.
 
 She turned to Mum and Dad, asking which wine they preferred; “We’ll have the red.” Dad said, as Mum nodded.
 
@@ -154,23 +154,25 @@ I checked the food card I set aside, and right on the main course category, my e
 
 “M-Mum…” I muttered under my breath. I wasn’t sure if my mother heard me the first time, as I was about to call attention to the sixth plate, but the meatball on my fork finally slipped off as it rolled down onto the floor. A wet slap hit the ground before the sphere disappeared beneath the table.
 
-I felt a heated glare against the skin of my nape, when I turned I saw Dad’s eyes towards me, blank—empty as his mouth opened to speak; I caught a glimpse of his bloody teeth, the once white teeth he meticulously maintained, and encouraged and Claire to do the same; the man who emphasized on the importance of hygiene was a far cry to what I was seeing now.
+I felt a heated glare against the skin of my nape, when I turned I saw Dad’s eyes towards me, blank—empty as his mouth opened to speak; I caught a glimpse of his bloody teeth, the once white teeth he meticulously maintained, and encouraged Claire and I to do the same; the man who emphasized on the importance of hygiene was a far cry to what I was seeing now.
 
-“Go on, put it back on your plate. It’s rude to make a mess.” Dad said, as the red juices from his meal lined the edges of his mouth.
+“Put it back on your plate. It’s rude to make a mess.” Dad said, as the red juices from his meal lined the edges of his mouth.
 
 I got off my chair reluctantly, before getting to my knees; lifting the layers of tablecloth, I was met with a darkness bordering on pitch black. I squinted, trying to make out where the ball of meat could have been until… I was staring right at it; in front of my face was the meatball clasped within an outstretched hand towards me.
 
-My throat practically clamped shut as my breathing halted, my own hand uncurled by itself right under it, as it handed it to me. My eyes never left the dark; it never left the sight of the aged, greyish, pale hand, with nails too long and dull. I felt my hand tremble as the meat slopped against my palm, the black shadow or outline I had been looking at for what felt like minutes had moved, and that’s when I finally saw light peek from the other side of the table.
+My throat practically clamped shut as my breathing halted, my own hand uncurled by itself right under it, as it handed it to me. My eyes never left the dark; it never left the sight of the aged, greyish-pale hand, with nails too long and dull. I felt my hand tremble as the meat slopped against my palm, the black shadow or outline I had been looking at for what felt like minutes had moved, and that’s when I finally saw light peek from the other side of the table.
 
-The heart in my chest dropped seeing Troye’s feet dangling, wearing only one shoe, as the other had already fallen under the table; he was inching closer and closer; the only thing keeping him held onto the seat were the harness holding him.
+The heart in my chest dropped; through the small hole of torn fabric, I saw Troye’s feet dangling, wearing only one shoe, as the other had already fallen under the table; he was inching closer and closer; the only thing keeping him held onto the seat was the harness holding him to the chair.
 
-I practically jumped from under the table before rushing towards Troye, unhooking the harness, and carrying him into my arms. The baby began to cry as I held him close. “There’s something under there, w-we have to leave!” I practically yelled out, I didn’t care if I was drawing attention from other diners.
+Dropping the meatball, I practically jumped from under the table before rushing towards Troye, unhooking the harness, and carrying him into my arms. The baby began to cry as I held him close. “There’s something under there, w-we have to leave!” I practically yelled out, I didn’t care if I was drawing attention from other diners.
 
 “What are you talking about? Allen, sit down!” Mum said,
 
 “No! We have to leave, we have to go now!” I said,
 
-Dad’s face hadn’t changed; he wasn’t even reacting to a thing I was saying. Meanwhile, Claire was at my side as she cooed to calm Troye. Mum was trying to get a hold of the situation, but as she stood, the table began to shake, while Dad sat on his own, unmoving in his seat. Every unfinished food on the table began to topple to the floor as Mum backed against the wall, holding her purse.
+Dad’s face hadn’t changed; he wasn’t even reacting to a thing I was saying. 
+
+Meanwhile, Claire was at my side as she cooed to calm Troye. Mum was trying to get a hold of the situation, but as she stood, the table began to shake, while Dad sat on his own, unmoving in his seat. Every unfinished food on the table began to topple to the floor as Mum backed against the wall, holding her purse.
 
 The waitress came back while the table shook violently, and she sighed.
 
@@ -180,7 +182,9 @@ Mum dragged Dad as we all rushed out of the restaurant and into the elevator. I 
 
 “W-What was…” Claire muttered, but her words barely made it out as she, too, could barely process what had happened.
 
-We waited in the lobby before Granddad came by taxi. Mum told Gran that Dad couldn’t drive, that he had too much to drink in the restaurant, to which he scolded him for on the hotel lobby’s couch for being ‘irresponsible’, but Dad barely listened; he just stared at the floor before Mum gave him the ticket to give to the chauffeurs to return the car.
+We waited in the lobby, where Mum demanded that the receptionists let her use the phones. 
+
+Shortly, Granddad came by taxi. Mum told Gran that Dad couldn’t drive, that he had too much to drink in the restaurant, to which he scolded him for on the hotel lobby’s couch for being ‘irresponsible’, but Dad barely listened; he just stared at the floor before Mum gave him the ticket from Dad's suit jacket to get the car from the chauffeurs.
 
 During the ride, Dad was shoved to the backseat while Mum sat on the passenger seat, and the three of us children were in our usual spots. Claire and Troye had fallen asleep while Mum spoke to Gran about what happened in the restaurant. Gran only listened as he drove, while my eyes trailed to Troye’s shoeless foot. I lay my head on him gently, thankful that my baby brother was safe, from… whatever it was under the table.
 
@@ -192,4 +196,4 @@ It had been years since that faithful dinner; Dad had passed from alcohol poison
 
 Although many years had passed, and sometimes I do find myself thinking it was… all just in my imagination, that maybe I really did just make up whatever was hiding under the table, but whether it was real or not, I still found myself checking and peeking beneath other tables from time to time.
 
-And that perhaps the vacant seats we ignore were already taken to begin with.
+With a lingering thought that perhaps the vacant seats we ignore were already taken to begin with.
