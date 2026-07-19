@@ -127,7 +127,7 @@ He continued to mutter, staring off into a corner. I felt impatient so I shouted
 
 “The closet” he repeated, leaning his head toward the closet behind me. 
 
-My frustration growing I turned around and threw open the closet's shutter door. “What about the closet-“ Harry’s bloody handcuffs sat on the floor of the closet, my blood ran cold. 
+My frustration growing I turned around and threw open the closet's shutter door. “What about the closet-“ my eyes fell on Harry’s bloody handcuffs and my blood ran cold. 
 
 In the same second I heard Harry's blanket hit the ground behind me and the floorboard creak. I tried to whip around but only managed a half turn before something struck the back of my head, and everything went black.
 
@@ -147,7 +147,13 @@ It looked like I killed him myself and began eating him. It looked like it succu
 
 A lot happened while I was out, and by the time I woke up the whole site was in chaos. The garage had burned down with the truck inside, and I often heard screaming at random intervals.
 
-From what I could tell, Allistor, Clyde and at least four other people have succumbed to hunger madness. At least that’s what I’ve been calling it, ever since Allistor came by late one night to chat with me through the window. 
+From what I could tell, Allistor, Clyde and at least four other people had succumbed to hunger madness. During the day they lurked in the shade and shelter of the trailers, but at night they stalked the area and feasted on anything they could find. Allistor attempted to feign sanity in an attempt to be let inside, but once I denied him entry he dropped the act.
+
+I was surprised at how lucid Allistor was, besides his disheveled appearance he spoke coherently. But David had gone fully catatonic, while Harry and Clyde talked nonsense but retained enough function to set traps and sabotage the site. Three varying degrees of insanity, with some kind of ability to differentiate and coordinate with other afflicted.
+
+Though it’s become clear to me, the more coherent the individual, the more danger they pose. And unfortunately for me, I was trapped here with them. But in the same breath they were trapped here with me, their madness unable to protect them from the scorching desert that surrounds us.
+
+I decided to try and reason with him to learn anything I could in the hopes of finding a way out, I told Allistor I would let him inside if he could explain what was happening to everyone and he agreed.
 
 He told me there was something out there so large that the telescope could only capture its eye. A celestial body, greater than entire galaxies, and an eye so massive in size that our sun would be swallowed by its mere pupil. 
 
@@ -157,9 +163,9 @@ Its hunger, the hunger. 
 
 And all he wanted to do was share its gift. 
 
-I tried asking him how he knew all of this, if something had spoken to him. And in a shaky voice he replied “all you have to do is look, and you understand.” 
+I tried asking him how he knew all of this, if something had spoken to him. And in a shaky voice he replied “all you have to do is look, and you understand.”
 
-Every night since then Allistor’s came back, and tried to force his way inside my trailer with the help of the other afflicted. And each night they get closer to succeeding, and I get more tired. 
+When I refused to let Allistor inside, he tried to force his way in with the help of the other afflicted. And each night since then he tries again, and each night they get closer to succeeding, and I get more tired. 
 
 I’ve barricaded myself best I can, but it’s only a matter of time before they hack their way through, I knew that. I was just hoping I could hold out long enough for the supplies to get here. For help to arrive. 
 
