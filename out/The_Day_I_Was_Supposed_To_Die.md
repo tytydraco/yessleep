@@ -1,0 +1,415 @@
+**CONTENT WARNING: SUICIDE**
+
+On the day I was supposed to die, I was twenty-one.
+
+It was a baking summers day. I'd just finished up a work week at a local campground. A little gig to keep things moving before going back to school the following September.
+
+The campground sat in a gorgeous location next to a lake. My fellow camp counsellors were roughly the same age as me. Their plans were to take over one of the cabins and party over the weekend.
+
+I was invited, but partying wasn't my thing. My thing was isolation. A solitary walk through the woods. A peaceful night alone under a clear and silent sky.
+
+My homegrown knowledge of wilderness safety was the main reason I was selected to be lead counsellor, along with a knack for supervising children.
+
+An outdoorsy upbringing meant that nature was my safe place until that day. One day that changed my life and sense of safety so drastically that I couldn't speak of it for years.
+
+On a bright Saturday morning, I stepped out of my cabin in a pair of denim shorts and a forest green tank top. A red hiking bag slung over my shoulders.
+
+I checked in with my fellow counsellors and let them know where I was going. I planned to head a few hours North, up the mountain to find a nice overlook of the valley.
+
+I followed a river upstream, stopping every so often to carefully cross it when needed. I remember that I had my journal with me. Sometimes I liked to sit and write for a while on my hikes. Songs, stories, thoughts, doodles. Sometimes I'd watch birds and try to copy a scene of them onto the page.
+
+As I followed the river, I came across a steep narrow path leading upwards from the riverbank. I was nowhere near where I wanted to be on the map, but the explorer in me couldn't resist.
+
+I scaled the rocky pathway until I found flat ground, following it deeper into the green until the forest opened into a clearing.
+
+At first, I didn't even notice him. I was too focused on finding a place to rest.
+
+The only ideal resting place was an assortment of large boulders at the far end of the clearing. One of them was occupied.
+
+There was a man there. An older man maybe in his 50's to early 60's, sitting upon a rock writing in a leather journal.
+
+He hadn't noticed me yet. I thought about turning back, but before I could even move again, he was smiling at me.
+
+A friendly smile. One you'd see walk past you on the street or behind the counter at the bank.
+
+He was wearing an orange puffy vest, a green flannel shirt, blue jeans, and brown hiking boots. He had a brown satchel hung over his shoulder.
+
+I didn't say anything, not at first. I didn't have to.
+
+“Morning!" he said.
+
+"Good morning," I greeted him.
+
+I told him I wasn't expecting to see anyone else out this far.
+
+He told me the same. But he relented and said he was happy to see another person.
+
+He asked how well I knew these trails, and if I knew how to get to the cliffs.
+
+I hesitated before answering because I was unsure if I wanted to be truthful. I didn't know who this man was and it was just him and I.
+
+So I lied.
+
+"I'm out here all the time actually," I told him. "If you head back down and keep going up river, you'll find em'."
+
+He smiled again.
+
+"Oh, yeah? I bet it's beautiful."
+
+"It is."
+
+He started telling me about his late wife, and that he was just looking for a nice place to spread her ashes. He asked me if I could accompany him because he wasn't sure he could trust his old legs to get him there by himself.
+
+I started to relax a little bit. I'd just lost someone close to me before the summer, so I told him yes.
+
+He closed his journal and seemed genuinely excited.
+
+We walked together back down the trail to the river while he rambled on about himself. I stayed behind him and let him go first.
+
+I didn't really listen to much of what he was talking about. I was too focussed on how and when I was going to get out of this. It was the curse of being a pushover.
+
+Eventually, he asked me a little bit about my life. I lied to him again. It was amazing how effortless it was. I wasn't even sure why I was doing it. I didn't feel threatened. He was odd, sure. But normal.
+
+But I lied anyway. I told him I was just hiking. That I lived nearby with my dad, and that he was a local cop.
+
+In reality, my dad was recently deceased. His grave about 200 miles away.
+
+He went quiet for a bit after that, which was fine by me.
+
+At some point, we found a trail that incorrectly assumed to go to the cliffs. We followed it together and came across another dead-end clearing. This one was darker as the sun moved behind the hills.
+
+He stopped to bend over, catch his breath, and politely motioned me to go on ahead.
+
+And then I heard him whisper something, which sounded like "okay…" with a deep exhale. Almost as if he was preparing himself for something.
+
+I was about to make an excuse so I could head back and leave him to make the rest of the trip. But when I turned, he was standing up straight again, and he had a gun on me. 
+
+A small revolver.
+
+I laughed at first, thinking it was some kind of morbid joke. I actually laughed. But his expression remained the same. His friendly, blue-eyed smile was gone, replaced with something much colder. It was the face I should have seen back in that clearing, but his mask hid it well.
+
+The laugh whimpered in my throat before I even finished it.
+
+"What— what are you doing?" I stammered.
+
+He didn't answer that. He gestured behind me, telling me to go sit down underneath a nearby tree.
+
+I complied, walking slowly backwards towards the tree. My eyes locked onto the gun he held, which in the moment wasn't quite as intimidating as the look he was giving me.
+
+I sat down against the tree trunk, my hands digging into the soil below. I started to shake, a part of me still hoping that this was just a joke or an opportunistic robbery.
+
+He squatted a few feet away, his gun still pointed at me.
+
+"You got a wallet on you?" he asked, looking off to the side.
+
+I blinked a few times before I registered what he was asking me. I dug around in my backpack and found it, tossing it onto the ground in front of him.
+
+"I don't have much. But you can take what's there," I said with hope.
+
+He picked up my wallet and opened it. He took out my ID and tossed the rest of the wallet back to me.
+
+"Hm," he hummed. "You're a long way from home."
+
+"Are you going to hurt me?" I asked him.
+
+"Not if I don't have to," he replied, still looking at my ID card.
+
+I sighed with relief. But I waited for the catch.
+
+"But it doesn't really matter. Either way, you're not going to be leaving the woods today."
+
+I didn't say anything right away. I don't think I could have. My mouth had gone completely dry, and my mind was doing this strange thing where it kept trying to find a version of this that made sense, like if I just waited long enough he'd laugh and tell me it was a joke after all.
+
+He didn't laugh.
+
+He set my ID down on his knee, faceup, like he wanted it close by for reference, and reached into the satchel at his side without ever taking the gun off me. He came out with a folding knife first, the kind with a wooden handle, worn smooth like it had been carried a long time. He laid it flat on a rock between us.
+
+"You've got some options," he said. Same voice as before. Same voice he'd used telling me about his wife. "I'd like you to pick one."
+
+I didn't understand yet. I think some part of me was still waiting for the version where this was about money.
+
+He reached into the bag again and set down a coil of paracord next to the knife, and then, last, a small orange pill bottle, which he placed a little apart from the other two, almost deliberately, like it belonged in its own category.
+
+"The knife," he said, nodding at it. "The rope. Or the pills, if you'd rather go easier."
+
+I stared at the three things laid out on that rock for what felt like a very long time. I remember thinking, distantly, that they looked almost like a display. Like something set out for a customer to choose from.
+
+"I don't understand," I said, though I did, I think I understood completely, I just needed him to say it in a way I couldn't misread.
+
+He sighed. The kind of sigh that says you’re about to be sorely disappointed.
+
+"You're going to die out here today," he said. "That part isn't something either of us gets to change. But you get to decide how. I think that's fair, don't you?"
+
+I couldn't speak. I didn't know whether to beg, or scream for help, or just run and hope the gun missed. My body just went cold, my stomach churning with an unbearable, helpless dread, like something had reached in and turned a valve. The only sound I could produce was a quiet sob as tears welled up in my eyes.
+
+He broke his cold gaze for a second, glancing down at the items laid out on the rock, almost like he was giving me privacy to fall apart.
+
+"There's no rush," he said, almost as if he was reassuring me. "But it needs to happen today. One way or the other."
+
+"I just— I just don't understand…" I whimpered. "You want me to just—"
+
+"I know this isn't easy," he said. "It never is."
+
+Something in me snapped loose right then, some wire between fear and fury just gave out.
+
+"But— why?”
+
+He shrugged. “It’s just the way it is.”
+
+I started to lose my breath. My vision fogged, and the world began to spin.
+
+“I know it’s not fair, but it’s the way it is. You understand?”
+
+“B-but— you have a gun. You could just— why do I have to? You’ll just kill me if I don’t, right?”
+
+He looked down at the ID card again, unbothered, like I'd asked a reasonable question and he wanted to give it a reasonable answer. He thought for a moment before his eyes came back up to me.
+
+"I could do that," he said. "It wouldn't be enough, I'm afraid." He tapped one finger against the card, just once. "But let’s say I did. And let's say afterwards I paid a visit to the address printed right here on this card. Do you think whoever I found there would make the same choice you're making right now?"
+
+I froze.
+
+My mom. My sister, twenty years old, still living at home while she finished school. Neither of them knowing that something so unthinkable, so diabolical, was taking place. And now he knew where they were.
+
+I didn't say anything. I didn't need to. He could see it on my face, whatever it was that had just happened there, and something in his expression settled, like he'd gotten the answer he was looking for without me having to give it out loud.
+
+"You have to make this choice. It could go two ways. One's easier than the other."
+
+I started to laugh.
+
+"You…what is this? Some kind of… power thing?!"
+
+"That's a nice theory," he said. "People always want there to be a shape to it. Makes it easier to sit with."
+
+"So there isn't one? You just—"
+
+"Doesn't matter if there is," he said. "It's not going to change what happens next."
+
+"Then why? You can just let me go! It doesn't have to be like this. You don't—"
+
+"Don't have to do this," he interrupted. "I know I don't have to do this. But you do. Don't you understand?"
+
+"No. None of this makes any fucking sense."
+
+He didn't answer that. He just watched me, patient, like he was waiting for the anger to burn itself down to something he could actually work with.
+
+"Okay," I said, wiping at my face with the back of my hand. "Okay. What if — what if I just left? Right now. I won't tell anyone. I don't even know your name, I couldn't describe you to anyone if I tried, I'm terrible with faces, ask literally anyone who knows me."
+
+"You'd remember my face," he said. Not unkindly, but eerily certain.
+
+"I have money," I said. "Not a lot, but — there's more at home, I could get you more, I could meet you somewhere, anywhere you want, I just need a few days—"
+
+"I don't want your money. Don’t beg. It’s beneath you.”
+
+"Then what do you want? Just tell me what you actually want and I'll—" I heard how pathetic it sounded even as it left my mouth, and I kept going anyway, because some animal part of me had decided pathetic was survivable.
+
+"Your wife. You said you lost your wife. So you know what this feels like, you know what it's going to do to my family, my friends, please, you said yourself it doesn't bring you any joy, so what does it cost you to just let this one go?"
+
+For a second, just a second, something flickered behind his eyes, and I actually let myself believe it had worked.
+
+Then he shook his head, slow, almost sorry about it.
+
+"I wish it worked that way," he said. "I really do. But wanting something to be different isn't the same as it being different. You'll understand that eventually. Some people take longer than others."
+
+"I want to go home." I sobbed.
+
+"I know," he said. "Everyone does."
+
+He was silent again for a moment, just looking at me, and something about the silence felt different than the silence before it. It was heavier. Like he was deciding whether to say something.
+
+"You lied to me, you know," he said. "Back at the first clearing. About knowing these trails. About the cliffs."
+
+I felt my stomach drop out from under me all over again, in a completely different way than before.
+
+"I don't—" I started.
+
+“About living around here. What about your dad? Is he really a cop?”
+
+I didn’t respond right away. I needed to think first, but I couldn’t even do that. 
+
+Unsurprisingly, he beat me to it.
+
+"You don't have to pretend now," he said, not unkindly. "I knew when you said it. I can always tell when someone’s lying. It’s like a gift that I have.”
+
+He almost smiled, like the memory of it was fond somehow. "I let you lead me here anyway. I wanted to see where you'd take me."
+
+I didn't say anything. I couldn't think of a single thing to say that wouldn't make this worse.
+
+"I understand why you did it," he said. "You didn't know me. You wanted me to think you had somewhere to be. Someone who'd notice." He paused. "It was smart. I want you to know that. It just didn't change anything. And honestly, I don't think you could've found a better place than this."
+
+My voice cracked. “Your wife. What about her? Was that a lie? Was any of it real?"
+
+He reached into the satchel again, and for a second I thought it was going to be another prop, another item to set out on the rock, and some small stupid part of me almost laughed at the idea that there could possibly be more.
+
+He took out a small brass urn instead, no bigger than a thermos, the metal dulled and fingerprint-smudged in a way that only happens from years of being held.
+
+He set it down on the ground between us, gently, the way you'd set down something that could still be hurt.
+
+"No," he said. "That part was true. All of it."
+
+I stared at the urn and then at him, and something about seeing it there, real, solid, undeniable, was somehow worse than the gun had been.
+
+"She's been with me a long time. Right here," he said, nodding at the urn.
+
+My mind immediately started running through what could have happened to her, the woman who married a man like this.
+
+I decided that if I wasn't getting out of this, I might as well stall him for as long as possible. Even if he knew what I was doing.
+
+"How did she die?" I asked him quietly. Not with any kind of sympathy, or any attempt to understand who I was talking to.
+
+He smiled slightly, chuckling at the question. He knew I was stalling, but he didn’t seem to mind.
+
+"Brain aneurysm. About five years ago now," he relented.
+
+"Yeah? Did she know how fucked up you are?"
+
+His smile faltered for a moment, but he didn't seem offended.
+
+"No, thankfully. She died believing I was good. And I was. At least to her."
+
+"So you've done this before? You've done this to others?"
+
+"Many times," he admitted. "I remember them all. What they looked like. How they sounded.”
+
+He looked up towards the sky with a reminiscent look, taking a deep breath, and then his eyes settled on mine again.
+
+"I'll remember you, too."
+
+We sat in silence for a while. I'm not sure how long. It felt like forever. I started to think about where I was that morning. I thought about how different things could've been had I just stayed and partied with my friends.
+
+In that moment, I didn't feel much of anything. The tears stopped flowing. My heart stopped thumping.
+
+All as the reality of the moment settled in on me.
+
+I was going to die, and only this unnamed man was going to know what really happened. And I'd be nothing more to him than another face in his memory.
+
+"I have a request…" I told him, my eyes meeting his again.
+
+He nodded. "I'm listening."
+
+"I'd like to write a note."
+
+He opened his mouth to say something, hesitated, and then nodded.
+
+"Of course," he said. He reached into his bag, and I knew immediately he was going for his own journal.
+
+No fucking way.
+
+He held his notebook out to me anyway, the leather one, and I shook my head before he'd even finished offering it.
+
+"No," I said. "I have my own."
+
+I dug it out of my bag with hands that wouldn't stop shaking, the same journal I'd been carrying all morning, the one I used for songs and doodles and stupid half-finished thoughts, and it felt wrong somehow, using it for this, but it also felt like the one thing in that clearing that was still actually mine.
+
+I sobbed through most of it. I don't even remember most of what I put on that page now, not really, it's like the memory of writing it and the memory of what I actually wrote came apart from each other somewhere along the way. I know I wrote that I loved my mom. I know I wrote something for my sister, something about the cat, some stupid inside joke that wouldn't have meant anything to anyone but her. I remember writing that this wasn't anyone's fault, and then crossing it out, and then writing it again anyway, because I didn't know what else was true enough to put down.
+
+When I was done he asked to see it, and I don't know why I let him, except that by then it felt like there was nothing left that was fully mine to protect.
+
+He read it slowly. His eyes moved over the page like he was reading something at his own funeral. When he finished he folded it once, carefully, and set it down on the flat rock beside the urn.
+
+"That's good," he said. "She'll know you were thinking of her."
+
+He didn't say which her. I didn't ask.
+
+He looked back up at me after that, and something in his posture shifted, like he was settling back into the reason we were actually there.
+
+"Have you made up your mind?" he asked.
+
+I don't remember the exact moment I'd decided, only that by the time he asked, the answer was already sitting there waiting for me, like it had been for a while.
+
+"The pills," I said.
+
+He nodded, like I'd given the right answer on a test he'd already graded a hundred times before.
+
+"Okay," he said. "Thank you."
+
+Only then did he reach for the orange bottle. What came out into his palm wasn't small. Large capsules, the kind you'd see prescribed for something serious, something that needed a big dose to work at all.
+
+"You'll only need the one," he said, holding it out to me on his open palm like it was nothing.
+
+"How long does it take?" I asked. My voice didn't even sound like mine anymore.
+
+"Not long," he said. "It'll feel like falling asleep. That's all."
+
+I nodded, because there wasn't anything else left to do, and I took it from his hand.
+
+Before putting it into my mouth, I looked at him. I tried my best to display as much contempt as possible.
+
+"Do you think there's something after death?" I asked him.
+
+He thought for a moment and nodded.
+
+"I like to think so, I guess. I don't know about heaven or hell, but I like to believe there's something."
+
+I chuckled and shook my head.
+
+"Hm. Well, if there is, I hope your wife is watching. And I hope she knows what a sick fuck you really are."
+
+He didn't react.
+
+I put the pill on my tongue and swallowed it fully, all the way down, with the water he passed me. He watched me the whole time, and when I'd finished he leaned forward and had me open my mouth, checking under my tongue, along my cheek, making sure there was nothing left hiding there. He nodded once, satisfied, and sat back.
+
+"Think about your happiest moments," he said. "Just relax into it."
+
+So I did. I don't know why I did, except that there wasn't anything left to fight with. I thought about when my dad was teaching me how to drive. About my sister's smile when she got her braces taken off. I thought about my cat back home, and all my friends having a great time without me there.
+
+The last thing I remember is him standing over me, looking down, smiling warmly, like a man watching something he was proud of.
+
+Then nothing. Just nothing, for I don't know how long.
+
+The next thing I felt was cold, and then a horrible churning in my gut. I opened my eyes to a darkened sky full of stars and the silhouetted tips of tall pines against it.
+
+I thought maybe I was dead at first, and that this was what the afterlife was. And despite everything, it was beautiful. Reality returned when I rolled over onto my side and violently puked until I couldn't anymore.
+
+I don't know how long I'd been lying there. Long enough that the sky had gone fully dark and my clothes were damp with dew. Long enough that when I tried to sit up, my body didn't feel like it belonged to me yet, my limbs heavy and slow to respond, like I was moving through water.
+
+The man was gone.
+
+My bag was still next to me. I reached in and dug around until I felt the flashlight I'd packed. My hands wouldn't cooperate at first, fumbling with the switch twice before it caught. I switched it on and scanned the clearing for any movement, but there was nothing.
+
+On top of one of the rocks lay the note I'd written, weighed down by another smaller rock.
+
+I picked it up carefully and tucked it into a small pocket in my backpack.
+
+After that, I looked through my bag to see if anything was missing, my heart sunk.
+
+My journal was missing. Likely taken as some kind of keepsake. Not only did he know my name, where I lived, but now also my innermost thoughts and feelings.
+
+Once I mustered the will, I hauled myself out of that clearing and made my way back down the mountain towards camp.
+
+I don't remember most of the walk back. I know I fell at least twice, my legs still not fully mine, and at some point I gave up trying to walk in a straight line and just aimed myself downhill, the way you're supposed to when you're lost, and hoped it would take me somewhere.
+
+When I got closer, I noticed flashlights in the woods and familiar voices calling my name.
+
+My friends.
+
+I was brought to the hospital and questioned by police. I told them everything as my mom sat next to me, rubbing my back. I gave them the note I’d written, a detailed description of the man and everything we talked about. 
+
+I was in pain, my clothes were stained, torn, and I’d just been face to face with pure evil. But I was calm.
+
+I don’t know if maybe the shock was keeping me from deteriorating or if I came out of those woods as someone else. I think maybe it was a bit of both.
+
+They ran a toxicology test on me, but the report came up as "inconclusive."
+
+I didn't care. I wasn't interested in talking. I wasn't interested in anything. I just wasn't there. Not anymore.
+
+The only thing that made me feel anything was how my mom and sister looked. How scared they looked for me.
+
+Nothing was ever the same.
+
+The man who did this to me was never identified, and I spent a lot of years trying to make sense of it. Even now as I write this, it's hard to believe that it actually happened. It's hard for me to accept that this person is probably walking around somewhere, meeting new people, maybe chatting around a dinner table with family, finding new victims in the meantime.
+
+I've speculated as much as I can. I've asked myself those questions more times than I can count. Like why was he there? Did he follow and flank me? Was it planned? How many more were there before me?
+
+I've since stopped trying to answer them. Sometimes there isn't a clear answer to the "why" of things. You'll drive yourself insane trying to uncover it.
+
+I still don't have peace, not really. Some days are better than others. What I have instead is a routine, small rules I've built for myself that make the world feel survivable again — the trails I'll never walk, the sounds I have to leave a room to avoid, the way I still check behind me more than anyone should have to.
+
+I was supposed to die that day, but by some miracle, I'm still here. Still alive to write this story.
+
+And the only way I've been able to keep going is to accept that sometimes it doesn't make sense. The only thing that ever mattered was how you moved forward, even if forward looks smaller than it used to.
+
+Sometimes along the timeline of your life, you fall into a hidden pocket that you were never supposed to see. And it exists to show you a different side of human nature. An evil that can't be reasoned with.
+
+It changes you. Maybe it even destroys you. And even though most people go their whole lives without encountering it, it’s still out there.
+
+And I used to be one of the people who never had to know that.
