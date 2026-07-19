@@ -2,7 +2,7 @@ Can I tell you about my biggest fear?
 
 It's sort of a silly one, and I've never really heard anyone else talk about it, but I'm terrified of being predictable.
 
-When I was in kindergarten, we learned what the word meant in this huge picture book full of 'big words'. My teacher would tell us a story from the book, have us guess a few words, then give us the answer. And it had been fun for the first few words, the few I can remember being these cute animals baking for the word 'decadent', this lizard learning the word 'humid', stuff like that.
+When I was in kindergarten, we learned what the word meant in this huge picture book full of 'big words'. My teacher would tell us a story from the book, have us guess a few words, then give us the answer. And it had been fun for the first few words, the ones I can remember being these cute animals baking for the word 'decadent', this lizard learning the word 'humid', stuff like that.
 
 The word predictable had this story attached (of course, paraphrased. My memory isn't *that* good..)
 
@@ -84,7 +84,7 @@ I turned to watch them walk away, only to find that they had stopped too, their 
 
 I ran all the way home. I didn't stick around to find out if they were friendly or not.
 
-I'm sitting at my computer now. It's a miracle that my computer is letting me type, an even bigger miracle that I've been focused enough to actually write. 
+I'm sitting at my computer now. It's a miracle that my computer is letting me type, an even bigger miracle that I've been focused enough to actually write.
 
 I just want to know if anybody else is experiencing this. It'd be a little comfort to know I'm not alone. Please, feel free to reach out. I promise, if you *are*, I'll talk. I have all the time in the world.
 
