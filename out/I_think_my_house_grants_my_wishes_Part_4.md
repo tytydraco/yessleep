@@ -1,0 +1,96 @@
+[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/1u86k49/i_think_my_house_grants_my_wishes/) [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1ulktf2/i_think_my_house_grants_my_wishes_part_2/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1utieq3/i_think_my_house_grants_my_wishes_part_3/)
+
+  
+I fucked up.
+
+I’m an idiot of the finest grade.
+
+Let me take you back to the day after my last post.
+
+I was on a work call with a client and my wifi was glitching so the client pointed it out.
+
+She’s an old client so she joked about it telling me how fast my internet is.
+
+I said earnestly, “I wish it was faster.”
+
+And immediately the internet speeds went up faster than the new Corvette does 0-60 and I basically had a panic attack on the client call.
+
+Was it a genuine desire? Yes. Did I really need it? Maybe. Was it worth the anxiety I’m in right now? Absolutely not.
+
+Once I was off the call, I checked my phone to see a message from the ISP saying something on the lines of “thanks for your annual payment, your internet speed has been upgraded.”
+
+I took the rest of the day off, and applied for WFH for the next two days (that’s the max the company allows per month).
+
+When you’re as stupid as I am, you’re not allowed to step out of the house.
+
+I reinstalled Farming Simulator 25 and played it for the rest of the day. It’s oddly soothing and somehow addictive.
+
+The next day went without a hitch. I was calmer and better prepared mentally.
+
+The day after that, on the other hand, was full of anxiety.
+
+I kept thinking about how I would have to step out of the house to go to the office the very next day and something bad would happen.
+
+So, being the idiot I am, I silently wished that the WFH could be extended.
+
+And the house listened.
+
+I got a notice from the HR that due to some contamination in the office building, it would be closed until it’s fixed.
+
+So now I’m collecting wishes (and unknown consequences) like they’re rare Pokémon.
+
+And my anxiety is through the roof, broken by a call from my sister.
+
+She asked me if I’d be home that weekend and I said I had work.
+
+I could hear the disappointment in her voice when she said she understands.
+
+She mentioned how our parents think I’m neglecting them because I haven’t been home in weeks.
+
+To top that off, I don’t call much either.
+
+If they lived far from my place, I would be justified in not visiting as often.
+
+But they live a few hours away, almost as far as the streamer lives from my place.
+
+So yeah, not a good feeling.
+
+We moved on to talking about other matters and ended the call on a good note.
+
+That said, I couldn’t shake off their disappointment from my mind.
+
+I feel like the worst thing that could happen to me is someone being disappointed in me.
+
+And that feeling is worsened when it’s my own family.
+
+I wished I wouldn’t hurt my family anymore.
+
+I’m not sure if the house listened.
+
+Sometimes I feel like it randomly picks wishes to make true.
+
+Oh before I forget, and sorry if it’s random, since some of you recommended I should move out of the house, I have started looking into some options.
+
+The neighborhood I’m in has quite a few options.
+
+None in this building, sadly.
+
+It would’ve been great if I could find something in this building because it’s pretty close to the office.
+
+That was before the WFH wish was granted.
+
+Now I’m looking at options further away too.
+
+Ideally somewhere closer to where my friends live.
+
+They’ve been asking me to go out with them really aggressively now.
+
+If it weren’t for the wishes, I would’ve said yes to this weekend.
+
+But c’est la vie.
+
+Anyway, that was yesterday.
+
+Count of wishes granted (consequences pending): 2.
+
+I hope it’s just my figurines this time.

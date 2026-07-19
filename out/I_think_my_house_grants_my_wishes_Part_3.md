@@ -174,18 +174,16 @@ At home, I opened the diary and I saw the letter I delivered to him.
 
 It was short. No salutations, no signature. Just a poem.
 
-
-
 >In a murky pond,  
-Trying to be clean,  
-  
+Trying to be clean,
+
 Its waters granted abundance,  
-Sustaining what should not be.  
-  
+Sustaining what should not be.
+
 There a fish began to prosper,  
 His belly filled by borrowed plenty,  
-Each hunger met before it lingered.  
-  
+Each hunger met before it lingered.
+
 How the pond grew strangely empty,  
 One by one its bright jewels faded,  
 Until loss became familiar,  
@@ -193,3 +191,6 @@ Soft enough to pass as peace,
 Even when none remained.
 
 That was all there was to this letter.
+
+  
+[\[Part 4\]](https://www.reddit.com/r/nosleep/comments/1v14ppx/i_think_my_house_grants_my_wishes_part_4/)
