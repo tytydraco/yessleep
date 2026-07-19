@@ -1,0 +1,65 @@
+Sorry for the wait for part 2, I’ve been busy. Unfortunately, Terry’s threats were genuine. Now that I’ve told multiple people about him, he’s tried to get back at me. I woke up 2 weeks ago to find a shelf knocked over and destroyed. Some of the knick knacks I had on it didn’t survive. A couple Uranium cups, a LEGO set, and some rocks I’d collected had been damaged. Pieces of glass and LEGO bricks formed the words: “Stop now”. Fuck you, Terry, I won’t. Luckily, I think he can’t do much to me, as his physical presence is a state away. So yeah, that’s why I haven’t gotten back in a few weeks. I was shaken a bit by the fact that he could cause harm so far away from where he actually is. And I wasn’t sure if I wanted to keep talking about it, but, I decided I would. I don’t like being the only person knowing about this. 
+
+After the events of the last story, which you should read if you already haven’t, I didn’t see Terry, or as he was pretending to be, Woody, for a few days. Later, he came back, but he wasn’t the same.
+
+I was tossing and turning in bed, not because I was afraid of anything, just because I simply couldn’t get to sleep. That’s when I heard the sound effect of Woody’s pull-string.
+
+“There’s a snake in my boot!” The soundbox screeched in a deafened version of Woody’s voice. 
+
+I excitedly rolled over to look towards the sound to see Woody standing next to my bed, with his hand on his hip. 
+
+“I’m back partner.” He said, tipping his hat.
+
+“Woody!”, I yelled excitedly, “Where were you?”
+
+“I had to look into who poisoned the watering hole!” He said, throwing his arms in the air angrily.
+
+Something happened with his voice there, it cracked. But not like a teenager having a sudden high pitched squeak, his voice went lower, much lower. When he said “hole” his voice dropped at least two octaves. It sounded like a large, adult man’s low voice. I didn’t really pay attention to it then.
+
+“I gotta ask a favor,” Woody said, taking his hat off and holding it in front of him, “I’m starving! I need something good to eat.” 
+
+“But you’re a toy!” I said, giggling, “Toys don’t have to eat!”
+
+“Hey! Quiet down.” He said, in a stern, annoyed voice, “You’ll get us caught!”
+
+His voice cracked again. This time, he did a few times. Now that I remember it, it was like he was glitching.
+
+“Oh, ok,” I replied, more quietly, “sorry.”
+
+“That’s alright buddy.” He said, “But anywhoodles, us toys do need to eat! That’s a hurtful misconception.”
+
+“What a mist-concep-ton?” I asked, not knowing the word at the time.
+
+“A false belief.” He replied, “Just get me something to eat please.”
+
+He said that more flatly. It sounded more like what Tom Hanks really sounds like, just a normal man. He didn’t talk like Woody would. No accent or inflections. I didn’t really notice at the time. 
+
+“Um, ok. What do you like?”
+
+“Anything! As long as it’s got meat!” He answered, “Us cowboys need our protein! What about one of them corn dogs in your fridge?”
+
+I didn’t realize this until later, but it was strange how he knew what we had in the fridge. 
+
+“Ok, I gotta be quiet though.” I replied, “I don’t wanna wake my mom.”
+
+“Alrighty partner! I’ll be waitin here!”
+
+I got up and walked to the door, passing Woody. I opened the door as quietly as possible and looked towards my mom’s doorway. The light was off, she probably was asleep. 
+
+I walked down the hall, but as I passed my mom’s room, I heard something. Crying. At the time, I thought she’d just had a bad dream, but now I know the reason.
+
+I snuck into the kitchen and opened the fridge, trying to be quiet since my mom was awake. I grabbed two corndogs and went back. She was still crying when I went past again.
+
+When I got back to my room, I didn’t see Woody. I rubbed my eyes, and when I opened them, he was there, sitting next to my bed. 
+
+“Give em here.” He said, flatly. He seemed tired. 
+
+I put them on the ground next to him and he grabbed them, before running under the bed. 
+
+“Hey! Where ya goin?”
+
+“I’ll still watch for monsters, just go to sleep, I’ll still be here in the morning.” 
+
+Again, that didn’t quite sound like Woody.
+
+I shrugged and got back onto the bed. When I laid there, I heard crunching and chewing. I didn’t hear much before I fell asleep.
