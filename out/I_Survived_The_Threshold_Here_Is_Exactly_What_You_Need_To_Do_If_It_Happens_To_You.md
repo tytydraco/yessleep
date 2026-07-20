@@ -1,0 +1,189 @@
+I'm writing this from a motel room off the highway. I won't say which highway. I won't say which state. My hands are shaking badly enough that I'm going to make spelling mistakes and I'm not going to fix all of them because I genuinely do not have the time or the calm to do so.
+
+It is around 4 am. I have my car keys and the clothes I was sleeping in. That's it. I have not called my mother. I have not called my girlfriend. I have not called my brother, for reasons I will tell you about. I am not going to tell you my name.
+
+I know how this reads. I used to scroll past posts like this one. I used to leave comments. I was an idiot and I am sorry, but I fucking need you to read every word of this carefully, because I think the only reason I'm alive right now is that my phone didn't slide six more inches under my bed.
+
+I have to start here for this all to make sense - I've had fucked up dreams my whole life. 
+
+Not your typical nightmares, one with no monsters, no falling, nothing you could describe at breakfast. More like the feeling of a nightmare with everything else stripped out. Being stuck somewhere vast and completely blank, some liminal type space with no exits and no logic. Somewhere in some space and time. I wake up drenched, heart slamming, no memory of what scared me. My doctor actually called it sleep anxiety. I've always thought that was a polite way of saying we don't know and P.S your fucking mental. 
+
+Last night was one of those nights.
+
+I woke up at around 2 am - I'm estimating from what came after, I didn't check immediately. Sheets soaked through, t-shirt soaked through, that horrible workout-then-bed feeling where everything is damp. I sat on the edge of the mattress and tried to breathe the way my therapist taught me. Square breathing. In for four, hold for four, out for four.
+
+My phone was buzzing on the nightstand.
+
+I registered it the way you register a sound machine. Present but not important. I reached for it in a half-asleep haze and knocked it sideways off the table. It bounced off the hardwood floor and stopped about six inches under the bed frame, face up, screen glowing.
+
+I didn't pick it up.
+
+I should have picked it up. I know that now. Then, I was just a wet and dazed person who wanted to stand and get away from the wet sheets.
+
+So I stood. Rolled my neck. Looked at the window.
+
+I need you to understand the geography of my street because it matters for what I am about to write next.
+
+My bedroom is on the ground floor. The window faces directly across to the house opposite - not diagonally, legit straight across, maybe forty feet of road between my front door and theirs. My side of the street is townhouses. Theirs are colonial-style homes. I've lived there for three years. I know that house the way you know anything you've looked at every day for a thousand days. Slightly peeling paint on the left shutter. A terracotta pot by the door that's been empty since the previous tenants killed whatever was in it. An annoying porch light that flickers at irregular intervals for no reason anyone has ever bothered to get fixed.
+
+I looked out my window and something was wrong. 
+
+My brain tried to file it under normal. Your brain does that - it protects you from the cost of processing something genuinely strange by insisting there's a mundane explanation. Surely you're still half asleep. Surely the houses on this street just look similar at 2am. That weed gummie is probably still in your system from last week
+
+But I stood there and looked and I couldn't find the mundane explanation.
+
+The house looked exactly like mine.
+
+Not similar. Not the same era or style or general shape. Exactly mine. My shutters. My porch light, which was not flickering. My black pot plant - not empty, mine has a rosemary plant in it that I've kept alive for two years now - sitting in exactly the same position by exactly the same door.
+
+A perfect copy. Flipped to a colonial frame it didn't belong in.
+
+I pressed my hand to the glass and leaned in and I stared, and my brain kept cycling through explanations and discarding them. And then I saw something move.
+
+In the downstairs window - my window, the copy of my window - a shape below the sill. Crouched low, pressed against the inside of the glass.
+
+It began to rise.
+
+The speed of it is important. It didn't lurch or snap. It rose slowly. Head first. Then shoulders. Then torso. Slow and deliberate and entirely aware it was being watched - moving like that on purpose, like the slowness itself was a message of some sorts
+
+It stood up straight.
+
+And it was wearing my face.
+
+Not in a doppelganger way. Not the way a stranger in a crowd makes you look twice. I mean my fucking face. My height. My shoulders. The same grey t-shirt I was standing there in, and I looked down at myself to check, and yes, it was the same shirt, sweat patch and all. 
+
+It was looking directly at me.
+
+I wish I could tell you I screamed or ran or did something decisive. I didn't. I stood there with my hand on the glass and I stared and it stared back and my brain had run clean out of explanations and was just static. When your eyes show you something genuinely impossible, I think the mind just… stops. Freezes. Refuses the input. 
+
+Then it turned its head. Slowly. Looked at something behind it, somewhere further inside the house, like it heard a noise. 
+
+A light came on in another room. From the layout - my layout - I'd guess the kitchen. And after a moment, the bedroom door behind it opened. A person walked in and turned the light on.
+
+I couldn't make them out clearly yet. My eyes were still adjusting. But I watched the thing wearing my face turn to look at them - this other person, if it was a person - and I watched them talk. Silent through the glass. I don't know what was said.
+
+Then the copy turned back to my window.
+
+And pointed at me.
+
+That deliberate arm. That extended finger aimed directly through forty feet of darkness at my face. The person who'd just walked in squinted across toward my window.
+
+I dropped.
+
+I pressed my back flat to the wall beneath the sill, knees up, and I sat there on my floor in the dark and I thought very hard about being a rational adult and about the fact that this was not happening. 
+
+I slowly made my way back up to the window sill and glanced over. I wont go into too many details but the blood that was showering the window created the most horrific scene I will have ever seen in ym life. Copy me had slammed himself up to the window, and slowly slid down, creating a blood trail with his hand on the glass. 
+
+I dropped once more, and started to dry heave. My heart was doing things I don't have words for. I was shaking before I even understood I was shaking.
+
+I thought about my phone.
+
+I don't know why it surfaced right then. Some buried instinct connecting bad - to phone - to now. I turned, keeping low, and reached under the bed frame and grabbed it without standing, without going near the window.
+
+The screen showed a cascade notification. More missed calls and texts than my phone could display individually. All from one contact. All from my brother.
+
+He lives four streets away. We'd spoken for the first time in a few months just three days earlier, briefly, about Mother's Day coming up. We're not estranged, just, busy. You know how it is. I hadn't thought about him since.
+
+The messages had started at 1:48am.
+
+Danny pick up
+
+pick up your phone
+
+I'm serious something is wrong you need to get out of the house
+
+DANNY
+
+don't look out the front window just get your keys and go
+
+please
+
+I'm not going to be able to call you again please just go
+
+run.
+
+The last message was sent at 2:09am.
+
+I'm in a motel room right now and those messages are still on my phone and I've read them probably like forty times and I still don't fully understand how my brother knew. How he was awake at 1:48am texting me warnings. Whether he'd seen this before, whether it had come for him first, whether something had shown him what was about to happen to me from four streets away. I don't know. I don't know if I'll ever know.
+
+But he knew. And he tried.
+
+Then, as I sat there reading the messages, I heard a sound from the kitchen. A rustling in the cutlery drawer.
+
+To get out the front door, you'd have to pass through the kitchen. That wasn't an option.
+
+But years ago when our parents renovated the townhouse, they'd built a storage cupboard over an old access panel - a small door, floor level, that led to the space under the staircase, and from there to the internal garage. My car was in the garage, and I had the keys in my jeans on the floor. 
+
+I crawled to it. Slowly opened it. Squeezed inside - dark, cramped, the smell of mould and old cardboard and Christmas decoration boxes stacked against the walls. I shut the door slowly. 
+
+And stopped. Because I heard my bedroom door open.
+
+I pressed my lips together so tight it hurt and I did not breathe and I heard my light switch on. Then a floorboard creak. The one beside my bed, the one I've always meant to fix. One set of footsteps, standing still.
+
+I have thought about what was standing in my room a lot since then. I've been in this motel for two hours… Actually almost three now, shit. I have not stopped thinking about it. Whether it was looking at itself in the window of the copy house. Whether they could see each other clearly from that angle. Whether that was the point.
+
+I kept moving. Inch by inch through the dark and the mould smell. I don't know how long it took. I made it to the garage.
+
+I knew the car made a sound when you unlocked it. 
+
+So I timed it - I pressed the garage door button, and the moment it started rising I hit the key fob, crossed to the car, got in. By the time the door was open enough to move, I heard the garage door open next to me. 
+
+I didn't look over. I couldnt. I put it in reverse and floored it.
+
+Skidded out backwards into the street. Jammed it into drive and took off.
+
+And in my rearview mirror, as I accelerated away - there stood my brother. Standing right in the middle of the road. Holding a huge fucking knife. Smiling a smile that had nothing behind it.
+
+That wasn't my brother. I need to say that clearly, for myself as much as for you. My brother does not smile like that. Whatever was standing in the road wearing his face was not him. It could not have been him, because Marcus spent twenty minutes trying to get me out before he went silent.
+
+I don't know where my actual brother is right now. That's the part I can't let myself think about too hard yet.
+
+But here's the thing I've been circling for the past three or so hours.
+
+As I drove away, I looked at my street.
+
+And every single house had a copy.
+
+Both sides. The whole length of the road. Colonial and colonial, townhouse and townhouse, and in the windows of each copy, lights were turning on. Bedroom by bedroom. Waking up. And in several of those windows, shapes were rising, the same slow deliberate way mine had, and in the real houses opposite them, I could see bedroom lights switching on too. Real people. My neighbours, woken by something, going to their windows.
+
+And the copies were waiting for them.
+
+I drove until it looked like a normal world again.
+
+Here is what I know.
+
+I know what I saw was real. I have a stack of missed calls and texts from my brother as proof - a man who lives four streets away and somehow knew, before I was even awake, that I needed to leave.
+
+I know that if my phone had slid six more inches under the bed I would not be writing this.
+
+I know that there's something standing in my street - in a house that looks like mine, wearing a face that looks like mine, and it wanted me at that window long enough to… fuck I don't know. I don't know what comes after that. I know I didn't stay to find out.
+
+And I know that I was not the only one on my street tonight. That whatever the threshold is, whatever it does, it opened on every house at once. It chose my street. My house. That my neighbours were going to their windows in the dark and the copies were already there, already rising, already ready.
+
+I don't know how many of them got out in time. 
+
+Here is what I need you to know.
+
+If you wake up in the wrong hours and the house across from yours looks exactly like your house - not similar, not like it, but exactly yours - do not stand at the window. Drop. Get low. Get away from the glass immediately.
+
+If your phone is buzzing, read it before you do anything else. Before you check the time. Before you look outside. Read it first.
+
+And if someone you love is trying to reach you in the middle of the night, telling you to leave without explanation - go. Don't fucking think. Don't look. Don't try to understand it first. Just go.
+
+I am rambling. I have no idea if I have said things twice, I dont care actually. I need you to know everything quickly. 
+
+The last thing I'll say is this.
+
+My brother texted me twenty minutes ago.
+
+One message: Sorry to scare you man. False alarm. Come back whenever, no stress.
+
+That's his number. That's his contact name. That's not him. I haven't responded and I'm not going to. 
+
+I'm going to go into the bathroom now with the door locked. But there's a car in the motel lot that's been sitting with its lights on facing my room since I started writing this.
+
+It's the same make and model as my brother's.
+
+Nobody has gotten out yet. 
+
+Update: That car's lights outside just turned off. I heard the door open, and ran into the bathroom. Stay safe I will update next when I can.
