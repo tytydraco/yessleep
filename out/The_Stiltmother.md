@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/s/qPfpPrHos6)
+
 Have you heard about the Stiltmother?
 
 She wanders the lonely forests at night, looking for her children, looking to avenge her wrongful death,
