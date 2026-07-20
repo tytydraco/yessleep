@@ -2,7 +2,7 @@
 
 [Part 2](https://www.reddit.com/r/nosleep/s/cejQscwi29)
 
-[Part 3](https://www.reddit.com/r/nosleep/s/jbNfgYTsYF) 
+[Part 3](https://www.reddit.com/r/nosleep/s/jbNfgYTsYF)
 
 [Part 4](https://www.reddit.com/r/nosleep/s/y26EOOEIEy)
 
@@ -130,7 +130,7 @@ The radio crackled again and my own voice came through one more time, and I swea
 
 "I know where the keys are, Christopher."
 
-Then silence. 
+Then silence.
 
 Ian stood up, straightened the stacks on the desk, and said the only thing anyone in this town has ever said to me that sounded like it cost him something.
 
@@ -147,3 +147,5 @@ There were no instructions that night.
 I put the car in drive.
 
 And I turned right.
+
+[Part 6](https://www.reddit.com/r/nosleep/s/QzlJ8oNE49)

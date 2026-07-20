@@ -1,0 +1,89 @@
+I have been a teacher for years now. It’s some kind of unspoken rule that every year there will always be a kid that is weird. The level and variety of weirdness vary, from benign to outright dangerous. My first year as a teacher we had a student bring in a Stanley cup filled with gasoline that he poured in the boy’s bathroom toilets and set them on fire. His reasoning? The bathrooms always smelled bad, and if the toilets were gone, they would have to remodel the whole thing. And he wasn’t wrong about either of those things. He did get expelled though and avoided jail through what I assume was a very expensive lawyer. After that we banned water that wasn’t in clear bottles.
+
+My second year was a girl who had an odd obsession with breaking into lockers and leaving rocks inside them. The third year we had a boy who would walk up behind people and scream into their ears when they weren’t expecting it. He got punched a lot before his parents found him a good therapist.
+
+Then in my fourth year I had a new student, Simon Lynch, who all the incoming freshmen agreed was “weird.” But so far, he is relatively benign. He also has some of the best grades in the school. He’s helpful and kind and even has a small group of friends he hangs out with. In class he’s an angel.
+
+The weirdness comes from the fact that he keeps talking about The God In The Corner. He mentioned it in passing even to me. He talks about this God so nonchalantly that you can almost dismiss it, like it’s something he saw in a movie or read about in a book. I don’t think anyone gave it any mind when he started talking about it. But the thing is, he never stopped talking about it.
+
+When there was a test, he would remind the other students in the class that if they made an offering to The God In The Corner they’d pass with flying colors. And apparently the power of this God didn’t stop at getting good grades. It helped with passing your drivers test, for helping you get rid of acne and lose weight and heal your dogs’ seizures. Nothing was too big or too small for The God In The Corner.
+
+It was getting annoying, and I’d had to intervene and remind him that the classroom wasn’t a place for religious talk.
+
+“It’s alright Ms. Quinn. It’s not a religion. More like a cosmic force. I don’t think you can actually pray to The God In The Corner, just give it things,” he said with a small smile.
+
+After that the talk of the God went quiet. There weren’t any tests coming up. Then Shannon Berber came in one day, whispering to the other students that The God In The Corner was real; and even better it worked.
+
+Shannon had always had thick glasses. She was actually legally blind, and her eyesight was predicted to only get worse. But she had listened to Simon and faced with nothing to lose had made an offering to the God. And it hadn’t even been a lot. Apparently, the God was satisfied with whatever you gave it, as long as it was sincere and something that meant something to you. It didn’t want blood or your first born or anything so cliché.
+
+Shannon had made it a pie. A gooseberry pie and a framed canvas of her own artwork. It had been a watercolor she’d made in class and been particularly proud of. She had placed these things in the corner, called the God and gave it her wish, and the offerings had been taken, and her eyes had been fixed that night.
+
+It was a miracle for lack of a better word.  I had never seen Shannon so happy. Her eyes were large and lovely, a clear hazel green that I had never been able to properly see.
+
+After that, talk of The God In The Corner became more common place. One of the worst students in my class, Maxwell Hardy, suddenly started getting straight A’s. Another girl, Emily Stillway, got a full ride scholarship to her dream school. For some other students they grew taller, got thinner, had better skin; some even developed athletic abilities seemingly overnight. It was weird. And surely it was all a coincidence. It had to be.
+
+And then my boyfriend Kyle got in a car wreck. He had been driving home when another driver who was too busy texting to drive properly T-boned him at an intersection. He was lucky to be alive at all, but he was in a coma. And there was no hope of him waking up, or him even living past the end of the week.
+
+I called Simon that evening. We’re not supposed to call students, but I knew where to find his personal information and I called his cell. My heart was pounding as I dialed the numbers.
+
+“Hello?” Simon asked from the other end of the line.
+
+“Simon. It’s Ms. Quinn, your teacher from school,” I stammered out.
+
+“I know your voice Ms. Quinn. I think I know why you’re calling. I heard about your boyfriend. Do you want to know how to make an offering to The God In The Corner?” he asked with certainty.
+
+“Yes,” was all I said back.
+
+“It’s easy Ms. Quinn. All you need is a corner somewhere in your house. Or any building will do. It must be dark. There must be a shadow, just enough that you can’t see the corner anymore. And then you give it something. Something that’s personal to you. Something that’s of sentimental value. Or something you made, even a pie will do. Did you know Ryan Blair sang a song to The God In The Corner? Something he wrote himself, and now he’s the best player on the basketball team,” Simon said conversationally.
+
+“What do I say? What do I say to get the God to come?” I asked, my voice trembling.
+
+“You say out loud, this is an offering to The God In The Corner. Then you say what your wish is. And then the God takes the offering and it’s all over. Oh! The most important part. Don’t try to take a photo of the God or record it any way. Or turn on the light and reveal what’s in the corner. There are consequences to that you know,” Simon explained.
+
+“What happens if I do that?” I asked, fear creeping into my voice.
+
+“Well, my uncle did that once. We never saw him again. I think he might still be alive, but honestly isn’t that scarier than being dead? The dead don’t suffer,” Simon said so matter-of-factly that it sent a shiver down my spine.
+
+“Thank you, Simon. That’s all I needed to know,” I said in a rush.
+
+“You’re welcome Ms. Quinn. I’ll see you in class,” Simon said, then ended the call.
+
+I sat there for a few minutes, genuinely contemplating what I was thinking of doing. I’d already crossed a line by calling a student like I did just now. Was I really this desperate? To try to give an offering to some kind of God that lived in a corner? I was, I couldn’t lose my Kyle if there was even a slim possibility of saving him.
+
+But I had no idea what to offer up. I was not an artist or a musician. I could barely cook, and I wasn’t sure if The God In The Corner would be satisfied with scrambled eggs and Mac n’ cheese.
+
+Then it hit me, I did have something to offer it. Something of great sentimental value. I dropped to my knees and reached under the bed, pulling out a lock box that held the few valuables I owned plus important documents. I opened it and pulled out an old wristwatch. It was my father’s watch, and it had been my grandfather’s watch before that. My dad had died when I was a teenager, and one of the few things that he had passed down to me. It was too sentimental for me to wear on a daily basis, but I would take it out occasionally to hold it and think of my dad.
+
+My heart dropped as I held it. It really was the item I treasured most in the world. But I would give it up if it meant saving someone that I loved. I looked up and locked eyes with the corner of the bedroom farthest from the bed. The light always had a hard time reaching it. I stood up and quickly switched the ceiling light off. It plunged half the room into near darkness, and the corner itself was now completely black.
+
+I edged closer to the corner, feeling a mix of fear and hopeful anxiety. I lay the watch down at the edge of the shadow. I swallowed hard and started to speak.
+
+“This is an offering to The God In The Corner. Please heal my boyfriend Kyle and make him as healthy and whole as he was before the accident,” I said timidly.
+
+A few seconds passed, and lots of conflicting emotions raced through my brain. Did I need to speak louder? Maybe the offering wasn’t good enough? Or the more likely explanation was that this was all insane and my student had played a vile joke on me when I wasn’t in my right mind.
+
+And then the shadows shifted. I gasped, falling backwards so I was flat on my backside. Two arms emerged from the shadows. A scream caught in my throat, and I clasped my hand over my mouth. The arms were long, far longer than a person’s arm could possibly be. The flesh was a dark ashen gray, not black. The hands were long and the fingers delicate, almost feminine. Short dark fingernails that glimmered sharply in the dim light caught my eye.
+
+The hands moved slowly and purposefully. They plucked the watch up and turned it to the shadow, as if a face I couldn’t see was taking stock of the offering. I heard a faint murmur, a whisper that sounded pleased. And then the arms, hands, and the watch retracted into the shadows like a rock disappearing into a lake after it’s thrown in.
+
+I screamed then, a small pathetic sound as I ran from the room. I stood shaking in my living room as I tried to process what I had just seen. What I had just done. I didn’t go back into the bedroom that night. I didn’t need too. I wasn’t sure how much time had passed, probably no more than twenty minutes, when my phone rang. It was Kyles mom.
+
+“Maddie! Maddie, you need to come to the hospital right now,” his mom practically screamed over the phone.
+
+“Oh God, what’s happened? Is Kyle dead,” I sobbed, fearing the answer.
+
+“No! No, he’s awake and he’s okay and he’s asking for you!” she shouted back.
+
+Kyle was healed. It was nothing short of a miracle. Kyle was being held as a medical marvel, and the doctors promised that studies would be done on him in the future. I took him home a few days later.
+
+He was the same old Kyle, though he did tease me now about why I wanted the lights on in the bedroom, and why I always stared at corners now. We got engaged not long afterwards and married. We even started our own family.
+
+Simon continued to be a good student. He graduated from high school as a valedictorian and got a full scholarship to a very prestigious university.
+
+Even that was years ago, and I see Simons name on the news now. He’s started a new tech company that people are saying will be the next Tesla. In the photos I’ve seen of him he looks handsome and self-assured. And it always leaves me wondering, what is the extent of the power of The God In The Corner.  
+
+ 
+
+ 
+
+ 
