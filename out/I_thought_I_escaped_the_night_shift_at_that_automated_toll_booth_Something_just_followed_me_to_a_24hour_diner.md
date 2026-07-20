@@ -1,0 +1,72 @@
+I’m writing this from the floor of the single-occupancy bathroom stall of a neon-lit, 24-hour diner somewhere north of Glens Falls off Interstate 87. My laptop is balanced precariously on my knees. I haven't touched the mug of coffee I bought over an hour ago. To the people who commented on my last post telling me to just call the state police or keep driving north—you don't understand. I can't. My car keys are sitting out on the laminate table by the front window, and there is no way in hell I am walking back out there into the open to grab them.
+
+When I first slammed my car into park in the gravel lot of this place around 4:00 AM, it felt like I had stepped back into heaven. It smelled like burnt grease, old maple syrup, and normal, boring reality. The bell above the door gave a comforting, brassy chime when I pushed my way inside, shivering from the mountain air. An old woman with a faded name tag that read "Martha" was working the counter. She didn't even look up from her crossword puzzle when I entered, just gave a vague, mechanical nod.
+
+I chose a corner booth as far from the windows as possible, pulled out my laptop, and tried to dump everything that had happened on Route 9 into that first Reddit thread. I typed like a madman, my skin still crawling with the memory of Vance's unhinged jaw and the copper stench of Booth 4. I just needed to put it into words to prove to myself that I hadn't completely suffered a psychotic break out there in the pines.
+
+But then the clock on the wood-paneled wall hit 4:45 AM.
+
+The low, comforting hum of the diner's industrial refrigerator suddenly sputtered and died. The buzzing fluorescent tubes overhead flickered twice, casting long, jagged shadows across the empty vinyl booths, before their light shifted pitch. It turned into that exact same high-pitched, vibrating whine from the automated lanes. The kind of oppressive frequency that digs into your skull and makes the fillings in your back teeth ache.
+
+I froze, my fingers hovering over the keyboard. The silence that followed was heavy and wrong.
+
+Outside, the thick gray fog from the mountains began to roll across the gravel, pressing flat against the diner’s large glass windows. It didn't just drift; it moved like a living thing, packing tight against the glass until the parking lot vanished into a wall of solid white. Within thirty seconds, you couldn't even see the glowing yellow "OPEN" sign hanging on the front door anymore. We were entirely sealed in.  
+A sharp, metallic burst of static violently shattered the quiet from the front counter.
+
+*Krrrrssssshhhhh—*
+
+I snapped my head around. The sound wasn't coming from a radio. A small, analog television set sitting on a shelf behind the counter—the kind with the old-fashioned rabbit-ear antennas—had flipped from a muted local weather channel to pure, grainy snow. The black-and-white static danced wildly across the glass screen.
+
+At the exact same time, the old, neon-lit jukebox in the corner hummed to life. The internal mechanical arm clicked, selecting a record that wasn't there. The heavy glass frame rattled as a deep, grinding static began to leak from its fabric speakers.  
+Martha didn't blink. She slowly dropped her pen onto the crossword puzzle. Her head snapped down at an unnatural, rigid angle, her neck joints making a sickening pop that I could hear from across the room. Her dead, glassy eyes locked straight onto the static on the television screen.
+
+Then, her mouth fell open. Her jaw hung incredibly loose, dropping down past her chin and swinging slightly back and forth like a broken door hinge.
+
+"You blinked, kid," a voice rasped out.  
+The sound came from the television speaker, but it was echoing in perfect, bone-chilling harmony through the speakers of the jukebox across the room. It was Vance's voice. The exact same wet, dry-leaf cadence that had echoed from the cab of that rusted pickup truck on Route 9.
+
+"You broke the sequence," the split-channel voice droned, the television providing a high hum while the jukebox pumped a low, vibrating bass through the floorboards. 
+
+"The reservoir is empty. We need to refill the lanes."
+
+I scrambled out of my booth, my heart hammering a frantic, erratic rhythm against my ribs. In my panic, my elbow clipped my coffee mug. It shattered against the linoleum tiles, spilling dark liquid and ceramic shards across the floor.
+
+Martha didn't even flinch at the sound. She just stood up from her stool. Her limbs moved with a stiff, mechanical awkwardness, like a marionette being yanked by coarse strings. She began walking slowly toward the front glass doors. As she passed right by my table, I caught sight of her hands. Her fingers were impossibly pale and elongated, the skin stretched so tight over the bone that her white knuckles looked ready to puncture right through the flesh.
+
+She didn't try to stop me. She didn't even turn her head. She just walked straight to the heavy glass entryway, threw the heavy metal deadbolts with a loud click, and pushed both doors wide open.
+
+The freezing mountain air rushed into the diner, instantly dropping the temperature inside the building to near-freezing. It brought that terrible, suffocating stench with it—the unmistakable scent of a flooded basement, copper pipe corrosion, and old, wet pennies.
+
+Through the thick white fog rolling over the threshold, the glare of two blinding yellow high beams cut through the dark. It was the rusted 1970s pickup truck. It was idling silently right in the middle of the diner's gravel drive, its engine emitting no sound at all.
+
+And behind the truck, stepping out of the mist in neat, silent rows, were the missing drivers.
+
+There were dozens of them now, pouring out of the forest canopy. I saw the commuter in the faded gray business suit from Rule 1. I saw teenagers in college hoodies, truck drivers, and entire families. They walked shoulder-to-shoulder into the diner's carpeted entryway, their dead, unblinking eyes staring straight ahead. They weren't looking at Martha. They weren't looking at the kitchen.
+
+They were looking past me, pointing long, pale fingers toward the narrow hallway leading to the back restrooms where I was backed up against the wall.
+
+"It's here," the man in the business suit whispered from the very front of the crowd.  
+"It's here," the rest of the drivers chanted back in unison, their voices layering into a deafening, wet drone that caused the glass display cases and pie racks to shake violently.
+
+I didn't think. Panic took over completely. I lunged forward, grabbed my laptop off the booth table, and bolted down the narrow, dimly lit hallway toward the back restrooms. I slammed the heavy wooden door of the men's room behind me, throwing the small brass latch into place with a desperate, trembling shove.
+
+That brings us to right now. It is exactly 5:10 AM.
+
+The chanting outside the bathroom door has completely stopped, replaced by a soft, rhythmic scratching. It sounds like hundreds of long, metallic fingernails are frantically picking at the wood on the other side of the panel, trying to find a seam. My phone battery is dead. The diner's Wi-Fi cut out the moment the power shifted, but my laptop is somehow still connected to my cell hotspot, floating on a single, dying bar of signal. I am typing this out as fast as my shaking fingers will allow.
+
+I was wrong to think I could just leave. By breaking the sequence—by looking into that station wagon's mirror and blinking at that rusted truck—I didn't just escape the boundary. I dragged the entire perimeter out into the world with me. It doesn't need Route 9 anymore. It follows the paths of those who know its patterns.
+
+The scratching on the wood outside just stopped. The silence in this bathroom is heavy enough to choke on.
+
+In the sudden, suffocating quiet, a loud burst of electric static hissed from the small plastic hand-dryer mounted to the wall across from my stall. The device isn't running. The heating element is totally dark. But a voice is leaking out of the rusted metal grate.
+
+It is my own voice. Perfectly clear, speaking in a flat, monotone cadence.
+
+"Open the latch," my own voice is whispering from the hand-dryer grate. "We just want you to listen. Let us see how many are listening."
+
+If you read my first post, or if you are reading this one right now, you are part of the sequence. You have entered the loop. You are thinking about the road. You are picturing the booths. I can hear a wet, heavy slap against the ceiling tiles right above my head.
+
+I’ll try my best to make an update. I’m going back to the toll booth.
+
+If you start hearing the sound of heavy rain outside your house tonight, and your weather app says the sky is completely clear—**do not look at your windows.**  
+It knows who is looking for it.

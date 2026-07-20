@@ -1,82 +1,117 @@
-We weren’t the first to visit the cabin. That much became clear when we found the diary.
+I run my tongue along the staples lining the roofing of my mouth. I wince. And think *this isn’t going to work.*
 
-Our group had been looking for a remote retreat, somewhere to escape the daily grind. A secluded cabin, found deep in the woods with no phone reception, seemed perfect. We arrived with high hopes, ready for a week of relaxation. But from the moment we stepped inside, something felt off.
+The next day I phone the doctor and she comes to my house to see what the problem is.
 
-The cabin was old and dusty, with a musty smell lingering in the air. It was immediately clear that no one had stayed here for a long time. But it was the diary we found on the table, half-buried under a pile of old newspapers, that caught our attention.
+I tell her it’s the metallic taste. It’s doing my nut in.
 
-The pages were worn and yellowed, the ink smudged but still readable. We took turns reading aloud, and as we did, the temperature in the room seemed to drop. The diary's entries were written in a daily basis, describing events that made our blood run cold.
+*Are you rubbing your tongue on them?*
 
-This is what the diary said:
+Of course.
 
-  
-Mike and I had been drowning in work for what felt like an eternity. Deadlines, meetings, endless tasks—it was a relentless grind that left us both exhausted, our minds frayed and our spirits dulled. The constant pressure had worn us down to the bone, and when we finally got a week off, it felt like a lifeline thrown to drowning men. Mike’s uncle owned a cabin deep in the woods, far from the city, with no phone reception and nothing but the forest for miles. It was the perfect escape—a place where time moved slower, and the worries of the world couldn’t reach us.
+*Then stop.*
 
-We loaded the car with supplies early in the morning, leaving behind the concrete jungle, the endless noise, and the suffocating chaos of the city. The farther we drove, the more it felt like we were shedding the weight of our lives, leaving behind the stress, the exhaustion, and the ceaseless demands. The road narrowed as we ventured deeper into the woods, the trees growing taller and thicker, their branches intertwining to form a canopy that blocked out the sun. The air became dense with the scent of pine, earthy and fresh, filling our lungs with each breath. It felt as if the forest was closing in around us, wrapping us in its embrace, drawing us into its depths.
+She leaves without saying much else. Does a check of the staples to see if the wound is healing. Everything is fine as per *professional* opinion.
 
-The cabin appeared suddenly, a solitary structure nestled in the heart of the forest, surrounded by a sea of trees. It was old, with weathered wood and a sloping roof, the windows dark and still. As we pulled up, a strange feeling washed over me—a sensation that we were entering a different world, a place untouched by time, where the rules of reality no longer applied.
+I spend the night plucking at the staples with my tongue. And spitting blood into a bucket.
 
-The first night was peaceful. We unpacked our bags, lit a fire in the old stove, and settled in with a bottle of whiskey we had brought along. The cabin was small, with creaky wooden floors that groaned underfoot and walls that seemed to breathe with the weight of years. There was something comforting about its age, as though it had seen countless visitors before us and kept their secrets, guarding them in the shadows.
+The next morning I phone the doctor and tell her I’ve started spitting up blood. She comes to the house and has another look at the wound.
 
-The fire crackled in the stove, casting a warm glow over the room, and we talked about everything and nothing, letting the stress of our lives melt away. The whiskey warmed our insides, and for the first time in months, I felt a sense of peace. But as the night wore on, something strange began to happen.
+*Have you been poking them with your tongue?*
 
-It started with an odd smell—faint at first, but unmistakable. It was the scent of decay, like something long dead and forgotten. We shrugged it off, blaming it on the old cabin or perhaps a dead animal nearby. But as the hours passed, the smell grew stronger, more pervasive. It clung to our clothes, our skin, and lingered in the air even after we left the room. No matter where we went in the cabin, the smell followed us, an invisible presence that we couldn’t escape.
+Of course.
 
-The next day, we decided to explore the surrounding woods, hoping the fresh air would clear our heads and banish the lingering unease. The forest was thick, the trees towering above us like ancient sentinels, their branches knitting together to block out the sun. The further we walked, the denser the forest became, the path winding and twisting as though the woods themselves were leading us somewhere, drawing us deeper into their embrace.
+*Then stop.*
 
-We stumbled upon the clearing almost by accident—a barren patch of ground in the middle of the woods, where the trees were blackened and twisted, their trunks charred as if by some intense heat. The ground was scorched, the earth cracked and dry, as though the life had been sucked out of it. In the center of the clearing lay a deer, its body contorted in an unnatural position, its skin peeled back to reveal muscle and bone. But there was no blood. The ground beneath it was dry, as though whatever had done this had drained it completely.
+She leaves without saying much else. I spend the day touching the roof of my mouth and wiggling the staples with my fingers. Until the metal starts scraping somewhere behind my nose.
 
-“What could have done this?” I asked, my voice barely a whisper, the words catching in my throat.
+The next morning I phone the doctor and tell her the staples have all started coming loose. She comes to the house and *thumps* new ones into place. I ask her if they’ll have the same metallic taste as the last ones and she tells me *not if you don’t play with them*. *Are you playing with them? Then stop.*
 
-Mike didn’t answer. He was staring at the deer, his face pale, his eyes wide with something that looked like fear—fear and something else, something I couldn’t quite place. His hands were trembling, the knuckles white as he clenched his fists. We didn’t linger long. The smell of decay was overwhelming now, thick in the air, driving us back towards the cabin.
+I spend the night licking the roof of my mouth and pushing my tongue into the wound. I creep my fingers up inside and wiggle the staples back and forth until they pop out onto my tongue. I spit them all into the sink and hear them *clink* and go to bed.
 
-That night, the smell returned, stronger than ever. It seeped through the walls, through the floor, filling every corner of the cabin with its sickly sweet scent. We tried to ignore it, to convince ourselves it was just the old wood, the musty air, but sleep was impossible. The shadows in the room seemed to move, twisting and shifting in the flickering firelight, their shapes unnatural, wrong. The silence was deafening, pressing in on us, broken only by a low, distant hum that seemed to come from nowhere and everywhere at once.
+The next morning I phone the doctor and tell her the staples have all fallen out. The wound has opened up again. But she can’t understand a word.
 
-Mike was the first to hear it. “Do you hear that?” he asked, his voice trembling, his eyes darting around the room.
+So she hangs up the phone.
 
-At first, I didn’t hear anything, but then it came—a faint scratching, like nails on wood, coming from outside. It was slow, deliberate, as if something was trying to get in, testing the walls, the windows, looking for a way inside. We grabbed a flashlight and the hunting knife Mike had found earlier and huddled together, our breaths shallow, our hearts pounding in our chests. We listened, straining to hear, but nothing came. The scratching stopped just before dawn, leaving us in a tense, uneasy silence that hung heavy in the air.
+I spend the night rooting around inside the wound. Until I see sparking lights behind my eyeballs and my limbs begin to twitch.
 
-The next day, we tried to leave, to escape the suffocating presence of the cabin and the forest. But no matter which direction we took, the road seemed to loop back on itself, leading us in circles until we found ourselves back at the cabin, the trees closing in tighter each time. It was as if the forest was alive, a living, breathing entity that had trapped us within its grasp, twisting the path until there was no way out. The walls of the cabin, once comforting in their old age, now felt like a cage, closing in around us, the air thick with the scent of decay.
+The next morning I phone the doctor and tell her the wound is far too wide to eat. Crisps are getting stuck inside of it and now all I can taste is the tang of vinegar and the salt of the blood and the cheese of the puss. She can't understand me and asks if I’m having a stroke because it’s all just a series of slurring and creaks. Her attitude flips when I begin to moan and breathe heavy from the pain. She gasps and sounds offended. Calls me a pervert. And slams down the phone.
 
-Mike began to change after that. He grew distant, his skin pale and clammy, his eyes hollow and sunken. He stopped eating, stopped talking, and spent hours staring at the walls, muttering to himself in a voice I couldn’t understand. At night, I could hear him scratching at his arms, as if trying to peel something off his skin, his nails digging into his flesh until it bled.
+I see scenes of blackened Pots calling Kettles by their own name.
 
-On the fourth night, I woke up to find Mike standing by the window, staring out into the darkness, his breath fogging the glass. “It’s inside me,” he whispered, his voice barely audible, his words sending a chill down my spine.
+I spend the night drooling red and yellow threads of saliva into the bathroom sink. I watch myself in the mirror twisting a finger into the roof of my mouth as the knuckle disappears. Along with the kettles and pots. I push through bruised meat until I feel something spongy. But then I press against certain bumps and between certain slimy folds and now I see flashes of memories I thought I’d hidden. Of biting cheeks and picking scabs. Of cigarette burns and angry dads. Of blinking hard and clenching jaws. Of roaming hands and gentle shushes.
 
-“What is?” I asked, dread curling in my stomach, my heart pounding in my chest.
+A mother's caress should never last that long.
 
-He didn’t answer, just lifted his shirt, revealing his chest. Beneath the skin, something moved, writhing and twisting, as if trying to escape, as if it was alive. I recoiled in horror, bile rising in my throat as I backed away. “We need to get out of here,” I stammered, my voice trembling, my hands shaking.
+I am filled with an overwhelming surge of bliss. And now a mess of muddied hate.
 
-But Mike shook his head, a hollow laugh escaping his lips, his eyes glassy, unfocused. “There’s no leaving,” he said, his voice tinged with madness, his words echoing in the silence. “It’s part of us now.”
+The next morning the doctor phones *me* but she hangs up immediately when she hears me trying to explain my opinions with all of my groaning and clicking. I think she was wrong to have done so much and to have left me with so little. And I know she shouldn't have stapled the wound because I’ve discovered something wonderful about it being open and pliable.
 
-The cabin, the forest—it was all connected, part of something ancient and malevolent, something that had been waiting for us, drawing us in. The smell, the clearing, the twisted trees—they were all signs, warnings we had ignored. And now it was too late. We were trapped, caught in the web of something we couldn’t understand, something that was slowly consuming us.
+I spend the evening ignoring the knocking at the door and the shouting of the police claiming they are trying to perform a wellness check on me. They don’t understand that everything is absolutely fine and well. The only thing of any concern is that I haven’t got a long enough finger to reach the unprobed corners of my brain.
 
-That night, I stayed up, unable to sleep, my eyes fixed on the shadows that seemed to pulse with a life of their own. The smell was everywhere, filling my lungs, seeping into my skin, into my mind. I could feel it now, under my skin, crawling through my veins, a sickness that no medicine could cure. But I fought it, clinging to the last shreds of my sanity, the last remnants of who I was.
+Oh how they long to be stroked.
 
-But I’m still here. Mike is gone, vanished into the forest, but I remain. The smell is inside me, the scratching in my mind, but I fight it. I stay awake, keep the fire burning, because I know that once the light goes out, it will take me too. The fire is my only defense, the only thing keeping the darkness at bay.
+I spend the night dipping in and out of consciousness instead of sleeping because the blood is mostly gone and now there is only puss for me to taste. And it tastes so wretchedly rotten that I think I actually preferred the taste of the staples.
 
-I don’t know how long I’ve been here. Days, weeks—it all blurs together, time losing all meaning in this place. The road still leads back to the cabin, the trees closing in tighter each time I try to leave, their branches clawing at me, pulling me back. But I’m still alive. I write this down, hoping that someone will find it, that someone will understand what happened here, that they will heed my warning.
+The next morning I weave dizzy pathways to the garden after fainting three times trying to get there. I find a jagged branch and strip it bare of all its hair and skin. But I don’t know if I have enough strength in my legs to make it back inside. So I lay there in the snow and thread the stick between my gnashing jaws. Up inside the wound. Around imposing ridges of bone behind my nose. Until I feel the familiar comfort of spongy resistance. And twitch myself to sleep.
 
-But the fire is dying now, the flames flickering, casting long shadows that dance on the walls. The scratching is getting louder, the sound of nails on wood, the smell stronger, filling every breath, every thought. I can feel it growing inside me, but I won’t let it win. I can’t. I’ll fight it until the end, until there’s nothing left of me to fight.
+At last.
 
-If you find this, don’t come looking for me. Don’t come here at all. Just stay away. This place—it’s not what it seems. It’s a trap, a snare, waiting for those who are foolish enough to enter. And once you’re here, there’s no escape. No way out. Only the smell, the scratching, and the darkness that waits.
+Fresh fields.
+
+When I awake I am more careful this time. I thread another sharp branch between what I feel is a cavity between the two hemispheres of my brain. And when it feels as though it will not go a fraction further I push it a little harder. Turn my palm to face the stick. And give it a little *thump*. It snaps through that stubborn rubber and the top of my skull gives a *knock* from where it stops.
+
+And that’s about enough as I can take. I vomit against my hand. And pass out in the snow with the smell of my success.
+
+I spend the night crawling around the garden rooting out better sticks within the dark. But my left hand keeps insisting on slapping them all away. And because I drop a dozen worthy ones I’m forced to snatch them quick and stick them up inside my face before the hand can have its way.
+
+But me and my right hand have been conspiring. And here’s what we plan to do.
+
+We lie on Left Hand until we’re certain she's asleep. And we stumble our way to the tool shed and grab the hatchet from the bench. And we *hack* that traitorous bastard away with a couple of swings and a few good smacks.
+
+And we take the nub and we take the arm and we tell them both to fall in line. Unless they want the same treatment as the hand. Because we will do it without so much as batting an eye.
+
+Or so much as flicking a finger.
+
+The next morning we barely make it back inside the house when the front door is bashed off of its hinges. I feel it vibrating in my sticks. And wince against the pain. There are police and medical staff rushing about looking for me in every room. I leap up onto my feet. On who knows what reserves. And I get ready to defend myself with the hatchet in my Right Hand.
+
+My stubby left shoulder waves feebly for help while Left Leg tries dragging me closer to the policemen and the medical staff. But Right Leg is trying to pull us further away. And we’re all so equally and incredibly feeble that we get absolutely nowhere fast and collapse back onto the ground where we started.
+
+*Now* they notice me.
+
+They gawk at me and frown at me as if I’m something new.
+
+I know they are here to remove the sticks I’ve stuffed up inside the roof of my mouth. So Right Hand lunges at them with the hatchet. While I scream at them from around the bundle of branches stretching my lips open wide. I try explaining calmly through all of my bloody froth that if they try and touch me I will do exactly what I did to Left Hand and Left Arm to every one of the *treacherous fuckers.* To each of their faces and heads.
+
+Now the branches are wet with my saliva.
+
+Since I seem to be in need of assistance a policeman steps towards me to lend a hand. Behind him I see doctor mom telling me things she thinks I want to hear. But all I hear coming from her cancerous mouth is treasonous disbelief. About the progress I’ve been making. About how bad she believes things are. And her hands. Trying to shush me down to a calm. Held out like blind mice in a darkened bedroom. I dare them to find me this time. I'm older now. And ready.
+
+I squeeze the hatchet handle and launch it through the air. It strikes her square in the forehead. And drops her flat on her ass.
+
+I try to laugh but crack a branch instead.
+
+The policeman draws his gun. And when he points it at my head I point directly at a spot I haven’t had a chance to reach yet. I ask him *would you be so kind*? And when the bullet strikes me there I feel a rushing blast of air cold inside my mind. Until the blood pools. And warms me right back up. And I thank him for his service.
+
+But all he hears are snaps and bubbles.
 
 
 
-When we finished reading, a heavy silence settled over us. The diary’s contents were horrifying, but we initially dismissed them as elaborate fiction—one of those local legends designed to scare off visitors. It seemed too fantastical, too outlandish to be taken seriously. However, as we lingered in the cabin’s oppressive atmosphere—thick, suffocating, and cold—we began to feel a creeping sense of dread.
+\*
 
-“We need to get out of here,” someone finally said, their voice barely a whisper, cracking with fear.
 
-We packed up quickly, the diary carefully wrapped and stowed away. The road back felt endless, the trees pressing in as if trying to keep us there. The oppressive sense of being watched never left us, and we couldn't shake the feeling that something was following us.
 
-Back in the safety of our own homes, we debated what to do with the diary. It felt too dangerous to simply discard, so we turned it over to local authorities, hoping they could investigate and perhaps put an end to the horrors described within.
+They have me now in bindings in a silent hospital room. They’ve given me a bed of my very own with people who come and go. They take me for scans and they take me for talks. They want nothing more than to learn from me.
 
-Months later, one of our friends, skeptical and curious, decided to visit the cabin on a dare. He was determined to prove that the diary was just a hoax. We tried to dissuade him, but his resolve was unshakeable. He went alone, armed with nothing but his bravado and a camera.
+These are the real doctors. These are the ones who listen.
 
-He never came back.
+Instead of sticks they thread these exceptionally long needles up inside my brain to try and figure out exactly how I became the way that I am. But for that they'd need to dig *her* up and ask her.
 
-A search party was sent, but all they found was the cabin, eerily quiet and untouched. In a room, they discovered a roughly written note on a single page, scrawled in a hurried, trembling hand. It read almost the same as the diary:
+But for now I am in my element. And
 
-**“If you are reading this, then you are in the same place I was. The darkness is real. It watches, it waits, and it consumes. I thought I could escape, but the forest is not so forgiving. The smell, the scratching—it’s all true. It has taken me. I am no longer in control. If you value your life, leave now. The forest never forgets, and once you’re trapped, there’s no escaping its grasp. Burn this note and never return. The darkness will claim you just as it claimed me.”**
+it
 
-The discovery of the note only deepened the mystery. It was as though the forest had claimed him just as it had the others before him. The cabin remains a place of eerie legend. According to local lore, anyone who stays there for more than one night vanishes without a trace, leaving only whispers of their final moments.
+feels
 
-If you’re reading this, take heed. We escaped, but the forest might still be waiting, patient and eternal. The diary’s warnings are real, and the darkness in those woods is unforgiving. Be cautious. Never venture into those woods. The fear lingers, and the scratching echoes in our minds. We left with our lives, but who knows if the forest will ever truly let go of those who dare to disturb its silence.
+like
+
+H E A V E N
