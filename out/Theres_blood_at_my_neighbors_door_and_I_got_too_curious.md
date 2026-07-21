@@ -105,4 +105,4 @@ As I spoke two of his fingers went into my gullet and I could feel him grab my u
 
 “Now then, you speak to anyone about me and your stomach will spite you for it.” He wiped off his hand on the carpet. “And one more thing-” Then he grabbed my arm and bit down. A lightning bolt of pain soared through  my arm and into the whole of my body. I felt something wretched and evil pierce the fiber of my soul when my blood poured into his mouth. Then I lost consciousness. 
 
-I’ve awoken to this mess now. It’s late at night and I have no idea what to do. Part 2 Part 3
+I’ve awoken to this mess now. It’s late at night and I have no idea what to do. [Part 2](https://www.reddit.com/r/nosleep/comments/1uxsjnt/theres_blood_at_my_neighbors_door_and_i_got_too/) [Part 3](https://www.reddit.com/r/nosleep/comments/1v26zfg/comment/oytonxa/?screen_view_count=7)
