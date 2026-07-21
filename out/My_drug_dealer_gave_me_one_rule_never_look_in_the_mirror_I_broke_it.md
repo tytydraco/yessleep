@@ -1,0 +1,56 @@
+There is something I insist upon in this life. A totem on which I stand. Time can take the sting out of any pain. Any trauma. It is nature’s antidote. Such a shame that it takes so long to kick in.
+
+Today, I’m going to tell you a story. It has haunted me for as long as I’ve been a man. For years, it whittled me thin. Ground me into a shared nothingness with the cosmos. That all changed when I started meeting with my therapist, Dr. Mortimer. I now feel I’m at a place where  
+I’m comfortable talking about these events.
+
+The crux of this story begins on the night of November 17th, 1992. I know that was  
+the date, because the night before, I had seen a local punk band play at a small venue down  
+the road from where I lived. Green Day. Is that necessary to the story? No. But, I do like to slip  
+in the fact, as often as possible, that I knew of Green Day before everyone knew of Green Day.
+
+It would be irresponsible of me not to first preface this story with a bit of background. I was in my mid 20’s at the time. Anyone who has experienced their mid-20’s know that it is a most turbulent time. I didn’t know what I wanted out of life. Who I was. Where I’d go. I spent too many days laid up on my bed. Staring at the ceiling. Zoning out until the  
+patterns on the panels above started warping into amorphous shapes. I was dead inside. My  
+mind felt broken. I was desperate for change.
+
+Which is what led me to psychedelics. I’d always been interested in them. But, I’d never felt it was something I actually wanted to experience. To experience them, would be to alter my mind. And, in my college years, I thought I had it all figured out. What was there to alter?
+
+On the morning of November 17th, I picked the acid up from a loose acquaintance of mine based in one of the more desolate suburbs of the city. He gave me two rules to follow given this was my first time taking LSD.
+
+**1. Only take a half tab to avoid going overboard.**
+
+**2. Avoid any and all mirrors.**
+
+The second one seemed odd to me. I remember pressing him on the matter and he simply said, “you won’t like what you’ll see in it”.
+
+So there I was. Holed up in my apartment. It was 4pm but at this time of the year the sun had already begun to set. That is when I broke the first rule. Instead of taking only half a tab, I decided a whole tab wouldn’t hurt me. I was alone. Inside. What could go wrong?
+
+The visuals came on quickly. And, it was so nice. When tripping, I imagined my brain like one of those wooden block puzzles. The ones that consist of five or six pieces that, once deconstructed, you have to figure out how to put back together so that the blocks form a perfect cube. I envisioned my brain coming apart like this — each separate block making up a diﬀerent space in my head. Holding a diﬀerent purpose.
+
+Then, I imagined myself dusting oﬀ each block separately. Cleaning each of them, one by one. Getting rid of the muck and waste that had built up and become trapped in the crevices of my brain. Disposing of the rotting mold that had taken shelter in my mind. There was this indescribable lucidity. Like, I was seeing myself, my life, for the first time.
+
+Eventually, I decided to move to my bed. Which was a mistake, because right next to my bed, was a tall mirror I’d hung on the wall. This is when I broke rule #2. For awhile, I fought the urge to look into it. But, the idea had festered for too long at that point. There was only one possible outcome. And that was me looking in the mirror. And, look I did.
+
+At first, it was nothing out of the ordinary. I saw myself. The version melting amongst the liquid shapes. I couldn’t look away. It was then that things started to change. The eyes started to darken. It was some alternate version of me. The version that held all my insecurities. My doubts. My loathing. I stared at this version for a bit. It started smiling back at me. Mockingly so.
+
+In the moment, it felt almost beautiful. A power had come over me. I was facing my demons. Looking them in the eye. Standing up to them. And just as quickly as it had begun, I raised my hand, and flicked. Banishing the darkness. Damning it to hell. Be gone. I remember falling back on my bed. Free from the burdens. There was a weight that had been lifted from my shoulders. I felt alive for the first time in years.
+
+The following days were ethereal. I had rediscovered the intricate beauties of life. I was  
+no longer stressed about my greater “purpose”. I was so present.
+
+November 20th was the first day I saw him. I didn’t even realize it at the time, but looking back, there is no mistaking it. The work day had just ended. I was downtown, headed for the subway station that would take me back to my apartment. I looked across the street, and saw a man that I swear, looked just like me. Watching me. I shrugged it oﬀ. Explaining it away with the delirium of the work day, and carried on.
+
+But, in time, it became unavoidable. I’d see him everywhere I went. And, even when I didn’t see him, I knew he was there. I felt him. And he kept getting closer. Closer. Oh, so close. I’d be on the jam packed subway cart, look to the other end, and see him. Watching me. Only, it wasn’t “him”. It was me. There was no mistaking it. And, I was the only one who noticed.
+
+My work began to suﬀer. How could it not? When looking up from my computer screen meant seeing those eyes peeking back at me from over the top of the cubicle. The first time I saw him there, I screamed and fell out of my chair. The entire oﬃce stopped what they were doing and looked at me. My friend, Debbie, perched in the cubicle next to me, helped me up as I blabbered away about the man who was hiding behind my cubicle, watching me. Of course, there was never a man.
+
+I quit that job. And the one after that. And the one after that. I couldn’t stay employed. Everyone in my life slowly started to dissipate. I’d lie in my bed at the night. The room shrouded in darkness. He was always there, standing motionless in the darkest corners. Most of the time, it was dark enough where I could see only his glowing eyes. But, on the nights where the moonlight was a bit more potent, I could see the outline of his body where the natural light fell. Before the rest of him dissolved into the abyss.
+
+Then came the whispers. The voice so guttural. Creaky. Ancient. It told me to do things. Horrible things. I’d look to the ceiling and see him there. Perched up like a spider. Watching me. I’d blink and he’d be gone. But, the voices were ever present.
+
+The worst of it came the following fall. I was having a particularly hard time falling asleep on that night. And the voices were so loud. Telling me to do horrible things to myself. Unspoken things. I raised my head from the pillow and looked to the foot of my bed. There he was. Those eyes. The hands propped on either side of his head. I could only see his head from the nose up. His mouth, hidden under my field of vision where the mattress blocked the rest. He shook his head, before slowly retreating back under the bed.
+
+I checked myself into an in-patient facility that night. It was the best thing I could’ve done. It pushed me to the brink of financial collapse. But, it was worth it. I continued seeing the man. But, over time, things changed. He didn’t feel so malevolent anymore. He backed oﬀ a bit. And in time, I learned to live with him.
+
+Dr. Mortimer believes me when I tell him these things. He seems to be the only one. I’m very grateful for the doctor. I’m very thankful for our weekly check-ups. When I’m not meeting with him, I sit in the lounge area with all the other patients. Most of them are mute. In wheelchairs. Some have been stuck in a trance like state for years now. I often wonder about where their mind has went. The only other patient I can really talk with is Gary. He has a “watcher” too. Gary says that his “watcher” doesn’t like me.
+
+My *watcher* is still with me to this day. We’ve grown old together. In some ways, maybe that night, November 17th, was the best thing that ever happened to me. In fact, I can see him in the reflection of my laptop right now. Standing behind me. Watching. He tells me I don’t need Dr. Mortimer anymore. Maybe, he’s right
