@@ -125,5 +125,3 @@ I never heard the knocking again, it had stopped completely. It was at first dif
 I don't know what that thing was, or what it's purpose was, but I'm better off not thinking about it.
 
 All I know is next time I hear that familiar knock, I'm ignoring it.
-
-**(PLEASE DO NOT UPLOAD A NARRATION OF THIS STORY ON YOUTUBE WITHOUT PERMISSION)**
