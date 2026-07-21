@@ -12,7 +12,7 @@ Kids always lost all composure when they were passionate about something. It was
 
 “Keep it down, Will,” his slightly older peer, Aaron hissed.
 
-“Yes it is!” The little girl, Abby, argued.
+“Yes it is!” The little girl, Lucy, argued.
 
 Aaron had his hands full wrangling the two. If I had been responsible, I'd have stopped their pent up emotions before they escalated further, but, admittedly, I was curious what drama they could spin as well.
 
@@ -38,7 +38,7 @@ The children nearly screamed.
 
 “Can it, Lucy,” Aaron jabbed with a light elbow to his sister's shoulder. “We're sorry.” His voice flipped to sheepish guilt, and the kids sulked as they composed themselves before returning to the room of mourners. 
 
-\~
+~
 
 The grieving was at its thickest by the time that they returned, and their youth left them grappling with complex feelings, bouncing turbulently between confusion and boredom and sorrow and fear. Quickly, each held onto their parents while they joined the collective sobbing. 
 
@@ -64,7 +64,7 @@ My coworker had worked her magic to minimize possible odors and leaking. Kevin h
 
 I was grateful for the opaque salve. I feared that Kevin's neck may have been too anatomically revealing of the private, intimate passages of the child's neck. I suddenly understood why Mrs. Williams didn't want to see her son one last time.
 
-\~
+~
 
 It was a grim job, but it was an honest job. I clocked out just like everyone else with less macabre professions. Still, my mind bubbled with possibilities about what could have happened to the headless child.
 

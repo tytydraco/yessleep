@@ -1,0 +1,40 @@
+I’ve always been a lucid dreamer. Since I was kid I remember taking flight into pink skies or turning myself into all types of animals. My dreams back then were my safe haven.   
+They were my way to escape my childhood. The constant arguing from my parents the toxic cycles of leaving each other and coming back only to do it all over again. I spent a lot of my childhood being bounced around because of this. I always thought that was the reason. I can’t let my feet hang off the side of my bed. That’s any bed in any room in any house.   
+Have you ever been so consumed with fear that your heart stops beating for a moment and when it resumes all your blood is rushing to your head. Well that’s the feeling I get every time.   
+Anyways I have struggled with mental health issues for as long as I can remember. I’m 32 now and I still have those issues and I still escape the monotony of my life through my dreams. I do whatever I want there. I am whoever I want there.   
+Well this started on one such exploration. Maybe a month ago. I had the longest day at work so I came home popped a tv dinner in the microwave showered ate and slept.   
+Since I was a child some part of me just knew not to question dream logic and it always felt wrong to tell the people in the dream that I was dreaming so I never did. I want you all to know that I have been doing this since I was around 8 or 9 that I can truly vividly remember. I have never experienced anything bad in my lucid dreams none of the weirdness I see other people talk about it’s always been just me and my dreams. Well I have this dream friend her name is Alice. She’s someone I created when I first started lucid dreaming I was a lonely kid so I wanted someone to explore the dream world with.   
+And well she’s still around because I’m quite the lonely adult as well so we talk. Sometimes we still explore together but after years of doing this every night it just kind of becomes a second life in a way so mostly now I just talk to her about my life and day. It’s easy to forget she isn’t real. That’s what led to my mistake. I was talking to Alice like every other night droning on about office politics and how much I hate it there. Alice asked me why I don’t just find something I like better. I wasn’t even thinking when I said   
+“That’s easy to do here but the real world doesn’t care about what you like better”   
+Simple not even a direct challenge but everything around me went silent. It was different than regular silence it was all consuming and when I looked back at Alice the woman I’d grown up with was gone. In her place was a shadow its edges in color that I could just make out. Like an old tv trying to become a color tv. And I woke up. Not because I wanted to but more like I was pushed out. When I woke up my right foot was hanging off the bed.   
+Cold dread washed over me but I heard Alice in my head. She was yelling at me not to move a muscle. So I didn’t. I laid there silent and still as possible my eyes sealed shut. I felt my mattress shift just a bit. Barely noticeable. if I had still been asleep I wouldn’t have noticed a thing.   
+By that point I was freaking out and I wanted to move so badly but Alice she never stopped yelling in my head. Her own voice in my head like they were my thoughts. I stayed still but I was hyperaware of everything around me. I heard nor felt anything else after that first mattress shift. Somehow I ended up falling back asleep. I did not lucid dream again that night. When I woke back up in the morning my foot was back under my covers tucked as if it had been there all night.   
+Absolutely nothing was strange that day and I obviously didn’t hear Alice in my head. I convinced myself that it was all part of my dreams. Maybe I woke up still half asleep. Sleep paralysis? It could’ve been anything I told myself. A fluke.   
+The next instance didn’t happen until a week later. I had been lucid dreaming every night since that night and everything was fine. No shadows no weird Alice no shifting mattresses. So I was fully convinced that I was just asleep. This second incident proved to be much more terrifying to me.   
+I had had a long terrible day at work. Being a woman in the business field is not for the weak. So I wanted to have fun and explore. Go fly to the moon or some shit? I don’t know. Me and Alice were at Point Nemo. We were walking on water just chatting about nothing as we watched sea life swim beneath us. Alice said something funny and I looked over at her laughing when I noticed her eyes did not match her smiling face or her words. The panic I felt in that moment was immense. Have any of you ever seen someone smiling and telling a joke but their eyes are full of terror?   
+It’s not a fun sight. I flinched back from her giving her a look of pure confusion. Her eyes widened and she leaned really close to me whispering frantically.  
+“Keep your eyes closed. Don’t move a muscle. He can’t get you here but he can out there. Don’t acknowled-“ and it’s like I was jerked out of my dream. I felt the cool air on my ankle and cold dread as I felt fingers letting go of my foot.   
+It took everything in me not to scream. I kept my eyes sealed shut but my body shook with my fear. I heard nothing but I felt something right in front of my face. Inches from my face just staring at me. I wanted to cry I was scared. I stayed up until I heard the garbage truck outside my house. The feeling of being watched didn’t go away until about an hour before that. I called out of work and did research staying on my computer all day. I eventually fell asleep despite trying so hard not to. When I came to in the dream Alice was staring at me.   
+“What the fuck is going on?” I yelled at her my tone was angry but she wasn’t surprised she looked relieved actually.   
+“They can’t come here during the day and they can’t interact with the real world when the sun is shining.” Alice tells me as if it’s supposed to make all the sense in the world  
+“Who are they? That person or thing stood in front of me all night face to face!” I yelled at her again and she leans over hugging me tightly very on person for her but she seems like a person now. Not a character in my dreams.   
+“I’m not a character in your dreams. I’m your subconscious. I’m the part of you that dreams” Alice tried telling me but come on. I’m sure you all can imagine my reaction to all of this.   
+“Then what the hell am I? Alice. Stop bullshitting what is going on?” I asked her at my wits end  
+“We’re the same. I’m just your subconscious. You lucid dream so you can come here and see me and interact with me. The last time you came you broke a rule. By breaking that rule you gave access to a kind of being. They are different than us but they also come here when they rest. By acknowledging the dream you gave it the power to see your body and that’s the only thing it needs to come to you.” Alice tells me her voice is softer than mine more calm and wise but the cadence is the same.   
+“What does it want from me? I don’t understand” I said over the craziness of this situation.   
+“Your feet” she says softly her voice terrified.  
+“Every night your soul leaves your body to come here the dreamscape I call it. But a part of your soul stays behind anchoring you to your world so you can come back. The part of your body that is most familiar with your world. Your feet. If you acknowledge the thing when it’s in your world you give it permission” Alice said softly as I stared at her with horror.  
+“Permission to what?” I asked.  
+“Remember Grandma telling us never to let our feet hang off the bed?” Alice asked. Of course I did.  
+“She was a superstitious old lady.”   
+Alice slowly shook her head.  
+“No.”  
+She looked away before she spoke again.  
+“It was a warning.”  
+“A warning about what?” I asked and Alice was quiet for a long time.  
+“How many people do you think woke up with their feet hanging off the bed… and opened their eyes?”  
+I shrugged. “I don’t know.”  
+Alice looked back at me.  
+She smiled knowingly.  
+It wasn’t her smile.  
+“How many of those people do you think came back?”
