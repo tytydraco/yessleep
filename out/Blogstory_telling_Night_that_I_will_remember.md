@@ -1,0 +1,253 @@
+My name is Luke, I'm 25 years old, and I live in Locust Grove, near a camp where I work as a security guard. It was November. I got out of bed and did the most ordinary things I usually did before my night shift at Scott Camp. I woke up around two in the afternoon, made lunch, went to the gym, and rode my bike for two or three laps. Even though I hated spending the midnight hours sitting behind a computer monitoring the camp's security, the salary was great. I could literally afford a good car after only six months of work. A full year working at this camp had convinced me that the mythical creature I used to dream about as a kid didn't exist: that big, black monster that came out of the dark depths of the forest to eat me alive.
+
+While thinking about my old fear and going through my daily routine, the clock showed eight in the evening. I left on purpose a little earlier. I knew that because the next day was a holiday, the roads would become unbearably crowded around nine. Since my shift starts at 9:45 p.m. and lasts until 9 a.m., I didn't want to be late and make my fat boss angry again.
+
+I packed the most important things into my bag: a spare uniform, my phone charger, spare car keys, a warm wool jacket, a blanket, and a pillow. Knowing another long night was waiting for me, I also packed a sachet of cappuccino and a powerful flashlight to help me stay awake until sunrise. And, of course, some snacks to enjoy while watching TV shows during that boring job.
+
+However, as soon as I got onto the main road, I noticed there wasn't a single car anywhere. The screen in my car said it was Saturday, so I figured everyone was probably already stuck in lines at supermarkets. That gave me a chance to get to work even faster.
+
+Instead of the usual sounds of traffic, an eerie silence from the forest came through my half-open window, broken only by the deep whistling of the wind through the trees. I was going to listen to that all night, which would definitely ruin my plans for a relaxing "night out" inside the office.
+
+While driving, I got a voice message from my friend Maja on Snapchat. Like always, I expected her to gossip again about one of her former friends like some annoying old lady. But what she said made me immediately take my foot off the gas pedal.
+
+"Did you hear they put up posters about missing children at the camp where you work?"
+
+I raised my eyebrows, trying to figure out if she was joking or being serious. I immediately called her on speaker.
+
+"What are you talking about? What posters? Nobody told me anything," I asked, confused.
+
+She started explaining what had happened, but to me it all sounded like another made-up story from social media. I let her keep talking anyway, just so her gentle voice could keep me company while I drove through the darkness.
+
+I arrived at the camp earlier than usual. The lights were off, and my boss wasn't there—great! Looks like I'll have to do everything myself... I left my things in my office and walked over to the fuse box to restore the electricity. The wires had been cut, and on top of the box there was a note written in unfamiliar handwriting.
+
+"There won't be any electricity until the electrician arrives tomorrow morning. Please wait for him before you leave..."
+
+Great. I'll have to spend eleven hours in complete darkness, completely alone. Luckily, my mobile data still worked, so I could keep talking to Maja.
+
+Then it suddenly hit me that I had forgotten my power bank at home, and my battery was only at 87%. I had to use that 87% wisely, so I lowered the screen brightness and turned on battery saver to save as much battery as possible.
+
+This time Maja and I talked through messages because her parents had told her it was time to sleep, and I didn't want to get my best friend into trouble.
+
+The office was locked, the curtains and shutters were closed, and I personally locked the camp because there was no electricity. It simply didn't make sense that anyone, especially at this time of night, would come to the camp without lights or security.
+
+Three hours passed. I sat in complete darkness inside my office, turning my phone on and off just to check for messages.
+
+Suddenly, I heard leaves and branches crunching somewhere in the distance. It caught my attention. I didn't want to go outside. It was freezing cold, and honestly, I was too lazy. So I looked through the small peephole to see what it was.
+
+A man?
+
+Someone was walking around the camp carrying something in their hand.
+
+Then a thought crossed my mind.
+
+"What if that's finally the electrician?"
+
+But didn't the note say he would come at dawn, not at midnight? Maybe he has a spare flashlight, I thought, but I wasn't sure. I quietly walked over to my desk, trying not to make the wooden floor creak. My flashlight wasn't there, so I turned on my phone and texted my boss.
+
+"Boss, did the electrician say he was coming around midnight or at dawn?"
+
+Seconds and minutes passed before I got a reply that made my eyes open wide.
+
+"I don't know anything about an electrician. Did something break?"
+
+My heart stopped. Terrible thoughts started running through my mind. Was I really alone in the camp? Suddenly, I heard a loud jolt at the door, and the handle slowly moved as if someone was trying to get inside. I froze in place and quickly sent another message to my boss.
+
+"Boss, are you standing outside the door?"
+
+A few seconds later, while I could hear fingers tapping on the door, I got a reply.
+
+"I'm in my room. What's happening over there? Tell me now."
+
+I could almost feel the anger in his message, as if he was ready to come over and beat up both me and whatever was standing outside the door. I replied like a scared little kid.
+
+"There's no electricity. Someone is in the camp with me, and whatever it is is trying to get inside. I've locked myself in the office, closed the shutters and the curtains. I'm not moving."
+
+After I answered his question, I didn't get another reply.
+
+Suddenly, I got a Snapchat notification. It was Maja.
+
+"Luka, are you asleep? I just wanted to tell you to lock yourself in because a psychopath is on the loose. They say he was last seen three days ago in the forest near Scott Camp."
+
+My hands started shaking as I typed. My phone almost slipped out of my hands while that thing, or that person, was standing outside my office.
+
+"Well... that person is outside my office right now. I've locked everything, told my boss, and I'm not moving..."
+
+Maja replied immediately.
+
+"WHAT?! CALL THE POLICE RIGHT NOW!"
+
+I didn't want to look like a coward, no matter how much I actually felt like one, so I wrote back.
+
+"Maja, everything is under control. Don't worry!"
+
+Suddenly, I heard loud sniffing, almost like a dog... Then everything went silent. There was no wind, no owl, nothing. I heard footsteps, then leaves crunching, and just as I sat down, I accidentally knocked my notebook off the desk. Fast footsteps rushed toward the door. Then I heard laughter, just like in a horror movie, followed by a voice saying:
+
+"I found you."
+
+It started slamming against the wooden door like something that wasn't even human. I grabbed my flashlight and waited for the moment the door would finally break. No matter how hard it tried, it couldn't force the door open, so it started hitting it with something sharp. The wood began cracking under every strike. Through the small holes forming near the bottom of the door, cold forest air started coming inside. I held the heavy metal flashlight tightly with both hands while sweat ran down my palms. I was ready for anything, even though my heart was beating in my throat.
+
+The screen of my phone lit up quietly on the desk. Maja had sent another message.
+
+"Are you there?! Answer me!"
+
+I didn't dare move to grab my phone. Suddenly, the banging stopped. The silence was even worse. I could only hear heavy, rough breathing from the other side. Then, instead of pounding on the door, something thin and sharp slowly slipped through a crack near the lock. It was a long, rusty blade. It slowly moved upward, trying to reach the lock and lift it.
+
+Without thinking, I smashed it with the metal flashlight and got the horrible feeling that I had cut something.
+
+Then I heard the voice again.
+
+"You'll pay for that..."
+
+It said those words while trying to force its fingers through the hole in the door. Its fingers were unnaturally long and covered in blood. I started hitting them with the metal handle of the flashlight until it let out an unnatural scream like some starving creature. I was disgusted by its heavy breathing.
+
+Meanwhile, my boss sent me another message, but I couldn't read it because I was standing right against the door. Whatever had been outside suddenly walked away. That gave me enough time to grab my phone and read the message.
+
+"Run away from there however you can. The police are on their way." 
+
+I reacted to the message with a like, grabbed my bag, and threw everything from my office into it. While I was quickly packing my things, I heard fast footsteps again. Then something slammed into the door, freezing the blood in my veins. A huge rock crashed into the closed shutters with incredible force and, with a terrifying bang, shattered the window. Pieces of glass scattered all over the floor, and the freezing night air rushed into the office. I knew I didn't have much time left. If it could break the window, it would soon find a way to get inside.
+
+That's when I decided to provoke it on purpose with the same sarcasm I always used on Maja.
+
+"If you're so strong, come inside if you dare!"
+
+A smile crossed my face for just a second before disappearing immediately.
+
+From the other side, I heard my own voice.
+
+It repeated every single word in exactly the same tone and with exactly the same voice, as if I was listening to a recording of myself.
+
+"If you're so strong, come outside if you dare."
+
+Every hair on my body stood up as it started tearing at the metal shutter with its long fingers, as if it couldn't even feel pain. The metal screeched under its strength, and blood ran down its hands, but it didn't seem to care. After several minutes of trying without success, it let out a deep sigh and ran back into the darkness.
+
+That was my only chance.
+
+I burst out of the office and sprinted toward my parked car. While I was running, I finally saw it clearly in the distance. It was tall and unnaturally thin, wrapped in dirty white bandages, holding a huge axe in its hand. It didn't even notice that I had already escaped the office and kept trying to break the door down while I jumped into my car.
+
+I slammed my foot on the gas pedal and sped toward my house.
+
+Meanwhile, my phone wouldn't stop vibrating. Message after message kept coming in—from my mother, my father, my aunt, my grandmother, distant relatives, and finally from my best friend Maja.
+
+At that moment, I looked into my rearview mirror.
+
+It was running.
+
+Really...
+
+Really fast.
+
+I pressed the accelerator all the way down and drove as fast as I could.
+
+Then, suddenly...
+
+It disappeared.
+
+My foot was still flat on the gas pedal. The speedometer needle kept climbing, and the engine was roaring. I looked into the rearview mirror again.
+
+Nothing.
+
+Just an empty black road and dark trees disappearing into the night.
+
+Where did it go?
+
+There was no way something that big could simply vanish, especially while moving that fast.
+
+My phone kept buzzing with messages. Everyone wanted to know where I was. I tried to reply that I was driving home.
+
+Then, out of nowhere...
+
+It appeared right in front of my car while I was driving at full speed.
+
+"Oh God, forgive me!"
+
+I shouted and slammed on the brakes as hard as I could. The tires screamed across the wet road, and the car began sliding uncontrollably. My heart was pounding so hard that I couldn't hear anything except my own breathing. The creature stood in the middle of the road without moving. My headlights lit up its tall, unnaturally thin body. The dirty white bandages were stained with dark marks, and a huge axe hung from its right hand.
+
+Its head slowly lifted.
+
+I felt the blood freeze in my veins.
+
+It had no face.
+
+Where its eyes, nose, and mouth should have been, there was only smooth, pale skin.
+
+The car kept sliding straight toward it.
+
+I closed my eyes and gripped the steering wheel, waiting for the impact.
+
+Instead of crashing into it, I only felt a sudden jolt as the car finally came to a stop. For a few seconds, I didn't have the courage to open my eyes. When I finally did, I looked straight ahead.
+
+The road was empty.
+
+It was gone.
+
+As if it had disappeared into thin air.
+
+With shaking hands, I looked into the rearview mirror.
+
+Nothing.
+
+Just the empty black road and the dark trees moving gently in the wind.
+
+My phone suddenly started ringing.
+
+The screen said: Boss.
+
+I answered immediately.
+
+"Luka, the police have arrived at the camp."
+
+"Did you find him?"
+
+There was a short silence on the other end.
+
+"We found something much stranger."
+
+"What?"
+
+"Your office door isn't broken. The window isn't shattered. The shutters are completely fine. Everything looks perfectly normal."
+
+I felt my stomach turn.
+
+"What do you mean normal? He was just trying to kill me!"
+
+My boss stayed quiet for a few seconds before speaking again in a much lower voice.
+
+"Luka... the only thing we found was a large amount of blood in front of your office door. And footprints leading into the forest."
+
+"That's him! I told you!"
+
+"No... those footprints aren't human."
+
+My heart started racing again.
+
+At that exact moment, I heard a soft knock on my driver's side window.
+
+Knock.
+
+Knock.
+
+Knock.
+
+Slowly, I turned my head.
+
+A bloody hand with unnaturally long fingers was pressed against the glass.
+
+My breath caught in my throat.
+
+My eyes slowly moved upward.
+
+It was standing on the other side of the window.
+
+It still had no face.
+
+Just smooth, pale skin where its eyes and mouth should have been.
+
+Then, right in front of me, a mouth slowly began to open on that blank face.
+
+It stretched into an unnaturally wide smile.
+
+The smell of something rotten somehow filled the inside of my locked car.
+
+Then it whispered,
+
+"I found you."

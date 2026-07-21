@@ -132,7 +132,7 @@ I didn't know what to say. Part of me thought he finally lost it, he was gone, h
 
 He started humming a tune that gave me the creeps. It was slightly off key, and had an ominous vibe. I'm not a musician, so I don't know the exact notes, but I'll try my best to transcribe what it sounds like. If it doesn't make sense, I'm sorry, maybe I can upload a sound clip of me humming it later or something. 
 
-♬ ⌄  \^        ♬ \^  \^       ♬ \^  ⌄       ♬ ⌄  ⌄    
+♬ ⌄  \^        ♬ \^  \^       ♬ \^  ⌄       ♬ ⌄  ⌄
 
 Hm-hm • Hm-hm • Hm-hm • hm-hm
 
@@ -140,11 +140,11 @@ Hm-hm • Hm-hm • Hm-hm • hm-hm
 
 Hm-hm • Hm-hm • Hm-hm
 
-♬ ⌄  \^        ♬ \^  \^       ♬ \^  ⌄       ♬ ⌄  ⌄   
+♬ ⌄  \^        ♬ \^  \^       ♬ \^  ⌄       ♬ ⌄  ⌄ 
 
 Hm-hm • Hm-hm • Hm-hm • hm-hm
 
-♬ \^  ⌄        ♬ \^  ⌄       ♬ \^  ⌄ 𝄐 
+♬ \^  ⌄        ♬ \^  ⌄       ♬ \^  ⌄ 𝄐
 
 Hm-hm • Hm-hm • Hm-hm
 
@@ -202,8 +202,8 @@ I can tell you right now, there's something evil in that book. I think reading i
 
 ♬ \^  \^        ♬ \^  \^        ♬ \^  - 𝄐
 
-♬ ⌄  \^        ♬ \^  \^        ♬ \^  ⌄        ♬ ⌄  ⌄   
-
+♬ ⌄  \^        ♬ \^  \^        ♬ \^  ⌄        ♬ ⌄  ⌄  
+ 
 ♬ \^  ⌄        ♬ \^  ⌄        ♬ \^  ⌄ 𝄐
 
  

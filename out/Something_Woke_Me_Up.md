@@ -1,0 +1,126 @@
+  
+
+
+
+
+I was on the couch nearly asleep when I felt something tap me on my arm. Something hard. Something physical. I opened my eyes expecting to see my pregnant wife, but no one was there. 
+
+
+
+I looked around and barely heard a faint sound from the kitchen that I almost missed. That I would have missed had I been asleep.
+
+
+
+“Hon?” I yelled out, expecting a response. 
+
+
+
+No one said anything. I looked at the screen on my phone. It was midnight. Midnight already, I thought. It was ten the last time I checked. 
+
+
+
+“I must’ve passed out,” I said to myself.
+
+
+
+Glowing under the time, a text from my wife:**Staying at Rebecca’s for the night, love you.**
+
+
+
+Rebecca’s her sister. The house felt quiet. Too quiet. I jumped as the heat shot on, that kick felt like something entered me.
+
+
+
+I convinced myself that I must be tired, even maybe a little stressed and it had finally caught up. Mental fatigue. But as one thought passed to the next, I heard another noise.
+
+
+
+Something slowly scraped the floor above me, like a dresser dragging. The noise either came from the nursery, or our bedroom. I couldn’t be sure.
+
+
+
+“Hon?” I shouted as loud as I could.
+
+
+
+A door upstairs slowly creaked open, almost how someone trying to peek through the space between unnoticed would. The sound came from the nursery, I was sure of it. The chimes on the door clanged lightly.
+
+
+
+“*Who’s there?*” I hopped up and made my way upstairs. 
+
+
+
+At the top step, I saw a shadow, a small, boy-sized outline of a person. I flashed my phone up at it, the shadow froze. The light on my phone took a take a breath, it went off and on. 
+
+
+
+It was as if someone pressed their hand on my phone and smothered the light with their palm. It happened so fast, between inhaling and exhaling that I didn’t have time to fully understand what just happened.
+
+
+
+I still assumed at the time that someone was inside the house, either messing with me, or someone broke in. The last thing on my mind was something paranormal. I couldn’t really appreciate what had happened until a couple of nights later.
+
+
+
+
+
+I stood there stuck between stomping forward and stumbling backward, when the light flicked off and on, shining on the closet in the middle of the hallway, where the figure paused when I caught it with the flashlight.
+
+
+
+I charged upstairs, banging down on each step as I stormed up, the sound was like dribbling a bowling ball on a wooden floor.
+
+
+
+
+
+At the top, I slapped the light switch with my palm. But It didn’t turn on. I used my phone and pointed it down each end of the hall, brightening the doorways. Nothing was there.
+
+
+
+I pressed my back against the wall and slid down the hall.
+
+
+
+“*I got a weapon*!” I yelled, warning any intruder.
+
+
+
+I stared at the nursery, the door was cracked half-way open. We kept that door closed. All the time. 
+
+
+
+Jessica wouldn’t be born until May. This happened early January.
+
+
+
+I couldn’t scratch the itch something was staring at me through the darkness. The feeling was so intense my skin began pinching, and itching, like fresh cuts opening and instantly scabbing.
+
+
+
+I scratched the back of my neck so hard without noticing that I had skin and traces of blood trapped under my fingernails.
+
+
+
+
+
+I hammered in the unlock pin on my phone and dialed my wife. But when I placed it to my ear, it died. 
+
+
+
+And so did the flashlight. I had a hood of black, suffocating darkness thrown over my head that left me with a chill. I randomly started gagging, then choked on the air when it felt like I was breathing in water. 
+
+
+
+I felt trapped, it was the same feeling as being stuck under a thick sheet of ice after falling in.
+
+
+
+
+
+Then, something happened, I have no idea what it was, or what exactly occurred, but a black silhouette stepped in front of me. It clogged the darkness in a thick outline before the hall lights turned on.
+
+
+
+Once the lights went on, the feeling of being watched left along with the stickiness coating my skin.
