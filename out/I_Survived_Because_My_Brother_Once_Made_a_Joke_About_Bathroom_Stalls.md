@@ -1,4 +1,4 @@
-My mama always told me a real man doesn't need foul words to make a point, and I believed her enough that I'm twenty-seven years old now and the worst thing that comes out of my mouth on a regular day is "shoot" or "dang it." I know how meek that probably sounds. I've been called soft my whole life, by my brother mostly, who isn't soft about anything, who joined the army at eighteen and came back at twenty-two talking different than the rest of us. But I am who my mama raised, and there's exactly one word I let myself say when things go bad, and it isn't much of a word at all. 
+My mama always told me a real man doesn't need foul words to make a point, and I believed her enough that I'm twenty-seven years old now and the worst thing that comes out of my mouth on a regular day is "shoot" or "dang it." I know how meek that probably sounds. I've been called soft my whole life—by my brother, Butch, mostly—who isn't soft about anything, who joined the army at eighteen, and who came back at twenty-two talking different than the rest of us. But I am who my mama raised, and there's exactly one word I let myself say when things go bad, and it isn't much of a word at all. 
 
 *Damn*. 
 
@@ -40,7 +40,7 @@ Toward me.
 
 I thought about climbing into the ceiling tile. I thought about the little frosted window over the sinks, too small for a grown man and I knew it, but thought about it anyway. I thought about just staying locked in that stall with my feet pulled up off the floor and praying.
 
-And then my brother was in my head. His voice, clear as if he was standing next to me, thick with that drawl the army never managed to scrub out of him. We'd been on the couch years back, some slasher movie playing, and he'd said it half as a joke. 
+And then my brother was in my head. Butch's voice, clear as if he was standing next to me, thick with that drawl the army never managed to scrub out of him. We'd been on the couch years back, some slasher movie playing, and he'd said it half as a joke. 
 
 *If I was ever in one of them movies and hiding in a bathroom, I ain't never leaving my stall door shut and locked. First thing they check. Locked door just tells 'em you're in there, waitin' on 'em.*
 
@@ -120,7 +120,7 @@ The morning shift pulled in around six in a county van, and I watched both of th
 
 They got me into the van. One of them kept asking me questions I don't remember answering. They drove me back to town, the same hour-long stretch of empty highway Denny and I used to make small talk over every single night, and somewhere on that drive I started shaking and didn't stop until somebody's mother—not mine, a stranger's, one of the women from a diner who came out when she heard—put a blanket around my shoulders and held onto my arm like she was the one who needed to be sure I was still there.
 
-The police went out to the station. They're still looking, as far as I know, though it's been a while now and I don't expect that to change. He’d been wearing a balaclava and shades on the cameras once they pulled those up. Whoever that man was, he knew exactly how long he had before anyone would notice or anyone would come, and they used every minute of it, and then they drove off into forty miles of nothing with no camera and no radio and no one to stop him.
+The police went out to the station. They're still looking, as far as I know, though it's been a while now and I don't expect that to change. He’d been wearing a balaclava and shades on the cameras once they pulled those up. Whoever that man was, he knew exactly how long he had before anyone would notice or anyone would come, and they used every minute of it.
 
 The emergency radio got installed two days after. I think about that more than I probably should. About how close it came, how a piece of equipment sitting in some county warehouse for two extra weeks might have been the difference between Denny calling for help and Denny not getting the chance to.
 
