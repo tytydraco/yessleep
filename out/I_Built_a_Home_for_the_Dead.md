@@ -398,15 +398,17 @@ Her head split open vertically with the same brutal crack from before. Where h
 
  
 
-They latched into my skin and pulled. I rolled onto my stomach, clawing at the floor. The harder I fought, the deeper they sank. The sound from Olivia’s open head rose until it filled everything. 
+They latched into my skin and pulled. I rolled onto my stomach, clawing at the floor. The harder I fought, the deeper they sank. The hissing from Olivia’s open head rose until it filled everything. 
 
  
 
-I was being pulled into the place where my wife’s thoughts should have been. Would she ask why I came back for her, but not for the child one room away? 
+I was being pulled into the gaping chasm of wiggling, slithering threads. Lowered down her split chin, down her engorged throat.
+
+Would she ask why I came back for her, but not for the child one room away? 
 
  
 
-Then her split skull clamped shut around me, and everything went white. 
+Then her split skull clamped shut around me, the pressure squeezing my waist and bending my back like the snap of two brittle fingers and everything went white. 
 
  
 
