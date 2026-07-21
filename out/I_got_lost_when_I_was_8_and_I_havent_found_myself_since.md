@@ -1,0 +1,133 @@
+I’m not sure if this is the right place to turn to, but I have a memory that won't let me sleep. And it hasn't for the past 22 years. I just need to know if anyone out here remembers what I remember.
+
+Do You remember?
+
+...
+
+It was a cold winter afternoon, back when winters were still cold and snow still covered the landscape of my hometown. School had just ended for the day and I was on my way home.
+
+Alone.
+
+I’d usually walk with my brother, but he wasn’t there that day for some reason. 
+
+I didn’t mind it though, not really. You see, our apartment was just a few steps away, just across the creek.
+
+And besides, I was a big girl now. I just turned 8 a few days ago.
+
+And then … You offered to join me.
+
+It started snowing just as we were about to leave school. We walked around back, past the playground, towards a small wooded area leading to the creek. Walking by, we couldn’t help but notice the freshly fallen snow behind the playground fence. Still untouched by the hundreds of tiny human feet running around there every day. It was as tempting as those powdered doughnuts cooling on the kitchen counter back home. You know the ones. The ones You were strictly told not to touch before dinner.
+
+We snuck inside through the hole at the bottom of the fence that the teachers never seemed to notice; my go-to move during recess, when I would sneak out of the playground to go climb my favourite tree. 
+
+The big willow tree, 
+
+with its trunk split in half straight across. 
+
+I used to climb that tree as high as I possibly could … Sometimes on the left half, sometimes on the right … 
+
+And I would watch the other kids play on the ground from afar … 
+
+I remember my teacher finding me up there once. On the top. And it made her cry … I'm still not sure why …
+
+I ran into the open field, launching myself face first into the snow-covered ground. I rolled around and I just stayed there. Staring at the sky.
+
+Snowflakes danced on my face, like little kisses from heaven. 
+
+Each touch, so warm and fuzzy, like my mom’s favourite cashmere sweater.
+
+Everything around me was completely still. The silence, broken only by the occasional rustling of the branches, caving under the heavy weight of the snow.
+
+I could feel myself blending into the background.
+
+I could feel the earth breathing with me.
+
+I closed my eyes to let the gentle touch of winter swallow me whole.
+
+I didn’t want to leave. I didn’t want to move.
+
+I was at peace.
+
+I haven’t felt like that since.
+
+And then … BAM!
+
+A snowball sharp as a thousand needles pulled me right back into reality. 
+
+“Come on! Let’s go build a snowman!” You said.
+
+I started laughing, even though I wanted to cry from the pain. My whole face, burning. You were always a good aim.
+
+So we built Your snowman. We built a snowman taller than the both of us! Even though You were one whole head taller than me.
+
+“He’ll protect us,” You said. “So we have to make him as biiiiiig as possible!”
+
+We gathered stones and branches to give him two arms and a face. And I made sure to give him a smile. I wanted the snowman to feel the joy that I felt in that moment.
+
+I haven’t felt like that since.
+
+It couldn’t have been more than 30 minutes before I noticed a dark silhouette coming towards us through the thick veil of snow. 
+
+When did it even start snowing this hard? 
+
+I haven’t noticed.
+
+I wasn’t scared of the figure though, not really. You see, I was a big girl now. I just turned 8 a few days ago. 
+
+And besides, I could recognize that figure anywhere. 
+
+A tall, skinny man of a sickly complexion. He was dressed in all black to match the long dark hair that hung over his shoulders like a scarf. His woolen coat brushing over the snow. 
+
+“Hey, Uncle Andy!” I yelled, running to him. “What are you doing here?” 
+
+“Heeey Beck! I’m so glad I found you. Your parents, they … oh, nevermind! Let’s get you home.” 
+
+“Awwh, really? But we just started playing, just 5 more minutes? Please?”
+
+Uncle Andy, now towering over me, leaned closer. Only the fence standing between us. “No, Beck. It’s time to go home.”
+
+I stood there for a moment, unsure of what to say. “Okay, I guess. Can I just say goodbye to my friend?” 
+
+I turned around to call You, but You weren’t there. 
+
+I ran to check behind the snowman, but You weren’t there.
+
+I looked all around the playground to find You, but You were nowhere to be seen.
+
+I went back to my uncle, past our snowman, through the hole in the fence. 
+
+“I guess they went home before I could say goodbye.”
+
+“That’s okay,” he took my hand. “I’m sure you’ll see them again tomorrow.”
+
+I haven’t seen You since.
+
+We came home a few minutes later. My parents greeted us with a smile that could light up the sky. “How was your day? Are you hungry? Let’s get you out of those wet clothes!”
+
+They haven’t smiled like that since.
+
+I stopped walking home alone after that. I never got to explore our town as a child ever again. It wasn’t long after that I saw my mother crying in the dark for the first time. My parents got divorced a few months later.
+
+I stopped sneaking out of the playground after that. I never got to climb my favourite tree during recess ever again. It wasn’t long after that I heard the teachers whisper about You in the hallways for the first time. They fixed the hole in the fence a few weeks later.
+
+It wasn’t until my 23rd birthday that I learned what happened that day from my mom’s point of view. “Oh Beck? Yeah, she was always a good kid. Sure, we had our fair share of fights and she would never listen to me and would cry constantly, but she was a good kid. Except that one time … Do You remember?” She glanced towards me as if to ask for reassurance.
+
+I didn’t respond.
+
+“It was winter, and I think she was around 8? Her brother got sick that day so I went to pick him up from school earlier than usual and SHE was supposed to come home right after, because Andy was giving her guitar lessons later …
+
+But she didn’t come home.
+
+She was gone for hours!
+
+Her dad and I were going insane trying to find her. I mean, what if something happened to her?! It’s a mother’s worst nightmare! 
+
+We were about to call the cops when Uncle Andy rang the doorbell with Beck on his shoulders. He said he found her on the playground soaking wet in the freezing snow. Just playing, and laughing, and talking … all by herself.
+
+And the craziest thing about it? We went searching for her on that exact same playground just before Andy did. 
+
+I swear thinking about that day still sends shivers down my spine every time.”
+
+“Huh,” I said. “I never remembered it that way.”
+
+...
