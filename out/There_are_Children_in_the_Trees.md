@@ -36,9 +36,15 @@ It was right at the edge of sleep, that loose, drifting point where you're not q
 
 I'd been out at night in deep canopy more times than I can count, and I know what a clear sky looks like glimpsed between leaves: cold white points, motionless, far away. What I was looking at instead, high up in the black shapes of the branches around my camp, were dozens of small points of light with a faint warmth to their color, something closer to candlelight than starlight, and as I watched, several of them blinked, all at once, the way a hundred small pairs of eyes blink together when something below them moves.
 
-I put my headlamp on its brightest setting and pointed it straight up, and for one full second before my brain refused to process it correctly.
+I put my headlamp on its brightest setting and pointed it straight up, and for one full second before my brain refused to process it correctly...
 
- I saw a child, small, younger than ten by the proportions, sitting on a branch far too thin to hold real weight, legs dangling, watching me with an expression of mild curiosity. Its skin in the beam of my light was bone white, and its mouth was open slightly in something I first read as a smile before I understood it was full, edge to edge, of small, close-set, needle-fine teeth. When I swung the light wider, shaking hard by then, I found not one child but a dozen at least, spaced through the branches of three or four trees ringing my camp, all facing down, all watching, all with those same warm, unnaturally steady points of light where their eyes should have been.
+I saw a child.
+
+Small. Younger than ten by the proportions.
+
+Sitting on a branch far too thin to hold real weight, legs dangling, watching me with an expression of mild curiosity. 
+
+Its skin in the beam of my light was bone white, and its mouth was open slightly in something I first read as a smile before I understood it was full, edge to edge, of small, close-set, needle-fine teeth. When I swung the light wider, shaking hard by then, I found not one child but a dozen at least, spaced through the branches of three or four trees ringing my camp, all facing down, all watching, all with those same warm, unnaturally steady points of light where their eyes should have been.
 
 I understood, with a kind of sick, sliding clarity, exactly what had been scattered across that quarter mile of trail, and exactly why the gravel had felt wrong under my boots hours before I'd had the courage to look at it.
 
@@ -68,17 +74,23 @@ It hit some part of my brain that had nothing to do with fear, and for three or 
 
 My legs gave out somewhere in that fog. 
 
-I remember the ground coming up slower than it should have, like I was moving through water, and I remember, even as I was going down, hearing a sound start up all around me in the branches, not laughing this time, but a low, even hum, dozens of small voices pitched together in a single sustained note that reminded me, absurdly, of the sound an electric car makes idling at a stoplight, felt more than heard, vibrating up through the ground into my chest.
+I remember the ground coming up slower than it should have, like I was moving through water. Even as I was going down, I heard a sound start up all around me in the branches. Not laughing this time, but a low, even hum. Dozens of small voices pitched together in a single sustained note that reminded me, absurdly, of the sound an electric car makes idling at a stoplight. It was felt more than heard, vibrating up through the ground into my chest.
 
-I saw her walking toward me while I was on my knees in the dirt, and even now, with everything I know, I have to be honest that there was something in the way she moved that my body responded to as beautiful before my mind could object, a long, unhurried grace, each step placed like she had never once in her existence needed to hurry for anything. The humming in the branches didn't change pitch as she got closer. If anything it settled, evened out, like the sound itself was steadying to match her pace.
+I saw her walking toward me while I was on my knees in the dirt, and even now, with everything I know, I have to be honest: there was something in the way she moved that my body responded to as beautiful before my mind could object. A long, unhurried grace. Each step placed as though she had never, in her entire existence, needed to hurry for anything. 
 
-She crouched down in front of me, and up close the wrongness of her was almost worse for how careful it was, symmetrical in a way real faces aren't, the milky blue eyes not tracking quite the way eyes should, fixed on my face with an attention that felt total. 
+The humming in the branches didn't change pitch as she got closer. If anything it settled, evened out, like the sound itself was steadying to match her pace.
 
-She reached out and adjusted the collar of my jacket, an oddly domestic gesture, the kind of small correction a mother makes to a child's clothing without thinking about it, and I understood in that moment, with the smell of my own childhood still thick in my throat, exactly what role I had wandered into and exactly how long some part of her had likely been waiting for someone to fill it.
+She crouched down in front of me, and up close the wrongness of her was almost worse for how careful it was, symmetrical in a way real faces aren't. The milky blue eyes not tracking quite the way eyes should, fixed on my face with an attention that felt total. 
 
-Then she knelt fully in front of me, and the long shapes at her back unfolded, slow and deliberate, spreading wider than I would have believed they could, and she drew them forward around me until they closed at my back, a dry, papery warmth on either side of my face and shoulders, folding me in against her the way you'd wrap a child in a blanket too big for them. 
+She reached out and adjusted the collar of my jacket, an oddly domestic gesture, the kind of small correction a mother makes to a child's clothing without thinking about it. I understood in that moment, with the smell of my own childhood still thick in my throat, exactly what role I had wandered into and exactly how long some part of her had likely been waiting for someone to fill it.
 
-I couldn't have pulled away by then even if the fog in my head had let me want to. She leaned in and kissed me on the lips, slow, cool and dry, and that's the last clear thing I remember. The humming, the smell, her wings closed around me like a second, softer kind of dark, and then nothing.
+Then she knelt fully in front of me.
+
+The long shapes at her back unfolded, slow and deliberate, spreading wider than I would have believed they could. She drew them forward around me until they closed behind my back.
+
+A dry, papery warmth settled on either side of my face and shoulders, folding me against her the way you'd wrap a child in a blanket too big for them.
+
+I couldn't have pulled away by then even if the fog in my head had let me want to. She leaned in and kissed me on the lips... slow, cool and dry, and that's the last clear thing I remember. The humming, the smell, her wings closed around me like a second, softer kind of dark, and then nothing.
 
 I woke up at first light, on my back in the same spot on the trail, jacket still adjusted the way she'd left it, pack still on my shoulder like I'd never taken it off. The branches above me were empty. 
 

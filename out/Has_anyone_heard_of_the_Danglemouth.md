@@ -1,0 +1,187 @@
+Hey folks! A friend pointed me over to this subreddit and told me it would be the perfect place to share some of the stories of my youth.
+
+I was a working man for most my adult life, so I never really had the chance to have kids of my own to pass on a legacy. One of my biggest fears as an older man is to die without having passed something on, so I hope I can pass on what little I have to the next generation, even if it's just a tall tale from myself, an old retired mechanic.
+
+It happened on a night that was as cold and dark as any other night in the provinces. My grandfather, Andeng, was smoking a cigar he’d made himself from wild tobacco that grew around town. The whole house smelled like amber and warm evenings. 
+
+I was doing my homework when, all of a sudden, my grandmother came bursting through the door, barefoot, wet with sweat and mud, screaming and hopping on her toes as though a thousand insects were crawling all over her.
+
+“Andeng! Andeng! I found Shelly! I saw our missing cow!” She sobbed, 
+
+“She was in the trees!” Her inflection soaring with fright. “It’s the Danglemouth!” Those were her last words before my grandfather, who had been sitting on a beaten recliner, caught her  in the act of passing out.
+
+He sat her down on the recliner, kissing her on her forehead as he kneeled beside his wife. 
+
+“What was she talking about, Grandfather?” I asked.
+
+“Danglemouth.” He whispered to himself, eyes glassed with an ancient fright. “Danglemouth. I guess I never told you about that. The legend of the Danglemouth.” He let out a dry chuckle.
+
+“What is it?”
+
+“Iho, I need you to listen carefully.” There was a foreboding dread in his tone, as though a seer given to  visions of the most terrible kind.   
+
+“Go find an old pack of cigarettes under my bed. The Concords.” he said, keeping his gaze on my grandmother. 
+
+“And hand it to Mareng Celi. Tell her to come to the square. She’ll understand.” He shot up to his feet before strutting to the doorway with the urgency of murder. What the hell was going on?
+
+“And once you give it to her,” He yelled to me as he put on his slippers, “you go home, and you don’t leave the house. Okay?” He grabs me by the shoulder and squeezes hard. “And if you hear anything outside, if you hear anyone asking to come in, you hold your breath, okay?”
+
+“What’s going on? Hold my breath? Grandfather, I'm scared.” I said, fighting away tears.
+
+“Scared is good.” Without another word, he takes to the dark road, still smelling of tobacco.
+
+I rummage under his bed and, sure enough, find an old, yellowing pack of Concord cigarettes. It didn’t have cigarettes. 
+
+I run down the dirt road, the night sky dotted with milky stars and nocturnal birdcalls. After about five minutes I reached the low hanging shack of straw and corrugated steel where Mareng Celi lived. 
+
+“Mareng Celi! Mareng Celi! It’s Grandfather!” I yelled, still catching my breath. An old woman, half naked and smelling of pale ale, rushes to the door with irritated urgency 
+
+“The hell?” she screeched, drunk.
+
+“He said to give this to you.” I hand over the pack of Concord cigarettes. It was heavy, and inside were shells, some looking burnt, some pristine, all half buried beneath fine white salt.
+
+Mareng Celi paused. Hastily, she took the box off my hands.
+
+“Shit! Shit shit shit!’ she hadn’t opened the box yet, but knew well enough what it meant.  “Did he say anything else?” she yells out as she jogs over to her bedroom. I hear glass bottles chittering and crashing.
+
+“No, just said to come to the square.” I said, crying now, each word squeezed between frantic sobbing. Why was there such a panic over our cow? Shelly had gone missing weeks ago, and she was too old to butcher or rear young, so Grandfather didn’t bother looking for her too hard.  What was going on? I’d find out soon enough.
+
+“Go buy yourself some candy and go home”  She told me, handing me a twenty peso bill, back from her bedroom, dressed and with a giant bolo at her waist, its leather sheath tattered and hanging by a thread, but the blade evidently maintained and honed, sharp enough to cut through air, threatening to sever what little threads held its sheath together. The pack of cigarettes was left unopened in her pocket. I tucked the bill into my underwear. 
+
+“But I want to help!” I protested
+
+“Go home!” She yelled as she disappeared into the starry night.
+
+Now, what would you have done in my shoes? A curious teenager hearing tell of your family’s missing cow, your dear pet, from your frightened grandmother, whose mania seems to have infected the whole town. It was a chance to prove myself as one of the men, of course! I too, could stand against my grandmother’s nightmares! At least, I thought I could.
+
+Naturally, I followed. 
+
+I crept along, feeling my heart slam against my eardrums, as I followed our family friend from afar. As we got closer to the square, there was an eerie silence from all the homes. Even in the wee hours, TVs would be blaring American cartoons and karaokes would be competing with the metallic songs of cicadas. Remembering it now, that thick silence, as suffocating as cold water, sends chills up my spine. Looking back, I don’t recall any noise *at all*. No cicadas, no birdsong, no chirps or croaks or whispers between cold, harsh stone walls. Not even my own breathing.
+
+Mareng Celi gets to the square, which was the community center of sorts. It was a paved clearing surrounded on all sides by stores and houses, all crowded shoulder to shoulder, so that the only entrances to the square were the tight alleys between the buildings, spacious enough to wrestle in one person at a time. 
+
+The Square itself was a flat of pavement that occasionally housed chalk art and spilled food. There was a cotton fruit tree at the northeastern corner of the Square, and every so often its fruits would splat on the hot summer pad, summoning little red planets of chitin, eating away at fermenting fruit.
+
+The place truly was nothing,  save for what we made of it. Aerobics classes, singing competitions, birthday parties, or any excuse to eat with friends. Some days, when the wind blew down south, we could hear music from the Square being carried home. Such a beautiful sound.
+
+There was no music that night. Another sound. Something terrible.
+
+Once Mareng Celi squeezed through one of the entrances, I followed after her. Peeking at the square, I saw that scene that I see today in my nightmares.
+
+There, on that desolate concrete level, naked men, naked women, all covered in mud and cow dung. 
+
+Have you ever smelled human shit left in the sun? It doesn’t smell like an animal’s. It’s bitter, like astringent tea, with a scent you’d only smell in a warm butcher’s shop. Their arms were spread out as though receiving something from heaven, except something about their posturing, their languid crooks and angles, bent back and doubled on their knees, as though –Yes! They were like trees! Trees! 
+
+To each of their fingers was tied a branch, their hair had straws in them, like bird’s nests. They were all as quiet as trees, barely moving. I don’t think I ever saw them take a breath. Each pose was more unhuman and crooked than the last, but they all had one thing in common: They were all facing away from the center of the Square.
+
+“Hey!” Yelled my grandfather, “Go home, Iho! This is adult business!” Mareng Celi turns around, in shock and fury. My grandfather was running up to me now. I see his naked body, black and green from filth, save for his head, which was still clean, still him. As he got close, I smelled astringent filth clawing at my nostrils. It was as though he were a rotting corpse. Each of his fingers had a branch stuck on it, like the claws of a forest spirit. Such terrifying stature, such horrifying speed.
+
+“I told you to go leave, you stupid boy!” She yelled.
+
+“There’s no time, he’ll need to get in the circle!” Said grandfather.
+
+“What? Is it already on its way?” 
+
+“Grandpa?” I said, hysterical, heart drumming in my ears, searing vertigo as horrible sights ransacked all the safety in ignorance. “What is that in the middle?”
+
+“I’m sorry, Iho.” 
+
+In the middle, there was a boy, his name was Sonny, I think. I couldn’t tell. Only his head was visible. The rest of his body was stuck in a hollow log. I saw his feet kicking and writhing like worms in salt. He was screaming. 
+
+Screaming? No, not screaming. He was calling. Calling someone, calling out in awful agony as a million ants bit away at him, covered the whites of his eyes and ate at the hairs in his nose, taking chunks of him out as if he was pork on the ground. He was calling for his mother. Some part of me hopes she was there. He was lying on his side in the middle of the Square, rolling uselessly. Desperately. 
+
+“What’s happening to him? Why is he in a log!?” I felt horrible electricity surging through my body, every inch of me telling me to turn, to run away, with that same manic energy my grandmother had not long ago.
+
+“It’s too late, Andeng!” Barked Mareng Celi, “Look at the time!” It was almost midnight. “Even if he left now, he won’t make it home!”
+
+“Goddamnit!” I’d never heard him yell like that before. “Iho, you stay with me. Okay?” 
+
+“Yes, Grandfather.” My ears were ringing, heart pounding like angry knocks.
+
+“You’re going to have to look like me.” He whispered.
+
+“Now, stay still.” He wiped me head to toe with cow dung and mud. The smell was awful. Can you imagine it? Old, moldy dung with worms and grubs, smelling like shit, awful shit, the kind that made you gag at a whiff. I vomited out our whole dinner. Fried eggplant. Feeling the filth on me, I remember how pliable and sandy it was. It tasted like batteries and an unwashed body. Grandfather didn’t smell like cigars anymore. 
+
+Each time I vomited he said *yes, good* and wiped the vomit on me as well as himself, lathering his old wrinkly face with hot yellow vomit and animal filth. My stomach was cramping by the end. Soon, I looked just like all the other people in the square. The kid in the log, too tired to call for his mother, resorted to animalic screams. 
+
+“I’m sorry Iho. I’m so sorry.” I couldn’t see it well from the filth on his face, but there were tears.
+
+“It’s time!” Yelled Mareng Celi. 11:58 
+
+Without a word, my grandfather took me to the circle of naked adults.
+
+“Whatever happens, you stand still, okay?” He whispered. I nod.
+
+“What’s going on?” My voice was barely louder than a heartbeat.
+
+“The boy in the middle,” whispered my grandfather, with that same glassy stare he had when my grandmother came home earlier, “he’s bait.”
+
+“One minute!” Yelled Mareng Celi, who had hidden herself among the naked, breathing through her mouth.
+
+In that dim moonlight, far off in the mountains, we heard an endless torrent of cracking and booming, roaring closer and closer, threatening to trample us in its wake. Soon we saw it, high in the mountains, as though a snake slithering through weeds, we saw ancient wood being trampled and made to supplicate as trees swung wildly to the will of some giant thing. It was fast. So unthinkably fast. Its trail grew kilometers by the seconds. 
+
+Can you imagine it? Some great terrible thing, an ancient titan,invisible as it was, shearing a mountainface with a speed no bird or machine could ever come close to?
+
+“Iho,” There was fear in his eyes now, a terrible fear. “If something goes wrong, you hold your breath and get as close to home as possible. Once you do, you sit on the ground, close your eyes, and–” 
+
+“Positions!” Yelled Mareng Celi.
+
+Grandfather stopped dead in his tracks. He stooped crooked when he was whispering, his knees half bent. Such a painful posture to hold, especially with his arthritis, but he dared not move. I could feel his body quiver as he fought to keep still.
+
+And then the trees went quiet. They have been spared the rod. 
+
+It was there.
+
+I heard it before I saw it. 
+
+The Danglemouth.
+
+Wild baying, a sound unmistakably a cow, but a sound you’d never hear it make. My heart dropped, I was sweating so much I feared I’d wash away the shit and vomit on my skin. 
+
+I remember helping Grandfather with butchering when I was thirteen. It was a younger cow, who had refused to eat since her partner died. She was thin and frail, so frail that Grandfather thought I could butcher the cow. I remember praying, I remember closing my eyes, and I remember the cleaver hitting what felt like stone. 
+
+I didn’t hit it hard enough. 
+
+The blade slid past her cervical bone and down her throat, being just barely lethal. Just barely. The sounds it made, the blood spewing like a geyser, a great howling of desperation, of betrayal, of fear, such bottomless, primal fear. I remember it well. 
+
+But the sound I heard from Shelly, as she dangled in the sky along with the milky stars, her body taught straight by her weight, held in a way a cow was never meant to be held, letting out a sound never intended to leave living lungs. Such a terrible sound.
+
+Her trotters were tired, hanging down her body like wilted leaves, twitching wildly as she got closer to us, that forest of naked skin and excrement. I heard Sonny scream louder, his fear and anguish renewed by what he saw. I think he cried for his mother again.
+
+Shelly began bobbing up and down the air, being flung ten meters in a second before floating down, her death rattle intensifying as with the ebb and flow of some torturous thing. I felt warm water down my leg. Grandfather was quivering hard as he fought away a sob. It was his cow afterall. His pet. The one he allowed to reach old age.
+
+Soon, the bobbing stopped. Shelly flew closer to the crying boy, who was now letting out a painful, guttural cry. Still, the Danglemouth grew closer, and closer, yet all it was, was a floating Shelly.
+
+Once the cow was a mere stonetoss away from the tortured boy, every person in the Square saw it, all at once. In an instant, we saw a tall thing standing amongst us, some black mass in the shape of something with two legs and a torso, but not at all human. 
+
+A towering devil, come to steal, kill, and plunder with fury. Evil. Evil. Evil. A bottomless height, a pit that swallowed you upward. A falling, falling, falling that promised no floor, no end. It was a blackness that darkened even the night sky. 
+
+I could tell you it was a thousand meters tall and a hundred wide, or hell, a million. I could tell you that the thing in the square was just its finger, that its hands outnumbered all the stars in the sky. But what’s the point?
+
+At once, the thing let loose more of its bait, more of its lures. From the black vacancy of the sky flung down men from ages past, still in their uniforms of war, of work. Women with skins the colors of a boggy river. Children as black as mold. Some groaned, some cried, but most of them were quiet, having died a long time ago in the Danglemouth’s tacklebox.
+
+Hundreds of them swirling around that poor boy like a carousel of corpses, a galaxy of the dead swinging around, closer, and closer, and closer still to that child who was screaming through locked teeth. 
+
+They all called to the boy in the middle, all of them dangling from invisible lines, their necks held in a whiplash, their heads thrown back in eternal ecstasy or death or simply a mechanical joke. 
+
+The smell of it all, like opening a war coffin. Imagine it. The grave of a hundred dead men, opened at once. The miasma of it, the rot beyond rot. A tea of rotted bones and blackened flesh. 
+
+And then, in that vortex of bodies, I saw my grandmother.
+
+Still in the clothes she had earlier. Still wet with mud. 
+
+She never made it home. 
+
+She was the lure.
+
+My grandfather buckles to his knees, bringing me down along with him. He was sobbing wildly. In that instant, all the lures turn to us. It swung the corpse of my grandmother, his wife, up to us. She was trying to say something, but all she could produce was a wide-mouthed groan of despair. 
+
+In an instant, my grandfather flew up into the air quietly. The speed of his ascension snapped his neck. At least, that’s what I tell myself. Suddenly, a voice.
+
+“Andeng!” Shouted Mareng Celi, blowing from her curled hand a heap of black salt from the pack of Concords. But it was too late.
+
+Suddenly, the stars returned to the sky, and the Danglemouth was gone. And so were my grandparents.
+
+Well, I'm glad you've read my story to the end! This one's a bit hard to believe, but I swear on my soul, it is true! The Danglemouth was said to have used living things as bait to lure in lost travelers and naughty kids. I still haven't figured out what the salt in the cigarettes was for. Mareng Celi moved to the city soon after the incident. Almost everyone did, including me. I do miss the provincial air, such a sweet smell.
+
+I hope one day I can write to you all again, if you lot have the time to humor an old man.
