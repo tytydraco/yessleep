@@ -70,7 +70,7 @@ He didn't just nudge it open the way he had the others. He shoved it—hard enou
 
 It seemed the hinges kept it from opening full against the wall.
 
-I have never in my life been grateful for being skinny. My mama used to fuss over it, used to load my plate twice at dinner trying to put meat on me that never stuck, used to tell people I ate like a bird and worried out loud about it in front of company. 
+I have never in my life been grateful for being skinny. My mama used to fuss over it, used to load my plate twice at dinner trying to put meat on me that never stuck, used to tell people I ate like a bird and worried out loud about it in front of family. 
 
 That night, in that gap, with maybe an inch of clearance between my body and a door a man was holding wide open looking dead at an empty stall, I was thanking god for it.
 
@@ -102,7 +102,7 @@ I stayed exactly where I was for what felt like an hour and was probably closer 
 
 Even after the sound was completely gone I didn't move. I sat down on the closed lid of the toilet in that stall, my legs still not ready to hold me yet, my stomach having just received the all-clear to finally vacate its contents. Thankfully, I was in the bathroom after all.
 
-After the short puke session I came out into the hallway. 
+Afterwards I staggered out into the hallway. 
 
 I want to tell you I had some plan, some clear head, some idea of what I was about to do, and I didn't. I walked back toward the front of the store the way you walk toward something you already know and are still hoping, against everything, that you're wrong about.
 
