@@ -88,7 +88,7 @@ He turned into the stall right beside mine. Number eleven. I heard the latch on 
 
 He started whistling. Somewhere in the middle of it he switched to humming the same handful of notes over and over, completely unbothered.
 
-I stood there with maybe four inches of cinderblock and steel between us and did not breathe right for the entire time it lasted. My eyes had gone wet. I bit down on the inside of my own cheek until I tasted copper, because that pain was the only thing in the world keeping the sound in my throat where it belonged.
+I stood there with four inches of cinderblock and steel between us and did not breathe right for the entire time it lasted. My eyes had gone wet. I bit down on the inside of my own cheek until I tasted copper, because that pain was the only thing in the world keeping the sound in my throat where it belonged.
 
 It went on longer than it should have. I know that's not a fair thing to measure, standing where I was, but it felt like he was taking his time on purpose, like some part of him knew exactly how loud the quiet was for whoever might be listening on the other side of this wall.
 
