@@ -139,7 +139,7 @@ Through a squint I saw Harry weakly wiping my chin with a blood soaked rag, befo
 
 “Ssshhhh you must be starving” Harry’s voice sounded far away. My mind swimming in pain, my thoughts unable to congeal into solid words. 
 
-By the time everyone found me, Clyde was dead. He had opened himself up with a wooden handle he managed to snap into a jagged point. He then pulled out his own stomach, and began wringing it out and feeding its contents to me until he passed out from blood-loss. 
+By the time everyone found me, Harry was dead. He had opened himself up with a wooden handle he managed to snap into a jagged point. He then pulled out his own stomach, and began wringing it out and feeding its contents to me until he passed out from blood-loss. 
 
 But that’s not what it looked like. 
 
