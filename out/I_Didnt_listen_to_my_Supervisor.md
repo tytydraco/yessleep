@@ -1,0 +1,66 @@
+From the time I started high school to now, my life has been full of fuckups and awful decisions. This led me down a path to where I am now, scared for my fucking life with nowhere to turn. Since I have no one else to go to, so I’m posting here.
+
+My current “situation” arose from shit that started four months ago, when my cousin threatened to kick me out of the house. No one else wanted to take me in, and I don’t have a steady job because no one wants to hire a high school drop out with a history of addiction, so I can’t rent or buy a place. I was lucky this cousin took me in, but that gravy train fucking ended due to his bitchy girlfriend wanting me to leave. I got into a big argument with him, so I packed what shit I had and took the bus to a local Starbucks. I got a small hot coffee and sat down at a wobbly table that I needed to uncomfortably put my foot against to keep it stable.
+
+Finally settling in, I took a sip of the coffee and nearly spit it out as I burnt my fucking tongue. Great. I slammed my coffee down and slouched forward in my chair, not knowing what the fuck was my next move aside from basically living on the streets. With my eyes shut and my head slumped down, I heard the nearby scraping of a chair. I looked up, and a man in a suit had sat down across from me, his hands clasped together on the table, and his posture impeccable. He showed a white, toothy grin that I swear to God could be an advert for some fucking toothpaste. What the fuck did he want with me? 
+
+“Can I help you?” I asked, confused.
+
+The man chuckled and inspected his polished fingernails. Still looking at his fingernails, he said: “No, but I can help you! You look down on your luck… you have your belongings in that trash bag, you also look so downtrodden.”  
+  
+I took a sip of my coffee, which thankfully cooled down a bit, and I said “Fuck off, I don’t need charity.”  
+  
+The man didn’t budge nor flinch. He just kept smiling and said: “It’s not charity, you’d be doing my bosses and I a favor. To cut to the chase, I supervise at a medical clinic. I need a janitor. It has benefits and pays $37.50 an hour. You want it or not?”  
+  
+I agreed to it, and the next morning at 7 a.m., I went to the address he gave me. It was a small, brick building with no awning, no sign, and no windows save for the glass door. The glass door itself was a bit clouded and grimy; guess that was my first task. I pushed the door open, which creaked so loud that I thought my fucking ear drums would pop and stepped into the place. It smelled like ammonia and damp, old clothes. Not the most pleasant smell, but I’m sure I’d get used to it. As I stepped past the entrance area, I could see a small receptionist’s desk with an old woman sitting behind it. The desk itself and the wall it was connected to was white at one point, but was now a light yellow with scuff marks all around it. The woman behind the desk told me to wait. As I stood behind the desk and waited, the flickering fluorescent lights hummed loudly above me, and gave the already grimy looking interior an even more lifeless look. The woman came back with my uniform, ID badge, and keys. She told me to meet my supervisor in the office past the patient rooms. As I passed by each of the seven patient rooms, I looked in and saw the same thing: an examination table with cracked, peeling pleather; a rusty, metal cabinet full of old medical supplies, a sink, and large, rusted metal doors.  
+  
+I got to the supervisor’s office and knocked on his door. He opened the door, and the inside of his office looked nicer than the rest of this clinic: fuzzy, carpeted floor, a beautiful antique desk, and non-humming lights. The fucking hum was driving me nuts, more than that fucking smell, but I guess I’d get used to both… maybe even have to fix whatever caused them. 
+
+“I’m glad you took the offer and came promptly at seven as instructed, a good first impression! Continue the good work and you can get a nice pay raise sooner. Now, you have a lot of work to do, and I will give you a list of your daily tasks and even things you must fix. You good with your hands?”  
+  
+“I mean… I guess… I have done some construction work,” I uttered out.  
+  
+The supervisor patted my shoulder and said, “You’ll learn! Now, the rules:  
+One: Punch in everyday at 8 am, an hour before the doctors, nurses, and patients come in.
+
+Two: Do not punch out before 6 pm.
+
+Three: when the doctor and patients get here, you are not to say a single word to ANY of them for ANY reason. I don’t give a shit what the circumstances are, you do not break that rule.
+
+Four: You do not go into any of the patient’s rooms until you are explicitly told to. They are exclusively women, and do not want to be intruded upon by men.
+
+Five: Those metal doors inside the patient rooms are to never be opened.
+
+Do you understand these rules?”  
+  
+I nodded. The supervisor smiled, said some shit about a good work ethic, handed me a to-do list, and I began my tasks. Things were fine for the first four months; I fixed up and replaced many of the lights so that fucking humming went away. I corrected some mold problems and replaced some dry wall that was water damaged, so now the musty smell also went away. I was doing pretty well and had even saved up enough money for an apartment not too far from work. Then I broke the rules.
+
+Yesterday morning at 9 I bumped into the doctor, Dr. Billman. He was a tall, arrogant piece of shit with sharp features. He always had such a disgusted, angry look about him. He muttered something about me being “bottom of the barrel”, so I told him to go fuck himself. My fucking bullshit ego. He scoffed and took a patient into one of the rooms. Usually people cry in pain, sometimes yell, but I always thought it was normal, until I heard a bunch of babies crying. it was soft and muffled, but I swear I could hear it. I don’t know what came over me, but I started jiggling the door handle, and I heard Dr. Billman yell “FUCK OFF!”. I used my key to get in, and as I pushed open the door, I saw patient in a gown on the observation table, with her feet on stirrups. The sound of crying babies grew so loud. I stepped closer to the patient, she was unconscious and had a ton of blood spilling out of her. This was much more blood than I had ever seen or needed to clean up. I shook her, wanting to try and wake her, but it wasn’t any use. Feeling dizzy and seeing double, I needed to sit, but my adrenaline kicked in and I got into fight or flight mode when I heard Billman scream.
+
+I looked up and saw him running at me with a boxcutter, his white coat full of blood. I jumped out of the way before he could swing at me. I pushed the metal cabinet cart towards him with all my strength and knocked him back. As I stood back up, the sound of crying babies became prevalent again. The rusty metal door that is in every room was open. Before I could walk towards it, I heard Billman getting back up. I turned around and kicked the boxcutter from his hands, then punched him square in the jaw, knocking him out. I winced back in pain and nursed my hand for a bit. I then turned my focus to the cart and pushed it in front of the entrance door. After that, I slowly began to approach the metal door; the room behind it was dark and smelled musty. I could see a dimly lit stairwell in the farthest corner of the room. Against my better judgement, I descended down the stairs, the crying became louder, near-deafening. I was nauseous from how loud and overwhelming it was, but I kept going; I don’t fucking know why, but I kept fucking going.
+
+I got down to the bottom step and saw 6 other staircases, presumably from the other 6 rooms. I then looked forward and saw a large, seemingly unending, dimly lit room. As I walked in, I saw overturned bassinets, broken cribs, empty bottles, and even pacifiers strewn along the floor. As I kept looking around, I even saw tiny footprints of dried blood along the floor. The crying got louder as I approached a large, almost cavern-like opening to the right side of this large room. 
+
+As I approached the next room, the crying became deafening. It echoed through the cavern, bouncing off concrete until I felt dizzy and couldn't tell where it was coming from. I kept close to the wall as I approached the entrance. Once I rounded the corner, I peaked my head in and saw rows of metal cribs stretching throughout the dimly lit space. I realized every single crib held a baby. There was a group of men in masks in there, some feeding babies bottles of formula, and others picking them up, as if they were inspecting them. One of the men was standing near a van, holding what looked like an AK. I saw another one of the men inspect a clipboard attached to a crib, then pick the baby in that crib up, and put it in a lidless box, then slide it into the back of the van. As he had picked up the child, I got a better glimpse: the child looked thin, underfed; I could see this baby’s ribs from where I stood. This baby was also incredibly pale, and I could see there were multiple brown and yellow stains on the surface that the baby had been lying down on. What sick shit did I fucking stumble into?
+
+ “They look sick. They gonna make it?” asked one of the men.  
+  
+The man with the AK responded, “They usually do. Like ninety-five percent of the time. The people that buy them got better ways to care for them before they go onto… fulfill their purpose.”  
+  
+The other man paused and said: “Do I wanna know the purpose?”  
+  
+The man with the AK chuckled and said: “Lotta purposes, main one bein' experiments. Lotta money in this shit. But look, I don’t care enough. I just get paid to haul ‘em, and you get paid to pack ‘em.”
+
+As my initial fear had subsided and I wasn’t frozen like a deer in headlights, I tried moving in closer, and ducked behind a support beam. One of the men saw me and yelled, and they came running after me. As I tried getting back to the stairs, a large man had blocked me. He took his mask off and revealed his grotesque, misshapen face. A grimace had formed along his ghastly face, which revealed jagged, misshapen, yellowed teeth, and bright red lips that were covered in saliva. The man picked me up and threw me against a wall. The wind got knocked out of me, but I mustered all my strength and fear to make me stand back up as quickly as I could. I don’t know what the fuck this thing was, but it wasn’t human. The skin that I could see on him was a pale yellow, with dark blue - almost purple - veins. The large man charged at me, but I jumped out of the way and ran back up the same flight of stairs. I heard him scream and pound his feet up the stairs. As I got back into the patient room, I took the metal cart and pushed it towards the stairs, then down, hitting him and knocking him back. As he fell back onto the floor, I could see his neck snap back. I wanted to make sure he was dead, and I watched as his arms twitched… then suddenly stop. I could hear the other masked men yelling, then heard them ascend up the stairs. I closed the metal door behind me, but I’m sure this was only temporary as there were other exits and entrances. 
+
+As I left the room, I sprinted to the maintenance closet to grab my backpack and possibly find a weapon. As I looked for one, I heard a gunshot. How the fuck did they find me already? I climbed out the window and landed behind the building, which was fenced off behind iron gates, Another wondrous decision I've made. I saw my supervisor standing in front of three pregnant women who were on their knees, crying and pleading in foreign language. One of the women was already dead. My supervisor shot another one between the eyes, and I watched her body fall, lifeless, and land on the floor as it twitched.
+
+I screamed in horror and tackled down my supervisor. As I struggled to grab the gun from him, he began to taunt me,  
+  
+“The little drug addict finally found a backbone. But just as he always does, he broke the fucking rules, and he ruined my FUCKING BUSINESS!”
+
+I grabbed my supervisor’s head and dug my thumbs into his eyes as he screamed in pain. I then grabbed the gun and shot him.
+
+I don’t fully remember what happened after that, as I was in complete shock. I’ve been brought to pretty low points of my life and forced to do shit I never wanted… but I have never taken another life. I somehow ended up in some motel on the other side of town. I can’t sleep, and I don’t know who to turn to. No one is answering my calls, and I get scared at any car that ends up in the parking lot.
+
+Whatever I uncovered needs to be exposed, but who knows how far this shit really goes, how high up it goes. And worst of all, who the fuck is going to believe the unemployed ex-junkie?

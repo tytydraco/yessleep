@@ -1,6 +1,5 @@
 [\[Part 1\]](https://www.reddit.com/r/nosleep/comments/1u86k49/i_think_my_house_grants_my_wishes/) [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1ulktf2/i_think_my_house_grants_my_wishes_part_2/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1utieq3/i_think_my_house_grants_my_wishes_part_3/)
 
-  
 I fucked up.
 
 I’m an idiot of the finest grade.
@@ -94,3 +93,6 @@ Anyway, that was yesterday.
 Count of wishes granted (consequences pending): 2.
 
 I hope it’s just my figurines this time.
+
+  
+[\[Part 5\]](https://www.reddit.com/r/nosleep/comments/1v3166k/i_think_my_house_grants_my_wishes_part_5/)

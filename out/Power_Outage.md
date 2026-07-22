@@ -1,27 +1,79 @@
-Being 19 years old and barely a year out of high school, most of my time is spent working a part-time job, living with my family. Because of that, the house can get pretty damn cramped sometimes with how many people are walking around doing their own thing. Some way or another, there was always at least one another person nearby. I never realized just how much I'd come to appreciate and cling onto that feeling ever since everything happened.
+   The crash of thunder startles me awake. Rain pounds furiously against the windows, a dull roar drowning out all other sound.
 
-It was 10 PM on a Saturday night, my mom had long settled into bed while my dad was staying up watching TV in the living room. I was in my bedroom playing a few games with my friends before I wound down for bed. I remember just how violent it was raining that night, I've always been one to leave the window open so I could listen to the sound of the droplets hitting against the ground, combined with the sounds of my parents shuffling around next door. Being too wrapped up in the conversation I was having with my friends at the time, I completely forgot just how rough the thunderstorm outside truly was, because right in the middle of my sentence , everything went out.
+   I'm sitting in my armchair, must have fallen asleep watching TV. But the room is pitch black- no TV, no lights on any other device in the room. The storm must have knocked out the power.
 
-One moment, I was having a lighthearted, funny conversation with a friend, and the next, I was sitting in complete pitch dark, no light, no warning, and not even the sound of faint buzzing or air conditioning the house subtly gives off, all of my senses were wiped in an instant. To say I was startled by the void I was stuck in would be a fucking understatement. I've always been afraid of the dark, and situations like this, ever since I was a kid, would always scare the shit out of me. With my hands shaking, weaker than jelly, I slid my hand all around the desk to feel out for my phone, immediately flicking my flashlight on, just barely illuminating my bedroom. Upon looking outside my window, it wasn't just my house, but everything else outside had been completely switched off, making it damn near impossible to see anything, not even a moon in sight. 
+   I suppress a shudder. I've never done well in the dark, even as an adult, and I press a hand to my chest to quell the panic beginning to rise.
 
-Dazed, and panicked, I opened up my bedroom door and lit up the hallway leading to my parents room. 
+   Lightning flashes outside, and in that moment of brightness I see it- A robed figure, standing in the corner of the room, the glint of eyes staring back at me.
 
-There wasn't a single person in the room. 
+   Darkness returns, and I fumble around for my phone and thunder rolls across the sky.
 
-At first, I was confused. I heard everything my parents were doing, I knew for a fact my mom was reading in her room; she always is. Following my instinct, I take my phone and trudge through the pitch dark with my phone once more, walking down the stairs as the overwhelming silence rings my ears to a deafening degree. I felt so exposed, like every breath I took was a fatal mistake. There was no logic as to why, it just was. 
+   Panic overtaking me, my fingers close around the cold block that is my phone, and I unlock the device with trembling fingers.
 
-As I walked down the flight of stairs to my living room, the sinking dread in my stomach was all but confirmed. The power was out, with the only thing keeping me from being stuck in pitch darkness being my phone at 38% battery, and everyone that was once in my house was gone.
+   Heart racing, I turn on the flashlight, pointing it at the corner of the room, at the figure of-
 
-I was alone.
+   Oh. It's the coat rack by the door, buttons shining to look like eyes. I slump back in my chair, and let out a nervous laugh, my heart rate returning to normal.
 
-Every single one of my worst nightmares had just come true, and been thrown on me in the absolute worst way possible. I didn't know how to react, I don't even know if I could react. All I could feel was this primal sense of dread and panic as I stare at the pitch dark, vacant living room. My entire body was frozen, too scared to even scream or start crying. I wanted to leave, I wanted to run out of my house as quick as possible to escape this feeling, but looking at all my options to leave put an even bigger pit in my stomach. Leaving through the front door meant needing to further walk downstairs into my house, a tight, claustrophobic space, with opening the door meaning I'd have to have my back turned to the basement. 
+   Now that I'm wide awake, I notice how dry my mouth feels, how scratchy my throat is. I resolve myself to make a quick trip to the kitchen for a glass of water.
 
-The back door being an easy access sliding door, but taking that route would mean travelling through the dark, tree-filled snake trail to circle around to the other houses. No option seemed reasonable, but I had to leave. I needed to leave this house and find somewhere safe, where nothing could find me. When suddenly, without warning, the phone in my hand goes off.
+   I stand and make my way toward the kitchen, shining my meager light at the room around me. Nothing jumps out at me, no shapes appear in the darkness.
 
-It's an alarm, the fucking emergency alert system alarm. It only plays the high-frequency tone, and it just continues to blare, and break the silence of my living room, and before I could even process it any further, the TV turns on, blaring the exact same alarm at an even louder volume. I couldn't take it anymore; on instinct, I ran to the back door, trying to slide it open.
+   Crossing the threshold into the kitchen, I stop. The weak light leaves the corners of the room in pools of shadow, and in one of them, there's a glint of metal. A sharpened blade, poised to strike, to drain the life out of me. I drop to my knees, cowering, eyes squeezed shut, waiting for my inevitable end.
 
-Locked. 
+   But it doesnt come. I sigh and unfurl myself, staying for a moment on hands and knees, catching my breath. When I retrieve my phone and stand, I see the culprit. It's my fridge, bare metal on the handle where years of use has rubbed away paint.
 
-No matter how much my hands tried fiddling with it, nothing would open it up. I wasn't thinking straight anymore, it was leave now, or turn around and face something that I never want to see in my vision ever again. I lunged my entire body forwards, throwing myself against the glass sliding door; two pushes against the glass wall was all that was needed to break it open, and throw myself outside into the back yard. I could barely tell if the tingling sensation all over my body was my fight or flight, or the blood drawn from cutting myself as I ran. I didn't care. I kept running as fast as I could into the darkness, everything becoming fuzzy, and faded in my memory, all up until there wasn't a single thing I could remember after that. 
+   I grab a cup from the drying rack and turn on the tap to fill it, but nothing happens. I smack my forehead- No power, no well pump. Of course.
 
-Before I even knew it, I woke up in a hospital a few days later. According to my family, after the power outage, they thought I went missing during the middle of it all, only for my dad to find me after pulling apart my room for long enough. They found me in my closet in the midst of having a seizure; 911 was called immediately and I was taken to the hospital. I refuse to believe that was all that happened. Everything I experienced, everything I went through felt so fucking real, it was the most alive and panicked I had ever felt in a moment. I refuse to be by myself anymore, everywhere I go, I travel with either my parents, or a friend that happens to be nearby. I've moved my computer setup into my parents room so I don't need to be by myself at late hours of the night again. No matter what, I never want to be alone during a power outage.
+   Defeated, all I want is to return to my chair and sleep through this awful storm. But a pressure in my bladder tells me that won't be happening.
+
+   Upstairs it is, then.
+
+   I pass through the kitchen again and into the hallway. Lightning flares again, revealing a shape, a hand, reaching for the window. I slam back against the wall, forcing as much distance between myself and the window as possible. 
+
+   Chest heaving, panic soaring, I wait for the inevitable crash of breaking glass, for shard to fly into my face, for the hand to reach in and grab me, take me away.
+
+   I shine my light at the window, to see my attacker before I meet my end. The fiend is-
+
+   A tree limb. That's all. Of course that's all. I chide myself for my childish fear. I'm in my own house, the security system is armed, doors and windows locked. I'm safe.
+
+   I continue down the hall, only to freeze in terror once more as footsteps stomp down the stairs at the opposite end of the hall.
+
+*Thud. Thud. Thud.*
+
+   I hold my breath, my gaze and my light locked onto the bottom of the stairs, to see what kind of maniac is coming to send me to my maker. 
+
+   
+
+   Claws click with each step, and I realize its not a *who* but a *what* coming at me. I brace, imagining some gruesome beast, that soon I'll be face to face with-
+
+   My dog, Boomer. He stops next to me, wagging his tail as I scratch his head and let out the breath I'd been holding. Then he ambles on to the kitchen and I hear him lap from his water bowl, then move on to the living room where he hops into my chair.
+
+   I chuckle, then. The roller coaster of panic and calm has left me exhausted, and I'm more than ready for bed. Just one quick stop- the bathroom- then the sweet release of sleep.
+
+   Up the stairs and around the corner, and I'm staring at the gaping maw of the bathroom doorway. My light reaches deeper as I approach, and I stop in my tracks as it reveals a set of jagged spikes, gleaming teeth, dripping with drool, some beast poised to lunge at me, tear out my-
+
+   No. Enough of this. I steel myself and step forward, and the "gleaming teeth" come into focus at the floor vent, glistening wet from rain leaking in the open window above.
+
+   I shut the window and do my business, trying in vain to flush. I rub in some hand sanitizer and decide that the puddle of water on the floor can wait until morning. Even with my newfound confidence, I'm ready for bed.
+
+   My light guides me down the hall to the final stop on my journey- my bedroom. I open the door, slip in, and shut it behind me, for once ignoring the shadowy shapes all around me.
+
+   I climb into bed, pulling the covers over myself and turning off my flashlight. Thunder rumbles in the distance, rain reduced to a gentle patter, the storm finally retreating.
+
+   As I begin to drift off into sleep, a noise disturbs the peace. Something is shuffling on the floor beside my bed.
+
+   The panic isn't going to get the better of me this time. Smiling, I reach down to pet Boomer on his big, shaggy head, sleep pulling me back under once more, until-
+
+   Scratching at the door. Boomer is asking to be let in. It takes my sleep addled mind a moment to catch up. Boomer, who I passed in the hallway. Boomer, who I left downstairs, behind the closed door. Boomer, who's head I'm petting at this very moment.
+
+   I pull my hand back quickly, shaking, too scared to look or to move. One last bolt of lightning splits the sky and illuminates the silhouette rising up next to me. 
+
+   I feel rather than see the figure lean over, and hot, rancid breath tickles my ear as the figure whispers "boo".
+
+   My screams cut through the night, and I feel no more. 
+
+   
+
+  
+
+   
