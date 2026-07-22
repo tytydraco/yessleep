@@ -12,7 +12,7 @@ I told Denny I had to go take a leak. He grinned without looking up from his mag
 
 I didn't have a real answer for him beyond the one I've given everybody my whole life, which is that my mama would skin me, even now, even with her three states away and asleep at this hour. Denny laughed and said I was a mama's boy and I told him I wasn't denying it.
 
-I was maybe two steps toward the back hallway when I heard it—an engine out on the paved apron, the particular heavy diesel cough of a truck pulling in too fast for four in the morning, gravel popping under the tires. I looked back at Denny, who'd already swiveled toward the window, and I said, "That's you," meaning the customer, meaning the pump, meaning whatever joke we always made about who had to deal with the truckers who came in irritable that time of night. He flipped me off without much heat behind it as I kept walking.
+I was maybe two steps toward the back hallway when I heard it—an engine out on the paved apron, the particular heavy diesel cough of a truck pulling in too fast for four in the morning, gravel popping under the tires. I looked back at Denny, who'd already swiveled toward the window, and I said, "That's you," meaning the customer, meaning the pump, meaning who had to deal with the truckers who came in irritable that time of night. He flipped me off without much heat behind it as I kept walking.
 
 The hallway back to the bathrooms runs past the walk-in cooler, past the mop closet, past a community board nobody's pinned anything new to in years. I remember all of that completely clearly. I remember the door to the men's room had that heavy push-bar handle that always stuck a little in the cold, and I remember walking past every other stall to get to the last one, the twelfth, the one at the very end by the window. It was always the cleanest. Less traffic back there, I figured, fewer people willing to walk the full length of the room for a leak. I'd taken to thinking of it as mine, in the stupid private way you claim small things that don't belong to you. My own little corner of a gas station bathroom. 
 
@@ -26,23 +26,27 @@ Voices next. Two of them, raised, talking over each other—one of them Denny’
 
 —Then the gunshot came.
 
-I'd never heard one before, not really, not outside a television. It wasn't like television. Flatter. Closer to a slap than a boom. My stomach dropped straight through the floor of that stall and kept falling.
+I'd never heard one before, not really, not outside a television. It wasn't like television. Flatter. Closer to a slap than a boom. 
 
-*Oh lord.*
+My stomach dropped straight through the floor of that stall and kept falling.
+
+*Oh God.*
 
 I didn't move. My legs started to cramp from holding still but I didn't move. My own breathing got loud enough in my ears that I clamped a hand over my mouth, hard.
 
-I heard muffled boots walking through the product aisles like there was nowhere else in the world they needed to be. They were squeaky but had weight to them.
+I heard muffled boots walking through the aisles like there was nowhere else in the world they needed to be. They were squeaky but had weight to them.
 
 Then the boots started making their way toward the back. Toward the hallway. 
 
-Toward me.
+Toward *me*.
 
 I thought about climbing into the ceiling tile. I thought about the little frosted window over the sinks, too small for a grown man and I knew it, but thought about it anyway. I thought about just staying locked in that stall with my feet pulled up off the floor and praying.
 
-And then my brother was in my head. Butch's voice, clear as if he was standing next to me, thick with that drawl the army never managed to scrub out of him. We'd been on the couch years back, some slasher movie playing, and he'd said it half as a joke. 
+And then my brother was in my head. 
 
-*If I was ever in one of them movies and hiding in a bathroom, I ain't never leaving my stall door shut and locked. First thing they check. Locked door just tells 'em you're in there, waitin' on 'em.*
+Butch's voice, clear as if he was standing next to me, thick with that drawl the army never managed to scrub out of him. We'd been on the couch years back, some slasher movie playing, and he'd said it half as a joke:
+
+*If I was ever in one of them movies and hiding in a bathroom, I ain't never leaving my stall door shut and locked. First thing they check. Locked door just tells 'em you're in there, waitin' on 'em.* 
 
 I don't know why that was the thing that surfaced. It just was.
 
@@ -64,9 +68,11 @@ By the time he hit eight my legs had started to shake on their own.
 
 Nine. Ten. Eleven…
 
+*Twelve.*
+
 He reached mine.
 
-He didn't just nudge it open the way he had the others. He shoved it—hard enough that the door swung the rest of the way and the edge of it caught me square in the stomach, drove the air half out of me as I stifled it quietly. Was this because it was the last stall in line? I turned my face to the side fast, pressed my cheek almost flat against the wall, and the door stopped there, a sliver of space between the edge of it and my nose.
+He didn't just nudge it open like he had the others. He shoved it—hard enough that the door swung the rest of the way and the edge of it caught me square in the stomach, drove the air half out of me as I stifled it quietly. Was this because it was the last stall in line? I turned my face to the side fast, pressed my cheek almost flat against the wall, and the door stopped there, a sliver of space between the edge of it and my nose.
 
 It seemed the hinges kept it from opening full against the wall.
 
@@ -78,11 +84,11 @@ He stood there. I don't know how long. Long enough that I started counting my ow
 
 Then he let the door go.
 
-It swung most of the way shut on its own, the way bathroom doors do, and I heard his boots take a couple of steps back down the row. I let half a breath out, slow as I could manage through my nose.
+It slowly swung most of the way shut on its own, and I heard his boots take a couple of steps back down the row. I let half a breath out, slow as I could manage through my nose.
 
 But he didn't walk toward the exit.
 
-No.
+*No.*
 
 He turned into the stall right beside mine. Number eleven. I heard the latch on that one click shut, heard his belt, heard him start to relieve himself against the bowl, easy as anything, like a man stopping at a rest area on a long drive… which was exactly what it might have been.
 
@@ -94,7 +100,9 @@ It went on longer than it should have. I know that's not a fair thing to measure
 
 The toilet flushed. The latch clicked again. His boots crossed to the sinks.
 
-He ran the tap a long time. I heard the soap dispenser go twice, heard him work it into a lather, heard him keep his hands under that water for what had to be thirty or forty seconds, more thorough than any nurse I've ever seen. I remember thinking, even through everything else I was feeling right then, how strange that was. A man who'd just done whatever he'd done out front, washing his hands like his own mother was standing there checking his work.
+He ran the tap a long time. I heard the soap dispenser go twice, heard him work it into a lather, heard him keep his hands under that water for what had to be thirty or forty seconds, more thorough than any nurse I've ever seen. 
+
+I remember thinking, even through everything else I was feeling right then, how strange that was. A man who'd just done whatever he'd done out front, washing his hands like his own mother was standing there checking his work.
 
 The water shut off. The paper towel dispenser cranked three times. And then his boots crossed the tile toward the door, unhurried as they'd been the whole time, and the door swung shut behind him.
 
@@ -106,7 +114,7 @@ Afterwards I staggered out into the hallway. 
 
 I want to tell you I had some plan, some clear head, some idea of what I was about to do, and I didn't. I walked back toward the front of the store the way you walk toward something you already know and are still hoping, against everything, that you're wrong about.
 
-I wasn't wrong.
+*I wasn't wrong.*
 
 Denny was at the register. Parts of him were on the counter, and parts of him were on the floor behind it, and the register itself had been pried open, the drawer hanging loose, all the bills gone and only a thin scatter of coins left in place. 
 
@@ -124,7 +132,7 @@ The police went out to the station. They're still looking, as far as I know, tho
 
 The emergency radio got installed two days after. I think about that more than I probably should. About how close it came, how a piece of equipment sitting in some county warehouse for two extra weeks might have been the difference between Denny calling for help and Denny not getting the chance to.
 
-I think, too, about my brother, more than I ever expected to. I've thought about calling him a hundred times since that night to tell him what his stupid joke on his couch all those years back actually did for me, how it was the only thing in my head clear enough to listen to in the one moment it mattered. I haven't called him yet. I don't fully know why. Maybe because saying it out loud makes it real in a way I'm still not ready for. Maybe because some things you only have one word big enough to hold, and mine's never been anything stronger than that one word, and I'm not sure that word is enough for what I'd actually need to tell him.
+I think, too, about my brother, more than I ever expected to. I've thought about calling him a hundred times since that night to tell him what his stupid joke on his couch all those years back actually did for me, how it was the only thing in my head clear enough to listen to in the one moment it mattered. I haven't called him yet. I don't fully know why. Maybe because saying it out loud makes it real in a way I'm still not ready for. Maybe because some things you only have one word big enough to hold, and mine's never been anything stronger than that one word, and I'm not sure that one word is enough for what I'd actually need to tell him.
 
 All I can really say at the end of it all is…
 
