@@ -1,0 +1,129 @@
+My biggest insecurity was always my uncultured upbringing. I never wanted people to know about my low class roots, how working class my family was.
+
+When I got into a prestigious college on scholarship, I continued my habit of affecting sophistication however I could. I altered my accent to sound more posh, wore the sleekest designer labels I could afford off-price, and ate whatever fancy canapes I could scrounge together. And of course avoided bringing up my humble hometown.
+
+I also started dating an upper class girlfriend. Victoria came from money and had grown up with all the decadence and prestige that I’d dreamed of. Unlike me, however, it wasn’t very important to her. Hence why she even ended up dating someone from my socioeconomic background at all. We both admired what the other had, it seemed.
+
+Regardless, I was always trying to impress her. To prove that I belonged with someone as high up the social ladder as her. Maybe to prove to myself as well.
+
+I would memorise the most pretentious facts, ramble on about the sailing conditions in Monaco this time of year, or the highs and lows of the stock market, or the results of the latest polo match I saw. I was insufferable but I think she found it endearing.
+
+My biggest showy gesture to my girlfriend ended up being booking us a wine tasting trip together. I had turned 21 only a year ago and was raring to prove to Victoria and her family my eliteness in the field of alcohol, too.
+
+To find the place, I’d literally just Googled winetasting, scrolled a bit and picked one that wasn’t too expensive or too cheap. I didn’t know much about the intricacies of wine, only that it tasted good. But in my naive eyes, this would be the perfect way to showcase myself as an epicure while also experiencing a drop of the lifestyle I’d longed for.
+
+Excited, we packed my car for the drive and set off for the weekend trip. The vineyard was located here in California, in the beautiful Napa Valley I’d always read about. It was a gorgeous drive through sunny hills and olive green orchards.
+
+I hadn’t needed to pack very heavily for the trip, but I’d instinctively included my wine drops. A telltale sign of my newness to wine, on the times I’d sipped it I’d occasionally gotten a headache. The drops in the tiny squirt bottle would reduce sulphites in the wine and prevent any allergic reaction. It would also brand me a declasse peasant if anyone saw me sullying my wine with them. I resolved to try not to use them.
+
+Finally, we arrived at the beautiful remote estate framed by a field of grape vines. Upon parking our car, we were quickly greeted by our vineyard guide, Pauline. Dressed in an elegant fall coat and boots, she showed us inside the ornate lodge. There we met the other vineyard visitors who would be in the winetasting group with us. We were the youngest people in the group by quite a bit, and the older group carried themselves with a refinement which instantly intimidated me. Despite this, they were friendly and chatty with us. Together, we waited in this lounge together enjoying the cheese and charcuterie board.
+
+In true form, I wasted no time in showing off my knowledge of fancy wine and culture to the group. Victoria rolled her eyes at my pretension, but humoured me as she always did. The group seemed to buy that I was one of them, a member of the cultured upper crust in my wool cardigan and textured chinos. Here I finally was amongst my people.
+
+We were fitting in making great conversation when Pauline returned and escorted us to the counter where we’d be having the wine tasting. I tried to hold in my excitement—it was the first one I’d ever been to, unlike Victoria who had attended several on trips to Europe before. It was old hat to her but for me it was a chance to prove myself.
+
+The sommelier Francois started us with white wines, pouring us a Riesling, then a Pinot Grigio, and then a Chardonnay. Truth be told, I found white wine more digestible. I took a sip of each and was struck by their robustness. They were unlike any white wine I’d had before in my admittedly short time drinking. They had the crispness and acidity of white wines, but also a strange sweet, salted flavour. Fascinated, I busted out all my fanciest adjectives to describe what I was drinking.
+
+“Wow, what an exquisite citrusy blend, this one also has a fine oaked body—and do I detect notes of stonefruit and peach?”
+
+Beside me, Victoria had a far more honest reaction to the wines.
+
+“Uh, they’re a bit salty and sickly sweet for me” she complained, wincing as she sipped each glass set out for her. I blanched awkwardly at her candour—despite the fact that, of the two of us, she was the one to know what she’s talking about here.
+
+“Perhaps you’ll enjoy our selection of reds more then?” said Pauline, clearing her glasses. Meanwhile, the rest of the group were enjoying theirs, dumping the excess into a basin. Unaware of this winetasting norm, I’d already drained all of mine.
+
+Francois went ahead and set out an assortment of red wines—the main event for the winetasting. He poured us a Pinot Noir, then a Malbec, and then a Shiraz. This time I took a bit more time before examining their flavours, swilling the wide wine glass in my hand like some kind of gourmand. Then I took a sip of each. Woah. In addition to the normal earthiness and jamminess of red wines, these had a metallic, more pungent taste to them. That must mean they were *really* good red wines, I assumed.
+
+“Divine, an excellent nose of blackberry and cherries in these, incorporating hints of spice—how positively tannic!” 
+
+Far more reticent this round to take a sip, Victoria steeled herself up to it and tried the wines. Looking back, she probably didn’t want to be wasteful knowing how much I’d spent to bring us here and how much that set me back. Still, she couldn’t keep the reaction off her face of being visibly sickened by what she was drinking. In fact she had to stifle a gag by the last glass.
+
+“Eugh…I’m not really a fan of those, sorry…they’re not by any chance expired or…like did something crawl into a cask maybe…?” she mumbled nauseously, tugging her sweater.
+
+I was mortified at what she was saying. This was a fancy winery, of course the wine was good quality. Sure, the tastes were a bit on the strange side—but so was caviar, truffles and foie gras. It was clearly an acquired taste—and one I wanted everyone to think I’d already acquired. Her rudeness was making us look like yokels.
+
+Not wanting to have anything more to drink, Victoria decided to retire early to our stateroom at the lodge. Instead of following her there, I regrettably bid her goodnight and mouthed an apology to Pauline and the group. I finished the winetasting with them and just continued making conversation, rubbing elbows with the kinds of moneyed folk I wanted to become one day.
+
+That’s when Pauline informed me that the owner of the Scarlet Landing vineyard was excited to meet me. Even more surprising, he wanted to have dinner with me. Had I really impressed them with my verbose rambling? It was an opportunity not to be missed.
+
+In hindsight, it was at this point where I should have gone back to the room, gotten Victoria and gotten the hell out of there. It’s what a good boyfriend and danger savvy person would have done. It wasn’t too late yet.
+
+But instead, I followed Pauline to the vineyard owner’s personal study and waited for him there. I still had no idea why he wanted to see me. Maybe I’d won some kind of contest? I certainly felt at home in his ornate study for the hour I waited there. 
+
+Finally, the owner entered. Bertrand was a salt-and-pepper haired older gentleman, dressed regally in a shirt, ascot and vest. He smiled warmly when he wa
+
+“It is great to meet you, Mr Jaden,” Bertrand beamed. “I am told you have enjoyed your winetasting with us today—a joy for me to hear. Can I interest you in a glass of Merlot?”
+
+Taking our seats at the private dining table, he gestured to a bottle of my actual favourite wine—a simple Merlot. I readily accepted. Instead of waiting for Francois, he readily poured the wine himself—displaying the fine sommelier techniques as well as his staff. I had so much I could learn from this man.
+
+My big mouth was already at it again, going on and on about whatever sophisticated topics I could think of. How this winery was exceptional compared to the many I’d visited previously, how the crystal glassware resembled the collection I had at home. Anything to talk myself up, although now I felt a bit self-conscious in the presence of someone with actual power.
+
+Bertrand smiled along with my stories. He then told me the reason for bringing me here.
+
+“I could use someone young, composed and ambitious like you to take over this vineyard from me in a few years. I’ve been searching for a while and you have the right temperament.”
+
+This was a tremendous compliment to me. At first, I thought it was because my tall tales of wealth had convinced him. But he quickly dispelled this—Bertrand told me that knew I came from little and was aware of my front.
+
+In fact, he said it was this very enthusiasm and determination to elevate myself beyond my birth, which he appreciated.
+
+“I, too, wasn’t born with a silver spoon in my mouth, Mr Jaden” he recounted. “I had your zeal in my youth, and it’s what led to my success with this winery. I value those who appreciate the finer things in life, especially those who do without.”
+
+By now, I was onto my second glass of the Merlot. It had that same loamy, gamey aftertaste that the other red wines had possessed. It was also warmer than the other wines. But if this was fanciness, I could get used to it. A little tipsy, I excitedly asked my benefactor if my girlfriend Victoria could take over the vineyard with me.
+
+It’s here where the energy of our pleasant dinner shifted. Surprisingly, Bernard shook his head.
+
+“We have better uses for types like her.”
+
+These ominous words shot through my drunken enjoyment and I instantly felt uncomfortable. I’d probably had too much of the strange wine to drink—maybe I’d misheard him. Abruptly, I got up, apologetically said good night to Bertrand, and decided to go sleep off these feelings next to Victoria.
+
+At this point, it was night and the winery estate wasn’t well-lit. I was also far from sober. Inebriated, I stumbled from wooden door to door until I saw what I thought was the entrance to our sleeping area.
+
+Instead, I accidentally opened the door to a dark, lamplit room—filled with the other winetasting attendees. They were all dressed in black, and at the centre of their huddle, was the person I’d been looking for—Victoria. She looked barely conscious and, to my immense horror, I saw what was happening as my drunken eyes adjusted to the dark.
+
+They were bloodletting her.
+
+In stark contrast to the rest of the comfy estate, this room looked more like a blood donation clinic, with a host of apparatus around it. There were machines to store blood, and to separate it into different components. 
+
+But, unlike this medical-looking setting, Victoria was being bled by knives into wooden buckets. The group were each draining a different one of her limbs—her winery outfit stripped off—and her body looked barely alive on the table.
+
+My first thought in my drunk head was to stop them. My first response from my drunk stomach was to throw up.
+
+As I heaved my wine and dinner onto the floor, Bertrand walked in behind me.
+
+“Well, this certainly saves me the trouble of explaining where our wine gets its signature flavour.”
+
+Between my retches, I heard him explain the secret of their wines. He told me about how their red wine was combined with whole blood, their white wines were combined with plasma, their roses had a smaller addition of both. Apparently, this had always been his philosophy for this vineyard when he started it—using human blood to bring out the deeper flavours of wine while adding a touch of sophistication.
+
+“Rich people who don’t appreciate their wealth status don’t deserve to live—but the royal blood that flows through their veins is still worth something” Bernard mused. Standing over Victoria’s dying body, his winetasters nodded.
+
+A fellow poor person who worked to enter the upper circles, Betrand resented rich people who left them.  
+   
+If I’d been repulsed earlier, it was nothing compared to how I felt now. I’d spent the day drinking a previous victim’s blood. And then the grimmest realisation: I’d spent dinner drinking my girlfriend’s blood. Yes, small infusions of it into existing wine. But it was still human blood.
+
+Bernard gave me my ultimatum.
+
+“You can either join me, or you can join your girlfriend.”
+
+I looked up at Victoria weakly. She was colorless and already dead at this point. Would I be too if I didn’t take over the vineyard now?
+
+No, I thought as my fingers closed around it in my pocket.
+
+Suddenly, I leapt around and squirted the entirety of my wine drops bottle into Bertrand’s eyes. He shrieked in pain as the sulphate-dissolving solution disoriented him. This was my chance to escape. I darted around him and out the door. 
+
+The wine acolytes behind me attempted to give chase, but the skidding crashes coming from behind me told me they'd slipped on my vomit puddle of bloodied wine.
+
+Adrenaline sobering me up fast, I made it to my car and tore it through the vineyard. On my tipsy departure from the estate, I was sure to destroy as many grapevines as I could with the front bumper. Whatever I could do to prevent them from serving their blood-laced wine again.
+
+I never did return to Scarlet Landing again.
+
+Last I heard, it had harvested its produce and moved away shortly after my escape. I reported Victoria’s death to the local police but they didn’t seem too enthused about investigating it. All I could think was how far Bertrand’s influence had to be if he could make the disappearances of rich visitors such a non-issue.
+
+This experience changed the course of who I was. I learned to tell it how it is and trust my gut instinct by the end. Ditching my pretensions and shame, I became a true salt of the Earth man instead. One who is proud of his common heritage. Nowadays, I drink the beer my blue collar father did, and work the same labourer job he did too.
+
+I like to think I’m more the man Victoria would have loved now than I ever was before. If I can’t honour her by getting her justice for her murder, I can do so by living authentically and proudly. The opposite of Bertrand.
+
+I’m not left without paranoia, however.
+
+Some days, when I’m drinking a stein of beer at the pub, I’ll catch that similar metallic or salty taste—of human blood. Maybe Bertrand has branched out his production and distribution?
+
+Or maybe I really just can’t taste for shit.
