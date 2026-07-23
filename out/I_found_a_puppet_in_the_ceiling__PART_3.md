@@ -1,0 +1,211 @@
+I hung up the phone and closed my eyes.
+
+The cramping had started that morning — a small knot behind the knuckles, nothing — but now it went straight into full spasm. My right hand contorted on its own, fingers splaying and locking, and the forearm went plum-colored where the grooves met the skin.
+
+I had no choice. That was the thought I kept circling. Not only had I become utterly dependent on him. Now she was too. With whoever she’d found.  How could there be more than one? What did that one feel like? I hate admitting this, but the question went straight to the reptile part of my brain and made itself at home: what if her Pull was better? Stronger? What if Charlotte wouldn’t let me try it on?
+
+Anger came so fast and so hard that the pangs for Paxton actually abated. For a second. And it felt good. Fuck her, I said out loud, alone in my kitchen with milk still drying on my chin.
+
+Then I stopped myself. What am I thinking?
+
+“Hurry. Hurry boyo.”
+
+He said it before I had my seatbelt on. The car took three tries to turn over, and he had things to say about that, too — how a man in my position should be driving something better. Normally I’d engage. Normally I liked the bit. But my mind was on Charlotte and her new friend. Not to mention the dead cop in my closet. Well, what’s left of him. 
+
+I woke up after Pulling all night and Paxton wasn’t on my arm. I basically crawled out of my bedroom in search of him when I saw it: the body. Cleaned of flesh and blood.  Just bones. The floor slick with fluid. Paxton in the middle of it all, chattering and slurping. I picked him up to look where he could have ingested all that…human matter. But it was just gone. The bones remained.  I couldn’t be mad. In fact relieved because now all I had to do was dispose of the bones which was fairly straightforward. After buying a roller travel bag from Target and stuffing it with sawed up calcium sticks from the cop, I tossed it down in the storm drains under the city where only the homeless and junkies roam. Bleached my entire place and problem solved.  But Charlotte’s new friend was my main concern. I had to go see her. 
+
+“Hurry. Hurry. Hurry.”
+
+We drove the first few miles in silence. I looked over. He sat belted into the passenger seat like a child, staring at me. Not at the road. At me. He knew what I was thinking. He always knew. He broke first.
+
+“She more better?”
+
+I had to choose my words carefully. I knew exactly why he was asking. I hate myself for the answer, but it was out of my mouth before I’d finished thinking it.
+
+“Maybe. And that could be good for both of us.”
+
+The silence came back.
+
+In retrospect I know he did not want to hear anything but no. But in the months I’d spent with Paxton, that word had been more or less erased from my vocabulary.
+
+We rode without speaking until I pulled up to the curb outside Charlotte’s building.
+
+I put him in the box, like always, and carried it through the lobby to the elevator. He was rummaging in there — I could feel the weight shift against my hip. So when the doors closed I lifted the lid to check on him.
+
+That’s when it happened.
+
+He launched out of the box and onto my chest, gripping my lapels like a man scaling a rock face. His little body carries more weight than you’d think. I went backward into the mirrored wall — shock more than force — and before I could get a hand up he was on my collarbone with both hands around my throat, wooden teeth chattering like cicadas in a Charleston summer.
+
+The first bite I didn’t feel.
+
+The second one, higher up, went through the nerve like a nail through drywall, and I erupted. I got a fist around him and wrenched him off and threw him into the corner harder than I meant to. Reaction mode.
+
+My hands came away slick. Maroon syrup. My own.
+
+He lay in the corner of the elevator floor, flopping like a fish on a dock, blood running down his teeth, that uncanny smile aimed up at me.
+
+“She no more better. She no more better, boyo.”
+
+I pulled the velvet lining out of the box — the original lining, the one that came with him from Prague — and wound it around my neck like a tourniquet. The wounds oozed. They were surface. Mostly.
+
+“Paxton. I can’t do this anymore. You crossed the line.”
+
+He lay there.
+
+“I’m putting you back in the box, and we’re going to go see Charlotte and her new friend. I don’t know what it means. So let’s be open-minded and work through it together. And don’t you ever do that to me again.”
+
+“Mmm. Itchy tasty.”
+
+I still don’t know what he meant by that. The elevator dinged like an alarm going off inside my ear and I got him into the box just as the doors opened on a couple waiting to get in. I don’t know whether they saw the blood already blooming through the velvet at my throat.
+
+It didn’t matter. I’d be inside Charlotte’s apartment in thirty seconds.
+
+AGNES
+
+Charlotte’s hug felt like a glass of ice water in the desert. I drank it a few seconds longer than I should have. I’d been through a lot, and my arm was cramping again, straining, yearning for its hourly Pull.
+
+“I’ve missed you,” she said.
+
+We held the look longer than we should have, too. I took her hand and turned it over and saw them. The grooves. Faint, pink, healing, running up the inside of her forearm like a tide line on a beach.
+
+“You found one too.”
+
+“Yeah.” She drew her sleeve down. Not embarrassed. Careful. “That shop on Fremont. The woman told me the whole lot came out of an estate back east. Westchester, somewhere — twenty minutes from my parents, which is insane. It was in a storeroom behind a crate of andirons. She said nobody had ever opened the box. She only inherited the place a few years ago. She didn’t even know she had it.”
+
+“Did you feel it?”
+
+Charlotte smiled. Her eyes went bright and wet in a way that was sexual and giddy and joyful all at once, and I recognized it instantly, because I’d seen it in my own bathroom mirror at three in the morning for two years.
+
+“Yes,” she said. “Do you want to meet her?”  
+Right then my box shuddered against my leg. Paxton, kicking at the roof of his coffin.  
+His box. I mean his box.
+
+“I think I should.”
+
+“Her name’s Agnes. She’s adorable.”
+
+We sat at her small circular dining table while she brought out a white pine box, hat-shaped, round. There was a symbol burned into the lid. It read like a goat skull at first, but the longer I looked the more I understood it wasn’t bone at all. It was veins. Organic material. Something drawn from the inside of a body by somebody who’d seen the inside of a body.
+
+“I was the first person to ever put her on,” Charlotte said. “Lucky me.”
+
+I smiled, comfortably, I thought. I was trying with everything I had not to ask the question we both knew I wanted to ask — about the feeling, the thing we now shared, the thing that is so enormous you can’t actually discuss it without diminishing it.  
+I took my jacket off. She asked if I wanted a drink.  
+Good fucking God, let’s just get to it. I want to see Agnes.
+
+Good news was, it was all Charlotte wanted, too.  
+We moved to the living room. IKEA furniture barely hanging on. Threadbare arms on a couch that had been pawned at least twice before it found her. She set the round box on the coffee table. Paxton’s box sat on the cushion next to me.
+
+“I’m going to leave him in there.”  
+“I think that’s a good idea,” Charlotte said. “We don’t want to cross the streams, right?”
+
+This. This right here is why I fell in love with Charlotte. She could quote Ghostbusters and then tell you how the Dutch and Flemish masters encoded the five senses into a still life, all while working through a glass of buttery chardonnay. She had everything. And I threw it away over a doll.  
+She lifted the lid and folded back pink satin.  
+Inside lay a brunette puppet in a navy dress with a white blouse under it. Like Paxton, Agnes had a broad open smile built from tiny wooden teeth. Triplet-sized. Baby teeth.
+
+“Paxton’s bigger than her,” I said. “I’m not sure my hand would even fit.”
+
+Playing dumb. Badly.
+
+“Oh — you want to try her on?”
+
+Paxton’s box shook like something inside it had been wired with a small earthquake. He could hear every word.
+
+“I don’t see why not,” she said. “I’m curious whether she feels different from yours.”
+
+I almost reached over and took her. My foot was going a mile a minute against the rug, channeling it, keeping it in my leg and out of my hands. But sweat had gotten into my eyebrow and Charlotte saw it.  
+“Do you want a glass of water? Let me check the thermostat. It’s warm in here.”
+
+She stood up. And she took Agnes with her.  
+I wanted to scream. I kept the foot going — an oil derrick, up and down, working the pressure out of the ground — and shut my eyes and repeated the word relax until it stopped sounding like a word.  
+“Yeah. Water’d be great.” I made myself scan the room. “Did you repaint? I don’t remember it being eggshell.”
+
+That’s when I saw it. Propped in the corner, muzzle up, not even in a case: a hunting rifle.
+
+I knew her family hunted. I never knew Charlotte to own a gun. Maybe she got it after we split. A woman alone. Reasonable. Or maybe she got it for this exact afternoon, for this exact conversation, and the water was going to take a while because she was deciding.
+
+She’s going to kill me and take Paxton.
+
+Relax. Relax. Relax.
+
+She came back with two glasses and Agnes tucked under her arm.
+
+“I thought we’d share the water.”
+
+“Share?”
+
+“I’m kidding. I figured we could joke now that we’re sharing puppets.”
+
+I stared at her. If she thinks she’s taking a ride on Paxton, that rifle is going down her throat before she gets her thumb in his jaw.
+
+Relax relax relax relax relax.
+
+I laughed. It came out wrong and she caught it.
+
+“Are you nervous?”  
+“No. I’m just — really curious what she feels like.”  
+“Oh, I’m sure you are.” She sat down beside me. “It’s kind of incredible. I went in to work today and it’s all I thought about. All day. So I’m curious what you think. And I think I finally understand what you were going through.”  
+“You do?”  
+“Yeah.” She held her out. “Here. Try.”
+
+I stared into Agnes’s eyes. Black coal orbs, flat as a fish on ice.
+
+I put my hand inside her.
+
+And then I fell upward.
+
+The ceiling of her apartment opened into a black voluminous ocean and took me the way a tractor beam takes a truck in a movie — no acceleration, no wind, just the sudden fact of being somewhere I hadn’t walked to.
+
+It was the Pull. But it wasn’t.
+
+Paxton is heat. Paxton is gravity and appetite and the click of a bone going back into its socket. Paxton is relief, and relief is a thing you only get if you’ve been in pain, which means Paxton has to keep you in pain to keep giving it to you. I understood that in a fraction of a second, up there in the black, the way you understand things in dreams — completely, all at once, and with no ability to do anything about it.
+
+Agnes was cold. Agnes was clean. Agnes was the feeling of being looked at by someone who had already forgiven you. And she didn’t say hungry.  
+She said, in a voice like a small bell wrapped in felt:
+
+“Thank you for coming, Steven.”
+
+Nobody has called me Steven since my mother.  
+I started crying and couldn’t locate the crying in my body. My face was wet down in the apartment and I was still up in the ocean and both of those were happening to somebody.
+
+With Paxton I have always known whose hand is inside whose. With Agnes, I wasn’t sure.
+
+I came back to the couch with my mouth open and my throat wound bleeding freely through the velvet, dripping onto Charlotte’s rug, and Charlotte was watching me with her lips parted and her pupils blown wide open like a woman watching a man eat something she cooked.
+
+“Right?” she whispered.
+
+Paxton’s box had gone completely, perfectly still.
+
+SCARSDALE
+
+Charlotte came from money in Westchester. Manicured lawns, white picket, Range Rovers and Mercedes interchangeable in every driveway. The first time she brought me out, we came in from JFK in a hired car her father had arranged, because her father arranged everything.
+
+He was a hedge fund guy who’d started and sold enough businesses that he could have retired at fifty. Instead he golfed, drank, collected art, and gave Charlotte whatever she wanted. When we met he asked me about the market and where I’d squirreled away my nuts. He laughed at his own joke. I told him I didn’t invest and he genuinely could not process it. Then I started in about cooking, about Cordon Bleu, about the line, and I watched his eyes glaze over in real time. It wasn’t that he was uninterested. He was uninterested in me dating his daughter, which is different, and honestly fair. I was a sous chef with dishwasher money.
+
+That was before. That was a whole man ago.
+
+This time we flew out together, and the puppets went in checked luggage. We’d reconnected in a way I could not have imagined three weeks earlier. I showed her how to feed Agnes. I cooked like a dad at a grill, big and loud and generous, for the four of us. Some nights we just sat there with our friends on our arms, the two of us laughing, flying.  
+Flying, because switching — trading, putting on the other one after a stretch with your own — did something to the high that I still don’t have language for. It didn’t double it. It deepened it. It went down instead of up.
+
+But the next day was another story. Dim. Used up. Hollowed out and rinsed. We’d stay in bed until dinner and not speak, two adults in a dark apartment with our arms across our chests like people in caskets.
+
+We called it circling the drain.
+
+Which is why, when Charlotte had to fly home for her father’s annual charity thing, we agreed — as a unit, all four of us, or so I told myself — to zip the puppets into the bag and leave them there for the weekend. Two days. Forty-eight hours. We’d done four hours. We told each other four hours and forty-eight hours were the same activity at different scales.
+
+The party was in a white tent on a lawn the size of a municipal park. String lights, a raw bar, a jazz trio playing standards at a volume designed not to interrupt anyone.
+
+My hand had been shaking since the car. I kept it in my jacket pocket. Her father found us by the bar, tanned, delighted, already three deep.
+
+“There he is. The chef.” He put his drink down and put his hand out. “Where’ve you been hiding?”
+
+I took his hand.
+
+His sleeve rode up when he pumped it, and I felt them before I saw them, the way you feel a stair that isn’t there:
+
+Grooves. Healed. Pink. Running up the inside of his forearm like a tide line on a beach.  
+He held the shake a beat too long.
+
+Then he leaned in, still smiling, still holding my hand, and said, close enough that the jazz trio covered it:
+
+“How many do you have?”  
+END OF PART  3

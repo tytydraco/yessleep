@@ -1,6 +1,6 @@
 Hey folks! A friend pointed me over to this subreddit and told me it would be the perfect place to share some of the stories of my youth.
 
-I was a working man for most my adult life, so I never really had the chance to have kids of my own to pass on a legacy. One of my biggest fears as an older man is to die without having passed something on, so I hope I can pass on what little I have to the next generation, even if it's just a tall tale from myself, an old retired mechanic.
+I was a working man for most my adult life, so I never really had the chance to have kids of my own to survive my legacy. One of my biggest fears as an older man is to die without having passed something on, so I hope I can pass on what little I have to the next generation, even if it's just a tall tale from myself, an old retired mechanic.
 
 It happened on a night that was as cold and dark as any other night in the provinces. My grandfather, Andeng, was smoking a cigar he’d made himself from wild tobacco that grew around town. The whole house smelled like amber and warm evenings. 
 
