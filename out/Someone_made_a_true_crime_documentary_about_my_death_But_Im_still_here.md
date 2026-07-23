@@ -1,0 +1,93 @@
+A few months ago, I got an email at three in the morning. Life Rights Inquiry, Untitled Project.
+
+Wes Bennett. Documentary producer. I looked him up. He’d done two films I actually recognized. The kind that get nominated for things. He said he'd spent the past year "developing a story" about me. Wanted to talk.
+
+I couldn't imagine what about my life was worth documenting.
+
+He signed off with a coffee shop three blocks from my apartment and a time.
+
+He was already sitting when I arrived. Latte on the table. Made exactly how I take it, down to the extra shot I usually get. A leather folder sat under his hand like it might try to leave without him.
+
+We talked about my life. My childhood. My job. The street I grew up on. At first it was almost flattering. I remember relaxing into it. Laughing at something he said. He had a charm you didn’t notice until it closed around you.
+
+Then he mentioned a third act.
+
+A stretch where I go quiet. Pull away. Get hard to reach. The front door, one night, wouldn't be locked the way I left it. No forced entry. I was so confused. Asked him what kind of documentary this was supposed to be.
+
+"True crime," he said. Like I'd missed something obvious.
+
+I laughed. The alternative was worse.
+
+"Whose crime?"
+
+He looked at me the way you look at a child who's asked something idiotic. Opened the folder, absentminded. Photographs. My building. My hallway. My front door shot from an angle that didn't exist unless the camera stood inside my apartment, looking out.
+
+My chair screeched against the floor before I knew I'd stood.
+
+Wes closed the folder with the same calm he'd opened it. "We already have most of the footage," he said. "I just wanted you to know your side gets told too. Seemed like the ethical thing to do."
+
+I blocked his number that night. Email. Phone. The production company's main line.
+
+A week of nothing. Felt like nothing was worse than something could have been.
+
+One night, my neighbor mentioned, in passing, that a man had come by asking questions about me for "a film project." He said it as a compliment, like I'd made it big. Couldn't remember the name. Was pretty sure he'd signed something.
+
+I swear things in my apartment started moving around after that. A mug two inches from where I'd set it. A chair turned toward the window. Like someone had been staging it for a shot.
+
+I stopped sleeping right. Wake at strange hours, certain I heard a shutter click. Hide under the covers. Hold my breath until my chest burned.
+
+I never saw a camera. That absence became its own kind of animal. A wrongness under the skin. The way you feel a fever coming on.
+
+I moved. Told no one the new address. Not even my mother.
+
+One sleepless night I opened a streaming service, looking for something to fill the quiet. A thumbnail stopped my thumb before my brain caught up.
+
+My face. Badly lit. Mid-laugh. A title underneath:
+
+PLAIN SIGHT: A DOCUMENTARY
+
+One hour thirty-three minutes. Released today.
+
+My hands went cold before I pressed play.
+
+The first twenty minutes were the coffee shop. Our conversation. Cut tight. Scored with ominous strings. Wes's voice pitching to a version of me who looked far more frightened on screen than I remember feeling in the room.
+
+My old building. My neighbor telling the camera how we met. My old front door, filmed from inside looking out. That angle again.
+
+A news segment. The kind that runs after a body turns up. A reporter at the edge of a tree line. Floodlights. Officers moving through underbrush. Heads down. Sweeping flashlights over the ground.
+
+The reporter said my full name into the microphone.
+
+Cut to my mother in the house I grew up in. Sitting too straight at the kitchen table. Hands folded like she's bracing for news that hasn't quite hit her yet. She looked into the lens. Said how she misses her daughter. Wishes she could hear her voice again.
+
+The tree line again. Closer now. A stuffed rabbit half sunk in wet leaves. The one that's slept on my bed since I was six.  The one sitting on the shelf behind me right now.
+
+The camera moved. Slow. Reverent.
+
+There I was. Face down in the dirt. A coat I don't own yet. Hair fanned out wrong.
+
+I remember my own voice. High and cracked. Screaming at the television. That none of this happened. That it wasn't real. Like the television could be argued with.
+
+Then, my new apartment. Right now.
+
+A static shot of my front door. Heavy breathing like someone standing too close to the microphone. I looked up from the screen.
+
+My front door was open.
+
+I slammed it shut. Locked it. Called the police with my back against the wood. They came fast. Walked the apartment. Checked the hinges. The frame. The fire escape.
+
+Nothing forced. Nothing broken. Nothing missing.
+
+I told them about the TV. Told them the counter was still crawling. They just needed to look.
+
+There was nothing. Just a blank screen, they said. Kind, the way you talk to someone who's had a scare over nothing. They told me to get some rest and left for the night.
+
+The documentary didn't stop. It doesn't stop. That's the part I keep circling back to, awake at four in the morning with the runtime bar still sitting at five minutes remaining no matter how many times I check. Five minutes of a thing that hasn't happened, counting down to a version of me in woods I've never been.
+
+I sleep with the rabbit now. Make sure it's on the bed every night before I check the locks.
+
+I'm still here. I want that on record somewhere that isn't their footage.
+
+I'm still here. I'm still alive.
+
+I'm still here.
