@@ -2,19 +2,17 @@ This has been on my mind for a while and has been in every single dream since th
 
 I feel it's time I talked about it.
 
-It started the morning right after my check-up with my optometrist. I felt as if I had experienced Technicolor for the first time.
+It started the morning right after my check-up with my optometrist. I left feeling as if I had experienced Technicolor for the first time. You never realise how poor your eyesight has become until you experience 20/20 vision.
 
-The appointment was in another town and, since I don't drive, I had to call an Uber to get there. My appointment had ended earlier than I expected, so I found myself with an hour to kill in an unfamiliar place.
+The appointment was in another town and since I don't drive, I had to call an Uber to get there. My appointment had ended earlier than I expected, so I found myself with an hour to kill in an unfamiliar place.
 
-I've never had much of a sense of direction.
-
-Ten minutes later, I'd somehow managed to get myself thoroughly turned around.
+I've never had much of a sense of direction. Ten minutes later, I'd somehow managed to get myself thoroughly turned around.
 
 I was still in the business district, the optometrist's office long behind me, unsure if I was heading the right way.
 
 I turned a quiet street corner, trying to get my bearings, when I came across a man.
 
-His clothes looked slept in, his hair was unkempt, and his eyes never lingered in the same place for too long.
+His clothes looked slept in, his hair was unkempt, and his eyes never lingered in the same place for too long. 
 
 He spoke with a surprising sense of clarity.
 
@@ -26,7 +24,7 @@ A few teeth were missing.
 
 "Um... thank you. Is there a Seven-Eleven nearby?"
 
-Every instinct told me to keep walking.
+Every instinct told me to keep walking. 
 
 Don't engage.
 
@@ -36,15 +34,13 @@ And walked.
 
 And walked.
 
-After a while, I found myself falling a few steps behind him. He never once looked back to check if I was still there.
-
-U
+After a while, I found myself falling a few steps behind him. He might've had a limp. Each step made his body bounce like an accordion. He never once looked back to check if I was still there. 
 
 By then, we'd left the business district behind. The office buildings had given way to neat little bungalows and trimmed lawns.
 
 The kind of place parents would leave their kids unsupervised until dark.
 
-He stopped so sud4denly I nearly walked into him.
+He stopped so suddenly I nearly walked into him.
 
 He pointed past a hedge.
 
@@ -58,7 +54,7 @@ I hadn't realized how tense I'd been until I saw it.
 
 "The Seven-Eleven."
 
-Whatever I'd expected from him, this wasn't it.
+Whatever I'd expected him to do, this wasn't it.
 
 "Take care."
 
@@ -78,35 +74,25 @@ I shrugged it off.
 
 I passed the houses, slipped through a gap in the hedge, and stepped onto the wooden bridge.
 
-The air turned cold.
-
-Cold enough to see my breath.
+The air turned cold. Cold enough to see my breath.
 
 I froze.
 
-It felt as though dozens of hands were running over my body all at once.
-
-I looked down.
+It felt as though dozens of hands were running over my body all at once. I looked down.
 
 Nothing.
 
-There wasn't a single thing touching me.
-
-I was alone.
+There wasn't a single thing touching me. I was alone.
 
 At least, that's what my eyes told me.
 
 Then I felt a warm breath against the back of my neck.
 
-Every invisible hand froze.
-
 The world went completely silent.
 
 I didn't dare breathe.
 
-I continued forward in a blind panic.
-
-Hearing voices in my ear, beckoning me to turn around.
+I continued forward in a blind panic. Hearing voices in my ear, beckoning me to turn around.
 
 Three voices.
 
@@ -120,9 +106,7 @@ At that point, my body was moving on pure instinct. I have no clue how my legs w
 
 Thank God they did.
 
-I remember coming to around then.
-
-I whipped my head around to see what on earth could have violated me.
+That's when I finally came back to my senses. I whipped my head around to see what on earth had been behind me.
 
 But the stranger's words rang in my head like a church bell, stopping me before I had the chance.
 
@@ -134,11 +118,11 @@ The hands.
 
 The voices.
 
+Gone.
+
 I doubled over, gasping.
 
-My body screamed at me to look back.
-
-Every instinct begged me to find out what had been following me.
+My body screamed at me to look back. Every instinct begged me to find out what had been following me.
 
 I almost did.
 
