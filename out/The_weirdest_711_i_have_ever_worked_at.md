@@ -64,7 +64,7 @@ There weren't a lot of customers over the next hour. One, who i imagine was a re
 
 "I'm just a floater for tonight. Figured i could pick up some hours" 
 
-"Oh worm? Well, at least I know why I won't see YOU again" he grabbed a 12 pack of models paid for it, then asked "hey man, you got a lighter I can borrow? I'll give you a cigarette" 
+"Oh cool. Well, at least I know why I won't see YOU again" he grabbed a 12 pack of Modelos paid for it, then asked "hey man, you got a lighter I can borrow? I'll give you a cigarette" 
 
 We went out and had a smoke. I asked him about the comment he made about not seeing me again.
 
@@ -126,9 +126,9 @@ She looked down and her face sunk somewhat. "I just... Felt bad about having to 
 
 I gave her a big hug, "you don't need to do that for me, hun. You know I love to see you and hang out, but your health is more important" 
 
-"Thank you" she choked, "maybe we can have a smoke real fast and then I will go home" 
+"Thank you" she choked, "let me get a Pepsi really quick and maybe we can have a smoke real fast and then I will go home?" 
 
-"Of course," I followed her to the door before glancing at the clock. 11:59
+"Of course," I sold her the Pepsi (i let her use the employee discount when she comes to visit) and followed her to the door before glancing at the clock. 11:59
 
 "Hold up, i just need to clock out and in real quick" 
 
