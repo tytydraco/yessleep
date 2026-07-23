@@ -1,0 +1,67 @@
+"The guy put on Air Tag up his butt because he was always losing his shit." There was a moment of silence before we burst out laughing. Stan always came out with the funniest of stuff. We could be in a crowd of strangers, and he would say the most random shit, and he would have everyone wetting themselves. Like the other day, he phoned me late, and in his most serious deadpan voice, he told me he got dental floss stuck in his teeth and wanted to know what he could use to get it out. When I suggested he use more dental floss, he was like, "Ah, fight fire with fire, I like it," and hung up. 
+
+It was Tuesday, and me, Stan and Jake were heading down towards the park. Stan was telling us a story about the first time he masturbated but stopped before he came because he got scared. As we made our way to the entrance of the park, my heart sank at the sight of the most beautiful woman I had ever seen. Everything about her was perfect. It was like God made her just for me. Stan was the first to notice me looking at her as if I had never seen a woman before. He nudged me on the shoulder, and with a cheeky grin, he went, "Why don't you test her flight or fight response with a friendly greeting." 
+
+I laughed it off, still working up the nerve, still rehearsing the first line in my head. But Stan wasn't waiting for me to find mine. Before I'd even taken a step, he was already walking toward her, easy as anything, like he'd never once hesitated at anything in his life. I watched him go in for the kill, that same cheeky grin doing all the work his words hadn't even started yet.  
+
+ Two days later, after their first date, he rang me, sounding normal enough at first. 
+
+"Do you think I peaked in high school?" he said, no hello, nothing. 
+
+"You were voted 'Most Likely to fuck a garbage man for garbage' I said. "I don't think that's a peak, mate." 
+
+"Right, exactly, that's what I said. So why does she keep asking me that." 
+
+"Asking you what?" 
+
+"If I peaked in high school. Like it's a real question. Like she wants an actual answer." He went quiet for a second, which for Stan was basically a full stop mid-sentence. "She asked me last night before I feel asleep and when I woke up the next morning, she was just... sat there. Waiting for me to answer." 
+
+I wasn't sure what to say, to him all I could think of was that i dodged a bullet. She sounded crazy. If she was a country her flag would be just Red.  
+
+He rang again a few nights later. It was late, and the second I picked up I could hear he wasn't right, his breathing was fast, like he'd been walking quickly, or trying not to run. 
+
+"She invited me for dinner," he said. "Met the parents." 
+
+"Okay," I said carefully. "How'd that go." 
+
+"They were sat there before I even knocked. Both of them. Right at the table, hands folded, like they'd been sitting like that for hours waiting for me specifically." A pause. "There wasn't any food out. I thought maybe they hadn't started cooking yet. But then her mum goes, sit down, we've been so looking forward to this, and her dad just stared at me the whole time I was walking to the chair. Didn't blink. I don't think either of them blinked once the entire night." 
+
+"Stan !" 
+
+"They kept asking questions but not normal ones. Not job, family, any of that. Her dad asked me how much I weighed. Just straight out. And when I laughed it off he asked again, dead serious, like he actually needed the number for something." 
+
+His voice dropped lower, and I had to press the phone harder to my ear to hear him. 
+
+"Then her mum brought a plate through and set it down in front of me, and it was empty. Completely empty. And she said, go on then, eat up, we want you strong for later. And I looked at her, and I looked at him, and neither of them was smiling anymore. Not even pretending to." 
+
+"Where's the girl in all this? Where was she?" 
+
+"Standing behind my chair," he whispered. "The whole time. I didn't know it till I turned round. She was just stood there, dead still, watching them watch me." 
+
+I heard something shift on his end like a door opening slowly. 
+
+"I need to go," he said suddenly. "I think they're....." 
+
+The line cut. Not a hang-up. Just gone, mid-word, like something had reached over and ended it for him. 
+
+I sat there in the dark holding a dead phone, and for the first time since I'd known him, I didn't think Stan was joking at all. 
+
+The phone rang again twenty minutes later. Stan's name was still on the screen, but it wasn't him who answered. 
+
+"Hi," she said. "Sorry to call so late." 
+
+I could hear Stan in the background, screaming. And under it, her parents, laughing like it was the funniest thing they'd ever heard. 
+
+"I don't want to wear it," Stan was shouting. "I'm not wearing the nappy, please, I'm not." 
+
+Her mum's voice, cheerful, cut across him. "It's easier if you just put it on, love." 
+
+"What's happening to him?" I shouted. "What are you doing to him?" 
+
+"He's just a bit dramatic," she said, like she was talking about the weather. 
+
+Then the phone went silent. I could still hear her breathing on the other end.  
+
+"I noticed you with the Stan that day in the park. I was really hoping it was you that made the move. I'm not sure if you noticed, but i think we were made for each other. My parents think the same and would love to meet you." 
+
+As her words hit my ears i felt a cold chill run down my spine, and the thoughts of putting an Air Tag up my butt didn't sound so ridiculous now.  
