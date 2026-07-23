@@ -1,0 +1,46 @@
+>!Warning : Suicide, Self Harm!<
+
+  
+Hello Reddit!
+
+My name is Lucas Campbell. I was 20 years old. This was my suicide note.
+
+I was an artist for around my entire life. I never really knew how to do anything else. guess it gave me kind of a complex about my art and how I perceive myself. If I can’t draw, what good am I?  
+I wish I would’ve seen that you should never play to the gallery. It’s dangerous. Artwork shouldn’t be made for others. You should realize there was a part of you that wanted to create, and that part is the most critical. 
+
+That’s the kid in you that wanted to color, instead of dreading it because it’s a deadline. It’s a horrifying feeling to lose the love for something you once held so close to you. It’s like the death of a friend.   
+Art school made me hate what I loved, and it started to cause me to resent artwork.  
+In fact, art burnout is what caused me to start writing this. I changed some names around, but this story is the truth. Well, my truth.
+
+ School was never my strong suit. Teachers always loved my writing, but would only ever say I needed to “apply myself”.
+
+I really wish I would listen sometimes. I just make things harder for myself.  
+Speaking of making things harder - I decided for a career in animation, one of the most tedious processes in the world.
+
+It’s why I decided to pursue it as a career in 2024 and go to a fancy-schmancy art college. I, of course, blew through all of my parent’s saved college funds by slacking off in my first two semesters. Getting away from your parents feels like a new type of freedom. No one can tell you what to do, what to say- it builds an intense arrogance for the world. 
+
+A lot of people in today’s society never move past that mindset, and for good reason. There are a lot of horrible things that happen every day that we, as people, can do nothing about. All you can control is yourself.   
+When you’re the child of a divorced parent, nowhere feels stable. You learn that nowhere is permanent. You keep your toothbrush in your bag because you don’t know where you’re going to be that night. You’re trapped in limbo at the whims of two people who absolutely despise each other. It begs the question - what happens when a child is created from two parents who hold so much vitriol for each other? Is that child destined to self-loathe?
+
+You’re not home, because “home” is one place. This creates a feeling of never being anywhere. Always in the middle, always going somewhere but not knowing where you’re going. You feel completely directionless and lost because you have no point of reference for home. You’re lost.  
+It always just feels like something that’s supposed to happen to other people. Not you.
+
+Buying a gun isn’t a hard thing to do in America, especially if you’re a white guy. If he knew I was going to put it to the roof of my mouth, I think he would have sold it anyway. People sell cigarettes all the time. The only difference is time between death. 
+
+I have a very skewed concept of time. Sometimes I wake up and feel nothing and can’t get out of bed, and some days I feel invigorated. Those latter days are getting less, and less, lately.
+
+I only recently realized my problem is abandonment. It’s why I push everyone away. I’m so afraid of being abandoned that I am afraid of making connections altogether. So why do I feel so empty? So unresolved?
+
+I used to go to art for this, but now even picking up a pencil feels like work. I have no one to blame but myself.   
+Firearms are a 90% mortality rate. If you want it done fast, it’s the best bet. There’s really no feeling like a warm gun in your hand. It’s intoxicating. You hold power for the first time you ever have. It makes you understand as soon as you hold one. It’s heavier than you expect.
+
+I don't have the passion anymore. It’s better to burn out than to fade away.
+
+Cold iron’s chill hits the bridge of my nose, directly in between my eyes. The barrel of the gun separates my two eyes to see the sweat of my brow roll down my fingers. This life is just too much to bear. 
+
+I cannot take it anymore. 
+
+The gun clicks and I wake up in a freshly cut field of wheat.  
+The wheat is brushed past as I stand up and make my way to the clearing. I see nothing but trains and subways going in and out, with the sound of wind chimes twinkling as they enter the station.
+
+\- END OF PART 1 -
