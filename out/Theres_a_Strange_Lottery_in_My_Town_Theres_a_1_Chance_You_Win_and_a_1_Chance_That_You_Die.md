@@ -1,0 +1,229 @@
+Hey guys, Chris here. Coming to the internet to try to solve a problem I have. I could really use the help.
+
+Is anyone good at math here? I need… I need help. I need a miracle.
+
+My sister is going to die.
+
+I guess it’s obvious by now, but does anyone have an impossible lotto in town? One that… can kill you?
+
+Is that exclusive to our little town in the middle of nowhere?
+
+We’re not really supposed to talk about it to outsiders. And I can’t find anything when I look it up online. It can’t be the only one… right?
+
+I should explain why it’s so strange and honestly horrible. There’s a small building where you can participate in this lottery.
+
+You get one ticket per person every year. And you have a 1% chance to get a white star and a 1% to get a grey star.
+
+If you get the white star, you win. If you get the grey star, you die.
+
+I think you can understand what happened here.
+
+My sister got a grey star.
+
+So, I need to get a white star to counter it.
+
+There’s a man who runs this lottery. He’s weird, he’s tall, he’s lanky. And he has teeth that are sharper than they should be. We call him the “Prize Master”. And he’s not someone to fuck with.
+
+So, why do I need a white star? Well, winning is not just winning money or something. You can get, well, anything.
+
+A car, a house, fifty million dollars. You name it. It’s not exactly that simple, but that’s the gist of it.
+
+And if you get a white star, you can cancel someone else’s grey star.
+
+So, I did something. I was desperate.
+
+I did the unthinkable. But I didn’t have any doubts. I took my sister’s star.
+
+Now I’m going to die.
+
+You can kinda do that. Most people don’t. You can take people’s prizes, give them your win, give them your loss. You can even join prizes.
+
+It’s… heartbreaking sometimes. There have been a fair amount of people taking other people’s losses. Dads, moms, grandpas. All dying for the mistakes of their family members.
+
+People are so greedy, they’re so shitty. You’re quite literally gambling your life away.
+
+I had to do that with my sister. She’s my only family. She cried a lot when I told her I took her place. What was she expecting? I didn’t play this year, or any year for that matter, so now I’m going to do it.
+
+I need to get a white star.
+
+That’s why I’m even posting here. To see if anyone knows some loophole or maybe there’s some math trick I can do to survive. I basically need to hit a 1 in a 100 chance to live.
+
+I should explain something about the Prize Master. He’s not exactly a nice guy. He doesn’t make it easy.
+
+Wins aren’t always wins. You have to properly explain what you want.
+
+One time some dude won a white star and said he wanted all the women in town for himself.  Yes, you can wish for something like that.
+
+Poor guy, idiot really.
+
+He killed himself some years later. Couldn’t live with what he did.
+
+The Prize Master gave him what he wanted. All 15% of the female population of the town to himself. Yup, all his. He got what he wanted, in a jar.
+
+I don’t know how it’s possible to fit so many people in such a small container.
+
+Poor guy. People almost lynched him. He killed himself a few years later. Couldn’t live with the guilt, I guess. I mean, fuck, how could you?
+
+Even his mom went missing. I don’t think he dared to look for her in the jar.
+
+So yeah, that should give you an idea of what kind of lottery this is. It’s risky and it’s stupid. But if you win and you don’t get on the Prize Master’s bad side, you “usually” get what you want.
+
+I know of another woman who won a white star. She wished to be “filthy rich”.
+
+Oh boy.
+
+The following week people found her in her house. I don’t really want to describe how they found her.
+
+They told me she was kneeling. Arms stretched out, trying to get all the coins off of her.
+
+Deep inside her nostrils, they said.
+
+God. She didn’t make it in the following days. How can you, when your body is encrusted with coins.
+
+There’s a reason you have to be specific with what you want. You can’t just ask for something willy-nilly.
+
+Let me give you a positive example.
+
+Some guy once got a white star, good for him. He was highly specific.
+
+I want a Lamborghini with V10 engine, he asks. Not a toy, not a paper cut, he wants it without taking the equivalent sum of money from his bank account, etc. etc.
+
+He got his wish. Fancy sports car. Worth half a million, I think. Wish granted, I guess.
+
+The guy is always struggling financially though. Do you have any idea how much insurance you have to pay for a vehicle like that? The premiums are insane.
+
+So yeah, it’s not always horrible. That kind of life changing prize is too enticing for people in this town.
+
+There’s one rule the Prize Master has.
+
+Don’t win twice. That’s all you’re not allowed to do, don’t get two white stars.
+
+We found that out the hard way.
+
+Some guy did that once. He got himself two tickets. People do that sometimes. Increase the odds and whatnot.
+
+Took his wife’s ticket or something, joined it together with his. He won the first time. But then he got greedy and tried again.
+
+He won again.
+
+I…I don’t want to explain what happened afterwards. It was just… We spent months picking pieces of him throughout town.
+
+You don’t win twice. Not ever. It’s a bad idea.
+
+Man, I’d love to say his wife is still grieving. But she really isn’t. The Prize Master is a brutal man, he hates double wins.
+
+Even his wife got killed in the process. Really brutal stuff.
+
+The people in this town suck. They really don’t help each other. They’re just obsessed over trying to win some stupid death game
+
+Not me though. I usually don’t play. I don’t want to lose my life over trying to win some word game with some demon.
+
+My dad wasn’t the same.
+
+I guess I should explain something. I lied.
+
+There aren’t just white stars and grey stars. There’s a third thing that can happen. Something so rare we don’t even know the odds.
+
+They’re called Exceptions. If you ever find yourself with a ticket with a circle on it.
+
+Run.
+
+Just run.
+
+Get out of town, take a plane, a boat, it doesn’t matter. Run. If you get a circle, you become an Exception.
+
+That’s what happened to my dad. Our father became an Exception. That’s why my sister kept playing every year. If you get a white star, you can nullify an exception.
+
+We could get our father back.
+
+That’s why she played. That’s why she lost. And now I’m screwed. She’s an idiot.
+
+I guess I should talk about what losing entails now. And what’s likely going to happen to me…
+
+One of my friends that I went to school with lost the lottery some years ago. He was a nice kid, awkward, shy. Parents were poor, the guy just wanted a chance at life. He just wanted a bit of money to go to university.
+
+God.
+
+He got a grey star. I… The next few weeks with him were Hell. He was jittery, paranoid, on edge all the time. I mean, who could blame him?
+
+Remember that I said he was shy? I was basically his only friend. And his wish to have enough money to go to university was severely twisted.
+
+There were these things… Things he started seeing. At every corner of his eye and every time he was awake, he would tell me that these creatures. that were hidden too deep in the shadows, were always trying to get his attention. This went on for days.
+
+ No one helped. No one could help.
+
+Then one day he just came to me… He was smiling. The fakest smiles I’ve ever seen. He turned to me:
+
+“Chris, I got accepted to uni. I’m going with my new friends”.
+
+He was crying, when he told me that. Tears strolling through his wide smile. I think… I think I saw some pressure on his shoulders. Like something had it’s arms around him.
+
+I never saw him again after that day.
+
+He was a good kid. I think about him sometimes. I get angry. I’m angry that no one helped him, I’m angry that I didn’t help him. But it’s different now, I’m not going to lose someone else like this again.
+
+That’s it really. I guess I’ll leave you with one more example. Another loss...
+
+There was a guy who wished for “happiness”. He lost. What happened to him, to his kids, his dog…. God. It really is a fucked-up game.
+
+They had to clean so much excrement.
+
+There’s a reason we don’t wish for happiness or anything else that’s too, abstract. We wish for money, cars, houses or, well, more money. Anything material and expensive really.
+
+You don’t want to end up like them. I guess you’d die anyways, so it doesn’t matter. But you certainly don’t want to go out like them.
+
+I’m not going to make the same mistake as these people. I don’t want money or something conceptual. What I want is clear.
+
+I was going to ask what my odds of winning are. Or wonder if there’s some math major that can explain some probabilistic process I haven’t thought about. One that could help me.
+
+But I’m fucking delusional, aren’t I? There’s no saving grace, there’s nothing.
+
+It’s just a 1% chance of winning. Like always. There’s no tricks.
+
+I need to win, that’s it. I can’t choose to not play.
+
+I’m joining my ticket with my sister. That way I can have my ticket directly counter hers. I’m not going to try to make a wish or get it stolen or make some other mistake. My star just needs to counter her grey star.
+
+I need to win.
+
+If I die then I die. At least my sister is safe.
+
+A 1% chance that I live, and a 1% chance that I die.
+
+Wish me luck.
+
+ 
+
+Edit 1:
+
+I can’t believe this. It’s impossible.
+
+I DID IT!
+
+I got a fucking white star! Holy shit what are the odds?
+
+Holy crap, I am so happy. I just had to post it here! Thanks for trying or whatever, I don’t care! I’m so happy! I’m going to tell my sister.
+
+We did it! Holy crap, we actually did it!
+
+Catch you all later.
+
+Chris.
+
+ 
+
+Edit2:
+
+I’m… I’m trying to understand what’s happening but I don’t get it. I went to my sister to show her the ticket. She was so happy…
+
+I asked to see her ticket and she showed it to me.
+
+I don’t understand. How could she make such a simple mistake… Couldn’t she tell them apart...?
+
+What’s going to happen to us?
+
+My sister… she was wrong. Her star, it isn’t grey.
+
+It’s white.
+
+ 
