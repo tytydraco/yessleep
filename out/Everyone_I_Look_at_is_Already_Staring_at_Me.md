@@ -84,7 +84,7 @@ Seventy-seven. I had seventy-seven notifications. When I had to work, I turned o
 
 I didn’t know any Madeleine. “Who?”
 
-“Madeleine…Madeleine Turner. We worked on the Davidson account.” the voice responded, a somewhat disappointing turn to their voice. I still didn’t recognize the name, but the account mentioned had taken place months ago. By this point, I was starting to get angry.
+“Madeleine...we worked on the Davidson account together.” she responded, a somewhat disappointing turn to her voice. I still didn’t recognize the name, but the account mentioned had taken place months ago. By this point, I was starting to get angry.
 
 “Okay, well I’ll be out when I’m out, can you please just give me a moment?”
 
@@ -172,7 +172,7 @@ As I moved through the crowd, the swell of voices threw out physical weaponry; g
 
 The front door in sight, I lunged forward as my overshirt was wrenched behind me. I pulled out of it, the force of doing so sending me face first into the glass door as it opened. Pain painted my sense of the world, a ringing in my ears coupled with a haze-like vertigo. I shoved the door open with all my strength and stumbled out into the open air, the crowd behind beginning to move forward slowly.
 
-Breaking back into a sprint, my pursuers followed one by one out of the door, shambling and shoving against one another. Ahead, those I had passed on my way previously were now standing, faces still trained on me. Indefinite and instinct voices raised from them as they joined the chase. I turned for just a moment to see a now-horde picking up their pace amidst shouting and intense, wide-eyed staring. Towards the front of the group, a solitary man ran pushing a stroller, which rippled and bounced violently against the street beneath.
+Breaking back into a sprint, my pursuers followed one by one out of the door, shambling and shoving against one another. Ahead, those I had passed on my way previously were now standing, faces still trained on me. Indefinite and indistinct voices raised from them as they joined the chase. I turned for just a moment to see a now-horde picking up their pace amidst shouting and intense, wide-eyed staring. Towards the front of the group, a solitary man ran pushing a stroller, which rippled and bounced violently against the street beneath.
 
 My chest was heaving, my breath hot and quick as the view of my car finally, mercifully, came into sight. I clicked the key fob’s auto start function, and desperately hoped I would wake up to find this all a nightmare once I reached the driver’s seat. I stopped sharply, opening the door as the voices rose behind me, getting close, dangerously close. I threw myself into the driver’s seat, a single arm reaching for me as I did so. A large, shirtless man I didn’t recognize in athletic shorts, who breathed a deep inhale through his nose as he reached for me, a tense look in his eye like the stalking gaze of a wild animal.
 
