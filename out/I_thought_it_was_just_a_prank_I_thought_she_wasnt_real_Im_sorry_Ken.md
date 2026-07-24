@@ -1,0 +1,195 @@
+It doesn't matter if you think this story is fake or not. I'm an English teacher, so this text could be read as another short story to you guys, but I don't care. I don't fucking care at all. I just want to get this out of my chest. It has kept appearing in my nightmare since that incident. The story I'm about to tell is true, or at least that's what I think it is. The people in my community are still debating about this years later. They each have their own interpretation of the story. As for this one, this is the real one I believe.
+
+I actually don't know where to start. The preparation? The suggestion? Or the night of the incident. But, you probably wouldn't care about someone unless I tell you about them, right? Fine.
+
+It all started when I was a kid. I rather keep my hometown a secret for privacy reasons. There, a new family moved into the town. They were a family of four; the parents and their daughter and son. At first, it was awkward. Come on, I'm just a dumbass kid who thinks about dinosaurs and shit, not socializing. But, all of them welcomed me. My mom gifted them a pie for their first day in the neighborhood. Everyone here welcomed them. It was a good time.
+
+Around that moment, that was when I met Ken. It's not his real name by the way. Every name I mentioned would be fictional to protect their privacy. Anyway, Ken. He was small for his age, shy, and hid in his room whenever he could. All of the adults, and even his sister, thought he was cute. Only I was able to get through him. I gave him time. I made the family feel at home and they invited me to their home at some point. That was when we officially became friends.
+
+I didn't remember what exactly happened verbatim. I was a kid back then. But I vividly remember one thing.
+
+I slid my small T-Rex figure to him under the door when he was hiding in the room. He grabbed it, waited for a minute, then opened the door for me. At that moment, I saw that his room was filled with dinosaurs. I know I'm going to have a good time.
+
+We talked to each other, we discussed dinosaurs, and I heard him laugh for the first time. His laugh was gentle, soft, and breathy.
+
+After that, we grew up together. 
+
+In the same class, same school. 
+
+In middle school, my interest went from dinosaur to supernatural. I looked up online forums, discussing them with random strangers. I still remember the time when I hunted out into the forest at night to find a Wendigo, a goatman, or whatever. A flashlight in my hand amidst the voids. Ken always trailed behind, kept telling me to go back, trembling.
+
+“It's fine,” I used to say, “I'm the best motherfucker out there.”
+
+“Please stop using that language,” he pleaded.
+
+I shouted to the forest, “Hey!”
+
+Ken yelped.
+
+“Come and get me if you can!” I laughed, “Or are you too afraid?”
+
+“You're gonna get us in trouble!”
+
+Safe to say he pouted at me for the rest of the week. You get how obsessed I was with the supernatural, right? Gosh, I still cringe at myself till this day.
+
+Fast forward to high school, everyone called me a freak. Everyone except for Ken, and his girlfriend. You read that right. He got a girlfriend. Her name is Amy. To this day, I still don't know how he pulled someone like her.
+
+Anyway, we worked part time as a nurse together.
+
+He said, “I like to help people.”
+
+Hearing that made me join him too.
+
+His relationship with Amy is fucking adorable. Something straight out of rom-com. They would tease each other, have a matching bracelet, you get the idea. She liked toys because her family worked in the toy business. I wished I experienced teenage love. I mean, I love my wife, but still.
+
+Everyone is doing great. 
+
+Everything would have been fine if it weren't for me.
+
+Believe it or not, but I rewrote this section a dozen times. I couldn't exactly remember how many. It took like one or two weeks just to get these words out of me. And every time I did so, my fingers shook. I was fucking stupid that day. It should be me, not him. I was the one who put him up to this. I was the one who pulled a prank on him. He doesn't deserve this. Ever. I don't wish anyone my experience. I really am. 
+
+But I have to stay strong. I have to repent for my sins. 
+
+So, here we go.
+
+After class, I suggested to Ken this, “Yo, we should try Bloody Mary.”
+
+For your information, we were still in our classroom.
+
+He cocked his head, “The cocktail?” He shook his head, “Nah, not yet.”
+
+“No, not that,” I said, “A challenge. The Bloody Mary myth”
+
+He rolled his eyes, “Lemme guess. Either she's gonna curse me or tell me the future?”
+
+“So, are you up or not?” 
+
+“Sorry, man,” he said, “I have dinner with Amy's family.”
+
+“No, I meant at midnight. You're free, right? Or I guess you're getting down on her tonight?”
+
+“Haha, funny,” he rolled his eyes.
+
+“Today's Friday, no?”
+
+“I guess ye–”
+
+“Then what's stopping you?”
+
+“I–uh…”
+
+“Can’t you spare a little time for me? We are friends, you know? My parents aren't home.” 
+
+Ken said nothing.
+
+“Besides, it's just a challenge, right? No one actually dies from this. So, come on. I'll pay for the candles.”
+
+I waited for his response. I still remember his reaction. He sighed, took off his glasses, and rubbed his eyes. I forgot to mention that he wore glasses that time.
+
+“Fine,” he said, “One time, Sammy. Just one.”
+
+It was a fool of me to be ecstatic that time.
+
+We bought the candles, a lighter, and said hi to Amy on our way back. After that, it was a waiting game for me. While Ken was at Amy's house eating dinner with her family, I was in my room, still scrolling through forums. I would like to skip this section because nothing happened.
+
+Around one in the morning, Ken arrived. We quickly went into the bathroom. I already prepared the essentials. Candles, dim light, and a mirror. And also, I hid a small camera before he came, to record his reaction of course. I explained Bloody Mary. He listened with a nod.
+
+Once we prepared everything, I pulled out my phone and started a fake recording. I gestured to him behind the camera. The bathroom was dim with the orange light. I don't know if it's my mind playing me or not, but I recall that it flickered. 
+
+Ken drooped his shoulder and drawled, “Today, I'm going to perform this Bloody Mary thing.”
+
+I gave him a thumbs up.
+
+“Wish me luck…I guess.” He then turned toward the mirror.
+
+I slowly made my way to the door. The air was cold too, even though it's summer.
+
+“Bloody Mary,” he recited, staring at the mirror, “Bloody Mary. Bloody Mary…that's it, right?”
+
+“No,” I whispered, “Try ten more times.”
+
+He sighed, “Fine…Bloody Mary. Bloody Mary. Bloody Ma–”
+
+I closed the door on him with a bang; my biggest mistake. I guffawed as he pushed and banged the door. The force and vibration hurt my shoulder, but I was too busy laughing.
+
+“This isn't funny, Sammy!” He yelled, “Let me out already!”
+
+I figured I'm just going to let him out after a minute or two, and then reveal the hidden camera. And hopefully, he allowed me to upload his reaction to YouTube. That was my plan until everything went wrong.
+
+A minute passed, he mumbled through the door, “What is that?"
+
+I already stopped laughing, but I still grinned foolishly.
+
+“Hey, Sammy,” his voice trembled, “There's someone here.”
+
+I paused, “What do you mean?”
+
+Silence.
+
+“W–Who are you?” He asked someone or something, “What are you?”
+
+“Hey, who the hell are you talking to?” 
+
+“I don't know,” he whispered through the door, “Holy fuck, she's behind me.” His voice quivered, “In the mirror.”
+
+“Ken, is this payback? I'm sorry, then. I'll open it now.”
+
+“Sam…” 
+
+I grabbed the door handle.
+
+“Sam…”
+
+The door was locked.
+
+“She’s grinning at me…”
+
+I breathed.
+
+“I–I,” the door handle rattled, “SHIT! SHIT! LET ME OUT!”
+
+I tried. I tried to open the door for him, but it was locked. I rattled the door, banged the door, and even tried to break the door down if it weren't for the fact I heard flesh.
+
+I don't know how to exactly describe it. It was like a combination of dogs, pigs, and hyenas tearing a carcass at the same time. And Ken screamed till his vocal chord ripped. I still hear his scream to this day. That high-pitched scream. I don't want to even describe it. I even regurgitated when I took a whiff. Copper, iron, and rot.
+
+“PLEASE! SAMMY! SAMMY!”
+
+I was so fucking useless.
+
+Ken was scratching at the door, the handle shook, and he said for one last time.
+
+“MOM! DAD! AMY! HELP M–”
+
+Everything was quiet. I opened the door and found no one in there. Not even a single drop of blood. Ken was gone. Only leaving me with the unlit candles, the hidden camera, and the mirror.
+
+To be honest, I don't remember what happened after that. It was all fuzzy in my head. What I do remember is that the police questioned me sometime after Ken's disappearance. I must have lied to them, because I couldn't believe myself back then too. A few days later police concluded that Ken ran away from responsibility and is now living somewhere else. I asked them how they reached this question.
+
+“You don't know?” They asked.
+
+I nodded, “Yeah."
+
+They looked at each other.
+
+“Amy was pregnant,” they said.
+
+So, her family aborted the child, they insulted Ken's family, and his family was left devastated. In the school, the only empty desk beside me was scribbled with curses. Amy and her family moved to a different town. The last time I saw her, her matching bracelet with Ken was gone. Ken's sister was furious with her brother. As for the parents, I don't even want to know what they were thinking. The community all reached one conclusion. Through gossip, through rumors, through social gathering. Ken is a scumbag, irresponsible, and selfish bitch. I didn't defend him. Defending him meant I needed to explain my situation.
+
+Yes, I did look back at the footage of the hidden camera. I was scared at first, but I told myself this could save Ken, so I did. The first part was relatively normal. When Ken was locked in the bathroom for a minute, I saw her for a split second. A shadowy figure of a woman in the mirror, grinning at him. She twitched. Her head snapped sideways and her arm bent. But that wasn't all. It appeared Ken was too fixated on the woman that he didn't notice his own reflection. His reflection in the mirror looked directly at the hidden camera, smiled, and then turned into a grin. A grin that reached the ear.
+
+That was when the candles went out and the camera tripped over, only leaving a distorted audio of the scream. Only this time, it was much louder and more visceral than the one I heard outside.
+
+I showed this to the internet, the media, and the police. As expected, they all thought this was a hoax before Amy got pregnant. No one would fucking believe an occult freak like me.
+
+With no news of his disappearance, the case went cold and the public image of him was destroyed. At one point, I wanted to join him. I don't like that he has to suffer alone. I don't know what could be happening inside the mirror. But whatever it was, I wanted to be there with him. I set up the preparation like I did that night and recited Bloody Mary thirteen times. But no matter how long I stayed in the bathroom, nothing happened. Not a flicker of the candles flame, not a figure of a woman, no Ken. Nothing. It was as if the mirror didn't want Ken to have a friend there.
+
+So, I gave up. I punched the mirror hard. It cracked and I left while bleeding. Leaving Ken alone with whatever he's dealing with in the mirror. I'm not sure, but I thought I heard a whimper there. At that point, I was convinced it was all in my head.
+
+I guess this is it for me. I was lucky that I could live a happy life after that incident. It was a tough time for me back then, but I was able to push through them with my wife and family. But Ken won't be forgotten. I found an old small T-Rex figurine when I was moving house. The same one I gave to Ken back then. So, that T-Rex is always in front of my bathroom mirror. When I shower and when I brush my teeth. Think of it like a good luck charm I guess.
+
+Though, a few days ago my wife announced to everyone that she's pregnant too. Isn't that great? My family expected me to be a good father and I'm all up for it. I hope my child doesn't mind that I hid a toy from him. Or her, we don't know the child's gender yet. But I'll make sure my child gets all the toys I can find. Amy would have done the same for hers.
+
+Well, I'm tired. It's one in the morning, I haven't brushed my teeth yet, and I wanted to fix the flickering bathroom light as soon as possible.
+
+I won't be able to answer many questions because of work and stuff, but I will find some time to do so. 
+
+Well then, goodnight.
