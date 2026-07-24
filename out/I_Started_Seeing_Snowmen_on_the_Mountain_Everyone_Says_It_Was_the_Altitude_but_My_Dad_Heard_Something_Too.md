@@ -1,0 +1,28 @@
+I don’t know if this belongs here, because every doctor I’ve spoken to has given me a perfectly reasonable explanation for what happened. They all point to the same thing: altitude sickness. According to them, my brain wasn’t getting enough oxygen as my dad and I climbed higher into the mountains. Hypoxia can cause confusion, poor judgment, and even vivid hallucinations. They say that’s why I kept seeing things that weren’t there before I slipped and fell more than 120 feet down a rocky slope.
+
+I wish I could accept that explanation without question. It would certainly make sleeping easier. But there’s one detail that neither my dad nor I have ever been able to explain, and every time I think back to that day, I remember it a little more clearly.
+
+My dad and I had planned the hike for months. It wasn’t our first difficult trail, but it was definitely the highest elevation either of us had attempted. The weather couldn’t have been better. The sky was a deep blue without a single cloud, the temperature was cool enough to stay comfortable, and there were still patches of snow scattered across the mountain where the sun hadn’t reached. We took our time, stopping every so often to drink water and catch our breath as the air became noticeably thinner.
+
+At first, I only felt tired. My breathing was heavier than usual, but I assumed that was normal for the elevation. Looking back, there were probably other signs that something was wrong. I remember having trouble concentrating whenever my dad spoke to me, and I found myself staring off into the distance more often than I realized. Everything around me felt strangely quiet, almost like the mountain was muffling every sound except my own breathing.
+
+The first thing I saw was a snowman standing on a ridge several dozen yards away. It wasn’t just a pile of snow that happened to resemble one. It looked deliberately built, complete with a carrot nose, twig arms, and perfectly rounded sections stacked on top of one another. It seemed completely out of place. We hadn’t passed another hiker in nearly an hour, and there was no reason for anyone to carry materials all the way up there just to build a snowman in such an isolated location.
+
+I pointed toward it and laughed, asking my dad who he thought had built it. He looked exactly where I was pointing before giving me a confused look. He told me there wasn’t anything there except snow and rocks. I laughed again because I assumed he was joking, but when I looked back, the snowman had disappeared. I figured I’d mistaken a strange rock formation for a moment and didn’t think much more about it.
+
+About twenty minutes later, I saw Kermit the Frog sitting on a large boulder overlooking the trail. I know how ridiculous that sounds, but it looked exactly like him. Bright green skin, wide white eyes, the familiar pointed collar around his neck, and that calm smile everyone recognizes. He wasn’t moving very much. He simply sat there watching me before slowly lifting one hand in a friendly wave.
+
+Without thinking, I pointed again and asked my dad if he could see him. My dad stopped walking immediately. Instead of looking amused, he looked genuinely worried. He stared toward the boulder, then back at me, and quietly asked who I was talking about. When I told him Kermit was sitting right there waving at us, he looked back again before telling me there was absolutely nothing there.
+
+That was the moment everything changed. The higher we climbed, the more often I saw snowmen standing in impossible places along the mountainside. Sometimes there was only one. Sometimes there were several scattered across the snowfields, all facing me. Every few minutes I found myself pointing into the distance and telling my dad that another one had appeared. Occasionally Kermit would be standing beside them, silently pointing farther up the mountain as though he wanted me to keep climbing.
+
+My dad became increasingly concerned. He kept trying to get me to focus on him instead of whatever I thought I was seeing. He asked me simple questions to make sure I knew where we were and what day it was. I answered correctly, but I couldn’t stop pointing into empty space. Every time he told me there was nothing there, I became more frustrated because the snowmen looked completely real to me. I couldn’t understand why he was pretending not to see them.
+
+Eventually, my dad grabbed both of my shoulders and told me we were turning around. He said I wasn’t acting like myself and that we needed to descend before something bad happened. I remember trying to explain that Kermit was pointing somewhere important, but my words barely made sense. My thoughts felt slow and tangled together, and even speaking seemed strangely difficult.
+
+As we started back down the trail, I kept looking over my shoulder because I was convinced the snowmen were following us. My dad repeatedly reminded me to watch where I was stepping, but I barely heard him. I was too focused on the figures I thought were standing behind us. Then, just as my dad raised his voice and told me to keep my eyes on the trail, my foot landed on a patch of loose gravel.
+
+The ground disappeared beneath me.
+
+I fell more than 120 feet.
+
