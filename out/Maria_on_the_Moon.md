@@ -274,4 +274,4 @@ When it’s full, I also look up towards the moon. I wonder if my parents had a 
 
 [GTM](https://www.reddit.com/r/Grand_Theft_Motto/comments/emzy3b/the_stories/)
 
-[Hello](https://travisbrownwriting.com)
+[Hello](https://www.tbwrites.com/)
