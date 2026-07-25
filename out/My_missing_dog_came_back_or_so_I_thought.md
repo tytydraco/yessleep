@@ -119,3 +119,5 @@ No surprise. It was empty.
 I'm for sure going to move after this experience. I haven't seen the security cam footage, and I don't think I want to.  What matters is that I have Sam back, and we're safe. I'm going to learn how to use a firearm, and if it shows up again, I'm going to use it. 
 
 If it was alien or something supernatural, I don't know. I just hope men in black don't show up my door. But most of all, I hope I never have to see or smell that thing ever again. 
+
+EDIT: We're staying at my friend Daniel's house. I made this post to see if anyone else has experienced something like this. I'm using Daniel's account and I've never posted on here before, but he suggested posting here on nosleep. I'm really scared that this thing will come back, but Daniel is going to take me to the range and teach me how to shoot. I don't think he fully believes me, but whatever. I know I'm not crazy. My thumbs shake on their own and my brains still a bit scattered so typing all this is hard. Thanks for taking the time to read. 
