@@ -1,0 +1,291 @@
+I work at a small gas station that sits effectively across the road from a pretty decent-sized flea market. My station and the market itself are both pretty isolated, sitting on a stretch of road quite a distance from any major highway.
+
+Nearly every week from Friday to Sunday, the place is packed during the day. And I'm not complaining; it clearly brings in a lot of business for my place, and when I happen to have a weekend off, I never mind swinging by and seeing if there are any antiques worth picking up, or any produce I need to cook.
+
+But ever since I switched to night shifts here, I've noticed, from time to time, the flea market will open up again. Not consistently; it only seems to happen every couple of weekends. One time, it was a month between openings.
+
+Strange lights flicker underneath those roofed stalls. From my vantage at the front counter, I could see rows of candles being lit on some tables, while others hung Christmas lights, and even more used lanterns and small torches to make the market come back to life. It looked like some sort of medieval cult gathering, right here in the rural South.
+
+Thinking about it, maybe I should've been more put off by the torches.
+
+After seeing the 'Night Market' open up a few times, I ended up asking my boss, my elderly, chainsmoking night manager named Janice, about the flea market. I walked through the front door outside, taking in the smell of discarded cigarette buds and overflowing trash. Janice was smoking near one of the ice boxes, staring off at the lights and the shadows moving between them.
+
+"You know what they're doing over there?" I asked, leaning up against the metal door of the machine.
+
+"Sellin' shit." I scoffed.
+
+"They just open up again, selling old books and painted figurines?" This time, she scoffed.
+
+"Go see."
+
+"Yeah, right. I'm not letting you fire me for leaving."
+
+"I mean it. Go look. Never know what you'll find in the Night Market."
+
+I started to walk off, but stopped and looked back at her.
+
+"Is that the actual name?"
+
+"Pfft, noh you moron," she looked towards a car coming down the road, towards our store, "Just what I call it. Stupid name."
+
+I laughed and turned to walk towards the flea market, my tennis shoes clacking against the asphalt that turned to grass as I crossed the small, mostly untamed field that led down the road to the glimmering lights.
+
+Once my feet reached gravel, I immediately knew I had stumbled onto something strange.
+
+Nearly every stall was chock-full of oddities. The early ones, which I noted were mostly run by women in colorful sets of rags and strange bone talismans, consisted of the real deal of those fake alternative shops you'd see in malls.
+
+Potions made of thick, clearly hand blown glass, containing liquids going from swamp muck to bubbling pink gel to a clear red water. They had small paper labels, words written with ink and quill, selling things like beer, heart pain, babies, no babies, and heartache removal.
+
+Alongside the potions were other crafts, like twig figures strewn together with hair, nails being used to pin their limbs together. One's face was a strange menagerie of red hair wrapped around teeth in the place of eyes, and the limbs were made of twigs and small animal bones.
+
+Bones were everywhere, deer and elk, rabbit, fox, wolf. Teeth upon teeth in piles. Ritual knifes with swirling, sylvan patterns that appeared to be very sharp and well used. Dowsing rods, sticks of incense that smelled like ash and chlorine, specimens in jars that I did not recognize as any animal.
+
+One lady, maybe middle aged with red hair, was sitting at a table while adorned by a patchwork dress of various flannels smashed together topped with a long, green scarf. Her table seemed to be a bulk ingredient shop. Frog legs were still kicking up and down with unnatural bursts of speed while suspended on a drying rack. Jars full of eyeballs of goats, birds, people. Hooves and beaks and fingers were stored in little ceramic bowls.
+
+One man, who seemed a little disheveled with a large, mangy beard and a dirty jacket, was standing in front of these Blair Witch stalls and examining a potion in his trembling hands. The label read "Acid." As he was flipping the bottle around in his hand, the cork seemed to pop unexpectedly, and the dark green, mucus-like liquid spilled out onto his hand.
+
+In seconds, it began to bubble and pop like ocean foam, sizzling loudly as he screamed. No one at any of the stalls seemed to respond. I saw the red foam drip right off the bone as they began to melt like wax.
+
+The lady at the stall laughed, a shrill cackle as she pointed down the aisles, towards a section of the market that was covered in black curtains. She continued to laugh as she called out in a shaky, high-pitched voice.
+
+"Talk to Simon, then Mary you, ahah, you dipshit. Moon above! I'll pay for your fixin' just cause of the look on your face!"
+
+The man appeared to be in shock, his good arm holding his melting hand by the wrist. He turned towards the lady with dull eyes.
+
+"You said. That was. Acid."
+
+"You never asked me which kind." She let out another tea-pot cackle
+
+I moved past the more ramshackle tables to ones that seemed to be run by more normal people with normal objects. At least, at first.
+
+The first 'normal' table I walked to seemed to be run by an old lady in a nightgown, with long stringy hair and bulbous eyes. Her wares were porcelain teacups, plates, and silverware.
+
+But as I got closer, the first thing that jumped out to me was the smell. Coppery and pungent, like rust.
+
+The teacups had intricate designs on them; red, twisting stems of flowers mixed with clocks and various insects. It looked like an abstract art gallery painting wrapped around a tiny little cup. Behind the lady, strung up on clothes wires, seemed to be clothes and embroidered blankets that were drenched in something thick.
+
+Once I finally reached the table, I realized what that smell was. Blood. The teacup designs were painted with blood. The clothes, behind the old woman smiling up at me with a full set of white teeth, were soaked through with blood.
+
+I could see buckets beside the woman's feet, alongside brushes of varying sizes.
+
+"Hello dearie. You're new!"
+
+I stuttered.
+
+"U-uh yeah, what are you selling, m-ma'am?"
+
+"Oh!" She cooed. "Just fine china, painted and molded by myself. As well as some garments."
+
+I let that vagueness hang in the air a moment.
+
+"Is that blood?"
+
+Her smile grew wider.
+
+"Yes, dear. Not mine if you are worried."
+
+I nodded politely.
+
+"Mhmm." She did not respond to my frightened murmur.
+
+I pretended to browse her wares, finding a butter knife coated in a thin layer of dried blood, alongside a plate that had a smile painted on it.
+
+One thing I noticed about all of the vendors so far was that none of their items were tagged with prices. Horrified, but curious, I picked up a spoon that seemed to contain a small amount of liquid blood.
+
+"How much for this?" The lady cooed happily.
+
+"Just nine ounces."
+
+"Of what?"
+
+"Yours! Is that alright?"
+
+I looked around. No one seemed to be paying either of us any attention.
+
+"My what?" Her smile turned into a full-toothed frown. I wondered if she could ever stop showing her teeth.
+
+"Your life-juice. Your red energy. The pulp of man."
+
+"Do you not have any? Or do you use like..."
+
+My mind blanked.
+
+"Pigs?" She laughed without moving her mouth.
+
+"Brutus would kill me. And I do; it is just my cost. Pay it or leave."
+
+At that, I awkwardly nodded again, made my way further down the table, taking care to set down the spoon and not spill any blood, and then left as nonchalantly as I could.
+
+I walked quickly past another stand littered with covered cages, emitting all manner of noises: the chirping of cicadas, the cry of a baby, hyenas laughing, running water, a car alarm being emitted from a meaty throat.
+
+The next one seemed to be, thankfully, more normal. Unlike all of the other tables that were lit by candles and the various small lanterns hung to the stall posts, this one actually had an electronic lantern illuminating the standard junk you'd find in a flea market. Tacky mirrors, little angel figurines, wrenches, jars full of marbles.
+
+One object stood out to me: a mirror, about 5 feet tall and 4 feet wide. The glass was perfect, lacking the usual imperfections this place would usually inflict on it. The sides were made of these large, snake-like plastic designs that bent and wrapped around one another like a bundle of eels. Where the tiny heads poked out, they almost resembled catfish, like puckered lips with strange spiraling whiskers.
+
+For some strange reason, like a bird knowing which way is north, I felt like I had to have that mirror. I pointed towards it.
+
+"How much for it?"
+
+The young woman sitting at the table stopped looking at her phone and offered a polite smile.
+
+"Ten bucks."
+
+I chuckled.
+
+"Is this thing cursed or something, for that price?" She laughed back, setting down her phone and looking around.
+
+"Heh, yeah." I couldn't tell if she was joking. "Weird place, huh?"
+
+I looked back at the old lady with the ichor-covered China.
+
+"Is that actual blood?"
+
+"Yep. And before you ask, I don't know who's, or what's. I'm only here to get rid of this shit from my dead uncle's storage locker; this is my second time around. Shit just as odd to you as it is to me."
+
+I looked deeper into the market, where much of it was concealed behind mighty black curtains. Something large shifted behind one of them, making the metal roof shift slightly.
+
+"I think I'll take that mirror and head off." I said, pulling out my wallet, "Before I lose all of my blood or something."
+
+She cringed, smiling.
+
+"More likely than you think."
+
+The lady gave me a playful wave as I lifted the surprisingly light mirror and hauled it back to my car. Just as I turned my back, she called out again.
+
+"Hey, want a fun party trick? Bury all but the glass in the ground, then pour some water on it. Real fun trick." I chuckled, figured she was giving me some bullshit story to waste my time, and continued out of the crowd.
+
+A man at another table, covered in vinyl records I didn't recognize, stood up and pointed at me, shouting at the vendor I was just at.
+
+"Hey! You wouldn't let me buy that! What the hell?" She just laughed and looked back to her phone, as I scuttled away from the interaction.
+
+Making my way back across the clearing and back to my place of employment, I closed up with Janice and went back home with my spirits high. The shops and aisles teeming with oddities had piqued my interest, and I was actually kind of excited to head back sometime.
+
+Then my thoughts drifted towards the mirror, bouncing in the backseat of my shitbox, alongside a 12-pack. The backroads made it seem like an exaggerated version of that scene from Jurassic Park, jostling it and making the glass seem to ripple with each bump of gravel.
+
+Upon reaching my home, I decided to celebrate my good mood with a few of the aforementioned 12-pack, sitting out on my front porch and enjoying the night air filled with crickets and croaks.
+
+On a whim, I decided to test the lady's gambit out.
+
+I stumbled out to my front yard, already a few brewskis deep, and dug out a small hole with my hands, pulling up the grass and soil a few inches to slide the plastic mirror in like a bullshit mystical tablet, the stupid snake-catfish things getting dirtied up by mud.
+
+I was already feeling pretty stupid when I had to go back inside and grab a cup of water to pour on it, so when I stood to look down into the mirror, I was just going to go inside, seeing only the stars above my head reflected.
+
+Then, I stopped.
+
+I stood over the mirror, looking directly into it, and I did not see a reflection. Only small stars, drifting lazily to my left and-
+
+Out of my sight.
+
+I looked to the sky, then down, then up and down again.
+
+I lay down on my front lawn, completely disregarding how ridiculous I looked.
+
+The stars weren't stars; they were motes of dust, drifting in an undersea current.
+
+The mirror rippled as I let out a breath, my breath disturbing the surface of the water. I laughed, trying to figure out how this effect could have been made.
+
+On a whim, I tried to touch the surface of the water.
+
+The tips of my fingers breached the surface, then the joints, then my knuckles; the cool, salty feel of the water sloshed gently back and forth in my grasp. Then my wrist.
+
+My hand extended into this alien grey; a bit of dust danced around my fingers as I tried to grasp it. Then, with what I now call 'brave stupidity,' I realized I could fit through the mirror.
+
+Doffing my old, greasy t-shirt and shorts, I looked around briefly to make sure passing cars didn't see my naked ass climb into a mirror. The night air was cool and silent, only crickets to sing their endless choir.
+
+I walked back to my porch and retrieved my garden hose, attaching it to the side of my house by the small faucet and then wrapping it around myself before finally tying a knot right where my belt buckle would be.
+
+Walking back to the mirror, I was filled with a strange glee. I hadn't felt this excited for something since I was a kid. 'Magic,' I thought, 'Real actual goddamn motherfucking magic.'
+
+I thought I had somehow stumbled onto a hole punched through my reality in my own front yard, and I was going in.
+
+As I stood next to the mirror, mentally preparing myself to enter, I looked back up to the sky. The stars drifted, barely motionless above. I took a breath. Butterflies danced in my stomach, making this tightrope moment linger in my mind. I knew I would stop myself and tell myself this would be stupid to do alone and half drunk if I just set my feet in.
+
+So I jumped.
+
+The water was cold and briney, encasing me like a cocoon. I could feel the heat of my skin evaporate against the metric tons of water around me. There was a pressure there, too, like being wrapped in a blanket just a bit too tightly.
+
+Around my torso and legs, I could feel just the slightest pull, as if a current had just begun its course.
+
+I opened my eyes, flinching as they stung and then readjusted. The motes of sea dust drifted lazily in front of me, being pulled by some unseen current. I looked around, spinning my body as the hose briefly came into my view; its stupid green plastic shocking me out of my stupor.
+
+It was the same in all directions; there seemed to be an ambient grey light that ensured that I could see all of the tiny flakes in the water around me, but beyond a dozen or so feet, only the blackness of the ocean lay before me.
+
+I then looked up and realized that this place had gravity.
+
+I don't know how long I had just been staring into the void, but it couldn't have been more than ten seconds, and I had already drifted 10 or so feet down, my hose stretching out above me like a fishing line.
+
+When that thought struck me, of me being a worm on a line, I kicked out, swimming up and towards the mirror. On this side, it still had its little catfish idols, but they were green and bumpy with oxidation and time, clearly made out of a rarer metal than its counterpart.
+
+I watched as two larger flecks of dust above the mirror drifted upwards and out of view as I swam.
+
+It seemed multiple currents were running through this place. What even is this 'place'?
+
+Finally reaching it, I took note that the mirror was also drifting downwards, everything seeming to be in a slow-motion fall downwards into the blackness.
+
+Gripping the mirror in my hands, I was surprised to see I could still move it, shifting it around. My breath was beginning to run out by this time, so I stuck my head out of the water and paddled with my feet to keep it there.
+
+The crickets still sang.
+
+The stars still shone.
+
+There was magic in the air. A hidden electricity of glee and barely contained terror.
+
+Then, I felt another current pass by my feet, this time more forceful. Glancing down, I was glad to see nothing out of the ordinary.  Just motes of dust, drifting lazily to my right.
+
+'Right?'
+
+I allowed myself to sink below the surface again, and felt my heart drop through my stomach, somewhere to the endless pit below.
+
+Two motes of dust hung suspended in front of me. Now, alone. No other flecks to join them. Along with that, with my focus fully on them, they didn't have the same debris shape of the others, instead being more rounded and glossy, like marbles. I couldn't tell how far away they were, but they were massive, maybe the size of car tires.
+
+Then, a titan emerged from the deep.
+
+In order to give the effect of how I felt in that moment, I shall describe to you how this thing materialized in my sight.
+
+From end to end, its mouth was as large as a bus. Maybe two. Just an endless black throat, devoid of teeth save for tiny, useless barbs attached to catfish lips, on the verge of being humanlike if it weren't for the scales dotting them like marbling.
+
+The rest of its face appeared out of the dark grey water; my body shook with its sheer enormous impossibility, and other things swayed in the water's current. I thought they were tentacles at first, but no, they were whiskers. Giant tubes that came off its gigantic face.
+
+I couldn't even comprehend its size, the ocean's strange theft of distance taking any chance of calculating distance away, but as more and more of its long, snake-like head came out of the darkness, I realized it was either massive, skyscraper-massive, and far away; or simply big and close.
+
+I could see the beginning outline of its body, twisting at odd angles off into the endless deep, the true scale of the thing hidden by the water.
+
+Every cell in my body screamed with ancient primordial terror, as deep, rich, and old as the thing before me.
+
+I felt the same terror as many of the other stupid apes who had flung themselves willingly to the deep: that I was tiny, as small as the shrimp in aquariums to this god of the black sea.
+
+I felt the current pull me towards it, stronger than ever before, the thought hitting me as my arms grabbed the stupid hose and tried to pull me up.
+
+'It's opening its mouth.'
+
+I wasn't even being pursued, chomped down on like some prey.
+
+I was being sucked into its mouth, the water rushing in to fill it's contiental size, rushing towards it like a vacuum.
+
+Like krill into a whale shark.
+
+My arms worked like they were in P.E. again, trying desperately to clamber up this lifeline I had made for myself. I had only now become aware of the sounds of the deep, the near-silent rush of water by my ears and a thunderous, far-off din that sounded like a ship being ripped in half as I pulled myself towards the mirror.
+
+I pulled myself closer, only a few feet away now.
+
+'Don't look back.'
+
+My legs pulled close together, the dragging motion forcing them to be as close as packed sardines.
+
+My hands breached the surface of the water, gripping the plastic mixed with dirt above. Somewhere in the back of my awareness, I could feel the hose grow taut.
+
+'Don't look back shitshitshit-'
+
+I pulled myself out of the mirror and threw myself onto dry land.
+
+Gasping for breath, my only view the eternal night sky above me, I thanked every god I knew the name of. My hands played with the grass, making sure it and not thousands of feet of water was beneath me.
+
+I turned my head towards my house, seeing the faucet where I had attached it had been ripped clear from the building, along with the pipes, now awkwardly poking out of the side of my house.
+
+I sit here typing this, still dripping wet.
+
+The mirror is still implanted in my front yard.
+
+I probably should've asked how to turn the party trick off.
+
+A part of me worries that when I go into work tomorrow, it'll be there, waiting for me to just dip a toe into those strange depths. Maybe I'll head back to the market and see if the seller can give me any advice on how to deal with this. Because I can't get the image of that colossus staring at me in the depths of that mirror out of my head.
