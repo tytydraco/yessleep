@@ -1,0 +1,70 @@
+***PART 1***
+
+I don’t remember much of my high school years, let alone my childhood. As I grew older, I realized that my memory was worse than most people’s. Friends would bring up moments from high school that they assumed I remembered; parties we went to, teachers we hated, but I would draw a blank. They would laugh about something I said or did, and I would just smile along. Perhaps it was just a way my brain did to shut down the bad parts I didn’t like, but still, i wish i’d remember more.
+
+So, whenever an old memory does find its way back to me, I try to hold onto it for as long as I can. Maybe that’s why what happened tonight struck me as odd.
+
+Despite it being summer break, I barely left the house these past few weeks. My thesis has consumed every waking hour, my supervisor insisted that I needed to write still. If I’m not locked in my bedroom, I’m camped out at some café, staring at my laptop until the words stop making sense. My friends have all gone back to their hometowns, leaving me stranded in the same place I’ve lived my entire life.
+
+I still live with my parents, though “live with” is generous. We occupy the same house…and that’s about it. We never had family nights out or weekend lunches together, and conversations between us rarely lasted more than a few minutes. We were civil with one another, but for whatever reason, we were never close.
+
+Being the last child and only daughter, I naturally gravitated toward my older brother. He was the person I was closest to in the family.  
+We didn’t spend every waking moment together, but it was comforting knowing he was just down the hall.  
+He was loud and boisterous, a stark contrast to my reserved parents. After he moved out, the house felt noticeably quieter.
+
+Anyway this afternoon, at around four in the evening, I decided I was done staring at screens. I put my phone down, picked up a copy of a book I had been meaning to read, and settled onto the living room couch. I don’t think I made it ten minutes before I fell asleep, all those all-nighters finally catching up to me.
+
+When I woke up, the room was already dark.  
+I looked at the clock hanging on the wall across from me. It was almost nine. I had been asleep for nearly four hours.
+
+Nothing about the house seemed unusual. My parents always went to bed early, so by that time every light had already been turned off. I had always been afraid of the dark. Even something as simple as getting a glass of water in the middle of the night felt like an ordeal, and more often than not, I would decide it wasn’t worth it.
+
+That night, however, it wasn’t the darkness that kept me rooted to the couch. It was the feeling that something wasn’t quite right.
+
+It reminded me of something I hadn’t thought about in years. When I was in elementary school, I used to fall asleep in the car on the drive home. Sometimes my mom would let me sleep for a few minutes after we pulled into the garage before waking me up. I woke up in the passenger seat, certain that I was awake. I could see the garage through the windshield and the empty driver’s seat beside me. I tried to move, but my body wouldn’t respond. It felt as though I was sinking into the seat, slowly becoming part of it. I tried to call out for my mom, but no matter how hard I screamed, no sound came out.
+
+I don’t exactly know why I’d remember such an inconsequential moment when I’ve forgotten most of my childhood. You’d think the memories that stayed with me would have been birthdays or family vacations, not a random afternoon spent asleep in my mom’s car. Maybe it’s because of how real it felt. Even now, I can still remember the panic of willing my body to move, the frustration of trying to scream only to realize no sound would come out. I learned later on that this thing had a name: a sleep paralysis. My Google research told me it was common enough that I finally felt relieved, my anxiety soothing away.
+
+Back in the living room, I felt as though all the energy had been drained from my body. I had slept for hours, but I still felt exhausted. I couldn’t understand why everything hurt. My limbs felt impossibly heavy, as though someone had replaced my bones with wet concrete. My head spun. Every breath felt like work. As I lay there trying to shake off the grogginess, I remembered something that had happened earlier. When I was asleep on the couch, there had been a brief moment when I couldn’t move.
+
+The memory came back in flashes. My eyes had been open. I was certain of that. I remember staring at the ceiling fan as it spun lazily overhead, trying to lift my arm, willing my fingers to twitch. Nothing happened. It couldn’t have lasted more than a few seconds before I drifted back to sleep.
+
+I sat up slowly and rubbed my eyes. The television reflected a faint blue glow against the dark screen, reminding me that I had never turned it on in the first place. My book was the floor where it had slipped from my hands. I picked it up and slipped a finger to find where I’d left off. The bookmark was on page sixty three. I swear I only made it to page fifteen, i have no memory of the next fourty eight pages.
+
+Seconds passed by until I heard thumping from upstairs. I heard footsteps coming down the stairs, followed by the kitchen light clicking on. My mom stopped when she saw me sitting on the couch.
+
+She walked to the cupboard, took out a glass, and filled it at the sink. From where I was sitting, I could see the water running longer than it needed to. She stood there watching it spill over the rim before turning off the tap.
+
+*What the fuck?*
+
+“Mom?”
+
+“You fell asleep here?” she asked, still facing the sink.
+
+“Yeah…”
+
+The faucet squeaked shut.
+
+“Don’t do that again.”
+
+She took a sip of water and turned toward the stairs.
+
+“Uh, Why shouldn’t I sleep down here?”
+
+She stood there for a moment, one hand resting on the banister.
+
+“Just don’t.”
+
+I chuckled, “Yeah, why?”
+
+“Because I told you not to.”
+
+“Okay, you never told me before.”
+
+She looked at me, confused.
+
+“I know I did.”
+
+She climbed the rest of the stairs.
+
+“Don’t sleep in the living room again.”
