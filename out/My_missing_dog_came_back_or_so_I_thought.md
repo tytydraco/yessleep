@@ -1,12 +1,12 @@
-So, my (52f) dog Sam (4yo black Sheppit) went missing over a month ago. Had a new pest control guy last month instead of my usual guy, and he took my dog with him. Sam is very friendly with strangers and treat-motivated, so it probably wasn't too difficult to get him in a van. 
+So, my (52f) dog Sam (4yo black Sheppit) went missing over a month ago. Had a new pest control guy last month instead of my usual guy, and he took my dog with him. Sam was very friendly with strangers and treat-motivated, so it probably wasn't too difficult to get him in a van. 
 
-He was my ex's dog, and her new girlfriend didn't like dogs so she left him with me, and he didn't like me very much at first, but I felt too bad to take him to the shelter after he'd lost his person, so I kept him.
+He was my ex's dog, and her new boyfriend didn't like dogs so she left him with me, and he didn't like me very much at first, but I felt too bad to take him to the shelter after he'd lost his person, so I kept him.
 
 After he was taken, I scoured Facebook groups, called the local shelter once a day and after a couple weeks, I was starting to accept that he was probably living his best life with a new owner.
 
-But then, a week ago there was a bark at the front door. No scratching, just a single loud bark. I opened the door and there he was. His tail wasn't wagging or anything. He just sat there and looked at me for a moment, completely still while I hugged him. He smelled like roadkill, like he'd been rolling on a dead rabbit or something like dogs do. 
+But then, about a week ago there was a bark at the front door. No scratching, just a single loud bark. I opened the door and there he was. His tail wasn't wagging or anything. He just sat there and looked at me for a moment, completely still while I hugged him. He smelled like roadkill, like he'd been rolling on a dead rabbit or something like dogs do. 
 
-When I brought him inside, he immediately sat in the kitchen, looking at the dream catcher hanging between the beams separating the living room from the kitchen. 
+When I brought him inside, he sat in the kitchen. He was looking at the dreamcatcher hanging between the beams separating the living room from the kitchen. 
 
 No panting. No wagging. Nothing. Just dead still, head tilted at the dreamcatcher for whatever reason.  
 
@@ -16,7 +16,7 @@ Of course, this time, he didn't care about the peanut butter. He didn't even try
 
 At this point, I'm wondering what the hell happened to my dog because what dog ignores peanut butter? I'd read that animals who were starved long enough might struggle to eat, but he didn't even try. 
 
-The rest of the day, he just sat upright on the couch going from looking at the dreamcatcher to the TV, back and forth. Of course, I called the vet and set an appointment in the morning. 
+The rest of the day, he just sat upright on the couch going from looking at the dreamcatcher to the TV, back and forth. I called the vet and set an appointment in the morning. 
 
 That night, my concerns were somewhat alleviated when he did his old routine where he'd lick my leg while I slept and I'd have to cover my leg to get him to stop. 
 
@@ -29,7 +29,6 @@ His baculum was gone.
 He had no penis bone. 
 
 Now I'm shocked, and extremely concerned. Like, was it removed, or what? 
-
 But nope. No incision to suggest that it was removed. So, of course they wanted to do another X-Ray to make sure. 
 
 A second X-Ray and 275$ later, and they tell me that his penis is fine. False alarm, probably an error with the X-Ray, whatever. What mattered was that Sam was perfectly healthy. 
@@ -44,12 +43,11 @@ Sam was having issues, and I wanted to be what he needed. He was all I had, afte
 
 I took Sam outside to try to play with the flirt pole, and I felt stupid swinging that thing around while he just sat there. 
 
-Maybe it was trauma, or something he'd grow out of. Maybe he was upset with me for taking him to the vet and putting him the kennel, but I doubt he was as upset as I was having to bury that kitty. 
+Maybe it was trauma, or something he'd grow out of. Maybe he was upset with me for taking him to the vet and putting him in the kennel, but I doubt he was as upset as I was having to bury that kitty. 
 
 By now, I was going through the worst case scenarios in my head. What if I tell the cat's owners and they want Sam to be put down? What if he does it again, or worse, does something like that to a small child? He opened the backdoor on his own. What if he digs under the gate and runs off like a maniac. 
 
 So, I bought a deadbolt for the front and back doors.
-
 No deadbolt for the bedroom door, though, so he was still able to open that at night. 
 
 I had a nightmare, but I couldn't for the life of me remember what it was about, just that I woke up feeling sweaty, and afraid, and in desperate need of a glass of water. 
@@ -64,11 +62,11 @@ Sam was laying inside his open kennel, and so I gave him his morning treat. I ma
 
 Felt sick for the next couple days, and Sam laid at my feet while I rested in bed. 
 
-Thursday morning, there was a knock at the door. The back door was open again, deadbolt hanging freely. 
+Thursday morning, there was a knock at the door. The backdoor was open again, deadbolt hanging freely. 
 
 Sam was nowhere in sight.
 
-I answered the door, and much to my shock, the pest control guy was standing at the door.  He had a little girl with him, and he started apologizing. You see, his daughter was begging him for a dog, and he thought that my dog would be better suited for a family with kids, so he took her. But then his daughter found a missing poster and asked him to bring her back. 
+I answered the door, and much to my shock, the pest control guy was standing at the door.  He had a little girl with him, and he started apologizing. You see, his daughter was begging him for a dog, and he thought that my dog would be better suited for a family with kids, so he took him. But then his daughter found a missing poster and asked him to bring him back. 
 
 This was strange, but even stranger was when the guy opened the sliding door to his van, and led by a leash, wagging his tail like he hadn't seen me in forever was Sam. 
 

@@ -275,7 +275,7 @@ I clear my throat. She doesn’t look at me, just stares at a book in her lap. H
 
 The coffee maker in the corner makes choking and gurgling sounds.
 
-My feet pad across the kitchen and I grab the bag of bagels on top of my fridge, separate the halves and put them in the toaster.
+My feet pad across the kitchen and I grab the bag of bagels from on top of my fridge, separate the halves and put them in the toaster.
 
 I lean against the counter and look at The Homemaker. That’s not her real name, just what I’ll eventually start calling her. 
 

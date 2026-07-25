@@ -1,4 +1,4 @@
-I live in a large apartment building in the middle of Tokyo. The Building I live in has 12th floors. Every morning when I go to work, the elevator always opens on the 6th floor. The doors open, but no one gets in or out.  
+Every morning when I go to work, the elevator always opens on the 6th floor. The doors open, but no one gets in or out.  
 At first, I thought the elevator was faulty. But I noticed something. When anyone else was inside the elevator with me. It wouldn’t stop and would go straight to the ground floor.  
 To make things even worse, I asked my neighbour if she had experienced the same thing.  
 She said it has never happened to her.  
