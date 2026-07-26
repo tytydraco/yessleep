@@ -166,4 +166,4 @@ Before I could retch back up what I had eaten, something told me that wasn't a w
 
 "You don't look very well." She said concerned. Tilting her face to look at me. I turned away.
 
-"I just can't believe it. It's some kind of miracle. I need some water." This satisfied her and she got out of bed with ease and started to hum while she got ready for the day. The sun has risen. I stepped out into the kitchen and shoved my head under faucet. I came up only after taste in my mouth was gone. I looked down into the sink with one plate, one fork, and one knife and began doing dishes.
+"I just can't believe it. It's some kind of miracle. I need some water." This satisfied her and she got out of bed with ease and started to hum while she got ready for the day. The sun has risen. I stepped out into the kitchen and shoved my head under faucet. I came up only after the taste in my mouth was gone. I looked down into the sink with one plate, one fork, and one knife and began doing dishes.
