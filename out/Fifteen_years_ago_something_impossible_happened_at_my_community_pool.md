@@ -42,7 +42,7 @@ I was traveling through some sort of tube. In my attempt to resist the pull, my 
 
 After twenty seconds, I truly thought I was dead.
 
-I guess it’s with some irony that I found air as soon as this thought came to mind. My body tumbled over and landed in a thin layer of water. I took a moment to cough up my guts, clutching my abdomen tightly. My vision swam. I could barely make out my surroundings.
+I guess it’s with some irony that I found air as soon as this came to mind. My body tumbled over and landed in a thin layer of water. I took a moment to cough up my guts, clutching my abdomen tightly. My vision swam. I could barely make out my surroundings.
 
 A corridor stretched before me, narrow and dark. The walls were lined with the same tiles that were in the pool I was apparently now below. Though, if there was a ceiling to this place, I couldn’t see it.
 
