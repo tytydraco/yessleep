@@ -1,8 +1,6 @@
-&#x200B;
-
 I’m deathly afraid of swimming pools. I’m not embarrassed to admit that. Last year, I went absolutely apeshit during a family vacation when my older brother, Andre, had the bright idea to throw me into the deep end. Everybody thinks I’m overreacting. Sure, I did almost drown that one time back in 2011, but that was fifteen years ago. I should be over it now, right? If only they knew.
 
-When I was a kid, I lived on the outskirts of Dallas County, Texas. It was hot. Constantly. I don’t think you need me to tell you that. Just intense, unrelenting sun up until October. This, combined with the fact that I shared the house with my four brothers, was why my parents made it a regular thing to go to the community pool during summer vacation.
+When I was a kid, I lived on the outskirts of Dallas County. It was hot. Constantly. I don’t think you need me to tell you that. Just intense, unrelenting sun up until October. This, combined with the fact that I shared the house with my four brothers, was why my parents made it a regular thing to go to the community pool during summer vacation.
 
 The pool is exactly what you’re imagining: a simple rectangle, around eighty feet long and thirty feet wide. There were a couple diving boards and a slide along the edge. Large, imposing gates lined the perimeter, dividing the area from the apple orchard it was situated next to.
 

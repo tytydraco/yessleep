@@ -1,0 +1,377 @@
+Hello everyone, I'm writing this in a dingy inn while on suicide watch. The police are still trying to determine if I am mentally stable enough to provide a formal witness statement.
+
+I can hear two officers standing outside my door reading my case records.
+
+According to my psychiatrist, my delusions and hallucinations began at the age of ten.
+
+I don't agree with that.
+
+Hallucinations don't know things about you, things you don't find out until you grow older.
+
+Things your family tries to hide, secrets you haven't been let in on yet.
+
+They never feel solemn regret.
+
+And they certainly wouldn't become more and more beautiful as the seasons pass.
+
+Those were all things my lovely best friend, Mitten, understood.
+
+Or is that Lillia now?
+
+The year I met her started about as normal as any other year my short life had borne witness to. My father slammed the butcher knife down with enough force to cause a tsunami of blood to flow out of the calf's leg. His brows were furrowed, and sweat dripped down furiously from his forehead. My little brother trailed behind him, going as fast as his stubby little legs would allow. My mother had a worried expression and hid behind her fan, fidgeting with one of her small "projects." I stepped into the butchering shed, dragging the bucket behind me.
+
+I was not of much use around the farm. I dragged the heavy bucket of pig feed behind me, my fingers screaming at me to let go at any moment. It was missing close to half its contents; it was a treacherous journey from the pigpen to my father. I took a moment to gain my composure and rehearse the words and questions I would speak to my father.
+
+I stared down at the pig feed. I had fixed their food hundreds of times, but I would always do something wrong. Dad would always be furious when I messed it up. I didn't want to deal with that aftermath today, so I decided to ask before it came to that.
+
+As I was trying to muster up the courage to ask my father the same questions I had exhausted over and over again, my brother's face lit up.
+
+"Sissy!"
+
+He ran over and hugged me, relieved to see me, squeezing me so hard I thought the pit in my stomach was going to spill out of my mouth. It was a wholesome innocence.
+
+"Miya, what is it now? I swear to God, if it's about the fucking pigs again, you're grounded for a week."
+
+My father paused his work and looked up at me with a stone expression. Blood from the calf had overflowed the cold metal table and trickled down onto his worn boots. My mother had sewn light blue patches onto them so he wouldn't have to buy new ones. In the process, she just made them more fragile. I winced, thinking of the blood soaking into his socks.
+
+"I-I wanted to..."
+
+I trailed off. His intimidating glare would always make me forget whatever I had previously rehearsed.
+
+ My brother then came to my rescue.
+
+"Can Sissy and I go play, Daddy?"
+
+The shed went cold. My mother paused the swaying of her fan. My father exhaled a huge, thunderous sigh. He shot a defeated glance at my brother and then up at me.
+
+"Fuck this."
+
+He then stormed off, the door echoing behind his departure.
+
+My brother erupted into tears as my mom rushed to hug him.
+
+"Shushhh, sweet boy," she shakily whispered, brushing his golden-blonde hair.
+
+She glanced up at me, a hint of pity washing across her face. "Miya, do you need help feeding the pigs? You know your father showed you how to do that numerous times," she said with less warmth than she used for my brother. 
+
+I felt a twinge of jealousy claw at my throat, itching to be let out. Tears began welling up in my eyes, but I choked them back as I spoke. 
+
+"I know, but I-I always mess it up. I wanted to make sure I did it right today!"
+
+My mother's eyes fell to the bucket. "Miya, that's not nearly enough food. Where did it go?"
+
+A cow outside let out a scream, and my mom knowingly winced as my brother pulled at her blouse.
+
+My eye contact faltered. "S-Some fell on the wa—"
+
+"Miya!"
+
+As her voice rose, my brother's wails multiplied. Panic flooded my mother as she hugged him tighter. His tiny hands balled into fists as he wept.
+
+"I'm sorry, baby... I-I didn't mean to raise my voice." She looked back up at me, guilt clouding her expression.
+
+"Miya, we can barely feed the pigs as it is. You know just how tight money has been for us. You can't be so careless. If your father finds out, he will flip..."
+
+I felt my tears fall to my cheeks. My mother hummed a tune to my brother as he calmed down.
+
+"Mom, I'm sorry..."
+
+My mother's attention turned back to me, her eyes full of pity. I hated that expression. It was the same one everyone had for me. She reached her free hand out to me.
+
+"Let's all calm down, and then I will help with the pigs. How does that sound?"
+
+I reluctantly accepted her hand, and my brother pulled at my ankles for me to come join the hug. We spent a few minutes in silence comforting each other. However, the pigs still needed feeding, and the calf still needed to be dismembered. These emotions would have to wait so our work could continue.
+
+As the clock kept ticking and the leaves fell off the trees, I felt a quiet agony silently creep upon my family. My father stole my brother away from my mother and me more and more often. "Another pair of hands is needed in the butcher shed," he would say. My brother's eyes slowly lost their whimsy more and more as each day flew by.
+
+A quiet winter night illuminated the grass I lay upon. I could hear the crickets sing to me as the goats screamed. My head was propped against my huge rubber silicone gloves, mud from the ground smearing into my ginger hair.
+
+"Miya!"
+
+My father called from behind me. I flinched, as I hadn't heard him over the mundane noise of the farm.
+
+He wore a headlamp and carried a gun. A cigar hung out of his mouth. He had an exhausted expression. He was nearing his 50s, but it appeared his hair had already started to fall out. My huge, bulky father, the one I remembered as a kid, now appeared to be slimmer than my mother and grayer than the church elders.
+
+"Miya, let's go pick up some roadkill."
+
+My eyes fell to his free hand. He held an extra headlamp that I had not noticed before.
+
+"Is Henry—" I was cut off before I could finish my question.
+
+"Your brother has gotten a bug. Your mother is in there coddling him," he said with a hint of distaste.
+
+ "Will you come?"
+
+"Okay."
+
+A light snow dusted my father and me as we walked into the woods. In the fog, my father looked smaller than the man I had once remembered.
+
+"Miya, let me know if you see any rabbits!" he hollered over the wind.
+
+During the winter, it was hard to find any wild animals still wandering around our farm, but it wasn't unheard of. When my family ran too low to sacrifice any chickens, we had to try to scavenge for our meat. That normally meant hunting, but during the winter, we commonly had to resort to roadkill. Dogs or raccoons that end up on the side of the road. My father would still bring a gun in hopes he would see a rabbit or deer before he had to walk the miles to the closest highway.
+
+As he turned to holler at me, his headlamp blinded my eyes. I began to see tiny flashes of red and green dance beneath my eyelids. I squinted and began to take in my surroundings.
+
+I loved the woods. I loved the animals, the nature, and the solitude of it. At this point, I had begun to spend the majority of my free time just exploring all I could. I would run along the stream and spend my evenings gazing at the stars. I would sometimes wish a cloud would come to the ground I lay upon and swallow me whole, so I could spend my existence among the sky.
+
+When my vision came back into focus, I noticed my feet were pointing toward a shed a little behind a bed of tree stumps. I had never seen this shed before, which was unusual considering how much time I spent in the woods. I felt an unusual sensation sweep over my body. Fireflies suddenly lit up my surroundings, and the forest fell silent. My father's footsteps faded away, and a light breeze pushed my body toward the shed. I stumbled a little forward.
+
+This situation would unsettle most people. However, at the time, I was a child. Children don't know what to fear unless you tell them. I was always told I owned the woods, I owned this farm, I owned the land.
+
+Curiosity washed over me, and I began to walk toward the shed. As I got closer, I noticed that there were no weeds or withered trees surrounding the shed. Before I was fully able to take that in, I was interrupted.
+
+"Miya, over here!" my father shouted.
+
+I was abruptly pulled out of my curiosity as I panicked, searching for the direction of my father's voice. The wind was picking up and thrashed against my face, causing me to cover my eyes.
+
+"Miya!"
+
+I ran as fast as I could against the wind and bumped into my father's back. He grimaced as I lost my footing and fell onto my behind. He sighed as he looked down at me.
+
+He let out an aggressive whisper. "Miya, don't scare it." He pointed to a hare sniffing around a frozen-over puddle.
+
+I hated hunting. My father tried to have me take my first life at five years old. A stray cat my mother and I had fed got attacked by a large bird. My father wanted me to shoot her so I could grow desensitized to killing. My mother thought that was a horrible idea, but he seemed to think it would teach me some grand lesson. He wanted me to help him in his hunts and in the butcher shed. However, I threw a tantrum and just ended up giving my parents a headache. My brother, on the other hand, passed my father's test when he had to flush a lizard he accidentally stepped on at the age of six. He cried but was able to follow through, unlike myself. Ever since then, my father took him under his wing.
+
+The hare was a stunning white. I almost couldn't tell it apart from the snow she trotted on. Her eyes were a deep, bloody red. She frantically sniffed. I figured she must be trying to find food. I felt sorry for the thing, as it was winter. She must have been starving, and here my father was. He was going to have us eat her before she could even finish her own hunt.
+
+"Father..." I whispered, knowing he couldn't hear me and wouldn't even listen if he could.
+
+"Miya—" Before he could finish his order, the hare suddenly turned toward our direction.
+
+She hopped a couple of times and stared at us. She was looking at us. Her nose stopped twitching, and she stood perfectly still. I felt the wind pick up again, and I fell a couple of steps forward.
+
+The hare stared at me, her eyes screaming what she couldn't speak. I walked toward her and held my hand out. She began to tilt her head into my glove, but my father stopped us.
+
+"Miya, move! I'm going to shoot!" my father ordered.
+
+"But Dad, she wants to live!" I protested. I saw a flash of surprise brush across my father's face. This was out of character for me. I felt an odd sense of confidence creep over me. Fireflies buzzed around my father and me.
+
+"Miya, if you want dinner, you have to move!"
+
+"We don't need meat! We have bread!" I shouted, hoping my pleas would get through to him.
+
+My father looked at me, disgust in his glance. He lowered his gun and put his head into his hands.
+
+"Fuck!" He hit his head against his fists. 
+
+For a moment, I thought he would grant my wish. It was a childlike hope, a naive and innocent thought that my father would spare this animal due to my plea. Grant me a wish for growing a backbone out of nowhere.
+
+However, my dreams were crushed when he stomped over to me, pushed me out of the way, and grabbed the hare by her long, fluffy ears.
+
+"No, no, please don't!" I begged.
+
+He twisted her neck. She didn't cry or scream. She just looked at me, her eyes screaming the same thing they had before. However, I now had a better understanding of what they demanded from me.
+
+My father glanced down at my frail body, pounding and thrashing at the snow, handful by handful. 
+
+"We are human, Miya. Humans eat hares. We eat them to live."
+
+"I'm headed back. Do what you want," my father scoffed. He walked away, dragging the hare behind him. I didn't think he would, but he turned around for a second and said, "You need to focus on your survival, not the hare's or anything else, for that matter," and with that, he left me alone.
+
+I watched the snow fill up the footprints my father left, making the only connection I had disappear as if it had never existed in the first place. I went to the only place I knew of, the only place that felt familiar: the shed.
+
+As I made my way closer to the shed, I felt a sense of welcoming growing. Fireflies lit my path, and the wind pushed me forward as the cold air moved backward in my mind. As an adult, I can relate the sensation to that of drifting down a lazy river. My destination was predetermined.
+
+As I put my hand on the rusted handle, it felt strangely warm. I pushed the door inward as I stepped in. The shed was dusty and decrepit. It appeared as if no one had set foot inside for decades. I wondered how it was still standing.
+
+My father was not the type to neglect any property on the farm. Had he not known of this shed's existence? None of it made any sense to me, but I didn't care. This shed now felt like my home.
+
+I brushed away the dust on the ground and tossed some garbage onto a different garbage pile. I plopped onto the cold, hard ground and let out a sigh of relief.
+
+"Hello?"
+
+A sound echoed across the barely standing walls. I jolted with surprise.
+
+"Hello?"
+
+A figure crawled out from the forgotten garbage. Her hair was riddled with cobwebs and appeared to reach a length her body couldn't match. Her skin appeared as leather and disintegrated off her body with each claw forward. Her nails were about a foot long each.
+
+I felt a wave of surprise hit me as I let out a startled yelp and jumped up. Her face then looked up at me. Her eyes were a deep, endless black, and her teeth were growing out of her mouth, dislocating her jaw.
+
+"You can see me?"
+
+I stood still, unable to move or speak. I wondered what was crawling before me. She made her way closer until she sprawled out a little before my feet like an alley cat.
+
+"What is it, friend? Do I scare you?" She looked up at me, her eyes staring at me like hypnotic spirals of endless darkness.
+
+I had met many animals during my short life, some not as nice as others. This unknown creature before me looked scary, sure, but it wasn't something I wasn't used to. I remembered back to when I was eight, two years prior. A donkey had fallen, and a nail had gotten lodged into his neck, nailing him to some wooden planks my father was going to use for a project. He wiggled, trying to free himself, but was just slicing his throat in the process. I had watched this incident happen, frozen with fear, unsure how to help. I liked the donkey. I fed him and had known him his entire life. Hell, I even witnessed his birth. Blood spilled out of his mouth. He looked scary, but he was still my friend. I went and stroked his head as he bled out. I knew he wouldn't make it past this. Instead of going to fetch my mother, I decided it would be better if the donkey didn't spend his last moments alone. His screams rang in my ears, and blood stained my neon pink coat. My donkey was scary at this time, but he was still mine. This despair was not his fault.
+
+I took a deep breath and reminded myself that just because something looks scary doesn't mean it is.
+
+I nodded.
+
+"Yes. I can see you."
+
+The girl looked away. Black goop fell from her eyes. As it hit the floor, it turned into a flurry of spiders that scattered around the shed. Was she crying, I wondered?
+
+"Did I scare you?" she asked.
+
+ Her voice created a rhythmic echo around the shed, so loud I was scared it would crumble the thing.
+
+"A little, but that's okay!" I reassured her, not knowing what further action to take. "I was just surprised, that's all," I said, willing my voice to be as kind and reassuring as it could. Like my mother would address my brother when he would take a tumble.
+
+I placed my hand on her thin hair and tried to stroke it as if she were a stray kitten. As I did, her hair fell out and tangled around my hands in mats. I winced.
+
+"It's okay," she whispered like a low growl. "This is the form I was gifted," she sighed.
+
+"What are you?" I asked shyly.
+
+"I wish I knew," she whispered. "No one has ever seen me before this. No one has ever visited my home."
+
+More black goop fell from her eyes and sunken nose. Maggots danced in her sunken cheeks. The hair in my hands transformed into dust and fell to the ground. I heard crickets scream a warning.
+
+She looked up at me. "Nature is drawn to you, friend. Are you a sister?"
+
+"Sister?" I asked.
+
+"Yes, are you like me?"
+
+"Like you?"
+
+"Yes, a child of the forest," she said blankly, offering little explanation, as if I should completely understand what she was saying.
+
+"I mean, I guess you could say that," I stammered. "My father owns a farm, and this forest is behind it."
+
+Her expression shifted. "Oh, I see."
+
+"Come sit by me."
+
+I sat by the withered creature as a peaceful silence fell upon us. Minutes or maybe hours passed. I couldn't tell, nor did I really care. I watched the snow fall between the rusted wooden boards of the shed. Insects sang and danced for us. I suddenly remembered something.
+
+"Friend? You called me your friend. Do you think we are friends?" I asked.
+
+The entity looked up at me, her lower jaw hanging from her mouth by a thin strand of decomposed skin.
+
+ "Do you not wish to be my friend, Miya?"
+
+"You know my name?" I asked, surprised.
+
+"Yes, but I'm not sure why," she sang in a low whisper.
+
+"Well, if we are going to be friends—" I stammered. "I should know your name!" 
+
+A smile appeared over my face. I'd never had a friend. My parents didn't believe in public education and homeschooled my brother and me. However, their definition of "homeschooling" didn't align with most teachers', as they preferred to opt for a more "hands-on" and practical approach to teaching.
+
+"I don't think I have one," the girl wondered.
+
+"That's okay. We can think of one for you!" I said, my childlike excitement reaching its peak.
+
+An idea sprung upon me. "How about Mitten?" My childhood cat my mother and I fed was named Mitten. "You can be Mitten 2.0!"
+
+"Mitten 2.0?" she asked. "Why not just Mitten?"
+
+"Because my cat was the first Mitten," I responded.
+
+"Don't you think that's a bit disrespectful?" she giggled. "I think just Mitten would do."
+
+I laughed too, not completely understanding the reason Mitten was giggling, but because I felt so much joy in this moment. Not the laugh I had with my mother and little brother, but a real laugh I had never felt my body make.
+
+"Now, Miya, make sure to visit me from now on, okay?"
+
+"Of course I will," I replied happily.
+
+Suddenly, I was skipping between snowflakes on my way back to the farm. The rabbit with its pleading warning was no longer at the front of my mind. Instead, it was filled with my new friend. I actually made a friend. I couldn't believe it. Suddenly, the cold, damp, and depressing forest I had ventured into with my father appeared to be covered up by a whimsical blanket. If only I never went back to that farm.
+
+When I returned, my father had already butchered and dressed the rabbit in some herbs my mother had gathered. The rabbit was in the oven, probably the first warmth she had felt for weeks.
+
+My mother and father were hurriedly whispering in another room while my little brother sat at the table, swinging his feet back and forth. A candle sat on the table in front of him, crackling.
+
+"Miya!"
+
+My mother rushed over to me, her face flushed. She grabbed me by the shoulders. "Are you okay!? Where were you!?"
+
+My father trailed behind her. She shot him a glance.
+
+"Why would you leave her behind in this weather?"
+
+Were my parents arguing, I wondered? It was rare for my mother to express her concerns to my father. Was this really what this was about? Was my absence really that big of a worry for her to get upset at Father?
+
+"Nancy, she spends all day in the forest. She can handle herself. Besides, she could have followed me if she wanted to."
+
+My mother let out a small sigh of relief. "Whatever, let's just eat and go to bed."
+
+After that fateful night, I visited Mitten a lot. I would bring her small gifts, and she would thank me by swinging her jaw back and forth to resemble a smile. We would make mazes for the ants, and then they would perform synchronized dances for us, resembling those you would see the swimmers do on TV.
+
+Mitten was great at giving advice. For a girl who looked so young, she acted a lot more like a mom, I thought.
+
+After evenings when my father was lazier and my mom more disappointed, I would ask her things like, "Mitten, what's alcohol?"
+
+"It brings out the worst in men," she would respond.
+
+I would simply nod my head and ask if she could teach me how to make a flower crown.
+
+Answers like that were good enough for me. What my friend Mitten would say was absolute for me. Little explanation was needed.
+
+Mitten was gentle and kind. She would stare at me with a kind of love I had never felt before.
+
+"You are such a good girl," she would tell me. She said it as if it were a fact, like instead of a compliment, she was informing me of something.
+
+Soon, I realized I knew very little about Mitten. I felt a pang of guilt. I was always bothering her about my problems, but I had never asked her about her own. She knew my fears, insecurities, and family drama, but I couldn't even tell you her favorite color. How was I a good friend?
+
+I had promised Mitten that I would teach her how to build a snowman before the snow began to melt. Maybe I would ask her about herself today.
+
+I made my way toward her shed with these thoughts on my mind.
+
+The shed had transformed into a second home for me. Returning to the shed, to Mitten, helped motivate me through my chores on the farm. My mother had noticed I seemed happier these days. She would catch me smiling to myself and would give me pats on the head.
+
+When I reached the shed, the door was already swung open. I looked in and caught a glimpse of Mitten. She was shriveled up on the floor, ants crawling into her ears and out through her nose.
+
+"Miya, what a lovely sight," she welcomed me with.
+
+I smiled. "Let's go build a snowman."
+
+Mitten followed me outside the shed, crawling across the ground. One of her long nails got caught in between a piece of wood and broke. Mitten let out a shriek of pain, and I patted her on the back as she coughed up venom, trying to burp her like I saw my mother do to Henry when he was young.
+
+"Miya..."
+
+Something felt off today. Not with the shed or the woods, but with Mitten. I felt worry wash over me.
+
+"Mitten, are you okay?" I asked.
+
+"Miya, do you see the substance I just vomited up?"
+
+"Yes," I responded, wondering where in the world she was going with this. But regardless, I trusted her.
+
+"I need you to help me scoop it back into my mouth."
+
+"What?" I asked, bewildered. "Why do you need to eat it?"
+
+"I don't know, but I know it needs to be done," she said, looking up at me. "Miya, can you help me?"
+
+A smile spread widely across my face. "Of course I'll help you!"
+
+I sat down across from Mitten. We had made it almost out of the doorway and onto the snow, the black vomit painting the wooden boards that held up the shed. I scooped it up into my hands the best I could. The goop was made out of a substance I didn't understand. Maggots and rusted nails were held together by the black substance.
+
+Mitten peered up at me, the bottom of her jaw hanging off her face. I could see straight into her throat. Her teeth were long, too long. They reached past her jaw and resembled what I saw in dinosaur movies.
+
+"Be careful not to cut yourself, Miya," she whispered. "Don't be scared."
+
+I poured her vomit back into her stomach. It was warm and wiggled in between my fingers. It smelled like the rotten meat my father would throw into the freezers. She gulped it up, and it took a couple of handfuls before it was off the ground and back into her system.
+
+Soon, she stood up. I had never seen Mitten stand before this. She stood tall, almost taller than the trees, but her hair still dragged on the floor behind us. The wind started to blow, and fireflies greeted us.
+
+"Thank you, Miya," she said, her voice like music to my ears. "You were a great help. I feel much healthier now."
+
+She reached out a long, molded nail to me.
+
+ "I think I can go farther today. Farther than we normally go. Why don't we go out by the creek to build our snowman?"
+
+I grabbed onto it and followed excitedly. Then, a thought popped into my mind.
+
+"Mitten, do you know anything about yourself?"
+
+"The only thing I know is that I'm a curse."
+
+A feeling of unease washed over me. For the first time since I met Mitten, I felt fear. Isn't a curse bad?
+
+"What is a curse?" I asked, thinking there had to be some sort of explanation that didn't mean anything bad.
+
+"It's like alcohol," Mitten stated, her expression only faltering for a split second. "Nothing you need to worry about, darling."
+
+After that, she stopped talking.
+
+At that moment, looking back as an adult, the logical move would have been to let go of her monstrous nail and run away. Run back to the farm and accept a life full of empty, meaningless misery. To live my life on the farm and accept a lonely poverty, away from Mitten, my only friend.
+
+But I didn't.
+
+Instead, I followed her to the creek. We built a snowman. We smiled and laughed, and everything between us went back to normal. Little did I know, Mitten would tear apart my family. All four of us would grow into the worst versions of ourselves. Then everyone but me would be massacred, and I would happily take the fall for it.
