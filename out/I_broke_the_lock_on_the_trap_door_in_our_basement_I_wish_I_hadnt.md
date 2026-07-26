@@ -1,0 +1,43 @@
+I prayed for rain. It was the driest summer on record, but then again so was the last, and the one before that, too. The uneven, splintered boards on the floor of the brokedown farmhouse were becoming soft and polished by the dusty window at which I prayed on my knees. Not to God, for I was certain He had forgotten us. I prayed to the past. Conjuring memories of lush moss on the rocks of the creek, which had always run crystal blue. It used to meander along the sunken edge of the property, and became lush in the summers of my youth. I remember my father scaling the large boulders on the periphery of the creek and stripping away the moss in sheets. We would pile it into a riverside bed, where, beneath the canopy of the willow, we rested in the hottest part of July afternoons; the luxurious hours after chores and before cooking. My father’s knees as my pillow, we would giggle and sing songs of family and contentment. The morning milk bucket transitioned to my afternoon toy. I’d fill it with cold water and pour it on the banks, forming small, artificial tributaries as my father watched, grinning. We would end the afternoon with an opulent swim in the deep, scarlet pools that populated the creek. But, as the rains became infrequent, the pools lost their depth. Now even the wet months only mustered small puddles where I used to dive head first. Dust and wind had long since rusted holes in the base of the tin milk bucket, which hadn’t felt fresh water in years. It hadn’t experienced milk, either, for the cow wilted when my father could no longer spare what little water the creek still produced. This year, the water ran out in June. It was now July and I was sweating on my knees once again, wishing to go back in time, wishing that the rains would return, along with my father’s 3 tooth smile. 
+
+As the water reserves waned, my chores became as rigorous as they were senseless. My father began assigning menial tasks, the benefit of which I could not comprehend. Most of the new chores involved digging holes. Two shovels lengths in depth, every one, and the shovel was almost as tall as I was. Digging for water, I supposed at first, but my father’s precise demands for the placement of the holes followed no logic or reason. He had never laid a hand on me when the water was plentiful. Now, however, if I did not produce holes at a satisfactory pace, he would punish me viciously. His last punishment, which came after he decided that each hole was to be completed in just three days rather than five, had left me on the dirt floor of the farmhouse basement, in a puddle of my own blood. My father had not notified me of the policy change before the broadside of the shovel collided with my kneecap. As July ended, I began to suspect my next punishment would be my last. One less dry mouth to satiate.
+
+My father’s cotton cough appeared in benign, infrequent bursts, but quickly turned to constant  
+retching fits. I found it hard to focus on praying when his hacking echoed through the rotting  
+walls and even vibrated the floorboards in some instances. He stopped measuring the holes, and resorted to merely asking me if I had finished each to the proper specifications. My father was soon bedridden.
+
+As the days combined and weeks began to lumber by, mucus gave way to blood on his  
+handkerchief. White silk now resembled the shade of the creek. My father insisted that I  
+wash it and I told him I would. However, I decided the handkerchief was not worth the water. I  
+scrubbed it with a dry brush, but the color remained. I returned to my father with an ordinary  
+cloth. He did not notice the difference. This was the first time, I remember thinking, that I had  
+ever knowingly disobeyed the man I once loved. 
+
+It did not take long for me to stop digging all together. My daily tasks reduced to feeding the despicable man and brushing the dust off his peeling scalp. I began to make decisions for myself. My allotted daily water grew to three cups from just one; my father’s remained unchanged. I stopped speaking to my father, for moans and mumbles were all that he could muster in response. My loneliness overtook my thirst as the seasons began to change. I resumed digging. I focused my efforts on a single hole, deeper and deeper every day. Three, four, five shovel lengths deep into the basement floor where I had once been beaten. I spent the mornings digging and the afternoons transporting the loose earth from the basement to the front porch where I would toss it to the wind, which howled constantly. The days became shorter, the nights, colder, and the hole reached ever deeper into the crumbling earth. The basement provided enough shelter to make the extra work worth it. The wind whistled throughout the house and my father shivered between bloody retches.
+
+I stopped digging on the day my shovel collided with steel. At the bottom of the basement hole,  
+which now featured a well crafted, winding stairway to the surface, I uncovered a trap door. It’s  
+rectangular latch was secured shut with a massive, rusted lock with a keyhole large enough for  
+me to stick my finger through. I pressed an ear to the door. The faint sound of dripping drove  
+me to swing my shovel at the lock. Over and over again. Each time, sparks flew from the lock,  
+momentarily illuminating the base of the dim, dusty hole. The splintering sound from each steel  
+collision echoed throughout the house and made my ears ring. I swung the shovel for hours  
+before the lock finally cracked. I heaved the trap door. 
+
+At once, a voice solidified from the viscous darkness beyond the door’s threshold. The wind halted and everything was still as it greeted me, strong and deep, just like the blackness from which it bellowed. I no longer heard the dripping, but requested water nonetheless. Before long, a bucket appeared, filled with fresh water, more transparent than anything I had sipped from the creek. I consumed it and asked for another. The voice obliged. Another, and another, I drank until I felt sick. I thanked the voice, for it had saved my life. The voice assured me it could grant any wish I could dream of.
+
+Without fail, the bucket returned bearing gifts. Warm loaves of bread and salted butter. A small  
+chocolate, a diamond ring, and as many marbles as I asked for. The voice gave me whatever I  
+wanted. Perhaps more valuable than any gifts, the voice engaged me in conversation. I told it  
+about the creek and the rain and the dust and my father. The voice only asked questions, but  
+never answered any I had regarding its origin. This did not bother me, for I had been granted a  
+friend. One who was endlessly interested in my life and circumstance. Soon, the voice became interested in my father as well. I became annoyed, as the voice’s questions increasingly became focused on my father. However, I would answer any question if it meant even one more sip of the crystal water of which it seemed to have an endless supply. The voice never repeated a question.
+
+One day, the questions became requests. A bloody handkerchief in exchange for another bucket of water. I obliged and happily consumed the delicious water to which I was now addicted. Returning to the muddy sludge that was left at the bottom of our storage barrel was unthinkable. Another bucket? Another request. This time a lock of grey hair. I asked why. The voice did not respond. I once again asked the voice for justification of the request, but the voice remained silent. I shouted into the darkness on the other side of the trap door, and received not so much as an echo in reply. Panicked by the prospect of losing my companion, I rushed up the winding dirt staircase and grabbed a dull knife from the kitchen. I returned to the hole with a lock of my dying father’s hair.
+
+The next day, the request was a rotting tooth. My father moaned slightly as I shoved pliers in his  
+mouth. An eyelash, a dusty blanket, a toenail, and a wrinkled ring finger. My routine became  
+centered around ceremoniously disassembling my father in exchange for water and other  
+luxuries. My father did not notice when I dragged him down the winding dirt staircase into a pit  
+from which he would never return.
+

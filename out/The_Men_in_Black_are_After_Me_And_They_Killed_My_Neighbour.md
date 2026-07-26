@@ -1,0 +1,122 @@
+I thought I knew how the world worked. I spent enough nights reading unsolved mysteries, browsing paranormal forums, and listening to true crime podcasts to think I'd seen every kind of weird the internet had to offer. I’m an internet sleuth of sorts, if you will. 
+
+I’m giving all of this information because it’s important for the context of what I’m about to tell you. I live in a somewhat rough suburban neighbourhood. It’s not white-picket-fence kind of fancy, but I’m not living in a one-dollar home either. 
+
+My neighbour, Reggie, who lives across from me is… weird. He’s this old hippie type of dude who is into shit like spirits and crystals, but the man has some good weed so I hang out with him sometimes. Besides the weed he gives me, the only thing I really have of his is a strange looking charm that smells like bad breath and salt. He gave it to me for my birthday, and said it was for good luck. I didn’t think much of it.
+
+One day, I was sitting with him on the front porch. We were smoking joints and shooting the shit. I told him about my internet sleuthing hobby and Reggie said to me, 
+
+“You know, that’s one of things I like about you; you’re a truthseeker! You can see things clearly with your ears and your eyes, but you’ll see so much more if you open your third eye!”  
+  
+“Third eye? You really are baked, Reggie.”
+
+“Duuude. I may be greening, but you gotta’ listen to me. Because you’re a truthseeker, you are gonna’ do great things!”
+
+He took another drag and stared out at the street.
+
+“You’re gonna’ see some cool shit, and you’re gonna’ see some really FUCKED shit. But you can’t look away at the fucked shit, alright? Gotta’ take the good and the bad…”
+
+“So, do you see me as the next big journalist on the news?”
+
+“Fuck no, man. Come back down to earth!”
+
+We laughed our asses off and spent the afternoon stoned and snacking on beef jerky. Looking back, that was the last normal afternoon I ever had with Reggie.
+
+Later that night, I was exploring the deep web. (Yes, I had a VPN and everything. I’m not being reckless). Buried between broken forums, scam markets, and janky art projects was something that looked almost ordinary: a private email server. I was confused, since I didn’t think anyone needed to use email on the deep web. There were different categories, but one pinged a new message under the category named ASSIGNMENTS.
+
+The new message read, 
+
+>*Sable,*   
+*Head office has an assignment for you tonight requiring paramount precision and discretion.*   
+*The target in question is a Subversive-Type Subject located in the area attached below, so be advised that containment protocols will have to be kept in consideration when eliminating the target. Message me privately for details on the subject.*  
+*Report when assignment is complete,*   
+*Slate*
+
+I didn’t include the location, since I don’t want whoever these people are to have any way of finding me. When I read the message, I instantly screencapped it in case I needed to bring it to the police. Then I realized that it may have been a bad idea. 
+
+A new message popped up:
+
+>*To the department,*  
+*An unauthorized person has been detected on the server. All available agents rendezvous to the area ASAP.*   
+*Jet*
+
+A pit fell in my stomach, and I immediately got off the deep web and turned off my computer. I went around the house and turned off every light and locked every door and window I could think of. There was no way I was going to be found.
+
+I went back to my room and I stuck close to the window looking across the street, hiding behind the curtains. I pulled out my phone and I reached for 911 before I realised what I'd tell them. That I'd stumbled across an assassination email on the deep web? They'd think I was high. I dialed Reggie’s number.
+
+“Reggie! Reggie, you gotta’ get out of your house! There’s someone coming!”
+
+Reggie answered, calmer than I’d like him to be.
+
+“What? Listen, I can handle it. Just stay inside, stay quiet, and don’t let go of your birthday present.”
+
+“Reggie, what does that-”
+
+He hung up before I could finish asking. Dammit Reggie.
+
+It felt like hours, but I saw a black BMW pull up the curb in front of Reggie’s driveway about thirty minutes later. I wondered how Reggie was going to somehow handle whatever the fuck was going on. I watched as a tall guy with short slicked-back grey hair in a dark suit approached the door. He knocked on the door. 
+
+No one answered. 
+
+The man in black then pulled out a pistol from his hip and shot the doorknob, busting it open. I felt helpless. I could only watch as this guy broke into my friend’s house. It was a long beat of silence…
+
+And then came the BANG!
+
+ That made me jump and duck beneath the window. My heart pounded in my ears. 
+
+He’s dead. Reggie’s dead. 
+
+I remembered the last words Reggie told me, to not let go of my birthday present. 
+
+I had stored the charm in my desk, and I grabbed it in case it was something these people wanted. I then heard a knock on my door, and I froze by my desk. I had to stay quiet. The man said through the front door, 
+
+“Slate, I’m detecting something in the house across the street… I can’t.”
+
+*He couldn’t. Couldn’t what?* I slowly made it downstairs, staying in the shadows. I needed to hear everything this guy was saying. He then said,
+
+“Hello? Anyone home? This is Detective Sable, I need to ask you some questions.”
+
+I walked up towards the front door. I then asked, 
+
+“What seems to be the problem, detective?”  
+  
+“I found your neighbor dead earlier, and I wanted to ask you some questions about them. Can I come in?”  
+  
+It didn’t make sense. Why would they go through the trouble of asking me to come inside? Why not just barge in like he did Reggie? 
+
+Every instinct screamed at me to keep the door shut. But if he couldn't cross the threshold, then I had something he didn't.
+
+I sighed. I needed to know what this man looked like and what he wanted. I opened the door. The man was indeed tall, and his hair short and slick-back. His suit was tight on his body, and he wore black leather gloves. 
+
+“Can I come in?”
+
+“Well,” I said, “I didn’t really see anything. I was asleep.”
+
+The man’s face suddenly warped into a scowl. 
+
+“It would not be to your advantage to lie.” He then added, “What’s in your hand there?”
+
+I put the charm in my back pocket. I then asked,  
+  
+“Why? Anything important?”
+
+“It's contaminated.  Just hand it over, and I’ll be on my way.”
+
+I was so confused. Reggie handled it no problem and I didn’t get sick.
+
+“Why can’t you just take it? You’re right there.”
+
+The man didn’t answer. He stood there for a while, glaring at me. The detective then said,
+
+“You'll find your circumstances changing. Have a pleasant night.”
+
+He then walked back to his car, and I immediately shut the door. I locked it and went back up to my room to get some sleep. I didn’t get any sleep since I mainly laid in bed until I passed out. 
+
+The next day was quiet, and I thought the worst of it was over. When I checked my mail, my stomach dropped yet again. One of the letters was an eviction notice from my landlord saying that I didn’t pay my rent on time. 
+
+But that doesn’t make any sense because I DID PAY ON TIME! I had two days to move out. What the fuck was going on?
+
+I’m planning on staying at my sister’s apartment in the city, and I’m getting to the bottom of what these people are up to. I wanted to reach out to see if anyone is experiencing this type of situation or if anyone has any advice. 
+
+I don’t think this will be the last I will see or hear from them, so expect me to keep you all updated on what happens next. 
+
