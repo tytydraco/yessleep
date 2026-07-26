@@ -1,0 +1,781 @@
+Life is an unending kick to the balls. Anybody who works a trade knows what I mean. You spend five days busting your ass for a paycheck that’s already spent before it hits your account, your knees, back, and nuts ache because you’re thirty-six going on sixty because twenty-year-old you thought lifting properly was something old guys complained about. Every weather system rolling across the province announces itself two days early in your joints like some kind of arthritic groundhog.
+
+Then there’s bills: Mortgage, truck, insurance, my oldest needs braces, and the youngest somehow outgrows shoes every three months. My wife has this amazing ability to find the exact moment I’m trying to mentally calculate whether we can survive another week before payday to ask if we should finally replace the dishwasher. She’s never trying to stress me out, it’s just… Life has incredible timing.
+
+Then work decides it’d be fun to pile on. Now, if you’ve never worked construction, or around heavy equipment, you should know that every company loves safety meetings. They always start with, “This isn’t directed at anybody in particular…” which is usually followed by twenty minutes explaining something one specific dumbass did. This week’s dumbass happened to be me. To be fair, I was only up there for maybe thirty seconds. To also be fair… The safety supervisor happened to be looking directly at me for all thirty of them. So Friday morning I got to sit in a folding chair with twenty other guys while a PowerPoint presentation about “Complacency in the Workplace”.
+
+By quitting time my head felt like someone had replaced my brain with an overinflated basketball. They usually start behind my left eye before spreading across the rest of my skull like somebody tightening a ratchet strap one click at a time. Add that to the rain rolling in, because apparently God also wanted me uncomfortable, and by the time I pulled into the driveway I could feel every old injury I’d ever collected.
+
+I kissed my wife hello, helped get supper on the table, asked the kids about school, laughed at something my youngest said that I honestly couldn’t repeat back to you if my life depended on it. Sometimes that’s what being a parent is. You aren’t really there. You’re just… exhausted in the general direction of your family.
+
+After everyone had gone upstairs, I wandered to medicine cabinet. Back pain pills, migraine pills, anti inflammatory pills, and good ol’ T3’s.
+
+I wish I could tell you exactly how many pills I took. I can’t. Enough. Too many. Just enough that my brain told me, “You’re a big guy. It’ll be fine.” I’ve been wrong before and washed them washed them down with a beer. I had one. Then another. By the third I was finally starting to feel my shoulders unclench. By the fifth… Well. Who’s counting?
+
+I laid down on the couch, the rain tapped softly against the front window, the television was still on. I remember thinking I should probably go upstairs. Instead… I closed my eyes.
+
+One second I was stretched out on my couch, The next I sucked in a sharp breath so suddenly it felt like I’d been underwater. The first thing I noticed was the air. It was cool enough that every breath felt clean, carrying that smell you only ever seem to get deep in the mountains. Damp pine needles. Fresh water. A hint of wood smoke somewhere in the distance. The second thing I noticed was that nothing hurt. That should’ve been enough to tip me off that something wasn’t right. My back is usually the first thing to wake me up. Every morning it feels like somebody replaced my spine with rebar overnight. My knees aren’t much better. I can’t remember the last time I stood up without making some kind of involuntary old man noise.
+
+I took a deep breath and stretched until my shoulders…there wasn’t even a twinge. I rolled my neck once, then twice, waiting for the familiar stiffness. Nothing. If this was a dream, my subconscious deserved a raise.
+
+I finally looked around. I was standing at the mouth of a narrow dirt trail, just wide enough for two people to walk side by side. Tall spruce trees surrounded me on either side, their branches swaying lazily despite the fact I couldn’t feel even the slightest breeze. Not even distant chirps of birds or insects, not even a rumble of some winding highway. Silence like that doesn’t exist anymore. Somewhere there’s always a highway, a dog barking, somebody mowing a lawn. Even out camping you hear something. It felt more like the whole forest was holding its breath.
+
+Oddly enough, it didn’t scare me. Quite the opposite. For the first time in I don’t know how many years, my brain stopped. Not slowed down. Stopped. I wasn’t thinking about work on Monday. I wasn’t wondering whether I’d remembered to lock the truck. I wasn’t mentally adding up bills or worrying whether we’d have enough left over after groceries to replace the tires before winter. It all just… fell away.
+
+I don’t know any other way to explain it. Imagine you’ve spent years carrying a backpack without realizing how heavy it is. Then someone quietly lifts it off your shoulders. You don’t notice the weight disappearing, you notice how light you suddenly feel. That’s what standing there felt like.
+
+The trail curved gently to my right, and as I rounded the bend the trees opened up. Pictures don’t do places justice. A lake stretched out before me so clear I could see smooth stones scattered along the bottom near the shore. Beyond it, mountains climbed into a sky so blue it almost looked painted. Their peaks were capped with snow despite the warmth of the afternoon, and their reflections sat perfectly still on the water. The shoreline curved away in both directions until the trees swallowed it whole. If there was another side to the lake, I couldn’t see it.
+
+A long wooden dock reached out over the water, its planks worn smooth with age but cared for well enough that not a single board creaked beneath the breeze that never seemed to come. At the very end sat two old lawn chairs. One was occupied. Beside them sat a faded red cooler and a little charcoal grill. Thin ribbons of smoke drifted lazily upward carrying the smell of pepper, charcoal and something roasting over an open flame.
+
+The man sitting at the end of the dock never turned around. He just sat there with a fishing rod in hand, line disappearing into water so clear I could see enormous trout drifting lazily beneath the surface.
+
+I started walking before I’d really decided to. Not because he waved me over, It just felt… rude to stand there staring.
+
+The dock flexed softly under my boots. Each step carried that familiar hollow knock of old wood over deep water. Glancing down between the planks. The water was so unbelievably clear that I could still see the lakebed, even this far from shore. Flat stones, patches of waving green weeds, fish moving through shafts of sunlight. Everything about it looked so inviting that, for a second, I actually thought about taking my boots off and jumping in.
+
+As I got closer, the smell from the grill grew stronger. It smelled… Perfect. Like every backyard barbecue I’d ever enjoyed rolled into one impossible scent.
+
+The man reached into the cooler without looking back. I heard the hiss of aluminum. He set one can on the empty chair beside him. An invitation. Still without turning around.
+
+I smiled. I don’t know why. It just seemed natural. I reached the end of the dock and lowered myself into the chair. The aluminum can was cold enough that condensation instantly beaded across my fingers.
+
+I cracked it open. The sound echoed gently across the lake. I took one drink, then another. It tasted… I honestly don’t have the vocabulary. Beer isn’t supposed to taste like that. It wasn’t sweeter or stronger or smoother. It simply tasted exactly the way every beer commercial promises beer tastes. Refreshing in a way that made me realize I hadn’t actually felt refreshed in years.
+
+I closed my eyes for a second, letting the cold settle somewhere deep inside me. When I opened them again, I noticed tears hitting the tops of my jeans. I hadn’t even realized I was crying. Because the man beside me had finally turned his head. And somehow, before my brain recognized his face… My heart already knew him.
+
+I don’t know how the human brain works. I don’t mean that in some deep philosophical way. I mean literally. I don’t understand how you can recognize someone before you recognize them. Because I didn’t look at this man and think, that’s my grandfather. Not at first. The logical part of my brain was still trying to process what I was seeing.
+
+This man sitting beside me looked nothing like the last memory I had of my grandfather. When he passed away, he was in his early seventies. He had a round face, a soft stomach, and thinning hair that he always joked made him look like he was permanently wearing a horseshoe.
+
+The man sitting beside me looked maybe thirty years younger. Broad shoulders, thick arms, full head of dark hair.
+
+I knew before he smiled, before he spoke, before he even looked directly at me.
+
+That was the worst part about losing someone. People always say time heals. I don’t think that’s true. I think time just teaches you how to carry the hurt. You don’t stop missing them. You just get better at living around the empty space they left behind.
+
+Then suddenly, after more than twenty years, that empty space was sitting beside me. Looking at me. Smiling.
+
+“Heya, champ.”
+
+And I broke. There wasn’t any dignity to it. No quiet tears. No single dramatic tear rolling down my cheek like you see in movies. I mean I fell apart. I covered my face and started crying so hard my chest hurt. Then I grabbed him. One second I was sitting in the chair and the next I was hugging him like if I let go he would disappear.
+
+He laughed softly, wrapping his arms around me.
+
+“Whoa, whoa,” he said. “Easy there. You’re gonna scare the fish.”
+
+That made me cry harder. Because that was exactly something he would’ve said. Making a joke because he knew I was overwhelmed and didn’t know what else to do.
+
+I held onto him longer than I probably should have. Eventually I pulled back, embarrassed despite the fact that I was hugging a man who had been dead for over twenty years.
+
+I wiped my face with my sleeve.
+
+“Sorry.”
+
+He looked at me like I’d said something ridiculous.
+
+“For what?”
+
+I opened my mouth. Nothing came out. I didn’t have an answer. Sorry for crying? Sorry for missing him? Sorry for being a grown man who still wanted his grandpa? None of it sounded right.
+
+He just smiled.
+
+“You got taller.”
+
+I laughed. It was probably the first normal sound I’d made since arriving.
+
+“Yeah. A little.”
+
+“A little?” he said, looking me up and down. “Boy, you’re bigger than I ever got.”
+
+I felt my throat tighten.
+
+“Grandpa…”
+
+He looked over.
+
+“Yeah?”
+
+There were a thousand things I wanted to say. I wanted to tell him about my wife, about my kids, about how much things had changed. About all the things I wish he could’ve seen. I wanted to tell him that Mom was okay, that my brother was doing better, that the little family he left behind somehow kept going. Suddenly all those thoughts were fighting each other, like my brain had opened every door at once and none of them could fit through.
+
+He seemed to understand. He just reached into the cooler.
+
+“Want a beer?”
+
+I laughed through my tears.
+
+“Yeah.”
+
+He handed me another. We sat there for a while. No pressure to talk. No awkward silence. Just two people sitting beside a lake. After a while, I finally found my voice.
+
+“I missed you.”
+
+He didn’t answer right away. He just looked out over the lake.
+
+“I know.”
+
+Two words. That’s all. But it nearly broke me all over again. Because that’s what I wanted. Not an explanation. Not some cosmic answer about where he’d been. I just wanted him to know.
+
+“I thought about you a lot,” I said.
+
+“I know.”
+
+“After you died, I…” I stopped. The words felt childish. “I needed you.”
+
+How do you say that to someone who has been gone longer than you’ve known some people? He saved me from having to.
+
+“You did alright.”
+
+I looked over.
+
+“What?”
+
+He smiled.
+
+“You did alright.”
+
+I shook my head.
+
+“No, I mean… I did okay, I guess.”
+
+“No.”
+
+He turned toward me.
+
+“You did alright.”
+
+There was something about the way he said it. Not like he was complimenting me. Like he was telling me something important. Like he had been waiting a long time to say it and for some reason, that was the moment I started crying again. Because my entire adult life I had been waiting for someone to say that. Not that I was successful, not that I was rich, not that I had everything figured out. Just… That I did alright.
+
+He reached over and squeezed my shoulder.
+
+“You’re carrying too much.”
+
+I looked away. Immediately defensive.
+
+“I’m fine.”
+
+He laughed quietly.
+
+“You’re still doing that?”
+
+“Doing what?”
+
+“Acting like everything is fine because you think you’re supposed to.”
+
+I didn’t answer. He was right. And hearing that from him somehow hurt worse than hearing it from anyone else. The strange thing was… I didn’t feel judged. Like all those years of trying to convince everyone, including myself, that I had everything handled had finally run into someone who knew better.
+
+“What is this place?”
+
+For the first time since I arrived, he hesitated. Not long. Just enough that I noticed. Then he smiled.
+
+“You’ll figure that out.”
+
+I laughed softly. Still him. Always answering questions with more questions.
+
+“That’s annoying, you know.”
+
+“Yeah.”
+
+“You know you do that?”
+
+“Yeah.”
+
+“Still doing it?”
+
+“Apparently.”
+
+We both laughed. And for a little while longer… I forgot there was anything wrong. We sat there for what could have been minutes or hours. That was another strange thing about the place. Time didn’t feel broken. It just didn’t feel important. Normally I’m painfully aware of time. But sitting there beside him, watching the line disappear beneath the surface of the lake, I didn’t care. There was nowhere else I needed to be. Nothing waiting for me.
+
+Eventually, he stood up, stretched, grabbed the fishing rod, and handed it to me.
+
+“Your turn.”
+
+I looked at the rod. Then back at him.
+
+“I don’t fish.”
+
+He raised an eyebrow.
+
+“You don’t?”
+
+I shook my head.
+
+“No. Never really got into it.”
+
+Something flickered across his face. It was gone almost immediately. A smile replaced it.
+
+“Well, you’re missing out.”
+
+I looked down at the fishing rod. The wood was smooth from years of use. Or at least, it looked like it was.
+
+“You know, I still have your truck.”
+
+He looked over.
+
+“Do you?”
+
+I laughed.
+
+“Yeah. Mom gave it to me after you died.”
+
+His smile widened.
+
+“The old red one?”
+
+“N-no… it’s green.”
+
+“Oh… Still running?”
+
+I laughed.
+
+“Barely.”
+
+That made him laugh. A deep, warm laugh that echoed over the lake.
+
+“It’s honestly a piece of shit.”
+
+He pointed at me.
+
+“Careful.”
+
+“What?”
+
+“You’re talking about my truck.”
+
+I grinned.
+
+“Your truck is terrible.”
+
+“It was dependable.”
+
+“It had a hole in the floor.”
+
+“It had character.”
+
+“It had a hole in the floor.”
+
+“It was a good truck.”
+
+I laughed and for a moment, I was twelve again. Not remembering him, not missing him. Just sitting there with him. It was perfect. Not some grand heavenly reunion. Not some magical conversation where he gave me the answers to life. Just my grandfather arguing with me about an old truck.
+
+Eventually, he opened the cooler again.
+
+“You hungry?”
+
+I looked over, the grill was still going. I hadn’t even noticed him cooking anything.
+
+“Yeah.”
+
+He grabbed the plate. Chicken wings. At first I laughed.
+
+“Since when do you make wings?”
+
+He looked at me.
+
+“What?”
+
+I shrugged.
+
+“I don’t know. I just always remember you making ribs.”
+
+There was another pause. Tiny. Almost nothing. Then he smiled.
+
+“Ribs take too long.”
+
+I nodded.
+
+“Fair enough.”
+
+And just like that, the thought disappeared. Because honestly? Who cares? It was a dream. A strange, impossible dream where my dead grandfather was sitting beside me looking thirty years younger and somehow I was getting hung up on barbecue preferences.
+
+The first bite of that wing nearly made me close my eyes. I know that sounds dramatic, but it was the best thing I’d ever tasted. The skin was perfectly crisp, the meat fell away without effort, the seasoning was simple, but somehow every flavor was exactly where it needed to be. Salt, pepper, smoke, heat. Comfort.
+
+That’s the closest word I can think of. Comfort. Like eating something from a childhood memory you forgot you had.
+
+I looked over at him.
+
+“These are incredible.”
+
+He smiled.
+
+“Told you.”
+
+I shook my head.
+
+“No, seriously. These are…”
+
+I stopped. I couldn’t explain it. The taste wasn’t just good. It was like some part of me had been waiting years for that exact bite. I ate another. Then another. I didn’t realize how hungry I was until the plate was almost empty.
+
+He watched me with a smile. Then he spoke.
+
+“You have a choice to make.”
+
+I looked up. The warmth of the moment faded slightly. Not because he sounded threatening. Because he sounded serious.
+
+“What do you mean?”
+
+He took the empty plate from my hands and set it beside the grill. Then he looked past me. Toward the trail. I followed his gaze to the path I came from. The path leading back through the trees, back to wherever this place had started.
+
+“Behind you,” he said, “is the way back.”
+
+I stared at the trail.
+
+“The way back where?”
+
+He looked at me.
+
+“Home.”
+
+The word hit harder than I expected. My actual home. My wife, my kids, my life. Everything I had been missing without realizing I was missing it.
+
+“And ahead?” I asked looking out over the stillness of the lake.
+
+He didn’t answer. He didn’t have to.
+
+A chill moved through me. Not because it was cold. Because suddenly I understood. He was giving me a choice. And somehow… I already knew which one would be easier.
+
+I stared at the trail. It looked exactly the way it had when I first arrived. Peaceful, and inviting. The trees moved gently in the distance, the path winding back toward the cabin I had somehow known was there even before I saw it. And yet, standing there now, it felt different. Maybe because I knew what it represented. Leaving. Going back. Picking up everything I had put down the moment I opened my eyes.
+
+My grandfather watched me. Not impatiently. Not like he was waiting for an answer. Just watching. When I was a kid, I used to think he could read minds. Not because he actually could. Because he always knew when something was bothering me before I ever said anything.
+
+“You don’t have to go back if you don’t want to.”
+
+The words were gentle. Almost too gentle.
+
+I looked at him.
+
+“What?”
+
+He shrugged.
+
+“You heard me.”
+
+I looked back toward the trail.
+
+“My family is there.”
+
+“I know.”
+
+“My wife.”
+
+“I know.”
+
+“My kids.”
+
+His expression softened.
+
+“I know.”
+
+That annoyed me. Not because he was wrong. Because he sounded like he understood. Like he knew exactly what I was going to say before I said it.
+
+“You don’t know them.”
+
+“No.”
+
+He looked down at his hands.
+
+“But I know you.”
+
+That stopped me. Because that was the thing I wanted. Not for him to know my kids, not for him to know what my house looked like. I wanted him to know me.
+
+“I miss you.”
+
+The words came out quietly.
+
+He nodded.
+
+“I know.”
+
+“I still think about you.”
+
+“I know.”
+
+“I wish you could’ve been there.”
+
+His face changed slightly.
+
+A sadness crossed it.
+
+“I was.”
+
+I frowned.
+
+“What?”
+
+“I was there.”
+
+The lake was quiet. The forest was quiet. Everything seemed to wait for his answer.
+
+“For what?”
+
+He smiled sadly.
+
+“For more than you think.”
+
+I felt tears starting again.
+
+And I hated it. Not because I was embarrassed. Because it was too much. I had spent years accepting that I would never hear his voice again. Never see him smile. Never get one more piece of advice. And now he was here. Giving me everything I thought I had lost.
+
+“You have no idea how much I needed you.”
+
+He looked at me for a long moment. Then he said the words. The words that I think, more than anything else, made me want to stay.
+
+“I’m so proud of you.”
+
+Everything stopped. My face crumpled and this time I didn’t even try to hide it. I cried again. Years of holding things in. Years of pretending I was fine. Years of thinking I had to be strong because that’s what men were supposed to do. All of it came out at once.
+
+And he let me. He didn’t tell me to stop. Didn’t tell me everything happened for a reason. Didn’t tell me to toughen up. He just sat there. And when I finally calmed down, he handed me another beer.
+
+It felt like the kindest thing anyone had ever done for me.
+
+“What’s ahead?” I asked.
+
+He didn’t answer. Instead, he looked out over the lake.
+
+“It’s different for everyone.”
+
+I almost laughed.
+
+“That’s it?”
+
+He smiled slightly.
+
+“That’s it.”
+
+“You’re still doing that.”
+
+“Doing what?”
+
+“Being annoyingly vague.”
+
+He laughed.
+
+Something bothered me. A tiny thing. A tiny little splinter of thought.
+
+I stood up.
+
+“Can I ask you something?”
+
+“Sure.”
+
+I looked down at him.
+
+“Are you really my grandpa?”
+
+The question sounded stupid the second it left my mouth. But he didn’t laugh. Didn’t look offended. He just looked sad.
+
+“You know the answer you want.”
+
+I swallowed.
+
+“Yeah.”
+
+“And you know the answer.”
+
+The air changed. Just slightly. The peaceful feeling that had surrounded me since arriving seemed thinner. Like a blanket being slowly pulled away.
+
+I looked toward the cabin. Then back at him.
+
+“I think I should go.”
+
+For the first time… he looked disappointed. Not angry. Not upset. Just… disappointed.
+
+“You sure?”
+
+I nodded.
+
+“I have to.”
+
+He looked down at the fishing rod. Then back at me.
+
+“Alright.”
+
+I started walking down the dock. I made it three steps before  stopping. Because I heard him say something.
+
+“Little man.”
+
+My heart stopped. I turned around. And there he was. Sitting in the chair.
+
+His smile. It was perfect. Too perfect. Like someone had remembered the shape of it. But not the reason behind it. And then he said something that made every hair on my body stand up.
+
+“You always were a good little man.”
+
+Not my little man. Not the way he used to say it. A good little man. Like he was describing something. Like he was evaluating me.
+
+I looked at the lake. The mountains. The dock. The chair. The man sitting in it. And suddenly, for the first time since arriving… I wanted to leave.
+
+I don’t remember deciding to move. I think that’s what fear does to you. It skips the part where your brain asks permission.
+
+One second I was standing there, trying to convince myself I was being ridiculous. Trying to tell myself that this was a dream, that my mind had created some strange version of my grandfather because I was stressed and exhausted and probably half-poisoned from the combination of medication and alcohol. The next, my body was already moving. Back toward the trail. Back toward the cabin. Back toward home.
+
+“Hey.”
+
+His voice stopped me. Not because it was loud. Because it was normal. That was the worst part. If he had screamed, if he had changed, if he had suddenly become some obvious nightmare creature, maybe it would’ve been easier.
+
+But he didn’t. He sounded hurt. Like a man watching someone he loved walk away.
+
+“You’re leaving?”
+
+I looked over my shoulder. He was still sitting there. Still holding the fishing rod. And that almost made it harder. Because some part of me was still fighting. Some part of me was still looking for an explanation. Maybe I was wrong. Maybe my memory was wrong. Maybe dreams were just weird. Maybe I was throwing away the only chance I would ever get to see him again because I was being paranoid.
+
+“I have to.”
+
+My voice sounded small.
+
+He looked down.
+
+“You don’t have to carry all that.”
+
+I froze.
+
+“What?”
+
+He looked back at me.
+
+“The weight.”
+
+The word hung there.
+
+“You don’t have to keep carrying it.”
+
+I was tired. God, I was so tired. I loved my family. I loved my wife. I loved my kids more than anything in this world. But loving people doesn’t mean you aren’t exhausted. It doesn’t mean you don’t sometimes wish you could just set everything down for a little while. And this place… This place was the first time in years I had felt like I could breathe.
+
+“I can’t stay.”
+
+The words came out quieter than I expected. His face changed. Not much. I knew that face. Or at least I knew the face he was wearing. My grandfather used to make that expression when I disappointed him.
+
+“You could.”
+
+The way he said it made my stomach tighten. Not because it was threatening… it was tempting.
+
+I looked toward the cabin. It was farther away than I remembered. Not dramatically. Not enough that I could point at it and say something was wrong. But enough. The path looked longer. The trees looked thicker. The distance between me and the safety of that cabin suddenly felt like more than just a walk.
+
+“You made your choice.”
+
+I looked back at him.
+
+“What?”
+
+He smiled. A small, sad smile.
+
+“You chose to go back.”
+
+Something about that sentence bothered me. I took another step. The dock creaked behind me. Then another. The farther I got, the stronger the urge became to turn around.
+
+Not because I was afraid of him. Because I missed him. That was the part I hated. Even knowing something was wrong, I still wanted him. I still wanted to go back. I still wanted to sit beside him and drink another beer and pretend I had another afternoon with my grandfather.
+
+Then I felt it. A hand on my shoulder. I stopped breathing. I hadn’t heard him get up. Hadn’t heard footsteps. He was just there. Behind me.
+
+“Wait.”
+
+His voice was right beside my ear. I slowly turned. And for a second… I saw him. My grandfather, the man who raised me, the man who taught me how to tie my shoes and throw a football and change a tire. The man who sat beside me when I was too young to understand why my parents were fighting and told me that none of it was my fault.
+
+I saw him and I felt fear.
+
+His eyes were the same. But not quite. Something behind them wasn’t. Like how you see a mannequin at the mall. The warmth was gone. Or maybe it had never been there.
+
+“Come swim with me, little man.”
+
+His hand tightened. Not painfully, just enough that I knew I couldn’t ignore it.
+
+“Let go.”
+
+The smile stayed.
+
+“You don’t have to be tired anymore.”
+
+The sentence was so gentle. So kind. And that terrified me more than anger would have. Because I realized something. It wasn’t trying to hurt me. It genuinely believed it was helping.
+
+I pulled. Nothing happened.
+
+His fingers tightened.
+
+I looked down. The hand on my shoulder wasn’t right. The skin looked stretched. Too smooth. The fingers too long.
+
+My heart slammed against my ribs. I shoved. Hard. Harder than I meant to. I didn’t think. I just reacted. My hands hit his chest and for a split second, I felt nothing. Not muscle. Not bone. Something hollow. Like pushing against a body-shaped bag filled with air.
+
+He stumbled backward. The chair scraped across the dock. The grill tipped and it fell into the water. Except it didn’t splash. The sound wasn’t water. It was thick like mud or wet concrete.  A heavy impact followed by a bubbling, sucking noise. The lake was still. Perfectly still. No ripples. No waves.
+
+I looked at him. And my grandfather was gone. Not all at once. Not like some movie monster changing forms. His face stretched, his jaw opened too far, the skin around his eyes pulled tight, his arms bent strangely. The body I had hugged moments earlier looked like something trying desperately to remember how a human being was supposed to look. The eyes, they weren’t angry, they were disappointed. Like I had hurt his feelings.
+
+“I…”
+
+The sound that came out of him wasn’t a voice anymore. It was something trying to imitate one.
+
+“I… shooould…”
+
+It stopped. A wet clicking sound. A breath that didn’t sound like breathing.
+
+“I… shooould… have…”
+
+The thing tilted its head. And for a moment, I saw my grandfather again. Just enough. Just enough to hurt.
+
+“…known…”
+
+Then it smiled.
+
+“I should have known you would leave.”
+
+The words twisted and raspy even as the face swirled into familiarity.
+
+I ran. I don’t mean I hurried. I don’t mean I walked quickly with the reasonable thought that something strange had happened and I should remove myself from the situation. I ran like my life depended on it.
+
+The problem with running from something you don’t understand is that your body doesn’t care about explanations. Your body sees danger. Your body moves.
+
+The dock stretched behind me, every footstep pounding against the old wood. I don’t remember hearing it follow me. That was somehow worse. I would’ve preferred footsteps. Something chasing me. Something making noise. Something I could understand.
+
+Instead, there was just silence behind me. The kind of silence that makes you feel like something is close enough that it doesn’t need to hurry.
+
+I hit the end of the dock and stumbled onto the trail. The cabin was there, I could see it through the trees but it didn’t look as close as it had before. The distance between us felt wrong. Like I was looking at something through a reflection, something that should’ve been close but wasn’t.
+
+I pushed harder. Branches whipped against my face, roots grabbed at my boots. The same peaceful trail I had walked down earlier now felt like it had been built specifically to slow me down. Every step was harder. Every breath burned. And somewhere behind me… I heard him.
+
+“Little… man...”
+
+I almost stopped. I almost turned around. I wanted to see it because I wanted it to be him. I wanted to be wrong. I wanted to look back and see my grandfather standing there, confused and hurt, asking why I ran away. I wanted the last few minutes to be some horrible misunderstanding because the alternative was too painful.
+
+The voice came again. Further away this time. Or maybe closer. I couldn’t tell.
+
+“Little man.”
+
+I kept running. The ground changed beneath my feet. The soft dirt became uneven stone, the trail that had been flat on the way down now seemed to climb sharply upward. My lungs burned, my legs felt heavy. I reached for a tree to steady myself and my hand slipped. My boot caught on a root and suddenly I was falling. I remember the impact. First hit was my knee, the second was my shoulder when I tried to roll. I slid down the slope several feet before finally stopping against the base of a tree. For a moment, I couldn’t breathe. I just lay there staring upward, the forest spun around me. The pain came slowly. My knee. My shoulder. My back. A sharp burning sensation where branches and rocks had torn at me and for one terrible second, I thought about staying there.
+
+Not because I wanted to die. Because I was tired. So unbelievably tired.
+
+The thought scared me more than anything else. I knew exactly where that thought came from. The lake. The chair. The beer. The promise that I didn’t have to carry anything anymore.
+
+I forced myself up.
+
+“No.”
+
+My voice sounded pathetic. Small.
+
+“No.”
+
+I grabbed the tree and pulled myself upright. I had a wife. I had kids. I had a home. I had a life. A hard life. A stressful life. A life that sometimes felt like it was too heavy. But it was mine. And I wasn’t done with it.
+
+I stumbled the rest of the way. The cabin door was right there. I remember throwing myself through the doorway. I remember turning around. Waiting. The thing was not there. The trail was empty, the trees were still, the lake hidden. For a moment, I felt relief. Then I heard something. A voice. Very far away. Across the lake. Soft enough that I almost thought I imagined it.
+
+“I should’ve known…”
+
+I slammed the door shut.
+
+I woke up choking. Not gasping. Not gently coming back to consciousness. Choking.
+
+There were voices above me. Too many voices.
+
+“Sir? Can you hear me?”
+
+“Stay with us.”
+
+“He’s coming around.”
+
+I opened my eyes. Bright lights. Not sunlight. Fluorescent. Not a wooden cabin. An ambulance.
+
+For a few seconds I just stared. I didn’t understand. My brain tried to connect the pieces. The lake. The cabin. The trail. The thing wearing my grandfather’s face. Then the ceiling above me. Then the oxygen mask over my mouth. Then the person leaning over me.
+
+“Hey. There we go.”
+
+A paramedic smiled.
+
+“Can you tell me your name?”
+
+My mouth felt like sandpaper. I swallowed. Tried to speak. Nothing came out at first. I shook my head.
+
+The paramedic looked concerned.
+
+“Take your time.”
+
+I told him my name. He asked where I was. He asked what happened. And I didn’t answer. Because how do you explain that? How do you look at a stranger and say: “I drank beer with my dead grandfather in a dream, then something pretending to be him tried to convince me to drown myself?”
+
+You don’t. So I said the only thing that made sense.
+
+“I fell asleep on the couch.”
+
+Which was true. The doctors had a much simpler explanation. Accidental overdose. Mixing medication and alcohol. They explained it carefully. Not like they were angry. Like they had given the speech before.
+
+They asked if I had been trying to hurt myself. I told them no.
+
+They asked if I was depressed. I told them I was stressed.
+
+They asked if anything unusual had happened recently. I almost laughed, because that question felt like a trap. What was I supposed to say? “Well, I’ve been having vivid dreams involving a monster impersonating my dead grandfather?”
+
+Instead, I said no. They ran tests. They checked my vitals. They told me I was lucky.
+
+My wife cried. That part hurt worse than anything else. She wasn’t angry. I think I would’ve preferred angry. She was scared. She kept holding my hand and apologizing for not noticing how overwhelmed I was. And I kept telling her it wasn’t her fault. Because it wasn’t. It wasn’t anybody’s fault.
+
+Before I was discharged, one of the nurses noticed my back.
+
+“Where did you get those?”
+
+I looked over my shoulder.
+
+“What?”
+
+“The scratches.”
+
+The doctor examined them. Nothing mysterious. Nothing impossible. A few deep scratches. Some bruising. A couple cuts that needed stitches.
+
+A perfectly normal explanation. I probably thrashed on the couch and fell to the floor. And honestly? I was grateful for it. I needed something normal.
+
+Three days after waking up in that ambulance, I bought beer. I wish I could tell you I didn’t. I wish I could tell you I was smarter than that. That after everything that happened, I stayed away from alcohol completely. That I took the warning seriously and threw out every bottle in the house and became one of those people who starts every morning with a glass of water and a twenty-minute meditation.
+
+I didn’t.
+
+I was leaving work early. Not because anything was wrong. Actually, everything was fine. That was the problem. Everything was normal. The kind of normal that felt unbearable. My back hurt. My knees hurt. All the little pieces of life were still sitting exactly where I had left them and all I could think about was a wooden dock. A lake. A chair. And a beer that had somehow tasted like the best moment of my life.
+
+It sounds stupid when I say it out loud. I know that. A grown man missing a beer from a dream. I stopped at the liquor store without really deciding to. I don’t even know why I chose it. Maybe because I remembered seeing the can beside my grandfather’s chair. Maybe because some part of me thought if I could recreate the moment, even a little bit, I could understand it.
+
+I grabbed a six-pack, I drove home. I put groceries away. I waited until the house was quiet. Then I opened one. The sound was exactly the same. That little hiss. The little release of pressure. For just a second, my heart jumped. Because I was back there. I could almost smell the smoke from the grill. Almost feel the warmth of the sun. Almost hear him laughing. I lifted the can. Took a drink. And immediately almost spit it out.
+
+It wasn’t bad. Bad would’ve meant something. It tasted like beer. Just beer. Cold. Carbonated. Slightly bitter. Completely ordinary.
+
+I stood there in my kitchen holding the can, staring at it like it had personally betrayed me. I took another drink. Same thing. I checked the label. Same brand. Same everything. I had apparently become the kind of person who was disappointed that a beer wasn’t magical. I finished half of it. Poured the rest down the sink. The next morning, I threw the other five away.
+
+The wings happened two days later. That one hurt worse. My wife knew something was wrong, she didn’t know what. She just knew. She had been watching me for days. Watching me stare out windows. Watching me sit quietly. Watching me pretend I wasn’t exhausted.
+
+She asked if I wanted to talk. I told her I was fine. She didn’t believe me but she didn’t push. Instead, she did something she always does when she doesn’t know how to fix something. She tried to make me happy.
+
+She took me to my favorite wing place. The one we’d been going to for years, the one where I always got the same order.
+
+The smell hit me. For half a second, I was excited. I picked one up. Took a bite. And felt my stomach sink. Nothing. Not bad. Not good. Nothing. The seasoning was there. The sauce was there. The texture was right. But it was like eating a photograph of food.
+
+My wife noticed.
+
+“Are they okay?”
+
+I looked at her. At the person who loved me enough to order my favorite food because she knew I was struggling. And I lied.
+
+“Yeah.”
+
+I forced another bite.
+
+She smiled. But I could tell she didn’t believe me.
+
+That night, after everyone went to bed, I found the photo albums. I wasn’t looking for evidence. I wasn’t investigating. I wasn’t trying to prove anything. I just missed him… it.
+
+I found the old plastic storage bin in the closet. Inside were things I hadn’t looked at in forever. Birthday cards, old school pictures, Christmas photos. Things that felt important at the time but somehow got packed away as life moved forward.
+
+I sat on the floor and started flipping through them and for a while, it helped. Because he was there. Not physically, not like the dream. But the way I remembered him. The way he actually was.
+
+There were pictures of him holding me as a baby. Pictures of him teaching me how to ride a bike. Pictures of us standing beside his truck.
+
+I pulled out another album. Then I found a picture of him fishing. I smiled, then my smile faded. Because it wasn’t him. It was my uncle. And suddenly I remembered. Grandpa didn’t fish. Not once. Not ever. He hated the water. I stared at the picture. Trying to force the memories together. Trying to make them fit. But they didn’t. The pieces weren’t broken. They just belonged to a different puzzle.
+
+I grabbed another album. Then another. And the more I looked, the more things I found. I sat there on the floor surrounded by pictures and old memories and I finally understood.
+
+It hadn’t brought back my grandfather. It had built one. It took pieces of what I wanted. A cabin. A lake. A fishing pole. A cold beer. A kind voice.
+
+It didn’t know him. It knew what I missed. And somehow… that was worse. Because the thing at the end of the dock wasn’t pretending because it loved me. It was pretending because it knew exactly what would make me stay.
+
+And somewhere behind me… I heard the creak of a chair. I stopped. I didn’t turn around. I refused. Then I heard his voice.
+
+Soft. Patient. Almost sad.
+
+“Little man.”
+
+I closed my eyes.
+
+Because the worst part wasn’t that I was afraid. The worst part was that I missed him.
+
+And I knew that was exactly what it wanted.
