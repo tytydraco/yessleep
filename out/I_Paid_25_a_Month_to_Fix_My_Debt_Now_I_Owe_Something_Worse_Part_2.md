@@ -495,13 +495,15 @@ Like he’s the exhausted one.
 
 “Yeah, and I bet they’re all at 2:14.” I mutter.
 
+The chewing stops.
+
 The silence stretches into something thin and tensile. I have to pull the phone away from my ear to make sure the call’s still connected.
 
-The chewing stops, and his voice changes tone.
+His voice changes tone.
 
 “Who told you about that?” 
 
-A cold noose tightens around my throat.
+A cold noose tightens around my throat. I don’t answer.
 
 Then, through clenched teeth. Louder, more distorted, swallowing the microphone.
 
