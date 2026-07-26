@@ -536,3 +536,5 @@ Slate™: Stop.
 
 Slate™: Stop.  
 *“Now.”*
+
+[PART 2](https://www.reddit.com/r/nosleep/s/caJ1I7ysE8)

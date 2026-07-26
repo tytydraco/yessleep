@@ -1,4 +1,4 @@
-My sister Sheily and I had a favourite game we'd discovered in our childhood, we called it, 'Going to the fun place'. On one of our imaginative excursions in our parents' 400 sq/ft already-worn suburban home we decided to play hide-and-seek in the dark. We figured out that if you sat with your back towards the back left-most corner of our room and closed your eyes, you'd drop onto a trip through what comes after life.
+My sister Sheily and I had a favourite game we'd discovered in our childhood, we called it, 'Going to the fun place'. On one of our imaginative excursions in our parents' 800 sq/ft already-worn suburban home we decided to play hide-and-seek in the dark. We figured out that if you sat with your back towards the back left-most corner of our room and closed your eyes, you'd drop onto a trip through what comes after life.
 
 This was amazing for us, you see, we hadn't even hit 10, we'd always been really, really close because our parents, though they provided the absolute minimum to not get in trouble, pretended we didn't exist most of the time. They provided no dolls, Ataris, toys or anything of the sort, and told us to sort ourselves out.
 

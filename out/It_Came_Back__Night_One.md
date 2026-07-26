@@ -1,0 +1,102 @@
+
+
+“*Stop! Right now!*” I yelled at them. “I’m done with this.”
+
+
+
+I tossed my hands up, pushed the chair back, stood up and stumbled away from the table.
+
+
+
+I didn’t want to play anymore. I didn’t want that thing around me either.
+
+
+
+“*Take it out of my house now!”* I screamed. I couldn’t hold back. It spelled something it shouldn’t have known.
+
+
+
+Maggie and Shobi never knew the nickname my dad called me. Right after that—I heard the last two words my father said before he passed away on a hospital bed—I was just eleven at the time.
+
+
+
+I heard it clear, like someone put their mouth next to my face, loud, almost inside my head, closed between my ears as if a voice spoke through a pair of headphones glued to my skull.
+
+
+
+It felt uncomfortably close and physically violating and sent a cold tingle in me immediately. 
+
+
+
+
+
+I kept asking them, “how’d you guys know that, who told you?” 
+
+
+
+I figured for sure, I have no idea how, but they found out somewhere.
+
+
+
+“Told us what?” They said back.
+
+
+
+They held to their word. I actually believed them. I can tell whenever they’re lying.
+
+
+
+
+
+Shobs and Mags left later that evening and she forgot to take the thing with her. It was in my basement still resting on the little table.
+
+
+
+
+
+After they left, I went and sat on the couch, my parents weren’t there, so I was alone, watching tv and texting Mags and that’s when I heard and felt, a hard thump under the living room floor. It was between the television and where I was sitting.
+
+
+
+I jumped off the couch like it was a springboard at the crashing sound of thunder clouds clashing outside my window, right after the sound of a heavy bang smashed the basement ceiling under me. And then, the lights went out.
+
+  
+Everything seemed to occur in perfect synchronicity. There was nothing random about anything that happened that night. 
+
+
+
+A strike of lightning must have blown a transformer cause I was trapped in utter darkness.
+
+As the lightning lit up my living room in a white electric light, I saw a man with a pale face,  standing with his back to me, staring over his shoulder at me.
+
+
+
+I flew out the front door. I don’t even think my feet touched the floor as I raced out the door.
+
+For the rest of the night, I sat on my veranda and waited until my parents got back, which was around midnight, tucked in a ball with my t-shirt stretched over my knees on the chair.
+
+
+
+Later on, at about 3:00 a.m., when I was asleep in my bed, I had a nightmare that woke up, but I couldn’t move. All I could do was blink. At the doorway in my room, standing there was a dark outline of a figure with facial definition.
+
+
+
+My eyes were glued to it. I wanted to scream for my mom but I couldn’t yell. I was paralyzed.
+
+
+
+Then, the shadow figure opened its mouth and let out a horrific shriek that appeared as if only I could hear. At least my parents never woke up. Once the shadow dispersed, I broke out of the lock it had me in and dashed to my parents’ room.
+
+
+
+
+
+After about an hour of trying to calm me down, my stepdad finally went to the basement and threw the board out in the trashcan at the side of our house.
+
+
+
+I never ended up falling back asleep that night. I stayed up with the lights on in the living room watching tv.
+
+
+
+Once breakfast was done, I went to use the bathroom shower downstairs, in the basement and sitting on the little table was the board.
