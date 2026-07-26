@@ -1,12 +1,8 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1uwwihp/i_found_a_cursed_comic_part_1/) / [Part 2](https://www.reddit.com/r/nosleep/s/8aZ5D1KevN) / [Part 3](https://www.reddit.com/r/nosleep/comments/1uzdzwj/i_found_a_cursed_comic_part_3/) / [Part 4](https://www.reddit.com/r/nosleep/comments/1v0c41z/i_found_a_cursed_comic_part_4/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1uwwihp/i_found_a_cursed_comic_part_1/) / [Part 2](https://www.reddit.com/r/nosleep/s/8aZ5D1KevN) / [Part 3](https://www.reddit.com/r/nosleep/comments/1uzdzwj/i_found_a_cursed_comic_part_3/) / [Part 4](https://www.reddit.com/r/nosleep/comments/1v0c41z/i_found_a_cursed_comic_part_4/) / [Part 6](https://www.reddit.com/r/nosleep/comments/1v6nr1l/i_found_a_cursed_comic_part_6/)
 
 The question is, what’s better for staying awake, coffee or Red Bull? 
 
-
-
 The trip from Los Angeles to Anacortes, Washington is twenty hours. I left LA at six pm. I was coasting on fumes already, having flown from Michigan to California that morning. That’s a four and half hour flight. Then an hour in a car to the buyer’s house. Then two hours there, although it seemed like a shorter amount of time. Then another hour driving back to the airport. How many hours does that put me at? 
-
-
 
 I’m about five hours into the drive. I’m an hour outside Sacramento, on the I-5; its eleven, and this road has been fast, straight and bumper-to-bumper. I’m glad that I spent some of my time in Chicago, because driving out of LA isn’t for the faint of heart. 
 
