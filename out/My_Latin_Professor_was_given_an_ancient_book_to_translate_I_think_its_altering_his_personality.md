@@ -130,23 +130,10 @@ I didn't know what to say. Part of me thought he finally lost it, he was gone, h
 
 "Who?"
 
-He started humming a tune that gave me the creeps. It was slightly off key, and had an ominous vibe. I'm not a musician, so I don't know the exact notes, but I'll try my best to transcribe what it sounds like. If it doesn't make sense, I'm sorry, maybe I can upload a sound clip of me humming it later or something. 
+He started humming a tune that gave me the creeps. It was slightly off key, and had an ominous vibe.  
 
-♬ ⌄  \^        ♬ \^  \^       ♬ \^  ⌄       ♬ ⌄  ⌄
-
-Hm-hm • Hm-hm • Hm-hm • hm-hm
-
-♬ \^  \^        ♬ \^  \^       ♬ \^  - 𝄐
-
-Hm-hm • Hm-hm • Hm-hm
-
-♬ ⌄  \^        ♬ \^  \^       ♬ \^  ⌄       ♬ ⌄  ⌄ 
-
-Hm-hm • Hm-hm • Hm-hm • hm-hm
-
-♬ \^  ⌄        ♬ \^  ⌄       ♬ \^  ⌄ 𝄐
-
-Hm-hm • Hm-hm • Hm-hm
+https://imgur.com/a/LNbMorL
+https://voca.ro/1nczqXcf4ffm
 
 "Who? Who Steve?"
 
@@ -172,21 +159,7 @@ He slowly turned back to the Window and began humming again.
 
 Whatever I was planning on doing, was nowhere to be found within my mind. I just wanted to leave. I wanted to go home. I wanted to be normal again. Something was different. I could feel it in the air, I could feel it in my skin. There was no normal any more. I turned and began walking back to the door. Steve's humming got louder. He opened his mouth and continued the tune with a wordless vocal, and finally he added words to that god damn tune that turned my blood to ice as I walked away. 
 
-♬ ⌄          \^           ♬ \^      \^    ♬ \^  ⌄     ♬ ⌄ ⌄ 
-
-"There's-some • thing-in • the-wat•ter-hole, 
-
-♬ \^         \^          ♬ \^    \^     ♬ \^ - 𝄐
-
-There's-some•thing-in•my-brain,
-
-♬ ⌄          \^           ♬ \^      \^    ♬ \^  ⌄    ♬ ⌄ ⌄ 
-
-There's-some • thing-in • the-wat•ter-hole, 
-
-♬ \^  ⌄   ♬ \^  ⌄        ♬ \^ ⌄ 𝄐
-
-I-think•I've-gone•in-sane. "
+https://imgur.com/a/Lr9Qzyk
 
 He kept singing the same verse over and over again as I started jogging away. It kept getting louder as my jog turned into a sprint. I could hear him practically screaming those words as I ran through the school corridors. 
 
@@ -198,12 +171,5 @@ As it turns out, Steve never returned to class. The school ended up reporting hi
 
 I can tell you right now, there's something evil in that book. I think reading it will drive people to madness. I'm pretty sure the best thing for humanity would be to just burn it along with all of Steve's translations. Yes, I think that is the right thing to do, but not before I get another look at it. A couple more pages can't hurt, right?
 
-♬ ⌄  \^        ♬ \^  \^        ♬ \^  ⌄        ♬ ⌄  ⌄   
-
-♬ \^  \^        ♬ \^  \^        ♬ \^  - 𝄐
-
-♬ ⌄  \^        ♬ \^  \^        ♬ \^  ⌄        ♬ ⌄  ⌄  
- 
-♬ \^  ⌄        ♬ \^  ⌄        ♬ \^  ⌄ 𝄐
 
  
