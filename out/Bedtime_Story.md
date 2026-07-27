@@ -1,17 +1,45 @@
-It was a Wednesday. Not a significant date by any means, just another Wednesday. That’s what I thought anyway, what I thought before everything happened. I lived in a nice two-story home near the beach in a fairly decent neighborhood, but recently there had been a string of kidnappings. Children taken right from their beds in the dead of night. I was drifting in and out on the couch downstairs after a long day of working a physically demanding job.
+The room smelled of dust, dampness, and old fear. We had boarded up the window tightly with heavy planks, but an ugly, deathly pale moonlight still forced its way through the cracks.
 
- My son had gone to bed about an hour before, and I was zoning out to the drone of the nightly news.There was a noise upstairs, a soft thump that came just above me. It sounded like my son had fallen out of bed, but the recent reports had made me nervous. I went upstairs and cut into my room, opening the gun safe and pulling out my old Smith and Wesson. I double-checked the drum and quietly drifted toward my son’s room. His door was cracked, and I could hear a woman’s voice on the other side.
+Six-year-old Timmy pressed closer to me, wrapping himself in a dirty wool blanket. In his hands, he clutched a plush teddy bear with a crude, hastily made seam where one paw used to be.
 
-Slowly, I pushed the door open to find my wife sitting in bed with my boy. She looked like she had just gotten out of the shower, her skin shone in the dim light of the moon like it was still damp and her hair hung wetly against her head like some sort of inky blanket. She clung tightly to my son as the cold air from his open window sent chills down my spine. My boy sat wide-eyed next to her, both of them fixated on a book. “I think I can, I think I can.” she whispered to him as she flipped the page with a free hand. Her eyes slowly drifted to me as more light flooded the room, she smiled softly at me and crooked a finger. “Come, you read the last page.” She cooed sweetly.
+"Mom... I can't sleep," my boy whispered, sniffing his nose. "Tell me a story. You know, like in those books we burned during the winter to stay warm. About the Gingerbread Man, or knights..."
 
-I raised the gun to the woman and drew back the hammer “I don’t know who, or what you are, but my wife died three years ago.” I stated. The room was suddenly silent as I watched my "wife" slowly close the book and stare at me. The thing pretending to be my wife shrunk back, its gaze now fixed to me. It dropped to the floor, arms and legs far too long to be human skittered backward, drifting to the windowsill where it lingered for several minutes before leaping out.
+I sighed. My face, hollow and shadowed with deep dark circles, remained motionless. I looked past my son—staring right where the pitch-black, dead darkness of the new world stretched beyond the window planks. My hand, hidden beneath the folds of the blanket, convulsively gripped a heavy, makeshift kitchen shiv.
 
- I rushed over to my son and wrapped my arms tightly around him, closing my eyes and breathing a deep sigh.“Daddy?” I heard his muffled whimper from my chest.
+The old fairy tales were dead. They taught kindness, compassion, and faith in miracles. In a world where humanity had turned into subcutaneous cattle for thirty-foot insectoids, those fairy tales were a death sentence.
 
-“Yeah, buddy?” I asked, pulling him away to look into his eyes.“It’s still watching us…” he whispered. Slowly, my gaze turned to the window. 
+"Alright, silly goose," I forced a soft, reassuring smile onto my face and stroked my boy's hair. "Listen closely. You haven't heard this one yet."
 
-It was still there, whatever it was. Its head barely poked above the bottom of the window, watching us, unblinking. Quickly, I grabbed my gun and leveled it at the thing’s forehead, but before I could pull the trigger, it had ducked away. I rushed to the window and poked my head out, and there on the ground, it stood, staring up at me. 
+I took a deep breath, trying hard to keep my voice perfectly steady.
 
-The thing had changed, it now only vaguely resembled my wife. Too long arms and legs rested idly as massive black eyes that easily consumed half of its face stare at me. The creature, the thing, whatever the hell it was, blinked, eyelids closing vertically instead of horizontally. 
+"A long, long time ago, in a very quiet kingdom, there lived the Silver Weavers. They were huge, powerful, and loved silence more than anything in the world. They spun their beautiful silver webs right between the houses and caught... foolish thoughts in them."
 
-I didn’t do anything this time, it was like my body had locked itself in fear. Several long moments later, that creature dropped back down onto all fours and scurried toward the beach.I don’t know what the hell I saw that Wednesday night, but I moved away from the coast, bought myself a nice one-story home in a landlocked state, and even though I’m pretty sure I got away from that thing I never leave my door or my windows unlocked.
+Timmy listened spellbound, his mouth slightly open.
+
+"The Weavers never hurt people," I continued, my voice flowing like sweet honey. "But they had one important rule. The Weavers couldn’t stand noise. Noise tore their delicate silver threads. And so, they made a pact with the humans..."
+
+CHRRR-SSSSS...
+
+I cut short. On the other side of the boarded-up window, a heavy, sickening scrape echoed. It sounded as if someone was deliberately dragging a massive, bony spike across the wooden siding of the house. The building trembled quietly.
+
+Timmy shuddered and was about to scream, but my palm instantly clapped over his mouth with a death grip. My other hand squeezed the hilt of the shiv until my knuckles turned white. A single tear rolled down my pale cheek, but when I spoke, my whisper remained unnaturally gentle, soothing:
+
+"Shh... Listen to the rest of the story, sweetie. The pact said: the Weavers would never, ever touch a child who knows how to play 'The Invisible Game'."
+
+Through the cracks in the boards, a long leg covered in stiff chitinous hairs slowly crept into the room like a black snake. The sharp claw at its tip scraped blindly against the floor, sensing living warmth.
+
+In the darkness outside, one by one, eight small, phosphorescent yellow eyes lit up right within the cracks. They stared straight at our mattress.
+
+"And the rules of the game are very simple," I exhaled right into my boy's ear, while the giant leg rustled right above our heads. "You have to close your eyes. Hold your breath. And become as quiet as a pebble at the bottom of a river. The first one to make even a single sound loses. And then the Weavers carry them away to their silver castles... forever."
+
+The leg froze two feet away from the blanket. The black hairs on it twitched, catching vibrations in the air.
+
+Timmy squeezed his eyes shut so hard it must have hurt. He clamped his mouth shut with his tiny hands using all his might and stopped breathing. A strange, childlike smile froze on his lips—he really wanted to win this game and make me proud.
+
+Suddenly, somewhere out on the street, just a couple of houses down, a piercing scream of primal terror ripped through the night silence. It lasted for only a second, then cut off abruptly with a wet, crunching sound.
+
+The hairy leg in our room twitched instantly, spun around, and rapidly retracted back through the crack between the boards. A fast, receding scrape of claws against the roof followed. The monster rushed toward the fresh noise.
+
+I slowly lowered the shiv. My chest heaved heavily, and cold sweat poured down my face. I leaned over to my son, who was still sitting with his eyes shut tight, not breathing, and gently removed my hand from his face.
+
+"Son..." I whispered barely audibly into his ear, a bone-chilling emptiness creeping into my voice. "Do you hear that? Someone already lost."

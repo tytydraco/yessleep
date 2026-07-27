@@ -538,3 +538,5 @@ Slate™: Stop.
 *“Now.”*
 
 [PART 2](https://www.reddit.com/r/nosleep/s/caJ1I7ysE8)
+
+[PART 3](https://www.reddit.com/r/nosleep/comments/1v7onhv/i_paid_25_a_month_to_fix_my_debt_now_i_owe/)

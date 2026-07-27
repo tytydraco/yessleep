@@ -662,3 +662,5 @@ I’m about to drift off when I feel a presence hovering over my ear.
 “Your credit score has jumped 6 points in the last month.”
 
 [PART 1](https://www.reddit.com/r/nosleep/comments/1v5wi12/i_paid_25_a_month_to_fix_my_debt_now_i_owe/)
+
+[PART 3](https://www.reddit.com/r/nosleep/comments/1v7onhv/i_paid_25_a_month_to_fix_my_debt_now_i_owe/)
