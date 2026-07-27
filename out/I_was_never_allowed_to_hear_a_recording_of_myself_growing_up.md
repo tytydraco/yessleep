@@ -4,7 +4,7 @@ It was some kind of prank video from one of those YouTube channels that film peo
 
 And I didn't expect this. Not even a little bit.
 
-When I was growing up, In speech therapy growing up, I'd seen videos of other kids with cleft palate, how it has this slight nasality and how some consonants sound softer. I'd had this picture of my voice somewhere in my head.
+When I was growing up, In speech therapy, I'd seen videos of other kids with cleft palate, how it has this slight nasality and how some consonants sound softer. I'd had this picture of my voice somewhere in my head.
 
 What emerged from the speakerphone was a voice that sounded like it belonged to a sixty-year-old man who had smoked one pack of cigarettes per day since the age of fifteen. Low, harsh, worn out by something that had absolutely nothing to do with any cleft palate. It was not mine in the least. It was not my age either. It chilled my heart even before I was aware of why.
 
@@ -94,7 +94,7 @@ I scrolled down to the comments hoping someone had mentioned the guy from the co
 
 Nobody had.
 
-Not one person asked where I had gone. Not one comment mentioned someone walking out of the shop or answering the guy behind the camera. 
+Not one person asked where I had gone. Not one comment mentioned someone walking out of the shop or answering the guy behind the camera.
 
 I just sat there and stared at the screen until the page timed out.
 
@@ -119,4 +119,3 @@ It was quiet for the longest time after I asked that question. It was such a lon
 "Don't," he eventually said. "Don't bring Her into this."
 
 He hung up before I could ask why. I sat there in the kitchen a long time after, listening to an apartment that was completely quiet. I don't know what's going on. Am I crazy? Is my voice actually like that. I don't know anymore.
-
