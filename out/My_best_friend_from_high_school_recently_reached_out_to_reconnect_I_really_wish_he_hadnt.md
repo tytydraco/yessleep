@@ -1,0 +1,199 @@
+I've never been much of a gamer, but every now and then I get swept up by a game, and it consumes all of my time. Most of my friends are gamers, but I've never been a fan of the co-op games they like to play. They like their super competitive shooters, and MOBAs, where I'm more of a friend slop type of guy. 
+
+I'll play single player games from time to time, but I'm more likely to just doomscroll Instagram or reddit while YouTube fills in the background noise. My computer collects dust for months at a time. I think I enjoyed building the damn thing more than actually using it. So I end up bed rotting most of the time staring at my phone. 
+
+Recently while doomscrolling instagram, I got a follow request from my old high-school friend Johnny. I got a pit in my stomach. I hadn't talked to him in years. I wasn't so sure I wanted to reconnect. We were the best of friends, but that time of my life was some of my lowest moments. I had no interest in digging all that back up. 
+
+I mean, what would it hurt to just follow him back. We'll probably just have a quick catching up chat, and probably go back to ignoring each other. I went ahead and approved the follow request while following him back. He sent me a message almost immediately. 
+
+“Hey dude, how's it goin?”
+
+“Yo what up? I'm good, you?”
+
+“same same, hey you still game?”
+
+“Yeah, from time to time.”
+
+“You want to join my discord group? I'm trying to put together some game nights.”
+
+Shit, I'm not so sure about this. I don't know how I feel about just jumping into discord calls with my old best friend. I mean, we're adults, I'm sure he would understand if I was unavailable most of the time due to being busy. 
+
+“Yeah sure, if it's on a day that I'm free, I can probably jump on.”
+
+“Rad, here's the link.”
+
+I reluctantly clicked the link he sent and joined his discord group. 
+
+“Alright, I'm in.”
+
+“Cool, I'll be in touch.”
+
+“Sounds good.”
+
+That wasn't too painful, but I'm sure we'll have to do the whole catching up thing if I ever do jump on a call with him. However, some time passed, and I never heard anything new. This was somewhat of a relief. 
+
+I'll be honest, I don't really use discord. I'm a member of several groups, but I'm just not active in any of them, so I just have push notifications turned off on my phone. Recently while talking to a coworker, the topic of games came up. 
+
+“You on discord?” He asked. 
+
+“Yeah, you want to connect?”
+
+“Yeah, what's your username?”
+
+He pulled out his phone and opened discord, I told him my username and he searched it up. 
+
+“There, friend request sent.”
+
+I then pulled out my phone and opened discord, when I navigated to friend requests, I saw two of them. For now I just accepted the one from my coworker. 
+
+“All done.” I said while turning off the screen and pocketing my phone. 
+
+“Sweet, I'll let you know next time I'm on and maybe we can play a match or two.”
+
+“Sounds good.”
+
+Later on I opened up discord to see who the other friend request was from. The user name was 6ftundr4u. They were from the group that Johnny invited me to. Oh what the hell, I went ahead and approved it. I also turned on push notifications just in case my coworker messaged me. About an hour later I got a message from 6ftundr4u.
+
+“Hey Ben, long time no see, it's Kate.”
+
+My stomach dropped. This was the exact thing I was afraid of when Johnny first sent me that friend request. I didn't know he kept in touch with his ex-girlfriend. I could swear I remember them having the biggest fallout after graduation. I thought they hated each other. I guess they could be reconnecting after several years. I mean, that's probably pretty healthy. 
+
+“Hey Kate, how are you?”
+
+“Oh you know, same ole’ same ole’”
+
+“Of Yeah, Mr. Foster still giving you shit for your messy handwriting?”
+
+“LOL, yep, I think he's going to fail me.”
+
+“I keep telling you, he's willing to give out extra credit.”
+
+“I've missed you.”
+
+“Yeah, it's been a long time.”
+
+“Too long.”
+
+I felt everything coming back. The mental pain, the physical anguish, the deep sadness. This was the last thing I ever wanted to happen in my life. I wish the past would just stay in the past. 
+
+“Hey, sorry to cut this short, but I need to clock into work.”
+
+“Oh of course, we'll catch up later.”
+
+“Yeah, for sure.”
+
+I dropped my phone on the floor to the side of my bed and rolled over. I cried for probably an hour. I moved on, why are they doing this to me? I have a new life, I have a sense of purpose. 
+
+The next day while I was at work, I got another message from her. 
+
+“Hey!”
+
+I left her on unread, and put my phone back in my pocket. She sent the same message a few days later, but I ignored it again. A few more days passed before she sent another.
+
+“Wow okay, I see how it is.”
+
+Shit. A wave of guilt washed over me. So I finally replied. 
+
+“I'm sorry, I've been so busy lately, and I keep forgetting to respond.”
+
+“It's okay, I get it. I won't bother you.”
+
+Fuck, I don't know what to do. She doesn't deserve this. Despite what I believed back then, she didn't do anything wrong. 
+
+“Sincerely, I'm sorry. We knew each other during a very difficult time in my life. I struggled with severe depression and really struggled day to day. You and Johnny popping back up into my life just brings it all back up to the surface. I didn't mean to hurt you. I'm just not sure I'm ready for all this.”
+
+“What do you mean by Johnny coming back into your life?”
+
+I stared at her message for several moments. I have no idea what she's asking. I had no idea how to respond. 
+
+“Well, we didn't really keep in contact after high school, you know how it is. People grow apart.” This was the best response I could think of. 
+
+“Do you mean, me coming back into your life brought memories of Johnny.”
+
+I was dumbfounded, what is she talking about?
+
+“No, a few months ago I got a follow request out of nowhere from him on Instagram.”
+
+“I don't understand. What do you mean?”
+
+I felt like she was gaslighting me. I was so confused. 
+
+“I don't know how else to say it, we connected over Instagram. We chatted a little bit before inviting me to the discord group.”
+
+“Okay fine! I get it, you don't want anything to do with me. You could have just said so, I can understand. But what you're doing right now is cruel beyond words. If you intended to make me cry, you did, I hope you're happy.”
+
+I stared at this message for way too long, because she blocked me before I had a chance to respond. 
+
+What the fuck is going on? I needed answers, I needed to message Johnny. There was one problem though, I couldn't find his Instagram profile. I mean that's not exactly unprecedented, I've had this happen before. Usually when someone's profile disappears overnight, it turns out they just deleted it. In fact it happens all the time. 
+
+Fine, I'll just message him on discord. I just don't know what his username is. We never sent each other a friend request, I just joined his group. I navigated to the group and looked around. Since I don't really use discord, I don't know all the ins and outs. Is there not a way to see all the members of a group? This is a lot harder than I thought it would be, so I just messaged the general chat. 
+
+“Hey Johnny, I don't know what your User Name is, can you send me a friend request, it's Ben.”
+
+“Who's Jonny?”
+
+“He's the guy that invited me to this group.”
+
+“I don't think there's a Johnny in this group”
+
+“No there is, like I said, he invited me to this group.”
+
+“Hey Ben, I think you're messaging the wrong group.”
+
+I know that username, it's my coworker. I don't remember joining a group with him in it. I could have sworn this was the group Johnny invited me to. 
+
+“Oh, hey Phillip, I must have gotten confused. My bad.”
+
+“All good dude.”
+
+“Weird question though, is there someone in this group with the username ‘6ftundr4u’?”
+
+“No”
+
+“No”
+
+“I don't think so.”
+
+“No”
+
+“Okay thanks, nvm.”
+
+What the hell? I'm so confused right now. Am I having the world's largest brain fart, or am I losing my mind? I spent the next couple hours searching up the username 6ftundr4u. I couldn't find anything. At some point I started wondering why I cared so much. The problem sorted itself out. I didn't want anything to do with them, and they were gone. I got my wish. I just felt a huge amount of guilt. I somehow really upset Kate, and I don't like hurting people. 
+
+After a few weeks, everything went back to normal, and I forgot about it. At least until my mom messaged me on Facebook. 
+
+“Hey, just checking in, how's everything going?”
+
+“Hey mom, everything's going well, how ‘bout you?”
+
+“Good good. I was just going through old photos, and I came across a few with you and Johnny.”
+
+Oh my god, it won't end. Even my mom won't let me keep it in the past. 
+
+“Oh yeah?”
+
+“Yeah, he was such a good kid and you guys got along so well.”
+
+I was typing out how we actually reconnected recently before she sent another message.
+
+“It's such a shame about what happened.”
+
+That's weird, I don't remember telling her about our falling out. As far as she knew, we just drifted apart. She sent another before I got a chance to respond. 
+
+“He had such a bright future ahead of him.”
+
+I stared at that message for way too long. A deep anxiety arose from within me. 
+
+“How old would he be today? 37, just a year younger than you, right?”
+
+The memory of looking down at him lying in his casket returned to me. 
+
+“Mom, I'm so sorry, I completely forgot that I picked up a shift that starts in ten minutes, I gotta go.”
+
+“Okay hun, be safe, I love you. <3”
+
+“Love you <3 <3 <3”
+
+I knew I had blocked out some memories from that time in my life, but I had no idea I blocked out something this big. How do you forget something like that?
+
+The thing about deleting a social media account, is that it's never really gone. If you change your mind, you can always have it reinstated. At this specific moment, I wish they could just stay deleted forever, because I'm looking at a message notification right now. One from an account that disappeared recently, and had just come back. 
