@@ -78,13 +78,13 @@ A milky eye full of red pulsing veins surrounding a great black hole in the midd
 
 “This one looks juicy” the thundering voice all around us said, as it unfurled an enormous pallid limb over us, blotting out the light. The limb opened into a set of segmented smaller limbs that reached down, plunging into the earth around us and wrenching my brother up into the air as he desperately writhed and squirmed as though trying to burrow himself into the dirt.
 
-I wanted to scream, but couldn’t. I could only watch as this being lifted my brother into the air, high above me, as the other voice responded.\\
+I wanted to scream, but couldn’t. I could only watch as this being lifted my brother into the air, high above me, as the other voice responded.
 
 “He’s too big, you don’t need all of him.”
 
 “You’re right” said the first voice, and he gripped my brother… and pulled.
 
-I saw my brother’s body stretch. So much further than I thought it could. And then I saw as his flesh finally gave way and rip into, guts fluids raining down on my from above.
+I saw my brother’s body stretch. So much further than I thought it could. And then I saw as his flesh finally gave way and rip in two, guts and fluids raining down on me from above.
 
 I wanted to scream, to cry, to hide.
 

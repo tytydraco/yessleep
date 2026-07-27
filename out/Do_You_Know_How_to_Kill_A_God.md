@@ -1,0 +1,179 @@
+“I pray for him every day,” she said.
+
+Her tired eyes were focused on the road ahead, eyelids perpetually draped over gray pupils.
+
+I took my eyes off the road for a second to glance at the deteriorating body in my passenger seat.
+
+“I know,” I replied.
+
+My mother was dressed in black. Her funereal veil fluttered in the tired exhales of a barely functioning air conditioner. She turned to face her window and her translucent reflection had its eyes fixed on me. She was younger in there, wrinkles and eye bags less defined; the Sower’s toll was less apparent in the glass.
+
+Endless green passed by in a hazy blur past her reflection. Dark clouds rolled along the bleak sky. I focused on the faded yellow lines that extended ahead as far as I could see.
+
+“I won’t be too far behind,” she mumbled after a few moments of silence.
+
+“I know.”
+
+“You’re next. You know that, don’t you? A vessel is still a vessel, even if it —”
+
+“Mom!” I cut her off.
+
+She had turned to me, the clouds in her eyes dissipated to let her faith shine through. It was eager and hungry. It faded with my interjection.
+
+“You’ll see,” she whispered.
+
+“We’ll meet you there.”
+
+“I know.”
+
+We said nothing for several minutes.
+
+“Here,” my mother said suddenly.
+
+I slammed on the breaks and raised my hand in apology at the driver that swerved around me. I followed my mother’s gaze as their horn faded into the distance.
+
+A solid barrier of trees stood firm to our right. A haze floated over them as my eyes lingered. They shifted gradually like a magic eye picture, coalescing into each other until a break in the wall snapped into existence. She turned to me after I didn’t move. I closed my slack jaw, put on the turn signal, and turned into the gravel path that materialized in front of my eyes.
+
+The instructions that followed were low and sparse. I turned the sputtering air conditioning off to hear them.
+
+“Right”, she said at an intersection.
+
+I wondered if the driver that passed us saw the gap appear too. I could never ask anyone if these little miracles were observable though.
+
+“Straight,” a mile later.
+
+My family was all damned one way or another and I refused to bring anyone with us.
+
+“Here,” she commanded.
+
+I stepped on the breaks again though less suddenly this time.
+
+“We walk from here.” She was already out of the car and following a dirt path.
+
+Untrodden, packed dirt crunched under each step. The urn was tucked tightly under my right arm. My father’s ashes shifted inside it as I followed my mother.
+
+ 
+
+They had loved me in their own way. She was always stoic, as sparse with words as she was with her affection. But it was present in her voice when she told me about my father. I felt it in the warmth of her embrace as I cried.
+
+My father’s love was more overt, though likely no less duplicitous. His was a more active affection, displayed by the treats he snuck me when my mother wasn’t looking, in the arc of a frisbee throw on the occasional Saturday afternoon.
+
+It wasn’t necessarily forced, but it was difficult to see it as sincere. It had always been a performance. One that I only recently realized wasn’t meant for me.
+
+ 
+
+The trail became less noticeable as we continued. We stepped over fallen branches and scattered leaves and needles, dappled beams of light filtering through the verdant canopy overhead. The forest was teeming with life but its voice was lost in the stirring of the pines surrounding us. Chirps and chitters were drowned by the delicate fluttering of dying growth. The air was thick, solemn, and grew thicker with every step. Energy crackled through the hallowed ground with a quiet intensity. Its comfort was suffocating.
+
+Our destination lay ahead, visible to me before my mother said anything. Just 10 feet ahead, a ring of saplings snuck out of the dirt, as if hiding from the monument that lay in the center.
+
+My mother’s grim expression loosened as we absorbed the meaning of the new life.
+
+The Sower’s weakening influence was evident in the encroaching life, undoubtedly the result of a fallen acolyte.
+
+The monument was a simple rock, about two feet wide at its base and rising three feet from the ground. Inscriptions of an unspoken language were carved on the face. It carried no syllables and if they were somehow deciphered, the reader would only speak a discordant collection of sounds.
+
+There is power in words, but only if the words are known. Only my mother and I could give meaning to these words, understand its power. Only those who know of the Sower can speak Its name.
+
+We stood before the monument, our mixed emotions comprising a deep silence. Reverence and uneasiness mingled, each unaware of the other. I passed the urn to her extended arms.
+
+She spoke the Sower’s name, Its true name, and scattered my father’s ashes. The forest shuddered around us. Trunks crackled, vitality leeching from their bark. The new growth drooped, as if bowing to the presence my mother had summoned. It comes when you call.
+
+I tensed as the spirit in me rippled, its fountainhead momentarily breaching the surface of our reality.
+
+ 
+
+I had felt it once before in my mother’s womb. I was unconscious and devoid when I received the bounty. My parents spoke Its name in unison and I became. The blessing had flooded the vessel my mother had been cultivating for seven months, driving out the blossoming soul. It was a blasphemy my mother could barely stand. I hadn’t gained full consciousness, not yet. But the seed had been planted and I have been condemned by my parents’ gift ever since. My gray eyes are evidence of its presence. My fate is the covenant.
+
+My father had lived long enough, gathered enough experience and memories. He was fattened enough to be nourishment for the being that had sent him to this plane. The Sower was the original creator of life but most of creation has forgotten. It grew, endlessly and ravenously, unchecked and unclaimed. Now, billions of counterfeit souls drift and scatter in the void like dandelion seeds.
+
+“It’s fair,” my mother would always remind me.
+
+“It’s only right that we return what we were given.”
+
+We all live a borrowed life. Some of us are unfortunate enough to know the lender. Only those who do can be reaped. After all, a pact can only be formed if every party knows the terms.
+
+My father had been reaped, his bounty returned. The cancer in his lungs was too hungry. Despite the pain, he died with a smile. He was happy to be claimed. To give back what was given with interest.
+
+That’s all my family was, all I am. I am a vessel for joy, sadness, love, and hate.
+
+Every moment of my father’s life, every experience, was wine in the cup, sunlight for the leaves. His tree had matured and fell to the hungry ground. That was when the Sower ate. It eats until there’s nothing left.
+
+It’s hungry, you see.
+
+ 
+
+That’s why it claimed my dad only forty years after he received the bounty. It’s why my mom had to take so many breaks on our walk back to my car. It’s why she died the week after I dropped her back at the nursing home.
+
+I would have been with her if she had let me. But, to the end, she insisted I enjoy life without constraint. She wanted her god to be well fed.
+
+She died with a smile too, according to her caretakers. I had to take their word for it. She demanded they not tell me about her death until she was cremated, which she had demanded be done the moment she died. I suppose I appreciate their dedication. I could tell her proselytizing was wearing thin on the caretakers. It was evident in the relief they tried to hide as I carried her ashes out of the building. She had always complained that no one would listen to her, how no one wanted to return to the Sower. A crueler god may have punished her for her failure. The Sower was too hungry for that though. It craved the nutrients my mother had stockpiled. Food is food and It always reaps what it sows.
+
+An inexplicable sensation flooded my senses on my way out of the building. It compelled me to my car and, two hours later, a place similar to the one I visited the week before.
+
+This time, the monument was only about a foot wide at its base and just as tall.
+
+The bulwark of entropy was falling, pushed back by the unthinking life my mother would have called ungrateful. Only the immediate area around the monument had been consumed. Weeds peppered the radius of its waning influence.
+
+They died when I spoke Its name. My god’s power grew with my expression of faith.
+
+You may be wondering why I would feed it despite my resentment.
+
+If I had scattered my mother’s ashes anywhere else, her soul would be lost. Hell if I know where. But it was my duty, as the only flower left in this decrepit garden, to reunite her with her creator. More than anything, she wanted to give back what was given.
+
+To be honest, despite the life she condemned me to, I still love her.
+
+I drove home after I scattered my mother’s ashes. I felt the aneurysm form as I pulled into my driveway.
+
+ 
+
+That brings me to the reason I’m writing this.
+
+ 
+
+I won’t spread Its name. No one else should suffer with me. But my stepdaughter’s birthday is next week and I can feel the artery weakening. I know the Sower will call me so I can die in the presence of one of Its monuments.
+
+My hope is the attention from this letter will satiate it long enough for me to give Stephanie her birthday present.
+
+She’s only thirteen but I can already tell she’ll be a writer one day. The way she talks about what happened at school, the way she describes her dreams. There’s an artistry to it, an urge to share that’s too big to stay confined to our little family. She’s such a creative spirit and I love her and her mother more than anything in the world.
+
+I got her a fountain pen and a bottle of ink. A really nice one. Not so expensive it has to be gaudy to justify its price, just with enough effort put into it that she’ll be able to keep it for the rest of her life.
+
+I’m not an idiot, I know she won’t write the old-fashioned way forever, if at all. But I want her to have a memento of me and the faith I’ve always had in her for as long as she needs it.
+
+The note’s already written. It’s longer than this one, if you can believe it. There’s no mention of the Sower though. They’ve never even heard of it and I hope It’ll be long gone by the time they can even find this post.
+
+ 
+
+Do you know how to kill a god?
+
+ 
+
+It’s almost impossible, akin to carving a tunnel through Everest with a plastic spoon. But if you don’t spread its word, if you don’t let others know it exists, it’ll die with its last believer. Hunger will erode it until not even a speck remains.
+
+There are no apostles, no gospel, and no hymns. This is the only testament and my god will be starved by the absence of a flock soon after it’s read.
+
+My body will be decaying over a pebble and become food for the vegetation that will one day grow under indecipherable markings.
+
+My spirit will be with its creator on the blighted Plane It calls home. My soul will manifest on mounds of sand, among countless pillars of salt.
+
+I’ll find the ones that used to be my parents. They stand next to each other, arms raised exuberantly, their crumbling visages frozen in expressions of a jubilation indistinguishable from agony. Then a warmth will creep upon my neck and I’ll turn to see a glowing star rising over the horizon. I’ll raise my arms despite myself. My seed will clamber out of the soil it grew in. I’ll feel the marks of its desperation as it seeps out into the ground and toward its creator. A relief like no other will wash over me as I return home.
+
+My memories of Stephanie and Maya will leech from me as my bare feet fuse to the ground. My life, my grief, my pride, everything I was and will ever be will become food for my dying god. I will be Its last meal.
+
+I don’t think it’ll take very long for It to starve. All I know is that It will.
+
+Here, in the material plane, only memories of me will be left. These will fade with time, illness, death. The memory of those that carried mine will fade away too.
+
+So it’ll go for eons and eons, uncountable time after I’m gone.
+
+Who knows what happens after that. Who cares.
+
+That’s not my mystery to solve.
+
+Only the monuments will remain and those too will fade with time. Their barricade will fall and life will grow where the force that once consumed it is lost to time and ignorance.
+
+The monuments will split with growth and the runic memories will shatter and erode somewhere within pine and oak.
+
+I pray you never stumble across one.
+
+I pray you never know Its name.
