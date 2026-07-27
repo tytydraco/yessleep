@@ -1,0 +1,121 @@
+Someone made an exact replica of my home while I was sleeping. I can’t prove it, but I just know it.
+
+I can feel it. Or rather, sense it? I guess?
+
+It’s too dark to say for sure, but everything looks identical, feels identical, and even smells identical to how it always has, but there’s no denying that something isn’t right.
+
+If I had to put it to words I’d say that everything around me feels somehow… looser, and yet more constricted at the same time.
+
+Like if I were to go to far in one direction I wouldn’t reach the open air but just an incomprehensible wall.
+
+“You alright bro?” my brother asked over a mouthful of food.
+
+Wait, my brother? How did he get here? Was he staying with me? The last thing I remember was going to sleep alone, I hadn’t seen my brother in days. Was I dreaming?
+
+“What are you doing here?” I asked, trying to put the pieces together in my mind.
+
+“Um, eating. You want some?” he replied, his mouth full of yet another bite. My brother seemingly never stopped eating. On the other hand, I was the opposite of a nervous eater, getting nauseous at the slightest sign of stress.
+
+And I was stressed a lot.
+
+“Does something seem weird to you?” I asked slowly.
+
+He stopped.
+
+“Weird how?”
+
+“Like…”
+
+I struggled against the paranoia that was desperately attempting to wrestle free of my mind and burst out into the world in all of its insane-sounding glory. I had to put these words together in a way that would get the point across without making him immediately dismiss me.
+
+“...like something just feels off here.”
+
+My brother paused for a while. Maybe only a second but it felt much, much longer. Almost judgmentally so.
+
+“I don’t think so…” he trailed off, sliding slightly further away from me into the darkness.
+
+Then the ground moved.
+
+It felt like everything around me was suddenly lifted into the air in a soaring upward motion. I could feel it deep in my stomach, a horrible, disorienting sensation like I’d never felt before.
+
+And yet, my home, and everything in it, seemed perfectly still.
+
+“Did you feel that?” I nearly screamed at my brother.
+
+“...yeah that was weird,” he said over another mouthful.
+
+He spoke lazily and seemed nonplussed, but I could sense a growing tone of uneasiness.
+
+I was hit with a sudden instinctual urge. We had to get out of here. It didn’t matter where, we just had to get somewhere safe. And here wasn’t safe.
+
+As moved as quickly as I could to try to get outside. Just to prove to myself that it was still there. My brother close behind, trying to keep up with my panicked fleeing. I burst outside only to find not the cool crisp night, not the early morning sun, not trees, or grass, or insects, or the sound of birds.
+
+Instead, only a slick white solid surface. It stretched as far as I could see around an above me, and even in the darkness I could tell it was an even, smooth shade of white.
+
+Whatever it was, it was unnatural, and immense. I peered around in all directions, but it surrounded us on all sides like a giant circular wall, its ceiling close above us, stifling us, suffocating us.
+
+I hurled myself against it in a panic. Battering my body against it in the hopes that by some miracle I could break through and get out of this nightmare.
+
+Soon my brother started as well.
+
+I don’t know how long we threw ourselves at the surface, bruising ourselves and each other in our fruitless attempt to escape from this… thing surrounding my home.
+
+But it was impenetrable. Unmoving.
+
+I grew tired and slumped back onto the cold earth. My brother did the same, and together we lay there, motionless and defeated.
+
+Then we heard them. Distant disembodied voices from above us, or below us, or all around us. We could *feel* them as much as we could hear them, their slow, rumbling voices traveling through the surfaces around us, vibrating the ground around us.
+
+“This is the place.”
+
+“Well then what are we waiting for?”
+
+With that, the sky changed.
+
+Or rather, the smooth, white thing blocking the sky suddenly vanished with a loud, rippling CRAALLACCK sound, replaced by an enormous eye.
+
+A milky eye full of red pulsing veins surrounding a great black hole in the middle, made of complete and utter darkness. It peered down at us. My brother and I simply lay motionless, paralyzed by fear and subconsciously hoping to go unnoticed.
+
+“This one looks juicy” the thundering voice all around us said, as it unfurled an enormous pallid limb over us, blotting out the light. The limb opened into a set of segmented smaller limbs that reached down, plunging into the earth around us and wrenching my brother up into the air as he desperately writhed and squirmed as though trying to burrow himself into the dirt.
+
+I wanted to scream, but couldn’t. I could only watch as this being lifted my brother into the air, high above me, as the other voice responded.\\
+
+“He’s too big, you don’t need all of him.”
+
+“You’re right” said the first voice, and he gripped my brother… and pulled.
+
+I saw my brother’s body stretch. So much further than I thought it could. And then I saw as his flesh finally gave way and rip into, guts fluids raining down on my from above.
+
+I wanted to scream, to cry, to hide.
+
+Then a felt a wet THWOP next to me. I didn’t have to look. I didn’t want to. It knew the beast had thrown the unneeded half of my brother right next to where I lay. Without thought I climbed the wall in front of me. With no more ceiling to keep me contained I thought if I could just peek over the edge, maybe I could escape, or at least see where I was.
+
+The wall was too slick to climb, but by leaning up against it atop a mount of loose earth created by that giant creature’s clawing grasp, I was able to peer above the edge.
+
+We were above an incomprehensibly vast black sea. Thick and oily, silent and dark. Slow smooth inky ripples spread in every direction.
+
+An abyss of nothingness.
+
+But there was worse yet to come, for in the nothingness I could sense movement. The movement of massive monstrous creatures moving through that endless sea, just far enough below the surface that they remained inscrutable and unknown.
+
+I was shaken from my horrified reverie by one of the voices.
+
+“Let’s see if they like this one,” the creature said. I watched in horror and anger as he hoisted my brother’s still twitching body above a giant curved spear, and pierced him through with it.
+
+But once wasn’t enough.
+
+They grabbed his trembling, writhing form, doubling it over unnaturally and shoving the sharpened point back through his flesh again and again, until he was nothing more than an unrecognizable pulsing mass of agony and death.
+
+Then they threw him into the sea.
+
+I watched as he sank below the surface, knowing that would be the last I ever saw of him. Almost immediately the sea churned, as though a horde under its surface were moving in chaotic synchronization.
+
+“They’re hungry today,” one of the voices rumbled unfeelingly.
+
+I slunk back below the wall as I heard the sound the sound of the sea’s surface breaking, and a chorus of roars come from the beasts outside.
+
+Whatever awful outcome they had hoped to achieve with my brother’s body, clearly it had worked.
+
+As I lay here in the darkness with the rest of his remains, I know that it is only a matter of time before they decide that I too look juicy enough for their purposes.
+
+Until I too am mutilated and thrown into the sea

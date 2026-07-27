@@ -1,0 +1,431 @@
+Getting divorced at forty-five was never something I would have expected. I’d been with my husband Josh since we were Sophomores in college. When we met in our finite math class for the first time it was as close to love at first sight that I could have ever imagined.
+
+The affair had been something that I expected even less. I hadn’t even discovered it on my own. I was mindlessly oblivious.
+
+He sat me down one evening and broke the news to me while I had scrolled through Netflix. My first thought was that it was some kind of terrible joke. But he was dead serious. I still remember the look he gave me as he told me. The same look a parent probably gives their child when they tell them that the trip to Disney has been cancelled.
+
+“I don’t need you to understand this Rachel, but I do need you to accept it,” He patted my knee as he spoke, as if that was supposed to comfort me.
+
+When I finally broke down, he had the audacity to look slightly annoyed, as if I was to take the dissolution of our twenty-year marriage and twenty-five-year partnership with a stiff upper lip.
+
+“Who? Who is she? Why did you do this to me,” I screamed at him between my sobs.
+
+“It’s Jen from my job. It’s been going on for about a year. We just needed to tell you because she and I are expecting a baby, and we’ve decided to keep it,” he said with all the inflection of someone talking about the weather.
+
+I slapped him then, and then I vomited, before going back to crying. The worst part was that he didn’t even really react when I slapped him. It was like he was expecting it. I had always wanted to have children, but my husband had always been adamant that he never wanted them; so, I had given up that dream for him. But now he was having a baby with a random woman? It was a knife stabbing into my heart.
+
+He already had a bag packed and ready to go. On his way out, he gave me one last parting shot.
+
+“I’m sorry Rachel. But this wasn’t planned. Sometimes you just fall out of love,” he said as he closed the door on our home.
+
+I wish I could say that the next few months were a blur, or that I was strong and dusted myself off and moved on with my head held high. But I didn’t do any of those things. The days were like weeks and the months like years. I was a complete wreck.
+
+Not two weeks after the divorce he married Jen at a courthouse ceremony. They posted the pictures online for all to see. He hadn’t bothered to block me on any social media. She looked radiant in a pale blue dress with her stomach swollen and pregnant. And Josh looked handsome in jeans and a white button down.
+
+I spent the next few weeks after that in a haze of various states of drunkenness. I had lost weight. I was pale. I looked like I had aged a decade overnight.
+
+Surprisingly the one thing that was going well in my life was my job. I work in IT and I’ve been fully remote since the pandemic hit in 2020. My job was something I could focus on. Something that would distract me. My boss encouraged me to take some time off, but I refused. If I was left alone with my own thoughts, I was terrified about what I would do. At least I had the sense to limit my alcohol consumption to after my work hours.
+
+I had gotten the house in the divorce. At first, I was happy with that. But this place was haunted with the memories of what my life had been.
+
+Three months after the divorce I woke up with the mind to sell the place and move somewhere else. Somewhere far away, somewhere warm where I would be forced to make a fresh start. I had the added benefit of a remote job, so no matter where I went my job would come with me. 
+
+I decided on Florida for several reasons. My best friend had lived in the State for several decades and I had always enjoyed my visits with her. So, I wouldn’t be completely alone in a new place, secondly was that I have always desperately hated the cold winters of Minnesota. I would tease my ex about packing us up and moving to the desert or Hawaii or some other warm location. He would roll his eyes and shoot the idea down; he hated the extreme heat in the same way I hated the cold.
+
+It was easier than I expected to part with most of my possessions. I contacted an agency that handled estate sales and I sold everything that couldn’t fit inside my car. 
+
+When I hit the road driving out of Minnesota forever it was with a feeling very close to happiness. It had struck me that I had never done anything on my own before. I had never taken a vacation alone, never lived alone; I had always lived with my family, a roommate or my ex. It felt liberating in a way. I was my own woman now, whether I liked it or not.
+
+Florida was beautiful. And hot. And crowded. But I loved it. I had found a small home to rent that would fit all my needs. I honestly didn't need much.
+
+My friend Danielle was waiting for me at her house when I arrived. Margaritas at the ready and pitcher filled to the brim to ensure our drinking didn’t have to end until we were good and ready.
+
+We talked over margaritas and as the sun started to set, we ordered some burritos and then cake from another local shop in town. The door dash bill was paralyzingly large but worth it.
+
+Danielle’s’ son Reese came out of his room briefly to raid our stash of tacos and cake before retreating back to his room. He did give me a sincere side hug which I appreciated and asked his mom if he could have a sip of margarita.
+
+She laughed, “Honey, when you’re at college in a few months, you’ll be getting all the margaritas you can handle. Until then, you know there’s no drinking under my roof until you’re the legal age.”
+
+“It’s good to see you both. You both look like you’re doing well,” I said as Reese closed his door.
+
+Danielle flashed me a smile. “Honestly, better than I could have hoped. All in all I think I'm very lucky," she said softly.
+
+Danielle let me crash at her place that night. Partially because I had no bed yet at my new place but mostly because I had far too many margaritas to safely drive.
+
+The next morning my friend made some biscuits and gravy which we all ate with enthusiasm.
+
+“Rachel, I was thinking,” Danielle said between bites of breakfast.
+
+“That’s dangerous,” I said back at her.
+
+She rolled her eyes. “I was thinking, that after we drop off your stuff at your new place that we should go do some shopping. You’ll need a few things to fill that house.”
+
+Florida, it turns out, is filled with shops. Many of them had a tropical or beach theme that I loved. I wanted to fill my new place with dried starfish and paintings of oceans and fish.
+
+Danielle wrinkled her nose at my interior design choices.
+
+“This stuff is so generic! Don’t you want something with a little more character?” She huffed as she glanced over the shelves full of plastic dolphins, whales, and various sea life.
+
+I picked up some figurines and set them back down. Even though I appreciated the kitschy figurines I found myself agreeing with her. 
+
+We gave up on the shop and left, in search of lunch before we continued our shopping spree.
+
+As we sat down for our meal, I scanned our surroundings seeing there were plenty of shops to choose from. We both ordered our meals and Danielle bit into her chicken wrap as I tucked into my salad.
+
+“So, where to now? Or do you want to call it a day?” She asked between bites of her food.
+
+I shrugged, pointing to an older antique shop that sat across from the café where we were having our meal.
+
+“How about that place? It looks…sophisticated,” I giggled.
+
+It was Danielle’s turn to shrug.
+
+“Sure, but I can already tell you that thing is filled with dust and cobwebs and musty old books,” she stated.
+
+And it turns out she was right. When we entered the shop, I almost walked right back out again. There was a strong musty smell that reminded me of a terrible mixture of old lady smell and old book smell, baked in the sun and then shoved into a dusty attic.
+
+Beside me my friend gagged and reflexively covered her nose.
+
+“It’s got character,” I giggled as I ventured further into the store.
+
+Danielle gave me a scathing look as she followed me, still reflexively covering her nose.
+
+“Welcome!” A small voice squeaked from somewhere behind me and to my left.
+
+We both jumped and glanced back at the front entrance, just now noticing an old woman seated behind an even older and ornate wooden writing desk. She sat there primly, her back rigid against the chair as if she were a student in a classroom and not an employee.
+
+Danielle inched closer to me and whispered into my ear.
+
+“At least we know where the old lady smell is coming from,” she whispered.
+
+I stifled a giggle and turned back to her.
+
+“That’s so rude! We’re going to be that old one day.” I hissed back.
+
+Danielle wrinkled her nose at me, “When I’m that old, I’ll already have been dead for ten years!” She snapped back at me.
+
+“Welcome!” She squeaked again, her voice oddly high pitched. “I am the proprietress of this shop, is there anything in particular that brings you ladies in today?”
+
+I shook my head, “No ma’am, we were just looking. Your shop is beautiful,” I stammered. They were not the real words I would use to describe this place, but I didn’t want to be rude.
+
+She smiled wider. “Thank you so much dear, if there’s anything I can help you with, please don’t hesitate to ask. I’ll be right here,”
+
+“Let’s at least check the place out,” I shrugged, going to deeper in the labyrinthine store.
+
+The deeper we ventured into the store the more I regretted coming in. The feeling of the store was unwelcoming, coupled with the smell and dust it was becoming unbearable.
+
+We stopped briefly to look at a cabinet of jewelry and other baubles that caught our eye. In all the dust it was the only thing that looked like it had seen any care. The glass was polished and the trinkets in the case glimmered as brightly as they could.
+
+Danielle was sizing up a gold bracelet that looked like a coiled snake. It looked heavy and it shone with the luster of real gold.
+
+“I’m gonna ask her about the bracelet. I think she has to unlock this case,” she wheezed. The dust was really affecting her, and she kept sneezing into the crook of her arm.
+
+I nodded and Danielle walked off in search of the old woman. I was looking at the case though nothing was really standing out to me, until I saw a small glass jar sitting off to the side.
+
+It was a light ocean blue, filled with something that I couldn’t identify. It was perfectly round and the size of a clenched fist. It had no openings or seams, so I was not sure how the contents of the jar had been put inside. It didn’t look particularly expensive. Why was it on display with the gold and other jewelry?
+
+“Have you both found anything that you like my dear,” a tiny voice squeaked from behind me.
+
+I jumped involuntarily and turned, still startled and embarrassed.
+
+The old woman was less than a foot from me, a smile stamped on her face and her arms clasped rigidly in front of her.
+
+“Uh yeah,” I stammered, unsettled though I wasn’t sure why.
+
+I pointed to the case, showing her the gold bracelet that Danielle had wanted to look at. And I pointed to the small glass jar.
+
+“Can I look at that little jar please?” I asked.
+
+Danielle suddenly appeared on my right-hand side causing me to jump again.
+
+“Hey, you found her! She wasn’t at the front of the store when I went looking,” she glanced at the old woman as she spoke.
+
+“Forgive me dear,” the old lady slightly bowed her head as if in apology,” I’m known to wonder around sometimes.”
+
+The woman produced an old antique looking key from her and opened the case, reaching in for the items we requested and setting them down on the counter for us.
+
+Danielle snatched up the bracelet and tried it on, twisting her arm around as she admired the bangle.
+
+“It’s heavier than it looks, and it’s older too,” she said as she held up her wrist to the light to admire the jewelry.
+
+I examined the glass ball and held it up to the light. Even though the glass was a light blue it was still hard to completely make out what was inside it. I could barely make out two stones, and shards of something that looked to be either bones or bits of wood.
+
+“They’re bones my dear. And two small rubies.” The old woman spoke, almost as if she was reading my mind.
+
+“What kind of bones?” I inquired, suddenly intrigued about the little jars origin.
+
+The old woman smiled wide, “They’re mermaid bones. It’s how they honor their dead you see. A bit of bone, a tooth perhaps, and rubies for the eyes. They’re red, like their eyes in life. Red like their hearts,” She nodded as she spoke, as if she was discussing the weather and not the remains of a mythological creature.
+
+“Uh-huh, then how did you end up with it?” I asked lightly, trying to let the sarcasm creep into my voice.
+
+“The jars are in their underground catacombs. Decades ago, a man found one of them, and took the jars for himself. He sold me that one you see in your hand,” she pointed at the jar.
+
+“That’s…really something,” I struggled to find the right words. Danielle and I exchanged a glance. We didn’t have to speak to see what we were thinking. Yes, this old lady was clearly crazy.
+
+“Mermaid bones are special you see. Mermaids don’t procreate like people do. Or even animals. You have to possess a part of their body, and then you become one. That’s why mermaids bury their dead in underground catacombs. Can you imagine what would happen if mermaid bodies washed up on shore? Absolute Chaos,” she said matter-of-factly.
+
+“Wow. That makes them sound more like vampires, doesn’t it? And it seems like it would be especially hard for them to make new mermaids,” I said with a forced and polite smile on my face.
+
+“Perhaps. But not really. Mermaids rarely use their blood to recruit to their ranks. And they’re rather selective about who they bring into their families,” the lady said with a nod.
+
+“You know I always loved mermaids when I was a kid. My mom had my whole room decorated with mermaid stuff. It would be appropriate if I ended up with some Mermaid bones, wouldn’t it?” I said, the bit of nostalgia hitting me.
+
+The old lady raised an eyebrow then smiled at me, like I had imparted some important piece of information.
+
+“I really like the bracelet, how much for it? Is it from a mermaid too?” Danielle didn’t hide the sarcasm from her voice.
+
+“No dear, mermaids don’t wear gold. That one is Egyptian I think,” her brow furrowed as if she was struggling to remember.
+
+“But that bracelet can be yours for 200 dollars. It’s real gold. It’s a good deal,” She almost pleaded. Maybe it had been a while since she had made a sale.
+
+Danielle made a move to remove the bracelet, but I stopped her.
+
+“I’ll pay for the bracelet, and for this,” I said holding up the jar.
+
+“You don’t have to do that,” Danielle protested but I shushed her.
+
+“It’s my treat. Plus, it’s real Egyptian gold,” I winked at her. I didn’t believe the Egyptian part, but it did seem to be real gold.
+
+“Oh wonderful! It will be 400 total for everything,” She seemed genuinely thrilled to make a sale.
+
+Mentally I kicked myself. Was I really going to pay 200 dollars for a jar that was definitely not filled with the bones of a mythological creature? I guess I was, I do hate disappointing people.
+
+I produced the cash from my purse and handed it over. She counted the cash and smiled.
+
+“Do you need bags for your purchases dear,” She smiled happily as she pocketed the cash.
+
+“No thanks, “I said putting the jar into my purse, “I think we can just take them as is.”
+
+We hurried out of the store and into the sunlight, and we both started coughing. The dust in that place had been so bad I was sure my allergies were going to make me pay for it later. We blinked in the sunlight as if we had just come out of a cave.
+
+“What a weird little store. Let’s never go back there,” Danielle giggled.
+
+She held up her wrist in the sunlight and admired the bracelet. It was pretty, even if it was not my style. It shined even brighter in the natural light.
+
+“I think you got a bargain on this bracelet. If it’s all real gold, then it’s got to be worth more than 200 dollars.” She said.
+
+I shrugged. “Even if it’s not it’s still a nice gift. Thanks for doing all this with me. And for just being with me,” I teared up as I spoke. I was feeling suddenly emotional and I wasn’t sure why.
+
+Danielle hugged me and patted my back.
+
+“It’s okay. This is all hard. It’s never easy to start over like this. It’s not what either of us would have wanted.” She squeezed me again before letting me go.
+
+We spent the rest of the day shopping. I managed to find some nice decorative things for my new home, and I treated us to dinner that night as well. We were both still coughing from being in the shop earlier. When I sniffed my clothes, I could still smell it lingering on me like a miasma. It was starting to make me a little ill. I had no idea how that old woman could work in that place day after day without a gas mask.
+
+I was able to spend that night at my new home. The furniture had been delivered, and I was exhausted from the day.
+
+When I walked through the front door, I had this terrible urge to walk back out again. I stood and stared at the place that would be my new home. This tiny home so far from my old life in Minnesota, from my ex, and everything that had happened. I felt tears form in my eyes. It still seemed surreal, like I had accidentally walked into someone else’s life. Maybe if I woke up in the morning everything would be back to the way it was. My husband would be beside me and none of this would have been real.
+
+But it was real. And standing in the doorway wasn’t going to help me. I didn’t have the energy to get the bed ready, so I opted to sleep on the couch tonight. It was large and overstuffed and I would sleep just fine. I showered though. I felt like a lizard shedding its skin when I stepped out and toweled myself off. The smell of that old shop and the sweat and dirt of the day was finally gone.
+
+I stumbled to the couch and flopped down. I almost felt drunk again though I hadn’t had any alcohol that day. Fumbling for my phone I made sure that my alarm was set for the morning, and I laid it down next to my purse; noticing the strange jar I purchased that day I picked it up to examine it again. It the evening light the blue jar had an almost greenish cast to it. I shook it. Hearing the contents clink against the glass was oddly soothing. On closer inspection the tiny shards inside did look like bones. And the rocks did look like real rubies. They were the size of my thumb nails and for a second I felt like they were staring back at me.
+
+Shaking my head, I set the jar back into my purse with a shudder. The late night was making me think weird thoughts.
+
+That night I dreamed of the ocean.
+
+In the dream I was surrounded by the weight of the water pressing in from all sides as my head bobbed up and down along with the waves. My eyes were the only thing above the water, but I was not concerned with breathing. In fact, I was breathing just fine. It was night yet I could see just fine. The salt water splashed my face, but the salt did not sting. Below the surface my body felt powerful. Floating motionless in the water was nothing for me. I felt invincible. Hours passed, or was it minutes? I couldn’t tell and I didn’t care. In the East the sun was rising, and I lifted my face fully out of the water as the first light of day reached me. I felt a sense of peace and contentment that I had never felt before.
+
+My alarm rang.
+
+I sat up, sputtering and thrashing my arms, trying to tread water and fell off the couch onto the hard wood floor. I lay there stunned for a full minute, letting the alarm sound and trying to make sense of where I was.
+
+There was no ocean. I had just had some kind of weirdly vivid dream. I let out a groan as I stretched to the phone and turned off the alarm. I had set the thing for two hours before I needed to sign on for work. I was usually an early riser but today I felt so stiff and sore. It wasn’t like I had exercised yesterday; all we had done was walk around and go shopping. But my body felt like it had run a marathon.
+
+Getting myself moving was like trying to jump start a rusty piece of machinery. I groaned and sputtered and thought that I must be getting old.
+
+Hot coffee helped immensely and I felt my body loosening. I listened to music on Spotify as I busied myself with breakfast. I felt like waffles this morning so that’s what I made. In the light of day, I examined my new home with fresh eyes. This would be different than my old life, but that didn’t mean that it wouldn’t be good.
+
+Work was refreshing. It was an anchor of normalcy in my new world. In the work chat my co-workers asked how the move was, asked to see my new place, and a whole litany of questions I was happy to answer.
+
+When the workday ended, I spent the rest of the day and evening getting my new place set up and ready. There were some benefits to having such a small house. It was far easier to get everything in order than I would have thought. When the bed was made, I opted to order a pizza and watch a movie in bed on my laptop. Tomorrow I will have to do some grocery shopping. I couldn’t live on fast food forever without blowing through my savings.
+
+As I sat eating my veggie lover’s pizza and watching cheesy horror movies I felt a surge of pride in my new room. It struck me that I had never had the chance to decorate my bedroom the way I wanted to before this. The only time I had decorated the way I wanted was when I was kid and mermaids adorned my old room. As a teen in college, I shared a dorm room with another girl. And when I started dating my ex we had to come to a compromise on a lot of decorating.
+
+My new room is a lovely light blue. My favorite color. And the bed spread and furniture were light and airy. I finally had a room the way I wanted it, and it only took till my mid 40’s to get it.
+
+I had complete freedom. It was overwhelming, but I knew with time I’d adapt to it just like I had everything else. I might not be that young anymore, but I surely had decades of life left, plenty of time for another adventure.
+
+I settled down for the night. I set the laptop next to me on the bed, intending to fall asleep while watching a movie. I always felt comforted when I fell asleep watching something. That’s when I remembered the jar I had tucked away in my purse, I rummaged through it till I found it and held it up to the light again.
+
+It felt heavy and cool to the touch, and I couldn’t shake the feeling that it had been partly responsible for my weird dreams the other night. But more likely it was the stress of the move and living somewhere new. My brain was processing a lot, and it needed to sort itself out somehow.
+
+I set it on my bedside table. I was feeling buyers’ remorse, and I thought briefly about returning it. But the old lady who sold it to me seemed so happy to have made that sale. Maybe I could sell it on eBay instead.
+
+I fell asleep to an old movie, feeling something close to contentment. And I had those dreams again. This time I was under the ocean. I could feel the weight and cold of the water all around me, though I was not afraid. I wasn’t even uncomfortable. I felt like I was going home. Even though there was no discernible light in these depts I had no trouble seeing where I was going, because I was using senses beyond sight.
+
+There was a slight tremor in my chest, and I let out a low rumble like a hum. Something I could feel rather than hear. In the distance I heard an answering rumble. A stab of excitement raced through me as I raced to the source of the answering sound. I let out another low rumble and more answered. The low sounds warm and welcoming to me. It felt like family.
+
+The next morning, I woke up and felt like I had taken a beating. My eyes were heavy and gummy. My throat felt tight and raw and hot, like I had been drinking blood.
+
+My alarm was going off, and I slapped at it as I willed myself back to reality. I always set my alarm early, so I had time before work, but I was seriously thinking of calling in sick. This felt like the beginning of a terrible flu. The last time I felt this bad was when I had Covid.
+
+I sat at the edge of my bed and held my head in my hands. I felt lightheaded and dizzy. Once it passed, I walked gingerly to the kitchen and made myself a strong cup of coffee. The heat of the drink and the caffeine helped me immensely. I felt steadier on my feet and once I had the coffee in my system, I felt well enough to make a bagel. The food helped as well.
+
+By the time my workday started I felt as close to normal as I was going to get, so I signed on. I didn’t want to call in sick today because I had several meetings today. I didn’t want to let anyone down with my absence.
+
+As soon as the meeting started, I knew something was up. My teammates looked at me oddly over the cameras, and when I glanced at myself in the screen I gasped. I looked horrible. I looked sick, my skin had taken on an oddly bluish hue, as if I was cold or not getting enough oxygen in my blood. I reached up and touched my cheek, and I winced at the feeling of my own skin. I felt clammy and cold.
+
+My boss messaged me over the chat program, asking me if I was feeling alright. I typed a message back, saying I was just a little under the weather. And that I would mute my video. I didn’t need anyone worrying about me.  Still, several team members reached out to me asking me if I was feeling okay. I was touched by the concern, but I assured everyone I was okay; even though I wasn’t sure that I was. Something was wrong though I didn’t know what. Maybe some delayed stress reaction to the move and divorce? Bad seafood? A voodoo curse? Everything seemed like an option.
+
+At least it was Friday, and I busied myself googling local doctors that took my insurance near me in case I needed to make an appointment. No matter how old I got I still hated making those appointments. I would periodically go and look at myself in the mirror, I could see my color returning to normal as the day wore on. So, by the end of the workday I looked like myself, though a little more pale and gaunt. I know it wasn’t possible, but it seemed like I had lost weight overnight. Some of the fullness was gone from my cheeks.
+
+I called up Danielle and asked if she would be down for a night of takeout and terrible movies. But when she answered the phone, I knew something was wrong.
+
+“Hello?” The voice asked on the other end of the phone.
+
+“Danielle?” I asked. Knowing that was a dumb question, who else would have her phone.
+
+“Yeah. Yeah, it’s me,” The voice rasped on the line.
+
+“Are you okay? You sound terrible, did you catch the flu?” I asked. All the concern I had for myself washed away as worry for my friend took its place.
+
+“I’m not sure what I have. But it’s not the flu. It might sound crazy, but that bracelet you bought me might have something to do with it. I’ve worn it since you bought it for me. I think I might be allergic to it. Or something,” She wheezed.
+
+“Danielle, if you think that’s the problem then take it off right now and get to the doctor. If it’s not gold it might be some other metal that’s causing a reaction,” I said, chastising her.
+
+“Can you come over? I want to show you something.” she asked.
+
+I agreed. How could I not. The workday was done so I got in my car and drove over. The adrenaline in my system over my friend made me feel better oddly enough. I felt more like myself, maybe because it gave me something to focus on.
+
+When I got to her house, I could tell something was wrong. Danille was waiting for me, sitting by the front door in a rocking chair. Even from a distance I could see the dark circles under her eyes and she looked a lot thinner.
+
+“Danielle, what happened? Are you sure this isn’t covid? Or something else? I think we need to get you to a doctor,” I stammered reaching out to her.
+
+She gave me a small and weak smile, holding up her arm that was wearing the bracelet. I thought she was reaching out to touch me, but then I realized she was holding out her arm for me to look at it. I visibly recoiled and gasped, both ashamed of my reaction and terrified for my friend.
+
+Her arm from the elbow down looked like it was covered in scales. Her entire hand was scaled. Though it was not like a snake or lizard, they still had her normal flesh tone. But near the wrist the skin was going black almost like it was atrophying.
+
+“Oh, my God. Danielle, I need to call you an ambulance,” I said, feeling and sounding horrified.
+
+“No! That’s not what I need. Please just take this thing off me. I’ve been trying to get it off, but it won’t budge. I think I need someone else to do it for me,” she held out her hand again.
+
+I was scared about touching her skin, as horrible as that made me sound. I took off my shirt, grateful that I had a tank top underneath it. I wrapped my shirt around the bracelet and tugged it off. It came off easily.
+
+Danille let out a weary sigh of relief and sank back into the rocker. It might have been my imagination but she looked better already.
+
+“Thank you. God. You have no idea how much better that feels. I didn’t want my son to take it, because what if it transferred to him instead?” She admitted.
+
+“I’m happy to be your guinea pig then,” I said with a wince.
+
+Now I was doubly glad that I hadn’t touched it with my bare skin. I set the shirt covered bracelet down to the side and knelt and looked more closely at her skin. It really was scaled. How could something like this happen? And how could it be because of a bracelet?
+
+“Are you sure that the bracelet caused this?” I asked.
+
+“Yes. I am. Ever since I’ve worn it, I’ve had strange dreams. And then I couldn’t get it off. It’s cursed. You should throw it into the ocean,” Danielle hissed. And it did sound like a hiss, as if for a brief second my friend had been replaced by a giant serpent.
+
+I shuddered. Then I took her by the hand that hadn’t been infected and led her into the house. I sat her on the couch and looked her over again.
+
+“I’m going to make you something to eat. And do you have any bandages or creams I can put on your arm?” I asked.
+
+“In the bathroom. I’ve been using cream on it, but it didn’t help. Maybe it will now, since the bracelet is gone.” She said pointing to the bathroom.
+
+In the bathroom there were jars everywhere. Every manner of cream and topical ointment you could think of. She must have gone on a shopping spree at the local pharmacy to find everything. I selected some antiseptic ointment that was half gone and some bandages and went back out to the living room.
+
+“I’m going to put this on you, and then you’re going to eat something,” I said, speaking in a tone to let her know there was no arguing.
+
+She just nodded and sat back on the couch, seemingly drained. Once I applied everything, I washed my hands several times then started on food. I made some soup and tea and brought it back to her. After a few sips of broth, she seemed to have more color back in her cheeks.
+
+“Thank you, I feel better than I have in days,” she muttered.
+
+“I bet. Why did you wait so long to ask for help? You know I would have come over right away,” I admonished her.
+
+“Because I just thought I was crazy. I thought it was a rash. Cursed bracelets aren’t real, I mean, they’re not, aren’t they?” she said with tears in her eyes.
+
+“Honey, we don’t know anything for sure. But if you’re adamant you don’t want to go to the doctor then I’m going to stay here all night. And we’re going to keep putting ointment on that thing. If you’re not better by tomorrow, I’m calling an ambulance and you’re not arguing about it. Do you understand?” I said sternly.
+
+She smiled and nodded. The rest of the day and evening passed quietly. Danielle seemed exhausted, but she was eating well. And as the evening wore on, she had the strength to take a shower and also sit and watch some Netflix.
+
+“Thank you again. I think you should burn that bracelet. Don’t throw it away unless it’s into the ocean,” Danielle said suddenly.
+
+“I was thinking about that. But I think I will take that back to the shop tomorrow. I want to know more about it, and the little jar I bought,” I admitted.
+
+“That jar. Listen, you got to toss that too. For all we know that thing is cursed,” Danielle said with tight lips.
+
+I thought about telling her about my dreams. But I bit my lip. She didn’t need any more worry right now. She needed to rest and heal and put everything behind her.
+
+I slept on her couch that night. And I dreamt. The same way I had these previous nights. But this one was the most vivid of them all. I felt the cold-water gliding across my body as I swam in the depths. I had a destination, but I couldn’t remember what it was. Instinct and senses I didn’t even know I possessed were guiding me.
+
+I could feel the vastness of the ocean all around me. I felt so small. But I also felt powerful. I could feel the strength in my body, so much stronger than the one I’d lived in my whole life. And then I saw it, though seeing is not the word I should use to describe it.
+
+This far down in the ocean there was no light, so there was no way I could see. But still the Deep City appeared below me. It was vast, old, timeless and eternal. And it welcomed me. I could feel the sounds of the city reverberate in my body like an echo. There were more like me in this place, ones who watched me with the same unseeing eyes. And they welcomed me. I was home! They welcomed me home.
+
+And then I woke up, sitting on the sofa and sputtering in the dark. I felt cold, like I had just walked out of the ocean. I shivered, laying back down. I didn’t sleep again; there was no way I’d fall back to sleep after that. I kept thinking about the deep and dark city, and the inhabitants that welcomed me as one of their own.
+
+The next day I went to the store. Danille had woken up and she honestly looked so much better. She had more color in her cheeks and her skin looked more, well, more human. She still looked hollow eyed and exhausted, and I made her some breakfast and didn’t leave till she ate it all. Then I tucked her into her bed again before I set out.
+
+The shop was still there. I had half suspected that it would be gone when I showed up or closed. Or I’d find that it never existed in the first place. But there it was, still as old and musty looking as it looked the first time we had walked in.
+
+I pushed the door open, and the smell hit me again. I looked to the front desk, but the old woman was not there. I called out.
+
+“Hello? Is anyone working here today?” I said stepping further into the shop.
+
+I took my phone out and messaged Danille that I was at the shop and that if I didn’t call soon to call the police and tell them that I may have met foul play.
+
+The shop wasn’t the same as I remembered it. It looked like there were new items in the place, I spotted some tables and chairs that I didn’t remember. After a few turns around the maze of stuff, I actually bumped into the old woman, or rather she found me.
+
+“Oh, you’ve returned. They sometimes come back. Not everyone likes what they purchase from me,” a voice spoke from behind me.
+
+“I brought this back. I don’t want my money back, but I do want answers,” I said holding up the bracelet.
+
+The old woman looked at it with mild interest.
+
+“I see. I’m afraid that I can’t tell you too much. I take it that your friend didn’t like its…qualities,” she said with a raised eyebrow.
+
+“That’s putting it mildly. It was turning her skin into scales. What was the end goal? Turning her whole body into a giant snake?” I spat.
+
+“Oh yes. Metamorphosis is always the result. The only people who come into my shop, who buy from this shop, are looking to shed some aspects of their lives. Or in this case their humanity. The same goes for you. Honestly, I’m surprised you didn’t come back with that jar of mermaid bones. The magic is potent. It won’t take long for you to succumb to its power, surely, you’ve been having the dreams,” the woman said with a nod.
+
+“You’re insane. Certifiable. Do you even hear yourself?” I said, voice raising.
+
+“Oh yes, I do hear myself. I’ve been doing this for a very long time. And I’ve done it in so many different places, but that’s a while story unto itself. If you’re looking for reasons or explanations, I can’t give you much. But that bracelet? It’s yours. Keep it. Toss it into the sea makes no difference. Once it’s been rejected by the new owner I have no claim on it. But you should really keep your jar. Not many people get chosen for that honor,” she said.
+
+“And what honor is that? Nightmares?” I asked, feeling sick to my stomach.
+
+“My dear. You’ve not been listening! Metamorphosis! A complete and total transformation. You have been given a gift, one that few humans are given. To become something different. To become other. To possibly live forever in wonder and awe beneath the waves of the sea. Doesn’t that sound amazing? Doesn’t that sound like a most wonderful gift?” She said, awe in her voice as she looked up at me with her eyes wide.
+
+“What if I don’t want it? What do I do then?” I asked.
+
+“Then you toss the jar away. Give it back to the sea. But turning your back on such a gift is such a slap in the face,” the woman said with a frown, the brightness in her eyes leaving her as she regarded with me with newfound distain.
+
+I stood there for a second, trying to think of what to say next. What to ask. I had seen what that bracelet had done to my friend. I knew the dreams I was having weren’t dreams, they were visions. Or premonitions, glimpses of what was to come if I didn’t toss that jar away.
+
+“How long does it take. This metamorphosis?” I asked suddenly.
+
+“Soon. No more than a week. I can see it in your eyes. Now, did you want to know how long it takes because you want to throw away that jar? Or because you want to embrace it?” the old woman asked with a tiny smile.
+
+I left the shop. The first thing I did was to go home after letting Danielle know that I was alright. Once I was home, I sat with that tiny jar in my lap, mulling the options over. And that night I dreamt. The most vivid vision I had so far. Where before I felt like I was blind, now I could see. There were colors in this place. Deep dark and muted colors but to me it was as bright as day. A city stood before me, vast and ancient, glittering dimly in some kind of phosphorescent light. And all around me the welcoming hum of my kin. The reached for me, men and women and children, if they could even be called that. Some of them felt young, others felt old. Their presence like a physical weight as they placed their hands on my chest and head. Welcoming me home. Begging me to join them in that underwater paradise.
+
+When I woke up the next morning, I had already decided. I was going to keep the jar. Whatever strange transformation was going to take place I was going to accept it. The days passed, and for a few of them I felt fine. There were no more outward changes till the fourth day. I woke up groggy after another night of visions and stared at myself in the mirror. The eyes staring back were a deep red ruby. My skin was going blue. Faint webbing was netting between my fingers and my teeth looked sharper. And my toes, well, my toes were gone. On the ends of my feet were the beginnings of flippers. 
+
+By the seventh day I knew I had to be by the water. Getting there was hard, since I really didn't have feet anymore. But then I was there, the beloved sea at what was left of my fingertips. I looked at the sea and finally saw it with new eyes. The wonders it would hold for me, and the secrets it would finally share. In the distance, and in the weight of the water I could hear my new brothers and sisters calling to me. Waiting with anticipation to join them. 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 

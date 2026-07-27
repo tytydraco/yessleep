@@ -1,0 +1,373 @@
+I don’t know why I’m writing this.
+
+I guess to preserve my sanity? Record my ramblings before they stop making sense as I age or forget things?
+
+My therapist recommended journaling in the hope that it would help me “cope with my trauma,” as if putting everything down in a notebook is going to erase it.
+
+But whatever.
+
+I’m Henry, and for ten years, I worked for a private crime-scene cleaning business in Arizona.
+
+I don’t anymore.
+
+You’ll understand why eventually.
+
+What my job came down to was going into houses where someone had died, either purposefully or accidentally, and cleaning up the mess they left behind when they left the earth.
+
+Usually, it was a healthy mix of piss, shit, blood, and vomit. Some of it came from the person who died. Some came from the unfortunate bastard who found them.
+
+To most people, that description alone would be enough to scare them from the profession. The thought of cleaning up the macabre aftermath of a suicide or murder is enough to make their stomachs turn.
+
+They’ll turn tail and run. But not me.
+
+When I was a kid, around eleven, I had the misfortune of experiencing the aftermath of a death firsthand.
+
+It changed me forever.
+
+My older brother, Daniel, struggled a lot with mental health problems. Depression and bipolar disorder really screwed him up. He could spend days in bed, barely eating, speaking, or moving.
+
+Our parents were no help because they had the traditional mindset of “praying the sickness away.”
+
+Instead of getting him any treatment or support, they blamed him. They claimed he wasn’t believing in his recovery hard enough.
+
+“God will provide all the support you need,” they would assure him whenever he begged them to take him to a therapist.
+
+“This is a test,” they said when he stayed in bed for days on end, unmoving.
+
+Apparently, God was testing him.
+
+Our parents certainly weren’t helping him study.
+
+It was late August, so school wasn’t in session. I remember being so hyped because Diablo II had come out two months earlier, and I had finally saved enough money to buy it from Bookmans Entertainment Exchange.
+
+As a kid, you really have a one-track mind when you want something. You genuinely forget about everything and everyone around you, convinced that this arbitrary item you “need” is as important as air itself.
+
+That weekend, our parents were away at some church retreat.
+
+I had spent Friday night and most of Saturday at a friend’s house. Daniel stayed home. That wasn’t unusual. By then, he rarely wanted to go anywhere. Not even to the bathroom. Many days, my parents caught him with a piss jug in his room when he was too “lazy” to get up. 
+
+I came home Sunday afternoon, game in hand, and shoved the disc into my computer’s CD-ROM drive.
+
+The installation crawled along at a sluggish pace, much to my eleven-year-old self’s annoyance, so I got up to find myself a snack.
+
+That’s when I smelled it.
+
+A foul, sickly sweet smell.
+
+I remember thinking it smelled almost identical to a package of expired meat we had thrown away a few days earlier. Figuring that was the source, 
+
+I checked the trash can. Nothing except paper towels and a few orange peels.
+
+I checked the fridge. Clean as a whistle, just a couple of Daniel's energy drinks, eggs, and one of my dad's beers.
+
+I stood there, confused, as each place I checked did not explain.
+
+What else would be rotting?
+
+I huffed and followed the smell, pausing as I approached the hallway, where it grew stronger with each step.
+
+My first thought?
+
+Why would someone leave rotting meat in the hallway?
+
+I wasn’t too bright. Then again, I was also eleven. What can you do?
+
+Or maybe some part of me already knew something was wrong and was working overtime to keep the rest of me from figuring it out.
+
+I didn’t follow the smell right away. I just stood there, as if I, too, were trying to download over a bad internet connection like Diablo II was currently doing.
+
+Slow and lagging, with drifting thoughts that Daniel must have forgotten to throw away some food. I remember the annoyance, anger. He stunk up the whole house?
+
+I walked down the hallway slowly, following the smell farther and farther.
+
+Sweat dripped down my back and face as the house seemed to get hotter with every step.
+
+Our house didn’t have central air. We had old window units in the bedrooms, the kind with manual dials you had to twist yourself. Daniel’s rattled so loudly that he always turned it off before he went to sleep.
+
+Once it was off, it stayed off until someone turned it back on.
+
+And Daniel hadn’t been able to do that.
+
+Of course, I didn’t know that yet.
+
+All I knew was that it was a hundred-and-fuck degrees outside and my brother hadn’t turned on his AC.
+
+“Lazy fuck,” I muttered.
+
+I figured that after I took out whatever garbage he had left in his room, I would turn it on myself.
+
+Then I stopped.
+
+At the end of the hallway, Daniel’s door was cracked open.
+
+The smell was stronger than ever. It was coming from inside his room.
+
+“What the hell?” I said aloud.
+
+Had he, for some godforsaken reason, kept rotting meat in there?
+
+Even at eleven, that didn’t seem right.
+
+I approached the door.
+
+The smell thickened until I could almost taste it. It sat on the back of my tongue and filled my throat every time I breathed.
+
+I pushed the door open.
+
+Daniel was lying on the bed.
+
+There were red chunks splattered across the wall and headboard behind him.
+
+I remember my first thought was:
+
+Why did he throw spaghetti sauce on the wall?
+
+That thought lasted about two seconds.
+
+I would kill to find that level of innocence again…
+
+The rest of the room came into focus, everything clicking all at once. I let out a horrified, strangled scream.
+
+Daniel’s lower jaw and much of the side of his head were gone.
+
+Blood covered the sheets beneath him. A dark spray marked the wall and headboard, mixed with strands of tissue and small, pale fragments that had stuck to the paint. Droplets had reached the door, the floor, and even the motionless blades of the ceiling fan.
+
+The shotgun lay on the floor beside the bed.
+
+No exaggeration… There was blood everywhere.
+
+Not the bright, clean red you see in movies. It was dark in some places and nearly black in others. Parts of it had dried against the wall. The blood soaking his shirt and sheets was thicker, almost syrupy from the heat.
+
+His Metallica shirt was stained from the collar down.
+
+One of his eyes was still visible, the other atomized on the wall behind him.
+
+It was open but glazed over, like the plastic eye of a doll.
+
+Now, as I said, the AC wasn’t on, and we were in peak heat season in Arizona.
+
+Daniel had been alone in that room for nearly two days.
+
+The heat had allowed everything to bake.
+
+The blood.
+
+The sheets.
+
+My brother.
+
+When I say the smell was unbearable, I mean it.
+
+Have you ever farted in a hot shower?
+
+I know that sounds like a stupid comparison, but bear with me.
+
+The smell doesn’t leave right away. The heat and steam make it ranker than it normally would be. It hangs around you. Clings to you.
+
+Turns out, the same logic applies to corpses.
+
+Except a corpse is worse.
+
+Much worse.
+
+The smell didn’t just enter my nose. It coated the inside of my mouth. Every time I tried to breathe, I could taste something rotten and sweet at the back of my throat.
+
+I stumbled backward into the hallway and fell on my ass.
+
+I kept screaming for Daniel.
+
+I don’t know why.
+
+He was obviously dead. Even an eleven-year-old could see that. A toddler could see that. There was no possible world in which he could sit up and tell me he was fine.
+
+But I kept saying his name anyway. I didn't want to accept it.
+
+“Daniel?”
+
+Then louder.
+
+“Daniel!”
+
+As if shouting hard enough might force the remaining pieces of him back together; as if it would cast a spell that would let me take that gun out of his mouth before he did it.
+
+I don't remember much after that.
+
+I don’t even remember calling the police.
+
+I know I did because I was the only person in the house, but most of what happened after I opened the door exists in scattered pieces.
+
+I remember sitting on the floor outside.
+
+I remember the dispatcher asking whether Daniel was breathing.
+
+I remember staring through the open doorway at what was left of his head and not knowing how to answer.
+
+I remember a police officer pulling me away from the hallway.
+
+I remember vomiting onto his shoes.
+
+I felt like a robot going through familiar, logical motions, but I had no sentience to discern what it was I was doing clearly.
+
+The police came first.
+
+Then the paramedics, although there wasn’t anything for them to do except give sympathies.
+
+Then the coroner.
+
+Our parents returned sometime that evening, their car screeching as they parked in the driveway.
+
+I had only told them something happened to Daniel. I couldn't say the words.
+
+My mother screamed when she saw the police cars.
+
+My father kept asking what happened, even after three different people told him.
+
+When he finally understood, he dropped to his knees in the front yard and started praying.
+
+I remember watching him and bitterly thinking:
+
+*Now you pray?*
+
+I didn’t say it aloud, but fuck, I wish I had. I wish I had laid into them and screamed how this was their fault. How much I hated them for letting this happen to my brother.
+
+But I couldn't. I was in shock. In pain. Grieving.
+
+The police removed Daniel’s body, but they didn’t clean the room.
+
+A lot of people don’t know that.
+
+They think the police handle everything. The body disappears, someone wipes up the blood, and the family returns to a house that looks more or less normal.
+
+That isn’t how it works.
+
+The police collect evidence.
+
+The coroner collects the body.
+
+Everything else belongs to whoever owns the house.
+
+The blood.
+
+The tissue.
+
+The smell.
+
+Daniel’s room stayed closed for another day while my parents argued about what to do.
+
+My mother wanted to burn everything.
+
+My father wanted to clean it himself because he didn’t trust strangers in the house.
+
+That idea lasted until he opened the bedroom door.
+
+He made it three steps inside before running to the bathroom.
+
+Eventually, they called a private trauma-cleaning company.
+
+Three people arrived in an unmarked van.
+
+They wore white protective suits, thick gloves, respirators, and shoe covers. They carried plastic containers, sprayers, scrapers, and rolls of heavy black bags into Daniel’s room.
+
+They didn’t look horrified.
+
+They didn’t pray.
+
+They didn’t stand in the hallway whispering about what a tragedy it was.
+
+They just worked.
+
+They stripped the bed.
+
+They removed part of the carpet.
+
+They cut out sections of drywall that couldn’t be cleaned.
+
+They took apart the ceiling fan.
+
+They searched places I would never have thought to look because blood and tissue had found their way into cracks, vents, and spaces beneath the furniture.
+
+One of them noticed me watching from the end of the hallway.
+
+He was an older man with gray hair visible beneath the hood of his suit.
+
+“You shouldn’t be looking at this,” he told me.
+
+“I already saw it,” I said quietly, my voice raspy from screams.
+
+He didn’t have a response to that.
+
+They stayed for hours, and when they finally left, the smell was weaker.
+
+The stained carpet was gone. Part of the wall had been removed. The mattress had disappeared into the back of their van.
+
+The room looked hollowed out, as if the soul had been ripped from it.
+
+No. Not *the* soul. *A* soul. Daniel.
+
+But it no longer looked like a place where my brother had blown his head apart. Small victories, I guess...
+
+Daniel was still dead, but the room had already begun pretending he had never existed.
+
+He didn't even leave a note, you know? No reasoning, no apologies, just gone like a leaf in the autumn wind. 
+
+For years, I told myself that finding him was what drove me into crime-scene cleaning.
+
+That wasn’t entirely true.
+
+Finding him was only the beginning.
+
+What stayed with me was what those cleaners had done after everyone else left. They took him away, and he would never be back. 
+
+To me, who grew up with him, that wasn't some fourteen-year-old corpse or clumps of mess.
+
+That was Daniel.
+
+My brother.
+
+My best friend.
+
+They couldn’t bring Daniel back.
+
+They couldn’t make my parents better people.
+
+They couldn’t stop me from seeing his body every time I closed my eyes.
+
+But they could enter the worst room in someone’s life and make it possible to open the door again.
+
+There was something almost merciful about that. Beautiful. They were the angels that took the nightmare away and made things okay again. 
+
+Well... okay is relative. They took the nightmare away, but I don't think I've ever been okay.
+
+So when I was old enough, I entered the profession myself.
+
+For ten years, I cleaned up after suicides, murders, accidents, unattended deaths, and things that didn’t fit neatly into any of those categories.
+
+Most of the jobs were simply sad.
+
+Some were disgusting.
+
+A few were so absurd that all you could do was laugh.
+
+And then there were the others.
+
+The jobs I still think about.
+
+The houses that didn’t feel empty after the bodies were removed.
+
+The stains that returned after we scrubbed them away.
+
+The rooms that were larger on the inside than they had any right to be.
+
+The sounds that came from sealed walls.
+
+The things my coworkers and I agreed never to include in our reports.
+
+Those are the stories I’m going to write down.
+
+They won’t necessarily be in order. Trauma doesn’t work like that, and neither does memory.
+
+Maybe my therapist was right.
+
+Maybe getting everything onto paper will finally help me move past it.
+
+Or maybe, when I’m finished, someone will understand why I quit and why I’m certain that at least one of the things we cleaned up followed me home.
