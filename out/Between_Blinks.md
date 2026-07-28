@@ -1,0 +1,139 @@
+I started noticing the missing time three weeks ago.
+
+It was never more than a second. I would blink and feel like my eyes had stayed closed slightly longer than they should have, even though nothing around me changed. At first, I blamed tiredness. I work from home, spend too long looking at screens and rarely get enough sleep.
+
+Then I started remembering the room.
+
+The first memory came to me while I was making coffee. Grey walls, a pale floor and a wooden chair in the centre. There were no windows or doors, and the ceiling gave off a weak glow.
+
+I remembered standing inside it. It didn’t feel like a dream either. Dreams become less convincing the more I think about them, but the memory of the room became clearer. I could picture the dark wooden chair and the uneven patches of grey paint on the walls. I even remembered the temperature. It was neither warm nor cold. 
+
+Two days later, I blinked while brushing my teeth, and for a moment, I was inside the room. Then I was back in my bathroom, staring at myself in the mirror. The toothbrush fell from my hand. The tap was still running, and no time had passed, but I remembered looking down at my empty fingers inside the room. I remembered turning towards the chair before my eyes opened again.
+
+After that, I began testing it. I set my phone up and recorded myself blinking. During thirty minutes of footage, I entered the room four times. On the recording, every blink looked completely normal and lasted less than half a second. Inside the room, I had enough time to look around.
+
+The chair had moved. It was no longer in the middle. It stood against the far wall, facing me instead. That was the point when I stopped believing I was imagining it.
+
+The visits became more frequent. At first, it happened once or twice a day. Within a week, I was entering the room multiple times an hour.
+
+Each blink lasted longer inside. A fraction of a second here might give me ten seconds there. Then thirty. Once, I spent nearly four minutes walking around the room, touching the walls and searching for some kind of opening. My phone showed that my eyes were closed for less than a second.
+
+Nothing I touched made a sound inside the room. I could feel my footsteps, but I couldn’t hear them. When I clapped, my palms struck each other silently. I could feel myself breathing, but even that made no noise.
+
+I tried shouting. My mouth opened and my throat strained, but the room remained silent. When my eyes opened, I was standing in my kitchen screaming.
+
+After that, I tried not to blink.
+
+I used eye drops, lowered the brightness on every screen and drank far too much coffee. None of it helped. Eventually, my eyes always closed.
+
+Sleep never took me there. I could close my eyes for eight hours and remember nothing, then wake up, blink once and spend minutes standing inside those grey walls. This place existed specifically inside the blink. 
+
+On the ninth day, a second chair appeared. It stood directly opposite the first, with barely a metre between them.
+
+During my next visit, I was sitting in one of them. Until then, I had always arrived standing. This time, I couldn’t move. My hands rested on my knees, and my feet were planted firmly on the floor.
+
+Something had been scratched into the floor between the chairs.
+
+YOU TOOK LONG ENOUGH.
+
+I spent the rest of that night sitting against my bedroom wall, forcing my eyes open whenever they began to close. By morning, I had convinced myself that the words were a hallucination caused by exhaustion.
+
+Then I found the same words written in my notebook. The handwriting was mine, but I didn’t remember writing them.
+
+I booked a doctor’s appointment the same day. I described the missing time but left out the room. He asked about stress, sleep, medication and drugs before checking my eyes and reflexes.
+
+During the appointment, I blinked. This time someone was sitting in the second chair.   
+I could not see their face. There was nothing covering it, and the room wasn’t dark. I was looking directly at them, but my mind couldn’t understand what I was seeing. I could make out the individual parts, a head, shoulders, hands resting on their knees, but the moment I tried to see the whole person, my attention slipped away.
+
+It was like trying to remember the exact second you fall asleep. I knew someone was there. My mind refused to see them fully. The figure leaned towards me. Then my eyes opened.
+
+After that, the figure appeared during every visit. Sometimes it sat opposite me, close enough that its knees almost touched mine. Other times it stood behind the empty chair.
+
+It never moved while I watched it. Whenever I looked away for even a second, it would be somewhere else.
+
+The visits continued getting longer. I began keeping track of how much time I had spent inside the room. By the end of the second week, I estimated it was more than eleven hours. Eleven hours that had passed nowhere else. The figure had been with me for most of them.
+
+During one visit, I forced myself to ask what it wanted. There was still no sound, but I shaped the words slowly with my mouth.
+
+The figure tilted its head. Its answer appeared inside my memory rather than reaching my ears.
+
+“You ask me that every time.”
+
+I opened my eyes screaming.
+
+After that, I began remembering things that had never happened. I remembered sitting in the chair for hours while the figure watched me. I remembered lying on the floor and begging it to let me leave. I remembered walking around the room so many times that I knew the number of steps between every wall.
+
+I had no memory of experiencing any of it. The memories just appeared suddenly. One afternoon, I opened my notebook and found pages filled with my handwriting. The first few lines were neat. They became increasingly unsteady as they continued.
+
+HOW LONG HAVE I BEEN HERE?
+
+IT SAYS I ALWAYS FORGET THE BEGINNING.
+
+I AM NOT ENTERING THE ROOM.
+
+I AM REMEMBERING IT.
+
+I stopped reading. I closed the notebook and placed it inside a kitchen drawer. When I returned an hour later, it was open on my desk.
+
+A new line had been added.
+
+STOP CALLING THIS THE OUTSIDE.
+
+Yesterday, the room changed. The figure was no longer sitting in the second chair. It stood against the far wall, leaving both seats empty.
+
+A narrow dark line had appeared behind it.
+
+A door.
+
+I had spent hours searching those walls and never found any opening. There was no handle, but when I pressed my hand against it, part of the wall moved inwards.
+
+Another room waited behind it.
+
+It was identical to the first. The same grey walls, pale floor, and two wooden chairs facing each other.  
+Someone was sitting in one of them.
+
+Me.
+
+The other version of me wore the same clothes and sat with both hands resting on their knees. Their eyes were closed.
+
+The figure stood behind the chair with its hands resting on my shoulders.
+
+I tried to step into the second room.
+
+The version of me in the chair opened their eyes.  
+At the same time, something touched my shoulder from behind.
+
+I woke up on the floor of my bedroom.
+
+My desk chair had been pulled into the centre of the room.
+
+I have no memory of moving it.
+
+There were marks on the wooden legs. Dozens of short scratches, cut deeply into the surface.  
+I counted them. There were one hundred and eighty. I don’t know what they represent.
+
+Since then, I have been trying not to blink for longer than necessary. The room appears every time now. There are no normal blinks left.
+
+The figure no longer sits or stands at a distance. It waits directly behind my chair. The other room remains open in front of me. The version of me inside is sitting with their eyes closed.
+
+A few hours ago, they started speaking. There was no sound, but I understood the words. They told me that the room was not somewhere my mind went when I blinked. They said blinking was the only moment I stopped pretending to be somewhere else.
+
+I asked which one of us was real. The figure tightened its hands around my shoulders. The person in the other room smiled. Then my eyes opened.
+
+I have been staring at this screen ever since. My eyes are burning so badly that the words keep blurring. I can feel tears running down my face, but I am afraid to wipe them away in case I blink.
+
+There is something else too. For the past hour, I have been able to see the figure reflected in the edge of my monitor.
+
+It is standing behind me. Not in that room.
+
+Here.
+
+Its hands are resting on the back of my chair, and each time my eyes begin to close, its fingers move closer to my shoulders. I think it is waiting for me to blink again.
+
+And somewhere inside my head, I can hear the person in the second room repeating the same thing.
+
+“You have been gone long enough.”
+
+I don’t think blinking takes me into the room anymore.
+
+I think it lets me back in.
