@@ -47,4 +47,4 @@ The door I used to enter this room no longer works. I am trapped. I wrote this a
 
 Help me.
 
-([more](https://www.reddit.com/u/Kira1006/s/yBIKE0LRUw))
+([more](https://www.reddit.com/u/Kira1006/s/CqwWbRE8kn))
