@@ -1,0 +1,437 @@
+I remember I was dead tired, and the drive just wouldn’t end. But the whole way up to the Kovehnt Mountains, I couldn’t stop thinking about her.
+
+The small dent above her upper lip, her tired, slightly uneven green eyes, the freckles she had across her shoulders.
+
+I mean, I’m telling you, I was sure I was over her. Over all the pain she gave me, the humiliation.
+
+I thought I finally knew, and actually came to accept it… that she was not good for me. Just bad.
+
+Then, at two in the morning, came her damn sweet-and-sour voice. Hard to admit, but it drove straight through my guts like an ice-cold, white-hot metal rod, burning me from the inside while somehow filling me with this sick, liquid excitement.
+
+I was so fucking stupid. Weak.
+
+“Orr,” she whispered. “I made a mistake.”
+
+I remember there was some strange music behind her. Weird voices, like some kind of outdoor gathering or barbecue. I knew it wasn't a barbecue. Not at *The* *Open Hand*.
+
+I knew she was there. Hiding what she was doing again. Just like all those late nights at work, supposedly setting up some huge classified company project.
+
+“Where are you?”
+
+She sniffed once. “I need you to come get me. ”
+
+Then a man’s voice said something close to her, and Dessy went silent.
+
+“Please,” she said. “Don’t call anyone, don’t do anything else you usually do. Just come. Please. Come. Just co-”
+
+The line died.
+
+You need to know that Dessy and I had been separated for six weeks. Not officially, we were still married. She had just packed some clothes and left after telling me she couldn’t live with a low-level robot.
+
+I knew she went to live in *The Open Hand*. Clara told me.
+
+Fake spiritual community of the year.
+
+Pretty dubious place, if you want to know. I looked it up. The head of the community, Tobias or Elias, something like that, seemed to be involved in some shady shit. Beautiful people in white clothes, gardening, dancing barefoot, talking about freedom from shame and ownership. The next stage of humanity and all that scammy crap.
+
+She called a month before that to see if I was OK. At least that’s what she said.
+
+I’d told her it looked like she was living with a cult and that explained a few things about her.
+
+She’d told me that was exactly what a human robot would say.
+
+She said she missed the old us. Yeah. Right. Back when we went scuba diving, off-roading, climbing in the Kovehnt Mountains in stupid locations.
+
+“You used to love those tight climbing clothes,” she said. “Remember? You’d climb right below me just for the view. Now you call all of it childish bullshit.”
+
+It took me four fucking hours to get there. But I guess I went because she sounded real. I could hear in her voice that she actually needed me.
+
+You can say whatever you want about how badly we communicated, but I always knew what she really meant. That’s what made it so confusing.
+
+The road became dirt, then mud, then something that barely counted as a road. When I finally reached the compound, I remember the sun was starting to come up behind the mountains.
+
+I admit, it was beautiful. Stone houses, vegetable gardens, wooden walkways, smoke curling from chimneys. People moved quietly between the buildings carrying baskets and tools. Nobody looked tired. Nobody seemed surprised to see a stranger arrive before dawn.
+
+I saw Dessy.
+
+She stood across the courtyard in a long grey dress, barefoot, her hair tangled. She looked pale and terrified.
+
+I started toward her.
+
+Three men stepped into my path.
+
+They didn’t grab me. They didn’t threaten me. They stood in a row, smiling softly, all wearing the same cream linen shirts with the same tiny hand on the chest.
+
+“Move,” I said.
+
+One of them tilted his head like I was a toddler to him.
+
+Then another man appeared.
+
+"You must be Orr."
+
+I recognized him. I'd seen enough pictures online.
+
+"Elias."
+
+He smiled.
+
+He was maybe sixty. Hard to tell. Impressive man. From one angle he looked older, from another, almost young. Tall, skinny, silver hair tied back. Simple clothes, but expensive. You could tell. When he started talking, he had the calm voice of a surgeon explaining that the operation had already begun.
+
+“I’m taking my wife home.”
+
+“Of course,” he said. “But first, sit with me.”
+
+“No.”
+
+A bell rang somewhere.
+
+There was a smell in the air. Sweet, medicinal. Burning herbs or some shit.
+
+Elias put his hand lightly on my shoulder. I stepped back.
+
+The next thing I remember clearly is sitting across from him in a room with old stone walls.
+
+That part still bothers me. I don’t really remember getting there, or sitting down with him. Maybe it was the excitement, lack of sleep. Dessy. The all-night drive. I don’t know. I was exhausted.
+
+The room looked like it had belonged to a monastery once. Or something like that. The shelves there were packed with old books, and there were weird little sculptures made of wood and stone, or something. There was a long table between us.
+
+Dessy was nowhere in sight.
+
+Elias poured tea that smelled like mint and incense.
+
+“You’ve done very well for yourself,” he said.
+
+“My wife is waiting for me.”
+
+He smiled. Whitest teeth I’d ever seen.
+
+“Is she?”
+
+“What?”
+
+“Your wife.”
+
+I didn’t know what to say. Just wanted to get out of there and get Dessy.
+
+“Of course she is,” he said, smiling. “We’ve just completed a process we do here. In *The Hand*.”
+
+“Good for you. Where is she now? I just saw outside.”
+
+“It helps people see the structures they’re trapped inside.”
+
+“I drove here to pick up Dessy. She asked me to. We need to get going.”
+
+“Marriage is a structure.”
+
+“Jesus Christ.”
+
+“And yours is built almost entirely around mistrust.”
+
+I stared at him.
+
+He smiled again, like he knew exactly what I was thinking about.
+
+Mistrust. Right. I wanted to put his face through the teapot.
+
+He pushed a cup toward me.
+
+Didn’t even look at it.
+
+“You monitor her,” he said. “Her pauses. Her expressions. Where she leaves her phone.”
+
+“Not your business.” I stood up. He didn’t move. Didn’t even blink.
+
+“You found a packet of instant coffee in her bag after the hotel.”
+
+My stomach dropped.
+
+He watched it happen.
+
+“You kept it in your desk for three weeks,” he said.
+
+I started walking out.
+
+“Sit down, Orr.”
+
+“I need to take my wife home.”
+
+“You see? Fear, then control.”
+
+I hated him. I hated his voice. Soft, patient voice, like he was speaking to a sick dog.
+
+He took a sip of that smelly tea.
+
+“Dessy wants to leave with you,” he said.
+
+“Then let her. Where is she?”
+
+I walked to the door.
+
+“Dessy!” I shouted.
+
+I heard something move outside the room. He stood up and came closer.
+
+“She will. But you and she agreed to something.”
+
+“I didn’t agree to anything.”
+
+“No. You rarely agree. You just wait until the other person gives up.”
+
+I stepped toward him.
+
+He looked at me.
+
+“She wants you to trust her completely until you reach home.”
+
+“What the fuck do you want from us?”
+
+“You see, *The Open Hand* is built around the one thing people have almost completely lost: trust in others.”
+
+He leaned back.
+
+“No questions. No checking her phone. No trying to catch her in a lie. Whatever happens, you believe her.”
+
+“And if I don’t?”
+
+“She comes back… for a while.”
+
+“To this place?”
+
+“To the process.”
+
+“She’s not coming back here.”
+
+“She is. Trust me, she is.”
+
+“You don’t get to interfere in my marriage. She’s an independent woman.”
+
+“Then treat her like that. Trust her... and you’re both free to go.”
+
+Elias looked at me, then toward another red-brown door, and for one strange second I had the feeling he was holding both of us completely still.
+
+“Orr,” he said gently, “your marriage came here without you. Now you need to claim it back.”
+
+I felt like a small animal pinned beneath a patient predator. Except whatever held me down didn’t feel entirely human.
+
+The red-brown door opened.
+
+Dessy stood there with a small bag in her hand.
+
+Her eyes were red.
+
+She looked at Elias first.
+
+And he gave her the smallest nod.
+
+We got the hell out of there.
+
+ 
+
+My car wouldn’t start.
+
+Dessy said maybe someone had messed with it.
+
+“Elias has these weird ways of making these things happen.”
+
+“There’s this old gardener’s car by the lower gate,” she said. “The keys are always inside.”
+
+“You want me to steal a car?”
+
+“Do we have another option?”
+
+“Jesus, Dessy. Are you insane?”
+
+I…
+
+We stole it.
+
+An old blue Renault that smelled like soil and cigarettes.
+
+As we drove down the mountain, Dessy quietly hummed some song and rested her hand on the back of my neck.
+
+I was quiet. I had no words to share. It felt so good. Her hand, her voice, her smell.
+
+For a few minutes, we were us again. Before all the stupid shit. Before everything went off the rails. Before she decided she needed something else.
+
+Headlights appeared behind us.
+
+They stayed there for miles.
+
+Dessy squeezed my hand.
+
+“You trust me, right?” she said. “Please. I don’t want to go back there.”
+
+We stopped at a gas station to buy some sodas and sandwiches. We were starving. Then she said Elias had ordered her to make sure our route wasn’t recorded. There were cameras above the pumps.
+
+“We need to destroy the recording,” she said.
+
+“Are you insane?”
+
+“He’ll find us.”
+
+“We call the police.”
+
+“He owns police around here.”
+
+“I’m not doing this.”
+
+Her face folded.
+
+“You came all this way, Orr, and I love you for that,” she said, “but we need to survive, Orry, we really do. And now you’re going to hide inside rules again.”
+
+The station attendant came outside when he saw us near the camera box.
+
+Things happened quickly.
+
+Dessy tried pulling the wires out, but they barely moved. I couldn’t help it. I jumped in to help her. I grabbed them and yanked as hard as I could.
+
+There was a spark.
+
+Then the wall caught fire.
+
+We ran.
+
+In the mirror, I saw the attendant shouting beside the burning station.
+
+I wanted to turn back and take responsibility.
+
+Dessy said Elias would kill us.
+
+We drove for a while before we stopped at another gas station. Dessy had to use the bathroom. She left her phone charging beside me.
+
+It vibrated. Maybe I was just too tired. I don’t know. I couldn’t help myself.
+
+I looked at the screen.
+
+**E: Get the wallet keys before you get home. I don’t trust him.**
+
+I stared at it until the screen went dark.
+
+A few months earlier, the cryptocurrency Dessy had convinced me to buy years ago had exploded in value.
+
+Enough money that I no longer needed to work. No one knew about it but her and my dad.
+
+FUUUCK.
+
+Dessy came back.
+
+“We have enough money to leave, right?” she said as we drove off. “Not rent somewhere. I mean really buy a decent place. Somewhere far away from here.”
+
+I felt something cold open inside me. I mumbled something back.
+
+Farther down the road, we passed a man lying beside a crashed motorcycle.
+
+He lifted one arm.
+
+I slowed down.
+
+“Don’t,” Dessy said.
+
+“He’s hurt.”
+
+“Don’t! Someone else will help him.”
+
+The man tried to say something as we drove past.
+
+I couldn’t hear it. I felt horrible. But I had to trust her. I had to.
+
+After half an hour, we finally made it home. We parked outside my apartment building and just sat there for a minute.
+
+Dessy’s phone lit up again.
+
+**The wallet first. Then bring him-.**
+
+She grabbed it before I could read the whole thing.
+
+“Five more minutes,” she said. “Please trust me for five more minutes.”
+
+I didn’t answer. Looked straight ahead at the wall.
+
+Dessy leaned toward me.
+
+“Orr?”
+
+I took out the little black USB key from the backpack in the back seat. The encrypted one. The one containing access to almost everything I own.
+
+I handed it to her. “I don’t care.”
+
+She stared at it.
+
+“Take the fucking money. I hope it makes you fucking happy. Go back to your devil mountain.”
+
+She sucked in a breath, her eyes going wide.
+
+“That isn’t what I want.”
+
+“I love you,” I said. “I tried to convince myself I don’t, but I fucking love you… unfortunately probably more than I will ever love anyone… And you are poison for me.”
+
+She just stared at me with her green wet eyes and the little dip above her lip.
+
+“I saw the texts, Dessy. Just go back.”
+
+I stared at the wall again.
+
+“Elias, the crappy cult guru, can give you a Kool-Aid medal, let you raise his creepy little cult kids, and brainwash you into being happy. Everything you wanted. Unlike you and your mental shit, I’ll be fine. I am stable. I’ll be fine.”
+
+She lowered her head onto my lap.
+
+I froze. I didn’t expect that.
+
+Then someone tapped on the window.
+
+Elias stood outside, smiling. I wanted to tear his face off.
+
+Behind him were some of the men from the commune.
+
+They made me sick. I didn’t even know what I wanted. Maybe just a few more minutes with Dessy before she disappeared back into them.
+
+Dessy sat up. Her poisonous pink-purple lips, her eyes, her skin, all of her was in my face.
+
+“He works for me,” she said.
+
+I chuckled. What?
+
+She told me the whole thing. I felt like I was hallucinating.
+
+The commune was hers. That was her project. No company. She did lie to me.
+
+Elias was the face. The voice. The magician.
+
+The smoke, the bell, the private details, the threats, staged.
+
+The messages were hers too.
+
+The car, the cameras, the fire, the injured man. All of it.
+
+“You almost burned down a building for me,” she whispered. “You left a hurt man on the road for me.”
+
+“You set me up.”
+
+She pushed away the hand holding the USB key.
+
+“I showed you US,” she said, looking at me with her eyes intensely fixed on mine. “Face it, Orr. I know you feel it. You need me as much as I need you. Everything else is just details. A technical smokescreen, Orry.”
+
+She said she had spent years watching me suffocate the part of myself she loved most, suffocate her too. The part that kissed her before she had the chance to walk out on our first date, went rock climbing up shady cliffs, bought cryptocurrency, and was willing to risk himself for her. The part that could choose real desire and love over permission.
+
+That’s why she couldn’t tell me the truth about the commune. She didn’t think I’d understand, or that I’d join her in her life’s work instead of freaking out, like I always did with this kind of thing, and taking off.
+
+She said the commune wasn’t evil.
+
+Not exactly.
+
+Yes, they did some illegal things to get money, power, leverage. But the whole country was collapsing under corrupt politicians and their rich friends, all of them bleeding ordinary people dry.
+
+“We can change the world, Orr,” she said. “Not by asking or playing by the rules. This doesn’t work, and good people get trampled.”
+
+Elias opened my door.
+
+Dessy touched my face.
+
+“I know you’re one of the good ones,” she said with her lips and eyes. “That’s why I had to know. If you loved me more than all your fucking rules.”
+
+Then she kissed me. I let her.
+
+“You’re coming, right?”
+
+Hardest choice I ever made.
