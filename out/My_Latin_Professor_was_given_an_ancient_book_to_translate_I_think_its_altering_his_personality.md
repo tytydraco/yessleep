@@ -172,4 +172,4 @@ As it turns out, Steve never returned to class. The school ended up reporting hi
 I can tell you right now, there's something evil in that book. I think reading it will drive people to madness. I'm pretty sure the best thing for humanity would be to just burn it along with all of Steve's translations. Yes, I think that is the right thing to do, but not before I get another look at it. A couple more pages can't hurt, right?
 
 
- 
+I think I found someone to help me get into Steve's office, so I can figure out what to do with that [book](https://www.reddit.com/r/nosleep/s/wTGB3JOa4z).

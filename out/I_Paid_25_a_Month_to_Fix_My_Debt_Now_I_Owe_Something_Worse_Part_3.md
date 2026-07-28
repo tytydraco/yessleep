@@ -649,7 +649,7 @@ The front door slams shut behind me, harder than I meant to close it. I dig thro
 
 “Tell them I’ll have the Williams account closed by tonight.”
 
-My fingers fumble the keys onto the concrete.
+My fingers fumble the keys.
 
 “Fuck—” I mutter, bending over and snatching them from the welcome mat.
 
@@ -658,6 +658,8 @@ At this point, I'll be late. They don't like it when I'm late.
 “No—not the Stevensons, the Williams.”
 
 I lock the door, twist, legs carrying me down the steps and toward the front gate.
+
+The voice on the other side of the call drags on.
 
 “No, you tell him. And I can’t help you. I don’t have time today.”
 
