@@ -1,237 +1,284 @@
-The hedges are trimmed, weeds are pulled, and all the debris is bagged up and ready to go to the dump. I’m pulling the bags up to the van when a haggard looking man comes walking towards me from across the street. He’d been watching me work from across the street for the past few hours, making me uncomfortable the entire time. I wave hello. Hopefully he just needs a gardener.
+The air was thick and hot when Travis’s mom shook me awake. She did so quietly, as not to disturb the four other boys slumped around the basement, snoring in their sleeping bags.
 
-“Working hard?” he asks.
+Sweat stuck my shirt to my skin as a spindly hand with gel-dipped nails gently rocked my shoulder.
 
-“Eh, hard enough,” I reply, “but I’m basically finished here. Is there something I can help you with?”
+“Wake up honey,” she whispered sweetly.
 
-“Yeah. I wanted to ask. Is that all compost in those bags?”
+Fuzz danced before my groggy eyes as I turned to face her. She let out a soothing shush as I showed signs of life.
 
-He’d been watching me for hours. He should know exactly what it is.
+“Come with me. Let’s be quiet now.”
 
-“Sure is.”
+My eyes adjusted to the pitch black of the room while she guided me through the sea of my sleeping friends. Shag carpet brushed the underside of my bare feet. She kept one hand on my shoulder, navigating us through a labyrinth of Risk figurines and empty soda cans until we reached the stairs.
 
-“Are you just gonna throw it away?”
+She moved my hand to find the railing, and nudged me up the stairs ahead of her with a hand to my lower back.
 
-“That’s the plan.”
+I had been too tired to ask what was happening when she first woke me up, but I remember thinking it was strange that she didn’t turn on any lights after we emerged into the kitchen.
 
-I don’t know why but he seemed like he was anxious. He looked more disheveled than me and I was drenched in sweat and covered in dirt from gardening all day. His eyes fixated on those compost bags like they were full of treasure.
+“What’s going on?” I asked, my voice shaky from sleep.
 
-“Can I have it,” he asks, “if you’re just going to throw it away?”
+“Shhhhhhhh.”
 
-“Sure. Saves me a trip to the dump. Well, you can have the compost, but I need the bags.”
+She shut the door to the basement behind me.
 
-He grins a wild grin, “Thank you so much. You’re a life saver pal.”
+“Do you want anything to drink? Chocolate milk?”
 
-It’s just garden clippings. I’m the gardener, and even I would never be excited about garden clippings. Perhaps he just wants it for mulch.
+“No thank you.”
 
-“What do you need it for anyways?” I ask.
+She dropped down to a crouch. A sparse beam of moonlight hit her face as she met me at my eye level.
 
-“Follow me, I’ll show ya.”
+“I want to show you something.”
 
-He lifts one of the bags with both arms and turns towards his house. I heave a bag over my shoulder and follow. We walk to the side of the house. He opens the door in the fence leading to the backyard. At first glance I can already see that yard is a disaster. The shrubs lining the fence are all overgrown and unkempt. Every one of them is covered in vines. He could definitely use a gardener. We walk to the middle of the yard and he sets the bag down next to what looks like a sink hole the size of a small pond.
+I didn’t know Travis’s mom very well. Travis and I were in the same class at school and I would come over regularly and I believe our moms were in the same book club for a bit, but this was only the second time I had slept over at his house.
 
-“This is it,” he declares, “the pit in all it’s glory.”
+She led me through a pair of swinging doors into an ornate dining room. There was a long, wooden dining table with beautiful etchings carved into the side. The wood was a deep red matching that of a grand china cabinet along the north wall. Inside was a dusty collection of heirlooms. Glass trinkets, metal goblets, books and vials of sand.
 
-He swings the bag and pour the contents in. Branches and weeds fall to the bottom. I follow suit and pour my bag in.
+Travis’ family had never struck me as well-off. I remember my house being much bigger than his. But this room gave a sense of history and wealth that clashed with the rest of the humble estate.
 
-“It’s going to take a lot more than that to fill it in,” I say.
+I had never been in that room before, nor had I seen anyone come in or out of it. We ate dinner in the kitchen earlier that night, and Travis always told me we weren’t allowed to play in there.
 
-“Yeah, I’ve been at it for a while. Just gonna take some time.”
+The dining table was done up with a large white cloth in the center, sigils woven into its frayed edges. A single candle sat in the middle. A short, stout cylinder of dark red wax sitting atop a gold dish, its wick already lit.
 
-“Why don’t you just order some soil to fill it in?”
+A small circle of tea candles busied the table around it, and Travis’s mom began to light them with the center candle’s flame after ushering me to take a seat at the head of the table.
 
-“Eh,” he shrugs, “twigs and leaves work just fine.”
+“What’s going on?” I asked again, and she shushed me again softly with a comforting grin. The fire bounced off the whites of her eyes. In the candlelight, I finally took note of her dress.
 
-Clearly not from the looks of it, but I’m not going argue with him.
+Travis’s mom never stood out to me against the other moms of my friends. She usually wore a similar blend of activewear and business casual attire, if only from lower-end retailers.
 
-“By the way, when are you coming back out?” he asks.
+But tonight, she was dressed differently. A lacy, white nightdress clung to the top of her body, cut low around her chest. The bottom billowed beneath her, loose and breezy against her slender frame.
 
-“Well, I only do Jacqueline's yard once a month. However, if you need any gardening work you can give me a call,” I say, pulling out a business card and handing in to him.
+Her hair was adorned with beads and small braids, a style I had never seen her wear before. A necklace sat above the low cut of her dress, dangling on it an eclectic collection of charms and seashells and large teeth from some animal.
 
-He takes the card and inspects it. “Cosmic Gardens, huh. Strange name. Yeah, I’ll give you a call if I need anything.”
+Her odd costume took me off guard, and before I could speak—
 
-He says that, but if he’s too cheap to pay for some dirt to fill in that sinkhole then he’s probably too cheap to hire a gardener. Still, it doesn’t hurt to at least try to get another client. It shouldn’t hurt anyways.
+“There’s nothing to worry about. I just need you to help me with something. Something wonderful.”
 
-We say our goodbyes. I hop in the van and head home. Days go by like ordinary. Work, eat, sleep, wake up, work, eat, sleep, and so on. Weeks pass, then one day I get a call from an unfamiliar number. I answer, “Hello, this is Cosmic Gardens.”
+I didn’t know how to respond to that. She was so calm, talking so sweetly, but with each word my heart started to beat faster.
 
-“Hi hi,” the voice on the other side responds, “this is John. We met the other day.”
+She glided over to the china cabinet, and produced a decorative brass key from her bosom. She turned it in the lock with a heavy clunk. As she did so, the family cat hopped into a chair at the other end of the table.
 
-I didn’t recognize the name, guess I forgot to ask for it when we last talked, but I did recognize the sound of his frantic voice.
+Ours were the only two seats at the table. One on each end. The cat had its eyes fixed on me, its head just barely peeking over the table, and I stared right back. I can’t remember its name.
 
-“Hey John, what can I do for you? If you need some work done I can get you scheduled in for my next availability.”
+Travis’s mom went about placing a few more objects in front of me. A small, leather-bound book, a pair of large, swirling seashells, a wooden jewelry box, and a thin vial of sand.
 
-“Oh, I hadn’t seen you in a while. I was wondering when you were coming back to Jacqueline’s.”
+The cat did not move or blink. Its shadow towered high behind it against the wall of the dining room, dancing in the light of the flames. The longer it stared at me, the more I felt like something bad would happen if I looked away.
 
-“I should be back there on the first, as long as the weather allows.”
+I felt a pair of hands slide onto my shoulders.     
+Travis’s mom stood behind me. Leaning over me, her bony fingers traced their way slowly down to my forearms.
 
-“Oh, good good. Do you think you could give me more of your garden clipping when you come back?”
+Sweat drenched my brow. I dared not say a word as her hands gripped mine, and she leaned in close to my ear and whispered,
 
-“I don’t see why not.”
+“Open.”
 
-“Thanks pal. I’ll see you then.”
+I turned my sweaty palms to the sky, and felt the fabric of her dress brush against me as she plucked the vial of sand off the table, pulled the cork from its lip, and turned it over onto my waiting palm.
 
-Click. Weird guy. He definitely doesn’t sound like he’s looking to hire me. Oh well, if it saves me a trip to the dump then I don’t mind giving him my debris.
+Coarse, dark sediment poured onto my skin, forming a small pile which caked at the bottom, mixing with my sweat.
 
-The first comes. It’s shitstorming outside. I call Jacqueline and let her know that I’ll have to reschedule because of the weather. She’s unbothered. She knows that I’ll be back over there as soon as the weather allows. A few days pass and the weather clears up. It’s still muggy outside, but not so much so that I can’t work. I gather up my tools and head over to Jacqueline’s house. The storm must have been pretty violent. Tree branches and leaves litter the yard. Flowers are toppled over and looking sad. There’s a lot to clean up.
+It was all so bizarre, all happening so smoothly and so fast, that I couldn’t find it in myself to ask why.
 
-After a long day of cleaning up the garden, and bagging all the leaf and branch litter from the yard, I’m finally finished, and just in time by the looks of it. The sun is already setting. There isn’t a spec of sunlight left by the time I get all the compost bags hauled to the van. The moment I open the trunk to toss the bags in John jumps out from the other side of the van.
+She tapped the underside of the empty vial with her finger, then brought it back behind me. The cat continued to stare. I saw endless tunnels in its eyes.
 
-“Where have you been?” he asks. “You weren’t here the other day.”
+When her hands reappeared in front of me, they held a small, golden pair of grooming scissors. A curious little trinket. They were molded to look like the body and beak of an exotic bird. Shimmering and impeccably sharp.
 
-He startled me, but I calm myself and reply, “Yeah, I had to reschedule because of that storm we had.”
+“This is the only hard part,” she said, her breath hot on the back of my neck. My heart leapt out of my chest.
 
-“Oh, I see, You shoulda told me.”
+“After this, it’s just beautiful,” she cooed.
 
-He sounds offended, but it’s not like he’s my client. There’s no reason I have to tell him when I reschedule his neighbor. He’s eyeing the compost bags again.
+The fingers of her left hand intertwined with mine as she raised the blades in her right.
 
-“Can I have those?” he asks.
+Swift as the wind, she brought the point of the scissors down into the center of my palm.
 
-“Yeah, sure.”
+I gasped and she tightened her grip on my hand. A small bead of crimson formed on my palm as she hummed a mellow tune. It was not a deep cut. I had barely felt the pinch. I was amazed my right hand did not recoil in shock. Not a single grain of sand spilled from it.
 
-There was something off about John. Even in the dark he looked noticeably more haggard than the last time I saw him. His mere presence made me uncomfortable, but as much as I didn’t want to be around him any longer I wanted to haul this debris to the dump even less.
+She placed the scissors on the table in front of me.
 
-John picks up a bag and rushes off in the direction of his yard. I pick up a bag and follow slowly behind. By the time I catch up to John he’d already dumped the contents of his bag in the pit. I walk up to the edge of the pit and John races past me, presumably back to the pile of bags sitting by the van. I lean over the edge of the pit and peer into it. It’s definitely gotten bigger. Leaves, debris, and dirty water swirl around slowly inside. It’s not nearly as full as it was the last time I saw it. It must be growing faster than he’s been filling it. But is it just going to keep growing? I watch, bewildered, as the leafs and muck swirl around inside. It’s somewhat hypnotic, pulling my gaze. Something about it fills me with a sense of unease. It shouldn’t be here, and I shouldn’t be near it. Still, I can’t help watching it with morbid curiosity.
+“Now…” she said, taking both my hands once again. She slowly brought them to meet each other in front of us, and guided me in rubbing them together. Sand and sweat mixed with blood. The cat licked its lips.
 
-“Don’t get too close.” John says, as he runs up with another bag. “You don’t want to fall in.”
+She had me cup both hands together, and brought them up to my face.
 
-I snap back to my senses and pour my bag in, then walk back towards the van to grab another bag. John and I finish pouring the rest of the debris in the pit.
+“Blow as hard as you can sweetie,” she said.
 
-“Thanks again,” John says.
+“Blow it into the fire.”
 
-“No problem,” I reply. My gaze fixated on the swirling muck. “What do you think made it appear?”
+I did. As the mixture hit the flame, it shot about an inch higher into the air and became bright blue.
 
-“Can’t say,” John shrugs. “I just want to fill it up so I can stop worrying about it.”
+What I saw next, I lack the words to describe.
 
-“What if it just keeps getting bigger?”
+Because across from me at that table, I still saw the cat. But at the same time, I saw someone else. Like they were both in the same space, but worlds away.    
+That person, sharing the space of the cat, had many faces. They were all faces I knew, and they all wore an extremely specific expression.
 
-“Bigger? No. It’s always been that size. Far as I can remember.”
+I saw the faces of my parents, my friends, some of my neighbors and relatives and teachers. Every peer and authority figure I had ever known shared that chair with the cat.
 
-“I swear it looks bigger than the last time I saw it.”
+I saw many, many faces that I recognized, and they all stared back with an unmistakable look of disappointment. Like they had all caught me doing something unforgivable. All ashamed, with a hint of pity.
 
-“No way. You’re just seeing things. It’s dark. You’re tired. You’re eyes are just playing tricks on you. You’ll see, we’ll have it filled up before you know it.”
+And then the wick went out.
 
-“Yeah,” I nod. I’m not going to argue with him. “Well, it’s pretty late. I better get going. See you next month.”
+Tea candles still glowing, the cat licked its paw and jumped off the chair onto the floor. Doors creaked slightly as it slid past them and disappeared into the kitchen.
 
-John doesn’t reply. He’s fixated on the pit, too focused to listen to whatever I had to say. I manage to pull my gaze away from the pit and turn around to walk back to the van.
+I sat rubbing my palm, dumbfounded.
 
-A few days later I get a call. “Hi, it’s John. I was wondering if you could come out and do some work for me.”
+Travis’s mom swung around the side of the table, and crouched down to look into my eyes.
 
-“Sure thing. What do you need done?”
+“You did so good!” she gasped, her voice bubbly with a strange air of pride.
 
-“Just some trimming. Cut back the hollies and hedges. You don’t even gotta bag anything up. Just dump all the clippings in the pit. Sound good?”
+I felt my cheeks blush. I don’t know why, but I was flattered.
 
-“Yeah, I can do that.”
+“Okay, so one last thing and you can go back to bed,” she sang.
 
-“So, when can you come out?”
+She opened the jewelry box, and from it, she drew out a dark red cherry.
 
-“Well, I’m booked up all this week and most of next. Soonest I can come is next Saturday. Does that work for you?”
+I instinctively held out my hand, but she popped it into her own mouth with a giggle. She winked as she chewed it, then reached between her lips and pulled the pit out from behind her teeth.
 
-“You can’t come sooner than that?”
+She took my hands in hers for the last time, and placed the cherry pit on my sore palm. She closed our hands around it, and looked deeply into my eyes.
 
-I pull out my schedule book and glance over it. Unfortunately, being flexible with my schedule comes with the occupation. Wouldn’t want to lose a job because I can’t come out as soon someone wants me too.
+“This part is very important, Caleb,” she said. There as an unprecedented firmness in her voice. Her smile gone.
 
-“Suppose I can come out Tuesday, sometime after noon. I do have another job that morning, but it shouldn’t take that long. I can at least come over and get started after I’m done at their house.”
+“I want you to take this out to the back yard. I want you to find a nice spot, whatever spot feels right to you, and I want you to bury it. Cover it with dirt. It doesn’t have to be too deep. Just make sure it’s covered.”
 
-“That sounds great. See you Tuesday.”
+She patted the top of my hands.
 
-He hangs up before I can even say bye.
+“And once you do that, we’re never going to talk about this again. Okay? I don’t want you to tell anyone about this. Just go back downstairs, and go back to sleep. Don’t tell Travis, don’t tell your parents, or your teachers or your doctor or the priests at church. Don’t even tell me. And I won’t ever tell you. Okay?”
 
-Tuesday comes. I wake up early, throw my clothes on, gather my tools, and head out for my first job. It’s just general maintenance and clean up, however, with all the damage from the storm the other day, there’s a lot more to clean up there than usual. It ends up taking longer than expected. When I’m done I gather my gear and get in the van. I try calling John to tell him I’m on the way. He doesn’t answer, so I leave him a text. I’m really not looking forward to working a second job today. That’s what I get for being accommodating. Oh well. I have to make a living somehow.
+I was confused, but I nodded. She seemed serious, but still let a slight smile out.
 
-I pull up to John’s house and call him to let him know I’m there. No answer. I get out of the van, walk up to the doorway, and ring the bell. No answer. Maybe the doorbell doesn’t work. I try knocking, just in case. Still no answer. Looking around, I notice that the gate to the backyard is open. He’s probably back there. I walk over to the gate and peek through. John’s back there. He’s standing at the edge of the pit, staring in blankly. He doesn’t notice me. UFOs could be hovering overhead and he wouldn’t notice.
+“Thank you. I knew I could trust you Caleb. You’re very mature.”
 
-“Hey John!” I shout, trying to catch his attention.
+She stood up, and walked me back through the kitchen to a sliding glass door that led out into the yard.
 
-“Oh hey,” he replies. “I didn’t know when you were coming so I got started without you.”
+“Remember,” she said, “Once it’s buried, once you come back inside, we never talk about this ever again.”
 
-I walk through the gate and survey the yard. Not a thing looks like it’s been trimmed or cut in ages. Whatever he meant by, “got started without you,” he couldn’t have been referring to any gardening work of any kind.
+I nodded.
 
-“Anything you want me to prioritize?” I ask.
+“It never happened.”
 
-“Naw,” he replies, not looking up from the pit. “Just trim up anything that looks like it needs trimming.”
+I nodded again.
 
-He did mention Hollies over the phone, so I start with those. They look nice enough when they’re groomed, but they have these pointy leaves that poke in you like little needles whenever you have to trim them. I’m not a fan of Hollies. Of course the yard is surrounded by them. I start shaping one, trying to avoid getting poked with needle leafs, finish, and move on to the next. After I’ve done a few, John walks over to the Holly I’d just finished trimming, and inspects it.
+“Good.”
 
-“You can cut ‘em back more than that,” he says.
+She brushed my hair out of my eyes, and slid open the door.
 
-I look at him, and look at the Holly I’d just trimmed. Normally, I wouldn’t argue with a client, but sometimes the client doesn’t know what’s best for their plants.
+The sun had just began to rise. A few stray beams crested the trees in the distance, their promise of a new day painting the sky a deep turquoise.
 
-“It’ll look bald if I cut it back any more than that,” I say.
+Blades of wet grass danced between my toes as I paced the yard, cherry pit clutched in my hand, searching for a spot. I looked over my shoulder to see Travis’s mom watching from inside, arms crossed.
 
-“That’s fine. Don’t worry about the plants. Just cut it back more. I need the clippings to feed the pit.”
+A couple steps away, I saw a small hole had already been dug in the dirt. A little pile of upturned earth sat beside it.
 
-“Feed?” I ask.
+I remembered what she said, about finding what I thought was the perfect spot for it. I was confused. It was supposed to be my choice. But the hole was already there, waiting for me.
 
-“Fill the pit,” he corrects himself.
+I figured it was as good a spot as any.
 
-“Alright. They’re not gonna look pretty. But if that’s what you want.”
+I knelt down, dropped the pit in the hole, swept the soil over it, and started back towards the house. Travis’s mom was gone.
 
-I return to the holly I’d just finished and start cutting away at it even more. John returns to the pit to continue watching it. Once I’ve finished one I move on to the next, then the next. I work fast, but It still takes hours to trim all the shrubs. The entire time I’m working, John just stares into the pit. I try not to think about him, and just work. I try not to think about how I’m essentially butchering these plants. I try not to think about the pit, but the longer I’m there the more thoughts of it creep in, until it’s all I can think about. So far, I’ve managed to avoid to so much as look at it since I’d arrived, however, now that all the vines are pulled and everything is trimmed, all that’s left to do is gather the debris and pour it in. It’s not like I can do that without going near the thing or looking at it.
+I made my way back downstairs, dirt clinging to my palms, sand beneath my nails, a speck of dried blood in the center of my left hand. I didn’t bother to wash them off.
 
-I grab my rake and start scooping the debris towards the pit. John just watches as I scoop the debris in. At one glance, I can tell it’s definitely gotten deeper than when I last saw it, much deeper. Leaves and debris cascade down the side of it, falling to the bottom. As much as I’m putting in, it should be filling up at least a little. I leave to gather another pile of debris. When I return, it’s already deeper. Every time I leave to gather another pile, it’s deeper as soon as I come back.
+I laid back to rest as the morning sun crept into the basement. I took a look around at my friends, feeling oddly distant from them. I crawled back in my sleeping bag, and drifted off.
 
-“Well, that’s all of it,” I say, as I scoop in the last rake-full of debris.
+When I woke, the room was already abuzz. A couple of my friends were playing Halo while Travis rolled up his sleeping bag.
 
-The debris falls in, and I can hardly even see the bottom of the pit anymore.
+I looked down at my hands, and they were clean. In the center of my left palm sat a small mark of red skin, raised ever so slightly. I pressed into it with my thumb, and felt no pain. The mark was barely even noticeable, about the size of a bug bite.
 
-“That can’t be all of it,” John says. “There has to be more. It needs more.”
+“You good?”
 
-John jerks his head side to side, looking over the yard desperately. His eyes focus on something in the yard. He runs over to it and picks it up. It’s a pair of loppers. I’d left them sitting in the lawn when I started raking. He darts to the closest shrub, loppers in hand, and starts cutting the branches back, all the way to the trunk
+Travis eyed me up and down. I realized I was drenched in sweat.
 
-“You’re going to kill it. They won’t grow back if you cut all the branches off,” I say, not that he’ll even listen to me.
+“Yeah,” I lied, “I’m okay.”
 
-“I don’t care about the plants. Just help me cut these down.”
+“Okay cool,” he said, “We were waiting on you. My mom made French toast.”
 
-Branches and holly leaves scrape against his arms as he frantically cuts into them. He either doesn’t notice or doesn’t care as his arms start dripping with blood.
+Travis’s mom didn’t even look in my direction as we entered the kitchen. She was back in her normal soccer mom attire, a thin bathrobe draped over sweatpants. She went about serving up toast from her skillet without a glance, barely acknowledged me as she made her way around the table and popped a slice on my plate.
 
-“If you’re going to kill them anyways, there’s an easier way to do it,” I try to tell him.
+One by one my friends laced up their shoes as their parents arrived to pick them up. I tried playing video games with Travis, but couldn’t shake this weird, sinking feeling in the pit of my chest.
 
-He doesn’t even register that I’m talking to him. I leave him be, and head back to the van to pull out a handsaw. I return to John, brandishing the saw.
+“Caleb, honey! Your mom is here!” Travis’s mom called down the stairs.
 
-“John!” I shout. “This will be faster.”
+I said my goodbyes, and made my way up the stairs again, sleeping bag in tow. Travis’s mom kept her back to me again as she washed the dishes from breakfast.
 
-He still doesn’t hear me. Crouching down, I start sawing away at the base of the trunk. It doesn’t take long until the whole shrub topples over. As it crashes to the ground, John looks over at me.
+I thought about saying something, but I remembered what she had said. I remembered the disappointed faces. I remembered my promise. All I could croak out was a simple “bye.”
 
-“Tell me you have another saw,” he says.
+She finally smiled over her shoulder at me. No hint of anything in her eyes. No secret intonation. Nothing to suggest that there was air to clear between us.
 
-“Sorry,” I reply, “this is the only one I have.”
+“Have a good day, sweetie. Tell your mom I said hi.”
 
-“That’s okay,” he nods. “We can make this work. You just keep cutting these down. I’ll throw ‘em in. Easy peasy.”
+When I walked out of that house, I left the night behind me. It has taken so, so long for me to even find it in my head.
 
-John grabs the fallen holly and drags it towards the pit. I move on to the next one. If he had initially told me that he wanted these cut down I wouldn’t have had to spend all afternoon trimming them. Oh well, it’s too late now. I continue toppling over the shrubs. John continues dragging them to the pit and throwing them in. It shouldn’t take much longer. Soon enough there won’t be anything left to cut down. Then I can finally leave this place, and get away from John and the pit. The last holly topples over. John runs over to collect it. I follow him as he drags it to the pit. He throws it in. We watch as it falls down the pit, crashing against the walls on the way down, until it’s out of view. The bottom of the pit can’t even be seen anymore. There might not even be a bottom to it anymore. No longer is it just a pit, it’s a hole in the Earth.
+I didn’t see Travis’s mom much after that. Only here and there, only from afar, at the neighborhood pool or when she would come to pick him up from school. 
 
-“How far down do you think it goes?” I ask.
+I avoided Travis for a while, but started to feel bad when I could tell it was hurting his feelings. Slowly I started inviting him over to my place again, but I made sure I never went back over to his.
 
-“I don’t know,” he says. “All the way.”
+Travis’s mom never spoke to me about that night, and I never told anyone either. After a while, I started to wonder if it had even happened. The mark from my hand faded a day or two later, and the more I thought about that strange, strange night, the more it felt like something I must have dreamt.
 
-“There’s nothing left to throw in,” I say.
+Whenever she saw me, it was nothing but warm smiles and kind eyes. Never a wink. Never a glance. Surely there would be some weirdness if that all had really happened. Surely there would be some inkling of recognition, some moment when she broke character and mentioned what we did. Surely one day she would pull me aside and let me know what it was all about.
 
-John looks at me. His hair is greasy. He’s drenched in sweat, and dripping blood. He looks crazy.
+But that day never came. So I put the whole thing away at the back of my mind.
 
-“No, there’s something else,” he says.
+Until recently, I wasn’t able to trace any of the horrible things that have happened back to any particular moment. In retrospect, however, it all makes so much sense. Looking back now, I know for sure that was the moment it started.
 
-“Look John, whatever else you can throw in there, it won’t do any good. It’s just going to keep getting deeper and deeper. If anything, it seems to get worse the more stuff you throw in it.”
+Travis and I were only friends for a year or so after that night. When we hit the fourth grade, he transferred to a different school. A private school where only rich kids went. We didn’t keep in touch, and I ended up moving not too much later anyway.
 
-“Then we’ll just have to take everything back out of it. Then it will go back to normal. Then it will go away.”
+It wasn’t something my parents wanted to do. They had been fighting for quite some time. I don’t remember them being like that earlier in my childhood, but by the time I was 11 they were at each other’s throats every night.
 
-“That’s not what I’m saying at all. I really don’t think that’s how it works.”
+I guess the relocation was a last ditch effort to keep it together, and I guess it didn’t work. Something about a smaller house in a shittier town just made it all worse.
 
-He steps towards me. “You have to help me pull everything out of it.”
+I later found out that their arguing was a result of my mother’s diagnosis with a rare form of heart disease, from which she passed a year after the move. Apparently her treatment had wreaked havoc on our family’s finances. You might think that’s an insane thing for my father to blame her for, and you’d be right. But he did regardless.
 
-I step back. “I’m not going in there.”
+He began drinking heavily once she was gone. He had a problem for years prior, but her passing was an excuse to be more open about it. His liver gave up the year I turned eighteen. Just old enough to avoid the foster system, but too young to have any sort of firm footing in life.
 
-“You have to,” he says, taking another step towards me. “You can’t just leave the job unfinished.”
+College had already been out of the question, and the absolutely minuscule inheritance I received made it clear why. Considering all of the debt I assumed with the house, I might as well have not received anything.
 
-I take another step back. “No. I really should get going. You really should call someone about this pit. I don’t know who, but this is definitely out of my area of expertise. I can’t help with this.”
+Jobs have been hard to come by and hard to hold down. Fast food, janitorial work, delivery, odd jobs here and there… it’s always felt like no matter how hard I tried, any time I’d get close to being up on my feet financially, a rug would get pulled.
 
-“Yes, you can,” he says, lunging at me.
+Random layoffs, freak accidents, car trouble… Something bad happens, and it’s onto the next one.
 
-I jump back, but not far enough. He catches me, both arms around my leg. He pulls, and I fall straight on my back. He’s dragging me towards it. I’m clawing at the ground, struggling to hang on, but it’s no use. He’s pulling me closer. We’re close to the edge. I reach for anything I can grab. My hand lands on something as he’s pulling me.
+In so many words, my entire life has been a constant string of misfortune for as long as I can clearly remember. An endless carousel of shit luck. Ever since that night, any inkling of happiness snuffed out the moment it started to show.
 
-“John!” I shout.
+That is, until this summer.
 
-He turns to look back at me.
+I can’t fully describe it, but a few weeks ago, out of nowhere, the sun came out for the first time in well over a decade.
 
-“Go in yourself!” I shout, swinging the rake at him, hitting him right in the face. The impact makes him lose his grip on me. He falls backward into the pit. I watch as he tumbles down the side of it, falling further and further down into the abyss, until he can’t be seen any longer.
+It felt like a physical weight had been lifted from my shoulders. I woke up one morning, and the world felt a little brighter. A little more welcoming. I’m really struggling to put it into words. Everything just felt… better.
 
-I stare into the dark chasm for a while. I couldn’t tell you how long I stood there. Eventually I manage to snap back to my senses and turn away from it. I gather my tools and head back to my van. I throw the tools in the back and get in the drivers seat. As I’m driving home, I think of John and his pit. Then, a single thought crosses my mind. “How the hell am I supposed to get paid for this?”
+That probably sounds stupid, but it was a palpable difference. A significant shift in general atmosphere, so much so that I literally wrote down the day.    
+May 20th, 2026.
+
+It was infinitely easier to get out of bed in the morning. I started getting in a groove at work, found myself shooting the shit with the other dishwashers.
+
+I even went on a date. My first date since high school that didn’t end in an awkward hug goodbye and the knowledge that I’d never see them again. I’ve had a hard time being intimate with anyone in my adult life, but it finally feels possible now.
+
+After a whole month passed with no unexpected setbacks or ugly news, I got curious. I went to the library and got on one of the computers and looked up that date. May 20th, 2026.
+
+I browsed the news tab on Google waiting for anything to jump out at me. I don’t even know what I was looking for. Some sort of cosmic insight? Some hint as to what could have possibly happened to change my life in such a subtle, yet significant way.
+
+After a couple scrolls, I came across a pair of familiar faces that made my stomach sink through the floor.
+
+The first face was hers.
+
+There she was. After all these years, she stood in my monitor, glammed up in a pleated pantsuit. The article was posted by a local newspaper from my hometown.
+
+The headline:
+
+“State Congresswoman Slain by Home Invader”
+
+I sat there for what felt like hours. Just seeing her again brought back so much.
+
+Finally, I opened the page, and that’s where I saw the next familiar face.
+
+I was about fifteen years removed, but I still recognized the name. And in his eyes, I still saw my friend.
+
+The guy who killed her. I knew him. He was in my class. I knew him when we were kids.
+
+I went straight to my car and started driving. I live about 6 hours away from my hometown, and I didn’t stop once. Not for food, not even to use the restroom.
+
+I don’t know what possessed me. I don’t know what I wanted to find there. I just knew I had to go.
+
+The sun was just starting to set when I got to my old neighborhood. Muscle memory took over, and I started tracing down the route I used to ride my bike to Travis’s house.
+
+Within a couple minutes, I was outside.
+
+The house was significantly larger than I remembered it. I could clearly make out where the skeleton ended and the additions began, but they had built so much onto it over the years that I barely even recognized it.
+
+New rooms had been added on all sides. A beautiful wraparound porch. A 3-car garage. A second story. A sunroom with magnificent glass walls where the sliding door to the backyard once was.
+
+I parked and got out for a closer look. No signs of life as I wrapped around the sunroom, towards the back yard.
+
+A chest-high picket fence blocked my path, but did nothing to obstruct the view.
+
+Dotting the lawn, I found a grove of about twenty cherry trees. Each one stood tall, branches full of fruit.
