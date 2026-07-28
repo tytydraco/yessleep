@@ -1,0 +1,46 @@
+People keep looking at me weird. Not everyone, maybe a quarter of the people that see me out in public look at me like I have six heads.
+
+To be fair, I don't see that many people usually. I work from home, I rarely see family, and I haven't made many new friends since I moved to this city. I began to feel purposeless, worthless even.
+
+I'm not much to look at, but I don't think I'm scary. But that's how they look at me. Like there's something sinister and vile standing behind me-in front of me, maybe-that I can't see. A deformed deviant jester dancing grotesquely right behind my eyes. I've spent countless hours staring into my pocket mirror, desperate to see what they see in me.
+
+On the subway this morning, an old woman sat squarely in front of me. Busy with tucking a folded stack of papers into her purse, she didn't notice me right away. But I waited. I wanted to get ahead of the searing rejection to come when she eventually looked my way.
+
+She looked up and started to smile before poorly concealing a high-pitched gasp with a wrinkled hand. She fixed her gaze onto her shoes for the rest of the ride.
+
+Usually, when I have an encounter like this, I sink into shame. I stare into my phone screen pretending to be occupied with anything other than the burning question of *what the hell is wrong with me?*
+
+But today, I was fed up. Gritting my teeth I kept my eyes on the old woman. I imagined she felt my eyes burning into the top of her tender head. She twitched periodically, blinking hard down at her pristine white shoes.
+
+If I couldn't escape this, she wouldn't get that luxury either, at least for as long as she was in front of me.
+
+After about two minutes, what must have felt much longer for the woman, she reached up and yanked on the pull chord, and the bus stopped shortly after.
+
+The old woman got up quickly and crossed over to my side of the bus, gripped the handrail and turned her cheek to me, never looking at me. 
+
+"It was an accident," she said, "You have to believe me, I feel just awful, but it was an accident."
+
+*What was an accident? Her ignorant gasp?*
+
+I got off at the next stop and started walking towards my apartment. About half-way, I saw an agitated looking man struggling to staple a paper onto a telephone pole. The October wind blew his thinning brown hair around and rippled his short sleeve shirt against his torso, wafting at me a smell that can only be described as stress sweat.  His hands shook as he smoothed it over the curve of the splintered wood, revealing a photo of a middle-aged woman in a floral dress, a huge gummy smile pulling her eyes nearly closed. 
+
+"Oh man," I said, avoiding his eyes. 
+
+"My wife," he said, avoiding mine. "She went out for a night with friends, and she hasn't come home."
+
+"Have you organized a search? I'd be happy to help. I'm right down the street." 
+
+"Yes! Yes, that would be so kind. Let me give you-" 
+
+He reached deeply into the pocket of his cargo pants, searching. And when he looked up to politely acknowledge my wait, I already had my pocket mirror in hand, angled facing me and just to the side of his head. He smiled politely and met my gaze, and I saw it. In the mirror. In my eyes.
+
+His thin hair, stringy and wet. Dirt smeared across pale cheeks where gloved hands scraped away sweat. A gaping hole in the earth stood before him, holding bits of icy white flesh haphazardly concealed beneath tattered floral fabric. 
+
+He gasped, stepping back and knocking his head on the wooden pole. "What the fuck man!" His voice was shrill, fear buried under rage.
+
+I cocked my head and smiled softly as he took off running. I ripped the missing poster down and shoved it into my pocket. 
+
+I walked back to my apartment, unable to suppress the swelling joy in my chest. For so long I've yearned for a purpose, a container for the rage. They weren't looking *at* me, no, but death is in me too.
+
+At my front door, I pulled the poster from my pocket, gently smoothing the wrinkles to reveal the woman's radiant face. For so long they'd acted like there was death in my eyes, and maybe they were right! Because tomorrow, I'd start with her husband.
+

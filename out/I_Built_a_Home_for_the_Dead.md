@@ -178,7 +178,7 @@ And when she saw Billie come into the room, white flowers sprouting across her s
 
  
 
-\--- 
+\\--- 
 
  
 
@@ -436,7 +436,7 @@ And I can't stand it. 
 
  
 
-\--- 
+\\--- 
 
  
 
@@ -734,7 +734,11 @@ The crunching footsteps stopped. Behind my eyes came curly hair, sunlight in Oli
 
  
 
-Asher? Can you ask them to turn off that monitor? I can’t hear myself think, and I’m scared of what happens when it stops. 
+Asher? Can you ask them to turn off that damn monitor? I can’t hear myself think.
+
+Asher, please stop turning it off.
+
+Asher I’m scared.
 
  
 
