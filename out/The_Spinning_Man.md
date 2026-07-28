@@ -448,3 +448,5 @@ He led the way, and I reluctantly followed. I hoped the phone stabilization was 
 “Cody, shut the fuck up!”
 
 I wish I could say my school project was all peaches and cream from there, but things were about to get so much worse.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1v983m8/the_spinning_man_part_2/)
