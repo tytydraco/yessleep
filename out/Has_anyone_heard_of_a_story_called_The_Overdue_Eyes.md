@@ -1,0 +1,108 @@
+I am a writer, I love reading and writing all kinds of entertaining and incredible tales.
+
+I've dipped my toes into writing almost every kind of genre in many different kinds of formats.
+
+I've done on paper, online, and even on typewriter: I recently bought it as I love the sounds it makes.
+
+However, one day as I was browsing through my computer, I opened the Notepad app.
+
+I use Notepad to write down ideas of stories or interesting things in the books I read, but when I opened  it today, there was a story I didn't remember writing.
+
+It seemed like it was the beginning of a horror story, one of my favorite genres.
+
+**”The Overdue Eyes.”**
+
+**“The man was cold and callous, only interested in his hobbies and knickknacks.  He did not say hello to anyone on the street, head in book alone.**
+
+**His family and friends had all but left him due to his home in the hole of the poker table and at the bottom of a bottle.**
+
+**One night, the man was perusing through his wealthy and large collection of reading material. He reached for a book he had not read before, he sat in his favorite chair, and began his most loved, and only pastime.**
+
+**After a few chapters had been gone through, there was a knock at the door that battered and clanged with an aggression so fierce the man worried the door would pop off his hinges.**
+
+**Outside the door he heard a voice, distorted and garbled, yet the voice was human, sure enough.**
+
+**‘Sir, your time for reading is up, no more words shall pass your eyes, you've run out of the time you dwindled and of the books you have rented in life, now you must pay.’**
+
+**The man quickly clamored to his feet, he tried to be as quiet as possible as he locked the deadbolt of his door, and pushed a piece of furniture in the way.”**
+
+That is where the story ended, it was quite good, though I couldn't help but relate to the poor main character.
+
+The name did not make sense to me either, but sometimes the name doesn't have to, it just has to sound interesting or frightening enough for someone to pick it up.
+
+I did not write this, that was what truly worried me, I had not a single recollection of ever putting this to paper or typing it up.
+
+I did some googling, but no stories follow these words exactly, so I couldn't have copied this from somewhere, nor did I ever recollect reading anything like this either.
+
+I didn't know what to really make of it, but what I did know is that it was a very good story. I did not want to waste it, so I started to write more on it.
+
+A few weeks later I had written up my own first draft. It was rather good. I tweaked some words and things, and made it have a very scary ending.
+
+While I was finishing up touches on it, I decided to go back and look at the original to make sure everything lined up correctly tone wise.
+
+And this is now where I've decided to put my new story on halt, and make the post your reading now.
+
+It was updated.
+
+I'm not sure if my computer and laptop have been compromised and this is some prank from someone who's delving into my bank account as I type, or if there's a carbon monoxide leak and I'm writing a story I can't remember.
+
+Or maybe someone has broken in and been writing stories? Most entertaining thief id have ever met.
+
+Here is the continued part of the story.
+
+**“Once the man had made sure the door was secured  and safe, he ran to his windows, the first, was locked, the second was the same, however the third was open wide with a feverish wind blowing the curtains and blinds.**
+
+**Knowing he had to do something,  he grabbed a letter opener off of his writing table and he rushed into the bathroom and locked the door.**
+
+**He heard footsteps outside the bathroom, stopping right outside the door he was behind**
+
+**He stepped away from the door, staring intently at the shadow of the feet planted outside. As he stared, he softly watched the light regain the ground it had lost, as the two feet planted at the door, softly lifted up.**
+
+**He couldn't help but let out a noise as the door handle started to turn gently, once, then again, then the third time it shook with a snap.”**
+
+This was better than what I had written by a mile, I immediately started putting these new elements into my story, and into the post you are reading now.
+
+While I am worried about how this is getting onto my computer, whoever or whatever is doing this is a great writer, so, I'm simply going to let them do their work.
+
+Some may say this is foolish, but that is why I am making this post, so that way once I get the ending of this story, then I can stop it.
+
+I simply must know how this ends.
+
+
+
+I came home today to my typewriter typing itself, it's not made to do that, it can't do that!
+
+However it was! It was typing itself!
+
+I read what it had put out, and it was the ending of the story I was so eager to read.
+
+**“The door brushed open gently, the doorknob hitting the ground with a thud as it finished moving. Bracing and expecting for something to be standing on the other side, when he looked there was nothing.**
+
+**He slowly moved out of the bathroom, peaking around the door, hoping to continue to see nothing.**
+
+**Once his eyes hit his living space, and there was nothing there, he breathed a small exhale of relief with a chuckle.**
+
+**Above him, he softly heard it go ‘Shhhh’**
+
+**He tried to resist, but it pinned him to the floor, taking the letter opener with ease, it softly stuck it under his eyelid, and his left eye came out with a little ‘pop'!”**
+
+**He tried to scream, but all he could do was try, as there is no yelling in the library.**
+
+**Then followed the right eye with the same little pop!**
+
+**He laid there quietly, alive and in pain, without the ability to express it, as it softly took the eyes it had earned, it left from the window it arrived from.**
+
+**It was weeks before anyone found the poor man, no family came to check, no friends who called, just the landlord who came and saw the gruesome site.**
+
+**That is what happens to those who are late paying off the fee of life: how much time do you have?**
+
+**The End.”**
+
+I don't like this anymore, not a bit.
+
+I've deleted all traces of the story.  
+Deleted off of the computer, shredded the paper, and I even threw away my typewriter.
+
+I should have done this to start with. I'm going to finish this post, grab a book I've not read before off my shelf, and relax in my favorite chair to distract myself.
+
+Something about that feels right.
