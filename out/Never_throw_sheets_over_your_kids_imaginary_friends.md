@@ -1,0 +1,141 @@
+I really don't get it, man.
+
+Look, I'm all for kids' imagination being encouraged. It's just that... I have never had an imaginary friend when I was younger. I made up stories and played with anything I could get my hands on, yes, but I never had *one imaginary friend* that I could physically see or that I could pretend was real without getting bored.
+
+Maybe my daughter Ramona took after her mom. I wouldn't know - we separated as her addiction spiraled out of control, and I heard she'd died a few years back. I had to just take Ramona in the middle of the night when she was a baby and leave and, after some court dates and a not so rough battle for custody, I was left with her. Ramona's mom was a heroin addict and she would do other stuff too, hallucinate. I sometimes secretly thought that Ramona's friend and ability to *see things* was due to the drugs her mom consumed while she was pregnant with her. I'm surprised Ramo was healthy considering all the shit her mom did. Maybe it took a toll on her mental health.
+
+I don't hate my kid, I know it sounds like that. I just struggle to understand why she seems so affected by this imaginary friend of hers. To the point where she actively searches for their support and approval and saves them a seat at her table. It's fucking creepy sometimes. I thought it could be her mom haunting us, but I'm not so sure.
+
+"Are they a guy of a girl?" I asked Ramo.
+
+"I don't know, they don't speak. I call them a he just because that's what I like."
+
+"Okay, but how does he look like?"
+
+"Neither a guy or a girl, dad."
+
+She called him Mr. Click because he talked to her just in clicks. She'd imitate the clicks she heard by using her tongue or her pen. Sometimes she'd sit by me and click her pen as if she was talking to him. For a 6 year old, Ramo's awfully smart and intuitive.
+
+Sometimes, she'd just sit in the hallway and stare at something, or tilt her head to listen. She started doing that at night, and I would wake up to her silhouette in the doorway. She said she was listening to me breathe. That she heard people sometimes died randomly in their sleep and that she was scared now.
+
+"Where'd you hear that?"
+
+"Mr. Click told me."
+
+"Right. And that's not concerning to you?" I asked, half-joking.
+
+"No. He's always been real with me."
+
+"Does he like me?"
+
+"We don't talk about *you,* dad!"
+
+"But what do you talk about?"
+
+"Lots of stuff."
+
+"Mom?" I had to ask.
+
+She shook her head. "They don't get along too well."
+
+That was such an odd thing to say. I was a little taken aback, but at least Mr. Click deemed me as unimportant. "Well, Ramo, just remember that you don't do anything he asks you to do. Never open any window or swallow anything he tells you to."
+
+"That's so stupid. He's not going to ask me to do that." She didn't seem so sure of herself, though.
+
+"Does he follow you around, this... Mr. Click?"
+
+"No. He rarely leaves the house. Most of the time it's just you and him. He sleeps in your room, you know?"
+
+My throat went dry. "Mmh. W-why?"
+
+She shrugged. "Ask him."
+
+Months passed, and her behavior stayed the same. It didn't get worse or better, and I sort of wanted her to forget about him. I hoped she'd outgrow him. Because my job didn't allow me to spend too much time home and out of fear of leaving Ramo alone, I would send her off to her grandma's (my mom) for weeks on end during the holidays. "Does Mr. Click like grandma?"
+
+"I told you, he's always at home with you." Ramo always talked to me as if I was some dumb kid who needed explaining.
+
+I am 35. I'm a man. I'm pretty athletic. I'm not some pussy who gets scared of fake ghosts. Did the thought of Mr. Click looking at me occur to me while alone in our apartment? Yeah, sometimes. I never let it get to my head.
+
+See, our apartment is built like this: You enter into a small hallway with a closet, which opens into an open space kitchen and living room. On the other side, another hallway that's long enough for some darkness to gather ends in our bathroom with no windows. On the sides of the hallway, four doors: my bedroom, hers, my working space / gym / storage, and another tiny closet with the washing machine and central heating. So I can see the entirety of the hallway from the front door, my living room and a tiny section of my bedroom. The hallway, as I said, doesn't connect to any windows and if the doors to the other rooms are closed it's almost completely dark. I had a light there that just went dimmer and dimmer until it ended up glowing sickly. I need to change it, but it's so hard to find a lightbulb for that specific lamp, apparently.
+
+I described the apartment because I sometimes got creeped out by the hallway when I was alone. I would be in the kitchenette and I'd get this feeling of being watched, turn to see the dark hallway. I kept thinking about Mr. Click. Why did I feel safer with Ramo in the house?
+
+It may be because I was always a little fearful and superstitious. How'd that quote go... "I'm not superstitious, I'm a little stitious." Yeah.
+
+I was also paranoid about break ins, which wasn't totally unjustified. Last week, I was in the bathroom, brushing my teeth in silence, when I heard the front door lock unlock.
+
+I immediately froze and widened my eyes. I stood there, heart barely beating, breath slowed down, dizzy and unsure of what to do. I had the type of mechanical lock that theoretically could be broken into from the outside, with pins, and I had just heard that very thing happen.
+
+*Do I get out? Do I lock myself in the bathroom?*
+
+I brought my forehead to the door and listened. As hard as I could. For footsteps. For anything.
+
+Nothing. Nothing at all. On one hand, I was glad they'd picked a moment when Ramo wasn't home. I put the foamy toothbrush back in the holder, silently spit some toothpaste without rinsing, and wiped my sweaty hands on my shirt. Then, I grabbed the toilet brush, ready to shove it into the intruder's eye. I turned the doorknob quietly, then turned the light off in the bathroom to not draw any attention. I slowly opened the door and looked out.
+
+I could see the darkness stretch to the moonlit living room, and my closed front door. I stepped out carefully, panicked and blurry-eyed. Slowly, I checked every single room in the house, my back to the wall. I found no one. When I made it to the front door and tried it, I found out that it had always been locked. No break in, even thought I heard the lock break.
+
+I know you probably figured it out by now. What sound does a lock make when it breaks? A click.
+
+I heard a click. And it was loud enough in my ear. Was I hanging out with Mr. Click in the bathroom all this time?
+
+I got sick from that thought. Fear usually has a very prominent effect on me - it makes my stomach hurt.
+
+I drove to my mother's house that night.
+
+The next day, I talked to Ramo and told her I'd heard Mr. Click for the first time. It felt safe to have this conversation with her away from him.
+
+"I don't think it was the first time."
+
+"How do you know?" Remember when I said that Ramo is very intuitive and smart?
+
+"Well, sometimes you yell at me to stop playing with the lights. I'm not. You just hear him and mistake it for the sound of me turning them on and off."
+
+I clenched my jaw. What the fuck. What the fuck.
+
+"Mmh. Okay. Okay... yeah, um. How does he look like?"
+
+"I can't describe."
+
+"Is he at least human? Human shaped?"
+
+"Why does it matter?"
+
+I felt a heavy weight drop on my chest. I had to see this motherfucker who was clicking in my house. Ramo noticed I was distraught. "Have you listened to what he says, dad?"
+
+"I don't care. We don't know his intentions. I'm scared for us, Ramo."
+
+"He's been saying purple eyes a lot lately. I don't know why. And sometimes he complains to me that you ignore him. He said he'd like to swap places with you, and that he might, and I won't be able to tell the difference. That's a really weird thing, but I'm sure he has good intentions."
+
+It was a little heartbreaking to hear that Ramo was so desperate to see the good in her only friend that she believed he was as pure as her. We made a plan. We'd turn him into a ghost. That way, I could see him too. I was glad Ramo was communicative and willing to trust me.
+
+We came back in the house a few days later. I asked my girl to signal to me when he was nearby, and she did. I was cooking dinner, and that's when Ramo gave me a sign that Mr. Click was there. I went over and took a bedsheet, then we silently exchanged some looks that indicated a general area where I'd... *operate.*
+
+I threw my arms out and let the bedsheet fall over the empty space she'd indicated.
+
+As I did that, my mind laughed at me. It was a little ridiculous. It would fall flat, but at least I'd get to prove to Ramo (and maybe to myself) that he wasn't real. I was a literal grown man who was scared of a few clicks. Fuck's sake.
+
+In that fraction of a second, as the bedsheet passed the level of my head, I let out a sigh of relief that froze halfway through my throat.
+
+The bedsheet showed the outline of a hunched person, a little shorter than me, neck perked up and head tilted, as if they were listening.
+
+I froze and stared at the hanging bedsheet. I was in shock, and you don't think clearly in those situations. I half expected it to lunge at me, but it just remained like that. I stared at the round outline of the head, my ears ringing from the high blood pressure. I backed away, not turning away from Mr. Click for a second, grabbed Ramo's hand and pulled her to the door. As we reached the hallway, he disappeared from my vision.
+
+*Keys. Fuck.*
+
+I lunged to the bowl, grabbed the keys. When I did that, the spot where Mr. Click had remained came into sight again. This time, the sheet was thrown on the floor.
+
+I shrieked and got the fuck out. I didn't even check to see if I'd left the stove on or not.
+
+"Did he follow us?" I asked Ramo in the car.
+
+"I'm not sure. He won't let me see him anymore. I worry he's angry."
+
+"Fuck him."
+
+Ramo was awfully quiet as I drove to my mother. Another parent would have claimed she was just in shock, but I knew there was something she was not telling me. "What is it, baby?"
+
+"I heard his clicks as we were going downstairs."
+
+"And?"
+
+"I don't know. He said we forgot our [coats."](https://www.reddit.com/user/EmmaWatsonButDumber/comments/1eevj6b/full_story_list_with_links/) 
