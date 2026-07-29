@@ -1,0 +1,26 @@
+*My Friend’s Sister, İrem.*
+
+*Have you ever met someone who doesn’t exist in official records, whose own grandparents have never even heard her name, but who lives in a house in the flesh? I have. My friend's older sister, İrem...*
+
+*It all started last week while sitting at my friend Can’t's house. Can’s older sister, İrem, is 21 years old. She is an incredibly sweet, cheerful girl who helps everyone. She goes to university and also works part-time at a local cafe.*
+
+*I know İrem very well too. She made us coffee so many times and broke up our fights whenever Can and I argued. It’s not just me; all of Can’s friends, İrem’s boyfriend of two years, Eren, and even her manager at the cafe know her in the flesh. She is a 21-year-old with a completely normal life in this world.*
+
+*Things got weird later that evening, I suppose. Can and I went out onto the balcony. After that heavy, suffocating air inside—the nature of which I couldn't quite figure out—the cold night air hitting my lungs made me come to my senses a bit. I pulled two cigarettes out of the pack and handed one to Can. The flame of the lighter momentarily lit up both of our faces in the dark and then went out. I took a deep drag and blew the smoke into the darkness of the night. My mind was completely scattered. I was trying to make sense of those moments in the living room just a while ago—moments that seemed utterly normal, with every gear turning smoothly, yet still left an indescribable unheimlich feeling inside me.*
+
+*Just as I was about to turn to Can and speak, the screen of the window right behind us creaked slightly. İrem came out to the balcony to join us, holding two glasses of tea. The hot steam escaping from the glasses mixed with the cool night air. She had her usual sincere, comforting smile on her face as she handed us the glasses. She was so much in the flesh, so much a part of life... The scent of her hair, the texture of her cardigan, the way her fingers gripped the glass... With everything she was, she belonged to this world, to that house.*
+
+*Can thanked her and took the tea, took one last puff from his cigarette, and flicked the ash down from the balcony. To break the ice and start that familiar sibling banter, he asked in a very relaxed manner:*
+
+*"Sis, we are going to the village next week, are you coming?"*
+
+*İrem leaned against the iron railings of the balcony. She turned her eyes toward the empty road lit by the dim streetlamps of the neighborhood. She took a calm sip of her tea, and without ruining that sweet expression on her face, spoke in a very natural tone, as if talking about the most ordinary thing in the world.*
+
+*İrem: "Oh honey, you know I want to come very much too, but my business here is busy," she said.*
+
+*Me: "Sis, didn't you just leave your job, and your school is finished too, what business could you possibly have?"*
+
+**İrem suddenly opened her eyes wide at me, as if I had insulted her.**  
+**"None of your business, kid. Do not interfere," she said.**
+
+*Can: "Hey sis, calm down, he didn't mean anything."*
