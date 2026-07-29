@@ -1,0 +1,91 @@
+My family always called it the *Panggilan Bisu*—the Silent Call.
+
+In my lineage, we don’t get premonitions in dreams, nor do we see white shadows at the edge of the rubber plantations. We just get a phone call. Exactly one call per death. No caller ID, no static, no voice. Just dead air for twelve seconds, followed by a sharp disconnect.
+
+The first time it happened, I was fourteen. It was a rainy Tuesday afternoon in Ipoh. My old Nokia flipped open, ringing from a private number. I answered, putting it to my ear:
+
+"Hello?"
+
+Nothing. Not even the faint hum of background noise or the rustle of wind. Just absolute, weightless silence. I hung up after ten seconds, thinking it was a dropped signal.
+
+Twenty minutes later, my mother got the call from the hospital. My grand-uncle had passed away in his sleep.
+
+The second time was three years later. 3:00 PM on a scorching afternoon. The phone rang again—Private Number. I held it to my ear, listening into the void. Twelve seconds of absolute silence. Click.
+
+An hour later, news reached us that my cousin had been in a fatal motor crash on the North-South Expressway.
+
+By the time I hit my mid-twenties, I learned the rule: **It only happens once per relative.** The call doesn't warn you *who* died, and it doesn't give you time to say goodbye. It’s simply the universe checking in to deliver a blank receipt.
+
+Over the years, I stopped answering unknown numbers altogether. But it didn't matter. If it was *the* call, the phone would ring regardless of whether I had signal, whether I was on airplane mode, or whether the phone was turned off.
+
+Which brings me to last night.
+
+I live alone in a small apartment in Petaling Jaya. At 2:14 AM, my phone began to vibrate on the nightstand. The screen lit up: *Unknown Number.*
+
+My heart dropped into my stomach. I sat up in the dark, staring at the glowing glass. I hadn't heard from my parents in two days. My mother had been complaining about chest tightness earlier that week.
+
+With trembling hands, I swiped green and pressed the phone against my ear.
+
+I waited for the silence. I prayed for someone to speak—to hear a telemarketer, a drunk caller, a wrong number. Anything.
+
+Instead, the silence descended.
+
+It was that distinct, suffocating airlessness. No ambient static, no breath, no frequency. Just twelve seconds of absolute emptiness.
+
+1... 2... 3...
+
+Tears welled up in my eyes. *Please not Mom. Please not Dad.*
+
+4... 5... 6...
+
+7... 8... 9...
+
+10... 11...
+
+*Click.*
+
+The call ended. I collapsed back onto my pillows, sobbing silently in the dark, waiting for my mother or father's phone number to pop up with the terrible news. I sat there for an hour, holding my phone, staring at the screen until my eyes burned.
+
+Nothing. No messages, no calls from my siblings, no news from the hospital.
+
+By 4:00 AM, exhausted and mentally drained, I decided to call my mother myself.
+
+It rang three times.
+
+"Mani?" my mother’s voice came through the line, sounding groggy and confused. "Why are you calling so late? Is everything okay?"
+
+"Mom?" I choked out, a wave of immense relief washing over me. "Are you okay? How's Dad?"
+
+"Dad is asleep next to me," she said, her voice softening with concern. "Mani, what’s wrong? Did something happen?"
+
+"No... no, I just had a bad dream," I lied, wiping my face. "Go back to sleep. I'll call you tomorrow."
+
+I hung up and let out a breath I felt like I'd been holding for hours. My parents were fine. My sister was studying abroad in Melbourne, but I checked her social media—she had posted a story ten minutes ago. My brother was on duty at the fire station and replied to my text instantly.
+
+Everyone was alive.
+
+I laid back down, thoroughly baffled. The rule had never failed. One call, one dead relative. Had the entity behind the calls made a mistake? Was it just a glitched network call after all?
+
+I was just starting to drift off to sleep when my phone vibrated against my chest.
+
+I looked down.
+
+*1 New Voicemail.*
+
+My stomach twisted into a hard knot. The Silent Call *never* leaves a voicemail. It’s just a live twelve-second link.
+
+I clicked the notification and set the phone on speaker.
+
+The recording started. For the first ten seconds, there was only that familiar, heavy, absolute silence.
+
+Then, right at the twelfth second, a soft, raspy breath exhaled into the microphone.
+
+And a voice—weak, wet, and echoing from somewhere very close—whispered:
+
+*"I'm sorry, Mani... I didn't know how else to tell you."*
+
+It was my own voice.
+
+I froze. The voicemail ended, and my phone screen went dark.
+
+And then, from the far corner of my pitch-black bedroom, right beside the wardrobe... I heard a quiet, rattling gasp for air.
