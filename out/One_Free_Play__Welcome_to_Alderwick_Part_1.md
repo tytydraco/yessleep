@@ -1,0 +1,565 @@
+We had been driving for nearly nine hours when Leo admitted he couldn’t remember the last few miles.
+
+He said it casually at first, like he had only missed a turn or forgotten the name of a town we had passed. It took a few seconds for the rest of us to realise what he meant.
+
+“What do you mean, you don’t remember?” Priya asked.
+
+“I mean I remember leaving the motorway and Connor complaining about the music. After that, nothing until you asked how long we had left.”
+
+Connor leaned forward between the front seats. “You’ve been driving. How can you not remember driving?”
+
+“That’s why I’m telling you.”
+
+There were four of us in the car: Leo, Connor, Priya and me. We had met during our first year at university and remained friends after we graduated. The road trip had been Connor’s idea. He had spent months sending us lists of places he wanted to visit, most of which involved driving hours to look at something he had seen in a video online.
+
+Our planning had been fairly optimistic. We had booked places to stay for most nights but left that evening open, assuming we would find somewhere once we knew how far we had managed to travel. It seemed sensible when we were sitting in Priya’s kitchen with a map and four glasses of wine. It felt less sensible after dark, with no signal and no idea where we were.
+
+Leo slowed the car. The road was barely wide enough for one vehicle, with tall trees close on either side. There were no houses around or places to turn around.
+
+“What does the map say?” I asked.
+
+Priya held Leo’s phone closer to her face. The map had frozen with the small blue arrow sitting in the middle of the motorway.
+
+“It says we’re still on the motorway.”
+
+“We haven’t been on it for at least twenty minutes,” Connor said.
+
+“Very helpful,” Priya muttered.
+
+The route had originally taken us towards a service station. According to the screen, we were still twenty miles away, although the arrival time had not changed since we left the main road.
+
+Connor suggested reversing. Leo told him he was welcome to try if he thought he could keep the car straight for several miles in the dark. Priya said we should continue until we found a driveway or junction, then turn around properly.
+
+The radio crackled between stations. Leo switched it off, but a few seconds later the music started again, barely loud enough to hear. It was the same song that had been playing before we turned, picking up from the exact same line.
+
+Connor leaned forward and turned it off again.
+
+“Loose connection,” he said.
+
+The music stopped this time.
+
+We continued for another ten minutes before the trees suddenly ended. The road widened, and smooth tarmac replaced the cracked surface.
+
+Streetlights appeared ahead, illuminating a wooden sign beside the road.
+
+WELCOME TO ALDERWICK
+
+Small yellow stars had been painted around the name. Someone had tied strips of multicoloured ribbon to the post, and they fluttered in the wind.
+
+The town appeared almost immediately after that, gathered around one long street lined with brick buildings and cheerfully painted shopfronts. Strings of small lights stretched between the rooftops, glowing softly above rows of colourful flags that moved in the breeze. Flower baskets hung from the lampposts, and even though most of the windows were dark, warm amber light spilled onto the pavement and made the place feel welcoming and cosy, like we had arrived just after everyone had gone home for the night.
+
+Connor sat back.
+
+“Problem solved.”
+
+“We don’t even know where this is,” Priya said.
+
+“It has a sign. That’s already more information than we had five minutes ago.”
+
+We drove slowly along the street, passing a bakery, a butcher’s, a small supermarket and a pub that had already closed for the night. Painted stars decorated most of the shop windows, and a banner hung across the entrance to the church.
+
+ALDERWICK SUMMER CARNIVAL
+
+Near the far end of the street, a motel stood with its lights still on. Its sign looked older than the rest of the town, with VACANCIES glowing unevenly. A smaller board beneath it read:
+
+ROOMS AVAILABLE
+
+CARNIVAL TOMORROW
+
+Leo pulled into the car park.
+
+“We stay here, sleep for a few hours and leave first thing,” he said. “Agreed?”
+
+Connor had already unfastened his seat belt.
+
+The reception smelled faintly of lavender and polished wood. It was small but well kept, with dark wooden panelling and a faded floral carpet. A pair of armchairs sat beside a low table stacked with old magazines, and a vintage-looking lamp cast a warm pool of light across the front desk.
+
+An old brass bell sat on the counter, although we didn’t need to use it. A woman appeared through the doorway behind the desk almost as soon as we entered.
+
+She was probably in her late sixties, with short grey hair curled neatly around her face. She wore a red cardigan and a silver name badge that said Margaret.
+
+For a moment, she simply looked at us.
+
+Then she smiled.
+
+“You’re lucky,” she said. “We only have two rooms left.”
+
+Behind her, room keys hung neatly from rows of brass hooks. Most of them were still there.
+
+Leo glanced at me, but none of us challenged her. We were too tired to care whether the motel was busy or whether Margaret was trying to make it sound that way.
+
+She placed a thick register on the counter and turned it towards us. The pages were yellowed at the edges, with columns for names, addresses and dates of arrival.
+
+“I’ll need all four of you to sign.”
+
+“Can’t I just put my name down for both rooms?” Leo asked.
+
+Margaret’s smile remained in place. “We need everyone’s name. Fire regulations.”
+
+Margaret watched as each of us wrote, paying particular attention when Connor struggled to fit his address into the narrow space.
+
+“You’ve come a long way,” she said.
+
+“We’re only passing through,” Leo replied.
+
+Margaret asked where we were heading, whether we had family expecting us and how early we planned to leave. She made the questions sound like friendly conversation, but there were enough of them that Priya eventually stopped answering.
+
+Connor noticed a poster beside the counter. It showed a Ferris wheel against a dark blue sky, surrounded by the same yellow stars painted on the town sign.
+
+“Is the carnival any good?” he asked.
+
+Margaret’s face brightened.
+
+“It’s the best day of the year.”
+
+She told us it opened at midday in the field behind the church. There would be rides, music, food and games, and everyone in Alderwick would be there.
+
+“We’re leaving early,” Leo said.
+
+Margaret’s expression changed so slightly that I might have imagined it. Her smile remained, but her eyes settled on Leo for a second too long.
+
+“That’s a shame.”
+
+“We’ve got somewhere booked tomorrow night.”
+
+“You could still stay for an hour. It would be a pity to come all this way and miss it.”
+
+Connor laughed. “We didn’t exactly come for it.”
+
+“No,” Margaret said. “People rarely do.”
+
+She handed us two heavy brass keys, each attached to a smooth wooden block. One was for room seven and the other for room eight.
+
+Upstairs, the corridor was narrow and slightly uneven, with cream wallpaper that had begun to peel at the corners. The floral carpet was faded along the centre where years of footsteps had worn it down, and framed photographs of Alderwick hung in mismatched wooden frames along the walls.
+
+Priya and I took room seven. Leo and Connor had the room next door.
+
+Our room looked old, like it had changed very little in decades, but everything had been carefully looked after. There was a narrow wardrobe, a small dressing table and an old television with buttons along the side. The curtains were patterned with tiny red flowers, and a bowl of wrapped sweets had been left beside the bed.
+
+Priya dropped her bag on the floor and went straight into the bathroom.
+
+I was closing the curtains when I noticed the photograph hanging above the bed. It showed the carnival at night. Crowds gathered under strings of lights while the Ferris wheel turned behind them. The photograph had faded with age, but the people nearest the camera were still clear enough to make out.
+
+One of them was Margaret. At least it looked like her. She stood beside a stall holding a paper cup, wearing a pale dress with the same silver badge pinned to her chest. Her hair was grey and curled around her face exactly as it had downstairs.
+
+I lifted the frame from the wall. Someone had written a date on the back.
+
+August 1987.
+
+Priya came out of the bathroom drying her hands.
+
+“What are you doing?”
+
+I showed her the photograph.
+
+She looked at Margaret, then at the date.
+
+“Her mother?”
+
+“With the same name badge?”
+
+“It could be an old uniform.”
+
+I turned the frame over again. Even through the faded image, the letters on the badge were visible.
+
+Priya stared at it for a moment before shrugging.
+
+“Maybe she’s older than she looks.”
+
+“She looks exactly the same.”
+
+“We’ve been awake since six. Everything looks strange right now.”
+
+We were exhausted, and the photograph was old enough that the details could have been misleading. I hung it back onto the wall and got into bed.
+
+For a while, neither of us spoke. The motel was quiet except for the occasional creak from the pipes and Connor laughing through the wall.
+
+Just before I fell asleep, music began playing somewhere outside. It was faint, almost too distant to hear, but I recognised the melody. It was the same song the radio had played twice on the road.
+
+When I looked out of the window, the street below was empty.
+
+But just before I closed the curtains, I caught a glimpse of Margaret standing underneath the motel sign. She was facing the road, like she was waiting for something to arrive.
+
+By morning, Alderwick no longer looked deserted.
+
+Music drifted through the open window, and the street was filled with people. Stalls stood outside the bakery and butcher’s, selling cakes, paper flowers and handmade toys. Children played with painted stars on their cheeks, and somewhere near the church, a band was practising the same few bars repeatedly.
+
+Priya was already dressed when I woke. She was standing by the window watching the people below.
+
+“Did you hear music last night?” I asked.
+
+She nodded. “I thought it was coming from Connor’s room.”
+
+Connor denied it at breakfast. He claimed he had fallen asleep before either of us and accused Leo of talking in his sleep. Leo told him he only talked in his sleep when he was stressed, which apparently proved Connor had annoyed him even while unconscious.
+
+The four of us sat in a small dining room at the back of reception. Margaret moved between the tables with a pot of tea, wearing the same red cardigan as the previous night. There were six other guests eating breakfast.
+
+They watched us whenever they thought we weren’t looking.
+
+One of them was a thin man with a beard and deep shadows under his eyes. He sat alone near the window, tearing a piece of toast into smaller pieces. When Connor mentioned the carnival, the man’s hand stopped.
+
+Margaret appeared beside our table before he could say anything.
+
+“It’s perfect weather today as well,” she said.
+
+“We’re not staying,” Leo reminded her.
+
+Margaret poured tea into Leo’s cup even though he hadn’t asked for any.
+
+“The procession passes at eleven-thirty. You may as well watch before you leave.”
+
+Connor looked interested. Priya noticed and kicked him from under the table.
+
+“We need to get back on the road,” she said.
+
+The bearded man began coughing. It sounded forced, like he was trying to disguise a word. Margaret turned towards him, and he lowered his eyes.
+
+As we left the dining room, he caught my wrist. His grip was surprisingly strong.
+
+“Don’t let them—”
+
+Margaret dropped a tray behind us.
+
+The crash made everyone turn. By the time I looked back at the man, his hand had released me.
+
+“Don’t let them what?” I asked.
+
+He stared at the broken cups on the floor.
+
+“I was going to say don’t let them block your car in. The procession gets busy.”
+
+His voice was flat.
+
+Margaret smiled at him as she kneeled to gather the pieces.
+
+We returned to our rooms and packed quickly. When Leo tried to start the car, the engine made a dull clicking sound.
+
+He tried again.
+
+Nothing.
+
+Connor opened the bonnet and stared into it with the confidence of someone who had no idea what he was looking at.
+
+“Battery,” he said.
+
+“How do you know?” Priya asked.
+
+“That’s what people say when cars don’t start.”
+
+The man at the petrol station across the road came over before we called for help. His name was Bernard, and he wore faded blue overalls. He listened to the engine, checked the battery and told us one of the terminals had come loose.
+
+“That happens on the road out,” he said.
+
+“What road out?” Leo asked.
+
+“The one you came in on.”
+
+He tightened something, then asked us to try again. The engine started immediately.
+
+Priya thanked him and reached for her purse, but he refused to take the cash, telling us to save it for the carnival.
+
+“We’re leaving,” I explained.
+
+Bernard looked at the lights above the street. “Not yet, you’re not.”
+
+He said it with a smile, and Leo’s hand tightened around the car door handle.
+
+A line of children appeared at the far end of the street, carrying painted wooden stars. Behind them came the band, followed by dancers in bright costumes and a small wagon decorated to resemble a carousel.
+
+People stepped into the road, blocking the car.
+
+Connor laughed. “We can wait ten minutes.”
+
+The procession took nearly forty.
+
+By the time the road cleared, Connor wanted coffee. Priya wanted to visit the bakery because she had seen something in the window. Leo said he needed to stretch his legs before driving again.
+
+None of us suggested leaving immediately.
+
+We walked through the town while the carnival music grew louder behind the church. Alderwick was charming in a way that felt almost deliberate. Every shopfront had been freshly painted, flower baskets hung from the lampposts and strangers greeted us as though we were expected guests.
+
+At the bakery, the woman behind the counter refused to let us pay for four pastries.
+
+“Visitors eat free today,” she said.
+
+“How do you know we’re visitors?” Priya asked.
+
+The woman looked at our clothes, our bags and the motel key still in Connor’s hand.
+
+“We know everyone who lives here.”
+
+A small boy sat on a stool near the window, licking icing from his fingers. He stared at us while his mother wrapped the pastries.
+
+“Are you going to play?” he asked.
+
+Connor smiled. “Play what?”
+
+The boy’s mother placed both hands on his shoulders.
+
+“He means the carnival games.”
+
+“There are lots,” the boy continued. “But the old one is best.”
+
+His mother’s fingers tightened.
+
+“That’s enough.”
+
+Outside, Connor said he wanted to see what the boy meant. Priya told him he could search for mysterious old carnival games online once we had signal again.
+
+We crossed the street to an antique shop while we waited for Leo to finish his coffee. The window displayed old cameras, jewellery and faded postcards. Priya noticed a box of photographs near the counter and began looking through them.
+
+Most showed people standing in front of the carnival. The clothing changed from one photograph to the next, but the rides looked almost identical.
+
+Connor held one up.
+
+A young woman stood beside the claw machine with a yellow scarf around her neck. The photograph had been taken recently enough to be in colour, although the edges were faded.
+
+“Recognise her?” the shopkeeper asked.
+
+Connor shook his head.
+
+The shopkeeper was an elderly man with thick glasses and a waistcoat that strained across his stomach. He took the photograph from Connor and placed it under the counter.
+
+“When was that taken?” I asked.
+
+He glanced towards the door before answering.
+
+“Nineteen ninety-eight.”
+
+The woman in the photograph looked no older than thirty.
+
+“Does she still live here?” Priya asked.
+
+The shopkeeper’s expression instantly became guarded.
+
+“Everyone lives here.”
+
+A bell rang somewhere outside.
+
+The effect on the town was immediate.
+
+Conversations stopped. Shopkeepers looked towards the church, and children began pulling their parents towards the end of the street. The bakery closed its doors despite the trays of food still in the window.
+
+The shopkeeper told us the carnival had opened and that we should go before the queues became long. When I said we were leaving, his face filled with something that looked almost like disappointment.
+
+“We’ve already stayed this long.”
+
+That was the argument Connor used.
+
+We had already lost most of the morning. Another hour wouldn’t change much, and the carnival was apparently the only interesting thing in Alderwick. Leo was still reluctant, but Priya pointed out that we had accepted free food from half the town. Leaving without visiting would feel rude. I didn’t care enough to object.
+
+That was the part I remember most often. There was no threat, no moment when we were forced into anything. Alderwick simply made staying easier than leaving.
+
+We walked towards the church with the rest of the town. The carnival field lay behind a low stone wall. From the street, it looked small, but the ground stretched far beyond the churchyard once we passed through the gate.
+
+A man in a red coat stood at the entrance. He charged us two pounds each and handed us four red tickets.
+
+“Keep hold of those,” he said. “You’ll need them before you leave.”
+
+Connor turned his over.
+
+“What for?”
+
+The man smiled.
+
+“You’ll find out.”
+
+As we entered, people on both sides of the path stopped to watch us.
+
+Then the music began again.
+
+The carnival looked normal until we began paying attention.
+
+Children ran between the stalls with sweets in their hands. Couples queued for rides, and families sat at wooden tables beneath strings of coloured lights.
+
+At first, I thought people were staring because they recognised us as outsiders. Alderwick was small enough that four strangers would be noticeable. Then I realised they weren’t looking at our faces.
+
+They were looking at the red tickets in our hands.
+
+A woman selling candyfloss watched Priya fold hers into her purse. The operator of the carousel counted the tickets as we passed. When Connor stopped at a stall filled with glass bottles, the man behind the counter asked whether all four of us had received one.
+
+Connor held his up.
+
+The man smiled with visible relief.
+
+“Good.”
+
+“What does it do?” Connor asked.
+
+“You’ll find out before you leave.”
+
+Everyone gave us the same answer.
+
+The tickets weren’t for the rides. We paid separately for the carousel and a spinning teacup ride Connor insisted was suitable for adults despite being filled with children. When Leo asked whether the tickets could be exchanged for food, the woman behind the counter laughed like he had made a joke.
+
+“Save them for the games.”
+
+The games stood further back in the field. There were familiar stalls such as ring toss, but most of the games looked homemade. One involved throwing painted stones through small wooden doors. Another had a row of bells with no visible instructions.
+
+Each stallholder encouraged us to play somewhere else.
+
+The man at the ring toss looked at Connor’s ticket and told him the bottle game was easier. The woman at the bottle game insisted he would have better luck at the wheel of fortune. Before long, two stallholders were arguing about which game we should try.
+
+They stopped the moment we walked away.
+
+Near the carousel, a girl in a blue dress stood alone beside the fence. She looked about eight or nine, with dark hair cut bluntly at her chin. When I smiled, she came closer.
+
+“Which one of you is using theirs?” she asked.
+
+“Using what?”
+
+She pointed at the ticket in my hand.
+
+Before I could answer, a woman hurried over and gripped the girl’s shoulder.
+
+“Don’t bother the visitors.”
+
+The girl kept staring at me as the woman pulled her away.
+
+“Don’t let them choose for you,” she said.
+
+Her mother covered her mouth.
+
+Connor laughed awkwardly. “Friendly place.”
+
+We continued towards the back of the carnival. The rides were older there, and the cheerful music from the entrance faded. Most stalls stood empty despite the crowds elsewhere.
+
+Connor stopped at the shooting gallery.
+
+Tin animals moved along a track behind the counter. The man at the stall handed him an air rifle and accepted a pound coin.
+
+“You get three shots,” he said.
+
+Connor missed the first target and clipped the second. His final pellet struck the edge of a tin rabbit without knocking it over.
+
+“Bad luck,” the man said.
+
+Connor reached for his red ticket. “Can I use this for another go?”
+
+The stallholder’s face changed.
+
+“No.”
+
+The answer came too quickly.
+
+“You said the tickets were for the games.”
+
+“Not this one.”
+
+“Why not?”
+
+The man leaned closer.
+
+“Because you should use it somewhere you’ll win.”
+
+He looked past Connor towards the edge of the field, where a faded red machine stood between two empty stalls.
+
+The claw machine was older than everything around it. Its paint had faded to pink, and scratches covered the glass. A metal sign on top read:
+
+ONE FREE PLAY
+
+The machine was packed with toys. Some of them looked handmade. There were bears with button eyes, rabbits in little jackets and animals stitched together from mismatched pieces of fabric.
+
+A woman stood beside the machine.
+
+Her dark hair had been tied back, and a yellow scarf rested around her neck. She was the same woman from the photograph in the antique shop. She looked exactly as she had in the picture dated 1998.
+
+Connor hadn’t noticed that.
+
+He was staring through the glass.
+
+A green dinosaur lay in the centre of the pile. It came from a cartoon we had watched as children, and Connor had spent months searching for one for his younger sister. The toy had been discontinued long before she was born, but she had become obsessed with the programme after finding old episodes online.
+
+“That can’t be real,” Connor said.
+
+The woman followed his gaze.
+
+“It is.”
+
+“How much?”
+
+“One ticket.”
+
+Leo looked at the sign. “We were told we needed those before leaving.”
+
+“They’re for claiming your complimentary prize.”
+
+“Why didn’t anyone say that?”
+
+The woman smiled. “I’m saying it now.”
+
+Connor took the ticket from his pocket.
+
+Priya caught his arm.
+
+“Don’t.”
+
+“It’s a toy.”
+
+The woman with the yellow scarf rested one hand against the glass.
+
+“My younger brother had that dinosaur,” she said. “I haven’t seen another in years.”
+
+It was such an ordinary comment that it broke the tension. Connor smiled at her, and she stepped aside.
+
+More people were gathering nearby. They pretended to watch other stalls, but their attention was on us. Margaret stood beside the candyfloss cart in her red cardigan. When she saw me looking, she gave a small wave.
+
+Leo told Connor to leave it.
+
+He laughed. “Everyone needs to relax.”
+
+He slid the ticket into the slot.
+
+The machine came to life with a low mechanical hum. The lights flickered, and the claw moved before Connor touched the controls.
+
+It travelled directly over the dinosaur.
+
+The prongs lowered and closed around its body. They held it perfectly as the claw carried it towards the prize chute.
+
+Nobody spoke.
+
+The dinosaur dropped.
+
+Every light at the carnival went out.
+
+The music continued in the darkness.
+
+Priya grabbed my arm. Leo shouted Connor’s name. Somewhere close by, someone made a sound that could have been laughter or crying.
+
+The darkness lasted only a few seconds.
+
+When the lights returned, Connor was gone.
+
+So was the woman with the yellow scarf.
+
+The prize chute was empty.
+
+Leo began shouting before any of us had properly understood what had happened. He searched behind the machine, then dropped to the ground and looked under it as though Connor might have fallen through a hidden panel.
+
+Priya pushed into the crowd, calling his name.
+
+Nobody helped.
+
+They watched us with expressions I couldn’t understand. Some were smiling. Others looked sick.
+
+Margaret began clapping. The sound was slow at first, each movement deliberate. A man beside her joined in, followed by a woman holding a baby. Soon the applause spread through the crowd.
+
+One elderly man looked away from us in shame.
+
+He continued clapping.
+
+Leo kicked the machine hard enough to leave a dent in its side.
+
+“What did you do to him?” Priya shouted.
+
+A man stepped forward from the crowd.
+
+“Nobody did anything. He used his ticket.”
+
+“Where is he?”
+
+The man’s eyes moved towards the prize chute.
+
+“He won.”
+
+That was all he would say.
