@@ -48,7 +48,7 @@ In a second, a mountain a shame crashed onto me realizing that I was no better t
 
 “Alright, then I expect to see you at 7 pm at Opius, and be ready because I don't intend to pay.” then she stormed off. 
 
-Not gonna lie, I was completely turned on, but also a bit angry. Did she just force me to pay for dinner at an expensive restaurant? What if she doesn't even show up and she did it just to humiliate me? Yeah, that's probably it. No girl would ask someone on a date like that, especially not with a jerk like me. Yet I got some good clothes, stole some money from my father's wallet and went anyway.
+Not gonna lie, I was completely turned on, but also a bit angry. Did she just force me to pay for dinner at an expensive restaurant? What if she doesn't even show up and she did it just to humiliate me? Yeah, that's probably it. No girl would ask someone on a date like that, especially not to a jerk like me. Yet I got some good clothes, stole some money from my father's wallet and went anyway.
 
 I took a seat at a table and waited. I started looking around to see if there’s someone I recognized, I didn't want to see myself posted everywhere with the title “loser hopes for a date”. Then a familiar figure appears and, to my shock, it was Clara. She joined me and without a word started looking through the menu.
 
@@ -98,11 +98,9 @@ John is part of the Voyager Imaging Science Team. More exciting than what I do, 
 
 "Only feeble minded people stop to look beyond what they already know" laughing as he took a sip from his strong, non-sugared coffee.
 
-"Yeah, well, cant argue with that. I wished I had more things to look at.
+"Yeah, well, cant argue with that. I wished I had more things to look at. I practically have my monitor glued into my eyes. Anyway, how is your mother?" I replied.
 
-I practically have my monitor glued into my eyes. Anyway, how is your mother?" I replied.
-
-"She's much better now! All that experimental treatment finally worked out. She eats, almost walks by herself.. so I’m hopefull” I could sense the relieve in his voice. It wasn't easy for him and his mother.
+"She's much better now! All that experimental treatment finally worked out. She eats, almost walks by herself.. so I’m hopeful” I could sense the relieve in his voice. It wasn't easy for him and his mother.
 
 "I'm really glad tha..." 
 
