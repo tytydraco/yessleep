@@ -1,0 +1,189 @@
+[Part One](https://www.reddit.com/r/nosleep/comments/1uv027b/odd_things_are_afoot_at_the_motel_on_route_666/)
+
+Hilda hadn’t been there the next morning. It bothered me a little bit, that same feeling from the airport surfaced about no one knowing me, but I shoved it down. After getting dressed, I managed to retrace my steps and arrived back at the front reception area of the Motel. It looked less eerie in the morning light, the windows that were in the room had been opened, and there was a man that was standing behind the desk. He was an older gentleman, his hair was shock white but he was sporting a full head of it. It was manicured and he looked excited to see me. 
+
+He stood greeting me with a full wide smile encompassing his face. He was handsome, more handsome than I excepted him to be. It was a little disconcerting, but I mustered up my own smile. The Hawaiian shirt that he was wearing had a tiki pattern with big yellow flowers and he had blue jeans and flip flops on. It felt so out of place in the cold environment, I nearly tripped over my own feet. Even with his age, I could see that he has well maintained his skin, although wrinkled, looks vibrant and he walked with ease. 
+
+“Welcome Ms.Wallacott,” his tone was jovial, and I knew that voice it was the same one that had interviewed me over the phone only a few weeks earlier. Walking forward quicker, I stretched out my hand as I neared him. Praying that my misstep hadn’t been noticed and that I was making a good first impression. 
+
+“Mr.Neman it’s a pleasure to meet you in person,” I said. His hand closed around mine and I released a breath that I hadn’t even realized that I’d been holding. It was a warm handshake that greeted me, his eyes twinkled as the frosty blue orbs did a once over of me. They felt searching much the same as Hilda but it was far less invasive. Though I attribute that to him being conventional handsome, even if he was older. 
+
+“I see, Hilda got you here in one piece.” 
+
+“Thank you for sending her to pick me up. I didn’t see any taxi’s.” I paused at that, I really hadn’t  seen a single Taxi. Even if it was a small airport normally there would have been some sort of transportation service to get people where they were going. 
+
+He nodded, and gave a small whistle. I heard the yawn and then the great big head of a dog appeared. My heart gave a slight jump as from behind the counter a massive creature appeared. She was probably came to about my mid waist, this had to be Graham Cracker the mascot that was mentioned in the welcome package. 
+
+“Graham, come here girl.” Mr.Neman called. The big beast took only a second to get here, its massive legs and body easily covering the distance. She had the most enchanting eyes I think I’d ever seen on a dog. They were a warm grey and had fleck of gold in them. Her coat was a grey and speckled with white and black spots. She had a collar around her neck that looked expensive, it was a white chain that seemed to sparkle when the light caught it just right. There was no tag on it, just the image of a Graham Cracker as a charm. 
+
+“Good girl,” he cooed. He had produced a small treat and the dog had lapped it up without me so much as catching a glance. She then turned her head towards me to take me in. I held myself still and held out my hand to her, I knew that you weren’t supposed to look dogs in the eyes. It was a sign of challenge, but I couldn’t pry my eyes away from hers. She stepped forward again, her massive head bent to smell my hand. 
+
+Then she gave a sniff and rubbed her face against it. The pattering beats of my heart finally slowed down, I don’t know why I felt relieved. If she was the Motel’s Mascot that must have meant she was friendly, maybe, it was the sheer size of her that did it. After a little ear scratching, she laid down at our feet. Still about the same height as a small toddler, even while not standing on all fours. 
+
+“I’m glad to see that she approves of you. Now I know that you probably have some questions for me. Think of today as your introduction, tomorrow will be your first official day accepting in guest,” he said with a wink. 
+
+You’re probably thinking, ask him about the people last night! I wanted to ask him, I really *did*, but the *rules* kept ringing at the back of my head. Should I even bother him with a question about something that was already covered in the rules? They had to be there for a reason, and did I really want to question the rules that he’d explicitly outlined in the welcome package? 
+
+*Not really.* 
+
+For the rest of the day, I followed him around and learned about my responsibilities and met some of the housekeeping staff. It was a skeleton crew, as it wasn’t during the week, when we’d actively accepting guest and turning over rooms. Graham Cracker hadn’t left my side after that first interaction, and I found the presence of the dog to be comforting. 
+
+By the end of the day, I was handed my keyring, and told to keep them on my person as stipulated in rule number three.
+
+*Rules 3 : Always keep the key ring on your person as you move about the motel. It’s best if they are kept on silver chain and either tucked into your pocket and fastened to a belt loop. If you’ve chose to wear a skirt or a dress for the day, they should be attached to a silver ring that can be worn as a bracelet.* 
+
+The bracelet had been provided for me. It was cute with a bow, and before I knew it the time had reached eight in the evening. I hadn’t seen a single guest in my time wandering the Motel with Mr.Neman. Graham Cracker had taken up residence in my room, I’d found a dog bed that I don’t remember being there from the other day, but I was tired and might have missed it. 
+
+In the end, I never did ask about the couple that had been outside the previous night, and no one made mention of them either. Thus, the following days passed in a blur, the job was easy and there weren’t that many check ins. 
+
+I had started to think that I’d completely imagined the people from my first night. Making all sort of excuses as to why my brain might have conjured them up. All and all I had assumed that it hadn’t happened in the first place and that I must have been so sleep deprived and stressed out. 
+
+Then, on Friday afternoon at 3 pm *they arrived*. My heart nearly jumped out of my throat, my foot had accidentally caught Graham and she let out a little huff of annoyance. I reached down and patted her head, my own form of a quick sorry. I’d make sure to give her a treat as a full apology, but for now my eyes were trained on the guest that had just walked through the doors. The gust of frigid air was warmer than the chill that ran down my spine. It was them… *the couple* from the first night was standing in my lobby. 
+
+They looked almost exactly the same as I the last time I’d seen them. Biggest difference was that they were standing in the lobby, I stood up willing a customer service smile to appear on my face. He was taller now that he was approaching me, my stomach did a small flip when he arrived in front of me. He had his sunglasses on still, and he didn’t seem keen on removing them anytime soon. My throat was dry all of the sudden, faced with the people that I thought had been figment of my imagination was a sobering experience. 
+
+“Hello Welcome to the Motel \*\*\*\*. Do you have a reservation?” I asked, all while mustering the best customer service voice I could. I needed to sound calm and in control, even though I felt that at any moment I might break into uncontrollable nervous laughter. 
+
+“Yes, our reservations are under Atwood,” his voice was low. The girl had arrived at his side, and she was still on her phone. She was in a slightly different outfit than the one that I had previously seen her in. But it was still to light to suit the weather that was developing outside, it was starting to snow and the weather report for the area had called for heavy snow. 
+
+Turning my attention to the archaic computer that ran all the reservations for the Motel. I input Atwood, and there it was a reservation for three adults. I glanced upwards and looked around to see if there was a third person that I had missed, but it was just them, Graham Cracker and me. I bite my lip before taking a breath. 
+
+“It says here that there are three adults on the reservation?” 
+
+I couldn’t tell if he blinked as his eyes were still behind sunglasses. His body language read ‘*boredom*’ as if he just wanted to move on from the situation. 
+
+“They’ll be coming by later,” he supplied after a long moment. 
+
+“I see. Do you have a card that I can keep on file for any damages or surcharges to the room?” 
+
+“Here,” the girl inserted. She held up a black card, and slide it forward across the counter towards me. Her fingernails were long, and they were painted black, but I noticed that underneath her nails it looked like there was something stuck there. I reached out and took the card, my hand brushing hers, and I felt a chill where our skin connected. Quick as I could I pulled my hand back and quickly began to run the card. 
+
+It was only after I had swiped the card and slid it back across towards the couple that I noted there was dirt on the counter. It was a dark rich black, if I focused I could actually smell the wet earth. She reached out and swiped the card back up and in the process removed the dirt. Or at least what I assumed was dirt, I was still shaken up over them actually being real. 
+
+“Thank you, Mrs. Atwood,” I said. 
+
+“She’s not an Atwood, this is Margret,” the man, Mr.Atwood, supplied. His tone was dry and matter of fact. I nodded my head, and quickly mumbled an apology. Turning around, I face the massive stack of drawers that were behind me. The reservation had the room number 305 listed. I reached up on my tippy toes and pulled out the drawer. It was actually cleaner than I imagined. 
+
+Inside of the small wooden box was a set of two keys. They were old twisting metal that looked ancient. Within the twists of metal was a small crescent moon shape design and the handle of the key, the teeth were a complex and looked as if they had been painstakingly filed to be identical. Retrieving the keys, I turned around to find the girl, Margret was staring at me. Her eyes bore into me with a frightening level of scrutiny. 
+
+It was the same look that she had given me on that night. She turned her head away and looked down at the phone that was in her hands, her attention being reabsorbed into the device. All at once that unsettlingly unease washed over me like a tidal wave. 
+
+“One key each, that must be returned on your departure. Which is scheduled for Monday morning. If you are to need anything please dial 2 to reach house keeping, and if there is anything that I can do for you please dial 0.” 
+
+He plucked the keys from my hands and turned, not even waiting for me to give directions to his room. Margret followed behind him, as they were walking away, I heard her whispering to him. I turned around to put the drawer back, but the clearing of someone throat drew my attention. 
+
+“What’s your name?” 
+
+I turned my head and gave them my best smile. “Ms.Wallacott.” 
+
+He didn’t say anything, but they kept walking and I went back to the drawer. Once it was in its right spot, I reached for the glass jar of dog treats. Grabbing one, I bent down and gave it to Graham. She practically inhaled the treat. I pet the massive dog trying to steady myself after that interaction. 
+
+I thought they’d settle in and leave me alone, but oh boy was I wrong about that. The calls started maybe two hours after they arrived. 
+
+The sharp ring of the phone, pulled me out of the book that I was reading. 
+
+“Hello Front Desk,” I said. Honestly, excited to have something to do. 
+
+“Yeah so the hot water in our room isn’t working,” came a familiar female voice. 
+
+“I’m terribly sorry. What room?” 
+
+“Room 305.” 
+
+My heart sank, I cleared my throat. “I’ll send housekeeping right down to you. It should only be a couple of minutes.” 
+
+The line went dead, and I quickly placed the phone on the receiver and dailed 2 for house keeping. It rang three times before someone finally picked up. 
+
+“Hi Boss,” Andy’s voice rang through the receiver. Andy was the Head of House Keeping. He’d been working with the Motel for a while, Mr.Neman had explained on his tour. Andy sounded like he smoked a pack of cigarette everyday for the last thirty years. But it was endearing how he’d taken to calling me Boss. 
+
+“Andy can you go check the hot water in room 305. They’re saying that there isn’t any.” 
+
+“On it, Boss.” 
+
+“Thank you,” I hung up the phone and leaned back in my chair. It was an old Motel, I reasoned with myself. They weren’t calling me to bother me. 
+
+How wrong I was there, the phone then began to ring every thirty minutes. Each time with a request that ranged from what the wifi was to what time does the small dinning hall close at. Everything that could easily be found in the binders that were located in each room. 
+
+It was 8:59 on the dot. I was counting the second praying that the phone wouldn’t ring. Andy had clocked out at 7 and now it was just me and the guest in the Motel. It shouldn’t have made me feel as sick to my stomach as it did. Mrs.Green would be here sometime around 11 to do the night house keeping shift. But for now it was just me, and I had a sinking feeling that the phone was going to ring. Graham Cracker was sitting at my feet, her massive head was resting in my lap.
+
+*Ring ring!* 
+
+“Hello Front Desk,” I answered. My voice sounded strained even to my own ears. I already knew that it was Room 305. It at this point was always Room 305 calling me! 
+
+“Do you think you could bring me some towels? We need some more,” Margrets voice rang through the receiver. The clock now read 9:01, I wanted desperately to hang up and pretend that I was off the clock. But the damn phone was already in my hands. 
+
+“I’m sorry, but House Keeping has left for the night,” I told her. 
+
+There was a long pause. 
+
+“We really need those towels. Do you think you could bring them to our room?” 
+
+Graham Cracker whined at my lap, I glanced down at the sweet baby. Drawing in a breath, I gave an answer that I shouldn’t have in response to her question. 
+
+“Of course, I’ll be there in a couple minutes.” 
+
+A delighted peel of laughter rang through the phone. “Thank you so much, Wallacott.” 
+
+I placed the phone back onto the receiver. I’d do this last thing and then I would be done for the evening, and tomorrow was Saturday meaning a well deserved day off. They would have no choice but to deal with House Keeping tomorrow. Then Monday they would be checking out and hopefully out of my hair. 
+
+“Come on, girl. Let’s go give them their towels and then we’ll get ready for bed.” 
+
+Looking back, I think Graham Cracker already knew that this was a bad idea. But as they say dogs are mans best friends. She followed after me, as I quickly went to retrieve the towels from House Keeping. 
+
+Even after the tour that day, and my wandering throughout the day. I still hadn’t visited every area of the Motel. It just seemed to stretch endlessly, the corridors would change every now and again. Almost like the Motel had at one point been a small structure and then had morphed into a bigger one as people build new additions. 
+
+The corridor that held rooms 300 to 320 was towards eastern most side of the motel. It appeared older, the rusty brown carpet had a faded pattern that looked like vines and leaves. The wallpaper at this peeling at parts near the top of the ceiling. The doors were made of solid wood, and there were painting that lined the hallway. 
+
+Some were of nature scene and others were of people. Sometimes they would be portraits of people that were dressed in old fashioned clothes that looked like they had come for a period piece. Other times it was painting of events were the people weren’t in focus. Depicting all sorts of scenes and locations. 
+
+Soon enough we arrived at room 305. The room had silver numbering and a key hole that looked victorian. There were two keyholes, one that was exposed and the other that was covered by a little sheet of embellished metal. 
+
+Balancing the stack of towels on my one arm, I raised the other to knock on the door. It was a crisp sound, and I could hear the shuffling of feet on the other side of the door. 
+
+“Hello, I’ve come to drop off your towels.” I said, after the door didn’t open immediately. I heard more shuffling and then it stopped completely, but I swore it had stopped right at the door. Graham was just behind me, her massive body was radiating heat. 
+
+“I’ll leave them at the door if you’re unavailable.” 
+
+I began to bend down to do just that, when the door opened up just enough for Margrets face to become visible. Her eyes were unfocused and her pupils nearly swallowed her iris. I took a step backwards, but her hand snaked out from the door lighting fast and grabbed my arm. 
+
+Her strength was surprising and she kept me from toppling over Graham. It was then that I noticed her nails were slightly chipped and her hand was covered in something. She quickly withdrew and I brought my attention back to her face. 
+
+Which might have been the wrong move, her face was stretched into a wide unnatural smile. The type where the skin goes tight and you looked deranged, the skin almost seemed to stretch unnaturally thin and taunt around her cheek bones. I felt unease trickle through my body like a slow tap. Every hair on my arm was standing at attention. 
+
+“Here are the towels,” I managed trying my best not to address the elephant in the room. 
+
+“Oh thank you, here let me give you this for the trouble.” She pulled the door back a little, exposing more of herself, her dress was covered in some sort of foul smelling liquid that was a sludgy black. It dripped onto the floor, and I nearly gagged at the smell. My heart going out to the staff that was going to have to clean it up. While thanking my lucky stars it wasn’t me. 
+
+She reached a hand down her dress and pulled out a wad of money. The smile still plastered across her face, she took up most of the doorway. My mind railed at me that something was wrong, and the whining from Graham Cracker echoed that feeling. 
+
+Her head butted into my back as she tried to alert me. Inspecting Margret, I found that her platinum blonde hair was matted in parts with some sort of concoction. Her breath was coming in fast shallow pants as if she was having difficulty breathing. Watching her fingers as they easily maneuvered the money, the chipped nails looked more unnerving. The idea of a person stuck in a small space trying to claw their way out of confinement bubbled to the surface of my mind. 
+
+“Here, think of it as a *gift* for your hard work,” she held up a hundred dollar bill. It was new, but it was now covered in whatever mystery liquid that Margret was covered in. The hundred dollar was tempting, but she had called it a *gift*. 
+
+It was expressly stated that gifts were not suppose to be accepted, no matter what it was they offered. I looked at the bill, and then back at Margret whose smile was unnerving. Her face was starting to twitch as if it was becoming fatigued from the sheer force she was using to keep her face contorted into that appearance. 
+
+“Thank you so much. But I’ll have to decline, here are your towel’s. I hope that you and Mr. Atwood have a lovely evening,” I said quickly. I jerked my arm free from her grasp. In turn then shoving the towels towards her, not caring if she caught them or not. 
+
+All I knew was that my instincts were screaming at me to leave. I turned and began to quickly walk away, when a scream rippled out from behind me. My body froze and I found that I couldn’t move, my legs were rooted in spot. Half way through my stride, I wanted to turn my head. But I couldn’t move that either. 
+
+The tangy smell of something rotten fanned at my neck. I felt sweat beading at my hairline as the hair on my arms stood on end. Graham Crackers bark echoed throughout the hallway, it was louder than I thought possible, but I found myself able to move again. It was as if whatever spell was keeping me rooted in place was dispelled at the loud sound. That was good enough for me! 
+
+I didn’t take any chance and practically ran down the hallway refusing to turn back. It wasn’t until I was back at the familiar hallway that held my room that I turned around. What greeted me was Graham Cracker, she was wagging her tail and looking at me expectantly. My pulse was hammering, and sweat ran down my back, even though I felt bone cold. 
+
+Pulling my keys from my pocket, I inserted them into my lock and usher the dog inside. She went without fuss and I cast one last glance at the end of the hallway. Pure terror lanced up my back, as I caught the smiling face of Margret looking at me Her eyes were wild, her neck seemed longer than natural. Her eyes were trained on me, watching and waiting. In that moment, I was a deer in the headlights. Desperate to move, fearful if I did move that she would move to. It could have been me that moved first or her all I know is that I threw myself through the open door. Twisting on my heels, I slammed the door shut finding the lock and twisting it. 
+
+Backing away from the door, I trained my eyes on it. Ready for anything, but nothing happened. I waited what felt like hours, but was probably closer to minutes. A shadow appeared at my door, and I nearly screamed. It lingered for a moment, and then I saw a hand as the bottom of the door. Something was pushed with enough force that I heard a finger pop out of socket as the item made its way into view.
+
+The one hundred dollar bill slide through the crack at the bottom of the door into my room. Pulling her hand back, she retreated after a moment, I heard the footsteps as they walked away. But they didn’t sound natural, it sounded like she was walking on all fours, don’t ask me how I know. I just know! 
+
+I collapsed onto the ground after I was sure she was gone. Graham Cracker walked to the hundred dollar bill and gave it a sniff before she growled at it. Her massive paw coming down to swipe at it. I expected the bill to tear, but it didn’t so much as crinkle as she pawed at it. 
+
+Listen, I get it, everyone runs into strange customers. If it was any other couple, I might attribute the strange behavior to drugs. But I found black hand prints on the back of my jacket, sticky tar like substance that smelled ungodly awful. Not to mention, where her hands at touched my jacket, my skin had red welted hand prints on it.
+
+Plus where she grabbed my wrist, the black stuff was on my skin. I’ve taken three showers and it finally came off after the third one, but the skin is red and angry almost like a rash. Similar but worse to the two hand prints on my back. But she didn’t even make skin to skin contact there! 
+
+I’ve barricaded the door, and Graham Cracker has taken up residence in front of my barricade. My bathroom is my makeshift bed for tonight, because there aren’t any windows here. I swear I heard scrapping at my bedroom window not too long after she left.  
+
+The plan for the morning is to burn the bill. If I burn it, I don’t think it will count as me accepting a gift. In the first place she the one that forced it onto me, I never agreed to it and I sure as hell didn’t accept it. 
+
+I’ll let you know if something happens, for now wish me luck getting some sleep in the tub.

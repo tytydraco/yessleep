@@ -61,8 +61,7 @@ But these were on a different level of '*odd*.' These are the rules as listed to
 2. Be sure to never tell the guest your first name. They should refer to you simply by your surname.
 3. Always keep the key ring on your person as you move about the motel. It’s best if they are kept on silver chain and either tucked into your pocket and fastened to a belt loop. If you’ve choose to wear a skirt or a dress for the day, they should be attached to a silver ring that can be worn as a bracelet.
 4. The Motel \*\*\*\* has a long history of a mascot. The current mascot for the hotel is Graham Cracker, a Great Dane. She has been trained to accompany you throughout the hotel. Please make sure that you have treats on your personage for her. (*These treats are provided by the Motel.*)
-
-5. Remember to promptly shut the doors of reception at 9 pm. They are to be opened promptly at 8 am. (*Monday-Friday*) No guest should be allowed entrance after close or before opening to check into the Motel.   
+5. Remember to promptly shut the doors of reception at 9 pm. They are to be opened promptly at 8 am. (*Monday-Friday*) No guest should be allowed entrance after close or before opening to check into the Motel.
 6. Do not accept gifts from the guest. Under any circumstances!
 
 I had looked them over multiple times, both when I had first gotten the email and then throughout the flights. I tried to find some reason for them. I understood the specific check in times, and stay on schedule. Along with the other nuanced rule about keeping Graham Cracker happy and accompanying me. That was not a problem, I loved dogs and the fact that I was to be accompanied by one was a bonus.
@@ -221,4 +220,7 @@ Hilda simply turned and gave me that lopsided smile before she made a left hand 
 
 With that I retried to the bedroom, and this is where I am writing this because even as I lay here. I can still hear Hilda’s voice ringing in my head. Repeating the same phrase over and over now ‘*the rules dearie!*’ Along with the steady rhythmic thump, thump, thump of the couple’s fist demanding to be let into the Motel.
 
-I’m posting this because, I’m wondering if anyone else is a Manager of a Hotel or Motel that has strange rules? I’ll post more as I settle in and see if the first night jitters go away. Also to update you about if they’re still outside in the morning. 
+I’m posting this because, I’m wondering if anyone else is a Manager of a Hotel or Motel that has strange rules? I’ll post more as I settle in and see if the first night jitters go away. Also to update you about if they’re still outside in the morning.
+
+  
+[Part 2](https://www.reddit.com/r/nosleep/comments/1v9g90j/odd_things_are_afoot_at_the_motel_on_route_666/)
