@@ -1,0 +1,433 @@
+I debated posting this for a long time.
+
+It's been almost nine years, and I've spent most of that time trying to convince myself none of it actually happened. Every person who knows this story has a different explanation. Sleep deprivation. Group hysteria. Carbon monoxide from the old boiler room. One psychologist even suggested our memories slowly merged over time until we all believed the same impossible events.
+
+I wish one of those explanations felt right.
+
+The reason I'm finally writing this is because of something that happened three nights ago.
+
+I was cleaning out boxes in my parents' attic before they moved houses. Most of the stuff up there hadn't been touched since I left for college. Old notebooks. Broken headphones. Football trophies. The usual junk people keep because throwing it away somehow feels worse.
+
+At the bottom of one box was my old phone.
+
+It hadn't been charged in years.
+
+I don't know why I plugged it in. Maybe curiosity.
+
+Maybe I wanted to prove to myself I'd imagined everything.
+
+The battery somehow still worked.
+
+I scrolled through hundreds of old pictures—school trips, birthdays, stupid selfies from when Snapchat filters were brand new. Then I found the folder I hadn't opened since I was sixteen.
+
+"School."
+
+There were only four photos inside.
+
+I remembered taking at least thirty.
+
+The first three were just what you'd expect.
+
+A hallway.
+
+Tyler pretending to fight a mannequin.
+
+Josh making a stupid face while holding a broken fire extinguisher.
+
+The fourth photo made me close the phone immediately.
+
+Not because of what was in it.
+
+Because I remembered something.
+
+Something I'd forgotten for almost a decade.
+
+There weren't five of us that night.
+
+Not the whole time.This happened during the last week of summer vacation.
+
+Back then, my entire world consisted of four people.
+
+Josh was the loud one. If something was his idea, you knew it because he'd spend half an hour convincing everyone else it was brilliant.
+
+Tyler never took anything seriously. If someone tripped over a curb, he'd laugh before asking if they were okay.
+
+Emma was the smartest person any of us knew, which made it even stranger that she agreed to stupid ideas more often than anyone else.
+
+Then there was Noah.
+
+Quiet.
+
+Always looking over his shoulder.
+
+Even before everything happened, Noah had this habit of staring into empty rooms a little too long.
+
+The rest of us used to joke that he could see ghosts.
+
+He'd always answer the same way.
+
+"You joke now."
+
+None of us thought much about it.
+
+When you're sixteen, your friends have weird quirks.
+
+That's just part of being sixteen.
+
+The idea started with Josh.
+
+"My cousin says the renovations are basically done."
+
+"So?" Tyler asked.
+
+"So nobody's guarding it anymore."
+
+Emma immediately shook her head.
+
+"No."
+
+Josh grinned.
+
+"You didn't even let me finish."
+
+"I already know where this is going."
+
+He looked at all of us.
+
+"One last walk through the old school before they open it."
+
+Tyler smiled instantly.
+
+"I'm in."
+
+I should've said no.
+
+Instead I asked the question that changed everything.
+
+"When?"
+
+Josh didn't even hesitate.
+
+"Tonight."
+
+By eleven-thirty that night we were standing behind our old middle school.
+
+The building looked completely different after two years of construction.
+
+New bricks covered sections that had burned.
+
+Fresh windows reflected the moonlight.
+
+Huge plastic sheets hung over unfinished entrances, moving just enough in the breeze to look like people walking inside.
+
+Someone had spray-painted KEEP OUT across one of the plywood boards.
+
+Tyler laughed.
+
+"That's more of a suggestion."
+
+Josh had done his homework.
+
+"There."
+
+He pointed toward the east side of the building.
+
+One second-floor window wasn't boarded.
+
+Apparently contractors had forgotten about it.
+
+Or maybe they assumed nobody would be dumb enough to climb up there.
+
+They underestimated bored teenagers.
+
+It took us almost fifteen minutes to get inside.
+
+Tyler nearly fell twice.
+
+Emma almost turned around halfway up.
+
+Josh filmed the whole thing, laughing whenever one of us slipped.
+
+I remember thinking how peaceful everything looked from that second-floor window.
+
+The football field behind the school.
+
+The empty parking lot.
+
+Streetlights glowing in the distance.
+
+For a second I actually wondered why people said abandoned schools were creepy.
+
+Then I climbed inside.
+
+The smell hit first.
+
+Wet drywall.
+
+Dust.
+
+Old wood.
+
+Something metallic underneath it all.
+
+The air felt heavier than outside.
+
+Not hotter.
+
+Not colder.
+
+Just...
+
+Thicker.
+
+Our flashlights cut narrow beams through floating dust particles.
+
+Plastic sheets covered entire sections of the hallway.
+
+Construction tools sat abandoned where workers had left them earlier that day.
+
+It looked completely normal.
+
+Which somehow made it feel stranger.
+
+Josh whispered dramatically.
+
+"Welcome to Hell High."
+
+"It was a middle school," Emma replied.
+
+Tyler laughed.
+
+"That joke was so bad even the ghosts left."
+
+His voice echoed down the hallway.
+
+We all listened as the echo bounced farther and farther away.
+
+Longer than it should have.
+
+Nobody mentioned it.
+
+For the first twenty minutes, everything was exactly what you'd expect.
+
+We walked through classrooms we'd spent years sitting in.
+
+Someone had ripped all the whiteboards off the walls.
+
+The cafeteria was empty except for stacked tables.
+
+The science wing still smelled faintly of smoke despite the renovations.
+
+Josh filmed everything.
+
+"This is where Tyler almost set himself on fire."
+
+"I spilled alcohol on the table."
+
+"You spilled flaming alcohol."
+
+"It was an accident."
+
+"You screamed."
+
+"I did not scream."
+
+Emma interrupted.
+
+"You absolutely screamed."
+
+Even Noah smiled.
+
+Looking back...
+
+That's one of the last genuine smiles I remember seeing that night.
+
+The first thing that bothered me wasn't supernatural.
+
+It was the silence.
+
+Schools are never completely quiet.
+
+Even empty buildings make noise.
+
+Air conditioning.
+
+Water pipes.
+
+Electrical hums.
+
+This place had none of it.
+
+Every time we stopped talking, it felt like someone had muted the world.
+
+No wind.
+
+No insects outside.
+
+No distant traffic.
+
+Nothing.
+
+I clapped my hands once.
+
+The sound echoed.
+
+Then echoed again.
+
+Then...
+
+Again.
+
+Josh frowned.
+
+"That shouldn't happen."
+
+Nobody answered.
+
+We just kept walking.
+
+Eventually we reached the library.
+
+It looked untouched.
+
+Every bookshelf stood exactly where I remembered it.
+
+Except every single book was gone.
+
+Not scattered.
+
+Not burned.
+
+Gone.
+
+Thousands of empty shelves.
+
+Tyler shined his flashlight across them.
+
+"Looks weird without books."
+
+Emma pointed toward the middle of the room.
+
+"There is one."
+
+She was right.
+
+One book sat perfectly centered on a reading table.
+
+No dust.
+
+No debris.
+
+Just one plain black hardcover.
+
+Josh laughed.
+
+"Someone left their diary."
+
+Emma picked it up.
+
+No title.
+
+No author's name.
+
+She opened it.
+
+Blank.
+
+Every page.
+
+Front to back.
+
+Tyler grabbed it.
+
+Blank.
+
+Josh looked.
+
+Blank.
+
+Finally Noah took it.
+
+He stared for several seconds longer than everyone else.
+
+"What?"
+
+He slowly closed the book.
+
+"I don't think we should touch this."
+
+Tyler rolled his eyes.
+
+"It's literally empty."
+
+Noah set it back exactly where he'd found it.
+
+Emma shrugged.
+
+"Let's go."
+
+As she turned away...
+
+Something whispered.
+
+"...don't."
+
+Not loud.
+
+Not dramatic.
+
+Just...
+
+A voice.
+
+Right behind us.
+
+Every flashlight swung around instantly.
+
+Nothing.
+
+Rows of empty bookshelves.
+
+No movement.
+
+No footsteps.
+
+Josh looked at Tyler.
+
+"Seriously?"
+
+Tyler looked offended.
+
+"I didn't say anything."
+
+Emma's breathing got faster.
+
+"You guys heard that too?"
+
+Nobody answered.
+
+Because nobody wanted to admit they had.
+
+We searched every aisle.
+
+Every corner.
+
+Nobody.
+
+No place to hide.
+
+Josh finally forced a laugh.
+
+"Old buildings make weird noises."
+
+Nobody believed him.
+
+But everyone nodded anyway.
+
+Because the alternative was much worse.
+
+We left the library.
+
+None of us noticed...
+
+The black book wasn't on the table anymore.

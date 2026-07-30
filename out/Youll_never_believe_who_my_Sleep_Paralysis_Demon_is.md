@@ -158,7 +158,7 @@ My mom was sitting in a rocking chair, a crochet hook in each hand, and a thread
 
 “What in the world?” She immediately smiled ear to ear and placed her project down on the TV tray to her right. She stood up and made her way over to me. 
 
-“Hi mom.” We squeezed each other tight. She always has to mention how much she likes my beard hugs.
+“Hi mom.” We squeezed each other tight. She always has to mention how much she likes my bear hugs.
 
 “What are you doing here? I mean, it's not that I'm not elated to see you.”
 
@@ -168,9 +168,7 @@ I rubbed the back of my head. 
 
 “Wait, where's..”
 
-I cut her off.
-
-“Back at home.”
+“Back at home.” I cut her off.
 
 “Is everything okay?”
 
