@@ -1,0 +1,43 @@
+Hi reddit looking for others with a similar experience maybe
+
+I've always struggled with my mental health. Not any real brain shattering disorder like schizophrenia or bipolar, anything people took seriously. I never liked the word depression. It made me feel weak. Just like the whole C-PTSD diagnosis does. I like it plain and simple The Disease describes it just fine. Nevertheless the cycle was I'd get better, I'd change, I'd be different, but that's all it was. Different, never better, really.
+
+I picked up drinking, I don't even remember when, or why. I know the root cause, obviously. Childhood wasn't kittens and rainbows all the time put lightly. My mom dated the wrong men. But I don't know when I decided I wasn't strong enough to handle it anymore. I've always been strong. If nothing else.
+
+This all brings me to the day I died.
+
+It started slow, that warm sinking feeling of Absolut going down my throat and into my gut. I felt good. It was beautiful, my spot that I liked to go to. Maybe 3 miles off of where I lived, down Buck Creek Access where our town's lake met the train tracks. I liked to go down to the bank and sit on the big rocks that scattered from their original place surrounding steel. Sometimes I'd catch the sun before it set too quickly. It was peaceful.
+
+I downed the mixed drink I'd brought with me, and downed the next one for home too. I knew my tolerance. I layed on the bank and basked in the fuzz until I felt It. My blood swam with weight as my limbs turned to bean bags as It suffocated me. It wrapped its wet tendrils around my throat and choked me, gagged me until i was overturn on my hands and knees crawling back from the bank and. I fell Not into deep water but I felt the slow sink as water crept up into my jeans, feeling their weight grow with every second I could not move. God I'd made a mistake. I needed to Get Out. I pleaded with myself and I dragged slowly up the embankment, please I need to get out. You have to get out. I burried my heels into the gravel I had suddenly made it to and I dragged the dead weight that was my body up only to then slam down hard onto even harder rock. The dragging pebbles working like sandpaper against my skin as I slowly gave way and realized I would not move any longer. I could not move. I was not in control any longer.
+
+I had lost. He had ruined my life. My two years as second live in girlfriend to the man my mom decided to let in had affected me. I wasn't handling it. I was just walking. Walking to the day I knew one day was bound to happen of my own accord. I was dying. This would have happened all along. I was doomed.
+
+I cried, for a while. I choked. I screamed.
+
+There were no monsters. I wouldn't die by accident or be in the wrong place at the wrong time. I would kill myself at 17 and die right here because I wasn't strong enough.
+
+I was fine for a long time. I delt with it for a long time. I was good for a long time on that bank too. I was good. That's what I allowed myself to be.
+
+I wouldn't even kill myself on purpose was the worst part I think.
+
+I thought about death a lot. I didn't want to die though. I would think about my last moments. If anyone was ever really aware of it being their last in their own. Would I lay there drifting thinking about that movie I was excited to see tomorrow. Would I be sad about when I went? Mourn the future I wouldn't have? The little things? Would I be sad it was over?
+
+I didn't.
+
+I rested where I had made it onto the gravel for a long while. I hid my face in the rock looking up at the hill that would kill me and looking back at the bank I had crawled from. Nuzzling into those rocks, their rough outlines staining my face. I thought God. This is so easy.
+
+Feelings of determination would overtake me at odd moments and i would grab uselessly at the dirt that lay under those rocks, trying to get some kind of hold. I felt freedom, I remember, pissing in my jeans feeling the heat travel down my lower body. God it was cold. It was supposed to be July. It was 110 today.
+
+The train passed.
+
+The ground shook.
+
+I shivered.
+
+But at that same moment I relaxed. My body melded to the Earth and I. Relaxed. I shifted ever so slightly backwards and felt both shoes were missing from my feet. And that's all I thought of them. Missing not missed. The suffocating feeling that had so choked me earlier now made itself a weighted blanket overtop of me. I lay there and let the weakness overtake my body and my mind. I rested. I died.
+
+I remember that.
+
+I don't remember surviving.
+
+I don't know why I'm still here.
