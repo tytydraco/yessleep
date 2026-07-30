@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1uwwihp/i_found_a_cursed_comic_part_1/) / [Part 2](https://www.reddit.com/r/nosleep/s/8aZ5D1KevN) / [Part 3](https://www.reddit.com/r/nosleep/comments/1uzdzwj/i_found_a_cursed_comic_part_3/) / [Part 4](https://www.reddit.com/r/nosleep/comments/1v0c41z/i_found_a_cursed_comic_part_4/) / [Part 6](https://www.reddit.com/r/nosleep/comments/1v6nr1l/i_found_a_cursed_comic_part_6/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1uwwihp/i_found_a_cursed_comic_part_1/) / [Part 2](https://www.reddit.com/r/nosleep/s/8aZ5D1KevN) / [Part 3](https://www.reddit.com/r/nosleep/comments/1uzdzwj/i_found_a_cursed_comic_part_3/) / [Part 4](https://www.reddit.com/r/nosleep/comments/1v0c41z/i_found_a_cursed_comic_part_4/) / [Part 6](https://www.reddit.com/r/nosleep/comments/1v6nr1l/i_found_a_cursed_comic_part_6/) / [Part 7](https://www.reddit.com/r/nosleep/comments/1vb1ss5/i_found_a_cursed_comic_part_7/)
 
 The question is, what’s better for staying awake, coffee or Red Bull? 
 
