@@ -2,7 +2,7 @@
 
 *Have you ever met someone who doesn’t exist in official records, whose own grandparents have never even heard her name, but who lives in a house in the flesh? I have. My friend's older sister, İrem...*
 
-*It all started last week while sitting at my friend Can’t's house. Can’s older sister, İrem, is 21 years old. She is an incredibly sweet, cheerful girl who helps everyone. She goes to university and also works part-time at a local cafe.*
+*It all started last week while sitting at my friend Can's house. Can’s older sister, İrem, is 21 years old. She is an incredibly sweet, cheerful girl who helps everyone. She goes to university and also works part-time at a local cafe.*
 
 *I know İrem very well too. She made us coffee so many times and broke up our fights whenever Can and I argued. It’s not just me; all of Can’s friends, İrem’s boyfriend of two years, Eren, and even her manager at the cafe know her in the flesh. She is a 21-year-old with a completely normal life in this world.*
 
