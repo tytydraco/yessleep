@@ -96,7 +96,7 @@ I sign it, then thrust it into her hands. “Um,” I say, “it’s on me today
 
  
 
-Ryan watches as I lunge out of my chair, crawl under the table, and emerge on the other side. Alice stands next to me. She’s much taller while I’m standing up. She smells of apples. 
+Ryan watches as I lunge out of my chair, crawl under the table, and emerge on the other side. Lucy stands next to me. She’s much taller while I’m standing up. She smells of apples. 
 
  
 
