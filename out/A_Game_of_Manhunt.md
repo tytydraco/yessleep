@@ -1,12 +1,12 @@
-When I was in my teen years I had the sense that I was invincible. I always felt as if nothing could harm me and I was immune to death, causing me to do a lot of idiotic things.
+When I was in my teen years I had the sense that I was immune. I always felt as if nothing could harm me and it caused me to do a lot of idiotic things.
 
-As I grew older I started to realize how stupid that really is, nobody’s safe from deaths grasp no matter how much you’re teenage ego will tell you otherwise. I start my introduction like this to give you an idea of why I acted the way I did with what I’m about to tell you. I was young and dumb and most people don’t truly understand how dangerous that can be. Unfortunately I had to learn the hard way.
+As I grew older I started to realize how stupid that really is, nobody’s safe from the grasp of death no matter how much your teenage ego will tell you otherwise. I start my introduction like this to give you an idea of why I acted the way I did with what I’m about to tell you. I was young and dumb and most people don’t truly understand how dangerous that can be. Unfortunately I had to learn the hard way.
 
 On my 17th birthday I arranged a small party with my 3 best friends and my parents just so happened to be on vacation. I had the house to myself and even got my parents permission to throw a small party in the house since they felt bad for having to miss my birthday.
 
-It was my birthday on a Friday night with the house to myself and my friends so I was ready for a fun night.
+It was my birthday on a Friday night with the house to myself so I was ready for a fun night.
 
-I met Dean, Lucas and Matt in elementary school and we formed a small friend circle. I met Dean in our fourth grade English class and he introduced me to his other two close friends, Lucas and Matt. Dean and Lucas were usually outgoing and extroverted, while Matt was usually the quiet one but he was always up for anything. They used to call me Rob the knob, not sure how they came up with that or what it meant but it was my nickname to them so I just accepted it.
+I met Dean, Lucas and Matt in elementary school and we formed a small friend circle. I met Dean in our fourth grade English class and he introduced me to his other two close friends, Lucas and Matt. Dean and Lucas were usually outgoing and extroverted, while Matt was usually the quiet one but he was always up for anything.
 
 We were complete troublemakers together, and when we became teenagers it became a lot worse. We were a group of druggies in by our high school years, constantly skipping class to get high, staying up all night drinking, smoking and doing pretty much anything we could get our hands on. Deans brother was a dealer and would sell us anything he had for half the price. Looking back I can’t believe our parents never suspected a thing, but that was all apart of the fun.
 
@@ -22,7 +22,7 @@ Dean laughed way harder than he should have.
 
 I looked over at Lucas and Matt for guidance, but they were in on it too.
 
-“Nah that’s a good idea! Dean just presented us with a world changing game, something nobody has ever done before, probably. We should do it I’m in” said Lucas.
+“Nah that’s a good idea! We should do it I’m in” said Lucas.
 
 Lucas punched Matt lightly on the shoulder and he nodded his head in agreement. It was a three against one, there was no way I could chicken out.
 

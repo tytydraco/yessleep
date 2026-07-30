@@ -48,7 +48,7 @@ I jumped in place, heart spasming.
 
 “I…I didn’t say anything.”
 
-His gaze darted between the cassette player and me, pupils dilated, spreading over the whites of his eyes like an oil spill.
+His gaze darted between the cassette player and me, pupils dilating, spreading over the whites of his eyes like an oil spill.
 
 “I’ll just…” I started, reaching out, “…store this in the attic for now…”
 
@@ -94,7 +94,7 @@ And with each passing moment, the truth became harder and harder to deny.
 
 Something was wrong.
 
-The changes were small at first, small enough that my conscious mind couldn’t grasp them, but the oldest bits of my nervous system, the prehistoric holdovers, they could sense the danger swelling around me, even if they couldn’t give the danger a name. It wasn’t just Simon, either; the entire house was different. Polluted. Changing.
+The changes were small at first, small enough that my conscious mind couldn’t grasp them, but the oldest bits of my nervous system, the prehistoric holdovers, they could sense the danger swelling around me, even if they couldn’t give the danger a name. It wasn’t just Simon, either; the entire house was different. Polluted. Mutating.
 
 Then, one night, I was lying in bed, eyes fluttering, thoughts loose, and a question popped into my brain.
 
@@ -266,7 +266,7 @@ I slammed it shut.
 
 “You alright in there?” he called out.
 
-“Y-yes!” I shouted, beating back the nausea. The house was changing. 
+“Y-yes!” I shouted, beating back the nausea.
 
 I stood before a massive wall of small doors that shouldn’t have been able to fit in my kitchen. The cabinets were multiplying. The house was changing. I looked up. The ceiling hadn’t grown to accommodate the changes, but when I looked back at the wall, it somehow appeared even larger than before. I couldn’t understand. I keeled over, clutching my temple. My brain was boiling. I fought the urge to tear at my skin. 
 
@@ -344,9 +344,9 @@ Simon loomed in the doorway, naked as the day he was born, dried blood staining 
 
 “I didn’t want to believe her.” He sniffled. His eyes were glassy and burning bright green.
 
-“I said, YOU don’t know Kat. She wouldn’t lie to me.” 
+“I said: 'YOU don’t know Kat. She wouldn’t lie to me.'” 
 
-He uncrossed his arms. The machine did not fall. It did not move an inch. Moonlight surged from a nearby window, illuminating him. 
+He uncrossed his arms. The machine did not fall. It did not move an inch. Moonlight streamed from a nearby window, illuminating him. 
 
 The cassette player was fused to his chest. 
 
@@ -416,7 +416,7 @@ Some time later, sirens blared in the distance. 
 
 The ambulance had finally arrived.
 
-\- - - - - 
+\- - - - -
 
 When the medics asked where my husband was, I didn’t have the willpower to lie. I just pointed to the front door and then sat back down on the curb. 
 
@@ -448,11 +448,11 @@ I can see his face, clear as day, but his name? 
 
 It’s gone. 
 
-Vanished along with him, his mother, and any proof he ever existed to begin with. I have no photographs of him. His side of the closet is empty. “Simon” is just a placeholder; the label eases the pain. Whatever his name was, all I have left of him is a stain and some memories. The memories of our lives together. Of a pitch-black cellar. Of a song oozing from the darkness. I only heard a second of it, but the song is indescribably beautiful. Imagine the sound of your child taking their first breath and multiply that joy by a thousand, and maybe you’ll scratch the surface of what I experienced. 
+Vanished along with him, his mother, and any proof he ever existed to begin with. I have no photographs of him. His side of the closet is empty. “Simon” is just a placeholder; the label eases the pain. Whatever his name was, all I have left of him is a stain and some memories. The memories of our lives together. Of a pitch-black cellar. Of a song oozing from the darkness. I only heard a second of it, but the song is indescribably beautiful. Imagine the sound of your child taking their first breath, multiply that joy by a thousand, and maybe you’ll scratch the surface of what I experienced. 
 
 I can still hear it, too. 
 
-The song drifts around my vacant home, curling around the ruins of my life, taunting me, testing my limits, but I will not fail him, not again.
+The song drifts through my vacant home, curling around the ruins of my life, taunting me, testing my limits, but I will not fail him, not again.
 
 So, every night, I stand in front of the linen closet, terrified and penitent. 
 
@@ -472,7 +472,7 @@ I shut it.
 
 And I know one day, they’ll take me. I just have to be patient.
 
-So, please, Simon, Celeste, whoever you both are, 
+So, please, Simon, Celeste, whoever you both are,
 
 have mercy,
 
