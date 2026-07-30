@@ -118,7 +118,7 @@ Most nights I just lay there gripping the blanket, reminding myself he was three
 
 Then one night it stopped asking questions and started repeating something else. Word for word, in his voice, it said what Danny had screamed the night my parents found him standing over their bed. Our mother was the reason the house couldn't be quiet. I could finally let everyone sleep. It would be a mercy, since she was already halfway gone, and nobody would blame a man for wanting to end a mother's suffering a little early.
 
-I didn't move. I didn't answer. I lay there and let it talk about killing my own mother in a dead man's borrowed voice, and when it finally went quiet before dawn, I got up, checked on her, made her breakfast, helped her with her pills, and said nothing to anyone about what I'd heard.
+I didn't move. I didn't answer. I lay there and let it talk about killing my own mother in my brother’s borrowed voice, and when it finally went quiet before dawn, I got up, checked on her, made her breakfast, helped her with her pills, and said nothing to anyone about what I'd heard.
 
 I handled it just like I did as a kid. I went quiet, waited it out, and called that fine.
 

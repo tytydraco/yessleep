@@ -1,0 +1,158 @@
+I've been having this weird dream. A dream where the street lights are on.
+
+My neighbourhood is completely silent. Even the crickets hesitate. No screams, no late-night movies; not a single biotic factor would dare make a sound. 
+
+The only time we'd get that treat was the cold, whistling wind. 
+
+Normally, however extreme my dreams were, I'd keep them to myself. Especially one as boring as this. 
+
+It's unbelievable, actually, how static this one was. No wind, no hesitant crickets, just a soft buzz. All I can seem to remember is the increasing intensity of the buzz. 
+
+It felt wrong. 
+
+And not just getting louder; it was getting closer. A buzz too steady. Too aware. 
+
+Then, suddenly, cold sweats. I was awake. Dawn hadn't yet broken, but my eyes readily adjusted to some form of bright light.
+
+"The street lights really are on?" I was amazed. It was the fact that the lights shouldn't have been on.
+
+Not because of some deranged lunatic running around, or because a satellite would notice us from the threshold of the atmosphere; no, we literally had no energy to allow them to be on. 
+
+My neighbourhood had faced a power outage last night, and this evening I did my physics homework under a gas lamp. 
+
+I looked out the window, trying to better understand the situation, but I was just met with that same wind. Again, strange. 
+
+I checked my bedside analogue clock, and it read 1:45 AM. I could have sworn it had been three hours since I had closed my eyes, trying to get back to sleep. 
+
+I didn’t struggle with insomnia or sleep apnea; I was usually in deep hypnogogic sleep.
+
+I got out of bed and made my way towards my sister's room. I knew I couldn't be the only one. But I was. 
+
+The door creaked open, slowly. 
+
+"Anna, you awake?" I whispered through the opening of the door. More silence. 
+
+I looked in, and the bed had been organised neatly, the window closed. 
+
+The room was untouched. 
+
+I looked into my parents' room at the end of the hallway, same thing. It's as if no one had come into this house, ever, in the time I had been asleep. 
+
+I unironically was the only person in the house. It's like we hadn't all just been playing Monopoly 2 hours earlier. At least, according to my clock.
+
+I was alone.
+
+I went to the fridge and began rinsing an apple, my mind running through all rational conclusions that seemed to just pull me further from the truth. 
+
+I had lost track of time, and the sink began overflowing, my arm submerged, apple in hand. 
+
+I debated going back to bed, being safe and ignorant, but I was overcome with curiosity.
+
+ I hesitantly walked out into the street, biting into my apple slowly.
+
+There was no wind anymore, none of those crickets either, and the buzz had stopped. 
+
+The bite I took was nearly deafening. 
+
+Before I could murmur to myself, my head darted to my right. 
+
+The same steady buzz. 
+
+I was terrified. My senses had suddenly been tuned to 1000. 
+
+The distant sound of sandals, flapping and scraping against the street. 
+
+The buzz intensified. 
+
+Initially, the sounds came at regular intervals. 
+
+Then the flaps had become scattered, at different rates, and varying extents of sound.
+
+It was a behaviour you’d expect of an organism that was trying to emulate the feeling of excitement. 
+
+As I was pondering for a few seconds, that probably turned to hours, I remained under the starless night.
+
+I hadn’t realized why my thoughts had begun to appear so clearly, and to me, with such focus,
+
+The flapping of the sandals had begun to slowly quiet down. I probably would have missed it if I hadn’t paid as much attention as I did.
+
+ I was suddenly faced with a sensory conflict; my visual and auditory systems registered two very opposing stimuli. Something was moving toward me, accelerating impossibly for anything I had known to be true, and it became more silent as it approached. 
+
+I paid no mind to the dimly lit part of the street where they'd be approaching from. 
+
+I threw off my own slippers and began running down the street.
+
+The soft friction between my soles and the asphalt. The irritation of the buzz. My lingering confusion, my rage as I hastily looked around for somewhere, anywhere, where I could hide and gather my thoughts. 
+
+But I was a victim of exposure. Even as I ran toward the darkness down the road, the light consumed my environment. For the first time in my life, I yearned for the safety of the darkness; I accepted its uncertainty, as it proposed security. 
+
+To assess what madness was happening, I turned my head to look back. There were no sandals, not even feet.
+
+It tried to look human, but it very obviously wasn't. It had a slug-like body and had tried to take on the appearance of Anna. 
+
+The skin was grey, silver. Stretched too tightly against the skull. 
+
+No matter, the skull clearly didn't belong to a human being. 
+
+That isn't my sister. And her right eye was bulging, almost completely out of its socket. 
+
+It had a cartoonishly large, gaping smile, bobbing its head left to right. It appeared to be ecstatic, as though it took immense pleasure in its hunt. 
+
+ Its tongue was rapidly clicking against the roof of its mouth; it seemed this was the source of the sandals. It must have tried to keep up the pace back then, and took conventional breaks to maintain the rate of clicks.
+
+I was tired; I just wanted to close my eyes and wake up to the smell of maple.  
+
+As I resisted my slowing legs, I could see its eyes growing larger. It was foaming at the mouth. 
+
+Its eyes, bulging proportionally to my beating heart. It was like the eyes were waiting for my chest to explode, so they could as well. 
+
+It understood what it was doing. 
+
+Every click, every mile.
+
+It had begun crying, not out of fear, loss, or any other appropriate circumstance. 
+
+It was the exhilaration of the hunt;
+
+I was so afraid, I didn't realise why everything got darker. 
+
+It was above me, looking down.
+
+ Laughing with no sound, not even a wheeze. 
+
+It was shaking violently, crying excessively, and saliva began flooding my mouth. 
+
+And it began clicking its tongue at an impossible pace. 
+
+I was disgusted.
+
+ In that moment, not a fibre of my being could begin to fathom fear. It had overwhelmed my mind; what I saw. Fear couldn't even begin to describe it.
+
+I had closed my eyes. And opened them again, to darkness. 
+
+There were no lights. No clicking. No tears but my own. 
+
+I was back in my bed. 
+
+The clock read 1:50. I didn't want to go back to sleep. But I was exhausted. 
+
+If I didn't run those miles, my mind certainly did. 
+
+I went to close the shutters; maybe that would settle my nerves. 
+
+But as I approached the window, I saw there, in the middle of the road, an apple stem. 
+
+On it beamed the moonlight, on this one object. 
+
+In my head, I called it a proof. I slapped myself and forced my hand back to bed.  But then came that ethereal sound.
+
+The moonlight vanished.
+
+My hunger returned.
+
+My legs, pulsating.
+
+I jumped up to get an apple from the kitchen.
+
+My sister's hungry when the street lights are on.
+

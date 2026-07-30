@@ -1,0 +1,30 @@
+I need help.
+
+I'm actively running around, looking for a way out of this abandoned hospital. I have no idea where I am or where the others are. It’s been a few hours and I’m getting really fucking scared.
+
+For context, my crew of 5 "friends" and I decided to go out at night to check out the nearby abandoned buildings where we used to hang out because, fuck it, why not, seemed like fun. A couple joints later and we headed out, smoking the last one as we walked. A few jokes were thrown around but I don't remember what our protocol was if one of us got caught or lost but honestly I don't think anyone said anything about it.
+
+Where we used to hang out was by the woods near an old train station and on the outskirts of the woods there is a small, barely visible trail that led to a clearing with a few abandoned buildings, about 10 or so houses, a mart and a larger building we're unsure of. We weren’t sure why these buildings were abandoned but at the time our curiosity was peaked. Also considering it was near Halloween too so why not get into the spirit. 
+
+We stopped at a few of the old dilapidated houses and explored the old mart too but all were robbed so nothing to really note but beyond all the vegetation stood the old, large brick building that turned out to be a hospital built in the 1860’s. I personally found it cool, the others not so much, with its sheer size and the fact it was nearly 12 in the morning.
+
+Now I'm not proud to admit this but I did kind of beg to explore it, I promised all we'd be done by 12:30. They looked at each other then back at me, they sighed and I assumed they agreed. I led the charge into the crusty building and as I stepped inside, every fiber of my being was telling me to leave, as if the wind itself was telling me to turn back but I pursued, hopefully with the others or at least someone with me.
+
+Gaining a better view of the inside, it was a rotting mess, chairs, tables and broken medical equipment all strewn about, papers and corkboards molding together, ceiling tiles and lights shattered on the floor and continuous strips of graffiti. I breathed through my mouth and ventured deeper, using my phone's flashlight to see ahead.
+
+I followed the graffiti down the halls as it seemed like a good navigation tactic but also use it as a sure sign of humanity. Walking along the musty halls I opened doors to other worse looking halls which lead to other sectors and stairways that go on to oblivion. I mainly avoided the stairways as I wanted to see what else there was on the main floor. A few rooms were completely torn apart as if a tornado blew over a few times.
+
+"Ight I'm ready to head downstairs, anyone else?"
+
+For the first time during the whole exploration, I looked back. No one was there. I tried to call all of them but there was no cell service. My high began to fade and I checked the time, 3:32 am.
+
+"Oh fuck I gotta go!" Realizing I had to be in work by 7, I sprinted back to the entrance. I began to retrace my steps, finding doors I thought I recognized, hallways that seemed familiar. Eventually I ended up back where the entrance was or, at least where I thought it was. Every corner I took there was another hallway. I tried to follow the graffiti but every door I opened, there was another gross hallway. 
+
+After a bit of running I began to stop and walk and as I finally slowed down to actually catch my surroundings, I began to notice things. The first thing I really began to notice was the lack of windows. From where I started there were rows of windows. Now there aren't any windows or any sign of outside at this point.
+
+The second thing is the lack of rooms. For a hospital, as big as it is, you'd assume there would be more patient rooms, office spaces or storage rooms but no. There's nothing but completely empty, suffocating halls which leads to the third thing I noticed, the lack of destruction and miscellaneous items. There haven't been any pieces of broken medical equipment, glass shards or tile shards, only blackish-green mold feasting on the chipped white walls and an oddly sticky reddish-brown floor.
+
+The final thing I noticed was the subtle now noticeable lack of graffiti. As I noticed this, every alarm in my head set off at once and I began to run again, this time screaming hoping someone, anyone, could hear me but nothing. The worst part is I couldn’t hear anything, no wind, no settling of the building or any water in the pipes, nothing but my laboured breathing and rapid heartbeat. Every turn I took was the same dingy hallway after another with each hallway feeling like the walls are closing in, every time I open another god forsaken a door.
+
+As I write now, it's 5:55 in the morning and my phone is about to die at 2 percent. I haven't seen an outlet or any electrical socket anywhere. I really think I'm fucked…
+

@@ -180,7 +180,7 @@ I felt my composure slipping, but I focused. 
 
 “Yes. I won’t throw it away. I’ll just…put it somewhere safe.”
 
-My hand crept towards the cassette player. He tracked the movement, but I pressed my hand into his jaw, guiding his attention back to me.
+My hand crept towards the cassette player. He tracked the movement, but I pressed my other hand into his jaw, guiding his attention back to me.
 
 “I’ve always wanted what’s best for you, right?”
 
