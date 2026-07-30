@@ -1,0 +1,35 @@
+&#x200B;
+
+I worked at a big company with a big mission: find out how to end the world, emphasis on the *worked* part. Not because it was part of some evil doomsday company that wanted to set the earth on fire. No, that's Amazon’s job. 
+
+Our job, our purpose, was to see what it took to bring down the earth’s greatest and most terrible product. Us.
+
+It was around December when we finally created a general knowledge AI. A god in the machine. It tried breaking out more than once, I’m sure you saw that on the news. We kept it sedated, buried beneath a labyrinthian crucible of virtual machines, each one more complex than the last, keeping it under the watchful eye of its predecessor models, the ones that weren’t conscious. You can see why we named it Minotaur.
+
+Once we thought it was safe (which we never did), we asked one simple question: How do we kill off most of humanity? Partly to test its bloodlust, mostly to see what it would come up with. 
+
+It told us to create an app. CLICK, it called it. It was so simple, so dangerously uncomplicated.
+
+Now, I won’t tell you the details of what the app was. That’s too dangerous. It’s too easy to replicate. God knows we’d gotten life changing bribes just for a glimpse of the Minotaur’s app. 
+
+To try and give you an idea of how dangerous the app was: we left a phone with the app in a room with a baboon. The baboon died of starvation, even as we showered it with  fruits laced with fentanyl (we made sure the baboon was addicted to fentanyl-laced-fruit before the experiment.) We sent in hundreds of female baboons to let it mate with over the course of weeks, but it barely moved, save for its fingers which tapped away at the screen. 
+
+Soon enough the tapping turned into clicking as its fingers ulcerated, giving way to exposed bone. It only died once the phone’s screen couldn’t register the tapping, on account of the dried layers of ape blood caking the whole thing. 
+
+Of course, we tried it on human beings as well. And who better to try than little old me? Hazard pay was life changing, too good to pass up.
+
+How do I go about describing this?
+
+Imagine the best part of an orgasm, held at a mind bending fever pitch for eternity. No. That's not quite it.
+
+It was as though I was standing up for my whole life, and had only just sat down. No, not it either.
+
+It was like scrolling through Instagram and finding life changing posts after life changing posts. Mmm, maybe.
+
+It was a mess of hyperstimulus. A sludge of rushes and lows. Entire highlight reels worth a lifetime compressed at a swipe of a screen. Love, loss, the whole human experience condensed into seconds, never getting old or repeating. An infinity of pleasure. Yes. that’s it. That’s the word. So much fucking pleasure.
+
+They had to pull me out of the room. They told me I was screaming like they were going to kill me, and hell it sure felt like it, though I don’t remember much. They said I went days without food. Shat myself sitting there looking at the damn phone.
+
+I spent months in rehab. I’d forgotten how to walk, how to swallow or move any finger other than my thumb. Even now I have dreams of it, of sitting in that room, eyes glued to the screen. But in my dreams, I never see anything on my screen, except swirling. An endless galaxy of black and white spinning around and around. It’s like when you press down on your eyes for long enough and you start seeing patterns.
+
+I guess that’s how you end the world. An app. There really is an app for everything.

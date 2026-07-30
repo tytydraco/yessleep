@@ -1,0 +1,138 @@
+\[CW: minor child abuse
+
+Author's note: I originally posted a few parts of this story about a year ago on a different account, but life got in the way. I've finally finished and re-edited it, and I'll try to post a new part every day. Hope you enjoy!\]
+
+There’s no hope for me anymore.
+
+I’ve heard the train coming around the bend. It’s coming for me and I’m getting on. There’s nothing left for me here. Wherever it’s going is where I belong. I’m a faithless man, but I believe that much.
+
+I don’t write my story out looking for help or comfort. I’m beyond those things now, and the only reason I can possibly imagine I'm still here for, is to warn you. So please, for the love of God, no matter how curious you are, no matter how harmless it seems - if you find yourself in Appalachia - don’t break the laws of the land. There’s so much more you stand to lose than your life. 
+
+Growing up, I heard plenty of strange things, but I didn’t experience it firsthand until I was twelve, shortly after my mother’s death. My brother Jack was only a few months old when she passed. He cried and cried in our granny’s arms as we stood beside the hospital bed, his shrill lungs singing in tune to the flatline. The doctors thought it was Lyme disease that made her waste away, but some other complication that killed her. They couldn’t say for sure. There weren’t enough studies yet, they said, not enough data.
+
+All the homeopathic treatments, the antibiotics, the misdiagnoses, the countless prayers - none of it had mattered in the end. Not as she screamed through the nights from the pain. Not as she lost her memory, her energy, the use of her legs. She suffered right up until the end.
+
+But now she was at peace, Granny said, up in heaven with the angels. Only I remembered how she looked in that bed. Grotesque and unflinching in the blinding overhead lights of the small clinic. Eyes screwed shut, face pallid and shiny with sweat, body withered away. The way her chest caved in on itself with her final exhale. There was no peace in that.
+
+In the weeks after her death, I rarely spoke. I just felt tired all the time. Distant. I had lost interest in everything, and I didn’t see any use in words.
+
+It was a warm summer evening when my grandfather finally pried me from my room and pulled me toward the front door of our one-story house.
+
+“Goddamn it, where the hell are ya takin’ ‘im now?” Granny shouted from the kitchen. She leaned into view in the doorway, a cigarette perched between two fingers.
+
+She always swore like a sailor. Papaw hated it. Said it wasn’t ladylike or very Christian of her. But she’d just call him an old bastard and that was that. Sometimes I thought they argued just for fun. They loved each other, in their own way.
+
+“Relax, I’m gettin’ the boy some fresh air. Lord knows he could use it.”
+
+“Supper’s almost finished!”
+
+“Well I’ll bring ‘im back in when it is, won’t I?” he called over his shoulder, exasperated, shoving me barefoot out onto the porch.
+
+I stumbled forward a step and glared back at him. But he only shrugged innocently, grabbing his guitar from where it was propped against the wall. He settled himself in a porch chair, plucking out a tune. Some old song by Etta Baker or Doc Watson, maybe? He’d tried to teach me the classics, but I’d never had the ear for music.
+
+He noticed me lingering by his side and managed to wave me off without missing a note.
+
+Papaw’s solution to grief was to keep moving. No time for staying in bed, staring at the ceiling, pouring over old photo albums of my mom. I needed to be out playing with my friends, getting into trouble, chasing after girls. And if I wanted to quit early and go back in - I’d just have to ask him out loud. That was the rule.
+
+I stomped down the steps and into the small clearing. Our home had been in my family as far back as anyone could remember, built in a forested holler.
+
+The Appalachians are ancient in the truest sense of the word. A creature in their own right. Sleeping giants laid out on pillows of bedrock and earth, blanketed by nature. The trees and mountains rose up all around us, so there was always something looming over you, practically breathing down your neck. It had always made me claustrophobic.
+
+I glanced back toward the house. It had a low-pitched roof and rough-hewn siding. Extra rooms and a garage had been built onto the original structure, sticking out to either side, making the house look like a haphazard wooden quilt. Weeds crawled up the latticing. A stained glass wind chime fluttered in the breeze, casting rainbows across the welcome mat. Papaw’s bony frame leaned back in his chair. He fit in perfectly with the scenery. The laurel of white hair on his balding head. His creased leather shoes, sun-damaged face, and lazy contented grin. Like an aging troubadour.
+
+I caught his eye again, silently begging him to let me back inside, but his attention drifted pointedly down to his guitar. I huffed a resentful breath.
+
+Well, fuck him.
+
+I traipsed out into the yard, around the corner just out of his eyesight, and laid down in the grass with my hands behind my head. It would’ve been alright, all things considered, if it weren’t for the punishing humidity. I was still wearing my mom’s old sweatshirt despite the heat. Papaw had given it to her decades ago, when he came back home on shore leave. It was dark blue with a bold gold insignia and lettering: *‘Go to Bed, Have Sweet Dreams, Because America is Protected by the U.S. Marines’*
+
+I had refused to take it off since her death, though it dwarfed me the way it had her, the hem falling to my mid-thighs. Granny had managed to pry it off me twice when she did laundry, but every time she washed it, I was terrified she would wash away the scent. It still smelled like my mom. Not her perfume, not her soap, something unique. It smelled like my early childhood, a cool comforting scent. And if I held the collar over my nose, and breathed in deep, it almost overpowered the memory of hospital bleach and ammonia.
+
+I had managed to fall half asleep, one arm thrown over my eyes, the wind buttery against my skin - when I realized everything was too quiet. I couldn’t hear the meditative buzz of crickets and jar flies, birdsong, or guitar playing. The windchime and rustling leaves had all gone silent. Like the white noise of the world had been shut off, and I hadn’t even realized it had been there until it was gone.
+
+I sat up, wiping my eyes, and looked around. An hour or so must have passed, given how low the sun was. Its last golden rays cutting through the clouds above the treetops. My stomach growled, and I wondered whether supper was ready yet.
+
+Had Papaw just left me out here? I wouldn’t put it past him.
+
+I was climbing sleepily to my feet, brushing the dirt off my cargo shorts, when I heard a shout far off in the distance. I turned toward it instinctively, putting a hand over my eyes to block out the sun, squinting to make out the treeline. But it was all cast in shadow. Suddenly, the stillness of everything felt uncanny. Even the tree branches were still.
+
+The breeze had stopped.
+
+The shouting came again, cutting through the silence like a cleaver through meat, and I flinched unconsciously. I couldn’t make out any of the words, but it sounded frantic, almost like a man sobbing.
+
+There were a few unofficial walking paths in the nearby woods, but just the sort locals would use. We were far away from any major hiking trails. Maybe it was some of the neighborhood kids? But none of us, not even the ones with the most careless parents, were allowed to play in the woods around nightfall. Maybe it was a clueless tourist, I tried to reason, someone who had lost their way in the forest?
+
+“Hello?” I called out, halfway between annoyance and curiosity, still reluctant to speak. My voice was rough from chronic disuse, foreign even to my own ears. “Are ya lost?”
+
+I realized my mistake the second I made it.
+
+My grandparents had a lot of superstitions. The sort you catch on to without them ever having to be spoken out loud. Don’t look out the windows into the woods at night, because the woods will look back. Never respond to a voice calling your name. Never tell a stranger your real name. Never follow calls for help into the woods. Never go off trail. Never whistle after dark.
+
+And above all - never acknowledge something strange. No matter what you saw or heard, just act like you never noticed.
+
+But already a shout was echoing back in response, a single word, something sharp and short.
+
+“What?” I asked, quieter now.
+
+Something grabbed my shoulder, and I startled, my whole body tensing with panic. I whirled around, relieved when I saw it was just Papaw. He didn’t share in my relief, shaking me impatiently.
+
+“C’mon, Elijah, supper’s ready.”
+
+There was a crashing sound in the distance, like an animal tearing through the undergrowth, and I finally saw movement at the treeline in my peripheral. I started turning back to get a better look, a question on my lips, but Papaw grabbed my shoulder harsher this time and forced me to face him instead. He looked me dead in the eyes with a grim intensity, as though trying to convey something without facial expressions, gestures, or words. Like his soul was crawling out through his corneas. Then, just as quickly, the look vanished, leaving only a strained smile in its place.
+
+“Hurry up now,” he said, dragging me after him, though his tone stayed unnervingly upbeat, “don’t wanna keep yer granny waitin’, do ya?”
+
+He pulled me quickly across the yard and up the porch, as I struggled to keep my footing beside him, finally leading me through the door. Granny was waiting in the hall, and gathered me into her arms protectively. I could hear Jack’s hiccuping cries through the wall, from his crib in my bedroom. He was always crying. Sometimes I wished I had it in me to hate him for it. 
+
+I wasn’t as scared of whatever was outside as I was of the sudden change that had overcome my grandparents. Papaw was rushing around the house, locking the doors and closing the blinds of every window, with a certain forced detachment. As though this was a daily routine, though his fumbling hands betrayed him. Even Granny, who never took anything he did seriously, seemed shaken. I looked up to her for an explanation, but she only raised a finger to her lips.
+
+Finally, Papaw’s pacing came to a stop beside us, rifle gun in hand. We waited there for a small eternity, braced for something I couldn’t imagine. But nothing happened. No knocks at the door, no broken windows, no distant screams. When it was obvious we were safe, he set aside the gun and turned his attention to me. I knew he must be angry. I fixed my gaze on the floorboard between my feet, braced for a scolding. I hated being in trouble, but somehow I always seemed to wind up in it. 
+
+“Look at me, Elijah,” he said, softer than I had anticipated. “What did I tell ya ‘bout starin’ into the treeline?”
+
+I swallowed thickly. Normally when I was in trouble there was yelling, threats, *something*. But this? There was a tension in the room I was keenly attuned to as a child, and simultaneously completely naive of. I didn’t know what to do with it.
+
+“What did I tell ya?” he repeated, slower now. 
+
+My tongue felt like lead. I never wanted to speak again.
+
+“I’m sorry, I thought it was a hiker-”
+
+“No, none of that. Answer me.”
+
+I shrugged uncomfortably. “Not to stare into the treeline.”
+
+“Why?”
+
+“Yer scarin’ me-”
+
+The next second I was staring off to the side, catching myself before I could fall, pain blooming across my face. Granny tensed up behind me in surprise. He had lashed out without warning, hitting me full force across the cheekbone with his fist. I was torn between apologizing, pleading, and cursing - but all that came out was a choked sound of shock. My eyes had watered automatically, and I could barely see through the blur. I tried to step back on instinct, but his hand shot out and grabbed me by the collar. Jack’s cries intensified from somewhere far away, and distantly, I wondered if he was hungry. Maybe he needed his diaper changed or just to be held and comforted. I was the only one who could ever get him to calm down. I needed to go check on him. But before I could blink away the white flash, shake away the ringing in my ears, I was hit hard and fast again across the mouth. I felt one of my teeth slash into my lip, busting it open.
+
+I threw my arms up over my face. I swallowed down a noise of pain and my saliva tasted like copper. Tears were still streaming automatically down my face, even as I tried desperately to focus, to not anger Papaw further. Red hot indignation rose up inside me to mingle with the shame and fear filling my chest. My breath came heavy as I fought the urge to shirk away.
+
+“-oh, quit yer cryin’. Ya should be scared,” said his voice through the static, just as even and calm as before, “Now answer me.”
+
+“...because you’ll see things ya shouldn’t,” I gritted out.
+
+“Yeah,” he sighed, wiping a hand over his mouth.
+
+He looked frail now, apologetic. A tortured sheen to his eyes. Like I was a horse he hated to whip, but had simply forced his hand. I felt more relieved than angry, to see his gentleness return, and I hated myself for it. 
+
+“Ya got to remember this, alright?” he went on. “Never forget. If ya talk to what’s in the forest, you’ll become one of ‘em. Do ya understand? Tell me. Tell me ya understand.”
+
+I only nodded in reply.
+
+The air in the living room was oppressive. Papaw’s reddened hands hung useless by his sides. The two of them stayed rooted where they stood like great oaks, grown gnarled and tired with time, exchanging weighted glances.
+
+I took a tentative step backward, and neither of them stopped me. I supposed there were no more words left in any of us. I took advantage of the moment, walking away soundlessly, careful not to disturb the fragile peace. 
+
+I slipped down the hall and into my bedroom, where Jack thrashed feebly in his crib. I scooped him up without a second thought, stepping over to my twin mattress. I slumped down with my back against the wall and my legs splayed out in front of me, Jack cradled awkwardly awkwardly to my chest, and started tunelessly humming a lullaby.
+
+Jack’s face steadily relaxed, panic fading to curiosity. He had always loved music, must’ve come out the womb that way. As I sang, his big glassy eyes studied my face, cooing and grasping clumsily up for my shirt collar. A drop of blood fell from my split lip onto his forehead, and he blinked in confusion. I wiped it away guiltily, my thumb smudging it into his skin like anointing oil.
+
+“It’s okay, Jackalope,” I whispered, with a small smile like it was a secret, “I got ya. I’m goin’ to take care of us. I’m not goin’ away, ya hear? I’m yer brother. So I ain’t got a choice, do I?”
+
+My smile fell slowly. I chewed at the inside of my lip. Having actually said the words out loud, I was faced with the irrevocable truth of it all. I leaned back against the wall and turned my head toward the window, watching the pine trees sway in the bluish dusk.
+
+  
+\[Part 2 Out Soon!\]
