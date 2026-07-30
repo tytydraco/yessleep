@@ -1,0 +1,121 @@
+I honestly don't know where else to post this because everyone I've told either laughs or says I'm overthinking it.
+
+For context, I live in a girls' hostel attached to my college. The building is pretty old nothing creepy about it during the day, but at night the corridors are almost silent. After 11 p.m. the warden locks the main gate, lights are dimmed, and everyone is expected to stay in their rooms.
+
+When I first moved in, one of the seniors jokingly told me, "If someone knocks on your door after 3 a.m., don't open it."
+
+I asked why.
+
+She just smiled and said, "You'll understand if it ever happens."
+
+I assumed it was just another hostel prank meant to scare first-years.
+
+A few nights ago, I was studying until around 2:30 a.m. I eventually fell asleep with my desk lamp still on.
+
+I woke up to the sound of someone knocking.
+
+Not aggressive banging.
+
+Just
+
+Knock
+
+A few seconds later
+
+Knock
+
+Then one final knock
+
+I remember feeling annoyed more than scared because I thought someone had locked themselves out.
+
+I checked my phone
+
+3:08 a.m
+
+I got up, walked to the door, and was about to unlock it when I realized something felt off.
+
+Usually if someone's outside, you hear something. Whispering. Footsteps. Someone shifting their weight. The sound of slippers on the floor.
+
+There was absolutely nothing
+
+Complete silence
+
+I looked through the peephole
+
+The corridor was empty
+
+The lights were on, and I could see all the way to the staircase.
+
+No one
+
+I actually laughed at myself for getting nervous.
+
+I stood there for another ten seconds just to make sure no one was hiding around the corner.
+
+Nothing
+
+So I turned around to go back to bed.
+
+That's when
+
+Knock. Knock. Knock.
+
+This time it was louder
+
+The door shook slightly
+
+I froze
+
+The sound had definitely come from my door.
+
+I immediately looked through the peephole again.
+
+Still no one
+
+I don't know why, but I suddenly got this horrible feeling that if I opened the door, someone—or something—would be standing so close that I wouldn't even see it through the peephole.
+
+I backed away and didn't go near the door again
+
+I barely slept after that
+
+The next morning I casually asked the girls in the rooms next to mine if anyone had been knocking on doors during the night.
+
+Both of them looked confused. One said she'd been awake until almost 4 a.m. talking to her boyfriend and hadn't heard anyone in the corridor.
+
+Later that evening I mentioned it to one of the seniors
+
+She stopped smiling almost immediately
+
+The first thing she asked was, "You didn't open the door, right?"
+
+I said no
+
+She just nodded and said, "Good."
+
+I asked her what she meant, but she wouldn't explain.
+
+She only told me that every few months someone on our floor hears knocking between 3 and 3:15 a.m. The story has been around for years. Most people ignore it, and eventually it stops.
+
+I still don't believe in ghosts
+
+There's probably some logical explanation—old pipes, the building settling, maybe even someone messing around.
+
+But there's one thing I can't explain.
+
+Yesterday evening I noticed three faint fingerprints on the outside of my door, just below the peephole.
+
+They weren't dusty handprints
+
+They looked like someone with wet hands had touched the door
+
+It hadn't rained in two days
+
+No one on my floor remembers seeing them before
+
+I wiped them off before going to bed
+
+This morning
+
+they were back
+
+Has anyone else living in a hostel experienced something like this, or am I genuinely losing my mind? What do you think if this is just a prank or actually something creepy?
