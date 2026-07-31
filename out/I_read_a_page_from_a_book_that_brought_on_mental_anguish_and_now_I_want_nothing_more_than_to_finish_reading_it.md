@@ -209,3 +209,5 @@ My face grimaced.
 “The horrors, oh the horrors. Mankind must never know of the horrors that are in that book.”
 
 Charles has gone back home, he's going to devise a way to get into the office without getting caught. I sure hope he's using ideas that we have gotten from the book. Oh yes, I believe that would be the only way. 
+
+I don't know how, but we have the [book](https://www.reddit.com/r/nosleep/s/tndZyiiOiy).
