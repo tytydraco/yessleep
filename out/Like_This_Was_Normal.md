@@ -10,7 +10,7 @@ I watched my supervisor check the list of out of town workers who might arrive. 
 
 I took my secret earbuds out.
 
-"Did you ever play Donkey Kong Country 3, growing up?" The blond-haired one asked the other.
+"Did you ever play Donkey Kong Country 3, growing up?" the blond-haired one asked the other.
 
 "No, I can't say I have," the black-haired one replied. "I loved the second game, though."
 
