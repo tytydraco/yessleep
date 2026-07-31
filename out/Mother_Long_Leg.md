@@ -16,7 +16,7 @@ I ran out the door, slamming my hand onto Jeanie’s car. “Lay off the horn, a
 
 She smirked, always eager for mischief. I got into the passenger seat and kissed her cheek.
 
-“Don’t kiss me, Conner. We made out once, and I learned my lesson.”
+“Don’t you dare, Conner.”
 
 I chuckled to myself, knowing that Jeanie and I weren’t going to rekindle anything. But man, I do love to make fun of her about it. She and I had drunkenly made out once, but that was all.
 
@@ -38,7 +38,7 @@ She nodded. “Of course, but you and Jeanie can always share.” She winked.
 
 Jeanie rolled her eyes. “I think I’d rather die.”
 
-Parker snorted. “Calm down, grumpy. It was a joke.”
+Parker snorted. “Calm down. It was a joke.”
 
 Sue popped her trunk and dispersed the tent packs, making sure to load down Parker like a camel. She’d brought way too much stuff, but she’s her boyfriend’s problem. He gets to carry her crap. He gave me a help me look, and I begrudgingly took her stupidly heavy makeup bag.
 
