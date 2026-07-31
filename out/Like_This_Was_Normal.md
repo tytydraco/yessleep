@@ -1,0 +1,67 @@
+The labyrinthine office building I guard has a little balcony on the second floor, overlooking the lobby. From it, you can see all the little office workers walking back and forth, in and out of the somewhat exaggerated front entrance. The trouble with this front entrance, really with the doors themselves, is they are a little too high off the ground. Just a little. So all sorts of bugs pass through, and congregate in the front lobby.
+
+When I do my hourly patrols, the site supervisor stays at the lobby desk, handing out badges and whatnot. When my patrols end, *I* have to hand out badges and whatnot. So, when I get to that balcony, before taking the elevator down, I like to spend a little extra time there. Time watching the supervisor hand out badges while not doing it myself. She usually doesn't notice.
+
+And it was during one of these occasions, that I saw something incredible.
+
+Late in the evening, after most of the office workers had already left: two workers from out of town arrived. Both wearing black tuxedos. I know they were from out of town, one because exceptionally well-dressed men tend to arrive at this building from out of town, and two because they did not have their own badges. Hence the handing them out. However, there appeared to be trouble.
+
+I watched my supervisor check the list of out of town workers who might arrive. And evidently, these two weren't on there. I know because she sighed, the way she does, and went into the security office. To check the various other, larger lists, which are for some reason still kept on pieces of paper instead of computers. This extra checking happens sometimes, and I hate it, and she loathes it. Anyway, it created a stretch of time in which these two finely-dressed office people were alone in the front lobby. I guess they thought no one was watching.
+
+I took my secret earbuds out.
+
+"Did you ever play Donkey Kong Country 3, growing up?" The blond-haired one asked the other.
+
+"No, I can't say I have," the black-haired one replied. "I loved the second game, though."
+
+A tiny speck darted across the floor from out of sight, running past them toward the doorway to outside.
+
+The blond-haired man bent down, and picked it up off the floor. Caught it perfectly.
+
+A spider, I saw. Probably a wolf spider.
+
+The man with the spider in his fingers laughed. "There's a level in that game that sorta reminds me of this building."
+
+"Wait!" said the black-haired man. "I think I know the one you mean! I saw it in a video. It's like a factory..."
+
+"That's the one." The blond-haired man laughed. And he took the wolf spider, and he put it in his mouth. Started chewing.
+
+"Dang," said his buddy. "I need to go back and replay those games." This man absolutely saw his friend eat the spider. He saw it perfectly, but did not react. Like this happens all the time. Like this was normal.
+
+The blond-haired man, still chewing the spider, still laughing, said, "Absolutely. And make sure you play the third one too, this time. Good stuff."
+
+"Will do," said the black-haired man.
+
+The site supervisor finally came back out to the desk. "Sorry for the wait," she said. "Let me get you guys those badges."
+
+If only she knew what he was chewing on. Where he got it.
+
+I felt something on my ankle.
+
+Felt its little legs.
+
+I bent down.
+
+Another wolf spider, crawling up me.
+
+I don't know how to explain this, other than the spider caught me at exactly the right moment.
+
+I reached my fingers, and grabbed it, and I put it in my mouth.
+
+I don't know what possessed me to do this.
+
+It bit my tongue.
+
+I spit it out.
+
+"What the hell?" someone said, laughing.
+
+Confused, horrified, certain I was in a dream, I turned. The blond-haired man had just exited the elevator. He grinned. "Why did you have a spider in your mouth?"
+
+Please tell me this is a dream.
+
+The spider ran off.
+
+"I don't know," I said.
+
+He said, to the black-haired man behind him, "The guard just tried to eat a spider!"

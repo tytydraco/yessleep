@@ -46,7 +46,7 @@ Tangent aside, I asked her for proof, she got upset, and after another painful b
 
 So I took the camera home with me, sent an order for the proper film online, and waited.
 
-About a week later, Grace passed away from a drug overdose. This was three weeks ago, today. The funeral was last Sunday. I still feel sick to my stomach, but maybe that's just the migraine.
+About a week later, Grace passed away from an accidental overdose. This was three weeks ago, today. The funeral was last Sunday. I still feel sick to my stomach, but maybe that's just the migraine.
 
 Last week, the specific roll of film I needed arrived in the mail. Took them long enough. I snapped a photo of myself, and after staring at it while it developed for a few minutes, I noticed...nothing. Nothing really out of the ordinary, beyond a weird splotchy artifact right above my lip. Nothing about me was changed, otherwise.
 
