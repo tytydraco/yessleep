@@ -1,0 +1,247 @@
+“He who makes a beast of himself gets rid of the pain of being a man.” 
+
+A quote from Samuel Johnson. My friend sent it to me over Discord on a dreary day when clouds as dark as sin swallowed the sky. I had spent the last few weeks or months, I’ve lost track at this point, doing the same routine day in and day out. I wake up, I smoke an excessive amount of weed, and I numb myself until the deep dark settles over my mind the way it does every night. 
+
+Was I happy with how my life had gone? No. 
+
+Was I pleased that my mind screamed at me less when I was impaired? Absolutely.
+
+The numbness that swept over my subconscious the moment the smoke burned its way into my lungs had become a safety blanket. I couldn’t regret my life decisions if I was too far gone to realize I was still living.
+
+I knew what I did every day was wrong. I knew I was wasting my life away one day at a time. I heard it from my parents constantly; a barrage of insults and accusations dressed as concern. I was well aware of my current circumstances and was fine with them. My self-awareness operated as both a tower shield and spear, ready to defend or attack any who would dare disturb my carefully maintained peace.
+
+From the outside looking in, my life looked normal. I grew up in a small southern town with a standard nuclear family. Everyone saw the pleasant exterior, but inside it was anything but pleasant.
+
+My father was a man who strived to be better than his father. His father had beaten him and passed down years of trauma no one should wish on their worst enemy. What came of that dedication to “fatherhood" was a man who treated the simple act of not hitting his children as some kind of blessing. The verbal abuse and mental cruelty he poured into us more than made up for the lack of bruises.
+
+My mother wasn’t much better. She feared my father just as much as we did. But to claim some scrap of control over her own life she let herself lose control completely, in situations that never warranted that kind of rage. I’ve lost count of the times I found myself apologizing to waitstaff after one of her outbursts.
+
+My sister neither helped nor harmed me in any direct way. She was trapped in the same prison I was, but the warden played favorites. She received far less of our father’s verbal abuse, and why wouldn’t she. She was his perfect porcelain doll, shaped exactly to fit the box he had built for her.
+
+Outside the prison of our family dynamic, life still held a few positives. My friends at school were one of them. The school itself was not. 
+
+My elementary, middle, and high school all took place in the same building. It was a private Southern Baptist school that took children from kindergarten straight through twelfth grade. The place was designed to produce one of two things: young adults fiercely devoted to Christ in the most cult-like fashion imaginable, or rebellious teens the school could point to as living proof of the devil's work.
+
+When you’re trapped mentally and physically in a prison, you find solace in the smallest things. As I said before, my friends provided that. Most of them I still talk to a little, even now. One of them though, I haven’t spoken to seriously since he moved away in high school.
+
+My friend, or ex-friend, whichever you prefer, was a normal kid. Let’s call him Jonathan for simplicity’s sake. He’d been at the school as long as I had. Quiet, with the same nerdy interests as me, so we got along well. We hung out whenever we could at school, but we were never really able to see each other afterward. That changed on one particular day.
+
+I remember it clearly to this day, as if it were a terrible recurring nightmare. Jonathan approached me after the final bell with a face full of hesitation. Every step he took looked as if he was weighted down by something heavy and unseen. 
+
+“Hey… I wanted to ask if you wanted to come over to my grandparents’ place today.”
+
+I closed my locker and turned to face him. I must have looked more confused than I realized, because he winced the second he saw my expression.
+
+“I knew it was a stupid question. I’m sorry for bothering you.”
+
+He turned around and started walking towards the exit. His steps seemed lighter now, almost as if he was skipping. I should have taken that as a warning, but my adolescent mind couldn’t bear the thought of letting a friend down. 
+
+“Wait up bro. Do your grandparents need help with something?”
+
+I rationalized the request; why else would someone invite a friend to their grandparents’ house. He turned and walked back to me, stepping in close. He spoke with a hushed voice, as if the entire world was watching this small, insignificant moment.
+
+“Yeah. My grandmother’s on a trip and asked if I’d get a friend to help clean and sort some things while she’s gone.”
+
+“Yeah, I have to be home before dark. But as long as my parents can pick me up, or someone else can take me home, I can help.”
+
+He let out a sigh that would have told any passersby exactly which answer he preferred. I remained willfully clueless. He turned toward the exit again and beckoned me to follow. I gathered myself and went after him.
+
+We walked along the street for a couple of minutes. The day was hot and humid. Every breath felt heavier than the last. I cursed myself for leaving my inhaler on the kitchen counter that morning.
+
+Eventually Jonathon stopped dead on the sidewalk, turned away from the road. I caught up and    followed his gaze. What stood in front of us was a long, tree-lined path leading to a house swallowed by shadow.
+
+The house looked as if it was plucked straight from a fairy tail. The trees stood in perfect alignment, each one casting a long shadow down the driveway. The house rose at least three stories high, yet looked thin and narrow as though it belonged on a bookshelf rather than a street. Painted a dark grey, it seemed to dissolve into a void-like black whenever the shadows enveloped it. 
+
+Jonathan stepped forward into the shadows. I hesitated. My mind screamed at me as if I was stepping into the maw of a great beast. Still, my feet followed him, each step pulling me deeper into the dread that filled my mind.
+
+“Hey Jonathon… does it always feel this creepy?”
+
+He stopped. For a second he looked as if he had something important to say, but he halted himself. He then turned and stepped closer to me.
+
+“Just be prepared. My grandfather was an eccentric man most of his life. It’s jarring the first time you go inside.”
+
+He finished speaking and turned back towards the house. I followed until we reached the front door. It stood tall, its frame dark and curved. Jonathan knocked. from inside came the sound of shuffling, then the heavy slide of a deadbolt.
+
+The man who opened the door was short and frail. His skin looked ready to peel away from his bones at the slightest touch. His eyes were pale and tired. He stepped aside and gestured us in with a hand that resembled the claw of a bird of prey.
+
+“Don’t just stand there like a pair of sheep. Get inside, take off those filthy shoes, and place them below the banister.”
+
+He pointed with the same claw-like hand towards a spiraling staircase. However my eyes refused to give the stairs any attention. The foyer, and from what I could see, every room beyond was filled with taxidermized animals. Dozens of them. Maybe hundreds.
+
+They covered the walls and filled every open space that could hold them. What stood out most were the animals themselves; each one more exotic than the last. A bobcat crouched above the doorway to the living room. Zebra heads lined the walls, their eyes as black as their hides. A baby tiger sat beside the fireplace like a loyal dog.
+
+But the two most striking pieces dominated the foyer. The first was a lion, mouth open wide as if it was ready to tear into its next meal. Behind it loomed the true centerpiece: an elephant, severed at the midsection, standing nearly twelve feet tall. Its presence was impossible to ignore. The tusks stretched long and thick, still forbidding any who would dare approach.
+
+“Oh yeah, that’s good ol’ boy Atlas. Shot him down in the summer of ‘68. Real tusks and everything. Thankfully, I got him before the whole world turned into a bunch of fairies and banned the ivory trade.”
+
+The old man spoke with exuberance and patted the tusks the way someone might show off a classic car. Then he turned toward us and scowled at me. I could hardly attempt to hide my bewilderment on my face.
+
+“Looks like you brought a fairy with you Jonathan…”
+
+He said matter-of-factly, then turned and walked stiffly toward the living room, waving a dismissive hand.
+
+“Your grandmother told you what to do. Don’t break anything, and don’t touch the animals.” 
+
+A moment later we heard a television blaring infomercials and the low grumble of an old man who couldn’t be bothered enough to change the channel. Jonathan led me up to the third floor, into a room packed floor to ceiling with boxes and filling cabinets. He grabbed a box from a small pile and began pulling out the contents.
+
+“Alright, so all we have to do is sort these boxes and eventually the pap-“
+
+“What the fuck was that man! ‘Eccentric’ is how I describe someone who dresses funny. You could’ve prepared me better for that.”
+
+Jonathan exhaled loudly, closed the box, and stood up. He began pacing in the little space left between the walls of boxes and filing cabinets. 
+
+“I know man. He is a weird guy. You didn’t have to come if you didn’t want to.”
+
+I stepped forward, annoyed. I pushed my finger into his chest, shoving him back a little. 
+
+“No! This isn’t on me. You could’ve told me your grandfather was Kraven the Hunter back in his heyday, but you decided to keep that little detail to yourself!”
+
+Jonathan’s face flushed, and his brow furrowed. He shoved me hard. I stumbled back into a filing cabinet; it toppled over with a loud crash. He came closer and jabbed a finger into my chest.
+
+“He’s my grandfather, you jackass! Watch what you say about my family. Now pick up the papers that fell out of the cabinet, you fucking fairy!”
+
+I’d clearly hit a nerve. I knew I should apologize, but after he’d thrown his grandfather's insult at me I refused. I clicked my tongue, and started gathering the scattered papers.
+
+Most of them were old documents, nothing of note; until I came across a manila folder bound with thick rubber bands. It felt surprisingly heavy. The moment I touched the bands, they snapped.
+
+I told myself just to place the folder back and ignore it. But I was weak. I gave into my lack of self control. I pulled the folder open and saw a collection of different documents and notes. On top sat a plastic bag. It seemed to hold photographs and a smaller white paper bag.
+
+Curiosity pulled at my subconscious once more. I glanced over at Jonathan. He was still huffing to himself, too annoyed to notice.
+
+“It won’t hurt to take a peek.” I muttered.
+
+I opened the plastic bag. Decades of dust rushed into my eyes and nose. I held back a sneeze, then pulled out the paper bag and pictures. I set the smaller bag on a nearby box.
+
+The photographs pulled me in. The first few showed a much younger, more vibrant version of Jonathan’s grandfather. He stood smiling in a sailor’s uniform in front of what looked like a naval vessel.
+
+As I flipped further, the pictures carried me through the years of a man’s life; Navy service, marriage, children. I then found the first piece of evidence that hinted at his other activities. The same young man, now with scruffy facial hair and a wide smile, stood among a group of men, each of them holding a weapon.
+
+The next few pictures showed the men drinking and spending time together. Then the tone shifted. Soon it was the young man standing over slain animals. Eventually I found one of him perched atop his prized trophy; Atlas. 
+
+In every photo his smile grew wider. It seemed comical how much pleasure he seemed to take in the killing. Dozens of pictures of him standing on or beside animal corpses. I kept flipping until I reached the last few.
+
+The same young man smiled brightly at the camera. He was knelt down and held up the head of his most recent hunt. A young man. No older than I was. Bile rose and burned my throat. I forced the reaction down, terrified Jonathan would notice. I shoved the pictures back and forced the bag into the folder. 
+
+I wanted to leave. I wanted to get out of this god forsaken place and never come back. I opened my mouth to tell Jonathan, then something caught my eye. The small white paper bag from the folder. 
+
+“Just leave it!”
+
+My innermost thoughts screamed, louder than any siren. I didn't listen. I grabbed the small paper bag and slipped it into my pocket. I walked over to Jonathan and put a hand on his shoulder. He jumped.
+
+“Hey, I need to use the bathroom. Where is it?” 
+
+He looked annoyed.
+
+“Second floor. Doorway with the cheetah over it.”
+
+“Of course it is.”
+
+I hurried down the stairs, found the cheetah, and locked myself in the bathroom. Sitting on the edge of the toilet, I opened the bag.
+
+Inside was a thin silver chain with a green stone shaped like a simple mask. I turned it over in my fingers. The stone was cold; colder than it should have been, a shiver ran down my spine. I remember seeing something like it in the photographs. I unlocked the door quietly, slipped the necklace into my pocket, and stepped back into the hall.
+
+“Are you predator or prey?” 
+
+I froze. I could have sworn I heard a voice. I looked around the empty hallway and shook my head.
+
+“I’m losing it in this house,” I muttered, starting quickly for the stairs.
+
+“You’re definitely prey. Nothing like the young man from before.”
+
+I turned my head toward the bathroom. The cheetah that had been frozen above the doorframe was now blinking. Its jaw moved. My head began to swim.
+
+“Oh come now, young man. I am a slain beast and you are a healthy one. What do you have to fear?”
+
+I stood with my mouth open, unable to think, much less speak. The cheetah turned its head from side to side, studying the hallway, then its own body. I shifted one foot back onto the first stair.
+
+“Please don’t leave me here alone again. The man who gunned me down did it in such a way that I can still occupy this corpse. Will you help me?”
+
+I stepped off the stairs and moved a little closer.
+
+“I don’t think I’m in any position to help you. What could I even do?” 
+
+The cheetah’s eyes narrowed with annoyance. 
+
+“You must free our souls from these bodies. The man who killed us used that amulet in your pocket to lure us in and slaughter us. You must do the same. Slay the man-devil and free us.”
+
+I gripped the handrail. Had I heard that right? Did it just ask me to kill Jonathan’s grandfather? I reached toward my pocket.
+
+“At least hear the others first. Listen to our stories and decide if they mean anything. If you still think our cause is pointless, leave the amulet and go. But if you hear us and feel even a shred of sympathy… end him. Remove him from this world the way he removed us.”
+
+“I’m assuming ‘us’ means the other animals.”
+
+The cheetah’s mouth curved in something like a smirk. A low, almost pleased purr rumbled in its throat.
+
+“You would be correct, young man. The old man is asleep at this hour. You should be able to speak with others freely.”
+
+The climb down the stairs felt like a dream. I told myself I was imagining the talking cheetah, that I only needed fresh air. At the bottom I heard the unmistakable sound of a man snoring. Lucky guess on my imagination’s part, I thought, and reached for the door.
+
+“Another man ignores our cries. Why am I not surprised?”
+
+I turned. The lion in the foyer was speaking. Its jaw moved. Its eyes blinked rapidly, as if waking from a long sleep.
+
+“I didn’t ask for this. I’m not even related to that man. Just let me leave.”
+
+“I can’t stop you. You’re the only one who controls your feet.”
+
+The air felt dry. My mind felt thin. I sighed in defeat.
+
+“I promised the cheetah I’d hear you out. I’ll give you that much
+
+“You treat the burden of knowledge like something you can set down. Are you weak-willed?”
+
+My brow furrowed.
+
+“I’m not weak-willed. I’m just a man, and you’ve piqued my curiosity.”
+
+The lion laughed. 
+
+“If it were only curiosity, you would have left long before you reached me. I was slain by the old man decades ago. He and his pack of devils hunted me for weeks. They slaughtered my pride long before they ever got to me.”
+
+The lion’s voice nearly broke.
+
+“Do you know the dread of seeing your own child stripped and thrown aside like scrap meat? Watching those little monsters cut them apart, laughing, while they took the fur for a coat? My child is reduced to clothing.”
+
+The lion’s voice boomed and shook the room. Around us, other animals began to twitch as life returned to their heads. 
+
+“The devils came back in the night. They trapped me with rope and cut into me. I screamed and no one came. I was left to suffer while that bastard in the other room pressed a gun to my skull and snuffed me out like an ant.”
+
+The rest of the collection stirred. Zebras wailed, remembering how a man had laughed and clapped while they died. A bobcat cried that it had been tortured for days for someone’s amusement. The baby tiger called for a mother who would never answer.
+
+“That old man heard every cry. He took pleasure in them. He took the lives of hundreds who begged for a mercy that never came. Will you ignore us too? Will you abandon us, or give us what we want?”
+
+The screams flooded my mind. Each voice a different agony, each suffering stacked on the next.
+
+“I don’t know! I don’t know what to do.”
+
+The beasts’ words poured into me, filling me with a righteous fury I had never felt. My body moved without my permission.
+
+“Slay the devil!”
+
+They roared it together. Their voices seized my mind and my limbs. I stepped behind the sleeping man and raised my hands toward his throat. 
+
+“No… I can’t. I can’t kill someone.”
+
+I staggered back. My body turned heavy, as if something were dragging me down. A deep, booming sound rolled in from the foyer. I didn’t turn. I already knew what was coming. Atlas.
+
+“You ignore our pleas and show mercy to a devil. You are no more innocent than he is.”
+
+The voice was low and booming. It filled my mind as if it refused to be shut out. My heart hammered so hard I thought it might burst. 
+
+“Lower your head and accept your fate, man-devil. You will never know peace. Even in the afterlife the weight of your choices will follow you.”
+
+Pressure crashed down on the back of my skull. It felt like the weight of a great beast was crushing the bone. I cried out and, in pure panic, yanked the necklace from my pocket and hurled it against the wall. The pendant struck with a heavy crack. 
+
+Silence returned. Only the chatter of infomercials and the old man’s snoring remained. I looked around. Every animal was still again, exactly as it had been. The old man jerked awake.
+
+“What the fuck are you doing down here?”
+
+His eyes found the broken necklace on the floor.
+
+“What did you do?!” 
+
+He surged to his feet and came at me. I was already running for the door. He shouted a stream of curses as I fled down the dark driveway. Every step felt like a small victory.
+
+Hours later my mother found me. I had wandered the streets until I finally called her, crying. Jonathan never returned to school after that day. I’ve seen him online since, and once ran into him years later. The conversation was awkward and short. Even now, when I pass that house, a cold shudder climbs my spine.
+
+Time has moved on. But I still feel watched. Every animal I see seems to stare into me with the anger of thousands of souls. Deer, squirrels, even the birds. They all carry the same quiet fury. I can’t sleep without hearing those voices. I wish it had only been a dream. At least then the noise inside me might finally stop.
