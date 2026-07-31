@@ -1,4 +1,4 @@
-I pitched my tent in a secluded sand dune. 
+I pitched my tent in a secluded hollow among the dunes. 
 
 Wind. Waves. Whispering marram grass. 
 
