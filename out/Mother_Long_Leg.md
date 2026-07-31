@@ -244,7 +244,7 @@ I slowly took it.
 
 “Now go before I change my mind.” She chuckled loudly.
 
-The horrible, deafening noise vibrated my bones, and I closed my eyes in fear, feeling dirt speckled onto me.
+The horrible, deafening noise vibrated my bones, and I closed my eyes in fear, feeling dirt speckle onto me.
 
 A hand surged toward me, pulled me through a different tunnel, and spat me out at the hole by our campsite. I looked around wildly, feeling something warm and wet beneath me. I flipped on the flashlight. It flickered to life, and I yelled in horror.
 
