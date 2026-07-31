@@ -40,7 +40,7 @@ Jeanie rolled her eyes. “I think I’d rather die.”
 
 Parker snorted. “Calm down. It was a joke.”
 
-Sue popped her trunk and dispersed the tent packs, making sure to load down Parker like a camel. She’d brought way too much stuff, but she’s her boyfriend’s problem. He gets to carry her crap. He gave me a help me look, and I begrudgingly took her stupidly heavy makeup bag.
+Sue popped her trunk and dispersed the tent packs, making sure to load down Parker like a camel. She’d brought way too much stuff, but she’s her boyfriend’s problem. He gets to carry her crap. He gave me a *help me* look, and I begrudgingly took her stupidly heavy makeup bag.
 
 And the four of us began to hike through the dense woods.
 
@@ -58,7 +58,7 @@ Jeanie stifled a laugh while poor Parker unloaded himself, removing at least fou
 
 He stopped me, not wanting Sue to hear.
 
-The group of us began to pitch our tents, fighting with the ground to stake the metal pegs into the soil. The ground was hard, dry, and aching for water.
+The group of us began to pitch our tents, fighting the ground as we staked the metal pegs into the soil. The ground was hard, dry, and aching for water.
 
 As I staked my final metal peg into the ground, the peg fell right through the soil, swallowed by darkness below. Earth fell away, revealing a tunnel into endless night. A few pieces of dirt slipped into the darkness, descending into the hole.
 
@@ -92,29 +92,29 @@ Everyone else chuckled.
 
 Sue and Parker agreed, but I shook my head.
 
-“I’ll stay here and set up my tent… again,” I grumbled.
+“I’ll stay here and set up my tent… *again*,” I grumbled.
 
-“I can stay back with you,” Parker said, patting my shoulder. “But that means I’d need Parker Payment…”
+“I can stay back with you,” Parker said, patting my shoulder. “But that means I’d need *Parker Payment*…”
 
 “Stay away from me, you sick fuck!” I hissed, backing away from him.
 
 He chased after me anyway, cornering me between the tall grass and the massive hole. Sue and Jeanie laughed wildly, holding their stomachs as Parker tortured me. I had no choice but to face him now.
 
-Parker Payment was something he’d come up with when we were young. Anytime he did something he considered chivalrous or in need of recognition, he requested Parker Payment. It sounds horrific, but if he catches you, he pulls your head into a chokehold and kisses your head before giving you the most painful noogie of your life. It doesn’t help that Parker is absolutely massive. He’s six foot five, fast, and incredibly strong. Parker Payment is nothing more than friendly hazing, but I hated it more than anything.
+*Parker Payment* was something he’d come up with when we were young. Anytime he did something he considered chivalrous or in need of recognition, he requested *Parker Payment*. It sounds horrific, but if he catches you, he pulls your head into a chokehold and kisses your head before giving you the most painful noogie of your life. It doesn’t help that Parker is absolutely massive. He’s six foot five, fast, and incredibly strong. *Parker Payment* is nothing more than friendly hazing, but I hated it more than anything. Parker and I grew up together, childhood neighbors and childhood friends. He moves to the beat of his own drum, and most find him very abrasive. I happen to agree.
 
 I tried to run past him, but he snatched me up, pulled me into the crook of his arm, and noogied me until I tapped out. When he let me go, I coughed, still smelling the scent of his BO and intense cologne.
 
 “I hate you, man…” I wheezed, trying to catch my breath.
 
-He laughed, smiling proudly to himself.
+I rubbed my head angrily, watching him smile proudly to himself.
 
-“I never even agreed to you staying!” I laughed, crossing my arms over my chest.
+“You are beyond irritating, you know that! I never even agreed to you staying!” I laughed, crossing my arms over my chest.
 
 He smirked. “Then, you simply got a noogie to grow on. It’ll give you luck for those acceptance letters.”
 
 I rolled my eyes at him.
 
-“Listen, are we going to the lake or not?” Sue asked, tapping her foot.
+“Listen, are we going to the lake or not?” Sue asked, tapping her foot. “I’m ready to swim.”
 
 “I’m coming,” Parker replied. “You sure you’re gonna be okay by yourself, Conner?”
 
@@ -146,7 +146,7 @@ I looked ahead. Only the moon was my guide now; perhaps she’d spur me onward. 
 
 I froze, heart hammering into my chest.
 
-“Conner…” it whispered again, echoing ahead of me.
+“Conner…” it whispered again, echoing ahead of me now.
 
 I said nothing, not recognizing the voice and not daring to answer.
 
@@ -178,35 +178,39 @@ Silence overtook the forest. The creatures feared whatever beast lay inside the 
 
 “There aren’t many like you, Conner…” A low voice spoke from the hole.
 
+My body quaked with adrenaline. The voice was old and worn, but at the same time powerful and commanding, as though concealing itself to appear less threatening than it truly was.
+
 A long, pale arm rose from within the hole. The fingers were blackened at the tips, and the talons ripped through the skin. Dirt rumbled beneath me, and something large shook the ground. My body began to shake as fear coursed through me. At one point, I thought that I had wet myself.
 
 One finger gestured for me to move closer, but I didn’t dare to follow.
 
-“Where is Jeanie?” I asked.
+“Where is Jeanie?” I asked. “What have you done to her?”
 
 A low growl escaped the hole. “She found her place… She’s with her friends now.”
 
 “Who are you?” I asked.
 
-“You need not be frightened. I am Mother Long Leg. Your smell is not palatable for my taste. While delicious, I know that you are unripe.”
+“You need not be frightened. I am Mother Long Leg. Your smell is not palatable for my taste. While delicious, I know that you are *unripe*.”
 
 I swallowed hard, feeling vomit creeping up my throat. I forced it down, refusing to put myself in a more vulnerable position to this being of the darkness.
 
-“Conner… I will give you three more questions. Choose wisely. I do grow tired of playing games with mere mortals.”
+“Why are you doing this?” I whispered, voice finally failing me and exposing the terror leaking out of me.
 
-I thought quietly, knowing that I needed to ask questions that piqued her interest without getting myself killed.
+“Enough questions, Conner… Too many questions can soil the mind; eat the dulcet curves and mechanics of the unknown. You need to remain sharp for the future ahead. I will allow you three more questions. Choose wisely. I do grow tired of playing games with mere mortals.”
+
+I thought quietly, knowing that I needed to ask questions that piqued her interest without getting myself killed. I had to play her game. I had to appease her... placate her to survive.
 
 “Where did you come from?” I whispered, fearfully clutching the grass below me and expecting the worst.
 
-“A good question…” she replied. “I came from a very different world, boy. I came from a place trapped beneath the earth. There are more beings like me, hiding within the gloaming. More of us to see. More of us to grow… More of us to starve as we wait. I was born from a thought and an inkling, birthed by that which thrives within the dark and writhes in the dampness and dank.”
+“A good question… A good question, indeed...” she replied. “I came from a very different world, boy. I came from a place trapped beneath the earth. There are more beings like me, hiding within the gloaming. More of us to see. More of us to grow… More of us to starve as we wait. I was born from a thought and an inkling, birthed by that which thrives within the dark and writhes in the dampness and dank.”
 
-I pondered for a few moments, thinking wildly for another question.
+I pondered for a few moments, thinking wildly of another question.
 
 The hand inched toward me, lifeless fingers stroking my cheek. My body shook violently, and sweat beaded down my brow. It was then I saw the hairy leg emerging from the arm. The creature was wearing someone’s arm and hand, using them as gloves.
 
 “Why did you pick Grenwich to reside?” I forced out, recoiling from the creature’s touch.
 
-A soft chuckle trickled from the hole. “Grenwich is riddled with food. For what I am needs life to survive, but I need magic far more. You see, Grenwich is an unfortunate place. Somehow a tear in the veil between realms formed. Creatures like me flocked to this town, but not by accident. Many… many… years ago, a man ventured to Grenwich. He desired to build a superior race, mate with the unknown, and grow it without restraint. But the universe must have balance. Even it has its limits. He was successful in a way, but he let in something dangerous… something that could not be contained by death alone. He let in me…”
+A soft chuckle trickled from the hole. “Grenwich is riddled with food. For what I am needs life to survive, but I need magic far more. You see, Grenwich is an unfortunate place. Somehow a tear in the veil between realms formed. Creatures like me flocked to this town, but not by accident. Many… many… years ago, a man ventured to Grenwich. He desired to build a superior race, mate with the unknown, and grow it without restraint. But the universe must have balance. Even it has its limits. He was successful in a way, but he let in something dangerous… something that could not be contained by death alone. He let in *me*…”
 
 I slowly stood up, and the creature shifted below me. A skittering sound speckled over the ground as many hands began to crawl into the hole from all corners of the forest. One slipped over my foot, and I forced myself not to cry out or scream.
 
@@ -220,23 +224,29 @@ A hand shot through the tunnel and pulled me inside. I thrashed wildly as roots 
 
 A heave erupted from me before I could control myself. I quickly turned away.
 
-“Come this way…” Mother Long Leg growled.
+“Come this way…” Mother Long Leg growled. “Come and see... Come and see the wonders of the undergrowth.”
 
 I followed the sound of her voice until I reached an enormous cavern. A thousand sparkling eyes met mine, as endless and unnerving as the universe. Hands continued to crawl to her, attaching to her many legs. Then, I saw her mouth. It was a gaping hole, teeth ringing around it. The teeth moved in an elliptical motion, slipping over and under the surrounding teeth. If swallowed by Mother Long Leg, you’d be ground to bits, shredded and sliced.
 
 I never saw her eyes. I only saw the thousands that covered her. I wasn’t sure if two were her main source of vision, but I was out of questions to ask. I didn’t want to know what happened if I asked another.
 
+“Gaze upon me...” Her voice morphed into an earthen bellow. Soil crumbled from the ceiling. “Gaze upon the mother...”
+
+Mother Long Leg’s chilling breaths echoed around the chasm, low, growling, and grating. My soul quivered within me. I wanted to run, and I shouldn’t have asked to see her. I had made a terrible mistake.
+
 Webbing stretched over each side of the cavern, providing a net for catching prey. Inside one of the webs, I saw the decayed corpse of a park ranger. His mouth hung open, and a hand began to crawl from the inside. It forced his jaw open with a horrible grinding noise. Then, covered in goopy decay and rotten blood, it fell onto the floor. Another began to emerge from his stomach. The outline of the hand pressed against his rotten flesh imprinted into my mind before it burst out and birthed itself into the cavern.
 
-“Do not be afraid… I want to give you something.”
+“Do not be afraid, dear boy… If I wanted you dead, you would be. You’d be food for my young, nourishment for the toils of the earth. Calm yourself... I want to give you something.”
 
 She pushed a new flashlight toward me. It was coated in blood; perhaps ripped from the hand that once grasped it.
 
 I slowly took it.
 
-“Now go before I change my mind.”
+“Now go before I change my mind.” She chuckled loudly.
 
-A hand surged toward me, pulled me through a different tunnel, and spit me out at the hole by our campsite. I looked around wildly, feeling something warm and wet beneath me. I flipped on the flashlight. It flickered to life, and I yelled in horror.
+The horrible, deafening noise vibrated my bones, and I closed my eyes in fear, feeling dirt speckled onto me.
+
+A hand surged toward me, pulled me through a different tunnel, and spat me out at the hole by our campsite. I looked around wildly, feeling something warm and wet beneath me. I flipped on the flashlight. It flickered to life, and I yelled in horror.
 
 Parker and Sue were impaled on the trees above me. Thick branches tore through their sternums, held up by bone and wood. Parker’s hands were gone. His bloodied stumps dribbled slowly, making an incessant dripping noise that shattered my soul. His legs were torn off and placed upon the fire like wood. Sue was sewn onto him with webbing. Their mouths were sewn together. Blood dripped onto my head, and I quickly wiped it off. His eyes hung out of their sockets, lightly touching Sue’s head.
 
@@ -248,6 +258,6 @@ I tore through Jeanie’s tent, found her keys in her purse, and ran like a wild
 
 My bloodied hands slipped on the steering wheel, and tears leaked down my cheeks unforgivingly. My friends were murdered like pigs and hung in the trees like puppets on strings.
 
-MY FUCKING FRIENDS….
+MY FUCKING FRIENDS…. She’d killed my friends.
 
-I looked in the rearview mirror to see a hand emerging from the forest. A single pale hand, waving as if I’d come again one day for a visit.
+Fearfully, I looked in the rearview mirror to see a hand emerging from the forest. A single pale hand, waving as if I’d come again one day for a visit.

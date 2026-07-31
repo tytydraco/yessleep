@@ -1,4 +1,4 @@
-Lately, I've felt empty. I'm not sure if it's just the current state of things, having just lost my career over a drunken bar fight, or if it's the generations of unaddressed mental illness on my father's side catching up with me. I always figured it would rear its ugly head one of these days, I just hoped that it would be later down the line.
+Lately, I've felt empty. I'm not sure if it's just the current state of things, having just lost my career over a drunken bar fight, or having so recently lost my closest friends. 
 
 Time moves slower and slower, and I just exist, waiting for the inevitability of death. I think that's why I'm here, today. Like a shitty coping mechanism.
 
