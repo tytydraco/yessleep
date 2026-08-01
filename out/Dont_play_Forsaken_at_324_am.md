@@ -1,0 +1,40 @@
+By Leeroy Chanceman
+
+Let me say, I’m not some dumb kid who starts playing forsaken at 3:24 am. I always get off at my bedtime, eat all the beers and go to bed. But this time was different. 
+
+Why was it different you are asking. I will tell you why it was different since you are asking. There was this massive grandfather clock gaven to me by my haunted grandma. She’s dead now but thanks for asking. The grandfather clock was based off of one of William Clement’s  in 1670.  
+It was made by his brother. No one knew about his brother. It was kind of a secret. His initials were W. D. No one really knew his last name. The clock, after being invented then was sold a lot and survived multiple wars, a lot of them. It somehow was owned by someone on the losing side every time and as such had multiple scars and was clearly damaged. It had unique angel designs one you see in an affliction shirt. You might be wondering why so much detail about this clock. You will understand later. 
+
+Now onto me. I am very cool I smoke and I drink beer. Lots of beer. I drink so much. Most would say that’s bad, I call it evidence of my coolness. My name? Leeroy Chanceman since you were probably wondering. I know I know I chose it myself.
+
+ I love skydiving and I am very homophobic. I loath pride month. That was a joke of course. But you never know.
+
+ I was playing forsaken the other day with my friends. I have a lot of them. It was nearing 9:00 pm, my usual bedtime. 8:59 it was now. I decided one more game and I would get off. But then I realized… I was the killer. This was bad. I had to kill people or else I lose. I killed people so I won. Upon looking at the clock again, I saw that it was still 8:59, I didn’t think much of this, so I decided to play a few more games. What harm could that be, all of my friends were still having a good time. 
+
+about twenty minutes later I checked the clock again. Still 8:59. Looking back I probably would have thought something of this but I was too locked in. I was on a wining streak and not planning to lose anytime soon. I played for another hour. 8:59. Another hour. 8:59. 
+
+Eventually all of my friends left but the clock was still only at 8:59. How peculiar, my parents hadn’t come in and forced me to bed like they always do, and all but one of my friends had left and only one of them remained to play with me. 
+
+We were both pretty tired so it wasn’t like we were having much back n forth talk anymore. His name was John, he was always a bit strange but we were pretty close and we have been for a while, he’s pretty nice and really likes legos for some reason. 
+
+In the next game it was weird however. My friend had gotten killer. This was the first time tonight we had been on opposing sides. I was sad because I knew what this meant. One of us will lose our winning streak. Little did I know it meant so much more. One of us would lose our best friend forever.
+
+ We were approaching the finale of the game and I was hiding in the trash can. Not remembering that my friend was on killer side. I said the worst thing I possibly could have. “I’m hiding in the trash can.” I instantly realize and my stomach sank deeper than the chamber of secrets from Harry Potter: the chamber of secrets. 
+
+I could see his character coming towards me, he of course was a lame killer like 1x1. I peaked out from trash can and saw it. Him. He was so bloodthirsty. This reminds me of the time I was in a doomed yaoi. it was forever ago
+
+One year ago exactly, which must have plot significance at this point, It was my first day of school. It was written on my schedule that I had to be in miss Morningtide’as classroom by 9:00 pm. It was 8:59. Post meridiem. I was not in the classroom and not going to be anytime soon at the rate I was going. Then I saw him. I was straight my whole life leading up to this. His eyes were so clean you could eat off of them. His lips were so red that I thought they were wine. His brain was was so smooth I could touch it but just complex enough that he was a genius. He could predict weather a year before it happened. And he would be right. When we were taking a shortcut through the gym to the classroom I realized. This was my moment. I’m no tsundere but when accusing me of liking him I kicked him in the face. Then I felt bad and admitted I liked him. “Jeff K.  , I have a confession to make. From the moment I saw I have been so deeply in love with you. I have dreamt about you indefinitely detail. Without you, I would spend my days playing games with my friends, smoking cigarettes, and drinking beer. Then he looked at me and I realized. 
+
+His face was broken. Broken so badly beyond repair you could not tell this was him anymore. My deep urge to kiss him, gone. The thing I had been loving was not Jeff k. I checked the time. It was not 8:59 like he had been saying. It was 3:24.
+
+Now back to the story. John took me out of the trashcan and slammed me on the surface of the earth. He then stabbed me with knife so many times. So many times. There was so much blood, just pouring out of me. It was so realistic. I then died. I was now completely out of it, my winning streak gone. I turned to the screen the call was on to say good game in a very passive aggressive way when realized he was asleep. “Asleep at 8:59??” I said aloud “There’s no way.” I then turned the clock and realized. This clocked which I had trusted to tell the time was cracked. Right down the middle. I checked the time on my computer. I was mortified.
+
+It was 3:24. Jeff came straight to my mind. He had been a memory I tried to keep locked away but when it struck I was petrified. The thing I had been running from my whole life had come back. I thought it was a one time thing. It wasn’t. This was a haunt. I remember my haunted grandma. This was not a coincidence. I desperately turn to my cock. It is throbbing. I desperately turn to my friend and try to wake him up. He was throbbing. In his sleep. I tried everything to wake him up. Making loud noises, banging on my drums, breaking the window. Nothing worked. I turned to the grandfather clock. 
+
+The clock that had part of my life, the only way I remembered my grandma and heritage that I now saw as a haunt. I took my drumsticks and tried to bang the clock. But before I could hit, even before I thought of hitting, the clock knew what I was going to do. It released a massive wave of energy. I was knocked back very far. I was tempted to run away, but I felt a feeling, a need to be an alpha. I had to save my friend. Not because I particularly like him, but because he would owe me so much beer. So much beer. But alas when I ran back to my room, the wave of energy remained and I knew I could not get in without dying. So I decided to get in, with dying. In the name of beer, I heroically trudged into the energy wave, and performed cpr on him. It wasn’t working. I slowly felt the life force leaving my body. It was leaving fast. I drew my last breath to try to put it in him but it was pointless. He was long asleep. I died right then and there.
+
+You might be wondering how I am telling this story dead. Well the truth is that I am a ghost. I have been writing in my spare time. This has been Leeroy Chanceman. I am signing off.
+
+Signed,
+
+Leeroy “middle name” Chanceman
