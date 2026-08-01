@@ -1,0 +1,86 @@
+It started with one simple Post-it reminding me to change all of the air filters in the house, six window units and one central. As I was in the middle of that task, it hit me that I needed to, before I forgot, jot down to check my eBay sell summary. I grabbed the bright blue stack of Post-its (my favorite), not discarding the air filter Post-it. I was not yet finished…still three to go.   
+I admit I am a Post-it girl. Who doesn't love a good Post-it?! Mine became overwhelming though, so much to do. Without them, I couldn't remember a thing.  
+Here is my story...  
+As I look around the house, I see at least 50 Post-its with many things to do written on each one.    
+Take coffee creamer to Mom in nursing facility (pastel yellow Post-it), wash Mom’s clothes—take back to nursing facility, mow back yard tomorrow, mow front this afternoon (blue Post-it), tell daughter I can't make it to dinner (hot pink Post-it), call dentist for appt (toothache, pastel pink Post-it), count alcohol consumption (bright yellow Post-it), eat at least once a day (pastel pink Post-it), take shower today, go to store tomorrow, call Mom, go see Mom, clean house, let pups outside (green Post-it), check mailbox (pastel yellow Post-it), check emails, go to work, go to bank, clean closet out, take trash out, sleep, sleep, sleep, sleep, please sleep...  
+List of worries (bright blue Post-it), list of guilts (pale yellow Post-it).  
+Bathroom mirror covered in my positive affirmations, all in my favorite bright blue posty. 
+
+Do your best today  
+Be better  
+Work harder  
+Use your brain   
+Overcome the pain  
+Be brave
+
+Washer and dryer covered with Post-its, counters covered, bed side tables covered, mirrors, bookcases, kitchen table. I couldn't  believe I had written so much down throughout the week. Rainbow of Post-its. I couldn't even read my handwriting on some of them. Mania scribbling.  
+I was bothered by that, only because of what  I might miss...what won't get done now because of a foolish act.
+
+I think the most shocking part was when they started to talk back to me.   
+At first I saw their bottom half flapping in the living room. I assumed it was from the ceiling fan, but then all of the flapping became words like a rapid machine gun firing at me. Mouths, they had mouths.  
+Bombarded by words, I asked them to please slow down. They did as commanded. I truly wanted to hear every word. My favorite spoke with a deep yet stuttering voice, "We we we  are hererere tooooo helppppp remind youuuuuu."  
+I expressed my appreciation with a slight giggle.  
+As they all calmed down, sensing I truly wanted to listen, I heard one speak from the bathroom. I had forgotten about my affirmation Post-its. With excitement, I quickly side shuffled my way, but was hit with a sense of irrationality as I turned into the room.  
+All of the affirmations were now up side down, flap up. I tilted my head slightly to read a few, and Pastel Pink spoke to me.  
+She uttered very quietly with a voice on the edge of death, “You know what you should do?"  
+I walked closer to the mirror, leaning in slightly not wanting to miss a single syllable. I didn't know if I should answer or if it was rhetorical, so I simply stood there and felt my skin begin to crawl.  
+How long I stood there is up for debate, but I believe it was a very long time because, though the toilet was to my immediate left, I had pissed myself.  
+My only thought when I shook myself out of the trance was that I needed to make a Post-it reminding myself to urinate. I digress, on with my story.
+
+We partied after that. I remember the feeling they gave me. Confetti falling from the skies above, as if your most loved one was showering you with endearments.  
+Then...they started to tell me to do things. Odd things. I didn't mind at first.
+
+Smoke a pack of cigs back to back—I despise smoking, but I did it.  
+Go lick the fridge—I did it.  
+Pee in your neighbor’s bushes—oh, I did it.  
+Sleep in your bathtub—yes, I did it.  
+Mark the letter X randomly on the walls throughout your house—why not? I did it.  
+Turn all the pictures in the frames upside down until someone notices—I did it.
+
+After those requests were completed, they started becoming very wicked, very quickly. I did not know what to do or how to stop. It was still unbelievable to me that I was having a dialogue with Post-its who had become my...friends? But would friends really have such requests as these?
+
+Drink a container of creamer in 1 minute.  
+Climb into the dryer and stay for 3 minutes.  
+Start mower, engage blade, try to stick your foot in there.  
+Eat everything in pantry then throw up.  
+Pull a tooth out, with pliers.  
+One more drink won't hurt, the ones before didn't count.  
+Eat remains of lint trap and vacuum trappings.  
+Slip, take a fall...it can be fun.  
+Walk out, buggy and all, without paying.  
+Visit your mom, take her something “special.”  
+Drink 1/2 cup of bleach.  
+Let pups run free.  
+Check mailbox naked, then sit in the middle of the road until car passes.  
+Email everyone what you really think of them.  
+Cancel all appointments indefinitely.  
+Withdrawal all of your money from all accounts and burn it.  
+Hide in the closet until someone notices.  
+Crawl inside trash bin, stay until pick up next day.  
+Take all sleep meds, get some sleep.  
+FUCK your worries and guilts, FUCK all of them to death.
+
+Over the next two weeks, I did everything just to stop the flapping, jabbing, berating. The cheeky little bastards would not stop. 
+
+THEN the bathroom was calling...self-deprecating slams hit me like a stoning, countering every positive.
+
+Do your best today, even though you know it's not good enough.  
+Be better. Yeah, right!  
+Work harder, you fucking loser.  
+Use your scrambled brain for once.  
+Overcome the pain. Don't be a pussy.  
+Be brave. Coward.
+
+My skin began to crawl, worms right beneath the skin working their way through my body.
+
+I got back to the living room where the bulk of my friends were because even though their request were strange, they didn't make me feel like shit about myself.  
+Only Bluey flapped now, the original voice I heard expressing they wanted to help me, telling me my last task before I was completely done with all of my Post-Its.  
+"Wrrriiitttee a a a a a sssssttoooooooooryyy aabout us, sppprread the neeews sssoo wwwe cccan help oothers.”
+
+For now all is quiet and calm, all task are completed. I fee very productive!
+
+Postscript
+
+Thoughts with teeth can convince you to do anything. They can be fluid, streaming, random, straying, or fleeting.
+
+BE AWARE OF THEM.
