@@ -1,0 +1,127 @@
+Have you ever played Graveyard? It’s the game like hide-n-seek, except one person hides and everyone else seeks. Once someone finds you, they hide with you. The last person to find everyone loses. I overheard some kids saying they wanted to play. Let me tell you why I hate this game.
+
+The neighborhood I grew up in was a suburban town in every sense of the word. Plenty of houses full of families, with spots of fields or wooded areas tucked away in the spaces between subsections. By happenstance, most of the kids in my subsection were all around the same age. 
+
+It was the week before school started and I had just turned 12. We had all been through family vacations, sleepovers, all day gaming binges, and plenty of sunburn. The rest of the summer was full of empty fun and laziness. Now we were basically waiting—and dreading—for our freedom to be over. 
+
+There were 8 in the group, including myself. Ben, my best friend, was a year older than me. A mediocre student, an okay athlete, but funny as hell. That’s why I, and all of us really, liked being around him. But if Ben went on a family trip or away to his dad’s, I would be perfectly ok going to my other friend’s, Nathan. 
+
+Then there were brothers Sean and Ash. Sean was the second youngest in the group and by far the smallest, even for his age. Ash was the group's oldest and going off to high school in the fall along with my neighbor, Talon. Talon had been allowed to play varsity football. Something usually not permitted for freshmen, but he was that good. Celeste and Maribel were the only 2 girls in the neighborhood. Both 13, both redheads, and needless to say, best friends.
+
+We all sat in the grass that day in our neighborhood playground. “Playground” was a stretch. It was really just 2 swings and a slide in one of the fields next to one of the wooded areas. The slide itself was more like a standalone deck about 4 feet high with a metal slate leaned against it. But it made a decent enough hang out area. With no particular ideas or motivation, we mindlessly gathered there and just sat around in the sun. Like a hoard of lost souls waiting for someone to point them toward an afterlife. 
+
+As if a spirit gave her the cue, Celeste jumps to her feet and says “Let’s play a game. Have you guys ever played Graveyard?” 
+
+Now let me explain something about Celeste, not only was she pretty, but very likable. She had also developed early, so her hold on us hormonal boys was dangerously effective and it took little effort for her suggestions to be strongly considered. 
+
+“Wow, really?” Sean asked shockingly, probably not expecting us to play such a childish game at our age. 
+
+“Yes. Why not?” she exclaimed.
+
+“Ok, I’m down.” said Ash. He looked at his little brother, giving him an encouraging nod as if to calm any worries. 
+
+“So does everyone know how to play?” asked Celeste.
+
+“Yeah, yeah,” said Talon, “who’s it?”
+
+“The youngest hides first, the rest of us will count to 30,” Maribel explained excitedly.
+
+“How are we all supposed to fit in one hiding spot?” I asked nervously, knowing I was the youngest. 
+
+“Well if we don’t all fit where you’re hiding, then you lose,” Maribel replied without sympathy. I felt like she just made that up. 
+
+Ben chimed in with his humor right on time to comfort me. “Oh no! Not lose the game!” 
+
+The shared laugh broke the minor tension, causing Maribel’s face to turn red.  I knew I was overthinking how I would find a good hiding spot, but I allowed myself to relax.  I drummed up my courage and stood up tall.
+
+“Give me 90 seconds,” I said with enough confidence to not get questioned about the time extension. When they all put their heads against the slide deck to count, I turned and ran toward the woods.
+
+Sunlight significantly dimmed once I stepped behind the tree line. The shade provided instant heat relief to my baked forehead skin. It was quickly replaced by the immense amount of humidity being shared between the trees and brush. The sounds of neighborhood cars and lawnmowers faded into bug calls and rustling leaves in the wind. I did a light jog until I got far enough to where I couldn’t see any remnants of the playground. 
+
+It was then I realized I had no idea where I could hide in here. What was I thinking? The old tool shed, behind the elementary, in my own backyard…all places I could have run to! I walked toward a large tree trunk laying across the ground hoping it would have enough space on the other side to fit 7 kids. I straddled the log to climb over when something shot out from underneath and ran with it’s full speed away from the presumed predator that was me. Tracing the path of the creature, my eyes followed it through the dead leaves and up to an old slanted tombstone. Of course, the old cemetery! 
+
+We had discovered this place at a younger age when we were allowed to start exploring these areas on our own. The cemetery held maybe 10 or 12 tombstones. That’s how many were still standing at least. They were so old that most of them could no longer be read. 18-something could be made out on a few of them. None of them stood completely upright. A few old posts jutted from the dirt here and there, showing the memory of what used to be an old fence. But that border was long gone and nature had taken back most of this sacred ground. It used to be a place we feared and made up stories about. We would dare each other to go in alone, but none of us did. Eventually, like our childhood imagination, it lost it's magic. Time and maturity had sucked all entertainment out of this ethereal decrepit place until this day I was led back to it.
+
+One stone that stood on the outskirts was particularly large, but had been put too close to the neighboring tree. The roots from the growing giant had pushed the far side of the stone upward and caused it to lean toward the trunk. The corner of the cold gray stone leaned on the tree like a lover. I thought it would be the perfect place.
+
+I began to hear laughing from winded lungs alerting me the count was over and they were on the hunt. I quickly ducked behind the stone and sat in the space where it met the tree, hugging my knees to my chest. It was even darker in this shade and I could feel my heart pumping from adrenaline and excitement. My breath was loud in my head. Satisfied with my hiding spot, I sat and waited. 
+
+After a moment, I realized I could no longer hear anything. Not even the insects. It was like my ears had suddenly clogged. I felt an itch under my chin and reached up to scratch it. Instead of feeling my skin, I felt a hole. My middle fingertip slipped into a moist opening that was impossibly deep for me not to feel any pain. It was confusing. My mind couldn’t comprehend what I was experiencing. If I had a wound of this depth, surely I would know. I started to feel a trickle in the crown of my head. Slowly, I moved my hand from my chin and toward my head to check for what felt like wetness in my hair, fearful I would find another gaping type hole. That’s when Nathan came dashing from around the tree, skidding in his tracks when he saw me. It startled me back to reality.
+
+“Great spot, man!” he said quietly, squatting next to me. “Ash will probably be here next, he wasn’t far behind me.”
+
+A moment later, Ash came from around the tree with the same motion as the finder before him, skidding even more of a dent in the dirt. He quickly bent his body over, nearly having to crawl in order to be hidden behind the stone. He allowed himself to fall back on his behind, resting his forearms on his knees and settling into his new position. 
+
+Next was Sean, who no doubt followed his big brother here. Then Maribel, followed by Talon. By now the space was cramped and the tree stone lovers would barely be able to hide another body. We sat in anticipation for the next few minutes.
+
+Then, the ear clogged silence again. I turned to look at Nathan to see if he was experiencing the same thing. He looked…old. That’s the only way I could explain it. His short brown hair had a silvery sheen and the shadows of the tree branches made his skin look wrinkled. There were heavy bags under his closed eyes and his jaw lay open like the dark mouth of a cave, no sign of teeth.  
+
+I leaned away from him and squinted, trying to make out how the low light could play this kind of trick on my vision. That's when I saw the rest of them had the same stillness.
+
+Ash sat in his same position with his hands dangling from his knees. His head was down like he had fallen asleep just a few moments ago. From my angle, it looked as if he had a full beard. But that’s not what bothered me about him. Between his bent knees, I could see his bloody abdomen. Pieces of light pink could be seen amongst the dark ruby liquid. His blood pooled around him like a dark spot light. 
+
+Maribel sat next to him glaring at me. Her face and body was black and blue with new and old bruises. Her lip was split open in the center. Her left arm was twisted backward like when a little girl puts their barbie doll limbs on incorrectly. Her face glistened with sweat, but they looked more like tears streaming down her cheeks. But she didn’t look sad, she looked both furious and terrified.
+
+Talon sat next to her staring off into the distance with a dazed look. He had a huge black eye and looked more muscular than normal. He sat slumped over like he needed to be propped up properly, his arms laying limp. Drool stretched from his mouth and connected to his chest like a liquid web. 
+
+Sean sat with his back against the tree facing away from us. He was the only one who didn’t appear older. In fact, he looked smaller. Frail and sickly and pale. His buzzcut blonde hair disappeared into the shadow. In fact, I could have sworn he was bald. He slowly turned his head toward me and gave me a weak smile.
+
+I took all of these sights in at once and it took my breath away. I spun my body around to face everybody and my panicked movements got everyone’s attention. They were all staring at me now. 
+
+A thousand things and nothing raced through my mind. How or what was I seeing? I still couldn’t comprehend what I was looking at. They clearly could see my reaction to them, but didn’t react to me the same way. Maybe it was just the dim lighting and weird shadows of this area. Maybe I was still scared of the cemetery and was psyching myself out. I was frozen in thought.
+
+In the distance, I began to hear Ben and Maribel conversing through the trees. They seemed to be strolling, not necessarily seeking in a game. I could tell they were heading toward us, towards this spot. It caught the attention of Maribel, who snapped her gaze toward the two with a rageful look. I didn’t know what had happened to my friends, but I couldn’t let it happen to Ben. Or Celeste for that matter. It lit a fire under me and I jolted to my feet and sprinted toward the two. 
+
+“Okay…,” Ben said confused when I ran up to him. “You know the goal was for us to find you?”
+
+“What the hell?!” said Talon from behind me. “We had an awesome spot. And why the hell were you looking at us like that?”
+
+The rest of the group caught up with us, waving with frustrated hands and shooting annoyed looks. Maribel stomped her way from the back of the group and purposely brushed past Ben and Celeste, making her way angrily out of the woods. 
+
+“Maribel…” Celeste said with regret in her voice and turned to chase after her.  
+   
+I stood in silence in my speechless confusion.
+
+“That, sir,” said Ash patting my back, “is called a love triangle. And if you haven’t noticed that for the past year, you’ve been in another dimension.”
+
+It wasn’t exactly the explanation I needed. My brain was still trying to wrap my head around what I had just seen. My friends, bloodied and beaten and old and sick. It bothered me. The group continued to exit the wooded area, not knowing what I had just experienced. And I wasn’t going to sound crazy by telling them. 
+
+I was scarred for life. I spent a few nights laying restless in my bed, trying to make sense of it. Eventually, school started and just like the faded magic of the cemetery, the nightmare fell to the back of my mind. I never told a soul.
+
+We would go on another year together in early teen bliss before tragedy struck us. Sean hadn’t been feeling good and ended up being diagnosed with some rare form of cancer. He fought hard and toward the end he had been in and out of the hospital for months. It had been a while since I had seen him. When the end was near and we could no longer tell ourselves we would see him when he got better, we planned a visit. 
+
+When I saw him in the hospital room, my heart sank. There he sat bald, frail, and having lost a significant amount of weight. He sat with his back against a pillow looking just as he did with it against the tree. I’m sure my stare looked rude, but I couldn’t stop. It was almost like dejavu. All the fear I felt that day in the cemetery came flooding back to me, except it was worse. Now it was real. There was no shaking it off, not even with time. 
+
+He looked over at me and smiled softly and I immediately began to cry. Ash provided a comforting hug. He was the one losing his brother, but I couldn’t hold it together. It was a combination of losing a friend and realizing my nightmare held weight. I didn’t stay long after. I told him I would come back and see him the next day, but I never did. A week later, he was gone.
+
+After the funeral, things were never the same. I don’t think any of us wanted it to be. A few months later, my family moved to another city and keeping in touch became sparse. I had become more and more withdrawn anyway. From everyone really—my friends, parents, classmates. Ben and I didn’t remain close, but we never lost touch. It’s almost as if he wouldn’t let me fall too far away. 
+
+After high school, I took to self medicating hard. Anything that would make me forget about what I had seen. Once I saw Sean, it’s like the images were reburned into my brain with a vengeance. I saw it in my daydreams, in the dark corners of rooms, every time I looked at a cemetery. I tried therapy with no luck. How much could it have helped if I couldn’t admit what I had seen?
+
+I once had a dream I was back there, sitting among them. It was snowing. Ash’s head still hanging, sitting in his blood. He looked up at me, blood poured from his mouth. In a deep growly voice he said, “you’re with us, and that is how it has always been.” My thoughts lived there, so it wasn’t scary. The words did give me something to think about. 
+
+I went through life doing the bare minimum to survive. I worked just enough to support myself and my habits. Living with my parents was not an option. They would have let me, but I just wanted to be left alone with my horrors. A few years passed before Ben convinced me to visit him. He and Celeste had just had a baby, a beautiful red headed girl named Stella. It brought me a little peace to see two of the best people I knew create something that gave them so much happiness.
+
+We sat down on his porch with a beer after dinner. Summer at dusk. The atmosphere reminded me of the empty fun summer days we used to enjoy. He didn’t live too far from where we grew up and the air smelled the same.
+
+“Did you hear about Talon?” Ben asked. 
+
+“No,” I said. And I knew I didn’t want to, but I let him continue.
+
+“He died, man! He was playing football for Michigan but got a brain injury from being hit so hard. I think he had some underlying thing already, but he essentially got knocked out and never woke back up.”
+
+“That was really sad. His dad was a mess,” said Celeste walking out onto the porch. She handed Ben the baby monitor and opened  herself a beer. She raised it up to cheer. “Here’s to Talon and Maribel. May they rest easy.”
+
+I had to react to Talon with full surprise and sympathy. I didn’t know the day, but when I had heard he was going off to play football, I had a pretty good idea. He was still fairly young looking in the cemetery that day, so I knew it wouldn't be late in his life. 
+
+We drank to them. I didn’t see Maribel in the end, but I didn’t have to. I knew what she looked like. She had gotten with a guy who was abusive and she let him get away with it one too many times. The last time, he sent her down a flight of stairs. When I heard about it a few years ago, I was really in the bottle. 
+
+“Speaking of which,” she continued, “we are trying to get the old gang back together for dinner next week. The rest of us at least. Ash is on leave so he’ll be in town for a week or so. And Nathan is free, too.” 
+
+“Sure,” I replied. “It would be good to see how they are now.”
+
+I enjoyed the rest of the evening with my friends before heading home. Right now, I am waiting outside the restaurant for everyone to show. Ash doesn’t know I can see him across the parking lot in his car waiting for us. He’s grown a beard. I will enjoy this night, too, because it will not get any better than this for me. 
+
+So I know I said I hated the graveyard game, but I know it’s not the games fault. Nor Celestes’ suggestion to play, nor mine for playing. But some things remind you of the worst in your life. I was drunk when I overheard the kids talking and ended up lashing out at them. So to those kids, I apologize. What kind of person have I become? No matter, I do understand what Ash said in my dream. It just means my fate is my fate. 
+
+I don’t know if this will be the last time I will see Ash healthy, but I want it to be. Even if I’m not physically there when they die, it makes no difference. Knowing that someone is gone and knowing exactly how they looked when they went, is not something I want to experience again. This dinner will be the last time I catch up with all of them. I am beyond grateful for Ben and Celeste not being in that cemetery with me. Meeting their daughter and seeing their fate is not something I can fathom. I just can’t go through any of this anymore. 

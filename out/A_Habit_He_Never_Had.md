@@ -1,0 +1,341 @@
+I had never actually seen my son bite his nails.
+
+That was the part nobody seemed to understand. By the time Daniel was nine, his nails were permanently chewed down. The skin around them stayed red and swollen, and every few days one of his fingers would start bleeding again. His teachers noticed. His doctor noticed. Everyone said the same thing. Anxiety. Habit. Some children did it without realising.
+
+Maybe that was true, but I had lived with Daniel for six years and had never once seen him put his fingers anywhere near his mouth. I watched films beside him, sat through long car journeys with him and helped him with homework at the kitchen table. I read to him until he fell asleep and carried him to bed with his arms hanging over my shoulders.
+
+Nothing.
+
+If anything, he seemed unusually protective of his hands. Whenever someone mentioned the damage, he curled his fingers into his palms or pulled his sleeves over them. The first few times I asked whether he had been biting them, he denied it. After that, he stopped answering altogether.
+
+I tried everything the doctor suggested. Bitter nail varnish, plasters, gloves at night. I offered rewards if he could let them grow for a week and showed him photographs of infected fingertips that were probably too graphic for a child his age.
+
+None of it worked.
+
+I would tuck him into bed with gloves secured around his wrists, then find them folded neatly on his bedside table the following morning. Once, I wrapped each fingertip separately in medical tape. By morning, every strip had been removed and placed in a careful line along the windowsill.
+
+There was a small wet hole in the centre of each one.
+
+Daniel insisted he had slept all night.
+
+I assumed he was lying, although I could never understand why. He was not usually secretive. He admitted when he broke things. Once, after taking money from my purse to buy sweets, he confessed before I even noticed it was missing. Yet whenever I asked about his nails, he looked genuinely frightened.
+
+“I don’t bite them,” he said.
+
+“Then what happens to them?”
+
+He stared down at his hands.
+
+“I don’t know.”
+
+For a while, I wondered whether another child was hurting him. I spoke to his teacher and asked whether anyone had been grabbing his hands or picking at his fingers. She said Daniel was well liked and rarely got into trouble. She had never seen anyone touch him.
+
+She had never seen him bite his nails either.
+
+That bothered me more than it should have.
+
+I began checking his hands every morning and evening. Sometimes nothing changed for several days. Then I would wake him to find every nail bitten down again at once. 
+
+It always happened overnight. I should have realised that sooner.
+
+The first time I heard it, I was sleeping in his room. Daniel had developed a fever, and I dragged an old mattress onto the floor beside his bed so I could keep an eye on him. He fell asleep quickly. I stayed awake reading until around midnight, then switched off the lamp.
+
+Sometime later, I woke up to the sound of his voice.
+
+“Please be gentle.”
+
+It was soft and slurred with sleep.
+
+I lifted my head. The room was dark except for the glow of streetlamps outside peeking through gaps in the curtains. Daniel was lying on his side facing the wall, with one arm hanging over the edge of the bed.
+
+“Daniel?”
+
+He didn’t answer.
+
+I was about to reach for him when I heard a small crunch from under the bed.
+
+It wasn’t loud. It sounded almost like someone biting through dry spaghetti.
+
+I froze.
+
+Another crunch followed. Then another.
+
+Daniel’s hand moved slightly, not pulling away but slipping lower.
+
+I switched on the bedside lamp.
+
+His arm jerked upwards so quickly that his elbow struck the bedframe. Something scraped across the floor beneath him.
+
+I dropped to my knees and looked under the bed. The space was empty. But I noticed that the carpet near the headboard had been pressed flat, as if something had been lying there for a long time.
+
+Daniel slept through the entire thing.
+
+In the morning, three of his fingernails were bleeding.
+
+When I asked whether he remembered speaking during the night, he shook his head. I described the sound I had heard, and the colour drained from his face.
+
+That was the moment I should have stopped treating it like a habit. Instead, I convinced myself there had to be an explanation. Mice in the walls. Daniel chewing his nails after I fell asleep and dreaming he was doing something else.
+
+I bought a camera.
+
+It was one of those cheap indoor security cameras people use to watch their pets while they’re at work. I placed it on top of Daniel’s wardrobe and angled it towards the bed. I didn’t tell him about it. I felt guilty, but by then the skin around his nails was painfully raw and I was desperate.
+
+The first night showed nothing unusual. Daniel shifted in his sleep, kicked off the covers and once sat upright for nearly a minute without opening his eyes. His hands remained above the blanket.
+
+The second night was the same.
+
+On the third night, the recording froze at 2:13 a.m.
+
+The image didn’t cut out. It simply stopped moving. Daniel lay on his back with both arms beside him. The digital clock on his desk read 2:13. For the next forty-seven minutes, the room remained completely still.
+
+At exactly three o’clock, the video resumed.
+
+Daniel was in the same position, but his right hand was bleeding.
+
+I checked the camera settings and found no fault. There had been no power cut, and the camera by the front door had recorded continuously. Cars still passed outside. My own bedroom door opened when I got up to use the bathroom.
+
+Everything else in the house had carried on.
+
+Only Daniel’s room had stopped.
+
+The next day, I bought another camera and positioned it on the floor. I hid it behind a stack of books and pointed it under the bed.
+
+For the first few hours, nothing moved.
+
+At 2:13, something entered the frame.
+
+One moment, the space beneath the bed was empty. The next, a pale hand was resting on the carpet.
+
+It was thin, with long spindly fingers. The nails were black and smooth, clicking softly against the floor as the hand moved towards the edge of the mattress.
+
+A second hand appeared beside it.
+
+Nothing else came into view. Whatever owned those hands remained hidden in the darkness beyond the camera’s reach, although realistically there wasn’t enough room for a body to hide.
+
+The hands waited.
+
+After a few seconds, Daniel’s arm lowered into the frame.
+
+He was asleep. I could see that clearly from the other camera. His hand casually slipped over the edge of the mattress, like he had done it hundreds of times before.
+
+One of the pale hands closed around his wrist.
+
+It did not pull.
+
+It held him with surprising care and lifted his smallest finger towards the darkness.
+
+There was a quiet crunch.
+
+Then another.
+
+The hand moved to the next finger.
+
+I watched it work across his hand, biting every nail to exactly the same length. When Daniel whimpered, it paused and stroked the side of his wrist with one black nail.
+
+Then it continued.
+
+I couldn’t finish watching.
+
+I ran into his room, switching on every light along the way. The pale hands were still holding his arm.
+
+For a second, I saw something crouched under the bed. Its limbs were folded tightly against its body, shoulders pressed against the bottom of the mattress. Grey skin stretched over a shape that seemed way too big for the space containing it.
+
+It released Daniel as soon as I entered.
+
+It didn’t attack me or try to drag Daniel down. It recoiled. One hand rose, shielding its face from the light, then it moved backwards into the darkness.
+
+I grabbed Daniel and pulled him into the hallway. By the time I returned with a kitchen knife, the space under the bed was empty.
+
+That night, I removed the bedframe.
+
+Daniel slept on a mattress in my room. I pushed it against the wall, left every light on and stayed awake with the knife in my lap.
+
+Nothing came.
+
+The following day, I took him to a hotel.
+
+I told the receptionist there had been a leak in our house and booked a room for a week. Daniel barely spoke during the journey. When we arrived, he sat on the edge of the hotel bed and stared at the gap under it.
+
+“It can reach under this one too,” he said.
+
+I asked him what he meant.
+
+He looked down at his hands.
+
+“It doesn’t only live at home.”
+
+That was the first time he acknowledged it.
+
+I knelt in front of him and asked how long it had been happening.
+
+He shrugged.
+
+“Before you came to live with me?”
+
+Another shrug.
+
+“Did it hurt you?”
+
+He shook his head.
+
+“Then why did you let it bite you?”
+
+Daniel’s face crumpled.
+
+“I thought I was supposed to.”
+
+I promised him he was safe. I told him nothing would touch him again.
+
+I meant it.
+
+For the first few days, his fingers began to heal. The swelling went down, and thin white lines appeared at the base of each nail. I felt relieved enough to believe the worst was over.
+
+By the fifth day, the nails had grown past his fingertips.
+
+Daniel’s nails had never been that long before. I bought clippers from a chemist and tried to trim them, but the blades wouldn’t cut through. The nails were too thick. I tried a larger pair, and the metal bent between my fingers.
+
+They were no longer translucent either. They had turned cloudy and pale, almost the colour of bone. 
+
+I took him to the hospital.
+
+The doctor examined his fingers, asked about medication and took blood samples. He said the growth was unusual but didn’t appear immediately dangerous. He wanted to keep Daniel overnight for observation.
+
+Daniel panicked when a nurse tried to lead him away from me. He clung to my coat, screaming hard enough to make people stare. His nails caught in the fabric and tore through it without breaking.
+
+I brought him back to the hotel.
+
+That evening, he developed another fever. While he slept, I searched through the paperwork I had brought with us.
+
+Daniel came to live with me when he was three. The process was unusually fast, and I didn’t question it at the time. I had waited so long to become a parent that every shortened delay felt like a blessing.
+
+The organisation called itself Willow House Family Services. Their office had been in a converted townhouse outside the city, and a woman named Miriam had handled nearly everything.
+
+I remembered the rooms being warm and too bright. I remembered there were no photographs of children on the walls.
+
+I remembered Miriam telling me Daniel had been found alone.
+
+I could not remember where.
+
+The paperwork should have said, but it didn’t.
+
+There was no original birth certificate, no hospital record, and no information about his biological parents. His medical history consisted of one page filled with the word UNKNOWN.
+
+At the bottom of a placement report, underneath my own signature, someone had written in faint blue ink:
+
+**Maintain regular care of hands.**
+
+I had never noticed it before.
+
+The Willow House website was gone. The telephone number had been disconnected. When I searched the address, I found a solicitor’s office that claimed to have occupied the building for twelve years.
+
+I had adopted Daniel six years before.
+
+Miriam’s name appeared on none of the official documents. Every email she had sent came from an account that no longer existed. Her signatures were little more than scratches.
+
+I called the local authority listed on the paperwork. They had no record of Willow House Family Services. They had no record of Daniel. The woman on the phone asked whether I was certain the adoption had been completed legally.
+
+I hung up.
+
+Behind me, Daniel said, “It’s back.”
+
+He was sitting upright in bed, his face shining with sweat. The room was dark except for the bathroom light.
+
+Something scratched the mattress. I pulled Daniel towards the door. The scratching stopped almost immediately. A grey hand emerged from under the bed. Daniel made a small sound, but it didn't sound like fear. He reached towards it. I caught his wrist.
+
+The hand remained still. Long fingers spread against the carpet, black nails resting flat. Whatever was under there made no attempt to crawl closer.
+
+Instead, it tapped one nail against the floor.
+
+Once.
+
+Twice.
+
+Then it pointed at Daniel’s hands. His fingernails had grown even longer since that morning. The creature tapped again, faster this time.
+
+“Get away from him,” I said.
+
+An eye appeared in the darkness under the bed.
+
+It looked at me, then at Daniel. Its mouth opened slightly, and a wet clicking noise came from its throat. The sound repeated several times, almost like it was trying to say something.
+
+The hand reached for Daniel. I stamped down on it. The noise it made was not a growl or a scream. It sounded like crying. The hand vanished beneath the bed, leaving one black nail behind on the carpet.
+
+I pulled Daniel away from the bed and crouched to look beneath it. The space was empty. 
+
+Daniel picked up the nail before I could stop him. He held it beside his thumb. They were almost the same shape.
+
+“Put that down.”
+
+He looked at it with an expression I had never seen before.
+
+Not fear.
+
+Recognition.
+
+I took it from him and flushed it down the toilet.
+
+We left the hotel that night and drove to my sister’s house. I told her Daniel had an infection and needed somewhere quiet to rest. She prepared the spare room and helped me settle him onto a mattress placed directly on the floor.
+
+There was nowhere for anything to hide.
+
+I sat beside him until he fell asleep. At some point, I must have drifted off too.
+
+When I woke up, Daniel was gone.
+
+The bedroom door stood open. I found him sitting at the kitchen table with both hands resting in front of him. My sister stood beside him, staring.
+
+Every fingernail had split down the centre.
+
+There was no blood. The two halves of each nail had lifted slightly away from one another, like shells beginning to open.
+
+Something pale moved in the narrow gap between them.
+
+My sister asked what was wrong with him.
+
+I wrapped his hands in tea towels and drove home.
+
+I don’t know why. Perhaps because the creature had found us at the hotel and I thought it might return to the house. Perhaps because, by then, I no longer believed it had been trying to hurt him.
+
+Daniel was silent during the journey.
+
+When we arrived, his bedroom door was open.
+
+I had left it closed.
+
+The mattress was still on the floor where I had thrown it, and the empty bedframe leaned against the wall. Deep scratches covered the floorboards.
+
+They formed no words or symbols, but every one of them pointed towards the centre of the room.
+
+Daniel walked inside before I could stop him. He knelt beside a deep scratch and pressed his fingers against it.
+
+“It tried,” he said.
+
+“Tried to do what?”
+
+He looked up at me.
+
+“To keep me little.”
+
+One of his thumbnails made a faint cracking sound. The split widened. Something underneath pressed against the opening. For one awful second, it looked like the tip of another finger. I reached for his hand, but Daniel pulled it against his chest.
+
+“Don’t.”
+
+The room had gone completely silent. Then, from somewhere beneath the floorboards, came a soft crunch.
+
+Daniel closed his eyes. He looked relieved. The sound stopped almost immediately. He stared down at his hands.
+
+“It can’t reach anymore,” he whispered.
+
+I have locked us inside the house.
+
+I know how that sounds, but I don’t know where else to take him. The hospital will separate us. The police may decide he was never legally mine. I cannot explain what I saw under his bed without sounding dangerous.
+
+Daniel is asleep now. His hands are tucked under the blanket.
+
+Every few minutes, something taps against the mattress from underneath, but there is no gap. The mattress is lying flat on the floor.
+
+I have checked three times.
+
+The tapping is not coming from under the mattress.
+
+It is coming from inside his hands.
