@@ -1,0 +1,149 @@
+I’m not sure when this idea, no, this *revelation* took hold of me. All I know is that ever since it has, I can think of nothing else.
+
+I guess if I had to pin point the catalyst for it all, it would probably be that stupid Kappa Delta *whatever* party that my roommate, Chrissy, insisted on dragging me to last weekend. 
+
+Chrissy is one of those people who could befriend a rock if you left her in the garden for long enough. That *sounds* harsh but I don’t necessarily mean it as a bad thing.
+
+Really.
+
+Honestly? If it wasn’t for her my college experience would be even more depressing and lonely than it currently is.
+
+Sure, that’s not a hard bar to clear, but, still.
+
+When I walked into our shared dorm room on the first day of the semester back in August, I was uneasy. Chrissy had already arrived and decorated her side of the dorm. It looked like a Pinterest board belonging to Y2K-era Paris Hilton had thrown up everywhere. The room was crowded with her friends and family who milled around rearranging things or reminiscing loudly about scenes depicted in printed photos. 
+
+I stood awkwardly in the doorway not knowing how to proceed. Her group was not particularly quiet and their booming laughter and voices bounced off our white cinderblock walls, piercing my ears with sharp pain. Two children sat on my naked bed playing some kind of slap game, each squealing intermittently in either delight or indignation. No one seemed to sense my presence and I seriously considered leaving to hide in the library until the coast was clear.
+
+As I turned to do just that my old, broken suitcase scraped against the linoleum floor, causing my new roommate to glance up and meet my eyes. She was tall with legs so long they belonged in Vogue not our dimly lit concrete box. Her dark brown hair was glossy and springy and was pulled into two pigtails. Her eyes were a shade darker than her hair and widened in excitement at the sight of me. She reminded me of a wealthy family's expensive poodle mix.
+
+“Oh, hey!” She exclaimed, dropping whatever conversation she had been in to cross the room and greet me. “Barbie, right?”
+
+Every eye in the room swiveled to observe us and I wanted to melt into the floor.
+
+“Uh, it’s Barbara actually.” I responded looking at my dirt stained shoes, unable to maintain eye contact with those bright, animated orbs.
+
+“Can I call you Barbie?” She asked, excited tone never wavering. “It’s just too perfect to resist, right? Barbie and Chrissy!”
+
+“Um, sure.” I responded lamely. “I don’t really care.”
+
+She grabbed my hand and seemingly ignored how it reflexively went to pull away from her touch before dragging me into the room.
+
+And that was that. One moment that would perfectly illustrate the dynamic between Chrissy and me.
+
+ Which brings me back to the stupid frat party. 
+
+I didn’t want to go, *obviously*. Besides Chrissy I hadn’t been particularly successful in making friends or connections which isn’t exactly surprising. Making friends has  never been my strong suit. During my younger years me and the rest of the kids deemed undesirable would group together for things like lunch and group assignments. It never would go any further than that and I can count on one hand the amount of times we would hang out outside of school. Since graduating I haven’t heard from a single one of them, but it's not like I’ve reached out either.
+
+Chrissy, annoyingly, had picked up on this and had made it her sole mission to include me in whatever social function she was participating in on any given weekend. Which is how I ended up squeezed into an overcrowded frat house on a Friday night.
+
+I stayed firmly glued to Chrissy’s side like a child hiding behind their mother when brought to a gathering full of strangers. She was chatting happily to some dudebro who seemed less focused on the story she was telling and more focused on the way her chest bounced as she gesticulated wildly.
+
+I glanced into my tightly gripped red solo cup and watched as the warm beer rippled with each pulse of the shitty electronic music. My ears were ringing and each time the music spiked I experienced a sharp shock of pain deep within my eardrums. Someone had rigged up a light machine and the pulsating colors left me feeling dizzy and nauseous. I had to physically fight the urge to cover my eyes. Scantily clad, sweaty bodies gyrated around us and the occasional push from a drunk party goer had my nerves in overdrive. I felt like a rabbit trying to blend in in the middle of a fox’s den.
+
+I strained my ears to try to hear the story Chrissy was enthusiastically recounting but couldn’t catch the words. The room was beginning to feel hotter and stuffier and the next song that began playing had a repetitive beat akin to a machine gun being fired. I was at my limit and my body screamed at me to get out of the room to freedom and something less overstimulating.
+
+I tapped Chrissy’s shoulder and when she turned pointed to my, unbeknownst to her, mostly full beer cup. She nodded with a wide smile and flashed me a thumbs up before returning to her unremarkable conversation partner. I pushed through the crowd, sloshing my beer onto the already sticky floor as people bumped into me without acknowledgment.
+
+After a short search I found the door to the kitchen and pushed through it like a drowning woman breaking the water’s surface. The kitchen was less populated exactly as I had hoped. Less people meant cooler air and it immediately provided relief to my almost feverish feeling skin. The door blocked out the flashing lights and brought the music to a muffled more bearable volume. Relief spread through me as my muscles untensed.
+
+The relief was short lived as I took stock of the group of girls clustered around the kitchen island that acted as the party bar. They reminded me of the girls who had bullied me in high school. The ones who made me feel as if I was a different gender if not species than them. Because how could we both be girls? Them with their silky, shiny hair and blemish-less skin. If I were to stand next to them anyone could tell that we were not the same.
+
+“Can we fucking help you?” One of the girls snapped at me. “Why are you staring at us, freak?”
+
+I hadn’t realized I had been staring at them and my face at her admonishment. My throat dried up as I struggled to find a response to the aggressive line of questioning.  Sweat collected under my arms as I continued to be able to do nothing but stare at them.  
+*Say something,* I mentally screamed at myself. *Anything. Literally anything.*  
+I didn’t say anything.
+
+A drunk, mean smile crossed the girl's face at my obvious discomfort. She was a hungry lioness who had just spotted me, a wounded gazelle. The alcohol had made her skin slightly tinged with red and though it wasn’t the right time I couldn't help the flash of envy that coursed through me. What would have made me look ruddy and blotchy gave her a glow that only added to her beauty, not detracted.
+
+Her gaze raked up my body and I could see her assess my old, stained jeans and baggy t-shirt. It was such a contrast to her flared mini skirt and low cut shirt that flattered her in every way.  Chrissy had offered to let me borrow some of her clothes for tonight but I had, idiotically, refused.
+
+“Hellooooooo?” She drawled out the word as if talking to someone slow. “Anyone home? Are you deaf or something?”
+
+Her friend's chittering giggles died a little bit as she went on. Perhaps scared of laughing at someone who might actually be disabled if I did turn out to be deaf. My cheeks were so hot I thought my flesh would melt off my skull to pool around my feet. Ashamed, I dropped my gaze to the ground. 
+
+“Amber,” one of her friends whispered to her. “You always take it too far, chill out.”
+
+But she didn’t chill out. Emboldened by the bubbling liquid in her hand she continued.
+
+“What? It’s not my fault she’s acting like a fucking freak. Maybe she’s an alien and doesn’t understand what I’m saying.” She laughed, high and cruel. Like the music in the living room it pierced my ears painfully. “Hey, loser, tell me what you want or go back to your home planet.”
+
+“D-drink.” I stammered, lamely raising my shaking cup that was still half full.
+
+“See? Was that that hard?” She asked. She was quiet for a minute and then something sturdy and heavy hit me in the chest.
+
+I fumbled to catch it before it hit the ground, dropping my drink in the process. Beer splashed across the floor and my shoes, soaking through to my socks instantly. Resting in my palm was an old, heavy duty wine opener made of solid metal, discolored from its years of use. My hand curled over the cool metal as tears welled in my eyes. I should have never come to this stupid party with stupid Chrissy and these stupid people. We were not the same and I had been foolish to let Chrissy convince me that we were.     
+
+I clutched the wine opener to my chest, spun on my heel, and darted out of the kitchen.
+
+“You shouldn’t have done that!” I could hear one of her friends admonish before the kitchen door swung closed behind me. “You could get charged for like, assault, or whatever.”
+
+Running through the frat house was like running through a haunted house. The music was deafening, the strobe lights blinding, and the wall of sweating bodies was a labyrinth. I looked for Chrissy frantically but to no avail. I wanted to grab her hand and drag her back to our dorm where we could weather out the rest of the night in peace. 
+
+After searching for a bit longer I gave up. It wasn’t a long walk back to the dorms and our campus was relatively safe at night. I pushed past some drunk idiots who were blocking the exit and was finally away from my living nightmare. The night air was cool and brisk and my body released a violent shudder. Equal parts from the release of adrenaline and the temperature.
+
+I threw myself down the stairs and jogged down the sidewalk until the sounds of music and people faded into a merciful murmur. My fingers flexed around the wine opener again and a pit of embarrassment yawned open in my gut.
+
+*Why the fuck did you take it, idiot?* I admonished myself. 
+
+In my rush to escape I had completely forgotten I was holding it. Not only was I a loser, an *alien*, I was a thief as well. The thought of bringing it back to the frat house filled me with rolling nausea so I shoved the wine opener into my pocket instead. If it was a big deal I was sure that the rich boys at the frat could get their daddies to buy them another one.
+
+As the adrenaline seeped out of me I began to take notice of the surrounding night. It wasn’t that late but the area was surprisingly empty, despite it being Saturday. There were no clouds in the sky and the moon was almost full. A few strong stars made their presence known in spite of the campus and city light pollution. A small group of students with a giant telescope were set up in the courtyard and I could hear their excited tittering as they pointed up at the sky.
+
+A small part of me wanted to ask what they were looking for with the telescope but I hesitated. It was easy to imagine their startled looks at my shabby appearance wandering out of the dark night to interrupt their activities with my unwanted presence. My ego was already suffering and I didn’t think it could take another hit.
+
+I wrapped my arms around myself and veered down a route that would add time to my walk but would ensure I didn’t have to pass the group of lively stargazers. I was envisioning how soft my pillow would be when I fell face first into it  when I heard a loud exclamation. I turned to see the group jumping in excitement and pointing at the sky. They pushed each other playfully, clambering for a turn with the telescope. I looked up to the vast night sky to see what they were so desperately trying to view.
+
+White streaks intermittently painted the night sky as the telescope kids whooped and hollered.
+
+“Meteors! Meteors!” I heard them shout.
+
+I sat down on a nearby bench and watched the celestial display. For the first time in a long time, maybe even my entire life, I felt peace. The shame and anxiety melted away as I stared up at the flares of light streaking across the sky. I ceased to hear the shouts of the astronomy group and for the remainder of the shower it was just me and the vastness of the universe.
+
+The meteors petered out after about fifteen minutes. The kids hung around for a little while afterwards but eventually packed up their equipment and, laughing and joking around, headed into the night. 
+
+I didn’t move from the bench. My eyes were still glued to the night sky, searching, although for what I didn’t know. It was obvious the shower was over but I felt compelled to stay in a way I couldn’t remember ever feeling before. I didn’t want to go back to the dorm room. The thought of spending the remainder of the night alone in that cinderblock white room inspired in me the deepest sense of loneliness
+
+Throughout my life loneliness had been a familiar companion but after tonight it felt more like a predator I didn’t want to cross paths with. 
+
+For another hour I sat on a bench under a burned out street light and ruminated about the night's debacle and the feeling of isolation that had haunted me throughout my childhood to now. My parents had been cold, distant people. Sometimes it seemed like they had only had me to reach a predetermined milestone.
+
+All of my life I had seen the closeness shared between others and envied it. It seemed so easy for other people to cultivate. Yet, every time I met a potential friend it was as if there was an invisible barrier preventing me from finding the correct words and getting close.
+
+I was a failure of a human being it seemed. 
+
+The words of that girl came back to me as I strained my eyes to see as far beyond the stars as I could, looking for a distant world.
+
+*Alien*.
+
+The poisonous barbs of the word were beginning to soften, turning into something comforting. If I was an alien then maybe there were others I could connect to somewhere in that boundless, dark sky. I wished desperately that I could meet them.
+
+A burning white light streaked suddenly across the night sky with the intensity of the mid-day sun. Instinctively I jumped to my feet, my eyes locked on the thing hurdling through the atmosphere towards the earth. It illuminated the surrounding area, casting a strange purple glow that banished any traces of the dark. Though I knew it was impossible the light felt warm as it washed over me, comforting. The way the summer sun does when it kisses your skin.
+
+Time slowed down. My feet felt rooted to the spot as my eyes took in this celestial, flaring beacon. It felt religious in a way. Like I had offered my prayers at the altar of the stars and now the universe was responding. A warm feeling spread through me and a smile of absolute awe spread across my face.
+
+The moment was infinity and was over all too soon.
+
+The light crested over me and then blinked out as it plummeted into a small, wooded area on the edge of campus. A ground shaking ***BOOM*** rang out as the thing seemingly hit the earth and I was plunged back into darkness. A strange panic overtook me and before my mind could catch up I found my body moving of its own accord. My feet carried me quickly across campus to where the light had disappeared. 
+
+I wasn’t wearing the right clothes for it but I forced my way through the thick underbrush. In my entire life I have never once stepped foot into any type of wooded area, especially at night. I couldn’t help myself. I was now a passenger in my own body, helpless to my own actions. It was as if a siren's song had mesmerized me and was leading me towards something so grand I couldn’t even begin to fathom it. After a short search I found the object that beckoned to me .
+
+Laying in the middle of a small crater was a glowing piece of rock the size of a hockey puck. The rock’s surface had the texture of a log that had been left in a fire pit until it was on the verge of collapse. Its raised sections were a strange matte black that seemed to absorb any light that touched it including the soft, neon purple light that pulsated between spider web thin cracks that  stretched across its surface. I hurried towards it, trampling local fauna under my dirty sneakers and snatched it up greedily. 
+
+Hot pain immediately seared my finger tips causing me to drop the stone. For a brief second the pain snapped me out of the trance-like state I had been under since seeing that flash of holy light split the sky. The moonlight was strong enough that I could just make out  a small pin-prick of blood beginning to well at the tip of my thumb. Reflected in the dark red of my blood was a shimmer of the same neon purple as the rock in the moonlight. I popped my thumb into my mouth and quickly sucked the blood away before reaching back for the rock whose purple glow was starting to fade.
+
+I stuffed it into my pocket next to the wine opener and began picking my way through the forest towards the lights of campus. The rock felt like a weight in my pocket as I stepped from the tree line back into civilization. The night had taken on a liminal feeling. I didn’t run into a single other student as I walked through campus and then my dorm. Everything was cloaked in an unnatural silence and as the door to Chrissy and I’s room creaked open under my hand I began to wonder if the light had been the rapture had taken humanity and I had been left behind.
+
+It wouldn’t have surprised me.
+
+Moonlight poured in through the window as I stripped out of my clothes to change into my sleep shirt. Exhaustion had begun to seep into my very bones as I dug into my pockets and fished out the rock to stare at it again. My mind felt fuzzy as my eyes traced the cracks along the surface as I turned it in my hand examining every inch of it. The light had completely faded to nothing but it still seemed to *hum* in my hand. I carefully placed it in the back of my side table drawer and then placed the wine opener next to me. With a final lingering glance I closed the drawer and felt the mental fuzziness begin to fade.
+
+I was exhausted.
+
+I flopped into bed and stared at the small mark on my thumb. It didn’t hurt anymore but there was still a shimmering cast of purple if I angled it the right way in the moonlight. I shook my head and closed my eyes. A tired trick of the light. Away from the lingering effects of the alcohol and anxiety I could piece it all together in the morning and everything would make sense.
+
+That’s what I thought as I drifted off to sleep that night alone with nothing but the light of the moon for companionship. I couldn’t have been more wrong.
+
+Going to sleep had not been the end.
+
+Just the beginning.

@@ -10,7 +10,7 @@ My mom kissed my cheek before I left, hugging me tightly. “Have fun, okay? I�
 
 She smiled brightly, but my stomach was in knots. I applied to three occupational therapy programs after finals ended, and now, all I could do was wait. It was killing me. The anticipation, the fear… It shouldn’t be so hard to help people.
 
-Jeanie lay on the horn, and I laughed. “I’m COMING!” I shouted, slinging my backpack over my shoulder and grabbing my duffle bag.
+Jeanie laid on the horn, and I laughed. “I’m COMING!” I shouted, slinging my backpack over my shoulder and grabbing my duffle bag.
 
 I ran out the door, slamming my hand onto Jeanie’s car. “Lay off the horn, asshole. This is a neighborhood.”
 
@@ -180,7 +180,7 @@ Silence overtook the forest. The creatures feared whatever beast lay inside the 
 
 My body quaked with adrenaline. The voice was old and worn, but at the same time powerful and commanding, as though concealing itself to appear less threatening than it truly was.
 
-A long, pale arm rose from within the hole. The fingers were blackened at the tips, and the talons ripped through the skin. Dirt rumbled beneath me, and something large shook the ground. My body began to shake as fear coursed through me. At one point, I thought that I had wet myself.
+A long, pale arm rose from within the hole. The fingers were blackened at the tips, and talons ripped through the skin. Dirt rumbled beneath me, and something large shook the ground. My body began to shake as fear coursed through me. At one point, I thought that I had wet myself.
 
 One finger gestured for me to move closer, but I didn’t dare to follow.
 
