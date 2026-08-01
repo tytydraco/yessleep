@@ -1,0 +1,1011 @@
+I only match with married men.
+
+Before you start composing your little speech about morality, save it. I do not sleep with them. I do not blackmail them. I do not steal their money, drug them, stab them, or shove them off balconies.
+
+I let them ruin their own evenings.
+
+It usually begins with my profile.
+
+Five photographs. Red dress. Black dress. Bikini shot cropped just high enough to stay on the app. A picture of me holding somebody else’s golden retriever because men apparently find dogs reassuring.
+
+My bio says:
+
+**I’m better than your wife. Ask me to prove it.**
+
+That line catches a certain kind of man.
+
+Not all married men cheat. Most do not, which is unfortunate for them but wonderful for the continued survival of the species.
+
+The ones who message me tend to use the same opening strategies.
+
+They tell me they are “basically separated.”
+
+They explain that their wife has stopped appreciating them.
+
+They say they have never done this before while operating an account containing fourteen shirtless bathroom pictures and a username like JustLooking1978.
+
+Sometimes they open with jokes.
+
+“Knock knock.”
+
+“Who’s there?”
+
+“What when.”
+
+“What when who?”
+
+“Date, this week, me and you.”
+
+I always answer the same way.
+
+“OMG. That was actually cute.”
+
+It was not cute the first time. It has not improved.
+
+I let them pick the bar, though I guide them toward places I like. If I want country music, I mention Willie Nelson. If I want cocktails, I say I hate beer. They respond with the name of the first bar that appeared when they searched whatever I described.
+
+Then I arrive early.
+
+I sit three or four stools away and order something expensive. An espresso martini if it has been a long day. A cosmo if I feel festive.
+
+When the man arrives, I watch him pretend not to be nervous.
+
+He checks his phone.
+
+Looks toward the door.
+
+Checks his reflection in the black screen.
+
+Sucks in his stomach whenever a young woman walks past.
+
+I text him that I am parking. Then that I am fixing my makeup. Then that I went to the wrong location because I am “such an idiot lol.”
+
+Sometimes I tell him to buy me a drink.
+
+He orders it and leaves it sweating on the bar beside him.
+
+Once, I sent a man to the convenience store for condoms. When he returned, I apologized and asked whether he could go back for lubricant.
+
+He went.
+
+I almost respected the commitment.
+
+By midnight, most of them are drunk, furious, and drafting messages that alternate between begging and calling me names. That is usually when I follow them home.
+
+Again, I am not killing anyone.
+
+I need to make that clear because what I do sounds worse when I explain the mechanics.
+
+The man walks through his front door. I walk through the wall.
+
+He tells his wife he was working late. I move his phone onto the kitchen counter with our conversation open.
+
+If he has already deleted the messages, I improvise.
+
+I drop the cheap perfume roller I carry into his coat pocket. I put a cocktail napkin bearing the bar’s logo into his wallet. Sometimes I leave the wedding ring he removed sitting somewhere his wife will notice, like inside the refrigerator beside the milk.
+
+My favorite was the man who hid his ring in his sock.
+
+I put it in his wife’s toothbrush cup.
+
+She stared at it for a long time the next morning. Then she picked it up, walked into the bedroom, and dropped it directly onto his face.
+
+I stayed to watch that one.
+
+I never stay for long. Arguments get repetitive.
+
+The wife asks who she is.
+
+The husband says nobody.
+
+The wife asks why nobody sent him photographs.
+
+The husband says his account was hacked.
+
+Then he starts crying, or she does, or both of them do. At that point it stops being fun.
+
+I have been on 186 dates in the past year.
+
+All different men.
+
+None of them met me.
+
+None of them even saw me.
+
+I can make people look away.
+
+That is the easiest way to explain it.
+
+When I was nineteen, something happened to me on a wet road. I remember headlights turning sideways. I remember crawling through broken glass that crunched under my palms like rock salt.
+
+There are eight minutes I do not remember.
+
+When I woke up, I was in a hospital. My mother was there. A doctor was saying words like “remarkable” and “no neurological damage.”
+
+Afterward, people had trouble noticing me.
+
+At first it only happened when I panicked. A nurse entered my room, looked directly at the bed, and asked my mother where I had gone.
+
+Later I learned to do it deliberately.
+
+I call it going thin.
+
+My body does not become invisible. Not exactly. Cameras still catch me sometimes as a pale blur. Dogs can smell me. Babies usually stare directly at me, which is rude but manageable.
+
+Adults simply decide there is nothing worth seeing.
+
+Their eyes pass over me. Their thoughts slide away.
+
+When I go thin, I can move quietly enough to follow someone into a house. I can squeeze through spaces that should be too small. Locked doors are difficult, but drywall barely notices me.
+
+The longer I stay that way, the colder I become.
+
+After an hour, my fingers turn blue.
+
+After two, my teeth begin to ache.
+
+The longest I ever stayed thin was four hours. When I came back, I coughed up something that looked like wet dryer lint and smelled like the inside of an old freezer.
+
+I stopped pushing it after that.
+
+I had rules.
+
+Never follow a man who lives alone.
+
+Never stay past sunrise.
+
+Never touch children.
+
+Never take anything from the house.
+
+Never let anybody see me.
+
+The last rule had never been a problem.
+
+Then I matched with Daniel.
+
+His profile said he was forty-three, five feet nine, and “in a complicated situation.”
+
+Every man on those apps is in a complicated situation. The complication is usually that his wife would be upset if she knew he was shopping for twenty-five-year-olds while sitting beside her on the sofa.
+
+Daniel’s photographs bothered me.
+
+Not because he was ugly. He was fine. A little heavy. Short hair. Narrow eyes. The sort of face people describe as normal because they cannot remember anything specific about it.
+
+He looked familiar.
+
+I kept returning to the third photograph. He was standing behind a bar, smiling at somebody outside the frame. I thought I had seen him working at one of my usual places, though I could not be sure.
+
+He messaged me before I decided whether to swipe away.
+
+“You’re not better than my wife.”
+
+I smiled.
+
+“Then why are you talking to me?”
+
+“Curiosity.”
+
+“Dangerous habit.”
+
+“Only if you’re interesting.”
+
+I almost unmatched him.
+
+Instead, we arranged to meet that night.
+
+He suggested a bar I had used six times before.
+
+That should have warned me.
+
+He arrived fifteen minutes early.
+
+I was already there, sitting two stools away, thin enough that the bartender kept forgetting to take my empty glass.
+
+Daniel did not order alcohol.
+
+He asked for a Diet Coke and played Snake on his phone.
+
+For two hours.
+
+I sent him the usual excuses.
+
+Parking.
+
+Traffic.
+
+Wrong bar.
+
+A problem with my shoe.
+
+He answered each one with the same message.
+
+“No rush.”
+
+He never became angry. Never begged. Never threatened to leave.
+
+At eleven thirty, I texted that I was sorry but could not make it.
+
+Daniel finished his drink, left cash on the bar, and walked outside.
+
+I followed him.
+
+In his profile he claimed to be five feet nine.
+
+He was at least six feet three.
+
+His shoulders were wider than they looked in the pictures, and he moved carefully, almost stiffly, as if he were balancing something inside his clothes.
+
+He drove home sober.
+
+That made following him more annoying. Drunk men miss traffic lights and take turns too wide. Daniel drove exactly at the speed limit and checked his mirrors constantly.
+
+Several times, I thought he was looking directly at me.
+
+That was impossible. I was crouched in the back of his SUV with one knee passing slightly through the floor.
+
+Still, every time he glanced into the mirror, his eyes seemed to stop where my face should have been.
+
+His house stood alone at the end of a short road.
+
+No neighboring porch lights. No cars in nearby driveways. Nothing but a dark tree line behind the property.
+
+I should have left.
+
+Rule number one.
+
+Never follow a man who lives alone.
+
+But I had spent two hours watching him drink Diet Coke. I wanted to know why a married man had no ring, no alcohol, and enough patience to wait all night for a woman who was obviously not coming.
+
+Also, I hate leaving a mystery unfinished.
+
+That is not a rule. It is a character defect.
+
+Daniel unlocked the front door.
+
+I followed him inside before it closed.
+
+The house smelled clean in a chemical way. Not lemon cleaner or bleach. Something metallic. Something that stung high inside my nose.
+
+The kitchen counters were bare. The living room contained a sofa, a television, and nothing else. No photographs. No books. No mail. No pair of shoes beside the door.
+
+There were two bedrooms.
+
+Both beds were made.
+
+Both closets were empty.
+
+The refrigerator contained milk, eggs, butter, and six glass bottles filled with clear liquid. No labels.
+
+The pantry held granola bars, cereal, and rows of white paper bags.
+
+Daniel went into the bathroom.
+
+I opened one of the pantry bags.
+
+The smell hit me first.
+
+Rust, old pennies, and the sharp dry sting of salt.
+
+Inside was a gray mixture made from coarse white crystals, black metal shavings, and tiny red flecks.
+
+I pinched some between two fingers.
+
+Pain shot through my hand.
+
+The skin turned solid.
+
+Usually when I was thin, light passed through my fingers. For a second, I saw veins, fingerprints, dirt beneath my nail.
+
+Then the mixture fell away and my hand faded again.
+
+I backed out of the pantry.
+
+The toilet flushed.
+
+I waited for the sink.
+
+Nothing.
+
+Daniel walked into the kitchen.
+
+Of course he did not wash his hands.
+
+I was trying to decide whether his disgusting bathroom habits were enough reason to leave when he looked straight at me.
+
+“You’re taller in the pictures,” he said.
+
+My body went cold.
+
+Not the ordinary cold that came from staying thin.
+
+This was fear. Old-fashioned, stomach-dropping, mouth-drying fear.
+
+I did not move.
+
+Daniel leaned against the counter.
+
+“You’re also older.”
+
+He could see me.
+
+I turned toward the wall.
+
+Something struck me between the shoulders.
+
+The floor rose up and slapped the air from my lungs.
+
+I tried to sink through it. My cheek pressed hard against the tile instead.
+
+Weight came back all at once.
+
+My knees. My ribs. My hair against my neck. The wetness inside my mouth.
+
+I felt horribly present.
+
+Daniel stood over me holding one of the white bags.
+
+Gray powder covered my back.
+
+It burned.
+
+Not like heat. Like my skin had been replaced with thousands of tiny teeth and each tooth had bitten down.
+
+I screamed and tried to crawl.
+
+My palms slipped in the powder.
+
+Every crystal touching me made another part of my body solid. My organs seemed to drop into place one by one. My stomach pulled downward. My lungs scraped against my ribs. My heartbeat became a fist slamming inside a wet bag.
+
+Daniel poured more.
+
+The mixture filled my hair, slid beneath my shirt, and collected inside my ears.
+
+It felt like being buried and assembled at the same time.
+
+“There you are,” he said.
+
+I kicked at his leg.
+
+My foot passed through him, then snapped solid halfway.
+
+Pain tore from my ankle to my hip.
+
+Daniel grabbed my hair.
+
+I had forgotten how much that hurt.
+
+He dragged me through the kitchen and out the back door.
+
+I clawed at the floor. Two fingernails bent backward. One tore loose and stayed caught between the boards, pale and useless.
+
+“Let go of me, you giant freak.”
+
+“You broke into my house.”
+
+“You invited me.”
+
+“I invited a woman named Tiffany.”
+
+“My name isn’t Tiffany.”
+
+“I know.”
+
+He dragged me across the yard toward the garage.
+
+“I know your real name too.”
+
+That frightened me more than the powder.
+
+The garage contained no car.
+
+A glass room stood in the center.
+
+It was about eight feet wide and tall enough to stand inside. Holes had been drilled across the ceiling. Dark metal ran through the glass in a square grid.
+
+A chair faced the enclosure.
+
+Beside it stood a ladder and a small table covered with jars.
+
+Daniel opened the glass door and threw me inside.
+
+The burning stopped as soon as I crossed the threshold.
+
+I pushed myself upright.
+
+My hands were visible. My whole body was. Blood ran from my torn fingernail. My hair clung to my face with sweat.
+
+Daniel shut the door.
+
+The lock clicked.
+
+I charged the glass.
+
+My shoulder struck it hard enough to rattle my teeth.
+
+Nothing cracked.
+
+“You could have warned me,” I said.
+
+“That would defeat the purpose.”
+
+“You could have at least cleaned the glass. It’s covered in handprints.”
+
+Daniel looked toward the smears.
+
+“They’re not handprints.”
+
+I looked closer.
+
+The marks were on the inside.
+
+Some had five fingers.
+
+Some had six.
+
+One print was so small it could have belonged to a child, except the fingers ended in long narrow points.
+
+I stepped away from the wall.
+
+Daniel sat in the chair.
+
+For a moment, neither of us spoke.
+
+I hate silence when somebody else controls it.
+
+“So,” I said, “is this a sex thing?”
+
+“No.”
+
+“Kidnapping thing?”
+
+“No.”
+
+“Are you going to make me listen to a podcast?”
+
+He smiled.
+
+“You joke when you’re frightened.”
+
+“I joke when men build glass cages in their garages. It comes up more often than you’d think.”
+
+“I’ve watched you for seven months.”
+
+I stopped smiling.
+
+Daniel had worked at the bar from his photograph.
+
+He had seen me there with seven different men. At first, he thought I was a prostitute. Then he noticed that none of the men acknowledged me, even when I sat beside them.
+
+He followed one home.
+
+He watched me enter through a closed garage door.
+
+The next morning, the man’s wife threw his clothes onto the lawn.
+
+Daniel started checking local reports. Men who had visited the same bars separated from their wives. Some filed complaints about dating scams. One claimed somebody had broken into his home without stealing anything.
+
+“The pattern was pathetic,” Daniel said. “You weren’t subtle.”
+
+“I was invisible.”
+
+“No. You were unnoticed.”
+
+He said it with enough confidence to irritate me.
+
+“Same difference.”
+
+“Not even close.”
+
+He walked to the table and picked up a jar.
+
+Inside floated a folded piece of something translucent.
+
+It might have been skin.
+
+It moved when he turned the jar.
+
+“My grandmother could see things other people ignored,” he said. “Not ghosts exactly. Impressions. Places where something had crossed and failed to close the door behind it.”
+
+“Your grandmother sounds exhausting.”
+
+“She taught me what she knew.”
+
+Salt made the dead solid.
+
+Iron gave them weight.
+
+Powdered mirror forced them to recognize their own shape.
+
+The red pieces in the mixture were brick dust from demolished houses. Daniel said a spirit could pass through a wall, but it remembered what walls were for.
+
+He talked like a man explaining how to replace a faucet.
+
+His grandmother had used the mixture to drive things out of homes. Daniel had improved it. Stronger ratios. Finer iron. Old mirror backing instead of new glass.
+
+Then he started catching things.
+
+He nodded toward the jars.
+
+The translucent scraps inside them had come from shadows, voices, shapes that appeared beside beds. Most dissolved after a few days.
+
+I had lasted seven months.
+
+“You think I’m a ghost,” I said.
+
+“No.”
+
+He stood and walked toward the cage.
+
+“I think you’re worse.”
+
+I laughed.
+
+It sounded thin.
+
+Daniel placed his palm against the glass.
+
+“You died.”
+
+“For eight minutes.”
+
+“And something noticed the vacancy.”
+
+My mouth went dry.
+
+“You don’t become invisible,” he continued. “People look away because something inside you is looking back.”
+
+The garage suddenly felt colder.
+
+I remembered the babies who stared at me.
+
+The dogs that growled at empty rooms after I passed.
+
+The photographs where a second pale shape sometimes appeared over my shoulder.
+
+I had always assumed that shape was me.
+
+Daniel looked delighted.
+
+“You’ve never considered that, have you?”
+
+“I’ve considered that you need a hobby.”
+
+“This is my hobby.”
+
+“That might be the saddest thing you’ve said.”
+
+He opened the pantry cabinet against the wall.
+
+It was packed from floor to ceiling with white bags.
+
+My stomach tightened.
+
+“What are those for?”
+
+“To separate you.”
+
+“From what?”
+
+He looked at me as if I had asked a stupid question.
+
+“From whatever came back first.”
+
+He climbed the ladder.
+
+The top of the cage had a metal hatch. He opened it and lifted one of the bags.
+
+I pressed myself against the glass door.
+
+“Daniel.”
+
+He looked down.
+
+“If you pour that on me, I am going to do something so inconvenient to your corpse.”
+
+He smiled.
+
+Then he emptied the bag.
+
+The mixture came through the holes in the ceiling.
+
+It struck my scalp like boiling sand.
+
+I screamed.
+
+There was no dignity left in the sound. No cleverness. Just an animal noise torn out of somewhere below language.
+
+I ran.
+
+The powder followed everywhere.
+
+It filled my clothes. Packed itself beneath my tongue. Lodged under my eyelids until blinking felt like rubbing my eyes with steel wool.
+
+Wherever it touched, my body became heavy.
+
+The soles of my feet flattened against the glass. My breasts pulled against my ribs. The muscles of my face sagged from their own weight.
+
+I had spent seven years forgetting what gravity felt like.
+
+Now every part of me wanted to fall in a different direction.
+
+Daniel opened another bag.
+
+“You can stop,” I gasped.
+
+“No.”
+
+“I’ll leave married men alone.”
+
+“This isn’t about them.”
+
+“I’ll stop going thin.”
+
+“You can’t.”
+
+He poured.
+
+The powder reached my ankles.
+
+My skin smoked where the red brick dust touched it. Small blisters rose and broke. Clear fluid ran down my legs and vanished into the salt.
+
+I tried to brush it away.
+
+My fingers sank into the mixture.
+
+Something beneath my skin moved in the opposite direction.
+
+I froze.
+
+A shape pressed outward from inside my forearm.
+
+Not muscle.
+
+Not bone.
+
+Fingers.
+
+Long pale fingers pushed against my skin from beneath, spreading as though testing the thickness.
+
+I screamed again.
+
+Daniel nearly dropped the bag in his excitement.
+
+“There.”
+
+The fingers slid up my arm.
+
+My skin stretched around them. A hand passed beneath my shoulder, across my collarbone, and into my neck.
+
+I gagged as something touched the inside of my throat.
+
+Then it pulled.
+
+My mouth opened.
+
+A clear strand emerged between my lips.
+
+It looked like saliva until it thickened.
+
+The strand widened into a tongue.
+
+Not mine.
+
+It kept coming.
+
+I bit down.
+
+Pain exploded through my jaw. The thing inside me jerked backward, taking my breath with it.
+
+Daniel laughed.
+
+“You’ve been carrying it all this time.”
+
+“I’m going to carry your teeth in my pocket.”
+
+He poured another bag.
+
+The powder reached my knees.
+
+The thing inside me began trying to escape everywhere at once.
+
+A face pushed beneath the skin of my stomach. Its mouth opened against my flesh, stretching my navel into a dark oval.
+
+Something blinked from inside my left palm.
+
+My spine bowed as a second back pressed against mine from the inside.
+
+I felt ribs opening where I had no ribs.
+
+The worst part was that I recognized its movements.
+
+It moved the way I moved when I went thin.
+
+The slight tilt of the head.
+
+The careful placement of the feet.
+
+The patient stillness of somebody watching a stranger ruin his life.
+
+Daniel poured until the powder reached my waist.
+
+My vision darkened.
+
+I could still hear him climbing down the ladder.
+
+The thing inside me pressed one hand against the back of my skull.
+
+My face struck the salt.
+
+Something peeled away from my spine.
+
+There was a wet tearing sound, though I felt no skin break. The sensation was deeper than pain. It was like having a memory pulled out through a hole too small for it.
+
+I saw the garage from two places.
+
+From the floor, through my own half-closed eyes.
+
+And from above, standing behind Daniel.
+
+A woman stood there.
+
+She had my body.
+
+Not the body I saw in mirrors. The body people imagined from my photographs. Longer legs. Smaller waist. Smooth skin. Red dress.
+
+Her face kept changing.
+
+Every few seconds, she became one of the women whose pictures I had borrowed for old profiles.
+
+Then my mother.
+
+Then me at nineteen, bloody and glass-covered beside the road.
+
+Daniel did not see her yet.
+
+He was looking at my body inside the cage.
+
+“Unbelievable,” he whispered.
+
+The woman behind him smiled.
+
+I felt the smile in my own mouth.
+
+Daniel opened the cage.
+
+The powder no longer burned.
+
+My body lay half buried in it, solid and aching. Every breath dragged salt deeper into my lungs.
+
+He stepped inside and crouched beside me.
+
+He touched my throat.
+
+“Alive,” he said.
+
+He sounded disappointed.
+
+Behind him, the woman bent at the waist and looked over his shoulder.
+
+Her neck stretched farther than it should have.
+
+Daniel saw her reflection in the glass.
+
+His face changed.
+
+Not fear yet.
+
+Confusion.
+
+He turned.
+
+The woman placed both hands on his cheeks.
+
+Daniel screamed.
+
+His mouth opened wide.
+
+Her fingers pushed between his teeth.
+
+Not violently. Almost tenderly.
+
+She slid both hands down his throat.
+
+His neck expanded around her wrists.
+
+I heard cartilage pop. His eyes bulged wetly from their sockets, and blood ran from his nose in two thin lines.
+
+The woman leaned closer.
+
+Her face became mine.
+
+“Knock knock,” she said.
+
+The voice came from inside Daniel’s chest.
+
+He clawed at her arms.
+
+His fingernails passed through them.
+
+She pushed farther.
+
+His stomach swelled as her hands moved down inside him.
+
+I crawled toward the open cage door.
+
+My arms shook. My knees dragged uselessly through the powder. Each movement sent hot needles through my joints.
+
+Daniel fell beside me.
+
+The woman knelt over him.
+
+His shirt lifted as something moved beneath the skin of his abdomen. Five long shapes crawled across his stomach from the inside.
+
+I reached the door.
+
+Daniel grabbed my ankle.
+
+“Help me.”
+
+I looked back.
+
+His eyes were full of broken blood vessels. Gray foam spilled from his lips.
+
+The woman was halfway inside him now. Her shoulders narrowed as they entered his mouth. Her hips still stood upright above his face.
+
+I kicked Daniel’s hand away.
+
+“You should’ve washed them.”
+
+I crawled out.
+
+The garage door was locked.
+
+The back door to the yard stood open, but the mixture had been scattered across the threshold. A thin gray line, barely visible.
+
+I stepped over it.
+
+Behind me, Daniel began making a sound like a person vomiting underwater.
+
+I did not look again.
+
+I reached the road before my legs gave out.
+
+A woman driving past found me sitting barefoot in a drainage ditch. I told her somebody had attacked me. She called emergency services.
+
+I spent one night in a hospital.
+
+They found iron beneath my skin. Salt packed so deeply into my ears that a nurse spent twenty minutes flushing it out. My missing fingernail had already begun growing back.
+
+The police searched Daniel’s house.
+
+They found the glass enclosure, the jars, the bags, and enough blood to know something had happened.
+
+They did not find Daniel.
+
+They asked whether I knew where he went.
+
+I said no.
+
+That was true.
+
+They also asked why the interior walls of his garage were covered in dating profile pictures of me.
+
+I said I did not know.
+
+That was mostly true.
+
+I went home yesterday.
+
+I cannot go thin anymore.
+
+I tried in the bathroom mirror. Usually my reflection becomes dull first, like somebody breathed onto the glass. This time, nothing happened.
+
+I stayed visible.
+
+For the first time in years, strangers noticed me.
+
+A cashier smiled. A man held a door open. A child glanced at me and then looked away.
+
+I thought I would hate it.
+
+I did not.
+
+Being seen felt warm.
+
+Then I opened the dating app.
+
+I had deleted my account from the hospital.
+
+It was back.
+
+Same photographs. Same bio.
+
+**I’m better than your wife. Ask me to prove it.**
+
+There were eleven new conversations.
+
+I had not written any of them.
+
+The messages sounded like me.
+
+Not perfectly. They were meaner. Less patient.
+
+One man said he was already at the bar.
+
+Another asked how I had gotten into his house.
+
+A third wrote:
+
+“My wife can see you too.”
+
+I deleted the account again.
+
+It returned before I could close the app.
+
+The profile picture had changed.
+
+It showed me lying inside Daniel’s glass cage.
+
+The photograph had been taken from above.
+
+In the corner, barely visible beneath the falling powder, another woman was standing inside my body.
+
+She was looking directly at the camera.
+
+I threw the phone across the room.
+
+It landed faceup.
+
+A new message appeared.
+
+“Knock knock.”
+
+I did not answer.
+
+Another message.
+
+“Who’s there?”
+
+Then somebody knocked on my apartment door.
+
+Three soft taps.
+
+I have not opened it.
+
+A man has been standing in the hallway for twenty minutes. I can see him through the peephole. Wedding ring. Mid-forties. Sweating through his shirt.
+
+Every few minutes, he checks his phone and smiles nervously.
+
+He thinks he is waiting for me.
+
+He is not alone.
+
+There is a woman standing behind him.
+
+She is wearing my red dress.
+
+Her face changes whenever I blink.
+
+Daniel.
+
+My mother.
+
+The wives.
+
+Me.
+
+She keeps leaning close to his ear and whispering something I cannot hear.
+
+A few seconds ago, the man looked directly into the peephole.
+
+“You gonna let me in?” he asked.
+
+The woman behind him smiled with my mouth.
+
+Then she pushed one pale hand through the back of his head.
+
+Her fingers came out between his lips.
+
+She is using them to wave at me.
