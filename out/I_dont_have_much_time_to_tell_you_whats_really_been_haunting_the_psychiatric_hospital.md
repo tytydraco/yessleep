@@ -12,7 +12,7 @@ But a few weeks ago the lab burned down, Seabrook bulldozed the property, and th
 
 The first few days of my new job went exceedingly well—so much better than my last pharmacy gig—and all of the doctors, nurses, and staff members welcomed me with open arms. A typical day saw me restocking medications on the various patient floors, mixing IV bags in the pharmacy, and occasionally interacting with patients to hear how they were handling their new drug regimens.
 
-And the patients loved me. I’m a listener, I’m empathetic, and I think they picked up on that. It felt good to make a human connection with these people who needed good care. Sure, a few of the men could be a little creepy with their stares or comments—a challenge of being a cute brunette I suppose—but overall I felt good about my new workplace. I felt happy, like I was making a difference.
+And the patients loved me. I’m a listener, I’m empathetic, and I think they picked up on that. It felt good to make a human connection with these people who needed good care. Sure, a few of the men could be a little creepy with their stares or comments, but overall I felt good about my new workplace. I felt happy, like I was making a difference.
 
 Until my empathy was seen as an open door for something sinister … and everything changed.
 
