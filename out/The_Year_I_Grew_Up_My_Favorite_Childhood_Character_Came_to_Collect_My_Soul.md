@@ -1,0 +1,263 @@
+The neon signs of Peter Piper Pizza buzz softly against the glass, casting a bright red and green glow onto the dark asphalt of the parking lot outside. It was March 16, 2025, a warm Sunday evening in the Rio Grande Valley.
+
+ Inside, the noise is deafening—a chaotic symphony of clanging arcade tokens, screaming children, and the synthetic sirens of flashing ticket games.
+
+I’m 22 years old, sitting at one of the long, scratched wooden party benches. My eyes track my little cousin, who is currently tearing through wrapping paper at the center of the table for his 6th birthday. 
+
+Right next to us, my two dads, Marcus and David, are laughing and dividing up a giant pepperoni pizza, sliding a steaming slice onto a plastic plate for me. The atmosphere is completely normal, loud, and full of that classic birthday energy.
+
+Suddenly, the flashing neon lights near the back prize redemption counter give a sharp, violent flicker.
+
+Walking out from the employee hallway is Barney the Dinosaur. He looks exactly like the classic 90s television 
+
+suit—bright purple fabric, a vibrant green belly, and a massive, unchanging felt smile. But his foam feet make a strangely heavy, solid thud-thud sound against the tiled floor as he bypasses the main stage entirely. He weaves straight through the crowded tables, walking with a stiff, unnatural stride until he stops dead right at the end of our wooden bench.
+
+His oversized, unblinking black mesh eyes lock directly onto mine. Slowly, he lifts a thick, four-fingered hand to wave.
+
+"I love you, you love me..." his voice booms, matching the cheerful TV show track perfectly, yet it echoes right through the background noise of the arcade. "...we're a happy family! With a great big hug, and a kiss from me to you... won't you say you love me too, Brandon?"
+
+I was startled and raised an eyebrow 
+
+"how do you know my name sir?" i said
+
+The giant purple dinosaur lets out a sudden, boisterous recorded giggle—the exact same cheerful, wheezing laugh from the old VHS tapes—but the sound bounces off the walls a little too sharply. He drops his oversized hands to his green-painted belly, swaying side to side right next to our wooden booth.
+
+"A name is a key, a lock, and a latch! A wonderful title for a marvelous match!" he chants merrily, his white-gloved fingers dancing through the air. "I know the names of all the little tots, who watch my show in their cradles and cots! And I certainly know the young man before me, sitting right here with his happy family!"
+
+He leans forward, resting his heavy hands on his knees so he is eye-level with me through the dark mesh screen of his mouth. Up close, I can't see the actor inside at all—just a deep, hollow blackness. His smile stretches just a millimeter wider.
+
+"So don't look so puzzled, don't look so blue! The Barney you loved has a question for you... do you still remember the promise you made, or did your devotion begin to fade?"
+
+Right next to me, my dads are still busy sliding slices of pepperoni pizza onto plates, completely oblivious to how weirdly personal this mascot is getting.
+
+My little cousin suddenly freezes in the middle of unwrapping his favorite toy, his eyes lighting up as he spots the giant purple dinosaur standing right at our booth.
+
+"Barney! Barney!" he screams at the top of his lungs, completely breaking the weird tension. He drops his toys, slides off the wooden bench, and runs straight over, tugging on the green fabric of the mascot's leg.
+
+Right behind him, my aunt and the rest of his family crowd around the table, pulling out their phones and grinning from ear to ear. "Oh my god, Brandon, look! They brought Barney out for the party!" my aunt cheers, waving her phone in the air. "Come on, everyone get together! Let's get a big group photo with him before he has to go back to the stage!"
+
+The entity's head gives a sharp, distinct whir-click as it slowly tilts its massive snout away from me, looking down at the crowd of excited kids and parents. The unchanging felt smile stays locked on its face, but the thick purple fabric around its neck twitches slightly.
+
+It slowly lifts both of its oversized, four-fingered hands, gesturing grandly for the family to crowd in close around the birthday table. For a second, the colorful arcade lights overhead stop flickering, and the noisy clanging of the nearby ticket machines rushes back into my ears, making the whole scene look completely normal again.
+
+But as my dads slide down the bench to join the photo, Barney's unblinking black mesh eyes dart right back over the kids' heads, locking dead onto mine.
+
+"I'll take the photo," I said, backing away from the bench and extending my hands. "I'm way too old to be in a picture with Barney anyway."
+
+My aunt Maria handed me her phone with a bright smile. I took a step back, framed everyone up, and snapped the shot. It actually came out looking pretty nice and wholesome. For a brief second, watching my family smile and laugh, I almost forgot how completely wrong and deeply creepy the whole situation felt. I never actually got the chance to get that photo from my aunt Maria’s phone later on—but honestly, I’d rather not talk about why.
+
+Right after the flash, the temporary safety of the crowd dissolved. My little cousin and his friends immediately sprinted off toward the arcade games, screaming and clutching their fresh tokens. Aunt Maria followed them to keep watch. My two dads checked the table, realized we were running low on snacks, and headed back up to the front checkout area to order another round of food. 
+
+Just like that, the table cleared out. I stayed behind, sitting on the edge of the wooden bench.
+
+And Barney didn't leave.
+
+He stood perfectly still at the end of the long table, his massive purple foam body towering over the empty plates and discarded wrapping paper. The loud, chaotic arcade music and clanging tokens suddenly felt incredibly distant, muffled like they were playing underwater.
+
+ The giant felt grin remained completely frozen, but his head slowly tilted ninety degrees to the side with that sickening, mechanical whir-click sound.
+
+He leaned down toward me, his unblinking black mesh eyes mere inches from my face.
+
+"The family laughs, the family cheers, but old friends remember the passing of years," the chorus of children's voices droned from his throat, completely stripped of its playful television track. "They walk away, they leave you alone... and now the seed we planted has grown."
+
+The giant purple dinosaur doesn't flinch, but a low, vibrating hum starts deep within his chest, rattling the empty plastic soda cups on the table. The unchanging felt smile stays locked in place, but the dark mesh screen inside his mouth twitches violently.
+
+"We? Oh, Brandon, the collective, the deep! The entities watching while little ones sleep!" he chants, his voice dropping into a heavy, rhythmic cadence that bypasses my ears entirely, echoing directly inside the center of my skull.
+
+BZZZZT.
+
+With a sharp, violent spark, the neon lights over the prize counter behind him flash and snap completely out. The loud clanging of arcade tokens and the children's laughter down the row instantly die, plunging the back half of the restaurant into an eerie, suffocating silence.
+
+"I talk through you, Brandon, because you are the page! A vessel of memories coming of age!" the multi-layered chorus of children's voices drones from his unmoving mouth, sounding less like an AI and more like a hundred different kids speaking in perfect, hollow unison. "No man in a suit, no woman inside... just a beautiful echo you tried hard to hide. I know your name because you gave it away, clacking your hands to my songs every day."
+
+He presses his massive, four-fingered foam hand flat against the wooden table. The wood beneath his palm instantly begins to warp, the varnish bubbling up as if exposed to acid.
+
+Through the dark mesh of his mouth, I catch a flash of rows of pale, blunt teeth clicking together, and a thick, purple fluid begins to slowly drip from his felt lips, staining the wood.
+
+"The devotion of a child doesn't just disappear, Brandon. It stays in the static, waiting for the year. And now that you're twenty and two... the void has come back to collect the rest of you."
+
+Over by the front counter, I can see my dads standing with their backs completely turned, frozen like statues as they wait for the food.
+
+"P-papas?" I choked out, my voice cracking as I stood up from the bench, my eyes wide with a cold, paralyzing fear.
+
+Before I could even take a step toward the checkout counter, the giant, four-fingered foam hand shot forward with impossible speed. It clamped down around my wrist. The soft, plush fabric instantly hardened like solid iron, freezing me in place. The cold radiating from his grip was so intense it felt like my veins were filling with ice water.
+
+The creature’s head rolled back into that broken, ninety-degree angle with a sharp, wet pop.
+
+"Call for them, Brandon! Call out in vain! They cannot hear through the static and rain!" the multi-layered chorus of voices boomed directly inside my brain, a deafening roar of a hundred hollow children's voices.
+
+Through the dark glass windows of the Peter Piper Pizza, the South Texas night seemed to press inward, the streetlights outside violently flickering before dying out completely. Inside, the arcade was deathly still. My dads stood entirely frozen by the cash register, a pizza box suspended in the cashier's hands like a paused frame in an old movie.
+
+The thick purple fluid began to pour onto the gray, rotting wood of the table, and those rows of blunt, pale teeth behind the dark mouth mesh began to grind together with a sickening, heavy crunch.
+
+"They signed the threshold twenty-two years ago, Brandon," the collective voices whispered, dropping to a low, heavy vibration that shook my chest. "They traded your innocence for a happy home. You ran away from the television, you grew up, you forgot your old friend... but a debt to the void always, always demands an end. Look down at your feet, Brandon. The circle is complete."
+
+The giant plush body loomed over me, the freezing air turning my breath into white fog as the grip on my wrist tightened, pulling me closer to that unchanging, terrifying felt smile.
+
+"W-what do y-you want?" I managed to stammer out, my voice shaking violently as I tried to pull against his stone-cold grip.
+
+The creature didn't answer right away. The deep, grinding crunch of the blunt teeth behind his mouth mesh slowed down, settling into a low, menacing rhythm that thrummed right through the floorboards. The unchanging felt smile stayed locked onto his face, but his head slowly jerked back into a perfectly straight position with another sharp, mechanical whir-click.
+
+He didn't pull me any closer, but his grip on my wrist remained absolute, like an iron cuff squeezing my bone. The freezing air radiating from his purple fur was so intense that the hair on my arms stood completely on end, and my vision began to blur at the edges from the sheer panic.
+
+Instead of answering my question, the multi-layered chorus of children's voices inside his throat let out a slow, distorted recorded chuckle.
+
+"What do I want? Oh, Brandon, a beautiful game! A question of purpose, a title, a name!" the voices rhymed, the sound echoing from the dark corners of the ceiling now instead of his mouth. "You ask for the prize before playing the card! You ask for the finish when running is hard!"
+
+He slowly lifted his other oversized, four-fingered foam hand and pointed one thick purple finger directly at the center of my forehead, stopping it barely an inch away from my skin.
+
+"I want you to listen, and I want you to see, exactly what happens to those who flee," the collective whisper droned inside my head, bypassing my ears entirely. "The question isn't what I want from you tonight, Brandon... the question is how much you are willing to lose before you turn out the light."
+
+The thick purple fluid dripping from his lips hit the table again, sizzling softly as the arcade lights overhead gave another violent, dying flicker.
+
+A sob ripped out of my throat, and I screamed with every ounce of air left in my lungs.
+
+"PAPA! DAD! HELP ME!"
+
+The frantic, desperate screech bounced off the walls of the dead-silent arcade, but my dads didn't even twitch by the cash register.
+
+The moment the scream left my mouth, the collective children's chorus inside the creature completely shattered. A sudden, jagged tear of audio feedback filled the room, and the entity let out a booming, guttural laugh. It wasn't a television track anymore. It was a deep, demonic roar that shook the very foundations of the building, vibrating so violently it made my teeth rattle.
+
+"I love you, you love me..." the creature began to sing, but the words were dragged down into that horrific, mechanical bass, sounding like a corrupted tape player grinding to a halt. "...we're a happy family..."
+
+With a sickening, dry crunch, the wide felt smile on its face split apart. The dark mesh screen inside its mouth tore wide open, revealing the true nightmare beneath: rows of blunt, pale, human-like teeth that began to violently grind and snap together like a trash compactor. A foul, suffocating odor of old paper, sour milk, and rotting sugar poured out of its throat, washing right over my face.
+
+"...with a great big hug... and a kiss from me to you..." the demon roared, the stone-hard grip on my wrist tightening until I heard the bone pop.
+
+It began to physically drag me across the warped, graying wood of the table, pulling my face straight toward those churning, grinding teeth.
+
+"...won't you say... you love me... TOO?!"
+
+I yanked my arm with everything I had, throwing my entire body weight backward. With a sickening rip of friction, the stone-cold grip broke, and I collapsed hard onto the slick tile floor. My eyes were glossy with tears, my chest heaving as I scrambled backward on my hands and knees.
+
+"L-let go!" I shouted, my voice cracking with pure terror.
+
+The entity let out another booming, demonic laugh that rattled the arcade machines. It didn't step back; it lunged forward to pin me to the ground. 
+
+Desperate, I drove my heel straight into its thick, foam-padded foot, kicking it as hard as I possibly could.
+
+The blunt impact actually worked. The creature's leg buckled, and it dropped heavily to one knee with a low, metallic groan.
+
+I scrambled to my feet. Before it could recover, its massive purple arm swung out, trying to grab me again, but the claws swiped through empty air. I broke into a dead sprint toward the nearest party table. Behind me, the entity snapped back up to its full height with terrifying speed, its grinding teeth snapping together in a blind rage.
+
+I didn't stop running. I reached the first table, dug my hands into a giant, multi-layered birthday cake, and hurled it straight at its face.
+
+SPLAT!
+
+Thick frosting and chocolate smashed directly over its snout, blinding the dark mesh of its eyes. While it thrashed around, trying to wipe its face, I sprinted from table to table, grabbing every glass shaker in sight.
+
+CRASH! CRASH! CRASH!
+
+I launched a barrage of heavy parmesan cheese and red pepper shakers like baseballs, aiming straight for its head, eyes, and wide-open mouth. Glass exploded continuously against its purple hide. A massive, pungent cloud of burning red pepper and sharp cheese filled the air, choking the hollow black void of its throat. The entity let out a violent, glitched wheeze, its demonic voice splintering into pure static as the spices hit whatever was living inside that suit.
+
+The blinded creature kept speaking, its voice a broken, glitched skip-track of demonic laughter and distorted children's choruses echoing through the speakers of the dead-silent building.
+
+"Sharing... is... caring... Brandon..." it wetly choked out through the thick frosting and stinging red pepper clogging its throat.
+
+I kept moving backward, my lungs burning as I tried to catch my breath. My sneakers skidded on the tile as I broke into a frantic run, retreating deep into the heart of the arcade section. The flashing neon reds and blues of the game cabinets rhythmically washed over the floor, but the regular electronic noises were completely gone.
+
+I ran down the narrow aisles of games, past rows of Skeeball lanes and racing simulators. Everywhere I looked, kids and families were frozen like wax statues. A little girl stood perfectly still, her hand suspended over a token slot; a mother sat unmoving in a plastic booth, her mouth open in a silent, paused laugh.
+
+"PAPA! DAD! PLEASE!" I screamed, my voice cracking, echoing uselessly off the plastic frames of the frozen machines.
+
+Behind me, the heavy thud-thud-thud of those massive foam feet kept pacing through the dark aisles. Barney was following me. He wasn't running, but he didn't need to—every time I turned a corner, his towering purple silhouette would appear at the end of the row, his head tilted at that broken ninety-degree angle, tracking me through the neon glare.
+
+I ran past another frozen family, panicking, desperately looking for an exit or a place to hide as the air around the arcade machines began to grow rapidly freezing cold.
+
+My sneaker caught the edge of a plastic floor mat, and I went flying, hitting the slick tile hard. Pain flared in my knee, but the pure adrenaline screaming through my body wouldn't let me stay down. I scrambled back to my feet, my chest heaving as I gasped for air.
+
+As I pushed myself up, my palm scraped against a broken panel at the base of an older arcade machine—one of those out-of-order cabinets with a handwritten note taped to the screen. A sharp edge of splintered wood sliced into the palm of my hand.
+
+"Ouch!" I hissed, my eyes watering as a thin line of blood started to well up in the cut.
+
+But I didn't leave the piece behind. I pulled the loose, foot-long shard completely off the cabinet frame. It was rough and heavy. Holding onto it as I moved made me feel a bit more prepared for whatever was ahead.
+
+Behind me, the rhythmic thud-thud-thud of heavy footsteps echoed down the narrow aisle of Skeeball lanes. The air conditioning vents above let out another freezing blast, turning my frantic breaths into thick plumes of white vapor.
+
+I held the piece of wood firmly and kept sprinting through the flashing neon labyrinth of the arcade, desperate to find a way out.
+
+The thick, buzzing noise of the arcade cabinets suddenly cut out completely, leaving the labyrinth of flashing neon games in absolute, suffocating silence.
+
+The heavy, rhythmic thud-thud-thud of the foam feet stopped. The distorted children's voices vanished. The only thing I could hear was the frantic, deafening hammer of my own heartbeat echoing inside my eardrums. I kept walking forward slowly, my sneakers squeaking against the tile as I used my clean sleeve to wipe the cold tears from my cheeks, my fingers trembling around the broken piece of wood.
+
+"Papa?" I whispered, my voice barely a breath in the freezing air.
+
+I reached the very edge of the arcade aisle, just a few feet away from the open dining area where my dads were frozen by the counter. I thought I was about to escape the maze.
+
+Then, out of the shadows of a giant racing simulator, the towering purple shape materialized with impossible speed. Before I could even scream, a massive, four-fingered foam hand shot out and clamped violently around my throat. The grip was pure iron, cutting off my air instantly, lifting me completely off my feet. My toes dangled inches above the floorboards.
+
+The creature’s neck bent at that sickening, broken ninety-degree angle, bringing his massive, frosting-smeared felt snout right against my face.
+
+"A quiet boy, a silent sigh... a perfect time to say goodbye!" the demonic, multi-layered chorus roared directly inside my skull, vibrating through my jaw. "You thought the maze would let you free... but every corner leads to me! The game is over, Brandon. Time to pay the toll!"
+
+His jaw hinged open with a wet, heavy crunch, the dark mesh screen tearing completely apart to reveal those rows of blunt, grinding human-like teeth snapping together just inches from my nose. A foul, rotting odor filled my throat.
+
+Before those teeth could clamp down on my face, the adrenaline exploded in my chest. I remembered the heavy, sharp piece of wood gripped tightly in my right hand.
+
+Using every ounce of strength left in my body, I raised the splintered shard and rammed it straight up into the center of his massive foam nose, driving it deep into the dark void beneath the fabric.
+
+"STAY AWAY FROM ME YOU MONSTER!" I shouted, the words tearing out of my restricted throat.
+
+The entity let out a horrific, glitched screech—a mixture of a distorted child's scream and a roaring animal—and his grip on my neck instantly broke.
+
+I hit the floor hard, gasped for a single
+
+breath of air, and scrambled back to my feet. I ran toward the glass front doors of the Peter Piper Pizza, hurling my entire body weight across the floor. I slammed into the metal push-bars, but they didn't budge. The doors were locked tight, sealed by the static.
+
+"No, no, no!" I panicked, my eyes glossy as I looked through the glass at the empty parking lot.
+
+Behind me, the screeching entity was already recovering, his heavy footsteps rushing down the aisle. Turning around, I threw my back against the glass and began kicking the door frame using all my might, my heart hammering against my ribs as the pure, blind adrenaline took over.
+
+CRACK. SMASH.
+
+On my third desperate kick, the heavy magnetic lock gave way with a loud metallic pop. The glass doors swung wide open, and I tumbled out onto the warm, humid asphalt of the March night, collapsing onto my hands and knees, desperately catching my breath under the real, steady yellow glow of the parking lot streetlights.
+
+The moment my feet hit the dark asphalt outside, a massive, silent shockwave seemed to ripple through the air.
+
+BZZZZT—FLICKER!
+
+Through the thick glass doors behind me, every single arcade machine, neon sign, and overhead light instantly snapped back to life. The sudden, deafening rush of clanging tokens, electronic game music, and shouting children flooded back into my ears so fast it made my head spin. Reality had snapped back.
+
+"Brandon!"
+
+I heard the frantic shout before I could even push myself up from my hands and knees. Footsteps came rushing across the concrete, and suddenly, Marcus was on the ground with me, his arms wrapping around my shaking shoulders in a fierce, tight hug. David was right behind him, dropping to his knees, his hands instantly coming up to brace my arms.
+
+"Oh my god, Brandon, what happened?!" Marcus gasped, his voice trembling as he held me. "We turned around from the counter with the pizza and you were just gone. Someone said they saw you sprint out the front doors!"
+
+I couldn't even speak. My chest was heaving in ragged, shallow gasps, my eyes glossy and overflowing with hot tears as I stared blankly at the bright, perfectly normal families eating dinner through the restaurant window. There was no monster. There was no broken glass. Everything looked pristine.
+
+"Mijo, look at me, breathe," David pleaded, his eyes wide with panic as he tried to figure out why I was hyperventilating. As he reached down to steady my trembling hands, his fingers brushed against my right palm. He froze. "Marcus, look at his hand. He’s bleeding!"
+
+David carefully turned my hand over under the bright yellow parking lot streetlight. Right across my palm was a jagged, raw slice—fresh, red blood welling up and dripping down my wrist from the splintered arcade wood.
+
+"Brandon, who did this to you?" Marcus asked, his voice dropping into a fiercely protective, terrifyingly serious tone as he squeezed my shoulder. "Did someone attack you in there? Are you okay? Talk to us, son."
+
+They hung on my every breath, completely terrified for my safety, waiting for me to tell them what kind of nightmare had just taken place inside that crowded pizza place.
+
+"I— p-papa..."
+
+"I j-just..."
+
+I exhaled hard, the breath shuddering out of my chest as I closed my eyes tightly, unable to look at the bright neon lights of the restaurant anymore. 
+
+"Can we go home..." I said, my voice barely carrying over the distant hum of the traffic.
+
+"...please..?" I said softly, quietly, leaning into Marcus's chest as my strength completely gave out.
+
+My dads didn't ask another question. The moment they heard the pure exhaustion and terror in my voice, they went into absolute protection mode. David immediately stood up, pulling his car keys from his pocket and hitting the unlock button, the vehicle giving a sharp, familiar chirp under the parking lot lights.
+
+"Yes, mijo. We are going home right now," David said, his voice low and incredibly steady.
+
+Marcus kept his arm wrapped firmly around my shoulder, physically supporting my weight as they carefully guided me away from the front doors and toward the backseat of the car. David opened the door, helping me slide onto the cool, safe fabric of the seats, before climbing in right next to me and pulling the door shut with a heavy, solid slam that finally cut off the sounds of the arcade.
+
+Marcus scrambled into the driver's seat, jammed the keys into the ignition, and the engine roared to life. He threw the car into reverse and backed out of the space, turning the wheels toward the exit.
+
+As the car pulled out of the parking lot and hit the dark, familiar main road of the Valley, heading back toward our house, I finally forced my eyes open to look out the rear window. Through the dark tint, the bright red and green signs of the Peter Piper Pizza were fading into the distance.
+
+There was no purple monster standing on the pavement. The parking lot looked completely empty and peaceful. But as I looked down at my right hand, the fresh, red blood from the cut was still staining my fingers, a permanent, physical reminder that whatever had just happened in that maze of flashing arcade lights... it hadn't been a dream.
+
+That was the last time we ever went to that Peter Piper Pizza, and the last time I ever told my papas about what happened.
+
+ They know about it. They don't know what really happened in that dark aisle, but they can't deny the physical hand cut either.Right now, as I type this, things are different. There is always at least one papa with me, wherever I go. If Marcus goes to the store, David stays behind in the living room. If David is working, Marcus sits at the kitchen table. It’s exhausting constantly being watched, but I know it's for my own protection.
+
+ Sometimes... looking at the silent anxiety written all over their faces when a room goes a little too quiet... I feel like they aren't saying something that I should know. Like they know exactly who that debt was owed to.
