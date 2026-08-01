@@ -1,0 +1,105 @@
+I don’t think I’ll ever know why Jim suggested that camping trip to me.
+
+He was very passionate about camping deep inside the wilderness; then there was me, who’d never slept on anything other than a thick mattress. I had welcomed his idea out of sheer kindness, not realizing the scope and intensity of the trip he had planned. He’d imagined a crude trip with nothing more than our sleeping bags, a tent, and very limited rations of beef jerky and whatever else we caught in the forest, all set several miles away from any form of civilization. If that wasn’t enough, he’d scheduled the trip for late November and into early December, thereby securing us yet another obstacle in the form of rigid weather.
+
+Every morning we’d wake up, pack all our stuff, and move deeper into the forest where Jim would set up the camp once again. I spent majority of every day huddled up in my sleeping bag, reading my book while Jim either explored the forest or caught/cooked dinner.
+
+Our problems arose at the tail end of the trip, when we were on our way out of the forest. We were ambushed by a sudden unexpected harsh snowstorm; the kind of snowstorm where one would shield their face and squint their eyes because the wind hurt. Snowstorms are rare in this part of the world and especially snowstorms of that caliber. For that reason, Jim likely hadn’t prepared for these conditions. But Jim was still leading the way through the forest, but, although he didn’t want to admit it, it was clear that the storm had thrown off his sense of direction.
+
+“I can’t keep going, man.” I said, wondering to myself how I had let Jim talk me into taking that trip. “I need to sit down or something.”
+
+“We need to keep the pace.” Jim answered back with an optimistic smile on his face. “Hypothermia and frostbite set in quickly in these temperatures! I’m sure we’ll be out of the forest at any moment.”
+
+After another half hour of trudging through the ever-thickening layer of snow, Jim still wouldn’t admit that we were lost. He just kept walking, still confident like a rooster at dawn. It was during this horrible march that we stumbled upon a clearing in the forest. It wasn’t a clearing we’d passed before; otherwise, we’d have noticed the old wooden shack which stood in the middle of it.
+
+It was the remains of an old house. The wood had turned dark after years of decay. All the windows were shattered. There wasn’t even a door to knock on. It looked abandoned. I glanced at Jim. He knew exactly what I was thinking. He looked at the shack, before turning his head to the forest behind us, contemplating our choices. I didn’t wait for his response. I began walking towards the shack, hearing the crunches with every step I took in the ankle-deep layer of snow. The moment I stepped over the threshold, I felt Jim’s tight grip on my hand.
+
+“Wait!” He whisper-screamed at me. “What if this is someone’s property or something?”
+
+I pulled my hand free from Jim’s grip. “IS ANYBODY IN HERE?” I yelled into the entrance.
+
+The only answer I got back was my own echo bouncing off the mold-ridden walls.
+
+“Sounds empty to me.” I said.
+
+Jim gave a resigned sigh and looked back out at the forest. He had been humbled; I knew that very well. By entering the shack, he admitted that nature had conquered him and not the other way around. I couldn’t offer any words for comfort; I just didn’t know what to tell him.
+
+We proceeded from the entrance and walked into what appeared to be an old living room. With every step we took, the floorboards would holler with creaks, as though the floor itself was complaining of being stepped on. We continued further into the house and found a kitchenette, a bathroom, and a bedroom with a king-size bed.
+
+“I know where we’ll be spending the night, I guess.” I said, looking at the bed.
+
+I looked back at Jim. His expression was cold. Colder than the snowstorm.
+
+“We’re not sleeping on that thing tonight.” He said. “We’re sleeping on the floor.”
+
+“Why?”
+
+“We’re camping!” Both annoyance and frustration were clear in his voice. “We can’t just sleep in a bed. That’s not the camper way!”
+
+I understood. This was his attempt to cling onto the notion that we were still camping. An attempt to convince himself that he hadn’t given up, by denying both of us a relaxing night in bed.
+
+“You need to loosen up man.”
+
+“Loosen up?!” The furrows on Jim’s forehead deepened. “I’ve been working myself out of my own fucking skin to ensure that you had a good time on this trip… and then this is how you decide to repay me! You just throw all my effort out the window.”
+
+“C’mon, man.” I sighed. “You know that’s not what I meant. I’m just exhausted from the last couple of days.”
+
+“Pffft. Exhausted?” Jim huffed. “Exhausted from what exactly?” He sighed. “Y’know what? Just sleep in here; I’ll sleep in the living room on the floor.”
+
+“Are you sure?” I asked, feeling nervous about his reaction.
+
+“Yeah, it’s fine!” He claimed, though his tone said otherwise. “Why shouldn’t it be?”
+
+He turned around and walked out of the room, muttering something to himself, sounding as if he was wringing a cat as he trampled across the creaking floorboards.
+
+Through the door frame I could see him laying out his sleeping bag on the living room floor. I didn’t like seeing him upset.
+
+Perhaps I should’ve talked to him. Maybe I should’ve just slept next to him on the floor that night. Then maybe things would’ve turned out differently. I think about that sometimes. But what’s the point in mourning an opportunity that I never took?
+
+I laid out my own sleeping bag on the right side of the bed, and crawled into it, leaving my right arm outside the confines of the sleeping bag for comfort. I turned my eyes towards one of the broken windows in the room. The storm was still raging outside. The wind was howling like a wolf as it travelled between the naked tree stems of the forest, and the snow was falling like powdered sugar from a strainer.
+
+I rested my head on the mattress. Instantly, my eyelids grew as heavy as iron. Although there were still a couple hours of daylight left, I fell into a deep slumber.
+
+I remember being woken up at some point by the creaking floorboards. I opened my eyes. My vision was blurred and my eyelids ached from fatigue. It was the middle of the night, and the storm was still raging outside of the shack. The only light in the dark room was the rays of moonshine coming through the broken window. I saw the silhouette standing in the doorway to the bedroom.
+
+“Hey, Jim…” I mumbled quietly, fighting against fatigue to keep my eyes open.
+
+There was no movement from the doorway. I only heard heavy breathing.
+
+“Listen, man…” I mumbled, trying not to fall asleep mid-sentence. “I’m sorry that I have been less than useless this week… I just don’t think this kind of trip is something for me.”
+
+Still, there was no movement.
+
+“Please, just come and lay down, man.” I lowered my head back down on the mattress and closed my eyes. “I think you deserve it.”
+
+I heard the floorboards creaking and felt the bed shift towards the left side. I was surprised that he would take the offer after making such a big stink about it earlier. I felt a tight grip on my right hand. His hand was so cold I almost pulled back out of sheer instinct.
+
+“Damn, man!” I mumbled. “You’ve been freezing, haven’t you?”
+
+No response. I didn’t care. I was too tired. I just kept holding onto his hand.
+
+When I woke up again, it was once more because of the sound of the creaking floorboards. I opened my eyes, finally feeling well-rested. The sun was shining through the broken window. Looking to my left, I saw that his side of the bed was empty. I looked at my watch; I had been sleeping for a little over sixteen hours. I began to wonder why Jim hadn’t woken me up before. Then I felt the stinging sensation in the palm of my hand. I looked, and there was a burn mark on it: a cold burn to be exact.
+
+“JIM?!” I yelled. “CAN YOU COME IN HERE?”
+
+I got no response other than my echo. I began to feel nervous. Something was very off.
+
+I crawled out of the sleeping bag and walked into the old living room. Jim was lying belly down with his face on floor. His sleeping bag lay next to him.
+
+“Jim, why didn’t you wake me up?” I said as I looked at him.
+
+He didn’t respond. Feeling even more nervous, I approached him. His neck was bent at a weird angle; certainly not an angle that a neck is supposed to bend. His fingers were as black as ebony. I grabbed him by the shoulders.
+
+“Jim, what happened? Did you fall?”
+
+He was ice cold, and stiff as a board. Panicking internally, I tried to turn him around to see what was wrong. Then came the horrible sound. It sounded just like opening the zipper on an old duffel bag. I managed to flip him onto his back, only to discover that all the skin on his face was still frozen stuck to the floorboards where he’d laid.
+
+I crawled backwards in horror at the sight of his exposed face muscles and tendons. His eyes were blank. Even through the damage done to his face I could see that his lower jaw was completely broken. A combination of the rigid temperature and rigor mortis had contorted his expression into that of an agonal screech. He was dead as a doornail.
+
+I stood up, taking a few steps backwards, all while keeping my eyes on his face. I didn’t understand. What had happened to him? Hadn’t I just heard him walking around? I felt lightheaded. I could physically feel the scream that was stuck in my throat. Then I felt my stomach cramp before I fell back onto my knees and vomited on the floor. I crawled to the entrance of the shack, desperate for fresh air.
+
+I noticed it the moment I got to the threshold of the entrance.
+
+During the night, our own tracks had been exposed to the snowstorm and should no longer be visible.
+
+So why was it that I could still make out a singular fresh track of footprints in the snow? And how were they leading away from the shack and into the forest?

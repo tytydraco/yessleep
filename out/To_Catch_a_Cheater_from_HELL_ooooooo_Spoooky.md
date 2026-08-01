@@ -1,0 +1,49 @@
+Hey guys, gobbos and gibbons. Today, I’ve got a wacky ass story from about six years back, when I worked as a technician for a radio station called 107.2FM, The End (because it was all the way at *the end* of the available frequency range).
+
+As the technician, almost all of my time was spent intently listening to the feed coming from the big broadcaster’s room as it flowed through my many doohickeys, doodads and wobbly bobblies, so that I could quickly censor things and make level adjustments right before the noise hit the air. Since I needed to not be distracted, I was basically shuffled into a slightly expansive broom closet with a loaded desk, big headphones and a door that locked from the inside. For most people, I'm sure this would've sounded like Hell, but I thought it was awesome. I liked listening to radio, I liked simple work, and, being a shut-in nerd, it kept me away from people and close to my tech. I showed up at 8:00, before everybody else, and left at 4:00 with plenty of the day ahead of me. Hell yeah.
+
+Now, on The End, we had this segment called To Catch a Cheater. I'm sure just from the name, you have a good idea of what it was like: every Thursday at 3:30pm, someone calls in and tells us all about their woes with their partner’s suspicious behavior, we play another song, and then the hosts — I'll call them Harry and Henrietta because they were the \*h\*osts — lead this little phone sting where they pretended to be a big store chain calling up the alleged cheater with an offer of free flowers sent to whoever they wanted or something similar. If the alleged cheater sent the flowers home, then they were innocent, or at least not guilty, but if they sent them to their mistress/mister(?), then they were B-B-B-BUSTED! Their lady or man was on the line listening in the whole time and they got to lay into them on. the. air. It was crazy, I'm tellin' ya.
+
+Most of the time, it was just about what you’d expect — cheaters admitting to what they did or non-cheaters explaining their weird actions — but occasionally you got something extra exciting. Maybe a husband would admit to his adultery with a chin held high and his wife would berate him so harshly, I'd be mashing the censor button like a machinegun. Or maybe it was the wife sorrowfully admitting to it and then her husband breaking down in tears as he realizes it's all over. Or it could be way more innocent than that. We once had a wife call in about her man saving all of his money, getting squirrely all the time and suddenly wanting to hang out with a gal-pal a bunch. It seemed open and shut when he made a huge, mysterious payment out of nowhere, but, broski, brotosynthesis, bromine, it turns out he was getting advice on a wedding ring and PROPOSED ON THE FREAGING AIR. I nearly leapt out of my booth. I stood up and braced myself against the wall, it was the most exciting day of my career. That all brings me to my story.
+
+Tickity-tacking beside all of my swingledings was an automatic transcriber which listened in on the outgoing noise and printed all of it onto a long strip of paper that slowly folded itself into a bin — the kind you stick your holiday decorations in. The thing was fukken ancient, built in the 2000s at the latest, complete with off-white plastic, janky transcriptions and errythang. I don’t know why we had it, but I figure it was just to cover our asses legally since To Catch a Cheater was morally dubious at times. Either way, this is all copied from one of those transcripts, so bear with me if things are confusing or janky; it was the printer, not me!
+
+Harry: Hey, what's up everybody. It's me, Harry, on 107.2FM, The End, and it's that time of the week again. That's right. It's time for To Catch a Cheater.
+
+Henrietta: Yup, and we’ve already got a caller on the line. Her name’s Christina and she’s got a pretty interesting story to tell.
+
+Harry: *Picks up* Hello, you’re on To Catch a Cheater.
+
+*I should note, the tone suddenly gets a tad somber, as if the hosts realized just how tasteless it would be to act all excited on a show about infidelity and quickly corrected. This is typical for the station, so nothing’s out of the ordinary yet.*
+
+Christina (c for \*c\*aller): Hey there, hello everybody.
+
+Harry: So we’ve heard that you have complaints about your husband and some strange behavior.
+
+Christina: Well, for the past few months, he’s been seeing a therapist, and I was supportive at first, but he’s just been acting out of character and it’s getting worse. His visits are taking longer than they should, he gets all squirrely all the time and he keeps saying— keeps saying something like “she really understands me.” It’s like he’s hiding something. And I swear he told me to let it go or something, but he plays dumb about it every time I bring it up!
+
+Harry: Woof. That’s rough.
+
+Henrietta: Sounds suspicious.
+
+Christina: It is. It really is. It was sudden when he changed, too. One day he was normal, and then the next, he’s somebody completely new. I just want him to act right again. Nothing makes sense since he started seeing her.
+
+Henrietta: Well, I’ll tell you what. How about we try to catch him out for you.
+
+Christina: I would love that.
+
+Harry: Well, we’re gonna play another song here and then, when we come back, we’re going to pose as a big grocery chain and offer to send him some free flowers to whoever or wherever he wants, and we’ll see if he wants to send them to you, or his mistress. You’ll be listening in the whole time, so you two can talk afterwards.
+
+Henrietta: Is there a name we should be looking out for?
+
+Christina: Yes. His therapist’s name is Thalia.
+
+Henrietta: Great. We’ll be right back with you in a bit. In the meantime, here’s some Myles Smith for you afternoon commuters.
+
+I’m going to end this first part here. Since these things are literally just blocks of text with grammar errors and no punctuation aside from paragraph breaks, these have to be digitized by hand and it’s been a paaain. Medieval Catholic monks had it rough. They literally look like this:
+
+"hey what's up everybody its me hairy on one oh seven point to f m the end and its that time of the week again that z right its time for to catch a cheater yup and weave already got a caller on the line her names christina and shes got a pretty interesting story to tell lick hell oh your on to catch ash eater"
+
+All of the background sound is turned into little bits of nonsense, too, so I keep having to get rid of little “hip”s, “chuck”s, “loop”s and whatnot. The swears I censored later on are also automatically turned into single asterisks awkwardly slapped into the middle of the text. Thank glob, I remember anything about the story or I wouldn’t be able to make sense of any of this.
+
+Sorry it’s so short, but there’s plenty more to come. It starts slow with a lot of this non-sensical drama, but there's a reason I'm posting it here of all places. Part two should be much longer since I've got some time off saved up. Stay tuned.

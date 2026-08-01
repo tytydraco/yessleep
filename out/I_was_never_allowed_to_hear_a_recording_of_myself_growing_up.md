@@ -119,3 +119,5 @@ It was quiet for the longest time after I asked that question. It was such a lon
 "Don't," he eventually said. "Don't bring Her into this."
 
 He hung up before I could ask why. I sat there in the kitchen a long time after, listening to an apartment that was completely quiet. I don't know what's going on. Am I crazy? Is my voice actually like that. I don't know anymore.
+
+Part 2 - [ Was I Actually Born in New Mexico? ](https://www.reddit.com/r/nosleep/comments/1vcx2lb/was_i_actually_born_in_new_mexico/)
