@@ -1,0 +1,401 @@
+There’s a man at the end of my bed. He stares at me. It scares me.
+
+Ever since I was young, I believed monsters were real. But they’re not, hallucinations are.
+
+My entire life, I’ve been struggling with them. Monsters and creatures that aren’t really there for anyone else but me. Taunting me, mocking me, threatening me.
+
+It’s not always some monster, sometimes it’s people. A wandering stranger, a friendly kid, a neighbor.
+
+It’s difficult to get used to. But I had a lifetime worth of experience. Something strange has been happening since last year, however. My visions, my ghosts, they aren’t just saying their normal spiel, they’re doing something more.
+
+They know the future.
+
+It’s really the only way I can describe it. Ever since my life finally calmed down, these things, these hallucinations, they’ve been telling me things.
+
+Things they shouldn’t know.
+
+It has made my life impossible. Everything has become intertwined. Reality and imagination, truth and lies.
+
+If these things aren’t real…, how can they know what’s going to happen?
+
+There’s a boy I know named Matt. We’re always together. Always switching stories.
+
+Let me make it perfectly clear. I know this already.
+
+Matt is not real.
+
+I’ve known this for years. No one else sees him besides me. One day, I was just minding my business in my bedroom and he was there, silently. He turned to me.
+
+“Your mom is coming up the stairs.” He claimed.
+
+I was confused at the time, but sure enough my mother opened the bedroom door and asked me what I wanted for dinner.
+
+This is where it started.
+
+I thought that maybe I subconsciously heard my mother. Maybe somewhere in my mind, I’ve tracked the pattern of her coming up at this hour. Otherwise, how was it possible?
+
+These hallucinations, they’re not real. Are they?
+
+No, they can’t be. They have to be fake; they have to.
+
+But if they’re fake, they’re a product of my mind, of me. So, they should only have access to information that I have.
+
+So how do they know more than me?
+
+I’m supposed to ignore them. I’m supposed to ignore Matt and the other things that live around me. That’s what’s “healthy”. But how can I solve this problem? How can I know if they’re not real?
+
+If they know things that I don’t, that means they can’t be me. But how are they not me if no one else sees them?!
+
+I’m losing my fucking mind.
+
+I gave in to temptation one day and asked Matt. Asked him how he knows things.
+
+“How did you know my mom was going to come in through the door?” I asked.
+
+“How did I know?”
+
+“Yeah… You’re not real.” I stammered.
+
+“Yeah?”
+
+“Yes… so… how?” I insisted.
+
+“Are you sure?”
+
+“What?” I asked.
+
+He went silent, before he answered.
+
+“Are you sure I’m the one who’s not real?”
+
+I don’t think I have to say that I don’t talk to Matt much anymore. The doctors are right. Talking to them doesn’t help.
+
+So yeah, doctors… Drugs, hospitals. It wasn’t always like this. Things used to be softer, quieter. A bird that seemed out of place, a stranger that was taller than he should be. My hallucinations didn’t manifest as boys my age that could tell me exactly when my parents would come up to my room, or predict what I was going to have for dinner. I didn’t use to see Matt. Or the monsters.
+
+I said there’s a man at the end of my bed. And there is. He’s not really a man, at least not a person. But I can see him now.
+
+His long fingers scrapping the end of the wood frame. A small dent caused by his endless scratching.
+
+Scratch. Scratch. Scratch.
+
+He looks at me. Never moving. Always staring.
+
+He looks hungry.
+
+I see other things now. Other creatures that are impossible. Monsters that go bump in the night and tell me things no one should know.
+
+There was a “thing” in the lake behind my house. Calls itself a Näcken. I can’t pronounce it well, so I just called it Nixie.
+
+Nixie is a trickster. It tries to constantly get me to enter the lake, tells me the water is warm, that wet feet feel best.
+
+It’s almost endearing how ineffective it is. I understand Nixie isn’t real. It doesn’t stop it from trying.
+
+“Come in the water.” It taunts me.
+
+Its lips flap weirdly with a strange reptilian look to them. Most of the time Nixie is mouth-deep inside the water. I don’t pay much mind to it. If my life wasn’t so sad, I’d laugh.
+
+“Join me.” It continues.
+
+I largely ignore it. But one day he said something strange.
+
+“You forgot what you did, didn’t you?”
+
+Forgot what I did? Something about that messed with me. I’d usually ignore anything Nixie would say, but this felt out of character. Forget what? What was it talking about?
+
+It rings true to me, because I do have blackouts. Comes with the package of being mentally altered, I guess. Is Nixie talking about that?
+
+Did I do something and black out?
+
+Did I forget?
+
+It’s probably just another trick. Nixie is a part of my mind, so it knows this. Probably using my own thoughts to try to trick me into getting into the water.
+
+But… if Nixie is just a hallucination. What does it know about what I did? Shouldn’t I know too?
+
+Does this mean it’s… real?
+
+I stop myself from having these thoughts. I seek refuge, a comfortable place where I can be alone with myself.
+
+It’s getting rarer these days.
+
+I said things used to be softer, quieter. I sort of lied. There wasn’t so much mental abuse in my past as much as physical abuse.
+
+My parents.
+
+They softened up over the years. A rare blessing, honestly. When I was younger, my father drank. A lot. And my mother cursed her life and didn’t seem to care much about my existence.
+
+They went through an upwards shift as my mental health went down a downwards spiral. They might not be the best people, but they try.
+
+I guess seeing their only son beg for help against the “monsters”, made them shift their perspective. They became more caring.
+
+They’re not perfect. Dad still argues, but less. He stopped drinking. AA solved that issue.
+
+My mom grew more caring and thoughtful too. She’s still the same woman as before. She’s always miserable on a Monday and can’t stand drunks. But her meals are warmer now, and her smile is fuller.
+
+Sometimes I wonder if they put on a show for me, or if I’m really the only person who can’t get better.
+
+So, I keep going to school and living my life, but in the corner of my eye, I keep seeing Matt. Telling me things.
+
+Things he shouldn’t know.
+
+“Your mom worries about you.” He claims.
+
+Yeah, that’s not much of a stretch. I know that already.
+
+“She cries softly over what you did.”
+
+Did what? Why do they keep mentioning that?
+
+“They didn’t use to be like that.”
+
+At this point, Matt is torturous more than the quirky little hallucination that I could tolerate. I try not to be alone with him.
+
+My parents, my school friends, Mrs. Penton. I’ll go to anyone to avoid listening to him. He’s a constant reminder that something is shifting, something is changing, and I don’t know what.
+
+I guess I should mention Mrs. Penton. She’s a sweet old lady that lives down the street. I used to go there and have some of her pecan pies. They were delicious. I would go to her, tell her about my problems, stay with her a bit. We would talk about me, talk about her. Whatever it might be.
+
+She was old, probably someone’s grandma, but they never visited.
+
+Sucks for them. More pie for me.
+
+I feel bad for her. So, I keep her company, but honestly, she’s the one keeping me company. Sure, I have friends at school, but they don’t… We don’t talk about these things. Can’t expect a bunch of fifteen-year-olds to be serious about this.
+
+But Mrs. Penton is nice. She’s like my estranged grandma. I talk about my parents and I talk about my hallucinations. She knows I’m mentally “different”, but she doesn’t care. What sweet old lady would?
+
+Sometimes she isn’t all there mentally. So, I guess that’s relatable.
+
+I remember one day when I was eating at her house, asking her about family.
+
+“Why does no one visit you?” I asked.
+
+“Ah… My boys have their own life now. They’re too busy to visit their old mom.”
+
+I bit down on the pie, somewhat outraged.
+
+“I wouldn’t stop visiting you if I was your son. Being older is not an excuse.”
+
+“Thank you dear. You’re as sweet as pecan pie” She replies.
+
+She pinches my cheeks. It hurts in a good way. A reassuring way.
+
+I remember a few years ago when my parents would argue and when my visions were rare and few between. I remember what a shitty kid I was. Violent, aggressive. Angry.
+
+Seeing Mrs. Penton living on her own, alone and content, makes me think that maybe even I can get better. I used to be violent, now I’m just sick. It’s a more honorable problem to have.
+
+And someday, if I’m cured, if I get better, maybe I’ll enjoy life with a fuller smile. The pecan pie will taste sweeter.
+
+I tell her about my day and she tells me hers. I tell her my… “visions” are getting stranger, that they can tell the future. She hears me out and is left confused as to what to do.
+
+She knows I’m just venting.
+
+“I’m sure you’ll get better, honey. Just don’t give up.” She says, the tone of her voice is warm.
+
+I feel like I could even blush.
+
+“Thanks, Mrs. Penton.” I said with my mouth full of pie.
+
+“You should run along home, honey. Your mom is waiting for you.”
+
+“Yeah, sure Mrs. P. I’ll see you later.” I reply.
+
+She gives me a hug and pulls me closer one last time.
+
+“Don’t worry about it honey. You’ll get better. The monsters or Matt can’t hurt you. Have a safe trip home.”
+
+I get embarrassed. I live so close by. What trip? It’s barely walking dist…
+
+Wait what did she say? I pause eerily at her comment.
+
+“How do you know his name is Matt?” I ask.
+
+I’ve talked to Mrs. Penton about everything and anything. But I don’t give her the names of the hallucinations, I don’t want to validate them.
+
+Another chilling thought occurs to me.
+
+“How do you know my mom is waiting at my house?”
+
+A cold smile is much deeper than a fake one. One that brings malice and betrayal.
+
+That’s the smile I saw on Mrs. Penton’s face, before my entire world was shrouded in darkness and I passed out.
+
+Darkness.
+
+It thumped my entire being awake.
+
+When I woke up, I was alone. In the middle of a field.
+
+There was something in my hand.
+
+I stood up confused and dazed. I opened my hand and looked. I didn’t understand what I was looking at.
+
+Have you ever tasted mud?
+
+The soil beneath your feet?
+
+When I sensed my lips and mouth full of earth, I started throwing up. I wheezed and I heaved what I swallowed only minutes ago. The delicious “pecan pie” came hurling from my mouth back to the ground it belongs to. A worm runs away serendipitously from the dislocated earth.
+
+I’m such a fucking idiot.
+
+Of course, Mrs. Penton isn’t real. How could she be? Why would I expect anything good to happen in my life? Why would I expect a sanctuary?
+
+She’s gone. She was never real.
+
+I go back home. I’m slouched over, depressed, manic.
+
+I see them around me. Monsters of all shapes and sizes. Standing on rooftops and standing on the street.
+
+They’re laughing. They’re laughing at me.
+
+Laughing at how stupid I was that I was tricked again by my own mind.
+
+I…I… want to cry.
+
+They’re right. Why do I even try? I know I’m not supposed to know peace.
+
+I get home and I fall on my bed. A single tear forms a sickening feeling in my stomach.
+
+It’s rage, frustration. I want to yell more than I want to cry.
+
+Matt sits there looking at me. A small smirk on his face. I can’t see it with my eyes, but I can feel it.
+
+I wish he was real. I’d punch him.
+
+I’d kill him if I had the chance.
+
+“Your mom is going to call you.” He predicts.
+
+Not long after.
+
+“Chris, come down! It’s time to eat!”
+
+God damn it. How does he know?
+
+I’m enraged. I get out of my bed and confront Matt. I demand answers. He doesn’t answer.
+
+I say fuck it. I’ll go talk to Nixie, maybe it knows something.
+
+Matt’s expressions shifted a little. He seems worried.
+
+“Don’t go talk to Nixie. Don’t go near him.” He says.
+
+What? Is he concerned? Concerned about me? Concerned about another fucking hallucination like him? Why?
+
+Why does he care? What is this? Civil war between hallucinations now? I tell him to fuck off before I storm out of the room.
+
+“You’re all the same thing, Matt. Fuck off.”
+
+He just looks at me perplexed.
+
+“You really don’t remember do you?”
+
+The same shit Nixie said. What is wrong with them? They can fuck off with their cryptic messages.
+
+I go down to the kitchen. Sit at the table where my mother just cooked me a meal. I look it over, the enticing aromas luring me in a closer.
+
+A foreign hand touches the plate, one that I’m familiar with.
+
+There’s a creature in the kitchen pushing the plate towards me. Presenting it as its own creation. It’s a hallucination that’s been here for some months now. A weird feminine shape that has no face and a slim figure. I’ve grown to hate these things. I hate these hallucinations.
+
+I ignore it and start eating.
+
+I tell my mother about what happened with Mrs. Penton. I hold in a hiccup that would prelude a wave of tears.
+
+My mother looks at me. Her smile really is getting warmer. She comforts me.
+
+“It’s a beautiful day, let’s go shopping.” She tells me.
+
+I see Matt in the corner of my eye. He’s just watching me. He seems to be waiting for something.
+
+I eat the real food placed in front of me. A weak palate cleanser for the mud I had in my mouth just moments ago.
+
+A beautiful day? There’s nothing beautiful about today. This is probably the worst Monday of my entire life.
+
+I pause. Today. Today is Monday.
+
+I look at Matt. And then I look at my mother. Cheery and happy.
+
+He’s standing there. Right in front of me. What does he want? What do they all want?!
+
+It can’t be…
+
+There’s a burning scenario in the back of my head. It presses against my skull and crushes my spirit. The day I found out Mrs. Penton wasn’t real was the day my mind decided to travel the path I had always avoided.
+
+“Mom.”
+
+“Yes, honey?”
+
+“Is Matt real?”
+
+She stops herself. Hesitating. Her eyes drifting around the room quietly and steadily. But Matt didn’t move. He just stared at my mother. Unblinking.
+
+“Of course not, honey.” She responds.
+
+Of course, not… That would be impossible. Matt is not real. I’m sure of that. But something was still scratching the back of my head. It left a burning question in my head. A sacrilege, something that I honestly regret saying.
+
+I remember that day well. It was a Monday. I open my mouth and let out.
+
+“Mom, are you real?”
+
+I saw my mother smile.
+
+She stood silently. Her face static.
+
+A smile so wide and so impossible that I swear I saw the outlines of her mouth leave her face. Ungodly, and unholy. I screamed, consumed in the fear and confusion of the moment. And then there was darkness.
+
+A darkness that enveloped me. I begin to remember.
+
+I remember the time before the monsters. Before they showed up in my life. Every wandering creature, every impossible entity. I remember all the yelling, the arguments and the hatred.
+
+The vile, hot hatred between my parents. How bad it was…
+
+How could I have forgotten?
+
+I finally understood Matt.
+
+My father never stopped drinking. And my mother, she never cared about me. They abused me physically. Every day, even when the visions were weak and my mind was sound.
+
+They didn’t get better. Everything was getting worse. And I was still the same shitty violent child. I remembered the day I was pushed by my father and banged my head. How my mother just looked at me without caring. And how I noticed the knife that was near me.
+
+That’s when I charged at my father.
+
+My mother screamed as father fell. And then I turned it on her.
+
+Now I’m alone. I confessed to what I did. I was arrested and put in a facility for mentally deranged children.
+
+I get it now.
+
+Matt isn’t real. And neither is anyone else.
+
+I killed them all.
+
+They put me in a psych ward and they have me write this. It’s supposed to self-help. I guess they go easier on kids that have mental issues and kill their parents.
+
+I’m serving my sentence for my crime, while they’re doing what they can to bring my mind back to reality.
+
+To where the world really is. The best drugs and proper therapies.
+
+I know now none of them are real. My parents, Matt, the old lady down the road that used to make me pecan pies. None of them. They were all stories. Comfortable lies to keep myself going.
+
+Lies to make me forget what I actually did.
+
+Of course, they knew. Of course, they all knew what was happening. They’re all part of the same hallucination. The same fever dream I’ve had for years.
+
+As my hallucinated mom was cooking dinner, my hallucinated “friend” knew what she was doing.
+
+Because they’re part of the same system. The same mind. Me.
+
+The doctors are helpful. They tell me what’s real and tell me what’s not. And I don’t see them anymore. All the people that I thought were real in my life are gone. But at least I know the truth.
+
+I put my pencil down and scream.
+
+WHY!?
+
+I did everything they told me! I take the drugs; I do the treatments! I confess, I accept what I did!
+
+So why!? WHY? Why is this still happening?!
+
+How is it doing this?! HOW?!
+
+I DON’T SEE MATT! I DON’T SEE MY PARENTS ANYMORE! SO WHY!?
+
+Why do I still see the man at the end of my bed!?
