@@ -1,0 +1,55 @@
+ I still got that fucking scar on my leg. It never healed right. Jagged as fuck. I try not to look at it if I can help it.
+
+It was a Thursday I think. Might’ve been Wednesday. These days they all seem to be blurring together. It was one of those bars that only stays open cos no fucker can be bothered going anywhere else. The place stank of beer and floor cleaner. And the speakers were totally fucked. The bass just sat on your chest like some fat bastard. I’d been drinking hard most of the week. And I still couldn’t get any sleep. I was on my third cheap cider that tasted of rocket fuel and regret.
+
+I was just sat there arguing with myself about going home. Like I always do. But it is easier for me to stay than to admit when I have had enough to drink.
+
+Then she sat next to me. A beautiful blonde. Not the sort who looks at blokes like me twice. And ordered the same cider. Asked if the music was always this crap and loud. I said yeah. Then she started talking about the pub across the road. Used to be better before it closed. We just sat there and talked about nothing important. Just the usual shit. After a bit she leaned in. The smell of cheap rose and vanilla. Like the ones in the little bottles by the till. Then she said this place is too loud. And asked if I wanted to come back to hers.
+
+I said yeah. Thinking my luck has finally changed.
+
+Her place was on the second floor. The stairwell was dimly lit and smelled of damp and urine. And when we got into her flat she locked the door. Said we didn’t want to be disturbed and gave me a cheeky wink. Then she kicked her heels off and was all over me. After a couple of minutes she pulled back and said she needed the bathroom.
+
+I walked over and sat by a window and looked out. The room was half dark. It was only lit by a lamp. And there were clothes dumped on a chair. The place felt empty somehow. Like she hadn’t been living there long. Or she just didn’t give a shit. I don’t know. And I didn’t care.
+
+Then she came back. And crooked her finger at me to come over. And while I was walking over to her. My heart was beating hard in my chest. Then something cracked under my foot. It was a phone. Screen smashed. I told her I was sorry and I felt like a total fuckwit.
+
+She took it off me. And gave me a little smile. Said it belonged to some girl she’d had a bit of fun with. And she must’ve forgotten it and no need to worry. And then we started kissing again. My hand went down her dress and I felt something move. Heavy. Deep. Stomach turning. I flinched, nearly took the hand away, but I told myself it was the cider and lack of sleep. Whatever. It must be just gas. I left it there. It moved again. Slower this time. Like something turning over.
+
+I almost pulled my hand away but I didn’t. I just kept it there. I felt stupid for even thinking about it. Probably was nothing. Just the way she was breathing, or her dress shifting under my fingers. I’d been awake far too long. And thought my mind had started playing tricks on me. It happens with lack of sleep and drinking too much. I pressed a bit firmer, trying to prove it to myself, and the movement stopped. I told myself it was nothing. Just me being a paranoid bastard. It was sort of a relief. She made a soft noise, almost a laugh, and pulled me closer. Kissed me like nothing was wrong. I kissed her back harder than I meant to, trying to bury the thought. And told myself to stop being soft. You’re in a flat with a woman who actually wants you. And is right there. Don’t ruin it by inventing shit.
+
+A third shift, smaller than before, then nothing. I thought that was it. I even laughed under my breath. And thought, Idiot. Get a grip on yourself for fuck’s sake.
+
+Then her heat under my palm changed. Tighter. Like the skin was drawing in on itself. I pressed a bit harder and felt a ridge push up against my fingers. Hard. Wrong shape. My mouth went dry.
+
+Still tried. Told myself it was muscle. Or bone. Or the way she was arched. People have weird bodies. It doesn’t mean anything. I kept my hand there longer than I should have, waiting for it to make sense.
+
+“You alright?” I asked her. Voice came out thin.
+
+She didn’t answer. Just breathed out slow against my neck. Her hand was still on the back of my head, fingers loose. I tried to sit up. Her arm tightened. Not much. Just enough.
+
+Another push. Bigger. The whole middle of her shifted, uneven, like something rolling from one side to the other. I jerked my hand back and got off the bed. Looked down and saw the front of her dress. It was moving on its own. Small at first, nearly nothing. Then a deeper stretch that held for a second before it settled.
+
+I told myself to get up and leave. Just get out of there. But I just stood there like some kind of fucking idiot just looking at her.
+
+She made another soft sound, lower this time. Head tipped back against the pillow. Eyes slowly pulling back in her head and the soft glint of drool on her lip. The movements got heavier. Less rolling, more pushing from inside. Her hips twitched. Legs bent and straightened on their own, slow, like she couldn’t find a better position to be in.
+
+A dark stain spread from between her legs. Not much at first. Then more. Then a smell cut through the cheap perfume. Metal and wet. Wrong.
+
+Her arms jerked. Sudden. And her dress rode up. Skin looked too tight, stretched shiny over something moving underneath.
+
+She made a noise that wasn’t a laugh or a moan. More like air being forced out. Head rolled to the side. Her eyes milky white and half open, looking roughly in my direction, but not seeing me anymore.
+
+The biggest shift yet. The whole middle of her rose and kept rising, fabric straining, then something wet and thick started forcing its way out from between her legs. Just the tip at first, greyish, then more, slow and more deliberate. Her head hung limp. The thing’s head came free after that, low to the bed, and looked straight at me. It made a sound like knuckles cracking and a growl through a mouth full of phlegm.
+
+Then it started coming for me. Not fast. Just a slow, awkward scuttle on all fours, belly facing up, new head leading the way, limbs bending in places they shouldn’t.
+
+I backed up. And nearly fell over the chair. Hands shaking so bad I couldn’t get the first lock. Heard the slap-slap getting closer. I got the top one open, then the middle one stuck. I kept turning it the wrong way. I felt something brush my ankle. I kicked out hard without looking. A pain tore through my leg. Hot. Deep. Then blood and something thicker running into my shoe, warm and sticky. I finally got the last lock and yanked the door open, slammed it behind me. Something hit the other side hard. Then just the clicking against the wood.
+
+I half fell down the stairs and went arse over tit onto the street and landed hard. Leg felt like it was on fire. The burn kept going deeper, like it was still eating into me. I didn’t stop. The only thought in my head was please God. I just kept limping, trying not to look back. And when I finally stopped the shock and pain hit me hard, bringing up the cider I’d been drinking.
+
+Shaking. Heaving. I saw her face for a second. That little calm smile. The disbelief was worse than the pain.
+
+I thought about calling the police. But who’s going to believe the local drunk?
+
+The scar’s still there. I still don’t look at it if I can help it.  
