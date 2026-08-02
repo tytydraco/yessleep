@@ -1,0 +1,27 @@
+I'm 28. I have a wife, a daughter who just turned 3, and a job in logistics that pays enough for us to be comfortable. I'm telling you this first because I need you to understand that nothing about my life looks like the kind of life this happens to. I'm not saying that to convince you I'm stable. I'm saying it because a year ago I would have agreed with you that this couldn't happen to someone like me.
+
+A year ago I had a dream. In it I was a patient in some kind of psychiatric hospital, older building, the kind with long tiled hallways and fluorescent lights that hum. I didn't know why I was there. Nobody in the dream explained it to me, the way dreams don't usually bother explaining anything. I woke up and forgot about it within an hour, the way you do with dreams.
+
+The next night I had the same dream. Not a similar dream. The same one, continuing. I was standing in the same hallway I'd been standing in when I woke up the night before, same fluorescent light flickering above me, and a nurse I somehow recognized walked past and said something like "you're up early again" as if we'd had this exact routine for a while.
+
+That's when I understood something was wrong. Dreams don't do that. Dreams don't remember where they left off.
+
+It's been a year now. Every single night, without fail, I go back to that hospital, and it continues exactly where it stopped. I've had full conversations with other patients there that span across a dozen different nights. I know the names of two nurses. I know which room is mine, second door on the left, bed by the window, though the window only shows a gray featureless field, never anything else.
+
+Here's the part that made me stop telling my wife about it. In the dream, there's a woman who visits me sometimes during what they call visiting hours. She has my wife's laugh. Not a similar laugh. The exact one, that specific catch in her throat when something actually surprises her instead of just being polite-funny. She doesn't have my wife's name. In the dream I call her by a name I don't recognize when I'm awake, but I always know, in the dream, that she's my wife. And a few months in, she started bringing a little girl with her. The girl has my daughter's exact walk, that slightly bowlegged toddle she still hasn't grown out of. In the dream they call her a different name too.
+
+I told myself for months this was just my brain recycling faces I love and putting them somewhere uncomfortable. Then three weeks ago, something happened that I can't explain away like that anymore.
+
+My real wife, my actual wife, asked me at breakfast why I never remembered our trip to the coast last spring. I stared at her. We didn't go to the coast last spring. I would remember that. She got quiet and then almost laughed, said okay, weird joke, and changed the subject. I let it go because I didn't want to scare her.
+
+Two days later I couldn't remember the name of the restaurant where I proposed to her. I have told that story to friends a dozen times. I stood in the kitchen trying to picture it and there was just static where the name should be, an empty space shaped exactly like a memory but with nothing inside it.
+
+That same night, in the dream, the nurse asked me if I remembered the name of the place I proposed to "her," meaning the woman with my wife's laugh, and I answered instantly, correctly, in detail, a restaurant name I have never heard in my waking life, a restaurant that does not exist anywhere I can find when I search for it during the day.
+
+I am losing pieces of my real life at almost exactly the rate that I am gaining detail in that hospital. I know the dream better than I know my own wedding now. I can describe the exact color of the linoleum in that hallway, but I stood in my own bathroom this morning and could not remember, for almost a full minute, what side of the sink my toothbrush goes on.
+
+My wife thinks I need to see someone, and she might be right, but that's not what scares me anymore. What scares me is that last night, for the first time, the nurse in the dream called me by my real name. My actual name, the one only my wife and my mother use, the one that isn't on any of my paperwork at that hospital.
+
+She said it like she'd always called me that. Like something on the other side finally noticed which version of me was supposed to be real.
+
+I haven't fallen asleep since. I'm typing this at 4am with my daughter's night light glowing down the hall, trying to remember what her actual laugh sounds like, and for the first time since this started, I can't be completely sure I'm not still there, describing this hallway to a nurse who already knows how it ends.

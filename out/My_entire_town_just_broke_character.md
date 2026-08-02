@@ -102,8 +102,6 @@ I entered just in time to hear Larry slide the lock on one of the stalls. I ente
 
 I didn’t get a chance to ask any more questions. Larry exited the restroom, leaving me to mull over his words. 
 
-
-
 I did exactly as I was told. I left the stall a few minutes after Larry and ordered a black coffee. 
 
 Larry seemed jumpy. He whipped up the coffee, shoved it in my hands, and almost forgot to take my money. 
@@ -208,7 +206,7 @@ All the color drained from my face. I didn’t respond. I walked out of that cof
 
 \*\*\*
 
-It’s been about eight hours since then. I’ve holed up in my house until I can figure out what to do. 
+It’s been about four days since then. I’ve holed up in my house until I can figure out what to do. 
 
 I’m not crazy. I’m not. I remembered everything. 
 
@@ -218,22 +216,4 @@ Please, someone help me. I think I’ve seen too much. 
 
 I’m terrified. I don’t know what they’ve done with Larry, but I have a feeling that I’m going to [be next.](https://www.reddit.com/r/HorrorJunkie123/)
 
-  
-  
-  
-  
-
-
  
-
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
