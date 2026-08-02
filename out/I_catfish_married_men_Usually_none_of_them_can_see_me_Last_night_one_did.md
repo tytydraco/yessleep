@@ -1008,4 +1008,4 @@ Then she pushed one pale hand through the back of his head.
 
 Her fingers came out between his lips.
 
-[She is using them to wave at me.](https://www.youtube.com/@ConnorIsaacWR/featured)
+[She is using them to wave at me.](https://www.reddit.com/u/ConnorIsaacWriter/s/WLKr5r9eog)
