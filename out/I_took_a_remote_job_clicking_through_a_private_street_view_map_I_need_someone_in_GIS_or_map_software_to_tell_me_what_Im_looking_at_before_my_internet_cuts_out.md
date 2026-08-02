@@ -194,7 +194,7 @@ Supervisor_David: The discrepancy in the spatial data. The element that does not
 
 He used my real name. Not my contractor ID.
 
-I just put it together. I am sitting here typing this and I feel like I'm going to throw up. Chicago. Phoenix. Seattle. Omaha. And even a random road in Pennsylvania. I just realized why that road in Centralia felt so familiar. My family got a flat tire on one of those backroads driving cross-country a few years ago.
+I just put it together. I am sitting here typing this and I feel like I'm going to throw up. Chicago. Phoenix. Seattle. Omaha. And even a random road in Pennsylvania. I just realized why that road in Centralia felt so familiar. I got a flat tire on one of those backroads driving cross-country a few years ago.
 
 The Aegis car isn't just mapping streets. It's mapping *me*. It's driving through my past. Chicago was my childhood. Phoenix was after college. Seattle was my old neighborhood. Omaha is now. It's driving down my literal timeline and it's erasing me from it. That's what David meant by cleansing the node. I'm the element that doesn't belong.
 
