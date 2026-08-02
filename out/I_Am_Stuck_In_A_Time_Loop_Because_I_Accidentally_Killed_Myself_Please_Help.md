@@ -1,0 +1,306 @@
+I'm stuck in a time loop for accidentally committing suicide and now my punishment is reliving the same day. I know, it sounds weird, I'll get into all the details as fast as I can. I bought a gun, as I'm a gun owner since it's my right as an American to own a gun. I have 7 guns already, one for each finger I can pick my nose with. I went through the process, and went through the whole verification steps required and it took a bit longer. It's an older gun, but I don't remember the name of it, I just know I didn't even have ammo for it which you might find dumb like “why wouldn't you already have ammo for it” and the reason is because I've been scammed before. You see the people who send the guns are “officials”, and twice now when a gun gets sent over they just took them and didn't reimburse me due to some loophole they had.
+
+  
+
+
+Anyways, I got the gun, and I was cleaning it the same day. There was this rust spot next to the trigger so I started wiping it with some Rust-Be-Gone and I somehow pulled the trigger. And then a shot went through my body… I checked it! I had already checked it, it was empty, no shell casing to be seen, no bullet to be grabbed, it was like a ghost bullet and it went straight for my… heart. I… I know I checked it thoroughly, I've been cleaning guns for years, I shoot them all the time and the residue needs to be cleaned out almost every time so the gun doesn't go bad. I checked the barrel, I checked the firing pin, and then I cleaned it. I was home alone, and even if I wasn't it was my heart that was shot so I had no chance to begin with.
+
+  
+
+
+You know the worst part? I was told by whatever entity sent me here, God knows how long ago, 2 years? 3 years? I don't know if I stopped keeping track of time since it didn't matter or if I just can't be bothered to. It doesn't matter either way I guess. Anyways the entity told me that I put the bullet in and then shot myself in the chest, but I don't remember having ammo for the gun, I never buy ammo until the gun gets here to avoid the issue of having ammo for a gun I don't even have. 
+
+  
+
+
+Because of my accidental suicide I am forced to live out my last day, but it's never the same as it was previously. I don't even die the same exact way, I mean sure I've gotten hit by cars numerous times, but it's NEVER the same car. Once I retraced my steps exactly as I did, times it perfectly to get hit by a red sedan with the license plate that spelt out LOVE with too many letters, only for it to be a school bus full of children with no red car in sight.
+
+
+
+I tried this several times just to make sure I wasn't wrong, but every time I die a little bit differently. One time I overdosed, another time I skydived and had a faulty parachute. Then I went skydiving again and instead of a faulty parachute I was gunned down because I was in illegal air force space. 
+
+  
+
+
+After enough time I noticed something, after the years I've been here I noticed that there's this thing following me that I can only see when I'm looking at it in my peripheral vision. I never noticed it before, it's always just out of range of non blurred vision. But I think it's getting closer, and at the same time I'm getting paranoid so I started writing this down when I found out THIS never changes, my notebook. Everything I write down stays in this notebook, and what you're about to see is my first attempts at posting this. All of them as of now posting this again. I'll leave this part out since it's all transcribed, here's are my responses I've gotten and the answers to them. Because I need help to figure out if I can stay dead. They are short and sweet as I only had 12 hours to wait for comments before something would kill me. I always wake up at the exact same time, 8:33 am, and write these down in a set time checking my phone and making notes of comments.
+
+  
+  
+  
+
+
+Entry one:
+
+  
+
+
+I was asked by a redditor last time if I had seen groundhog day, and yes I watched it twice, a couple more since I relive the same day over and over again with a different ending. 
+
+  
+
+
+Another one of you told me to… ahem, “kill myself 😇” and I tried that, I can't die by my own hands I don't know why.
+
+  
+
+
+And the third guy that replied told me to try to walk to the entity in my peripheral without moving my head… easier said than done as it stays the same distance from me as always, so I ask again what would you do in my situation? 
+
+
+
+To end yesterday off I electrocuted due to a toaster malfunction… it wasn't even plugged it.
+
+  
+  
+  
+
+
+Entry two:
+
+  
+
+
+7 people replied last time I posted this, well I guess this is my first time posting this now but thank you for your adequate support of telling me to kill myself you 5 people that didn't read or care last time. As for the two of you that gave other advice, I tried it out. And no, to the 3 of you suicide people it wasn't a prank. But you won't ever know that would you 
+
+  
+  
+
+
+One of you guys told me to try to acknowledge it, specifically shout out its features so it knows that I am talking to it. Unfortunately it didn't work and it just left my vision until I stopped trying to notice it. This went on all day while I tried the second thing.
+
+  
+
+
+The second one of you told me to try to get to an enclosed area or a wide open ocean! Clever, very clever. It didn't work as it just left my vision until I died again. And if you're wondering, yesterday I died due to moldy spaghetti-os. I don't know how it happened but I ate them and woke up and started typing this all out yet again.
+
+  
+  
+
+
+Entry three:
+
+  
+
+
+Hi it's me again, well for you guys it's the first time you're seeing this. Last time 5 different people commented, and I've tried 3 of the 4 things that were helpful. I don't appreciate the user that suggested I swallow dandelions and pray to shura, but I might give it a go if the fourth method doesn't work today/tomorrow. I decided to post this in different places on the Internet, this time it's this a random story board place, previously I was banned but since today is a new day version of today, I'm trying again.
+
+  
+  
+
+
+The first commenter suggested I try to avoid dying by any means necessary, I'll explain how It didn't work later, but it did make me last the longest of any attempts previously. Thank you.
+
+  
+
+
+The second suggestion was to find a psychic to tell me how I die, I thought it was stupid but the psychic kicked me out after she realized I was living the same day over and over again. She bled from the nose and eyes as she kicked me out. I don't know what that means.
+
+  
+
+
+The 3rd response broke a rule I found out early on, which is weird because the second option…. Didn't. And neither does posting about it.
+
+
+
+The 3rd was trying to find anyone else stuck in a time loop that died on the same day, but as previously mentioned I can't predict what will happen no matter the circumstances as it just changes if I try to keep stuff the same. But I still have it a go, looking for any cold homeless people, finding clubs where people do drugs, and see if anyone has similar deja vu that I do, and I thought I found someone.
+
+  
+
+
+The rule it broke was that I cannot tell people I'm going to die before the day ends, specifics do matter. If I say “hey I might die today” that's not specific enough, but if I say “hey I'm going to commit some sort of accidental suicide” or something similar I have a heart attack and a brain aneurysm simultaneously, which as you could imagine, puts me to the ground and into my bed in seconds.
+
+
+
+Back to finding someone, I checked the same spot numerous times and they looked for me as well! I thought we were in a loop together until I realized they only knew my name because I worked at a store they shopped at. They weren't even actually looking for me either, it was all just coincidence and drug induced hallucinations. It kinda stung for a while so after a few days of hard drinking and killing my liver I'm back here posting that the thing got a full foot closer.
+
+  
+
+
+How am I measuring it? There's a place in the outskirts of town where there's a bunch of colored lines on the ground, each around 13 inches from each other. Over 500 lines, they call the art project "Shadows of colors” or something stupid like that. I've been using it for a while and so far I have a good estimate of how far it is from me. It moves about half a foot closer each week, and right now it's a bit over 300 lines away from me. It's hard to tell as it's in my peripheral 90% of the time, but I can sometimes stare at it as if it's in front of me, as if it's taunting me. I want to describe it as best I can, but it doesn't have a proper face. It's blurry, like it's in motion while somehow being still.
+
+  
+
+
+It's tall, 9 feet if I had to guess, white in the light, black in the dark, but always visible when my eyes are open. Always there. I would have gotten more information if I didn't trip and fall face first into an exposed metal pipe and get an eye socket full of pain. That brings us to the final option given by another commenter.
+
+  
+
+
+This commenter asked me why I don't just recreate the exact same suicide, the that got me into this position. The answer is simple, I'm waiting until the gun arrives again. Every day is different since day one, but the second I get my hand on that gun I'll go and buy ammo and see if the reason it never came is the same way I get out of this hellscape.
+
+  
+  
+
+
+Until next time, I hope some people read this and comment helpful things. Oh and the reason I can't avoid dying, even if I stay home something happens, whether it be a house fire, or the ground beneath me caves in and I fall, I cannot escape death no matter what I've tried.
+
+  
+  
+  
+
+
+Entry 4:
+
+
+
+Yesterday, well technically today I tried to ask talesfromthecreeps and I got some options to go through from there. But nothing helped, 6 different things and none of them helped.
+
+  
+
+
+The first option, Try to summon a demon. Before this I believed spirits and demons should under no circumstances be summoned or attempted to be summoned, but I gave it a shot anyway. I died mid summon, so I tried it again with the same outcome. I don't think the demons have any authority to help me.
+
+  
+
+
+The second option seemed like a joke originally, but I still tried it as I'm running out of ideas, might as well right? Basically it was to have a priest come over and bless me. And it was decently costly, but I did feel a bit more light on my body. Until 11:55pm struck and I keeled over and vomited blood the same day.
+
+
+
+The 3rd and 4th options I did back to back, one was yet again trying to talk to the being, using different languages. So I learned small amounts of new languages over the course of a week and was able to get 12 different sentences from languages asking if they could understand me. 
+
+Nothing happened so I started chanting Christ's name in Latin and it still didn't flinch. I tried apologizing to the being, but nothing.
+
+
+
+Option 5. Ignore it completely, don't make any eye contact towards it. I did this for two days and then I saw it move its arm. Quick, very very quick, it jolted me enough to look at it but it was already back in its position closer than it had ever been, it moved 4 whole lines in one motion putting it at 293 lines away from me. When I counted the 293rd I took a step back. It took a step forward, it was visible to see it step this time, but only this time, at least at this moment. I don't remember how I died but I woke back up in my bed, 1 minute later than I ever had before, 8:34am.
+
+  
+
+
+Option 6, shoot it. I didn't try this but I don't think it'll work. I'm scared to try it after yester-today. I don't want it to move closer, it was going slowly and it let me witness it walking towards me. I don't even know what it wants, I don't know if this is hell or what happens if it gets close enough, or if it even will get close enough. What if it's a good thing? I don't know, I'm terrified.
+
+  
+  
+  
+  
+
+
+So now I'm trying it here next, I know it doesn't fit here in the life advice subreddit, but please I need your help. Has anyone encountered this before? Is there anything I can do? Any help is appreciated, please I'm begging you!
+
+  
+  
+  
+  
+
+
+Entry 5: 
+
+  
+
+
+I got no responses last time I posted. It got taken down and I didn't know until it was too late to re-post, and I tried again to no avail, even when it stayed up I got generic responses like “This isn't real, that can't happen” not a single helpful response. So I decided to shoot it. And yes, it moved closer.
+
+
+
+To tell you exactly what happened let's start with today, I woke up a minute earlier, this has been happening every time now. 1 minute earlier it's up to 8:45 now and the shadow being is moving at 2 lines a day. From the last time I wrote stuff down at 293 to now at 232. This is news, it isn't good or bad, but it's news. I know the math doesn't make sense yet, but you'll understand soon enough.
+
+  
+
+
+I got up and made the post, I did it 6 times to different subreddits but it started getting taken down for any time I can make up in my head like someone else on the Internet can. So I posted to Facebook and it was taken down due to “self harm” . I tried various platforms but either the word count was too high, or I broke a rule, or it just didn't work, causing me to have issues everywhere I went.
+
+  
+
+
+So after many failed attempts I took one of my guns and walked around the town. I had a cheeseburger with extra pickles. They don't tell you this enough but when you've eaten the same meals for enough time, they get boring. Pepsi started tasting like water and water started tasting like heaven. Coke tasted rancid after the first month of deciding I was given a second chance and explored some random combinations of drinks, enough coke and I was tired of the bubbly beverage being brought to me.
+
+
+
+After lunch I walked to an abandoned part of town, a place I used to be scared of, a run down mill with some rope hanging off its high ceiling rafters. A family of five committed suicide here at some point, two older gentlemen, their teenage son, wife, and grandfather. It was always suspected that someone forced them, making it an assisted suicide murder mystery.
+
+
+
+I made it to the field where the lines were, aimed my gun, and fired. And to my surprise I hit it directly, it took a step back from the force before looking at me, at least I assume it looked at me. And then it took a full 2 lines step closer. I shot it again. Closer. I kept firing until a police officer behind me told me to put my hands up. Then I kept firing until the officer put me down himself. 
+
+
+
+When I woke up I went and did the same thing, it took a full line to 2 line steps towards me every bullet. From 293 to 292. 292 to 290. 290 to 288. 288 to 287. And so on and so forth until I counted to 240 and shot myself, gun clicked but no bullet. In my haste I forgot I can't kill myself this way. I aimed it at the officer pulling his gun and shot him. He shot me back twice, and I woke up once more.
+
+  
+
+
+4 days later I'm here again, this time posting it here on scarystoriestotellinthedark. Do any of you have any suggestions that I haven't written about yet, that you think might help? Any advice would, or might, help.
+
+  
+  
+
+
+Entry 6:
+
+  
+
+
+Days, no,  weeks passed between this entry and me posting for help. 3 weeks in fact. Bringing us from 232 to 190 lines. It has a face now, it has my face. Your face. Her face. His face. It changes every time I look, Every time it moves its mouth, every time its whispers are shouted and its shouts are silenced. It says too much and not enough. It's driving me insane.
+
+  
+
+
+It's like looking at a time at a show when they mouth and hand motion as if they are eating food. No one else can see it, touch it, feel it, move it. They move through it as if it isn't there. Yesterday I watched it move through a wall when I was drinking a black cold brew Starbucks coffee. I already knew no one else could see it or notice it, but it gave me a weird sense of how you know?
+
+  
+
+
+I mean I shot the friggin thing, how come other stuff moves through it with ease but it… took bullets.
+
+  
+
+
+Then it hit me, the post I made, it was 6pm I needed to check it and to my surprise I got 8 replies calling the story awesome but 1 person took it seriously. 
+
+
+
+User: *Wait for it to get close enough and then shoot it through its head more accurately. Or have a priest come back and tell him to bless the room of any demons, so if it is one the priest can get rid of it with an exorcism. My guess is the first priest wasn't a true faith believing priest as priests should be able to tell if a demon is in your vicinity. Worst case scenario you could track down where that gun is and grab it, and maybe use that gun to kill it or shoot it or whatever?*
+
+
+
+It gave me great ideas, the next time I woke up I'd track down the seller of the gun and find out how he sent it to me, which company.
+
+
+
+I also decided to try to get the thing closer to me by shooting it again and having a priest do the exorcism in the room but before I enacted any of those plans I had another reply. 
+
+
+
+This user suggested just going across state lines and getting an hour or 2 back. And no I'm not trying that because the next time zone is 3 hours away. It wouldn't really help in any way other than probably causing me to crash and die an agonizing death.
+
+  
+
+
+So I got in contact with the gun seller and found out the tracking code for the name of the company sending it, which I will not post here for obvious reasons.
+
+
+
+Turns out my new gun made it to my house today. Well, yesterday, because when I got up from the coffee table the Starbucks got robbed and of course they saw my gun I had on me and shot me to dissuade me from grabbing it, but they hit a main vein in my leg and I bled out.
+
+  
+  
+
+
+It doesn't matter, I knew the tracking number and it was two hours from my house, so I expertly tracked it down, rather I got lucky. I'm not good with technology apart from writing this so many times, but I got the gun and went to the lines. Something I noticed this time, this gun had a bullet in the barrel. I did look it up as well and it's an old timey colt made in the later 1800s, in really nice condition but for some reason despite this one being used for .44 the bullet was a .45, hence how it was in the barrel and not the actual chamber. 
+
+
+
+Because of this, it got me in the heart when cleaning. I was cleaning the rust so fast that when my finger slipped to the trigger it pulled it all the way back, paired with the already cocked hammer from checking it out and… well I'm in this mess.
+
+
+
+That one bullet. I got to the lines, I aimed the gun at the shadowy being. Cocked the hammer, and pulled the trigger.
+
+  
+
+
+I woke up in my room again. I don't know how I died. I don't even think I did die. I went to the lines and I noticed the thing was closer, it shook its head at me before stepping impossibly 6 lines at a time, bringing it to 100 lines. It was blurry again, I don't know how it was blurry again, it was less than 120 feet in front of me, how the hell was it blurry?
+
+  
+
+
+I went home, I kept staring at it, it wasn't in my peripheral vision anymore, it stayed in my sight, clear like stained glass windows on a church, staring at me with its featureless and too featured blurry face. I can't find a priest willing to come to my house other than the one I did the first time, but I fear it doesn't matter anymore, I could hear it walking around, it opened doors. And now it's standing no less than 50 feet away from me. Its face is moving as if it's speaking but no words are coming out.
+
+  
+
+
+I don't think this is the best subreddit to post this, but please nosleep , what do I do now?
+
+  
+  
