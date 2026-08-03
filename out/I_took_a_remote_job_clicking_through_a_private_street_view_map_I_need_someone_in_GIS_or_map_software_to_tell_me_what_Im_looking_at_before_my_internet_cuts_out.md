@@ -235,3 +235,5 @@ I have to go. I'll update if I make it through the night.
 **Edit:** A car door just slammed outside....
 
 **Edit 2:** The fan noise from the Taurus got louder. Vibrating the floorboards. Something's on my porch steps. Posting this now, I'll update when I can.
+
+**Edit 3:** I can't post the second part here. Every time I try, the connection drops or the text just vanishes. My digital footprint is being wiped. The only place the text would actually save without deleting itself for now is directly on my personal profile. [You can read Part 2 here.](https://www.reddit.com/user/nocturn-e/comments/1vehngn/i_took_a_remote_job_clicking_through_a_private/)

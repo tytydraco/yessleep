@@ -1,12 +1,12 @@
 The federal compliance demand didn’t come with a price tag or a demand for a quiet settlement. It just arrived on a single sheet of heavy stock paper left squarely on my desk when I was out of the room:
 
-"We know about the federal violations regarding the subsidiary routing logs. No money. Just sit down with us in the forty foot mahogany conference room."
+"We know about the federal violations regarding the subsidiary routing logs. No money. Just sit down with us in the Mojave T conference room."
 
-As the CEO of a multi billion dollar infrastructure firm, people usually pay me to make compliance disappear, or they threaten me with indictments. But this was different. There was a sickening, clinical weight to it that bypassed my security detail entirely.
+As the CEO of a multi billion dollar infrastructure firm, I usually pay people to make compliance disappear, or they threaten me with indictments. But this was different. There was a sickening, clinical weight to it that bypassed my security detail entirely.
 
 When I walked into the forty foot mahogany conference room on top of the building, the heavy oak doors clicked shut behind me with the finality of a submarine hatch.
 
-He was already sitting at the far end of the vast, polished table. He didn't look like a federal investigator or an executive. He just looked like a regular guy, with black, slick back hair, and a cheap no point to prove smile. He wore a wrinkled, cheap suit that looked like he'd slept in it for a week. On the blotter in front of him sat a styrofoam container of greasy diner food, cold fries swimming in a pool of congealed grease.
+He was already sitting at the far end of the vast, polished table. He didn't look like a federal investigator or an executive. He just looked like a regular guy, with black, slick back hair, and a cheap no point to prove smile, which would vanish much sooner than later. He wore a wrinkled, cheap suit that looked like he'd slept in it for a week. On the blotter in front of him sat a styrofoam container of greasy diner food, cold fries swimming in a pool of congealed grease.
 
 He didn't greet me. He didn't tell me to sit. He just slowly, deliberately picked up a lukewarm piece of food, bit into it, and stared at me.
 
@@ -72,7 +72,8 @@ For a terrifying minute I sat frozen, before my panic won out and I trembling di
 
 The phone slipped from my numb fingers, clattering loudly against the floorboards before the call disconnected. I couldn't breathe. I bolted from the building, bypassing my office entirely, and drove out blindly to my favorite spot to decompress and relax, a remote, secluded clearing in the woods that I grew up going to as a child to get away from the world and be in the present moment.
 
-As I sat there in the quiet solitude trying to steady my shattered nerves, a homeless man suddenly tapped sharply on my driver-side window, startling me out of my daze. He muttered that the local coffee shop had one dollar deals fifteen miles down the road.  
+As I sat there in the quiet solitude trying to steady my shattered nerves, a homeless man suddenly tapped sharply on my driver-side window, startling me out of my daze. He muttered that the local coffee shop had one dollar deals fifteen miles down the road.
+
 "Is the tab paid, or is it on the house?" I asked, my voice shaking.
 
 The man ignored me entirely, turning away into the trees. Driven by a hollow, mechanical compliance, I started the engine and drove the fifteen miles out to the coffee shop.
@@ -98,6 +99,8 @@ Looking into my father's cold, knowing eyes, the horror settled deep into my bon
 
 I felt a sense of incalculable dread. Knowing that I would have to be the one to join teams, helping the same entity that visited me for the revealing compliance demand and heavily orchestrated key parts of my life. But now this time it’s for my beloved daughter.
 
-In a world where I thought everything was crystal clear, I officially lived up to my grandfathers nickname for me.
+I couldn’t help but think — what else in my life was an organic coincidence… or just cold calculation?
+
+In a world where I thought everything was crystal clear, one thing was for certain. I officially lived up to my grandfathers orchestrated nickname for me.
 
 Stained Glass.
