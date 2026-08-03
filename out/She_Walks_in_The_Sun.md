@@ -1,0 +1,319 @@
+I met her in a terrible season.
+
+A season of struggle and war and heat — the castle guards had been recalled to the shade of their barracks, the horses banned from the sizzling cobblestone streets, the alleys filled with misters designed for cooling but unable to bear the brunt of a terrible summer. The Gothic City was melting, and I was saddled with a steady barrage of noon shifts to feel the burn of the sun.
+
+Our *Prague’s Essential Tour of The Old Town and Jewish Quarter* was no longer essential. Where once the tours would be twenty-thirty strong, I was lucky to get eight travelers. The tourists would rush through the historical section of town and cool down by the river with beer and paddleboats and joints. They took their money with them. All I was left with was red skin, exhaustion and the shrapnel of coins.
+
+She caught my attention the moment I saw her walking down the dividing line between the Old Town and the New Town. Auburn hair, shades, dusty sneakers and a light flowery dress that prodded the imagination. Her first words were the most beautiful thing a tour guide can hear.
+
+‘I’m here for the Old Town tour, but I don’t have a reservation. I hope that’s not an issue.’
+
+A warm body which I don’t have to pay dues for. A beautiful body to boot.
+
+‘No issue at all,’ I said, pretending to make a booking on my phone. ‘Just give me a name to pop into the system.’
+
+‘Slunecka,’ she said. ‘Are you sure it’s not a problem?’
+
+‘Not a problem at all, Slunecka. Welcome to Prague. Where ya from?’
+
+‘Poland.’
+
+‘Ah! My mom’s Slovakian, from near the border. Spent a lot of time in Zakopane when I was a kid.’
+
+‘Tatra Mountains.’ Her thin lips gave the slightest impression of a frown. ‘Too cold for me. I like the sun.’
+
+‘Well, I’d take a bit of that mountain air today.’ I wiped the sweat from my brow, hoping for a laugh. Not getting one, I launched into my usual spiel. ‘Well, Slunecka, we officially start at noon, but realistically noon o’ five for the folks that are running late. There’s a mall over there with a bathroom and a Rossman over there with water. Just be back here at noon. You can go wait in the shade if you want.’
+
+‘That’s fine.’ She looked up at the blazing star in the sky. ‘As I said, I like the sun.’
+
+She waited for the tour to start a couple paces away from me, basking in the light. The humidity from the nearby mister sat on her bare shoulders like morning dew on freckled grass.
+
+The rest of the tour was a trainwreck. Two hungover Irish girls that departed without tipping during the break, an uninterested Indian family with Star Wars themed personal fans and a middle-aged American couple that seemed to be in the midst of an uncomfortable stalemate from an argument that had probably been raging since Vienna. At best, the rest of the tour was half-interested in what I was saying. Only Slunecka seemed to actually be paying attention.
+
+After the two Irish girls left during the break, I decided to cut the tour short. Instead of covering the Astronomical Clock and the Jan Hus statue in the shadeless Old Town Square, I took the group through the quiet gothic streets to the Church of St. James The Greater.
+
+The cold stone walls of the church gave some respite from the heat outside. Quietly, I explained the history of the structure to my group and pointed out the fake arm that hangs by the entrance. Legend has it the arm belonged to a thief who tried stealing a golden necklace from the stone statue of The Virgin Mary who grasped him and wouldn’t let him leave. Genetic testing has it the arm is merely a collection of wood, animal bone and cloth.
+
+I was more than happy to give the group another five minutes of picture taking, but just as I was about to set the time, the doors to the church opened and more visitors entered — a headphones wearing group of Chinese tourists bigger than any congregation St. James has seen since the turn of the century.
+
+The body heat was stifling and all the flash photography was driving me dizzy. I told everyone to snap their final pictures and meet me outside. The sole spot of shade outside the church was taken up by the Chinese guide, delivering information about the church into the microphone in between puffs of his cigarette. The Indians and Americans were quick to leave the church, but after two minutes of breathing cheap tobacco, I ventured back into St. James to retrieve Slunecka.
+
+I found her standing beneath the arm, looking up in awe. When I told her it was time to go, she apologized and left without further incident.
+
+‘Sorry,’ she said, as we pushed our way past a mass of sweaty Chinese bodies. ‘Just found the story really interesting.’
+
+I finished off the tour by the Rudolfinum. The glare of the bright square outside of the philharmonic made it difficult to not squint my eyes, but I did manage to shelter the group in the shade of the nearby trees. By the time I was done talking about the Prague uprising against the Nazis, I was slurring my words with heat exhaustion.
+
+Slunecka was the last to tip me. She gave me a crisp, cool 10 euro note that I promptly deposited into the pocket of my sweaty shorts. She said she thoroughly enjoyed the tour.
+
+‘Any final recommendations or directions I can give?’
+
+‘Yes,’ she said. ‘Do you have any beer recommendations?’
+
+‘Of course, I do. Unfiltered Staropramen, personal fave. They serve a really good one around the corner. Always have one after a tour. Do you want to join?’
+
+She did. As we weaved through groups of tourists on the main streets, I found myself watching her body sway under the flowery dress.
+
+‘*Na zdraví!*’ I said.
+
+‘*Na zdrowie!’* she replied.
+
+I took a healthy four gulps of my beer, notching it down a quarter. Slunecka took a calm sip. ‘Always find myself parched after yelling for three hours in the sun,’ I said, noticing the discrepancy. ‘Anywho, how long are you staying in Prague for?’
+
+‘A couple of weeks,’ she said, smiling. ‘I am doing a course in Central European Folklore at the Mesiarik University.’
+
+I’ve been a tour guide for over a decade. Attractive travelers who stay in the Gothic City for weeks at a time have oft been a soothing balm in the heatwaves. I shot my shot.
+
+‘A couple of weeks is great!’ My phone flew out of my pocket like a pistol in the Wild West. ‘A lot of folks think they can see Prague in three days. They’re wrong. Want to give me your number? There’s a lovely underground music jam that I go to every Sunday —’
+
+Her smile drew tight. Bad guide. Too eager. Too soon.
+
+‘I found the story in St. James fascinating,’ she said, her face relaxing.
+
+Peace offering. I took it. My phone disappeared into my pocket.
+
+‘Fake arm, eh?’ I said, steading myself back into tour guide mode. ‘Pretty interesting. St. James is probably the most famous church with a fake arm, but it’s a prominent medieval story. Thief goes in, middle of the night, tries to steal something, statue comes to life, grabs. He’s stuck. In the morning, first worshipers come in and he’s caught. No one can get him out though. Luckily for him, the butcher’s guild is around the corner. They have all the tools necessary to —’
+
+I made a cutting motion. She laughed and followed the laugh with more Staropramen. I considered myself back in the race.
+
+‘Moment the arm falls to the ground, the statue goes back to its original position. Thief runs off into the streets never to be seen again. Church chucks up the arm as a warning for other potential criminals. Change the city, change the statue, change the details — same story all across the continent. Now, obviously, no statues came to life.’
+
+‘Obviously.’ Her smile grew just a tiny bit tighter.
+
+‘But keep in mind, this is, like, the 1300s. Critical thinking isn’t taught in schools. There are no schools. People don’t know how to read and write. Churches with these stories and fake arms, however, get robbed a lot less than other churches in the area. It’s the cheapest security system possible. You trick these peasants into —’
+
+‘*Trick?*’
+
+Slunecka’s smile tightened and then completely disappeared. I considered myself back out of the game. The summer heat makes one sloppy. Perhaps, sensing my discomfort, her face eased and she launched into an explanation of her own.
+
+‘I wouldn’t use the word *trick*.’ With another sip of beer her voice was sunny once more. ‘Like you said, not a lot of education in the olden days. Folklore and legends and even religion serve as a means of delivering important advice to the illiterate. The collection of wood and animal bone is just a physical manifestation of good advice.’
+
+‘What’s the advice?’
+
+‘Don’t steal from churches. Especially when the catholic church runs the continent.’ She took another sip and I took another three. ‘There’s better examples in folklore though. We have these in Poland, I don’t know if you have them here. Do you know *Vodník?*’
+
+Roughly translated, water goblin. Green-skinned men in suits who live in rivers and lakes capturing the souls of nearby travelers in mason jars so that they can be their slaves until the end of time. In Czech folklore, always shown smoking a pipe.
+
+‘Of course, I know *Vodníks*,’ I said, digging my phone and vape out of my sweaty pockets. As I opened up image search, I set up my punchline. ‘Do Polish *Vodníks* smoke?’
+
+‘What? No. They live under water.’
+
+‘You know how bad nicotine addiction is in the Czech lands?’ I showed her a folk picture of a frog faced man smoking a pipe. Then I took a hit from the vape.
+
+The rush of tainted water vapor made me slightly dizzy and the battery was clearly overheating, but the puff got a laugh out of her. For a moment her leg brushed against mine. Score. Hoping to eventually catch her contact, I kept my phone on the table.
+
+‘Just about every culture has some sort of a water spirit that preys on the innocent. Keeps the children from playing alone by wild water.’
+
+‘Interesting,’ I say. ‘Same goes for the *Rusalka*, I reckon.’
+
+‘Sure, although *Rusalkas* and sirens do have a secondary lesson.’
+
+‘And what would that be?’
+
+‘That men shouldn’t follow beautiful things to places where they don’t belong.’
+
+As she said this, she leaned her elbow on the table, getting closer to me. I nudged my phone to the side and followed suit. ‘Interesting,’ I said. ‘Do you have a favorite folklore character?’
+
+‘I do.’
+
+She had already leaned closer to me, but asking the question put a fire in her eyes.
+
+‘We call her *południca*, noon-wraith in English.’
+
+I polished off my beer and got to my feet. Her mug still had a bit left in it, but there was a line at the bar. I asked Slunecka if I can get her a beer in exchange for hearing about the noon-wraith. I presumed things were going well, and I was asking about the beer as a formality, but the woman shook her head.
+
+‘It’s getting late,’ she said. ‘I should go home.’
+
+‘Well, if you’re in town for a while we could grab a drink by the river someday. Want to give me your number?’
+
+Her smile didn’t tighten this time. Instead, she looked up at the sky. ‘Do you know why peasants feared the noon-wraith?’ she finally asked.
+
+‘Because she killed them?’
+
+‘No.’
+
+‘Why then?’
+
+Her eyes met mine. That bright light was still there.
+
+‘Because they kept meeting her.’
+
+And with that, she got up, adjusted her dress and went off on her way.
+
+ 
+
+I woke so late the following day; I barely made it to the tour on time. My throat was perpetually parched, there was a terrible migraine throbbing in the back of my skull and I felt beyond exhausted. Seeing my line-up of customers did little to lift my spirits.
+
+Two humorless German siblings, an obese Norwegian man who breathed exclusively through his mouth and an old Canadian woman with a thick Soviet accent who seemed to be confused about what city she was in. I stumbled through my opening speech, accepted the reality of another three-hour punishment and mumbled a little prayer for the city to give me shade.
+
+The long boulevard of Wenceslas Square was blisteringly hot and bright and flowed with sweaty shoppers. The trees near its base, however, were available. In their shade, I started to string together my words to introduce the tourists to a basic history of the Czech Lands.
+
+I had long broken out in a sweat and the frozen water bottle I had taken from home had already turned lukewarm. There was nothing I wanted to do more than avoid sunlight at all costs, but then, in the glaring brightness of the center of the square, I saw a familiar face.
+
+The sunlight had turned her hair a strawberry blonde and the heat had made her put on a shorter dress, but I recognized her immediately — Slunecka. She stood in the middle of the square, alone, staring up at the sun. Yet, as soon as I recognized her, as if she could read my mind, she turned to face me, waved and took a couple steps in my direction.
+
+Without thought, I waved back. She smiled at me, standing still.
+
+There was a tightness in my chest and a discomfort in my stomach that I knew far too well from previous heatwaves. I knew it was in my own best interest and the interest of my tips to stay in the shade, but I could not resist. I took a couple steps into the sunlight and beckoned my group to follow.
+
+The mouth-breathing Norwegian quickly protested. He wanted to stay in the shade. I told him we couldn’t see the National Museum from the shade. With a phlegmy grunt, he followed the rest of the tour. Three minutes later, he insisted we get back in the shade. When I told him I was not done talking about the National Museum, he let out another terrible sound and stomped off.
+
+I had lost a fourth of my tour, but in return, I gained Slunecka. As I spoke about how Jan Palach set himself on fire outside of the museum after the 1968 Soviet invasion, she beamed. Her eyes seemed brighter than the day prior.
+
+When I set out of my apartment in the morning, I was pretty sure I would cut the tour short with another visit to St. James. When I saw how uninterested my group looked, I was certain. Fearing that Slunecka would leave if I covered history she heard before, however, I took the tour to the crucible of the Old Town Square.
+
+There was no shade. What little respite there was outside of the overpriced restaurants was taken up by obnoxious high-school groups and loitering British stag parties. The Germans looked more displeased than when they arrived at the tour. The ancient Canadian wandered off into the crowd. Only Slunecka seemed to be enjoying herself.
+
+She laughed as I told the legend of how the councilors of Prague blinded the man who designed the astronomical clock so that he would never grace another city with his creation. She hung on every word as I explained that the legend is prominent in cities with intricate clocktowers.
+
+All the artisans went blind. Not because of armed men with knives, but because they worked on complicated mechanisms underground by candlelight. A handful of centuries later, only one of the stories stays memorable.
+
+At the end of the tour, she gave me another crisp ten euro note. She said yesterday’s tour was good, but that I had outdone myself with this one. She only wished we could have stayed in the Old Town Square longer.
+
+‘I need a beer,’ I said, depositing my namebadge and license into my sweaty pocket. ‘Same spot as yesterday. Want to join me?’
+
+‘How about a beer garden?’ Slunecka pointed up towards Letna. In the glare of the sun, I could barely see the metronome on top of the hill. Slunecka didn’t even squint.
+
+There was an ambulance at the foot of the stairs leading up to Letna hill. They were treating a man slightly older than me. Blood was still oozing from the side of his skull. Not a dozen steps up the hill, was the spot where he fell. In the heat, the blood had already dried.
+
+As we made our way up, the familiar discomfort returned to my lungs and stomach and skull. I could hear a faint ringing in my ears. Were I making the journey with anyone else, I would have asked for a break, or gone somewhere indoors instead. As much as I heaved up the stairs, however, I didn’t complain. I didn’t want Slunecka to think me unfit. The shortness of her dress kept my steps motivated.
+
+When we reached the beer garden, I wanted to sit in the back by the shade of the trees but Slunecka insisted we go to the edge of the lookout. She said she wanted to get a view of the city, but when we sat down she barely spared Prague a look. She kept her eyes to the sky.
+
+‘*Na zdraví!*’ I said.
+
+‘*Na zdrowie!’* she replied.
+
+I found my hands shaking. It wasn’t until my beer was halfway done that the quiver went out of them. Before we could fully get to talking, I found my mug empty and my throat still parched. For a while I stalled, fearing that she would leave again, but once my throat was dry enough for my voice to struggle, I asked her if she wouldn’t mind me getting a second beer.
+
+She searched me with her bright eyes, leaning in. Finally, she asked if I could get her one too. She wanted to try the *Černý Kozel*, The Black Goat — they had the blonde version back in Poland, but she had never tried the black one.
+
+At the promise of another beer with Slunecka, I leapt to my feet and stumbled my way to the beer line. I was optimistic about getting her number this time, about possibly seeing her somewhere cool and dark and private. As I stood in the line, I imagined spending time alone with Slunecka. Out of my sensual daydreams, I was roused by an arm clasping my shoulder.
+
+It was my manager, Pepa. He recognized me by my hat, and was happy to see me indulging in my birthright, but one look at my face turned him somber. I looked horrible, Pepa said. Such is the fate of the umbrella foot-soldier during the month of August, I replied. It was him, after all, that scheduled me for all of those noon tours in a row.
+
+Pepa apologized and insisted that I take the day off tomorrow. Dylan, my colleague, had been asking him for extra shifts. He would put him on the next noon tour and give me some time to rest. Pepa suggested I skip my beer, get water instead and head home to sleep with the curtains drawn. I told him neither the water nor the shift change would be necessary and then sped off back to Slunecka.
+
+‘You do anything fun after the tour yesterday?’ I asked, once I had put a dent in my drink.
+
+‘Walked around,’ she said, her eyes twinkling in the sunlight. ‘Prague is a beautiful city during the day.’
+
+‘What about in the evening? You go out?’
+
+‘No.’ Her face levitated on the edge of offense. ‘Nights are for sleeping.’
+
+‘Tell me about it. With this heatwave I pass out the moment I get home. There is this lovely music jam on Sunday evenings though that I—’
+
+‘Is that bag heavy?’ she pointed to my backpack. I lugged it on my lap and let her have a weigh. Her slim arms buckled under the strap. ‘Wow,’ she said. ‘What do you have in it?’
+
+‘An extra umbrella, some bandages, a book, a hoodie, painkillers,’ I said, taking pride for being prepared for any situation. ‘The extra water is what makes it heavy though. Can’t go without it in this weather.’
+
+‘Is it worth the back pain?’ She leaned in. Her slender fingers brushed up against my sweaty shirt. ‘Would you like a backrub? I took a masseuse class freshman year.’
+
+She had been holding a cold beer. I expected her hands to be cold. They weren’t. The warmth of her fingers felt discomforting on my already sunburnt skin. Yet, I did not stop her. Her touch was tender and her fingers occasionally slipped down to my chest. As she massaged me, she straddled the bench and moved in closer. I could feel the warmth of her chest against my back.
+
+‘That felt really good,’ I lied. ‘I’d love to return the favor when I’m not exhausted and sweaty. Could I get your number?’
+
+‘No.’
+
+The response came without any hesitation. ‘Ouch,’ is all I could get out of me.
+
+‘You’ll survive,’ she said, smiling. ‘The sun rises every morning.’
+
+And with that, she threw her leg across the bench, adjusted her dress and left me alone with a half-drunken beer.
+
+ 
+
+Blood red skin. Eyes as if I’d cried the whole night. The thought patterns of a drunk with head trauma. When I woke the following morning, I was in a terrible state. It wasn’t until I arrived at the meeting point for the tour that my mood reached a boiling point.
+
+Dylan, with his stupid glasses and long-brimmed hat and chipper attitude. The moment he saw me his perpetual grin turned manic. He waved at me like I couldn’t see him.
+
+‘Hey, bud!’ he yelled, in his grating American way. ‘Not here for the tour, are you? Pepa told me to take over. Said you weren’t handling the heat well and by the looks of it… Woof. Have you been using sunscreen, man? Go get some rest. Don’t worry. It’s just a booking of three. You’re not missing out.’
+
+Rage boiled in my chest. I told him I was fine. When he insisted that I go home, I told him that I needed the money and that I did not need Pepa thinking I can’t handle the heat. Truth be told, I knew that the money from the tour wouldn’t be worth the effort. Perhaps, somewhere deep in my burnt-out skull, I knew that it was a good idea to rest — but I didn’t want to.
+
+I didn’t want to miss out on another chance to meet Slunecka.
+
+I didn’t want Dylan to meet her in my stead.
+
+My arguments about money and respect fell on deaf ears. Instead, Dylan offered me sunscreen and water. When my words would not convince him, I used force. The first couple of shoves left him laughing in confusion, but when I started waving around my umbrella his smile broke.
+
+In a trembling voice, Dylan suggested calling Pepa for guidance about the shift. With one swipe of my umbrella, I knocked the phone out of his hand. With one lash across his face, I sent him scouring down the sundrenched streets like the coward that he is.
+
+My fight with Dylan had damaged the clasp of my umbrella beyond improvised repair. Instead of waiting for the tourists in its shade, I was left holding it folded in the air.
+
+Of my customers, I also recall little. I did not care for their nationality or age or gender. They were simple set dressing for another potential meeting with Slunecka. Instead of starting off the tour in the shade of the trees, I stood at the center of the Wenceslas Square where I had met her the day prior.
+
+She did not show. Even the usual throngs of shoppers had simmered down to a couple of annoyed looking couples from the Middle East. I did not let her absence rattle me. Instead, I yelled my facts louder, straining my parched throat, hoping that she would hear me and come to me.
+
+During the midpoint of the break, my group chose to relax in the nearby air-conditioned mall. I did not. Instead, I roamed the shadeless, empty square which once served as a fruit market.
+
+That’s where I found her. She stood, her head towards the sky, a couple paces away from a mister who’s cool fog had turned to steam. Each step I took towards her coated me in another wave of hot water, but I did not care. The moisture of the steam made her dress cling to her braless breasts.
+
+‘Oh hello!’ she said, twirling her moist blonde hair around her finger. ‘Doing another tour?’
+
+‘Yeah,’ I breathed. ‘Would you like to join?’
+
+‘Well, I already done the tour twice.’ She laughed, clearing the steady hum that buzzed in my ears since I woke that morning. ‘Don’t think there’s much new history to cover, is there?’
+
+‘There is.’ The words tumbled out of me. ‘I’ve been a tour guide for over a decade. I could run a twelve-hour tour of this city. I’ll talk about new stuff. I promise. Join. Please.’
+
+She shrugged her perfect pale shoulders, thought for a moment and nodded.
+
+It was hard to focus my sight on her, but the joy I felt from her presence was indescribable.
+
+The dates and names of Prague’s history blurred together. As I yelled out the descriptions of the monuments, I found myself unsure of whether I was recalling real history of whether I was fabulating. It isn’t until we reached the statue of Jan Hus at the stifling Old Town Square that I knew I was recalling true fact.
+
+I spoke about how the Czechs are the second most atheist nation in the world. About how some folks say it’s because we’re too hedonistic to have room for God in our hearts. About how some, presumably unfamiliar with the country of catholic Poland, blame communism. About how some say that Christianity is foreign to Central Europe and how the people are culturally positioned to understand the old pagan gods better.
+
+Yet, to me, and to most learned scholars, Czech atheism can be tied to our history of religious conflict. Ruling Catholic class, common folk protestant or proto-protestant. Rising tensions, defenestration, religious war where the Czechs always lose and the survivors are forced to turn catholic.
+
+Rinse. Wash. Repeat.
+
+When I spoke of the Hussite rebellion, Slunecka leaned in with interest. When I described how Jan Hus was burnt at the stake by the Catholics, her eyes flamed with fascination. I found myself repeating that section of the story, thrice, just for her enjoyment.
+
+At the end of the tour, I was left with a pocket full of hot coins and crisp cool ten euro note. I didn’t care about the shrapnel. All I cared about was spending more time with Slunecka.
+
+‘I heard the river is nice,’ she said, before I could suggest we go somewhere indoors.
+
+‘Ah, there’s a place called Náplavka where they serve a delightful blueberry beer.’
+
+‘Not really in the mood for beer right now,’ she said. ‘But let’s go anyway.’
+
+I was just happy she didn’t want to climb up the stairs to Letna. When her hand brushed against mine on the walk, regardless of how warm they were, my happiness peaked into pure ecstasy.
+
+Just as we were about to reach the descent down to the river, Slunecka popped into one of the Vietnamese corner stores to pick us up something to drink. I presumed that since she was not in the mood for beer she would get some ciders, maybe a bottle of prosecco. She walked out with a bottle of vodka.
+
+A bottle of *Zubrovka*, to be specific.
+
+‘It’s Polish,’ she said, breaking the seal and taking a sip. Her face didn’t register any discomfort. ‘Like champagne, can’t come from any other part of the world. Not as old as the pagan Gods or Slavic folklore, but definitely older than the Russian Empire. Plus, what they drink is just fermented potato juice. What we drink is vodka.’
+
+I did my best to not make a face when I took a pull. I failed. The burn of the alcohol made me feel even hotter than I did before. A twitch which refused to stop started to throb under my right eye.
+
+I wanted to hide in the shade beneath a nearby bridge, but Slunecka happily took a seat on the sizzling pavement raised over the river. Another crop of sweat sowed across my thighs. It felt like my flesh was sizzling.
+
+But I didn’t care. I was just happy to be around Slunecka.
+
+I slurred my words and my sight blurred and my thoughts became difficult to hold, but beyond my exhaustion, I felt utter bliss from being in her presence. As we worked our way through the bottle, my phone rang. Pepa. Then Dylan. Then Pepa again. I had no interest in talking to them. Nothing they could say to me could be as interesting as the melody of Slunecka’s voice.
+
+‘Careful,’ she grasped me by the arm, as I nearly fell into the river. I couldn’t tell if it was the alcohol, the heat or her beauty that nearly drove me head first into the Vltava. ‘I hear the water isn’t exactly clean. Plus, it’s cold down there.’
+
+‘Saved my life,’ I said, looking at the red marks on my pink skin.
+
+‘Did I?’ she laughed, leaning in, pulling me closer.
+
+She smelled of wildflowers. Her breath was hotter than the August air. My gaze was transfixed on the triangle of her eyes and mouth. My lips were chapped raw. I licked them and leaned in myself.
+
+As tender as the kiss was, it felt like a balloon was being inflated inside of my skull. Her tongue was a hot stone and her embrace tasted of dry wheat. Above us, on one of Prague’s arterial roads, a wailing siren approached. Even though I knew the fire truck was getting closer it somehow felt more and more distant by the second.
+
+The kiss wasn’t pleasant. It was foreign and strange and sent queer shivers up my spine. Yet, there was something about her embrace that filled a hole deep in my chest. For a moment, I felt whole.
+
+Something in the distance was burning. The pressure in my skull seemed ready to burst. The sirens above us wailed like a furious, mindless banshee.
+
+‘I liked that,’ I breathed. ‘I hope we get to do it again.’
+
+‘Oh,’ she whispered, her eyes ablaze. ‘We will.’
+
+And we kissed again.
+
+And the fire truck sped towards us, yet it somehow felt far, far [away](https://www.reddit.com/r/MJLPresents/).
