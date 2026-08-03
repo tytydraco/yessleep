@@ -327,3 +327,5 @@ It could have been any one of us. In a different time, we were all vulnerable en
 We had survived. We had become hardened and strong. We had earned the right to live, and I wasn’t about to let the hags that brought this upon us get a second chance to take that from us.
 
 “The clocks about to chime,” I told the others, “Let’s fuck this next monster up, then I’ll see what I can find.”
+
+[{Next Part}](https://www.reddit.com/r/nosleep/s/95UphXkrxY)
