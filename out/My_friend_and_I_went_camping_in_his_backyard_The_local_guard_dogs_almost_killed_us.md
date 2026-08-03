@@ -1,0 +1,190 @@
+There’s a reason why this county is called Malchaneau. If you know your French,then you know that it essentially translates to English as “shit luck.” The stories go that the early French fur traders that first explored the area kept having their pelts and food mysteriously go missing. At the time, they blamed it on the pesky adolescent Natives and the flash floods that would periodically occur in the summer. 
+
+
+
+The name is also analogous to the biggest city in the county, Tater Tot. Don’t ask me how it got that name. It’s probably not that interesting of a story anyway. The city itself is constantly plagued with high crime, poverty, and poor weather, from cold snaps to wildfires. Every day, there seems to be some new problem in town and the police were always short-staffed. There wasn’t much of a community to keep the locals from getting themselves into trouble. Thus, becoming a resident of Tater Tot was never something you want to have happen purposely.
+
+
+
+There are a few other bizarre tales that originated from the area; much more than a rural deserted county ought to have. For example, there were also a group of English explorers in the 19th century that sent a few islander brothers they picked up from the then-called Sandwich Islands to go explore a steep canyon just south of where the French camped out. Obviously, the sagebrush covered grasslands where pronghorns and grouse made their home was a far cry from their tropical paradise where they were from, so they were going to have a hard time anyways. After a few months, the three brothers went missing, and were later found dead at the bottom of the canyon, their corpses having showed signs of a struggle. What was particularly strange about this case was the multiple holes that covered each of the three brothers. The most logical conclusion was that a local tribe weren’t too keen on having alien visitors check out their campsite, but some explorers swore they found deep black rings around the wound marks: a possible sign of necrosis. As far as I know, there is not a single plant or animal in the region that could produce a strong enough venom to cause the amount of damage being described by some of these explorers, not even the rattlesnakes. 
+
+
+
+The most popular folk tale that I know of is the one surrounding Witch’s Butte; a cone shaped ancient volcano that has been inactive for millions of years. They named it that because there was some rumor about a witch coven living inside the volcano. If you ask me, I think they just called it that because the hill itself looks like a witch’s hat, which seems really boring until you mention the guard dogs. Or at least, that what we call them anyway. 
+
+
+
+According to some reports, several sightings of “imp-like dogs” have been made by people driving at the foot of the hill at night. They only show themselves for a few seconds, then they go darting into the pitch black in a hurried gimped trot. Oddly enough, there are no recorded sightings of the witches themselves, only the guard dogs. 
+
+
+
+This was what I wanted to look out for when I invited my friend Larson to go camping at his house. He has quite a bit of property and there’s one spot where his family would go camping at all the time during the rainy seasons. That camping night was probably the stupidest thing we had ever done. 
+
+
+
+———
+
+
+
+It was late August, which means that the sky was the color of amber and the horizon was blanketed in smoke. Wildfires from miles away once again managed to make our sunny summer days turn into a muted muggy mess. The sun was glowing an apocalyptic red as it sank behind Witch’s Butte; perhaps as a warning sign for what was to come for us. 
+
+
+
+I pulled into Larson’s driveway in the mid evening with the intention of hiking to the clearing within Larson’s property that was about half a mile away from Witch’s Butte. His spirits were high as Larson was waiting for me outside of his house with a backpack full of supplies. I, however, was still a little nervous. 
+
+
+
+I never told Larson that this was a “monster hunting” trip. I had merely suggested this to him as a fun way to kill an evening telling each other scary stories and making some hobo dinners. We would have to cook them on an electric stove because the seasonal burn ban was in effect. 
+
+
+
+The monster hunting was more for me than it was for him anyway. All the reports I read online said that the guard dogs usually run after getting spotted, so there was not a strong chance of anyone getting hurt. And if someone was going to get hurt, it would be me. 
+
+
+
+We came upon the campsite by the time the horizon turned a deep violet color. The site itself was simple: a clearing of soft soil, a fire pit with log benches surrounding it, and an old picnic table. Larson immediately began setting up the electric stove on the picnic table and set up a battery powered lantern that started attracting moths as soon as it was lit. 
+
+
+
+The rest of the evening consisted of small talk and soaking up the atmosphere. The last of the sunlight died away in a whimpering glow of deep demonic red. Even for a smokey sunset, these colors were not usually present.  Our hobo meals of bratwurst and vegetables were consumed in silence, with the majority of the conversations being overpowered by the crickets singing their night songs. 
+
+
+
+Close to midnight, Larson decided that it was a good time to go to sleep, despite him consuming two energy drinks with his camp grub. I had my share of caffeine as well, but I had my own plans for after the curfew hour. I waited for what felt like a couple hours until I heard no sound coming from Larson’s tent; my cue to move was the sound of him loudly snoring, which honestly startled me more than I was expecting.
+
+
+
+I sat up in the inky blackness and grabbed for my bag, which took a couple of attempts, and I grabbed my giant flashlight, making sure to set it to the lowest possible setting. Every single noise I made felt like it was amplified over a loudspeaker when contrasted with the still summer night. Unzipping the flap of my tent to crawl out took a great amount of effort as every inch of unzipping felt like it could have been heard for miles.
+
+
+
+With the light of the moon being suffocated to a bloody glow, the surrounding nature was as dark as a closed coffin. I located the picnic table and very quietly sat down with a soft creaking noise. I then placed the flashlight on the table, making sure it wouldn’t roll off, and then reached for the first tool I wanted to use to try and find these “guard dogs”. 
+
+
+
+My plan was to attract them using provocation. I didn’t necessarily want to go hike out to the butte itself because that is a great way to accidentally step on and get bit by a rattlesnake. Plus, the butte itself is private property, so my boundary was strictly within the campground.
+
+
+
+To provoke the guard dogs, I brought my reverend grandfathers Bible, from which he directly preached from. My grandfather was an active member of the Pentecostal movement, touring around the area to different churches and performing miracles both physical and spiritual for the afflicted. He always told me as a kid that this book held immense power. 
+
+
+
+Come to think of it, he would sometimes take camping trips out here to the butte himself. Maybe he was looking for the guard dogs, too. If my assumption is correct, this hunt might be over quick. I just wanted to see them for myself. That’s it.
+
+
+
+It was here that I started to have second thoughts. I realized what I was really doing: monster hunting with no prior experience by myself in the dark. I barely did any research into how these guard dogs work. I barely knew what I was doing at all; it was borderline suicide. However, if I chickened out now, this whole campout would have been for naught.
+
+
+
+I took a deep breath and quickly opened the Bible to a random page towards the end. I didn’t care where, I just needed them to see me.
+
+
+
+Almost instantaneously, the evening breeze stopped dead and made the smokey air stagnant. I also noticed that all the background noise faded away and I was left with nothing but dead silence. 
+
+
+
+I felt panic begin to stir in my heart. My breathing became faster and harder than I wanted. I looked around frantically to see if I could catch any clue of my surroundings in the dim red moonlight. I saw our tents, the fire pit, and the table with the book and flashlight. Beyond that, the void. 
+
+
+
+I couldn’t turn my back now. If the Bible acted like a beacon, then I had revealed myself, and the guard dogs would surely be looking for me. At least, that was my blind guess. However, minutes passed of moving my flashlight around the campsite like a dying lighthouse, and all I saw was a disturbed sea of dry sagebrush and dead grass. A mass grave of plant life primed for cremation from some wayward ember.
+
+
+
+The world around me still felt lonely, but crowded with darkness and confusion. There was still a sense of insecurity that wouldn’t go away, like someone was watching me. My hands began to shake violently and go numb, my heart raced faster than it ever had before. My vision seemed like it would fade away any second, and I quickly shut my eyes and lay my head down on the open Bible, tears started falling on the pages. I wasn’t just scared, I knew deep inside that this could be it, and I was not ready. 
+
+
+
+There was no time to reconsider. I had only looked up for a split second, when it had found me.
+
+
+
+All I saw in the distance was a small glowing orange crucifix suspended in the air, and it began to flicker like a candle as I looked at it. The air began to smell of sulfur and burnt herbs, like if a rosemary bush fed with feces had caught on fire. I kept my breathing as still as possible. 
+
+
+
+Without blinking, I began to very slowly pick up the flashlight and point it towards the apparition, partially hoping that was all it was. Unfortunately, the apparition disappeared almost immediately, but I also caught a blur of gray that sank into the tall grass, but only for a millisecond. 
+
+
+
+A deep sigh of relief escaped me. I had done it. I saw what I came for. The legends were true, there really was something out there, and I had seen it for myself. My anxiety would probably keep me up all night, but it was worth it, I reasoned. 
+
+
+
+I began to climb out of the picnic table and work my way to my tent, but I didn’t make it a few feet before a sudden thundering from my left grew louder. An almost instaneous weight had been thrust upon me, forcing a loud yelp out of my throat. I wound up faceplanting the seat of the table on the way down, causing the flashlight to fall and shine directly into what had knocked me over. 
+
+
+
+The abomination was the size of a large dog and had the snout of a pinscher. Its teeth were jagged and serrated, a whole line of bloodied canines flashed at my eyes and nipped for my neck. Its jaws quivering voraciously for something to crush. 
+
+
+
+The hide of the beast was bare in some spots, but in other spots was thin and wiry brown fur that I instantly recognized as beaver pelt. Pieces of the hide looked like it had been crudely stitched onto the animal like a bad taxidermy piece. 
+
+
+
+The face of the imp-dog was even a bigger mystery: there were neither eyes, nor eye sockets. There was instead a crucifix carved crudely into its flesh that was now glowing red with frenzied wrath. The wound ran ear to ear and crown to snout, the whole of its profile defaced by the image of salvation. Blood was gushing from the trenches like tears, and they fell hot and wet into my mouth and stung my eyes.
+
+
+
+With all the might I could muster, I shoved the beast off of me and kicked it in the side. It flew backwards a few feet, leaving a spatter of blood on the soft sand. I quickly got to my feet, ignoring the pain coming from the deep scratches on my face and arms. I went for a kick to the head, but missed and the creature managed to grab my pants with its jaws and knock me down once again. That’s when I heard Larson scream at me from his tent.
+
+
+
+“WHAT THE FUCK IS THAT?!” he shouted, hatchet in hand. I guess Larson heard me hit the picnic table. The beast’s attention turned to Larson, and it began to make a sprint for his leg. Larson started to swing the hatchet at the faceless dog, but he wasn’t quick enough. The beast sank its canines deep into his calf.
+
+
+
+Larson dropped the hatchet as his leg became instantly paralyzed. He started to scream bloody murder, the dog clenching his jaw harder and harder into Larson’s muscles. I swear, I could hear his bones crack and tendons rip. 
+
+
+
+I instantly lunged for Larson’s hatchet, and began to swing wildly at the grey beast. First a miss, then a slap, then a cut to the arm, and one last swing aimed for the back. The hatchet sank deep into the spine of the beast, like a rope being cut from a ship. It immediately let go of Larson, its hind legs falling limp. 
+
+
+
+As quickly as it appeared, the imp began to drag itself away on its front paws into the grass with Larson’s hatchet left in it’s spine, painting a dark red river behind it. 
+
+
+
+———
+
+
+
+The dark red glow of the sunrise began to seep its way into the hospital room. 
+
+
+
+I had to carry Larson like a wounded soldier to my car and drive to the emergency room. The ordeal winded me and made me start seeing the orange glow of that damned beast’s face, but I managed to work through the proceeding panic attacks. 
+
+
+
+I was allowed to see Larson again once the nurses had finished bandaging and disinfecting his bite wound. When I did see him again, he was asleep from the pain medication. I did not dare wake him up,; my guilt forced me to stay down and be silent. Nurses came by periodically to check up on Larson as he quietly recovered. Some nurses even asked me if I needed anything. I was too ashamed to accept any grace from them. 
+
+
+
+I caused this catastrophe, I was stupid, I was selfish. I don’t think I’d want to speak to him again after last night. Hell, I wouldn’t blame Larson if we never saw each other again. 
+
+
+
+My aunt, who happens to be a trauma nurse at the local hospital, walked into the room just as I began dozing off. I stood up like she was a judge ready to hand down my sentence. She looked at Larson, then to me.
+
+
+
+“What on God’s forsaken Earth did you encounter out there?” she asked concerningly, as if I had a rational explanation. 
+
+
+
+“A stray, I guess.” I groaned. The scratches I sustained hurt, but it wasn’t enough to garner the attention of any trauma nurse. 
+
+
+
+My aunt then worked on unwrapping the bandages to check the wound. The process woke Larson up, but he didn’t protest or whine; he just stood up slightly. The gauze sat firmly against the bite marks and was partly soaked with blood. This surprised me as it paled in comparison to some of the crumpled up paper towels sitting in the back seat of my car that were used to soak up the initial mess Larson’s wound made. 
+
+
+
+When my aunt removed the gauze, she froze in place and made a concerned face. When I stood up and looked at the bloodied bite marks, I saw what she had seen: around each bite mark was a faint black ring of necrosis.
+
