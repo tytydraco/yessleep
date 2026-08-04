@@ -26,9 +26,7 @@ It could’ve been a typo, but it was referenced several times throughout the sa
 
 I’ll just cut right in and tell you that the municipality I happened to discover was known as **Glenne**. But should you try and look it up, you’d find nothing; it’s virtually non-existent, or existed – which seems to be the big idea. Later, this is what I’ve managed to gather on Glenne, summarized:
 
->Glenne was a former municipality in the county of Vestfold that bordered the municipalities *Andebu*, *Lardal*, and *Hedrum* (another former municipality). It was located within the interior of the county.
-
-Glenne seems to have been the smallest municipality in Vestfold that was itself not a city, and at the time, one of the smaller ones in Norway. It was granted official status as a municipality back in the 1830’s! Yet today, nobody knows about it. Some time in the 60’s, it got merged with Lardal, and today it’s nothing more than what seems like an empty forest on the map.
+>Glenne was a former municipality in the county of Vestfold that bordered the municipalities *Andebu*, *Lardal*, and *Hedrum* (another former municipality). It was located within the interior of the county. Glenne seems to have been the smallest municipality in Vestfold that was itself not a city, and at the time, one of the smaller ones in Norway. It was granted official status as a municipality back in the 1830’s! Yet today, nobody knows about it. Some time in the 60’s, it got merged with Lardal, and today it’s nothing more than what seems like an empty forest on the map.
 
 Now, a municipality doesn’t just vanish into thin air. Municipalities merge, true, but this feels different. This feels more "redacted" than just simply forgotten.
 

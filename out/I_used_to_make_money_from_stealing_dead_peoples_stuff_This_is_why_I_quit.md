@@ -1,0 +1,207 @@
+When someone who lives in a city-owned apartment dies, and they’ve got no immediate family, who gets to keep their stuff? 
+
+That’s the question Jared asked me two years ago. We weren’t that close, just part of the same friend group. We’d mostly see each other at parties sharing cigarettes, and this time was no different. We were leaning on the balcony’s rusted railings, cigarette in one hand, beer in the other. Nighttime traffic and the occasional shouts of other partiers echoed through the streets below.
+
+I shrugged my shoulders–it wasn’t exactly the kind of question I was interested in when I was buzzed at 1 AM.
+
+“It goes to the dump,” he said with a smile. 
+
+I took a drag of my cigarette. “So?”
+
+“So I’ve been thinking, what if someone were to… peruse through all that shit before they get rid of it?”
+
+“You mean steal whatever’s valuable?”
+
+Jared knew I’d done some stuff that had gotten the attention of the police before. Just to be clear, I’d never stolen anything, I had just helped other people steal, and they’d pay me in cash. It felt a bit less wrong that way, although I knew it was the same exact thing. But hey, ethical branding for the win, right?
+
+He also knew that I was between jobs at the moment; so this wasn’t just another bullshit conversation.
+
+“Whatever you want to call it,” he said. “But if one were to hypothetically do something like that, they’d need a decent lockpick.”
+
+“Stealing from the dead, huh?”
+
+“Dude, it’s not really stealing, even. Some guy dies, and their family is either not around, or they don’t want the guy’s shit. The city’s like, okay, we’ll need to clear out the apartment, but of course they can’t just take it and sell it on eBay. So they get rid of it.”
+
+“And how do you know this?”
+
+“Spoke to some guy at Chrissy’s party last week who worked maintenance for the city. Boring guy, kind of an idiot, but anyway… there’d been a death in one of the buildings recently. He was telling me all about it, since he was the one who found the old lady. I asked some more questions, and he said they just keep the place empty for a while, and after a certain amount of time has passed they clear it out. When I asked if they take anything for themselves, he got kind of queasy and said that they’re not allowed to. Buuut… I’m guessing if they find something nice, they’re not gonna just throw it away, either.”
+
+“Right. Still, it is someone’s property.”
+
+“Well, it becomes the city’s property. Anyway, what I’m saying is, if hypothetically one could get info on such… passings, wouldn’t it be beneficial that instead of all that stuff going to the landfill, it would instead be used to keep someone else alive? Besides, I know you’re not exactly the most law-abiding guy I know.”
+
+I laughed. Jared was kind of a dick at his heart–someone who doesn’t really care whether something’s right or not, as long as he can get his own. But the more I thought about it, the more it sounded, well, not so bad. If what he said really was true–that all that stuff would really just be thrown out anyway–I could find no reason for someone not to grab some of it. It was taboo, sure, and an unfair system, but so are a lot of things. If some poor asshole like me could keep himself fed and a roof over his head, I didn’t really see why not.
+
+“So if you’ve got that maintenance guy on board, I’d assume he has the master keys. What do you need me for?” I asked.
+
+Jared froze up for a moment, as if surprised that I could glean his “master plan” from his very obvious insinuations. I guess he thought I was much dumber than I actually was. When he replied, his voice had lost all of its jovial qualities; now we were talking business.
+
+“He’s a pussy. Said that they’d *definitely* catch him on site, or from stealing the keys, or whatever. I negotiated that he’d get twenty percent if he just give me a time and a place whenever a new… opportunity came up. In reality I’ll give him ten or so. He won’t know the difference anyway. And you–”
+
+“Twenty for the maintenance guy, split fifty-fifty on the rest.”
+
+“Fuck no! Twenty’s way too much. And fifty-fifty on the rest is way more than a lockpick should get.”
+
+“Fine,” I said, playing it cool. I stubbed out my cigarette and glanced back at the apartment, signaling that I was done with the conversation. “Find someone else.”
+
+Right as I took a step toward the door, he grabbed my shoulder and said “Fuck you. Fine. But you better be good.”
+
+“You won’t have to worry about me.”
+
+For the next two years we made the easiest money of our lives. It was like a get-rich-quick scheme was real. I mean, of course it was technically illegal and all, but it only felt like that for the minute or two it took me to unlock the door. We never got even close to getting caught, and it honestly felt like living the dream. 
+
+Everything changed with the Booker place. 
+
+The Booker job was no different from any other. We got the info from Jared’s maintenance guy: old guy in his 80s, lived alone, no family they could track down. Apartment would be empty for two more weeks. We made a plan for our visit at 2 AM on a Saturday; generally we’d found between midnight and three to be the best time, as it was the quietest then, but also if someone noticed us, we could pretend that we’d come straight out of a bar and just trying to find our way home.
+
+The apartment building itself had a door code, which the maintenance guy had provided, so we got in with ease. Three floors up and we found the unassuming door that held a plastic placard that had “Booker” written on it. Jared kept watch as I made quick work of the old lock. Probably took me less than thirty seconds–I’d become a pretty good lockpick over the last two years. And just like that, we were in with our backpacks hungry, ready to stuff them up with whatever valuables we could find.
+
+Once we got in, I closed the door behind me. The place was completely dark, and Jared clicked on his flashlight as I found mine. Once we both had light, Jared pointed to the first two rooms along the hallway, and I nodded. It meant he’d be taking those two, and I’d go further in.
+
+We’d finetuned the whole process so well that we worked with calm efficiency, like we were doing any normal job. After two years, it frankly didn’t feel that much different.
+
+It was a hot summer night, and these old concrete buildings didn’t fare well in the heat. Despite this, the apartment was cool to the skin, and as I walked further in, it felt like it only got colder. Old wallpaper covered the walls, yellow from age or maybe even from smoking inside. The air smelled like rotting wood and tea. It was unusual for the kind of building we were in, and for the fact that nobody had been inside the apartment for weeks.
+
+As I walked through the hallway, I could hear Jared opening and closing drawers, looking for jewelry, tech, collectibles–anything that held lots of value, didn’t weigh much, and could be easily sold online or at a pawn shop. 
+
+The hallway opened up into a wide space with a small kitchen to my right, and a living room to my left. At the back wall was what I assumed to be a bathroom, which was closed.
+
+First I went for the living room. At the back were two windows, covered with crinkled curtains. The tight beam of my flashlight was the only source of light, and outside its cone of light was pure black. It was an eerie kind of dark, since there weren’t even the usual LEDs of a laptop charger or a TV hanging around.
+
+Dust coated everything, and as I walked around it came flying through the air like a thousand tiny critters. Usually I was calculative when assessing where to look for (desks, odd-looking storage boxes and display items were top priority) but this time was different. Every wall besides where the windows were had bookshelves that reached all the way up to the ceiling, yet each one was a little bit different: different wood, shelves, depth, color. Together they made a Frankenstein’s monster of walls that surrounded everything, slanting in places from the sheer weight of all that those shelves held. 
+
+And there was a *lot* of shit. Candles burnt halfway, held in all kinds of ornate candelabras painted silver and gold. Books bound in leather, inscriptions along their spines. Stacks and stacks of papers, yellowed by time and coffee. 
+
+There was no television, no sofa, no lazy chair. Nothing that a normal person might have in their living room. The most normal thing there were two wooden chairs, and in between them a coffee table filled to the brim with more books and papers, pencils and matchsticks, and a plethora of cups with coffee stains.
+
+*Hoarder* was the first word that came to mind. This wasn’t good: hoarders usually didn’t own much of anything valuable, or if they did, it was impossible to find.
+
+The scene made me feel sad, like the guy had filled up his life with all these books and papers when he didn’t have anything else. Of course there was no way to know if that was even true, but that’s just the feeling I got. It was strange; I’d learned to be quite detached from the people whose apartments I visited. 
+
+Still, I had a job to do. With the flashlight in my left hand I started to pore over each shelf one by one. The candelabras were too large and heavy to take with, the books weren’t anything I could see making money (one time I’d found a first edition The Hobbit, which was neat, and quite expensive), and all the rest of the knick-knacks strewn about seemed more sentimental than anything. 
+
+Trash, all of it. Basic hoarder shit. Either way, I went to check out the kitchen, even though there usually wasn’t anything of note in those. Maybe some silver spoons, if I was lucky.
+
+The cabinets were sticky to the touch, like they hadn’t been wiped in years. This was common with seniors; at some point their bodies could no longer handle all that scrubbing and wiping, and nobody came to clean for them. 
+
+Inside the cabinets there were the usual suspects: plates, glasses, pots and pans, all the kind you could get at any store. Even the cutlery was just stainless steel, and dirty from a bad wash-up job.
+
+This was a bust. I hoped that Jared had at least found something, and right as I finished up with the kitchen he appeared in the hallway. 
+
+“Anything?” I asked him. He sucked on his lips and shook his head, the way he always did when he got genuinely angry.
+
+“Me neither,” I said. “I guess some of the books might be worth something, but–”
+
+“We’re not gonna haul a bunch of fucking books outta here.”
+
+I shrugged. “So, we’re leaving then?”
+
+He did a tree-sixty, surveying the apartment one last time. I followed the flashlight’s beam as it swirled around me, until it stopped at the door at the far wall. 
+
+“Bathroom?” Jared said.
+
+“Must be.”
+
+“You checked it?”
+
+“There’s nothing ever in a bathroom.”
+
+“So you didn’t check it?” 
+
+“No. Didn’t think a half-used can of shaving cream would be of much value.”
+
+He rolled his eyes and walked up to the door. “You never fucking know until you check, do you?”
+
+That’s when I noticed that the door was locked from the inside, which didn’t make any sense, and–
+
+***BANG***
+
+***BANG***
+
+***BANG***
+
+The door shook, with terrifying force. 
+
+*Someone was still here.*
+
+My body tensed up, and a wave of hot adrenaline dissipated along my chest. It had been a while since I’d actually gotten worked up for one of these gigs, but now–Immediately–I was back in full form, ready to run the fuck out of there.
+
+Jared jumped back from the door, and put his right hand in his pocket, drawing out a switch blade; he’d chosen fight instead of flight. He carried the knife around everywhere, sometimes taking it out when he was drunk enough to feel like showing any unsuspecting victim the “tricks” he’d learned. Mostly it was some haphazard display of bad knife etiquette that sometimes ended up in him slicing up his own hand, or the knife dropping to his feet with an awkward clang.
+
+This time I could tell that he was ready to use it. His whole body was rigid, and his feet locked into a fighting stance. He gripped the knife with force, making sure that this time it wouldn’t leave his hand.
+
+“Who’s there?” he said firmly, but not too loud. We didn’t want to wake up the whole building, after all.
+
+***BANG***
+
+***BANG***  
+  
+***BANG***
+
+… came three knocks again, yet there was no other sound anywhere, like a fist in the air was just on the other side of that door. Across my flashlight’s beam I could see my breath becoming mist. The temperature had been getting colder it seemed, although I didn’t really feel it because of the adrenaline. 
+
+Something knocking on the door from the inside of a dead man’s apartment, at the same time as a cold that came from nowhere and I couldn't even properly feel wrapped itself around us… for a moment I thought it all to be a bad dream. Everyone had nightmares about work, right?
+
+Jared took another step back from the door, still keeping his eyes on it, the knife now feeling like much too small of a thing to protect us. The way the door had shook, there was something a lot bigger than us behind it, something a lot stronger.
+
+“Let’s get the fuck out of here,” I said to Jared. 
+
+He backed up towards me, his eyes not leaving the door, his mouth not saying a word, fully focused, and then–
+
+***BANG***
+
+***BANG***
+
+***BA***––
+
+With that last knock the door came off its hinges with a loud crack, falling to the floor with a boom that shook the floor. If the neighbors hadn’t heard us yet, now they definitely had. Jared’s flashlight escaped his hands and fell to the floor, pointing towards the left wall now, but the knife was still solidly in place in the other. An expletive flew out of my mouth: it was time to get the fuck out of Dodge, but Jared wasn’t moving. My body begged me to go the other way, to just run and leave his stubborn ass, but I forced myself forward and grabbed Jared’s shoulder.
+
+“We gotta get the fuck out of here,” I said.
+
+He wouldn’t budge. I grabbed on harder and pulled, which made him finally turn around. 
+
+Jared was terrified; eyes wide and cheeks painted with tears. He looked like a little boy, far removed from the gruff model of a man he’d always tried to be.
+
+“Let’s go, let’s go,” I screamed at his face–there was no pretense of sneakiness anymore–and pulled him towards me again. He leaned over and almost fell down, just barely catching himself with a swift kick. Thank fuck his body was working again, at least somewhat.
+
+Behind him, beyond the door, everything was dark. My flashlight painted over the curtain of black, and it was almost as if it couldn’t penetrate it. The thought made my body reel: the darkness was much too deep to be a small room, and even then it shouldn’t look like that. What I saw shouldn’t even really be possible.
+
+I pushed Jared along and made him walk back down the hallway, and thankfully he did, although he was being slower than I would’ve liked. The knife was still gripped in his hands, but I’m not sure if he even realized it was there anymore.
+
+Right before we reached the door I looked over my shoulder. Nothing had come out, nothing was chasing us.
+
+I could hear Jared fumbling with the doorhandle, but I didn’t turn around to help him. Not yet. There was something there, something in the darkness…
+
+Along the upper edge of the doorframe, the inky black was disturbed as something flickered. Dread filled me, yet I couldn’t look away. I had to know what it was, to have the story for later: so that I could say that I didn’t run away, tail tucked between my legs, from nothing.
+
+Another flicker came into view, finally making sense as the two eyes rose from the darkness like sculptures of ice: milky white and bereft of pupils or eyelids. Alongside the eyes emerged their master: a man, if one could call it a man, with skin like paper stretched over knuckle, sinew and bone. It moved on all fours along the ceiling, hanging upside down. The thing’s lips were gone, or perhaps had never been there, and its teeth were long, sharp, and interlocked like tiny, rusted swords.
+
+Its arms were outstretched, the fingers somehow holding onto the ceiling. My intuition said that it was defying physics, as its strength couldn’t be so massive to defy gravity with such ease.
+
+More of its body came to light, and as it did so it was as if the darkness beyond was a vat of oil that the flashlight’s beam simply could not penetrate; the darkness was something more than it should be, a nightmare’s black. As the rest of its body came into view, I was suddenly reminded of centipedes and their disgusting little legs.
+
+Because instead of legs, the creature’s back stretched on and on, further than made any sense, probably five or six feet in length, at least. Along the sides–as if tacked on by a mad scientist–were tens, if not hundreds of tiny little legs. Human legs. 
+
+Not human adult legs. *Baby legs*. Plump and soft and still not quite the way they should be.
+
+The door clicked open, and this time Jared pulled on my shoulder instead, dragging me out of the apartment with panicked violence. I fell to my back, a shooting pain in my tailbone, and I watched as that thing skittered along the ceiling towards us, that terrifying smile of swords on its face, the tiny little feet slapping and dragging along. It was fast, but not as fast as Jared was kicking the door shut.
+
+Inside, the thing scratched at the door like a cat, and quickly began to vocalize. It was like… like it was wailing, but as if it didn’t have a tongue to make any sounds that were more complex than a yell or a cry. Crying because it couldn’t be let out. I realized how human its cries felt only when something in my heart told me that this creature was in pain: that it didn’t sound like a predator. It sounded disappointed.
+
+Then again, maybe that’s how it gets you. Maybe that’s what a good predator should sound like.
+
+“What the fuck was that?” Jared said and lent me a hand. His voice was shaky, almost broken. I took his hand and he pulled me up, and I quickly realized there was definitely at least a hair fracture in my tailbone.
+
+“I don’t fucking know,” I said. “Let’s just get the fuck out of here before someone calls the cops.”
+
+“We should be calling the fucking cops. Jesus fucking christ,” he joked, but it didn’t land.
+
+Nobody had appeared in the hallway, which was weird. The creature was still wailing inside, and besides that, we’d made quite the ruckus. It was like no one even lived in the other apartments.
+
+Jared started down the stairs, and I followed him. It hurt to move my hips, like it made my tailbone grind against itself somehow. But that was a problem for later.
+
+With each step the wailing grew further and further until we were outside the apartment building, back in the sweat-hot night.
+
+As we ran, I looked back at the apartment. Where the living room was, the lights were now on, and the curtains open. From behind the dirty glass, I could see skittering along the ceiling like a bug. And there was someone else there, too. A tall man with odd clothing, who put his arm up and the creature came to him, like it was a signal.
+
+The man touched it. It was hard to see exactly why, but it kind of looked like he was scratching underneath its [chin](https://wintersnoah.wordpress.com).
