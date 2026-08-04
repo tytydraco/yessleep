@@ -1,0 +1,43 @@
+I can’t explain this to anyone I know. Not without losing my license, at least.
+
+
+
+I’m a mental health counselor. I’ve been in this profession for years. It’s what I love doing, and I genuinely wouldn’t trade it for the world. I’ve seen hundreds of patients in hundreds of situations. Children, elderly, disabled, handicapped, I’ve even worked with a child who was terrifyingly smart. I’m not exaggerating, her intelligence was truly astounding.   
+  
+But my most recent patient has me uneasy.  
+  
+It isn’t his situation, though that’s shrouded in mystery, too. I only have his file from the hospital that he’s currently staying in. I know nothing of this man’s background except for what he’s told the hospital staff. That in and of itself is concerning, but it isn’t insurmountable.   
+  
+This patient, for the sake of anonymity, I’ll call David. He’s a man in his mid-to-late thirties. He’s fairly average looking, if you’re able to ignore the pale blue patterned hospital gown that he wore through our session. Dark hair, thinning at the top. Dark eyes that seem bottomless. His teeth aren’t exactly perfect, but they’re far from the worst case I’ve ever seen.
+
+
+
+But that isn’t the part that’s put me on edge. 
+
+
+
+I should clarify something before I continue. I’m a crisis counselor. I, and my patients, have seen things that no being should have ever come across. I thought that the first was the hardest; I was fresh off my supervised training, a young woman who thought I was ready to handle the world’s problems for the people who couldn’t carry them anymore. Then I was assigned to the case of a victim of large-scale trafficking. I spent a lot of time crying for her when I was in the isolation of my car and less-than-ideal apartment. Every coping mechanism and solution I gave never felt like they were enough. She would always live with that experience. Just like all of my patients, be they victims of fire, assault, abuse, or worse.  
+  
+Unfortunately, I realized quickly that my cases never get easier–I just got numb to it. Well, maybe “numb” isn’t the best term. I’ve become an expert in compartmentalizing. All that to say that I’ve seen a lot, and not much leaves me rattled. Especially not rattled enough to blatantly breach a HIPPA protocol by venting about my patient to a bunch of strangers on some forum. Hiding behind a screen makes me brave, I guess.
+
+
+
+What unsettled me about David was his demeanor.
+
+
+
+I’ve encountered various degrees of shock. People who are unable to verbally communicate, people in hysterics, people who pretend that everything is fine so they don’t have to face the reality that the world is crashing around them; grief and trauma responses are never uniform.  
+  
+But David just… smiled. Our entire session of me gently trying to cajole a crumb of any information beyond the basics that he told the staff was met with a full-toothed grin. At first, I thought maybe he was age-regressing. It isn’t an uncommon way for victims to deal with stress. It’s like when you’re about to undergo a minor medical procedure and your physician tells you to “think of a happy time”. If a victim dissociates enough, they may think of their childhood, a time before their trauma occurred. Making that assumption, I politely asked David his age.  
+  
+Usually, when the mind has regressed to a child-like state, the patient will answer with the age that the mind believes it to be. David didn’t. Without missing a beat, he answered with the same age he’d been telling the staff. I asked him the year, the current president, where he was, and he answered every question correctly. He wasn’t cognitively regressing, and his smile never dropped.  
+  
+By the end of our session, the only additional thing I learned about David is that he’s attentive. Very attentive. He even pointed out the way that the air conditioning unit clicked or the fact that my pen lingers on my notes for exactly two seconds after I stop writing. I’ve seen neuro-divergency, but this feels wrong.  
+  
+I can’t explain it, but something about him–and that eerie smile–is pinging a radar that I didn’t know I had.  
+  
+Explaining these complicated feelings on a post that no one will likely read is surprisingly cathartic. I scheduled another visit to David’s hospital room tomorrow. Ideally, I won’t feel the need to break my oath with another ramble. In a perfect world, this is merely another trauma response that I simply haven’t encountered yet. 
+
+
+
+Only time will tell.
