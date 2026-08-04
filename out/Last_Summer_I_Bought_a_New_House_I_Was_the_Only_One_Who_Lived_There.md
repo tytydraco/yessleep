@@ -1,0 +1,551 @@
+As a child, I used to be afraid of the dark. That’s a common fear for children to have, isn’t it? Well, I’m a rare case of an adult who now fears the dark, too. Initially, I chalked it up to having a familial history of mental health issues, which is why I sought out a profession in the field. Partly to help myself avoid the fate that befell many of my relatives, and partly to help others escape that pit. Later, I assumed I was burned out; overworked. Hearing all these terrible things people go through. It’s not easy. You don’t build an immunity to the horrors of the human condition, not really.
+
+Well, it turns out my fear of the dark has to do with something else entirely.
+
+Something no one should ever see…
+
+Recently, I bought a new house; the old one was a constant reminder of a life I no longer had. After getting divorced, I couldn’t really stay in the old family home. The kids were grown, and being alone just wore me down. So, I sold the damned thing and got myself a smaller house. Nothing to brag about, a couple of bedrooms; just in case this old dog decides to look for love again. Love might be the wrong word here; I’m not looking to get remarried anytime soon, more like a fling or two.
+
+Actually, I’m not looking for anything. For now, I want to disappear for a while, or maybe forever.
+
+Getting off track, aren’t I? Well, it’s hard to focus when the system’s overflowed with cortisol. It is what it is when all that’s been going through your head is anger and a tint of regret here and there. Oh, who am I kidding? It’s not even the divorce that keeps me up at night. That was a given, sadly, at some point. I’m a madman in the making. What kind of woman would want to spend the rest of her life with someone like me? Probably an asylum patient, but it would be counterproductive. Not to mention asylums aren’t really a thing anymore.
+
+You’re losing your train of thought again.
+
+Anyhow, where was I? Oh yeah, that new hut…
+
+It was not a hut-hut, but I’m just self-deprecating here…
+
+Because the images won’t go away and I’m trying to push them away.
+
+Taking my own medicine with this one, I’ve advised many a patient to write down whatever is bothering them… That’s the purpose of this…
+
+Focus… Breathe… Focus… Inhale... One... Two... Three... Four...
+
+Hold... One... Two... Three... Four...
+
+Exhale... One... Two... Three... Four...
+
+Sorry, I know this looks terrible, but whoever might read it, if ever, maybe it’ll be just a future me… Who knows, anyway. I needed this.
+
+Where was I? Oh yeah, the new house, which is actually an old one now too.
+
+Sold it off after…
+
+I’ll get to you in a bit, don’t you worry…
+
+So yeah, that house, it had a basement. I never went there. Don’t know why I never went there when I was looking at the damned thing. I guess I didn’t bother looking down there. The previous owner seemed perplexed I didn’t bother checking the basement, but he didn’t push the issue either.
+
+In hindsight, that was a good thing… Otherwise…
+
+Focus… Breathe… Focus… Inhale... One... Two... Three... Four...
+
+Hold... One... Two... Three... Four...
+
+Exhale... One... Two... Three... Four...
+
+Otherwise, things would’ve been far different for that house, and I wouldn’t be talking about it now. I wouldn’t have taken it. There was an issue with that basement.
+
+Issue… That’s definitely underselling it…
+
+God damn it…
+
+I don’t wanna do this anymore; I don’t like it.
+
+You’ve got to do this…
+
+No. I... I...
+
+You Have To Keep Typing Let It Finally Out
+
+I can’t
+
+You Can And Will Keep Typing No Stopping
+
+Do Not Let Your Hand Stop Pressing The Keys
+
+Slow And Steady
+
+Just Like That
+
+It’s Not Hard Is It?
+
+Keep It Up
+
+OH WOW THIS Is VERY Annoying To Read
+
+Must KEEP TyPING
+
+MUST Keep Typing
+
+Sorry… I am dealing with something here; it’s really hard to recall this again, but I won’t get anywhere unless I do, right? That’s how it works. I have to get it out of my system. I need it out of me. The alternative is probably an early grave. I wouldn’t want that now, would I? Nope.
+
+I know I probably am coming off as insane, but oh well, gotta keep typing to get over this panic attack. If anyone finds this while I’m passed out, or gone out somewhere, know that I am completely fine in the grand scheme of things, because I’m not really fine. I’m haunted, but I do not intend to harm myself more than this exercise is forcing me to. I think I might have a propensity for self-destruction, because there are intrusive thoughts now and again.
+
+Sometimes I think the intrusive thoughts are preferable to the memories… At least these are my own, kind of. It’s a broken self-defense mechanism. It’s a very broken defense mechanism, in the mind of a very broken man. Okay, I’m broken, like a vase. I’m literally just typing to keep my composure, right now. Not yet ready to deal with the photographs flashing in my head. The recounting of events will resume soon enough.
+
+When will that fucking dog stop barking outside my window?!
+
+I hate dogs, okay? Does this make me a monster? I don’t care. I can’t stand them and their barking. This fucking baying and clawing had kept me up at night long enough.
+
+I am afraid of fucking dogs now… okay? Because
+
+Because fucking dogs bayed at the basement door for far too fucking long.
+
+Every fucking night.
+
+They still do in my dreams.
+
+Dead dogs…
+
+Dead men…
+
+Dead dog men…
+
+I wish I could tell the owner to shut the fucking dog up, but the guy’s an idiot.
+
+Probably on something too.
+
+Hollow gaze…
+
+Like a corpse…
+
+Like the corpses swaying from the fucking ceiling…
+
+Shit… I remember…
+
+They stood over me since the day I settled into that cursed place. Appearing at night to watch over me, devour my dreams, keep me awake. Tear open my eyelids. They wanted revenge; they wanted a price to be paid, and I was their weapon, their conduit.
+
+I’m fucking shaking just thinking about it now.
+
+Now, when everything is said and done, it’s been a while since all of that happened. One cannot simply forget the things I've seen, let alone that cloying, sweet stench which seeped into the walls of that basement.
+
+The monster has been caged…
+
+They have had their revenge.
+
+Yet, they still live in my head.
+
+Still occupying my fucking skull…
+
+They’re just imagination.
+
+Painful memory.
+
+Ugly imagery engraved forcefully into the system.
+
+Breathe… Inhale... One... Two... Three... Four...
+
+Hold... One... Two... Three... Four...
+
+Exhale... One... Two... Three... Four...
+
+Nobody is stalking your bed at night anymore; no one has in a long time. You’re fine, you’re absolutely fine. You’re just stressed and in need of an outlet. All of this, it’s normal. None of this is real anymore. It’s all in your head. Has been for a long time now. You’re safe, say it out loud.
+
+I am safe.
+
+Now carry on recounting what happened to you.
+
+So yeah, new house, wait actually no, new old house now. Yeah, that’s perfect.
+
+Settled into the new old house after getting divorced.
+
+Kids won’t talk to me, cause we’re about as far apart as a family could be, and they’re mad at us both; their mother and me. Being stressed beyond my wits. Work was killing me, and I needed a break, a new start. Got none of that, but oh well. Anyway, new old house is nice enough, furnished. Not too expensive nor too cheap; the price was reasonable, the owner, all things considered – surprisingly reasonable too.
+
+Forgot to look at the basement.
+
+That fucking basement again… Can I forget about it already?
+
+No, you can’t; it’s integral to the story.
+
+I hate it, I hate it, I hate it, I hate myself, I hate it.
+
+You don’t hate yourself.
+
+Quiet brain, I was doing fine.
+
+Shut up.
+
+Good. Very good.
+
+Anyway, settle in, and everything seems to be going dandy. Keep in mind it was late July when I moved there. Hot summer weather, well, that went down the drain once the sun set. The house turned unusually cold.
+
+Pulled out a blanket and ignored it.
+
+Slept like shit, because it was so cold.
+
+Wake up after a mere two or three hours of sleep, not the first bout of horrendous sleep and won’t be the last.
+
+It’s hot again.
+
+Summer’s back, and this wasn’t in the desert.
+
+Go on about my day, angry and half awake.
+
+Night rolls around again, start the heating.
+
+Works for about an hour.
+
+Then it’s cold again.
+
+Turn up the heating – the house turns colder.
+
+That went on for a while…
+
+I grew accustomed to the cold, no idea how or why.
+
+The boiling frog metaphor probably suits here.
+
+Well, once freezing me out of my sleep didn’t work.
+
+The guests started showing up uninvited.
+
+In the middle of the night
+
+To stand at my bedside…
+
+I’m shaking just thinking about it.
+
+Imagine yourself waking up in the middle of the night to take a piss and being met with a pitch-black silhouette standing at your bed. One so dark it forms an outline in the nocturnal darkness, enough to be visible. I nearly pissed myself when I saw that thing for the first time. Screaming out, I flailed my hands in the air instinctively, and the thing vanished.
+
+Chalked it up to bad sleep and maybe a nightmare when I got up the next morning.
+
+That wasn’t it, but it took me a while to understand that.
+
+About every other night, I could almost feel these dark figures standing over me. Plural. Not singular. Plural. Sometimes I could feel them touching my blanket, pulling it away. A cold hand reaching for my leg or arm.
+
+After a few unpleasant encounters, I’ve started sleeping with a light on.
+
+Naively believing this was a trick of the mind, you know, being stressed, depressed, and overall miserable. Again, I say this, thinking logically, from the perspective of a relative of schizophrenics and other mentally unwell individuals.
+
+I was dreading becoming ill myself.
+
+Woke up one night to fetch a drink, with the light still on. Nearly shat myself, soiling the bedsheets.
+
+Eyes wide open and the first thing I see?
+
+A human-like shadow, perched on all fours on the ceiling.
+
+It twisted its head at me before vanishing.
+
+Breathe… Inhale... One... Two... Three... Four...
+
+Hold... One... Two... Three... Four...
+
+Exhale... One... Two... Three... Four...
+
+That was just the beginning of my sorrows.
+
+After that came the electronic issues. Lights would go on and off around the house, at nighttime, of course. I should’ve already taken the hint then, when the whole house went dark, except for the light in the staircase leading down to the basement.
+
+But of course, I didn’t.
+
+Instead, I went to look at the switches, most of which were turned off.
+
+Needless to say, this malfunction didn't put me at ease. The neighbors lived too far away for their children to have come over at night just to mess with me.
+
+The grid being messed with is the sole reason I haven’t checked myself in.
+
+I wasn’t hallucinating; someone was messing with me. So, I thought at the very least, yeah?
+
+Speaking of neighbors, they were far enough away for me not to be able to hear them whatsoever, through closed windows, but not so far I couldn’t see them.
+
+Now imagine how it felt when the walls started talking…
+
+I’m not kidding, at one point, the walls were talking at night. With nobody around the house. Trust me, I checked. I went out to see if someone was in my yard when the talking had gotten loud enough to be comprehensible.
+
+They were asking me why I hadn’t gone there?
+
+Asking me to go there.
+
+Two voices, a man and a woman.
+
+Encouraging. Pestering, even.
+
+At the time, I couldn’t make sense of it.
+
+Go where?
+
+Well, clearly, I wasn’t listening to them.
+
+Why weren’t you listening to them?
+
+Why the fuck were you so deaf?
+
+So blind?
+
+You couldn’t know at the time.
+
+They were messing with the house.
+
+They were almost guiding me by the hand.
+
+No, they were giving you vague signs.
+
+Don’t blame yourself for what had happened.
+
+I don’t…
+
+I could’ve prevented more.
+
+There were six of them there.
+
+Another three were found.
+
+It’s not your fault
+
+I could’ve prevented it.
+
+No, not really.
+
+Shut up, they told me everything.
+
+These people – they told no tales.
+
+Just breathe, man
+
+Breathe… Inhale... One... Two... Three... Four...
+
+Hold... One... Two... Three... Four...
+
+Exhale... One... Two... Three... Four...
+
+Well, yeah, I didn’t listen to those voices; I thought I had imagined them, as I had a neighbor only viewing a strange green-lit TV show on certain nights. I most certainly had strange things happen to me as a child. Like feeling a cat brush against my leg after King, my parents’ cat, passed away, and thinking something must’ve turned ceiling fans on after forgetting to turn them off.
+
+Since speaking to me didn’t work, I got moaning, groaning, and weeping all over the house. Almost every night. At an increasing rate. That, of course, showed at work and in social settings. Ever the self-conscious rationalist, I chalked it up to the divorce and very difficult clients at the time, which I had.
+
+Before long, I had gusts of wind blowing at me inside a house with closed windows, and a few times I was shoved while completely alone.
+
+Jesus Christ, I’m feeling like a maniac right now, hallucinating into a text.
+
+The talking, the moaning, the nighttime groping, none of it ever stopped, but that was my fault; if I had paid attention earlier and had gone where the selective power outages led me, this would’ve been over far sooner.
+
+My mind deteriorated fast; by the middle of November, I heard dogs baying and clawing at every door of the house.
+
+Night after night, they tormented me without reprieve.
+
+Worse of all was when they sounded like they were trying to say words.
+
+Sometimes it was far away, sometimes it felt like a dog was trying to tear at the bottom of the bed.
+
+Before long, seeing a dog freaked me out.
+
+I started sleeping with the lights on, in every room.
+
+Became a barely functional human.
+
+I have no idea how I managed to keep on working.
+
+Maybe a force of habit, maybe something else.
+
+Keeping a mask of normalcy while I was in shambles inside was par for the course in my line of work.
+
+Well, you are special in that regard.
+
+Funny you should say that.
+
+How so?
+
+Isn’t it a little egotistical?
+
+No. Self-appreciation isn’t egotistical; it’s healthy.
+
+Right, right.
+
+Right, indeed.
+
+There’s nothing healthy about us.
+
+About us? There is no us.
+
+Right. Yeah, it’s just you.
+
+Typing at yourself.
+
+For myself
+
+Exactly, trying to keep sane
+
+Mostly are. Am.
+
+Very true.
+
+I’m sorry I keep doing this; however, that is the only way I don’t burst out into a crying fit now and start bashing my hands against the keyboard or clawing out my eyes in an attempt to escape the whirlwind of horrors in my mind. I can’t do much about it at the moment, since the dog won’t stop barking, and it’s kind of late.
+
+I said it before, and I’ll say it again: I’m afraid of the dark, and I’m afraid of dogs. I’ve been classically conditioned to dread those two things.
+
+Well then… Where was I? Oh yeah, nearing the climax of the story.
+
+Damn, for someone relieving that night so frequently in his, no, my own head, so often, it’s surprisingly hard to spell it out. I’m quite literally trying to postpone the description of the events that led to my current condition. What a sorry state I’m in. A man who helps others process their own trauma and internal suffering can’t bring himself to speak about how the incessant baying of dogs in his basement and walls pushed him over the edge and drove him, knife in hand, to rush down to that same basement he’s never ventured to before.
+
+Breathe… Inhale... One... Two... Three... Four...
+
+Hold... One... Two... Three... Four...
+
+Exhale... One... Two... Three... Four...
+
+I know it seems odd I never went into the basement, but really, I had no reason to. I didn’t have many belongings I had to stow away, and the house was entirely furnished as I said. On top of that, I was too spent to be curious about any of this. As strange as it may seem, I saw no point in going there.
+
+I was so messed up from the lack of good sleep, stress, and fear that I finally snapped when the baying and barking wouldn’t quit one night. I actually started thinking there were real dogs in that basement.
+
+Real, starving, mean dogs that might try to attack me once I opened the door. So I got myself a weapon to defend myself with.
+
+Yeah, I said it, I genuinely believed some beasts were locked in that basement.
+
+Power-walking down those stairs, the baying died down. I assumed they knew I was coming. They could smell me. They were preparing to surprise me; dogs are smart after all. Clearly, in retrospect, that’s the dumbest thought process ever. Dogs aren’t really ambush predators as far as I’m aware.
+
+As I was marching down those stairs, I somewhat ignored the sudden quiet, because there was a growing stench of decrepitude emanating from the basement door.
+
+Say it like it is.
+
+That’s what it was.
+
+Call it by its name.
+
+Vile, sickening.
+
+No, that’s not it.
+
+Decay. Rot
+
+Close enough.
+
+Death. Fucking Death.
+
+That’s it.
+
+Fuck you.
+
+I smelled death coming from that basement.
+
+A rotten, pungent, suffocating odor coming from that door.
+
+I pressed the handle and pushed down with full force.
+
+The cloud of stale, deathly odor nearly knocked me off my feet, burning my nostrils, mouth, and eyes.
+
+No dogs in sight, no voices, nothing.
+
+Only death.
+
+Left hand looking for the light switch along the wall, right hand gripping a knife with the arm pressed to cover my face from the awful stench.
+
+Blinding light flooded the space.
+
+When my eyes adjusted, all remnants of innocence and hope were taken away from me.
+
+Six, vaguely human silhouettes, seemingly staring at me.
+
+Without eyes, without faces, without any humanity left.
+
+Swaying from six ropes, tied to the ceiling.
+
+Pitch black.
+
+My very own personal little hanging garden of death.
+
+Inhale... Inhale
+
+Come on... Fuck.
+
+Inhale... No... Breathe...
+
+Why can’t I
+
+Why isn’t it working?
+
+Ribcage tightened, forcing my heart to race at an unhealthy rate.
+
+Knife dropped to the floor.
+
+Tunnel vision.
+
+Limbs turning cold with muscles tensing to the point of pain.
+
+I ran.
+
+Nearly falling over myself.
+
+I ran to the neighbors.
+
+Banging on their door.
+
+Woke them.
+
+Rumbling like a madman.
+
+Shaking with fear, somehow, stringing a couple of sentences together as these six tar-covered silhouettes flashed before my eyes again and again.
+
+They called the police.
+
+I’m out of breath.
+
+Out of breath
+
+Couldn’t sleep for three days straight.
+
+Couldn’t think, could barely speak.
+
+Panicking. I am...
+
+Decomposing Silhouettes flashing in my eyes.
+
+More frequently when they are closed.
+
+Questioned about everything by the police.
+
+Answers erratic.
+
+Silhouettes are here again.
+
+Swaying in front of me.
+
+Black as tar and death.
+
+Exposing bone.
+
+Fell asleep after being pumped full of sedatives.
+
+Haven’t slept in a few days again.
+
+Need my pills again.
+
+Silhouettes appear more frequently with eyes closed.
+
+I’m taking the pills after this; I need to sleep, otherwise, I’ll claw out my eyes, or die from a heart attack, whichever comes first.
+
+Breathe… Inhale... One... Two... Three... Four...
+
+Hold... One... Two... Three... Four...
+
+Exhale... One... Two... Three... Four...
+
+I hospitalized myself for a short while, and in the meantime, the monster that did this was caught. He murdered nine people. Hanged six in the basement of the house I had bought from him. No one suspected a damn thing. Selling the house was his ploy to lure in victims. He’d lead them down to the basement, then incapacitate them there and hang them to die a slow death, apparently, oftentimes placing a stool underneath his victims again to prolong the torture.
+
+Every so often, I wonder, was I ever intended to be a victim? Not that it matters; he destroyed my life anyway. If I’m completely honest, there are days when I think dying would’ve been preferable to being the way I am now.
+
+His three other victims were all found in different locations; two were found by people who had rented apartments from him.
+
+The final victim was found fresh at his last stopping point before his apprehension. He was…
+
+Inhale... One... Two... Three... Four...
+
+In bed…
+
+Hold... One... Two... Three... Four...
+
+With the corpse…
+
+Exhale... One... Two... Three... Four...
+
+Caught red-handed, quite literally.
+
+Inhale... One... Two...
+
+Exhale... One...
+
+Inhale... Inhale... inhale...
+
+I bet this fucking monster figured out he could torment way more people by leaving them his gifts. Kill two birds with one stone kind of deal.
+
+Imagine the satisfied, sick grin on his fucking face if he hears what his handiwork has done to me.
