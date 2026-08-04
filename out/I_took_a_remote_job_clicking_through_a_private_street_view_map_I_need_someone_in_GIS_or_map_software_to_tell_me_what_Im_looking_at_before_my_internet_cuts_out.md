@@ -68,13 +68,13 @@ The second I zoomed, my speakers blasted a high pitched screech, like a dial up 
 
 Red border across the screen. Static cut dead. A chat box opened bottom right.
 
-Terminal: Anomaly flagged. Type?
+Terminal: `Anomaly flagged. Type?`
 
-Me: Rule B violation. Pedestrian looking up with mouth open.
+Me: `Rule B violation. Pedestrian looking up with mouth open.`
 
 Long pause. Typing indicator bubbling.
 
-Supervisor_David: Received. Locking node. Thank you for your diligence. Take a 5 minute break and resume on the next queue. Please remember to adhere strictly to all guidelines regarding zooming.
+Supervisor_David: `Received. Locking node. Thank you for your diligence. Take a 5 minute break and resume on the next queue. Please remember to adhere strictly to all guidelines regarding zooming.`
 
 Dropped me onto a dirt road in rural Texas.
 
@@ -92,9 +92,9 @@ An interior living room, reflected in a mirror standing on the shoulder of a rur
 
 I hit F9.
 
-Me: Rule E violation. Freestanding mirror on side of road. Reflection shows interior room.
+Me: `Rule E violation. Freestanding mirror on side of road. Reflection shows interior room.`
 
-Supervisor_David: Received. Locking node. Thank you for your diligence. Take a 5 minute break and resume on the next queue.
+Supervisor_David: `Received. Locking node. Thank you for your diligence. Take a 5 minute break and resume on the next queue.`
 
 Dropped into a sunny Phoenix neighborhood, coincidentally one I used to live in a few years after college. I closed the laptop for the day, didn't care about my quota, spent the night on my personal phone with a VPN trying to find anything on Aegis Geographic. Tor, forums, everything. There was nothing. No employee LinkedIns, no Glassdoor, no press about a fleet of mapping cars driving the country. A company with that kind of infrastructure and zero digital footprint.
 
@@ -116,17 +116,17 @@ It was my living room.
 
 I hit F9 so hard I think I cracked a nail.
 
-Me: I need to speak to someone right now. What is this?
+Me: `I need to speak to someone right now. What is this?`
 
 Long pause. The typing bubble sat there for almost a full minute.
 
-Supervisor_David: Node locked. Please step away from the console for 15 minutes.
+Supervisor_David: `Node locked. Please step away from the console for 15 minutes.`
 
-Me: No. The room in the mirror is my apartment. My actual apartment. How.
+Me: `No. The room in the mirror is my apartment. My actual apartment. How?`
 
-Supervisor_David: Do not look into the reflections of freestanding mirrors. This is Rule E. Please close the terminal and take your mandated break.
+Supervisor_David: `Do not look into the reflections of freestanding mirrors. This is Rule E. Please close the terminal and take your mandated break.`
 
-Me: Who is the person in the yellow coat?
+Me: `Who is the person in the yellow coat?`
 
 The chat disconnected. Argus force closed to the desktop.
 
@@ -160,37 +160,37 @@ I shoved back from the desk so hard my chair tipped and I hit the floor. Crawled
 
 Around 7:00 PM my personal phone buzzed. Unknown shortcode.
 
-AEGIS ALERTS: Your weekly node quota has not been met. Please log into the Argus Terminal to prevent contract termination.
+AEGIS ALERTS: `Your weekly node quota has not been met. Please log into the Argus Terminal to prevent contract termination.`
 
 I ignored it. Not going near that laptop.
 
 7:30. Buzzed again.
 
-AEGIS ALERTS: Unscheduled route deviation detected. Supervisor David is requesting a live session.
+AEGIS ALERTS: `Unscheduled route deviation detected. Supervisor David is requesting a live session.`
 
 I got up, legs like jelly, walked over and looked at the screen. It had overridden itself. My apartment street view was gone, replaced with a live real time map of the country. A single red dot pulsing on I-80 near Des Moines. Two hours east of me.
 
 Scrolling readout underneath:
 
-ASSET: AEGIS RIG #44
+`ASSET: AEGIS RIG #44
 STATUS: ACTIVE DRIVING
 DIRECTION: WESTBOUND (I-80)
 DESTINATION: OMAHA NE
-ESTIMATED TIME OF ARRIVAL: 23:14:00
+ESTIMATED TIME OF ARRIVAL: 23:14:00`
 
 Same time as the photo. I hit F9.
 
-Me: Why is it coming here. Cancel the route. I quit, I resign, I'm unplugging the machine right now.
+Me: `Why is it coming here. Cancel the route. I quit, I resign, I'm unplugging the machine right now.`
 
-Supervisor_David: You cannot resign while a localized anomaly is unresolved. You viewed the reflection. You established the tether. Rule E was explicitly clear.
+Supervisor_David: `You cannot resign while a localized anomaly is unresolved. You viewed the reflection. You established the tether. Rule E was explicitly clear.`
 
-Me: I didn't establish anything, it was a glitch. Call the car off or I am calling the police.
+Me: `I didn't establish anything, it was a glitch. Call the car off or I am calling the police.`
 
-Supervisor_David: The police cannot intercept Rig 44. It is not currently occupying physical geographic space. It is rendering the route. It is retrieving the anomaly.
+Supervisor_David: `The police cannot intercept Rig 44. It is not currently occupying physical geographic space. It is rendering the route. It is retrieving the anomaly.`
 
-Me: What does that mean. What anomaly. I'm not an anomaly.
+Me: `What does that mean. What anomaly. I'm not an anomaly.`
 
-Supervisor_David: The discrepancy in the spatial data. The element that does not belong. It is coming to cleanse the node OP.
+Supervisor_David: `The discrepancy in the spatial data. The element that does not belong. It is coming to cleanse the node OP.`
 
 He used my real name. Not my contractor ID.
 
