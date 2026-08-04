@@ -351,7 +351,3 @@ In nine years of living on this street, I’ve only ever seen three people at th
 None of them lived there.
 
 Now no one lives there.
-
-Title is the first line.
-
-Is that a good first line. It repeats about 5 sentences in

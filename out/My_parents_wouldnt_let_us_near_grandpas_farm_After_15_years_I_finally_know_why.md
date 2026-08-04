@@ -1,0 +1,441 @@
+I want to tell you something before I start.
+
+
+
+My name is Derrek. I am twenty-two years old now. I do not believe in ghosts. I did not believe in monsters. I grew up in a normal house, with normal parents, who did one deeply abnormal thing back when i was a kid.
+
+
+
+They never let me or my sister Maya go to our grandfather's farm.
+
+
+
+Not for holidays. Not for summers. Not once, except for a single afternoon when I was seven years old, an afternoon I had almost completely forgotten until three weeks ago.
+
+
+
+Three weeks ago, my grandfather Silas called me and asked for help.
+
+
+
+He was eighty-one. His hip was bad. He said the farm was too much for one old man, and could I come stay a while, help with the animals, help with the fences. 
+
+
+
+I said yes.
+
+
+
+I wish, more than anything I have ever wished for, that I had said no.
+
+
+
+The farm sits on land so flat it plays tricks on your eyes. 
+
+
+
+There are no mountains here. No hills. Not even a gentle rise to break the horizon. Just field after field after field, stretching out in every direction until the crops blur into the sky. 
+
+
+
+The dirt road that brought me in ran straight for what felt like forever, and then it just stopped, right at the edge of the yard. The nearest town was an hour’s drive away. Grandpa Silas’s old truck had permanently died years ago, so when he needed supplies, he’d saddle up his horse, Sadie, and make a grueling, day-long trek there and back. 
+
+
+
+I remember standing in the driveway that first day, turning in a slow circle, and feeling something I didn't have a word for yet. 
+
+
+
+Exposed. 
+
+
+
+Far off to the east, maybe a third of a mile, there was a tree line. Dense. Dark. The kind of forest where the trees grow so close together that the space between them looks solid black, even at noon.
+
+
+
+My grandfather's house sat between that forest and the dirt road. The shed stood behind the house, and a stone's throw past that sat the barn, where what animals we had left were kept at night.
+
+
+
+I want you to picture this shed correctly, because it matters.
+
+
+
+It stood around forty-five feet tall. Gray, weathered wood, with walls thick as fortress stone and two enormous doors bolted with iron hardware that looked older than the state itself. 
+
+
+
+Grandpa Silas told me it was for storing cattle feed. 
+
+
+
+I believed him. Why wouldn't I?
+
+
+
+The first few days were quiet. Good, even. We mended a stretch of fence. He told stories about my dad, and for a little while, I forgot to feel exposed under that huge sky.
+
+
+
+Then one morning, Grandpa Silas counted the cattle twice and came up one short. 
+
+
+
+He didn't say much. Just grabbed his rifle, and I followed because I didn't know what else to do.
+
+
+
+We found her halfway out in the field. 
+
+
+
+She was on her side. Opened up.
+
+
+
+Not torn. Not mauled the way a coyote or a wolf might do it. This was neat. Precise. Like a butcher had been at work, except no butcher I've ever heard of leaves the meat behind and takes only certain organs.
+
+
+
+I threw up in the grass. 
+
+
+
+Grandpa Silas stood over what was left of that cow for a long time. I begged him to call the police. He flat-out refused, telling me to drop it. But I couldn't. I drove my car out to the neighboring properties and managed to pay a local hunter to come take a look. 
+
+
+
+The guy strutted out to our pasture with his shotgun, acting tough. But the second he got close enough to see the surgical precision of that carcass, he went dead pale. He didn't say a word. He just shook his head, turned around, and fast-walked back to his truck. 
+
+
+
+"Wait!" I yelled, waving the cash. "I'll double it! Just tell me what did this!"
+
+
+
+He didn't even look back. He just got in his truck and drove off.
+
+
+
+Grandpa Silas watched the dust settle on the road. "Stay close to the house after dark, Derrek," he said quietly. "I mean it."
+
+
+
+For three days after that, nothing happened.
+
+
+
+On the fourth day, another cow didn't come in from the field at dusk.
+
+
+
+This time, there was no body. Just a single, thin line of blood, running clean across the field and straight into the tree line. No drag marks. No sign of a struggle. It was like something had reached down out of the dark and simply lifted her away.
+
+
+
+"She's not coming back," Grandpa said. "None of them do, once they're taken like that."
+
+
+
+It kept happening after that. 
+
+
+
+Not every night, but relentlessly enough that the dread never left us. By the end of my third week there, the cattle herd that had numbered a dozen when I arrived was down to exactly one—a stubborn brown cow that paced the fence line like she already knew she was next. 
+
+
+
+One of those nights, I couldn't sleep. I looked out the window and saw my grandfather standing in the yard in his nightclothes, completely still, staring at the tree line. 
+
+
+
+I went outside. When he turned to look at me, I saw an expression on his face that I have never been able to fully explain. It wasn't fear exactly. It was grief. Old, old grief, layered so deep it had become something closer to acceptance.
+
+
+
+"Go back inside," he said quietly. "Please, Derrek."
+
+
+
+I did. 
+
+
+
+I have hated myself for that ever since.
+
+
+
+I woke to screaming.
+
+
+
+Not a scream of surprise. A scream of pure, animal terror. It was my grandfather's voice. 
+
+
+
+I ran outside barefoot into the cold. He was thirty yards from the house, being dragged.
+
+
+
+Dragged by something behind him, something low to the ground and moving in a way that no four-legged animal should move, a horrible loping gait, joints bending at angles that made my vision swim. 
+
+
+
+I only saw it for two seconds. Coarse, patchy fur stretched thin over something too angular. A head that swung around toward me with a motion like a puppet on strings. And eyes that caught the moonlight and threw it back yellow-white, roughly at the height of my own.
+
+
+
+The thing surged forward with blinding speed, hauling him across the field toward the trees. 
+
+
+
+I chased them until my lungs were on fire, but by the time I reached the tree line, there was nothing. Just a smear of blood disappearing into trees so dense I could not force myself to step inside them.
+
+
+
+I drove out and rallied the local farmers. We formed a search party. We scoured the woods for two days, but found nothing. No body. No den. The farmers muttered about "wolves" or said that sometimes old folks just "wander off into the brush and get lost," as if that was somehow easier for me to swallow than what I’d actually seen. 
+
+
+
+Maya arrived on the third day. 
+
+
+
+My sister got out of her car, looked at that huge, flat, empty field, looked at the tree line in the distance, and said the exact thing I'd been feeling since I arrived.
+
+
+
+"Why does this place feel like it's watching us?"
+
+
+
+That evening, walking the property, a memory surfaced in me so suddenly it nearly knocked me off my feet.
+
+
+
+I was seven. Maya was five. Our parents brought us here exactly once. I remembered it being a beautiful day. Everything was sunnily normal. 
+
+
+
+Then I remembered my mother's face. 
+
+
+
+She had gone into the house to use the bathroom and came back out pale. Her hands were shaking. She grabbed our hands and said, in a tight, panicked voice, "Time to go home, kids!"
+
+
+
+My dad was already at the car, engine running. He stared straight down the driveway like the act of looking anywhere else might summon something. Grandpa Silas stood on the porch and watched us go with that same old grief on his face.
+
+
+
+We never came back. I always assumed it was some boring family dispute. 
+
+
+
+Standing in that yard at twenty-two, I understood for the first time that my parents hadn't been protecting themselves from an old grudge. They had been protecting me and Maya from something they'd seen in that house.
+
+
+
+It was hours later when we found the hidden room, tucked behind a false wall in Grandpa Silas's study.
+
+
+
+It was narrow, windowless, and had no electrical wiring. We sat on the floor, sweeping our flashlights over shelves of books, ledgers, and one thick, leather-bound journal. It had been kept by every head of our family who had lived on this land. 
+
+
+
+What we learned made the blood go cold in my hands.
+
+
+
+Our ancestors had settled this land not knowing what already lived near it. The first entries described exactly what I'd seen: livestock slaughtered with precision, a creature that moved wrong, eyes that caught light like an animal's but sat in a face too much like a person's.
+
+
+
+The journal called it by its name. 
+
+
+
+A skinwalker. 
+
+
+
+For generations, the family left it offerings at the tree line to keep it fed and away from the house. But the journal made one thing devastatingly clear. The pacification was never a guarantee. Sometimes, the creature would go rogue. 
+
+
+
+That was why the shed existed. 
+
+
+
+The forty-five-foot feed shed was never built for cattle feed. It was a trap. Built with walls too thick and doors too heavy for any ordinary structure, engineered to contain the creature long enough to end it for good.
+
+
+
+The instructions were exact. Lure it into the shed. Seal the doors. Recite the words of Mark, chapter five, verses eight through thirteen—the story of the demon called Legion. 
+
+
+
+And then, drive a blade directly into the creature's heart.
+
+
+
+The journal described a knife unique to our family, its blade engraved edge-to-edge with crosses. At the base of the handle, a small cloth sponge was fastened. It had to be soaked in the creature's heart's blood. Only then could a cross be painted in that blood across the outside doors, marking the shed as consecrated and sealed for good.
+
+
+
+Maya looked up at me, her face white in the flashlight beam. "Derrek. Grandpa didn't wander off. He led it away. On purpose."
+
+
+
+He had been feeding it. Keeping it calm. And when it finally went rogue, he gave himself to it to buy us time. 
+
+
+
+A sharp, panicked sound cut through the night. By the time we reached the yard, the last cow's gate stood wide open. A thin dark line of blood was running from the pasture straight toward the tree line. 
+
+
+
+Maya grabbed my arm. "That was the last one."
+
+
+
+We looked toward the barn, where exactly one animal was left standing in the moonlight.
+
+
+
+Sadie.
+
+
+
+There was no other way. Every other living thing on that farm was dead, and the journal was clear: the ritual required live bait. 
+
+
+
+I cried leading that sweet, old chestnut mare out into the yard. We tied her inside the enormous shed, right in the center, bathed in the glow of a single lantern. 
+
+
+
+This time, Maya waited outside, hiding in the shadows with the heavy ropes tied to the massive doors. 
+
+
+
+I hid inside. 
+
+
+
+I crouched behind a stack of heavy wooden pallets in the pitch black, gripping the cold, engraved knife in my shaking hands. We waited as the field went from gray to black.
+
+
+
+It came just after full dark. 
+
+
+
+I heard a low, guttural clicking, like a tongue against teeth.
+
+
+
+Sadie screamed. 
+
+
+
+The creature stepped into the lantern light. Patchy fur, skin stretched too tight across a wrong frame. Its jaw hinged open impossibly wide. It surged forward, lunging at Sadie with terrifying speed. 
+
+
+
+I heard the sickening sound of claws tearing into flesh, and Sadie let out a horrific, garbled shriek as she was thrown to the dirt. 
+
+
+
+At that exact second, Maya hauled on the ropes. The massive doors swung shut and slammed home with a boom that shook the floorboards. I heard the heavy iron bar drop into place outside. 
+
+
+
+We were locked in.
+
+
+
+The creature shrieked and whipped around, dropping the bleeding horse. 
+
+
+
+I stood up from behind the pallets. My legs felt like lead, but I forced the words out of my throat, screaming them over the creature's clicking hiss. 
+
+
+
+"And Jesus asked him, what is thy name? And he answered, saying, my name is Legion, for we are many..."
+
+
+
+The creature froze. Those pale yellow eyes locked onto mine. Something in it recognized the words, or feared them. It hesitated. 
+
+
+
+That hesitation was all I needed. 
+
+
+
+I closed the distance and drove the blade into its chest with both hands. 
+
+
+
+I remember heat. I remember the sponge on the pommel soaking dark and warm in my fist. I remember screaming the rest of the verses right into its terrible, shifting face, right up through the swine rushing down into the sea. 
+
+
+
+I stumbled out through the small side door into the night air like a man surfacing from deep water. Maya and I painted the cross on the outside doors together in the dark, our hands coated in blood.
+
+
+
+It has been six days.
+
+
+
+Sadie survived the night, but just barely. The wounds were too deep. We lost her three days later, and burying her in the pasture felt like burying the last good thing on this land.
+
+
+
+Maya and I have not left this property since. We tell ourselves it's because of the search party, the funeral we can't hold without a body, the endless phone calls.
+
+
+
+The truth is much worse.
+
+
+
+We are afraid to leave the shed unwatched.
+
+
+
+I sit up most nights on the porch, looking out across that huge, flat field toward the barn, toward that enormous sealed door with its dark, dried cross, and I listen.
+
+
+
+Because some nights, if the wind is still enough, I can hear something on the other side of that door.
+
+
+
+Breathing.
+
+
+
+The journal never said the creature dies when the ritual is finished. It only said the door will hold.
+
+
+
+I don't know how long "will hold" is supposed to mean. I don't know if it means my lifetime, or my children's, or if someone else in this family is going to inherit this farm, and this shed, and a debt that started before any of us were born.
+
+
+
+All I know is that my grandfather carried this alone for sixty years so that we would never have to hear that sound. 
+
+
+
+He failed, in the end. 
+
+
+
+But God help me, I finally understand why he tried.
