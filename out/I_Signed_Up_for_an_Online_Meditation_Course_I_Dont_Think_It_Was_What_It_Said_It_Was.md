@@ -1,0 +1,29 @@
+I need to write this down while I still trust my own memory of it, because the further I get from it, the more my brain wants to convince me I imagined the worst parts.
+
+Back in February I was going through a rough stretch, work stress, sleep problems, the usual. A coworker mentioned an online course called Root Stillness, 6 weeks, live sessions twice a week over video call, taught by a woman who called herself Mira. The website looked like every other wellness course out there. Soft fonts, stock photos of people meditating on beaches, testimonials about anxiety relief and "reconnecting with the self." I paid $140 and joined the first session with maybe 15 other people.
+
+The first two weeks were exactly what I expected. Breathing exercises, guided visualization, Mira's voice was calm in a way that actually helped. I looked forward to the sessions. I talked to a couple of the other students in the group chat, a guy named Peter from Ohio and a woman named Deb who worked in HR somewhere in Texas. Normal people. Nothing about it felt off.
+
+By week 3, Mira mentioned that a handful of students who were "ready to go deeper" were invited to an in-person retreat weekend, a few hours from where I live, at a property she said belonged to a friend of the course. I almost didn't go. I went because Peter was going, and Deb, and it felt safer knowing people from the group would be there.
+
+The retreat house was a big old farmhouse, isolated, maybe 20 minutes from the nearest town. There were 9 of us total plus Mira and two assistants I hadn't seen on the calls before. The first day was still normal, more of the same breathing work, some group discussion about "letting go of inherited fear." I remember feeling more relaxed than I had in months.
+
+The second night is when Peter didn't show up for the evening session.
+
+Mira said he'd had a personal emergency and left early. It made sense on the surface. People do leave retreats early. But his bag was still in the room we'd been sharing with two other guys. His phone charger was still plugged into the wall. When I asked one of the assistants about it, she gave me a smile that didn't move the rest of her face and said he was "handling something at home," and changed the subject so smoothly I almost didn't notice she hadn't actually answered me.
+
+I told myself I was overthinking it. Deb said the same thing when I mentioned it to her quietly at dinner, that maybe I was just anxious being somewhere unfamiliar. But I noticed she kept glancing at Peter's empty seat too.
+
+That night I woke up around 2am because I heard chanting. Low, rhythmic, coming from somewhere below the house. I followed the hallway to the top of a staircase I hadn't noticed before, a narrow one behind a door that had been locked the entire first day. It wasn't locked anymore.
+
+I only went down four or five steps. Enough to see candlelight flickering against a stone wall, enough to hear that the chanting wasn't in English, and enough to see, just for a second before I turned and ran back up, a symbol painted on the floor in something dark red that I am not going to try to convince myself was paint.
+
+I didn't sleep the rest of the night. At sunrise I packed my bag as quietly as I could and told one of the assistants I had a family emergency and needed to leave immediately. She stared at me for a few seconds too long before she said that Mira would want to say goodbye first. I said I didn't have time, got in my car, and didn't stop driving until I was back in my own driveway three hours later.
+
+I texted Deb that night to make sure she'd left too. She didn't respond. She still hasn't responded. Her number shows as active on the messaging app, delivered but never read, for four months now.
+
+I looked up the retreat property when I got home. It's registered to a shell company with no public owners. The course website went completely offline about a week after I left, no explanation, no refund policy triggered, nothing. I searched for Mira's full name, the one she used on her welcome email. It doesn't return a single real result anywhere.
+
+I want to say I feel safe now. I don't. About two weeks ago I found a small version of that same symbol scratched into the wood of my own front door, low near the bottom corner, in a spot I wouldn't normally look at. I painted over it. Yesterday it was there again, in the same spot, like it had bled back through.
+
+I don't go out much anymore without checking who's around me first. I know how that sounds. I used to think people who said things like that online were being paranoid for attention. I would give a lot to still believe that about myself.
