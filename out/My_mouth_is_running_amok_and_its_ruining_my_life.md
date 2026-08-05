@@ -1,0 +1,111 @@
+\*Did you dream about anything weird last night?\*
+
+My phone pinged as the text message popped up. It was about ten minutes since Grace had left the apartment. She’d been odd this morning; she’d gotten up much earlier than usual and had been darting aimlessly around our apartment, like a bumblebee trapped in a wine glass. In the two years we’d been together, she would always give me a hug or a kiss, or some other kind of acknowledgement before leaving. But not this morning. Once I’d gotten out of bed, she was already one foot out the door and didn’t even say as much as a goodbye. Her work tended to get on her nerves, but not like this. Something must’ve been on her mind if she was acting so nervous.
+
+\*Nope. Just dreaming about the gorgeous angel that is my girlfriend ;)\* I wrote back.
+
+\*You were dreaming about me??\* She answered.
+
+\*Indeed I was\*
+
+Sensing that she was having an off-day, I decided to send her a recorded message as well, just for a little bit of emotional support.
+
+“Hey… I love you, and I’ll be thinking about you all day.”
+
+I got up from the table and started putting on my clothes. Today was my day off and I knew just how I was going to spend it. I would take a stroll on the promenade, down to Ice Cream Kingdom and get myself a strawberry ice cream. I put my sneakers on and walked out the door. The atmosphere outside the apartment complex was refreshing: The Lobelias hanging from my neighbor’s windowsill were in full bloom and had filled the air with the smell of fresh honey. A gentle summer breeze blew through my hair, as the golden rays of sunshine caressed my face. The promenade was filled with people who all seemed as pleased as I was. It was the perfect day for an ice cream. As I walked, I spotted a beggar in the sea of people, sitting on the sidewalk behind his seven-eleven cup. I stopped for a moment and dug into my wallet and fished out a five-dollar bill to put in his cup.
+
+“Bless you, sir.” The man smiled.
+
+“Oh,” I smiled back at him as I let go of the five-dollar bill. “Don’t think about it.”
+
+It was then that the beggar’s behavior changed. His lips turned from a smile to a thin line, the color drained from his face, and his eyes widened to the size of golf balls. For a couple of seconds, he just stared at me, before turning his head away and staring down at the pavement. Though I found his reaction quite odd, I carried on with my walk. I had barely walked five yards before I tripped over my own feet and fell face-first down on the sidewalk.
+
+As soon as I lifted my head off the asphalt, I was met with the outstretched hand of a kind stranger. I grabbed the woman’s hand and pulled myself back up onto my feet.
+
+“Damn. You took quite the tumble, huh?” She said, chuckling lightly.
+
+“Yeah, I guess I did.” I looked down and started wiping off the dirt I had gotten on my clothes. “Thank you for the assistance, I guess.”
+
+I looked back up at the woman. She was blankly staring at me, much like the beggar. She awkwardly looked around, like a victim on Candid Camera, before looking back at me.
+
+“You… You’re kidding me, right?” The woman broke the silence.
+
+“What?” I asked. “Is there a problem?”
+
+“Okay… I see. I was just trying to help, asshole!” She sneered at me.
+
+She walked away, making sure to ram her shoulder into mine as she made her way. Feeling confused, I looked at around at the other people strolling the promenade, and it was clear that they were deliberately averting their eyes from me, as if I was just some random tweaker. Warmth was spreading through my body, and I began blushing out of sheer awkwardness and started powerwalking away from the crowd, itching to get away from whatever had just happened.
+
+I finally arrived at Ice Cream Kingdom. Through the windows, I saw that Rachel was working, which made me happy. Rachel was always happy to give some friendly discounts. It seemed like other people had had the same idea as me as all the tables in the shop were filled with customers. The little bell rang as I walked in through the entrance. Rachel smiled as soon as she saw me. She grabbed the ice cream scoop and instantly went for the strawberry ice cream.
+
+“Just the usual, I presume.” She said with a cheeky smile.
+
+“Yeah. I really need this today, Rachel.” I answered.
+
+She immediately stopped scooping.
+
+“What…?” She laughed nervously. “Why would you say that?”
+
+“What?” I felt the heat of embarrassment coming for a second round. “What did I say?”
+
+Rachel’s eyes were filling with tears. I looked behind me at the other customers; they were all staring directly at me. Droplets of sweat were making their way down my face.
+
+“Rachel, what’s wrong?” I asked. “What did I say?”
+
+Rachel began bawling her eyes out. She covered her face in her elbow and began heaving for air. I’d never seen her that upset before.
+
+“Hey, asswipe! Knock it off!” One of the customers yelled from a table in the shop. “You don’t need to be talking to that sweet lady like that!”
+
+I leaned over the desk, trying to ignore the customer in the back. I reached out a hand to comfort her, but she just pulled away. As I was panicking, I heard rapid steps approaching me from behind. I had barely turned around before I saw a fist barreling towards me. I felt the customer’s knuckles strike my Adam’s apple at full force, and I crumbled together on the floor like a wet napkin, desperately grasping my throat.
+
+The customer grabbed the collar of my shirt, hauled me back onto my feet, and began pushing me to the door. At the threshold, the man shoved me hard in the back, making me faceplant on the sidewalk for the second time that day.
+
+“WHAT IS WRONG WITH YOU?!” I yelled as I got up.
+
+“Go be a dumbass somewhere else.” The man said dismissively as he walked back inside.
+
+Through the open door, I could see Rachel being comforted by the other customers as her mascara smeared across her cheeks. I walked away from the shop, gently rubbing my Adam’s apple. I felt like I was losing my mind. Then I felt a vibration from my pocket. Pulling out my phone, I saw that it was my mom calling me.
+
+I should’ve known better than picking up.
+
+“Hello. I just wanted to know how you day was going.” My mom’s voice came through the phone.
+
+“Honestly, mom, it’s been a terrible day.” I said without even thinking. “I swear, everyone’s acting so weird.”
+
+There was a small pause before she said anything.
+
+“You don’t mean that, right?” She said, sounding as if all the air had been sucked out of her.
+
+“Mom?” I said, realizing the mistake I’d made. “No, please. Not you too.”
+
+She didn’t need to say anything. My worries were confirmed by her miserable sobs.
+
+“PLEASE, mom! Stop crying! I don’t know what I’m saying, PLEASE!”
+
+But she didn’t stop. Every sob through the phone was another stake through my heart. I looked around me; everyone was staring, horrified. I panicked. I hung up on my mom and started sprinting back to my apartment. My phone vibrated again and again as I ran, but I didn’t dare pick up. I darted through the entrance of the apartment complex. I couldn’t even wait for the elevator; I just ran up the stairs. Heaving for air, I bolted through my apartment door, scaring Grace who was unexpectedly standing on the other side of it.
+
+“Oh… Hi.” Grace said, sounding nervous.
+
+I was confused. This was very early for her to be home. Then I noticed the suitcase she was holding in her hand, as well as the sorrow plastered all over her face.
+
+“I’m going to stay with my sister for a while.” She said after a moment of silence.
+
+For once, I managed to stop myself before I blurted anything out. I desperately pulled out my phone, ignoring the list of missed calls from my family members and opened messages. With shaky fingers I typed out \**Why\** and sent her the message. Grace pulled out her phone and looked at the message. She seemed confused. I looked at her expectingly and she sighed deeply.
+
+“You woke me up last night, a little after midnight.” Tears were streaming down her face. “You were talking in your sleep.” Her eyes drifted away from mine and down to the floor. “The things you were saying… It was… It was...” She sniffled. “I told myself that maybe you were having a bad dream or something… That I was overreacting. But then you sent that horrible voice message this morning.” She looked up at me, her teary eyes staring right into mine. “I don’t feel safe around you anymore.”
+
+I grabbed my phone and started typing out a new message: a message that would explain every weird thing that had happened to me that morning, but before I could send it, Grace blocked my number.
+
+“I can’t do it like this.” She said sternly. “I don’t want your text messages. I just want you to talk to me about what the fuck is going on with you.”
+
+I didn’t know what to do. We were trapped in another moment of silence before Grace said anything.
+
+“Tell me what’s going on,” She said with teary eyes. “or else I’m leaving.”
+
+It’s rare that I feel defeated like I did in that moment. It was overwhelming beyond what words can describe. I looked down at the floor as I felt tears running down my face. My mind was blank. I was drowning, and every cry for help only pulled me further into the ocean’s depths.
+
+I don’t know how long I stood there. I just know that when I looked up, the door was open and Grace was gone.
+
+That was a couple hours ago now. Grace still hasn’t unblocked my number. I keep getting calls from my family that I’m too scared to answer. I don’t know what to do.
+
+Grace, if you see this, I’m sorry for whatever I have said to you. I hate to see you like this. I hate to see us like this. Please come home. I don’t know what to do.
