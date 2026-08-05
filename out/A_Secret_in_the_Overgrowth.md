@@ -42,6 +42,7 @@ I went to try the museum in my hometown. Unfortunately, the museum’s attention
 
 Some time went by, and the case went cold. I didn’t see any reason to tell my friends – what did I have to tell them? That I’d found a misleading map that couldn’t point me in any direction, and an article that hadn’t been updated since the owner likely got his first access to the internet, presumably back in the late 90s or early 2000s.
 
+
 By happenstance, some time later, I stumbled upon the former municipalities again, and my interest was refueled. Before this, I’d already been to the museum, with nothing, and then later the local library, also nothing. Now, I’d started at a university in another city called Drammen, not far from where I’m from. One day, I had some extra time on my hands and decided to try the local museum in Drammen. But yet again, no information there either.
 
 My campus also houses the city’s local library. I figured, why not, and decided to look there as well, and this time I actually found something: an old book.
@@ -67,6 +68,7 @@ I finally realized I’d found a hidden municipality that can’t be traced back
 It’s hard to explain why it’s so… "spooky", I guess you’d say. It’s so out of the ordinary of what I’m used to. Here I had the guidance to something that was just waiting to be unearthed, and it was closer than I’d come to realize. Did I dare to do this? Not just stop here and tell people?
 
 No. Something is weird; you don’t just "close down" a municipality like that. I had to find out why. I just had to go there myself. A real and yet unknown place that presumably just sits out there in the woods.
+
 
 I went there on a Tuesday, which is the day of the week we’re allowed to study from home, a perfect day for a hike out. I borrowed my father’s old Ford and drove off to Lardal.
 
