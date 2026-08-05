@@ -1,0 +1,27 @@
+I used to inspect homes by trade, and I have seen it all: Mold, rot, vermin, squatters, meth labs, rodents (both dead and alive), insane amounts of cash, antique furniture buried under mountains of fast food containers. You name it, I've encountered it; if you have a phobia, I most likely have a story for you. Apart from spider colonies and hidden porn magazines from the fifties, the more serious and vastly sadder aspect is the finding of deceased people and pets. That comes with its own hurdles, mentally and legally. You don't get used to seeing a dead person, you simply try and deal with the dread or you change your career path. I had a few such inner dialogues, but stuck with the job for the better half of a decade. In March of this year, I inspected a house that finally made me quit.
+
+It was a beautiful place, mid-century, out on a gorgeous property with woodlands and ponds, the kind of quiet rustic luxury that made the disconnect from urban comfort worth it. The next supermarket was miles away – if you were smart, you'd stock the pantry once a month and then enjoy the solitude. I tended to muse about this absurd dream for my own retirement, walking up the leaf-covered path that led to the main house. I jotted down what first caught my eye; some unstable girders, broken windows, obvious overgrowth and expected animal droppings.
+
+I walked into the damp-smelling foyer and sighed at the carpet. That would have to be replaced in its entirety. With the tip of a pencil, I stabbed into the faux fur fabric and a sluggish, soggy ripple moved from my feet and outward, as if I had dipped a toe into a formerly calm pool. I frowned. There was no former mention of waterlog. I double-checked my notes.
+
+“Okay,” I sighed and marked it down. Surprises were a bad sign, it most likely meant the last visit lay further back than I had been told. My voice was stifled by the stillness of the house.
+
+Carpeted stairs led to a few rooms that thankfully looked like the layout I had been given. I felt like walking on moss. A few silverfish scuttled off rapidly as I shone my flashlight into darker corners. Nothing out of the ordinary. Despite not seeing any, I wrote down that I heard the pitter-patter of rodents, probably rats or squirrels.
+
+I got my first proper start in the kitchen, where, after drawing back the moldy curtains I was shocked to find myself in a staring match with a silverfish the length of my finger, and noticed a handful of the same insects of equal size, similarly frozen. They seemed to momentarily ponder my appearance, then hurried where I could not and would not follow.
+
+How the hell was I supposed to record this? “Unusually sized vermin”, I said out loud. I was no expert in animal behaviour, but something seemed odd about the critters. I shook my head. They were probably as surprised as I was after a lifetime of isolation, were probably already back to feasting on whatever grew underneath the stove. A gentle rumble shook the floor, not unlike the undulating carpet moments before. I was reminded of heavy groundskeeping equipment and stupidly moved on.
+
+Next up was the cellar and indoor pool, two flights of stairs down into the cold and wet darkness. I quickly sent an update to my boss and a handful of photos, getting a thumbs-up emoji in return. The reception had faded with the light and I soon relied on carefully moving along the wall until I found a switch.
+
+Neon lights, cold and sterile, flickered to life. My senses rebelled at the sight and sudden sound before me. Had the silverfish in the kitchen seemed big before – the ones moving rapidly along the wall, floor, and ceiling were monstrous. Illustrations of trilobites in dinosaur books flashed in my mind, the smaller ones with diameters as wide as my palm, the larger ones easily football-sized. All of them moving erratically away from the light, away from me, and down underneath the pool cover.
+
+Another rumble shook the foundation, more intensely this time, and my feet, glued to the ground by horror and disbelief, would not let me move. I watched with rising nausea as the pool cover writhed and bulged, curving upwards underneath the strain of something massive. Two gigantic feelers, glistening wet-black in the cold light, pushed out from beneath the tarp like broken javelins, flicking left and right, trembling, and with those movements the constant sighing of a million feet, ever crawling, clicking – it almost sounded excited.
+
+I ran.
+
+I dropped everything, phone, clipboard, hat, nearly stumbled over my own feet as I raced into the warm light of day, panting, not wanting to believe, not wanting to see, further and further until I reached the company van, lungs burning, damp clothes, sobbing and red-faced.
+
+I returned with a written recommendation to completely flatten the property and cement-seal the basement. I don't believe I would have been taken seriously had I mentioned anything beyond an irreparable vermin infestation. I've been having nightmares ever since; I can't sleep without earplugs and a mask for fear of letting anything...*in*. My bed is protected by mosquito nets; I have severely reduced my belongings and decluttered to the point of extreme minimalism.
+
+It doesn't stop the fear, but it makes it bearable.

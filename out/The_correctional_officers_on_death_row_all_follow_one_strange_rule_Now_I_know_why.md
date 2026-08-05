@@ -1,0 +1,107 @@
+The prison I work at has rules. Most of them are written down. They're printed in manuals, covered during training, and posted on the walls of the staff room. The important ones aren't.
+
+They're handed from one correctional officer to the next, quietly, usually over coffee when no one else is listening.
+
+I laughed at one of those rules. The next morning I watched a man die.
+
+I started working on death row at Folsom State Prison eight days ago. Yes, that Folsom Prison, from the Johnny Cash song. The first two days were exactly what you'd expect. Paperwork, videos, policies, emergency procedures, more paperwork. On my third day they paired me with an older officer named Rusk to show me the tiers. He'd worked there longer than I'd been alive.
+
+Before we stepped through the first security gate, he stopped me.
+
+"Walk taller than you are."
+
+I nodded.
+
+"Look inmates in the face during count, but never into their eyes."
+
+Another nod.
+
+He rested his hand on the gate for a moment before adding one more.
+
+"And whatever you do, don't hum."
+
+I waited for the smile that never came. I thought it was a joke, but answered anyway with some stupid smart ass kid response, "I wasn't planning on it."
+
+"Good."
+
+That was the end of the conversation.
+
+I assumed it was another one of those weird traditions every workplace develops. Hospitals have them. Fire stations have them. Apparently prisons did too.
+
+The rest of the week was uneventful. I learned the layout of the prison, the routines, the gangs, which inmates liked to talk and which ones wanted to be left alone. I walked the tiers with Rusk every shift and, little by little, stopped feeling like the new guy.
+
+Then last night happened.
+
+We were finishing evening rounds on the second tier when I heard someone humming. It wasn't loud. Just enough to echo off the concrete floors and walls. It was a children's song. I knew I recognized it, but couldn't place it. Slow. Careful. But just slightly off.
+
+We approached the cell. The inmate sat cross-legged on his bunk in the corner of the cell. He held a small wooden box in both hands.
+
+Rusk slowed. "You alright?" he asked.
+
+"Yes, Officer Rusk." The inmate smiled. He never stopped humming.
+
+We kept walking. The sound faded behind us as we rounded the corner, but the melody stayed in my head. Without even thinking about it, I started humming the next few notes. I didn't make it past two.
+
+A hand clamped over my mouth so hard my teeth cut the inside of my cheek.
+
+"What the hell are you doing?" Rusk hissed. His eyes weren't angry. They were scared. "I told you never to hum."
+
+The rest of the shift passed in silence.
+
+When we finished our rounds, Rusk called dispatch and requested additional patrols on Tier Two overnight. No one questioned him.
+
+In the break room he poured himself a cup of coffee.
+
+I finally asked. "Seriously...why no humming?"
+
+He stirred the coffee without looking at me. 
+
+"Policies keep order." He sat for a second staring at his coffee. "The rules I'm talking about keep people alive." Another long pause. "Nobody wrote them down." He took a drink. "You don't have to understand them." He dumped the rest of the coffee into the sink. "You just have to follow them."
+
+That was all he said.
+
+The next morning we were back on Tier Two before first count. The prison felt different. Quiet. It made every footstep sound loud. We'd almost reached the end of the tier when I heard it.
+
+Tink.
+
+A tiny metallic note. So faint I thought I'd imagined it.
+
+Tink.
+
+Then the humming. The same melody. Somewhere farther down the row.
+
+Rusk stopped walking. The keys on his belt stopped rattling. Neither of us spoke. We turned the corner.
+
+“What the fuck?” I heard Rusk grunt.
+
+At first I only noticed the blood.
+
+It had pooled beneath the bars and stretched across the concrete in long, dark fingers.
+
+Then I saw the hand. Then the face. Or what was left of it.
+
+For a second my brain refused to understand what I was looking at. Then it did.
+
+I dropped to my knees and vomited.
+
+Behind me I heard Rusk call for medical and lockdown, but his voice sounded impossibly far away.
+
+My eyes stayed fixed on the cell. On the bent bars, who could bend these bars?
+
+On the blood still dripping onto the floor. Did the human body have this much blood?
+
+Somewhere deeper in the tier the metal melody continued.
+
+Tink
+
+Tink
+
+Tink.
+
+Rusk grabbed my shoulder. "Move."
+
+I couldn't. The humming had stopped.
+
+The metal sound hadn't.
+
+  
