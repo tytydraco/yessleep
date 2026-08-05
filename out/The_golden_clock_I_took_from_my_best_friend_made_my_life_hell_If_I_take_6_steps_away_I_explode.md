@@ -1,0 +1,70 @@
+If you are reading this, I am standing right next to the clock. My legs are shaking, and I am so tired I can barely keep my eyes open. But before my phone battery dies, I need to write this down. I am trapped in this house.
+
+It all started when I was 4 years old. I was playing at my best friend Maya’s house when I saw a beautiful golden clock sitting on a shelf. It had an eerie, hypnotic shine to it. I loved it instantly. I ran to Maya’s mom and begged, *"Can I please take this beautiful clock? It looks so good, please!"*
+
+She smiled, handed it to me, and said, *"Yes, you can have it."*
+
+I was over the moon. I brought it home, put it in my room, and completely forgot how strange it was.
+
+Eight years passed. I turned 12.
+
+It was a normal evening at my house. My family, Maya, and our friend Jake were all sitting together in the living room, watching TV. Without warning, the golden clock began to scream. It wasn't an alarm—it was a deafening, terrifying metallic shriek that vibrated through the floorboards. We had to cover our ears; we couldn't hear a single word over the noise.
+
+Losing her patience, my aunt stood up and yanked the front door open to check outside.
+
+Through the doorway, we froze. Standing just six steps away in our front yard were massive, shadowy monsters. My aunt, convinced it was just an elaborate prank by the neighborhood kids, didn't care. She stepped out onto the porch and started running.
+
+*"Stop! Don't go!"* I screamed, lunging to grab her, but she kept going.
+
+The moment she hit her fifth step, a deep, raspy voice echoed directly from the clock:
+
+***"Please stop going so far away, or else you will blow up."***
+
+She didn't listen. On her sixth step, a bright flash of light erupted. My aunt’s body violently exploded right in front of us, and the monsters in the yard instantly swarmed her remains. We screamed in total horror.
+
+My mom and dad somehow pulled us back and slammed the door, trying to calm us down on the couch. Five minutes later, the clock stopped screaming. The digital display flickered, and the voice spoke again:
+
+***"You must select 3 monsters from outside by blind pick. When I count from 1 to 10, you must find the hidden book, or one of you will be eaten."***
+
+Driven by pure panic, we blind-picked the three monsters and sprinted through the house to find the book. The creatures were impossibly fast, their claws scraping against the hallway walls, but Maya managed to grab the heavy book just in time.
+
+The clock chimed: ***"Mission success."***
+
+Hands trembling, we opened the book. It explained everything: the artifact was a **Dead Timer**. It had trapped us inside the house for 7 days. If no one took it outside, everyone in the house would die.
+
+The book listed the rules:
+
+1. **Rule Number 1:** Never step more than 6 steps away from the clock.
+2. **Rule Number 2:** The timer will scream whenever it wants. Do not distance yourself when it does.
+3. **Rule Number 3:** If all of you die, you will become human monsters forever.
+4. **Rule Number 4:** To survive, the original owner who brought the clock here must grab it, run outside, and sacrifice their life.
+
+We collapsed to our knees and prayed to God for someone to save us. Day 1 passed into Day 2.
+
+The clock got bored and decided to play another sick game for fun.
+
+***"You must push one person out of the 6-step line within 5 minutes,"*** the voice announced.
+
+Panic erupted. Everyone looked at each other. Terrified, my family chose to push me out of line. I was crying, but I accepted it. *"Okay,"* I whispered. But the moment they shoved me past the limit, the timer buzzed sharply: ***"Not her."***
+
+Desperate and running out of time, we turned to Maya. She was the one whose family originally owned the cursed clock and brought us into this game. We pushed Maya across the line. She exploded instantly, and the clock absorbed her body.
+
+After Maya died, the clock went quiet for days. No one else died.
+
+Now, it is Day 7. The timer is counting down its final seconds: **00:03:53**. We were praying nonstop in the dim light when suddenly, Maya’s older sister knocked and walked into the house. She looked around frantically, asking us where Maya was. We couldn't bring ourselves to tell her the truth. We just said we hadn't seen her.
+
+She looked at the golden clock sitting on the table. *"Can I take this timer?"* she asked, reaching out her hand.
+
+I knew what would happen if she touched it. I was the one who pushed her sister. I couldn't let Maya's sister die, too.
+
+I lunged forward, grabbed the heavy golden clock with both hands, and sprinted out the front door into the yard.
+
+**00:00:00.**
+
+I braced for the explosion, closing my eyes tight. But instead of blowing me up, a blinding light flashed across the yard. Every single monster outside erupted into dust.
+
+I opened my eyes. I was still alive.
+
+Confused and overwhelmed with joy, I looked down at the clock. The golden brass had turned dark and cold. It was dead. Then, right beside me, Maya appeared—gasping for air, fully alive. She had been trapped inside the timer the entire time.
+
+She opened the book to the very last page, which had finally unlocked, and read the fina and read the final rule aloud: it say*‘ to be alive the kid only have to say I want to take it so we all be alive agine.*

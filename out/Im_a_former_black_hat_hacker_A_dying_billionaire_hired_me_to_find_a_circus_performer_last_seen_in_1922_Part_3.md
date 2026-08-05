@@ -1,0 +1,446 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1sfa6oh/im_a_former_black_hat_hacker_a_dying_billionaire/)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1v2wrfi/im_a_former_black_hat_hacker_a_dying_billionaire)
+
+  
+I sat on the bed in my hotel room, my wings spread out behind me, watching the flickering video of a man reading from the Quran that played on the TV.
+
+I’d landed in Kabul the night before. After checking into my hotel room, I slept thirty hours straight.
+
+I texted Destiny to let her know I was okay.
+
+“Are you still in San Francisco?” I asked her.
+
+“I’m back in New Mexico. I’m getting ready to post the videos we took at Apotheosis Labs. I’m sure Reid won’t be happy when they go online.”
+
+“You should probably keep out of sight for a while.”
+
+“I’m staying at a friend’s place. You’re still planning to go to Kandahar?”
+
+“I hired a driver to take me there tomorrow.”
+
+The driver’s name was Rahmat. I’d found him online, on a tour guide website. He was very young, but he claimed he spoke English.
+
+My neck was still throbbing from where Chazaqiel had bitten me. I went to the bathroom, took off the bandage, and looked at the bite marks in the mirror. A bit of blood was still oozing out.
+
+I felt so strange to be trapped in a body that didn’t feel like mine. A body changing in ways I didn’t understand.
+
+A numb sadness spread through me. A sinking depression like I’d never felt before.
+
+Suddenly, my arms turned into fog.
+
+I stepped back from the mirror, panicked. I tried to touch my chest, but my hands passed right through the body.
+
+I sat on the floor, took a few deep breaths, closed my eyes and told myself to relax.
+
+When I opened my eyes again a few minutes later, my arms had turned back into flesh and blood.
+
+\*\*\*
+
+Rahmat’s rusted Toyota rattled across the dirt road, past the sandy hills and sun-baked limestone.
+
+“There’ve been a lot more English tourists coming to Afghanistan lately,” Rahmat told me. “I’m thinking of starting my own tour business, just for English-speakers.”
+
+I nodded, uh-uh, barely listening to him while I stared at my phone. I zoomed in on one of the red Xs on the map of Afghanistan I’d found in Apotheosis Labs. It marked the hills right outside of Kandahar.
+
+“Have you heard about a place called Dollmaker City?” I asked Rahmat.
+
+“Last year, there was a Jewish Iranian who came through Kabul, asking about it,” Rahmat said. “He said it was a city built by angels. A home for all the world’s lost children.”
+
+Fields filled with grape vines appeared beside the road. Orchards filled with pomegranate trees.
+
+We drove down into another valley, and I saw Kandahar City ahead of us.
+
+The streets in Kandahar were crowded with carts and motorcycles. The houses were made of brick and mud. Old men sat in the shade of the doorways, drinking tea and smoking cigarettes.
+
+Rahmat parked at my hotel. We went inside together. I showed the clerk the reservation on my phone. He pointed at my phone’s screen and said something in Dari.
+
+“I don’t understand,” I said.
+
+“He said you booked a room for two weeks,” Rahmat told me. “He wants to know if that’s right. Most tourists only stay a day or two.”
+
+“Two weeks is right.”
+
+Rahmat translated what I said. The clerk gave me the keys to my room.
+
+“Where do you want to go tomorrow?” Rahmat asked. “There’s a pomegranate orchard not too far from here that does a great tour. I can take you there, if you want.”
+
+“I need to go to the Arghandab River Valley.”
+
+Rahmat stopped smiling. “The valley is dangerous. The Taliban is still there.”
+
+“But you can take me?”
+
+“I’ll need more money.”
+
+“How much more?”
+
+“Two hundred dollars.”
+
+I gave him the money. He looked like he regretted not asking for more.
+
+“I’ll see you tomorrow,” I said.
+
+I went up to my room and took off my coat. Then I stood underneath the ceiling fan, letting the cold air blow on my body.
+
+Online, in the conspiracy forums and conspiracy subreddits, people told stories of giants in Kandahar. Soldiers who’d been attacked by Nephilim. Lost travelers who’d wandered into hidden cities filled with young boys and girls.
+
+I was sure the truth was hidden somewhere in the hills around Kandahar. I wasn’t going to leave until I found it.
+
+\*\*\*
+
+That night, I dreamt of Chazaqiel again. He sat locked in a cage in a circus tent. Beside him, a teenage boy with claws for hands ate a hot dog, and a two-headed woman brushed the hair on her right head.
+
+Chazaqiel pressed his face against the bars.
+
+“You’re special, Vadym,” he told me. “Very smart and also very willing to throw your life away.”
+
+“I won’t be your lab rat.”
+
+“Your blood is my blood now. You’re already part of this experiment.”
+
+“I’ll find a way to fix this. I always do.”
+
+He smiled.
+
+I woke up in a cold sweat, my neck throbbing.
+
+The bite marks had started bleeding again. I put on a fresh bandage and then went down to the hotel lobby. Rahmat was waiting for me, pacing in front of the door.
+
+“Are you all right?” I asked him.
+
+“I’ll be fine. I just want to get this over with.”
+
+We got into his car and then drove in silence through the desert. We crossed the Arghandab River and then descended into the valley, toward the orchards filled with pomegranate trees.
+
+Between the trees, drainage channels had been dug in the dirt. The farmers had built wooden huts throughout the orchards to hide from the sun.
+
+Rahmat parked near one of the fences.
+
+“I won’t drive any farther,” he told me.
+
+“Then I’ll get out here.”
+
+“How will you get home?”
+
+“I’ll walk to the gas station we passed earlier and call you from there.”
+
+“Okay.”
+
+I stepped out of his car. He looked at me like it was the time he’d see me, and he turned his car around and drove back the way we’d come.
+
+I stared at the hills in the distance. Then I looked at my map on my phone. The X was straight ahead of me. I walked towards it, through the pomegranate trees.
+
+In the distance, men shouted in Dari.
+
+I’d walked for about an hour, when I heard a man moaning in pain. I found him in one of the drainage channels. A young farmer. His throat had been cut open. His tunic was soaked with blood.
+
+He saw me and muttered something.
+
+“I don’t understand,” I said.
+
+Blood sputtered from his mouth. His pupils widened.
+
+Through my work as investigator, on the dark web I’d watched thousands of people tortured and killed. Death never bothered me much. As a child, I’d taught myself to shut my emotions off, to not let myself ever feel anything. Complex PTSD, my therapist had called it.
+
+I thought about killing the man. Putting him out of his misery. But I didn’t have it in me. I wasn’t a killer. I wasn’t a hero, either. I wasn’t the type to pick him up, drag him to the road and shout for help.
+
+I just watched him die and kept walking. 
+
+The sun set. Darkness filled the orchards.
+
+I climbed over the last fence and then walked towards the hills.
+
+I could see a fire burning in the distance, inside one of the caves. Taliban, maybe, but maybe something else.
+
+I heard footsteps behind me.
+
+“Vadym?”
+
+I turned and saw a giant with bright red hair.
+
+“How do you know my name?”
+
+“I’m Frank.”
+
+\*\*\*
+
+Frank led me to the cave where he’d been living. We sat together next to his fire.
+
+“We’re like brothers, you and me,” he told me. “The sons of Chazaqiel.”
+
+“Are there any more of us?”
+
+“There were a few more, but they’re all dead now. It’s just you and me left.”
+
+“How did they die?”
+
+“They were killed by Yevun and the others.”
+
+Frank bit into the arm of a corpse he’d found in the orchards. He tore off a chunk of flesh and chewed on it as blood dripped down his chin.
+
+“There’s a war,” he said. “You’ll need to pick a side, too.”
+
+“A war between who?”
+
+“The Watchers. But you’ll learn about the war soon enough.” He bit into the arm again, tearing off another chunk of flesh. “We all have different powers. Some of us can raise the dead. Some of us can cure diseases. Others, like you and me, can change the weather or turn our bodies into fog.”
+
+“It just happened to me earlier, my arms dissolved.”
+
+Frank nodded. “You fill yourself with sadness, and your body becomes water. Then you put your sadness in the sky whenever you want the rain to fall. I’d rather be able to raise the dead, but this is what we got.”
+
+He laughed and then bit into the arm again, licking the blood off his lips.
+
+“Tomorrow, I’ll take you to Dollmaker City and introduce you to Yevun and the others. They’re all excited to meet you.”
+
+“So, the city is real?”
+
+He nodded. “Very real. It’s where most of us live now. Those of us on Yevun’s side of the war, anyway.” He held the severed arm toward me. “Do you want some?”
+
+“I’m fine.”
+
+“I didn’t like the taste of it at first, either, but there’s not a lot of good meat around here. You get used to it.”
+
+He ate the last bit of flesh off the arm and then threw what was left of it into the corner of the cave.
+
+He lay down on the ground and closed his eyes. I lay down and tried to get some sleep, too.
+
+\*\*\*
+
+The next day, as soon as it was dark again, Frank and I kept walking through the hills.
+
+“Chazaqiel has been working with a billionaire in San Francisco,” I said. “They’ve set up a lab where they’re using Nephilim to try and decode angel DNA.”
+
+“It’s not just Chazaqiel. It’s him, Ramiel, Baraqijal, and the other Reconstructionists. They want to make themselves Gods.”
+
+“What about Yevun and the other Watchers in Dollmaker City?”
+
+“They just want to be left alone.”
+
+We walked through the desert all night. Then, when the sun began to rise, we hid ourselves behind a few large stones and made camp for the day.
+
+“We can’t let anyone see us going in Dollmaker City,” Frank said. “If humans found the entrance, Yevun would be very upset with us.”
+
+We tried to sleep, but neither of us slept much. As soon as it was night again, we kept walking, until we reached a limestone bluff that had been hollowed by sinkholes.
+
+Frank felt along the side of the stone.
+
+“The entrance should be right around here,” he said.
+
+He squeezed himself into a large crack. I followed behind him, sucking my stomach and chest in as close to my spine as I could.
+
+We pressed through the limestone and came out into a garden filled with flowers and pomegranate trees. Light shone from strange stones that had been placed along the paths and near the tree trunks.
+
+A porcelain doll with the head of a human girl sat on the ground near the entrance.
+
+“Welcome to Dollmaker City,” she said.
+
+“Who are you?” I asked.
+
+“My name is Isabelle.”
+
+“She’s one of Yevun’s dolls,” Frank told me.
+
+“A doll with a human head?”
+
+“Yevun likes the children this way. He likes their singing, but he doesn’t like them running around.”
+
+I followed Frank deeper into the garden.
+
+More of the dolls with the heads of children hung from the trees. They sung strange lullabies.
+
+I began to feel uneasy.
+
+Frank and I crossed a bridge over a narrow river. To our right, I saw two angels sitting in a rose garden, staring at the sky.
+
+They were beautiful. Tall and elegant with enormous, white-feathered wings.
+
+“Who are they?” I asked.
+
+“That’s Azazel and Armaros,” Frank said.
+
+We kept walking until we reached a church made of limestone. An inverted cross rose from its steeple.
+
+Frank brought me inside the church. Another angel sat on a throne at the far end of the room, surrounded by dolls. Frank knelt on the floor.
+
+“I’ve brought him to you,” Frank said. “Just like I promised.”
+
+Yevun stood and walked toward me. He was enormous. Twenty-feet tall. He towered over me.
+
+“You’re Vadym?” he asked.
+
+“Yes.”
+
+“Welcome to Dollmaker City.”
+
+“What is this place?”
+
+“A home for all this world’s lost children. Are you lost?”
+
+“I’m confused.”
+
+He put his long fingers on my face. “And you want answers?”
+
+“I want to know the truth about this world.”
+
+“Then come with me.”
+
+I followed him to a staircase behind his throne, which led underground. The dolls all turned and stared at me.
+
+The stairs led to a studio filled with doll parts and wire. A few human children sat against walls.
+
+“What’s your name?” I asked a young boy.
+
+He refused to speak to me, though, and just stared at the floor.
+
+“He looks terrified,” I said.
+
+“He is,” Yevun told me.
+
+“Why are you doing to these children?”
+
+“I’m giving them happiness. I’m giving them the peace they never found in this world. But this isn’t what I want to show you.”
+
+He put his hand on my back and led me down another staircase, deeper underground.
+
+We stepped out into a dimly lit cave.
+
+“Don’t be shocked by what you see here,” Yevun said. “None of the other Nephilim are in pain. They’ve all agreed to this.”
+
+Hundreds of Nephilim sat against the walls, just like the children I’d seen upstairs. They looked like they were sleeping. Their eyes were closed, their bodies hunched slightly forward.
+
+Tubes connected their bodies to a strange machine in the center of the cave.
+
+Inside the machine’s bars, I could see gears intertwined with Yevun’s dolls. As the gears turned, blood was sucked from the Nephilim’s bodies. The blood washed over the gears and the doll-children, falling into the base of the machine, where there were four different copper spouts.
+
+Four mutilated angels sat next to the spouts, drinking from them. As they drank the blood, their bodies changed. The feathers grew back on their wings. Their skin began to whiten.
+
+“What are you doing here?” I asked.
+
+“This is where we feed.”
+
+“You feed on your blood?”
+
+“When God banished us from Heaven, he punished us by separating us from what makes us pure and good. Living in this world, the sin slowly seeps into us, corrupting us, changing us from what we were before. We don’t want to be evil. We don’t hurt humans. Your blood helps us stay holy and pure.”
+
+He put his hand on my back again. I stepped away from him.
+
+“They’ve all agreed to give us their blood,” Yevun said. “We don’t feed too often. And when we’re not feeding, all the Nephilim free to roam the garden. I know this is hard to understand, but this is what’s best for the world. If we were to allow ourselves to become corrupted… I can’t even think of what would happen.”
+
+“I’m not going to live like a farm animal.”
+
+“You won’t be an animal here. You’ll be treated with respect and with dignity.”
+
+I stepped back toward the staircase.
+
+“Just talk to the others,” Yevun said. “They’ll tell you. They’ll tell you they’re very happy here.”
+
+I turned and ran.
+
+Yevun ran after me. “Vadym!”
+
+I ran past the dolls in the studio. I’d nearly made it to the second staircase, but then Yevun grabbed my arms and lifted me into the air.
+
+“I can’t let you leave, Vadym,” he said. “Not after we’ve waited so long for you to come here.”
+
+He opened his mouth. His teeth extended from his gums, doubling in size.
+
+“Let me taste you,” he said. “It’s been so long since I tasted Chazaqiel’s blood. Frank’s has become so muddy.”
+
+ I closed my eyes. I thought of my mother. I thought of my grandmother. I thought of Alexei. I thought of every night I’d spent in prison. I thought of every horrible thing that ever happened to me.
+
+And then I shoved that sadness into the sky.
+
+The thunder roared. I heard the rain falling.
+
+Yevun’s teeth tore into my shoulder. I screamed in pain. The dolls upstairs started screaming, too.
+
+I moved the sadness back into my body and made myself dissolve.
+
+“Where did you go!” Yevun yelled.
+
+I felt like I was everywhere and nowhere all at the same time. I looked down at Yevun, floating above him, but behind him, too. Beside him. Underneath him.
+
+He ran upstairs, searching for me, screaming.
+
+Water trickled down the staircase. The city was flooding.
+
+I emptied my mind. Forced myself not to think of anything at all.
+
+I don’t know how much time passed, but one moment I was gone, the next I was sitting on the floor of the studio, the water soaking my pants.
+
+I stood and ran upstairs.
+
+I felt unsteady, but I knew I needed to leave while I still had a chance.
+
+Outside, Frank stood against one of the trees.
+
+“I’m sorry,” I said. “I didn’t have a choice.”
+
+“Show me where the way out is.”
+
+I ran back the way we’d come. Frank followed behind me.
+
+Rain poured from the sky. The water had risen up to my ankles already, and it was quickly rising higher.
+
+Yevun’s dolls lay face down in the water, screaming, clinking their porcelain limbs together as they tried to swim.
+
+I saw the limestone wall ahead of us. I ran to it and searched for the crack I’d entered the garden through.
+
+“Help me!” I yelled.
+
+But Frank just stood there, hanging his head. “There’s nowhere else for us to go. We’ll just end up in another cage. It’s not so bad here.”
+
+Armaros flew down from the sky, landing a few feet from us.  He lifted his arms. The rain began to slow. The clouds scattered.
+
+I finally found the crack that led out of the city, and I squeezed myself into it.
+
+Armaros ran toward me. But before he could reach me, Frank stepped in front of him. He threw Frank to the ground.
+
+I squeezed myself deeper into the crack.
+
+Frank screamed. I heard the sickening sound of bones cracking. Then Frank’s screams turned to laughter.
+
+“Kill me then! Kill me!” he yelled. “I’ve been dead a hundred years.”
+
+I squeezed through the rest of the crack and fell out onto the sand.
+
+I ran toward the hills in the distance.
+
+The rain had stopped. The sky was blue and cloudless again.
+
+I didn’t look back. I just kept running until night had fallen on the desert again.
+
+\*\*\*
+
+I walked southwest, away from Kandahar, following the dirt roads at night and hiding in the orchards during the day. Eventually, a farmer saw me and gave me a ride to an old agriculture compound the U.S. Army had built during the Afghanistan War.
+
+The compound still had electricity. I charged my phone, and I called Destiny. I told her everything that happened. I told her about Frank, Yevun, the child-dolls, the machine that drained Nephilim blood.
+
+She became quiet for a while, and then she told me that Reid was in New Mexico.
+
+“He’s doing something at the old Parallax Medical building,” she said. “I’ve seen a lot of construction crews coming by. Him and Chazaqiel must be building something. Are you staying in Afghanistan, or are you coming back here?”
+
+“I’m coming home.”
+
+I called Rahmat.
+
+“You’re still alive?” he asked.
+
+“I’m in Lashkar Gah. I need a ride to the Kabul airport.”
+
+“Lashkar Gah is Taliban territory.”
+
+“Can you help or not?”
+
+“Give me your address.”
+
+I gave him the address of the building behind me. He said he’d be there in a few hours.
+
+I sat on the steps of the building. I looked around at all the ranch houses, the cracked driveways, the rusted mailboxes, and the overgrown lawns. It could have been America, if everything hadn’t been swallowed by sand.
+
+But I’d be home soon.
+
+With Destiny’s help, I’d get the truth out.
+
+There are angels on Earth, and they’re at war. One side wants our children, and the other wants our souls.
