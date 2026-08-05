@@ -200,7 +200,7 @@ When my mind started to drift I watched birds. Never had any interest in them un
 
 It was 8.23pm and I was already on my second pack of cigarettes for the day. The habit had gotten worse now that small convenience stores had mostly been abandoned. You could now just waltz right into them and fill your bag with as much candy, chips and cigarettes as you liked. Looting was just a furious pastime of the untiring protesters. 
 
-But I digress, he birds, yes! 
+But where was I...the birds, yes! 
 
 They had begun to act…different. The patterns they made now weren't the swishy waves that were usual to their behaviour. They now flew in almost exact geometric shapes, switching between different types of triangles to hexagons, octagons, decagons, then changing to the repetition of pentagons, heptagons and back to triangles. And the weirder aspect, if not already freaked out, they were silent. 
 

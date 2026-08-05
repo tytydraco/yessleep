@@ -56,3 +56,5 @@ I could hear the power cart running now. The engine loud in the silence of the n
 All the guys gave me shit for running out the jet. Apparently Baker saw me run out to the centerline like my ass was on fire. I didn’t tell them the real reason why I did. Just that I “needed” my nicotine.
 
 Baker stopped giving me shit about it last week. He looks like he hasn’t been sleeping. Damn, wonder if he heard it too.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/aRRZDCz3zi)

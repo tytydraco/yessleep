@@ -204,7 +204,7 @@ I wanted to tell her about it but I knew that she didnt care that much about wha
 
 After a relaxing evening, we watched some movies and then prepared for bed. All my zeez's where scared away by a loud buzzing noise. I slowly open my eyes and see that my phone was ringing, it was my supervisor. 
 
-I answered the phone, a bit pissed and eith a grumpy voice, and said:
+I answered the phone, a bit pissed and with a grumpy voice, and said:
 
 "Chief do you know what tim...."
 
@@ -216,17 +216,17 @@ The tone and seriousness in his voice took me by surprise and I immediately got 
 
 "No time to explain. We'll talk when you get here."
 
-Without wasting time, I got ready and almost bolted out the door, then I took a glimpse at my wife who was sleeping like a log. I wanted to wake her up and let her know where I was going, but I didn't want to disturb her. I quickly wrote a note saying "There is an emergency at work. Call me when you can." I felt bad leaving like this without waking her up, but I promised myself that I will make up it uo her when I get back.
+Without wasting time, I got ready and almost bolted out the door, then I took a glimpse at my wife who was sleeping like a log. I wanted to wake her up and let her know where I was going, but I didn't want to disturb her. I quickly wrote a note saying "There is an emergency at work. Call me when you can." I felt bad leaving like this without waking her up, but I promised myself that I will make it up to her when I get back.
 
 I got in my car and hurried down to work. I entered my office and I saw my supervisor surrounded by a lot of people and when we made eye contact he waved his hand to come over. While walking over to the desk I asked:
 
 "What the hell is going on?"
 
-"The guys from IT didnt find any problem with the computer, hardware or software, but there s more."
+"The guys from IT didnt find any problem with the computer, hardware or software, but there's more."
 
-I remained still as a statue and my face expression was like I've just seen a ghost. All i could imagine was what kind of phenomenon could make something like th....
+I remained still as a statue and my face expression was like I've just seen a ghost. All I could imagine was what kind of phenomenon could make something like th....
 
-"HEY! Did you hear what i said?" The supervisor's voice pulled me back from my thinking and I responded with a confused look:
+"HEY! Did you hear what I said?" The supervisor's voice pulled me back from my thinking and I responded with a confused look:
 
 "Uh.. sorry, no. I was..."
 
@@ -236,7 +236,7 @@ I moved the monitor to see what could stir everyone up like that. Looking at the
 
 "How?! Did you check...?" I asked
 
-"We did multiple checks. They re good. As we saw yesterday, only this.... thing.. seems to be moving this fast and unpredictable. It sure looks like a comet but we dont understand why is speeding up so much when we are not actively looking at it. The trajectory even changed slightly towards us, but it might be earth's gravitational force. It will pass well above the kerman line, but its still close enough to be a threat. We also observed that if we monitor it, nothing strange happens. The speed and trajectory remain constant." He said with a serios, stressed tone.
+"We did multiple checks. They're good. As we saw yesterday, only this.... thing.. seems to be moving this fast and unpredictable. It sure looks like a comet but we dont understand why is speeding up so much when we are not actively looking at it. The trajectory even changed slightly towards us, but it might be earth's gravitational force. It will pass well above the kerman line, but its still close enough to be a threat. We also observed that if we monitor it, nothing strange happens. The speed and trajectory remain constant." He said with a serios, stressed tone.
 
 " So we should be safe if we keep watching it, right?" 
 
