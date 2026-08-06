@@ -56,6 +56,6 @@ Tap
 
 “Fuck all of that” I state taking a long drag. I finally told him why I’d really ran off the jet that night. I left out a couple of details. Saying it out loud made me feel stupid. Almost doubtful that it even happened. I was expecting Baker to laugh, but he didn’t. He just listened, jaw tightening the longer I talked. Afterwards the conversation shifted and went back to the normal antics. Bullshitting, joking, talked about a D&D game one of our buddies were hosting the coming weekend. 
 
-Life was back to normal. Joking, laughing. Then we heard the call over the radio, “Viper 2, Hydro” we looked at each other and got up. Time to get to work.
+Life was back to normal. Joking, laughing. Then we heard the call over the radio, “Hydro, Viper 2” we looked at each other and got up. Time to get to work.
 
 I almost didn’t notice how it was silent again. Like the bugs were just… gone.
