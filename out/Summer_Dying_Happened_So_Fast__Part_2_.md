@@ -1,0 +1,277 @@
+Sleep was now the only thing I had to look forward to once it reached five and a half months of our new world. Even with my heavy nicotine addiction and the increasing bottles of whiskey in my cupboard that once housed only pots and pans, I knew I had to be careful. 
+
+After a week of good empty dreams, taking a quarter of a pill here and a cap of melatonin there, I finally began to gain some of my previous cognitive functionality. I woke up one day and even with the blare of the untethered Whistle I cleaned the entire apartment. I scrubbed the floors and dusted, got all the laundry done in the kitchen sink (the block’s wash room had been inhabited by homeless people we had welcomed in off the street) and wrote a timetable of what to take and when to take it. 
+
+The opioids were only to be taken a maximum of twice a week, I didn't need to go full Nurse Jackie dependent when rehab would only be a thought as the government had finally started to get a hold on the crowds that had begun to die down. 
+
+Food trucks were brought to people who needed it and the national guard had become more of a welcomed aspect as they turned the violence into philanthropy. Other nations were following slowly but surely. 
+
+Antihistamines were the back up for the running-low melatonin bottles but things had begun to improve. Even David and Lisa had had more of a stable routine, mainly due to going in before the hospitals had been overrun when the health organizers had come together with a “solution”.
+
+The news had proudly given an option to the public (beginning in the United Kingdom through the NHS) to help treat people similar to Lisa who had self-mutilated by carving or destroying their ears to the point of deafness. After she healed, David was one of the first people I know to go through with it safely at a medical centre. They began to actually help people intentionally become deaf in order to stop the haunting of the Whistle. And, unbelievably, it worked!
+
+Masses of citizens lined up during the fall season, stocked with headphones and earpods, rows of tents outside ER’s and hospitals gave as much as they could to those who elected to have the surgery. Money barely meant anything at this point so the procedure was done for free but with the caveat that you would provide a service to the public in order to help those who didn't opt to get the surgery. 
+
+Eventually into the sixth month the streets became clearer, businesses opened and there was a possible future in which those who could stand the noise were cared for and those who could no longer hear the noise did their part in helping the world become a better place. 
+
+Sally and myself spoke nearly every day. She was stressed as her parents both lined up beside the local hospital for three days in order to get the surgery. She had lost a lot of weight and I could see that her eyes were bloodshot, even in the graininess of the pixels. I secretly found her still to be beautiful. 
+
+The postage service was the first major industry to come back and I sent her a laptop that I had taken apart and filled with as many pills as I could spare. After being adamant that she didn't want to indulge in them she gave in within four days of the arrival of the package. She stuck to the same routine as me and over facetime we kept each other in check. We showed our supply every two days in photos so that we weren't slipping an extra pill here or there. 
+
+Even under the now waning effect of the Whistle we managed to start saying that we loved each other again. We made plans that once bus routes or train systems began to get back on track we would somehow get to see each other. Things were beginning to get better. Oh, what a lie is humanities child-like wonder….
+
+As the snow began to fall and the birds migrated away silently still trailing in geometric shapes to warmer horizon, the world was thought to begin healing. 
+
+With streets now blessed with frost and cheer, the noise was still adamant to keep kicking us down and it was failing. Even now I had managed to get a part time position creating programmes for the “Elected”, the name given to those who had gotten the procedure. Scaled down sound apps for phones (which had managed to survive when the phone networks allowed all billing to be completely wiped until the restoration of the dollar) and for children who were beginning to return to schools. More than 43% of parents had elected to give their children the surgery which was still under deep conversation on whether it was cruelty or decency. 
+
+Both me and Sally were on the fence.   
+“I mean would you want our children to have it?”
+
+I raised an eyebrow as I spied her on the phone, distracting me from the jacket sleeve I was stitching since I had tore it walking home the other day. “You think about us having kids?”
+
+“Oh, shut up!” She snickered, a sound that had slowly started to return. A sound I had missed and loved now becoming more regular. 
+
+EEEEEEEEEEEEEEEEEEEEEK!
+
+EEEEEEK!
+
+“Did you see the train stations are opening up again next week?” She said, ignoring the Whistle. 
+
+“I have…”
+
+We exchanged cheeky looks and both laughed at each other. 
+
+“So are you gonna come visit?” I twisted my foot back and forth, giving puppydog eyes.
+
+“Ew, no!” 
+
+I must’ve looked slightly hurt as she clambered with a rapid answer. “Of course I am!”
+
+Even though I knew the answer before she said it, I was excited for the first time in so long. Since the suffering of stinking sewers of those summer months in winter I had found something I never thought I would, hope. 
+
+I expected a call from Sally a day before she boarded her train, the eight month mark of our own near-apocalypse. Our spirits were high, our dreams about to begin again. 
+
+That day, around 1pm, it started.
+
+EEEEEEEEEK!
+
+EEEEEEEEEEEK!
+
+EEEEEEEEEEK!
+
+EEEEEEEEEEEK!
+
+EEEEEEEEK!
+
+Startled in my dariorexant-induced sleep, the Whistle was booming, over and over. It wasn’t like this ever, my heart thumping in rhythm with the panic that filled me. Cortisol battled the sleeping pills, the trojan horse of hysteria ripping in me like I was paper to a sword. 
+
+Police sirens rang in the streets under the thunderous noise that cracked across the sky and rose up from the earth itself. Even over the tv that was continuously on, I heard banging and screams of people. It almost drowned out the Whistle. Almost…
+
+EEEEEEEEEEEEEK!
+
+EEEEEEEEEEEEEK!
+
+EEEEEEEEEEEEEK!
+
+Looking out the window down on the street where I had first heard it there were crowds of people clutching at their ears. Some were banging their heads against lampposts, cars were speeding past each other and colliding with others. Flames burst from shop windows and the snow…the snow was stained with so many collections of red, a winter covered in blood. 
+
+Even from this height I could see suffering specks of people tearing at their heads, pulling stringy flesh from their ears. All screaming, continuously wailing-
+
+EEEEEEEEEEEEEEK!
+
+EEEEEEEEEEEEEEK!
+
+EEEEEEEEEEEEEEK!
+
+EEEEEEEEEEEEEEK!
+
+The crunch of plaster was repeated somewhere close, wait…
+
+Running to my bedroom I saw dust as it plumed into the air with each blow decimating my wall. A bloody fist  punched through each time and my gaze met David. Glass lay smashed behind him in his apartment as he stared at me with murderous eyes, crimson dripping all from his forehead, his ears, his butchered hands, the tears streaming down his disgruntled face. 
+
+“David, what happ-” I stepped forward as he continued to punch, his knuckles exposing bone now. I remembered he couldn’t hear me, neither him or Lisa -
+
+EEEEEEEEEEEEEEEK!
+
+“I can hear it!”
+
+EEEEEEEEEEEEEEEK!
+
+“We can hear it again, Corm-”
+
+EEEEEEEEEEEEEEEEEEK!
+
+He ran at me repeating it over and over, the Whistle droning on and on. David, this big lug of a man collapsed in my arms, smothering his ripped up ears, one ear dangling close to his chin only holding on by a flap of tattered flesh. 
+
+Curling on the floor he howled and writhed in agony, and I turned swiftly just to watch Lisa, just as bloody and broken, slam herself through the glass coffee table in their living room. 
+
+“Oh my god!” I ran to her side, as she wept, gasping for air.
+
+She flinched as I grabbed her, the blood pouring from her torn face in torrents more than David. I pulled my overshirt off and held it to her gushing wound.
+
+“It’s all we can hear!” She keened repeatedly, as I tried to restrain her from tearing more at her own flesh. 
+
+I couldn't think, I could barely breathe as the noise blared with the screams of the outside world overloading my own sense of logic. Should I go for help? Who could even come to help at this point? 
+
+Lisa, tears streaking her face, stopped all of a sudden. She choked on her own saliva and mucus poured over her lips mixed with her own gore. Her slippery hands clasped over my own ears as she pulled me close to her, the iron smell encompassing my nose. 
+
+“We thought we could fool it…” She whispered, eyes going intensely dark. “....we were wrong,,,,”
+
+David’s cries were still coming from my own apartment, thick slaps of meat against wood. I didn’t want to look to see what he was slamming himself into. 
+
+I watched as she coughed in my arms, hissing out a death rattle wheeze and the light went deeper? It’s true what people say when there is a light in people’s eyes and when they die it fades. But, in this moment, as I held Lisa, I saw that it doesn’t just go somewhere else. It looked like it almost went further inside, like she was being pulled from the lit up entrance of a tunnel back into the darkness. The shiny light faded into pinpricks and in a second that felt like eternity, it sunk in on itself. Lisa was gone.
+
+EEEEEEEEEEEEEK!
+
+“No….”  
+EEEEEEEEEEEEEEEK!
+
+David was half slumped over the hole in the wall, he had split one of his eyes open, the goo oozing over his left cheek. The hanging ear was gone now. I felt bile rise in my stomach but pushed it down.
+
+EEEEEEEEEEEEEEEEK!
+
+Stumbling over and flinching at every booming call of the Whistle, the short silences were ringing in my own ears. David took Lisa’s corpse from me as I shuffled back into their blood drenched couch with a squelch. 
+
+EEEEEEEEEEEK!
+
+He cried, somehow silent sobs as he rocked back and forth as she lay limply in his arms.   
+Under the godly cries of the noise, I don’t know how but I felt my phone vibrating in my pocket. Pulling it out I thought maybe it was an emergency call set out by the government. Maybe it was some sort of explanation of what was happening, safeguards put in place since the original summer sickness that had plagued us.
+
+It was Sally. 
+
+Rising to my feet, I barely was able to stand so I steadied against the broken wall. I answered.
+
+Her cries blared through the speaker, heartfelt and agonising. 
+
+“Sally?!” I screamed. “Sally, what’s happened? Are you safe?!”
+
+I felt so stupid even asking, but I was barely thinking.
+
+EEEEEEEEEEEEK!
+
+“They’re dead C-”
+
+EEEEEEEEEEEEK!
+
+“Who’s dead, Sal-”  - “nt’s, they killed thems-”
+
+EEEEEEEEEEEK!
+
+“-an’t hear you-”  -  “-istle wouldn’t stop an-”
+
+EEEEEEEEEEEEK!
+
+“Sally, -” - “My parents!!!”
+
+I froze, my heartbeat raising even higher. Sally’s cries cut in and out over and over between the noise. I didn’t know what to say, the only thing I knew I could say was;
+
+“I’m coming there now, just wait-”
+
+A door slammed against the wall from behind me. Turning instinctively, I watched David who was still holding his wife. He stumbled, the deathly chill of the winter air blasting in from the balcony. I couldn’t tell if it was in slow motion or if he was moving faster than I could react. 
+
+Amid blaring alarms, David turned to me. Lisa slumped in his bloody arms. He leaned back -
+
+“NO, DON’T!!!!”
+
+\- and both of them tumbled over the balcony. 
+
+The sickening squelch of flesh against concrete was undeniable.
+
+I sat there for a bit, I don’t know how long passed. Somehow I kept repeating to the inconsolable Sally that I was coming for her. I threw up eventually, managing to climb back into my apartment. 
+
+Me and Sally stayed on the call as chaos consumed the world around us. The Whistle constant. 
+
+It stopped after twenty-four hours, returning to its regular disjointed unpredictable pattern after that.
+
+Blocking it out wasn’t an option, it wasn’t a decency, the noise had learned to adapt. How wrong we were to think it could be tamed, never mind beaten.
+
+Sally sat in my apartment now, our stink from the long travel filling the room in the humid spring time. Crossing states took a month. I watched as the snow stained with blood melted and sank into the soil. So many had died, and mass graves were put out as a national service. All those who couldn’t hear it for those few months, even those who were born deaf before the event who hadn’t survived returned to the earth. The Whistle still persisted as I desperately took whatever car allowed me passage, whatever bus station I could get a ticket at, but I made it. 
+
+Ever followed by the noise I arrived at Sally’s parents house just as the dandelions had sprung up during a light sun shower. I spied two patches of earth that had grass barely sprouting from it with dried flowers at the top of each. Before I could walk up the overgrown unkept path the front door swung open and there she was. Her clothes were stained, her faded hair greasy and limp around her shoulders. 
+
+We stood looking at one another, I probably looked awful. I barely ate or showered while on the road. After a hesitation we ran to each other. No words needed to be spoken as we held one another and cried. I apologized over and over for not being quicker. She sobbed and I took all of her sadness into me, trying to take away the pain she felt. A hopeful thought, even if illogical. 
+
+We stayed silent for a while. I took her to the bathroom and washed her, the light in her eyes just barely there. When looking for fresh clothes to dress her I saw that the pills were few and far between in her dresser cupboard. I wouldn't chastise her in her grief but I couldn’t enable it. 
+
+Over the next few weeks I took care of Sally and she allowed me to. I supplemented the pills so she could sleep and she didn’t fight that. I took barely any medication myself while sleeping on the couch just in case she needed me. 
+
+“It was awful…” 
+
+It was the first thing she said to me since arriving. 
+
+I held her hand as we laid fresh wildflowers on her mother and father’s graves, the most she could journey from the house was the front yard. She kissed her hand and pushed it once to each patch of earth, silent tears down her face. 
+
+She stood and I hugged her, not squeezing too tightly. She looked at me with irritated reddened eyes , the colour in her cheeks slightly rosy again. “I’m ready to go.”
+
+“Are you sure?” I asked, softly brushing her hair behind her ear. 
+
+There was a pause. She looked at the graves again, then to the front of the house she had grown up in her entire life, then back to me. “Yeah…I need something new…”
+
+We travelled back to my apartment and slowly I watched her begin to heal. I felt myself healing alongside her. I knew what it was like to lose both parents but I had never known them. We rode alongside a collection of caravans on dusty roads, saw wild horses roaming golden fields of the country and passed by small towns who had slowly but surely started to heal. 
+
+The noise was there, and with every beat I could see her eyes flutter in awful remembrance. It was the nomadic people who gave us food and strangers in cities we had never visited together that welcomed us with grace and love. The birds returned in their strange patterns in flocks bigger than any we had ever witnessed. 
+
+And at the end of spring here we sat. 
+
+The wall was repaired, I had given my keys to someone who offered to fix it. The balcony was now home to multiple nests with clutches of eggs.Dust filled the rooms and danced in the sunlight that shone through the glass panes.
+
+Sally lifted the photograph of us when we were on holiday to the Canary Islands.   
+“I’ll never be that girl again, will I?”
+
+I sat next to her, keeping a distance. “None of us are the same.”
+
+We sat in silence, and I felt her reach for my hand. I took it. Our bond was now something other puppy love and hopeful anticipation it used to be. But, we had each other.
+
+She looked at the DVD collection I had looted over the past year and put ‘Grease’ in the DVD player, which we fell asleep to.
+
+When the desert-like temperatures returned in the summer season we had both sort of settled into a routine that suited us. Both got minimally stressful jobs, I cooked and she did the dishes everyday. During those months I stayed on the couch as she took the bedroom, but occasionally I would wake in a pill-bought haze to Sally pressed against me, and I felt the honest comfort between us blossom. 
+
+I joined her in bed after one night we had gone to the docks with a packed dinner and Sally brought some candles. I didn’t go with any intentions or expectations, but we stayed not bonded by trauma. We grew to slowly and delicately love eachother. 
+
+And then, it stopped. 
+
+I sat up, waiting for it. And it didn’t.
+
+“Sally…” I gasped, shaking her slightly. “Sally…”
+
+“What?” She grumbled, rubbing her eyes with the sleeves of her sleepy-time hoodie. 
+
+I sat in disbelief and waited for her to wake a little more. “Listen!”
+
+Nothing.
+
+There was nothing.
+
+“It’s gone…” She whispered, her mouth agape.
+
+The rumbling thump of the Whistle had stopped. Rushing to my feet, I sprinted to the balcony where all the chirping chicks were now chorusing in birdsong. The first I’d heard in over a year.
+
+Sally grabbed the remote and turned on the news, the anchor reporting what we had just discovered for ourselves. Panic and joy seemed in harmony with the crowds that gathered in the streets, people were cheering surrounded by untamed overgrowth that had overtaken the world in all industrial areas. A camera shot of a man swinging from a tree that had grown up around the side of an apartment building shouting in glee. 
+
+“What does this mean?” I asked, barely able to hide my excitement.
+
+Sally stared with fearful eyes at the screen. “I don’t know…”
+
+Splitting, agonising pain. It pulsed through my head, feeling the veins and every nerve ending right down to my feet. The birds chirping became a cacophony of overwhelming shrieks, rising and rising and rising!
+
+I took a feeble step to Sally, watching her clutch the arm of the couch. We both crashed to the floor, staring at one another with grimaces of pain and fear upon our faces. And just as I thought that similar to the Bloody Winter, just as I thought this was the end, an echo….
+
+It wasn’t language, speech even. But I understood it entirely. 
+
+It was a symphony of tones of the sea, lakes and rivers who now could breathe properly. It was forests that had bonded with the concrete jungles in symbiosis and the air that had cleared of a clenched fist of poison for so long. It was resources now restocking but warning us that it feels too, it lives too, it has seen us violate and exploit the gifts it gave us. 
+
+“My creator is not so merciful,” It said, a beautiful orchestra of crystalised beauty. “I only offer you this mercy once. Remember that or hear me roar again…”
+
+The pain faded, replaced by wonder and fear. Whether God, the earth itself, the universe, whatever it was it had spoken. 
+
+Sally sat sweating with her back to the wall as she managed to lift herself. We sat in silence, the news blaring in the background of the message that had reached all of us left on the planet. The final noise, a whistle that became not only a warning but a second chance.
+
+Over the next few days things began to return. Sometimes the Whistle whispered false nothings in my ear, all of us worried that it could return. Eventually we didn’t need the medication, but sometimes we would wake up in a sweaty panic that it had returned to finish it’s vengeance  I finally realised what Lisa had meant in her last words, as Sally and I had finally found love and warmth and were on a road back to possible normalcy. Even a better life.
+
+We thought we could fool it, we were wrong. 
+
+We had heard it speak, and we will listen.
+
+ 
+
+ 
