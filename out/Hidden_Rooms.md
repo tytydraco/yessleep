@@ -1,0 +1,113 @@
+Do you guys ever have that dream where you find hidden rooms in your house? 
+
+
+
+My cousin, who identifies as a witch and owns a disturbing number of crystals, tried to tell me the rooms represented my hidden shadow selves or something. I quickly tuned her out, like always. I mean, can't the dream just symbolize my hidden shadow desire not to share a 900-square-foot apartment with 3 roommates, and instead have someplace where I can get away from everyone and their bullshit? 
+
+
+
+The first couple times I had this dream, I liked it. I was bummed when I woke up, of course, but kinda still felt the buzz. It started with finding a hidden door inside my closet. I dreamed I opened it to a curved staircase that led to a basement the size of our apartment. It was musty, but it had potential. We could throw a party down here without the neighbors calling in a noise complaint. I could go down here and just blast some Drake and smoke a real bowl instead of that nasty vape shit and no one would bother me. I could bring home that scraggly-looking cat that always comes up to me on the street and makes me wish we were allowed pets, and no one would know because I'd keep him down here.
+
+
+
+It was so real I legit checked my closet for that hidden door when I woke up. Of course it wasn't there. 
+
+
+
+But it was there in my dream the next night. And so was another door at the far end of the basement room. This one led to a long corridor, which opened onto what looked like someone's home gym. It must have still been below ground, because I didn't see any windows. But it was fire. I'm not talking about a yoga mat and two dumbbells; this place had a treadmill, lat pulldown, leg press, and rowing machine, and a bench with a whole rack of free weights. I should really get back into this stuff. I used to be fit; I played basketball in high school and lifted weights in the off-season. IDK why I stopped. Maybe that's why--don't judge--I haven't gotten laid since HS graduation.
+
+
+
+I should bring Chris down here, I thought, forgetting or maybe still not realizing it was a dream. He could spot me while I do bench presses. Chris was boring af but he was always down to do whatever even if it wasn't his thing. He'd probably get into working out if it meant he could hang out with me more. I'm not trying to use the guy; I just can't think of anyone else who'd be interested.
+
+
+
+I got into a plank position and hated myself for how instantly hard it was. As I stared straight ahead with a grimace, I realized there was another door in the opposite wall. 
+
+
+
+I woke up before I could open it, but now I was excited, thinking I might have the same dream again. The next day was the family barbecue where I told my witch cousin--actually, I told my other cousin, her brother, but she butted in--about the recurring dream. He just laughed and said I'm the only loser he knows who would dream about working out. 
+
+
+
+My witch cousin interrupted again. "Did you hear about Kylie?"
+
+
+
+Kylie was my high school girlfriend. Yah, the last--OK the only--girl I'd slept with. I hadn't seen or talked to her in years. I don't even remember why we broke up, stupid high school bullshit probably, but hearing her name annoyed me. "Why would I have heard anything?"
+
+
+
+"She ODed," my cousin replied. 
+
+
+
+I hadn't even known she was on something. I felt weirdly guilty, but then again annoyed that she was making me feel guilty, reaching across the years and even from beyond the grave to ruin my day. "Sucks," I said, kicking a clump of dirt. Then, feeling utterly fucking done with the subject, "I'm getting a hot dog; you guys want one?"
+
+
+
+It took a couple more nights before I had the dream again. And I think this time I knew I was dreaming, while I was in the dream. This time I went straight through the basement and the gym to the door on the far side. I opened it and found myself in another closet. Not mine. There were women's shoes on the floor. I slid open the closet door and saw a vaguely familiar bedroom I couldn't quite place. Double bed, frilly lampshades. The blanket on the bed--I felt itchy just looking at it. Wool, maybe. The bed was neatly made with too many pillows. I couldn't stop staring at the blanket. There was nothing weird about it. Just...
+
+
+
+Kylie's voice interrupted my thoughts. She called my name from another room. She sounded like she was crying. I realized I was holding my phone and had it open on our text thread. But it was an old phone, and she was in there as Bae, not Kylie. In her texts she was screaming in all caps that I needed to come over now; I had asked what was wrong and gotten no response, then said I was coming. I had come. I had come, but I was suddenly desperate to leave.
+
+
+
+Still, my legs carried me toward the sound of her voice. She was in the bathroom, on the floor, scratching frantically at the wall. There was a door in the wall. Not quite a door. A panel, maybe two feet tall, probably leading to the crawlspace. She was trying to grab the edge of it and lift it out, but her hands were shaking so hard she couldn't get a grip. 
+
+
+
+I put a hand on her shoulder. "Don't," I whispered. 
+
+
+
+She let out a sob. "I have to! It was a mistake, I..." But I was remembering now. I didn't have this phone until college. It was way too late now. I was trying to tell her. She didn't need to see what she'd done. 
+
+
+
+"Don't," I said again, louder this time. "It won't help."
+
+
+
+Kylie let out a trembling sigh, and I thought she was calming down. Then she said, "I need to see her." And she dug her fingers into the gap and lifted out the panel.
+
+
+
+The smell was beyond musty. I coughed and gagged. Kylie slid through the opening and dropped to the ground. I couldn't let her go alone. I poked my head in. The smell--oh, God. She was crawling into the darkness, and I turned on my phone flashlight to help. Then I followed her, pushing through cobwebs and trying to breathe through my mouth. 
+
+
+
+She stopped next to what looked like a concrete wall, I guess part of the foundation. She picked up a gray bundle. She wasn't crying anymore; her face was absolutely still. I knew what was under those rags. I had seen it before, when she had this breakdown in real life years ago. What I hadn't remembered until now was the first time I saw what was inside the bundle, a year before that. When it was pink, not gray. And now I remembered it wasn't Kylie who wrapped our daughter in my T-shirt from the Drake concert and carried her in here. It was me. 
+
+
+
+We didn't smother her. We didn't do anything to her, I swear. We honestly had no idea she was coming, until all of a sudden she was here, and Kylie was freaking out telling me to come over, and this tiny bloody creature in her arms wasn't breathing. We panicked. Maybe she could have been saved. Maybe we would've gone to jail. I wasn't thinking clearly. And now, it was too late.
+
+
+
+I could see the screen print on my old shirt in the light of my old phone as Kylie unwrapped the mummified corpse. I had to get out of here. I turned and scrambled back through the narrow opening into the bathroom, tore through the bedroom into the closet, back to the gym. Chris stood behind the bench, the barbell set up with what looked like too much weight. 
+
+
+
+"You ready, bro?"
+
+
+
+I raced past him. Down the hall to the musty basement. The stray cat was there, but for some reason he hissed at me. I dodged him and ran up the curving staircase toward my closet. 
+
+
+
+But the door was gone. At the top of the stairs was just a blank wall. I shined my flashlight and felt around looking for a crack, but there was nothing. I slammed my shoulder into the wall, but it didn't give. And it...hurt like hell. Does slamming your shoulder into the wall hurt in a dream? Don't you pinch yourself to see if you're awake? 
+
+
+
+I think I went a little crazy. I clawed at the wall until my fingers bled, and kept slamming into it until I nearly blacked out from the pain. Then I slid to the floor, my back against the wall, holding still and hoping to somehow bore myself awake. It didn't work. I'm still here.
+
+
+
+I still have my phone, and it seems to have a weak signal and about 50% battery. But my contacts are gone, and I don't know who to call anyway. I don't know where, or maybe when, this place is. Maybe if I go back to Kylie's parents' house, I can go out the front door and find my way home. But I don't know if my apartment will be "home." And also, I'm terrified to go back to Kylie's. 
+
+
+
+But I have to find a way out of here, because that smell...it's followed me.
