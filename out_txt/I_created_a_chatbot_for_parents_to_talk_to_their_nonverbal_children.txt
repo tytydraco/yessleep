@@ -1,0 +1,230 @@
+I feel like I shouldn’t be admitting this, but I have to tell somebody.
+I hope there’s sufficient anonymity in posting this here.
+
+This story starts long before most of the people in this story were
+born.
+
+My cousin Arnold was born with severe developmental delays. His parents
+(my mom’s sister and her husband) were told early on that he’d never be
+able to speak or live an independent life. I’m not sure of his exact
+diagnoses, but he was totally non-verbal, illiterate, and unable to
+perform simple tasks like brushing his teeth without help. He passed
+away when I was in my mid-teens.
+
+My aunt was determined to prove the doctors wrong about Arnold’s
+disability, even when it was obvious to the rest of us that he wasn’t
+going to have a miraculous turnaround. She didn’t understand why she (an
+Ivy League-educated lawyer) would have a disabled son. More than once I
+heard her wonder aloud if there was a switch up at the hospital. It was
+particularly galling for her, as her other kids, the two older ones,
+were ‘normal’. I haven’t seen Courtney and Ryan for years, but I know it
+can be hard for the other kids when a sibling is as disabled as Arnold
+was.
+
+My aunt tried a few different things. She thought she could cure his
+disability by surrounding him with intellectual things. She’d put on
+Mozart instead of kids’ music and make him watch documentaries instead
+of cartoons. She insisted that he not be put in special classes at
+school, which as far as I could tell made no difference to Arnold.
+Whenever I saw him, he was kind of in a world of his own.
+
+I don’t know if you’ve heard of facilitated communication, but she was
+big into that. It’s where the parent or a teacher holds a board with the
+alphabet on it and the non-verbal kid points to letters on it to
+communicate. With it, he suddenly went from just making grunts and
+squeals to articulating himself like, well, an Ivy League-educated
+lawyer. It’s since been debunked pretty thoroughly – it actually works
+through a combination of the ideomotor effect and cues from the person
+holding the board, and the person ‘talking’ isn’t doing so at all.
+Still, I think my aunt convinced herself it was really him talking and
+not just her wishful thinking.
+
+I was thinking about Arnold a lot a year or two ago. It gave my aunt so
+much comfort to think that she was actually having conversations with
+her son – to hear him express love not just for her but for the things
+she loved, too, like books and foreign films. I don’t know if this is
+true, but I heard from my mom that when he was dying, my aunt tried to
+get out the communication board and get Arnold to ‘say’ something
+profound like he used to. My uncle was so furious with her that he threw
+it out the window of his hospital room. He said something like, ‘Can’t
+you just love our son for who he is?’
+
+I get that he was upset, but fundamentally I don’t think my aunt was
+doing any harm. She never neglected Arnold, and if anything, thinking
+they were on the same wavelength meant she spent more time with him. She
+was completely devoted to his care. I know that she had to quit her job
+after a while, so he really was the only thing in her life. It made
+complete sense that she’d want more than just taking care of her adult
+son all day with nothing to show for it.
+
+So I was thinking about Arnold, and I was thinking about AI chatbots.
+Essentially, they’re an augmented version of what my aunt was doing,
+with less effort required from either party. She could have a coherent
+conversation with a simulated version of Arnold – a non-disabled
+version. I realised that I could create a base LLM that could be
+adjusted according to facts about the kid and, of course, what the
+parent wanted to hear.
+
+Now I know, you’re thinking this might be a little unethical. But please
+bear in mind, I was thinking about my aunt when I came up with this. I
+was thinking about Arnold.
+
+I came up with a plan. In order to convince parents that it was actually
+their kid they were talking to, there’d need to be a little bit of
+showmanship. I turned the chatbot into an app that could be loaded onto
+an iPad, and then I purchased some cheap ECG electrodes from a medical
+supply company and connected them up to a USB-C that could be plugged
+into the charging port.
+
+I should say now that it wasn’t dangerous – or at least not in a
+physical way. The electrodes didn’t actually do anything, and they most
+certainly didn’t track brainwaves. But it would seem to the user like
+they were connected up to the subject. The trick was that once the
+parent applied to the kid’s temples, the app would start asking some
+‘set up questions’ that would give the chatbot enough information to
+form a personality that could plausibly fit the kid, so it seemed like
+it was reading their mind. It was to ostensibly to ‘calibrate’ the
+machine against the kid’s brain with questions like, ‘how old is the
+subject?’ right up to ‘what are their dreams and aspirations?’ And those
+questions would be answered by the parents, so, they would unknowingly
+be scripting the conversations in advance.
+
+The hope was that it would seem like the electrodes were reading the
+kid’s mind, and the app was communicating their innermost thoughts.
+
+Once everything was ready, I contacted a local disability support group
+and told them I had created a prototype communication device for
+severely disabled children. They asked for my credentials and when I was
+honest and said I didn’t have any, they basically told me to shove it.
+So, I tried my second option – advertising online. In retrospect, I’m
+lucky that the local group said no. That would have made it easier to
+trace me.
+
+The social media algorithm is pretty good at finding you the right
+people, so long as you’re specific. I tried not to give too much away in
+the ad itself, and said I was looking for parent and child volunteers to
+try it out. Don’t worry, I was careful not to give any of my real
+personal info.
+
+Plenty of people said they were interested, but in the end, it was only
+four people at first who gave me their address to receive the prototype.
+I mailed them a package containing the electrodes and a QR code to
+download the app, and I waited anxiously to receive angry emails saying
+the device clearly didn’t work.
+
+But no one did. Within days, I got rave emails from the recipients
+saying that my invention was a ‘miracle’, and that I should be nominated
+for a Nobel Prize. One dad, who I’ll call Vincent, said he had a
+conversation with his 15-year-old severely autistic son for the first
+time ever. They talked about art. It turned out that they’d visited a
+gallery the weekend before, and with a simple search the chatbot was
+able to regurgitate some pretty smart observations about the paintings
+they had seen. I had tears in my eyes reading his email.  
+
+I thought that he felt nothing when he saw art. To the untrained eye it
+could seem like he wasn’t taking it in at all - but I couldn’t have been
+more wrong. I saw so much of myself in him for the first time ever.
+
+Word of mouth is like wildfire in these communities. Parents talked to
+each other on Facebook groups and forums. Demand soared. Pretty soon I
+had to start charging because the postage fees alone would have
+bankrupted me. I got requests for the device in Alaska and Argentina,
+and all over Europe. I think my mailman got worried about how many
+packages I was receiving from the medical supply company, because he
+knocked on my door and asked if I had a GoFundMe or anything. It was
+sweet of him. If he only knew that I’d never felt better. Every day I
+was getting an email from someone who had almost given up hope and now
+had an amazing relationship with their child.
+
+Well, that was the best it got. I should have known that things wouldn’t
+stay that great forever.
+
+It started with an email from Anna (I’ve also changed her name). She
+told me that her son had started to ‘say’ some troubling things.
+
+After a long talk, Michael told me last night that the reason he’s
+disabled is because he’s actually possessed by a demon. The doctors were
+wrong about the brain damage.
+
+I was taken aback, but I didn’t really know how to respond. Tell her
+that demons don’t exist? That the chatbot had probably taken her
+‘spiritual’ beliefs and told her what she secretly already wanted to
+hear?
+
+I jumped into the back end of the app and started to do some pruning. No
+more talking about demons and possession, or the devil, or ghosts. I
+tried to cover all the supernatural bases I could think of.
+
+But then she emailed again.
+
+Now Michael’s denying that he ever said what he said. I know it’s the
+demon at work, controlling him.
+
+I was horrified. Somehow by pushing the chatbot away from the idea I’d
+only made Anna fixate on it more. I tried to add more code to fix the
+problem, to give the chatbot the ability to discuss supernatural ideas,
+just not make any wild claims like ‘Michael’ had. But how do you take
+back your child claiming to be possessed?
+
+After Anna, there were some other emails that I saw that I couldn’t bear
+to read. Some I skim read before sealing away in my junk folder forever.
+
+I never knew my daughter was being abused at school. We’re taking her
+out.
+
+He hates his father. We’re getting a divorce. Thank you.
+
+She wants to die, she says the pain is too much.
+
+The medicine is hurting him. We’re weaning him off. We’re never going
+back to the hospital again.
+
+I’m scared I’ve failed her by never realising her true potential. I’m a
+terrible mother. I wish I never knew what she thought.
+
+Soon, there were people who questioned it - who rightly called me a
+fraud. One was a doctor. He pointed out the insanity of all of this –
+the ludicrous idea that a couple of sticky patches could read
+brainwaves - and said he would report me to the relevant authorities,
+just as soon as he tracked me down. As far as I know he never has. Maybe
+this will help him. Oh well.
+
+Then I got a third email from Anna. It began:
+
+Thanks to you, I now know what will cure my son. I’m taking Michael to
+one of the most powerful exorcists in the country.
+
+My blood ran cold.
+
+As he’s not truly disabled, the practitioner says he can use his most
+aggressive methods to rid Michael of the demon.
+
+The body must be starved.
+
+The demon must be beaten out.
+
+The poison must be met with poison.
+
+I shut my laptop. Then I opened it again and deleted my website – the
+one I’d been using to make sales. I cancelled my restock order with the
+medical supply company. Finally, I hovered my finger over the button
+that would blink the app’s chatbot out of existence.
+
+Then I thought about Arnold, and my aunt, and all the others out there
+who had formed relationships with their children, only to turn the app
+on and be suddenly met with silence. It would be so much worse than it
+had been before.
+
+I wondered what they would think had happened to their child.
+
+Anna and ‘the practitioner’ are awaiting trial. I have a Google alert
+for their names, and for Michael’s. I know parents might have struggled
+to find me, but I doubt the police will.
+
+Ar.Nold is no longer for sale.
+
+But I couldn’t shut him off. 
+
+ 
+
+ 

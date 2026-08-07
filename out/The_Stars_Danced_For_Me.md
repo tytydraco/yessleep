@@ -1,0 +1,19 @@
+It was sometime after midnight when I first saw the lights. I couldn't tell you the exact time due to the fact that I had ingested a mind altering substance. You know how time has a tendency to slip away from you while in that state. I was lying in the grass, a gentle breeze brushed across my bare skin. Normally this sort of weather would call for a light jacket, but the chemicals pumping through my veins allowed me to appreciate the chill.
+
+I thought that maybe I was hallucinating when I saw the lights first appear. They performed the most beautiful ballet, up in the night sky. The universe was putting on a show, just for me. I bought a ticket through the market of happenstance, and boy was I getting my money's worth. 
+
+As if to perform a bow, the lights made their way down stage. One particular individual decided to make my acquaintance, and approached me as if to say hello. It floated above me performing a pirouette with a sense of poise and grace. It then opened a hatch to shine a spotlight upon my simple figure. What was I to do? All I could think was to clap and show my enthusiastic appreciation for the spectacle I had just witnessed.
+
+For a moment, I thought that maybe it was approaching even closer still. However, after noticing that I no longer felt the moist lawn and solid dirt beneath me, I realized that I was floating upwards, drawing into the beings gaping maw. It was an invitation of sorts. I was being presented a gift of appreciation for my unbroken captivation. 
+
+Only once I was lowered onto a patted table did the operators reveal themselves to me. They were humanoid creatures stretched thin, with oblong heads, and turquoise complexion. They had no mouths and communicated through a form of telepathy. They did not convey information through the use of vocabulary, but rather broad concepts. They used pure emotion alongside vague ideas of time and space. 
+
+Arriving from a distant galaxy, they only wished to help us transcend through the barrier of ignorance, and to the next stage of our evolution. However, plagued by war and greed, we were not ready. It was imperative that we purge ourselves of these negativities before we would be ready for the next stage. 
+
+I was informed that we were in fact too dangerous to be allowed to persist in our current form. They had heavily considered just destroying our whole race, but opted instead to give us an opportunity to improve.
+
+I was being entrusted to be the one to convey this message to all humanity. They were making me into a savior of sorts. I was meant to deliver our kind from sin. Pull us from the brink of self destruction. 
+
+They were to return in an unspecified amount of time to check in on our progress. If we became worthy enough to transcend, then they would facilitate that transition. If we continued our corrupted ways, then they would wipe us all out in an instance. 
+
+I found myself back on that grassy field with the knowledge that it was all in my hands now. It was up to me to make sure that humanity was to survive their next visit. They gave me an action plan. A guide to help humanity grow. I was given the knowledge that would help me reach the masses, to change their hearts and minds. The only problem was, that I had gotten way too high right before they brought me forth into their council, and I couldn't remember any of it. 

@@ -1,0 +1,176 @@
+Solitude can be cleansing. That’s what Lena said when I told her about my trip. She told me about Christmases back in Poland, when her father would catch a carp to eat on Christmas Eve. It would hover solemnly for days in the sterile, alien world of a tin bathtub. Fasting, like a monk, the clean water would run through it, flushing out all the filth and bitterness. It would die alone, far from home, but pure.
+
+
+
+I had been clean for a year at that point. Whatever poison once ran through my veins had long since left my body. My trip would not be cleansing so much as reaffirming, remembering who I was before the heroin. I was an outdoorsman, a hiker, like my father raised me to be. I climbed mountains, trekked across fjords, challenged myself. This was my natural habitat, and for too long I had been trapped in dirty apartments, on bare mattresses, numb to the world with a needle in my arm. The King’s Road would be the path home.
+
+
+
+Two days in, and the pain was a sharp mix of familiar and foreign. I knew the ache in my shoulders, the blisters on my toes. They were almost nostalgic, an old friend welcoming me back. But my boots rubbed against new scars. I, despite all my recovery, was not nearly as strong as I once was, and drastically out of practice. My confidence about doing this hike was chiefly fuelled by some poetic fervour. My own personal pilgrimage, walking myself back to purity. A saner man would start off smaller, work his way up to a week-long hike. I was never that man.
+
+
+
+I was in a valley when I heard it. Steep, jagged walls of grey rock and stubborn ferns to my left, a dense forest of native spruce plummeting down to my right. Above me, a hateful sun, below me, the road. The sound hit me like a cool breeze, rang through my whole body. Clear like the tone of struck crystal. Singing. 
+
+
+
+It was coming from the woods. The summer heat bore down on me, and the shade below the spruce trees appeared like cool water on my burning skin. I had been stacking good miles, I could afford a break. I stepped from the path and scrambled down the mountainside, into the valley. I followed the singing into the trees. I didn’t recognise the song, some ancient mountain lullaby. The shade was blissful, and after days of hard footpaths, the soft spruce needles felt like walking on clouds. I lulled forward, my body suddenly tired and limp. I had only been on the trail a few hours at that point.
+
+
+
+I came across her in a clearing. She squatted by an old canvas teepee over a gentle fire with a copper kettle steaming atop it. When she turned around and saw me, she stopped singing, and smiled.
+
+
+
+“Hi!” She called softly. Her bright blue eyes dappled with light like the forest floor. Honey blonde hair fell like ocean waves across her oversized red cotton shirt. Freckles dotted the bridge of her nose and her cherry blossom cheeks. 
+
+
+
+“Hi.” I said awkwardly, suddenly aware of how soaked with sweat and dirt I must be this far into the hike.
+
+
+
+“Would you like some tea? Something to eat?” I couldn’t place her accent; it was rural, almost sounded foreign, but her voice was gentle and clear.
+
+
+
+“If you don’t mind.” I told her. In truth, it was far too hot for tea, and I wasn’t hungry, but in that moment, I wanted nothing more than to stay here, with her. She smiled again, a wide, beaming smile, and poured the kettle into two wooden mugs. I sat down on a log as she handed me a warm cup of dark, red liquid.
+
+
+
+“Lingonberry.” She told me, sitting down beside me, “I foraged them myself.”
+
+
+
+“Are you sure they’re lingonberries? I don’t want to be poisoned.”
+
+
+
+She laughed raucously at my weak joke, bumping her shoulder into mine. She took a sip of her own tea as if to assure me it wasn’t deadly. I took a sip of my own, and near scalded my tongue. I didn’t let it show in front of her.
+
+
+
+“I’m Astrid, by the way.” She told me.
+
+
+
+“I’m Jens. Are you hiking the King’s Road too?”
+
+
+
+“Oh no, I just camp out here sometimes. What’s the King’s Road?”
+
+
+
+I was surprised she hadn’t heard of the King’s Road, given how outdoorsy she seemed and how close she was camped to it.
+
+
+
+“It’s this hiking trail that goes across the country. It’s about 100 kilometres long.”
+
+
+
+“Wow…” she said, putting a hand on my arm, “You must be like a serious hiker then.”
+
+
+
+“Not really, I mean, I…” I suddenly became self conscious of the lingering scars near the crook of my elbow. I prayed she wouldn’t notice.
+
+
+
+“Let me get you some cake,” Astrid said, “it’s just in my pack.”
+
+
+
+She got up and crawled inside her tent. I awkwardly averted my gaze from her, and looked towards the fire. Within the smouldering ashes, I saw something… alien. A warped, partly melted piece of pink plastic. A driver’s license. I plucked it from the coals. It was warm to the touch.
+
+
+
+Magnus Olsen. Age 51. The photo depicts a heavy man with a great, wiry beard.
+
+
+
+“What’s that?” Astrid asked me. She was holding a tin cylinder in her hands.
+
+
+
+“Oh, I found it in the fire…”
+
+
+
+“Oh, yeah.” She smiled, “Just some trash I found around the campsite.”
+
+
+
+“It was issued recently, why not return it?”
+
+
+
+“Who has the time. Here, have some cake.”
+
+
+
+I reached into the tin and took out a thick slice of the cake. It was stale, with thick chunks of browned apples inside.
+
+
+
+“Excuse me,” I said, before I could take a bite, “I’m just going to use the bathroom.”
+
+
+
+“Okay.” Said Astrid, smiling again. “Hurry back.”
+
+
+
+I left the clearing and headed into a thick brush of ferns. I looked behind me; there were enough trees between the camp and I so Astrid wouldn’t see me. I headed towards a thick pine, but I tripped on something in within the ferns. I looked down to see a blaze of blue nylon. A rain jacket. I pulled it from the undergrowth. It looked weather-beaten, but fairly new. Something heavy was in the pocket. A folding knife. Alongside it was a sodden piece of crumpled up paper, a parking permit for somewhere further down the trail. The name on it was Magnus Olsen.
+
+
+
+I dropped the jacket, but pocketed the knife. I headed back for the camp, but paused when I saw Astrid’s face between the trees. Her smile wasn’t as wide as before.
+
+
+
+“I… found something weird.” I told her. “That driver’s license guy’s jacket. I don’t remember seeing about anyone going missing when I l-”
+
+
+
+Astrid cupped my head in her hands and pulled me forward, kissing me deeply. She tasted of wild strawberries and the way wildflower meadows smell in the summertime. My body went limp once more.
+
+
+
+“I’m so glad you found me…” she whispered. It was almost a cry.
+
+
+
+My hands rested on her waist, then wound up into her shirt. I was broken from my stupor when I felt her back.
+
+
+
+It was cold. Hard. Rough and peeling, like tree bark. My fingers ran deeper, the small of her back some kind of cavernous hole where a spine should be. I pulled away from her embrace, but Astrid grabbed my throat slammed me hard into the ground. On the ground, winded, she straddled me, held me down by the shoulders. 
+
+
+
+“Please, give me a chance.” She croaked, tears in her eyes, “You could love me. I promise. You could love me.”
+
+
+
+Behind her, a thin, brush-like tail whipped behind her.
+
+
+
+I struggled, kicked, dug my heels into the dirt, but I was pinned to the ground as she planted kisses across my face and neck. Then I remembered, Magnus’ knife. I drew it from my pocket, flipped it open, and drove it into Astrid’s leg. It singed and smoked like it was furnace hot, and Astrid jumped back in a wailing fit. I clambered to my feet and ran for the tree line. I scrambled up the cliff side and clawed my way onto the path.
+
+
+
+I looked down. What compelled me to stop and look, I can’t say. Amongst the shadows of the trees, I saw Astrid. Weeping.
+
+
+
+I never completed the King’s Road. I ran to the nearest town and got the bus home, not sleeping until I had a locked door behind me. It’s winter now. Sometimes, in the long dark, I’ll sit and trace my scars. I’ll think about Astrid sometimes. If she’s out there, in the cold. I think about the last thing she said. If out of all the lies she told, that could have been true. I don’t know why.
+
+
+
+It’s quiet here now, in the cold, and the dark. But if I stand still, if I ignore the sound of my own beating heart… I swear I hear singing.
+
+  
+*(Part 3 of the North Sea Trilogy)*

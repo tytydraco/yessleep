@@ -20,4 +20,4 @@ She drove me to the station herself. On the way she said one last thing. When sh
 
 Haven’t been back. Nan moved in with my aunt in Cardiff a few months later. She won’t talk about the fog now. Just said the valleys are waking up again.
 
-I keep the window locked on a foggy night even though I’m on the fifth floor in London. 
+I keep the window locked on a foggy night even though I’m on the fifth floor in London. "My Nan just sent me a message saying she heard it call her name and wanted to warn me to, 'Beware, the Grey King will always find you. Now the valleys are awake, they want payback for what has been done to them.' She made me a drawing of the Grey King's real **form, and I wish** I never saw it."
