@@ -18,7 +18,7 @@ it was weird from the get go, in hindsight. the address they sent me to was some
 
 “you should let me get you a bag for that.”
 
-i don't like to judge people based on things they can't help. but this woman had a voice that sounded pike it had been sandpapered into complete smoothness, devoid of any tone. she had the look for that kind of voice, too. not a strand of her blonde hair out of place. these big, unblinking dark eyes that looked like pools of molasses. i was a little jealous of her perfectly symmetrical face and her manicured nails, but at least her outfit wasn't anything to write home about- like she'd just thrown a lab coat over a simple office outfit. not that i would have looked any better, but it made me feel better.
+i don't like to judge people based on things they can't help. but this woman had a voice that sounded like it had been sandpapered into complete smoothness, devoid of any tone. she had the look for that kind of voice, too. not a strand of her blonde hair out of place. these big, unblinking dark eyes that looked like pools of molasses. i was a little jealous of her perfectly symmetrical face and her manicured nails, but at least her outfit wasn't anything to write home about- like she'd just thrown a lab coat over a simple office outfit. not that i would have looked any better, but it made me feel better.
 
 i remember stammering a little on instinct. “ah- no, ma'am. no, that's okay.”
 
