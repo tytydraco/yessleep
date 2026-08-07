@@ -1,0 +1,61 @@
+I need your opinion, am I overreacting or should this customer be banned?  
+I'll try to tell you what happened with as much detail as I can.
+
+I work for a house cleaning company, if you live in the northern parts - it's the one with the blue logo, you will know which one. My task is to drive around and help out cleaners in the field - deliver missing materials, become extra help for big cleaning jobs, or - like in this case - fill in for a missing colleague.
+
+I got the address and a general description of the job in the company app. It was outside of my normal area. I absentmindedly typed it in the GPS and started driving. I like the long drives through the countryside - singing along to loud music, not paying attention beyond the blue line on my GPS. I didn't clock the road narrowing or the trees thinning out, until I almost had to hit the brakes as I reached the end of the mainland. It was only then that I realised I was going on an island - and not one of the bigger ones, judging by the small dilapidated dock and a ferry barely big enough for a couple of cars.
+
+The journey there took around 30 minutes, plenty of time for me to read the description of the duties in the app. It seemed to be a huge mansion, the task list read like it belonged in another century: "polish the silver service", "black-lead the kitchen stove", "air the east wing bedrooms". I'd never seen a job list like it. Most of our clients wanted their bathrooms scrubbed and floors mopped, not their fire grates relaid. Do I even know how to refill an oil lamp? Old money, obviously. I was now expecting a life-sized portrait of their poodle in the front hall.
+
+Once I drove off the ferry, there were a few roads leading deeper into the island and my GPS was bugging out. It kept leading me back to the ferry dock, and I was getting really frustrated - the longer it took me to get there, the darker it'd be on my way back home. And I really didn't want to navigate the narrow island roads when they're sunk in shadows. I took out my phone and tried to call the colleague I was covering for - even if sick she could at least give me directions.  
+I was hit with voicemail and I thought it sounded a bit bizarre... and sad. I remembered that her native language was Hungarian, probably just an accent making it sound off. It said:  
+"It's me Kata. You can't reach me now."
+
+Finally after driving around for a while, I found the place and parked in the yard. It was a lot more modest than what I'd been expecting - its past glory definitely long gone. I rang the doorbell, crossing my fingers that nobody was home. I heard a loud gong echo through the house and after a couple of seconds of dead silence, I happily took out the key and unlocked the door. The air inside was stuffy with a peculiar sweet, flowery aroma.
+
+To my surprise, I saw no giant oil paintings in the hallway. The walls were mostly bare, with a few sepia-toned old photographs. The interior of the house looked grand and old. I made my way through dim corridors down to the basement, where, according to the app, all of the cleaning supplies were located. The app also mentioned a logbook, apparently not every job was weekly and some rotated on a longer schedule. I found everything I needed and, sure enough, fastened to the cabinet doors was also a big leather-bound notebook... with a padlock on it. With a heavy sigh, I took out my phone and tried to call Kata again.  
+"It's me....Kata.... You can't reach me now.... kksshh...."  
+I had a feeling it sounded different. I tried calling again just to hear the voicemail message again.  
+"It's me.... Kata.....where am I?.... " and what followed I can only describe as the most blood-curdling shriek I've ever heard. I dropped my phone on the stone floor and took a few steps back.
+
+Static, I told myself, a bad connection, that's all. Old islands, bad signal, whatever. I didn't let myself think about it any harder than that, I just wanted to be done with this house and go home. I grabbed a pair of garden shears off a shelf and cut through the leather strap around the padlock before I could change my mind.
+
+The first page had a list of rooms and jobs laid out in a grid, week numbers along the top, some rows highlighted and crossed off. A neat system, easy to follow at a glance. The following pages were handwritten, dated, more detailed. As my luck would have it, the actual notes were in Hungarian. I could only make out room names and dates.
+
+Still, I started leafing through pages of the logbook. The early entries were neat and evenly spaced. Further in, the handwriting got messier, the entries got much longer and some words were crammed into margins where she'd run out of room. As I kept turning the pages, I saw that some sentences were traced over multiple times, like she'd gone back and pressed the pen into her own words again and again. The size of the letters was getting inconsistent across single entries. The most recent pages were making no sense. Some dates repeated, others were nonsense, and the notes themselves were barely sentences anymore, just the same few words over and over. I picked up my phone from the floor - fortunately still working, and I translated those that kept repeating the most: "sun room", "stain", and one full sentence, written and rewritten down half a page: "it's already happened, it's catching up to me now".  
+Judging by the previous dates, this must've been around a month ago. The pages after that were torn out.  
+So Kata didn't have the sniffles. Whatever was wrong with her, it clearly wasn't physical.  
+Did she pick up the phone when I called and just pretended to be voicemail?...
+
+With the deepest sense of unease, I glanced again at the first page to see which rooms were scheduled for this week. I gathered the supplies, put on a comedy podcast to lighten my mood, and headed upstairs.
+
+I know cleaning isn't the most glamorous of jobs, but I actually like it. It's quite meditative. I also enjoy visiting new houses and trying to piece together the lives of its inhabitants from the clues they leave in their surroundings.
+
+This house, however, was a puzzle I couldn't solve. Normally I can piece a family together in twenty minutes - kids' height marks on a doorframe, a fridge covered in shopping lists and appointment reminders, a worn path in the carpet toward a favourite chair. This house gave me nothing that added up. The children's bedrooms were spotless, bar a thick layer of dust, but the bathroom walls were covered in drawings made with washable crayons. There were photos all over the house, but no face repeated twice. People standing alone, or whole families I didn't recognize from room to room, and something about their eyes, their poses, made my skin crawl. I couldn't put my finger on why.
+
+I carried on from room to room - I dusted, polished, vacuumed and mopped, and the familiarity of the tasks I was doing calmed my nerves. The house was beautiful and the views from the windows were truly breath-taking, especially now as the setting sun was hanging low and illuminating the bay and the rocky cliffs. The last one on the list was the sun room - for some reason I knocked on its door before going in. I heard it echo across the house, only now did I realise how absolute the silence was on this remote island. I took a deep breath and I entered the room that poor Kata was so obsessed with.
+
+Two things stood out. Firstly, I immediately realised where the sweet flowery smell had been coming from - there was a pile of old, wilted flowers in the middle of the room.  
+Secondly, for a "sun" room, this room was incredibly dark. I walked up to the thick curtains and drew them, letting in the sunlight. I looked around and now I could see more clearly that the pile in the middle weren't really bouquets as you can buy from a flower shop, just individual flowers as if freshly cut from a garden, thrown carelessly on the floor. It looked like someone had dumped the contents of several vases right there on the floor.
+
+Unsure how to deal with it, I decided in the end to at least gather all the flowers neatly in one place. The top flowers were dried up, but the ones on the bottom were damp and rotting, turning into slimy goo in my hands. I noticed they had made a big brown stain on the floor, so I picked up a more heavy duty brush and started scrubbing. The sun was almost completely down by now, so I looked around trying to find a lamp, when another one of those unsettling old-timey photographs caught my eye. It was of a woman, with hands resting on her lap, holding flowers. I didn't have time to ponder, I lit a lamp and went back to the stain. It didn't seem to be going away. I got up to try to find a stronger detergent, when I felt a buzz from my phone. It was my husband asking me when I was coming home and that was when it hit me - it was completely dark now. I should have been on my way home an hour ago.
+
+A bit hazy from the flower smell and fighting the strong urge to continue scrubbing, I went down to finish up the job. I took up the logbook, wrote the date, my name, described the tasks I did and just as Kata before me, I too mentioned a stain in the sun room. I drew a smiley face at the end to prove to myself that I wasn't about to lose my mind.
+
+I packed up and was about to leave when a faint light from the end of the hall made me realise I had forgotten to turn off the lamp in the sun room. I went in there again trying not to look at the stain, when I saw the photograph of the woman again. Such strange eyes. Such still eyes... she hadn't blinked once during the exposure time. I felt a cold shiver going down my spine when I realised what was so strange about all the photos in this house. They were all post mortem photographs. Strangely arranged poses, painted on eyes. I put on my phone's torchlight, turned off the lamp, and darted down the dark corridor, feeling the empty gazes from all the photographs I'd seen around the house during the day. I was still shaking when I turned on the engine and sped down the winding road way too fast.
+
+On the ferry back, I felt I needed to tell my supervisor about all the strange things in this house, so I called her number. I also just wanted to hear a human voice.
+
+"Hey, it's me. Listen, this house I covered for Kata today - something's really not right there. Has she said anything about it? Is she okay?"  
+There was a pause. A long one.  
+"...Kata?" my supervisor said slowly. "She passed away last week. Suicide. I thought ...didn't they tell you? This is why you were covering her old route until we reassign it to someone new."
+
+I thought of Kata's voicemail and I felt all air leave my lungs.
+
+"What do you mean something's not right there? It's one of our oldest and best paying customers. They're very nice people."
+
+I hung up.
+
+I came home and immediately started writing this post. Am I overreacting? I don't know how to convince my boss we need to stop sending anyone there. I also don't want them to think I'm crazy.  
+And should I contact Kata's family?  
+All help is welcome, I feel like I'm losing my mind!
