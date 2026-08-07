@@ -1,0 +1,35 @@
+I’ve always been an animal person, whether it was cats, dogs, birds, even the occasional reptile. Growing up, there was rarely a stretch of more than a few months without us having an animal companion around. When I finally moved out of my parents’ place and into my own apartment in the city, I took my cat and the dog stayed with my parents, as he was really my father’s dog. I still got to see him on weekends when I’d go visit for Sunday dinner and he’d always greet me like he hadn’t seen me in years. My cat, Matrix, is independent enough that the move was relatively easy for him, and he always seemed to be comfortable if I was somewhere nearby. He’d been a member of our family since he was a kitten and had a skill that I didn’t fully appreciate until I lived alone: he was a complete assassin when it came to pests. Spiders, moths, the occasional housefly, nothing got past him. I kept a clean apartment, but old houses breathe, and things find their way in. Matrix made sure they didn’t stay.
+
+The apartment itself was rich in character. The house was built in 1842 as a small mansion and was later carved into a two-unit home sometime in the last century. It was part of the town’s historical society, so it was in a highly coveted neighborhood and I had the privilege of having the upstairs unit which boasted high ceilings, tall windows, crown molding, and this beautiful reflective, gold stencil that outlined a sort of art nouveau motif on the ceiling in the parlor. It was the kind of space that looks stunning in photographs but heating it up in the winter was a pain. It was perfect. The downstairs unit was occupied by Charlie and his wife, Evangeline. They were friendly, but a little socially stiff; they were the kind of neighbors that would wave from a distance rather than strike up a conversation until you got to know them. Charlie was a surgeon and Evangeline taught a senior-level English at the local high school. Our landlords lived up in Boston and drove down every other weekend to tend the garden and ensure nothing had fallen apart. It was a good place to live.
+
+A few months after I’d moved in, things started to feel off. It wasn’t that things felt wrong, exactly, but it was like the way a room would feel different when a piece of furniture was moved an inch and you can’t figure out which one. It started on an ordinary, rainy night. Charlie and Evangeline were home, and I could tell because their record player sat close enough to their door that music leaked into the hallway. That night it was Springsteen, low and warm through the old plaster walls. I’d been in the parlor, reading a new thriller that I’d picked up, and I got up for a snack. In the two minutes that I was gone, Matrix claimed my spot on the couch, as it was an ideal position for him to look out of the window and judge the street below. I came back with a granola bar half-eaten and found him staring straight up at the ceiling, utterly still.
+
+I followed his line of sight and saw nothing other than a hairline crack near the crown molding and a slight shadow cast by the floor lamp in the corner. I walked over to the opposite wall and flipped on the overhead light, expecting to perhaps startle a moth into view. The moment that the room brightened, Matrix shifted his attention to me as if he’d been shaken loose from whatever had held his curiosity a moment prior. He meowed in a short and direct matter-of-fact acknowledgement and moved to the chaise lounge and loafed. I didn’t think much more of it as I shut off the overhead light, returned to my spot on the couch, and resumed my reading. An hour or so later, I went to bed without having thought much more of it.
+
+At around 3:25am, I woke to the mattress shifting under Matrix’s weight as he jumped on the bed and moved up closer to me. I lay still, waiting for the usual routine: he'd make a few careful steps, a slow circle, and then I'd feel the warm weight of him settling against my side. He only ever cuddled with me when he thought I was asleep, affection on his terms, so I made sure to keep his expectations in order.
+
+However, he never settled. When I finally opened my eyes and let them adjust to the dark, I saw him sitting at the foot of the bed, upright, staring at the ceiling. He was motionless in a way that didn’t look like curiosity, it looked like attention.
+
+“What the hell,” I muttered, sitting up and reaching for the lamp.
+
+It happened the same as earlier that night; the moment the light turned on, he broke from concentration. He turned and meowed at me, like he was answering a question I hadn’t asked, moved over to the right side of the bed about halfway up, and laid down. I turned the lamp off, but it felt like hours before I finally fell back asleep.
+
+The next evening, I called my mother and walked her through it, already anticipating what she was going to say.
+
+“It was probably a bug or a reflection,” she said. “Cats stare at things all the time, Mason. You’re never going to see whatever it is that they see.”
+
+“I know, I know, it’s just weird.”
+
+We talked for the better part of an hour about nothing in particular, and by the time I hung up and made dinner, I’d mostly talked myself out of thinking about it at all. The evening unfolded as normally as one could expect. I read a few chapters of my book, watched an episode of a true crime documentary I’d been interested in, and it was a relatively quiet night.
+
+As I was about to get ready for bed, I turned off the television and glanced over and saw Matrix at the far end of the couch, head tilted back, eyes fixed on the ceiling again. I reached over and scratched behind his ears, more to break the spell than out of affection.
+
+“What’s the matter?” I asked. “Is it a bug?”
+
+He didn’t move a muscle. I followed his gaze up, more out of habit than expectation, and this time I understood what he’d been staring at for two days.
+
+It wasn’t just on the ceiling, it was almost pressed into it, like the way a hand impression is pressed ever so slightly into wet clay. It was long, with limbs bent at angles that would be impossible for anything remotely human. Where I would’ve expected to see a face was instead just two patches slightly darker than the rest, as if they were eyes, and I had the sudden, nauseating certainty that they were aimed directly at me.
+
+For a long moment, neither of us moved, and then it did. It folded backward into the plaster the way a spider draws its legs in, gone into the ceiling like the ceiling had never been solid to begin with; all that remained was the hairline crack in the crown molding. Matrix sat in the same spot on the couch, still staring, his tail flicking only slightly. I had the overwhelming sense that something had just changed its mind about being seen in its entire form.
+
+I remained sat on the couch, staring at the ceiling, until the sky started to change color.
