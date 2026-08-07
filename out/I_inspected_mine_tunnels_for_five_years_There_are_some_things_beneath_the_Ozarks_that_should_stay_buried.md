@@ -1,6 +1,6 @@
 The name’s Malichi, but almost everyone calls me Kai.
 
-From 2014 until the fall of 2019, I inspected underground mines. 
+From 2014 until the fall of 2019, I inspected underground mines.
 
 Most people hear “mine inspector” and picture someone wearing a hard hat while walking through tunnels with a clipboard. That’s not entirely wrong, but it leaves out most of the job.
 
@@ -644,11 +644,11 @@ Allison was 32, smart, and impatient. She had no time for stories about haunted 
 
 Mark was nearing retirement and had worked underground almost as long as Dale.
 
-We entered shortly after 7am.
+We entered shortly after 7pm. 
 
 The mine had electrical lighting in the main corridors for the workers, but the section we were inspecting was dark.
 
-At around 10am, Allison stopped.
+At around 10pm, Allison stopped.
 
 “Who’s the 5th person?” she asked.
 
