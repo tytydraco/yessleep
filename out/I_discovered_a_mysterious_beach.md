@@ -348,11 +348,7 @@ I stared at the contact list on my phone. Before I could change my mind, I press
 
 "Hello?" Leo answered.
 
-"Hey," I breathed.
-
-"Elian?"
-
-"Yeah. I know it's been a while."
+"Hey," I breathed. “I know it's been a while."
 
 "Almost a year."
 
