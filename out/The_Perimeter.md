@@ -1,0 +1,95 @@
+I don't remember falling asleep. I remember the road, the darkness outside the window, a turn that shouldn't have been there, and then nothing.  
+  
+I woke up on the floor. The room was small, no windows, a single bulb under the ceiling covered by a wire mesh. The door was old and heavy. I pushed it. It didn't budge. Only then did I realize the bolt was thrown from outside.  
+  
+I called for help for maybe twenty minutes, until my voice gave out. No one answered. Then someone spoke from behind the wall.  
+  
+"Quiet. No one's going to hear you here."  
+  
+The voice was calm, not young. I pressed myself against the wall.  
+  
+"Who are you? Where are we?"  
+  
+"Don't know. Some kind of cabin, in the woods. They locked me up last night."  
+  
+"Me too. I don't remember how I got here."  
+  
+"So there's two of us."  
+  
+We talked about the door, about whether cars could be heard outside, tried to work out where we were. He asked if there was any way out. I said the door wouldn't budge. He said it was the same on his side.  
+  
+By morning, if it was morning, since the light in the gap under the door never changed, he spoke again.  
+  
+"You ever hear about a girl who went missing around here? Seven years back."  
+  
+"Something like that. Why?"  
+  
+"Been thinking about it. Maybe it's not random, us both ending up here."  
+  
+I told him the truth: that the police had questioned me once, because my phone had pinged near the place she was last seen, and that they'd let me go. That I was just driving through.  
+  
+"And the police?" he asked.  
+  
+"Let me go. No evidence. I was just passing through."  
+  
+"A phone's just a tower. A few kilometers' radius. Could've been anyone."  
+  
+"Exactly."  
+  
+He didn't argue. And if he thought that too, maybe it really had just been a coincidence, the kind that gets you pulled in for questioning once and then, years later, dragged out here for no reason anyone explains.  
+  
+The conversation kept circling back to that night: where I'd been driving, where I'd turned off, whether I'd stopped anywhere. I kept answering the same way, a little more detail each time.  
+  
+"Police checked everyone who'd been in that area," he said at one point. "You were crossed off the list early. No motive. Just the phone."  
+  
+"That's what I keep saying."  
+  
+"No one locked me up," he said. "I've been out here the whole time."  
+  
+Pause.  
+  
+"From the start."  
+  
+I didn't understand right away what he meant.  
+  
+"I'm her father."  
+  
+I started telling him again that I hadn't done anything, that I'd just been passing through that night, that the police had checked everything and let me go. He listened without interrupting, and when I stopped talking, he didn't say yes or no. He just asked again, exactly where I'd turned off the highway. I repeated what I'd already told him.  
+  
+He asked once more what I'd seen, whether I'd stopped, where I'd been looking. I answered as best I could, saying the same thing in different words.  
+  
+After that he stopped asking.  
+  
+Then I heard footsteps on the other side of the door. A creak, and a few seconds later the bolt turned in my door.  
+  
+He opened it himself. Short, gray-haired, in an old jacket. I'd expected another room just like mine. Instead there was an ordinary cabin interior: a stove, a table, a bench by a window, a hallway leading off into the dark.  
+  
+"You're free," he said.  
+  
+He didn't move. He just stepped aside.  
+  
+I walked out. My legs were stiff, the light through the window stung after the dark of the room. I wanted to get out, so I moved forward, toward where the hallway turned.  
+  
+He stayed behind me. I could hear him breathing.  
+  
+I passed the table, brushed against the bench, and turned left, toward the far end of the hallway, where it was darker. My hand reached out on its own, my palm landing on wood, rough, cold, with the heads of old nails.  
+  
+Only then did I realize I was pushing against boards, not a door.  
+  
+"Why'd you go that way?" he asked from behind me.  
+  
+I turned. He was standing a few feet off, watching me without any expression.  
+  
+"I don't know," I said. "It looked like the way out."  
+  
+He didn't answer right away. Then he said:
+
+"The phone wasn't the only evidence."  
+  
+A pause.  
+  
+"This place was known to three people. Me, the investigator..."  
+  
+He was looking at me.  
+  
+"...and whoever was the last one to walk out of it."
