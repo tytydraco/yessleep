@@ -1,0 +1,72 @@
+
+
+My brother has been missing for three days.
+
+Not "not answering his phone" missing. Missing like someone reached backward and edited him out. Our neighbors don't remember he had an apartment. The university where he taught has no record of his name on the faculty page — I checked twice, then a third time, because I thought I was losing it. I'm the only one who still remembers he existed. That, and an old external hard drive he gave me a few months ago, telling me to "just hold onto it, in case."
+
+In case of what, he never said.
+
+The drive had one encrypted folder on it. I didn't crack the password — it was taped to the back of a photo of the two of us as kids. Like he already knew it would come to this. Like he was leaving me a door and hoping I'd never need to open it.
+
+I'm posting what I found exactly as it was written. No edits from me, because I don't feel like I have the right to add anything. If you've got a theory about what my brother had to do with any of this, I need to hear it.
+
+---
+
+\*\*INTERNAL BULLETIN — GROUP ZERO\*\*
+\*\*CLEARANCE: ABOVE HIGHEST\*\*
+\*\*OBJECT: AZG-0\*\*
+\*\*STATUS: Uncontainable. Unstoppable. Unknowable.\*\*
+
+Group Zero isn't a government program. We're what's left of a handful of independent research circles that got too close to something none of our funding sources wanted their names attached to. No chain of command, no headquarters, no budget line. What holds us together is simpler than that: we saw something that can't be unseen, and there's nowhere left to report it.
+
+Over the years we catalogued a lot of things that shouldn't exist. Forces that could unmake a galaxy in a single motion. Minds whose waking moment erases entire star systems on contact. We had names for the worst of them — Devourers, Sleepers, Kings Beyond the Light, depending which of us you asked. We thought we'd already stared at the bottom of the well.
+
+We were wrong.
+
+Every single one of those things — even the worst of them — had one thing in common that we'd stopped noticing, because it was always there: direction. A will. A hunger to wake up, to spread, to consume, to rule over something. A vector. Even total, inhuman, cosmic-scale rage is still rage pointed \*somewhere\*. You could measure it. Model it. Be afraid of it in a way that made sense.
+
+AZG-0 has no vector. That is exactly why it sits above all of them.
+
+\*\*WHAT WE KNOW\*\*
+
+AZG-0 — a working name, pulled from an inverted radio signal, the only channel through which fragments of it ever reached us — does not approach. It does not attack. It does not expand, not in any sense the word usually carries.
+
+It cannot cross space, because for it there is no space to cross. It has no coordinates — not physical, not quantum, not anything we have a word for. You cannot aim a weapon at it, because "aiming" requires a direction, and direction is the very first thing that stops existing wherever it is present.
+
+Everything we know — our reality, our timeline, our laws of physics, even the gods and forces we spent decades cataloguing — may be nothing more than a thin, temporary film stretched over an endless, silent nothing that existed before existence had a name. AZG-0 is not an enemy of that film. It doesn't notice the film at all. We are, at best, mold that happened to grow on the surface of something that has been perfectly still since before stillness meant anything.
+
+When AZG-0 stirs — and it doesn't stir on purpose, because it has no purpose — the canvas doesn't get destroyed. It dissolves back into the blank page it was stolen from in the first place.
+
+\*\*RECORDED ANOMALIES\*\*
+
+\*\*1. Causal Inversion.\*\*
+Any action aimed at the object returns to its source before it was even carried out. One of the circles that came before us tried firing a directed energy charge at a suspected contact zone. The generator destroyed itself — eleven minutes \*before\* the launch order was ever given. The incident report existed before the incident began. Then the report vanished. Then the incident stopped having happened at all.
+
+\*\*2. Geometric Decay.\*\*
+In zones under AZG-0's influence, space loses its axes entirely. "Left," "right," "up," "down" don't break — they simply stop applying, the way the word "loud" stops applying to a smell. Matter in these zones doesn't disappear. It becomes a crimson, boiling mass that exists at every point in three-dimensional space simultaneously, and no instrument we own can detect it directly. We don't see it. We calculate it — from the shape of what should have been there and isn't.
+
+\*\*3. Psychic Reversal.\*\*
+Anyone caught close enough to an influence zone — "close" being a word we use loosely, since distance itself stops meaning anything there — starts experiencing what we've labeled reverse cognition. Consciousness begins moving backward along its own timeline: the subject starts remembering their future while simultaneously losing their past, layer by layer, day by day, until the mind collapses into the exact point of birth. We had three documented witnesses to this. None of them survived as themselves. In their last coherent minutes, all three spoke — fluently — in a language none of them could have possibly known at the moment they were born. Not infant babbling. A real, structured language. One that, as far as we can tell, didn't exist yet when they were born.
+
+\*\*ONLY KNOWN COUNTERMEASURE\*\*
+
+We cannot attack it. We cannot contain it. We cannot build a perimeter around something that has no coordinates for a perimeter to sit on.
+
+The only defense we've found is total cognitive avoidance. Every researcher is under strict, absolute orders never to model, calculate, or sustain focused thought about the object. We learned this the hard way, through losses we don't talk about: any directed attention from a conscious mind expands its zone of influence.
+
+Don't ask how we know it exists at all, if directing knowledge toward it is itself an action with a vector. We didn't find it. We didn't go looking.
+
+We noticed entire layers of fundamental law quietly disappearing from our math and our physics. Equations that worked yesterday started returning contradictions in places that had never produced contradictions before. Constants stopped being constant, one decimal place at a time. We never found AZG-0. We found the hole it leaves behind just by existing — and reconstructed its shape from the outline of everything missing.
+
+It isn't at war with us. It doesn't want our end.
+
+Our universe is simply leaking, slowly, into the bottomless silence that was left behind after it.
+
+---
+
+There's a folder in the drive with my brother's name on it. Inside, one file. Last modified: today.
+
+I haven't opened it yet.
+
+If I do, I'll post part 2. If I don't post within 24 hours, please, just forget you ever read this.
+

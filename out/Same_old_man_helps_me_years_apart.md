@@ -1,0 +1,114 @@
+Okay I need some help wrapping my head around this. I have only ever told my Wife about my theory, she and I think I have met a real life angel. For context, I am not religious, never have I or my family have been religious. I live in the UK, I am 34 and male. 
+
+1st time - Summer 1999. I was 7 years old so memory isn't crystal. It was a week or so after my birthday and with some persistance I learned how to ride a bike. My dad was kind of old school and it was the the 90s (no helmet). Once I was able to balance and push the pedals he rolled me down a rather large hill in a local park. He did this twice at lower parts of the hill and I was gaining confidence. The 3rd time he said on your own now lad. My brain froze and forgot how to slow down. Out of nowhere an older man, wearing a hat shoved me right off of my bike. All I recall is the back of my dad's car. Confused, I slowly woke up. My dad took me to the hospital, said I had a nasty fall off my bike wanted to get me checked out.
+
+The doctors in children's accident and emergency checked me over and asked me what happend. I said an old man pushed me off my bike. My dad says there was no one there and said I fell off sideways. The doctors then explained with concusion, my brain may have put two random events together. I got some scans and they sent me on my way. I was fine, luckily.
+
+2nd time - Summer 2008. I'm 16 years old. Finished secondary school. I was flirting with a girl all summer. But I have always been a bit shy. Anyway, she invited me to come to a local natural pool, with a cliff dive we used to do as kids. Obviously, my horny 16 year old brain was in overdrive! I was about to see my crush in a bikini. Full of excitement, we made our way to the pools. There was about 10 of us including myself. Things were going well we were swimming, diving and having fun. I got some alone time with my crush. I made my move and we kissed, she grabbed my hand and put it on her body. Instantly erect. I got embarrassed and she told me it was okay. But being a shy 16 year old, I took her hand and walked us to the cliff to jump in (mainly to hide my quite obvious erection).
+
+Just before we got to the edge, we heard some rustling there was a hiking trail behind us. And appeared an older man. Looked like he was in his 50s. But his skin was soft like he was old but looked so much younger. Can't really explain his race. But he was olive-brown skin, mixed race? He had very bright green eyes, unforgetable. Very white teeth. He was wearing a white hat and smartly dressed. He startled us and I hid myself behind my crush because of the erm situation mentioned previously. 
+
+He said, I'm sorry to bother you. Do you happen to have the current time. I didn't know exactly but knew it was around 7. He said in the am or pm. I said PM. 
+
+He then said something about a storm coming and we should get ourselves home before. Being 16 I was just like okay sure (didn't really believe him). He walked away and tipped his hat. My crush and I were thinking it was a bit weird. But she said, she got this headache all of a sudden. So I got my jacket and our stuff and said goodbye to our friends.
+
+We got a bus home and I decided to walk her to her door. We kissed and the heavens opened up and the rain came down. It didn't stop us. We were two stupid kids in love. We got soaked and her mother decided to drop me home.
+
+I had 15 missed call on my phone. My friend at the pools. I called him, he's at the hospital with another friend. They stayed at the pool. They were doing more daring jumps during the rain. One of our friends backflipped and slipped. He landed on the rocky edge of the pool. Broke his spine and neck. Freak accident and landing. Could never walk again. It was upsetting for everyone and I felt terrible. Felt I should have told everyone to go home because a man told us the weather was turning. Felt guilty. Felt it was my fault.
+
+Felt depressed for years. Why didn't I just tell them about the weather turning. I stopped speaking to my friends and crush. I isolated myself from them.
+
+14 years later on
+
+  
+3rd time - June 2024:  I'm 32 had a career change. I was a formulation scientist since leaving uni. Under utilised and I fell out of love with it. Lots of taking work home and red tape around creative minds, doing new research. I moved far away from my hometown and I passed my exams to become a train conductor here in the UK. I wanted a job were I was my own boss and didn't have to think as much. My 2nd week. I'm new and still switched on. I'm on a late night train and some of my trains go through routes that are well deserted. There is one person who boarded at the start of the service. A young woman around 25 years old. She was slim, blonde and quite charming. As it was just us two on the train we chatted, the conversation was easy. It felt like we were friends for years.
+
+  
+She was quirky and unusual but in an interesting way. 25 mins go by without another passenger boarding. The driver contacted me. We were held at a red signal. The signaller had informed us that there was a trespasser down the line and we couldn't proceed until the british transport police got him away. I stayed with the driver for a few minutes, he was talking typical railway talk (moaning about the job he had the day after).
+
+I then went to the young woman to inform her what was happening. We sat for another 30 mins and really enjoyed our conversation. I've not been successful with the ladies over the years. But despite being completley unprofessional. I shot my shot. We exchanged numbers and she text me, a date, time and a local pub. The driver asks me to contact control again to liase with network rail. I'm gone for no longer than 15 minutes. 
+
+I walk back to tell her police reported no sighting of the trespasser and we would proceed with caution ( at a slower speed), I see her slumped in her chair. Pale as a ghost. Vomit on the table. My arm, the pain, help me. I call 999. The train moves (the signal must have cleared). I tell the driver what was happening. We stop at the next station. Middle of nowhere. Driver helps me. Shes now unconcious. I open my local door to get signal, my driver stays with her. The ambulance to tell me to initiate CPR. As I go back on the train an older man boards the train. He walks to the woman. Holds her hands and says breathe in and out, breathe in and out, breathe in and out. In a deep, calming voice. The woman wakes up. The man asks the driver for water. I ask him if he was a medically trained. He said he knew what she needed. He pulled out a white tablet and it dissolved in the water. He said aspirin. She took sips. 
+
+  
+I was on the phone relaying everything to 999, eta for ambulance was 5 mins. She just sat up. Stuttered I'm okay, thank you I'm okay. I stayed with her and the old man. The driver kept a look out for the paramedics. The woman kept saying honestly I'm fine, i'm so sorry, i'm fine honestly. Me and the driver were both bamboozled moments before she was hardly breathing, pulse was not there. The moment this older man helped she was awaking.
+
+The paramedics arrived. The old man said he had given here aspirin and urged them to check her heart. They rushed her to hospital. It took until the older man faced me fully and removed his hat. I asked him. Do I know you from somewhere. It was around 14 years since I last saw those warm, beautiful green eyes. And something deep in me knew this man. I hadn't connected the dots at this point in my life but I just knew. It was his eyes. I thanked him for helping and that me and the driver were greatful. I call control and get permission to carry on with the service. 
+
+  
+I go to close the doors and the old man is outside. Which was odd because I had one door open and didn't remember going out of it. I put it down to stress. I shout do you need this service, he doesn't respond and tips his hat. I felt the worst deja vu I have ever felt. That's when it hit me about the moment I was 16. 
+
+I didn't know what to think. Had more questions than answers. If its him, why wouldnt he age? Why here? So far from my hometown? Is it too much to be a coincidence?  Is the woman going to be okay? Why did he board the train? How did she wake up? How did he have aspirin? Who was this man??
+
+My crush when I was 16. I hadn't spoken to her for years. I had her on facebook still. She had a lovely family, a husband and children. I messaged her. Stupidly, as I thought.
+
+When we were 16, the day at the cliff, can I ask you something? 
+
+She was like oh, this is a bit Random and a long time ago. Are you talking about our friend what happend to him?
+
+I said no but just before, you remember we kissed and some old man was talking about the weather?
+
+She said yeah I do remember that, it frightened YOU. 
+
+Do you remember his colour eyes, what he looked like?
+
+No, why are you asking all this. You dont speak to me for years and go on about a traumatic event.
+
+Please I said do you remember?
+
+  
+She said oddly now I think about it yes, he was an older man and had a hat on, pretty sure his eyes were green, dont know how i remember that...
+
+That's when I knew it was him... I cried. I was scared for some reason. Is it just coincidence?
+
+Did he stop me from falling that day? Why not stop my friend? But then why help the woman?
+
+  
+And the missing link why push me over when I was 7? Was that even him, when I was 7. Or another old man in another hat?
+
+  
+My crush when I was 16, was more confused. And said listen if you still have feelings or something and this is a way to rekindle something I'm not interested. 
+
+I apologised. I didn't mean to come across in that way. I said I would block her contact on facebook as I didn't want to cause any issues for her and her family.
+
+\-----A week Later
+
+I get a text from the woman on the train. I messaged her on the night asking if everything was okay. 
+
+She said sorry I didn't get back to you, found out I had SCAD. Some kind of tear in my artery wall. Thank you so much for helping me. She said I'm on these medications now so instead of a drink fancy making some glass art in my studio?
+
+I said yeah, sounds like fun.
+
+She said she was on doctors orders to rest not even return to work for months so she could heal. 
+
+The months go by we make glass art. Get pretty good. We go on light walks. I take her for a meal. We fall in love. 
+
+A year goes by and she moves in to my house. Fully healed, we were at it like rabbits.  I propose. We get married. With passion and love. We conceive. Life is going the way I wanted finally.
+
+\--The missing link. 
+
+I wanted to go visit my parents tell them the good news. They lived in the same house since I was born. Me and my wife go and tell my parents they are so Happy! Our first grandchild, my mum was overjoyed. 
+
+My dad went and fecthed the old photo books, which I hadn't seen for years. Says he found some he thought he lost years ago in a box, wedged under some insulation in the loft. 
+
+My mum was having a cuppa in the conservatory. I was in the mancave (aka the shed) with dad. He was showing me all the fond memories we had and how important it is to cherish every one. He hugged me (hadn't done for years, even on me wedding day).
+
+My mum shouts us for some soup , me and dad walk in the conservatory. My mum says come on then show the wife the embarrasing ones. He continued, we laughed. Then he says oh the day you first rode your bike. He had a terrible fall. There was me age 7, smiled before my descent. 
+
+They were telling my wife the story, only it was completly different than I remember. Everything was the same until my mum said, it was a blessing in disguise that, the same day a drunk idiot crashed his car right into that park didnt they.
+
+My stomach dropped. Dad the old man, remember. The one who pushed me. No pushed you son, what are you talking about. I kept quiet. 
+
+But my wife knew exactly.
+
+Turns out my Dad never told me about the fact a car crashed into park. The exact place where I was riding my bike. He said he didnt want to put more fear into me about riding a bike...
+
+WHAT THE FUCK.
+
+WHO is this man??? 
+
+\----- I have a clipping of the crash, photos of me as a child, even screenshots of the conversation I had with my crush from years ago.--- I'm willing to upload this, if it helps. I am a private man though and would like to remain as anonymous as possible. 
+
+
+
+But please someone just tell me its a coincidence.
