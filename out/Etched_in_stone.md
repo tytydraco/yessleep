@@ -1,3 +1,9 @@
+Etched in stone
+
+By: Robert D Slack II
+
+ 
+
 When the call came in, I was thrilled. A discovery in the deep Amazon—bones they couldn’t explain. Something massive. Something ancient. I’ve spent my life chasing fossils, and this sounded like the find of the century.
 
 I called Ben as soon as I got the news. We hadn’t been on a trip together in years. He was still active military, but always found ways to sneak off when things got interesting. “You in?” I asked.
@@ -33,6 +39,7 @@ Ben looked at me. “This is big. You know that, right?”
 I nodded. “Bigger than anything we’ve ever found.”
 
 That night, we celebrated. Opened some cheap whiskey. Sat around a fire and talked about all the places we’d been. All the things we’d seen. 
+
 "Remember that time you tried to steal a chicken? I remember your dumbass army crawling all the way to the coop from the tree line. When that old dude swung his door open with the shotgun saw you, the look on your face was priceless. Best 20 bucks I spent" Ben said laughing
 
 "Yeah those were good times man, KFC never felt the same after that" i said jokingly
@@ -43,7 +50,6 @@ That night, we celebrated. Opened some cheap whiskey. Sat around a fire and talk
 
 That was our last enjoyable night we had together.
 
-
 I woke up screaming, covered in sweat, I couldn’t remember the dream. Just darkness. And a sound. A deep, gargling growl, like something breathing through water.
 
 Ben was already awake. Sitting up. “You too?”
@@ -51,6 +57,7 @@ Ben was already awake. Sitting up. “You too?”
 “Yeah,” I said. “What the hell was that?”
 
 We laughed it off the next morning. Just jungle dreams, we said. Nothing to worry about.
+
 But the air felt heavier. The camp quieter. Like the trees were watching.
 
 Carrillo seemed off. Tired. His hands shaking. “Don’t you feel it?” he asked me. “The pressure. And the ground is... i dont know..breathing?”
@@ -86,6 +93,7 @@ We decided to confront Carrillo in the morning. But when we went to his tent, we
 Panic spread through the team. Two of the armed guards went missing within the hour. The others refused to enter the forest, claiming the trees whispered their names. One man shot himself after screaming that something had crawled into his skull. It was no longer just a research trip—it was a death sentence.
 
 Ben tried to contact the HQ for evacuation, but only static came through the radio. We decided to send a GPS Ping in hopes someone will answer.
+
 The jungle had sealed us in, like the jaws of a beast. The sky darkened hours before sundown. A foul smell, like rotting meat, began to drift through the air. I covered my face with a cloth, but it didn’t help.
 
 That night, one of the scientists began chanting. grabing a nearby knife, suddenly he plunged the blade into his stomach and began to gutt himself. We tried to restrain him, but he tore free with impossible strength. His eyes sunken faintly, his mouth hung open. he spoke. “We are the chosen.”  in a deep guttural voice. “there is no God beside me.” He dug his hands inside the laceration. he began chanting once again over. wet squelching sounds coming from his body as He began pulling out his organs. Ben looked away but I couldn’t. The scientist collapsed, and was pronounced dead soon after.
