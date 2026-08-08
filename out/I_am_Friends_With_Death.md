@@ -1,0 +1,109 @@
+**I can’t get over this. I needed to tell someone. No one believes me.**
+
+**My friends and I were invited by my buddy Pax to go on a desert camping trip, and, as a Western literature nerd, I agreed.**
+
+**I got my camping gear, fed the dog, and kissed my wife goodbye for the weekend.**
+
+**Pax is a sweet guy. He’s always helped all of us out since he’s the most experienced with camping. I remember one time when we all completely forgot food while camping in the Appalachian Mountains, and he packed a ton of hotdogs that we fed off of for the entire trip.**
+
+**That’s what made this entire shit show so upsetting.**
+
+**By the time I pulled up to the campsite, it was completely dark out besides the milky twinkle of the stars above.**
+
+**It was genuinely a beautiful place. The dirt mingled with the sand and made a deep, Mars-like red. The large natural structures that littered the place were long-dead coral from hundreds of thousands of years ago.**
+
+**Most everyone had already gotten there and was setting up tents and talking amongst themselves.**
+
+**I smiled, breathing in the fresh air, and got to work. Another one of my friends, Jonathon, helped me pitch my huge tent. That earned him a spot inside along with Achilles.**
+
+**It was a quick job since no one wanted to be outside for very long. I think we all headed to bed at around 11:30 p.m.**
+
+**I distinctly remember lying in my sleeping bag, staring at the semitranslucent ceiling of the tent, and hearing a coyote, wolf, or some type of dog howling.**
+
+**Just as I began to fall asleep, a** ***chip chip chip fwoosh*** **woke me up. This was accompanied by a bright orange light tearing through the fabric of my tent and a soft popping and crackling.**
+
+**“The hell?” I groaned.**
+
+**I pushed myself up onto my forearm, my fist in a ball. Staring at the source of the light, I slowly unzipped the flap to the tent.**
+
+**Someone had lit a fire.**
+
+**That someone was Pax.**
+
+**He was sitting on the dirt shirtless in front of it, his elbows resting face down on his knees and his hands cupped separately, like some ancient monk who had not moved for many years.**
+
+**My friend was staring directly into the fire.**
+
+**“Come on out, young fellow. I can see you.”**
+
+**His voice rattled out deep and eldritch, as though he had been alive much longer than any human ever should have.**
+
+**“Pax…? Man, what are you doing?” I rubbed my eyes, slightly agitated.** ***He must be pranking me,*** **I thought.**
+
+**“Tell me, Andrew, have you noticed the sky changing? The water blackening?”**
+
+**Pax moved his jaw like a puppet. His eyes remained fixed on the fire.**
+
+**I did not answer.**
+
+**I sat just outside the tent, squatted down.**
+
+**“Do you often think about death? I ponder on him nearly every hour. Every minute. Every second. Every millisecond. He is, at this moment, an old friend.”**
+
+**“Do you strike me as an idiot?” I replied angrily.**
+
+**To this, he simply stared into the fire.**
+
+**“A man has lived his entire life in denial of the inevitable. But of course, like many before him, he meets his end. Instead of peace and acceptance, he finds fear.**
+
+**“As he approaches the boat keeper, Death, he places his wages from life on the table in front of him.**
+
+**“‘I will not take you, nor your wages,’ Death says.**
+
+**“The man, in anger and despair, responds as follows. ‘Yonder it lies. Do not refuse me. You never made yourself apparent to me in life, so you must bring me down the river as is your duty.’**
+
+**“The kind Death simply shook his head and responded, ‘I have revealed myself to you in ways you could never imagine. Your filthy wages mean nothing to me if not your acknowledgment of my existence. I curse you to walk the land of the living for eternity. They shall never see you, but you shall witness every delight that you once enjoyed but will never again.’**
+
+**“At this, Death shut the man’s mouth, which he is so good at doing, and doomed him to his fate.**
+
+**“Do you see my point, man? You must acknowledge death before he decides to discard you like the foolish man who never accounted for, nor paid attention to, death.”**
+
+**I began to shake. Why was I shaking?**
+
+**“I am good friends with death,” Pax started again. “I think about him every hour, every minute, every second, and every millisecond. He is the inevitable. Will you acknowledge his existence, or will you choose to stay oblivious?”**
+
+**“L-look, man, I’m not sure what’s happening here, but it’s gotta stop. Haha! So funny. Please, just go to bed.”**
+
+**I began to go back inside my tent, but right as I looked away, I felt a violent yank on my shirt collar.**
+
+**I snapped my head back in front of me and found Pax grasping my collar so tightly that he might have ripped it from sheer might.**
+
+**His eyes sat empty and desolate, like great glass beads glistening in the moonlight.**
+
+**“HEED MY WORDS,” he began to yell with the wrath of a thousand gods. “THE LOBOS OF THE LAND SERVE HIM, AND THEY WILL NOT SPARE YOU LIKE HE MIGHT. HEED MY WORDS, YOU MAN OF DILAPIDATED FAITH. EVERY HOUR, EVERY MINUTE, EVERY SECOND, EVERY MILLISECOND YOU MUST PAY YOUR DUES.”**
+
+**Wolves and dogs and coyotes began to scream, howl, yip, and gnash as Pax began to twist my collar even tighter.**
+
+**“Please, stop!” I tried struggling away from his ironclad grip, but could not. I was violently shaking and praying that he was not about to kill me.**
+
+**He stared directly into my eyes, his breath hot on my face as our noses almost touched.**
+
+**“Heed my words,” he spat, and threw me down.**
+
+**I ran back inside the tent, scrambling to put myself back together.**
+
+**I woke Achilles and told him all of what had happened, and he told me he hadn’t heard any coyotes, felt a fire, or seen Pax.**
+
+**I looked behind me and popped my head outside the tent. There was no sign that anything had been amiss. The night was quiet and calm. There was no trace of ash nor fire.**
+
+**There was no Pax.**
+
+**Achilles simply told me to get some sleep, so I lay down in my sleeping bag.**
+
+**I did not sleep for the entire night.**
+
+**I went about camping, trying to be as normal as I could after all of that. It was almost excruciating seeing the normal, kind Pax talk to everyone as he had before.**
+
+**The weirdest part about all of this, though, is that ever since I’ve gotten home, I’ve been hearing coyotes and wolves and dogs howling in the middle of the night in the suburbia I live in.**
+
+**My wife can’t hear them.**
