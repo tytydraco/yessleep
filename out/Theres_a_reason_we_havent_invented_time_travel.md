@@ -68,7 +68,6 @@ The morning light edged through the curtains, burning my irises until I had the 
 
 My hands were wrinkled. Spotted. The skin hung loose from my bones. I stood and stumbled to the bathroom mirror, upon thin legs that felt like they’d turn to dust with each step. When I looked at myself, all I saw was a man past his prime, aged beyond recognition, with stark white hair and a near-skeletal face.
 
-I checked my text from Ava. She wondered where I was. 
+I checked my text from Ava. She wondered where I was.
 
-She said our first launch was in thirty minutes.
-
+She said our first launch was in thirty [minutes](https://www.reddit.com/r/TalesFromTheMullet/s/ciMVS6oMUH).

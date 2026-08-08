@@ -1,0 +1,101 @@
+Sleep paralysis is different for many people. Some say they just hear things. Others claim they see terrifying figures in their room, while some don't see or hear anything at all but nobody has quite had an experience like I had.
+
+It all started when I moved to Shadow Falls for a reporting job with the Shadow Falls Chronicle while also finding an affordable apartment in Midtown. I didn't own a car at the time but that wasn't much of a problem since my job wasn't far from where I lived so every morning I'd ride my bike to and from work.
+
+One evening I got home like I always did. I took a shower, ordered myself a pizza, laid in bed watching television and before I knew it, I had drifted off to sleep.
+
+Sometime during the middle of the night, I suddenly woke up but I couldn't move. No matter how hard I tried, my body refused to respond then I heard something in my living room. It sounded like my front door was rattling, as if someone was trying to force it open.
+
+I lived alone and didn't know anyone in Shadow Falls besides my coworkers but none of them even knew where I lived.
+
+I tried moving my legs, but they felt like they weighed a thousand pounds. As I listened closer I could hear my living room window being pried open.
+
+My heart began pounding out of my chest. I wanted to reach for my phone at the foot of my bed but my arm wouldn't budge.
+
+A few seconds later I heard slow and heavy footsteps.
+
+Each step echoed through the apartment as they made their way down the hallway toward my bedroom. Every footstep grew louder until they finally stopped outside my bedroom door.
+
+The doorknob slowly turned and creaked open.
+
+Suddenly standing in the doorway was the silhouette of a man. He didn't say a word. He simply stood there watching me.
+
+A liquid dripped from his body, collecting into a puddle beneath his feet. The only thing lighting the room was the glow from my television, making it impossible to make out any of his features.
+
+For what felt like nearly hours, he just stood there staring at me while I remained completely paralyzed, wondering if I was about to die.
+
+Eventually my body began shutting down from exhaustion. The next thing I remember was waking up the following morning covered in my own urine but before getting up I wiggled my toes to make sure I could move again.
+
+When they responded, I threw the blankets off, ran into the hallway, and searched every room in my apartment.
+
+The man was gone.
+
+I convinced myself it had just been a nightmare. After calming myself down, I took a shower, ate breakfast, grabbed my bike, and headed to work.
+
+As I rode through Midtown, I couldn't stop yawning.
+
+I was exhausted.
+
+Whatever happened the night before had kept me from getting any real sleep but I kept telling myself it couldn't have been real. It had to be a dream.
+
+As I approached one of the busier intersections on my route, my eyelids became heavier and heavier. I wasn't paying nearly enough attention to the road.
+
+Then everything happened in an instant. All I remember is tires screeching. Horns blasting and a car slammed into me.
+
+The impact launched me several feet off my bike before I crashed onto the pavement.
+
+For a few moments I just laid there in pain. Eventually I climbed to my feet and looked at my bike only to see It completely destroyed.
+
+The driver seemed more concerned about the damage to his car than whether I was alright, but honestly...
+
+I couldn't have cared less. I just wanted to get to work.
+
+So I left my bike where it was and walked the rest of the way, almost as if I hadn't just been hit by a car going thirty miles an hour.
+
+When I finally arrived at work , everything felt... off.
+
+Normally it was a quiet place to work, so people keeping to themselves wasn't unusual but today was different. Nobody acknowledged me as I greeted coworkers  walking past me.
+
+I even stepped into my boss's office to ask him a question, but he never looked up from his paperwork.
+
+He acted as though I wasn't even standing there. I figured everyone was still upset because I hadn't turned in an article two days earlier.
+
+When my shift finally ended, I reached into my pocket to call an Uber home. Only to realize my phone was gone.
+
+It must've flown out of my pocket during the accident.
+
+Great.
+
+That meant I had no choice but to walk home. Halfway there the sky opened up and rain poured down so hard that within seconds I was completely soaked.
+
+I couldn't help but laugh.
+
+"As if this day couldn't get any worse."
+
+When I finally reached my apartment, I reached into my pocket for my keys but only felt lint.
+
+"Those must've flown out during the accident too." I said out loud. 
+
+With no other choice, I decided to climb through my bedroom window. Using all my strength, I forced it open and pulled myself inside.
+
+As I stepped into the apartment, I noticed the television was on In my bedroom. I never left the TV on and I never closed my bedroom door before leaving for work.
+
+My heart started pounding as I thought someone had broken into my apartment.
+
+When I got closer to the bedroom , I reached for the doorknob.
+
+I took a deep breath.
+
+Then I turned it. When I opened the door...
+
+Everything changed. Because I'm not here to tell you an ordinary story about sleep paralysis. 'm here to tell you that when I opened that bedroom door...
+
+I saw myself lying in bed. Unable to move with my eyes fixated on me In absolute terror.
+
+And in that moment... 
+
+I realized that maybe...
+
+Just maybe...
+
+I never got up after that accident at all.

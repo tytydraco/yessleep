@@ -1,4 +1,4 @@
-Last spring I decided I needed a haircut. Something clean, that would make the rest of me matter less. I found a place a few blocks from my apartment; a barbershop that smelled like soap and shaving cream. No fancy shampoos nor offerings for a subscription model, merely a couple of black chairs, as well as a bald man who looked like he'd been cutting hair since the day I was born. 
+Last spring I decided I needed a haircut. Something clean, that would make the rest of me matter less. I found a place a few blocks from my apartment; a barbershop that smelled like soap and shaving cream. No fancy shampoos nor offerings for a subscription model, merely a couple of black chairs, as well as a bald man who looked like he'd been cutting hair since the day I was born.
 
 I sat down and told him what I wanted; just a little off the top. He nodded and worked in silence. My hair looked better. Sharper. For a moment I felt like a slightly different person from the neck up. But when I looked in the mirror again, the old dissatisfaction was still there. The barber must have noticed. He asked, plainly, if I needed help with anything else.
 
@@ -54,4 +54,4 @@ When he works, I catch myself wondering how large the mass has become. Whether i
 
 I haven't looked again. I don't know if I could stand it.
 
-I'm closer to the face I've always wanted.
+I'm closer to the face I've always [wanted](https://www.reddit.com/r/TalesFromTheMullet/s/ciMVS6oMUH).
