@@ -1,0 +1,220 @@
+[Part 1](https://www.reddit.com/r/nosleep/s/lQJ4UfjFqT)
+
+[Part 2](https://www.reddit.com/r/nosleep/s/yiZxiP4aNt)  
+  
+  
+This is my last post about my roommate.  
+  
+The day came where his band was supposed to play at the local park.  
+  
+He decided he would drive us. Getting into his car for the first time, it felt familiar somehow.  
+  
+We arrived at the park where the stage and lights were set up; the place was packed with people and noise.  
+  
+The entire town must have been there. Our landlord and some friends of mine, and my parents, even sent a message saying they might come.  
+  
+If there was a time to do something, it would be now, and I know his ego won't fail me in what I need to happen.  
+  
+He tapped me on my shoulder; looking at him, he smiled and said, “Hey, I have to go. Try to have some fun, okay?”  
+  
+I gave him a smile back. “I will."  
+  
+He went off backstage, then eventually came out with his other band members; cheers overtake the quiet.  
+  
+He comes up to the microphone, and he immediately finds me in the crowd with his eyes.  
+  
+“Hello! We are the Thought Forms!”  
+  
+People roared, and even I almost made a sound.  
+  
+When they started their first song, my heart rate picked up, nervous for what I had to do.  
+  
+I forced my foot not to tap to the rhythm.  
+  
+I moved through the crowd, locating a friend of mine.  
+  
+“Hey! This is great!” they said excitedly.  
+  
+“I know, I'm excited for when he calls me up on stage. Could you record that when it's time?”  
+  
+“Oh shit, yeah, of course!”  
+  
+I took the paper I had written my speech on out of my pocket and read it and read it again until I was sure of what I wanted to say.  
+  
+The first song ended.  
+  
+Then the second ended as well.  
+  
+Then Tim took a breath, and as they were cooling down from the last song, he spoke.  
+  
+"Hey, everyone." The crowd quieted. "This next one is for a very special person."  
+  
+He smiled. "Someone I've thought about for a very long time."  
+  
+My stomach tightened.  
+  
+"Could Rae please come up to the stage?"  
+  
+A spotlight snapped on. It landed directly on me.  
+  
+I worked my way through the crowd; it wasn't much of an issue. Everyone stepped aside for me like it was their cue.  
+  
+I moved past the security and up the stairs, paper clutched in hand, as I arrived at the microphone with claps from the audience I was once a part of.  
+  
+I saw the band get ready, and before anyone else could do anything, I quickly went forward to the microphone.  
+  
+“Before this goes any further, I have something I wish to say first.”  
+  
+I unfolded my paper again, and as I got ready to say what I wanted, I realized that this wasn't my speech; it was a flyer for the band.  
+  
+His face plastered onto it with a smile.  
+  
+I panicked, feeling around for the words I just read a minute ago in a stray pocket, and there was nothing; he changed it.  
+  
+Looking over, a real smile on his face, one that knew it was winning.  
+  
+“Well? What was it you needed to say?”  
+  
+I held the flyer in my hands as I glared at him.  
+  
+I felt what I wanted to say slipping away from me.  
+  
+“Tim is my roommate. I have known him since high school, and the entire time I have known him.”  
+  
+I paused trying to think of something else to say, but nothing came; the harder I thought, the more I thought of saying things he wanted to say.  
+  
+I took a breath and just said anything I could think of.  
+  
+“His real passion was playing polka music. Back when we first met he had an accordion instead of a guitar.”  
+  
+“And when he plays this song for me, I would ask it to be played with his favorite instrument.”  
+  
+The crowd, who had cheered before, had gone completely silent.  
+  
+“More than that, he actually hates this band and this place, so I think going back to his roots would be very enjoyable, and he'd actually be signing it, and there wouldn't be a track he would lip-sync to.”  
+  
+People started to murmur in the crowd.  
+  
+Tim stared at me, half in disbelief, half in anger.  
+  
+“What are you doing?”  
+  
+"I'm just telling the truth.”  
+  
+Even with the anger I could feel building inside of him, I kept going.  
+  
+“I remember all sorts of things about him he's most likely forgotten, like how he says other more impressive names at coffee shops when placing his order instead of just 'Tim.'"  
+  
+“Or how he put his foot into wet concrete because he wants a Hollywood star of his own but is too underground to ever be that known.”  
+  
+I kept going; every false truth I put out into the microphone, the more laughter I got from the crowd, and the more I leaned into the absurd statements.  
+  
+I heard some people in the crowd start to stir a different noise.  
+  
+“What am I doing here again?”  
+  
+“I thought I knew Tim better than that.”  
+  
+It was working.  
+  
+“He’s cried at more children's movies than I can count, and he forced calluses on his hand to make it look like he practiced the guitar more than he does.”  
+  
+"OH, and most people don't know this, but I actually had a roommate before Tim—"  
+  
+Before I could finish, the crowd's laughter and confusion silenced.  
+  
+Looking around, I saw cups and phones and papers hit the soft grass all at once.  
+  
+Everyone was gone.  
+  
+Behind me lay instruments on the ground as the band and staff had vanished as well.  
+  
+Then I looked over; he was standing there, holding his guitar by the neck in his hands, shaking.  
+  
+“I almost had it. It was almost perfect, but you put a blemish on it.”  
+  
+The way he was looking at me was the way he looked at me behind my back, cold, with no emotion except the anger in his voice.  
+  
+“We were meant to be perfect, but you had to say all that in front of everybody!”  
+  
+He took something and threw it out into the now empty space where the crowd was. The small box hit the ground; I knew there was a ring inside.  
+  
+"Don't worry!” He said, the smile returning to his face that he always kept on. “We can fix this! I can fix this!”  
+  
+Before I knew what I was doing, my legs ran.  
+  
+There were no birds, no sound, no people, just the sound of my feet and the sound of Tim's feet behind me.  
+  
+No matter how far I ran, his footsteps never got farther or closer.  
+  
+He was waiting for me to get tired.  
+  
+I ran for so long I couldn't feel my feet.  
+  
+Eventually, I gave out, falling down, my hands scraping against the ground as he finally gained ground.  
+  
+“Let's just start over.”  
+  
+His voice was gentle.  
+  
+”I'll take us back to this morning, and we can do it all again without the silly little script you had.”  
+  
+I sat there, staring at him. I realized something. I do know my roommate.  
+  
+“That last thing I told the crowd, that was the truth, wasn't it?”  
+  
+He froze. Staring at me like I had said something worse than before, for the first time I saw fear on his face.  
+  
+“I did have a roommate." I got lost in thought.  
+  
+"Don't do this.” He pleaded with me. “Am I so bad you want to go back to **Him**?”  
+  
+I stayed quiet.  
+  
+“You can just come back to the stage with me, you can accept me, and you won't have to live with the truth; I can be real. We can be real.”  
+  
+After a quiet and long moment, I answered. "I'm afraid I can't run any longer, and I can't have you becoming real either.”  
+  
+He stared at me, and after a moment, he let out a sigh.  
+  
+A long, exhausted sigh.  
+  
+“Did you really have to say I liked polka?”  
+  
+I laughed for the first time in months.  
+  
+And then he vanished.  
+  
+  
+  
+  
+The roommate I had before was someone I did know for a long time.  
+  
+He was a part of a band, and he was very special to me.  
+  
+He got caught up so much on himself and his career that he got onto substances, and eventually, he started to hurt me.  
+  
+I was blinded by what I thought of him. I let the physical and mental abuse continue  
+  
+Eventually, it got to the point where I called the police on him after he had a episode so bad there was no other choice.  
+  
+The scars he gave wouldn't heal easily, so I pretended like he never existed.  
+  
+And that led to something, or someone else being made in his absence.  
+  
+  
+I woke up back in my apartment.  
+  
+His belongings, the memories, and the music are all gone.  
+  
+I wandered around aimlessly, trying to find him, trying to see if this really was the truth.  
+  
+I remembered this feeling of loss.  
+  
+I reached into my pocket; after digging around, I pulled out the same flyer from before.  
+  
+His face was still there, flipping it over. I saw his signature and a note.  
+  
+“Try to have some fun, okay?  
+  
+In your mind always— **Tim**"

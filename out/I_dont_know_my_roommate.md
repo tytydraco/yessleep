@@ -108,6 +108,8 @@ I'm scared, and I'm going to put this post out there to try and get help and to 
 
 I’ll make another update post soon when I figure something out. I'm not sure what I'm going to do, but I have to do something.
 
-I just hope this post doesn't disappear.  
+I just hope this post doesn't disappear.
 
 [Part 2](https://www.reddit.com/r/nosleep/s/0b4Vnztr9c)
+
+[Part 3 ](https://www.reddit.com/r/nosleep/s/qgtDZ1fjYb)

@@ -36,7 +36,7 @@ I felt heat.
 
 *She ropes you in with the promise of a few sleepless nights, and before you know it, you’re back in her bed, under her goddamned thumb…*
 
-“I’m headin’ out, Darlene,” I said, pacing through the mobile home with a peculiar sort of urgency. She shouted something about my making me dinner. I pretended not to hear her.
+“I’m headin’ out, Darlene,” I said, pacing through the mobile home with a peculiar sort of urgency. She shouted something about making me dinner. I pretended not to hear her.
 
 “If you really deadset on thinkin’ that kid’s mine,” I called out, “I’ll have my blood tested or - “ 
 
@@ -68,7 +68,7 @@ I rolled my shoulder, bucking her touch. 
 
 I stomped out of the mobile home, sliding past Darlene’s father. The walking corpse was still offering me his wizened palm. I mumbled *“Nice to meet you, sir,”* and kept moving. The land squished under my boot heel, switchgrass licking at my ankles. I hopped into my car and turned it on. Headlights washed over the property. They were both still in the open doorway, watching me. I shook off the discomfort and lay on the accelerator, kicking up mud as I jerked onto the nearby dirt road. 
 
-“Last time I answer one of Darlene’s texts,” I whispered. 
+“Last fuckin' time I answer one of Darlene’s texts,” I whispered. 
 
 My eyes flickered to something aside the road. A structure I didn’t recognize, nestled between a few evergreens. 
 
@@ -128,7 +128,7 @@ My chuckle morphed into a scowl.
 
 It’d been hours since I last received something unhinged from Darlene. In a sense, I was overdue. I cracked my neck, threw back another swig, and grabbed the phone. 
 
-***EMERGENCY ALERT***\*: Flash flood warning for this area until 12:30 AM EST. Please exercise extreme caution and avoid driving unless absolutely necessary…\*
+***EMERGENCY ALERT***: *Flash flood warning for this area until 12:30 AM EST. Please exercise extreme caution and avoid driving unless absolutely necessary…*
 
 “Huh,” I muttered. Didn’t know a storm was coming. 
 
