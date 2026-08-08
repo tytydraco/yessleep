@@ -22,7 +22,7 @@ Night couldn’t come soon enough. I waited until Cynthia began to snore and car
 
 The pumpkin was exactly where I left it. Pulling the shop towel off, it once again made eye contact. 
 
-“Alright,” I sighed. “What’re you hiding?”
+“Alright,” I said. “What’re you hiding?”
 
 Setting to work, like chipping a sculpture, I peeled back layers of vegetable flesh with my knife. Slowly, steadily, revealing just a little bit more of the face with each stroke. 
 

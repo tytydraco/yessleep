@@ -1,0 +1,195 @@
+*Tick, tock, tick, tock.*
+
+Above the conference room table, the thin metal hands of the clock wound their way around the white face of it. Curls of steam rose from untouched coffee mugs, soft afternoon light filtered through the white plastic blinds, and cars rumbled by outside with muted chatter. The woodwork of the room was showing its age today, scuffed, chipped, and scratched from countless years of administrative work going to and fro. The scent of coffee, glue, and copy paper hung on the air around the table, but with the door to the conference room shut, it seemed to thin in favor of the dry smell of dust that lingered despite numerous cleanings. That was Jabo’s Fork in a nutshell; an old thing still chugging along like an antique car, refusing to submit to the effects of time in the shadow of the mountains around it. Yet, like so many small towns, it too had its fair share of problems, and it was this that brough us here as the other people around the conference table stared in shock at the sheriff.
+
+“David, come on.” Mayor Jonathan Hilco blinked at him with the half smile of a man who doesn’t want to believe his ears. “You can’t be serious.”
+
+Across the flat expanse of polished oak, Sheriff Kowalski nodded, no humor in his stoney expression. “I am.”
+
+Lisa Renfield, dressed in her usual pinstriped pantsuit, shook her head at Kowalski in amazement, hands shaking as if she were watching the money disintegrate before her very eyes. “That property is worth millions. Just the price on the house alone could fund the town’s administration budget for an entire year. Besides, every day the park stays closed, we lose even more money. I can’t believe we’re even discussing this.”
+
+“It’s still a crime scene, Lisa.” The sheriff narrowed his dark eyes at her and jabbed a finger at the louvered blinds covering the courthouse windows. “We’ve got four missing people connected to the Watkins property, three of them local residents. For God’s sake, Cindy Fadro went to school with your niece! Erin Martinelli’s father was on the football team with John in high school! If we sell that place we’ll never get a better chance to find out what happened to those girls, and opening up the park around Smoke Point will guarantee contamination. Every two-bit podcaster this side of the Mississippi will be out there, climbing around with their cameras to look for ghosts, while real evidence might get buried or lost thanks to their tramping.”
+
+Leaning forward so that his prodigious belly mounded against the edge of the conference table, Douglas Finberger tried to calm the situation even as his face reddened with similar levels of disbelief. “Let’s not lose our heads here, yeah? Look, David, we’re all saddened about what happened to Ed Watkins and those two girls, but it’s been several months without a single lead or update. We’ve humored you this long in keeping the park closed, but you can’t seriously expect us to throw away this kind of opportunity based on cold cases. After all, you’ve always said your boys needed more funding; think how much equipment and training we could get from the estate sale.”
+
+*That’s going to go over well.*
+
+Seated to the left of Sheriff Kowalski, I sucked in a breath and waited for the inevitable eruption to follow the county auditor’s remarks. I’d been a deputy sheriff for years in Jacob’s Fork, and had served under David Kowalski since I was a rookie cop. He was a good man, and a strong leader, but he could get easily fired up when confronted with the bureaucratic red tape of local governance. I had been there when our tiny force went through some really tough cases; the drug ring that came in from Boise six years ago, a Kootenai poaching racket that murdered a hunter four years ago, or last year when a crazed gunman from out of state tried to shoot up an elementary school during Valentine’s Day. Most of the time, being a cop in the forgotten stretches of northern Idaho was easy, but these cases were always fresh in the minds of anyone who stayed on Kowalski’s force. For this reason, he’d been pushing more funding for nearly a decade, and always he got the same excuses about the county budget. To bring it up now, after everything that had happened concerning the Wickenshire House, was tantamount to throwing gasoline on a bonfire.
+
+He swiveled his head to blink at the county commissioner, and I thought for a moment Sheriff Kowalski might explode, his face shading red like an overripe tomato. “Are you kidding me, Doug? We can’t sell that place in good faith, not when this might happen again, and opening up the mountain would be like ringing a damn dinner bell. I’ve got Andy Todd watching the mountain, and there are new markers in the woods as far as the Benson Ranch . . .”
+
+“Oh, good lord, not this again.” Lisa slumped back in her chair, cradling her forehead in one hand with a groan of annoyance. “Andrew Todd is hardly a credible source, especially considering where he was the night of the disappearances.”
+
+“. . . which means our suspect is still at large.” The Sheriff talked right over her words and instead directed his attention to our mayor, who looked more uncomfortable by the minute. “Now I say we seize the property as per eminent domain and seal the mountain off for good. I’ve got some dynamite down at the station from when we collapsed that old copper mine, and it will be enough to make sure the access road is completely demolished.”
+
+“This is insane.” Charles Hubour, head of our local chamber of commerce, looked down his long nose at our badges from the opposite end of the table. “You’re going to mothball a six-million-dollar property and an entire public wilderness recreational area *which is fully taxpayer funded* because of a few piles of bones? You guys have guns, what are you so afraid of?”
+
+Shifting in my chair, I did my best not to let my temper boil alongside the sheriff’s as the room scrutinized me like a bug on a card. I’d been promoted to detective after I apprehended the Valentine’s Day shooter by ramming his car with my own before the ensuing firefight broke out. Kowalski had overseen the promotion himself, and while he was still as tough on me as the day I joined, I knew he’d been proud. My own father left when I was ten, so to me the sheriff was as much a father figure as I ever had. When he let me take the lead on investigating the Wickenshire vanishings last winter, I gave it my all, only to fall short as none of the clues we found led to anything substantial.
+
+*I turned that place upside-down. I know I missed something, I just need more time.*
+
+“The markers are a health hazard.” Sheriff Kowalski jerked a thumb over one shoulder toward the distant mountains, though I could see his embarrassment at the words, as he and I both knew the real reason why we never removed them. “And more than that, they’re part of the crime scene. If we want to catch whoever is doing this, we need them intact, and there’s no way we can rely on private owners or nosy hikers to keep them there.”
+
+“Oh please, now you’re just grasping at straws.” With a snort, Lisa crossed her arms and stuck her chin out with a waspish tone to her voice. “Honestly, at this point it looks more like covering up evidence to me. Besides, since when did *we* authorize *you* to hold onto explosives?”
+
+Something inside of me snapped, and before I knew what I was doing, my mouth was running. “You know what, maybe next time *you* stop some maniac from gunning down a room full of kindergartners then you can dictate what we have in our arms locker.”
+
+“*Enough!*” With a slam of his open palm on the table, Mayor Hilco brought the room to silence once more. “The Smoke Point Mountain is part of the public domain; we cannot keep it closed while the people are paying taxes for it. As it is tied to our administration, I’ll officially sign the paperwork to be reopen it by the end of the week.”
+
+Sheriff Kowalski sighed, and I felt my chest deflate. There it was. Our defeat. Over an hour spent in this stuffy room, and none of them had listened to a word we said.
+
+*Un-freaking-beleivable.*
+
+Pausing for a moment to straighten his tie, the mayor continued. “As zoning laws are technically gray as to where it lies, the Wickenshire Estate is hereby considered an important local landmark of Jacobs Fork, therefore under my jurisdiction. We are *not* going to destroy any county infrastructure, not in this economic climate.”
+
+The other officials flashed smug, triumphant smiles at us, but Hilco wasn’t finished.
+
+“Instead,” He angled his head our way, and I could see him and the sheriff exchange a knowing look. “It will be remanded to police custody for an additional month, along with the access road leading to it, after which it will be taken into official holding by the county. If, in that time, the sheriff’s office finds anything substantial to lead to a breakthrough in the missing persons cases, the deadline will be extended by another week. *Dismissed.*”
+
+Squawks of protest came from the other members of the cabinet, but the sheriff rose to his feet with a grim, yet satisfied look on his haggard face, and I followed suit.
+
+“David.” Mayor Hilco raised a hand to stop us as the others filed from the conference room. “Stay. You too, detective.”
+
+Once the door to the room swung shut behind the last exiting bureaucrat, the mayor sat back in his chair with a sigh, then threw a furtive glance toward the door. From his pockets, he fished out a box of cigarettes, slipping one between his lips. He crossed to the end of the room to push one of the windows open, and from outside the quiet bustle of passing cars and chatting pedestrians flowed in.
+
+“Thought you quit?” Without a hint of judgment, Sheriff Kowalski produced a lighter from his shirt pocket and ran the flame under the mayor’s unlit cigarette tip.
+
+He snorted, and Mayor Hilco pulled in a long drag before exhaling so that little plumes of smoke flowed from his nostrils. “As far as my wife knows, I did. You know, I never had a bad smoke. Bad drinks, bad coffee, bad dates, but a smoke was always a smoke. Damn shame the stuff is so bad for you.”
+
+“Yeah, well, so are the burgers at JoAnne’s Diner.” Leaning against the windowsill beside him, Sheriff Kowalski produced his clay pipe and a small tin from his other shirt pocket, out of which came a small bag of loose black tobacco. “I swear, someday they’re gonna write ‘Bacon’ on my autopsy as cause of death. I’d never make it as a rabbi.”
+
+That brought a tired smile to the mayor’s lined face, and he offered me a cigarette, which I politely declined. I wasn’t a smoker, though I had to admit the smell of Sheriff Kowalski’s cherry pipe tobacco made me want to reconsider. It truly was unfortunate how something so pleasant also caused cancer. Much like the town, it didn’t kill you at first, just crept up on you slow, until one day you realized you were stuck on this path as much as the next person. I wondered in abstract if Cindy or Erin were decomposing on some hidden trail or crevice somewhere on the rocky slopes to our north, trapped forever on their own path that we couldn’t find.
+
+After another few quiet drags, Major Hilco let his shoulders slacken, and tugged at the knot in his tie with a weary groan. “Please tell me you boys can find something up there.”
+
+Sheriff Kowalski glanced out the nearby window, his eyes far away in thought. “We’re doing the best we can, Jon. Anything dead’s gonna be dry bones by now. Anything living . . .”
+
+Silence reigned once more, but after a moment, the mayor lifted his eyes to me. “You both have my support, you know that. The park opening was a necessary concession; I want this solved as much as anyone, but it’s been over six months since the fire. I can’t keep the others at bay for much longer. Find something for me to hold over their heads, or we’ll be forced to move on with the property.”
+
+I straightened up, sensing the wight in how he addressed me first. This was still *my* task, my investigation to see through to the end. They were both relying on me to find new evidence. I couldn’t let the sheriff, or the mayor down, not when so much was at stake.
+
+*The families deserve to know what happened.*
+
+“I’ll find something.” I nodded, in a bid to inject more confidence into the statement than I truly felt.
+
+“Good man.” Whether he believed me or not, the mayor bobbed his head in a similar gesture of approval and waved us off with a tired sigh. “I’ll be at a commerce summit in the Moose Lodge for the afternoon. Call my personal number if you need anything.”
+
+With this signaling the impromptu meeting to be over, I followed the sheriff as he put out his pipe, the two of us making for the conference room door.
+
+We slipped through the maze of corridors to the stairwell of the county courthouse and finally emerged onto the town square. It was a sunny day for Idaho, golden rays dancing on the courthouse green as we trudged for the sheriff’s pickup.
+
+“Go ahead, say it.” I shook my head at myself as we rounded to our respective doors on the weather-beaten truck, its green and tan paint chipped from thousands of kicked up pebbles on backroads.
+
+Sheriff Kowalski raised an eyebrow that bore faint traces of gray, settling into the driver’s seat and adjusting his faded gray Stetson with the grunts of an aging man. “Say what?”
+
+Leaning an elbow on my own door, I noticed how worn the dark navy sleeves of my coat were. It hadn’t been more than a year since my promotion, and already it seemed like twenty. “That I should have kept my mouth shut. Renfield’s been gunning for a police budget cut for years; I just gave her enough ammo to make that happen.”
+
+To my surprise, a wry grin slid over my boss’s lips, and he chuckled as we rumbled on down main street, a warm southern breeze flowing into the cab. “She can’t do nothing she couldn’t do yesterday, Derrick. If anything, it’s good she got some return fire for once. Ever since she headed that park commission, Renfield’s had stars in her eyes over running for mayor once Hilco leaves. One of these days all them spoiled uptown fools will vote her in and she’ll try to melt our badges for the silver, but it ain’t right now.”
+
+As the streets of Jacob’s Fork rolled by, I watched the people on the sidewalks and in the windows of local shops, talking and shopping with relative peace. A few even waved as we passed by, noting the sheriff’s emblem on the truck door. One young woman tucked a strand of light blonde hair behind one ear, and I thought back to the missing person’s files, those faces I’d poured over for hours.
+
+*Two young women, one old man, one middle-aged hiker. No connections between the hiker and the first three, save for the location and circumstances. No footprints, no scent trail, no bodies.*
+
+“You really think we’ll find anything?” I voiced aloud my gloomy reservations and tried not to think about how any one of the people outside my window could be our suspect.
+
+He let out another deep sigh, and the sheriff’s weathered face reflected my own doubts. “After this long? I don’t know. It’s like I told Hilco; if there are any bodies out there, they’ll be in pretty bad shape, but if somehow they are still alive, then we’re looking at some nasty business as far as trafficking is concerned. After this long, those girls could be in Yemen for all we know.”
+
+My stomach knotted at that, and I winced at the sudden realization that I would honestly rather find their corpses than know the victims might still be suffering an unknown fate. “I’ll give the house another once-over this afternoon, to see if I can dig something new up. Did the reservation elders ever come back with any information?”
+
+Steering the pickup around another turn in the sleepy streets of our town, Sheriff Kowalski frowned. We were on decent terms with the local Native American reservation many miles across the county from Jacob’s Fork, helped by the fact that the sheriff himself was a half-blood relative to their tribe. Still, there were tensions between the two communities, primarily around drugs and gambling, which drew both tourists and troublemakers alike. “Nothing useful. They’ve got enough problems of their own with the casinos, alcohol, petty crime, you name it. If one of theirs snatched our people, we’ll never know about it, and wouldn’t have the jurisdiction to go after them even if we did.”
+
+We reached the police station on the opposite end of town and parked in the small lot where the other patrol vehicles waited. Ours was a small department, perhaps a few dozen or so deputies on the force in total, but we did have extra staff for administrative and forensic work that could help pull some of the weight. With an entire county to manage, and the upheaval surrounding the Wickenshire case, many of us had pulled 14-hour shifts for multiple nights in a row when the vanishings first happened. Between increased patrols around Smoke Point Mountain and search teams looking for evidence to pass on to the forensics lab, some of our boys had resorted to sleeping in cots set up in the rec room just to avoid falling asleep at the wheel. As the weeks went by, with nothing to show for it, this titanic effort had been scaled back, until all that was left was a hefty dossier on my desk and bad memories.
+
+“Hey, Sloan.” As we passed through the front lobby and into the offices beyond, Sheriff Kowalski turned to wave at a nearby deputy seated behind another desk. “Drop what you’re doing; you’re on assignment with Junger in the field. Grab your files from evidence and get on it.”
+
+Deputy Clyde Sloan looked up from his paperwork, saw the two of us, and understanding crossed his face in a measured grin. “You got it, boss.”
+
+Turning to throw one last glance at me, the sheriff flicked his eyes toward the station doorway, which lay in the direction of the northern mountains. “Try to be back by dark.”
+
+I said nothing, but we both knew what he meant as the man lumbered away to his office.
+
+Clyde and I had been partners back when we were both cops on the beat, developing a close friendship and working on several cases together. Always the team player, Clyde applauded my promotion to detective, but I felt bad leaving him behind to the regular roadwork. Despite a habit of running his mouth to the irritation of most polite sensibilities, or his enduring love for chewing tobacco that he’d been trying to kick for years, Clyde was a good cop. He’d been with me when I brought down the Valentine’s Day shooter, and the only reason I got credit for the kill was because he went *left* around the wrecked car while I went *right*, thus engaging the suspect first. Loyal and headstrong, he deserved a promotion of his own, but the sheriff couldn’t just hand out pay-raises like candy, not when the local bureaucrats wanted to trim the budget every other year. Still, that never stopped him from working like a dog to earn his keep, and in less than fifteen minutes we were rolling along the lonely backroads of northern Idaho, the mountains looming closer as the warm summer breeze flowed through the open windows of my car.
+
+“Still hard to believe it’s August already.” From the passenger seat, Clyde shuffled through the files within the overstuffed binder, paging through weeks of evidence to unearth a property map of the Wickenshire Estate. “At least we won’t be knee-deep in snow this time. Where are we fixin’ to start?”
+
+I leaned over to tap on a section of the map north of the house, a spot marked with multiple little X’s inside of circles. “Boulder fields. That’s where the hunter went missing, and where they found Erin’s phone. We’ll try there while we have light, then the house when it gets late. Power should still be on; I don’t think the county ever bothered to shut anything off up there.”
+
+For a few moments, we sat in silence as the car rumbled along, the mountains drawing closer, green trees flashing by along the roadside.
+
+“Heard they want to sell the place.” Clyde drummed idle fingers on his knee as he stared out the passenger window, the evidence folder lying in his lap. “What kind of fool came up with that idea?”
+
+“Renfield.” I turned onto the final route leading to the mountain road, civilization falling away behind us as the wilderness swallowed us up. “With some help from Hubour and Finberger. They’re going to open the whole park back up in a few days.”
+
+He hissed a curse between his teeth, and Clyde rolled his eyes as he fished in his shirt pocket for a tub of chewing tobacco. “Ain’t never seen someone so money-hungry. Place has four bodies on it, and she wants to turn a dime on their graves. If that snooty pencil-pusher ever gets in as mayor, I’m moving to Florida, I swear to God.”
+
+Despite the grimness of the setting, I couldn’t help but feel a thin smile crawl over my lips at his complaints, reminiscent of older days on the force together. “Still set on being a swamp man when you retire?”
+
+“Yessir.” The twinkle returned to his eye, and Clyde nodded with an amused chuckle at his own vision of paradise. “I’m gonna build a little house by the water, a good fishing boat for the dock, and mix up a nice cold drink while I watch the sun go down on the gulf. Just me, the gators, and my dog. A man could live his whole life anywhere else and never have it that good.”
+
+We laughed, but the looming shadow over us dampened the jovial mood as the trees closed in, the harsh stony tip of the mountain towering upward into the sky. Smoke Point Mountain wasn’t especially grand when compared to other, more notorious places in the US like Denali or Olympia, but it was prominent enough for our little valley that everyone’s eye was drawn to the granite peak every time they looked across the horizon of Jacob’s Fork. Supposedly local miners had used it as a communications point way back in the olden days, sending up smoke signals like the Kootenai did to let their bosses know another train load of iron ore was on its way down from the nearby range that the mountain sat detached from. Eventually telegraph lines came in, and made the smoke signals useless, but the name stuck, and the mountain stood by its lonesome, like an outcast before the other line of tall stone crags, good for hikers, hunters, and not much else. It had been made into a public park in the 1970’s during the environmental push, but the Wickenshire House escaped absorption into government ownership by remaining the one private homestead left on its cold slopes.
+
+Every bump in the gravel road that wound its way up the mountain side brought back memories, dark flashes of countless days and night searching for signs, for hope, for anything to let me know I was close to the truth. So many hours spent combing the forest, pouring over topographically maps, even a few helicopter rides to scout for unseen trails from above. Seemingly endless calls from concerned locals, the numerous emotion-heavy pleas from the families of the missing, the accusations from pot-stirring journalists that wanted to find something juicy for a story that could go viral on social media. They were all disappointed, angry, confused, even fearful when the days dragged on and I continued to discover no further clues. They vented their fury at me, the only one they could point a finger at, despite the sheriff doing his best to vent the backlash away from our department. How could they know how many times I walked the grounds of the estate, paced through the silent halls and corridors, and gazed out the lifeless windows into the wilderness beyond? How could they know how many nights I went without sleep, abused gas-station alertness pills, drank gallons of the worst sort of coffee, beating myself to death over the failure to find anything? All for a dead end.
+
+All for nothing.
+
+And somehow, it was all *my fault.*
+
+At last, as we pulled up the narrow driveway, the thick rows of evergreen trees fell away, and a spindly shadow or rusted cast iron reared upward into the fading sunshine. The gate was more rusty than last time I’d laid eyes on it, as if whatever oil or paint on it had given up the fight long ago. Around it, the long stone walls of the courtyard stood cracked along the mortar joints, settled with a kind of age that radiated a weary grief I felt in my bones. It was like seeing an old friend slowly choke to death on cancerous lungs, a place that I remembered fondly from better times, when I myself was nothing more than a boy.
+
+“Still burned out.” Clyde spat tobacco juice into a plastic Coke bottle and shook his head in amazed dread at the landscape around us. “Not a single blade of grass, even with all the rain we’ve had. Scorch must’ve gone deep.”
+
+The fire had happened on the night of the first disappearances, burning the entire 100-acre plot of the Wickenshire Estate from the property line inward, right up to the stone wall. There, inexplicably, the flames had stopped, not so much as tarring the stonework, leaving the enormous house and its manicured gardens intact. A strange anomaly of fate, it left a small oasis of greenery in a large field of barren rocks, dead soil, and crumbled remnants of what had once been plant life. Above this towered the house itself, an edifice of a bygone era, once a thing of immaculate beauty, and now . . . now I felt sick at the mere sight of it.
+
+Unlocking the thick steel padlock we’d left to keep random people from accessing the property, I drove us through the gate, right up to the front of the house itself. It was a tall building, two stories high but it seemed much higher, built from local quarry stones over a hundred years ago. Victorian in its design, there was not another house like it in all of Idaho, a strange misfit of architecture among the timber-framed rustic ranch houses and log cabin-themed ski lodges that dotted the land. Wooden shutters lined every window, the sills carved from smooth granite, and the roof bore uniform rows of slate that would likely outlive me. A wide wooden porch covered the front half of the house, the pillars shaped like those of the Greek Pantheon, and beneath the eves of its awning stood the double French doors that had devoured Erin and Cindy whole.
+
+I didn’t have to tell Clyde on what to bring for the trek up the mountainside. He was as experienced as I was and kept up with me as we shouldered our packs, making our way through the ornamental gardens within the courtyard walls to the back gate that led to the burned expanse beyond. Once we traversed this, we finally passed into the forested sections of the mountain slope that hadn’t been touched by the fire.
+
+It was a quiet, morose place. Many people often didn’t understand how silent the mountains could be, especially if they came from a place filled with noise like the city. Tourists would ask us if hunters ‘killed all the animals up there’ or if ‘there wasn’t enough oxygen’ which I found amusing, given the evident lack of awareness in their statement. The truth, as always, was that there *were* animals in the mountains, they just had to be pickier than their lowland cousins, more cautious of how much energy they expended, and often moved down into the lowlands throughout the seasons. Hunters didn’t kill them all, there certainly wasn’t an oxygen problem for so insignificant of a peak, and it was often the case that the noisy, clumsy, inexperienced urbanites had been right next to a bird or critter that they never saw simply because that animal didn’t *want* to be seen.
+
+However, this part of the mountain had changed since the vanishings, and even as a local, I noticed the heavy, oppressive silence. No birds sang, not in the distance or around us, and I couldn’t see any movement flitting through the branches overhead. No signs of recent deer or other tracks dotted the sparse portions of earth, and even the stones that clattered under our boots echoed too loudly in the quiet. At one point, we did spot a single, black crow rustling about in a stand of blackberry bushes, and Clyde called out to it with a friendly ‘hello there’, only for the thing bolt off into the treetops as if we’d startled it. Wind whistled and wailed the higher we climbed, mournful and chilly despite the season, the daylight slanting lower in the sky as the evening wore on.
+
+We spent hours looking through the boulder field, a massive plain of rocks and rubble left behind by ancient glaciers. Clyde scanned the area with a set of binoculars, I checked every gap between the stones with my flashlight, and we marked our progress with chalk on the boulders as we inched over the slope yard by yard. We used a metal detector to look for old shoe islets, belt buckles, anything that might indicate where a body could be. I sent up a drone the department had been given during the first search operation in December to scan the area from the sky, circling round and round in hopes of spotting something from a different angle. We combed that placed front and back, until the light got low enough that I couldn’t put it off anymore.
+
+“Let’s go.” I zipped up my backpack and shined my flashlight toward Clyde, who stood not far off down the slope, prodding at another crevice. “We’re out of light, and we still need to search the house. Sheriff’s going to get antsy if we don’t report in soon anyway.”
+
+Clyde turned to respond, but his face hardened into an alarmed frown as he starred past me into the trees, and he slid one hand toward his service pistol. “Junger . . .”
+
+I spun around to spot a strange object hanging amongst the branches of a nearby spruce, swaying to and fro in the cool evening breeze. Even from this far away, I knew we hadn’t missed it on our first walk through, the object dangling right over the path we’d taken into the boulder field, dull and pale in the gleam of our flashlights. It hadn’t been there five minutes ago, I was sure of it.
+
+Together Clyde and I stalked forward, closer and closer until we stood mere feet away from the thing in the tree, stunned into mutual silence.
+
+The thing was held suspended by an odd form of hand-made twine, which looked to be twisted together from roots, vines, or even thorn bushes, until each strand was as thick as my pinky finger. Each strand interconnected with another in a crude net, almost like a spider’s web, the knots tight and strong. These supported a basket of sorts, made from what at first glance looked like branches, circular in shape, with white and yellowed patches showing in the flashlight beam.
+
+Bones.
+
+Dozens of them.
+
+Four broken sections of elk antler were circled together as if an embrace, stripped of any flesh or meat at the base, dried out from endless days in the Western sun. More smaller bones were interwoven with mats of reeds and thorny stems, the gaps pasted shut with a thick, black sludge decorated with a carpet of ebony petals. I’d seen markers like this in searches before, had seen them appearing more and more in the landscape around the house, and knew why the sheriff did his best not to mention them in his reports. They were all like this, odd, eerie things that appeared from nowhere, but they were all on the ground and, save for five pillars built around the house itself, were no bigger than knee-high. We still didn’t know what they meant, or who left them, but we knew it had started around the first vanishing. This one was hanging as if left for us as a gift, and the smell that emanated from it nearly knocked the air out of me, a pungent mixture of wet dirt, wood rot, decayed flesh . . . and roses.
+
+*Always roses.*
+
+Even then, it was what lay in the middle of the macabre basket that drew me forward, until my hand reached out almost without my beckoning to scoop the tiny item from its place.
+
+With a cracked glass screen and sun-faded purple case, the cellphone looked as though it had lain on the mountain for months, but no sooner was it in my hands and the tormented display lit up.
+
+As soon as my eyes registered the face on the lock screen, I swore under my breath, Clyde doing the same, and rivers of ice flooded my veins.
+
+Cindy Fadro stared back from the phone, smiling in the stillness of the background picture, with pretty features, blonde hair, and sky-blue eyes. We’d never found her phone the night she disappeared, only her friend Erin’s. After so long without a charge, exposed to the elements including Idaho’s vicious winter snows, it shouldn’t have been working. The only way this device could still be functional was if someone had kept it.
+
+Or taken it.
+
+*Bzzzz.*
+
+The phone vibrated in my hand once, and an icon slid up before my eyes.
+
+*New message available.*
+
+Heart pounding, I dared to tap the screen, and found no entry code blocking me, the device opening up for us to access Cindy’s message files without complaint. They were old, most of them several months old, missed calls and texts from dozens of people who wanted her to be alive, to be okay, to come home.
+
+According to the phone, she’d never viewed any of them.
+
+One new message glowed at the top of the roster, and as I clicked on it, I tasted metal on the back of my tongue, my ears ringing with a shudder of unease. It was a picture, grainy and blurred by motion as if whoever had taken it was moving while doing so, but the subject was clear enough to make out.
+
+It was us, Clyde and myself, walking through the woods on our way to the boulder field. Our backs were to the camera, leaves from a blackberry bush half-obscuring the unknown watcher, and under the picture, a single line of text appeared while my friend and I blinked at one another in horrified realization.
+
+*Hello there.*
