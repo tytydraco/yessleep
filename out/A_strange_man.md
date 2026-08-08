@@ -1,0 +1,65 @@
+This is something that happened to me when I was in high school, on my way home after studying. It was about three or four years ago.
+
+At the time, I used to study at a private study room, but it was a bit far from the apartment where I lived. I usually walked home along a nearby walking trail. It took about 20 minutes to get from my apartment to the study room. Whenever I was exhausted after studying, walking along that trail somehow helped me clear my head and feel more at ease.
+
+That night was no different. I finished studying around 11 PM and started walking home along the trail. There were still a few other people out walking. For context, the trail was divided into two paths: one for bicycles and one for pedestrians. I was walking along the pedestrian path when I noticed a man standing up ahead.
+
+But something about him didn't feel human.
+
+He was just standing there, seemingly staring directly at me.
+
+I remember exactly what he was wearing. He was a man wearing glasses, a necktie, and black pants, but no suit jacket. Even though I was some distance away, I could clearly see him with the naked eye.
+
+Then, all of a sudden, he smiled at me.
+
+After that, he turned around and started moving away. But he wasn't exactly walking, and he wasn't running either. His movements were somewhere in between—an awkward, strange kind of walk.
+
+I just assumed he was some weird guy and continued on my way.
+
+But then I realized something.
+
+**He was walking along the exact same route I was taking home, staying just ahead of me.**
+
+Every now and then, it even seemed like he was checking to see if I was still following him.
+
+That's when I started getting chills.
+
+Who was this guy? How did he know exactly which way I was going?
+
+No matter how much I thought about it, he wasn't someone I knew from my apartment. I had never seen him before in my life.
+
+But the scariest part happened when I was almost home.
+
+There was a streetlight right outside my apartment complex. Since it was a residential complex, there were streetlights all around the entrance.
+
+And he was standing right underneath one of them.
+
+It was almost as if he had known I would come down that exact path.
+
+He was just standing there, staring at me.
+
+Then he smiled again.
+
+But this time, instead of going in the direction of my apartment, he turned around and walked in the completely opposite direction.
+
+Honestly, I was scared, but at the same time, I was curious.
+
+For a moment, I actually wanted to follow him and see where he was going.
+
+But I was exhausted, so I just went inside my apartment.
+
+Before this happened, I never really believed in ghosts.
+
+Most of the ghost stories people tell in Korea usually involve some woman with long, straight black hair. (I'm Korean, by the way.)
+
+But the person I saw that night didn't look quite human.
+
+Even now, I remember him vividly.
+
+He was thin. He was a man. He looked like an office worker. And he didn't look particularly young, either.
+
+If anyone wants, I can even draw what he looked like.
+
+Anyway, that's the end of my story.
+
+If you have any questions, feel free to ask.
