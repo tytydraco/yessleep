@@ -1,0 +1,1369 @@
+Name’s Sofia. I guess that’s good to know just in case…
+
+I almost didn’t stop at the estate sale. I mean it was a Friday after all.
+
+It was one of those hand painted cardboard signs stuck at the edge of a two-lane road that I couldn’t stop thinking about.
+
+**ESTATE SALE**  
+**FRI-SAT**  
+**EVERYTHING MUST GO**
+
+I had already passed it by half a mile before deciding to turn around.
+
+At the time, I had gotten into the habit of stopping at garage sales and estate sales on weekends because it made me feel productive without actually requiring me to be productive. I told myself I was looking for vintage furniture or old books, but mostly I just liked rummaging through other people’s abandoned stuff.
+
+There’s something weirdly personal about estate sales.
+
+Garage sales feel casual. People are getting rid of excess. Freeing up their crowded homes just to fill it up again.
+
+Estate sales feel like intrusion.
+
+You’re walking through someone’s life after they no longer have any say in what happens to it.
+
+Their coats are still in the closet. Their coffee mugs are still in the kitchen cabinet. Their framed and dusty family photos are still hanging on the wall while strangers haggle over the gold lamp beside them.
+
+The sale was being held at a two-story house about 20 minutes outside of town.
+
+The place looked older than the surrounding homes, with a huge front porch and white paint peeling from the railings. There were lots of cars parked along the grass, but most of the crowd seemed to be inside already.
+
+A woman at the front door handed me a number sticker and said, “Half off everything upstairs.”
+
+That should have been my first clue.
+
+I know that sounds dramatic, but believe me, I’ve thought about that day so many times that every tiny detail feels important now.
+
+The inside of the house smelled like cedar and dust.
+
+The first floor had the usual estate sale things. Dishes. Crystal bowls. Quilts. A dining table with one leg wrapped in blue tape hanging on for dear life. An old man was holding up a brass lamp and asking whether anyone knew if it worked.
+
+I wandered without any plan.
+
+The dead person who used to live there was apparently named Eleanor Hart. I learned that from the labels on several photo albums stacked in the living room.
+
+There were pictures of a little blond girl at the beach, a young woman standing beside a dark haired man in a military uniform, and then later, the same woman much older, standing alone in gardens and beside Christmas trees and in front of famous landmarks.
+
+No kids in the later pictures. No husband. Just Eleanor.
+
+There was something sad about how consistent she looked. In every photo I saw, no matter how old she got, she wore the same small smile, like she had learned long ago exactly how much of herself to reveal.
+
+I traveled upstairs because of the half off sign.
+
+The second floor was mostly bedrooms. Most of the furniture had already been marked SOLD, leaving behind the smaller things people hadn’t claimed yet.
+
+There were costume jewelry boxes, old purses, scarves, sewing supplies and a shelf full of toys in one of the rear bedrooms.
+
+That room had clearly belonged to a child once. The wallpaper had tiny yellow ducks on it, faded nearly white with age. There was a twin bed with a brass headboard and a rocking horse in the corner with one glass eye missing.
+
+A lot of the toys were newer than I expected, like people had added things over the years, but most of them were old enough to feel unsettling.
+
+Tin tea sets. A porcelain doll with one shoe that was missing. A jack-in-the-box with no crank handle.
+
+And, on the top shelf of a bookcase, a red View-Master.
+
+If you’re younger, you might not know what that is.
+
+It’s a toy viewer shaped kinda like binoculars. You insert a circular reel with little color transparencies, click the lever, and it shows you 3D images one at a time.
+
+I had one as a kid.
+
+Mine had dinosaurs and Disney characters.
+
+The one on the shelf looked old, maybe from the 70’s or 80’s. Red and plastic, scuffed but intact, with a little stack of reels rubber-banded next to it.
+
+There was a masking tape price tag stuck on the side.
+
+**$4**
+
+I picked it up mostly because it made me feel nostalgic. Plus it was half off.
+
+The reels were in a worn paper sleeve with handwritten labels.
+
+**NIAGARA FALLS**  
+**DISNEYLAND**  
+**GRAND CANYON**  
+**CHRISTMAS 1987**  
+**HOUSE**
+
+That last one caught my attention.
+
+Who would make a custom View-Master reel of “HOUSE”?
+
+I held the sleeve up to the light. The reel labeled HOUSE looked darker than the others, almost brown around the edges.
+
+An older woman sorting through jewelry at the dresser glanced over at me.
+
+“Those were Eleanor’s favorites,” she said.
+
+I looked up.
+
+“The View-Master?”
+
+“Yep, sure was. She used to show them to people.”
+
+“Did she make the picture reels herself?”
+
+The woman shrugged.
+
+“I don’t know about all that. I just know she loved that toy. Funny thing for a grown woman to keep around, but she was always carrying it with her. Said it helped her remember.”
+
+“Remember what?”
+
+The woman gave me a strange look. “Things people forget.”
+
+Then she went back to digging through a tray of trinkets as if she hadn’t said anything unusual.
+
+I bought the View-Master.
+
+The woman running the register put it in a paper bag with two paperback novels and a set of coasters I didn’t need. I almost told her to leave the toy out so it wouldn’t get scratched, but that seemed ridiculous considering it was already 50 years old.
+
+I drove home and set the bag on my kitchen counter.
+
+Then I forgot about it for 2 days.
+
+That part bothers me now too.
+
+It was such a weird little find, and I genuinely meant to look at it that same afternoon, but life got in the way. I worked late and then I met a friend for drinks. I spent Sunday cleaning my apartment and doom scrolling on my phone.
+
+It wasn’t until Monday night, around 11pm, that I finally dumped the bag out onto my coffee table and picked up the View-Master.
+
+I lived alone then in a rental house at the edge of town. Not a huge place to brag about. 2 bedrooms, 1 bathroom, a small den, old hardwood floors that creaked in specific spots that you learn to avoid. I had lived there for about 8 months.
+
+The house had a narrow hallway and bad lighting, which is important only because when you live alone, you become very familiar with the exact personality of your home.
+
+You know which floorboards pop. You know how the refrigerator sounds before the compressor kicks on. You know what shape the moonlight makes on the wall above the couch.
+
+Any change stands out.
+
+That night, nothing felt wrong.
+
+Not yet at least.
+
+I sat on the couch, turned on my side table lamp, and started with the obvious reels.
+
+Niagara Falls was exactly that.
+
+Tourist shots. Water. Boats. Families taking the obligatory waterfall photo.
+
+Disneyland was next and showed a parade, a castle, and some rides. It looked old, maybe around the 70’s.
+
+Grand Canyon was the Grand Canyon.
+
+Christmas 1987 was the first reel that began to feel personal. It showed a living room with a tree, wrapped gifts, a little girl in a onesie sitting cross legged on the floor, and an older woman who I assumed was Eleanor.
+
+In one of the images, the little girl was looking directly at the camera.
+
+She wasn’t smiling.
+
+I remember that because it unsettled me in a way I couldn’t explain.
+
+Kids in old photographs can look creepy for no real reason. It happens.
+
+Still, when I clicked past that image, I realized I had been holding my breath.
+
+Then I inserted the reel labeled HOUSE.
+
+The first image showed the front porch of a house.
+
+White railings.
+
+Peeling paint.
+
+The same house as the estate sale.
+
+**CLICK.**
+
+The living room. A hallway. A staircase. The kitchen.
+
+The same rooms I had walked through 2 days earlier.
+
+I assumed Eleanor must have made a custom reel of her home.
+
+Weird, but not impossible.
+
+CLICK.
+
+The next image showed a bedroom.
+
+Not the child’s room with the ducky wallpaper.
+
+A different bedroom.
+
+Plain walls. Dark blue comforter. A standing lamp in the corner. A wooden dresser with a chipped top.
+
+The room looked … familiar.
+
+I pulled the viewer away from my face, looked up at the ceiling and thought about it.
+
+Then I stood up and went to my bedroom.
+
+Same lamp. Same dresser.
+
+Same chipped corner on top where I had dropped a framed photo while unpacking months before.
+
+I actually laughed out loud.
+
+Not because it was funny, but because my brain immediately rejected what I was seeing.
+
+I told myself I was being dumb.
+
+Lots of bedrooms look alike. Standing lamps and dressers are hardly unique. Maybe I had seen what I expected to see.
+
+I went back to the couch and looked again.
+
+It was my bedroom.
+
+Not just similar.
+
+Mine.
+
+There was my dark blue comforter.
+
+My jacket hanging on the closet doorknob.
+
+My phone charger dangling off the nightstand.
+
+The photo couldn’t have been old, either, because that blue comforter was something I bought from Target after I moved into this rental.
+
+**CLICK.**
+
+My kitchen. My exact kitchen.
+
+The Basset Hound towel beside the stove. The little chip in the tile backsplash behind the sink. The grocery list stuck to the fridge with a magnet from Branson.
+
+I slowly lowered the View-Master.
+
+The room around me suddenly felt different.
+
+Too quiet.
+
+I told myself there had to be some type of justification.
+
+Someone had switched reels.
+
+That was possible.
+
+Maybe Eleanor’s family had tossed other reels into the paper sleeve. Maybe some previous owner had made custom ones. Maybe it was some prank I wasn’t understanding.
+
+I picked the reel up and looked at it closely.
+
+No printed manufacturer label. No branding.
+
+Just the word HOUSE written in shaky blue pen.
+
+I put it back in the viewer.
+
+**CLICK.**
+
+The next image showed my hallway.
+
+The one leading to the bedrooms.
+
+**CLICK.**
+
+The image after that showed the hallway from farther down, as if whoever took the photo had moved closer to my bedroom.
+
+**CLICK.**
+
+Then closer.
+
+**CLICK.**
+
+Then closer.
+
+**CLICK.**
+
+The last image was nearly black.
+
+At first I thought it was blank.
+
+Then my eyes began to adjust.
+
+It was the hallway again, but now the camera was positioned right outside my bedroom door.
+
+The door was open just a crack.
+
+Inside, I could see myself sleeping.
+
+The photo showed the foot of my bed and one of my bare feet sticking out from the blanket.
+
+I threw the View-Master so hard it hit the wall and fell behind the TV stand.
+
+For a few seconds, I just stood there, heart pounding so hard it hurt.
+
+I looked down the hallway.
+
+Both bedroom doors were open.
+
+The house was silent.
+
+I grabbed the fireplace poker I kept beside the hearth, even though I had never once used the fireplace, and checked every room.
+
+Bedroom.
+
+Closet.
+
+Guest room.
+
+Bathroom.
+
+Kitchen.
+
+Laundry room.
+
+Nothing.
+
+All the doors were locked. The windows were shut.
+
+No one was inside.
+
+I pulled the TV stand away from the wall and retrieved the toy. My hands were shaking.
+
+The reel was still inside.
+
+I wanted to smash it.
+
+Instead, I called my friend Jordan.
+
+She answered on the fourth ring, sleepy and annoyed.
+
+“What is it.”
+
+“I need you to come over.”
+
+“What happened?”
+
+I almost said, I think someone took pictures of me while I was sleeping and put them in a vintage toy.
+
+But instead I said, “I found something weird.”
+
+“Are you drunk?”
+
+“No.”
+
+“That somehow makes this more concerning.”
+
+She came over because she is a good friend and well, even half asleep, she could tell something in my voice wasn’t quite right.
+
+I didn’t tell her everything before she arrived because I was embarrassed by how insane it sounded.
+
+When she got there, I handed her the View-Master and let her look for herself.
+
+She went through the HOUSE reel once without speaking.
+
+Then she lowered the viewer.
+
+“Okay.”
+
+“Okay what?”
+
+“This is definitely your house.”
+
+“Thank you.”
+
+“But how would….”
+
+“I don’t know.”
+
+She turned the reel in her fingers.
+
+“These pictures aren’t old.”
+
+“I know.”
+
+“Did you check for cameras?”
+
+“In a plastic toy from the 70’s?”
+
+“No, in your house.”
+
+I hadn’t. Not really.
+
+We searched for hidden cameras until almost 2am.
+
+Smoke detector. Bookshelves. Vents. Bathroom. Bedrooms. Power outlets.
+
+Nothing.
+
+Jordan suggested someone might have broken in while I was at work and taken the photos recently, then somehow transferred them onto the reel.
+
+That sounded impossible, but I guess it was less impossible than the alternatives.
+
+She asked if I wanted to call the police.
+
+“No.”
+
+What was I supposed to say?
+
+Hi, I bought a toy at an estate sale and it contained impossible photos of my house?
+
+They’d think I was wasting their time.
+
+Jordan ended up staying the night.
+
+Neither of us slept much.
+
+At some point around 4am, while we were both lying awake in the living room with all the lights on, she asked, “Who was Eleanor Hart?”
+
+“I don’t know.”
+
+“You should find out.”
+
+The next day I took the reel to work.
+
+Not because I thought anyone there could explain it, but because I didn’t want it left alone in my house.
+
+I worked in the billing department for a dental practice. My desk sat directly across from a woman named Susan who was old enough to remember View-Masters being popular the first time around.
+
+I didn’t tell her the whole story. I just said I found an old toy and thought one reel looked odd.
+
+She looked through it during lunch.
+
+“This is your house?”
+
+“Yes.”
+
+Susan clicked back through the images again, slower this time.
+
+“These aren’t all from the same time.”
+
+“What do you mean?”
+
+She pointed to one of the kitchen images.
+
+“The bowl of fruit is full here.”
+
+Then another.
+
+“It’s gone here.”
+
+A different one.
+
+“This dish towel is hanging on the oven in this one, but not the next.”
+
+I took the viewer from her and looked again.
+
+She was right.
+
+At first glance, the photos seemed to form a sequence of someone walking through my house.
+
+But small things changed from image to image in ways that didn’t fit a single visit.
+
+A coffee mug appeared on the counter, then vanished.
+
+A coat hung from a hook in one frame but not in the next.
+
+In the bedroom, the pillow on my side of the bed changed position.
+
+The images weren’t from a single night.
+
+They were from multiple times.
+
+Someone had been inside my house more than once.
+
+I went home early and drove straight to the county records office instead of my house.
+
+I don’t know exactly what I was looking for. Mostly I wanted information on Eleanor Hart.
+
+The woman at the desk helped me search property records. Eleanor had owned the estate sale house for 42 years. She died at 81. No children listed. No spouse on the latest deed.
+
+I asked whether there were archived records or older documents.
+
+There were.
+
+That’s how I learned that before Eleanor owned the estate sale house, she had owned my rental house.
+
+The house I lived in had been hers first.
+
+Not the estate sale house.
+
+Mine.
+
+She had bought it in 1974 and lived there until 1998.
+
+Then she sold it and moved to the larger house where the estate sale was held.
+
+I felt physically cold when I read that.
+
+I asked whether there were any records of fires, break-ins, deaths, anything at the address.
+
+The clerk said I’d have to submit a formal request for some of that, but she did mention one thing casually while scrolling.
+
+“There was a missing persons report attached to the property in 1987.”
+
+My mouth went dry.
+
+“Who went missing?”
+
+She looked closer at the screen.
+
+“A juvenile. Female. Last name Hart.”
+
+The little girl from the Christmas reel.
+
+I asked whether her first name was listed.
+
+Lucy.
+
+I went home after that and sat in my car in the driveway for almost 10 minutes before going inside.
+
+Nothing looked disturbed.
+
+The front door was still locked.
+
+The house looked normal.
+
+But once you start thinking of a place as a scene rather than a home, it changes completely.
+
+You stop seeing your couch and see lines of sight through windows.
+
+You stop seeing the hallway and start seeing the places someone could stand just out of view.
+
+I didn’t want to be in the house alone, but I also didn’t want to leave.
+
+That sounds contradictory, but if you’ve ever been really scared, you know exactly what I mean.
+
+I ended up calling my landlord under the pretense of asking about the property’s history.
+
+He was a practical guy named Warren who cared mostly about rent arriving on time and me not calling him about minor issues.
+
+When I asked whether anything bad had ever happened in the house, he sighed and said, “You found out about the girl didn’t you?”
+
+I could tell he knew.
+
+“So she disappeared there?”
+
+“That was the story.”
+
+“What do you mean, the story?”
+
+“She vanished. Police thought she ran away. Then they thought maybe the mother did something.”
+
+“The mother being Eleanor?”
+
+“Yeah.”
+
+“Was there evidence?”
+
+“Not enough.”
+
+That phrase stayed with me. Not enough evidence means there was something. Just not enough.
+
+I asked whether anything else strange had happened in the house over the years.
+
+Warren went quiet.
+
+Then he said, “The last tenant moved out after 3 months.”
+
+“Why?”
+
+“She said someone was getting in.”
+
+“Was someone getting in?”
+
+“She changed the locks twice and started sleeping at her sister’s place.”
+
+“What happened to the old locks?”
+
+He didn’t answer right away.
+
+“They were still locked when she left.”
+
+That night I caved and finally called the police.
+
+I didn’t mention the View-Master at first. I only said I had reason to believe someone may have entered my house multiple times.
+
+An officer came out and did a walkthrough.
+
+He was polite, but I could tell he thought I was being overly nervous rather than in any danger. When I eventually showed him the reel, he stared at it for a long time and then asked whether anyone else had access to the house.
+
+My landlord had a key.
+
+A former tenant maybe.
+
+Me. That was it.
+
+He suggested I change the locks and install a camera.
+
+I asked whether he thought the photos were real.
+
+He said, “They’re something.”
+
+Not helpful.
+
+That night I didn’t stay in the house.
+
+I went to Jordan’s.
+
+The next morning, I returned with her and a locksmith. He changed both exterior locks, and I bought 2 indoor cameras from a local hardware store.
+
+I placed one of the cameras facing the front door and one facing the hallway.
+
+For 2 days, nothing happened.
+
+I almost began to feel stupid. And relieved.
+
+Then on the 3^(rd) night, I got a motion alert on my phone at 2:13 a.m.
+
+The hallway camera had recorded something.
+
+I opened the clip while still half asleep.
+
+At first, the hallway was empty.
+
+Then the camera glitched.
+
+The image shivered sideways for about a second.
+
+When it stabilized, someone was standing at the end of the hall.
+
+Not entering it.
+
+Already there.
+
+A little girl.
+
+She wore a onesie.
+
+Her hair hung over part of her face.
+
+She was standing directly in front of my bedroom door, perfectly still.
+
+The video lasted 14 seconds.
+
+She never moved.
+
+Then the image glitched again, and she was gone.
+
+I watched it at least 30 times before calling Jordan.
+
+She said I needed to call the police immediately.
+
+I did.
+
+This time they took it more seriously because there was video, but when the responding officer reviewed the footage from the camera itself, the clip was corrupted.
+
+The only thing visible was static and a timestamp.
+
+I showed him the version on my phone.
+
+He said if the app had cached the image before the corruption, that could maybe explain the difference.
+
+Maybe.
+
+I asked whether he thought it was a real child.
+
+He asked whether any children had access to the house.
+
+I almost laughed in his face.
+
+That same morning, I looked through the other reels again.
+
+Niagara Falls.
+
+Disneyland.
+
+Grand Canyon.
+
+Christmas 1987.
+
+Then HOUSE.
+
+Only now the HOUSE reel was different.
+
+There were still images of my kitchen, bedroom and hallway.
+
+But there was one I knew for a fact hadn’t been there before.
+
+It showed my living room at night.
+
+Jordan and I were asleep on the couch under separate blankets.
+
+The photo had been taken from the doorway of the hallway camera’s field of view.
+
+In the image, someone was standing over us.
+
+At first I thought it was just a dark blur, something wrong with the picture.
+
+Then I clicked back and forward again and saw the outline clearly.
+
+A woman in a nightgown.
+
+Thin with grey hair.
+
+One hand hanging at her side.
+
+The other resting on the top of the couch above Jordan’s head.
+
+I called the estate sale company not really knowing what I expected.
+
+Maybe I thought they would tell me the toy had belonged to someone else. Maybe I wanted confirmation that Eleanor had been obsessed with the house after moving out.
+
+The woman who answered remembered the sale.
+
+When I asked about Eleanor Hart and the View-Master, she sighed.
+
+“Oh, that thing.”
+
+“You know it?”
+
+“It was always around.”
+
+“Did Eleanor make the reels?”
+
+“I couldn’t tell you that.”
+
+“Did she ever say anything about them?”
+
+Another pause.
+
+“She said people looked best when they didn’t know they were being remembered.”
+
+That sentence made me feel sick in a way I still can’t explain.
+
+Not watched.
+
+Remembered.
+
+I drove straight to the public library and searched old newspapers on microfilm.
+
+It took me almost 3 hours, but I finally found an article about Lucy Hart.
+
+8 years old.
+
+Missing from her home in October of 1987.
+
+Last seen by her mother at approximately 9:30 p.m.
+
+Police found no sign of forced entry. Eleanor claimed she had fallen asleep in the living room and woke to find Lucy gone from her bed.
+
+Neighbors reported seeing Eleanor searching around the yard barefoot close to midnight.
+
+There was another article 2 months later.
+
+No leads.
+
+Then another years after Eleanor moved houses.
+
+A local interest piece about preserving memories. Eleanor was interviewed because of her “unusual collection of personalized image reels and stereoscopic viewers.”
+
+There was a photograph.
+
+Eleanor, older now, smiling that small, careful smile, holding the same red View-Master.
+
+The caption mentioned that she had spent years “documenting domestic life in private detail.”
+
+That phrase made my skin crawl.
+
+I printed the article.
+
+Then I saw something else.
+
+In the background of the library copy, partially cut off by the edge of the frame, there was a shelf.
+
+On the shelf sat several paper sleeves for reels.
+
+I could only make out one handwritten label.
+
+**LUCY — BEDROOM**
+
+I moved out of the house 2 days later.
+
+Not permanently at first. Just enough to get away.
+
+I packed clothes, important documents and the View-Master, because by then I was convinced leaving it behind would be a mistake.
+
+I stayed in a motel.
+
+The first night there, I couldn’t help myself.
+
+I looked through the HOUSE reel again.
+
+The kitchen.
+
+**CLICK.**
+
+The hallway.
+
+**CLICK.**
+
+My bedroom.
+
+**CLICK.**
+
+The living room with Jordan asleep.
+
+Then a new image.
+
+**CLICK.**
+
+The motel room.
+
+Me sitting on the bed with the View-Master in my hands.
+
+The photo had been taken from inside the bathroom.
+
+I dropped the reel and almost vomited. How can this be? I picked it back up slowly.
+
+**CLICK.**
+
+The next image showed the same motel room from closer.
+
+**CLICK.**
+
+The one after that showed the bed empty.
+
+**CLICK.**
+
+The one after that showed the bathroom door open.
+
+Darkness inside.
+
+I didn’t stay long enough to see the last image.
+
+I took the toy outside and smashed it against the parking lot until the viewer cracked into pieces.
+
+Then I tore the reel apart with my hands.
+
+The cardboard ring split, but the little transparencies inside didn’t scatter the way I expected.
+
+They clung together in a strip.
+
+I held one up beneath the parking lot lights.
+
+It showed me.
+
+Not the motel me.
+
+A much younger me.
+
+Maybe 6 or 7 years old.
+
+I was standing in a house I didn’t recognize, wearing a striped shirt I had never seen before.
+
+Across the room, half hidden behind a doorway, was Eleanor.
+
+I called my mother right there in the parking lot.
+
+It was almost midnight.
+
+She answered in a panic because she thought someone must have died.
+
+I asked whether, when I was a child, we had ever known a woman named Eleanor Hart.
+
+Silence.
+
+Then she asked why.
+
+I said I just needed to know.
+
+My mother told me that when I was 6, I had disappeared for nearly 2 hours in a department store.
+
+Security found me in a stockroom at the back of the store with an older woman.
+
+The woman claimed she was helping me find my mother.
+
+By the time employees realized she wasn’t related to me, she had already slipped away.
+
+My mother gave police a description, but nothing came of it.
+
+“What did she look like?” I asked.
+
+My mother described Eleanor exactly.
+
+Greyish brown hair.
+
+Thin face.
+
+Small smile.
+
+I asked whether there had been anything else.
+
+She said yes.
+
+For about a year after that, I had nightmares about “the picture lady.”
+
+I would wake screaming that she was standing in the hallway making me stay still.
+
+That phrase hit me so hard I had to sit down on the curb.
+
+Making me stay still.
+
+My mother told me I eventually stopped talking about it.
+
+Children forget.
+
+That’s what she said.
+
+Children forget.
+
+I didn’t.
+
+Not really.
+
+I just buried it so deeply that when I saw the images in the View-Master, some part of me recognized them before I consciously understood why.
+
+I turned the remaining strip of transparencies over in my hand.
+
+There were more than I had realized.
+
+Some showed me as a child.
+
+Some showed Lucy, the girl from the Christmas reel.
+
+Some showed rooms.
+
+Beds.
+
+Hallways.
+
+People sleeping.
+
+People not sleeping but pretending to.
+
+I fed one of the unbroken transparencies into the cracked viewer just enough to see it.
+
+It showed my motel room again.
+
+Only this time I wasn’t alone.
+
+I was kneeling on the floor by the bed, facing the camera.
+
+My expression was blank.
+
+Behind me stood a little girl in pale pajamas.
+
+Lucy.
+
+She had one hand on my shoulder.
+
+And beside her, slightly out of focus, was Eleanor.
+
+She was smiling.
+
+Not the small smile from the family photographs.
+
+Something wider.
+
+Something triumphant.
+
+I threw the strip into the motel ice machine and slammed the lid until the plastic bent and snapped.
+
+Then I drove to a 24 hour gas station and sat under the lights until the sun popped up.
+
+I thought destroying it would end things.
+
+It didn’t.
+
+A week later, after I signed a lease for a new apartment across town, I found a circular cardboard reel on my new kitchen counter.
+
+No viewer.
+
+Just the reel. Handwritten label.
+
+**NEW HOUSE**
+
+I didn’t touch it.
+
+I used barbecue tongs to slide it into a metal coffee can and took it straight to the police.
+
+They bagged it as evidence, mostly because by then I had filed enough reports that I think they were trying to humor me while also checking whether I might be having a mental breakdown.
+
+The detective assigned to my case was kind, which somehow made it worse.
+
+A few days later, he called and said the item I turned in had been “misplaced during processing.”
+
+Misplaced. A sealed evidence bag from an active complaint.
+
+I asked if he was serious.
+
+He said yes.
+
+Then he asked if I had submitted any other materials.
+
+When I asked what he meant, he said, “The photographs of yourself sleeping.”
+
+I hadn’t submitted any photographs.
+
+Only the reel.
+
+I told him that.
+
+He went quiet.
+
+Then he said, “I’m looking at them right now.”
+
+I hung up.
+
+I changed my phone number the same week.
+
+I stopped checking my motion alerts because every other clip seemed to corrupt itself and I couldn’t handle what I might see.
+
+I stopped going to estate sales too.
+
+I haven’t been back to that side of town in over a year.
+
+As far as I know, Eleanor Hart is still dead.
+
+I checked. Several times.
+
+No one I’ve spoken to remembers much about her besides that she kept to herself, collected odd things and never got over losing her daughter.
+
+That’s the version everyone uses. Never got over losing her daughter.
+
+Like grief is a strange hobby and that it explains everything.
+
+I still think about Lucy a lot.
+
+Sometimes I wonder if the reels were just how Eleanor kept trophies.
+
+Sometimes I think they were something worse.
+
+A way of holding onto people.
+
+A way of making sure they stayed where she put them.
+
+3 nights ago, I was unpacking one of the last boxes from the move when I found something at the bottom.
+
+A paper sleeve.
+
+It was underneath a stack of winter clothes, even though I know I packed those clothes myself.
+
+The sleeve was old. Soft around the edges.
+
+The same yellowed cardboard as the reels from Eleanor’s house.
+
+There was one reel inside.
+
+No printed title.
+
+Just handwriting.
+
+**YOU LOOK BEST WHEN YOU HOLD STILL**
+
+I didn’t look at it.
+
+I actually surprised myself with how quickly I decided that.
+
+A few months earlier, curiosity would have won.
+
+I would have found another View-Master online, or held the little transparencies up to a lamp, or taken the reel apart.
+
+Anything to know.
+
+I don’t want to know anymore.
+
+I put it back into the sleeve, drove 20 minutes away and dropped it into a dumpster behind a grocery store.
+
+Not my apartment dumpster or anywhere close to where I lived.
+
+I watched it fall underneath a black garbage bag.
+
+Then I drove home.
+
+That night I woke sometime after 2am.
+
+I don’t know what woke me.
+
+My bedroom was completely dark.
+
+For a while, I just lay there listening.
+
+The refrigerator hummed in the kitchen.
+
+A car passed somewhere outside.
+
+The building settled.
+
+Normal sounds.
+
+I checked my phone.
+
+2:17am.
+
+I put it back down.
+
+Then I heard it.
+
+**CLICK.**
+
+I froze.
+
+It came from somewhere outside my bedroom.
+
+Not loud.
+
+Plastic.
+
+Mechanical.
+
+A tiny lever being pushed down and released.
+
+I knew the sound immediately.
+
+Anyone who owned a View-Master as a kid would.
+
+I stared at my open bedroom door.
+
+The hallway beyond it was black.
+
+Maybe 10 seconds passed.
+
+**CLICK.**
+
+I reached for my phone.
+
+I considered turning on the flashlight.
+
+I didn’t.
+
+Instead, I listened.
+
+Nothing.
+
+**CLICK.**
+
+This time it sounded closer.
+
+I stayed in bed until sunrise.
+
+I never heard footsteps.
+
+I never saw anyone.
+
+There were no more clicks.
+
+In the morning, I searched the apartment.
+
+Nothing was missing.
+
+Nothing had been moved.
+
+The doors were locked.
+
+The windows were locked.
+
+There was no View-Master.
+
+No reel.
+
+Nothing.
+
+For the first time in months, I actually felt relieved.
+
+I decided I had dreamed it.
+
+That reason felt good.
+
+And reasonable.
+
+I hadn’t been sleeping much. I’d spent months obsessing over Eleanor, Lucy, the photographs, the cameras, the reels.
+
+People hear things when they’re half asleep.
+
+People remember sounds that aren’t there.
+
+That’s what I told myself.
+
+Then I noticed something in the hallway.
+
+There’s a small framed picture hanging there.
+
+It’s a photograph of me and Jordan at a Halloween party about 3 years ago.
+
+We’re standing together outside a bar, both smiling at the camera.
+
+I’ve looked at that photograph hundreds of times.
+
+That morning, something seemed different about it.
+
+I took it off the wall.
+
+Jordan was there.
+
+I was there.
+
+Nothing had changed.
+
+I almost put it back.
+
+Then I noticed the reflection in the window behind us.
+
+There was someone standing across the street.
+
+An older woman.
+
+At least, I think it was a woman.
+
+The picture was too small to tell.
+
+I took a photo of it with my phone and enlarged it.
+
+The figure became blurry.
+
+I couldn’t see a face.
+
+For all I know, it was always there.
+
+A pedestrian.
+
+Someone waiting for a ride.
+
+Someone smoking outside another bar.
+
+I called Jordan.
+
+I asked if she remembered anyone watching us that night.
+
+She didn’t.
+
+Then she laughed and asked why I was being weird again.
+
+I told her it was nothing.
+
+I put the photograph back on the wall.
+
+I haven't taken it down since.
+
+That was 3 nights ago.
+
+Nothing happened the next night.
+
+Or the night after that.
+
+I started feeling ridiculous again.
+
+Maybe that’s why I’m writing this.
+
+I wanted to put everything down while I could still remember exactly how it happened.
+
+Not because I think anyone will believe me.
+
+Because to be honest, I’m not sure I believe me anymore.
+
+There are explanations for almost everything.
+
+The estate sale reel could have been some elaborate prank.
+
+The police footage could have corrupted.
+
+Eleanor could have known my family somehow.
+
+My mother could have confused the woman she remembered from when I was a child.
+
+The figure in the photograph could be anyone.
+
+And the clicking?
+
+Old apartment buildings make sounds.
+
+Plastic contracts. Pipes move. Neighbors have televisions.
+
+There are explanations.
+
+I keep reminding myself of that.
+
+There’s only one thing I haven't found an explanation for.
+
+Last night I woke up sometime after 3am.
+
+I didn’t open my eyes.
+
+I don't know why.
+
+I was awake. I know I was awake.
+
+But something about the room felt different.
+
+Not colder.
+
+Not darker.
+
+Just… occupied.
+
+I lay completely still.
+
+For maybe a minute, nothing happened.
+
+Then I heard something beside my bed.
+
+Very close.
+
+A faint plastic sound.
+
+**CLICK.**
+
+I kept my eyes closed.
+
+A few seconds later:
+
+**CLICK.**
+
+Another pause.
+
+Then one more.
+
+**CLICK.**
+
+The last one came from somewhere near my feet.
+
+I stayed exactly where I was.
+
+Eventually, I fell asleep.
+
+When I woke this morning, everything looked normal.
+
+No View-Master. No reel. No footprints.
+
+Nothing beside the bed.
+
+I checked myself in the bathroom mirror.
+
+I checked the locks.
+
+I even checked beneath the bed, which I felt dumb for doing.
+
+There was nothing there.
+
+So maybe I dreamed that too.
+
+I hope I did.
+
+But before I left for work this morning, I noticed something on my nightstand.
+
+A small circle in the dust.
+
+About three inches across.
+
+Perfectly clean.
+
+Like something round had been sitting there overnight.
+
+I haven't gone home yet.
+
+And I know there are probably a hundred completely reasonable things that could have left that mark.
+
+A glass. A coffee mug.
+
+Something I forgot moving.
+
+That’s what I keep telling myself.
+
+The only problem is that when I close my eyes and picture my bedroom last night, I can almost remember seeing something.
+
+Not clearly.
+
+Just for a second.
+
+A tiny rectangle of light reflecting beside my bed.
+
+And inside it….
+
+I don't know.
+
+Maybe nothing. Maybe I was still dreaming.
+
+I just remember lying there with my eyes closed, trying as hard as I could not to move.
+
+And hearing someone beside me slowly press the lever again.
+
+**CLICK.**
