@@ -726,7 +726,7 @@ We continued down the path, the roar of the generators drowning out the quiet, a
 
  
 
-I stared at the pristine white structure. It felt completely sterile. And yet, as I looked around, never did I feel so unnerved as then. The site was all wrong. I did not feel such horror even in 1991. I was trembling, and I hoped my gut was wrong.
+I stared at the pristine white structure. It felt completely sterile. And yet, as I looked around, never did I feel so unnerved as then. The site was all wrong. I did not feel such horror even in 1991. I was trembling, and I hoped my gut was [wrong](https://www.reddit.com/r/nosleep/s/uYGKhVV6zc).
 
  
 

@@ -18,7 +18,7 @@ I could write a whole book about my experience in jail, but what I want to talk 
 
 “Then unless anyone has anything to add, I think we can proceed with-“
 
-One of the board members on the far right raised a hand and looked at the others, waving their fingers a little for attention. Miss Wells. She was in her mid-30’s. African American with a bright smile and square glasses. They all turned to her. She was a little younger than the others and dressed in more expensive clothes.
+The board members on the far right raised a hand and looked at the others, waving her fingers a little for attention. Miss Wells. She was in her mid-30’s. African American with a bright smile and square glasses. She was a little younger than the others and dressed in more expensive clothes. I’d seen her before; I think she’d been rearing up to run for public office.
 
 “Sir, are you aware that this parole is scheduled for the next 24 months?”
 
@@ -64,7 +64,7 @@ The fuck does that even mean?
 
 I scheduled a meeting with miss Wells from the parole board. The one who’d suggested the scheme to begin with. She’d given me her number, allowing me to ask further questions about the enhancement scheme. Not only were questions allowed, they were encouraged. I could schedule a meeting with her instead of going to a parole check-in, so it was a win-win.
 
-I met miss Wells downtown on the third level of a small office building. I kind of forgot that she had an elected position, meaning she was in no uncertain terms, a politician. That made me more nervous then the stupid tech jargon. You can trust a nerd with specifications. You can’t trust someone with smiling posters of themselves plastered on the wall. She was short, reaching no taller than 5’1. I think her small stature served her; it made her less imposing. You don’t want someone scary to offer you strange tech. As I entered her office, she walked over to shake my hand.
+I met miss Wells downtown on the third level of a small office building. It was abundantly clear that she was pursuing an elected position, meaning she was in no uncertain terms, a politician. That made me more nervous then the stupid tech jargon. You can trust a nerd with specifications. You can’t trust someone with smiling posters of themselves plastered on the wall. She was short, reaching no taller than 5’1. I think her small stature served her; it made her less imposing. You don’t want someone scary to offer you strange tech. As I entered her office, she walked over to shake my hand.
 
 “Right this way,” she said. “And thank you for your consideration.”
 
