@@ -77,7 +77,7 @@ I watched her for hours. Watching that strange strut of hers as she meandered my
 
 
 
-That was when I knew I had to keep her. She sat in Grace’s favorite spot, and lapped at the water the same odd way Grace did, bobbing her head up and down, tongue flicking out like a snake. If I’d taken my glasses off, I might’ve thought it was her. And so I did, and by God she was a dead ringer for my sweet girl.
+That was when I knew I had to keep her. She had Grace's odd habit of sitting to drink, sat in Grace’s favorite spot, and even lapped at the water the same odd way Grace did, bobbing her head up and down, tongue flicking out like a snake. If I’d taken my glasses off, I might’ve thought it was her. And so I did, and by God she was a dead ringer for my sweet girl.
 
 
 
@@ -93,7 +93,7 @@ I spent the whole day with her, my eyes wet with tears, my heart glowing with a 
 
 
 
-But then I took her to the stables. That’s when things started to get strange.
+And then I took Gina to the stables. That’s when things started to get strange.
 
 
 

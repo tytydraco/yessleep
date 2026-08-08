@@ -8,7 +8,7 @@ Back then, my favorite thing about the pool was the wave mechanism. Every fiftee
 
 When it was inactive, I would swim to the deep end, submerge myself, and clink my goggles against the bars to the wave chambers. I remember a rumor that used to go around among the local kids that these chambers were prisons for naughty children if they disobeyed the “rules of the pool.” Never really understood what that meant, still not entirely sure now. Because of this, most kids kept their distance. Except for me.
 
-July 26th, 2001, was like any other day. 94°F. Sunscreen. A five-minute drive down to the pool. My older brothers went off to do their own thing, while my younger brothers stuck closely to my parents. Being completely unsupervised was just a middle child thing. I had grown used to it at that point.
+July 26th, 2011, was like any other day. 94°F. Sunscreen. A five-minute drive down to the pool. My older brothers went off to do their own thing, while my younger brothers stuck closely to my parents. Being completely unsupervised was just a middle child thing. I had grown used to it at that point.
 
 The lifeguards would go through rotations, so it was essentially roulette on how much fun you’d get to have. Today, it was Eric. He couldn’t have been older than sixteen and was the son of the senior lifeguard, Sebastian. So, yes, it was nepotism. He was obviously completely unqualified for the job, the upside being that you could get away with pretty much anything.
 
