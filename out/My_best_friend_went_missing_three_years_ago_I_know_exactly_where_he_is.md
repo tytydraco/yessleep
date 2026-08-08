@@ -64,4 +64,4 @@ He tells me that he loves me, that he’ll never leave me. 
 
 I wear a hat every day now. Wide-brimmed ones in the summer, beanies in the winter, whatever will cover that face. I don’t look in mirrors anymore. When I do, I keep my eyes on myself and try not to turn. I know he’s still there, always watching the room over my shoulder, watching me.
 
-Late at night his voice gets clearer. He asks if I’m still mad at him. He says it doesn’t matter anymore, that we’re past all that. I never answer. I just try to sleep it off and wait until morning. I tell myself that if I ignore him long enough, maybe he’ll finally shut [up](https://www.reddit.com/r/TalesFromTheMullet/s/wPwEC8Kz0F). 
+Late at night his voice gets clearer. He asks if I’m still mad at him. He says it doesn’t matter anymore, that we’re past all that. I never answer. I just try to sleep it off and wait until morning. I tell myself that if I ignore him long enough, maybe he’ll finally shut [up](https://www.reddit.com/r/TalesFromTheMullet/s/wPwEC8Kz0F).
