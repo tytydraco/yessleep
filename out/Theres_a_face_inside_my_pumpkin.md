@@ -1,0 +1,153 @@
+I dropped my knife the moment the hole was cut.
+
+It was the size and shape of a tortilla chip, jagged where my blade slipped. Inside its orange flesh was something white and wriggling. It blinked at me. Iris, the same muddy brown as my own. Its pupil contracted under the overhead lights.
+
+A real human eye.
+
+The knife continued to ring on the floor. My breath had stuck in place, the air trapped somewhere between the rungs of my ribcage. Surely this was just my old brain playing tricks on me. After all, how could it exist? A pumpkin, plain as could be on the outside, hiding something wholly unexpected. 
+
+My stepson, Steven’s, voice came from the other room. He asked if I was okay. I told him I was. As I lied, I pulled a shop towel over the pumpkin, scooping it against my chest. I brought it outside, to the back porch, and tucked it away within an obscure crack. Deep it went, against the home’s foundations, nestled among the weeds I couldn’t reach.
+
+Cynthia got the idea for us to plant in the spring. Told me it would give me something to do after my early retirement. Steven wanted to do pumpkins specifically, what with Halloween on the horizon. There were nine pumpkins in the patch by the fall, modest ones, each the size of a bowling ball or smaller. 
+
+I took a baseball bat to every single one. I didn’t look too closely at what was coming out of them. I’d seen more than enough already, pale shapes that had no place in a vegetable, organs that I didn’t understand the function of. 
+
+There was no reason to drive myself crazy thinking about it. With my shovel, some dirt and a little elbow grease, I buried the mess. I stood there for about thirty minutes afterwards just waiting for my hands to stop shaking. It felt like *murder.*
+
+Steven came outside a few minutes later to check on me. He asked if we were good to carve, where the pumpkins went. I told him some vandals had gotten into the patch and that there wasn’t anything left. Didn’t take much to convince him beyond showing him the mussied dirt and chopped-up vines. The boy looked like someone kicked a puppy in front of him. He said he was sorry and that he could just go to buy some at the flea market later that night. The pity in his voice didn’t sit right. Never did. 
+
+When he went back inside, I breathed a mighty sigh. 
+
+Night couldn’t come soon enough. I waited until Cynthia began to snore and carefully shifted my weight out of the bed. Steven was in the basement, chatting with someone, his girlfriend, no doubt. I took a flashlight and a fresh paring knife before stepping out on the porch.
+
+The pumpkin was exactly where I left it. Pulling the shop towel off, it once again made eye contact. 
+
+“Alright,” I sighed. “What’re you hiding?”
+
+Setting to work, like chipping a sculpture, I peeled back layers of vegetable flesh with my knife. Slowly, steadily, revealing just a little bit more of the face with each stroke. 
+
+Cheekbones. The bridge of a nose. A second eye that opened once freed. No hair in sight. 
+
+I didn’t want to damage whatever was underneath, though it horrified me. Hours must have gone by before I got to a satisfying endpoint. 
+
+The mouth was set free last. It smacked its lips a few times before speaking.
+
+“Hello, father!”
+
+I clapped a hand over it tight enough to feel its soft teeth underneath. 
+
+“Be quiet. Nobody can know you’re here.”
+
+It gave a stiff nod. I eased off. 
+
+“Sorry, father.” It said. “I was just so excited to meet you.”
+
+I grunted. 
+
+“Feeling’s mutual.” It was only half-true. 
+
+The pumpkin’s eyes panned back and forth. Its body shifted from side to side, like it was trying to get more comfortable in the dirt.
+
+“Where is our family?” it asked. 
+
+“*My* family?” I responded. “Or the other pumpkins?”
+
+“I can’t feel them anymore. I can’t hear them in my head.”
+
+I licked my top row of teeth beneath my lips. How would I put this…?
+
+“Your family’s dead. Vandals got to ‘em.”
+
+Yeah. That seemed blunt enough. 
+
+It wept. Actually wept. Fluid welled in the corners of its vaguely familiar eyes, running down its starchy cheeks. I helped wipe the tears away with my thumb. I asked it if there was anything I could do. It was the least I could offer after recklessly slaughtering its kin. 
+
+“I’m really thirsty,” it said. “Do you think I could have some water?”
+
+I spent the rest of my night in the barn, Jerry-rigging a length of irrigation tubing with a plastic reservoir. I tied one end around the stump of its stem with baling wire, feeding the tube into a five-gallon bucket of water. The pumpkin drank, its skin firming up a little, its shape becoming less lopsided than before.
+
+We talked every night after that.
+
+I would wait until everyone else was asleep, then crawl under the boards with a thermos of coffee and some fresh water for the pumpkin. It asked me a lot of questions about who I was, the life I lead, the dreams I had long ago that had been crushed by reality. It asked about the sky, about light, what a farmer even was. I told it about my lost property, the arguments I’d get in with my wife over it, how she always looked like she was preparing to be a widow. I talked about how Steven’s kindness made my teeth ache.
+
+The pumpkin asked who Steven was. I guess I hadn’t thought to tell it yet. 
+
+“He’s a softie.” I said. “He’s always on the phone with that girl of his. Since my dad passed away, he’s been walking on eggshells around me. Never makes eye contact, never talks to me beyond a simple hello. It’s like…like he’s looking at a leaning tree. He’s waiting for me to snap.”
+
+The orange face listened intently. Its eyes were like our tomcat’s, wide, inquisitive. 
+
+“Are you angry?” it asked. 
+
+“I resent him for it,” I said. “I think…I resent them both. More than I should. I don’t like the way they perceive me.”
+
+“Have you talked with them about it? I’m sure they would be good listeners.”
+
+I got bubble lips, making a sound like a motorboat. Of course the pumpkin wouldn’t get it. You didn’t just talk about these things without making everything worse. 
+
+Days passed. Then weeks.
+
+The artificial vine helped keep the pumpkin alive, but only just. I noticed it beginning to look duller and duller, its skin softening back up as rot began to take hold. 
+
+“Are you okay?” I asked.
+
+“I think I’m beginning to outgrow this body,” it weakly replied. 
+
+It explained that its body was changing. Metamorphizing. It was becoming less plant and more man with every passing day. Water wasn’t cutting it anymore, not for the circulatory system it was apparently beginning to develop. 
+
+“What do I do?” I asked. “How do I help?”
+
+“For me to continue living, I need the essence of life itself.” the pumpkin’s eyes darkened, lowering, unable to meet my own. “I need your blood, father. Just a little bit, merely a pint.” 
+
+A standard blood donation. I hadn’t given in several years. 
+
+It should have been more disturbing to me than it was. I only sat with the thought for a few minutes in the dark before deciding. 
+
+If it meant keeping my friend alive, I would give as much blood as I needed.
+
+The next morning I drove into town to buy whatever supplies Google told me I needed. A tourniquet, sterile tubing, a collection bag and a needle. I told the clerk it was for a science project my stepson was working on. She just blinked at me and rang me up without a word. Not even a thank you for my business. Kids these days. 
+
+Under the porch that evening, I tied my arm and stuck myself, watching my crimson ichor climb the plastic of the bag. The pumpkin drank through a separate tube I’d spliced into its stem. When it was done, it let out a deep sigh, like an old man settling into a soft mattress. 
+
+It thanked me, said it felt like its heart was beating again. The rotting sag was totally gone in the morning. It looked more invigorated than ever before. More human, too. 
+
+When I checked underneath the porch the following evening, it was gone. 
+
+Only the towel and tubing remained, as well as tracks in the dirt as though something had been dragged outside. I tore the house apart looking for it, accusing Cynthia and Steven of throwing it out. They went quiet. They went to dinner later, without me. Cynthia said I ought to just stay home and cool off for the night. She didn’t look me in the eyes when she said it. The silence following the truck leaving our long dirt road was worse than any argument could have been. 
+
+I sat at the kitchen table until midnight. They never ended up coming back that evening. When the grandfather clock started its chiming, I stormed out to the garage. Maybe working on my Buick would help calm me down. 
+
+I walked to my wall of tools and picked out a gear wrench before turning on the overhead lights. They buzzed, yellow fluorescence warming up, slowly occupying the room around me. That’s when I saw it again. 
+
+It had a body, now.
+
+Vines, like muscles, wound around a frame roughly the same height and width as my own. A layer of pale cellulose grew over the exposed places. In one hand, it held my sticky paring knife, using it to carve the excess flesh from its developing skull. Seeds and pulp dropped to the concrete, splattering. When it turned around, I could see it had grown thinning hair, wild eyebrows, a thick, white beard. 
+
+He looked exactly like me, smiling with my mouth.
+
+“Thank you, father, for setting me free,” he said. A fat leg took a set toward me.
+
+“You’re…welcome,” I said flatly. 
+
+“I didn’t understand why you lied to me at first. If only I’d known what you had in store. Thanks to you, I can have a family again. Your family. After all, it’s the least you can do, right?”
+
+I shook my head and backed into my tools. Several fell down, a pruning saw landing on the back of my hand and slicing it open. 
+
+He came at me with the knife. It was rough. Ugly. He was far stronger than me, redirecting my flailing with ease. His blade opened my forearms, my legs, the sides of my face. I headbutted him hard enough to feel something crunch, but he drove me back into the wall, punching my gut with the knife. I felt my intestines rupture. With one hand, I held his wrist in place so that he couldn’t pull it free. I grabbed the pruning saw with the other. Fully charged. Thank God. 
+
+I forced the spinning blade into my doppelganger’s neck, wrenching it back and forth. The teeth clawed through vine and half-formed tendons and whatever it had been using for a spine. His head came free in a spray of thick blood. The body staggered two steps back, and folded over like a lawn chair in the wind. 
+
+His head hit the floor and rolled until it came to rest against the Buick. His brown eyes found mine. 
+
+“Can you really blame a guy for trying?” he joked. 
+
+I stomped him out with the heel of my boot until there was nothing left but orange pulp. I cleaned up what I could and burned the rest of the remains out behind the barn. Before crawling into bed, I bandaged my face and arms. By the time Cynthia and the boy came home, the scars looked much worse than I remembered. Furious reds trailing across me. 
+
+They saw my wounds when they came home the next morning. I tried to tell them what happened. Tried to show them the body in the burn barrel. But it was gone.
+
+They immediately called the hospital, explaining that I was having some kind of mental breakdown. 
+
+I stayed in psychiatric care for eleven days. Cynthia visited me every other afternoon. Steven didn’t come once. I guess he still felt bad about the pumpkins. As if that’s what I wanted an apology for. 
+
+To this day, I think about how it looked at me when I first cut it free. The relief in its voice and the way it listened to my woes. I wonder if I should have just let it die. I wonder if I should have let myself die and had it take my place. Surely it would do a better job at this parenting thing than me. 
+
+When it’s pitch black outside, I catch my reflection in the window. I swear it’s more ochre than [before](https://www.reddit.com/r/TalesFromTheMullet/comments/1vijsyk/master_post_welcome_to_tales_from_the_mullet/). 
